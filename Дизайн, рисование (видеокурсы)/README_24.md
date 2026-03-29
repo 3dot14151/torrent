@@ -1,3 +1,31 @@
+###  Публикация: 1501084   (837631) от 08.10.2021
+
+Яндекс.Практикум | Профессия Дизайнер интерфейсов (2021) WEB-DL [Части 1-7 из 7] [AD]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайнер интерфейсов решает задачи пользователей и бизнеса: разрабатывает внешний облик сайтов и мобильных приложений, проектирует пользовательский опыт и анализирует целевую аудиторию. Он делает цифровые продукты полезными и удобными. Мы научим вас работать с Figma и другими инструментами дизайн-процесса.
+Что вы получите в Практикуме:
+За 7 месяцев обучения по 10 (   Читать дальше...   )Производство: Яндекс.ПрактикумЖанр: ДизайнПродолжительность: 39:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74D771FFD54AF34336CA8FE068C08AA24701B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501246   (836278) от 09.10.2021
 
 Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (2020) PCRec
@@ -6,7 +34,7 @@ Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836278.jpg" />
+  <img src="Z:/picture/008/save_picture_836278.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ Alex Crow | Большой пак с 9 видеоуроками (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836142.jpg" />
+  <img src="Z:/picture/008/save_picture_836142.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ kalachevaschool, Вера Соколова | Согревающие пожела
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835115.jpg" />
+  <img src="Z:/picture/008/save_picture_835115.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ kalachevaschool, Татьяна Чулюскина | Антиква и скри�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835114.jpg" />
+  <img src="Z:/picture/008/save_picture_835114.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ kalachevaschool, Анна Цымбал | Надпись на стекле (2018)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835110.jpg" />
+  <img src="Z:/picture/008/save_picture_835110.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ kalachevaschool, Вера Соколова | Новогодний девиз (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835109.jpg" />
+  <img src="Z:/picture/008/save_picture_835109.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ kalachevaschool, Анастасия Ермакова | Горное пастби
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835108.jpg" />
+  <img src="Z:/picture/008/save_picture_835108.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ kalachevaschool, Анна Цымбал | Оформление предметов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835107.jpg" />
+  <img src="Z:/picture/009/save_picture_835107.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ kalachevaschool, Анастасия Ермакова | Закат на горн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835044.jpg" />
+  <img src="Z:/picture/008/save_picture_835044.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ kalachevaschool, Татьяна Чулюскина | Книжка-расклад
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835042.jpg" />
+  <img src="Z:/picture/009/save_picture_835042.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ kalachevaschool, Татьяна Чулюскина | Шрифтовой колл
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835041.jpg" />
+  <img src="Z:/picture/008/save_picture_835041.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ kalachevaschool, Анастасия Ермакова | Звездная ночь
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835040.jpg" />
+  <img src="Z:/picture/008/save_picture_835040.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ kalachevaschool, Анна Цымбал | Меловой леттеринг (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834966.jpg" />
+  <img src="Z:/picture/008/save_picture_834966.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ kalachevaschool, Дарья Остапенко | Живописный рисун
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834948.jpg" />
+  <img src="Z:/picture/008/save_picture_834948.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834403.jpg" />
+  <img src="Z:/picture/008/save_picture_834403.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834317.jpg" />
+  <img src="Z:/picture/008/save_picture_834317.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833452.jpg" />
 </div>
 
 
@@ -458,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833070.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833028.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832797.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832789.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832787.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ CGMA, Niels Prayer | Organic Design in Houdini (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831559.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ FlippedNormals, Maria Puchkova | Real-Time Hair Tutorial (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829540.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829174.jpg" />
 </div>
 
 
@@ -657,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8CCA634879565547C19081DC83E5377A16CC550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005548   (828101) от 11.04.2016
-
-Олунин Дмитрий | Базовый курс по моушн-дизайну (2014) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс о том, как делать актуальный видеодизайн. Я покажу как пройти все этапы создание видео от подготовки сценария до финальной звукорежиссуры.
-По сути, курс – это сборник классных фишек и техник которые я накопил за годы работы в индустрии . Комбинируя эти приёмы Вы сможете собирать свои крутые и уникальные ролики как в конструкторе.Получив эти навыки вы сможете (   Читать дальше...   )Жанр: Моушн-дизайнПродолжительность: 16:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCA87747BA7C532E6C99220EB4DE1D1B202AD59
 ```
 
 https://mybot314.ru/tekegram_catalog/

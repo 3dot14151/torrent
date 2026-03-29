@@ -1,3 +1,29 @@
+###  Публикация: 1479270   (1009653) от 23.06.2021
+
+Кисло-сладкий вкус любви / Saekomdalkom / Sweet & Sour (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пухляш Чан-хёк попал в больницу с гепатитом и там встретил симпатичную заботливую медсестру Чон Да-ын. Парень постепенно влюбляется, она называет его Хёк, они начинают встречаться и, хотя друзья и родители не верят, что у такого толстяка могут быть отношения, девушка приглашает его вместе съездить на Чеджу. Поскольку парная футболка для парочек ему сильно мала, Хёк (   Читать дальше...   )Производство: Южная Корея, 26 Company, NetflixЖанр: Мелодрама, комедияРежиссер: Ли Ге-бёкАктеры: Чан Ги-ён, Кристал Чон, Чхэ Су-бин, Пак Чхоль-мин, Юн Бён-хи, Пак Чи-хун, Ё Мин-джу, Ли Гён-ён, Ю СонПеревод: Многоголосый любительский (STEPonee)Субтитры: отсутствуютПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561EB05743553DC38164D471CEF3E448688E2BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479665   (1009422) от 25.06.2021
 
 Одна секунда / Yi miao zhong / One Second (2020) WEB-DLRip [MVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009422.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009379.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009140.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009096.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008263.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008260.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008216.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007998.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003124.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002971.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002687.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002647.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002539.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002463.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001911.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001909.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001287.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998884.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998876.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998853.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998731.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998257.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997357.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994776.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992718.jpg" />
 </div>
 
 
@@ -645,34 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:584EE51162505B5E3969673604CAE940DCD1BAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607440   (992670) от 26.01.2013
-
-Проклятие / Ju-on (2000) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое страшное из всех проклятий — предсмертное. В минуту, когда жизнь покидает тело человека, погибающего насильственной смертью, вся бессильная ярость и неистовый гнев несчастной жертвы против мучителя обрушивается на место, где свершилось убийство.
-
-Душа погибшего не найдет покоя. Мятущийся призрак станет являться там, где бывал при жизни, и, одержимый жаждой (   Читать дальше...   )Жанр: УжасыРежиссер: Такаши Шимицу/Takashi ShimizuАктеры: Юрэй Янаги, Хитоми Мива, Асуми Мива, Юми Йошиюки, Казуши МицуоПеревод: Многоголосый закадровыйЯзык субтитров: нетПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DEEF0BF6F5715CAF6EA456B5C2EF5E27717C4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

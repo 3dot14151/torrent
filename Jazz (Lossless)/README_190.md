@@ -1,3 +1,119 @@
+###  Публикация: 947415   (418393) от 17.10.2015
+
+Feyza - I Wish I Knew (2015) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wish I Knew
+02. Look Of Love
+03. Bye Blackbird
+04. Never Let Me Go(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227BA328A50F84875C03FFD22B328139EE51B134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947439   (418392) от 17.10.2015
+
+Rocio Guitard & Moises P. Monk - Marriage & Other Novellas (2015) [FLAC|image+.cue]<Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Napoleon's Groove (Here Comes The Tiger)
+02. Play Me Like A Cello (What She Wants)
+03. Tango De Museo (They Meet)
+04. El Tigre (Same Story Another Bed)(   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D56C5042BE4FAC2BB271FF372EF90E653A053E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947703   (418390) от 17.10.2015
+
+Chet Baker - Mr. B (1983) /2015, Solid Records/[FLAC|tracks+.cue]<Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dolphin Dance [06:25]
+ 02.Ellen And David [06:18]
+ 03.Strollin' [07:25]
+ 04.In Your Own Sweet Way [07:18](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3012CA0BAD09AB5666E93C0C66F557802452D62C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947363   (418388) от 17.10.2015
+
+Bobby Hutcherson - Color Schemes (1986) /Landmark Records/[FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Recorda-me [05:53]
+ 02.Bemsha Swing [04:52]
+ 03.Rosemary, Rosemary [05:09]
+ 04.Second-Hand Brown [05:27](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049DB9010C6AB2397DBF141F1744C16F4FEFEF12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412418   (418363) от 29.09.2020
 
 Chet Baker - Live in Tokyo (1987) 2015, 2CD, King Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
@@ -6,7 +122,7 @@ Chet Baker - Live in Tokyo (1987) 2015, 2CD, King Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418363.jpg" />
+  <img src="Z:/picture/008/save_picture_418363.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Miles Davis and Milt Jackson - Quintet / Sextet (1955) /2013, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418266.jpg" />
+  <img src="Z:/picture/008/save_picture_418266.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Rivington Project - Trip (2006) Counterpart Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418037.jpg" />
+  <img src="Z:/picture/008/save_picture_418037.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Phil Collins Big Band - A Hot Night in Paris (1999) [FLAC|Lossless]<Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417876.jpg" />
+  <img src="Z:/picture/008/save_picture_417876.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Freddie Hubbard - High Energy, Liquid Love, Windjammer (1974 - 1976) 2CD, 2012, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417579.jpg" />
+  <img src="Z:/picture/008/save_picture_417579.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Art Van Damme - A Perfect Match & Martini Time (1953, 1963) 2014, Cheesecake Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417573.jpg" />
+  <img src="Z:/picture/008/save_picture_417573.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Bill Evans - Another Time: The Hilversum Concert (1968) 2017, Resonance Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417411.jpg" />
+  <img src="Z:/picture/008/save_picture_417411.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Earl Hines - Tour De Force (1972) 1989, Black Lion Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416907.jpg" />
+  <img src="Z:/picture/008/save_picture_416907.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Betty Carter - The Music Never Stops (1992) 2019, Blue Engine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416739.jpg" />
+  <img src="Z:/picture/008/save_picture_416739.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Duke Ellington - Complete Prestige Carnegie Hall Concerts (1946, 1947) 2001, 3CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416192.jpg" />
+  <img src="Z:/picture/008/save_picture_416192.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Duke Ellington - The Carnegie Hall Concerts, December (1944) 1992, 2CD, Prestige
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416186.jpg" />
+  <img src="Z:/picture/008/save_picture_416186.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Freddie Redd - The Complete Blue Note Recordings Of Freddie Redd (1960/1961) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416140.jpg" />
+  <img src="Z:/picture/008/save_picture_416140.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Nina Simone - The Blues (1997) /CD Media Records/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415999.jpg" />
+  <img src="Z:/picture/008/save_picture_415999.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jonathan Zwartz - The Sea (2009) Self-Released [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415616.jpg" />
+  <img src="Z:/picture/008/save_picture_415616.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Mark Murphy - Stolen...And Other Moments (1972 - 1991) 2CD, 1997, 32 Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415614.jpg" />
+  <img src="Z:/picture/008/save_picture_415614.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Mike Fahn - Close Your Eyes and Listen (2002) Sparky [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415260.jpg" />
+  <img src="Z:/picture/008/save_picture_415260.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Don Ewell - Music To Listen To Don Ewell By (1956) 1995, Good Time Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415259.jpg" />
+  <img src="Z:/picture/008/save_picture_415259.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Dick Morrissey Quartet - It's Morrissey, Man! (1961) 1998, PolyGram [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415258.jpg" />
+  <img src="Z:/picture/008/save_picture_415258.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Dick Morrissey Quartet - Storm Warning! (1965) 1994, HomeGrown Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415257.jpg" />
+  <img src="Z:/picture/008/save_picture_415257.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Jimmy McGriff - Fly Dude (1972) 2006, Groove Merchant [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415255.jpg" />
+  <img src="Z:/picture/008/save_picture_415255.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Art Van Damme - Accordion a la Mode & A Perfect Match (1960, 1962) 2000, Collect
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415253.jpg" />
+  <img src="Z:/picture/008/save_picture_415253.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Tony Bennett & Count Basie - The Jazz Collector Edition (1958) 1990, LaserLight 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415194.jpg" />
+  <img src="Z:/picture/008/save_picture_415194.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Tony Bennett & Count Basie - The Jazz Collector Edition (1958) 1990, LaserLight 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F29DAD95AE07A5156B6ACFD390AC9278702907D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167713   (415094) от 21.09.2017
-
-The Dick Morrissey Quartet - Here And Now And Sounding Good! (1966) 1995, Norma [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off The Wagon [08:21]
-02. Corpus [07:05]
-03. Don't Fall Over The Bridge [04:18]
-04. Sunday Lunch [08:05](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B43CC9A3FD693E5688AC8158063424E0D389A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066276   (414948) от 25.10.2016
-
-Carmen McRae - Something to Swing About (1959) 1989, Warner[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Three Little Words [01:55]
- 02.I Couldn't Care Less [02:27]
- 03.That's for Me [02:50]
- 04.(How Little It Matters) How Little We Know [02:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F5569910BD6ADFE02E0649E97962A23F76C9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066336   (414944) от 25.10.2016
-
-June Christy - Gone For The Day And Fair And Warmer (1957) 1998, Capitol[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's So Peaceful In The Country [04:23]
- 02.When The Sun Comes Out [03:12]
- 03.It's A Most Unusual Day [02:24]
- 04.Interlude [04:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51488FC7D11AB090CBFD6EF1CE378C58BE7315A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572753   (414918) от 30.08.2022
-
-Roy Eldridge - Swingin' On The Town (1960) 1999, Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa Nova [2:47]
-02. The Way You Look Tonight [2:26]
-03. Sweet Sue, Just You [2:29]
-04. I've Got a Crush on You [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F779000C4942EF57602395B019DB1CFEC129D450
 ```
 
 https://mybot314.ru/tekegram_catalog/

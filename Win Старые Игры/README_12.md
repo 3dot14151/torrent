@@ -1,3 +1,55 @@
+###  Публикация: 509417   (673878) от 12.06.2012
+
+Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673878.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Wolfenstein 3D игрок управляет солдатом, пытающимся бежать из одноимённой нацистской крепости; ему противостоит множество вооружённых охранников и сторожевых собак. Здание наполнено потайными комнатами, где хранятся разного рода драгоценности, пищевые продукты и медицинские аптечки, а также различное оружие и боеприпасы. Игрок двигается по уровням игры, в конце каждого сюжетного эпизода предстоит схватка с «финальным боссом» — особенно сильным противником, для победы над которым требуется немало усилий со стороны игрока.(   Читать дальше...   )Тип издания: RePackЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1618ED1717C777CF152ACFF38FC590F0EF4E084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290890   (673828) от 22.03.2019
+
+Bio Menace (1993) [En] (1.1) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сражайтесь не на жизнь, а на смерть со свирепыми монстрами, порождениями безумного злого гения, вместе с крутым агентом ЦРУ Снейком Логаном. Ваша цель – остановить злоумышленника, по чьей вине полчища мутантов угрожают захватить мир. Вас ждут путешествия вокруг света, спасение заложников, битвы с монстрами и столкновения с мерзкими прихвостнями главного злодея, а (   Читать дальше...   )Тип издания: LicenseРазработчик: Apogee Software, Ltd.Жанр: Шутер, Экшн, ФантастикаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9A4066C8A3A242258F33369177D96700C1D87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030465   (673535) от 30.06.2016
 
 Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [En] (1.3.67255) License
@@ -6,7 +58,7 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673535.jpg" />
+  <img src="Z:/picture/008/save_picture_673535.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671211.jpg" />
+  <img src="Z:/picture/008/save_picture_671211.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_669865.jpg" />
+  <img src="Z:/picture/005/save_picture_669865.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ War Wind (1996) [En/Fr/Ge] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668513.jpg" />
+  <img src="Z:/picture/008/save_picture_668513.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666937.jpg" />
+  <img src="Z:/picture/008/save_picture_666937.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Doom [En] (L) 1993
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666901.jpg" />
+  <img src="Z:/picture/008/save_picture_666901.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_665923.jpg" />
+  <img src="Z:/picture/005/save_picture_665923.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Black Dahlia (1998) [En] (1.10) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664230.jpg" />
+  <img src="Z:/picture/008/save_picture_664230.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Sid Meier's Pirates! (2004) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662654.jpg" />
+  <img src="Z:/picture/008/save_picture_662654.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656477.jpg" />
+  <img src="Z:/picture/008/save_picture_656477.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656441.jpg" />
+  <img src="Z:/picture/008/save_picture_656441.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ EuroCops / Полиция Европы: Спецподразделения [Ru] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656398.jpg" />
+  <img src="Z:/picture/008/save_picture_656398.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654403.jpg" />
+  <img src="Z:/picture/008/save_picture_654403.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654279.jpg" />
+  <img src="Z:/picture/008/save_picture_654279.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650835.jpg" />
+  <img src="Z:/picture/008/save_picture_650835.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646346.jpg" />
+  <img src="Z:/picture/008/save_picture_646346.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646313.jpg" />
+  <img src="Z:/picture/008/save_picture_646313.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646200.jpg" />
+  <img src="Z:/picture/008/save_picture_646200.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Merchant Prince 2 / Венецианский купец 2 (2001) [Ru] (1.1) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644387.jpg" />
+  <img src="Z:/picture/008/save_picture_644387.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ ABZU (2016) [Ru/Multi] (1.1) License STEAMPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644261.jpg" />
+  <img src="Z:/picture/008/save_picture_644261.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636901.jpg" />
+  <img src="Z:/picture/008/save_picture_636901.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636812.jpg" />
+  <img src="Z:/picture/008/save_picture_636812.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636687.jpg" />
+  <img src="Z:/picture/008/save_picture_636687.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636585.jpg" />
+  <img src="Z:/picture/005/save_picture_636585.jpg" />
 </div>
 
 
@@ -619,60 +671,6 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293562   (635080) от 04.04.2019
-
-Aquaria (2007) [En] (1.1.1) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот участок океана был домом одинокой Найи столько, сколько она себя помнила. Но после одной странной встречи она словно очнулась от глубокого сна. В ней вдруг проснулись никогда ранее не испытанные чувства, и больше она не может оставаться на месте. Найя знает, что ее ждет огромный, неизведанный мир, и что пора покинуть родные воды. Воплощая в песнях свой уникальный (   Читать дальше...   )Тип издания: LicenseРазработчик: Bit Blot, LLCЖанр: Экшн, Приключение, MetroidvaniaЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CFB69193DAF061B58EBFDEBBCE4AB26BED78C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521117   (628443) от 10.07.2012
-
-Outcast [Ru/En] (Repack/1.0.46.7) 1999 | R.G. Catalyst
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outcast – не игра. Это одно гигантское приключение. Яркое, запоминающееся, и абсолютно неповторимое.
-
-Одна из наиболее проработанных и детальных игр своего времени. Графика - с поправкой на возраст игры и поддерживаемые ею разрешения - впечатляет даже по нынешним временам. Для инопланетных жителей Адельфы - мира, в котором происходит действие Outcast - даже был придуман свой язык, на котором они говорят. В лицензионных версиях часть руководства к игре специально отведена под словарь этого языка, иначе общение героя с туземцами может осложниться языковым барьером  Игра также получила множество призов за великолепный симфонический саундтрек, один из лучших что были созданы для игр за всю их историю. Исполняют же эту эпическую музыку не кто иные, как Московский симфонический оркестр и хор - из сравнимого по стилю и уровню назову разве что саундтрек Шора к трилогии "Властелин Колец".(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / Adventure / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155B9DB109FF88EF5FC45F61845C1C1888809463
 ```
 
 https://mybot314.ru/tekegram_catalog/

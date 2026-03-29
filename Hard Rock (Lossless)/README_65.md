@@ -1,3 +1,61 @@
+###  Публикация: 1548452   (240896) от 03.05.2022
+
+Soho Riot - Square One (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don t Believe the Screen (00:03:20)
+02 - Got to Know (00:04:05)
+03 - 90 s Memories (00:03:31)
+04 - Square One (00:04:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661B659040BE9F3A19655A0B79F0080B3D3227C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548463   (240834) от 03.05.2022
+
+Gary Schutt - The Beautiful Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Beautiful Darkness (00:04:07)
+02 - Fly Interstellar (00:01:18)
+03 - U F O (00:05:22)
+04 - Fading Light (00:06:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6E3E64E903B95F9A8606FCEBA9A1E19007B0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548476   (240801) от 03.05.2022
 
 Mick White - Something's Got To Give (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Mick White - Something's Got To Give (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240801.jpg" />
+  <img src="Z:/picture/004/save_picture_240801.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240737.jpg" />
+  <img src="Z:/picture/004/save_picture_240737.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Merzy - Merzy (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240679.jpg" />
+  <img src="Z:/picture/004/save_picture_240679.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Iain Ashley Hersey - Nomad (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240636.jpg" />
+  <img src="Z:/picture/004/save_picture_240636.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Peter Hermansson - Second Glance (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240624.jpg" />
+  <img src="Z:/picture/004/save_picture_240624.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Gable - Brown Paper Bag (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240594.jpg" />
+  <img src="Z:/picture/004/save_picture_240594.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Kahr - Kahr (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock, sludge
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240541.jpg" />
+  <img src="Z:/picture/004/save_picture_240541.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Screaming Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240511.jpg" />
+  <img src="Z:/picture/004/save_picture_240511.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Last Chance Riders - Fool's Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240462.jpg" />
+  <img src="Z:/picture/004/save_picture_240462.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Gary Moore - Run for Cover (1985) Reissue, 2023, Universal, Japanese Edition [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240419.jpg" />
+  <img src="Z:/picture/004/save_picture_240419.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Killing Tyranny - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240405.jpg" />
+  <img src="Z:/picture/004/save_picture_240405.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Gary Moore - Corridors of Power (1982) Reissue, Remastered, 2023, Universal, Jap
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240373.jpg" />
+  <img src="Z:/picture/004/save_picture_240373.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ House of Shakira - XIT (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240288.jpg" />
+  <img src="Z:/picture/004/save_picture_240288.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Qvintessence - Qvintessence (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240258.jpg" />
+  <img src="Z:/picture/004/save_picture_240258.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240174.jpg" />
+  <img src="Z:/picture/004/save_picture_240174.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Stormburst - III (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239889.jpg" />
+  <img src="Z:/picture/004/save_picture_239889.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Gary Moore - Rockin’ Every Night: Live in Japan (1983) Reissue, 2023, Universa
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239888.jpg" />
+  <img src="Z:/picture/004/save_picture_239888.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Hotwire - The Story So Far 1993-2023 (2023) Compilation [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239879.jpg" />
+  <img src="Z:/picture/004/save_picture_239879.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Imperium - Never Surrender (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239862.jpg" />
+  <img src="Z:/picture/004/save_picture_239862.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Bai Bang - Sha Na Na Na (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239857.jpg" />
+  <img src="Z:/picture/004/save_picture_239857.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Gary Moore - Wild Frontier (1987) Japanese Edition, Reissue, 2023, Universal [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239847.jpg" />
+  <img src="Z:/picture/004/save_picture_239847.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ The Flood - Hear Us Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239846.jpg" />
+  <img src="Z:/picture/004/save_picture_239846.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Land Of The Sun - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239762.jpg" />
+  <img src="Z:/picture/004/save_picture_239762.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Alien - Into The Future (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239732.jpg" />
+  <img src="Z:/picture/004/save_picture_239732.jpg" />
 </div>
 
 
@@ -687,65 +745,6 @@ Alien - Into The Future (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C96BCAB67E9EF60E66D3A7DF22D595E5390B652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621832   (239685) от 26.03.2023
-
-Khymera - Hold Your Ground (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wait For Love (3:20)
-02. Firestarter (3:40)
-03. Hear Me Calling (3:20)
-04. Sail On Forever (3:46)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412F2656E74A51EB5394DBF25A38177798C82202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635701   (239649) от 26.05.2023
-
-Alcatrazz - Take No Prisoners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcatrazz полон решимости наверстать упущенное, рвясь вперед с шестым студийным альбом группы Take No Prisoners. Альбом состоит из десяти потрясающих харизматичных треков, каждый из которых представляет собой уникальное сочетание классического американского рока с полноценным хард-роковым настроем британского металла.
-Take No Prisoners является громкой и гордой классикой, (   Читать дальше...   )01. Little Viper (4:39)
-02. Dont Get Mad Get Even (3:57)
-03. Battlelines (3:58)
-04. Strangers (5:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB6DC7F8C377E5E85FF32D8D59DDBEBB010F8B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

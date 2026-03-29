@@ -6,7 +6,7 @@ Add1ction - Add1ction Nation (2016) EP [MP3|256 кб/с] <Rap-Rock, Alternative 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855815.jpg" />
+  <img src="Z:/picture/008/save_picture_855815.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jan Amit - Flowertraces (2015) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Ambient, IDM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855812.jpg" />
+  <img src="Z:/picture/008/save_picture_855812.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mo'jardo - Expressions Du Desir (2015) [FLAC|Lossless|WEB-DL|tracks] <Chillout, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855809.jpg" />
+  <img src="Z:/picture/008/save_picture_855809.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855798.jpg" />
+  <img src="Z:/picture/008/save_picture_855798.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Adobe Acrobat Pro DC 2021.007.20091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855795.jpg" />
+  <img src="Z:/picture/008/save_picture_855795.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ SiSoftware Sandra Lite 2021.10.31.40 (R6 31.40) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855793.jpg" />
+  <img src="Z:/picture/008/save_picture_855793.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855759.jpg" />
+  <img src="Z:/picture/008/save_picture_855759.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855747.jpg" />
+  <img src="Z:/picture/008/save_picture_855747.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Scarface - Deeply Rooted (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855729.jpg" />
+  <img src="Z:/picture/008/save_picture_855729.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ RadioniCA - Quick Init (2009) [MP3|320 кб/с] <Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855726.jpg" />
+  <img src="Z:/picture/008/save_picture_855726.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Windows Repair Toolbox 3.0.3.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855709.jpg" />
+  <img src="Z:/picture/008/save_picture_855709.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855703.jpg" />
+  <img src="Z:/picture/008/save_picture_855703.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Bye Bye Winter! 20 Sexy Lounge Anthems (2017) [MP3|320 Kbps] <Downtempo, Ch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855687.jpg" />
+  <img src="Z:/picture/008/save_picture_855687.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Trance Is Back (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855686.jpg" />
+  <img src="Z:/picture/008/save_picture_855686.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Smooze 1.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855682.jpg" />
+  <img src="Z:/picture/008/save_picture_855682.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Calendar 366 Plus 1.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855675.jpg" />
+  <img src="Z:/picture/008/save_picture_855675.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ iFinance 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855674.jpg" />
+  <img src="Z:/picture/008/save_picture_855674.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ NoteBurner iTunes DRM Audio Converter 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855671.jpg" />
+  <img src="Z:/picture/008/save_picture_855671.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855645.jpg" />
+  <img src="Z:/picture/008/save_picture_855645.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Buntaro Toriyama - Change In Feelings (2015) EP [MP3|320 кб/с] <Dub Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855644.jpg" />
+  <img src="Z:/picture/008/save_picture_855644.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855641.jpg" />
+  <img src="Z:/picture/008/save_picture_855641.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Stellarium 0.14.78.1 Test [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855635.jpg" />
+  <img src="Z:/picture/008/save_picture_855635.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Alternote 1.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855634.jpg" />
+  <img src="Z:/picture/008/save_picture_855634.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Citrio 48.0.2564.269 (5730.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855632.jpg" />
+  <img src="Z:/picture/008/save_picture_855632.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Voltage Voodoo - Significant (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855627.jpg" />
+  <img src="Z:/picture/008/save_picture_855627.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ VA - The Enemy VA 001 (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855626.jpg" />
+  <img src="Z:/picture/008/save_picture_855626.jpg" />
 </div>
 
 

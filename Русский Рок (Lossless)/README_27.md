@@ -6,7 +6,7 @@ Roz Vitalis - Compassionizer (2007) [WavPack|image+.cue]<Avantgarde, Prog Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531721.jpg" />
+  <img src="Z:/picture/008/save_picture_531721.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Roz Vitalis - Patience Of Hope (2012) [WavPack|image+.cue]<Avantgarde, Prog Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531715.jpg" />
+  <img src="Z:/picture/008/save_picture_531715.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Roz Vitalis - Lavoro D'Amore (2015) [WavPack|image+.cue]<Avantgarde, Prog Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531625.jpg" />
+  <img src="Z:/picture/008/save_picture_531625.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524845.jpg" />
+  <img src="Z:/picture/008/save_picture_524845.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ KAUAN - Pirut Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmospheric 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524416.jpg" />
+  <img src="Z:/picture/008/save_picture_524416.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523644.jpg" />
+  <img src="Z:/picture/008/save_picture_523644.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523480.jpg" />
+  <img src="Z:/picture/008/save_picture_523480.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stigmata - Калейдоскоп (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522961.jpg" />
+  <img src="Z:/picture/008/save_picture_522961.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Вечное Лето (2004) [FLAC|Lossless|tracks] <Rock, Alternative Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522311.jpg" />
+  <img src="Z:/picture/008/save_picture_522311.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521469.jpg" />
+  <img src="Z:/picture/008/save_picture_521469.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520544.jpg" />
+  <img src="Z:/picture/008/save_picture_520544.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520225.jpg" />
+  <img src="Z:/picture/008/save_picture_520225.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518993.jpg" />
+  <img src="Z:/picture/008/save_picture_518993.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518005.jpg" />
+  <img src="Z:/picture/008/save_picture_518005.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517198.jpg" />
+  <img src="Z:/picture/008/save_picture_517198.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517197.jpg" />
+  <img src="Z:/picture/008/save_picture_517197.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516644.jpg" />
+  <img src="Z:/picture/008/save_picture_516644.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516152.jpg" />
+  <img src="Z:/picture/008/save_picture_516152.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515987.jpg" />
+  <img src="Z:/picture/008/save_picture_515987.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512867.jpg" />
+  <img src="Z:/picture/008/save_picture_512867.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Neorhythm - Anthropo (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Math Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512449.jpg" />
+  <img src="Z:/picture/008/save_picture_512449.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512372.jpg" />
+  <img src="Z:/picture/008/save_picture_512372.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511526.jpg" />
+  <img src="Z:/picture/008/save_picture_511526.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511487.jpg" />
+  <img src="Z:/picture/008/save_picture_511487.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510976.jpg" />
+  <img src="Z:/picture/008/save_picture_510976.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510906.jpg" />
+  <img src="Z:/picture/008/save_picture_510906.jpg" />
 </div>
 
 

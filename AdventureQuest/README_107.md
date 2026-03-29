@@ -1,3 +1,81 @@
+###  Публикация: 1799975   (16126) от 31.05.2025
+
+DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечта коллекционера! Компиляция, состоящая из двух культовых индонезийских хоррор-игр: DreadOut и DreadOut: Keepers of The Dark, ремастирована и собрана в одном пакете для более плавного и современного игрового опыта. Изначально выпущенные в период с 2014 по 2016 год, обе игры были улучшены с точки зрения графики, управления и общей производительности. Теперь доступны (   Читать дальше...   )Тип издания: RepackРазработчик: Digital HappinessЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ИндонезийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878E557F4A10CE7EAE90714E7AA16DB720A02CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799004   (16018) от 01.06.2025
+
+Kathy Rain 2: Soothsayer (2025) [Multi] (1.0.3.4089) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kathy Rain 2: Soothsayer устанавливает действие в 1998 году, разворачиваясь в городской среде Кассиди, где происходят тревожные события. Игрок принимает роль частного детектива Кэти Рейн, которая сталкивается с серьезными личными проблемами, требующими финансовых средств. Ее транспортное средство нуждается в топливе, запасы еды почти исчерпаны, и ей грозит выселение (   Читать дальше...   )Тип издания: LicenseРазработчик: Clifftop GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D55E6C1A8B5FF1F9953257B689951F0E512DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773845   (16015) от 01.06.2025
+
+Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выйдите на улицы Парижа в «Broken Sword - Shadow of the Templars: Reforged», существенно улучшенной версии отмеченной множеством наград, классической приключенческой игры всех времен. Наслаждайтесь историей, охватывающей весь мир, в которой бесстрашный американец Джордж Стоббарт и бесстрашный журналист Нико Коллард погружаются в захватывающее приключение, исследуя (   Читать дальше...   )Тип издания: RepackРазработчик: Revolution Software LtdЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD3CF7D265B9BD8EB2359955D344D7933BCC31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794666   (16013) от 01.06.2025
 
 True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3]
@@ -6,7 +84,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16013.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Brassheart (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15988.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15895.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15884.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15882.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15875.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15786.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Last Vanguard (2025) [Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15612.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Kaodi (2025) [Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15588.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Moroi (2025) [Ru/Multi] (1.10) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15513.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Unexplored 2: The Wayfarer's Legacy (2022) [En] (1.7.35) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15420.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Moroi (2025) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15415.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15308.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Arctico (2022) [En] (2.6w) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15302.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Between Horizons / Between Horizons – A Sci-Fi Detective Adventure (2024) [Mul
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15293.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15277.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.36) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15256.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15223.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Tormented Souls (2021) [Ru/Multi] (0.94.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15198.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15176.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15113.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Sinking City (2019) [Ru/Multi] (58246/dlc) License GOG [Remastered Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15108.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15021.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C2B51579083FF798C8C8277DB67631C1A2EA213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783734   (15016) от 11.06.2025
-
-Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB43E351C1F33EDBCA46B2D0A882455E97B13E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641224   (14912) от 12.06.2025
-
-Strangeland (2021) [Multi] (3.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь посреди кошмарного карнавала и наблюдаете, как золотовласая женщина бросается ради Вас в бездонный колодец. Вы ищете подсказки и помощь у насмешливых воронов, безглазого писца, живой печки, изуродованной русалки и многих других, кто обитает в парке. Тем временем с пика возвышающихся американских горок пронзительно визжит тень, и Вы осознаёте, что (   Читать дальше...   )Тип издания: LicenseРазработчик: Wormwood StudiosЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Венгерский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Венгерский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0DA7F1F1E4E615E0910F86A2C14F1EB00F68F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752028   (14905) от 12.06.2025
-
-Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прогуляйтесь по улицам Парижа в игре Broken Sword - Shadow of the Templars: Reforged - значительно улучшенной версии многоуважаемого и всеми любимого классического приключения, получившего множество наград. Насладитесь глобальной историей, в которой отважный американец Джордж Стоббарт и бесстрашная журналистка Нико Коллар погружаются в захватывающее приключение, (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution Software LtdЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7C4C56DCE675A281426AAD2A61F75C9990456B
 ```
 
 https://mybot314.ru/tekegram_catalog/

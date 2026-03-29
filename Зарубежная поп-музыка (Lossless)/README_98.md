@@ -1,3 +1,204 @@
+###  Публикация: 1800669   (15550) от 05.06.2025
+
+Queen Latifah - Trav'lin' Light (2007) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Dance, Soul, R&B, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetry Man    [0:04:40.26]
+02. Queen Latifah feat. Stevie Wonder / Georgia Rose    [0:03:43.52]
+03. Quiet Nights of Quiet Stars    [0:03:54.16]
+04. Don’t Cry Baby    [0:02:53.40](   Читать дальше...   )Жанр: Dance, Soul, R&B, FunkПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0395799C592EBDE8293469EC17A05BD74910DABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800752   (15547) от 05.06.2025
+
+VA - Sunny Day 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz Feat. Francesco Yates - Sugar (Feat. Fransesco Yates) (03:39)
+02. Madonna - La Isla Bonita (04:02)
+03. David Guetta Feat. Anne-Marie & Coi Leray - Baby Don’t Hurt Me (Feat. Anne-Marie & Coi Leray) (02:20)
+04. Daniel Seavey - Sleeping With The Lights On (03:44)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B50A5AE27D465A9F68D9D698F0E9DA9896EF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800970   (15397) от 07.06.2025
+
+VA - 100 Greatest Pop Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15397.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dua Lipa - Levitating (feat. DaBaby) (3:23)
+002. Disturbed - The Sound of Silence (CYRIL Remix) (3:05)
+003. Tina Turner - What's Love Got to Do with It (3:50)
+004. James Blunt - You’re Beautiful (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF92A4FE3F742D88446AF6A9099C6377BFB8AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801389   (15054) от 10.06.2025
+
+VA - Classic Soul Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Solomon Burke - Everybody Needs Somebody to Love [00:02:44]
+02 - CHAKA KHAN - I’m Every Woman [00:04:07]
+03 - Sam & Dave - Soul Man [00:02:36]
+04 - Ben E. King - This Magic Moment [00:02:25](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 02:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639BEE5F95067E0DBD799A36F6466875DA715181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801504   (14924) от 11.06.2025
+
+VA - Some Great 20s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benson Boone - Beautiful Things (3:00)
+002. Rose - APT. (2:49)
+003. Teddy Swims - Lose Control (3:30)
+004. Ed Sheeran - Azizam (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4701B24D3BC0DF5932159596EE89D34A5123E9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801813   (14744) от 13.06.2025
+
+VA - Magical Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Azizam (2:42)
+02. Don Toliver - Lose My Mind (From F1® The Movie)Жанр: PopПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F519FA24B15071BA227008504369E88E98AD8D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801781   (14728) от 13.06.2025
+
+The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untouched		04:14
+02. Hook Me Up		02:56
+03. This Is How It Feels		04:12
+04. This Love		02:59(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B515FFF5A0FCB12BCC1FBD54E64E4152B1E79747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801835   (14714) от 13.06.2025
 
 The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
@@ -6,7 +207,7 @@ The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14714.jpg" />
 </div>
 
 
@@ -35,7 +236,7 @@ VA - Some Great 90s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14502.jpg" />
 </div>
 
 
@@ -64,7 +265,7 @@ Thomas Anders - …Sings Modern Talking - Ready for Romance (Thomas' Version) (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13931.jpg" />
 </div>
 
 
@@ -93,7 +294,7 @@ Petula Clark - Solitude & Sunshine -The Songs of Rod McKuen (2025) Expanded Edit
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13252.jpg" />
 </div>
 
 
@@ -122,7 +323,7 @@ VA - Summer Hits 2025 - Songs of the Summer (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12767.jpg" />
 </div>
 
 
@@ -151,7 +352,7 @@ Pupo - Insieme (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12351.jpg" />
 </div>
 
 
@@ -180,7 +381,7 @@ VA - #1 Hits of the 50s, Vol. 2 (2001) CD, Compilation [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12143.jpg" />
 </div>
 
 
@@ -209,7 +410,7 @@ Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12135.jpg" />
 </div>
 
 
@@ -238,7 +439,7 @@ VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12007.jpg" />
 </div>
 
 
@@ -267,7 +468,7 @@ Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11530.jpg" />
 </div>
 
 
@@ -296,7 +497,7 @@ Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10395.jpg" />
 </div>
 
 
@@ -325,7 +526,7 @@ Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10364.jpg" />
 </div>
 
 
@@ -354,7 +555,7 @@ Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10362.jpg" />
 </div>
 
 
@@ -383,7 +584,7 @@ Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10357.jpg" />
 </div>
 
 
@@ -412,7 +613,7 @@ VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10079.jpg" />
 </div>
 
 
@@ -441,7 +642,7 @@ A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10073.jpg" />
 </div>
 
 
@@ -470,7 +671,7 @@ VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10060.jpg" />
 </div>
 
 
@@ -499,7 +700,7 @@ Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9746.jpg" />
 </div>
 
 
@@ -528,7 +729,7 @@ Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9739.jpg" />
 </div>
 
 
@@ -542,209 +743,6 @@ Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E2D2D9F70A1A0EC6EA45B3F67DD73E42A1F2D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809470   (9735) от 31.07.2025
-
-VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Medley And Jennifer Warnes - (I've Had) The Time Of My Life (04:50)
-02. The Ronettes - Be My Baby (02:40)
-03. Patrick Swayze - She's Like The Wind (03:53)
-04. Eric Carmen - Hungry Eyes (04:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E6A6AC44F2EABC5802E2A0FD5BE9F1373C20A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811217   (8936) от 08.08.2025
-
-Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8936.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Geronimo's Cadillac (Thomas' Version) (3:19)
-02. Riding on a White Swan (Thomas' Version) (3:55)
-03. Give Me Peace on Earth (Thomas' Version) (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7C52E9592031817538A2A07F7C220197A9074A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811494   (8680) от 10.08.2025
-
-VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roxette - The Look (3:57)
-02. Madonna - La Isla Bonita (4:02)
-03. Pet Shop Boys - It's a Sin (4:59)
-04. Fleetwood Mac - Everywhere (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70446614A6C610E9A68624DBA4FC45E63D44429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812600   (7769) от 15.08.2025
-
-Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maman a tort
-02. Plus grandir
-03. Libertine
-04. Tristana(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F99572EEDC76537364E3D0DAE9A3AA98B9EEEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813391   (6918) от 19.08.2025
-
-VA - LOVE - Love Songs - Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - The Best (4:10)
-02. A-Ha - Take On Me (3:48)
-03. Roxette - Run to You (3:39)
-04. Frida Gold - Liebe ist meine rebellion (Radio Version) (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2A73C2018B9887F603AF2E85D7DAA7FEE70D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814511   (6012) от 25.08.2025
-
-VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Landslide (2018 Remaster) (3:20)
-02. Teddy Swims - Need You More (3:10)
-03. Benson Boone - Beautiful Things (3:00)
-04. Ed Sheeran - A Little More (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4CDB318508E887EEA516EC26E813E151CA5C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815685   (4969) от 31.08.2025
-
-V.A. - The Best Female Vocalists (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dasha – Austin
-02. Ella Henderson – Me & You
-03. Marshmello & Anne-Marie – FRIENDS
-04. Cher – Believe(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD226A6B1796186995F445C6B3F5659430D0E45
 ```
 
 https://mybot314.ru/tekegram_catalog/

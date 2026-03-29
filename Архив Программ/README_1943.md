@@ -1,3 +1,291 @@
+###  Публикация: 589710   (146991) от 15.12.2012
+
+OkayFreedom VPN FREE [Eng]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146991.jpg" />
+</div>
+
+
+###  Подробнее
+
+OkayFreedom VPN - Хорошее программное обеспечение для интернет анонимности с вашей виртуальной сети,просто и надёжно. Интернет не является анонимным пространством так как вы подключены к определенному провайдеру он даёт вам уникальный адрес IP который показывает всю информацию о вас, эта утилита сделана для того чтоб скрыть ваш реальный IP и защитить вас от взлома или вычисления каким либо человеком или админом.
+При использовании сервис OkayFreedom VPN, видео и всей веб-страницы в вашей стране заблокированы и будет автоматически перенаправлять на сервер самостоятельно, через который доступны содержимое.Название программы: OkayFreedom VPN FREEЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519832   (146989) от 25.12.2021
+
+mp3DirectCut 2.35 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой редактор mp3 файлов. Позволяет обрезать тишину в начале и/или конце файла, нормализировать звук, а также плавно убирать его в конце композиции, объединять файлы, редактировать ID3-тэги и записывать mp3 непосредственно на диск.Язык интерфейса: Русский, Белорусский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0656757F0F5368908347C44F88A954F77B596BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678131   (146981) от 20.11.2023
+
+Total Commander 11.02 (19.11.2023) Portable by MiG [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портативная сборка Total Commander 11.02 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 11 появился новый мультимедиа (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDDF294A7A13BFD30BB31E7589CD2A96E958610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519671   (146979) от 25.12.2021
+
+WinTools.net Premium 22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146979.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76314123AC2E648CB07D4424524F227D16794671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519810   (146966) от 25.12.2021
+
+WSCC (Windows System Control Center) 7.0.0.3 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146966.jpg" />
+</div>
+
+
+###  Подробнее
+
+WSCC (Windows System Control Center) - портативная программа, представляющая из себя оболочку, которая объединяет в себе пакеты Sysinternals Suite и NirLauncher. Все утилиты входящие в данный набор, разделены по категориям в зависимости от назначения, а также присутствует возможность запуска некоторых встроенных средств Windows.
+При первом запуске программа попытается (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95D993335546AA6F66938D473B950848CA48B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347956   (146963) от 25.12.2019
+
+The Bat! Professional 9.0.16 christmas [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146963.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15EC82F4E34168703AB433930ED6D700E730C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678137   (146949) от 20.11.2023
+
+Aiseesoft Video Converter Ultimate 10.7.32 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100CF50F72D29095A3B11EAF413D47D5D7CEA7A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678090   (146926) от 20.11.2023
+
+ФотоМОНТАЖ 2.31 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146926.jpg" />
+</div>
+
+
+###  Подробнее
+
+ФотоМОНТАЖ – редактор фото с поддержкой слоев. Вы сможете освоить профессиональную ретушь лица, соединить несколько изображений, убрать лишние объекты, заменить фон и улучшить качество снимков. Содержит 180+ объектов и текстур, современные фильтры и 3D LUT. Можете сделать коррекцию тона и освещения автоматически или вручную.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8886A76B35FEAC0DD6D802CF039C2156BB62DB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271863   (146913) от 25.12.2018
+
+Soft Organizer Pro 7.40 RePacK by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5BC33901F87C3C521216765ACF455C2D37792D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677999   (146906) от 20.11.2023
+
+Steinberg Nuendo 13.0.10.123 (x64) Portable by 7997 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Nuendo — это самое передовое решение для обработки звука, которое доступно профессионалам киноиндустрии, телевидения, игр и иммерсивного звука во всем мире. С момента своего первого выпуска Nuendo был жизненно важным инструментом в создании саундтрека ко многим громким постановкам, продуктам и инсталляциям. Регулярные обновления с новыми функциями, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80725EE19FB0C6714CF8981A48CCF1D948B029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347982   (146888) от 25.12.2019
+
+Internet Download Manager 6.36 Build 1 RePack by KpoJIuK
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6517BC654283CD36F82D6BE36388AD49C8ACC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519812   (146845) от 25.12.2021
 
 Comodo Dragon 96.0.4664.110 + Portable [Multi/Ru]
@@ -6,7 +294,7 @@ Comodo Dragon 96.0.4664.110 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146845.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ NewWeather 2.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146839.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ Hetman Photo Recovery 4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146831.jpg" />
 </div>
 
 
@@ -84,7 +372,7 @@ Telegram Desktop 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146822.jpg" />
 </div>
 
 
@@ -110,7 +398,7 @@ Fast Video Cutter Joiner 3.6.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146809.jpg" />
 </div>
 
 
@@ -136,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146805.jpg" />
 </div>
 
 
@@ -162,7 +450,7 @@ JRiver Media Center 31.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146800.jpg" />
 </div>
 
 
@@ -188,7 +476,7 @@ TechSmith Camtasia 23.3.3 build 49804 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146789.jpg" />
 </div>
 
 
@@ -214,7 +502,7 @@ Ashampoo Burning Studio 23.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146788.jpg" />
 </div>
 
 
@@ -240,7 +528,7 @@ The Bat! Professional Edition 9.0.16 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146783.jpg" />
 </div>
 
 
@@ -266,7 +554,7 @@ Wondershare UniConverter 15.0.6.19 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146770.jpg" />
 </div>
 
 
@@ -292,7 +580,7 @@ Movavi Screen Recorder 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146769.jpg" />
 </div>
 
 
@@ -319,7 +607,7 @@ Aiseesoft Video Converter Ultimate 9.0.16 Portable by poni-koni [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146762.jpg" />
 </div>
 
 
@@ -345,7 +633,7 @@ SamDrivers 21.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146736.jpg" />
 </div>
 
 
@@ -371,7 +659,7 @@ Total Commander 11.02 Portable by wincmd64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146731.jpg" />
 </div>
 
 
@@ -384,295 +672,6 @@ Total Commander 11.02 Portable by wincmd64 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB5762057FCA87B370CBA43EFF55B00B7D16C6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678235   (146722) от 20.11.2023
-
-ВидеоМОНТАЖ 18.0 Portable by 7997 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146722.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВидеоМОНТАЖ - это невероятно доступный и удобный видеоредактор, позволяющий с лёгкостью создавать эффектные видеоролики и увлекательные фильмы в домашних условиях. Всего за 5 шагов вы получите отличное видео с красивыми переходами, титрами, эффектами и фоновой музыкой.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EF7B2D9772C42601B552CB91AAE13D710334C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272018   (146712) от 25.12.2018
-
-Sumatra PDF 3.2.11073 Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF - легкий просмотрщик PDF, ePub, MOBI, CHM, XPS, DjVu, CBZ, CBR -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader...Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826F5714DC5CE6D27F7C14DD8C44C7C3D4016989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271721   (146705) от 25.12.2018
-
-HT System Administrator 14.1.5.22 [En] (SharewareOnSale до 31.12.2018)
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146705.jpg" />
-</div>
-
-
-###  Подробнее
-
-HT System Administrator - это уникальное приложение для управления компьютерами и блокировки нежелательных действий. Это отличный помощник для системных администраторов или тех, кому нужно управлять использованием компьютера. После установки HT System Administrator может ограничить доступ к играм, мессенджерам, браузерам и другим приложениям на ваших компьютерах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC0176103EAE808A61F09761478665EF303321F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969547   (146692) от 27.12.2015
-
-4K Video Downloader 3.8.0.1830 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146692.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader - позволяет скачивать видео, аудио и субтитры с YouTube в высоком качестве на ваш компьютер. Если вы хотите закачать видео на iPad, iPhone и другие девайсы, тогда это приложение — ваш выбор! Загрузка проста и приятна.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22976D211D4A97E41DBD000A9911F73FE335DD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678084   (146676) от 20.11.2023
-
-Дизайн Интерьера 3D 8.41 Repack (& Portable) by elchupacabra [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146676.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7329EF93CC404AF1C35B94C5189E0E0A25201859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519805   (146675) от 25.12.2021
-
-Uranium Backup 9.6.8.7229 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uranium Backup изначально создавался авторами, как средство, которое может создавать резервные копии с максимально большим количеством устройств и протоколов. Uranium Backup позволит копировать файлы и папки с USB и устройств хранения данных, внешних жестких дисков, NAS Server, Iomega REV Drive, сети компьютеров и многое другое.
-   Программа может даже произвести копирование (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C481200CB0E64CBDFEE38EE9A316A8A4D3298D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519815   (146666) от 25.12.2021
-
-PortableApps.com Platform 19.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146666.jpg" />
-</div>
-
-
-###  Подробнее
-
-PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
-
-Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81B4FE8029636B58F39C7BA97B9A3F68C8B4DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678252   (146656) от 20.11.2023
-
-PotPlayer 231113 (1.7.22038) RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4804C66AD18EE1963E01B782B5CA2B6BB8E170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087406   (146637) от 27.12.2016
-
-akaEasyMoney 1.0.8 Portable [Multi/Ru] (Авторская раздача)
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146637.jpg" />
-</div>
-
-
-###  Подробнее
-
-akaEasyMoney - программа для учета личных финансов (и не только)Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64394483043AC911305A789BB5247A953EA2885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969396   (146581) от 27.12.2015
-
-Windows Update MiniTool 26.12.2015 Portable [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альтернатива стандартному Windows Update из Windows 10. Т.к. стандартный Windows Update в Windows 10 очень сильно урезан по сравнению с версиями из предыдущих Windows, например нельзя скрывать обновления, stupid user создал альтернативную программу с расширенным функционалом для обновления Windows и других продуктов Microsoft, таких как например Office.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84FEDBCBC1D39B38E1F44B4AA4CA4AAFDB110ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969548   (146578) от 27.12.2015
-
-4K YouTube to MP3 2.12.0.1585 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146578.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A316FF7DADDD5A52B83DB04819BA9E49DFD133
 ```
 
 https://mybot314.ru/tekegram_catalog/

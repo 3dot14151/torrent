@@ -1,3 +1,110 @@
+###  Публикация: 1538859   (661371) от 22.03.2022
+
+ForkLift 3.5.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661371.jpg" />
+</div>
+
+
+###  Подробнее
+
+ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
+На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2022 BinaryNights LLCПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34E6400FB9776CF3479844FFE65BCEFDD416495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538948   (661289) от 22.03.2022
+
+MacCleaner 2 PRO 2.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очистите Mac и оптимизируйте его производительность. Ускорьте медленный Mac, освободите место на диске, удалите ненужные файлы, предотвратите ошибку «Startup Disk Full».Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0632C4F4EC66E7DD5F80E23B98088EB12C72F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538747   (661288) от 22.03.2022
+
+Outline 3.2203.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outline для Maс это интуитивное приложение для заметок с удобной организацией рабочего пространства: блокноты, секции, группы секций и страницы помогут Вам содержать записи в порядке независимо от сложности их структуры.
+Outline для Маc идеален для студентов, преподавателей, врачей, юристов, руководителей и всех, чья повседневная жизнь включает ведение записей любого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2022Разработчик: © 2022 GORILLIZED CORPORATIONПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700F5B57C75A991B705DC61D6E407177A1DB5C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538771   (661285) от 22.03.2022
+
+Pixelmator Pro 2.3.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2022Разработчик: © 2022 Pixelmator TeamПоддерживаемая ОС: macOS 10.15Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9144EB75A2B31C15903BC819BBC5D44C5B312E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538938   (661281) от 22.03.2022
 
 PullTube 1.7.15 [Multi/Ru]
@@ -6,7 +113,7 @@ PullTube 1.7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661281.jpg" />
+  <img src="Z:/picture/008/save_picture_661281.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ iDatabase 3.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661190.jpg" />
+  <img src="Z:/picture/008/save_picture_661190.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Downcast 2.11.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661187.jpg" />
+  <img src="Z:/picture/008/save_picture_661187.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661186.jpg" />
+  <img src="Z:/picture/008/save_picture_661186.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ AnyGo 5.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661179.jpg" />
+  <img src="Z:/picture/008/save_picture_661179.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ AppCleaner 3.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661176.jpg" />
+  <img src="Z:/picture/008/save_picture_661176.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ Airmail 3.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661003.jpg" />
+  <img src="Z:/picture/008/save_picture_661003.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ Script Debugger 7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660813.jpg" />
+  <img src="Z:/picture/008/save_picture_660813.jpg" />
 </div>
 
 
@@ -221,7 +328,7 @@ Curio Professional 12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660756.jpg" />
+  <img src="Z:/picture/008/save_picture_660756.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ Moom 3.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660667.jpg" />
+  <img src="Z:/picture/008/save_picture_660667.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ DirEqual 4.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660344.jpg" />
+  <img src="Z:/picture/008/save_picture_660344.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ Screegle - Clean Screen Sharing 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660337.jpg" />
+  <img src="Z:/picture/008/save_picture_660337.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ Text Workflow 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660333.jpg" />
+  <img src="Z:/picture/008/save_picture_660333.jpg" />
 </div>
 
 
@@ -355,7 +462,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660329.jpg" />
+  <img src="Z:/picture/008/save_picture_660329.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ GoodNotes 5 v5.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660326.jpg" />
+  <img src="Z:/picture/008/save_picture_660326.jpg" />
 </div>
 
 
@@ -409,7 +516,7 @@ Network Radar 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660279.jpg" />
+  <img src="Z:/picture/008/save_picture_660279.jpg" />
 </div>
 
 
@@ -437,7 +544,7 @@ Allavsoft Video Downloader Converter 3.24.6.8116 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660274.jpg" />
+  <img src="Z:/picture/008/save_picture_660274.jpg" />
 </div>
 
 
@@ -463,7 +570,7 @@ iKuka 1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660272.jpg" />
+  <img src="Z:/picture/008/save_picture_660272.jpg" />
 </div>
 
 
@@ -489,7 +596,7 @@ Foldor 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660270.jpg" />
+  <img src="Z:/picture/008/save_picture_660270.jpg" />
 </div>
 
 
@@ -515,7 +622,7 @@ Cookie 5.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660269.jpg" />
+  <img src="Z:/picture/008/save_picture_660269.jpg" />
 </div>
 
 
@@ -544,7 +651,7 @@ MediaInfo 0.7.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660206.jpg" />
+  <img src="Z:/picture/008/save_picture_660206.jpg" />
 </div>
 
 
@@ -572,7 +679,7 @@ File Juicer 4.59 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660202.jpg" />
+  <img src="Z:/picture/008/save_picture_660202.jpg" />
 </div>
 
 
@@ -585,113 +692,6 @@ File Juicer может быть использован (   Читать дал�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA0D5C8D828934F964BB153DEF928EE34D48556F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139388   (660175) от 02.06.2017
-
-DMG Canvas 2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660175.jpg" />
-</div>
-
-
-###  Подробнее
-
-DMG Canvas - создание образов дисков (.dmg)
-Многие программы, утилиты да и просто пачки файлов разнообразного содержания распространяются под OS X в виде DMG файлов. Действительно, что может быть проще: смонтировал, скопировал нужные файлы и выбросил ненужный образ. Всяко интереснее возни с ZIP или TGZ архивами, тем более что DMG файл можно симпатично оформить, поменяв (   Читать дальше...   )Тип издания: OS X softwareРелиз состоялся: 01 июня 2017Разработчик: Araelium GroupПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD85D0DD29B7933C84FBB5243F1C24EB3C0036A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539038   (660165) от 23.03.2022
-
-Sublime Text Dev Build 4130 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2022Разработчик: © 2006-2021 Sublime HQ Pty LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB14E8EADE6D2B10E882F9EA73332DBF5C0A235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139296   (660113) от 02.06.2017
-
-Cocktail Sierra Edition 10.3.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cocktail  - комплекс утилит по всестороннему обслуживанию вашего Mac, который помогает каждый день получить от своего компьютера максимальную отдачу. Приложение позволяет: исправить права доступа к файлам, оптимизировать сетевое соединение, очистить всевозможные кеши (системные и пользовательские), воспользоваться скрытыми настройками, автоматизировать выбранные процессы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.05.2017Разработчик: MaintainПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB51809BAF81C78C9D02B0ED32F96CF9F798BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139505   (660108) от 02.06.2017
-
-MiniTube 2.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660108.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTube - просмотр видео с YouTube.
-MiniTube - просто замечательная, невероятно удобная программа для воспроизведения видео-роликов с сервиса YouTube. Данный клиент выполенен в виде проигрывателя с простым интерфейсом, создающим впечатление, как буд-то вы смотрите киношку или что-то другое, в телевизоре. Все, что необходимо сделать для начала просмотра, это ввести (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июня 2017Разработчик: Flavio TordiniЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE3AE894D0EEBF282B5BC01A03E1CA43601C1E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

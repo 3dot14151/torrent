@@ -1,3 +1,140 @@
+###  Публикация: 1402924   (168165) от 12.12.2020
+
+OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168165.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе сделан основной упор на выполнение практических задач в облачной системе AWS, с которыми может столкнуться программист / технический руководитель, как в малом стартапе, так и в большой компании. Подобные задачи включают в себя весь жизненный цикл становления проекта: от планирования архитектуры и выбора инфраструктуры, и заканчивая вводом системы в промышленную (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 41:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5791C3EBAA08DF5520D9681A1F084B3C8F1BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386155   (168124) от 12.12.2020
+
+Udemy | Android разработка на Kotlin - с нуля до продвинутого уровня (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168124.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы познакомитесь с возможностями разработки приложений для Android и приобретете навыки, которые позволят вам значительно повысить свои карьерные перспективы в качестве разработчика программного обеспечения.
+С этим курсом вы получите лучшее из обоих миров - Java и Kotlin. Хотя Kotlin на данный момент является восходящей звездой разработки приложений (   Читать дальше...   )Производство: YouRa AllakhverdovЖанр: Программирование, Java, KotlinЯзык озвучки: РусскийПродолжительность: 16:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7B045F884FA3011CFB04EC2EB9681445176E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672839   (167616) от 29.10.2023
+
+Udemy, Haytham Omar-Ph.D | Revenue and Pricing Analytics with Excel & Python (2023) WEB-DL [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167616.jpg" />
+</div>
+
+
+###  Подробнее
+
+✅Аналитика доходов и ценообразования с помощью Excel и Python
+✅Revenue and Pricing Analytics with Excel & Python
+✅Курс на английском языке с английскими субтитрами и русской аудио дорожкой
+Максимизируйте доступность продуктов и повысьте прибыльность бизнеса с помощью искусства ценообразования!(   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 13:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B45CE4D731BACF5CDB7890C957836126E2F2A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672713   (167578) от 29.10.2023
+
+Udemy, Estefania Cassingena Navone | Visual Studio Code for Developers 2023: Beginner to Advanced (2023) WEB-DL [AD] [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167578.jpg" />
+</div>
+
+
+###  Подробнее
+
+I'm Estefania. I love teaching. I'm a Web Developer with experience in Python, JavaScript, HTML, CSS, React, and other web technologies.
+
+My goal is to create engaging courses where you will learn programming and understand it so well that you will be able to apply your knowledge to new situations, projects, and professional opportunities. I know that learning how (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, Русский (машинный перевод)Продолжительность: 08:20:19Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62399CCBAA3BC341050F4D8FEE45332A4FC729F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672991   (166782) от 30.10.2023
+
+Podlodka Crew | PHP Crew #2 (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неделя «Инструменты разработки». Внедряя инструменты в разработку, мы следуем не только желанию быть на пике технологий, но целям и возможностям бизнеса. В новом сезоне уделим особое внимание этому балансу, а так же постараемся не только пройтись по стандартным кейсам применимости инструментов, но заглянем глубже — покажем новые и неочевидные аспекты.
+Во втором сезоне (   Читать дальше...   )Производство: Podlodka CrewЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 12:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAC90207D452B2E7E464E72364BB3A824CCA187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673035   (166744) от 30.10.2023
 
 Kent C. Dodds | Epic Web. Ship Modern Full-Stack Web Applications (2023) WEB-DL [EN]
@@ -6,7 +143,7 @@ Kent C. Dodds | Epic Web. Ship Modern Full-Stack Web Applications (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166744.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ JS Mastery | Ultimate Next.js 13 Course + eBook (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166703.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166687.jpg" />
 </div>
 
 
@@ -86,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166642.jpg" />
 </div>
 
 
@@ -115,7 +252,7 @@ Epic React, Kent C. Dodds | Epic React Pro (2021) WEB-DL [EN, RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166625.jpg" />
 </div>
 
 
@@ -144,7 +281,7 @@ javascript.ru | Курс по современной вёрстке (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166608.jpg" />
 </div>
 
 
@@ -172,7 +309,7 @@ Lynda.com | JavaScript: Прототипы / JavaScript: Prototypes (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166289.jpg" />
 </div>
 
 
@@ -198,7 +335,7 @@ kobezzza.channel, Андрей Кобец | Интенсив по архитек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166221.jpg" />
 </div>
 
 
@@ -224,7 +361,7 @@ XYZ School, Александр Балакшин | Gamecode (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166146.jpg" />
 </div>
 
 
@@ -250,7 +387,7 @@ TCM Security, Heath Adams | Open-Source Intelligence (OSINT) Fundamentals (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165753.jpg" />
 </div>
 
 
@@ -276,7 +413,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РЕФЛЕ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165677.jpg" />
 </div>
 
 
@@ -302,7 +439,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165641.jpg" />
 </div>
 
 
@@ -328,7 +465,7 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165636.jpg" />
 </div>
 
 
@@ -354,7 +491,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165631.jpg" />
 </div>
 
 
@@ -380,7 +517,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌‌«РЕГУ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165569.jpg" />
 </div>
 
 
@@ -407,7 +544,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌ООП В J
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165553.jpg" />
 </div>
 
 
@@ -433,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165526.jpg" />
 </div>
 
 
@@ -462,7 +599,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165512.jpg" />
 </div>
 
 
@@ -489,7 +626,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165459.jpg" />
 </div>
 
 
@@ -515,7 +652,7 @@ IAmTimCorey, Tim Corey | .NET Core AppSettings: Углубленный Курс 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164950.jpg" />
 </div>
 
 
@@ -542,7 +679,7 @@ Udemy, Stephen Grider | React Testing Library and Jest: The Complete Guide (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164913.jpg" />
 </div>
 
 
@@ -556,141 +693,6 @@ Allow each of your engineering teams to work independently
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26112D9F351C81FC0C31C14D926B114C4E31AB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432252   (164861) от 16.12.2020
-
-IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#: Blazor WebAssembly (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появляются новые технологии, и все об этом говорят. Но как этому научиться? Вы не можете найти никаких хороших руководств. Вы смотрите на примеры, но не знаете, с чего начать. Конечно, вы хотите изучить Blazor WebAssembly. Я собираюсь научить вас пяти ключевым темам Blazor WebAssembly.
-Но как насчет следующей новинки, которая выйдет? Вам не просто нужно, чтобы кто-то (   Читать дальше...   )Производство: IAmTimCoreyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4987D6207E846A464A51FDDB90A379659CADDAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516886   (164119) от 13.12.2021
-
-Александр Ожгибесов | Семантическое ядро для СНГ и Западных рынков (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составление результативной семантики. Алгоритм организации системной работы с копирайтерами и их контроля.Жанр: SEOЯзык озвучки: РусскийПродолжительность: 18:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7C2FFF71431D2CBE4C4CF83C09AFD0CBA420DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517016   (163981) от 13.12.2021
-
-Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (2019) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из этой серии видео вы узнаете программирование на С++, для Unreal Engine, с самых основ и до упаковывания готовой видеоигры. Вы узнаете следующие вещи и даже больше:
-
-- Создание объекта, актора, пешки и персонажа; различия между этими классами
-- Написание кода для законченного класса персонажа, имеющего анимации и ввод от игрока(   Читать дальше...   )Производство: UdemyЖанр: Unreal Engine, C++Язык озвучки: Русский (отдельным файлом)Продолжительность: 33:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBC86C7A9B3BBEB95B862839F002D75006F6A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598189   (163919) от 17.12.2022
-
-Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите самую мощную функцию Node.js для обработки данных по запросу, Node.js Streams. Практическое руководство, которое поможет вам научиться обрабатывать большие объемы данных по запросу, например, обрабатывать видео, аудио, интегрирация между системами, базами данных и многое другое с помощью мощных Node.js Streams.
-На практике вы узнаете, как создавать и тестировать (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 04:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A61BBFC795BCCF4C3BD24986C7B01AF2D659A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517054   (163894) от 13.12.2021
-
-SkillUP | Тестировщик ПО с гарантией трудоустройства (2021) WEB-DL
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тестирование - это проверка приложений, сайтов, программ по требованиям заказчика и поиск ошибок. Тестировщик, как пользователь играет, использует приложение или исследует сайты. Если находит ошибки – пишет специальный отчет, и программисты их устраняют до выпуска продукта.  Профессии «Тестировщик ПО» не обучает ни один университет Украины. Все кто сейчас работает (   Читать дальше...   )Производство: SkillUPЖанр: ТестированиеПродолжительность: 42:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6226FDA1B6C14DB2FD4B4210456D2AC534C6F954
 ```
 
 https://mybot314.ru/tekegram_catalog/

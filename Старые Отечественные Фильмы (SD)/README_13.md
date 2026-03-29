@@ -1,3 +1,56 @@
+###  Публикация: 860710   (933064) от 21.01.2015
+
+Пляжный разбойник (1987) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды скромный бухгалтер Бикентий, житель приморского городка, приютил у себя пса. Собака привязалась к одинокому хозяину, но вскоре выяснилось, что пес был обучен прежним хозяином воровать вещи у зазевавших посетителей пляжа. Бикентий, честный человек, накричал на пса, но потом примирился с недостатками своего друга и даже стал поощрять его сомнительные способности. (   Читать дальше...   )Жанр: Комедия, КороткометражныйРежиссер: Нана МчедлидзеАктеры: Григорий Цитайшвили, Дареджан Сумбаташвили, Баадур Цуладзе, Бондо Гогинава, Гизо Сихарулидзе, Джумбер Дзидзава, Палико Нозадзе, Важа Пирцхелайшвили, Григол Нацвлишвили, Давид Эристави, Каха Таварткиладзе, Картлос Марадишвили, Реваз Николаишвили, Клара Гогишвили, Владимир Брегвадзе, Абессалом Лория, Рамаз Эристави, Михаил Кинцурашвили, Екатерина МчедлидзеПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AAA9C39A8485AF09381A209F47CF3595C2CB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861436   (933052) от 21.01.2015
+
+Крик дельфина (1986) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933052.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести Н. Черкашина "Тайна "Архелона"
+На борт иностранной подводной лодки "Архелон", отправляющейся в многомесячное патрулирование, тайно погружены ракеты с бинарным оружием. В результате разгерметизации одной из них всю команду поражает неизвестная болезнь. Возвращаться на берег нельзя. "Архелон" становится пленником океана...Жанр: Драма, ФантастикаРежиссер: Алексей СалтыковАктеры: Ивар Калныньш, Сергей Малишевский, Донатас Банионис, Армен Джигарханян, Юрий Васильев, Паул Буткевич, Татьяна Паркина, Надежда Бутырцева, Ростислав Янковский, Вильнис Бекерис, Владимир Шубарин, Ирина Погодина, Владимир Епископосян, Андрей Подошьян, Виталий Яковлев, Миколас Валдас Ятаутис, Сергей МалишевскийПродолжительность: 01:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9167D648685DE1FDF3AE33C441A1DB7F84DE5084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754100   (932986) от 07.02.2014
 
 Ночной мотоциклист (1972) DVBRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932986.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931862.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931793.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930190.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930035.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929711.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928131.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926940.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_926839.jpg" />
+  <img src="Z:/picture/009/save_picture_926839.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925017.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924077.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923157.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923012.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923001.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922366.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921912.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921454.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920890.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920889.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920802.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920795.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920689.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919765.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919702.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81839820EF09AD87822D0E4F5B980D6D236203A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632516   (919633) от 20.03.2013
-
-Возвращение с Победой (1947) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919633.jpg" />
-</div>
-
-
-###  Подробнее
-
-В годы Второй мировой войны из-за предательства лейтенант советской армии Август Гриезе попадает в плен. Фашисты пытаются склонить его на свою сторону. Август отказывается. Тогда фашисты по радио передают якобы обращение Августа к латышам прекратить сопротивление. Товарищи по оружию считают его предателем. Августу удается бежать из плена. Вскоре по всей Латвии разносятся (   Читать дальше...   )Жанр: ВоенныйРежиссер: Александр ИвановАктеры: Жанис Копсталс, Янис Филипсон, Янис Осис, Луй ШмитсПродолжительность: 01:32:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988138   (918995) от 21.02.2016
-
-Николай Бауман (1967) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о революционере, одного из создателей газеты "Искра" Николае Эрнестовиче Баумане, убитого 18 октября 1905 года черносотенцем, агентом охранки, во время демонстрации московского комитета РСДРП. "Вечная память революционеру, павшему в первые дни победоносной революции!" - писал о нем Ленин. Однако до "победоносной" революции было (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Семен ТумановАктеры: Игорь Ледогоров, Ефим Копелян, Элина Быстрицкая, Ирина Мирошниченко, Игорь Дмитриев, Владимир Балон, Сергей НиконенкоПродолжительность: 01:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B486B36C9CD0960FD901951C026F144D62F00ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

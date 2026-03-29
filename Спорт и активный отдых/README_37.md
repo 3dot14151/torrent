@@ -1,3 +1,193 @@
+###  Публикация: 1358970   (967324) от 09.02.2020
+
+Хоккей. Еврохоккейтур 2019-2020. Шведские хоккейные игры 2020. 2-й Тур. Швеция — Россия (2020) IPTV [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккейный Евротур 2019-2020 (Euro Hockey Tour) — 24-й хоккейный турнир, проходящий в Финляндии, России, Швеции и Чехии. Турнир включает в себя Кубок Карьяла, проходящий в Финляндии, Кубок Первого канала, проходящий в России, Хоккейные игры Beijer, проходящие в Швеции и Хоккейные игры Carlson, проходящие в Чехии.
+08 февраля 2020, суббота. 18:15 МСК
+Шведские хоккейные (   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D222CCEB04AFA74C11F6FB5D59D958DCB254F5FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977207   (966553) от 20.01.2016
+
+Видеоприложение к журналу "Рыбачьте с нами" №1, 2016 г. (2016) DVDRip [Русский]
+
+>>Спорт и активный отдых
+>>Рыбалка и Охота
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоприложение к журналу "Рыбачьте с нами" №1/2016
+1. Зимой со спинингом на лиманах. Часть 1. Алексей Шанин - 11:09
+2. Отводной поводок. Зимняя ловля. Часть 1. Артём Мишин, Андрей Питерцов - 12:36
+3. Зимний фидер. Алексей Фадеев - 26:58(   Читать дальше...   )Телекомпания: Anglers ZoomЖанр: Документальный, ВидовойПеревод: ОтсутствуетПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6410D18BBBA9D8F1983089EBE553A8FBECB173E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358792   (966016) от 10.02.2020
+
+Смешанные единоборства. UFC 247: Джонс – Рейес / Jones vs. Reyes (09.02.2020) IPTV [H.264/1080i-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основной и предварительный карды турнира UFC 247, главным событием которого стал титульный бой в полутяжелом весе между Джоном Джонсом и Домиником Рейесом.Телекомпания: UFC ТВ HDЖанр: Спорт, ЕдиноборстваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:33 - 03:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5010413BDEA61ED0D48292CA514E58097781A4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358995   (966012) от 10.02.2020
+
+Лев Яшин. На пьедестале народной любви (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лев Яшин — творец самых громких побед в истории отечественного футбола. Во время выступлений на футбольном поле именитый вратарь в 270 играх сохранил свои ворота «сухими» и отразил более 150 пенальти. В 1956 году он помог сборной СССР завоевать золото Олимпиады. В 60-е все боссы топ-клубов мечтали заполучить Яшина в команду. Он доминировал в рамках своей эпохи, и (   Читать дальше...   )Производство: Россия, Кинокомпания "Кремлин Филмз"Жанр: Документальный, биография, история, спортРежиссер: Олег ГладовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E455B56320E1DF0D68C7479197E3FE36C96A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359344   (965123) от 11.02.2020
+
+Серия Кубков НАСКАР 2020. Дайтона Клэш. Гонка / NASCAR Cup Series 2020. Busch Clash at Daytona. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков НАСКАР 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США.
+Воскресенье, 9 февраля 2020 года. Дайтона-Бич (штат Флорида, США).
+Внезачётный этап. Busch Clash at Daytona
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD58F27F51BB44A092EF14C957611C06D1E58CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359416   (964242) от 12.02.2020
+
+Monster Jam: Houston, Texas (25.01.2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monster Jam - это серия автоспортивных соревнований, проводимых компанией Feld Entertainment. Первые соревнования в серии прошли в 1992 году и были авторизованы United States Hot Rod Association. В основном соревнования проводятся на территории США, но есть и выездная международная часть в Японии, Нидерландах и Мексике. Формат соревнований иногда отличается зависимо (   Читать дальше...   )Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEE654B380DA59E855CC937E943F149AEFEE396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621789   (962509) от 20.02.2013
+
+Бой - На грани смерти / The Fight - The Closest Thing To Dying (2004) SATRip
+
+>>Спорт и активный отдых
+>>Бокс
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет вам, о всех подробностях, накале страстей, легендарного боя Мухаммед Али vs Джо Фрейзер, остающегося по сей день, одним из самых выдающихся, зрелищных боев, за всю историю боксаТелекомпания: Канада, BBC WorldЖанр: Документальный, спортРежиссер: Георгина ХарвейПеревод: Одноголосый профессиональныйПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B767AB9A4A4CB733DED448FCABA781F5BE21EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360008   (961985) от 14.02.2020
 
 Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Смешанная эстафета (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +196,7 @@
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961985.jpg" />
 </div>
 
 
@@ -35,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961929.jpg" />
 </div>
 
 
@@ -64,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961926.jpg" />
 </div>
 
 
@@ -93,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960938.jpg" />
 </div>
 
 
@@ -122,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960927.jpg" />
 </div>
 
 
@@ -151,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959410.jpg" />
 </div>
 
 
@@ -180,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959402.jpg" />
 </div>
 
 
@@ -209,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958115.jpg" />
 </div>
 
 
@@ -237,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гимнастика, Бодибилдинг, Красота тела
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958043.jpg" />
 </div>
 
 
@@ -266,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957127.jpg" />
 </div>
 
 
@@ -295,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957084.jpg" />
 </div>
 
 
@@ -324,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957079.jpg" />
 </div>
 
 
@@ -353,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957078.jpg" />
 </div>
 
 
@@ -382,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955819.jpg" />
 </div>
 
 
@@ -411,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955609.jpg" />
 </div>
 
 
@@ -440,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955400.jpg" />
 </div>
 
 
@@ -469,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954436.jpg" />
 </div>
 
 
@@ -498,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954203.jpg" />
 </div>
 
 
@@ -524,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951113.jpg" />
 </div>
 
 
@@ -538,201 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0BE5522DB720C6AD456AD1190AD18F2E864A774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361993   (951034) от 22.02.2020
-
-Monster Jam: St. Louis, Missouri, (18-19.01.2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Jam - это серия автоспортивных соревнований, проводимых компанией Feld Entertainment. Первые соревнования в серии прошли в 1992 году и были авторизованы United States Hot Rod Association. В основном соревнования проводятся на территории США, но есть и выездная международная часть в Японии, Нидерландах и Мексике. Формат соревнований иногда отличается зависимо (   Читать дальше...   )Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3E5F5BD9649E49C0E18D1BE62118ADC2870CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981772   (949724) от 02.02.2016
-
-Фигурное катание. Чемпионат Европы 2016. Показательные выступления. (31.01.2016) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российские фигуристы могут рассчитывать на медали во всех видах программы чемпионата Европы, который пройдёт на следующей неделе в Братиславе, полагает заслуженный тренер СССР Татьяна Тарасова.
-«Я гадать не люблю и говорить что-то до соревнований. Каждый едет выигрывать, выполнять какие-то свои поставленные задачи, которые он определил себе ещё в начале сезона. Российская (   Читать дальше...   )Телекомпания: Арена HDЖанр: СпортПродолжительность: 02:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEC1515F5EC393E285E9C25D3A5911F347D36E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362452   (949556) от 23.02.2020
-
-Серия Кубков NASCAR 2020. Дейтона Дуэль. Гонка / NASCAR Cup 2020. Bluegreen Vacations Duel at Daytona. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-Воскресенье, 13 февраля 2020 года. Дейтона-Бич (штат Флорида, США).
-Вне зачётные, отборочные гонки для Дейтона 500.
-Гонка(   Читать дальше...   )Телекомпания: США, FS1Жанр: АвтоспортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8676377AABF82ABD0D443A0725D62CC5600C4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362500   (949550) от 23.02.2020
-
-Серия Кубков NASCAR 2020. 1-й Этап. Дейтона 500. Гонка / NASCAR Cup 2020. Round 01. Daytona 500. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-16 февраля - 17 февраля 2020 года. Дейтона-Бич (штат Флорида, США).
-1-й Этап. Дейтона 500
-Гонка(   Читать дальше...   )Телекомпания: Матч! Игра HD, Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:47 - 03:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223DA67BC1969A86164F7F083BF8F0D7A80AD3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362358   (949184) от 23.02.2020
-
-Бокс. Деонтей Уайлдер – Тайсон Фьюри 2 / Wilder vs. Fury 2 (23.02.2020) IPTV [H.264/576i-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Бокс
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949184.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 февраля на арене MGM Grand Garden Arena в Лас-Вегасе (США) состоялся вечер профессионального бокса, главным событием которого стал матч-реванш в супертяжелом весе между чемпионом мира по версии WBC Деонтеем Уайлдером (42-0-1, 41 КО) и экс-чемпионом WBO, IBF и WBA Тайсоном Фьюри (29-0-1, 20 КО).Телекомпания: РЕН ТВЖанр: Спорт, БоксЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89CE9B76315A1C7424C3EDFB000C10D43364E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362558   (948417) от 24.02.2020
-
-Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Эстафета. Женщины (2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948417.jpg" />
-</div>
-
-
-###  Подробнее
-
-54-й Чемпионат мира по биатлону 2020 года. Антхольц-Антерсельва (Италия)
-22 февраля 2020, суббота. 13:45 МСК
-Женщины. Эстафета 4х6 км
-Стадион: Биатлонная Арена-Южный Тироль (Разун-Антерсельва, Италия)Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCD2134EC9B872844CA1ADFD1F23E22C0A459B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362550   (948415) от 24.02.2020
-
-Биатлон. Чемпионат Мира 2020. Антхольц-Антерсельва (Италия). Эстафета. Женщины (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948415.jpg" />
-</div>
-
-
-###  Подробнее
-
-54-й Чемпионат мира по биатлону 2020 года. Антхольц-Антерсельва (Италия)
-22 февраля 2020, суббота. 13:45 МСК
-Женщины. Эстафета 4х6 км
-Стадион: Биатлонная Арена-Южный Тироль (Разун-Антерсельва, Италия)Телекомпания: Первый Канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377FF40B991BE22D4EF5F9D6FF200E233EA9C66D
 ```
 
 https://mybot314.ru/tekegram_catalog/

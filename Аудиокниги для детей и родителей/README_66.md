@@ -1,3 +1,86 @@
+###  Публикация: 316763   (131979) от 05.12.2023
+
+Лидия Чарская | Генеральская дочка (2007) [MP3, Елена Чебатуркина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Чтение вслух – для всей семьи. Повести для юношества
+Аудиокнига адресована, прежде всего, юному читателю, но ее с интересом прослушают и взрослые.
+Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, ее сказки переведены на многие языки мира.
+Причудливые, полные интриг приключения героев повестей Чарской переплетаются (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Говорящая книгаПродолжительность: 02:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663C9CF5AA4A84C28F39FF423594755310A1160F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392408   (131975) от 05.12.2023
+
+Лидия Чарская | Сибирочка (2009) [MP3, Мария Говорова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Архив мировой литературы.
+В начале XX века произведения Лидии Чарской (1875–1937) пользовались огромной популярностью среди детей и юношества дореволюционной России. Её повести и романы воспевали светлую любовь, живописали романтику повседневности – гимназические и институтские интересы, страсти, столкновение характеров. Душевные, романтичные истории (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АрМир (аудио)Продолжительность: 05:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B388E7BC7933D63767E98CAB9F3D51CCEEA8EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 427362   (131971) от 05.12.2023
+
+Лидия Чарская | Счастливчик (2010) [MP3, Ульяна Милюшкина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская писательница Лидия Алексеевна Чарская (1875–1937) была «властительницей сердец» юных читателей. Выпускница Павловского института благородных девиц, она с сочувствием и любовью описывает мир переживаний, мыслей и идеалов институтских затворниц.
+«Мальчик этот очень хорошенький и изящный. Он весь тоненький и хрупкий, с бледным, точно фарфоровым личиком, черноглазый, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Издательство Московской ПатриархииПродолжительность: 04:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789F3C0D021AF0D320A782F83F1CDD3E753A76F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 316765   (131956) от 05.12.2023
 
 Лидия Чарская | Грозная дружина (2007) [MP3, Лидия Леликова]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131956.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131951.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131949.jpg" />
 </div>
 
 
@@ -88,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131945.jpg" />
 </div>
 
 
@@ -116,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131589.jpg" />
 </div>
 
 
@@ -144,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131382.jpg" />
 </div>
 
 
@@ -170,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131309.jpg" />
 </div>
 
 
@@ -198,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131295.jpg" />
 </div>
 
 
@@ -225,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131123.jpg" />
 </div>
 
 
@@ -253,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130761.jpg" />
 </div>
 
 
@@ -279,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130736.jpg" />
 </div>
 
 
@@ -306,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130703.jpg" />
 </div>
 
 
@@ -333,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130470.jpg" />
 </div>
 
 
@@ -362,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130412.jpg" />
 </div>
 
 
@@ -388,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130402.jpg" />
 </div>
 
 
@@ -414,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130392.jpg" />
 </div>
 
 
@@ -441,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130375.jpg" />
 </div>
 
 
@@ -467,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130205.jpg" />
 </div>
 
 
@@ -493,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129794.jpg" />
 </div>
 
 
@@ -522,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129659.jpg" />
 </div>
 
 
@@ -550,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129589.jpg" />
 </div>
 
 
@@ -578,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129287.jpg" />
 </div>
 
 
@@ -604,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129048.jpg" />
 </div>
 
 
@@ -616,90 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA55DD3B788A7372AF1D69057013535FAA02D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433816   (128803) от 10.12.2023
-
-Сказки народов мира | Посиделкино. Выпуск 4 (2010) [MP3, Надежда Рогожина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из фонда радио «Град Петров».
-«Посиделкино» – это увлекательное путешествие в мир народных сказок, собранных со всех концов света. Вместе со сказочными персонажами вас ждут загадочные приключения и удивительные чудеса.
-Автор и ведущая программы Надежда Рогожина поможет извлечь из сказок жизненные уроки нравственности, доброты, честности и самоотверженности, (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Град ПетровПродолжительность: 06:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325E236A619ABC7080541E9ECC6CA800C5A62095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431269   (128802) от 10.12.2023
-
-Сказки народов мира | Посиделкино. Выпуск 1 (2009) [MP3, Надежда Рогожина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из фонда радио «Град Петров».
-«Посиделкино» – это увлекательное путешествие в мир народных сказок, собранных со всех концов света. Вместе со сказочными персонажами вас ждут загадочные приключения и удивительные чудеса.
-Автор и ведущая программы Надежда Рогожина поможет извлечь из сказок жизненные уроки нравственности, доброты, честности и самоотверженности, (   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: Град ПетровПродолжительность: 03:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD50026B24D3E2A65CE9332C87CEF87BB4C5156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431350   (128778) от 10.12.2023
-
-Сказки народов мира | Посиделкино. Выпуск 2 (2009) [MP3, Надежда Рогожина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из фонда радио «Град Петров».
-«Посиделкино» – это увлекательное путешествие в мир народных сказок, собранных со всех концов света. Вместе со сказочными персонажами вас ждут загадочные приключения и удивительные чудеса.
-Автор и ведущая программы Надежда Рогожина поможет извлечь из сказок жизненные уроки нравственности, доброты, честности и самоотверженности, (   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: Град ПетровПродолжительность: 05:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E319363F71A41CE8D06689D16FFE37E110CF3B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

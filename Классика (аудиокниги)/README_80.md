@@ -1,3 +1,117 @@
+###  Публикация: 1785858   (69120) от 18.03.2025
+
+Иван Тургенев | Затишье (2017) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литература 19 века. Русская классика.
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
+Повесть Ивана Сергеевича Тургенева, рассказывающая о чувствах и связанных с ними душевных переживаниях шестнадцатилетнего юноши, полудетская влюблённость (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ООО «Эвербук», StorySide ABПродолжительность: 03:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C447C367BC0B71F1B35297E6F7C6AE8417C15D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785942   (69116) от 18.03.2025
+
+Лев Толстой | Холстомер (2022) [MP3, Роман Стабуров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика (АСТ).
+Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
+Печальная история про породистого жеребца, который имел дефект в окрасе, из-за чего его судьба сложилась крайне несправедливо. Повесть отражает реалии современного мира и остается актуальной по сей день.
+Повесть «Холстомер» отражает (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 02:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3E1EE7D998615DE9CD3A4C9264649972FEAA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786171   (69099) от 19.03.2025
+
+Антоний Погорельский | Лафертовская маковница (1992) [MP3, Аркадий Волгин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Антоний Погорельский (1787–1836) – русский писатель, учёный и переводчик.
+«Лафертовская маковница» – это первое фантастическое романтическое произведение в русской прозе, написанное Антонием Погорельским в 1825 году.
+Запись произведена в студии Ленинградского радио в марте 1992 года.(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2C013C8C48AC4272E8E8B3874A028C9498A668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786047   (69098) от 19.03.2025
+
+Николай Лесков | Скоморох Памфалон. Страницы повести (2000) [MP3, Станислав Ландграф]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+Повесть «Скоморох (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00BF4D978AFE6FB55AFF319B7F974A71B8EACA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786282   (69009) от 20.03.2025
 
 Лев Толстой | Плоды просвещения (Радиопостановка) (1992) [MP3, Александр Борисов, Сергей Паршин и др.]
@@ -6,7 +120,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69009.jpg" />
 </div>
 
 
@@ -34,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69008.jpg" />
 </div>
 
 
@@ -62,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69007.jpg" />
 </div>
 
 
@@ -90,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69004.jpg" />
 </div>
 
 
@@ -119,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69003.jpg" />
 </div>
 
 
@@ -147,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68987.jpg" />
 </div>
 
 
@@ -176,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68986.jpg" />
 </div>
 
 
@@ -204,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68983.jpg" />
 </div>
 
 
@@ -233,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68956.jpg" />
 </div>
 
 
@@ -262,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68938.jpg" />
 </div>
 
 
@@ -290,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68935.jpg" />
 </div>
 
 
@@ -318,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68910.jpg" />
 </div>
 
 
@@ -346,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68907.jpg" />
 </div>
 
 
@@ -374,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68903.jpg" />
 </div>
 
 
@@ -402,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68874.jpg" />
 </div>
 
 
@@ -431,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68853.jpg" />
 </div>
 
 
@@ -459,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68847.jpg" />
 </div>
 
 
@@ -487,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68824.jpg" />
 </div>
 
 
@@ -516,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68818.jpg" />
 </div>
 
 
@@ -544,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68815.jpg" />
 </div>
 
 
@@ -572,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68812.jpg" />
 </div>
 
 
@@ -600,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68470.jpg" />
 </div>
 
 
@@ -614,119 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5961C411A6F9547E83F50637AD4D781288E580E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788799   (68436) от 01.04.2025
-
-Александр Куприн | Сапсан. Собачье счастье (Радиоспектакль) (2025) [MP3, Вадим Бочанов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
-В рассказе «Сапсан» (1916) (правильное название – «Мысли Сапсана о людях, животных, предметах и (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F6E82FD5DA22B13019744CF419790519C7229A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788919   (68407) от 01.04.2025
-
-Александр Грибоедов, Пётр Вяземский | Кто брат, кто сестра, или Обман за обманом (Радиопостановка) (1997) [MP3, Валерий Никитенко, Галина Гудова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Малая проза.
-Александр Сергеевич Грибоедов (1795–1829) – русский писатель и дипломат.
-Пётр Андреевич Вяземский (1792–1878) – русский поэт, литературный критик, историк, переводчик, публицист, мемуарист и государственный деятель.
-Радиопостановка по водевилю «Кто брат, кто сестра, или Обман за обманом» А.С. Грибоедова и П.А. Вяземского. (   Читать дальше...   )Жанр: Русская литература, классика, комедия,  водевильИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBAA897B920F5620F7D28B7403161DD1B64C22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788902   (68403) от 01.04.2025
-
-Карло Гоцци | Принцесса Турандот (Радиоспектакль) (2004) [MP3, Юлия Борисова, Василий Лановой и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Карло Гоцци (1720–1806) – итальянский писатель и драматург, автор сказочных пьес.
-«Принцесса Турандот» трагикомическая китайская сказка для театра в пяти действиях (1762) из цикла «Сказки для театра».
-Восточная сказка очаровывает красотой сюжета. Смелость, отвага, коварство и любовь – все присутствует в великолепной трагикомедии. (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаПеревод: Михаил ЛозинскийИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29502596F89CB4319FEFEC59A50E2F57A6C18A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789190   (68384) от 02.04.2025
-
-Николай Гоголь | Вечера на хуторе близ Диканьки. Том второй (1991,1994,2002) [MP3, Иван Краско, Валерий Никитенко и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская страничка.
-Цикл «Вечера на хуторе близ Диканьки» Николай Васильевич Гоголь (1809–1852) написал, когда ему было едва за двадцать, в 1829–1832 гг. Первый том сборника, состоящий из повестей «Сорочинская ярмарка», «Майская ночь или Утопленница», «Вечер накануне Ивана Купала» и «Пропавшая грамота», был напечатан в 1831 году. Спустя год, в 1832 году, (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 05:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2DC1BE1AE17C4C58864D70F13D789752E3E0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

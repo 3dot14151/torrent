@@ -6,7 +6,7 @@ Dead or Alive 5 Plus (2013) [PSVita] [USA] 3.60 [HENkaku] [Repack / 1.01 ] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491789.jpg" />
+  <img src="Z:/picture/008/save_picture_491789.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Injustice: Gods Among Us - Ultimate Edition (2013) [PSVita] [EUR] 3.60 [HENkaku]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491785.jpg" />
+  <img src="Z:/picture/008/save_picture_491785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491632.jpg" />
+  <img src="Z:/picture/008/save_picture_491632.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Legend of Zelda: Ocarina of Time [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491613.jpg" />
+  <img src="Z:/picture/008/save_picture_491613.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ JASF: Jane's Advanced Strike Fighters (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491355.jpg" />
+  <img src="Z:/picture/008/save_picture_491355.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Turning Point: Fall of Liberty (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491338.jpg" />
+  <img src="Z:/picture/008/save_picture_491338.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ SoulCalibur V [PS3] [RUS] [PAL] [3.55 Kmeaw] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490609.jpg" />
+  <img src="Z:/picture/008/save_picture_490609.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The Golden Compass (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490504.jpg" />
+  <img src="Z:/picture/008/save_picture_490504.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Cars Race-O-Rama (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490501.jpg" />
+  <img src="Z:/picture/008/save_picture_490501.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Tom Clancy’s H.A.W.X. 2 (2010) [PS3] [USA] 3.41 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490498.jpg" />
+  <img src="Z:/picture/008/save_picture_490498.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Geometry Wars 3: Dimensions Evolved (2015) [PSVita] [EUR] 3.60 [HENkaku] [Licens
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489740.jpg" />
+  <img src="Z:/picture/008/save_picture_489740.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sekiro: Shadows Die Twice (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Mul
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488981.jpg" />
+  <img src="Z:/picture/008/save_picture_488981.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Supremacy MMA [PS3] [ENG] [NTSC] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488503.jpg" />
+  <img src="Z:/picture/008/save_picture_488503.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Pro Evolution Soccer 2016 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487200.jpg" />
+  <img src="Z:/picture/008/save_picture_487200.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Fast & Furious: Showdown / Форсаж: Схватка (2013) [PS3] [EUR] 4.40 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486782.jpg" />
+  <img src="Z:/picture/008/save_picture_486782.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Until Dawn. Extended Edition / Дожить до рассвета. Расшир�
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486778.jpg" />
+  <img src="Z:/picture/008/save_picture_486778.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Tomb Raider: Underworld (2008) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485294.jpg" />
+  <img src="Z:/picture/008/save_picture_485294.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Terminator: Resistance (2019) [PS4] [EUR] 5.05 [HEN] [License] [Ru]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484814.jpg" />
+  <img src="Z:/picture/008/save_picture_484814.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Detroit: Become Human / Detroit: Стать человеком (2018) [PS4] [EUR
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482722.jpg" />
+  <img src="Z:/picture/008/save_picture_482722.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Pro Evolution Soccer 2016 / PES 2016 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481288.jpg" />
+  <img src="Z:/picture/008/save_picture_481288.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FIFA 16 (2015) [Xbox360] [NTSC] [FreeBoot] [License] [Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481287.jpg" />
+  <img src="Z:/picture/008/save_picture_481287.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dragon Age: Origins Awakening / Dragon Age: Начало Пробуждение 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481147.jpg" />
+  <img src="Z:/picture/008/save_picture_481147.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480759.jpg" />
+  <img src="Z:/picture/008/save_picture_480759.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ DOOM (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480637.jpg" />
+  <img src="Z:/picture/008/save_picture_480637.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Terminator Salvation: The Videogame / Терминатор: Да придет с
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479254.jpg" />
+  <img src="Z:/picture/008/save_picture_479254.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Paper Mario: Color Splash (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] [En
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478774.jpg" />
+  <img src="Z:/picture/008/save_picture_478774.jpg" />
 </div>
 
 

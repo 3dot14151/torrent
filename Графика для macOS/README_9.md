@@ -1,3 +1,30 @@
+###  Публикация: 1128534   (727442) от 25.04.2017
+
+Folder Icon Maker 1.5.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folder Icon Make является инструментом для настройки значков на ваших папках в  Mac OS X  с файлами PNG. Folder Icon Make обеспечивает эффективный способ , чтобы импортировать ваши личные и индивидуальные иконки для создания привлекательных папок .
+Folder Icon Make имеет 4 разных стиля цвета и 2 варианта , чтобы дать вам различные индивидуальные эффекты для значка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: CokeSoftПоддерживаемая ОС: OS X 10.6.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D8E3C00968C3565ED14C21F26DC3BF4BD91DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530868   (727394) от 12.02.2022
 
 Corel Painter 2022 v22.1.0.121  [Multi]
@@ -6,7 +33,7 @@ Corel Painter 2022 v22.1.0.121  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727394.jpg" />
+  <img src="Z:/picture/008/save_picture_727394.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Canvas X Draw 7.0.2 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726519.jpg" />
+  <img src="Z:/picture/008/save_picture_726519.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Lyn 1.8.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726361.jpg" />
+  <img src="Z:/picture/008/save_picture_726361.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ SILKYPIX Developer Studio Pro 11 11.0.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724691.jpg" />
+  <img src="Z:/picture/008/save_picture_724691.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Ultimate Retouch 3.5 - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723713.jpg" />
+  <img src="Z:/picture/008/save_picture_723713.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Affinity Publisher 1.8.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723062.jpg" />
+  <img src="Z:/picture/008/save_picture_723062.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ Affinity Photo 1.8.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722949.jpg" />
+  <img src="Z:/picture/008/save_picture_722949.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ SkyLab Studio 2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721071.jpg" />
+  <img src="Z:/picture/008/save_picture_721071.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ NCH Pixillion Image Converter 8.59 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720642.jpg" />
+  <img src="Z:/picture/008/save_picture_720642.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ Photosign - Batch Watermark 2.1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718695.jpg" />
+  <img src="Z:/picture/008/save_picture_718695.jpg" />
 </div>
 
 
@@ -277,7 +304,7 @@ Teorex DupHunter 3.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716632.jpg" />
+  <img src="Z:/picture/008/save_picture_716632.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ Pixa 1.1.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714336.jpg" />
+  <img src="Z:/picture/008/save_picture_714336.jpg" />
 </div>
 
 
@@ -332,7 +359,7 @@ Nik Complete 3 Collection by DxO v3.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710709.jpg" />
+  <img src="Z:/picture/008/save_picture_710709.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ Hot Door CADtools 11 for Adobe Illustrator 11.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708847.jpg" />
+  <img src="Z:/picture/008/save_picture_708847.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ IconKit 10.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703935.jpg" />
+  <img src="Z:/picture/008/save_picture_703935.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ Sketches Pro 1.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703841.jpg" />
+  <img src="Z:/picture/008/save_picture_703841.jpg" />
 </div>
 
 
@@ -443,7 +470,7 @@ IconKit 8.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694545.jpg" />
+  <img src="Z:/picture/008/save_picture_694545.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ JPEGmini 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685240.jpg" />
+  <img src="Z:/picture/008/save_picture_685240.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ Analog 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684290.jpg" />
+  <img src="Z:/picture/008/save_picture_684290.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ Picture Instruments Fast Resize Pro 2.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684230.jpg" />
+  <img src="Z:/picture/008/save_picture_684230.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684044.jpg" />
+  <img src="Z:/picture/008/save_picture_684044.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ On1 Photo 10.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683915.jpg" />
+  <img src="Z:/picture/008/save_picture_683915.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ Autopano Giga 4.4.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682528.jpg" />
+  <img src="Z:/picture/008/save_picture_682528.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ Barcody 3.11 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681097.jpg" />
+  <img src="Z:/picture/008/save_picture_681097.jpg" />
 </div>
 
 
@@ -663,7 +690,7 @@ Corel Painter 12 (0.0.502) [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_680223.jpg" />
+  <img src="Z:/picture/005/save_picture_680223.jpg" />
 </div>
 
 
@@ -682,33 +709,6 @@ Corel® Painter™ 12 — это идеальная цифровая худож�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136096   (677151) от 21.05.2017
-
-Duplicate Photos Detective 1.0.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Photos Детектив помогает быстро найти дубликаты  изображений
- Duplicate Photos Detective - превосходный инструмент, который помогает пользователям находить дубликаты фотографий и удалять их с Mac. Это приложение упрощает процесс идентификации и удаления повторяющихся фотографий. У Duplicate Photos Detective есть привлекательный интерфейс, который достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: CokeSoftПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988B226BE7B11BAAF0A3DB30F2AFE34E460062CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

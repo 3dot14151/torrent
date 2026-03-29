@@ -6,7 +6,7 @@ Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922234.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922135.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922127.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Любимые песни индийского кино (1,2,3) (2004) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920564.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918934.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915664.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ OST - Verliefd op Ibiza / Любовь и секс на Ибице (2013) [MP3|2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915389.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Man from U.N.C.L.E. (Deluxe Version) (2015) [MP3|320 Kbps] <Soundtrack,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913929.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907211.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901369.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900906.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896269.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Blade / Блэйд (1998) Unofficial [MP3|127-320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894440.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893495.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889650.jpg" />
+  <img src="Z:/picture/005/save_picture_889650.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Atom Music Audio - Prophecy (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885982.jpg" />
+  <img src="Z:/picture/005/save_picture_885982.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Atom Music Audio - Cosmonautica (2020) [MP3|320 Kbps] <Soundtrack, Instrumental,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885967.jpg" />
+  <img src="Z:/picture/005/save_picture_885967.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Atom Music Audio - Crime Life (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885936.jpg" />
+  <img src="Z:/picture/005/save_picture_885936.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Atom Music Audio - Ethereal (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885933.jpg" />
+  <img src="Z:/picture/005/save_picture_885933.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Atom Music Audio - Continuum (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Ep
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885932.jpg" />
+  <img src="Z:/picture/005/save_picture_885932.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Atom Music Audio - Codebreaker (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885924.jpg" />
+  <img src="Z:/picture/005/save_picture_885924.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Origin
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883016.jpg" />
+  <img src="Z:/picture/005/save_picture_883016.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881710.jpg" />
+  <img src="Z:/picture/005/save_picture_881710.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878978.jpg" />
+  <img src="Z:/picture/005/save_picture_878978.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878432.jpg" />
+  <img src="Z:/picture/005/save_picture_878432.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Притяжение (Официальный Саундтрек) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873516.jpg" />
+  <img src="Z:/picture/008/save_picture_873516.jpg" />
 </div>
 
 

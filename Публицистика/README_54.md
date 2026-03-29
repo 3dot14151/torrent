@@ -1,3 +1,83 @@
+###  Публикация: 946110   (428963) от 12.10.2015
+
+Ричард Уотсон | Файлы будущего: история следующих 50 лет (2011) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель этой книги – открыть людям глаза на происходящее прямо сейчас и продемонстрировать несколько вариантов альтернативного будущего ближайших 50 лет. Ее автор, австралийский философ и футуролог, обходится без дешевых сенсаций, конспирологии и сценариев будущих катастроф и революций. Анализируя более 40 главных тенденций, влияющих на изменение политики, науки и техники, (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE332A3C938A8265805DDFC673707C587B6363F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324301   (427327) от 08.09.2019
+
+Фрэнсис Фукуяма | Идентичность. Стремление к признанию и политика неприятия (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427327.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы все больше и больше внимания люди во всем мире начинают уделять своей идентичности — национальной, расовой, гендерной, религиозной. Этот глобальный тренд, по мнению Фрэнсиса Фукуямы, автора бестселлера «Конец истории и последний человек», является решающим фактором для эффективной работы общественного механизма, будь то в странах Востока, Юго-Восточной (   Читать дальше...   )Жанр: Политическая философия, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023986AD8EAE379AEDC3ABF770D11FFFAA8F23E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945890   (427250) от 13.10.2015
+
+Станислав Зигуненко | Разведчики и шпионы (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какая разница между разведчиком и шпионом? Чем же прославилась Мата Хари? Кто украл атомную бомбу? Как стать «человеком-невидимкой»? На эти и многие другие вопросы отвечает книга, посвященная самым известным шпионам и разведчикам ХХ века.
+
+Для массового читателя.Жанр: История, спецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525CB1351CCFCBE1E48E496CD1BB109E3DE348CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946490   (427145) от 13.10.2015
 
 Борис Джонсон | Фактор Черчилля. Как один человек изменил историю (2015) [FB2]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427145.jpg" />
+  <img src="Z:/picture/008/save_picture_427145.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426301.jpg" />
+  <img src="Z:/picture/008/save_picture_426301.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426227.jpg" />
+  <img src="Z:/picture/008/save_picture_426227.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426226.jpg" />
+  <img src="Z:/picture/008/save_picture_426226.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426110.jpg" />
+  <img src="Z:/picture/008/save_picture_426110.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426100.jpg" />
+  <img src="Z:/picture/008/save_picture_426100.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424432.jpg" />
+  <img src="Z:/picture/008/save_picture_424432.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424419.jpg" />
+  <img src="Z:/picture/008/save_picture_424419.jpg" />
 </div>
 
 
@@ -221,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423933.jpg" />
+  <img src="Z:/picture/008/save_picture_423933.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423899.jpg" />
+  <img src="Z:/picture/008/save_picture_423899.jpg" />
 </div>
 
 
@@ -278,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422846.jpg" />
+  <img src="Z:/picture/008/save_picture_422846.jpg" />
 </div>
 
 
@@ -307,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422539.jpg" />
+  <img src="Z:/picture/008/save_picture_422539.jpg" />
 </div>
 
 
@@ -333,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422507.jpg" />
+  <img src="Z:/picture/008/save_picture_422507.jpg" />
 </div>
 
 
@@ -360,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422254.jpg" />
+  <img src="Z:/picture/008/save_picture_422254.jpg" />
 </div>
 
 
@@ -388,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420703.jpg" />
+  <img src="Z:/picture/008/save_picture_420703.jpg" />
 </div>
 
 
@@ -414,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420521.jpg" />
+  <img src="Z:/picture/008/save_picture_420521.jpg" />
 </div>
 
 
@@ -443,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420445.jpg" />
+  <img src="Z:/picture/008/save_picture_420445.jpg" />
 </div>
 
 
@@ -469,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420440.jpg" />
+  <img src="Z:/picture/008/save_picture_420440.jpg" />
 </div>
 
 
@@ -496,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420436.jpg" />
+  <img src="Z:/picture/008/save_picture_420436.jpg" />
 </div>
 
 
@@ -522,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420260.jpg" />
+  <img src="Z:/picture/008/save_picture_420260.jpg" />
 </div>
 
 
@@ -550,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419728.jpg" />
+  <img src="Z:/picture/008/save_picture_419728.jpg" />
 </div>
 
 
@@ -576,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419721.jpg" />
+  <img src="Z:/picture/008/save_picture_419721.jpg" />
 </div>
 
 
@@ -602,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419717.jpg" />
+  <img src="Z:/picture/008/save_picture_419717.jpg" />
 </div>
 
 
@@ -613,84 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C1997ED857D8566588C35B7A7CFCB24B8585410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065648   (418590) от 23.10.2016
-
-Роберт Робинсон | Черный о красных. 44 года в Советском Союзе. Автобиография черного американца (2012) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418590.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпоху индустриализации Советский Союз привлекал иностранных специалистов со всего мира. Одним из них стал молодой чернокожий американец Роберт Робинсон, приехавший летом 1930 г. с завода Форда на Сталинградский тракторный - работать и обучать советских рабочих. СССР тогда предлагал зарплаты вдвое больше, чем можно было рассчитывать получить в охваченных Великой (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3FEE11EFFF416BED8E50C6918B44DA89127AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412350   (418199) от 29.09.2020
-
-Игорь Рабинер | Герои не нашего времени. Харламов, Тарасов, Яшин, Бесков в рассказах родных, друзей и учеников (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героев спорта все чаще показывают в кино. Их судьбы становятся сюжетами для кассовых художественных кинолент, «Движение вверх» и «Легенда No17» – явное тому подтверждение. Хорошо это или плохо, но слово «художественные» в данном случае на первом месте. Книга Игоря Рабинера о четырех великих спортсменах прошлого лишена «режиссерского видения» и домыслов сценаристов. (   Читать дальше...   )Жанр: Биографии и мемуары, Спорт, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D42557C28B851714F4DAA49277BFA46A0A5997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251445   (417851) от 01.10.2018
-
-Алексей Васильев | От Ленина до Путина. Россия на Ближнем и Среднем Востоке (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая работа известного ученого-востоковеда — результат его полувекового изучения Ближнего и Среднего Востока, честная и непредвзятая оценка целей, методов и средств политики Москвы, ее реальных достижений, провалов и просчетов в этом важнейшем для России регионе «третьего мира» как в советский, так и в постсоветский периоды. Впервые в международной историографии (   Читать дальше...   )Жанр: История; Политика; ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFE3810296912655CEB3DE59B90CE161460569E
 ```
 
 https://mybot314.ru/tekegram_catalog/

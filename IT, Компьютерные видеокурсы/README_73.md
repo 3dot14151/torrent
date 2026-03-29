@@ -1,3 +1,140 @@
+###  Публикация: 1838361   (260877) от 23.11.2025
+
+Purpleschool, Антон Ларичев | JavaScript с нуля - основы языка и практика для начинающих (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базовый курс по современному JavaScript в 2025 году для начинающих. С нуля до проекта на реальных примерах и упражнениях.
+
+Курс актуален на 12 апреля 2025 года.Производство: PurpleschoolЖанр: видеокурс, обучающий курс, программирование, JavaScript (JS)Язык озвучки: русскийПродолжительность: 12:06:54Реклама: наложение на видео (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7513E0E247F4655722E01376390A8631A7796B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838325   (260867) от 23.11.2025
+
+Nikandr Surkov | Создание вирусных приложений для Telegram (2025) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь разрабатывать Telegram Mini Apps с нуля до результата: игровой механике, платежной интеграции (TON и Telegram Stars), встроенным вирусным элементам и защите от читеров. Вы получите точный код, на котором работают 50% топовых игр Telegram.
+
+Что вы создадите:
+Затягивающую игру на движке Matter.js с реалистичной физикой(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 02:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D5EA7AA6BCFA5165516C6DC0EBAE6BB18DB664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838613   (260644) от 23.11.2025
+
+Udemy, Filip Jerga | Rust & WebAssembly with JS (TS) - The Practical Guide (2021) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь программировать на Rust. Скомпилируйте код в WebAssembly. Подготовите интерфейс на JS/TS и создайте браузерную игру Snake.Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, РусскийПродолжительность: 13:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD47F17140A57A1D9B859F79FD6001DC401482B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837797   (257658) от 19.11.2025
+
+Udemy, Richard Wells | Unit Testing and Test Driven Development in Python (2019) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработка через тестирование — ключевая дисциплина, которую должен практиковать каждый разработчик программного обеспечения для обеспечения качества своего кода. В этом курсе я покажу вам, как использовать эту дисциплину в повседневной работе над кодом, чтобы обеспечить качество вашей кодовой базы.
+В этом курсе мы рассмотрим:
+- Что такое модульное тестирование и (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 02:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A153FE822E003087E430A35F7328C28DA0F251A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837302   (256798) от 15.11.2025
+
+Дмитрий Зверев | Конструктор промптов (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите практику создания эффективных запросов к ChatGPT, Claude, Mistral, Qwen, DeepSeek, Гигачат и любым аналогичным инструментам в формате мини-тренинга с наглядными уроками и простыми заданиями.Жанр: тренинг, нейросетиЯзык озвучки: русскийПродолжительность: 03:43:31Реклама: наложение на видео и в презентации (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DF0780F67FD3F01474A186D9467A5A59B76CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837430   (256686) от 16.11.2025
 
 OTUS, Алексей Александров | Применение электронно-цифровой подписи [1-3 части] (2020) PCRec [RU]
@@ -6,7 +143,7 @@ OTUS, Алексей Александров | Применение электр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256686.jpg" />
+  <img src="Z:/picture/005/save_picture_256686.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ ITVDN, Дмитрий Афанасьев | Разработка графичес
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256671.jpg" />
+  <img src="Z:/picture/005/save_picture_256671.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ Orion Soft | Обучающий курс по ZVirt (2024) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256664.jpg" />
+  <img src="Z:/picture/005/save_picture_256664.jpg" />
 </div>
 
 
@@ -87,7 +224,7 @@ Stepik, Андрей Ловыгин | Планета ЧПУ (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256351.jpg" />
+  <img src="Z:/picture/005/save_picture_256351.jpg" />
 </div>
 
 
@@ -113,7 +250,7 @@ ProFinansy, Наталья Котовская, Вероника Войнова |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255888.jpg" />
+  <img src="Z:/picture/005/save_picture_255888.jpg" />
 </div>
 
 
@@ -139,7 +276,7 @@ Vlad Ten | System Design (2025) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255883.jpg" />
+  <img src="Z:/picture/005/save_picture_255883.jpg" />
 </div>
 
 
@@ -168,7 +305,7 @@ Stepik, Руслан Шишмарев | C# WPF. Создание оконног�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255492.jpg" />
+  <img src="Z:/picture/005/save_picture_255492.jpg" />
 </div>
 
 
@@ -196,7 +333,7 @@ javascript.ru, Владимир Шевчук | Мастер-класс по ар
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255149.jpg" />
+  <img src="Z:/picture/005/save_picture_255149.jpg" />
 </div>
 
 
@@ -222,7 +359,7 @@ Excellentschool, Ольга Базалева | Интерактивные даш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255034.jpg" />
+  <img src="Z:/picture/005/save_picture_255034.jpg" />
 </div>
 
 
@@ -251,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254975.jpg" />
+  <img src="Z:/picture/005/save_picture_254975.jpg" />
 </div>
 
 
@@ -278,7 +415,7 @@ Udemy, Антон Ларичев | JavaScript Advanced - продвинутые 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254826.jpg" />
+  <img src="Z:/picture/005/save_picture_254826.jpg" />
 </div>
 
 
@@ -304,7 +441,7 @@ Udemy, Иван Петриченко | WEB-разработчик (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254761.jpg" />
+  <img src="Z:/picture/005/save_picture_254761.jpg" />
 </div>
 
 
@@ -333,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254737.jpg" />
+  <img src="Z:/picture/005/save_picture_254737.jpg" />
 </div>
 
 
@@ -361,7 +498,7 @@ Udemy, Mefodiy Kelevra | OSINT и профессиональное исполь�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254502.jpg" />
+  <img src="Z:/picture/005/save_picture_254502.jpg" />
 </div>
 
 
@@ -389,7 +526,7 @@ Udemy, Bogdan Stashchuk | Полный Курс по Node.js (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254476.jpg" />
+  <img src="Z:/picture/005/save_picture_254476.jpg" />
 </div>
 
 
@@ -417,7 +554,7 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254464.jpg" />
+  <img src="Z:/picture/005/save_picture_254464.jpg" />
 </div>
 
 
@@ -446,7 +583,7 @@ Thinknetica, Роман Спиридонов | Асинхронный Python: к
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254448.jpg" />
+  <img src="Z:/picture/005/save_picture_254448.jpg" />
 </div>
 
 
@@ -472,7 +609,7 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254443.jpg" />
+  <img src="Z:/picture/005/save_picture_254443.jpg" />
 </div>
 
 
@@ -501,7 +638,7 @@ n4e.ru | Docker (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254442.jpg" />
+  <img src="Z:/picture/005/save_picture_254442.jpg" />
 </div>
 
 
@@ -530,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254329.jpg" />
+  <img src="Z:/picture/005/save_picture_254329.jpg" />
 </div>
 
 
@@ -556,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252776.jpg" />
+  <img src="Z:/picture/005/save_picture_252776.jpg" />
 </div>
 
 
@@ -567,143 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F80E273CA37CE7AF0F9AAD2F05986D1B24B010CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836438   (252502) от 10.11.2025
-
-plc-edu, Дмитрий Громов | Прикладной курс по АСУ ТП (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучение диагностике, подбору оборудования, проектированию, сборке шкафов автоматики, программированию, диспетчеризации, пусконаладке и обслуживанию в общепромышленных системах. Научитесь правильно строить работу по проекту и этапам программирования. Выпускник данного курса может составить четкое ТЗ для программиста в соответствии с особенностями техпроцесса и проконтролировать (   Читать дальше...   )Производство: plc-eduЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA0A88EDB903B8E27DC4210259611A3F035C9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836100   (252282) от 08.11.2025
-
-Сергей Величко | Запускаем первую ВОЛС с нуля и без дорогих инструментов (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освоите технологию, которая позволит вам выполнять сложные заказы, даже если вы только начинаете!Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:15:56Реклама: наложение на видео и в презентации (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F81A2D33813ACA4BE8B6325257710D4E409C290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836095   (252280) от 08.11.2025
-
-Diodov.net, Дмитрий Забарило | Программирование микроконтроллеров STM32 для начинающих (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный мир электроники уже неразрывно связан с цифровыми устройствами, наиболее яркими представителями которых являются микроконтроллеры (МК).
-И если пару-несколько десятилетий назад можно было быть вполне успешным электронщиком, особо не разбираясь ни в микроконтроллерах, ни в микропроцессорах, то сейчас любой уважающий себя электронщик должен иметь достаточный (   Читать дальше...   )Производство: Diodov.netЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 124:51:43Реклама: наложение на видео и в презентации (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50700D3F5207B0767709F77504844C7C6C6BFBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633606   (252237) от 15.05.2023
-
-CyberYozh Academy, Евгений Ивченков | Комплексная настройка безопасности и анонимности (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252237.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном курсе мы собрали и систематизировали всю информацию во всех сферах кибербезопасности.
-
-Почти все важные документы оцифрованы и хранятся на компьютерах.
-Сделки подписываются цифровыми подписями. Электронные безналичные платежи повсеместно вытесняют старую добрую наличку.(   Читать дальше...   )Производство: CyberYozh AcademyЖанр: КибербезопасностьЯзык озвучки: РусскийПродолжительность: 20:24:16Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CC102400BCAAABBB65C36A0A2F11E97A8FB3CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633706   (252220) от 16.05.2023
-
-Alexcode, Алексей Леонов | Разработчик 1С с нуля (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252220.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПОЧЕМУ СТОИТ ВЫБРАТЬ 1С ПРОГРАММИРОВАНИЕ?
-
-Достойный уровень дохода
-Средняя зарплата в начале карьеры от 47000 руб(   Читать дальше...   )Производство: AlexcodeЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 15:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4773D321E7E75B380E2F9CA8000E5A2394DA12A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

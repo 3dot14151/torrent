@@ -1,3 +1,29 @@
+###  Публикация: 1466333   (1018383) от 30.04.2021
+
+93-я церемония вручения премии Оскар / The 93rd Annual Academy Awards (2021) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое важное событие года для всех ценителей кинематографа. Погрузитесь в мир большого кино вместе с талантливыми ведущими и приглашёнными экспертами, которые сделают просмотр премии ещё интереснее. Смотрите церемонию вручения премии Оскар с комментариями кинокритика Егора Москвитина и включениями с приглашённым экспертом, продюсером Александром Роднянским, членом (   Читать дальше...   )Производство: США, Academy of Motion Picture Arts and Sciences (AMPAS), American Broadcasting Company (ABC)Жанр: ТВ-шоуРежиссер: Гленн УайссАктеры: Брэд Питт, Риз Ахмед, Зендая Колеман, Риз Уизерспун, Харрисон Форд, Брайан Крэнстон, Хоакин Феникс, Рене Зеллвегер, Стивен Юн, Виола Дэвис, Холли Берри, Анджела Бассетт, Лора Дерн, Реджина Кинг, Рита Морено, Чжун Хо Пон, Дон Чидл, Тайлер Перри, Марли МэтлинПеревод: Двуголосый профессиональныйПродолжительность: 04:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CEB3F2DA44151019272F8A49E6CF10C880D5BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466949   (1018059) от 02.05.2021
 
 93-я церемония вручения премии Оскар / The 93rd Annual Academy Awards (2021) WEBRip [H.264/720p] [ENG]
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018059.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018057.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018053.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018049.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017967.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016435.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015796.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013563.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013560.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011358.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011345.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008727.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008717.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005028.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004211.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002162.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000089.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997305.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996779.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995889.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994961.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988495.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988320.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988221.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987326.jpg" />
 </div>
 
 
@@ -648,34 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37BF5CF9230444A292C22CD3E643044DF01A216A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971497   (985471) от 03.01.2016
-
-Новогодний Голубой огонек 2016 (2016.01.01) HDTV [H.264/1080i-LQ] (части 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985471.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту праздничную ночь участники старого доброго "Голубого огонька" ждут всех в своей веселой компании!
-Создатели шоу и авторы сценария подготовили много сюрпризов. Самые яркие звезды российской эстрады предстанут перед телезрителями в необычных дуэтах и даже трио:
-Елене Ваенге, которой всегда нравилось, как танцует Николай Цискаридзе, удастся исполнить (   Читать дальше...   )Телекомпания: Россия HDЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 05:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F88254FF79E83C9A8C08031526F8057152F3BB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

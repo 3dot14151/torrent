@@ -1,3 +1,133 @@
+###  Публикация: 1701834   (116225) от 22.02.2024
+
+Игра в переговоры / Hyeopsang / The Negotiation (2018) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116225.jpg" />
+</div>
+
+
+###  Подробнее
+
+После неудачной попытки освобождения, повлекшей смерть заложников, переговорщица сеульской полиции Ха Чхэ-юн решает уволиться, но её срочно вызывают на очередное задание. Международный торговец оружием держит под дулом пистолета её начальника и корейского репортёра, захваченного в Таиланде, но требований не выдвигает. У Чхэ-юн есть несколько часов, чтобы разобраться (   Читать дальше...   )Производство: Корея Южная / CJ E&M Film Financing & Investment Entertainment & Comics, CJ Entertainment, JK FILMSЖанр: триллер, криминалРежиссер: Ли Джон-сокАктеры: Сон Е-джин, Хён Бин, Ким Сан-хо, Чан Ён-нам, Чан Гван, Чо Ён-джин, Ли Джу-ён, Ли Хак-чу, Чхве Бён-мо, Ли Мун-щикПеревод: Многоголосый профессиональный (Велес)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0784D4E223CC9C30E195BCAF5275F4245A72B320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702437   (115867) от 24.02.2024
+
+Повезло с братом / Geugeotmani nae sesang / Keys to the Heart (2018) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший чемпион по боксу Ли Джо-ха теперь перебивается случайными подработками и ночует в магазине комиксов. Встретив однажды пожилую мать, которая бросила его ещё ребенком, Джо-ха поддаётся на уговоры пожить некоторое время у неё. На месте выясняется, что у него есть младший брат Джин-тхэ — аутист второй степени, милый парень и гениальный пианист-самоучка.Производство: Корея Южная / CJ E&M, CJ Entertainment, JK FilmЖанр: драма, комедия, спортРежиссер: Чхве Сон-хёнАктеры: Ли Бён-хон, Юн Ё-джон, Пак Чон-мин, Мун Сук, Чхве Ри, Ким Сон-нён, Хан Джи-мин, Хван Сок-чон, Пэк Хён-джин, Чо Гван-уПеревод: Многоголосый профессиональный (Официальный, OKKO)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D37A53CC6B8BCE5C4A6DBCBDD44F85BD55801FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702405   (115704) от 25.02.2024
+
+Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A73433905FE6B53882E4726C2E8CEA3D99F3F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702453   (115681) от 25.02.2024
+
+Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EEFBEB3EB2BAEA4A926CC7E0FDFED4F7633357A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702456   (115679) от 25.02.2024
+
+Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9511232E951A0921C824A2BFE3F60BCB1AC036EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702490   (115574) от 26.02.2024
 
 Армия мёртвых в Пусане / Bangbeom: jaechaui / The Cursed: Dead Man's Prey (2021) BDRemux [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115574.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115511.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115483.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115472.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115375.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115197.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115195.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115182.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114960.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114882.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114677.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114667.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114660.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114658.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114634.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114533.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114188.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114163.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114146.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114072.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113216.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18D628B0C4A97D3D0525E4A7685FFAF9F50A158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708121   (113213) от 19.03.2024
-
-Кошмарная легенда района Сибуя / Shibuya kaidan / The Locker (2004) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа молодых людей сталкивается с одним из самых страшных проклятий "Страны восходящего солнца"...Производство: Япония / Bad Taste Visual Voice, Geneon EntertainmentЖанр: ужасыРежиссер: Кэи ХорияАктеры: Асами Мидзукава, Сюдзи Касивабара, Тисато Морисита, Маюка Судзуки, Томохиса Югэ, Фумина Хара, Маки Хорикита, Кандзи Цуда, Дзё Хюга, Кэи ХорияПеревод: Одноголосый любительский (Animegroup)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18545C045E3F38A729854CFEA0D343D07F66742F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713021   (112013) от 04.04.2024
-
-Скандалисты / Gwasok scandle (2008) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112013.jpg" />
-</div>
-
-
-###  Подробнее
-
-На радио, где работает ведущим Нам Хюн Су, поступил звонок от матери-одиночки. Она рассказала, что едет на встречу к своему отцу, которого никогда до этого не видела и хочет после встречи с ним стать певицей. Посмеявшись с коллегами над наивностью сельской девушки, Нам Хюн Су вернулся домой. Каково же было его удивление, когда в его дверь позвонила та самая девушка (   Читать дальше...   )Производство: Южная Корея / DCG Plus, Lotte Entertainment, Toilet PicturesЖанр: комедия, музыкаРежиссер: Хён Чхоль КанАктеры: Тхэ Хён Чха, Иль Квон Ан, Кён Мин Хон, Сок Хён Хван, У Соль Хё Хван, Вон Ким, Мин Со Чон, Вон Чжун Чон, Ки Бан Ким, Хё Чжин Ким, Юн Хо Ким, Ён Чжун Ли, Чжи Кю Им, Сын Тэ Им, Бо Ён ПакПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (ФСГ АЛЬЯНС), английскиеПродолжительность: 01:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF23226DCF80944E16B306C3BE8C160F2C05E2E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713376   (111983) от 05.04.2024
-
-Монстр / Monster / Kaibutsu (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая вдова воспитывает сына Минато в одиночку. Мальчик учится в средних классах и почти ничего не рассказывает о школе, но его странное поведение настораживает женщину. А когда Минато приходит с повреждённым ухом, мать идёт разбираться в школу — всё указывает на то, что мальчика третирует учитель, но школьное руководство не торопится ничего предпринимать.Производство: Япония / Aoi Promotion, Bun-Buku, Fuji Television Network Inc., GAGAЖанр: драмаРежиссер: Хирокадзу Корээда / Hirokazu KoreedaАктеры: Соя Курокава, Хината Хиираги, Сакура Андо, Эйта Нагаяма, Юко Танака, Акихиро Какута, Даисукэ Курода, Рю Мориока, Аю Китаура, Мицуки ТакахатаПеревод: Авторский (Ю. Сербин)Язык озвучки: Русский, японскийСубтитры: ЯпонскиеПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F02BDF999E97EB864F5BCC4C717A000CF2A2D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713437   (111975) от 05.04.2024
-
-Монстр / Kaibutsu / Monster (2023) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая вдова воспитывает сына Минато в одиночку. Мальчик учится в средних классах и почти ничего не рассказывает о школе, но его странное поведение настораживает женщину. А когда Минато приходит с повреждённым ухом, мать идёт разбираться в школу — всё указывает на то, что мальчика третирует учитель, но школьное руководство не торопится ничего предпринимать.Производство: Япония / Aoi Promotion, Bun-Buku, Fuji Television Network Inc., GAGAЖанр: драмаРежиссер: Хирокадзу КорээдаАктеры: Соя Курокава, Хината Хиираги, Сакура Андо, Эйта Нагаяма, Юко Танака, Акихиро Какута, Даисукэ Курода, Рю Мориока, Аю Китаура, Мицуки ТакахатаПеревод: Авторский (Ю. Сербин)Язык озвучки: Русский, японскийСубтитры: ЯпонскиеПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC6B201230177E9A0FB81E61344F7B72CBE93B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713881   (111809) от 07.04.2024
-
-Четыре сестры / Shimaizaka (1985) BDRip [H.264/720p] [JP / RU Sub]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четырёх сводных сестёр связывает необычайно тесная связь в бурные времена послевоенной Японии...Производство: Япония / Toho PicturesЖанр: драмаРежиссер: Нобухико ОбаясиАктеры: Мисако Конно, Ацуко Асано, Ясуко Савагути, Ясуко Томита, Юмико Фудзита, Вакаба Ириэ, Акико Китамура, Тору Минэгиси, Итирота Миякава, Тосинори ОмиПеревод: субтитры (DanuuJI)Язык озвучки: японскийПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5282F1CDDB3D95EC9C6CF411C10D5D0AC3B89FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

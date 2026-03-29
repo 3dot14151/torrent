@@ -1,3 +1,81 @@
+###  Публикация: 1261380   (303250) от 11.11.2018
+
+Януш Корчак | Как любить ребенка (2014) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_303250.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Как любить ребёнка» Януша Корчака – книга по воспитанию №1 в мире. Книга «Как любить ребёнка» стала основной для многих знаменитых трудов по воспитанию. Знаменитый педагог и гуманист Януш Корчак создал настоящую энциклопедию воспитания личности, наполненную великой любовью. Человек с трагической судьбой, до конца жизни он оставался примером и Наставником с большой (   Читать дальше...   )Жанр: Воспитание детей, детская психология, зарубежная образовательная литература, психология, педагогикаПродолжительность: 04:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED7B42556C73B5913012182473F09B069147C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729425   (302057) от 05.12.2013
+
+Всеволод Нестайко | В стране солнечных зайчиков (2007) [MP3] [UKR]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_302057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги — известный детский писатель Всеволод Зиновьевич Нестайко — написал много повестей и рассказов для детей. Его произведения несут в себе особый заряд доверчивости и доброты. За повесть-сказку "Необычные приключения в лесной школе" Всеволод Нестайко в 1982 году был удостоен литературной премии им. Леси Украинский. А фильм о деревенских "тореадоров" за его славной трилогии "Тореадоры из Васюковки" получил "Гран-при" на Международном кинофестивале в Мюнхене (1968) и Главную премию на Международном фестивале в Австралии (1969) . В этой книге юные читатели познакомятся с известными повестями-сказками Всеволода Нестайко "В Стране Солнечных Зайчиков ", "Незнакомка из Страны Солнечных Зайчиков" и "В Стране Лунных Зайчиков ", которые получили всемирную славу. Вы познакомитесь с удивительной страной и ее жителями — солнечными зайчиками, которые всегда побеждают мрак, так же, как и добро всегда побеждает зло. Для детей младшего школьного возраста.Жанр: АудиокнигаПродолжительность: 07:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F26130757F3D8E5E3C04C3A418584F6B6ED565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078215   (301747) от 12.11.2020
+
+Марк Твен | Приключения Гекльберри Финна (2003) [MP3, Сергей Кирсанов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть, являющаяся продолжением книги "Приключения Тома Сойера". Герой и рассказчик книги Гек Финн - бездомный мальчик, но он никогда не променяет свои лохмотья и бочку, служившую ему приютом, на "гнусные и душные дома". Гек убегает на остров, спасая свою жизнь и свободу, а затем и жизнь беглого раба Джима...Жанр: Детская литература, приключенияИздательство: АрдисПродолжительность: 12:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985D3AB445A3FC7D41AAB2D6F3027E1E2F9D8CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 585739   (300771) от 07.12.2012
 
 Робинс | Сказочный подарок на Новый год и Рождество [2012] [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300771.jpg" />
+  <img src="Z:/picture/008/save_picture_300771.jpg" />
 </div>
 
 
@@ -37,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300702.jpg" />
+  <img src="Z:/picture/008/save_picture_300702.jpg" />
 </div>
 
 
@@ -63,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300280.jpg" />
+  <img src="Z:/picture/008/save_picture_300280.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299838.jpg" />
+  <img src="Z:/picture/008/save_picture_299838.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299788.jpg" />
+  <img src="Z:/picture/008/save_picture_299788.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296826.jpg" />
+  <img src="Z:/picture/008/save_picture_296826.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296122.jpg" />
+  <img src="Z:/picture/008/save_picture_296122.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296020.jpg" />
+  <img src="Z:/picture/008/save_picture_296020.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296019.jpg" />
+  <img src="Z:/picture/008/save_picture_296019.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295946.jpg" />
+  <img src="Z:/picture/008/save_picture_295946.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295944.jpg" />
+  <img src="Z:/picture/008/save_picture_295944.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295938.jpg" />
+  <img src="Z:/picture/008/save_picture_295938.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294362.jpg" />
+  <img src="Z:/picture/008/save_picture_294362.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294265.jpg" />
+  <img src="Z:/picture/008/save_picture_294265.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294150.jpg" />
+  <img src="Z:/picture/008/save_picture_294150.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294144.jpg" />
+  <img src="Z:/picture/008/save_picture_294144.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293369.jpg" />
+  <img src="Z:/picture/008/save_picture_293369.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293180.jpg" />
+  <img src="Z:/picture/008/save_picture_293180.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292148.jpg" />
+  <img src="Z:/picture/008/save_picture_292148.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291981.jpg" />
+  <img src="Z:/picture/008/save_picture_291981.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291376.jpg" />
+  <img src="Z:/picture/008/save_picture_291376.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288954.jpg" />
+  <img src="Z:/picture/008/save_picture_288954.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288545.jpg" />
+  <img src="Z:/picture/008/save_picture_288545.jpg" />
 </div>
 
 
@@ -607,89 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6886FD9DDD3CFA1F64D016DD505825AFCF26D80D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080433   (288481) от 07.12.2016
-
-Владимир Тендряков | Весенние перевертыши (1976) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной с Дюшкой Тягуновым произошли удивительные перемены: он вдруг стал задумываться о том, что мир очень переменчив, что Земля - это еще не вся Вселенная, что сколько людей - столько разных миров. Все это надо было обдумать и понять. Но откуда берутся такие жестокие люди, как Санька Ераха, Дюшка объяснить не мог...
-
-В. Тендряков | Весенние перевертыши (1980)Жанр: Детская литератураПродолжительность: 01:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98BEAFBD1DF8B28079616E7FE242CD9B5CCCBB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839119   (287224) от 27.11.2025
-
-Никита Карпов | Чертовы подростки! (2025) [MP3, Никита Карпов, Максим Доронин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_287224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никита Карпов – опытный детский психолог с 15-летним стажем, автор популярных книг о подростковом возрасте.
-В своей серии книг он помогает родителям справиться с трудностями взросления детей, предлагая эффективные стратегии общения и решения типичных проблем:Жанр: Подростковая психологияИздательство: БОМБОРАПродолжительность: 17:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AEF2D0A1036C71E3D5A5BCC79E7D0C359C678B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839118   (287222) от 27.11.2025
-
-Эдуард Вартаньян | Простая наука для детей, Крылатые имена (2023) [MP3, Анна Сказко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_287222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые увлекательные факты о крылатых выражениях русского языка от известного лингвиста!
-Язык, на котором мы говорим и пишем, – живой, и он постоянно меняется: одни слова уходят из употребления, другие появляются, третьи со временем меняют своё значение.
-А некоторые имена и выражения становятся крылатыми – о них и поведает книга известного писателя и языковеда Эдуарда (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, научно-популярная литератураИздательство: АСТПродолжительность: 05:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F842297B10A48394CBF142F49BCDDAEEFAD7FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

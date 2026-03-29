@@ -1,3 +1,29 @@
+###  Публикация: 481682   (99295) от 11.04.2012
+
+Каникулы в Мексике - 2. Выпуск №28 (2012.04.11) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99295.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C676CE29E82D06763425908616A23979F0ECB776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481243   (99193) от 10.04.2012
 
 Каникулы в Мексике - 2. Ночь на вилле. Выпуск №27 (2012.04.10) SATRip
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99193.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98798.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98711.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98519.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98512.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98465.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98454.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98110.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97959.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97544.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97395.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97015.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96235.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90637.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90596.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90308.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89162.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88553.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86838.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86592.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86082.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85259.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84881.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84750.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84667.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94EFA34B7E4F8AABA136E795C39E59D81720B2BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473827   (84451) от 26.03.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №16 (2012.03.26) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84451.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3D1C30B0F303AC109025EF27E143CE9D59DE0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

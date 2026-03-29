@@ -1,3 +1,30 @@
+###  Публикация: 1095748   (924202) от 21.01.2017
+
+Юлия Яценко | Почему мы болеем? Виртуальные реальности болезней и зависимостей. Выход есть! (2014) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Побудительным мотивом к написанию данной книги явилось желание моих коллег, пациентов, спонсоров и учеников в России и за рубежом получить как систематизированный научный материал по разным видам виртуальных зависимостей, так и инновационные технологии выведения из мира патологической виртуальной реальности разных видов зависимостей.
+Доступность и открытость общества (   Читать дальше...   )Жанр: Психотерапия и консультирование, Борьба с вредными привычками, Лечение алкоголизма, Практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2AB61D6454BCB53A13480C9AFA028A65F4D34C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987859   (923954) от 18.02.2016
 
 Пьер Дюкан | 60 дней с доктором Дюканом (2015) [PDF]
@@ -6,7 +33,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923954.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922342.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922062.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920293.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918644.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917190.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917184.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913174.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910660.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909512.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908048.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906472.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902415.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893294.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891452.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889845.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887932.jpg" />
+  <img src="Z:/picture/005/save_picture_887932.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885074.jpg" />
+  <img src="Z:/picture/005/save_picture_885074.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885021.jpg" />
+  <img src="Z:/picture/005/save_picture_885021.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884944.jpg" />
+  <img src="Z:/picture/005/save_picture_884944.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884499.jpg" />
+  <img src="Z:/picture/005/save_picture_884499.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884213.jpg" />
+  <img src="Z:/picture/005/save_picture_884213.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880948.jpg" />
+  <img src="Z:/picture/005/save_picture_880948.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880743.jpg" />
+  <img src="Z:/picture/005/save_picture_880743.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880739.jpg" />
+  <img src="Z:/picture/005/save_picture_880739.jpg" />
 </div>
 
 
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02584E0EB39DD1FA631CC4A8FB98A4EF802280B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104749   (879624) от 15.02.2017
-
-Виктор Панов | Люстра Чижевского - прибор долголетия (2006) [FB2, RTF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайна долголетия горцев разгадана! Сегодня науке известно, что в горах воздух обогащен отрицательными аэроионами, именно они обеспечивают здоровое долголетие. Они нужны живым организмам также, как и витамины. Их полное отсутствие приводит к гибели, а повышенное содержание оказывает лечебное действие и значительно продлевает жизнь. Еще перед войной советский ученый (   Читать дальше...   )Жанр: Человек и окружающая средаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:028AC00F2085EEDA399308125F8C0977B061C640
 ```
 
 https://mybot314.ru/tekegram_catalog/

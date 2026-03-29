@@ -1,3 +1,164 @@
+###  Публикация: 1587143   (193247) от 29.10.2022
+
+Shika no Ou: Yuna to Yakusoku no Tabi | The Deer King | Король-олень [2022, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193247.jpg" />
+</div>
+
+
+###  Подробнее
+
+После захвата королевства Акафа соседней империей Цуол на территории обоих государств свирепствует загадочная, переносимая чёрными псами болезнь. Бывший солдат, а ныне беглый раб спасает в соляной шахте маленькую девочку, когда оба они подвергаются нападению стаи. Чудом отбившись, герой находит пристанище в деревне, но эпидемия подбирается все ближе.Производство: студия Production I.G / プロダクション・アイジーЖанр: фэнтезиРежиссер: Андо МасасиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595FFB4F4910E9FC3055810D47C231891AB1B04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587168   (193245) от 29.10.2022
+
+Galaxy Angel A / Galaxy Angel AA | Галактические ангелы А [ТВ-3] [2003, TV, 52 эп.+4 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Времена высокоразвитой в техническом плане человеческой цивилизации давно минули. Из-за внезапного пространственно-временного сотрясения люди лишились возможности космических полётов, и отрезанные планетарные колонии деградировали.
+Но однажды на орбите планеты Трансвааль, расположенной на задворках вселенной, появился космический объект, являющийся осколком прежней (   Читать дальше...   )Производство: Япония, Madhouse / マッドハウスЖанр: приключения, пародия, комедияРежиссер: Асака МориоПеревод: Vik Pol + Xander + Erty + Viruson + redbull  (оформление, и ремонт субтитров напильником - моё)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (52 эп. + 4 спэшла), 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1097D8092527DBA3F67A08E8206DF4238F257DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587160   (193242) от 29.10.2022
+
+Otomege Sekai wa Mob ni Kibishii Sekai Desu | Trapped in a Dating Sim: The World of Otome Games Is Tough for Mobs | В симуляторе свиданий: Нелёгкая жизнь мобов [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леон — изначально японский парень, которого младшая сестра заставила проходить отомэ-игру, на что он потратил два дня. Из-за усталости от беспрерывной игры, он упал с лестницы и умер. Теперь он переродился в мире этой самой отомэ-игры, в котором безраздельно правят женщины, особенно жесткие условия тут для «мобов» — второстепенных персонажей вроде него. Единственным (   Читать дальше...   )Производство: студия EngiЖанр: приключения, фантастика, мехаРежиссер: Миура КадзуяПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE05EF44C61C3259F2E0C026C07D146058A296CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574963   (193220) от 29.10.2022
+
+Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый сезон Date a Live. Описание к первому сезону ниже.
+
+Земле грозит опасность – пришельцы из иного измерения самим фактом появления в нашем мире вызывают страшные бедствия. Зачастили они, как положено, в Страну восходящего солнца, и люди быстро привыкли, что кроме цунами и подземных толчков надо бояться еще и «возмущений пространства». Да, методом страуса (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Накагава АцусиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07BB75CFB15D71A5B0A577DF524292114091E4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574974   (193180) от 29.10.2022
+
+Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | Восхождение Героя щита [ТВ-2] [2022, TV, 13 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории.
+
+Наофуми Иватани — самый обычный, ничем не примечательный студент. Точнее, он был им — ровно до тех пор, пока его вместе с ещё тремя юношами не призвали в иной мир. Мелромарк нуждается в героях, ведь грядут «волны» — страшные катаклизмы, которые сметут всё живое на своём пути. Казалось бы, теперь-то Наофуми заживёт, вот только... Мало того, что (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Дзимбо МасатоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856F03CAB4E2CED5A3DF18AF4605CD30A3E08650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574977   (193152) от 29.10.2022
+
+Black Rock Shooter: Dawn Fall | Стрелок с Черной скалы [ТВ-2] [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_193152.jpg" />
+</div>
+
+
+###  Подробнее
+
+2062 год. Прошло 20 лет с момента провала крупного проекта по автоматизации производств. Однако Артемида, искусственный интеллект, который был в основе этого проекта, решила напасть на человечество и в результате война опустошила Землю. Императрица просыпается с амнезией в подземной лаборатории и знает только то, что ей говорит Полковник. Она одна из трёх выживших (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Танака МотокиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39398ABD8FDEDAECF6A24A4D331627FA5A93AAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543197   (193100) от 29.10.2022
 
 Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфоровая кукла влюбилась [2022, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +167,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193100.jpg" />
+  <img src="Z:/picture/004/save_picture_193100.jpg" />
 </div>
 
 
@@ -34,7 +195,7 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192552.jpg" />
+  <img src="Z:/picture/004/save_picture_192552.jpg" />
 </div>
 
 
@@ -60,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191333.jpg" />
+  <img src="Z:/picture/004/save_picture_191333.jpg" />
 </div>
 
 
@@ -86,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191312.jpg" />
+  <img src="Z:/picture/004/save_picture_191312.jpg" />
 </div>
 
 
@@ -112,7 +273,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191218.jpg" />
+  <img src="Z:/picture/004/save_picture_191218.jpg" />
 </div>
 
 
@@ -138,7 +299,7 @@ Eiga Yuru Camp | Лагерь на свежем воздухе (фильм) [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190827.jpg" />
 </div>
 
 
@@ -164,7 +325,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190820.jpg" />
 </div>
 
 
@@ -191,7 +352,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190623.jpg" />
 </div>
 
 
@@ -217,7 +378,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren`ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190616.jpg" />
 </div>
 
 
@@ -243,7 +404,7 @@ Saint Seiya | Рыцари Зодиака [1986, TV, 114 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190062.jpg" />
 </div>
 
 
@@ -269,7 +430,7 @@ Exception | Ошибка [2022, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189901.jpg" />
 </div>
 
 
@@ -295,7 +456,7 @@ Kimi ni Todoke 2nd Season | Дотянуться до тебя [ТВ-2] [2011, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189755.jpg" />
 </div>
 
 
@@ -321,7 +482,7 @@ Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189564.jpg" />
+  <img src="Z:/picture/005/save_picture_189564.jpg" />
 </div>
 
 
@@ -347,7 +508,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187785.jpg" />
 </div>
 
 
@@ -373,7 +534,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY Ледяное короле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187707.jpg" />
+  <img src="Z:/picture/005/save_picture_187707.jpg" />
 </div>
 
 
@@ -399,7 +560,7 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187697.jpg" />
 </div>
 
 
@@ -425,7 +586,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187542.jpg" />
 </div>
 
 
@@ -451,7 +612,7 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187498.jpg" />
 </div>
 
 
@@ -477,7 +638,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187418.jpg" />
 </div>
 
 
@@ -505,7 +666,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187401.jpg" />
+  <img src="Z:/picture/005/save_picture_187401.jpg" />
 </div>
 
 
@@ -516,162 +677,6 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF4904C3FC5E1D6D952B9A20FE601B2BD2CFE07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332330   (187368) от 17.11.2022
-
-Machikado Mazoku | The Demon Girl Next Door | Городская дьяволица [2019, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юко Ёсида, обычная 15-летняя девочка, проснувшись однажды утром, обнаруживает, что обладает демонической силой. И теперь ей надо победить местную девочку-волшебницу, только так она сможет снять проклятие «40 000 иен за один месяц жизни». Да, теперь у неё есть рога и хвост, но по правде говоря, её сила даже меньше, чем у обычной девочки.Производство: студия J.C. StaffЖанр: повседневность, комедияРежиссер: Сакурай ХироакиПеревод: Apostol & ED_SlnЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2A690B3C34E4303DEBCAF5836ACC14B420024A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664226   (185954) от 25.09.2023
-
-Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой глупый первый друг [2023, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такада недавно перевелся в новый класс и не знает, почему его одноклассницу Нисимуру все дразнят «Смертью». Но ему всё равно, потому что это же так круто звучит! Даже если их будут дразнить и смеяться у них за спиной, он всё равно хочет с ней подружиться, и эта глупость поможет ему пробить стену, которую она возвела вокруг себя.Жанр: комедия, романтика, повседневностьРежиссер: Кагэяма СигэнориПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E6A2300718B60F252E8FD3AB317FB190F4E13D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664227   (185920) от 25.09.2023
-
-Azur Lane: Queen's Orders | Лазурный путь: Приказы королевы [2023, OVA, 2 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на Землю вторглись инопланетные захватчики Сирены, то человечество вступило с ними в войну. Организация "Лазурный путь" собрала под своим началом морской флот землян. Люди стали действовать в едином составе против врагов из другого мира. В состав флота организации "Лазурный путь" также входит флотилия её высочества королевы Элизабет. Проснувшись (   Читать дальше...   )Производство: студия Yostar PicturesЖанр: приключенияПеревод: BekaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C49AD147F851F0CED57C552F171C15F6F937EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595252   (185900) от 25.09.2023
-
-Tokyo Mew Mew New | Токио Мяу Мяу (2022) [2022, TV, 12 из 12] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ичиго Момомия внезапно оказывается вовлечённой в странный инцидент, из-за которого её ДНК сливается с ДНК почти вымершей ириомотской кошки. Когда ДНК ещё четырёх девочек сливаются с ДНК других редких животных, становится ясно, что всё это не случайно. Ичиго и её друзья были выбраны для участия в секретном «Проекте Мяу». С помощью приобретённых из-за слияния ДНК сил (   Читать дальше...   )Производство: Yumeta CompanyЖанр: приключенияРежиссер: Натори ТакахироПеревод: AhsataNikaerЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F43F34651971AC308AC7593695F9CCD23B9924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664225   (185877) от 25.09.2023
-
-Yuusha ga Shinda! | The Legendary Hero is Dead! | Герой мёртв! [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185877.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где монстры из ада периодически устраивают атаки на человеческий мир, обычный фермер Тока Скотт решает уберечь себя от напастей самым простым способом: наставить ловушки против демонов. Вот только попадает в них местный герой, должный это самое нашествие остановить. И почему-то все винят в этом Току. А ведь он не просил героя лезть в свой огород…Производство: студия Liden Films / ライデンフィルムЖанр: комедия, фэнтези, эттиРежиссер: Кудзё РионПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A284B4B2DEA31A11B2B66DD44EFA30729A7218CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664232   (185859) от 25.09.2023
-
-Space Runaway Ideon | Densetsu Kyojin Ideon | Космический беглец Идеон | Легенда о Великом Идеоне [1980, TV, 39 эп.] BDRip 1080p HEVC raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земные колонисты на планете Соло находят остатки неизвестной цивилизации, среди артефактов они обнаруживают космический корабль и три машины неизвестного назначения. В это время к планете прибывают разведчики инопланетной расы Клан Бафф, которые ищут источник метеоритов, что падают на их родную планету несколько лет подряд. Разведчики посчитали колонистов слишком (   Читать дальше...   )Производство: студия Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Томино ЁсиюкиПеревод: 1) ENCODERGASM; 2) VZbittenЯзык озвучки: ЯпонскийСубтитры: 1) Английские; 2) РусскиеПродолжительность: 39 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EDA7CBC178BB45AE87D298DA925454E8DFEF3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

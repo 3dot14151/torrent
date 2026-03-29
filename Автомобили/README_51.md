@@ -1,3 +1,29 @@
+###  Публикация: 566759   (397591) от 28.10.2012
+
+А. В. Воронцов, А. М. Петров, Н. В. Захаров | Skoda Octavia A5. Пошаговый ремонт в фотографиях [2012] [PDF]
+
+>>Автомобили
+>>Автомобильная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_397591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию руководство по ремонту и эксплуатации автомобиля Skoda Octavia А5 (выпуск с 2004 г., рестайлинг в 2009 г.) с кузовами лифтбек и универсал, с бензиновыми двигателями объемом 1,4; 1,6 и 2,0 л. Рассмотрены особенности механической, автоматической и роботизированной коробок передач. В издании подробно рассмотрено устройство автомобиля, даны рекомендации по эксплуатации и ремонту. Специальный раздел посвящен неисправностям в пути, способам их диагностики и устранения.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA53CE77D2721C6B04C38242EDB2DE1CBB09D5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171609   (395693) от 05.10.2017
 
 Журнал | Автомир [Россия] №41 (октябрь 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395693.jpg" />
+  <img src="Z:/picture/008/save_picture_395693.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394657.jpg" />
+  <img src="Z:/picture/008/save_picture_394657.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393992.jpg" />
+  <img src="Z:/picture/008/save_picture_393992.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392959.jpg" />
+  <img src="Z:/picture/008/save_picture_392959.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392685.jpg" />
+  <img src="Z:/picture/008/save_picture_392685.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392374.jpg" />
+  <img src="Z:/picture/008/save_picture_392374.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391079.jpg" />
+  <img src="Z:/picture/008/save_picture_391079.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390572.jpg" />
+  <img src="Z:/picture/008/save_picture_390572.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390307.jpg" />
+  <img src="Z:/picture/008/save_picture_390307.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390081.jpg" />
+  <img src="Z:/picture/008/save_picture_390081.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390044.jpg" />
+  <img src="Z:/picture/005/save_picture_390044.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389698.jpg" />
+  <img src="Z:/picture/008/save_picture_389698.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389333.jpg" />
+  <img src="Z:/picture/008/save_picture_389333.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389103.jpg" />
+  <img src="Z:/picture/008/save_picture_389103.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388993.jpg" />
+  <img src="Z:/picture/008/save_picture_388993.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388950.jpg" />
+  <img src="Z:/picture/008/save_picture_388950.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387732.jpg" />
+  <img src="Z:/picture/008/save_picture_387732.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387397.jpg" />
+  <img src="Z:/picture/008/save_picture_387397.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386916.jpg" />
+  <img src="Z:/picture/008/save_picture_386916.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386734.jpg" />
+  <img src="Z:/picture/008/save_picture_386734.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385135.jpg" />
+  <img src="Z:/picture/008/save_picture_385135.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385133.jpg" />
+  <img src="Z:/picture/008/save_picture_385133.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ BMW DVD Road Map Europe HIGH 2013
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384524.jpg" />
+  <img src="Z:/picture/008/save_picture_384524.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384358.jpg" />
+  <img src="Z:/picture/008/save_picture_384358.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383968.jpg" />
+  <img src="Z:/picture/008/save_picture_383968.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BBC4BEE36C7514E45DC56876355BD13E9C25FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719503   (383816) от 06.11.2013
-
-Журнал | Автомир [Украина]. Спецвыпуск №2. Полный привод (2013) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Автомир» — специализированное автомобильное издание, целиком посвященное миру автомобилей, представляет спецвыпуск «Полный привод». В выпуске тесты, комплектации, характеристики и цены 44 самых популярных моделей внедорожников - автомобилей с колесной формулой 4х4.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81498669F449591BFACD38FA5456C18E6FD1150
 ```
 
 https://mybot314.ru/tekegram_catalog/

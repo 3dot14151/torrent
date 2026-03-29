@@ -1,3 +1,235 @@
+###  Публикация: 1725892   (108847) от 26.05.2024
+
+Intervals - memory palace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - neurogenesis (00:04:26)
+02 - mnemonic (00:04:48)
+03 - galaxy brain (00:04:19)
+04 - nootropic (00:05:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BFBBCEA7AD46019A8052D8F096E2F0FF9176AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725976   (108841) от 26.05.2024
+
+Arrayan Path (Ex-Arryan Path) - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arrayan Path (ранее Arryan Path) — проект певца и автора песен Николаса Лептоса, который объединился в 1997 году с гитаристом Клементом Фунгом при поддержке на протяжении многих лет брата Николаса - Сократа Лептоса2004 - Road To Macedonia
+2010 - Terra Incognita
+2011 - Ira Imperium
+2013 - IV - StigmataЖанр: Epic Power MetalПродолжительность: 09:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DAF4E9EF2F2CF14A41AB9D6E9E96B4DF6F1EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725921   (108839) от 26.05.2024
+
+Deaf Owl - From the Bottom of the Sewers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthwound [00:04:57]
+02. And I Dove in the Eternal Abyss [00:06:37]
+03. When Churches Burn [00:04:44]
+04. Life Waster [00:04:25](   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6B78137E3AEE507298194032E62230F87AE1AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726073   (108833) от 27.05.2024
+
+Bob Recchione - Don't Get Me Started (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Way Out of Here Blues (5:00)
+02. Keepin' On (6:00)
+03. Like the Wind (5:22)
+04. Has it Been That Long (4:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66356260A6522F0849E2168418635B91B4F9577F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726214   (108819) от 27.05.2024
+
+Luca Pasqua - My Jazz Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories (Alt. Mix) (5:40)
+02. Dust In The Wind (4:46)
+03. Estate (Alt.Mix) (6:08)
+04. Fifty Fifty (6:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FB0AD9C73A85DC688180032FD5121C05DDDE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726218   (108816) от 27.05.2024
+
+Sant Andreu Jazz Band & Joan Chamorro - Jazzing 14 Vol.1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Hat, White Tie & Tails (2:17)
+02. Bewitched (4:38)
+03. Four Brothers (3:13)
+04. For All We Know (5:40)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E956BFC4A39055FA7358B2C3E62CF6730310430A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726230   (108812) от 27.05.2024
+
+Soundset City - Always Lounge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Lounge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With You (3:18)
+02. Desire (3:27)
+03. Chillout Night Bar (3:34)
+04. Smooth Touch (3:14)(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB62EF15A513982BA8B104F574E074997782992B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726228   (108809) от 27.05.2024
+
+Smooth Jazz Music Ensemble, Jazz Sax Lounge Collection, Restaurant Jazz Music Collection - Night Saxophone Jazz in The City: Cozy Bar Ambience for Relax, Good Mood (2024) [FLAC 24/48|Lossless|WEB-D ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Lights Lullaby (3:08)
+02. Restaurant Jazz Music Collection - Downtown Dreaming (3:24)
+03. Jazz Sax Lounge Collection - Jazz Club Comfort (2:59)
+04. Saxophone Street Serenade (3:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD63CAB5E10ABA9183DDF2587387EFA855CA37FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726242   (108808) от 27.05.2024
 
 Studying Music Group, Instrumental Music Ensemble - 2024 Relaxing Saxophone for Studying (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +238,7 @@ Studying Music Group, Instrumental Music Ensemble - 2024 Relaxing Saxophone for 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108808.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ VA - Love Making Music (Sensual Saxophone Jazz) (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108806.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Spike Wilner Trio - Contrafactus (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108800.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Pau Casares - Sobretaula a casa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108797.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Spee
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108796.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ The Boxx Orchestra - The Horn of Plenty (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108793.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Jeffrey Stevenson - Hypsometric (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108792.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ VA - Metal Massacre 08 (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108789.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Pacifico - Success, Luck and Happiness (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108787.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Ilan Kunik - The Casino Club - Positive & Funky Comedy Grooves (2024) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108786.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Vlado Grizelj - Purple Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108783.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108774.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108754.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Night's Music Zone - Soothing Night of Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108751.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Maegandune - Melodic Memoirs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108711.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108710.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Karfagen - Land of Chameleons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108704.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Cosmo's Midnight - Stop Thinking Start Feeling (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108698.jpg" />
 </div>
 
 
@@ -513,235 +745,6 @@ Cosmo's Midnight - Stop Thinking Start Feeling (2024) [FLAC 24/96|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CADF407DB3EF54DE4D8DEECACCC1A4B7879253A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726349   (108681) от 29.05.2024
-
-After Dark - Memories Gone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forevermore [00:03:30]
-02. The Darkness Inside [00:04:34]
-03. Release My Mind [00:04:14]
-04. Illusive Sky [00:04:59](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95400738FC8E6AD1CFEF71086AB1AAD6E635CA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726705   (108680) от 29.05.2024
-
-7he Myriads - Planetarium (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Indie, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altair [00:06:10]
-02. Omicron Persei [00:05:57]
-03. Sirius [00:06:13]
-04. Betelgeuse [00:07:28](   Читать дальше...   )Жанр: Progressive Rock, Indie, Space RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399876DEAC950555A6327DCA8A92E52E591518DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726347   (108678) от 29.05.2024
-
-Pleasurekraft - On Growth and Form (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Optimist [00:06:48]
-02. Ritual [00:07:00]
-03. Umbilicis Universalis [00:05:56]
-04. Fear [00:06:45](   Читать дальше...   )Жанр: TechnoПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961EBEAFD072A8BE1BF5D15BC638CC1B994C07BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726635   (108674) от 29.05.2024
-
-Sun Ra - Excelsior Mill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Hiroshima [00:42:23]Жанр: JazzПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990EA97BDCA6B1128F5CD2C37356032BD68D801E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726757   (108664) от 30.05.2024
-
-Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Electro, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108664.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bataillon D'Amour
-A2 Josef & Maria
-A3 Schlohweisser Tag
-A4 EKG(   Читать дальше...   )Жанр: Pop Rock, Electro, New WaveПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150177370F96B72B4AE71AE725FB293B084562DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726963   (108644) от 31.05.2024
-
-Black Sabbath - Forbidden (1995) Tony Iommi Remix, 2024, BMG Rights Management (UK) Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Illusion of Power (4:50)
-02. Get a Grip (4:02)
-03. Can't Get Close Enough (4:32)
-04. Shaking Off the Chains (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584A73018462544DAE32146C0D7ED82BEC97D321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726923   (108637) от 31.05.2024
-
-Black Sabbath - Tyr (1990) Remaster, 2024, BMG Rights Management [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anno Mundi
-02 - The Law Maker
-03 - Jerusalem
-04 - The Sabbath Stones(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DBE3AEA77B820138E67D67C27529A5A89763B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726874   (108636) от 31.05.2024
-
-Eguana - Future Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient | Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Projections [00:09:44]
-02. Future Visions [00:09:12]
-03. Global Utopia [00:04:38]
-04. New Earth Anthem [00:05:33](   Читать дальше...   )Жанр: Ambient | ElectronicПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19FAC37FE5EC780780210CB6283A4E5EB0E6EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

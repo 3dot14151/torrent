@@ -1,3 +1,116 @@
+###  Публикация: 1360115   (961850) от 14.02.2020
+
+Альянс - Космические сны (2020) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961850.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Навстречу холодному свету
+2. Космические сны
+3. Эй, мен, супермен!
+4. Ночь сомнения(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3370E700950F4E2C8C2EF05F98E03ACF74345C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360010   (961849) от 14.02.2020
+
+Ночные Снайперы - эксперимент (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. экспериментЖанр: RockПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1365C130B4BC3449619A074A666FDD1D44FBDC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360011   (961804) от 14.02.2020
+
+Несчастный Случай - В городе Лжедмитрове (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Колодец памяти
+2. Радио 1
+3. В городе Лжедмитрове
+4. Радио 2(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B82E8FA0745FD20C6B27F0657AAA126A830925E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978623   (960799) от 25.01.2016
+
+Чёрный Лукич (Вадим Кузьмин) - Дискография (42 альбома) (1987-2011) [MP3|128-320 кб/с] <Авторская песня, русский рок, сибирский панк>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960799.jpg" />
+</div>
+
+
+###  Подробнее
+
+1988 - Эрекция лейтенанта Киреева
+1988 - Кучи в ночи
+1989 - Осеннее платье
+1990 - Карманный лебедь(   Читать дальше...   )Жанр: Авторская песня, русский рок, сибирский панкПродолжительность: 36:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AF0B08DA9FCEA467FE89BFAF99F9424B8A2128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979010   (960758) от 25.01.2016
 
 АлисА - Шестой лесничий (1989) Remastered, 2016, Мистерия звука [MP3|320 кб/с] <Rock>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960758.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957344.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957076.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956905.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955912.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955729.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955353.jpg" />
 </div>
 
 
@@ -215,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955220.jpg" />
 </div>
 
 
@@ -244,7 +357,7 @@ Casual - 6 Альбомов, 11 Синглов (2012-2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955209.jpg" />
 </div>
 
 
@@ -273,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952342.jpg" />
 </div>
 
 
@@ -302,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951721.jpg" />
 </div>
 
 
@@ -331,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951070.jpg" />
 </div>
 
 
@@ -360,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951052.jpg" />
 </div>
 
 
@@ -389,7 +502,7 @@ KUZMIN Absolute Band - Полный Близнец (2020) Single [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951032.jpg" />
 </div>
 
 
@@ -415,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948650.jpg" />
 </div>
 
 
@@ -444,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947381.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ TruckDrivers - Делай, что должен, и будь, что будет (
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946067.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945958.jpg" />
 </div>
 
 
@@ -525,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945606.jpg" />
 </div>
 
 
@@ -554,7 +667,7 @@ Stay Away - Дисклеймер, Часть 1 (2019) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942607.jpg" />
 </div>
 
 
@@ -583,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941519.jpg" />
 </div>
 
 
@@ -618,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941303.jpg" />
 </div>
 
 
@@ -638,119 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08EFAE6DA9184EF7FD64FFDBB8801A6F2CB71902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626832   (941224) от 07.03.2013
-
-Андрей Сапунов - Звон (1993) [MP3|320 кб/с]<Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РокПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5056AB3716EDB0CDD44B53EF5576739F823E63C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626992   (941065) от 07.03.2013
-
-Фёдор Чистяков - Правило Игры (2013) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Видеомонтаж (06:30)
-02. День рождения умершего (09:20)
-03. Колёсико (05:28)
-04. Искусство (06:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835CB73245AA23813E311455AC18688BD7DE8391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984235   (939816) от 08.02.2016
-
-Оргия Праведников - Для тех, кто видит сны Vol.2 (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flores de Muertos
-02. Вдаль, по синей воде
-03. Звёздной тропой
-04. Чёрная земля(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF753BC47343E0CD7F17239F8644C3BD3706384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092696   (938862) от 12.01.2017
-
-Хартыга и Андрей Бардин - Фуга для степи с органом (2016) [MP3|320 Kbps] <Ethno Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тулаа-Шынаа
-2. Дагларым
-3. Чугуруктер
-4. Кынгыргай-Кон(   Читать дальше...   )Жанр: Ethno Rock, FolkПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0813670377401C8C0A5521759E9C8DFFE7E0F969
 ```
 
 https://mybot314.ru/tekegram_catalog/

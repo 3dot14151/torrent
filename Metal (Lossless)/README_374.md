@@ -1,3 +1,90 @@
+###  Публикация: 1807563   (65166) от 19.07.2025
+
+Crystal Skull - Arcane Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude To Darkness (Intro) (02:15)
+ 02. Gates Of Skull (04:05)
+ 03. Prisoner in the NIght (06:38)
+ 04. Stormbreaker (Turok's Axe) (04:28)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56810A5F8ABD4B0ABB33471B98B86C70FC5A2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807464   (65161) от 19.07.2025
+
+Relligary - Hearts and Minds (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hearts and Minds (00:52)
+ 02 - Raven (05:34)
+ 03 - Divine Calling (03:58)
+ 04 - Hold Your Fire (06:36)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F5264BA72021049BDB5F499E068222F47805D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807358   (65157) от 19.07.2025
+
+Net-Ruiner - Prototype (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Progressive  Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Tech [00:03:12]
+02. ...Lowlife [00:05:13]
+03. Infiltrator [00:04:07]
+04. 20XX [00:03:10](   Читать дальше...   )Жанр: Industrial Metal, Progressive  MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03C36AC8695B133AC20F0DB40C767106BA0DD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807514   (65154) от 19.07.2025
 
 Ashes Of Ares - New Messiahs (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
@@ -6,7 +93,7 @@ Ashes Of Ares - New Messiahs (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65154.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ As the Sea Parts - Psychosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65145.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Manowar - Gods Of War (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65141.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Entrails - Grip Of Ancient Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65108.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Burzum - Draugen - Rarities (2005) Compilation [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65101.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Axiom Chaos - Primacy Arrival (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65093.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Gravered - Classic Cult to Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65092.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Bleeding Hands - Lost Integrity (2015) [FLAC|Lossless|image + .cue] <Melodic Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65020.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Sculptured - The Liminal Phase (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65018.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Loin Hammer - Before the Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64997.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Crimson Shadows - Whispers Of War (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64959.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Cold Slither - Cold Slither (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64931.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Temptress - Catch The Endless Dawn (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64923.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Cineastre - Hymnen an die Nacht (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64917.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Parakletos - Opera Ab Aeterno (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64879.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Kill Everything - Headless Cum Dumpster (2025) [FLAC|Lossless|WEB-DL|tracks] <Br
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64878.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Mastodon - Crack The Skye (2009) Reissue, Remastered, 2024, Reprise Records, Del
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64804.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Gloombound - Dreaming Delusion (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64761.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Mass Deception - Resurrections (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64759.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Lights of Vimana - Neopolis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64758.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Kadaverficker - Exploitation Nekronation (2012) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64687.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Nightingale - I (2000) Reissue, Remastered, 2024, Inside Out Music [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64675.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Metallica - ...And Justice for All (1988) [APE|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64663.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Metallica - ...And Justice for All (1988) [APE|Lossless|image + .cue] <Thrash Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A657931DA125E310E51326F87F714D6E1CFEFF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809776   (64632) от 01.08.2025
-
-Heavens Gate - Menergy (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teleshoot 0:49
-02. Worldmachine 3:39
-03. Teleshoot 0:12
-04. Mastermind 3:59(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E561AEB00061A00034C63224FC4C8179D312EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809755   (64630) от 01.08.2025
-
-Bengal Tigers - Cry Havoc (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tear You To Shreds (04:37)
- 02. Penetrator (04:07)
- 03. Cry Havoc (05:02)
- 04. Under The Tower (06:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8F72FE4A3CF8E88234F8C4B227B9384DA54580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810068   (64553) от 02.08.2025
-
-Hemelbestormer - The Radiant Veil (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Usil (10:16)
- 02. Turms (08:37)
- 03. Turan (03:48)
- 04. Tiur (09:31)(   Читать дальше...   )Жанр: Post-Metal, InstrumentalПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59A4FF1A503F4AC639A117E146F1557A74B237A
 ```
 
 https://mybot314.ru/tekegram_catalog/

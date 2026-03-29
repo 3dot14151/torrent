@@ -1,3 +1,55 @@
+###  Публикация: 1338793   (268757) от 16.11.2019
+
+Танцы (16.11.2019) WEB-DL [H.264/1080p-LQ] (сезон 6, выпуск 16)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268757.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ТНТ стартует новый сезон шоу «ТАНЦЫ» – проекта, который давно вышел за рамки развлекательного шоу и стал для танцовщиков и миллионов зрителей со всей России и ближнего зарубежья чем-то большим. «ТАНЦЫ» – это бренд, «ТАНЦЫ» – это проект национального масштаба, на котором выросло целое поколение, «ТАНЦЫ» – это сотни изобретательных постановок от лучших хореографов (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AA01540B88FF5D56ED067A81B1FB30FADD4E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190341   (267779) от 09.12.2017
+
+Голос (2017.12.08) HDTV [H.264/1080i] (сезон 6, выпуск 15)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267779.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A794A3BD09B90674AC9AA381618779D5B9247D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190340   (267753) от 09.12.2017
 
 Голос (2017.12.08) HDTVRip (сезон 6, выпуск 15)
@@ -6,7 +58,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267753.jpg" />
+  <img src="Z:/picture/008/save_picture_267753.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267090.jpg" />
+  <img src="Z:/picture/008/save_picture_267090.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267089.jpg" />
+  <img src="Z:/picture/008/save_picture_267089.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266988.jpg" />
+  <img src="Z:/picture/008/save_picture_266988.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266918.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266352.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265019.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264944.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263879.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263384.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263376.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263189.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263062.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262801.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262794.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262700.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259201.jpg" />
+  <img src="Z:/picture/005/save_picture_259201.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256744.jpg" />
+  <img src="Z:/picture/005/save_picture_256744.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254646.jpg" />
+  <img src="Z:/picture/005/save_picture_254646.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249846.jpg" />
+  <img src="Z:/picture/004/save_picture_249846.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245602.jpg" />
+  <img src="Z:/picture/004/save_picture_245602.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241938.jpg" />
+  <img src="Z:/picture/004/save_picture_241938.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239825.jpg" />
+  <img src="Z:/picture/004/save_picture_239825.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238441.jpg" />
+  <img src="Z:/picture/005/save_picture_238441.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2287BD0FAA0E2760FC3B62BB485622C88B9953BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538895   (237784) от 03.05.2022
-
-Маска (2022) WEBRip [H.264/720p] (сезон 3, выпуск 1-12)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон телешоу «Маска»! В это раз удивлять, восхищать, путать и радовать будут 14 новых героев «Маски»: Джокер, Дракон, Козерог, Леопард, Лошадь, Малыш, Монстрик, Мухомор, Осьминог, Павлин, Пёс, Пончик, Пчела и Сфинкс. Под невероятными костюмами скрываются певцы, актеры, спортсмены, ведущие и шоумены, в копилке которых более 10 званий народных и заслуженных (   Читать дальше...   )Телекомпания: НТВ | «ВайТ Медиа»Жанр: ТВ-шоу, музыкаПродолжительность: ~02:45:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD3CFEBCDC13F938B8A789C03C3655033491D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630579   (236963) от 01.05.2023
-
-Маска (2023) WEBRip [H.264] (сезон 4, выпуск 12. Финал)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники выступают с музыкальными номерами в костюмах, которые полностью их скрывают. Голоса исполнителей искажены, но есть подсказки. Задача жюри угадать, кто прячется под маской. В начале каждого эпизода участников «Маски» делят на группы. После того как каждый из группы исполнит свою песню, зрители в студии отправляют в номинацию одного из них. В финале каждой (   Читать дальше...   )Телекомпания: НТВ | «ВайТ Медиа»Жанр: ТВ-шоу, музыкаПродолжительность: 03:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57918AFCD1DE6EC097F1AC405A8CA25F67843F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

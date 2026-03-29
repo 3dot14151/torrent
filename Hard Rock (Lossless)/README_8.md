@@ -1,3 +1,61 @@
+###  Публикация: 1458834   (1023628) от 30.03.2021
+
+OzzyCash - OzzyCash (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not So Easy Street
+02. Back To My Roots
+03. 'Round Here
+04. Sucker(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661E485EF326E0BF97E97569AFC79E523BE8E02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458936   (1023521) от 31.03.2021
+
+Thunder - All The Right Noises (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last One Out Turn Off The Lights (4:15)
+02. Destruction (5:02)
+03. The Smoking Gun (4:49)
+04. Going To Sin City (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20C9C3979DD0B7BBF2C8AB3A615DF5E6884C1CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459345   (1023321) от 01.04.2021
 
 Odyssey Desperado - Don't Miss The Sunset (2018) Reissue, 2020, Lions Pride Music [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Odyssey Desperado - Don't Miss The Sunset (2018) Reissue, 2020, Lions Pride Musi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023321.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Sunstorm - 7 Studio Albums (2006-2021) 7xCD [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023140.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Whitesnake - The Blues Album (2021) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023076.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Chez Kane - Chez Kane (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022604.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Living Loud - 2 albums (2004-2008) [FLAC|Lossless|image + .cue] <Hard Rock, Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022603.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Mad Shadow - Heavy Blues (2013) [FLAC|Lossless|tracks + .cue] <Electric Blues, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022218.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Shannon - Circus Of Lost Souls (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022130.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Shannon - Shannon (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022129.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022127.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Shannon - Angel In Disguise (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022121.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Cheap Trick - In Another World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021944.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Torque - The Deep Between Two Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021811.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ The Treatment - Waiting For Good Luck (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021797.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Cheap Trick - 20 Studio, 5 Live, 7 Compilations, 1 Box Set (1977 - 2021) 83 CD [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021651.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Bride - Scarecrow Messiah (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021638.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Harem Scarem - Mood Swings (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021631.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Sons Of Angels - Sons Of Angels (1990) Japanese Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021623.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ The End Machine - Phase2 (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021325.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Alias - Never Say Never (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020877.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Temple Balls - Pyromide (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020872.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Sister - Vengeance Ignited (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020867.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Temple Balls - Untamed (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020860.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Greta Van Fleet - Anthem Of The Peaceful Army (2018) Japanese Edition [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020664.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Out Of This World - Out Of This World (2021) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020145.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Out Of This World - Out Of This World (2021) Japanese Edition [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB7FEBA7F6F85C2BA3FEB0E3E6445F1C9C03C30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463856   (1019819) от 22.04.2021
-
-Hardbone - No Frills (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Hard Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang Goes The Money [0:02:55.35]
-02. Of The Beaten Track [0:03:18.43]
-03. Too Hot [0:04:04.68]
-04. A Man In His Prime [0:03:41.08](   Читать дальше...   )Жанр: Hard Rock, Hard Rock'n'RollПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87E6B194CC3574F55387C917B68F37303D3F71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464500   (1019804) от 22.04.2021
-
-The Treatment - Waiting For Good Luck (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rat Race
-02. Take It Or Leave It
-03. Lightning In A Bottle
-04. Vampress(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFC2808227301B59943EFF81ED8F6C39E21557E
 ```
 
 https://mybot314.ru/tekegram_catalog/

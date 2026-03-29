@@ -6,7 +6,7 @@ iSoftPhone Pro 4.1025 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729990.jpg" />
+  <img src="Z:/picture/008/save_picture_729990.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ummy Video Downloader 1.54 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729970.jpg" />
+  <img src="Z:/picture/008/save_picture_729970.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Unibox 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729964.jpg" />
+  <img src="Z:/picture/008/save_picture_729964.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Serial Box 06-2016 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729884.jpg" />
+  <img src="Z:/picture/008/save_picture_729884.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Boinx FotoMagico 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729880.jpg" />
+  <img src="Z:/picture/008/save_picture_729880.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Blocs 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729871.jpg" />
+  <img src="Z:/picture/008/save_picture_729871.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Luminar 3 v3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729820.jpg" />
+  <img src="Z:/picture/008/save_picture_729820.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Overcooked! 2 (2018) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729703.jpg" />
+  <img src="Z:/picture/008/save_picture_729703.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ DxO OpticsPro Elite 11.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729395.jpg" />
+  <img src="Z:/picture/008/save_picture_729395.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VirtualHostX 7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728996.jpg" />
+  <img src="Z:/picture/008/save_picture_728996.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Chronicle Pro 9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728966.jpg" />
+  <img src="Z:/picture/008/save_picture_728966.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ SmallCubed MailSuite 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728907.jpg" />
+  <img src="Z:/picture/008/save_picture_728907.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ ExactScan Pro 17.3.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728896.jpg" />
+  <img src="Z:/picture/008/save_picture_728896.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Blocs 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728885.jpg" />
+  <img src="Z:/picture/008/save_picture_728885.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Statsey - app usage statistics in your menu bar 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728881.jpg" />
+  <img src="Z:/picture/008/save_picture_728881.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Readiris Corporate 17.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728876.jpg" />
+  <img src="Z:/picture/008/save_picture_728876.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Hedge 19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728874.jpg" />
+  <img src="Z:/picture/008/save_picture_728874.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Flux 7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728795.jpg" />
+  <img src="Z:/picture/008/save_picture_728795.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ HyperDock 1.8.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728759.jpg" />
+  <img src="Z:/picture/008/save_picture_728759.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728675.jpg" />
+  <img src="Z:/picture/008/save_picture_728675.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Numi 3.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728656.jpg" />
+  <img src="Z:/picture/008/save_picture_728656.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Endurance 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728646.jpg" />
+  <img src="Z:/picture/008/save_picture_728646.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Sid Meier’s Civilization® VI v1.2.0 [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728526.jpg" />
+  <img src="Z:/picture/008/save_picture_728526.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Adobe Audition CC 2017.1 (10.1) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728305.jpg" />
+  <img src="Z:/picture/008/save_picture_728305.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Instamask 1.0 - panel for Adobe Photoshop СС [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728212.jpg" />
+  <img src="Z:/picture/008/save_picture_728212.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Adobe Premiere Pro CC 2017.1 (11.1) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728196.jpg" />
+  <img src="Z:/picture/008/save_picture_728196.jpg" />
 </div>
 
 

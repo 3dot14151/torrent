@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854839.jpg" />
+  <img src="Z:/picture/008/save_picture_854839.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SamDrivers 17.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854838.jpg" />
+  <img src="Z:/picture/008/save_picture_854838.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XnConvert 1.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854806.jpg" />
+  <img src="Z:/picture/008/save_picture_854806.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 45 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854801.jpg" />
+  <img src="Z:/picture/008/save_picture_854801.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ LDPlayer 4.0.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854790.jpg" />
+  <img src="Z:/picture/008/save_picture_854790.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Idolish Seven Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 4 �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854789.jpg" />
+  <img src="Z:/picture/008/save_picture_854789.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Hard Link Shell Extension 3.9.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854695.jpg" />
+  <img src="Z:/picture/008/save_picture_854695.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 45 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854694.jpg" />
+  <img src="Z:/picture/008/save_picture_854694.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854692.jpg" />
+  <img src="Z:/picture/008/save_picture_854692.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ JetBrains RubyMine 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854689.jpg" />
+  <img src="Z:/picture/008/save_picture_854689.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Exposure Software Blow Up 3 v3.1.4.389 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854548.jpg" />
+  <img src="Z:/picture/008/save_picture_854548.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Exposure Software Snap Art 4 v4.1.3.382 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854544.jpg" />
+  <img src="Z:/picture/008/save_picture_854544.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Exposure X7 v7.0.0.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854540.jpg" />
+  <img src="Z:/picture/008/save_picture_854540.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ EverWeb (Standalone) 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854535.jpg" />
+  <img src="Z:/picture/008/save_picture_854535.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Exposure X7 Bundle v7.0.0.58 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854530.jpg" />
+  <img src="Z:/picture/008/save_picture_854530.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854528.jpg" />
+  <img src="Z:/picture/008/save_picture_854528.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Kaspersky Small Office Security 7 20.0.14.1085 (j) (SharewareOnSale) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854481.jpg" />
+  <img src="Z:/picture/008/save_picture_854481.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ JetBrains Rider 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854478.jpg" />
+  <img src="Z:/picture/008/save_picture_854478.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ JetBrains CLion 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854477.jpg" />
+  <img src="Z:/picture/008/save_picture_854477.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ JetBrains GoLand 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854475.jpg" />
+  <img src="Z:/picture/008/save_picture_854475.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ JetBrains DataGrip 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854473.jpg" />
+  <img src="Z:/picture/008/save_picture_854473.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854468.jpg" />
+  <img src="Z:/picture/008/save_picture_854468.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ KUON [ENG/Multi 3] (2004) [PS2]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854454.jpg" />
+  <img src="Z:/picture/008/save_picture_854454.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854451.jpg" />
+  <img src="Z:/picture/008/save_picture_854451.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Queen - The Films - Made In Heaven [Queen - Made In Heaven] (BFI) (2003) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854436.jpg" />
+  <img src="Z:/picture/008/save_picture_854436.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ WiFi Explorer Pro 3 v3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854417.jpg" />
+  <img src="Z:/picture/008/save_picture_854417.jpg" />
 </div>
 
 

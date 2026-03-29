@@ -1,3 +1,134 @@
+###  Публикация: 1675872   (159907) от 10.11.2023
+
+Cisdem DVD Burner 6.10.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem DVD Burner предлагает простое и элегантное решение DVD-авторинга. Программа поддерживает любое видео с таких источников как: iPhone, iTunes, iMovie, и т.д., а также позволяет записывать DVD и создавать ISO файлы. С помощью встроенного редактора, Вы можете быстро выполнять основные задачи по редактированию видео, а именно: обрезка, поворот, изменение яркости (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8E7A84D00B16D85E0B4D5F64817A9450B1E379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599346   (159869) от 23.12.2022
+
+iMedia Cutter 5.6.7 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение iMedia Cutter разработано для редактирования аудио и видео. Такие функции, как изменение голоса, шумоподавление, управление звуком, изменение скорости, обрезка областей, преобразование видео в GIF.Тип издания: macOS SoftwareРелиз состоялся: 22.05.2022Разработчик: © 2016-2024 Opproa Technology StudioПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB24B9F7B97C4D86534A2FB382959858E3DCD4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675831   (159808) от 10.11.2023
+
+JetBrains DataGrip for Mac 2023.2.3 Intel/ARM [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159808.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains DataGrip – новейшее программное обеспечение, представляющее собой функциональный пакет инструментов для работы с базами Oracle, SQL Server, MySQL, Sybase, HyperSQL, DB2, SQLite и т.д. Продукт с мультикурсорным текстовым редактором, синтаксически выделяет код, поддерживает работу с контролирующими системами для Subversion, Git и т.д. Генерация кода, работа (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2000-2023 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DC8B0C9707BBC8324FA470526E4AD235A6EED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599911   (159408) от 25.12.2022
+
+AudFree Auditior 2.7.1 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный аудио конвертер для всех типов аудио, лучший, полнофункциональный конвертер Apple Music и конвертер аудиокниг.
+Различные аудиофайлы всегда имеют специальные форматы, которые совместимы только с авторизованными устройствами. Чтобы проигрывать аудиодорожки практически на всех популярных плеерах, лучше всего преобразовать их в универсальные аудиоформаты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2022Разработчик: © 2022 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525C12EC91381CE1499312ABDE376D95618CEEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599951   (159402) от 25.12.2022
+
+Rest&Move - Break reminder 1.7 [En/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rest&Move — это приложение-напоминание о перерывах. Проводите много времени за компьютером? Для продуктивной работы очень важно делать короткие перерывы, чтобы отдохнуть, подвигаться, расслабить глаза. Rest&Move напомнит вам вовремя сделать перерыв, выводит полноэкранное окно. Ваши глаза и тело будут меньше уставать, работа станет более продуктивной, а вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: Русский и АнглийскийРазработчик: © 2022 Pavel ChinyaevПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFCDF5A83D33C7182347E333E29F8361E1F01D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599919   (159398) от 25.12.2022
 
 DRmare Audio Converter for Mac 2.7.1 [Multi]
@@ -6,7 +137,7 @@ DRmare Audio Converter for Mac 2.7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159398.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ Caato Time Tracker Pro 1.1.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159396.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ Viwizard Audio Converter for Mac 3.8.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159387.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ BetterTouchTool 3.986 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159382.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ PreviewMarkdown 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159377.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ Unzip Expert-Zip file tool 1.4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159362.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ PhoneClean Pro 5.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159349.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ EtreCheck Pro 6.8.3 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159335.jpg" />
 </div>
 
 
@@ -218,7 +349,7 @@ Airtool 2 v.2.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159333.jpg" />
 </div>
 
 
@@ -244,7 +375,7 @@ MacClean 3.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159317.jpg" />
 </div>
 
 
@@ -271,7 +402,7 @@ iPulse 3.1.41 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159299.jpg" />
 </div>
 
 
@@ -298,7 +429,7 @@ Mac Mouse Fix for Mac 3.0.0 Beta 6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159254.jpg" />
 </div>
 
 
@@ -324,7 +455,7 @@ RAR Extractor  - Unzi‪p‬ 12.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159188.jpg" />
 </div>
 
 
@@ -351,7 +482,7 @@ DMG Canvas 3.0.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159032.jpg" />
 </div>
 
 
@@ -377,7 +508,7 @@ Mos 3.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159015.jpg" />
 </div>
 
 
@@ -403,7 +534,7 @@ MacCleanse 12 v.12.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159003.jpg" />
 </div>
 
 
@@ -429,7 +560,7 @@ Lightkey for Mac 4 v.4.5.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158882.jpg" />
 </div>
 
 
@@ -455,7 +586,7 @@ Sweet Home 3D for Mac 7.2.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158860.jpg" />
 </div>
 
 
@@ -481,7 +612,7 @@ Swift Typist 1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158675.jpg" />
 </div>
 
 
@@ -508,7 +639,7 @@ Briefs 1.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158656.jpg" />
 </div>
 
 
@@ -535,7 +666,7 @@ KeyKey 1.0.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158593.jpg" />
 </div>
 
 
@@ -549,142 +680,6 @@ KeyKey — учимся слепому набору
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEA965ED2969E00EFECE3743E39118C20D20A5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967764   (158474) от 21.12.2015
-
-OCRKit 15.12.8 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное распознавание текста для "безбумажного" офиса. Архивирование, поиск, редактирование и перевод, для Mac
-Конвертирование любых файлов формата PDF и графических файлов в файлы формата PDF с возможностью поиска по тексту или в файлы форматов RTF, HTML и TXT.
-OCRKit представляет собой простое и рациональное приложение для конвертирования файлов (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2015Разработчик: ExactCODE GmbHПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EDA499C6FC0D5A8712747B0E0EED5704A28511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967876   (158393) от 21.12.2015
-
-Readiris Pro 15.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Readiris Pro — сканирует, распознает, конвертирует
-Readiris Pro выполняет всю утомительную для вас работу по перепечатыванию текстов в мгновение ока. Просто переконвертируйте ваши документы с помощью Readiris Pro и в течение нескольких секунд вы получите их редактируемую копию. Readiris Pro перекодирует просмотренные бумажные документы, файлы PDF и все популярные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: ноябрь 2015Разработчик: I.R.I.S. IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE5AA679B04AC4FEBF7AB329E61C5842337CD96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967837   (158337) от 21.12.2015
-
-Extensis Suitcase Fusion 6 v17.3.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Extensis Suitcase Fusion - это мощная утилита управления шрифтами, которая предоставляет пользователям полный и точный контроль над всеми установленными в системе шрифтами, делая работу со шрифтами быстрее и проще, чем когда-либо прежде. Suitcase Fusion находит и активирует шрифты только тогда, когда они нужны пользователю, экономя ценные системные ресурсы и время. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2015Разработчик: Celartem, Inc.Поддерживаемая ОС: 10.6.8 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFA0526167F4430B460D96B10299E9219576212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968015   (158149) от 22.12.2015
-
-Social! for WhatsApp 0.9.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Social! -  родной клиент для Mac для WhatsApp® Web, он добавляет встроенные функции, как оповещение, горячие клавиши активации, количество значков и ярлыков.
-
-Social! for WhatsApp является сторонним приложением и не является аффилированным или связанным с WhatsApp Inc.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2015Разработчик: PolarAppsПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6294A8AB8CAA06F469CEFD67BD8882781AEBDC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346723   (157819) от 20.12.2019
-
-System Monitor 2.7 (build 191216) [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157819.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Monitor - это приложение для панели меню macOS, предназначенное для незаметного информирования вас о деятельности вашего компьютера. Вы можете получать современные технические данные в любое время, такие как загрузка процесса, температура процессора, потребление основной памяти, пространство для хранения, активность диска, связь на сетевых интерфейсах и т. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2019Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B1C21EB444FA141FC5EBDCBD1439EF9022B7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

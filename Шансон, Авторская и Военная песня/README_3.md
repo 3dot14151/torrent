@@ -1,3 +1,61 @@
+###  Публикация: 1447900   (1031322) от 15.02.2021
+
+Владимир Ждамиров - Новое и лучшее (2021) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я поцелуем выпью твои слёзы
+2. Прости
+3. Удача
+4. Сквозь сон(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5AD731F316AB106F37FAFFA6D3C8487BB3495D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448525   (1030664) от 18.02.2021
+
+Ирина Круг - Коллекция (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:   41:28
+01. Ты сердце и душа (Версия 2020)
+02. Скучай
+03. И я попробую(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00A83A0014CCAF475579F0525CBF32D057D6ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448912   (1030189) от 20.02.2021
 
 Олег Митяев и Юрий Визбор - Лучшие песни (2004) [FLAC|Lossless|image + .cue] <Авторская песня>
@@ -6,7 +64,7 @@
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030189.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029720.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029580.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029577.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028534.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027884.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027876.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027243.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027200.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027185.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026727.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Памяти Михаила Круга посвящается... (2002) [FL
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026551.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024924.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Москва Бандитская (Первое Издание) (1997) [FLA
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024921.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024918.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024724.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024639.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - То, что доктор прописал 1-2 (1996) FLAC|Lossless|tracks 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022792.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022538.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021876.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Шансон 2021 года (Музыкальный хит-парад) (2021
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020942.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Любимым женщинам (2007) [FLAC|Lossless|tracks + .cue]<Шан
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020662.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017949.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017546.jpg" />
 </div>
 
 
@@ -685,61 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B1D786465278A3C5A124660E74D1311D808CAB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468283   (1017229) от 07.05.2021
-
-Академический Ансамбль песни и пляски Российской Армии имени А.В. Александрова - Победа! (2021) [MP3|320 Kbps] <Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. От Советского информбюро
-2. Это правда, что был Сталинград
-3. Шли солдаты
-4. Смуглянка(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF8875C712D2C069D88C9245D8B3038C68C2721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471854   (1014774) от 22.05.2021
-
-Эдуард Суровый - 1 Album / 1 Single (2019-2020) [MP3|320 Kbps] <Pop, Авторская песня, Юмор>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love of Russian Man [00:03:37]Жанр: Pop, Авторская песня, ЮморПродолжительность: 3 CD, 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE019C8AA86C4D2E69E4C5F7DB1C9A4CF6D73B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

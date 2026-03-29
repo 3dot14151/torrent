@@ -1,3 +1,55 @@
+###  Публикация: 1581777   (205226) от 07.10.2022
+
+К. Граталу | Исторический атлас мира (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_205226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирная история глазами человека XXI века в уникальном атласе французского историка Кристиан Граталу. В атласе представлены более 300 карт из картографической коллекции французского журнала «L’Histoire», где за каждой стоит целая библиотека знаний. Начиная с появления Homo sapiens и заканчивая новейшей историей человечества, в атласе отражена полная картина истории (   Читать дальше...   )Жанр: Всемирная историяПеревод: В. ЛипкаЯзык: РусскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1190CE15B83BF2CFE80CBAE4343E69805C90DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586060   (204813) от 25.10.2022
+
+Г.М. Фихтенгольц | Курс дифференциального и интегрального исчисления [3 книги] (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальный учебник по математическому анализу, выдержавший множество изданий и переведенный на ряд иностранных языков, отличается, с одной стороны, систематичностью и строгостью изложения, а с другой - простым языком, подробными пояснениями и многочисленными примерами, иллюстрирующими теорию. предназначен для студентов университетов, педагогических и технических (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773AA6987EA08CD4CB212C15184DD4DD50204759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586169   (204801) от 25.10.2022
 
 Г.С. Ландсберг | Элементарный учебник физики [3 книги] (1985) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204801.jpg" />
+  <img src="Z:/picture/004/save_picture_204801.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204602.jpg" />
+  <img src="Z:/picture/004/save_picture_204602.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204590.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204537.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204344.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204204.jpg" />
+  <img src="Z:/picture/004/save_picture_204204.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204188.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204163.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203223.jpg" />
+  <img src="Z:/picture/004/save_picture_203223.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203142.jpg" />
+  <img src="Z:/picture/004/save_picture_203142.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203046.jpg" />
+  <img src="Z:/picture/004/save_picture_203046.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203024.jpg" />
+  <img src="Z:/picture/004/save_picture_203024.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202770.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202091.jpg" />
+  <img src="Z:/picture/004/save_picture_202091.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202011.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201961.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201935.jpg" />
+  <img src="Z:/picture/005/save_picture_201935.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201854.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201565.jpg" />
+  <img src="Z:/picture/005/save_picture_201565.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201472.jpg" />
+  <img src="Z:/picture/005/save_picture_201472.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201462.jpg" />
+  <img src="Z:/picture/005/save_picture_201462.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201299.jpg" />
+  <img src="Z:/picture/005/save_picture_201299.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201297.jpg" />
+  <img src="Z:/picture/005/save_picture_201297.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201282.jpg" />
+  <img src="Z:/picture/005/save_picture_201282.jpg" />
 </div>
 
 
@@ -632,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A52FA374FF94F011D86B5023EFDEFF6A4C428F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619284   (201243) от 15.03.2023
-
-К.Н. Лунгу | Линейное программирование: Руководство к решению задач 2-е изд. испр. и доп. (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии отражен многолетний опыт чтения лекций и проведения практических занятий по линейному программированию. Особое внимание уделено симплексному методу и его реализации наиболее экономным способом при помощи таблиц Гаусса, а также методу наименьших тарифов, обеспечивающему быстрое получение оптимального плана для транспортной задачи.
-Для студентов всех форм (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CC0B272D031913CF19B060A44CA31AF8D907FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619110   (201231) от 17.03.2023
-
-Н.М. Изюмов | Курс радиотехники (1958) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя в книге даётся в большинстве ламповая схемотехника, но даже прочитав часть этого труда, любой старшеклассник, студент любой специальности, просто любознательный не только научится разбираться в радиоволнах, но и освоит основы радиотехники, антенн и многого другого.
-Книга предназначена для будущих техников-связистов, готовящихся к эксплуатации средств радиосвязи. (   Читать дальше...   )Жанр: Учебная,РадиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0D5F31E5D3BC625004D2E13C33DAD2305C2D7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

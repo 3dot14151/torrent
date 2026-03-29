@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.40 (1306) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783341.jpg" />
+  <img src="Z:/picture/008/save_picture_783341.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 5.5.4.549 DC 26.05.20 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783338.jpg" />
+  <img src="Z:/picture/008/save_picture_783338.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Freemake Video Converter 4.1.11.35 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783325.jpg" />
+  <img src="Z:/picture/008/save_picture_783325.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wondershare Filmora 9.5.0.21 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783309.jpg" />
+  <img src="Z:/picture/008/save_picture_783309.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CPU-Z 1.92.2 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783303.jpg" />
+  <img src="Z:/picture/008/save_picture_783303.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SamDrivers 20.5 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783302.jpg" />
+  <img src="Z:/picture/008/save_picture_783302.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HandBrake 1.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783296.jpg" />
+  <img src="Z:/picture/008/save_picture_783296.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Udemy | Полный курс по этичному хакингу с Nmap (2018
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783269.jpg" />
+  <img src="Z:/picture/008/save_picture_783269.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Synalyze It! Pro 1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783223.jpg" />
+  <img src="Z:/picture/008/save_picture_783223.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wise Program Uninstaller 2.2.1.116 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783217.jpg" />
+  <img src="Z:/picture/008/save_picture_783217.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783215.jpg" />
+  <img src="Z:/picture/008/save_picture_783215.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ XMedia Recode 3.4.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783214.jpg" />
+  <img src="Z:/picture/008/save_picture_783214.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Neon Black - After Dark... (2018) [MP3|320 Kbps] <Synthwave, Electronic, Synthpo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783205.jpg" />
+  <img src="Z:/picture/008/save_picture_783205.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783203.jpg" />
+  <img src="Z:/picture/008/save_picture_783203.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Beach Mode On: Tech House Music (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783200.jpg" />
+  <img src="Z:/picture/008/save_picture_783200.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Vellum 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783198.jpg" />
+  <img src="Z:/picture/008/save_picture_783198.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783194.jpg" />
+  <img src="Z:/picture/008/save_picture_783194.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ant Download Manager PRO 1.7.3 Build 48180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783188.jpg" />
+  <img src="Z:/picture/008/save_picture_783188.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783187.jpg" />
+  <img src="Z:/picture/008/save_picture_783187.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ SRWare Iron 64.0.3350.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783183.jpg" />
+  <img src="Z:/picture/008/save_picture_783183.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ MediaHuman Audio Converter 1.9.6.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783179.jpg" />
+  <img src="Z:/picture/008/save_picture_783179.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ EximiousSoft GIF Creator 7.32 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783176.jpg" />
+  <img src="Z:/picture/008/save_picture_783176.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Registry First Aid Platinum 11.1.0 Build 2492 RePack by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783155.jpg" />
+  <img src="Z:/picture/008/save_picture_783155.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ ScreenPresso Pro 1.7.2.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783151.jpg" />
+  <img src="Z:/picture/008/save_picture_783151.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.54) License PLAZA [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783139.jpg" />
+  <img src="Z:/picture/008/save_picture_783139.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.22 You Can [Not] Advance | Ева
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783130.jpg" />
+  <img src="Z:/picture/008/save_picture_783130.jpg" />
 </div>
 
 

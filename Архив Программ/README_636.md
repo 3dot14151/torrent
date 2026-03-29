@@ -6,7 +6,7 @@ Kylo – браузер для HD-Мониторов, телевизоров 0.8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730345.jpg" />
+  <img src="Z:/picture/005/save_picture_730345.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FastStone MaxView 3.1 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730340.jpg" />
+  <img src="Z:/picture/008/save_picture_730340.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shadow Defender 1.4.0.665 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730336.jpg" />
+  <img src="Z:/picture/008/save_picture_730336.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Total Commander 10.00 Extended 22.2 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730335.jpg" />
+  <img src="Z:/picture/008/save_picture_730335.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hotspot Shield Elite 5.20.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730330.jpg" />
+  <img src="Z:/picture/008/save_picture_730330.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TechSmith Camtasia Studio 9.0.4 Build 1948 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730325.jpg" />
+  <img src="Z:/picture/008/save_picture_730325.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Dreamweaver CC 2017 17.1.0.9583 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730318.jpg" />
+  <img src="Z:/picture/008/save_picture_730318.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Bandicam 3.1.0.1064 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730286.jpg" />
+  <img src="Z:/picture/008/save_picture_730286.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730280.jpg" />
+  <img src="Z:/picture/008/save_picture_730280.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ashampoo Driver Updater 1.1.0.27413 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730272.jpg" />
+  <img src="Z:/picture/008/save_picture_730272.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ DAEMON Tools Lite 10.4.0.190 Unlocked [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730265.jpg" />
+  <img src="Z:/picture/008/save_picture_730265.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Media Encoder CC 2017.1 11.1.0.170 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730258.jpg" />
+  <img src="Z:/picture/008/save_picture_730258.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Master PDF Editor 5.3.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730062.jpg" />
+  <img src="Z:/picture/008/save_picture_730062.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730056.jpg" />
+  <img src="Z:/picture/008/save_picture_730056.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ExamDiff Pro Master Edition 10.0.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730054.jpg" />
+  <img src="Z:/picture/008/save_picture_730054.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ ExamDiff Pro Master Edition 10.0.1.8 RePack (& Portable) by elchupacabra 10.0.1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730047.jpg" />
+  <img src="Z:/picture/008/save_picture_730047.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kinza Browser 5.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730019.jpg" />
+  <img src="Z:/picture/008/save_picture_730019.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730005.jpg" />
+  <img src="Z:/picture/008/save_picture_730005.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Windows 10 Manager 2.0.9 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729962.jpg" />
+  <img src="Z:/picture/008/save_picture_729962.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Text Filter 1.7.0 Build 429 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729961.jpg" />
+  <img src="Z:/picture/008/save_picture_729961.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Auslogics BoostSpeed 10.0.22.0 DC 13.02.2019 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729960.jpg" />
+  <img src="Z:/picture/008/save_picture_729960.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Master PDF Editor 5.3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729950.jpg" />
+  <img src="Z:/picture/008/save_picture_729950.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BurnAware Free 15.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729909.jpg" />
+  <img src="Z:/picture/008/save_picture_729909.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ TagScanner 6.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729887.jpg" />
+  <img src="Z:/picture/008/save_picture_729887.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ SRWare Iron 57.0.3000.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729851.jpg" />
+  <img src="Z:/picture/008/save_picture_729851.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Opera 58.0.3135.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729826.jpg" />
+  <img src="Z:/picture/008/save_picture_729826.jpg" />
 </div>
 
 

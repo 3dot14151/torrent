@@ -1,3 +1,136 @@
+###  Публикация: 1501062   (833084) от 11.10.2021
+
+Небесная команда (2020) WEBRip [H.264/1080p] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока живут фанаты, надежда не умрет… Они — болельщики хоккейного «Локомотива» из Ярославля. Люди, навсегда преданные клубу. Жены хоккеистов, сотрудники стадиона, молодые спортсмены и ветераны фан-движения, которые запевают на трибунах несколько десятков лет. В честь открытия нового сезона Континентальной хоккейной лиги армия поклонников «Локомотива» отправляется (   Читать дальше...   )Производство: Россия, Беларусь / ЯрСинемаЖанр: спорт, биография, драмаРежиссер: Владимир АлениковАктеры: Антон Рогачев, Кристина Корбут, Никита Волков, Алексей Гуськов, Ирина Розанова, Сергей Баталов, Андрей Мерзликин, Янина Третьякова, Марианна Васильева, Ксения УтехинаПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C57DB058BA2E40766A2DD00FB3B5E917C98E171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380419   (833042) от 03.05.2020
+
+Совет / Advice (2020) WEBRip [VP9/2160p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как гаджеты могут влиять на наше поведение, принятие тех или иных решений?
+Как мы изменились общаясь большую часть времени на расстоянии, в виртуальном мире?Производство: РоссияЖанр: Фантастика, короткометражныйРежиссер: Роман МакаровАктеры: Лиза Лашманова, Света Сонина, Вадим ДонцовСубтитры: Русские (хардсаб)Продолжительность: 00:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BF66DA2EF23DFF838B5332A11598290D7F4905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172634   (832613) от 03.05.2020
+
+9 рота / Девятая рота (2005) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832613.jpg" />
+</div>
+
+
+###  Подробнее
+
+СССР. Конец восьмидесятых. Семеро 18-летних призывников, добровольно записавшиеся в "афганскую команду", знакомятся на призывном пункте. После нескольких месяцев адской подготовки в "учебке", ребята попадают в горнило афганской кампании - в знаменитую 9 роту 345-го парашютно-десантного полка, самую боеспособную, самую героическую. Вскоре 9 рота (   Читать дальше...   )Производство: Россия, Финляндия, Украина, Art Pictures Group, Канал 1+1, Finnish Film Foundation, MRP Matila Rohr Productions Oy, Продюсерская компания "Слово", Канал СТС, Украинская Медийная Группа, YleisradioЖанр: Боевик, Военный, ДрамаРежиссер: Фёдор БондарчукАктеры: Алексей Чадов, Константин Крюков, Иван Кокорин, Михаил Евланов, Иван Николаев, Михаил Пореченков, Фёдор Бондарчук, Дмитрий Мухамадеев, Ирина Рахманова, Алексей Кравченко, Александр Баширов, Михаил Ефремов, Станислав Говорухин, Андрей Краско, Александр Лыков, Алексей Серебряков, Денис Мошкин, Александр Кучеренко, Светлана Иванова, Артур Смольянинов, Артём Михалков, (   Читать дальше...   )Продолжительность: 02:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BEB1109545CCF3851FEAFD2CA3FDCFEA51CBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653032   (832592) от 06.05.2013
+
+Жених по объявлению (2012) HDTV [1080i]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832592.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодой женщины было все, о чем только можно мечтать в этой жизни: солидный банковский счет, уважение коллег, свой собственный бизнес. Единственное, что беспокоило молодую и успешную женщину - отсутствие спутника жизни. Все попытки наладить свою частную жизнь заканчивались провалом.
+
+Устав от бесконечных знакомств, она хотела забросить все попытки найти суженного, (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Владимир ЧубриковАктеры: Анастасия Заворотнюк, Сергей Астахов, Мария Звонарёва, Владимир Стержаков, Татьяна Мухина, Сергей Легостаев, Сергей Шеховцов, Сергей Тезов, Валерий Иваков, Дмитрий Мизгулин, Петр КатрагаПеревод: Оригинал (Русский)Субтитры: Вшитые (отключаемые)Язык субтитров: РусскийПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 414036   (832412) от 04.04.2014
+
+Бабло (2011) [1080p] BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва. Наши дни. В центре города из машины двое воришек крадут сумку с миллионом евро, думая, что им, наконец, повезло, и даже не представляя, во что, на самом деле, они ввязались. За деньгами начинается настоящая охота. Перед искушением не может устоять никто. Сумма в виде двух пачек денег по полмиллиона евро делает абсолютно разных людей одинаковыми в своих поступках (   Читать дальше...   )Производство: Россия, Кинокомпания CTBЖанр: комедия, криминалРежиссер: Константин БусловАктеры: Мария Берсенева, Роман Мадянов, Гия Гогишвили, Георгий Гургулия, Михаил Месхи, Яков Кучеревский, Владимир Сычев, Кирилл Сафонов, Сергей Насибов, Сергей БолотаевПеревод: ОригиналСубтитры: нетПродолжительность: 01:31:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114486   (831836) от 15.03.2017
 
 Любовь, которой не было (2015) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +139,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831836.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831833.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830956.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829888.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829793.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829708.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829418.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829403.jpg" />
 </div>
 
 
@@ -214,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829102.jpg" />
 </div>
 
 
@@ -240,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827918.jpg" />
 </div>
 
 
@@ -266,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827653.jpg" />
 </div>
 
 
@@ -292,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827645.jpg" />
 </div>
 
 
@@ -318,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827617.jpg" />
 </div>
 
 
@@ -344,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827433.jpg" />
 </div>
 
 
@@ -370,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826416.jpg" />
 </div>
 
 
@@ -396,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826262.jpg" />
 </div>
 
 
@@ -422,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826163.jpg" />
 </div>
 
 
@@ -448,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826026.jpg" />
 </div>
 
 
@@ -474,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825882.jpg" />
 </div>
 
 
@@ -501,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825627.jpg" />
 </div>
 
 
@@ -527,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825625.jpg" />
 </div>
 
 
@@ -538,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C20EF81CAD471840898D6B202A71537F8075EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502998   (824936) от 16.10.2021
-
-Саша ищет таланты (2020) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блогер Саша снимает видео о Михаиле. Мужчина утверждает, что он брат супермена.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Павел СидоровАктеры: Михаил Трухин, Александра Бортич, Ольга МедыничСубтитры: ОтсутствуютПродолжительность: 00:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BED4FB51686685E317199102EFA5096CA98474A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502979   (824935) от 16.10.2021
-
-Ракушка (2019) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маша узнаёт, что у неё рак. Она думает, что это конец. Но оказывается, что это только начало.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Анна ОзарАктеры: Екатерина Кузнецова, Артём Цуканов, Марта Кесслер, Константин ЧепуринСубтитры: ОтсутствуютПродолжительность: 00:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E656CD9F66B1A27D64707974F44EC89506347B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502980   (824934) от 16.10.2021
-
-Папина дочка (2019) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824934.jpg" />
-</div>
-
-
-###  Подробнее
-
-История девушки Кати и ее папы, который долгое время не уделял внимания своей семье и ребенку, а когда разбогател, решил наладить отношения с дочерью. Сам того не желая, вместе с отцовской любовью он втягивает дочь в водоворот событий, связанных с его криминальным прошлым...Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Евгений ЧубаровАктеры: Александра Липко, Иван Чуйков, Сергей ПетровСубтитры: ОтсутствуютПродолжительность: 00:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6413A7918C91D5585685C9D21FADE29E6F20E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502992   (824932) от 16.10.2021
-
-Из Ховрино (2020) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поздно вечером в Москве девочка Дана спешит домой темными переулками. Ее преследует незнакомец. Он приготовил девочке сюрприз, о котором она мечтала много лет. Но, оказывается, сюрпризы ждут и его.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Дарья Елена ДашунинаАктеры: Игорь Яцко, Агния ЦветковаСубтитры: ОтсутствуютПродолжительность: 00:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3B61E3961EF09023B97F8A5113007AE7CD8A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502976   (824854) от 16.10.2021
-
-Естественный отбор (2018) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824854.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где отношения - это реальная охота, и мужчины охотятся на женщин, юный Тёмик начинает испытывать неожиданные чувства к своей первой жертве.Производство: РоссияЖанр: Короткометражный, драма, триллерРежиссер: Никита ТамаровАктеры: Антон Васильев, Юрий Борисов, Георгий Иобадзе, Александра Черкасова, Юрий Скулябин, Вадим Норштейн, Анна Небо, Катя Дар, Катя Нова, Галина Подолян, Диана Рогова, Ирина ДрожжинаСубтитры: ОтсутствуютПродолжительность: 00:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718EE0492308E6FF629B7866EB07C556E5E54464
 ```
 
 https://mybot314.ru/tekegram_catalog/

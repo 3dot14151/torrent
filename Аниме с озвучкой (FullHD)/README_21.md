@@ -1,3 +1,29 @@
+###  Публикация: 1553425   (233183) от 25.05.2022
+
+Бедствие ли это? | Sounan Desuka? | Are You Lost? [2019, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_233183.jpg" />
+</div>
+
+
+###  Подробнее
+
+После авиакатастрофы четыре старшеклассницы оказываются на необитаемом острове. Здесь нет ничего, поэтому они сами должны делать всё! И поедать всё (бе-е-е)! Хоть это и история выживания, но на самом деле у девушек всё хорошо. Пускай жизнь на необитаемом острове и включает в себя поедание цикад, создание солнцезащитного крема, изготовление ножей, охоту на кроликов (   Читать дальше...   )Производство: Студия Ezola, Студия Studio BlancЖанр: Комедия, приключения, этти, сэйнэнРежиссер: Нагаяма НобуёсиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (AniDub), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV), (Crunchyroll)Продолжительность: 12 серий по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A705E3711E23AE25EB0F8D548EF7C9050F921E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553139   (233108) от 25.05.2022
 
 Ousama Ranking | Ranking of Kings | Рейтинг короля [2021, TV, 23 из 23 эп.] WEBRip 1080p raw+rus
@@ -6,7 +32,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг короля [2021, TV, 23 и
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233108.jpg" />
+  <img src="Z:/picture/005/save_picture_233108.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Yasuke | Ясукэ [2021, Web, 6 из 6] WEB-DL 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232754.jpg" />
+  <img src="Z:/picture/005/save_picture_232754.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232073.jpg" />
+  <img src="Z:/picture/004/save_picture_232073.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Bocchi the Rock! | Рок-тихоня! | Одинокий рокер! [2022, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231610.jpg" />
+  <img src="Z:/picture/004/save_picture_231610.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 из 13] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231532.jpg" />
+  <img src="Z:/picture/004/save_picture_231532.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Pokemon the Series: Sun & Moon | Покемон: Солнце и Луна (Seaso
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231151.jpg" />
+  <img src="Z:/picture/005/save_picture_231151.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Pokemon the Series: Sun & Moon—Ultra Adventures | Покемон: Солнце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231132.jpg" />
+  <img src="Z:/picture/005/save_picture_231132.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Pokemon the Series: Sun and Moon - Ultra Legends | Покемон: Солнце 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231120.jpg" />
+  <img src="Z:/picture/005/save_picture_231120.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231061.jpg" />
+  <img src="Z:/picture/004/save_picture_231061.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авaнтюрист
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230603.jpg" />
+  <img src="Z:/picture/004/save_picture_230603.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Shuumatsu no Walkure | Record of Ragnarok | Повесть о конце све�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230520.jpg" />
+  <img src="Z:/picture/005/save_picture_230520.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Koukaku Kidoutai: SAC 2045 2nd Season | Ghost in the Shell: SAC 2045 Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230519.jpg" />
+  <img src="Z:/picture/005/save_picture_230519.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230325.jpg" />
+  <img src="Z:/picture/005/save_picture_230325.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230322.jpg" />
+  <img src="Z:/picture/005/save_picture_230322.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229697.jpg" />
+  <img src="Z:/picture/004/save_picture_229697.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Ес�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226313.jpg" />
+  <img src="Z:/picture/005/save_picture_226313.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Re: Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224561.jpg" />
+  <img src="Z:/picture/005/save_picture_224561.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224533.jpg" />
+  <img src="Z:/picture/005/save_picture_224533.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Overlord Specials: Ple Ple Pleiades | Повелитель: Пле-Пле-Пле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224366.jpg" />
+  <img src="Z:/picture/005/save_picture_224366.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (ком
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224357.jpg" />
+  <img src="Z:/picture/005/save_picture_224357.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224347.jpg" />
+  <img src="Z:/picture/005/save_picture_224347.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224336.jpg" />
+  <img src="Z:/picture/005/save_picture_224336.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224320.jpg" />
+  <img src="Z:/picture/005/save_picture_224320.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221867.jpg" />
+  <img src="Z:/picture/005/save_picture_221867.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221831.jpg" />
+  <img src="Z:/picture/005/save_picture_221831.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5A084725740762C67447312ED20E835B7BE406B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830525   (220797) от 30.10.2025
-
-Покинув группу А-ранга, я направился со своими бывшими учениками в глубины лабиринта | A-Rank Party wo Ridatsu shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu wo Mezasu | Глубины лабиринта [ТВ-1 ...
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220797.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом мире авантюрист — популярная и востребованная профессия. Да, она связана с риском для жизни, но зато можно вести трансляцию того, как ты покоряешь лабиринт или убиваешь монстров. Юк Фелдио тоже авантюрист, до недавнего времени входивший в известный отряд «Пика грома». До недавнего, потому что покинул группу. Почему? Устал, что им помыкают, обделяют при распределении (   Читать дальше...   )Производство: Bandai Namco PicturesЖанр: Экшен, Приключения, Фэнтези, РомантикаРежиссер: Katsumi OnoПеревод: Deep, CrunchyrollЯзык озвучки: Русский (DEEP, Anistar)Субтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439C599980FDC52BAB37275C0CEFD0E88AADBFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

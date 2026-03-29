@@ -1,3 +1,29 @@
+###  Публикация: 1024094   (719716) от 07.06.2016
+
+Проекты - Pond5 - Double Exposure Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_719716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Double Exposure Slideshow - проект слайд-шоу в стиле двойной экспозиции.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3947DD542866497F240520FC15887ECDBD8013D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024159   (719692) от 07.06.2016
 
 Проекты - VideoHive - MultiScreen Studio V2 [AEP]
@@ -6,7 +32,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719692.jpg" />
+  <img src="Z:/picture/008/save_picture_719692.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719595.jpg" />
+  <img src="Z:/picture/008/save_picture_719595.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718540.jpg" />
+  <img src="Z:/picture/008/save_picture_718540.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718239.jpg" />
+  <img src="Z:/picture/008/save_picture_718239.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718156.jpg" />
+  <img src="Z:/picture/008/save_picture_718156.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717620.jpg" />
+  <img src="Z:/picture/008/save_picture_717620.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717494.jpg" />
+  <img src="Z:/picture/008/save_picture_717494.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717474.jpg" />
+  <img src="Z:/picture/008/save_picture_717474.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717034.jpg" />
+  <img src="Z:/picture/008/save_picture_717034.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716362.jpg" />
+  <img src="Z:/picture/008/save_picture_716362.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715840.jpg" />
+  <img src="Z:/picture/008/save_picture_715840.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715718.jpg" />
+  <img src="Z:/picture/008/save_picture_715718.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715711.jpg" />
+  <img src="Z:/picture/008/save_picture_715711.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715625.jpg" />
+  <img src="Z:/picture/008/save_picture_715625.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714672.jpg" />
+  <img src="Z:/picture/008/save_picture_714672.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714032.jpg" />
+  <img src="Z:/picture/008/save_picture_714032.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713687.jpg" />
+  <img src="Z:/picture/008/save_picture_713687.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713681.jpg" />
+  <img src="Z:/picture/008/save_picture_713681.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713579.jpg" />
+  <img src="Z:/picture/008/save_picture_713579.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713554.jpg" />
+  <img src="Z:/picture/008/save_picture_713554.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713415.jpg" />
+  <img src="Z:/picture/008/save_picture_713415.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713315.jpg" />
+  <img src="Z:/picture/008/save_picture_713315.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712628.jpg" />
+  <img src="Z:/picture/008/save_picture_712628.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712170.jpg" />
+  <img src="Z:/picture/008/save_picture_712170.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711875.jpg" />
+  <img src="Z:/picture/008/save_picture_711875.jpg" />
 </div>
 
 
@@ -655,33 +681,6 @@ iInstallation - это концептуальный проект, который
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40CCA4CBAF9CE36642925C567A396FD878CE2F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025057   (711871) от 11.06.2016
-
-Проекты - VideoHive - Burning Life [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burning Life - очень динамичный проект, с большой возможностью использования для различных целей, мероприятий, событий. А так же промо-ролика и трейлера к фильму.
-Легкая настройка, быстрый рендеринг.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11799A852C71231A6F950C3D5E29A3F030C7D3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

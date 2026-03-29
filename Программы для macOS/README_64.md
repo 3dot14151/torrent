@@ -1,3 +1,141 @@
+###  Публикация: 1130310   (716420) от 01.05.2017
+
+Any DVD Ripper Pro 3.7.87 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any DVD Ripper - простой в использовании программный продукт призванный помочь Пользователю преобразовать DVD видео в 4K/1080p HD видео, или другие форматы, такие как: MP4, MOV, FLV, AVI, WMV, MKV, M4A, MP3 , FLAC, WAV, и т.д 200 + форматов. с беспрецедентной быстрой скоростью и невероятным качеством.
+
+С помощью Any DVD Ripper, Вы можете наслаждаться DVD-видео на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.04.2017Разработчик: Tipard StudioПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D79D75DA46AAA922249070A70BAE83D1DF73E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285815   (716361) от 28.02.2019
+
+Soda Player 1.4.2 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soda Player - обычный, казалось-бы, плеер, в котором вообще нет никаких настроек, зато, в отличие, например, от IINA, есть отличная возможность онлайн-просмотра фильмов с торрентов без скачивания (включая mуagnet-ссылки). Просто перетаскиваете torrent-файл с фильмом или видеороликом и наслаждаетесь просмотром. Кроме этого, Soda Player умеет стримить видео по протоколам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.07.2018Разработчик: SodaPlayerПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01691CEB7CE0039A20BAC3C6629979581303F969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130242   (716309) от 01.05.2017
+
+MoviePal 2.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте свою библиотеку iTunes потрясающей, добавив метаданные автоматически!
+
+Добавьте метаданные и субтитры в любой фильм на любом языке всего за два шага. Открыть & Сохранить. Это оно!Тип издания: macOS SoftwareРелиз состоялся: 27.04.2017Разработчик: Shakila MuruganandhПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA6296677D6877667C058327597EF76B2DC7847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285803   (716263) от 28.02.2019
+
+TripMode 2.2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мобильный интернет имеет свойство быстро заканчиваться, и часто это происходит нелепо: macOS установит обновления, Transmission загрузит новые сериалы, iCloud синхронизирует пару сотен мегабайт фотографий и вот уже месячного лимита как не бывало.
+
+Самостоятельно отслеживать запущенный приложения нереально, по этому лучше получить эту задачу специальной утилите. TripMode (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2018Разработчик: TripModeПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C554BB4F0324605B5862D09EC17F2200E1E8AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130461   (716253) от 01.05.2017
+
+Adobe Prelude CC 2017.1 (6.1) [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prelude CC. Добавление метаданных, маркировка отснятого материала и предварительный монтаж.
+Prelude — это инструмент для интуитивно понятной и эффективной подготовки и маркировки видео, систематизации медиаконтента и добавления метаданных.
+С помощью этого инструмента вы сможете быстро добавлять теги и перекодировать видеозаписи, а также легко создавать предварительные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: AdobeПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86415CD5E451DAF38A527524F2FEDE066CA9F372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130273   (716251) от 01.05.2017
 
 QR Factory 2.9.10 [Multi]
@@ -6,7 +144,7 @@ QR Factory 2.9.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716251.jpg" />
+  <img src="Z:/picture/008/save_picture_716251.jpg" />
 </div>
 
 
@@ -33,7 +171,7 @@ Adobe Media Encoder CC 2017.1 (11.1) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715864.jpg" />
+  <img src="Z:/picture/008/save_picture_715864.jpg" />
 </div>
 
 
@@ -62,7 +200,7 @@ BookReader 5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715706.jpg" />
+  <img src="Z:/picture/008/save_picture_715706.jpg" />
 </div>
 
 
@@ -91,7 +229,7 @@ SoundMate for SoundCloud 3.3.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714815.jpg" />
+  <img src="Z:/picture/008/save_picture_714815.jpg" />
 </div>
 
 
@@ -119,7 +257,7 @@ VMware Fusion Pro 11 v11.5.6 (build 16696540) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714667.jpg" />
+  <img src="Z:/picture/008/save_picture_714667.jpg" />
 </div>
 
 
@@ -146,7 +284,7 @@ Roxio Toast Titanium 17 v17.4.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714362.jpg" />
+  <img src="Z:/picture/008/save_picture_714362.jpg" />
 </div>
 
 
@@ -172,7 +310,7 @@ Pixa 1.1.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714336.jpg" />
+  <img src="Z:/picture/008/save_picture_714336.jpg" />
 </div>
 
 
@@ -199,7 +337,7 @@ Gridsutra 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714231.jpg" />
+  <img src="Z:/picture/008/save_picture_714231.jpg" />
 </div>
 
 
@@ -225,7 +363,7 @@ Mail Detective 1.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714082.jpg" />
+  <img src="Z:/picture/008/save_picture_714082.jpg" />
 </div>
 
 
@@ -254,7 +392,7 @@ Timing - The Best Automatic Time Tracking 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713986.jpg" />
+  <img src="Z:/picture/008/save_picture_713986.jpg" />
 </div>
 
 
@@ -281,7 +419,7 @@ Contacts Cleaner 1.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713807.jpg" />
+  <img src="Z:/picture/008/save_picture_713807.jpg" />
 </div>
 
 
@@ -309,7 +447,7 @@ Inklet 2.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713673.jpg" />
+  <img src="Z:/picture/008/save_picture_713673.jpg" />
 </div>
 
 
@@ -338,7 +476,7 @@ Smart Scroll 4.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712607.jpg" />
+  <img src="Z:/picture/008/save_picture_712607.jpg" />
 </div>
 
 
@@ -366,7 +504,7 @@ BookmarkApp 1.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712362.jpg" />
+  <img src="Z:/picture/008/save_picture_712362.jpg" />
 </div>
 
 
@@ -392,7 +530,7 @@ Myriad 4.0.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712357.jpg" />
+  <img src="Z:/picture/008/save_picture_712357.jpg" />
 </div>
 
 
@@ -418,7 +556,7 @@ Aerodrums 1.0.22 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712352.jpg" />
+  <img src="Z:/picture/008/save_picture_712352.jpg" />
 </div>
 
 
@@ -444,7 +582,7 @@ HTML Egg Pro 7.76.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712280.jpg" />
+  <img src="Z:/picture/008/save_picture_712280.jpg" />
 </div>
 
 
@@ -472,7 +610,7 @@ Movavi Split Movie 2 v2.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712184.jpg" />
+  <img src="Z:/picture/008/save_picture_712184.jpg" />
 </div>
 
 
@@ -500,7 +638,7 @@ UltData (iPhone Data Recovery) 7.4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712174.jpg" />
+  <img src="Z:/picture/008/save_picture_712174.jpg" />
 </div>
 
 
@@ -529,7 +667,7 @@ Copied 4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711497.jpg" />
+  <img src="Z:/picture/008/save_picture_711497.jpg" />
 </div>
 
 
@@ -558,7 +696,7 @@ Lux 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711491.jpg" />
+  <img src="Z:/picture/008/save_picture_711491.jpg" />
 </div>
 
 
@@ -572,142 +710,6 @@ Lux 1.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D2B2D15E51E4DA3118E7CB3B49A780A41A6A334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025016   (711289) от 11.06.2016
-
-Maple 2015.1 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maple - cистема может использоваться для проведения численных и символьных вычислений, позволяет моделировать многокомпонентные технические системы и предлагает инструменты для подготовки технической документации. Версия Maple предоставляет набор новых инструментов, упрощающих подготовку визуально привлекательных и легко интерпретируемых трехмерных чертежей. Вычислительная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: maplesofПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFE2694CA85DF8CC9BE33FBD5F00B3F191865E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219610   (711121) от 15.04.2018
-
-Movavi Video Converter 8.3.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальное приложение для конвертации видео, фото и аудио на macOS! Movavi Конвертер Видео поможет сохранить ваши медиафайлы в любой формат и экспортировать их для мобильных устройств, чтобы вы могли наслаждаться любимыми фильмами и музыкой, где бы вы ни находились. При этом пользоваться нашим видеоконвертером невероятно просто: загрузите файлы в программу, укажите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2018Разработчик: MovaviПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55B8694496985E4D4E85812D7BDFB4B5F82C6ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401430   (710709) от 09.08.2020
-
-Nik Complete 3 Collection by DxO v3.0.8 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
-Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: август 2020Разработчик: DxOПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEF39BBC0A36E4566D54412A34736151C9A28B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131082   (710670) от 04.05.2017
-
-Orion Markup - image notes and annotations 3.04 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет открыть изображение (в том числе  скриншоты), и добавить все виды аннотаций в виде текста, графических элементов, подчеркиваний, выносок, и многое другое.
-
-- Добавлять заметки и в файлы изображений и PDF-документов
-- Увеличение: создает увеличенные версии выбранных областей изображения(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 марта 2017Разработчик: Aidaluu Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5ECCE33A7BEBF68BF8B55BDDF4BD7B3D0B63E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130158   (710388) от 04.05.2017
-
-Git For Command Line on Mac OS X (Git v. 2.7.1) [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Git для штатного Терминала macOS. Распределённая система контроля версий. Была создана Линусом Торвальдсом для работы над ядром Linux. Следствие - широкое распространение в узких кругах, мощь и сложность.
-
-Установить Git можно из портов MacPorts или Fink. Но этот метод чем дальше, тем меньше мне нравится - за нужным пакетом тянется длинный хвост зависимостей, часть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2016Разработчик: timcharperПоддерживаемая ОС: macOS Snow Leopard or laterЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBA9C8ED0CCE0B3A220A14B0D3FBAC44AEAF827
 ```
 
 https://mybot314.ru/tekegram_catalog/

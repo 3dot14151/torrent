@@ -1,3 +1,61 @@
+###  Публикация: 1027627   (694553) от 20.06.2016
+
+Majestica - In the Midst of Stars (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Midst of Stars [00:04:30]
+02. Carousel [00:04:00]
+03. In Bloom [00:05:31]
+04. Close of Day [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EA06B98590BE3DE3F900B0F22C0554AEB65205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534111   (694253) от 02.03.2022
+
+Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kbps] <New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision (6:12)
+02. New Feelings (7:14)
+03. Silent Motions (9:16)
+04. Classic Approach (6:17)(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F9FF2629F3FFFE68A67BC5FEAA8A22DD26F42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741387   (694165) от 20.06.2016
 
 Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat, Rautalanka>
@@ -6,7 +64,7 @@ Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694165.jpg" />
+  <img src="Z:/picture/008/save_picture_694165.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694052.jpg" />
+  <img src="Z:/picture/008/save_picture_694052.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ David Osborne - Best of David Osborne: Solo Piano Performances (2018) [MP3|320 K
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692994.jpg" />
+  <img src="Z:/picture/008/save_picture_692994.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ George Toward - Red Fantasies - Rhythms of Pure Romance (2018) [MP3|256 Kbps] <I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692993.jpg" />
+  <img src="Z:/picture/008/save_picture_692993.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692964.jpg" />
+  <img src="Z:/picture/008/save_picture_692964.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Jupiter Panic - Distant Tomorrow (2016) [MP3|320 кб/с] <Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692960.jpg" />
+  <img src="Z:/picture/008/save_picture_692960.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [FLAC
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692757.jpg" />
+  <img src="Z:/picture/008/save_picture_692757.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Inkuyo - Window to the Andes (1998) [FLAC|Lossless|image + .cue] <New Age, Folk,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692081.jpg" />
+  <img src="Z:/picture/008/save_picture_692081.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Beautiful Moments (1991, 1994) 2 CD [APE|Lossless|image + .cue] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691919.jpg" />
+  <img src="Z:/picture/008/save_picture_691919.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ OST Лара Крофт: Расхитительница гробниц 2 - Ко�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691821.jpg" />
+  <img src="Z:/picture/008/save_picture_691821.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Brian BecVar - Once In A Life (1994) [FLAC|Lossless|image + .cue] <New Age, Neo-
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691549.jpg" />
+  <img src="Z:/picture/008/save_picture_691549.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Andrew Lockington, VA - The Space Between Us / Космос между нами 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691486.jpg" />
+  <img src="Z:/picture/008/save_picture_691486.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Really Slow Motion - Of Mist and Magic (2014) [MP3|320 Kbps CBR] <Soundtrack, In
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691411.jpg" />
+  <img src="Z:/picture/008/save_picture_691411.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Andrew Lockington, VA - The Space Between Us / Космос между нами 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691297.jpg" />
+  <img src="Z:/picture/008/save_picture_691297.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Really Slow Motion - Charged (2015) [MP3|320 Kbps CBR] <Soundtrack, Instrumental
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691181.jpg" />
+  <img src="Z:/picture/008/save_picture_691181.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Really Slow Motion - Elevation (2014) [MP3|320 Kbps CBR] <Soundtrack, Instrument
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691074.jpg" />
+  <img src="Z:/picture/008/save_picture_691074.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691073.jpg" />
+  <img src="Z:/picture/008/save_picture_691073.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Terry Oldfield and Carlos Garo - Sky Dancer (2017) [MP3|320 Kbps] <New Age, Inst
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691069.jpg" />
+  <img src="Z:/picture/008/save_picture_691069.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Audiomachine - Worlds of Wonder (2017) [MP3|320 Kbps CBR] <Soundtrack, Instrumen
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690879.jpg" />
+  <img src="Z:/picture/008/save_picture_690879.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Amy Janelle - Shining True (2010) [FLAC|Lossless|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690873.jpg" />
+  <img src="Z:/picture/008/save_picture_690873.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690827.jpg" />
+  <img src="Z:/picture/008/save_picture_690827.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Paul Mauriat - L'avventura & Le Lac Majeur (1972) Remaster, 2016, Vocalion [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690649.jpg" />
+  <img src="Z:/picture/008/save_picture_690649.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Big City Indians - Uncle Peyote (1999) [MP3|128 кб/с]<Native American, New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690589.jpg" />
+  <img src="Z:/picture/008/save_picture_690589.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Vitaliy Baldych - The Seagull (2011) [FLAC|Lossless]<Relax,New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690583.jpg" />
+  <img src="Z:/picture/008/save_picture_690583.jpg" />
 </div>
 
 
@@ -688,70 +746,6 @@ Vitaliy Baldych - The Seagull (2011) [FLAC|Lossless]<Relax,New Age>
 07. Dreams about the argo
 08. Lunar Path
 09. New LifeЖанр: Relax,New AgeПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288698   (690377) от 14.03.2019
-
-Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Red Dirt (02:20)
-2. Too Hot To Just Quit (03:29)
-3. Met My Match (02:35)
-4. The River & the Gum (04:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBD3B018A92761C354F1CC52C6E9BD87EA6EC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506158   (690278) от 05.06.2012
-
-George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragile (6:44)
-02. Evangelia (5:33)
-03. Reunion (4:26)
-04. Numinous (5:05)
-05. Hopes And Dreams (3:23)
-06. Into The Light (2:12)
-07. Tree Of Life (5:08)
-08. On Friendship's Wings (4:18)
-09. The Calling (5:00)
-10. Snow (3:01)Жанр: New Age, Piano soloПродолжительность: 01:02:57
 
 ## Скачать торент
 ```bash

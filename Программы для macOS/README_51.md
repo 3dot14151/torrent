@@ -1,3 +1,137 @@
+###  Публикация: 1015616   (774050) от 11.05.2016
+
+Jetico BestCrypt 2.0.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774050.jpg" />
+</div>
+
+
+###  Подробнее
+
+BestCrypt - это пакет программ для создания на жестком диске компьютера виртуального зашифрованного диска. С зашифрованным контейнером можно работать как с обычным жестким диском - размещать на нем файлы и производить с ними любые операции, инсталлировать программы и т.д. и т.п. Шифрование/расшифровка идет в фоновом режиме, так что пользователь не замечает разницы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2016Разработчик: Jetico Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D13C306E5820EE19414E4D996C92E8752556F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015659   (773985) от 11.05.2016
+
+Anatomy & Physiology 3.0.17 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_773985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатомия и физиология - Введение в структуры и функции тела
+Anatomy & Physiology - начните шаг за шагом с визуальным введением в каждую систему человеческого тела. Это приложение использует 3D-модели, иллюстрации и 3D-анимации, чтобы представить основные концепции для начинающих и знающих. Для вас старалась группа высококвалифицированных специалистов, работу (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 апреля 2016Разработчик: Argosy Publishing, Inc.,Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE96EC3AC2F233DFB1DC2A53F5B1953D16FA14A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015651   (773836) от 11.05.2016
+
+Human Anatomy Atlas – 3D Anatomical Model of the Human Body 7.4.01 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_773836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Human Anatomy Atlas - лучший 3D анатомический атлас  будет незаменимым как для людей связанных с медициной, так и для просто интересующихся людей. Отлично поможет изучить и заполнить пробелы в знаниях по анатомии человека-женщины и человека-мужчины. Для вас старалась группа высококвалифицированных специалистов, работу которых проверяли врачи и анатомы. Так что все (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 июня 2015Разработчик: Argosy Publishing, Inc.,Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1020BBFC90B0D26346F6B502DC4A4C8444F6801E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015621   (773828) от 11.05.2016
+
+Microsoft Office Standard 2016 v15.22 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_773828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, сочетающие в себе знакомый интерфейс Office и уникальные возможности Mac, которые успели вам полюбиться. Поддержка полноэкранного режима с оптимизацией для Retina дисплеев стало приятным и уместным нововведением.Тип издания: OS X SoftwareРелиз состоялся: 10 мая 2016Разработчик: MicrosoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C759765C4999895B842EE71E4B21104373A9DA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124769   (773530) от 13.04.2017
+
+Fax Templates for Pages 1.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_773530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fax Templates for Pages -  высококачественный набор из более 100 оригинальных шаблонов для приложения Pages Apple. В то время как многие предприятия перешли на различных современные коммуникационные технологий, некоторые до сих пор настаивают на использовании факсимильного аппарата. Вы можете быть на вершине факса с диапазоном стильных шаблонов от Graphic Node.
+
+Каждый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 апреля 2017Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F362FF2B2C6FE6B78806F8E3B7BDD75C69580B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391745   (773244) от 21.06.2020
 
 MWeb: Markdown writing, note taking, static blog generator 3.4.1 [Multi]
@@ -6,7 +140,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773244.jpg" />
+  <img src="Z:/picture/008/save_picture_773244.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ Certificate Templates - DesiGN 2.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773165.jpg" />
+  <img src="Z:/picture/008/save_picture_773165.jpg" />
 </div>
 
 
@@ -61,7 +195,7 @@ Cabinet - Quick access for your photos 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772981.jpg" />
+  <img src="Z:/picture/008/save_picture_772981.jpg" />
 </div>
 
 
@@ -90,7 +224,7 @@ Particles for Cocos2d 2.4.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772568.jpg" />
+  <img src="Z:/picture/008/save_picture_772568.jpg" />
 </div>
 
 
@@ -119,7 +253,7 @@ Kolor Panotour Pro 2.5.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772284.jpg" />
+  <img src="Z:/picture/008/save_picture_772284.jpg" />
 </div>
 
 
@@ -145,7 +279,7 @@ Cashew 1.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772106.jpg" />
+  <img src="Z:/picture/008/save_picture_772106.jpg" />
 </div>
 
 
@@ -174,7 +308,7 @@ Circus Ponies NoteBook 4.0.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771589.jpg" />
+  <img src="Z:/picture/008/save_picture_771589.jpg" />
 </div>
 
 
@@ -201,7 +335,7 @@ iStatistica 1.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771482.jpg" />
+  <img src="Z:/picture/008/save_picture_771482.jpg" />
 </div>
 
 
@@ -230,7 +364,7 @@ DaVinci Resolve Studio 16.2.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771258.jpg" />
+  <img src="Z:/picture/008/save_picture_771258.jpg" />
 </div>
 
 
@@ -259,7 +393,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771084.jpg" />
+  <img src="Z:/picture/008/save_picture_771084.jpg" />
 </div>
 
 
@@ -285,7 +419,7 @@ Tooth Fairy 2.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770687.jpg" />
+  <img src="Z:/picture/008/save_picture_770687.jpg" />
 </div>
 
 
@@ -312,7 +446,7 @@ Aktuell - RSS news reader 2.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770393.jpg" />
+  <img src="Z:/picture/008/save_picture_770393.jpg" />
 </div>
 
 
@@ -341,7 +475,7 @@ Mail Stationery 2.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769625.jpg" />
+  <img src="Z:/picture/008/save_picture_769625.jpg" />
 </div>
 
 
@@ -369,7 +503,7 @@ OS X Server 4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769596.jpg" />
+  <img src="Z:/picture/008/save_picture_769596.jpg" />
 </div>
 
 
@@ -397,7 +531,7 @@ Toolbox for Pages 2.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769569.jpg" />
+  <img src="Z:/picture/008/save_picture_769569.jpg" />
 </div>
 
 
@@ -425,7 +559,7 @@ Toolbox for Keynote 2.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769549.jpg" />
+  <img src="Z:/picture/008/save_picture_769549.jpg" />
 </div>
 
 
@@ -453,7 +587,7 @@ iClipboard 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769539.jpg" />
+  <img src="Z:/picture/008/save_picture_769539.jpg" />
 </div>
 
 
@@ -482,7 +616,7 @@ Periscope Pro 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769532.jpg" />
+  <img src="Z:/picture/008/save_picture_769532.jpg" />
 </div>
 
 
@@ -511,7 +645,7 @@ Toolbox for MS Office 2.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769517.jpg" />
+  <img src="Z:/picture/008/save_picture_769517.jpg" />
 </div>
 
 
@@ -538,7 +672,7 @@ Wondershare Dr.Fone for iOS 7.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769438.jpg" />
+  <img src="Z:/picture/008/save_picture_769438.jpg" />
 </div>
 
 
@@ -565,7 +699,7 @@ NoteApp 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769399.jpg" />
+  <img src="Z:/picture/008/save_picture_769399.jpg" />
 </div>
 
 
@@ -576,142 +710,6 @@ NoteApp - это текстовый редактор для тех пользо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAFF2E6AE42A099820D70E6287DDD4055DE1A8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392436   (769370) от 25.06.2020
-
-UninstallPKG 1.1.7 (build 1343) [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769370.jpg" />
-</div>
-
-
-###  Подробнее
-
-UninstallPKG - приложение, которое позволяет Вам полностью удалять так называемые «пакеты» (расширения файла *pkg) и все их установленное содержимое с Вашего Mac.
-
-UninstallPKG может использоваться для очистки свободного пространства на диске , например удалить неиспользуемые драйвера принтера или полностью удалить приложения, которые Вы больше не используете. UninstallPKG (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: CoreCodeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и д.р.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26C8FF45FAE34C58233C4FEF75C5DE3D43537F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392532   (769263) от 26.06.2020
-
-Cisdem ContactsMate 5 v5.2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Cisdem ContactsMate — эффективное решение для управления контактными данными. Приложение позволяет осуществлять резервное копирование всей контактной информации, редактировать поля контактных данных, а также экспортировать адресную книгу в форматы CSV, vCard, TXT, DocX, HTML, Excel, обеспечивая удобное резервное копирование и синхронизацию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.06.2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C419230BAF55C1723D61792EA87294DD0A8396E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392777   (769037) от 27.06.2020
-
-Exposure Software Plug-ins Bundle 2020 update 25.06.2020 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769037.jpg" />
-</div>
-
-
-###  Подробнее
-
-В комплекте продукты для ускорения профессионального рабочего процесса, Вы сэкономите время, улучшая качество изображения и предоставляя свободу творчества. В сочетании эти продукты еще более эффективны. Например, симуляция объектива Bokeh и симуляция пленки Exposure предоставляют традиционные фотографические инструменты, которые делают цифровые фотографии более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.06.2020Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE665243F53D0EA4128AF8F927DD44344E3FA689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392923   (768991) от 28.06.2020
-
-Record Lectures 3.1.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Record Lectures была разработана с целью помочь тем, кто ведет запись лекций, встреч и бесед, чтобы иметь возможность сохранять их в календаре, снабжать текстовыми комментариями и в дальнейшем использовать.
-
-Приложение Record Lectures может быть востребовано учениками и студентами, а так же людьми посещающими встречи и конференции. Простота эксплуатации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.06.2020Разработчик: iLifeTouch.comПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C5ECA6E108CE089EA1D47816DAAD4ED8F894A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125281   (768681) от 14.04.2017
-
-Dr. Cleaner Pro 1.1.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dr. Cleaner Pro — это профессиональная версия Dr. Cleaner. Dr. Cleaner Pro также включает в себя функции «Поиск повторяющихся файлов» и «Удаление приложений».
-
-Очищайте, оптимизируйте и поддерживайте Mac работоспособным с помощью одного профессионального инструмента!Тип издания: macOS SoftwareРелиз состоялся: 10.04.2017Разработчик: Trend Micro IncorporatedПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902E64227227693CE2C6A979AB1DBFDE432E7C74
 ```
 
 https://mybot314.ru/tekegram_catalog/

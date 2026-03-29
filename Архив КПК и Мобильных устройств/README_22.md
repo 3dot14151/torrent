@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842390.jpg" />
+  <img src="Z:/picture/008/save_picture_842390.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVP: Evolution 1.7.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842039.jpg" />
+  <img src="Z:/picture/008/save_picture_842039.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842027.jpg" />
+  <img src="Z:/picture/008/save_picture_842027.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841785.jpg" />
+  <img src="Z:/picture/008/save_picture_841785.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841694.jpg" />
+  <img src="Z:/picture/008/save_picture_841694.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841643.jpg" />
+  <img src="Z:/picture/008/save_picture_841643.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841348.jpg" />
+  <img src="Z:/picture/008/save_picture_841348.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841343.jpg" />
+  <img src="Z:/picture/008/save_picture_841343.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841231.jpg" />
+  <img src="Z:/picture/008/save_picture_841231.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Sleep as Android v20160402 [Ru/Multi] - Будильник с трекером �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841053.jpg" />
+  <img src="Z:/picture/008/save_picture_841053.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841016.jpg" />
+  <img src="Z:/picture/008/save_picture_841016.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840792.jpg" />
+  <img src="Z:/picture/008/save_picture_840792.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839276.jpg" />
+  <img src="Z:/picture/008/save_picture_839276.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839262.jpg" />
+  <img src="Z:/picture/008/save_picture_839262.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839141.jpg" />
+  <img src="Z:/picture/008/save_picture_839141.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838892.jpg" />
+  <img src="Z:/picture/008/save_picture_838892.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Teenage Mutant Ninja Turtles: Return of the Shredder 1.0.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837733.jpg" />
+  <img src="Z:/picture/008/save_picture_837733.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837156.jpg" />
+  <img src="Z:/picture/008/save_picture_837156.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Camera iOS 1.0.10000 (Paid) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836536.jpg" />
+  <img src="Z:/picture/008/save_picture_836536.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ ZVVMinis 1.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836058.jpg" />
+  <img src="Z:/picture/008/save_picture_836058.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835837.jpg" />
+  <img src="Z:/picture/008/save_picture_835837.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835800.jpg" />
+  <img src="Z:/picture/009/save_picture_835800.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835727.jpg" />
+  <img src="Z:/picture/008/save_picture_835727.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ PhotoDirector Premium 13.0.0 [Ru] - Фоторедактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835553.jpg" />
+  <img src="Z:/picture/008/save_picture_835553.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835457.jpg" />
+  <img src="Z:/picture/008/save_picture_835457.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832629.jpg" />
 </div>
 
 

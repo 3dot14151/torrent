@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101518.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101437.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101424.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101387.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101350.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101208.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101145.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100673.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100641.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96098.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89323.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76324.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70604.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68596.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68173.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67911.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67594.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67154.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66961.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66771.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66541.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66293.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66213.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66097.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66077.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65865.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 529597   (559042) от 04.08.2012
+
+VA - Kiss FM 10 Aniversario (2CD) (2012) [MP3|320 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559042.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Jennifer Lopez - On The Floor
+ 02. La Oreja De Van Gogh - La Niсa Que Llora En Tus Fiestas
+ 03. Maroon 5 & Christina Aguilera - Moves Like Jagger
+ 04. Manuel Carrasco - Otoсo, Octubre
+ 05. Lady Gaga - Born This Way
+ 06. El Pescao - Buscando El Sol
+ 07. Rihanna - S&M
+ 08. Maldita Nerea - Fбcil
+ 09. Pitbull - Give Me Everything(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:17:46
+ 01. Amaral - Dнas De Verano
+ 02. Michael Jackson - Black & White
+ 03. Shakira & Alejandro Sanz - La Tortura
+ 04. Eternal - I Wanna Be The Only One
+ 05. The Cardigans - My Favourite Game
+ 06. Fito & Fitipaldis - La Casa Por El Tejado
+ 07. Coldplay - Cloks
+ 08. Crowded House - Weather With You
+ 09. Wham - Wake Me Up Before You Go Go(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3253F1E5371677CAEC3FEB7F9D445E5094982FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924402   (558694) от 03.08.2015
+
+VA - 100 Хитов В Машине. Клубная музыка 2015 (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558694.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A3 - Stay (Stereojackers Vs. Mark Loverush Club Mix)
+002. Adam Lamber - Ghost Town (Future Nation Remix)
+003. Ahmed Romel, Harmonic Rush - Sevda (Original Mix)
+004. Alessandra Roncone - Place Of Dreams (Sy Gardner Remix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 11:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFCCF620F3D7E829079D7B724F61FA6B3C93BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235500   (558678) от 12.07.2018
 
 VA - Courtesy Trance Euphoric (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +79,7 @@ VA - Courtesy Trance Euphoric (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558678.jpg" />
+  <img src="Z:/picture/008/save_picture_558678.jpg" />
 </div>
 
 
@@ -35,7 +108,7 @@ VA - Top Selection Trance Today (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558279.jpg" />
+  <img src="Z:/picture/008/save_picture_558279.jpg" />
 </div>
 
 
@@ -64,7 +137,7 @@ VA - Beatport Trance Pack (23.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558161.jpg" />
+  <img src="Z:/picture/008/save_picture_558161.jpg" />
 </div>
 
 
@@ -93,7 +166,7 @@ VA - United People Following (2016) [MP3|320 Kbps] <Tech House, Club, Funky>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558160.jpg" />
+  <img src="Z:/picture/008/save_picture_558160.jpg" />
 </div>
 
 
@@ -122,7 +195,7 @@ VA - Sound DJ  Mainstream Season (2016) [MP3|320 Kbps] <House, Electro House, Fu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558159.jpg" />
+  <img src="Z:/picture/008/save_picture_558159.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ VA - Ultra Seduction EDM Festival (2016) [MP3|320 Kbps] <House, Electro House, F
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558039.jpg" />
+  <img src="Z:/picture/008/save_picture_558039.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ VA - Tokyo Filled Ride Bass (2016) [MP3|320 Kbps] <House, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558038.jpg" />
+  <img src="Z:/picture/008/save_picture_558038.jpg" />
 </div>
 
 
@@ -209,7 +282,7 @@ VA - Топ 100 Клубные Ремиксы Июль (2017) [MP3|320 Kbps] <Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557806.jpg" />
+  <img src="Z:/picture/008/save_picture_557806.jpg" />
 </div>
 
 
@@ -238,7 +311,7 @@ VA - Sunset Beats - Ibiza Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557671.jpg" />
+  <img src="Z:/picture/008/save_picture_557671.jpg" />
 </div>
 
 
@@ -267,7 +340,7 @@ VA - The Sounds Of The Underground 03 (DJ Mix By Deeper82) (2015) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557668.jpg" />
+  <img src="Z:/picture/008/save_picture_557668.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ VA - Resident Advisor Top 50 Charted Tracks July (2015) [MP3|320 кб/с]<Techno
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557667.jpg" />
+  <img src="Z:/picture/008/save_picture_557667.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ VA - Extra Lounge (episode 10) (2015) [MP3|320 кб/с]<Lounge, Chill Out, Easy 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557626.jpg" />
+  <img src="Z:/picture/008/save_picture_557626.jpg" />
 </div>
 
 
@@ -354,7 +427,7 @@ VA - Music For Everyone - Electro house & Progressive Vol.4 (2015) [MP3|320 кб
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557623.jpg" />
+  <img src="Z:/picture/008/save_picture_557623.jpg" />
 </div>
 
 
@@ -383,7 +456,7 @@ VA - Hologram Sound (2015) [MP3|320 кб/с]<Progressive, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557622.jpg" />
+  <img src="Z:/picture/008/save_picture_557622.jpg" />
 </div>
 
 
@@ -412,7 +485,7 @@ VA - Hits For Chill (2015) [MP3|320 кб/с]<Deep House, Chill House, Chill Out>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557608.jpg" />
+  <img src="Z:/picture/008/save_picture_557608.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ VA - Global Control: May Trance Party (2019) [MP3|320 Kbps] <Trance, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557150.jpg" />
+  <img src="Z:/picture/008/save_picture_557150.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ VA - Diary Of The Setting Sun (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557108.jpg" />
+  <img src="Z:/picture/008/save_picture_557108.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ VA - Cyberspace: Techno Electronic Mix (2019) [MP3|320 Kbps] <Electronic, Techno
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557105.jpg" />
+  <img src="Z:/picture/008/save_picture_557105.jpg" />
 </div>
 
 
@@ -528,7 +601,7 @@ VA - Essential Vocal House: EDM Hits (2019) [MP3|320 Kbps] <Electro, Vocal House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557102.jpg" />
+  <img src="Z:/picture/008/save_picture_557102.jpg" />
 </div>
 
 
@@ -557,7 +630,7 @@ VA - Transcentence: Psychedelic Compilation (2018) [MP3|320 Kbps] <Psychedelic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556612.jpg" />
+  <img src="Z:/picture/008/save_picture_556612.jpg" />
 </div>
 
 
@@ -586,7 +659,7 @@ Techno Project & Dj Geny Tur - Deep House (2022) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556435.jpg" />
+  <img src="Z:/picture/008/save_picture_556435.jpg" />
 </div>
 
 
@@ -615,7 +688,7 @@ VA - Record Super Chart 589 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555931.jpg" />
+  <img src="Z:/picture/008/save_picture_555931.jpg" />
 </div>
 
 
@@ -644,7 +717,7 @@ VA - Summer Pool: European Dance Hit (2019) [MP3|320 Kbps] <Pop Dance, Club, Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555547.jpg" />
+  <img src="Z:/picture/008/save_picture_555547.jpg" />
 </div>
 
 
@@ -673,7 +746,7 @@ VA - Empire Records - Red Star 7 (2019) [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554810.jpg" />
+  <img src="Z:/picture/008/save_picture_554810.jpg" />
 </div>
 
 
@@ -687,64 +760,6 @@ VA - Empire Records - Red Star 7 (2019) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A75522C4089A8195EC1D3B72F84FB9157CAB9ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307568   (554771) от 10.06.2019
-
-VA - This Merry Planet - Space Voyage #1 (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Schaltkreis Wassermann - Space Shuttle (12'' Maxi Version) (04:41)
-02.Oliver's Planet - Planetarium (10:22)
-03.Angella Dean - World X (05:03)
-04.Michael Stearns - Craft (Dimensional Release) (06:29)(   Читать дальше...   )Жанр: Electronic, Synth-pop, AmbientПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A3573D333E53B3F027750FA91BE8B51CE76262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236283   (554747) от 16.07.2018
-
-VA - Antigua Blue (2018) [MP3|320 Kbps] <Chill House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554747.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Antigua Blue - Take Control
-002. Above & Beyond - Common Ground (Original Mix)
-003. Inaky Garcia - La Musica
-004. Mephia - Ananda(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 09:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BD24BBE5BB681AD36A0701F7953DF63B8BE4F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

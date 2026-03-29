@@ -1,3 +1,119 @@
+###  Публикация: 1521615   (764500) от 03.01.2022
+
+Lee Konitz & The Brazilian Band - Brazilian Rhapsody (1995) Venus Records [FLAC|Lossless|image + .cue] <Cool, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Triste [7:30]
+02. Berimbau [7:31]
+03. Menina Moca [6:09]
+04. Triste [6:46](   Читать дальше...   )Жанр: Cool, Bossa NovaПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDE8BB5988984B0DA34C0EFF1C21DFF47A2D1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214636   (764147) от 22.03.2018
+
+Michael Musillami Trio - Zephyr (2015) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loops [09:40]
+02. Pacific School [09:48]
+03. Francesca's Flowers [04:30]
+04. Zephyr Cove (Bass Entrance) [02:35](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C1A550A75249C00AC3A54BC0E85996BE60DE7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214640   (764144) от 22.03.2018
+
+Janice Lakers - The Rainbow Lady (1985) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rainbow Lady [03:58]
+02. So Sorry, S'il Vous Plait [02:43]
+03. Body And Soul [06:26]
+04. In Your Own Sweet Way [03:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6C9A7D7A2D5715261967EDB42BD87568AE5292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214642   (764073) от 22.03.2018
+
+Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tristeza [02:52]
+02. Amelia Emilia [06:37]
+03. Chick De Ipanema [03:16]
+04. O Pato [02:53](   Читать дальше...   )Жанр: Latin Jazz, Bossa NovaПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B6E50E3DDAAD1B74F9CAF502D4E22725AAB25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280059   (763726) от 01.02.2019
 
 Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
@@ -6,7 +122,7 @@ Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763726.jpg" />
+  <img src="Z:/picture/008/save_picture_763726.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Yoko Kanno & Seatbelts - Space Bio Charge (2009) CD Collection [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763722.jpg" />
+  <img src="Z:/picture/008/save_picture_763722.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dick Haymes - My Heart Tells Me (1950-e - 1960-e) 1997, Memoir [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763705.jpg" />
+  <img src="Z:/picture/008/save_picture_763705.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Carl Saunders - Out Of The Blue (1996) SNL Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763703.jpg" />
+  <img src="Z:/picture/008/save_picture_763703.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dick Haymes with Harry James & Benny Goodman - Serenading with The Big Bands (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763701.jpg" />
+  <img src="Z:/picture/008/save_picture_763701.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Phil Woods - Sugan & Round Trip (1957, 1969) 2000, Universal [APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763665.jpg" />
+  <img src="Z:/picture/008/save_picture_763665.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Stephane Grappelli - Nuages (1978, 1981) 1991, Jazz Archives [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763664.jpg" />
+  <img src="Z:/picture/008/save_picture_763664.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Rein De Graaff - Chasin' The Bird (1981) 2016, Solid Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763305.jpg" />
+  <img src="Z:/picture/008/save_picture_763305.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Gary Burton - Who Is Gary Burton? (1960-1962) 2013, Essential Jazz Classics[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763265.jpg" />
+  <img src="Z:/picture/008/save_picture_763265.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Vanessa Rubin - I'm Glad There Is You: A Tribute To Carmen McRae (1994) Novus [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762362.jpg" />
+  <img src="Z:/picture/008/save_picture_762362.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Geraldine Laurent - Around Gigi (2010) Dreyfus Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762285.jpg" />
+  <img src="Z:/picture/008/save_picture_762285.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Art Blakey & The Jazz Messengers - Live in Scheveningen 1958 (2018) 2CD, Deviale
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762284.jpg" />
+  <img src="Z:/picture/008/save_picture_762284.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Johnny Hodges - 1951 - 1952 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762283.jpg" />
+  <img src="Z:/picture/008/save_picture_762283.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Bixiga 70 - Quebra Cabeсa (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Afrobea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762282.jpg" />
+  <img src="Z:/picture/008/save_picture_762282.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Anteloper - Kudu (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Nu-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762239.jpg" />
+  <img src="Z:/picture/008/save_picture_762239.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Brother's Testament - Ascent (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762236.jpg" />
+  <img src="Z:/picture/008/save_picture_762236.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Saxy By Nature (Sensual Smooth Jazz Sax Rendezvouz) (2019) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762134.jpg" />
+  <img src="Z:/picture/008/save_picture_762134.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Saxappeal (Lounge Saxophone Smooth Jazz Del Mar) (2019) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762129.jpg" />
+  <img src="Z:/picture/008/save_picture_762129.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Earl Hines - Plays Duke Ellington (1971 - 1975) 3CD, 1998, New World Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762028.jpg" />
+  <img src="Z:/picture/008/save_picture_762028.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Frank Socolow - Sounds By Socolow (1956) 1999, Toshiba [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761927.jpg" />
+  <img src="Z:/picture/008/save_picture_761927.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Bud Freeman - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761926.jpg" />
+  <img src="Z:/picture/008/save_picture_761926.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Phillip Johnston Transparent Quartet - The Needless Kiss (1998) Koch Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761925.jpg" />
+  <img src="Z:/picture/008/save_picture_761925.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Phillip Johnston Transparent Quartet - The Needless Kiss (1998) Koch Jazz [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3597C12E8A33A2DEF6B6B9DF552A3CA4B7E70C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215015   (761820) от 24.03.2018
-
-Batida - Batida (1983) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Samba, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ponteio [04:29]
-02. Pra Quem Quiser [04:03]
-03. Listen To The Land [00:40]
-04. Oceans Between Us [04:33](   Читать дальше...   )Жанр: Latin Jazz, Samba, Bossa NovaПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7E8653C0C74117FB3B9841EDC65ABA642653D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017260   (761332) от 17.05.2016
-
-Billy Higgins - The Soldier (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sugar And Spice [04:51]
- 02.Midnite Waltz [09:48]
- 03.Just In Time [05:46]
- 04.If You Could See Me Now [06:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AC7F93D7BD26CE4DB51945769ECF8967E5B460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017524   (761329) от 17.05.2016
-
-Tim Garland - One (2016) [FLAC|Lossless|tracks] <Contemporary Jazz, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sama'i for Peace (5:37)
-2. Bright New Year (7:05)
-3. The Eternal Greeting (6:00)
-4. Colours of Night (6:46)(   Читать дальше...   )Жанр: Contemporary Jazz, JazzПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9779DA8E5F95B405CC6CC4B1825F40719486E01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017328   (761230) от 17.05.2016
-
-Rufus Harley - Bagpipe Blues (1965) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bagpipe Blues [02:44]
- 02.Kerry Dancers [06:07]
- 03.Who Can I Turn To (When Nobody Needs Me) [04:01]
- 04.More [06:42](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C7BAD47A9B6CF2E7EE8706A3F83BA0D0CE6671
 ```
 
 https://mybot314.ru/tekegram_catalog/

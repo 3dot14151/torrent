@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783379.jpg" />
+  <img src="Z:/picture/008/save_picture_783379.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783377.jpg" />
+  <img src="Z:/picture/008/save_picture_783377.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783373.jpg" />
+  <img src="Z:/picture/008/save_picture_783373.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783371.jpg" />
+  <img src="Z:/picture/008/save_picture_783371.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782692.jpg" />
+  <img src="Z:/picture/008/save_picture_782692.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782691.jpg" />
+  <img src="Z:/picture/008/save_picture_782691.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782687.jpg" />
+  <img src="Z:/picture/008/save_picture_782687.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ AMA Supercross Championship: Salt Lake City (11.06.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_782256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_782256.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782255.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ AMA Supercross Championship: Salt Lake City (15.06.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782252.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781889.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781577.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781223.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781036.jpg" />
+  <img src="Z:/picture/008/save_picture_781036.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ NGW: Дикое королевство: Восстание / Savage Kingdom (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780466.jpg" />
+  <img src="Z:/picture/008/save_picture_780466.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780380.jpg" />
+  <img src="Z:/picture/008/save_picture_780380.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780226.jpg" />
+  <img src="Z:/picture/008/save_picture_780226.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778510.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778409.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778408.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778407.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778406.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778405.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778404.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778403.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778402.jpg" />
 </div>
 
 

@@ -1,3 +1,109 @@
+###  Публикация: 1599394   (159833) от 23.12.2022
+
+Duplicate File Finder Pro 7.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
+Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852FD9575480F1CCC44DCD227A7CE7C8BAEF0051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599411   (159822) от 23.12.2022
+
+Easy Data Transform 1.38.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 Oryx Digital LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A203295A6455997624667E3DB74C7E01D26E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675256   (159790) от 10.11.2023
+
+Capture One 23 Pro 16.3.1.23 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конвертеров цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Phase OneПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2B17847C3B384DD7144D7595F4BC1B8D516958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675834   (159784) от 10.11.2023
+
+JetBrains WebStorm for Mac 2023.2.4 Intel/ARM [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159784.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebStorm - Легкий, но мощный IDE, прекрасно оборудованный для комплексной разработки на стороне клиента и на стороне сервера разработки с Node.js. WebStorm поможет вам писать код лучше благодаря умному завершению кода, на лету обнаружения ошибок, мощной навигации и рефакторингу. Поддержка новейших технологий IDE обеспечивает поддержку первого класса для JavaScript, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2000-2023 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D0070EE6E075AE86F87730D09583348BF693CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675830   (159761) от 10.11.2023
 
 JetBrains IntelliJ IDEA Ultimate for Mac 2023.2.4 Intel/ARM [En]
@@ -6,7 +112,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.2.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159761.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159446.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ PreviewMarkdown 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159444.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ GroupsPro 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159434.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ Rogue Amoeba Farrago 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159423.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ iCollections 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159410.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ GIFfun - Video,Photos to GIF 9.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159406.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ GrandTotal 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159404.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ Professional Recorder & Editor 6.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159394.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ Tipard Blu-ray Player for Mac 6.2.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159374.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ Battery Indicator for Mac 2.14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159372.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ MediaInfo 22.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159351.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ Live Wallpaper & Themes 4K Pro 14.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159331.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ Flyingbee PDF to Word for Mac 8.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159324.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ Lunar Pro for Mac 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159306.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ Wondershare PDFelement Pro OCR 9.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159291.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ Wondershare Filmora 12.0.6  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159248.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ Maxon Cinema 4D Studio 2023.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159185.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159075.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ AnyMP4 iOS Cleaner 1.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159051.jpg" />
 </div>
 
 
@@ -533,7 +639,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159035.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ AnyMP4 iPhone Transfer Pro 9.0.58 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159021.jpg" />
 </div>
 
 
@@ -572,112 +678,6 @@ AnyMP4 Mac iPhone Transfer Pro — лучшее программное обес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8D251CB82D4E7C1798BE9203BC200B4FBD48E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676241   (159016) от 12.11.2023
-
-Vellum 3.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
-Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2022 180gПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAB7FB4943AD86751455B98142F129C4228F588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676233   (159007) от 12.11.2023
-
-OmniReader Pro for Mac 2.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159007.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04403E6DD5CE3E386E84658C842F765B54856C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600281   (159000) от 26.12.2022
-
-Apeaksoft iPhone Transfer 2.0.60 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apeaksoft iPhone Transfer может передавать файлы гибко, чтобы удовлетворить различные потребности пользователей. С безопасностью и высокой скоростью, это делает бесплатной передачу данных между устройствами iOS, ПК и iTunes. Это альтернатива, но превосходит iTunes. Вот что он может сделать для вас. Благодаря высокой скорости 60x вы можете быстро передавать фотографии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.12.2022Разработчик: © 2022 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742810900B9ECB53AF76178B17A474DA88A72ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600209   (158986) от 26.12.2022
-
-Wondershare UniConverter 14.2.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBF58C48B5F54531B37600BB9E0144C7679DA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

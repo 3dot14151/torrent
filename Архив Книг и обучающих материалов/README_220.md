@@ -1,3 +1,37 @@
+###  Публикация: 469387   (82811) от 18.03.2012
+
+Олег Герантиди | Превосходящими силами (две книги) [2005-2006] [FB2,RTF,TXT]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитлер опоздал.На рассвете 15 июля 1941 года Красная Армия перешла границу и нанесла упреждающий удар по фашисткой Германии и ее союзникам.
+«Так началась новая эра. Эра освобождения».
+Даешь Бухарест!
+Даешь Братиславу!
+Даешь Берлин!
+Это есть наш последний и решительный бой.
+Красные звезды восходят над Европой.
+«И на вражьей земле мы врага разгромим —
+Малой кровью, могучим ударом!»2005-2006Формат: FB2,RTF,TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EB6E012A90100D99A160B2D054B012442C214C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469746   (82801) от 18.03.2012
 
 Юрий Торубаров | Таинственный двойник [2010] [RTF]
@@ -6,7 +40,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82801.jpg" />
 </div>
 
 
@@ -32,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82618.jpg" />
 </div>
 
 
@@ -58,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82604.jpg" />
 </div>
 
 
@@ -88,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82494.jpg" />
 </div>
 
 
@@ -116,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82493.jpg" />
 </div>
 
 
@@ -142,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82451.jpg" />
 </div>
 
 
@@ -170,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82447.jpg" />
 </div>
 
 
@@ -196,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82413.jpg" />
 </div>
 
 
@@ -223,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82410.jpg" />
 </div>
 
 
@@ -250,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82404.jpg" />
 </div>
 
 
@@ -277,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82400.jpg" />
 </div>
 
 
@@ -303,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82395.jpg" />
 </div>
 
 
@@ -334,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82260.jpg" />
 </div>
 
 
@@ -360,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82187.jpg" />
 </div>
 
 
@@ -386,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82057.jpg" />
 </div>
 
 
@@ -413,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82019.jpg" />
 </div>
 
 
@@ -439,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82010.jpg" />
 </div>
 
 
@@ -469,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82001.jpg" />
 </div>
 
 
@@ -495,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81994.jpg" />
 </div>
 
 
@@ -521,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81984.jpg" />
 </div>
 
 
@@ -547,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81975.jpg" />
 </div>
 
 
@@ -573,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81799.jpg" />
 </div>
 
 
@@ -603,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81795.jpg" />
 </div>
 
 
@@ -631,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81783.jpg" />
 </div>
 
 
@@ -660,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81774.jpg" />
 </div>
 
 
@@ -671,36 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70A19FBE647A36BEF29390340CBF0DC650713DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466420   (81682) от 12.03.2012
-
-"Шедевры отечественной фантастики" Серия из 12 книг [2004-2007] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Шедевры отечественной фантастики» была открыта в 2003 году, закрылась
-из-за низких продаж в 2007 году. В ней переиздавались самые успешные произведения
-отечественных авторов, входящих в «издательский портфель» ЭКСМО.
-За время существования в серии вышло более 70 томов разных авторов.
-Здесь представлены 12 томов.2004-2007Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6086962252A31B2943B44DB10AC61544FF727E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

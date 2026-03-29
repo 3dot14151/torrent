@@ -6,7 +6,7 @@ oCam Screen Recorder 105.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755372.jpg" />
+  <img src="Z:/picture/008/save_picture_755372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JetBrains RubyMine 2016.1.1 Build #RM-145.971 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755334.jpg" />
+  <img src="Z:/picture/008/save_picture_755334.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755326.jpg" />
+  <img src="Z:/picture/008/save_picture_755326.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4823.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755320.jpg" />
+  <img src="Z:/picture/008/save_picture_755320.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC2020-07-10) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755303.jpg" />
+  <img src="Z:/picture/008/save_picture_755303.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VidCoder 5.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755279.jpg" />
+  <img src="Z:/picture/008/save_picture_755279.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Visual Studio Code 1.47.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755274.jpg" />
+  <img src="Z:/picture/008/save_picture_755274.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Glary Utilities Pro 5.23.0.42 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755264.jpg" />
+  <img src="Z:/picture/005/save_picture_755264.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MediaInfo Lite 0.7.73.0 repack by cuta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755261.jpg" />
+  <img src="Z:/picture/008/save_picture_755261.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Advanced Installer 12.0 Build 63246 RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755254.jpg" />
+  <img src="Z:/picture/008/save_picture_755254.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Windows 10 Manager 1.1.3 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755230.jpg" />
+  <img src="Z:/picture/008/save_picture_755230.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ SoftMaker Office Professional 2016 rev 757.0510 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755228.jpg" />
+  <img src="Z:/picture/008/save_picture_755228.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Acrobat Pro DC 2015.016.20041 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755227.jpg" />
+  <img src="Z:/picture/008/save_picture_755227.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ DLL Suite 9.0.0.2190 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755226.jpg" />
+  <img src="Z:/picture/008/save_picture_755226.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Rufus 2.9 (Build 934) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755218.jpg" />
+  <img src="Z:/picture/008/save_picture_755218.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Master PDF Editor 3.7.10 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755215.jpg" />
+  <img src="Z:/picture/008/save_picture_755215.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Vivaldi 2.3.1440.41 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755203.jpg" />
+  <img src="Z:/picture/008/save_picture_755203.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Brave Browser 0.59.35 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755200.jpg" />
+  <img src="Z:/picture/008/save_picture_755200.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Coolutils PDF Splitter 5.2.0.66 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755196.jpg" />
+  <img src="Z:/picture/008/save_picture_755196.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Light Image Resizer 5.1.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755194.jpg" />
+  <img src="Z:/picture/008/save_picture_755194.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ CrystalDiskInfo 8.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755188.jpg" />
+  <img src="Z:/picture/008/save_picture_755188.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Viber 13.3.1.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755183.jpg" />
+  <img src="Z:/picture/008/save_picture_755183.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Kerish Doctor 2020 4.80 [DC 10.07.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755178.jpg" />
+  <img src="Z:/picture/008/save_picture_755178.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ WhatsApp 2.2027.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755174.jpg" />
+  <img src="Z:/picture/008/save_picture_755174.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Mozilla Firefox 38.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755152.jpg" />
+  <img src="Z:/picture/008/save_picture_755152.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ LC Technology RescuePRO Deluxe 5.2.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755148.jpg" />
+  <img src="Z:/picture/008/save_picture_755148.jpg" />
 </div>
 
 

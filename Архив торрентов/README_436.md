@@ -6,7 +6,7 @@ SpeedCommander 13.00.5900 (feSS Edition v1.02) (x86 и x64 версии) [тол
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_963610.jpg" />
+  <img src="Z:/picture/009/save_picture_963610.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963583.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963526.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963519.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963512.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963507.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963483.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Back-In-Time 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963437.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Yanni - Tribute (1997) [FLAC|Lossless|image + .cue] <Contemporary instrumental, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963436.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ oCam Screen Recorder 202.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963428.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ ST & Dj Pill.One - XXXXXXX1 (2016) EP [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963424.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963359.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ PicPick 4.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963349.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963343.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Keep It 1.7.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963331.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ MediaHuman Youtube Downloader 3.9.9.32  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963330.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Affinity Photo Beta 1.8.0.164 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963329.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Antivirus Zap Pro 3.8.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963327.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Data Guardian 5 v5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963326.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ ProFind 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963325.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Permute 3 v3.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963324.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963301.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ HWiNFO 32-64 5.12-2740 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963296.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Debug Menu Access 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963294.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Adblock Plus 2.7.1 for Mozilla Firefox [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963284.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ ExactScan Pro 20.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963278.jpg" />
 </div>
 
 

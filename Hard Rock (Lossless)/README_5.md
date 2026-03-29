@@ -1,3 +1,61 @@
+###  Публикация: 1447156   (1031896) от 13.02.2021
+
+Mecca - 3 albums (2002-2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мекка - проект, созданный певцом Джо Вана и Джимом Петериком (Survivor). Группа исповедует классический АОР в духе таких монстров как Тото, Survivor, Alliance, Foreigner, AsiA и получается у них ничуть не хуже. Материал у этих парней настолько сильный и хитовый, что выйди дебютник в начале 80-х, участники группы сразу же бы стали звездами первой величины. Эталонный (   Читать дальше...   )--------------------------
+
+01. Take My Hand (3:18)
+02. Unknown (4:23)(   Читать дальше...   )Жанр: Melodic Rock, FM Rock, AOR |Продолжительность: 02:18:01 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D54FF49C7C2727CB33D3FFEDBD7E3E2C03946C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447307   (1031894) от 13.02.2021
+
+Inglorious - We Will Ride (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Won't Let You Go (3:38)
+02. Messiah (3:56)
+03. Medusa (3:55)
+04. Eye of the Storm (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E2B76A6C883086913E331176D7D603E3104E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620894   (1031678) от 22.03.2023
 
 Riptown Riot - Of Martyrs & Mayhem (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Riptown Riot - Of Martyrs & Mayhem (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031678.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Fire Of Destiny - Between Good And Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031647.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Kreek - Kreek (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031400.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ AOR - The Ghost Of L.A. (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031341.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Atlas - Parallel Love (2020) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031172.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Stone Fury - Burns Like A Star (1984) Limited Edition, Reissue, 2013, Geffen Rec
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031161.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Red Cloud - Red Cloud (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Hard, Bl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030996.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Wishing Well - Sin And Shame (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030765.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Robin McAuley - Alive (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030738.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Flames Of Durga - Flames Of Durga (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030523.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Whitesnake - The Blues Album (2021) Rhino Records [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030422.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ N.Y. Fury - I Want It All (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030286.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ LoudMother - Falling Apart (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030270.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Natural Born Machine - Human (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030243.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Raw Silk - The Borders Of Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030240.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Silo - Glitter & Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Country M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030207.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Rainbow - 8 Studio Albums, 12 Live, 7 Compilations, 1 Box Set (1975 - 2018) 86 C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029954.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Boys From Heaven - The Great Discovery (2020) [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029569.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Roxy Blue - Want Some? (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029383.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Arrows - The Complete Collection (2023) 2CD [FLAC|Lossless|image + .cue] <Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029235.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Ulf Lagestam - Alien Distortion (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029228.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Thundermother - Thundermother (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029226.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Arabia - Welcome To The Freakshow (2011) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029225.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029192.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ The Pretty Reckless - Death by Rock and Roll (2021) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AC9AFC3EDB3542F8F8B48B3A8DBD72339784FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449983   (1029186) от 25.02.2021
-
-Def Leppard - Epic Leppard (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Lightning 07:03
-02. Gods Of War 06:37
-03. Paper Sun 05:27
-04. Die Hard The Hunter 06:15(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46188606AA6BF0F7E1BAAA8F7A1EA4EF4685C092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450447   (1029061) от 26.02.2021
-
-Walk The Walk - Walk The Walk (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven's On It's Way Down
-02. Running From You
-03. Are You There
-04. Two Miles To Go(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06FC43B354A8F5B4C5DE57A23D5E45A6FBD9D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1003889   (839525) от 05.04.2016
+
+Бретт Стюарт | 50 подтягиваний через 7 недель (2012) [DJVU]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаются проверенные на практике и детально разработанные планы тренировок для людей с любым уровнем подготовки, от новичков, желающих освоить новый вид физических упражнений, до профессионалов фитнеса, подыскивающих самые эффективные варианты силового тренинга.
+ Для широкого круга читателей.
+
+Бретт Стюарт | 50 подтягиваний через 7 недель [2012]Жанр: СпортФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46711E379EE43F02B1C0CCAFF5E7C543E4489E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003879   (839294) от 05.04.2016
 
 Стив Спайрс | 100 отжиманий через 7 недель (2012) [FB2]
@@ -6,7 +35,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839294.jpg" />
+  <img src="Z:/picture/008/save_picture_839294.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838954.jpg" />
+  <img src="Z:/picture/008/save_picture_838954.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838289.jpg" />
+  <img src="Z:/picture/008/save_picture_838289.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838065.jpg" />
+  <img src="Z:/picture/008/save_picture_838065.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836787.jpg" />
+  <img src="Z:/picture/008/save_picture_836787.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836061.jpg" />
+  <img src="Z:/picture/008/save_picture_836061.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836053.jpg" />
+  <img src="Z:/picture/008/save_picture_836053.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834360.jpg" />
+  <img src="Z:/picture/008/save_picture_834360.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834260.jpg" />
+  <img src="Z:/picture/008/save_picture_834260.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831650.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830727.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830707.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830611.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830536.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829125.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829082.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828878.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828497.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828496.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828388.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826891.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826626.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822194.jpg" />
+  <img src="Z:/picture/008/save_picture_822194.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820340.jpg" />
+  <img src="Z:/picture/008/save_picture_820340.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820140.jpg" />
+  <img src="Z:/picture/008/save_picture_820140.jpg" />
 </div>
 
 
@@ -658,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C905E287E57C9D142F0045F7FE60A5F7BCCFE6C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117232   (818397) от 22.03.2017
-
-Майкл Мэттьюс | Больше. Суше. Сильнее. Простая наука о построении мужского тела (2017) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите накачать мышцы, сбросить вес, и выглядеть круто без стероидов и не тратить огромные деньги на спортзал и добавки... Вам нужна эта книга! Дело вот в чем: - накачать мышцы и потерять вес - просто, но фитнес-индустрия хочет, чтобы вы думали по другому; - вам не нужно будет тратить тысячи в месяц на никчемные тренировки, добавки, стероиды; - вам не нужно (   Читать дальше...   )Жанр: Фитнес, бодибилдингФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97D53BAB2B4E2C0B8062F65D5E133E48D6D2D11
 ```
 
 https://mybot314.ru/tekegram_catalog/

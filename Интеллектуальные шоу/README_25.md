@@ -1,3 +1,81 @@
+###  Публикация: 1688630   (125004) от 30.12.2023
+
+Пятеро на одного (30.12.2023) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B54BFDA56A64E72906066CE1E6933FE7299BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823326   (124488) от 11.10.2025
+
+Пятеро на одного (11.10.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B39B16A868944F19611DA25E3C1B5BA6E1E220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691751   (123042) от 13.01.2024
+
+Пятеро на одного (13.01.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D0962B457CB0E42F9861DC8FEBC389690D0827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693292   (121835) от 20.01.2024
 
 Пятеро на одного (20.01.2024) SATRip
@@ -6,7 +84,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121835.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120612.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119457.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118248.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117003.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115966.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115501.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114642.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114623.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114298.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114160.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114123.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113851.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113796.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113793.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113788.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113761.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113714.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113335.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113270.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113246.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113244.jpg" />
 </div>
 
 
@@ -599,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113240.jpg" />
 </div>
 
 
@@ -610,87 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FAA0C09B6E1009F767B58CDD830CF50B5B47EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709163   (112886) от 23.03.2024
-
-Своя игра (23.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112886.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D269C6076FBED96093BC08E7E76FB47DA68C7560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709094   (112854) от 23.03.2024
-
-Пятеро на одного (23.03.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083E8DE82E52B373CFC7EE9497DF7CC245B63BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709162   (112853) от 23.03.2024
-
-Сто к одному (23.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112853.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Стоп! Снято!" против команды "Новые клоуны"Язык озвучки: РусскийПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94821FA8F2541846668078D3CE7EF4C1339EE180
 ```
 
 https://mybot314.ru/tekegram_catalog/

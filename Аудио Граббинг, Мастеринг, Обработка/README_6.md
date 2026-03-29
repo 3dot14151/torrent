@@ -1,3 +1,109 @@
+###  Публикация: 1385220   (799919) от 23.05.2020
+
+Toontrack - EZbass v1.0.0 STANDALONE, VSTi, VSTi3, AAX x64 [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы с гордостью представляем первое на рынке басовое программное обеспечение такого рода. Тот, который выходит за рамки традиционной библиотеки сэмплов, чтобы обеспечить не только первозданный звук, но и фундаментальные функции, которые без особых усилий позволяют добавлять басы в ваши песни.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750E2470866AA528ED63389E41349574EB3410B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506624   (799449) от 01.11.2021
+
+HOFA - IQ-DeEsser 1.0.6 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799449.jpg" />
+</div>
+
+
+###  Подробнее
+
+HOFA IQ-DeEsser - это новый инструмент для редактирования сибилянтами и другими высокочастотными шумами в вокале или во всем миксе. Благодаря специализированному и очень естественному распознаванию голоса, IQ-DeEsser очень прост в использовании и еще более интуитивно понятен.
+Более того, инновационный режим BUS-Mode позволяет с исключительной точностью управлять (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FED13350B6C0524260DAC96A7E5B9271821A436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506983   (799059) от 02.11.2021
+
+D16 Group - Fazortan 2 2.1.1 VST, AAX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fazortan является мощным эффектом фазера. Он предоставляет невероятную гибкость обработки, при этом создавая магическое аналоговое звучание. Он не является копией какого-либо прибора из 70-х или 80-х - он содержит в себе опыт десятилетий в конструировании фазеров.
+Вторая версия представляет собой переработанную эмуляцию схем фазового сдвига с полным прохождением, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292B8B120FB411F63340C895D49B4A010F612309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273980   (798695) от 04.01.2019
+
+AudioGrail 7.11.2.216 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798695.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioGrail (ранее K-MP3) - это швейцарский армейский нож для всего, что связано с аудиофайлами (MP3, MPC, OGG ...). Он может очень легко переименовать и сменить теги (теги: информация, такая как имя исполнителя, альбом, название трека) ваши файлы автоматически. Он также может анализировать качество, организовывать файлы в вашей системе, находить дубликаты файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB3D333E79491B1468DEF3E2B872394FD5EA93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507209   (798677) от 03.11.2021
 
 HOFA - IQ-Reverb 2.0.5 VST, VST3, AAX (x64) [En]
@@ -6,7 +112,7 @@ HOFA - IQ-Reverb 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798677.jpg" />
+  <img src="Z:/picture/008/save_picture_798677.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Blue Cat's All Plug-Ins Pack (2021.10) STANDALONE, VST, VST3, AAX RePack by VR [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798671.jpg" />
+  <img src="Z:/picture/008/save_picture_798671.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Sidify Music Converter 2.4.0 RePack by F4CG (для Spotify) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798638.jpg" />
+  <img src="Z:/picture/008/save_picture_798638.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ EaseUS MakeMyAudio 2.0.0 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798252.jpg" />
+  <img src="Z:/picture/008/save_picture_798252.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Rob Papen - Predator 3 1.0.0a VSTi, VSTi3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793911.jpg" />
+  <img src="Z:/picture/008/save_picture_793911.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ Spectrasonics - Omnisphere 2.8.1c Standalone, VSTi, VSTi3, AAX (x64) RePack by v
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790702.jpg" />
+  <img src="Z:/picture/008/save_picture_790702.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Audiaire - Zone 1.1.1 VSTi, VSTi3, AAX (x64) RePack by R2R [EN]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789792.jpg" />
+  <img src="Z:/picture/008/save_picture_789792.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ East West Spaces II 2.0.2 Standalone,VST, AAX RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789236.jpg" />
+  <img src="Z:/picture/008/save_picture_789236.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ XILS-lab - Stix 1.0.3b VSTi, AAX (x86/x64) RePack by R2R [EN]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789001.jpg" />
+  <img src="Z:/picture/008/save_picture_789001.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ SoundSpot - Glitch 1.0.1 VST, VST3, AAX (x86/x64) RePack by SYNTHiC4TE [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788571.jpg" />
+  <img src="Z:/picture/008/save_picture_788571.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ Toontrack - EZMix 2 2.1.4 STANDALONE, VST, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787542.jpg" />
+  <img src="Z:/picture/008/save_picture_787542.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ ADPTR AUDIO MetricAB 1.0.0 VST, VST3, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784955.jpg" />
+  <img src="Z:/picture/008/save_picture_784955.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ Acoustica Premium 7.0.51 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782480.jpg" />
+  <img src="Z:/picture/008/save_picture_782480.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ SyncerSoft Electro Bass Landscapes 1.0 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780962.jpg" />
+  <img src="Z:/picture/008/save_picture_780962.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ SyncerSoft Gangnam Vocoder 1.0 VST [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780951.jpg" />
+  <img src="Z:/picture/008/save_picture_780951.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ SyncerSoft Lizard Morph 1.0 VST [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780950.jpg" />
+  <img src="Z:/picture/008/save_picture_780950.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ SyncerSoft Polyvox Station 2.01 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780948.jpg" />
+  <img src="Z:/picture/008/save_picture_780948.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ AIR Music Technology Xpand!2 2.2.7 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778776.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ Faasoft Audio Converter 5.4.23.6956 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774156.jpg" />
+  <img src="Z:/picture/008/save_picture_774156.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ W.A.Production - Outlaw 1.0.1 VST, VST3, AAX (x86/x64) Retail[En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763521.jpg" />
+  <img src="Z:/picture/008/save_picture_763521.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ FairStars Audio Converter Pro v1.45 [Английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761358.jpg" />
+  <img src="Z:/picture/008/save_picture_761358.jpg" />
 </div>
 
 
@@ -561,7 +667,7 @@ Musereo Mono to Stereo Converter 2.8.0.1261 [Eng+Rus]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761344.jpg" />
+  <img src="Z:/picture/008/save_picture_761344.jpg" />
 </div>
 
 
@@ -573,114 +679,6 @@ Musereo Mono to Stereo Converter - это простая в использова
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280870   (756581) от 05.02.2019
-
-VSDC Free Audio Converter 1.6.5.353 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый, мощный, многофункциональный и простой в использовании аудио конвертер.
-Его основной целью является редактирование и конвертация аудио файлов из одного формата в другой. Поддерживаются все популярные аудио форматы, такие как MP3, Windows Media Audio (WMA и ASF), QuickTime Аудио (MP4, M4A и AAC), Real Audio (RM и RA), Vorbis Audio (OGG), форматы для телефонов (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A544CD97B7A4B73ECB71E1787DAB732F858168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523241   (753377) от 10.01.2022
-
-NoiseAsh Need Preamp And EQ Collection 1.0.0 VST, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Консольные предусилители и эквалайзеры в британском стиле были самым востребованным оборудованием с первых дней их появления. Queen, Nirvana, Red Hot Chilli Peppers, Дэвид Боуи, Foo Fighters, Slipknot, Metallica, Adele, Drake и т. д. — это всего лишь несколько примеров. Они использовались на бесчисленном количестве классических платиновых альбомов, а также до сих (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E999F37641905DC8F89ED923D3C6A3882A3535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281200   (753358) от 07.02.2019
-
-Nektar Technology - Bolt 1.0.1  VSTi, VSTi3 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производитель MIDI контроллеров Nektar Technology разработал свой первый виртуальный инструмент – BOLT.
-Синтезатор поддерживает 16 голосную полифонию и предлагает 2 осциллятора на голос. Каждый из основных осцилляторов имеет дополнительный субосциллятор, генератор шума и огибающую ADSR. Механизм звукового синтеза программы основан на концепции MSO и формирует звук (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB692691B8A5F60520E5358DC40B6B3071AFCAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281577   (751738) от 08.02.2019
-
-Sonic Anomaly - Transpire (Build 170907) VST (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonic Anomaly - Transpire - это бесплатный транзиент шейпер, он может усилить или ослабить начальную атаку и сустейн (тело) звука. Transpire был разработан, чтобы хорошо работать с ударными и ударными инструментами.
-
-Он не работает линейно, что означает, что небольшие транзиенты испытывают относительно более сильные, чем большие транзиенты. Это полезно для создания (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F53C3B6A058F5189173738E3C7B6F1A6EC8B51
 ```
 
 https://mybot314.ru/tekegram_catalog/

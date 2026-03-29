@@ -1,3 +1,88 @@
+###  Публикация: 1391738   (771275) от 22.06.2020
+
+Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный клип от Dirty Seagulls, Nils Astrologo, Gianmarco Gabriele на песню Al Bano & Romina Power - Liberta! из альбома 1987 г.
+Потрясающий «эффект присутствия». Рим мастерски снят с помощью дрона во время пандемии в апреле 2020 г.
+Отсутствие людей на улицах и площадях напоминает Апокалипсис. Знаменитая песня Liberta! в исполнении Al Bano & Romina (   Читать дальше...   )Производство: Италия / Dirty Seagulls, Nils Astrologo, Gianmarco GabrieleЖанр: PopПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE34075B528B9D42560B1C8C775DB769A10945F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 885842   (770671) от 08.04.2015
+
+VA - Весенний марафон № 163 / Видеоклипы (Зарубежный Коктейль Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_770671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весенние (06.04.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A.M.R feat. Ai Takekawa - Beyond The Moon (Original Mix) (00:09:04)
+2. Aerosmith - Girs of summer (00:04:02)
+3. ATC - Thinking Of You (Official Video) (00:03:29)
+4. Blake Shelton - Sangria (Official Video) (00:03:56)
+5. Cimorelli - All My Friends Say (Official Video) (00:03:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, RockПродолжительность: 01.35.30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC454DA34C7FC48B825653BD25F37714F3EA8E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376707   (769165) от 26.06.2020
+
+ДДТ - Русская весна (2020) WEBRip [VP9/2160p] <Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769165.jpg" />
+</div>
+
+
+###  Подробнее
+
+ДДТ - Русская весна (2020)
+CDA: ДДТ (DDT) - Галя Ходи (2018) Navigator RecordsПроизводство: Navigator RecordsЖанр: RockПродолжительность: 00:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5EE05EB01D4A680ECEFBF70CFF32163E0689FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016522   (762638) от 16.05.2016
 
 Everest of Rock - 4 (1980) WEBRip
@@ -6,7 +91,7 @@ Everest of Rock - 4 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762638.jpg" />
+  <img src="Z:/picture/008/save_picture_762638.jpg" />
 </div>
 
 
@@ -33,7 +118,7 @@ Lindsey Stirling ft. Lzzy Hale - Shatter Me (2014) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759480.jpg" />
+  <img src="Z:/picture/008/save_picture_759480.jpg" />
 </div>
 
 
@@ -59,7 +144,7 @@ Coldplay - Higher Power (2021) WEBRip [VP9/1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758536.jpg" />
+  <img src="Z:/picture/008/save_picture_758536.jpg" />
 </div>
 
 
@@ -85,7 +170,7 @@ VA - Official UK Top 40 Video Chart (Febr, 2019) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758347.jpg" />
+  <img src="Z:/picture/008/save_picture_758347.jpg" />
 </div>
 
 
@@ -114,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754658.jpg" />
+  <img src="Z:/picture/008/save_picture_754658.jpg" />
 </div>
 
 
@@ -143,7 +228,7 @@ Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752390.jpg" />
+  <img src="Z:/picture/008/save_picture_752390.jpg" />
 </div>
 
 
@@ -169,7 +254,7 @@ The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751321.jpg" />
+  <img src="Z:/picture/008/save_picture_751321.jpg" />
 </div>
 
 
@@ -195,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750690.jpg" />
+  <img src="Z:/picture/008/save_picture_750690.jpg" />
 </div>
 
 
@@ -221,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750682.jpg" />
+  <img src="Z:/picture/008/save_picture_750682.jpg" />
 </div>
 
 
@@ -247,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746871.jpg" />
+  <img src="Z:/picture/008/save_picture_746871.jpg" />
 </div>
 
 
@@ -273,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745685.jpg" />
+  <img src="Z:/picture/008/save_picture_745685.jpg" />
 </div>
 
 
@@ -299,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744439.jpg" />
+  <img src="Z:/picture/008/save_picture_744439.jpg" />
 </div>
 
 
@@ -328,7 +413,7 @@ Lindsey Stirling - Child of Light (2014) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738913.jpg" />
+  <img src="Z:/picture/008/save_picture_738913.jpg" />
 </div>
 
 
@@ -354,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737011.jpg" />
+  <img src="Z:/picture/008/save_picture_737011.jpg" />
 </div>
 
 
@@ -383,7 +468,7 @@ ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (1979) WEBRip [H.264/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735329.jpg" />
+  <img src="Z:/picture/008/save_picture_735329.jpg" />
 </div>
 
 
@@ -409,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734727.jpg" />
+  <img src="Z:/picture/008/save_picture_734727.jpg" />
 </div>
 
 
@@ -436,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734690.jpg" />
+  <img src="Z:/picture/008/save_picture_734690.jpg" />
 </div>
 
 
@@ -462,7 +547,7 @@ Nasty - Клипы (2013-2020) WEBRip [H.264/VP9/1080p/2160p] <Beatdown Hardcore
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734688.jpg" />
+  <img src="Z:/picture/008/save_picture_734688.jpg" />
 </div>
 
 
@@ -491,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730452.jpg" />
+  <img src="Z:/picture/008/save_picture_730452.jpg" />
 </div>
 
 
@@ -520,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729407.jpg" />
+  <img src="Z:/picture/008/save_picture_729407.jpg" />
 </div>
 
 
@@ -546,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725525.jpg" />
+  <img src="Z:/picture/008/save_picture_725525.jpg" />
 </div>
 
 
@@ -575,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724990.jpg" />
+  <img src="Z:/picture/008/save_picture_724990.jpg" />
 </div>
 
 
@@ -602,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721613.jpg" />
+  <img src="Z:/picture/008/save_picture_721613.jpg" />
 </div>
 
 
@@ -616,90 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:534A67403F0E6234899588B9B8647EE6DBA61841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327132   (721372) от 23.04.2011
-
-Верка Сердючка полная видеоколлекция / Verka Serduchka complete the video collection (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721372.jpg" />
-</div>
-
-
-###  Подробнее
-
-В представленном DVD альбоме самые известные и любимые песни Верки Сердючки. Среди них «Я попала на любовь», «Я только с мороза», «Чита дрита» и другие песни. Альбом включает караоке самых любимых песен.Жанр: Музыкальное видео / КараокеПродолжительность: 01:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2156DC26B89B3E1BAA1160C9405348D2EB5E92AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285251   (720705) от 26.02.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal - Intro
-01. Thunder - She's So Fine
-02. Sebastian Bach - Tunnelvision
-03. Pantera  - Mouth For War(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529D74141A97B571785F01820837DDD93263774B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669765   (717497) от 18.06.2013
-
-VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717497.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD.1.
-Продолжительность: 01:01:23 
-
-00. Intro(   Читать дальше...   )Жанр: Музыка, Hard RockПродолжительность: 02:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BE91100491833E1E75F5AFF0FA6BD4ECDF5252
 ```
 
 https://mybot314.ru/tekegram_catalog/

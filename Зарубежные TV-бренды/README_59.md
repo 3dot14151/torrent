@@ -1,3 +1,107 @@
+###  Публикация: 672871   (610028) от 26.07.2016
+
+NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_610028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они одни из самых массивных пирамид на планете — миллионы тонн песка и камня, возвышающиеся над всем человечеством в необыкновенной мощи богатства и власти. Сегодня они составляют наследие древнего города Теотиуакан, первого оплота цивилизации Южной Америки. Пирамиды были построены более 2000 лет тому назад в Мексике людьми, чьи имена давно позабыты столетиями. Причина (   Читать дальше...   )Жанр: Документальный, научно-познавательный, историяПеревод: Двухголосый закадровый (профессиональный)Субтитры: вшитыеЯзык субтитров: русскийПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294637   (609930) от 18.04.2019
+
+NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609930.jpg" />
+</div>
+
+
+###  Подробнее
+
+В период после 6 июня союзники начали проникать в Европу через пляжи Нормандии. Нацисты тщательно охраняли свои морские военные базы в оккупированной Европе. Это истории отчаянных боев, которые велись за освобождение Европы от нацистского ярма.Производство: Канада, Parallax Film Productions, National GeographicЖанр: Документальный, война, история, исследованияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AAE5E22933D9B365AD9FDEA652EAC26EAE7B35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143834   (609182) от 02.07.2017
+
+Animal Planet: 100 миль в неизвестность / 100 Miles from Nowhere (2015) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-5 из 8) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609182.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий документального сериала производства Animal Planet «100 миль в неизвестность» — опасные и захватывающие приключения известного атлета Мэтта Галланда и его лучших друзей Дэнни Брайсона и Блейка Джозефсона. В каждом эпизоде герои отправляются в самые отдаленные уголки нашей планеты, где в течение четырех дней им предстоит преодолеть более 160 км в (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, приключения, спортРежиссер: Эндрю ЭтингхаузенПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 5 х ~00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A27CAD9A1B840112B511A1EF1E695B3AD98BED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525121   (609051) от 20.07.2012
+
+NG: Суперсооружения: Мегазаводы. Грузовики Мерседес / MegaStructures. Megafactories: Mercedes Trucks (2011) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Мега-Проекты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с новой версией грузовиков Mercedes "Актрос" который создается по заказу, при этом завод Мерседес-Бенс выпускает один грузовик каждые две минуты.Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0A797E2CDF1D46765DDA072C5FE22A091CFCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912603   (608823) от 27.06.2015
 
 Discovery: Хаос в действии: кадры очевидцев / Chaos cаught on camera (2015) HDTV [H.264/720p] [Серии 1-10 из 10]
@@ -6,7 +110,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608823.jpg" />
+  <img src="Z:/picture/008/save_picture_608823.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608610.jpg" />
+  <img src="Z:/picture/008/save_picture_608610.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608494.jpg" />
+  <img src="Z:/picture/008/save_picture_608494.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608492.jpg" />
+  <img src="Z:/picture/008/save_picture_608492.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608489.jpg" />
+  <img src="Z:/picture/008/save_picture_608489.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608361.jpg" />
+  <img src="Z:/picture/008/save_picture_608361.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Animal Planet: Живой или вымерший. Яванский тигр / E
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608279.jpg" />
+  <img src="Z:/picture/008/save_picture_608279.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Египет с высоты птичьего полета / Egypt from Abov
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608274.jpg" />
+  <img src="Z:/picture/008/save_picture_608274.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608245.jpg" />
+  <img src="Z:/picture/008/save_picture_608245.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607586.jpg" />
+  <img src="Z:/picture/008/save_picture_607586.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTV [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607520.jpg" />
+  <img src="Z:/picture/008/save_picture_607520.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607510.jpg" />
+  <img src="Z:/picture/008/save_picture_607510.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607420.jpg" />
+  <img src="Z:/picture/008/save_picture_607420.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG: Растения - монстры ( Секс, наркотики и раст
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607337.jpg" />
+  <img src="Z:/picture/008/save_picture_607337.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Discovery: 11 Сентября - Звонки из небоскрёбов / 9/11
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607319.jpg" />
+  <img src="Z:/picture/008/save_picture_607319.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607164.jpg" />
+  <img src="Z:/picture/008/save_picture_607164.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607130.jpg" />
+  <img src="Z:/picture/008/save_picture_607130.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606889.jpg" />
+  <img src="Z:/picture/008/save_picture_606889.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606710.jpg" />
+  <img src="Z:/picture/008/save_picture_606710.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013-2014) HD
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606578.jpg" />
+  <img src="Z:/picture/008/save_picture_606578.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013) SATRip 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606571.jpg" />
+  <img src="Z:/picture/008/save_picture_606571.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ BBC. Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606330.jpg" />
+  <img src="Z:/picture/008/save_picture_606330.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ BBC. Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48F8EE80AA30969C4760604B8EA3E2CA1B0F712A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289567   (606000) от 20.04.2019
-
-Discovery. Гигантские хабы / Giant Hubs (2018) HDTVRip (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти каждое путешествие начинается с вокзала или аэропорта. И их посещение само по себе может превратиться в настоящее приключение! Приглашаем вас в крупнейшие пассажирские и грузовые хабы в мире, которые круглый год работают в режиме 24/7! Как наладить работу аэропорта так, чтобы каждый день тысячи пассажиров вовремя вылетали в нужном направлении? Каким образом (   Читать дальше...   )Производство: Германия, Discovery Communications, LLC.Жанр: Документальный, транспорт, обозрениеРежиссер: Леонард ШтайнбихлерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5233B6037C92C0579B2D1EAFF25718C808E68F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525686   (605785) от 22.07.2012
-
-Радужная природа / Rainbow Nature (2008) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605785.jpg" />
-</div>
-
-
-###  Подробнее
-
-На юге Африки течет Оранжевая река, на которой находится один из крупнейших водопадов мира - Ауграбис. В солнечные дни он сверкает радугами в миллионах падающих капельках воды. Но даже в пасмурные дни здесь можно увидеть маленькие радуги - это ящерки, чьи чешуйки пестрят полным набором цветов.Жанр: Документальный, флора, фаунаПеревод: Профессиональный двухголосыйПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EC982F82B49450403FD8C78DA07A9CB0BE00E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546480   (605671) от 24.04.2022
-
-Еда, которая построила Америку / The Food That Built America (2019) WEBRip (сезон 1, серии 1-3 из 3) OmskBird [AD]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мини-сериал расскажет увлекательные истории людей, стоящих за едой, которая построила Америку — тех, кто использовал мозги, мышцы, кровь, пот и слезы, чтобы добраться до сердца Америки через ее желудок, и попутно строил города, изобретал новые технологии и помогал выигрывать войны.Производство: США / History ChannelЖанр: документальный, историяРежиссер: Ник УайтАктеры: Кэмпбелл Скотт, Каан Акиол, Роберт Андерсон, Tim Bensch, Дж. Джон Билер, Джон Блок, Tanner Bluewolf, Стив Боно, Мелани Литтл, Andrew Machleder.Перевод: Многоголосый закадровый (OmskBird)Язык озвучки: русский, английскийСубтитры: русские (Полные в папке)Продолжительность: ~01:25:00 серияРеклама: Присутствуют 2 аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD378F36B1D94E2A239C77CD1CDFE3068246CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546477   (605595) от 24.04.2022
-
-Еда, которая построила Америку / The Food That Built America (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-3 из 3) OmskBird [AD]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мини-сериал расскажет увлекательные истории людей, стоящих за едой, которая построила Америку — тех, кто использовал мозги, мышцы, кровь, пот и слезы, чтобы добраться до сердца Америки через ее желудок, и попутно строил города, изобретал новые технологии и помогал выигрывать войны.Производство: США / History ChannelЖанр: документальный, историяРежиссер: Ник УайтАктеры: Кэмпбелл Скотт, Каан Акиол, Роберт Андерсон, Tim Bensch, Дж. Джон Билер, Джон Блок, Tanner Bluewolf, Стив Боно, Мелани Литтл, Andrew Machleder.Перевод: Многоголосый закадровый (OmskBird)Язык озвучки: русский, английскийСубтитры: русские(Forced, Full), английские (Full, SDH)Продолжительность: ~01:25:00 серияРеклама: Присутствуют 2 аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B205E4AB31228B3D53C3D5BB409D05E31E78214E
 ```
 
 https://mybot314.ru/tekegram_catalog/

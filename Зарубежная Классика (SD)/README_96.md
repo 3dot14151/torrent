@@ -1,3 +1,83 @@
+###  Публикация: 1838919   (261562) от 26.11.2025
+
+Хупер / Hooper (1978) BDRip [MVO
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сонни Хупер - стареющий, но пока еще непревзойденный и незаменимый кинокаскадер. У него появляется молодой и талантливый конкурент - Ски, которому удаются новые, эффектные и сложные трюки. Если объединить опыт Хупера и отчаянность Ски, то от этой парочки можно добиться самых немыслимых результатов - это хорошо понимает режиссер остросюжетного фильма.Производство: США / Lawrence Gordon Productions, Warner Bros.Жанр: боевик, комедияРежиссер: Хэл НидэмАктеры: Берт Рейнолдс, Ян-Майкл Винсент, Салли Филд, Брайан Кит, Джон Марли, Роберт Клейн, Джеймс Бест, Адам Уэст, Элфи Уайз, Терри БрэдшоуПеревод: Многоголосый профессиональный (Т/К Культура)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B46FA90AEF734868EC8099400F8FF0E0F93BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504737   (261339) от 04.06.2012
+
+Таксист / Taxi Driver (1976) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_261339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тусклый свет слепых фонарей, скелеты фабричных труб, задыхающихся в собственном дыму. Вавилонские башни небоскребов, все это — ад Нового времени, Нью-Йорк.
+Ветеран вьетнамской войны Трэйвис Бикл ведет
+свое одинокое такси по ночным улицам бесконечного города, и перед ним разворачивается мрачная панорама человеческих грехов. Как ветхозаветный пророк, он надеется, что (   Читать дальше...   )Производство: США, Bill/Phillips, Columbia Pictures Corporation, Italo/Judeo ProductionsЖанр: Триллер, драма, криминалРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Сибилл Шепард, Джоди Фостер, Харви Кайтел, Питер Бойл, Леонард Харрис, Альберт Брукс, Дайэнн Эбботт, Фрэнк Эду, Джино Ардито, Виктор Арго, Гарт Эйвери, Гарри Кон, Коппер Каннингэм, Бренда Диксон, Гарри Фишлер, Нат Грант, Ричард Хиггс, Бо Кайсер, Виктор Маньотта, Норман Мэтлок, Билл Минкин, Мюррей Мостон, Гарри Нортап, Джин Пальма, Стивен Честер Принц, (   Читать дальше...   )Перевод: Профессиональный (многоголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 1:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27FF6E660D67E3B3E9CAF0980F54E8415021B920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504406   (261330) от 04.06.2012
+
+300 спартанцев / The 300 Spartans (1962) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_261330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: 480 год до нашей эры. Многотысячное войско персов подошло к границам Греции, навстречу захватчикам вышел небольшой отряд воинов из Спарты, во главе с царем Леонидом. Царь Персии Ксеркс предложил спартанцам сложить оружие, но герои решили: "Вместе победить или вместе умереть!". Четыре дня и четыре ночи шло сражение, самая лучшая гвардия - "Бессмертные", (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Рудольф МатэАктеры: Ричард Игэн , Ралф Ричардсон , Дайэн Бэйкер , Барри Коу , Дэвид Фаррар , Доналд ХьюстонПеревод: Многоголосый закадровыйПродолжительность: 01:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1F27B6A5E3D135E5DE09A7E94DCE0685844A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504878   (261263) от 04.06.2012
 
 Воздушные приключения / Those Magnificent Men in Their Flying Machines or How I Flew from London to Paris in 25 hours 11 minutes (1965) HDTVRip
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261263.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261262.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261227.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260957.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260924.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260005.jpg" />
+  <img src="Z:/picture/005/save_picture_260005.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259967.jpg" />
+  <img src="Z:/picture/005/save_picture_259967.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259949.jpg" />
+  <img src="Z:/picture/005/save_picture_259949.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259936.jpg" />
+  <img src="Z:/picture/005/save_picture_259936.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259930.jpg" />
+  <img src="Z:/picture/005/save_picture_259930.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258894.jpg" />
+  <img src="Z:/picture/005/save_picture_258894.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258890.jpg" />
+  <img src="Z:/picture/005/save_picture_258890.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258597.jpg" />
+  <img src="Z:/picture/005/save_picture_258597.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256133.jpg" />
+  <img src="Z:/picture/005/save_picture_256133.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256096.jpg" />
+  <img src="Z:/picture/005/save_picture_256096.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255918.jpg" />
+  <img src="Z:/picture/005/save_picture_255918.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255702.jpg" />
+  <img src="Z:/picture/005/save_picture_255702.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255631.jpg" />
+  <img src="Z:/picture/005/save_picture_255631.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255512.jpg" />
+  <img src="Z:/picture/005/save_picture_255512.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255029.jpg" />
+  <img src="Z:/picture/005/save_picture_255029.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253999.jpg" />
+  <img src="Z:/picture/005/save_picture_253999.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253857.jpg" />
+  <img src="Z:/picture/005/save_picture_253857.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253809.jpg" />
+  <img src="Z:/picture/005/save_picture_253809.jpg" />
 </div>
 
 
@@ -595,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6627A37FE84764223B9A79F42241C5981CF619C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495862   (253510) от 16.05.2012
-
-Спасите Конкорд / Concorde Affaire (1979) DVDRip [Советский дубляж]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конкуренты готовы на все, чтобы не допустить «Конкорд» на мировой рынок. Во время первого испытательного полета белоснежный лайнер по неизвестным причинам падает в воды Карибского моря. Чудом выжившую стюардессу спасают рыбаки. Как только весть доходит до скандально-известного журналиста Мозеса Броди, он вылетает на Антильские острова, чтобы расследовать трагедию. (   Читать дальше...   )Жанр: Боевик, Триллер, ДетективРежиссер: Руджеро Деодато / Ruggero DeodatoАктеры: Вэн Джонсон /Van Johnson/, Джеймс Франческус /James Franciscus/, Джозеф Коттин /Joseph Cotten/, Мариа Фиамма Маглионе /Maria Fiamma Maglione/, Мимси Фармер /Mimsy Farmer/, Эдмунд Пурдом /Edmund Purdom/Перевод: Дублированный (Советский дубляж)Язык субтитров: РусскиеПродолжительность: 01:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADA24B290603E9F30E9440032402961E3084803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495225   (253447) от 16.05.2012
-
-Вексель / La cambiale (1959) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Позалаквалья работают, так сказать, в "адвокатской" конторе, или, проще говоря, свидетелями там, где нужны свидетели. При этом неважно, были они на самом деле на месте там, о чем свидетельствуют или нет. Однажды один из братьев, Чезаре, во время своего очередного свидетельства, получает в уплату вексель на 100000 лир. Типа, время наличных прошло, убеждает финансист, давший этот вексель. Чезаре приносит вексель домой. В тот же день они дают этот вексель в уплату за квартиру домохозяину. Домохозяин покупает за вексель собаку у... Но далее рассказывать сюжет я не буду, а кроме Тото и Пеппино в этом немного фривольном фильме блистают Витторио Гассманн, Уго Тоньяцци, а также Сильва Косчина!Жанр: КомедияРежиссер: Камилло МастрочинкуэАктеры: ТОТО, Пеппино де Филлиппо, Сильва Косчина, Уго Тоньяцци, Витторио Гассманн, Джорджия Молл, Паоло Феррари, Лаура Нуччи, Эрминио Макарио, Луиджи Павезе, Арольдо Тиери, Уго Сассо, Дина Пербеллини, Тони Уччи, Раймондо Вианелло, Мариса Мантовани, Лия Дзоппелли, Андреа Босич, Франка Доминичи, Олимпия Кавалли, Марио КастелланиПеревод: Одноголосый закадровыйПродолжительность: 01:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077DBFAA1D85FC33B2E015C4FC48D86DA803E111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495578   (253417) от 16.05.2012
-
-Страх и арена / Fifa e arena (1948) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромный фармацевт Николино Капече работает в аптеке своей тетушки. Он разработал новое уникальное универсальное медицинское средство и собирается поместить в газете его рекламу вместе со своей фотографией. Когда он отправляется в отпуск, газета с рекламой наконец выходит, но вот незадача: в редакции перепутали фотографии и фото Николино было напечатано рядом с объявлением о розыске опасного маньяка! Николино вынужден скрываться, под видом стюардессы он попадает на самолет, летящий в Севилью, там, шантажируемый мерзавцем, он вынужден выдавать себя за известного тореадора с целью жениться на богатой Патриции. Но он совсем не думал, что ему на самом деле придется сразиться с быком!Жанр: КомедияРежиссер: Марио МаттолиАктеры: ТOTO, Иза Барцицца, Марио Кастеллани, Франко Марца, Джулио Маркетти, Луиджи ПавезеПеревод: Одноголосый закадровыйПродолжительность: 01:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B89ECCD48E1358A1EB77802FED6A84D206E77B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

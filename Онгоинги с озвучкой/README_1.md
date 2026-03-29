@@ -6,7 +6,7 @@
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1544.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1531.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1382.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1377.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1229.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1098.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1084.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1071.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1061.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_888.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126.jpg" />
 </div>
 
 

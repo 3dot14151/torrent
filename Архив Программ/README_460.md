@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802706.jpg" />
+  <img src="Z:/picture/008/save_picture_802706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10051 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802664.jpg" />
+  <img src="Z:/picture/008/save_picture_802664.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Video to Flash 6.8.1.467 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802653.jpg" />
+  <img src="Z:/picture/008/save_picture_802653.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Soft4Boost Document Converter 6.3.3.473 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802649.jpg" />
+  <img src="Z:/picture/008/save_picture_802649.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Soft4Boost Any Uninstaller 8.8.5.579 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_802645.jpg" />
+  <img src="Z:/picture/005/save_picture_802645.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Unity Pro 2019.3.14f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802637.jpg" />
+  <img src="Z:/picture/008/save_picture_802637.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802629.jpg" />
+  <img src="Z:/picture/008/save_picture_802629.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Files Inspector Pro 3.15 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802626.jpg" />
+  <img src="Z:/picture/008/save_picture_802626.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802623.jpg" />
+  <img src="Z:/picture/008/save_picture_802623.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ NIUBI Partition Editor 7.6.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802613.jpg" />
+  <img src="Z:/picture/008/save_picture_802613.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ CompactGUI 2.4.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802595.jpg" />
+  <img src="Z:/picture/008/save_picture_802595.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Krita 3.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802592.jpg" />
+  <img src="Z:/picture/008/save_picture_802592.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Viber 7.9.5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802584.jpg" />
+  <img src="Z:/picture/008/save_picture_802584.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Microsoft Visual Studio 2019 Community 16.5.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802543.jpg" />
+  <img src="Z:/picture/008/save_picture_802543.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ GeoGebra 6.0.583.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802540.jpg" />
+  <img src="Z:/picture/008/save_picture_802540.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ AnyBurn 5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802539.jpg" />
+  <img src="Z:/picture/008/save_picture_802539.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Microsoft Visual Studio 2019 Professional 16.5.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802536.jpg" />
+  <img src="Z:/picture/008/save_picture_802536.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Telegram Desktop 2.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802535.jpg" />
+  <img src="Z:/picture/008/save_picture_802535.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802532.jpg" />
+  <img src="Z:/picture/008/save_picture_802532.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Google Chrome 83.0.4103.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802521.jpg" />
+  <img src="Z:/picture/008/save_picture_802521.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ CrystalDiskInfo 8.12.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802499.jpg" />
+  <img src="Z:/picture/008/save_picture_802499.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ashampoo UnInstaller 10.00.13 (DC 25.10.2021) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802498.jpg" />
+  <img src="Z:/picture/008/save_picture_802498.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Audacity 3.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802494.jpg" />
+  <img src="Z:/picture/008/save_picture_802494.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ PDF24 Creator 10.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802493.jpg" />
+  <img src="Z:/picture/008/save_picture_802493.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Nox App Player 6.0.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802486.jpg" />
+  <img src="Z:/picture/008/save_picture_802486.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Ummy Video Downloader 1.8.3.3 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802482.jpg" />
+  <img src="Z:/picture/008/save_picture_802482.jpg" />
 </div>
 
 

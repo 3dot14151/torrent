@@ -1,3 +1,110 @@
+###  Публикация: 1525271   (130097) от 19.01.2022
+
+AnyTrans for iOS 8.9.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130097.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счёта и так же просто вытащить их оттуда.
+AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2022 iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4AA4173199464449BB655B2C6C4EF2200490DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525246   (130091) от 19.01.2022
+
+Sketch 82 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63F63B05273315609F6F24C0A0663FC8B0245E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525157   (130053) от 19.01.2022
+
+Aiseesoft Mac Video Enhancer 9.2.26 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Mac Video Enhancer - новый продукт от компании Aiseesoft. Позволяет существенно улучшить качество видео, повысить разрешение видео, удалить фоновый шум, повернуть или зеркально отразить видео, вырезать части ролика и добавить водяной знак.
+Возможности Video Enhancer:
+• Повысить разрешение видео. Это мощное программное обеспечение может повысить разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2022Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A72988F0991761B1CF5C0488E0EAA0A6548A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525185   (130042) от 19.01.2022
+
+DoYourData Start Menu Pro 4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее меню «Пуск» для Mac - на вашем Mac все будет просто и быстро. OS X или macOS немного сложнее, чем ОС Windows для обычных пользователей. Теперь, с помощью DoYourData Start Menu для Mac, вы можете легко управлять своим Mac, как и в меню «Пуск» Windows.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160F21E880C73973BD02CE2A0995E73EEFD045F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525048   (130038) от 19.01.2022
 
 Nova 8.4 [En]
@@ -6,7 +113,7 @@ Nova 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130038.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ iStatistica Pro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130024.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Donemax DMmenu 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130012.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ SnippetsLab 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129987.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129984.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Dropzone 4 Pro v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129960.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ MarkMyWords 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129957.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129956.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ One Switch 1.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129954.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ Smooze Pro 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129951.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ Artstudio Pro 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129949.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129948.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ Action 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129943.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ AYVY 1.18.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129940.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ Boxy SVG 3  v3.75.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129937.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ Pixelmator Pro 2.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129720.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ Mirror for Android TV 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129608.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ PDF Reader Pro Edition 2.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129602.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ App Cleaner & Uninstaller Pro 7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129591.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ Duplicate File Finder Pro 6 v6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129551.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ Disk Space Analyzer Pro 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129549.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ Bootstrap Studio 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129534.jpg" />
 </div>
 
 
@@ -573,112 +680,6 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C763D0353B7DE812D45D43F574DE52BCCB88EC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525486   (129524) от 20.01.2022
-
-MacCleaner 2 PRO 2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очистите Mac и оптимизируйте его производительность. Ускорьте медленный Mac, освободите место на диске, удалите ненужные файлы, предотвратите ошибку «Startup Disk Full».Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561A853780D80574B69D22F3C0E91693CD94AB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525501   (129519) от 20.01.2022
-
-UctoX 2 v2.8.15 U2B [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129519.jpg" />
-</div>
-
-
-###  Подробнее
-
-UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
-Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
-Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE6F53048A47499B68CBA9A927A6CD1B9F67FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525384   (129510) от 20.01.2022
-
-File List Export 2.7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129510.jpg" />
-</div>
-
-
-###  Подробнее
-
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 Giorgos TrigonakisПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F796E13EBD82FE47399EE7B5591CD683671C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525452   (129503) от 20.01.2022
-
-App Tamer 2 v2.6.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129503.jpg" />
-</div>
-
-
-###  Подробнее
-
-При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AC83CC5A4551CB5E9E2E299ED53F8E0360EC49
 ```
 
 https://mybot314.ru/tekegram_catalog/

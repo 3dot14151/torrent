@@ -1,3 +1,81 @@
+###  Публикация: 1449410   (237583) от 21.02.2021
+
+Сто к одному (21.02.2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E80138FEFA045EBA46608E1ED328134F79B73A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626697   (237576) от 15.04.2023
+
+Своя игра (15.04.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C8DE9170B72E79A65A48BF778941C4C19ADDC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606345   (237428) от 21.01.2023
+
+Пятеро на одного (21.01.2023) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243E1C3B2ABF46FA6214C5091ED6CD3FA384CE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502884   (237381) от 16.10.2021
 
 Сто к одному (16.10.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237381.jpg" />
+  <img src="Z:/picture/005/save_picture_237381.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237355.jpg" />
+  <img src="Z:/picture/005/save_picture_237355.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237238.jpg" />
+  <img src="Z:/picture/005/save_picture_237238.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237049.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237014.jpg" />
+  <img src="Z:/picture/005/save_picture_237014.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237010.jpg" />
+  <img src="Z:/picture/005/save_picture_237010.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236839.jpg" />
+  <img src="Z:/picture/005/save_picture_236839.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236829.jpg" />
+  <img src="Z:/picture/005/save_picture_236829.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236812.jpg" />
+  <img src="Z:/picture/005/save_picture_236812.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236796.jpg" />
+  <img src="Z:/picture/005/save_picture_236796.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236783.jpg" />
+  <img src="Z:/picture/005/save_picture_236783.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236707.jpg" />
+  <img src="Z:/picture/005/save_picture_236707.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236625.jpg" />
+  <img src="Z:/picture/005/save_picture_236625.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236587.jpg" />
+  <img src="Z:/picture/005/save_picture_236587.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236516.jpg" />
+  <img src="Z:/picture/005/save_picture_236516.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236083.jpg" />
+  <img src="Z:/picture/005/save_picture_236083.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235993.jpg" />
+  <img src="Z:/picture/005/save_picture_235993.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235986.jpg" />
+  <img src="Z:/picture/005/save_picture_235986.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235855.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235618.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235600.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235385.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235359.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13E85A0CF8E9F7D1C38638F748C4A6D1091DEE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530714   (235334) от 12.02.2022
-
-Сто к одному (12.02.2022) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3505F8BCAC11BD2477A9377C6946B24A23558FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530764   (235320) от 12.02.2022
-
-Пятеро на одного (12.02.2022) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA410FEBCF468F66ADB9C991C3A4A36F197F882D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619904   (235229) от 18.03.2023
-
-Пятеро на одного (18.03.2023) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE6C7685DB304CE39AFE74BDA68216B33F0EEBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

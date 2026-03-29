@@ -1,3 +1,29 @@
+###  Публикация: 1141685   (647955) от 11.06.2017
+
+Проекты - VideoHive - Dynamic Opener - 19622485 [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647955.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Dynamic Opener» включает два современных шаблона для After Effects. Они отлично подойдут для создания динамичного вступительного ролика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09D8E42739CBC06172CF0759DF9DAC914AD9CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032081   (647263) от 06.07.2016
 
 Проекты - VideoHive - Memory Tree Slideshow [AEP]
@@ -6,7 +32,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647263.jpg" />
+  <img src="Z:/picture/008/save_picture_647263.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647127.jpg" />
+  <img src="Z:/picture/008/save_picture_647127.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647011.jpg" />
+  <img src="Z:/picture/008/save_picture_647011.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646381.jpg" />
+  <img src="Z:/picture/008/save_picture_646381.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645442.jpg" />
+  <img src="Z:/picture/008/save_picture_645442.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645358.jpg" />
+  <img src="Z:/picture/008/save_picture_645358.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645041.jpg" />
+  <img src="Z:/picture/008/save_picture_645041.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644262.jpg" />
+  <img src="Z:/picture/008/save_picture_644262.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644180.jpg" />
+  <img src="Z:/picture/008/save_picture_644180.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644154.jpg" />
+  <img src="Z:/picture/008/save_picture_644154.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644145.jpg" />
+  <img src="Z:/picture/008/save_picture_644145.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ VideoHive - Moments in Time - 7001397 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644143.jpg" />
+  <img src="Z:/picture/008/save_picture_644143.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644053.jpg" />
+  <img src="Z:/picture/008/save_picture_644053.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Revostock - Cubomania 1 - 66550 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643787.jpg" />
+  <img src="Z:/picture/008/save_picture_643787.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643689.jpg" />
+  <img src="Z:/picture/008/save_picture_643689.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643567.jpg" />
+  <img src="Z:/picture/008/save_picture_643567.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643536.jpg" />
+  <img src="Z:/picture/008/save_picture_643536.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643456.jpg" />
+  <img src="Z:/picture/008/save_picture_643456.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642961.jpg" />
+  <img src="Z:/picture/008/save_picture_642961.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ VideoHive - Photo Gallery - 7229309 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642065.jpg" />
+  <img src="Z:/picture/008/save_picture_642065.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641683.jpg" />
+  <img src="Z:/picture/008/save_picture_641683.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641565.jpg" />
+  <img src="Z:/picture/008/save_picture_641565.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639939.jpg" />
+  <img src="Z:/picture/008/save_picture_639939.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639044.jpg" />
+  <img src="Z:/picture/008/save_picture_639044.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638823.jpg" />
+  <img src="Z:/picture/008/save_picture_638823.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ History - проект который поможет легко создать �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7AEB08375D39897CFB6A869CC4676F9CAE92E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293270   (638815) от 02.04.2019
-
-Проекты - VideoHive - Opener - 13684861 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opener - оригинальный проект для создания вступительного видео.
-Автор проекта: StenLogoФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A003D58109B6A88C5F467F7D976056030435AC99
 ```
 
 https://mybot314.ru/tekegram_catalog/

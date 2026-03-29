@@ -1,3 +1,81 @@
+###  Публикация: 1290405   (678338) от 20.03.2019
+
+И. И. Толстой (отв. ред.) | Записки Юлия Цезаря (1948) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь книг "Записок" о Галльской войне (58-52 гг. до н. э.) и три книги о гражданской войне (49-48 гг. до н. э.) были написаны самим Цезарем (102 или 100-44 до н. э.), VIII книга о Галльской войне и книги об Александрийской и Африканской войнах (47-46 гг. до н. э.) - военачальниками его штаба; отсюда необычное обозначение автора. М. М. Покровский подчеркивал (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1733D6D3F0E968C67B3A76761BCA1B6946F74FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290482   (678335) от 20.03.2019
+
+Ладислас Фараго | История шпионажа времен второй Мировой войны (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ладислас Фараго, бывший начальник отдела исследований и планирования в специальном военном подразделении ВМС США, автор нескольких книг по шпионажу, предлагает захватывающую картину всего спектра тайной деятельности, различных форм разведки секретных служб стран – участниц Второй мировой войны. Результатом действий агентов спецслужб, проводивших разведывательные (   Читать дальше...   )Жанр: Биографии и мемуары, Военное дело/спецслужбы, Зарубежная публицистикаПеревод: Александр УткинФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A880DF8430A4FC6C4817C756F6B508FB3BEF3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135962   (676985) от 21.05.2017
+
+Валерий Могильницкий | В долине слез. О великих узниках Карлага (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга В. М. Могильницкого посвящена жертвам сталинских репрессий. Перед читателями открывается целая галерея ярких, выдающихся личностей, судьбы которых были сломаны страшной машиной по уничтожению людей. Открытость стиля автора, доступность изложения делают книгу интересной широкому кругу читателей.Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08ADF6159F15794181BB11EA018745D33EABCC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136446   (674904) от 22.05.2017
 
 Дмитрий Дрозд | Бунт Ботаников (2017) [PDF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674904.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ C. И. Мицкевич | Революционная Москва [1888-1905] (1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673423.jpg" />
+  <img src="Z:/picture/008/save_picture_673423.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672982.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672461.jpg" />
 </div>
 
 
@@ -116,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671529.jpg" />
+  <img src="Z:/picture/008/save_picture_671529.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670844.jpg" />
+  <img src="Z:/picture/008/save_picture_670844.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670839.jpg" />
+  <img src="Z:/picture/008/save_picture_670839.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670485.jpg" />
+  <img src="Z:/picture/008/save_picture_670485.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670254.jpg" />
+  <img src="Z:/picture/008/save_picture_670254.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670245.jpg" />
+  <img src="Z:/picture/008/save_picture_670245.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669393.jpg" />
+  <img src="Z:/picture/008/save_picture_669393.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668436.jpg" />
+  <img src="Z:/picture/008/save_picture_668436.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668177.jpg" />
+  <img src="Z:/picture/008/save_picture_668177.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666011.jpg" />
+  <img src="Z:/picture/008/save_picture_666011.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665892.jpg" />
+  <img src="Z:/picture/008/save_picture_665892.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664374.jpg" />
+  <img src="Z:/picture/008/save_picture_664374.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662327.jpg" />
+  <img src="Z:/picture/008/save_picture_662327.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662321.jpg" />
+  <img src="Z:/picture/008/save_picture_662321.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662119.jpg" />
+  <img src="Z:/picture/008/save_picture_662119.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661946.jpg" />
+  <img src="Z:/picture/008/save_picture_661946.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661885.jpg" />
+  <img src="Z:/picture/008/save_picture_661885.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661883.jpg" />
+  <img src="Z:/picture/008/save_picture_661883.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661825.jpg" />
+  <img src="Z:/picture/008/save_picture_661825.jpg" />
 </div>
 
 
@@ -602,88 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:228F50E8E781D560E781C90683080CE309B4C40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902717   (660029) от 29.05.2015
-
-Олег Ершов | Витрувианский Человек или Загадки Вселенной (2015) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная теория была создана на основе знаменитого рисунка Великого Леонардо да Винчи. Это изображение и вообще вся теория о бесконечности жизни пришли автору во сне, где он увидел данное изображение в виде объёмной скульптуры, которая содержит в себе все символы всех вероисповеданий. Пройдет время, и, возможно, ученые разных стран подтвердят данную теорию. Время – (   Читать дальше...   )Жанр: Публицистика: прочееФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7EDEDE52BA4694F1B08069B8068CA8871E5D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902711   (660015) от 29.05.2015
-
-Владимир Квачков | Спецназ России (2015) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автором анализируется история, теория и практика специальных действий в военном искусстве дореволюционной России (начиная от доордынских времён), в советское время. Целый раздел («Теория специальных операций») посвящён современному состоянию дел в этой отрасли военного искусства.
-
-Многие книги Квачкова уже стали бестселлерами.Жанр: Публицистика: прочее, Военное дело, спецслужбыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81783220D91098327F02160451E3B6CB2C794E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225600   (659572) от 16.05.2018
-
-Владимир Бушин | Пятый сезон Путина. Шоу продолжается… (2018) [FB2]
-
->>След.
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Сергеевич Бушин, автор более пятидесяти книг, многие из которых стали бестселлерами, представляет вашему вниманию свое новое публицистическое произведение. Оно отличается свойственными автору меткостью наблюдений, остроумием и сарказмом в оценках высшего руководства России.
-
-Главным героем книги является Владимир Путин, который начинает свой «пятый сезон» (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0C583BA747819D64F0D5662F22B1C8707AB61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

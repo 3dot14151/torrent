@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249497.jpg" />
+  <img src="Z:/picture/004/save_picture_249497.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Zmey Gorynich - Странствiя Рукоблуда и сестры его М
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248592.jpg" />
+  <img src="Z:/picture/004/save_picture_248592.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jane Air - 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248590.jpg" />
+  <img src="Z:/picture/004/save_picture_248590.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247456.jpg" />
+  <img src="Z:/picture/004/save_picture_247456.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246747.jpg" />
+  <img src="Z:/picture/004/save_picture_246747.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246139.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245966.jpg" />
+  <img src="Z:/picture/004/save_picture_245966.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Forces United - Hits From Metal Musicals vol.3 (2023) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245558.jpg" />
+  <img src="Z:/picture/004/save_picture_245558.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245419.jpg" />
+  <img src="Z:/picture/004/save_picture_245419.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245404.jpg" />
+  <img src="Z:/picture/004/save_picture_245404.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245352.jpg" />
+  <img src="Z:/picture/004/save_picture_245352.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245186.jpg" />
+  <img src="Z:/picture/004/save_picture_245186.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Re-Animator - Re-Animator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245130.jpg" />
+  <img src="Z:/picture/004/save_picture_245130.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Forces United - Hits From Metal Musicals vol.2 (2022) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244994.jpg" />
+  <img src="Z:/picture/004/save_picture_244994.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244918.jpg" />
+  <img src="Z:/picture/004/save_picture_244918.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244903.jpg" />
+  <img src="Z:/picture/004/save_picture_244903.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Wildways - Симптомы (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244685.jpg" />
+  <img src="Z:/picture/004/save_picture_244685.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244645.jpg" />
+  <img src="Z:/picture/004/save_picture_244645.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244520.jpg" />
+  <img src="Z:/picture/004/save_picture_244520.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Insidious One - Н​и​ч​т​о​ж​е​с​т​в​о (2023) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244429.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Sweetlee - К​р​у​г р​а​з​у​м​а (2023) EP [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244357.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244209.jpg" />
+  <img src="Z:/picture/004/save_picture_244209.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244201.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243905.jpg" />
+  <img src="Z:/picture/004/save_picture_243905.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243773.jpg" />
+  <img src="Z:/picture/004/save_picture_243773.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243696.jpg" />
+  <img src="Z:/picture/004/save_picture_243696.jpg" />
 </div>
 
 

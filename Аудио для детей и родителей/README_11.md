@@ -1,3 +1,90 @@
+###  Публикация: 604162   (996655) от 16.01.2013
+
+Rockabye Baby! - Lullaby Renditions of Red Hot Chili Peppers (2012) [MP3|320 кб/с]<Колыбельные для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Bridge
+02. Scar Tissue
+03. Snow (Hey Oh)
+04. Dani California(   Читать дальше...   )Жанр: Колыбельные для детейПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87C0761E23ADB7336D8AF4373DD3241DB408635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604132   (996653) от 16.01.2013
+
+VA - Песни для детей (2010) [MP3|320 кб/с]<Песни для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996653.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бу-ра-ти-но
+2. Вместе весело шагать
+3. Мария-Мирабелла
+4. Песня Лисы Алисы и Кота Базилио(   Читать дальше...   )Жанр: Песни для детейПродолжительность: 02:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC6DD7A621F0AA8CA0BA3A571BDC9BE5A95ABF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604723   (996003) от 18.01.2013
+
+Джоэль Харрис | Сказки дядюшки Римуса (2013) [MP3, Н. Литвинов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прослушайте веселые сказки дядюшки Римуса о забавных приключениях Братца Кролика, Братца Лиса, Братца Волка и других зверей. Эти сказки, полные юмора, фантазии и мудрости, давно полюбились детям всего мира.Содержание:
+История о том, как Братец Лис чуть не поймал Братца Кролика с помощью смоляного чучелка
+История о том, как Братец Кролик отомстил Братцу Лису, использовав его как верховую лошадь
+История о том, как Братец Кролик хитростью присвоил пойманную Братцем Лисом рыбу(   Читать дальше...   )Жанр: СказкиИздательство: Гостелерадиофонд, Звуковая книгаПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EB472FF75C884A8D1A89454A64ED54C1C3A592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606211   (995457) от 20.01.2013
 
 VA - Бибика (2012) [MP3|~202 кб/с]<Детские песенки и музыка>
@@ -6,7 +93,7 @@ VA - Бибика (2012) [MP3|~202 кб/с]<Детские песенки и м�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995457.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992232.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Михаил Казиник - Музыка для мамы, которая 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992162.jpg" />
 </div>
 
 
@@ -90,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991975.jpg" />
 </div>
 
 
@@ -116,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991938.jpg" />
 </div>
 
 
@@ -145,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991560.jpg" />
 </div>
 
 
@@ -174,7 +261,7 @@ Barbara Bailey Hutchison - Bedtime Lullabies From Johnson's (2006) [MP3|320 kbps
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990977.jpg" />
 </div>
 
 
@@ -203,7 +290,7 @@ Bronn Journey - Harp For Baby (2011) [MP3|320 kbps]<Детская музыка/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990843.jpg" />
 </div>
 
 
@@ -232,7 +319,7 @@ Midori - Sleepy Time (2011) [MP3|320 kbps]<Детская музыка/ Relax>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990833.jpg" />
 </div>
 
 
@@ -259,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990802.jpg" />
 </div>
 
 
@@ -285,7 +372,7 @@ VA - Piano Portraits Lullaby (2009) [MP3|320 kbps]<Детская музыка/ 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990717.jpg" />
 </div>
 
 
@@ -314,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989838.jpg" />
 </div>
 
 
@@ -340,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989820.jpg" />
 </div>
 
 
@@ -367,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989052.jpg" />
 </div>
 
 
@@ -394,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988611.jpg" />
 </div>
 
 
@@ -420,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988013.jpg" />
 </div>
 
 
@@ -446,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987395.jpg" />
 </div>
 
 
@@ -472,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987025.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986775.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986553.jpg" />
 </div>
 
 
@@ -551,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985538.jpg" />
 </div>
 
 
@@ -577,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985403.jpg" />
 </div>
 
 
@@ -604,7 +691,7 @@ VA - Real Kid's Music 2 (2009) [MP3|224 kbps]<Детские песни и ми�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985136.jpg" />
 </div>
 
 
@@ -618,99 +705,6 @@ VA - Real Kid's Music 2 (2009) [MP3|224 kbps]<Детские песни и ми�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D391B50A9BED7B603FD66CC62F38D25C405816F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163853   (985086) от 08.01.2010
-
-Смешарики- Песни из мультфильма. Выпуск 1. (2009) [MP3|320kbps]
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985086.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.От винта
-2.Марафонец
-3.Бедненький больной
-4.Право на одиночество
-5.Куда уходит старый год?
-6.Славный город Кострома
-7.Песенка о моде
-8.Вести-бу-би-лю-би-бу
-9.Новогодняя колыбельная
-10.Мнем мы мнем(   Дальше...)Жанр: Soundtrack
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355156   (984914) от 25.01.2020
-
-Андрей Варламов & Шоу-группа Улыбка - 100% Детский Хит (Выпуск 3) (2019) [MP3|320 Kbps] <Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На детской площадке (feat. Андрей Варламов)
-2. Люблю я грозы
-3. Цветные дожди
-4. Ночное рандеву(   Читать дальше...   )Жанр: Детские песниПродолжительность: 03:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8878AA0745E29F1F409E4D28D4F4EC43F0AD8551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355153   (984913) от 25.01.2020
-
-Волшебники двора - Шла Саша по шоссе (2020) [MP3|320 Kbps] <Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984913.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Шла Саша по шоссе
-3. Новогодние снежинки
-4. Плакали зверушки(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77F19348AB9D3CB232BFBBEAE3A2ADB18C2E64B
 ```
 
 https://mybot314.ru/tekegram_catalog/

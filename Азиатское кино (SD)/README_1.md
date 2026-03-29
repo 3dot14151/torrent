@@ -1,3 +1,29 @@
+###  Публикация: 1611781   (1040835) от 13.02.2023
+
+Солнечный спуск / Дорога, освещенная солнцем / Hi no ataru sakamichi / A Slope in the Sun (1958) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040835.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному произведению Ёдзиро Исидзуки, чьи работы экранизировали уже 78 раз. Сюжет основан на тайнах состоятельной семьи Тасиро, в которой воспитывается дочь и два сына. Ни для кого не секрет, что младший сын Синдзи рожден от связи отца семейства с гейшей. Свидетелем семейных драм становится Такако Курамото, которую наняли в качестве репетитора для дочери, (   Читать дальше...   )Производство: Япония / Nikkatsu CorporationЖанр: драмаРежиссер: Томотака ТасакаАктеры: Юдзиро Исихара, Миэ Китахара, Идзуми Асикава, Юдзи Одака, Корэя Сэнда, Юкико Тодороки, Хисако ЯманэПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 03:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62760FB919DFF14862C06441BD0E16D050D164F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438803   (1040484) от 10.01.2021
 
 Империя чувств (Коррида любви) / Ai no korida / In the Realm of the Senses (1976) BDRip
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040484.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040483.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040339.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039826.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039287.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039073.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038741.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038476.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038191.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038075.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037980.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037111.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036492.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035966.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035703.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035589.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035512.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035151.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035064.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034896.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034752.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034603.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034372.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033692.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033668.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B207148395965BAB3596C31F688A3CE4CF2BC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445392   (1033641) от 05.02.2021
-
-Небесный огонь / Skyfire (2019) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё ребенком Сяомэн увидела гибель мамы в облаке пепла на одном из островов Тихоокеанского вулканического огненного кольца. Девушка выросла и пошла по стопам родителей — стала сейсмологом, правда, с отцом после того трагического случая отношения так и не наладились. С командой учёных Сяомэн приезжает на тот самый злосчастный остров, чтобы установить новую систему (   Читать дальше...   )Производство: Китай / Meridian Entertainment, Base FX, Gosdom EntertainmentЖанр: Боевик, триллер, драмаРежиссер: Саймон УэстАктеры: Ханна Куинливан, Шон Доу, Сюэци Ван, Вивиан, Цзи Линчэнь, Джейсон Айзекс, Ши Лян, Лоуренс де Стефано, Хоу Тунцзян, Оуэн КвонгПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CA1C3C0DF81288F4BEEA413F16D8A954B5D2A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

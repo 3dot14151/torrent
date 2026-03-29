@@ -1,3 +1,85 @@
+###  Публикация: 1509876   (792931) от 14.11.2021
+
+Эми Тимберлейк | Скунс и Барсук (2021) [MP3, Игорь Князев]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могут ли две противоположности стать настоящими друзьями?
+Барсук живёт в большом доме из красного кирпича. У него Важная Камнеработа и ни минуты свободного времени. А ещё он не любит беспорядок и непрошенных гостей. Но в какой-то момент его жизнь совершенно меняется. Ведь в дверь его дома из красного кирпича постучал Скунс. Вместе с ним начали появляться и другие (   Читать дальше...   )Жанр: Детская прозаПеревод: с англ. Анна Дивавина, Екатерина ЮнгерПродолжительность: 03:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAF9AF7B302C855F87EB663E1D212D372DA557B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387144   (792642) от 31.05.2020
+
+Дмитрий Воскресенский - Сырная луна (2011) [MP3|256 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792642.jpg" />
+</div>
+
+
+###  Подробнее
+
+1+/-10. Сырная луна
+2+/-11. Винни-пух
+3+/-12. День рождения носорожика
+4+/-13. Удивительные гномики(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601BC7707AF942C1BC83903B7211C395DF516167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387064   (792575) от 31.05.2020
+
+Наталья Широкова | Волшебные сказки о детях-героях (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792575.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли 30 сказок, в основе которых лежат реальные истории подвигов и добрых поступков современных детей. Своими примерами они доказывают: героем можно стать без магии и суперспособностей, если быть неравнодушным. Книгу выпустила команда проекта «Подвиги обычных людей».Жанр: детские рассказы, сказкиПродолжительность: 03:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0598BFED8CB80166CB7CF7C1849F348AEEEA9EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387135   (792469) от 31.05.2020
 
 VA - The Mozart Effect - Music for Children, Vol.1 Tune Up Your Mind (1997) [MP3|320 Kbps]<Детская, Классика>
@@ -6,7 +88,7 @@ VA - The Mozart Effect - Music for Children, Vol.1 Tune Up Your Mind (1997) [MP3
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792469.jpg" />
+  <img src="Z:/picture/008/save_picture_792469.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791853.jpg" />
+  <img src="Z:/picture/008/save_picture_791853.jpg" />
 </div>
 
 
@@ -64,7 +146,7 @@ VA - The Mozart Effect - Music for Babies, Vol.2 Nighty Night (2000) [MP3|320 Kb
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791792.jpg" />
+  <img src="Z:/picture/008/save_picture_791792.jpg" />
 </div>
 
 
@@ -93,7 +175,7 @@ VA - Сlassics fur mein Bаby (4CD) (2008) [FLAC|Lossless]<Classical>
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791741.jpg" />
+  <img src="Z:/picture/008/save_picture_791741.jpg" />
 </div>
 
 
@@ -122,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791078.jpg" />
+  <img src="Z:/picture/008/save_picture_791078.jpg" />
 </div>
 
 
@@ -149,7 +231,7 @@ VA - The Mozart Effect - Music for Children, Vol.2 Relax, Daydream, & Draw (1997
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790047.jpg" />
+  <img src="Z:/picture/008/save_picture_790047.jpg" />
 </div>
 
 
@@ -178,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787632.jpg" />
+  <img src="Z:/picture/008/save_picture_787632.jpg" />
 </div>
 
 
@@ -204,7 +286,7 @@ Oбработка Александра Афанасьева | Русские н�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787386.jpg" />
+  <img src="Z:/picture/008/save_picture_787386.jpg" />
 </div>
 
 
@@ -230,7 +312,7 @@ Stephan North - Pregnancy (2001) [MP3|320 Kbps]<Детская музыка, Rel
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786767.jpg" />
+  <img src="Z:/picture/008/save_picture_786767.jpg" />
 </div>
 
 
@@ -259,7 +341,7 @@ Jim Brickman - Piano Lullabies - Baby's Bedtime Favorites (2012) [MP3|320 Kbps]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786744.jpg" />
+  <img src="Z:/picture/008/save_picture_786744.jpg" />
 </div>
 
 
@@ -288,7 +370,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Lynyrd Skynyrd (2015) [MP
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786589.jpg" />
+  <img src="Z:/picture/008/save_picture_786589.jpg" />
 </div>
 
 
@@ -317,7 +399,7 @@ VA - Избранные классические произведения (2011)
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786554.jpg" />
+  <img src="Z:/picture/008/save_picture_786554.jpg" />
 </div>
 
 
@@ -346,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786341.jpg" />
+  <img src="Z:/picture/008/save_picture_786341.jpg" />
 </div>
 
 
@@ -372,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785599.jpg" />
+  <img src="Z:/picture/008/save_picture_785599.jpg" />
 </div>
 
 
@@ -398,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785164.jpg" />
+  <img src="Z:/picture/008/save_picture_785164.jpg" />
 </div>
 
 
@@ -427,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785163.jpg" />
+  <img src="Z:/picture/008/save_picture_785163.jpg" />
 </div>
 
 
@@ -456,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785160.jpg" />
+  <img src="Z:/picture/008/save_picture_785160.jpg" />
 </div>
 
 
@@ -485,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785158.jpg" />
+  <img src="Z:/picture/008/save_picture_785158.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784889.jpg" />
 </div>
 
 
@@ -543,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784783.jpg" />
 </div>
 
 
@@ -572,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784781.jpg" />
 </div>
 
 
@@ -601,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784592.jpg" />
 </div>
 
 
@@ -630,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784590.jpg" />
 </div>
 
 
@@ -644,90 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:571D98D1A497B96D2B5D27A37AB5AA9B4638D9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389404   (784585) от 10.06.2020
-
-Джеймс Олдридж | Последний дюйм (1987) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Олдридж рассказал замечательную историю о мальчике и его отце - об их отношениях, о судьбах и о тех подвигах, на которые они оба способны. Пронзительный рассказ, который побуждает посмотреть на детей с немного другой стороны, выйдя за рамки обыденности.Жанр: ПриключенияПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAE437FA71762B3A6A5714E291834315DE90DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389637   (784126) от 11.06.2020
-
-Владимир Львовский - Новогодний сундучок (2008) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-10. Праздник счастья и добра
-02+/-11. Пусть приходит Новый год
-03+/-12. В новогоднюю сказку поверь
-04+/-13. В Лапландии дальней(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FDF2D48FB74418AB3DAD838B74A9CDD1555608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389631   (784125) от 11.06.2020
-
-Владимир Львовский - Новогодний бал (2008) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-09. Новогодний будет бал
-02+/-10. Марсианский Новый год
-03+/-11. Новогодние часы
-04+/-12. Новогодние свечи(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2D24431758B7CD06F15B2F468153D61FB1E1BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

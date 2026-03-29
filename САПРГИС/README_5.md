@@ -1,3 +1,57 @@
+###  Публикация: 1587020   (193166) от 29.10.2022
+
+CADbro 2023 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_193166.jpg" />
+</div>
+
+
+###  Подробнее
+
+CADbro - полнофункциональный и экономичный просмотрщик 3D-моделей различных форматов c функциями анализа, проверки, редактирования модели и добавления комментариев, инструментами автоматического исправления геометрии и подготовки дизайна пресс-форм. CADbro позволяет проводить эффективную совместную работу над проектом различным отделам организации, таким как инженерные, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EEE97B5E19A65DE9B257DF6E3DA5CC50888A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587246   (192873) от 30.10.2022
+
+ZWMeshWorks 2022 SP3 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192873.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZWMeshWorks, платформа CAE от ZWSOFT с готовыми пред и постпроцессорами, была выпущена для разработчиков решателей, позволяя им интегрировать свои многодисциплинарные решатели и обеспечивая гибкую настройку программного обеспечения CAE.
+
+Благодаря возможностям моделирования благодаря ядру Overdrive, передовым технологиям построения сетки и полным функциям предварительной (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DC12F135EA92AE6A6B5E1B45C67091976DA478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588062   (191743) от 03.11.2022
 
 KLayout 0.27.12 + (standalone) [En]
@@ -6,7 +60,7 @@ KLayout 0.27.12 + (standalone) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191743.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Keysight WaferPro Express 2016.04 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172639.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Keysight Model Builder Program 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172631.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Keysight Model Quality Assurance 2019 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172627.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Keysight IC-CAP 2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172622.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ CSoft PlanTracer Техплан Pro 8.0.3016.1703.825 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165743.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ ESRI ArcGIS Desktop 10.8 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165630.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ COMSOL Multiphysics 6.3 Build 290 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161966.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ RAM cube 3.21.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160540.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ QuarkXPress 2024 20.0.57094 (x64) Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153912.jpg" />
 </div>
 
 
@@ -267,7 +321,7 @@ Altair EDEM Professional 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147025.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ CADlogic Draft IT 5.0.15 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134489.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ Altair HW FEKO 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134146.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ CST Studio Suite 2024.01 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134085.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ Antenna Magus 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134083.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ VPstudio V12.01 C9 x64 SP2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122610.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ SimInTech 2.24.1.26 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119522.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ Altair Embed 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106800.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ Altair Compose 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106792.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ Siemens UGS NX 8.0 x86/x64 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101935.jpg" />
+  <img src="Z:/picture/005/save_picture_101935.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ SolidWorks 2025 SP4.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100837.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ T-FLEX CAD 16.0.88.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99932.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ Archicad 29 build 3000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91215.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ Cutting Line 2.49 [Eng +Rus]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88319.jpg" />
 </div>
 
 
@@ -629,59 +683,6 @@ Cutting Line 2.49 [Eng +Rus]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707881   (62503) от 19.03.2024
-
-BricsCAD Ultimate 24.2.03 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62503.jpg" />
-</div>
-
-
-###  Подробнее
-
-BricsCad – лидер среди альтернативных DWG САПР платформ, предлагает полный набор функций для профессиональных пользователей. Bricscad использует формат DWG и обеспечивает очень высокую совместимость с AutoCAD®. Bricscad имеет интуитивно понятный интерфейс и не требует дополнительного обучения. Отличный выбор для архитекторов, инженеров, конструкторов и для всех, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDCAEFA39CF2F89E514774889F03BA57A582CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708760   (61984) от 24.03.2024
-
-КОМПАС-3D 22.0.10.1463 (x64) [Ru]
-
->>След.
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61984.jpg" />
-</div>
-
-
-###  Подробнее
-
-КОМПАС-3D — система трехмерного проектирования, ставшая стандартом для тысяч предприятий, благодаря сочетанию простоты освоения и легкости работы с мощными функциональными возможностями твердотельного и поверхностного моделирования.
-Ключевой особенностью продукта является использование собственного математического ядра С3D и параметрических технологий, разработанных (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E51F10FF7B8C79895EB728BCD39F0D4CF340B18
 ```
 
 https://mybot314.ru/tekegram_catalog/

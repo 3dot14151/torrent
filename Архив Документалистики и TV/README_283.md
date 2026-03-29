@@ -1,3 +1,167 @@
+###  Публикация: 585215   (305215) от 05.12.2012
+
+Рестлинг / WWE Monday Night RAW (03.12.2012) HDTVRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская версия от 545tvЖанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 02:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09082329AC8E5ABDB7254AA86DD33841AE7ADE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261345   (305195) от 10.11.2018
+
+Формула 1. Сезон 2018. 20-й Этап. Гран-при Бразилии. Свободная практика 1 и 2 (09.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305195.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 ноября 2018 года, пятница.
+Формула 1. 20-й Этап сезона 2018 года. Гран-при Бразилии. Сан-Паулу (Бразилия).
+16:00 (мск) — Свободная практика 1
+20:00 (мск) — Свободная практика 2(   Читать дальше...   )Телекомпания: F1 TVЖанр: СпортЯзык озвучки: Интершум, АнглийскийСубтитры: отсутствуютПродолжительность: 01:56:47 — 01:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A54E3B44EE0194F00F9D96F3DCB7A430971A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183230   (305144) от 15.11.2017
+
+Расстояние между мечтами / Distance Between Dreams (2016) HDRip [MVO] [AD]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о братьях-сёрферах Уолш и их друзьях, охотящихся за большими волнами в Тихом океане в районе острова Мауи, Гавайи. Несмотря на травмы, плохие погодные условия и изменчивую водную стихию, они продолжают заниматься любимым делом.Производство: СШАЖанр: Документальный, Боевик, Приключения, Семейный, СпортРежиссер: Роб БрюсАктеры: Грант Бэйкер, Шэйн Дориан, Джон Джон Флоренс, Грег Лонг, Дк Уолш, Ян Уолш, Люк Уолш, Шон УолшПеревод: Многоголосый, профессиональный ("Синема УС")Субтитры: ОтсутствуютПродолжительность: 01:02:24Реклама: Присутствует вставка видео, голосовой и текстовой рекламы
+(одна вставка видео вырезана, одна осталась)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8D46204A3CA63CA1DEA63BB06ADB13BFD10CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077519   (305116) от 29.11.2016
+
+Лица биатлона (27.11.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лица биатлона - фильм о подготовке Мартена Фуркада, Йоханеса Бё и Антона Шипулина к сезону 2016/2017.
+Именно эти три спортсмена заняли первые три строчки зачета Кубка мира по итогам сезона 2015/2016.Телекомпания: Матч ТВ HDЖанр: Документальный, СпортПродолжительность: 00:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656CDDA839A98639009BD90989C5AE8AEA016179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077501   (305114) от 29.11.2016
+
+Лыжные гонки. Кубок мира 16-17. Рука (Финляндия). Mужчины. Гонка 15 км, классический стиль (27.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305114.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 ноября 2016 года, воскресенье. 14:00 МСК
+1-й Этап Кубка Мира по лыжным гонкам 2016-2017. Рука (Финляндия)
+Гонка 15 км, классический стиль.
+MужчиныТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский,  АнглийскийПродолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB5E6F9EEC735EC61573C2F277776715C2AF6B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 45391   (304606) от 29.11.2015
+
+Энциклопедия Российского флота. Серии 1-3 (2007) TVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_304606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые первые деревянные корабли и современные ракетные крейсеры, Петр Первый и адмирал Ушаков, Крымская война и Цусима, Таллиннский переход и полярные конвои. Крупнейшие битвы в истории русского флота, героические победы и трагические поражения. Крейсер «Аврора» и подводная лодка «К-3», первый русский корабль «Орел» и создание атомного флота, адмирал Нахимов и адмирал (   Читать дальше...   )Жанр: Документальный, историческийПеревод: ОригинальныйПродолжительность: 3x~50 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 45381   (304604) от 29.11.2015
 
 Энциклопедия РОССИЙСКОГО ФЛОТА. Серия 4 (2007) TVRip
@@ -6,7 +170,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_304604.jpg" />
+  <img src="Z:/picture/005/save_picture_304604.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303615.jpg" />
+  <img src="Z:/picture/008/save_picture_303615.jpg" />
 </div>
 
 
@@ -61,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303614.jpg" />
+  <img src="Z:/picture/008/save_picture_303614.jpg" />
 </div>
 
 
@@ -90,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303584.jpg" />
+  <img src="Z:/picture/008/save_picture_303584.jpg" />
 </div>
 
 
@@ -117,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303508.jpg" />
+  <img src="Z:/picture/008/save_picture_303508.jpg" />
 </div>
 
 
@@ -143,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303487.jpg" />
+  <img src="Z:/picture/008/save_picture_303487.jpg" />
 </div>
 
 
@@ -172,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303419.jpg" />
+  <img src="Z:/picture/008/save_picture_303419.jpg" />
 </div>
 
 
@@ -201,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303372.jpg" />
+  <img src="Z:/picture/008/save_picture_303372.jpg" />
 </div>
 
 
@@ -230,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303200.jpg" />
+  <img src="Z:/picture/008/save_picture_303200.jpg" />
 </div>
 
 
@@ -256,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302722.jpg" />
+  <img src="Z:/picture/008/save_picture_302722.jpg" />
 </div>
 
 
@@ -282,7 +446,7 @@ NG: Суперсооружения: Мегазаводы. Ауди / MegaStructu
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302203.jpg" />
+  <img src="Z:/picture/008/save_picture_302203.jpg" />
 </div>
 
 
@@ -308,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301617.jpg" />
+  <img src="Z:/picture/008/save_picture_301617.jpg" />
 </div>
 
 
@@ -337,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301616.jpg" />
+  <img src="Z:/picture/008/save_picture_301616.jpg" />
 </div>
 
 
@@ -366,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301554.jpg" />
+  <img src="Z:/picture/008/save_picture_301554.jpg" />
 </div>
 
 
@@ -392,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301511.jpg" />
+  <img src="Z:/picture/008/save_picture_301511.jpg" />
 </div>
 
 
@@ -421,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301510.jpg" />
+  <img src="Z:/picture/008/save_picture_301510.jpg" />
 </div>
 
 
@@ -450,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301504.jpg" />
+  <img src="Z:/picture/008/save_picture_301504.jpg" />
 </div>
 
 
@@ -479,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301265.jpg" />
+  <img src="Z:/picture/008/save_picture_301265.jpg" />
 </div>
 
 
@@ -508,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301241.jpg" />
+  <img src="Z:/picture/008/save_picture_301241.jpg" />
 </div>
 
 
@@ -534,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301217.jpg" />
+  <img src="Z:/picture/008/save_picture_301217.jpg" />
 </div>
 
 
@@ -551,177 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1621332BFBF29AF39F52C0B327E40EC463ADBDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261701   (301183) от 12.11.2018
-
-Формула 1. Сезон 2018. 20-й Этап. Гран-при Бразилии. Гонка (11.11.2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301183.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2018 года, воскресенье. 20:10 МСК
-Формула 1. 20-й Этап сезона 2018 года. Гран-при Бразилии. Сан-Паулу (Бразилия).
-Гонка
-Кругов:	71 - Длина круга:	4,309 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC5024698343D85AC34920F7902BA65F34D54AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333025   (301042) от 26.10.2019
-
-Футбол. Лига Чемпионов 2019-2020. Группа D. 3-й тур. Ювентус (Италия) - Локомотив (Россия) (22.10.2019) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лига Чемпионов 2019-2020. Основной турнир. 3-й тур. Группа D. Ювентус (Италия) - Локомотив (Россия) (22.10.2019)
-СУДЬЯ Сидиропулос Анастасиос (Греция)
-Судья на линии 1: Костарас Полихронис (Греция)
-Судья на линии 2: Димитриадис Лазарос (Греция)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E42F7F698ACD197C43061A5C94C242CD1D9A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961227   (301036) от 01.12.2015
-
-Футбол. Чемпионат Англии 2015-16. EPL. 14 тур. Тоттенхэм - Челси (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Англии 2015-16, EPL. 14 тур. Тоттенхэм - Челси.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:49:20 + 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F6F39BA4F13DF5F111FF4E48D0243F17DC58C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585778   (300411) от 07.12.2012
-
-Ежегодный шоу-показ мод The Victoria's Secret Fashion Show / The Victoria's Secret Fashion Show (2012) [1080i] HDTV
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300411.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году "ангелы" Victoria's Secret, одни из самых популярных топ-моделей мира, представили феерические и необыкновенно яркие наряды - комплекты, украшенные цветами, провокационные латексные боди и ансамбли, похожие на костюмы циркачек.
-Миранда Керр вышла на подиум с роскошными, напоминающие лебединые, крыльями. Даутцен Крез дефилировала с черными крыльями и в корсете в футуристичном стиле.
-
-Адриана Лима продемонстрировала красный кафтан, кожаный бра. Дополнение к образу стал цилиндр в руках красавицы.
-Бразильянка Алессандра Амбросио представила публике floral fantasy bra, выполненное из бриллиантов, сапфиров, рубинов и аметистов стоимостью в 2,5 млн долл.
-
-В завершении, руководство компании Victoria's Secret, как и канал CBS, транслирующий модное шоу, поблагодарили публику за интерес и внимание к шоу и сообщили, что пожертвовали определенные денежные суммы в фонд оказания помощи пострадавшим от урагана Сэнди.Жанр: Музыкальное fashion-шоуАктеры: Izabel Goulart, Sui He, Erin Heatherton, Bregje Heine, Elsa Hosk, Chanel Iman, Constance Jablonski, Jacquelyn Jablonski, Jay-Z, Miranda Kerr, Karlie Kloss, Doutzen Kroes, Adriana Lima, Maryna Linchuk, Wen Liu, Mickey Madden, Anais Mali, Nicki Minaj, Caroline Brasch Nielsen, Karmen Pedaru, Behati Prinsloo, Lais Ribeiro, Cameron Russell, Shanina Shaik, Joan Smalls, Julia Stegner, Candice Swanepoel, James Valentine, Anne Vyalitsyna, Kayne West, Caroline Maria Winberg, Lily Aldridge, Alessandra Ambrosio, Jesse Carmichael, Dana Ceres, Jessica Clarke, Shannan Click, Flavia de Oliveira, Emanuela de Paula, Lily Donaldson, Lindsay Ellingson, Matt Flynn, Magdalena Frackowiak, Toni Garrn.Перевод: ОтсутствуетПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EEE0A5F1046DA8EEA176216EF596558B036654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846906   (300326) от 03.12.2014
-
-Малолетние узники войны (2010) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300326.jpg" />
-</div>
-
-
-###  Подробнее
-
-В годы Второй мировой войны более пяти миллионов детей стали узниками фашистских концлагерей. Война - это не только человеческие жертвы, потери в бою, это и нравственные потери, это искалеченное детство, отчаяние и горе матерей. Во все времена, во всех войнах были убитые и пленные, но ни в одной войне так не страдали дети. Фашизм не признавал возрастного различия. (   Читать дальше...   )Телекомпания: «МедиаМенеджмент»Жанр: ДокументальныйРежиссер: Николай ГороховПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F189F02D3776931527A1B9A55DF34955D032243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184550   (299442) от 18.11.2017
-
-Хоккей. Суперсерия-2017. Молодёжные сборные (U-20). 6-й матч. Россия — Канада-QMJHL (16.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299442.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 ноября 2017 года, пятница. 03:00 МСК
-Суперсерия 2017. Молодёжные сборные (U-20). 5-й матч.
-Россия — Канада-QMJHL
-Стадион: Монктон Колизеум (Монктон, Канада), 6253 зрителя (87 % при вместимости 7200)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096478AA7B8D5856398ADE02F7F8D947BF466541
 ```
 
 https://mybot314.ru/tekegram_catalog/

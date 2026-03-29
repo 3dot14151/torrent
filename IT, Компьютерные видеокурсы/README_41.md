@@ -1,3 +1,139 @@
+###  Публикация: 1392270   (769641) от 24.06.2020
+
+Udemy | Web приложение - IShop: Servlets, JSP, JSTL, Custom tags (2016) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс предназначен для изучения основ Java Enterprise Edition (JEE) для создания web приложений с помощью языка Java.
+
+Данный курс состоит из двух частей: в первой части рассматривается  теоретический обзор основных web компонентов: Servlets, Filters,  Listeners, JSP, JSP tags, JSTL, а  также основы HTTP протокола,  а во второй части полученные теоретические знания (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 14:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8810E401103AECE3E91E7155DC0D53DAA41F3BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392681   (769014) от 27.06.2020
+
+Udemy | Макет интернет магазина - IShop: HTML, CSS, JS, Bootstrap (2016) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс предназначен для быстрого ознакомления с фундаментальными знаниями HTML5, CSS, JavaScript, JQuery и Bootstrap, необходимыми для верстки функциональных HTML макетов, которые будут использованы при разработке полноценной системы с использованием других языков программирования (Java, C#, PHP, Python и т.д.)
+Данный курс состоит из двух частей: в первой части (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, HTML, CSS, JS, BootstrapПродолжительность: 07:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546DABD39D9AF3087DA80E281E2E3D65BDEF9DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392692   (769011) от 27.06.2020
+
+Udemy | Основы программирования - Крестики-нолики (на примере Java) (2016) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс предназначен для изучения основ программирования: введение в алгоритмизацию, принципов языков программирования высокого уровня, основных выражений и операторов, знакомство с итеративными и рекурсивными алгоритмами, алгоритмами сортировки и поиска и практического освоения теоретических знаний на примере реализации игры "Крестики-нолики". Основы (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 11:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107B5603FDFE5835028F673E5CFB7455DEC7A5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393015   (768867) от 28.06.2020
+
+Udemy | Web приложение - My Blog: Servlets, JSP, JSTL, JDBC, Eclipse (2016) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768867.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках данного курса будет написано Web приложение с использованием Java технологий: Servlets, JSP, JSTL, JDBC.
+В качестве среды разработки будет использовано IDE Eclipse. В  качестве UI будет выбран готовый HTML шаблон и на его базе будет создано  полноценное web приложение.Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 07:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB562C86CA2C9A988B1F9A9EA0F40B7513111811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393107   (768838) от 28.06.2020
+
+Udemy | Web приложение - My Resume на базе фреймворка Spring (2016) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768838.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках данного курса будет написано Web приложение My Resume с использованием Java технологий: Spring Core, String MVC, Spring Data JPA, Hibernate, Spring Security, Sitemesh, Spring Data ElasticSearch, JSP, JSTL, Hibernate-Validators, Facebook API, Spring Data Mongo.
+Пользовательский интерфейс построен с использованием HTML5, CSS3, Bootstrap, JQuery.
+Для долговременного (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 22:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2149344A55DEDA00F88F2B8FCBF8472A420CA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213669   (768035) от 17.03.2018
 
 ProfIT | DBA Введение в профессию (2015) PCRec [H.264]
@@ -6,7 +142,7 @@ ProfIT | DBA Введение в профессию (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768035.jpg" />
+  <img src="Z:/picture/008/save_picture_768035.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ Udemy | Корпоративное приложение Myphotos: JEE 7, NetBean
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767460.jpg" />
+  <img src="Z:/picture/008/save_picture_767460.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ Lectrum | Продвинутый онлайн-курс по Backend (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767423.jpg" />
+  <img src="Z:/picture/008/save_picture_767423.jpg" />
 </div>
 
 
@@ -85,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767156.jpg" />
+  <img src="Z:/picture/008/save_picture_767156.jpg" />
 </div>
 
 
@@ -111,7 +247,7 @@ ITVDN | Angular Advanced (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767155.jpg" />
+  <img src="Z:/picture/008/save_picture_767155.jpg" />
 </div>
 
 
@@ -137,7 +273,7 @@ Udemy | Хитрости работы с EXCEL (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766658.jpg" />
+  <img src="Z:/picture/008/save_picture_766658.jpg" />
 </div>
 
 
@@ -164,7 +300,7 @@ Udemy | MQL5: Создание торговых роботов и индикат
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765979.jpg" />
+  <img src="Z:/picture/008/save_picture_765979.jpg" />
 </div>
 
 
@@ -191,7 +327,7 @@ SANS Institute, Joshua Wright | SEC504: Hacker Tools, Techniques, and Incident H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765915.jpg" />
+  <img src="Z:/picture/008/save_picture_765915.jpg" />
 </div>
 
 
@@ -219,7 +355,7 @@ Udemy | Разжёванный курс по JavaScript для чайников 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765892.jpg" />
+  <img src="Z:/picture/008/save_picture_765892.jpg" />
 </div>
 
 
@@ -245,7 +381,7 @@ Udemy, Tom See | Linux RHCSA preparation course - RHEL 8.2 - Latest version (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765852.jpg" />
+  <img src="Z:/picture/008/save_picture_765852.jpg" />
 </div>
 
 
@@ -274,7 +410,7 @@ Udemy, Imran Teli | DevOps Projects | 20 Real Time DevOps Projects (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765847.jpg" />
+  <img src="Z:/picture/008/save_picture_765847.jpg" />
 </div>
 
 
@@ -303,7 +439,7 @@ Udemy, Luca Berton | Automate Ubuntu Linux SysAdmin tasks in 30+ Ansible example
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765845.jpg" />
+  <img src="Z:/picture/008/save_picture_765845.jpg" />
 </div>
 
 
@@ -331,7 +467,7 @@ Udemy, Testing World | End to End Automation using Python | Web Application & AP
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765844.jpg" />
+  <img src="Z:/picture/008/save_picture_765844.jpg" />
 </div>
 
 
@@ -360,7 +496,7 @@ ITVDN | Онлайн курс  CoffeeScript (2017) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765149.jpg" />
+  <img src="Z:/picture/008/save_picture_765149.jpg" />
 </div>
 
 
@@ -386,7 +522,7 @@ Udemy | Основы ООП на Python (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765110.jpg" />
+  <img src="Z:/picture/008/save_picture_765110.jpg" />
 </div>
 
 
@@ -413,7 +549,7 @@ Udemy | Ultimate Ethical Hacking Course 2021 (2021) WEB-DL [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765011.jpg" />
+  <img src="Z:/picture/008/save_picture_765011.jpg" />
 </div>
 
 
@@ -440,7 +576,7 @@ SANS Institute, James Shewmaker, Stephen Sims | SEC660: Advanced Penetration Tes
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765002.jpg" />
+  <img src="Z:/picture/008/save_picture_765002.jpg" />
 </div>
 
 
@@ -466,7 +602,7 @@ Udemy, Bryson Payne | Real-World Ethical Hacking: Hands-on Cybersecurity (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765000.jpg" />
+  <img src="Z:/picture/008/save_picture_765000.jpg" />
 </div>
 
 
@@ -493,7 +629,7 @@ Udemy, Catalin Stefan | Android Jetpack masterclass in Kotlin (2021) WEB-DL [En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764998.jpg" />
+  <img src="Z:/picture/008/save_picture_764998.jpg" />
 </div>
 
 
@@ -521,7 +657,7 @@ Udemy | Angular и NgRx - пишем реальный проект с нуля (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764200.jpg" />
+  <img src="Z:/picture/008/save_picture_764200.jpg" />
 </div>
 
 
@@ -548,7 +684,7 @@ Udemy | Создание сайта с нуля до профессионала 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764194.jpg" />
+  <img src="Z:/picture/008/save_picture_764194.jpg" />
 </div>
 
 
@@ -561,143 +697,6 @@ Udemy | Создание сайта с нуля до профессионала 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3D20798F8726B0AD9E820B7DD3E0C16DAA929D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394521   (763411) от 05.07.2020
-
-Beonmax | Курс ВЕБ-разработчик 2019 - с нуля до результата! (2019) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освой современные инструменты и технологии разработки сайтов и начни зарабатывать на этом!
-На практике научитесь создавать веб-сайты и веб-приложения с применением полученной в курсе всей необходимой теории. Дополнительных знаний не требуется. Все нужные программы установим и настроим в процессе обучения. Курс соответствует современным трендам и стандартам. Основные (   Читать дальше...   )Жанр: Программирование, HTML5, CSS3, Bootstrap 4, JavaScriptПродолжительность: 23:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251FEDFDBA966DD2390D007ED8B2BD35BE78061F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394544   (763406) от 05.07.2020
-
-Beonmax | Курс Linux / GIT (2019) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн курс LINUX и GIT для начинающих — видео уроки Linux / Git с нуля.
-В видео-курсе Вы изучите основы работы с терминалом LINUX для создания и настройки сервера для Ваших веб-сайтов. Освоите систему контроля версий кода GIT для профессиональной командной работы.
-Получите профессиональные знания в онлайн уроках по Linux и Git!Жанр: Система контроля версий GitПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D521C004088520528B323446FF78C469C108F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394611   (763404) от 05.07.2020
-
-Beonmax | Курс WordPress – с нуля до Профи! (2018) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763404.jpg" />
-</div>
-
-
-###  Подробнее
-
-WordPress – одна из самых популярных CMS для создания веб сайтов. С помощью Вордпресс вы можете создавать сайты с нуля разной сложности и функционала — простые одностраничные сайты-лендинги, сайт-визитку, личный блог, сайты услуг или сложные многостраничные онлайн магазины.
-Курс для тех, кто хочет быстро научиться делать крутые сайты, управлять ими и продвигать их. (   Читать дальше...   )Жанр: WordPressПродолжительность: 14:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB86A46F0F60B0AD8245432A44C68EB41523836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394460   (763401) от 05.07.2020
-
-Beonmax | Курс PHP / MySQL (2019) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивный онлайн курс PHP программирования сайтов для начинающих — Онлайн обучение PHP с нуля
-В видео-курсе Вы изучите основы языка PHP для создания веб-сайтов, познакомитесь с объектно-ориентированным программированием, научитесь работать с базами данных MySQL, освоите популярные библиотеки, работу с парсерами и многое другое.
-Изучите онлайн уроки программирования (   Читать дальше...   )Жанр: Программирование, PHP, MySQLПродолжительность: 04:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030975175FDFAC76833D0D1E836DB080F6A4A9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394618   (763394) от 05.07.2020
-
-Beonmax | Курс Полный курс Python для начинающих – с нуля до специалиста (2019) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное руководство по Python 3 - от новичка до специалиста — Изучи Python с нуля и стань востребованным разработчиком во всем мире!
-Полный курс Python состоит из 9 разделов, обучение от простого к сложному. Подходит для новичков, которые никогда не программировали. И для опытных программистов, которые хотят стать разработчиками на Python.Жанр: Программирование, PythonПродолжительность: 17:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7B14B71A3DD44DA840514999ACD6E5F9FD608A
 ```
 
 https://mybot314.ru/tekegram_catalog/

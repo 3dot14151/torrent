@@ -1,3 +1,108 @@
+###  Публикация: 110546   (244687) от 01.04.2022
+
+Страх(и) темноты / Peur(s) du noir [2007] DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный анимационный проект, объединивший лучших художников в жанре комиксов. Впервые им было предложено «выложить» на кинопленку мурашки по коже, обнаженные нервы и дрожь потных рук — все, что связано с самым древним человеческим страхом — страхом темноты.
+Прикосновение паучьих лапок, странные звуки в пустом доме, ощущение чужого присутствия и собачий вой в тишине (   Читать дальше...   )Производство: ФранцияЖанр: Мультфильм, ужасы, детективРежиссер: Блатч, Мари Кайу, Пьер Ди Сюлло, Лоренцо Маттотти, Джерри Крамски, Ричард МакГир, Мишель Пирюс, Ромен СлокомбПеревод: Двуголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DBC133BC4B860344652BC23BA32A2251AE859B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568106   (243223) от 06.08.2022
+
+Побег из космоса / Xiong chu mo: Chong fan di qiu / Boonie Bears: Back To Earth (2022) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медведь Брэмбл всегда хотел стать героем. И однажды ему выпал шанс стать не просто героем, а супергероем. Познакомившись в лесу с пришельцем Эви, Брэмбл становится обладателем суперспособностей. Теперь он может реализовать любое желание одной силой мысли. Высокоразвитый народ Эви покинул Землю миллионы лет назад. И вот теперь Эви вернулся, чтобы передать новейшую (   Читать дальше...   )Производство: Китай, Fantawild AnimationЖанр: ДетскийРежиссер: Линь ХуэйдаАктеры: Чжан Бинцзюнь, Чжан Вэй, Тань Сяо, Ли Ваньяо, Чэн Цзиян, Лю СыциПеревод: Дублированный (Back Board Cinema)Субтитры: отсутствуютПродолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB226B718DE1FBD7BA9BDA4FA7663EB8EA4403E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568773   (242644) от 09.08.2022
+
+Я краснею / Turning Red (2022) BDRip [UKR / UKR Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торонто, 2002 год. Активная и неунывающая 13-летняя Мэйлинь всеми силами пытается быть первой во всём, чтобы угодить строгой гиперопекающей матери. Семья девочки живёт при храме и поклоняется Богине-прародительнице. Одним прекрасным утром Мэйлинь просыпается и вместо привычного отражения в зеркале видит красную панду — теперь, когда она волнуется, злится или испытывает (   Читать дальше...   )Производство: США / DreamWorks Animation, Universal PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Доми ШиАктеры: Розали Чян, Сандра О, Ава Морс, Пак Хе-ин, Майтреи Рамакришнан, Орион Ли, Вай Чин Хо, Тристан Аллерик Чен, Лори Тан Чинн, Mia TaganoПеревод: ДублированныйЯзык озвучки: УкраинскийСубтитры: Украинские (Forced) - вшитыеПродолжительность: 01:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B4E5EE6C2F1FE2BE8059EEBAE334C7E930609D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568788   (242340) от 10.08.2022
+
+Миньоны: Грювитация / Minions: The Rise of Gru (2022) WEB-DLRip [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллион лет миньоны искали самого великого и ужасного предводителя, пока не встретили ЕГО. Знакомьтесь — Грю. Пусть он еще очень молод, но у него в планах по-настоящему гадкие дела, которые заставят планету содрогнуться.Производство: США, Illumination Entertainment , Universal PicturesЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Кайл Балда, Брэд Эблесон, Джонатан дель ВальАктеры: Стив Карелл, Пьер Коффан, Алан Аркин, Тараджи П. Хенсон, Мишель Йео, Джули Эндрюс, Расселл Брэнд, Жан-Клод Ван Дамм, Дольф Лундгрен, Дэнни ТрехоПеревод: Многоголосый закадровый (Jaskier)Язык озвучки: РусскийСубтитры: Русские (forced, full) отдельноПродолжительность: 01:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702F693AA01FAC99F50693F918E6E68E4B5A8309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 434881   (240440) от 20.04.2022
 
 Мальчик, который хотел быть медведем / Drengen der ville gшre det umulige (2002) DVDRip
@@ -6,7 +111,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240440.jpg" />
+  <img src="Z:/picture/004/save_picture_240440.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239443.jpg" />
+  <img src="Z:/picture/004/save_picture_239443.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237531.jpg" />
+  <img src="Z:/picture/004/save_picture_237531.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233561.jpg" />
+  <img src="Z:/picture/005/save_picture_233561.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230218.jpg" />
+  <img src="Z:/picture/005/save_picture_230218.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230075.jpg" />
+  <img src="Z:/picture/005/save_picture_230075.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229515.jpg" />
+  <img src="Z:/picture/004/save_picture_229515.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228886.jpg" />
+  <img src="Z:/picture/004/save_picture_228886.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228591.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228476.jpg" />
+  <img src="Z:/picture/005/save_picture_228476.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228141.jpg" />
+  <img src="Z:/picture/005/save_picture_228141.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228138.jpg" />
+  <img src="Z:/picture/005/save_picture_228138.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227220.jpg" />
+  <img src="Z:/picture/005/save_picture_227220.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226922.jpg" />
+  <img src="Z:/picture/005/save_picture_226922.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223492.jpg" />
+  <img src="Z:/picture/005/save_picture_223492.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223305.jpg" />
+  <img src="Z:/picture/005/save_picture_223305.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223010.jpg" />
+  <img src="Z:/picture/005/save_picture_223010.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222518.jpg" />
+  <img src="Z:/picture/005/save_picture_222518.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221877.jpg" />
+  <img src="Z:/picture/005/save_picture_221877.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220299.jpg" />
+  <img src="Z:/picture/005/save_picture_220299.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219725.jpg" />
+  <img src="Z:/picture/005/save_picture_219725.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217675.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC2F279A434240C27F7D1E4391F1A7C45A73F190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514294   (216379) от 03.12.2021
-
-Вокруг света за 80 дней / Around the World in 80 Days (2021) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умнейший Паспарту всегда мечтал о путешествиях. На его удачу безрассудный Филеас согласился на безумное пари — обогнуть земной шар всего за 80 дней. Теперь двум совершенно непохожим друзьям предстоит совершить невозможное, а заодно увидеть весь мир, полный фантастических созданий, живописных мест и умопомрачительных приключений.Производство: Франция, Бельгия / 22h22, Canal+Жанр: Компьютерная анимация, Приключения, Комедия, ДетскийРежиссер: Самуэль ТурноАктеры: Жюльен Крампон, Дамиен Фретте, Кэйси Чейз, Селин Ронте, Вероник Огеро, Эммануэль Гариджо, Гэбриел Ле Дозе, Серж Биаван, Мишель Арагоне, Грегори КидельПеревод: Дублированный (iTunes)Субтитры: Русские (forced (хардсаб))Продолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE733CE07DD7EBAFAAE805016FB7C291BD261FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426081   (216275) от 23.11.2020
-
-Винни Пух: Рождественский Пух / Winnie the Pooh: A Very Merry Pooh Year (2002) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_216275.jpg" />
-</div>
-
-
-###  Подробнее
-
-В лес пришло Рождество и веселая компания: Тигра, Пух, Ослик, кенгуренок Крошка Ру не могут пропустить такой праздник. И, как всегда, любое мероприятие у этой компании не может пройти без приключений.Производство: США / Disney Television Animation, Disneytoon Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, драма, комедия, семейныйРежиссер: Гари Катона, Эд Уэкслер, Джэми МитчеллПеревод: Дублированный, авторский (одноголосый)Субтитры: отсутствуютПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C238553973D09C5C259C8A5319933F8CE71D2E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460504   (213627) от 05.12.2021
-
-Лийоки / Liyoki (2020) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лийоки, серебристая горилла, мирно живет со своей семьей. Однажды на них нападают браконьеры. Раненный пулей, Лийоки должен сделать выбор: отомстить или спасти своего последнего ребенка, Китоко.Производство: Франция / ESMAЖанр: Короткометражный, рисованная анимацияРежиссер: Sarah Munos, Arthur Lefebvre, Francesca McCallПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6F21E140CFA6EDBEE467FEA3B69FBBBC03DCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563111   (212641) от 12.07.2022
-
-Морской монстр / The Sea Beast (2022) WEB-DLRip [H.264] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Мэйси и легендарный охотник на монстров Джейкоб Холланд отправляются в путешествие по неизведанным морям.Производство: США / Netflix Animation, NetflixЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Крис УильямсПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD834BA4463E9532AE2672E85283987F3A7C526
 ```
 
 https://mybot314.ru/tekegram_catalog/

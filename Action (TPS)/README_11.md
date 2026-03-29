@@ -1,3 +1,159 @@
+###  Публикация: 1198838   (804008) от 13.01.2018
+
+Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_804008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стикс – исключительный гоблин, непревзойденный мастер скрытности, воровства и убийств. Ему предстоит отправиться в башню Акенаш, где хранится сердце драгоценного Дерева Мира. Там Стиксу представится отличный шанс быстро подзаработать и, возможно, узнать немало интересного.Вам предстоит провести Стикса к вершине башни Акенаш, попутно выполняя множество заданий, в (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A0C7091373EE7386F4CF78F3348F99049D69B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505769   (802211) от 28.10.2021
+
+Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche StudiosЖанр: Экшн, От третьего лица, Open WorldЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C797D21227E1F3DBD07A5CCAE04CAA1EC62A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010778   (801904) от 25.04.2016
+
+Darksiders: Wrath of War (2010) [Ru] (1.1/dlc) Repack =nemos=
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экшен, рассказывающий о приключениях одного из всадников апокалипсиса по кличке «Война». На протяжении n-го количества уровней ему предстоит бегать по миру недалекого будущего, где демоны уничтожили все человечество. «Войне» предстоит разузнать, кто из дьявольского отродья бесстыдно нарушил древнее соглашение и испепелил людскую расу. В этом ему будут помогать как (   Читать дальше...   )Тип издания: RepackРазработчик: Vigil GamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799673D0489C75DF0F4876FC2F50677CFDFC4C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118241   (801631) от 31.03.2017
+
+Alice: Madness Returns (2000-2011) [Ru/Multi] (1.0.0.0/dlc) SteamRip Let'sPlay [The Complete Collection]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцать лет назад родители Алисы погибли в ужасном пожаре, что оставило сильнейший отпечаток на душевном состоянии ребенка. Девочка оказалась в психиатрической лечебнице Ратледж (Ruthledge) и боролась с одолевавшими её демонами, ускользая в мир собственных фантазий — Страну чудес.Тип издания: SteamRipРазработчик: Spicy Horse GamesЖанр: Arcade (Platform), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1994DFEE600E59CFEBFB51255BBC9688617A968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120943   (800999) от 01.04.2017
+
+Saints Row 2 (2009) [Ru/Multi] (1.2) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saints Row 2 привносит настоящую свободу в игры с открытым миром. В продолжении признанной и невероятно успешной игры Saints Row вы сможете играть как угодно, за кого угодно и с кем угодно. Спустя годы после событий оригинальной игры герой возвращается в знакомый, но ставший чужим Стилуотер, где ему предстоит вернуть банду «Святых» на вершину «пищевой цепочки» криминального (   Читать дальше...   )Тип издания: LicenseРазработчик: Volition, Inc.Жанр: Action (Shooter), Racing (Cars, Helicopter, Tank), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3834177439144AB8BB12DFEC76F42886AD041B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121507   (800074) от 02.04.2017
+
+Styx: Shards of Darkness (2017) [Ru] (1.02/dlc) Repack xatab
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Styx: Shards of Darkness предлагает заняться любимым для уникального гоблина делом – воровством, но даже такая забавная мелочь как похищение волшебного скипетра превращается в запутанную историю с глобальным заговором, темными эльфами, жестокими гномами и геноцидом целой расы магических существ.Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A63B13D58D537D55652EFD11C3ADF7C3C5BE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121208   (799957) от 02.04.2017
 
 Alice: Madness Returns (2011) [Ru] (1.0.0.0/dlc) Repack Other s [The Complete Collection]
@@ -6,7 +162,7 @@ Alice: Madness Returns (2011) [Ru] (1.0.0.0/dlc) Repack Other s [The Complete Co
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799957.jpg" />
+  <img src="Z:/picture/008/save_picture_799957.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Saints Row: The Third - Remastered (2020) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799855.jpg" />
+  <img src="Z:/picture/008/save_picture_799855.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (1.033793/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798192.jpg" />
+  <img src="Z:/picture/008/save_picture_798192.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Alan Wake Remastered (2021) [Ru/En] (1.0.33793/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798178.jpg" />
+  <img src="Z:/picture/008/save_picture_798178.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Rustler (Grand Theft Horse) (2021) [Ru/Multi] (1.02.21/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798046.jpg" />
+  <img src="Z:/picture/008/save_picture_798046.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Soulsland (2021) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797896.jpg" />
+  <img src="Z:/picture/008/save_picture_797896.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Saints Row: The Third - Remastered (2020) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797684.jpg" />
+  <img src="Z:/picture/008/save_picture_797684.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Project Runner (2021) [En] (1.0) License DARKSiDERS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797268.jpg" />
+  <img src="Z:/picture/008/save_picture_797268.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Hellblade: Senua's Sacrifice VR (2017) [Ru/Multi] (1.01) License GOG [VR]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793771.jpg" />
+  <img src="Z:/picture/008/save_picture_793771.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ HellGate: London (2018) [En] (20181213) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793768.jpg" />
+  <img src="Z:/picture/008/save_picture_793768.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Dead Rising 4 (2017) [Ru/En] (1.0/upd3/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793481.jpg" />
+  <img src="Z:/picture/008/save_picture_793481.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Alpha Protocol (2010) [Ru] (1.1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792744.jpg" />
+  <img src="Z:/picture/008/save_picture_792744.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ COLINA: Legacy (2018) [Ru/Multi] (1.0/upd3) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791996.jpg" />
+  <img src="Z:/picture/008/save_picture_791996.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ COLINA: Legacy (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791552.jpg" />
+  <img src="Z:/picture/008/save_picture_791552.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ DreadOut: Keepers of The Dark (2016) [En/Ch] (1.0.7) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791432.jpg" />
+  <img src="Z:/picture/008/save_picture_791432.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ DreadOut (2014) [Ru/Multi] (2.2.18/dlc) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791431.jpg" />
+  <img src="Z:/picture/008/save_picture_791431.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790245.jpg" />
+  <img src="Z:/picture/008/save_picture_790245.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Assassin's Creed Anthology (2008-2015) [Ru/Multi] Repack/Rip R.G. Catalyst [The 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789679.jpg" />
+  <img src="Z:/picture/008/save_picture_789679.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) License CPY [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789625.jpg" />
+  <img src="Z:/picture/008/save_picture_789625.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack xatab [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789619.jpg" />
+  <img src="Z:/picture/008/save_picture_789619.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack xatab [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C873E456A94551B6FA859ED8A01BBCC9426427C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098666   (788882) от 31.01.2018
-
-Darksiders (2016) [Ru/Multi] (1.0.2679) Repack R.G. Механики [Warmastered Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поддавшись лживым вестям сил зла о конце света, один из четырех всадников апокалипсиса, Война, обвиняется в нарушении священного закона и провоцирования войны между Раем и Адом. В невероятных битвах, проходивших во время той войны, победу одержали силы зла - и они же потребовали власти над Землей. Война предстал перед Расплавленным советом и был обвинен в совершении (   Читать дальше...   )Тип издания: RepackРазработчик: Vigil Games, Gunfire GamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E3162023E387D94278B494A763E6EDFEC74508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276086   (788864) от 14.01.2019
-
-Tomb Raider 4: The Last Revelation / Tomb Raider: Последнее откровение (1999) [Multi] (20170914) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788864.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве многие мечтали стать археологами, но не все ими стали. Чтобы осуществить свою мечту юная Лара Крофт помогла известному знатоку древностей профессору фон Крою организовать экспедицию в Египет, с условием, что он возьмет ее с собой. Начинающая расхитительница гробниц отправилась на поиски древнего амулета, с помощью которого можно одолеть могущественное египетское (   Читать дальше...   )Тип издания: LicenseРазработчик: Core DesignЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A748C9FB4E2219A5F5D6D1ACE017F6438D641F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276388   (788402) от 15.01.2019
-
-Onimusha: Warlords (2019) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришло время вынуть мечи из ножен и затянуть пояс кимоно покрепче. Игра перенесет вас в Японию 16-го века, период, когда не знающие пределов жадности японские князья ведут кровопролитные войны за обладание землей. Апофеозом противостояния становится похищение принцессы Юки.Тип издания: LicenseРазработчик: CAPCOMЖанр: Action, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F751A4D81A2D1F422B9749BD60C53383ACFCF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276593   (787936) от 16.01.2019
-
-Sunset Overdrive (2018) [Ru/En] (1.0/u2) Repack Mizantrop1337
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787936.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Sunset Overdrive 2027 год, и Сансет-сити в осаде. Загрязненный энергетический напиток превратил большую часть населения в токсичных мутантов. Для многих это конец света, но для вас это осуществление мечты. Ваш старый начальник? Мертв. Ваша скучная работа? В прошлом. Преобразуйте открытый мир в свою игровую площадку, скользя, прыгая и бегая по стенам города, (   Читать дальше...   )Тип издания: RepackРазработчик: Insomniac Games, Blind Squirrel GamesЖанр: Action, ShooterЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FD08F22817FF13CA928AA7947338FBAB547BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202962   (787920) от 02.02.2018
-
-Remothered: Tormented Fathers (2018) [Ru/Multi] (1.0/upd1) License SKIDROW
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787920.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Remothered: Tormented Fathers” - первая часть долгожданной трилогии игр от 3-го лица. Розмари Рид — скучающая по острым ощущениям дама бальзаковского возраста, решила в один день раскрыть очередную тайну. С этой целью она приезжает в поместье к Доктору Фелтону, бывшему некогда известным нотариусом. Сейчас Фелтон, потеряв всех кого он любил (жена и дочь) оказался (   Читать дальше...   )Тип издания: LicenseРазработчик: Stormind Games, Darril ArtsЖанр: Adventure (Horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF71382396289BDA4C12A0472FE5FFEC0EC7110D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276514   (787865) от 16.01.2019
-
-Resident Evil 0 HD Remaster / Biohazard Zero (2016) [Ru/En] (1.0/dlc) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil 0 в формате HD. Resident Evil 0 рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil.Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5493AFE913AA594B2384ADF012F3A5014AA58CD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

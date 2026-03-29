@@ -1,3 +1,55 @@
+###  Публикация: 1203340   (787905) от 02.02.2018
+
+2k10 Live CD 7.13 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787905.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-версия "2k10 Live", содержит только C9PE и сокращенный набор программЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE873997697FE5859DEEC4E49A23C5BB185235FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124632   (785485) от 12.04.2017
+
+Active@ Boot Disk (LiveCD) 10.5.0 RePack by WYLEK (x64) [Ru]
+
+>>След.
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Active@ Boot Disk - включает в себя набор мощных инструментов, которые позволят Вам восстановить потерянные данные, сбросить пароли учетных записей Windows, создать резервные копии системы и надежно стирать данные без возможности восстановления. Active@ Boot Disk является загрузочным CD, и может использоваться даже для компьютеров, на которых не загружается основная (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EFA586F544B96B004AFC495A5E584BEB72F7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 204043   (762446) от 25.05.2010
 
 7LiteReanimator v.2.0. Загрузочный Windows PE построенный на основе Windows 7 2.0 [русский]
@@ -6,7 +58,7 @@
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762446.jpg" />
+  <img src="Z:/picture/008/save_picture_762446.jpg" />
 </div>
 
 
@@ -37,7 +89,7 @@ RusLive 2020.07.07 [Ru/En] (обновляемая авторская разда
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759953.jpg" />
+  <img src="Z:/picture/008/save_picture_759953.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ AdminPE 4.4++ (RC) (09.08.2020) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738609.jpg" />
+  <img src="Z:/picture/008/save_picture_738609.jpg" />
 </div>
 
 
@@ -91,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710140.jpg" />
+  <img src="Z:/picture/008/save_picture_710140.jpg" />
 </div>
 
 
@@ -119,7 +171,7 @@ Ultimate Boot CD 5.3.9 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689858.jpg" />
+  <img src="Z:/picture/008/save_picture_689858.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ Win10PE-2018 xlx (by xalex) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688836.jpg" />
+  <img src="Z:/picture/008/save_picture_688836.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ BootPass 4.2.8 Full Native [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676733.jpg" />
+  <img src="Z:/picture/008/save_picture_676733.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ AdminPE10 2.3 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577510.jpg" />
+  <img src="Z:/picture/008/save_picture_577510.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ Windows 10 PE SE x86 - Acronis 3 in 1 v1 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533783.jpg" />
+  <img src="Z:/picture/008/save_picture_533783.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487183.jpg" />
+  <img src="Z:/picture/008/save_picture_487183.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ RusLiveFull by NIKZZZZ CD/DVD (24.09.2015) [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459353.jpg" />
+  <img src="Z:/picture/008/save_picture_459353.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ Acronis BootCD 10PE x86/x64 by naifle (26.09.2018) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426122.jpg" />
+  <img src="Z:/picture/008/save_picture_426122.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ Hiren's BootCD Pro 2.3 [Русский / Английский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_423194.jpg" />
+  <img src="Z:/picture/005/save_picture_423194.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ Live CD7+XP (Seven+Kompact) x86 Update 17.10.2012 [Русский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405121.jpg" />
+  <img src="Z:/picture/005/save_picture_405121.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400636.jpg" />
+  <img src="Z:/picture/008/save_picture_400636.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396500.jpg" />
+  <img src="Z:/picture/005/save_picture_396500.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396497.jpg" />
+  <img src="Z:/picture/005/save_picture_396497.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ Hiren's Boot CD 15.1 Rebuild by DLC v.2.0 [Английский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393362.jpg" />
+  <img src="Z:/picture/005/save_picture_393362.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ Windows 8 PE (x86/x64) EFI compact by Xemom1 01.11.16 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377470.jpg" />
+  <img src="Z:/picture/008/save_picture_377470.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ Windows 8.1 PE (x64) v.3.5 by Ratiborus [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338823.jpg" />
+  <img src="Z:/picture/008/save_picture_338823.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ Rescue USB 16 Gb (BuTaJ1 Edition) 3.4
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316161.jpg" />
+  <img src="Z:/picture/008/save_picture_316161.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.11.19 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257718.jpg" />
+  <img src="Z:/picture/005/save_picture_257718.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ LEX LIVE 10 v.26.0.17 RC [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255625.jpg" />
+  <img src="Z:/picture/005/save_picture_255625.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ Windows 10 PE (x64) by Ratiborus v.6.2023 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254564.jpg" />
+  <img src="Z:/picture/005/save_picture_254564.jpg" />
 </div>
 
 
@@ -640,59 +692,6 @@ Windows 10 PE (x64) by Ratiborus v.6.2023 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D3F31C60013F8306EFB1DF90439E21EDF1CD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632821   (254419) от 12.05.2023
-
-Windows 11 PE (x64) by Ratiborus v.7.2023 [Ru]
-
->>След.
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных. Сборка работает от Administrator. Через меню правой кнопки мыши можно любую программу запустить от System. Настройки светлой/тёмной темы оформления Рабочего (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B183B61632F1003FD3D3EC90AA8B961F6058A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639504   (247598) от 13.06.2023
-
-Windows 11 PE x64 by Xemom1 (08.06.23) [Ru]
-
->>След.
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11 PE x64 - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных.
-Список программ смотрите на скриншотах.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94B0FEE0DDF79C4DBA41A15029B314B121A0111
 ```
 
 https://mybot314.ru/tekegram_catalog/

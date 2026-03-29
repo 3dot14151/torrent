@@ -1,3 +1,62 @@
+###  Публикация: 1019262   (752345) от 22.05.2016
+
+VA - Trance Anthems 6 (2016) [MP3|320 кб/с] <Trance, Melodic, Harmonic, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wearealienss - Polar (Radio Cut) 3:08
+02. Tranc Eye - Two Different Worlds (Space Raven Radio Cut) 3:24
+03. Dereck Recay - Dream Way 2015 (DJ T.h. in Love Radio Cut) 3:24
+04. Rene Ablaze & Ian Buff And DJ T.H. - 10 Years (Nolita Remix Edit) 3:16(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, ProgressiveПродолжительность: 02:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2A5F58045CE094B6FD8D09B3DCF0221F29C5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019276   (752332) от 22.05.2016
+
+VA - Cosmic Machine (2013) [MP3|320 кб/с] <Electronic, Experimental, Synth-pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный сборник  "A Voyage Across French Cosmic & Electronic Avantgarde (70-80)" или "Путешествие по Франции в космическо-электронном Авангарде (70-80)".
+Первая часть проекта.01. Patrick Juvet - Le Reve   (1:39)
+02. Didier Marouani - Temps X   (5:07)
+03. Droids - Shanti Dance Pt1 & Pt2   (6:28)
+04. Francois De Roubaix - Survol   (1:31)(   Читать дальше...   )Жанр: Electronic, Experimental, Synth-popПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C10853AF061561C8817E60CFCA91807E0684ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018999   (752331) от 22.05.2016
 
 VA - Sun Revelation: Relax Edition (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lounge>
@@ -6,7 +65,7 @@ VA - Sun Revelation: Relax Edition (2016) [MP3|320 кб/с] <Chillout, Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752331.jpg" />
+  <img src="Z:/picture/008/save_picture_752331.jpg" />
 </div>
 
 
@@ -35,7 +94,7 @@ VA - Electroshock Vol. 07 (2016) [MP3|320 кб/с] <House, Electro House, Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752328.jpg" />
+  <img src="Z:/picture/008/save_picture_752328.jpg" />
 </div>
 
 
@@ -64,7 +123,7 @@ VA - Trance 100 Symmetry Nostalgic (2016) [MP3|320 кб/с] <Trance, Uplifting T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752265.jpg" />
+  <img src="Z:/picture/008/save_picture_752265.jpg" />
 </div>
 
 
@@ -93,7 +152,7 @@ VA - Trance Desire Volume 70 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752252.jpg" />
+  <img src="Z:/picture/008/save_picture_752252.jpg" />
 </div>
 
 
@@ -122,7 +181,7 @@ VA - Chilled Tunes For Relaxed (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtem
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752078.jpg" />
+  <img src="Z:/picture/008/save_picture_752078.jpg" />
 </div>
 
 
@@ -151,7 +210,7 @@ VA - Light Dance Music (2019) [Compiled by ZeByte] (2018-2019) [MP3|320 Kbps] <h
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751865.jpg" />
+  <img src="Z:/picture/008/save_picture_751865.jpg" />
 </div>
 
 
@@ -180,7 +239,7 @@ VA - Beatport Top 100 Downloads January (2019) [MP3|192-320 Kbps] <House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751861.jpg" />
+  <img src="Z:/picture/008/save_picture_751861.jpg" />
 </div>
 
 
@@ -209,7 +268,7 @@ VA - Baleric Soaring Inspiration (2018) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751361.jpg" />
+  <img src="Z:/picture/008/save_picture_751361.jpg" />
 </div>
 
 
@@ -238,7 +297,7 @@ VA - Deep House Collection Vol.160 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751240.jpg" />
+  <img src="Z:/picture/008/save_picture_751240.jpg" />
 </div>
 
 
@@ -267,7 +326,7 @@ VA - Deep House Collection Vol.162 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751226.jpg" />
+  <img src="Z:/picture/008/save_picture_751226.jpg" />
 </div>
 
 
@@ -296,7 +355,7 @@ VA - Deep House Collection Vol.163 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751079.jpg" />
+  <img src="Z:/picture/008/save_picture_751079.jpg" />
 </div>
 
 
@@ -325,7 +384,7 @@ VA - Incepto Music. 100Th Release (2016) [MP3|320 кб/с] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750340.jpg" />
+  <img src="Z:/picture/008/save_picture_750340.jpg" />
 </div>
 
 
@@ -354,7 +413,7 @@ VA - Pacific Progressive Trance (2016) [MP3|320 кб/с] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750339.jpg" />
+  <img src="Z:/picture/008/save_picture_750339.jpg" />
 </div>
 
 
@@ -383,7 +442,7 @@ VA - Ultimate Guide to Chillout: The Only Chillout Album Youll Ever Need (2016) 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750337.jpg" />
+  <img src="Z:/picture/008/save_picture_750337.jpg" />
 </div>
 
 
@@ -412,7 +471,7 @@ VA - The Best of Trance 46 (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750335.jpg" />
+  <img src="Z:/picture/008/save_picture_750335.jpg" />
 </div>
 
 
@@ -441,7 +500,7 @@ VA - Summer Beach Lounge Affair (Sexy Deluxe Relaxation Cafe Music) (2016) [MP3|
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750271.jpg" />
+  <img src="Z:/picture/008/save_picture_750271.jpg" />
 </div>
 
 
@@ -470,7 +529,7 @@ VA - Trance Massive 100 Tracks May (2016) [MP3|320 кб/с] <Trance, Uplifting T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750269.jpg" />
+  <img src="Z:/picture/008/save_picture_750269.jpg" />
 </div>
 
 
@@ -499,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750183.jpg" />
+  <img src="Z:/picture/008/save_picture_750183.jpg" />
 </div>
 
 
@@ -528,7 +587,7 @@ VA - Spacesynth 4ever (mCITY Edition) (2016) [MP3|320 кб/с] <Electronic, Spac
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750180.jpg" />
+  <img src="Z:/picture/008/save_picture_750180.jpg" />
 </div>
 
 
@@ -557,7 +616,7 @@ VA - Record Super Chart 644 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750066.jpg" />
+  <img src="Z:/picture/008/save_picture_750066.jpg" />
 </div>
 
 
@@ -586,7 +645,7 @@ VA - Soft Emotion: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo, Ba
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748680.jpg" />
+  <img src="Z:/picture/008/save_picture_748680.jpg" />
 </div>
 
 
@@ -615,7 +674,7 @@ VA - Blue Skies: The Uplifting Chillout Album (2016) [MP3|320 кб/с] <Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748655.jpg" />
+  <img src="Z:/picture/008/save_picture_748655.jpg" />
 </div>
 
 
@@ -644,7 +703,7 @@ VA - Trance Essentials 100 Tracks May 2016 Vol.02 (2016) [MP3|320 кб/с] <Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748644.jpg" />
+  <img src="Z:/picture/008/save_picture_748644.jpg" />
 </div>
 
 
@@ -673,7 +732,7 @@ VA - Teleport Trance - Uplifting And Progressive Mix May (2016) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748572.jpg" />
+  <img src="Z:/picture/008/save_picture_748572.jpg" />
 </div>
 
 
@@ -687,64 +746,6 @@ VA - Teleport Trance - Uplifting And Progressive Mix May (2016) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E6B0B941FC8E44A19A93F6297CBC9B56FFC5BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281891   (748509) от 10.02.2019
-
-VA - Psychedelic Electronic Party: Trance Set (2019) [MP3|320 Kbps] <Psychedelic, Psy Trance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomo - Vaporia
-02. Flowwolf - Alpha Centauri
-03. Jacob - Where All Begins
-04. Magnosis - Heat Seeker(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, ElectronicПродолжительность: 08:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A068A239FC273F5ED6D6FAA93BB8A19795D7C922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281895   (748413) от 10.02.2019
-
-VA - Drum and Bass Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Drum and bass, Neurofunk>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beta 2 & Zero T - Mission Drift(Original Mix) [5:26]
-02. Formal One - Alive (Original Mix) [5:01]
-03. Tantrum Desire - Unleashed ( Original Mix ) [4:23]
-04. ClashTone & Jimmy Danger - Ninja Scroll (Original Mix) [3:27](   Читать дальше...   )Жанр: Drum and bass, NeurofunkПродолжительность: 2:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16A69D351E3F0AA2BB8AB0B021CAE491EC36EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

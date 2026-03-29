@@ -1,3 +1,107 @@
+###  Публикация: 679338   (645965) от 15.07.2013
+
+Динозаврик Урмель / Urmel aus dem Eis (2006) DVDRip [UKR, ENG]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_645965.jpg" />
+</div>
+
+
+###  Подробнее
+
+На крошечном острове посреди далекого озера живет и проводит исследования ученый Габакук Тибатонг. Помогают гениальному исследователю его приемный сын Тим и пингвин по имени Пинг. В один прекрасный день они находят необычное яйцо пролежало в замороженном состоянии неизвестное количество лет. Профессор с нетерпением ждет, кто же из него вылупится? Вдруг он, наконец, (   Читать дальше...   )Производство: Ambient Entertainment GmbH, Bavaria Pictures, Constantin FilmЖанр: мультфильм, анимация, семейныйРежиссер: Райнхард Клоосс, Хольгер ТаппеПерсонажи: Анке Энгельке, Кристоф Мария Хербс, Кевин Янотта, Стефан Краузе, Доменик Редль, Фрэнк ШаффПеревод: многоголосый закадровыйПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2974F5B8FB15738C0D45ED4DD3D62E3C1F40C422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906248   (644812) от 08.06.2015
+
+Гнездо Дракона / Dragon Nest: Warriors' Dawn (2014) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что всегда неуклюжий, но несомненно талантливый парень станет великим героем, который спасет свою красивейшую планету от пробудившегося зла? Много лет, пока легендарный Черный дракон спал, земля Алтера хранила хрупкий мир между расами людей, эльфов и неведомых нашему миру животных. Когда же он пробудился, охваченные ужасом жители были вынуждены (   Читать дальше...   )Производство: Китай / Mili PicturesЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Юэфэн СонгПеревод: дублированный (лицензия)Продолжительность: 01:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235F9F94CED913AD09588D61A3CAB6EBC93A4FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680036   (644125) от 16.07.2013
+
+Импи – суперстар! / Urmel voll in Fahrt (2008) DVDRip [UKR, ENG]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то профессор Хабакук нашел на острове Титиу странное яйцо, из которого вылупился маленький динозавр Импи, которого полюбили и люди, и звери… Но настали новые времена, и на Титиу появилась обаятельная панда Бабу. Динозаврик загрустил, подумав, что друзья разлюбили его. И тогда он отправился в большой мир, чтобы стать артистом грандиозного парка развлечений. (   Читать дальше...   )Производство: Bavaria Pictures GmbH, Constantin FilmЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Райнхард Клоосс, Хольгер ТаппеПеревод: многолосый закадровыйПродолжительность: 01:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6906F58DB48F923C944452FB9A63E07E1A3758B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518462   (642589) от 03.07.2012
+
+Барби: Приключения Русалочки 2 / Barbie in a Mermaid Tale 2 (2012) [H.264] DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барби возвращается в роли самой стильной и очаровательной чемпионки по серфингу Мерлии, которая является принцессой русалкой чудесного подводного мира Океания. В новой истории Мерлия отправляется в Австралию, чтобы принять участие в мировом чемпионате по серфингу. Но когда жестокая Эрис сбегает из водоворота с планами вновь править троном Океании, Мерлия и ее подводные (   Читать дальше...   )Жанр: Анимационный, детский, семейныйРежиссер: Уильям ЛауПерсонажи: Келли Шеридан, Эшли Болл, Кэтлин Барр, Николь Оливер, Некия Барриз, Марика Хендрикс, Гари Чок, Полина Гиллис, Элистер Эбелл, Джонатан ХолмсПеревод: ДублированныйСубтитры: НетПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DB3BCE69C898712FE2698BB4F261AF439630EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518317   (642584) от 03.07.2012
 
 Планета сокровищ / Treasure Planet (2002) DVDRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642584.jpg" />
+  <img src="Z:/picture/008/save_picture_642584.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641878.jpg" />
+  <img src="Z:/picture/005/save_picture_641878.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641858.jpg" />
+  <img src="Z:/picture/008/save_picture_641858.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641316.jpg" />
+  <img src="Z:/picture/008/save_picture_641316.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640725.jpg" />
+  <img src="Z:/picture/008/save_picture_640725.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640597.jpg" />
+  <img src="Z:/picture/008/save_picture_640597.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639948.jpg" />
+  <img src="Z:/picture/008/save_picture_639948.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639865.jpg" />
+  <img src="Z:/picture/008/save_picture_639865.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639849.jpg" />
+  <img src="Z:/picture/008/save_picture_639849.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638342.jpg" />
+  <img src="Z:/picture/008/save_picture_638342.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638272.jpg" />
+  <img src="Z:/picture/008/save_picture_638272.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_638106.jpg" />
+  <img src="Z:/picture/005/save_picture_638106.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638013.jpg" />
+  <img src="Z:/picture/008/save_picture_638013.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638012.jpg" />
+  <img src="Z:/picture/008/save_picture_638012.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637736.jpg" />
+  <img src="Z:/picture/008/save_picture_637736.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637545.jpg" />
+  <img src="Z:/picture/008/save_picture_637545.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636820.jpg" />
+  <img src="Z:/picture/008/save_picture_636820.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636096.jpg" />
+  <img src="Z:/picture/008/save_picture_636096.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635279.jpg" />
+  <img src="Z:/picture/008/save_picture_635279.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635270.jpg" />
+  <img src="Z:/picture/008/save_picture_635270.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634400.jpg" />
+  <img src="Z:/picture/008/save_picture_634400.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633954.jpg" />
+  <img src="Z:/picture/008/save_picture_633954.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A2CB079531CAAD35D579B211463E6BEA5BA819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801508   (632546) от 03.07.2014
-
-Лига Справедливости: В ловушке времени / JLA Adventures: Trapped in Time (2014) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Величайший злодей всех времён, Лекс Лютор, побежден Лигой Справедливости. Он погребён в безжизненной ледяной пустыне. Но наступил 31-ый век. Время мира и спокойствия. А Каратэ-Киду не терпится вступить в Легион Супергероев. И вот, находясь в музее с Венерой, он случайно, хвастаясь своими навыками, освобождает замороженного в глыбе льда Лекса Лютора. Оказавшись в (   Читать дальше...   )Производство: США / Warner Bros. AnimationЖанр: Мультфильм, Фантастика, БоевикРежиссер: Джанкарло ВолпПерсонажи: Дидрих Бадер, Лора Бэйли, Данте Баско, Кори Бертон, Грэй ДеЛисл, Джек Де Сена, Майкл Донован и др.Перевод: Многоголосый закадровый (SkyeFilmTV)Язык субтитров: Английский, Французский, Испанский, Португальский, Китайский, ТайскийПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BF4461ED3141A00FC7B9171789F47AAEB5AC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682180   (632173) от 22.07.2013
-
-Сарила: Затерянная земля / The legend of Sarila / La legende de Sarila (2013) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеко на севере лагерь эскимосов-кочевников находится под угрозой голода и вымирания. Шаман племени, Крулик, не в силах помочь, и людей охватывает отчаяние. Некоторые из них обретают надежду в древней легенде о далёкой Сариле — земле, спрятанной среди ледников, в которой не существует холода и голода. Легенда гласит, что только те, кто чист сердцем, могут попасть (   Читать дальше...   )Жанр: Мультфильм, приключенияРежиссер: Нэнси СевардПеревод: ДублированныйПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403EF2248ABF813F38D374292F34B4DF9E50C06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682131   (631953) от 22.07.2013
-
-Сарила: Затерянная земля / The legend of Sarila / La legende de Sarila (2013) DVDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеко на севере лагерь эскимосов-кочевников находится под угрозой голода и вымирания. Шаман племени, Крулик, не в силах помочь, и людей охватывает отчаяние. Некоторые из них обретают надежду в древней легенде о далёкой Сариле — земле, спрятанной среди ледников, в которой не существует холода и голода. Легенда гласит, что только те, кто чист сердцем, могут попасть (   Читать дальше...   )Жанр: Мультфильм, приключенияРежиссер: Нэнси СевардПерсонажи: Кристофер Пламмер (Croolik, озвучка), Рашель Лефевр (Apik, озвучка), Дастин Миллиган (Markussi, озвучка), Тим Розон (Poutulik, озвучка), Женевьев Бюжо (Saya, озвучка), Джеймс Кидни (Kwatak, озвучка), Тайрон Бенскин (Itak, озвучка), Анджела Галуппо (Mipoulok, озвучка), Илайс Туфексис (Kauji, озвучка), Роберт Хигден (Arlok, озвучка), Соня Болл (Kimi, озвучка), Холли (   Читать дальше...   )Перевод: ДублированныйПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A35DFAA55919BDFF76AC3DBECEFD2635959491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294177   (631255) от 06.04.2019
-
-Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция, M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Мультфильм, Комедия, Семейный, ФэнтезиРежиссер: Александр Астье, Луи КлишиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933E04BD14A024DF01F7060A22763EE1C6726F18
 ```
 
 https://mybot314.ru/tekegram_catalog/

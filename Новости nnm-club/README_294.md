@@ -1,3 +1,160 @@
+###  Публикация: 1782802   (25889) от 03.03.2025
+
+В ГД назвали проблему квадроберов более не актуальной
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смысла в разработке законопроекта, устанавливающего контроль над квадробингом, нет, тема ушла из повестки. Об этом заявил ТАСС первый заместитель председателя комитета Госдумы по культуре заслуженный артист России Денис Майданов."Я, честно говоря, не вижу и не видел смысла говорить об этом. Можно сказать по-русски, все уже окстились и успокоились на эту тему. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771641   (25798) от 04.03.2025
+
+Анора / Anora (2024) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бруклин. Стриптизерша Анора, предпочитающая имя Эни, знакомится с сыном русского олигарха Ваней, который проводит всё время в вечеринках и развлечениях. Вскоре парень выкупает время Эни на неделю, предлагает слетать в Вегас, а там молодые люди спонтанно женятся. Узнав об этом из газет, родители Вани приходят в ярость и срочно вылетают из России в США, а разобраться (   Читать дальше...   )Производство: США / Cre Film, FilmNation EntertainmentЖанр: драма, мелодрама, комедияРежиссер: Шон БэйкерАктеры: Майки Мэдисон, Марк Эйдельштейн, Юра Борисов, Карен Карагулян, Ваче Товмасян, Алексей Серебряков, Дарья Екамасова, Линдси Нормингтон, Айви Волк, Пол ВайсманПеревод: Дублированный, многоголосый, авторскийЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A72256B0E22F955E8B99805F20EEC23CB2A0554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783039   (25708) от 05.03.2025
+
+Hisense обвинили в продаже LED-телевизоров под видом QLED
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Hisense USA столкнулась с судебным иском за рекламирование телевизоров с квантовыми точками при их возможном отсутствии в моделях. В иске, поданном в Южном округе Нью-Йорка от имени Роберта Мациоче, утверждается, что заявленная технология квантовых точек (QLED) отсутствует или незаметна в телевизорах Hisense. Об этом сообщает издание The Register.Квантовые (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655765   (25695) от 05.03.2025
+
+TVGuide v4.5.20 Premium Mod by Alex.Strannik [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобная телепрограмма с регулярными обновлениями, напоминаниями о начале передач, виджетом, управлением телевизором LG Smart TV и возможностью создать несколько разных списков каналов. Короткие видеоинструкции по работе с TVGuide - http://www.youtube.com/user/molokovmobile.
+В приложении нет просмотра трансляций и видео.Тип издания: PremiumРелиз состоялся: 05.02.2025Разработчик: Molokov DmitryПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29655CE596CCA0744A2FB373C91253B51795D462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217151   (25692) от 05.03.2025
+
+Академия верстки | Веб-разработчик 12.0 (2018) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25692.jpg" />
+</div>
+
+
+###  Подробнее
+
+За 7 недель обучения мы подробно разберем все этапы создания сайтов, научимся готовить прототипы, получим навыки создания и работы с дизайн-макетом PSD.Производство: Артём ИсламовЖанр: Веб-разработка, HTML, CSSПродолжительность: 40:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C6F3A4F2D31006D2A8B619BE881907111AA0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120415   (25588) от 06.03.2025
+
+В.В. Петухов | Полный курс лекций по Общей психологии (54 части) [1997-1998] CamRip [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые предпринята полная реконструкция курса В.В. Петухова, прочитанного в 1997-98 годах и ставшего одним из ярких событий учебной жизни факультета конца 90-х. Достоинством курса является его исчерпывающий характер - курс содержит 55 лекций на 54 DVD дисках (продолжительность большинства лекций 2ч. 30 мин.), охватывающие практически все темы современного психологического (   Читать дальше...   )Жанр: ЛекцииПродолжительность: 137:30:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783075   (25570) от 06.03.2025
 
 Эксперт объяснил, почему Трамп верит в криптовалюты
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25570.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25501.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25482.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25378.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25282.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ CorelDRAW Graphics Suite 2025 26.0.0.101 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25277.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25261.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ Google отключился от российских точек обмена т
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25178.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25063.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ The KMPlayer 4.2.3.14 repack by cuta (build 10) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24855.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ Launcher for zapret 2.4 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24852.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24848.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24835.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24752.jpg" />
 </div>
 
 
@@ -373,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24750.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24548.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24539.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24519.jpg" />
 </div>
 
 
@@ -479,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24432.jpg" />
 </div>
 
 
@@ -505,7 +662,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24339.jpg" />
 </div>
 
 
@@ -516,163 +673,6 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4626EA797C9DAA48200A1B35981B673A71D0640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785535   (24337) от 18.03.2025
-
-WinRAR просит купить сумку, раз вы не хотите покупать лицензию
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Rarlab объявила о совместном проекте с французским брендом Tern. Они создали сумку, внешний вид которой является отсылкой к логотипу знаменитого архиватора WinRAR. Это три книжки — пурпурного, зеленого и синего цвета — сложенные стопкой. Как гласит официальное сообщение в Х, «Что поддержит разработчика приложения лучше, чем покупка WinRAR-сумки, раз уж вы (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364946   (24222) от 19.03.2025
-
-Фильмы о звездах (2019-2025) DVB [H.264] (серии 1-120 из ?) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Демьяненко ненавидел своего знаменитого персонажа и был его полной противоположностью. Встречи назначал только поздним вечером, маскировался перед выходом на улицу, был в сложных отношениях с самыми близкими. Какой там Шурик... Его считали социофобом! И жить актёру с этим было трудно... Самый некрасивый актёр советского кино – лопоухий и нелепый Владимир (   Читать дальше...   )Телекомпания: Россия / ТВ ЦентрЖанр: Документальный, Искусство, БиографияУчастники: Михаил Боярский, Елена Ульянова, Александр Басов, Евгений ГерасимовСубтитры: русские, телетекст (888)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5D97C267643B79700307BB870D8050206CC117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786205   (24125) от 20.03.2025
-
-Маск и DOGE обнаружили «волшебные денежные компьютеры», печатающие деньги «из воздуха»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава Департамента эффективности государственного управления (DOGE) Илон Маск рассказал об обнаружении «волшебных денежных компьютеров» (magic money computers), печатающих деньги «из воздуха».Маск сделал это замечание во время разговора с сенатором Тедом Крузом (республиканец, Техас) во время подкаста «Verdict».По словам Маска, такие компьютеры существуют в нескольких (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254544   (24117) от 20.03.2025
-
-Neverwinter Nights: Enhanced Edition (2018) [Multi] (89.8193.37-15b/dlc) License GOG [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики изменили только интерфейс, который теперь масштабируется до разрешения 4K, а также добавили эффектов, таких как глубина резкости, пиксельные шейдеры и постобработка. Кроме того, в Neverwinter Nights: Enhanced Edition входит основная игра и дополнения Shadows of Undrentide, Hordes of the Underdark, Pirates of the Sword Coast, Infinite Dungeons и Wyvern (   Читать дальше...   )Тип издания: LicenseРазработчик: BeamdogЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: Английский, Немецкий, Французский, ПольскийЯзык субтитров: Английский, Немецкий, Французский, Польский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727848A1F0C5808B880DEF11D98D6E900B89A367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785152   (23908) от 22.03.2025
-
-Электрический штат / The Electric State (2025) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осиротевшая девушка отправляется на поиски младшего брата вместе с желтым игрушечным роботом и причудливым бродягой.Производство: Бразилия, Индия, США / AGBO, Double Dream, Skybound EntertainmentЖанр: фантастика, боевик, драма, комедия, приключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Милли Бобби Браун, Крис Пратт, Ке Хюи Куан, Стэнли Туччи, Вуди Норман, Джанкарло Эспозито, Джейсон Александер, Мартин Клебба, Марин Хинкль, Вуди Харрельсон, Энтони МакиПеревод: Дублированный (Videofilm Int. официальный; Red Head Sound неофициальный)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, 2xFull), английские (SDH)Продолжительность: 02:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786701   (23787) от 23.03.2025
-
-От Google Play требуют удалить 47 VPN-приложений
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналисты изучили Lumen Database, где Google и другие зарубежные сервисы публикуют информацию о поступающих к ним запросах на удаление контента.Изучив    базу они обнаружили, что с 12 марта Роскомнадзор направил  к Google более 50 запросов с требованием удалить из Google Play 47 приложений VPN:1.1.1.1 + WARP и HideMyNetVPN;
- VPN4TV и Secure VPN;(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

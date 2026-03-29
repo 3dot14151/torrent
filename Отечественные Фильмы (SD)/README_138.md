@@ -1,3 +1,29 @@
+###  Публикация: 1703395   (115120) от 29.02.2024
+
+Танцуй, Селёдка! (2023) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильная и независимая Жанна давно переехала в Москву, оставив позади родной городок и непутёвого отца, когда-то бросившего семью. Однако его неожиданная смерть вынуждает её вернуться назад, чтобы организовать похороны. Одна проблема — мёртвый отец неожиданно «оживает», продолжает называть дочь «селёдкой» как 20 лет назад и до смерти хочет провести последний день (   Читать дальше...   )Производство: Россия / Черноморская киностудия, Кинокомпания CTB / СТВЖанр: драма, комедияРежиссер: Александра ЛупашкоАктеры: Александра Бортич, Павел Майков, Илья Антоненко, Александра Бабаскина, Наталья Павленкова, Данил Стеклов, Ольга Лапшина, Анна Михалкова, Марианна Башкина, Павел КузьминПеревод: Не требуется (Русский)Субтитры: Русские (Full) - отдельноПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CED44EE6899E4F2000DAADDC880A90D9D9AE6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703519   (115119) от 29.02.2024
 
 Танцуй, Селёдка! (2023) WEBRip [H.265]
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115119.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115115.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115101.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114054.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108963.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102587.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102389.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102276.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101919.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95992.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91259.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90345.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87891.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87804.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87780.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87766.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87702.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87656.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87534.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87500.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87482.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87159.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87082.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86733.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86677.jpg" />
 </div>
 
 
@@ -648,34 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C35DE0C8D75A452413FAF068ABF94EC51C1FE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478150   (86406) от 04.04.2012
-
-Чудо (2009) DVDRip
-
->>След.
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на событиях, которые происходили в 1956 году в Куйбышеве и известные как Стояние Зои.
-
-Существует легенда об окаменении человека в Самаре 31 декабря 1955 года в доме 84 по улице Чкалова. Утверждается, что в доме жила обычная женщина Клавдия Болонкина, и её сын Николай в новогоднюю ночь решил пригласить друзей. Среди приглашенных была девушка Николая, Зоя Карнаухова. Незадолго до события он начал с ней встречаться. Когда все подруги были с парнями, Зоя всё сидела одна, Коля задерживался. Когда начались танцы, она заявила: «Если нет моего Николая, буду с Николой Угодником танцевать!» И направилась к углу, где висели иконы. Друзья ужаснулись: «Зоя, это грех», но она сказала: «Если есть Бог, пусть он меня накажет!». Взяла икону, прижала к груди. Вошла в круг танцующих и вдруг застыла, словно вросла в пол. Её невозможно было сдвинуть с места, а икону нельзя было взять из рук — она будто приклеилась намертво. Внешних признаков жизни девушка не подавала. Но в области сердца был слышен едва уловимый стук. (   Читать дальше...   )Жанр: ДрамаРежиссер: Александр ПрошкинАктеры: Мария Бурова, Константин Хабенский, Сергей Маковецкий, Полина Кутепова, Виктор Шамиров, Виталий Кищенко, Анна Уколова, Дарья Румянцева, Камиль Тукаев, Ольга Лапшина, Александр Потапов, Тимофей ТрибунцевПродолжительность: 01:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590BBDC9E71E7D3DFFBCCB92F040E11248B87011
 ```
 
 https://mybot314.ru/tekegram_catalog/

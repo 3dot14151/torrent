@@ -6,7 +6,7 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11436.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9162.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94.jpg" />
 </div>
 
 

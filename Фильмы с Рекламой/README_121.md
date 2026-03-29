@@ -1,3 +1,29 @@
+###  Публикация: 1777150   (28660) от 04.02.2025
+
+Купить сейчас! Ловушка для потребителя / Buy Now! The Shopping Conspiracy (2024) WEBRip [H.264/1080p] [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приоткрывает завесу тайны над ведущими мировыми брендами, раскрывая скрытые тактики и тайные стратегии, которые удерживают нас всех в бесконечном цикле покупок, независимо от цены.Производство: Великобритания / Grain MediaЖанр: документальныйРежиссер: Ник СтэйсиАктеры: Eric Liedtke, Roger Lee, Maren Costa, Mara Einstein, Paul Polman, Nirav Patel, Kyle Wiens, Anna Sacks, Jan Dell, Jim Puckett и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:58Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543C33C362426F726D5FD70C78C208E20429FCC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780452   (27215) от 18.02.2025
 
 Репликатор / Replicator (2024) WEBRip [DVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27215.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27213.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26889.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26843.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26771.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26156.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26044.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25843.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25821.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25817.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24601.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23824.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23432.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22311.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22303.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22290.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22284.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21766.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21725.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21633.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21552.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21530.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21524.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21523.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21519.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F726823D92F89F7968CB8B2DF9B107CAC31969D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791271   (21518) от 13.04.2025
-
-Попай-душегуб / Мокрячок Попай / Popeye the Slayer Man (2025) WEBRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21518.jpg" />
-</div>
-
-
-###  Подробнее
-
-О старой консервной фабрике в Анчор-Бэй вот уже два десятка лет ходят ужасающие слухи. Якобы по огромному заброшенному зданию бродит призрак моряка, который жестоко убивает каждого, кто осмелится туда войти. Слухи время от времени подтверждаются исчезновениями людей, но к россказням о призраке местные жители всё равно продолжают относиться, как к «городской легенде». (   Читать дальше...   )Производство: США / Millman Productions, Otsego Media, Ron Lee ProductionsЖанр: ужасыРежиссер: Роберт Майкл РайанАктеры: Джейсон Роберт Стефенс, Сара Никлин, Анджела Релусио, Elena Juliano, Marie-Louise Boisnier, Mabel Thomas, Скотт Своуп, Steven McCormack, Sean Michael Conway, Даг Декер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:18Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A3B477731D400F74424329D9923B943DFE7BB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

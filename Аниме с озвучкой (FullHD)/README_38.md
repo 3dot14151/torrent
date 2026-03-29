@@ -1,3 +1,29 @@
+###  Публикация: 1737332   (42041) от 29.09.2024
+
+Любовь неделима между близнецами | Koi wa Futago de Warikirenai | Love Is Indivisible by Twins [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы когда-нибудь фантазировали об отношениях с близнецами, то вы как раз по адресу! Главный герои истории, парень по имени Джун, с самого детства дружит с двумя очаровательными соседками, близняшками Руми и Наори. Несмотря на идентичные гены, девочки абсолютно не похожи друг на друга. Старшая, Руми, с виду пацанка пацанкой, но на самом деле очень нежная и заботливая. (   Читать дальше...   )Производство: Япония / Студия Roll2, Cre-pЖанр: Романтика, школаРежиссер: Наканиси МотокиЯзык озвучки: Русский (Kazoku Project), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C6BC7838DC396799CABEE9F0BE411BFEF02056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736820   (42039) от 29.09.2024
 
 Почему все забыли мой мир? | Naze Boku no Sekai o Dare mo Oboeteinai no ka? | Why Does Nobody Remember Me in This World? [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42039.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42028.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 из 12] WEBRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41944.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Grendizer U | Грендайзер U [2024, TV, 13 из 13] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41754.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41739.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41730.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41718.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41532.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Hyakkano | Сто
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41350.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41308.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Girls Band Cry | Плач девичьей группы [2024, TV, 13] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41256.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41182.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40608.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40087.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Elf-san wa Yaserarenai | Plus-Sized Elf | Эльф не может похуде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39940.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39846.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39774.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39586.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39170.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Unnamed Memory | Безымянная память [ТВ-1] [2024, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38819.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38809.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38708.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37953.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37934.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37805.jpg" />
 </div>
 
 
@@ -647,33 +673,6 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB6B9C8590B40F27D3924158E8601EFB9E0D3A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759606   (37791) от 09.11.2024
-
-Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Истребитель демонов: Тренировка столпов [2024, TV, 8 из 8] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инцидент в Деревне кузнецов завершился, и его последствия могут оказаться судьбоносными для Японии. Собравшись на срочное совещание, столпы, обсудив текущую ситуацию, приходят к заключению, что нынешние охотники на демонов слишком слабы, чтобы оказывать достойное сопротивление Молодым лунам. Такое положение дел чревато большими человеческими потерями и может поставить (   Читать дальше...   )Производство: UfotableЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоЯзык озвучки: Японский, русский (Studio Band, FlarrowFilms, Jaskier, AniLibria, TVShows)Субтитры: Английские, Русские (Crunchyroll, YakuSub Studio)Продолжительность: 1 эп. на 49 мин. ;
-2-6 эп. по 25 мин. ; 7 эп. на 30 мин. ; 8 эп. на 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8066EA62A6B04C58484EAB53377F567F44237004
 ```
 
 https://mybot314.ru/tekegram_catalog/

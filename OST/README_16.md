@@ -6,7 +6,7 @@ Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424608.jpg" />
+  <img src="Z:/picture/008/save_picture_424608.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419723.jpg" />
+  <img src="Z:/picture/008/save_picture_419723.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419719.jpg" />
+  <img src="Z:/picture/008/save_picture_419719.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419558.jpg" />
+  <img src="Z:/picture/008/save_picture_419558.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Thomas Crown Affair (1999) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419254.jpg" />
+  <img src="Z:/picture/008/save_picture_419254.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418742.jpg" />
+  <img src="Z:/picture/008/save_picture_418742.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Wasabi (2001) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417338.jpg" />
+  <img src="Z:/picture/008/save_picture_417338.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415180.jpg" />
+  <img src="Z:/picture/008/save_picture_415180.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ James Newton Howard - Waterworld (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415092.jpg" />
+  <img src="Z:/picture/008/save_picture_415092.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Trevor Jones - Around the World in 80 Days (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415032.jpg" />
+  <img src="Z:/picture/008/save_picture_415032.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Andrea Guerra - The Pursuit Of Happyness (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414516.jpg" />
+  <img src="Z:/picture/008/save_picture_414516.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Eurotrip (2004) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412848.jpg" />
+  <img src="Z:/picture/008/save_picture_412848.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412722.jpg" />
+  <img src="Z:/picture/008/save_picture_412722.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Alan Menken - Enchanted (2007) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410611.jpg" />
+  <img src="Z:/picture/008/save_picture_410611.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Nathaniel Mechaly - Taken (2008) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410610.jpg" />
+  <img src="Z:/picture/008/save_picture_410610.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ James Horner - A Beautiful Mind (2001) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410596.jpg" />
+  <img src="Z:/picture/008/save_picture_410596.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mike Higham & Matthew Margeson - Miss Peregrine’s Home For Peculiar Children /
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409527.jpg" />
+  <img src="Z:/picture/008/save_picture_409527.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408794.jpg" />
+  <img src="Z:/picture/008/save_picture_408794.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Motoi Sakuraba, Yuka Kitamura - Dark Souls II SotFS (Original Soundtrack) (2015)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408202.jpg" />
+  <img src="Z:/picture/008/save_picture_408202.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408025.jpg" />
+  <img src="Z:/picture/008/save_picture_408025.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Reservoir Dogs / Бешеные псы - OST (1992) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407769.jpg" />
+  <img src="Z:/picture/008/save_picture_407769.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407116.jpg" />
+  <img src="Z:/picture/008/save_picture_407116.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403152.jpg" />
+  <img src="Z:/picture/008/save_picture_403152.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402405.jpg" />
+  <img src="Z:/picture/008/save_picture_402405.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401596.jpg" />
+  <img src="Z:/picture/008/save_picture_401596.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401554.jpg" />
+  <img src="Z:/picture/008/save_picture_401554.jpg" />
 </div>
 
 

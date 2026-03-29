@@ -6,7 +6,7 @@ Adobe Flash Player 25.0.0.130 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835100.jpg" />
+  <img src="Z:/picture/008/save_picture_835100.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RadioMaximus 2.27.1 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835048.jpg" />
+  <img src="Z:/picture/008/save_picture_835048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PassMark PerformanceTest 10.1 Build 1006 RePack (& Portable) by elchupacabra [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835046.jpg" />
+  <img src="Z:/picture/009/save_picture_835046.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Textify 1.8.6 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835029.jpg" />
+  <img src="Z:/picture/009/save_picture_835029.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PrivaZer 4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835005.jpg" />
+  <img src="Z:/picture/008/save_picture_835005.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835004.jpg" />
+  <img src="Z:/picture/008/save_picture_835004.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ USDownloader 1.3.5.9 Portable (1.05.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834977.jpg" />
+  <img src="Z:/picture/008/save_picture_834977.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ EssentialPIM Pro 7.23 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834972.jpg" />
+  <img src="Z:/picture/008/save_picture_834972.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MKVToolNix 62.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834950.jpg" />
+  <img src="Z:/picture/008/save_picture_834950.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Viber 6.6.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834938.jpg" />
+  <img src="Z:/picture/008/save_picture_834938.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ RogueKiller Anti-Malware 14.4.2.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834937.jpg" />
+  <img src="Z:/picture/008/save_picture_834937.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Calibre 4.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834932.jpg" />
+  <img src="Z:/picture/008/save_picture_834932.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sumatra PDF 3.3.12511 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834925.jpg" />
+  <img src="Z:/picture/008/save_picture_834925.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ W10Privacy 3.8.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834882.jpg" />
+  <img src="Z:/picture/008/save_picture_834882.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ KMSoffline 2.3.2 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834796.jpg" />
+  <img src="Z:/picture/008/save_picture_834796.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Kaspersky Tweak Assistant 21.10.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834778.jpg" />
+  <img src="Z:/picture/008/save_picture_834778.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Viber 12.8.1.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834764.jpg" />
+  <img src="Z:/picture/008/save_picture_834764.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BELOFF [dp] 2020.04.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834658.jpg" />
+  <img src="Z:/picture/008/save_picture_834658.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834638.jpg" />
+  <img src="Z:/picture/008/save_picture_834638.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mozilla Firefox 46.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834580.jpg" />
+  <img src="Z:/picture/008/save_picture_834580.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ QQ Browser 9.3.1.7336.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834579.jpg" />
+  <img src="Z:/picture/008/save_picture_834579.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Citrio 48.0.2564.270 (5784.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834569.jpg" />
+  <img src="Z:/picture/008/save_picture_834569.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Internet Download Manager 6.37 Build 14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834535.jpg" />
+  <img src="Z:/picture/008/save_picture_834535.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ BlueStacks App Player 4.200.0.1072 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834531.jpg" />
+  <img src="Z:/picture/008/save_picture_834531.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Media Player Classic Home Cinema 1.7.11 Stable RePack (& portable) by KpoJIuK [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834528.jpg" />
+  <img src="Z:/picture/008/save_picture_834528.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Lamer boot V4 MINI + STANDART by Puhpol (12.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834515.jpg" />
+  <img src="Z:/picture/008/save_picture_834515.jpg" />
 </div>
 
 

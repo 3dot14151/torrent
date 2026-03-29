@@ -6,7 +6,7 @@ WPI 2010 7.7.0 LITE (2010/RUS) 7.7.0 [только русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767024.jpg" />
+  <img src="Z:/picture/008/save_picture_767024.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ ZD Soft Screen Recorder 10.4.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766971.jpg" />
+  <img src="Z:/picture/008/save_picture_766971.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ UltraUXThemePatcher 3.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766958.jpg" />
+  <img src="Z:/picture/008/save_picture_766958.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Firefox Browser 78.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766943.jpg" />
+  <img src="Z:/picture/008/save_picture_766943.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Q-Dir 7.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766925.jpg" />
+  <img src="Z:/picture/008/save_picture_766925.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Q-Dir 8.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766912.jpg" />
+  <img src="Z:/picture/008/save_picture_766912.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Opera GX 68.0.3618.191 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766911.jpg" />
+  <img src="Z:/picture/008/save_picture_766911.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ K-Lite Codec Pack Update 15.5.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766902.jpg" />
+  <img src="Z:/picture/008/save_picture_766902.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Firefox Browser 78.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766900.jpg" />
+  <img src="Z:/picture/008/save_picture_766900.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dism++ 10.1.25.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766877.jpg" />
+  <img src="Z:/picture/008/save_picture_766877.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WinTools.net Premium 19.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766872.jpg" />
+  <img src="Z:/picture/008/save_picture_766872.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Process Lasso Pro 9.0.0.568 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766870.jpg" />
+  <img src="Z:/picture/008/save_picture_766870.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Glary Utilities Pro 5.113.0.138 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766868.jpg" />
+  <img src="Z:/picture/008/save_picture_766868.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mozilla Firefox Quantum ESR 60.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766858.jpg" />
+  <img src="Z:/picture/008/save_picture_766858.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Mozilla Thunderbird 68.10.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766849.jpg" />
+  <img src="Z:/picture/008/save_picture_766849.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766827.jpg" />
+  <img src="Z:/picture/008/save_picture_766827.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Helium Premium 13.6.15187.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766802.jpg" />
+  <img src="Z:/picture/008/save_picture_766802.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Glary Utilities 5.113.0.138 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766801.jpg" />
+  <img src="Z:/picture/008/save_picture_766801.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VueScan Pro 9.6.28 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766799.jpg" />
+  <img src="Z:/picture/008/save_picture_766799.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Microsoft Edge 83.0.478.58 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766783.jpg" />
+  <img src="Z:/picture/008/save_picture_766783.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Malwarebytes AdwCleaner 8.0.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766776.jpg" />
+  <img src="Z:/picture/008/save_picture_766776.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Total Commander 9.0a VIM 21 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766760.jpg" />
+  <img src="Z:/picture/008/save_picture_766760.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wallpaper Engine Build 1.0.678 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766755.jpg" />
+  <img src="Z:/picture/008/save_picture_766755.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ WinScan2PDF 4.67 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766753.jpg" />
+  <img src="Z:/picture/008/save_picture_766753.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Reg Organizer 8.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766752.jpg" />
+  <img src="Z:/picture/008/save_picture_766752.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Windows 10 Manager 3.0.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766749.jpg" />
+  <img src="Z:/picture/008/save_picture_766749.jpg" />
 </div>
 
 

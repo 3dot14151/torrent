@@ -1,3 +1,111 @@
+###  Публикация: 1078514   (299840) от 01.12.2016
+
+TechSmith Snagit 4.0.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_299840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snagit – инструмент для захвата изображений с экрана
+TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 ноября 2016Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E342C8E053D0471FA37165A2D9599B7F7D47B2A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423650   (299639) от 13.11.2020
+
+Magnet 2.5.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_299639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый раз, когда вы хотите скопировать содержимое из одного приложения в другое, сравнивать файлы бок о бок в многозадачном режиме, необходимо сделать так, чтобы все окна были расположены соответственно. Magnet делает этот процесс простым и понятным. Вы щелкаете любое окно в левой, правой, верхней или нижней половине экрана. И путем перетаскивания окон по углам, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Pavel KozarekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A0ABCCAD2BF1024B646F54810A5FB8CE5CCECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078519   (299563) от 01.12.2016
+
+LilyView 1.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_299563.jpg" />
+</div>
+
+
+###  Подробнее
+
+LilyView — это лёгкий, поддерживающий мульти-тач жесты просмотрщик изображений, которого вам так не хватало раньше.
+При загрузке какого-нибудь графического файла LilyView отображает его по центру экрана. Примечательно, что программа самостоятельно отслеживает, есть ли другие изображения в той же папке, где была открыта текущая картинка. Если в папке имеется другая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Software Ambience Corp.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F084FFD082B52E25724668361CD242F4C7FF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184698   (299440) от 18.11.2017
+
+iExplorer 4.1.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_299440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
+
+iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A986A8368D241EBCFB0A3AF0737946F8CC2B924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334059   (299132) от 27.10.2019
 
 Iridient Developer 3.3.8 [En]
@@ -6,7 +114,7 @@ Iridient Developer 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299132.jpg" />
+  <img src="Z:/picture/008/save_picture_299132.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ DxO PhotoLab 2 ELITE Edition 2.3.3 (build 47) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299125.jpg" />
+  <img src="Z:/picture/008/save_picture_299125.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ PowerPhotos 1.1.2
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299065.jpg" />
+  <img src="Z:/picture/008/save_picture_299065.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ iWatermark Pro 2.5.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298957.jpg" />
+  <img src="Z:/picture/008/save_picture_298957.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ MKVToolNix 36.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298955.jpg" />
+  <img src="Z:/picture/008/save_picture_298955.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ AnyTrans 4.7.4 (20151127) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298908.jpg" />
+  <img src="Z:/picture/008/save_picture_298908.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ WhatSize 6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298907.jpg" />
+  <img src="Z:/picture/008/save_picture_298907.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Amadeus Pro 2.5.1 (2080) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298871.jpg" />
+  <img src="Z:/picture/008/save_picture_298871.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Twitterrific 5 v5.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298865.jpg" />
+  <img src="Z:/picture/008/save_picture_298865.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ Translate Tab 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298859.jpg" />
+  <img src="Z:/picture/008/save_picture_298859.jpg" />
 </div>
 
 
@@ -274,7 +382,7 @@ Deliver Express 2.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298856.jpg" />
+  <img src="Z:/picture/008/save_picture_298856.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ Sketch 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298803.jpg" />
+  <img src="Z:/picture/008/save_picture_298803.jpg" />
 </div>
 
 
@@ -327,7 +435,7 @@ Aurora HDR Pro 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298796.jpg" />
+  <img src="Z:/picture/008/save_picture_298796.jpg" />
 </div>
 
 
@@ -353,7 +461,7 @@ iShowU Instant (Advanced) 1.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298768.jpg" />
+  <img src="Z:/picture/008/save_picture_298768.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ PhotoMill X (aka Reformator) 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298754.jpg" />
+  <img src="Z:/picture/008/save_picture_298754.jpg" />
 </div>
 
 
@@ -410,7 +518,7 @@ AudioFinder 5.9.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298751.jpg" />
+  <img src="Z:/picture/008/save_picture_298751.jpg" />
 </div>
 
 
@@ -437,7 +545,7 @@ Adguard 2.1.3.600 release (CL - 1.4.138) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298739.jpg" />
+  <img src="Z:/picture/008/save_picture_298739.jpg" />
 </div>
 
 
@@ -463,7 +571,7 @@ iShowU Studio 2 v2.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298682.jpg" />
+  <img src="Z:/picture/008/save_picture_298682.jpg" />
 </div>
 
 
@@ -491,7 +599,7 @@ Audio Playr 2.2 (24) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298680.jpg" />
+  <img src="Z:/picture/008/save_picture_298680.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Reflector 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298640.jpg" />
+  <img src="Z:/picture/008/save_picture_298640.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ LilyView 1.4.1 [Rus/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298567.jpg" />
+  <img src="Z:/picture/008/save_picture_298567.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ Gemini 1.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298457.jpg" />
+  <img src="Z:/picture/008/save_picture_298457.jpg" />
 </div>
 
 
@@ -585,114 +693,6 @@ Gemini распределяет данные по типам, например 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9979D5A4B13F05A40DC90508A2A592E65D316D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334072   (298343) от 27.10.2019
-
-Syncaila 2.1.1 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298343.jpg" />
-</div>
-
-
-###  Подробнее
-
-СИНХРОНИЗАЦИЯ МНОГОКАМЕРНОЙ СЪЕМКИ
-
-Syncaila — компьютерная программа для видеомонтажа, выполняющая полностью автоматическую синхронизацию аудио- и видео- материалов с множества камер и рекордеровТип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CooliCoveПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEA0C56E88A0671FC09BD50A1849F7DB0AE9A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262007   (298324) от 13.11.2018
-
-SuperDuper! 3.2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298324.jpg" />
-</div>
-
-
-###  Подробнее
-
-SuperDuper! - Утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2018Разработчик: Shirt-pocketПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B9D493D161146A19BE2100350AFF67AA41098C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078745   (298207) от 02.12.2016
-
-Framer Studio v76 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Framer Studio - инновационные прототипирование.
-Framer Studio построена на Framer.js, является основой для быстрого прототипирования с открытым исходным кодом. Framer позволяет определить анимацию и взаимосвязь. JavaScript framework для быстрого прототипирования. С фильтрами, Spring Physics и 3D эффектами.  Framer Студия имеет интеграцию с Photoshop и Sketch и позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 декабря 2016Разработчик: PODIUM BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C36AAA5F7B9AD9291C35058C8BCE6E71A0D8DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079015   (298206) от 02.12.2016
-
-iMazing 2.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298206.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02 декабря 2016Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38CE59E187FA0FCEB9C21E638CB069D23BFF4D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

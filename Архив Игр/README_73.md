@@ -6,7 +6,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.04/2dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147537.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Minecraft (2013) [Ru] (1.0) Mod
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147338.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ King's Bounty: Warriors of the North [Ru] (Repack/1.3.1) 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147206.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Oddworld: Stranger’s Wrath HD [Ru/En/Multi9] (L/1.5) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146958.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Bratz: The Movie [Wii] [PAL] [Multi 2] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145201.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.2) Scene Tenoke
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144498.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Party of Sin [Ru/En/Multi6] (L) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144097.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Bulletstorm [Ru/En/Multi7] (L/1.0.7111.0) 2011 2xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144057.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Torchlight 2/II [Ru/En] (RePack/1.20.5.3) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143924.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Red Johnson's Chronicles - One Against All [En] (L/1.0) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143789.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hitman: Absolution. Professional Edition [Ru/En/Multi8] (RePack/1.0.444.0/11 DLC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143603.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/8dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142746.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Victorious: Taking the Lead [Wii] [PAL] [Eng] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141453.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.050.0.1/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139868.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Black Mesa (2015) [Ru] (0.9.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138561.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ A New Beginning - Final Cut [Ru/En/De] (Steam-Rip/1.4.4.0392) 2012 | R.G. Игр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138334.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Black Mesa (2015) [Ru/Multi] (0.9.4522431) Repack xatab [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137147.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MySims [Wii] [PAL] [Multi6] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136407.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Pure Collector's Edition / Pure Коллекционное издание [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136052.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ The Dark Eye: Chains of Satinav [Ru/En/Multi6] (Steam-Rip/1.1) 2012 | R.G.Origin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135799.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ A New Beginning - Final Cut [En] (L/1.4.4) 2012 | *HI2U*
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135743.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ FIFA 13 [Ru/En/Multi13] (Origin-Rip/1.6) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135476.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kane & Lynch: Dead Men [En] (L) 2007 | HATRED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135162.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134523.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Beowulf: The Game / Беовульф [Ru] (RePack) 2007 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133864.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ The Darkness 2 / II: Limited Edition [Ru/En] (L/1.0/4 DLC) 2012 | 2DVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133359.jpg" />
 </div>
 
 

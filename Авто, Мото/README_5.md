@@ -1,3 +1,81 @@
+###  Публикация: 1488082   (1002580) от 09.08.2021
+
+MotoGP. Этап 10. Гран-при Штирии. Гонка (08.08.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002580.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 августа 2021, воскресенье. 15:40 МСК. Этап 10, Гран-при Штирии. Австрия, Гонка (28 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B97CCD547E338AFEE3F112C344C8E4748E8602D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488023   (1002577) от 09.08.2021
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Штирии / MotoGP 2021. Styrian GP (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира в классе MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 02:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E12CCF422AEF950969712513249B6FEB8A4F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488533   (1002045) от 11.08.2021
+
+Серия Кубков NASCAR 2021. Этап 23. Уоткинс Глен. Гонка / NASCAR Cup Series 2021. Go Bowling at The Glen. Watkins Glen International (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Никита Дмитриев)Субтитры: ОтсутствуютПродолжительность: 02:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB3AFA453F53001B360260776E14056EA067F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488536   (1002044) от 11.08.2021
 
 Серия Индикар. Сезон 2021. Этап 11. Нэшвилл. Гонка / NTT Indycar Series 2021. Round 11. Big Machine Music City Grand Prix. Race (09.08.2021) (2021) WEB-DL [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002044.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992393.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991626.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991568.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Formula-E: Santiago E-Prix. Гонка [МАТЧ! Арена HD] (18.01.2020) DV
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990730.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Monster Jam: Japan, Tokyo (02-03.11.2019) WEB-DL [H.264/1080p-LQ] [hand made 50f
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976761.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965123.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Monster Jam: Houston, Texas (25.01.2020) WEB-DL [H.264/720p-LQ]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964242.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958115.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954203.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ Monster Jam: St. Louis, Missouri, (18-19.01.2020) WEB-DL [H.264/720p-LQ]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951034.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949556.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949550.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945296.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937887.jpg" />
 </div>
 
 
@@ -414,7 +492,7 @@ MotoGP. Этап 11. Гран-при Австрии. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927138.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ MotoGP. Этап 11. Гран-при Австрии. Гонка (15.08.2021) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927133.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923900.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922364.jpg" />
 </div>
 
 
@@ -521,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922351.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922325.jpg" />
 </div>
 
 
@@ -573,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922269.jpg" />
 </div>
 
 
@@ -599,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922265.jpg" />
 </div>
 
 
@@ -610,84 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E4ACCB0C3374651DA362545A325180A1401F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489857   (922258) от 18.08.2021
-
-Кубок мира по электробайкам MotoE 2021. Этап 5. Гран-При Австрии / FIM Enel MotoE World Cup 2021. Rd 4. Austrian GP (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922258.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoE, официальное название FIM Enel MotoE World Cup, это класс мотоциклетных гонок в которых используются только электрические байки. Серия была одобрена FIM и первый сезон пройдёт на пяти европейских трассах в рамках поддержки чемпионата MotoGP в 2019 году.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A431F3D4AA93A4D54006A7630A6626ACB30A3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489852   (922257) от 18.08.2021
-
-Чемпионат мира по шоссейно-кольцевым гонкам Формула Е. Сезон 2021. Этап 14-15. Германия. Квалификация 1,2, Гонка 1,2 / Formula E. 2021. R14-15. BMW i Berlin E-Prix presented by CBMM Niobium. Quali  ...
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922257.jpg" />
-</div>
-
-
-###  Подробнее
-
-14-15 этап электрической формулы Formula E в Германия, Берлин.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:46:23 + 01:47:13 + 01:21:27 + 01:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DB26C8154F10EE860CAE1876DDDD40431FD7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490298   (919012) от 20.08.2021
-
-Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2021. Нокхилл, Гонка 1-3 / BTCC. Knockhill, Race 1-3 (2021) (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 48:59 + 41:51 + 39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5228E0755438873526DD4508D748B90BA3EFCB22
 ```
 
 https://mybot314.ru/tekegram_catalog/

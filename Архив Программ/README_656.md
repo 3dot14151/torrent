@@ -6,7 +6,7 @@ PIDKey 2.1.1 build 1001 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719454.jpg" />
+  <img src="Z:/picture/008/save_picture_719454.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cryptic Disk Pro v3.0.29.569 + Portable [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719415.jpg" />
+  <img src="Z:/picture/005/save_picture_719415.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Emsisoft Emergency Kit 2018.3.1.8572 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719393.jpg" />
+  <img src="Z:/picture/008/save_picture_719393.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Opera 52.0.2871.64 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719391.jpg" />
+  <img src="Z:/picture/008/save_picture_719391.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ O&O DiskImage Professional 12.1 Build 149 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719389.jpg" />
+  <img src="Z:/picture/008/save_picture_719389.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ BluffTitler Ultimate 14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719385.jpg" />
+  <img src="Z:/picture/008/save_picture_719385.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Daum PotPlayer 1.7.10667 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719380.jpg" />
+  <img src="Z:/picture/008/save_picture_719380.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Opera 52.0.2871.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719377.jpg" />
+  <img src="Z:/picture/008/save_picture_719377.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Stellarium 0.13.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719350.jpg" />
+  <img src="Z:/picture/008/save_picture_719350.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ WinPE8.0 (x86/Native x86) WinPE10 (x64) Sergei Strelec 2016.06.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719326.jpg" />
+  <img src="Z:/picture/008/save_picture_719326.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The KMPlayer 3.0.0.1440 Final (SOFT+DXVA) [сборка 7sh3 от 24.04.2011] [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719282.jpg" />
+  <img src="Z:/picture/005/save_picture_719282.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Microsoft Windows 10 TP Language Pack build 10061 (x86-x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719193.jpg" />
+  <img src="Z:/picture/008/save_picture_719193.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ SAM CoDeC & DeCoDeR Pack 2015 5.85 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719186.jpg" />
+  <img src="Z:/picture/008/save_picture_719186.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Vivaldi 3.2.1967.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719135.jpg" />
+  <img src="Z:/picture/008/save_picture_719135.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Daum PotPlayer 1.7.10667 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719114.jpg" />
+  <img src="Z:/picture/008/save_picture_719114.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dr.Web Security Space 11.0.7.4020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719109.jpg" />
+  <img src="Z:/picture/008/save_picture_719109.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kinza Browser 5.3.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719061.jpg" />
+  <img src="Z:/picture/008/save_picture_719061.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Vivaldi 2.3.1440.57 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719054.jpg" />
+  <img src="Z:/picture/008/save_picture_719054.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Opera 58.0.3135.79 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719049.jpg" />
+  <img src="Z:/picture/008/save_picture_719049.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ WinUtilities Professional Edition 15.48 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719047.jpg" />
+  <img src="Z:/picture/008/save_picture_719047.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Topaz Sharpen AI 2.1.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719010.jpg" />
+  <img src="Z:/picture/008/save_picture_719010.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Mozilla Firefox SM 37.0.2 by Browsers-SM [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718939.jpg" />
+  <img src="Z:/picture/008/save_picture_718939.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718937.jpg" />
+  <img src="Z:/picture/008/save_picture_718937.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VueScan Pro 9.6.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718919.jpg" />
+  <img src="Z:/picture/008/save_picture_718919.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ PhotoLine 22.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718872.jpg" />
+  <img src="Z:/picture/008/save_picture_718872.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Topaz DeNoise AI 2.2.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718869.jpg" />
+  <img src="Z:/picture/008/save_picture_718869.jpg" />
 </div>
 
 

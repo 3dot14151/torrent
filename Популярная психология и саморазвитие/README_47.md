@@ -1,3 +1,85 @@
+###  Публикация: 903508   (657382) от 31.05.2015
+
+Сергей Кара-Мурза | Манипуляция сознанием. Век XXI (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_657382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является переработанным и дополненным юбилейным изданием знаменитого труда Сергея Кара-Мурзы «Манипуляция сознанием», общий тираж которого достиг 50 000 экземпляров.
+
+Сергей Георгиевич выявляет устройство всей системы манипуляции общественным сознанием – как технологии господства властной элиты. Для России переход к этому новому типу власти означал бы смену (   Читать дальше...   )Жанр: Социальная психология, Личностный ростФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4A37E5E93A5C3F61B5E869A6440FA02B157613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903642   (656377) от 01.06.2015
+
+Сергей Петрушин | Почему любят одних, женятся на других, а живут с третьими (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга родилась в результате многолетних личных размышлений, материалов консультаций, общения с коллегами. В ней говорится о том, могут ли мужчина и женщина договориться; что надо говорить, чтобы спасти отношения; как сохранить удовольствие от совместной жизни надолго; в каких случаях любовь не спасает от проблем.
+
+Прочтите и научитесь различать, какие отношения (   Читать дальше...   )Жанр: Семейная психологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87A811BDA8808C8CE1A45269AAE3DC06872B8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903699   (656186) от 01.06.2015
+
+Эдвард де Боно | Искусство думать: Латеральное мышление как способ решения сложных задач (2015) [PDF, DOCX, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не все задачи, которые ставит перед нами жизнь, могут быть решены при помощи логики. Иногда привитый нам в детстве навык мыслить последовательно оказывается бесполезен, потому что требуется задействовать иной тип мышления - творческий, или латеральный. Использование ментальных техник Эдварда де Боно, всемирно известного разработчика и популяризатора методики латерального (   Читать дальше...   )Жанр: ПсихологияФормат: PDF, DOCX, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9913B349FC017B83A0E4867B33B85BF4D1F58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904226   (655379) от 02.06.2015
 
 Настасья Доброва | Счастливые женщины ходят медленно! (2015) [FB2]
@@ -6,7 +88,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655379.jpg" />
+  <img src="Z:/picture/008/save_picture_655379.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655237.jpg" />
+  <img src="Z:/picture/008/save_picture_655237.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655178.jpg" />
+  <img src="Z:/picture/008/save_picture_655178.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655132.jpg" />
+  <img src="Z:/picture/008/save_picture_655132.jpg" />
 </div>
 
 
@@ -111,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655086.jpg" />
+  <img src="Z:/picture/008/save_picture_655086.jpg" />
 </div>
 
 
@@ -137,7 +219,7 @@ Cэм Харрис | Ложь: Почему говорить правду все
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654126.jpg" />
+  <img src="Z:/picture/008/save_picture_654126.jpg" />
 </div>
 
 
@@ -163,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654119.jpg" />
+  <img src="Z:/picture/008/save_picture_654119.jpg" />
 </div>
 
 
@@ -189,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653631.jpg" />
+  <img src="Z:/picture/008/save_picture_653631.jpg" />
 </div>
 
 
@@ -215,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653327.jpg" />
+  <img src="Z:/picture/008/save_picture_653327.jpg" />
 </div>
 
 
@@ -241,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653267.jpg" />
+  <img src="Z:/picture/008/save_picture_653267.jpg" />
 </div>
 
 
@@ -269,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653152.jpg" />
+  <img src="Z:/picture/008/save_picture_653152.jpg" />
 </div>
 
 
@@ -297,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653102.jpg" />
+  <img src="Z:/picture/008/save_picture_653102.jpg" />
 </div>
 
 
@@ -323,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653094.jpg" />
+  <img src="Z:/picture/008/save_picture_653094.jpg" />
 </div>
 
 
@@ -350,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652996.jpg" />
+  <img src="Z:/picture/008/save_picture_652996.jpg" />
 </div>
 
 
@@ -376,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652875.jpg" />
+  <img src="Z:/picture/008/save_picture_652875.jpg" />
 </div>
 
 
@@ -403,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652871.jpg" />
+  <img src="Z:/picture/008/save_picture_652871.jpg" />
 </div>
 
 
@@ -432,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652405.jpg" />
+  <img src="Z:/picture/008/save_picture_652405.jpg" />
 </div>
 
 
@@ -458,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651809.jpg" />
+  <img src="Z:/picture/008/save_picture_651809.jpg" />
 </div>
 
 
@@ -486,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651353.jpg" />
+  <img src="Z:/picture/008/save_picture_651353.jpg" />
 </div>
 
 
@@ -512,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650263.jpg" />
+  <img src="Z:/picture/008/save_picture_650263.jpg" />
 </div>
 
 
@@ -539,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650252.jpg" />
+  <img src="Z:/picture/008/save_picture_650252.jpg" />
 </div>
 
 
@@ -565,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650143.jpg" />
+  <img src="Z:/picture/008/save_picture_650143.jpg" />
 </div>
 
 
@@ -591,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649253.jpg" />
+  <img src="Z:/picture/008/save_picture_649253.jpg" />
 </div>
 
 
@@ -602,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:166A8B6B7C7CB8C27256C4D96E29FD0081BBD897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031828   (649091) от 05.07.2016
-
-Эндрю Мэтьюз | Живи легко, будь счастлив! (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подарочный сборник лучших произведений знаменитого австралийского психолога и художника Эндрю Мэтьюза – бестселлеров «Живи легко!» и «Счастье в трудные времена». Эти книги заслужили признание миллионов читателей во всем мире, изданы суммарным тиражом свыше 1 500 000 экземпляров и по праву называют лучшим антидепрессантом и источником счастья. Они рассказывают, как (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F669C6BC8FDCCF85D11593EA9AD5915411AB402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905749   (649047) от 06.06.2015
-
-Франс Брекар | 50 упражнений, чтобы научиться отказывать (2013) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умение говорить «нет» – это способ самозащиты, возможность установить предел, а в некоторых случаях просто необходимость. Но, даже принимая этот принцип, воплотить его в жизнь иногда бывает довольно сложно. В нас живет страх не понравиться, мы не любим выглядеть невежливыми. Между тем порой важно сказать «нет» – неагрессивное или нелюбезное, но твердое и решительное. (   Читать дальше...   )Жанр: Общие работы по практической психологииФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F834D30252AF1E758F5DB886CA670A5828DE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291983   (648511) от 28.03.2019
-
-Дэвид Аллен Карп | Поговорим о депрессии. Признать болезнь. Преодолеть изоляцию. Принять помощь (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга серии «Как жить» представляет всестороннее исследование депрессии – тяжелого недуга, который нередко воспринимается в обществе как «плохое настроение» или «лень». Ее автор, Дэвид А. Карп, профессор социологии Бостонского колледжа, живет с этим диагнозом долгие годы. Основываясь на собственном опыте и глубинных интервью с пациентами, он выделяет самые (   Читать дальше...   )Жанр: Психология, СаморазвитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C19FD1E1A67863E3BA4FBBAE21A111711F421E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

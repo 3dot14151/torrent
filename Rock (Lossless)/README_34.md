@@ -1,3 +1,148 @@
+###  Публикация: 1001526   (851982) от 29.03.2016
+
+The Ventures - The Ventures (1995) [FLAC|Lossless|image + .cue] <Instrumental rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driving Guitars
+02. Ups n Downs
+03. Walk Don't Run
+04. Wailin(   Читать дальше...   )Жанр: Instrumental rockПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089EB578389D4347D8CEB205DB24F85DAD4CB613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377457   (851832) от 22.04.2020
+
+VA - Classic Progressive Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851832.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yes - Yours Is No Disgrace
+2. Jethro Tull - Dark Ages
+3. Rush - Presto
+4. Utopia - Jealousy(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398A0C88CFDC58860A2657DE2B88E7E0BDC8382A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001862   (850562) от 30.03.2016
+
+Echolyn - I Heard You Listening (2015) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messenger of All's Right (6:24)
+02. Warjazz (5:16)
+03. Empyrean Views (9:18)
+04. Different Days (7:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD7BEEE4F07CF34D6853B28B607E25854FAF014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499309   (849650) от 01.10.2021
+
+Crystal Blue - Detour (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damage
+02. Back on Track
+03. Someone
+04. Move On(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A4538AC22A2B75850EEE0F02C69B5D095126CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002149   (848988) от 31.03.2016
+
+Care Of Night - Connected (2015) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassandra - 4:31
+02. Hearts Belong - 4:10
+03. Those Words - 3:47
+04. Dividing Lines - 5:50(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260C7C2912FAD0EA4ED2AFF2A225978EC7BF6459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002032   (848909) от 31.03.2016
 
 Sly & The Family Stone - Greatest Hits (2015) [FLAC|Lossless|tracks + .cue] <Rock, Soul, Funk>
@@ -6,7 +151,7 @@ Sly & The Family Stone - Greatest Hits (2015) [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848909.jpg" />
+  <img src="Z:/picture/008/save_picture_848909.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Scorpions - The Best Ballads (1995) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848388.jpg" />
+  <img src="Z:/picture/008/save_picture_848388.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Creedence Clearwater Revival - 7 альбомов (1968-1972) [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848320.jpg" />
+  <img src="Z:/picture/008/save_picture_848320.jpg" />
 </div>
 
 
@@ -96,7 +241,7 @@ Steely Dan - Northeast Corridor: Steely Dan Live! (2021) [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847974.jpg" />
+  <img src="Z:/picture/008/save_picture_847974.jpg" />
 </div>
 
 
@@ -125,7 +270,7 @@ Mark Knopfler - Tracker (2015) [FLAC|Lossless]<Rock, Blues Rock, Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847032.jpg" />
+  <img src="Z:/picture/008/save_picture_847032.jpg" />
 </div>
 
 
@@ -154,7 +299,7 @@ America - Hearts (1975) remaster, 2016, Audio Fidelity [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847010.jpg" />
+  <img src="Z:/picture/008/save_picture_847010.jpg" />
 </div>
 
 
@@ -183,7 +328,7 @@ Rick Springfield - Rocket Science (2016) [FLAC|Lossless|image + .cue] <Rock, Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847002.jpg" />
+  <img src="Z:/picture/008/save_picture_847002.jpg" />
 </div>
 
 
@@ -212,7 +357,7 @@ Strawberry Girls - Italian Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846739.jpg" />
+  <img src="Z:/picture/008/save_picture_846739.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ Heat Exchange - Reminiscence (1972) remastered, 2017 [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846658.jpg" />
+  <img src="Z:/picture/008/save_picture_846658.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ Tyketto - 5 Albums (1991 - 2016) Discography [FLAC|Lossless|image + .cue] <Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846643.jpg" />
+  <img src="Z:/picture/008/save_picture_846643.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ Ringo Starr And His Third All-Starr Band - Ringo Starr And His Third All-Starr B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846185.jpg" />
+  <img src="Z:/picture/008/save_picture_846185.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ Roger Taylor - Outsider (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846179.jpg" />
+  <img src="Z:/picture/008/save_picture_846179.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845922.jpg" />
+  <img src="Z:/picture/008/save_picture_845922.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ Simon And Garfunkel - Parsley, Sage, Rosemary & Thyme (1966) remaster, 2010, Aud
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845737.jpg" />
+  <img src="Z:/picture/008/save_picture_845737.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ David Gilmour - 3 альбомa (1978-2006) Официальные альбом�
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845181.jpg" />
+  <img src="Z:/picture/008/save_picture_845181.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844875.jpg" />
+  <img src="Z:/picture/008/save_picture_844875.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ Stonewall Noise Orchestra - Deathtripper (2020) [FLAC|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844873.jpg" />
+  <img src="Z:/picture/008/save_picture_844873.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ Elder - Omens (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner, Do
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844872.jpg" />
+  <img src="Z:/picture/008/save_picture_844872.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ I Am the Manic Whale - Things Unseen (2020) [FLAC|Lossless|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844799.jpg" />
+  <img src="Z:/picture/008/save_picture_844799.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Kate Bush - Before The Dawn (2016) 3xCD [FLAC|Lossless|image + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844785.jpg" />
+  <img src="Z:/picture/008/save_picture_844785.jpg" />
 </div>
 
 
@@ -591,7 +736,7 @@ Mark Knopfler - Tracker (Bonus Disc) (2015) [FLAC|Lossless]<Rock, Blues-Rock, Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843784.jpg" />
+  <img src="Z:/picture/008/save_picture_843784.jpg" />
 </div>
 
 
@@ -605,151 +750,6 @@ Mark Knopfler - Tracker (Bonus Disc) (2015) [FLAC|Lossless]<Rock, Blues-Rock, Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:967A23C92020A44340ADEB3B277F4F49FA73FF89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002871   (843325) от 03.04.2016
-
-Mystery Jets - Curve Of The Earth (2016) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telomere
-02. Bombay Blue
-03. Bubblegum
-04. Midnight's Mirror(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C885B27C192744958876DF32432A2481F0EE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003358   (843207) от 03.04.2016
-
-The Sisters Of Mercy - Greatest Hits Volume One - A Slight Case Of Overbombing (1993) compilation [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Under the Gun (feat Terri Nunn) 5:43
-02.  Temple of Love (1992) (feat Ofra Haza)  8:08
-03.  Vision Thing  7:35
-04.  Detonation Boulevard  3:50(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DA76FB53E8E2583A1D685E4B326175A4AF0BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500062   (842816) от 05.10.2021
-
-Finally George - Icy Skies (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icy Skies
-02. Beautiful
-03. Old Friend
-04. When The Angels Cry(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BECB2B6943B14D541A4B0CF10C650028D10060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500061   (842814) от 05.10.2021
-
-George Theodorou - Water (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Cry (Extended Version) 04:54
-02. High As A Mountain 05:09
-03. Stay With Me 03:32
-04. Rock N Rolla 03:38(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7BCA0E3CAE7DCF34FF76EB00F0AB6B2C2D21DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500012   (842711) от 05.10.2021
-
-The Ahab Dilemma - World On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go 05:01
-02. World On Fire 03:04
-03. Waiting 05:46
-04. Dangerously Close To The Bone 02:39(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0579DA936257FA1C59640F4A8401C532201E74F
 ```
 
 https://mybot314.ru/tekegram_catalog/

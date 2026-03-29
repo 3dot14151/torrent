@@ -1,23 +1,25 @@
-###  Публикация: 1569305   (453663) от 12.08.2022
+###  Публикация: 1568994   (455809) от 11.08.2022
 
-Excite Audio - Lifeline Expanse 1.1.4 Standalone, VST, VST 3, AAX (x32/x64) [En]
+Coal Chamber - The Complete Roadrunner Collection 1997–2003 (2013) box set [FLAC|Lossless|image + .cue] <Alternative, Nu Metal>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453663.jpg" />
+  <img src="Z:/picture/008/save_picture_455809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия Lifeline начинается с Lifeline Expanse — обширного и интуитивно понятного мультиэффекта, который придаст жизни в любой звук, добавляя характер, пространство и ширину.
-Lifeline Expanse создает аутентичность и реализм, используя сложные методы повторного усиления. Повторное усиление — это процесс взятия аудиосигнала и его воспроизведения в окружающей среде. Сигнал (   Читать дальше...   )Язык интерфейса: Английский
+01 - Headstones And The Walking Dead
+02 - Big Truck (Hand-On-Wheel Mix)
+03 - Pig (Original Version)
+04 - Bradley (Going Postal Mix)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 01:09:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:520F247E806055613537A76367CB32F6BFF6F727
+magnet:?xt=urn:btih:99DF7B0918E8D9446E68166F5E03B18B0E9EEA25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569382   (453662) от 12.08.2022
+###  Публикация: 1569020   (455806) от 11.08.2022
 
-Алис Ги. Разделенный дом (Дело чести) / A House Divided (1913) WEBRip
+VA - Sounemot State 007 (2022) [MP3|320 Kbps] <Trance>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453662.jpg" />
+  <img src="Z:/picture/008/save_picture_455806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В эпиграф этому фильму подошла бы поговорка "Милые бранятся — только тешатся". Канва простая - ряд недоразумений и совпадений приводит к тому, что молодые супруги ссорятся. Напрочь, категорически. До такой степени, что живут под одной крышей, но поврозь. И даже общаются только или жестами или записками. Очень милый фильм, близкий моему сердцу и моим воспоминаниям. (   Читать дальше...   )Производство: США, Solax Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Алис ГиАктеры: Фрауни Фраутхольц, Мэриэн СвейнПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:13:15
+01. SounEmot, InStars & Elissandro - Tenías Que Ser Tú (Intro Mix)
+02. AXIS-Y - I Remember You (Original Mix)
+03. Chris Rane - You Never Left My Heart (Original Mix)
+04. D-J. Santos - Vida (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B6B503A765A07933B1DB5A3EE878F65D499BD16
+magnet:?xt=urn:btih:81510A0EEAD3C751DC913051ACC1677B11CA92BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +56,200 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569400   (453661) от 12.08.2022
+###  Публикация: 1569150   (455804) от 11.08.2022
 
-Opera 89.0.4447.91 Portable by Cento8 [Ru/En]
+Футбол. Супер кубок Европы 2022. Финал. Реал (Мадрид, Испания) - Айнтрахт (Германия) (10.08.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Супер кубок Европы 2022. Финал. Реал (Мадрид, Испания) - Айнтрахт (Германия) (10.08.2022)
+СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
+Судья на линии 1: Берт Стюарт (Англия)
+Судья на линии 2: Беннетт Саймон (Англия)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371044CB714D22D63807586CE9FA1D6C5DFDEB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569090   (455802) от 11.08.2022
+
+Norma Jean - Deathrattle Sing for Me (2022) [MP3|320 Kbps] <Chaotic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 1994 [00:03:32]
+02 - Call for the Blood [00:03:14]
+03 - Spearmint Revolt [00:05:02]
+04 - Memorial Hoard [00:04:49](   Читать дальше...   )Жанр: Chaotic MetalcoreПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464449D4B14A1C7FBDFA0EE665F05769DD8B66C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569023   (455801) от 11.08.2022
+
+VA - The Sound Of Progressive Trance Vol.14 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Soun - Sakura (Extended Mix)
+02. Donald Wilborn - Greenland (Festival Mix)
+03. Albakar & CanitaR - Mind Distort (Original Mix)
+04. Acues - Dancing At Midnight (Evebe Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594959D95FA45CEAD44D46560020A4F719C9D399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568945   (455800) от 11.08.2022
+
+Donald Fagen - Donald Fagen's The Nightfly Live (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Rock, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.G.Y. (05:26)
+02. Green Flower Street (04:11)
+03. Ruby Baby (04:48)
+04. Maxine (03:46)(   Читать дальше...   )Жанр: Jazz, Jazz Rock, PopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDD6FEB387AA7C0144F1CDBA7BC93A3612C0BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569110   (455799) от 11.08.2022
+
+Ben Haydie - Molecules (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrive (3:28)
+ 02. Stains (4:50)
+ 03. Bullets (5:11)
+ 04. We Collide (5:30)(   Читать дальше...   )Жанр: Deep Progressive House, Melodic House & TechnoПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9025D63E032FAF3AE41D2DCF22D902BD09F68E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408386   (455778) от 12.09.2020
+
+VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellen - Mood Ring (Fitness Version 132 Bpm) (04:07)
+02. D'Mixmasters - Never Seen The Rain (Fitness Version 132 Bpm) (03:52)
+03. Lawrence - Young And Alive (Fitness Version 132 Bpm) (03:52)
+04. Th Express - Underdog (Fitness Version 132 Bpm) (03:23)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA57291FA33DFCC98286891E932DA82F687CE826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408498   (455777) от 12.09.2020
+
+Athentech Perfectly Clear WorkBench 3.10.0.1837 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453661.jpg" />
+  <img src="Z:/picture/008/save_picture_455777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8B5DA1B0563D23D362E743D4D416B0EB90400A8
+magnet:?xt=urn:btih:2ADC70337062109083C002F403F702FF875164D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,26 +257,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569353   (453660) от 12.08.2022
+###  Публикация: 1408575   (455776) от 12.09.2020
 
-AllDup 4.5.20 + Portable [Multi/Ru]
+Формула-2. Сезон 2020. 9-й Этап. Гран-при Тосканы. Гонка 1 (12.09.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455776.jpg" />
+</div>
+
+
+###  Подробнее
+
+4-й Чемпионат ФИА Формула-2. Сезон 2020 года
+12 сентября 2020, суббота. 17:45 МСК
+9-й Этап. Гран-при Тосканы. Скарперия-э-Сан-Пьеро (Италия)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F95924CA992E90591DFEB5DA2500F920C3A9E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408376   (455775) от 12.09.2020
+
+Главная дорога (12.09.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455775.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Нива Бора»: тест русского багги из 90-х, так и не вставшего на конвейер.
+Как можно лишиться прав за пьянство в машине или даже около нее?
+Самодельная мойка на 12 вольт: работает ли такой прибор?
+Как наказать нарушителя и не стать виновным самому?(   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1A63DEAAF8CE496D7416BAA2CC94EC7B0E6DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408486   (455774) от 12.09.2020
+
+PrivaZer 4.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453660.jpg" />
+  <img src="Z:/picture/008/save_picture_455774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AllDup - бесплатный инструмент для поиска и удаления дубликатов файлов на Вашем компьютере. Программа обладает специально разработанным алгоритм быстрого поиска дублирующихся файлов любого типа - текст, изображения, музыка, фильмы и т.д.
-Задайте диски или папки для анализа, и мощная поисковая система за считанные секунды обработает целые гигабайты информации, находя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7652F6FE9BC1060FB0824ED566BB1D6B68F8AEAE
+magnet:?xt=urn:btih:9671E64CD902982CC0AFAC4AB1B95BA004042965
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +341,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569238   (453659) от 12.08.2022
+###  Публикация: 1408413   (455773) от 12.09.2020
 
-Журнал | Homebuilding & Renovating №9 (2022) [PDF][En]
+Gregory Porter - All Rise (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul>
 
->>Журналы
->>Домоводство (журналы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453659.jpg" />
+  <img src="Z:/picture/008/save_picture_455773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежейЖанр: Строительство, ремонт, дизайнФормат: PDF
+01. Concorde
+02. Dad Gone Thing
+03. Revival Song
+04. If Love Is Overrated(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 01:17:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70C610B0B903F26501FA2144C8EBE7D6BBA55066
+magnet:?xt=urn:btih:64D1BAF914FE2D66AAB77242788EFBBA97107375
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,106 +370,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569393   (453658) от 12.08.2022
+###  Публикация: 1408372   (455772) от 12.09.2020
 
-Журнал | Homebuilding & Renovating №8 (2022) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежейЖанр: Строительство, ремонт, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0F440463B10DD7C778B7872E4CF42052CD734B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569244   (453657) от 12.08.2022
-
-VA - EFFECTIVE COVERS, Vol. 3 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ONEIL/KANVISE/SMOLA - I Will Be Here
-2. Slider & Magnit - I Feel Your Voice
-3. Denis First - Enjoy the Silence
-4. DJ DimixeR/Serge Legran/MURANA - Tom's Diner(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6A8CDAE66635F211196D0E3498FF116A03FDFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569386   (453656) от 12.08.2022
-
-Виктор Драгунский | Девочка на шаре (2022) [MP3, Маленький Фонарщик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательный и красивый рассказ о зарождении в душе ребёнка нового для него чувства, возносящего его сердце вверх, от пустого и суетного — к настоящему, вечному и действительно прекрасному.Жанр: Детская литератураПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406C767968D509E8A246CAD799EA2CAFB48589FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569307   (453655) от 12.08.2022
-
-Ивар Рави | Прометей (Книга 5). Владыка моря (2022) [MP3, Александр Степной]
+Брайан Мерчант | Универсальное устройство. Неизвестная история создания iPhone (2020) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453655.jpg" />
+  <img src="Z:/picture/008/save_picture_455772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Максим Серов уже успел сделать многое: объединить племена, основать поселение, построить корабль и отразить многочисленные нападения врагов. С помощью своих друзей и соратников, Максим ведет свой народ Русов к цивилизации, внедряя все новые разработки и достижения. Получение стали и чугуна освоено, развивается сельское хозяйство и животноводство. Наш соотечественник (   Читать дальше...   )Жанр: Героическая фантастика, ПопаданцыПродолжительность: 09:37:31
+9 января 2007 года Стив Джобс презентовал iPhone, ставший технологическим и экономическим феноменом. Самый успешный продукт Apple, годовые продажи которого достигли миллиарда! Что же стоит за созданием этого технологического «чуда», без которого ни один современный человек уже не может представить свою жизнь? Компания Apple хранит эту информацию в секрете, транслируя (   Читать дальше...   )Жанр: ЖЗЛПродолжительность: 15:59:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9035B81D6CD845FDFF4C619BEDDE8F19F65E87B1
+magnet:?xt=urn:btih:BF9E62712524D8DEF1800FD4222C006A39F37183
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,25 +396,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569319   (453654) от 12.08.2022
+###  Публикация: 1408473   (455771) от 12.09.2020
 
-WinBin2Iso 5.66 Build 001 + Portable [Multi/Ru]
+WinScan2PDF 6.01 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453654.jpg" />
+  <img src="Z:/picture/008/save_picture_455771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перед вами крошечная утилита, которая была разработана компанией Nenad Hrg с целью помочь пользователям быстро и качественно преобразовать образ компакт диска формата BIN в более распространенный и удобный для работы формат ISO, особенно пригодится если вы не хотите пользоваться для выполнения этой задачи большими программами, которые зачастую стоят денег и занимают (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+WinScan2PDF позволяет сканировать документы и сохранять их на своем компьютере в формате PDF с помощью любого установленного сканера, настольного приложения Windows для частного, офисного и коммерческого использования.
+Почему WinScan2PDF? Вы один из тех, кому только изредка приходится отправлять подписанный документ кому-либо по электронной почте? Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C732BAA5A6B0C4DBFD6841BDCD37406A0774FC68
+magnet:?xt=urn:btih:611A791221D9B27C7218E3C48B7EC85DD68D6144
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,25 +423,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 826689   (453640) от 30.09.2014
+###  Публикация: 1408539   (455770) от 12.09.2020
 
-Журнал | Playboy [Украина] №10 (октябрь 2014) [PDF]
+Николай Полевой | Рассказы русского солдата (2020) [MP3]
 
->>Журналы
->>Мужские журналы
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453640.jpg" />
+  <img src="Z:/picture/008/save_picture_455770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Playboy (Плейбой) — имя, ставшее легендой. Популярнейший во всем мире глянцевый мужской журнал появился в России в 1995 году и очень быстро стал самым востребованным изданием в своей категории. Playboy охватывает очень широкий тематический спектр: самые красивые женщины мира, эффектные пикториалы и эксклюзивные съемки знаменитостей, яркие фоторепортажи со светских (   Читать дальше...   )Формат: PDF
+«Рассказы русского солдата» - повесть выдающегося русского писателя Николая Алексеевича Полевого (1796-1846). *** Собеседник главного героя делится воспоминаниями о войне, превратностях службы и собственной жизни. Другими известными произведениями автора являются «Блаженство безумия», «Краковский замок», «Живописец», «Эмма», «Дедушка русского флота», «Елена Глинская», (   Читать дальше...   )Жанр: Повесть, биографияПродолжительность: 02:27:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F7938F25DA44FD4C5DABD2E27F777A826A343E7
+magnet:?xt=urn:btih:590D851AEB2C626D0438BF857921335416D56616
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,387 +449,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 551051   (453630) от 24.09.2012
+###  Публикация: 1408340   (455769) от 12.09.2020
 
-VA - Avto Club September Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz - Dutch Bitch (Album Extended Mix) Fuckin House
-02. Anton Neumark, Johnny Beast - We Rock The Party (Techno Logic Remix)
-03. Frankie T - Star (Original Mix) Skat Records
-04. Dunjinz - Orc (Original Mix) THaF Records
-05. Christopher S - Miss You Tomorrow feat. Manuel (Original Mix) Sirup Music
-06. Atomic Electrolab - Mucker Lucker (Original Mix) Toast & Jam Recordings
-07. Transformer di Roboter - Baghdad Disco
-08. Hot Shit - 26 Years Old (Original Mix)
-09. K12 - Rocknroll (Original Mix)
-10. Wrestling Gang Bang - Shake (Troublegum Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BE7F78E1D50B14894FF039A5328FEE27015AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551467   (453626) от 24.09.2012
-
-Psidream & Pacific - Golden Oldies Selection Vol. 1 (2008) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pacific - City of Glass
-02. Pacific - Less than A Second
-03. Pacific - Lust
-04. Pacific - Shine Thru
-05. Pacific - Unspoken
-06. Psidream - Hidden Planet
-07. Psidream - Mnemonix
-08. Psidream - Pantheon
-09. Psidream - Secret Life
-10. Psidream - ShapeshiftПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49007FD6A1AA09112840FD8F3CF58D4AF24E3E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550480   (453624) от 24.09.2012
-
-VA - Dance Миссия Осени. Зарубежный (2012) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Laurentiu Duta feat. Andreea Banica - Shining heart
-002. Jay Sean - Im All Yours
-003. Miralva - Venga A La Noche (Radio Edit)
-004. Serenity & Spyer Feat. Tevin - Club Rockin Beats (Ti-Mo Remix Remix Edit)
-005. Professor Green feat. Emeli Sande - Read All About It (Cahill Explicit Radio Edit)
-006. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
-007. Mick Lion - International Love (Smithee Mix)
-008. Shogun - Lotus (Original mix edit)
-009. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia
-010. Jennifer Lopez feat. Flo Rida - Goin In(   Читать дальше...   )Жанр: DanceПродолжительность: 05:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA0FBFA85A973AF90636E764B51B9D29331F70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551717   (453623) от 24.09.2012
-
-VA - Spirit del Mar Lounge Collection (2012) [MP3|320 кб/с]<Lounge, Downtempo, Ambient, Dub>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453623.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Sura Quintet - Private Pleasures (5:39)
-2. Rey Salinero - Cabo Verde (6:05)
-3. Don Gorda Project - Attractive Qualities (5:41)
-4. Silent Breeze - Codimension (5:41)
-5. Christian Hornbostel - Love Supreme (Lovelight Mix) (4:18)
-6. Enrico Donner - Forget Me Not (5:56)
-7. Cesar Martinez Ensemble - Whatever You (5:16)
-8. Blue Wave - Falling Skies (5:49)
-9. Cane Garden Quartet - Ageless (5:51)
-10. Zadar - Soul Ambitions (5:45)(   Читать дальше...   )Жанр: Lounge, Downtempo, Ambient, DubПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DFB2611E5679D078D29CCCFBB0B69B9F948AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551537   (453622) от 24.09.2012
-
-Antillas & Dankann - Remixes 2002-2012 Vol 2 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antillas & Dankann - Remixes 2002-2012 Vol 2 (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:29:40Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Dash Berlin feat. Chris Madin - Silence In Your Heart (Antillas Remix) (07:16)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD216FD47DF1BEF0B75568CD05248EBCBD4C600E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550105   (453621) от 24.09.2012
-
-VA - Absolute Club Autumn Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deenk & Home Alone - Run Around (Original Mix)
-02. Anton Neumark - Benghazi (Original Mix)
-03. Miami Posh - Fk You All (Edlington Remix) Emun Music
-04. Dafter - Up To Your Mind (Original Mix)
-05. David Di Sabato - Orbits (Michele Calo Remix)
-06. DisCo RoCk - Tokyo Anarchy In The Cellophane (Esteban Cors Remix)
-07. Marcel Woods - Black Angus (Original mix)
-08. Freq Maverick - Batteries Not Included (Dubble JD Remix)
-09. David Heat - Easy (Zero Gravity Remix)
-10. Sonny Black, Demon Groove - Crazy Glue (Original Mix) Big Alliance Records(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6651FFCE8B391BA98924155BC00DD41B842411E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551461   (453620) от 24.09.2012
-
-Rcola - Rub A Dub Wize (2009) [MP3|320 кб/с]<Dubwise, Ragga Jungle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat the System (featuring Soultrain) - 07:16
-02. A What a Bam Bam (ft. Sister Nancy) - 05:19
-03. Lost and Found (ft. Barrington Levy) - 05:17
-04. Dancehall Operator (RCola Remix) - 05:24
-05. Azeri (ft. Swank) (RCola Remix) - 04:57
-06. A1 Sound (ft. Jimmy Riley) - 03:35
-07. Got Me Trying (ft. Belle Humble) (RCola Remix) - 04:54
-08. Warn Ya - 05:58
-09. ABomb Busted - 05:26
-10. Flamante 04:32(   Читать дальше...   )Жанр: Продолжительность: 01:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05845F4BE0C0CCD5B8D86229390BC4E260EF99D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550547   (453617) от 24.09.2012
-
-VA - Русское Ассорти Новинок (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Герцен - Вери Гуд
-002. MainstreaM One - Больше Не Надо
-003. Виктор Рыбин и Наталья Сенчукова - Для тебя
-004. Конец Фильма - Прощание
-005. Инфинити - А Он Такой
-006. Ваня Чебанов - Отпусти
-007. Вика Гранд - Я Не Боюсь (DJ Armilov & DJ S-nike Remix)
-008. Оля Полякова - Лепесток
-009. K.Melody - Воспоминание
-010. MaкSим - Это же я(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08D108C496B74AD192AAE2B37C18812D84520D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549645   (453616) от 24.09.2012
-
-VA - Liquid V Club Sessions Vol 4 (Compiled by Kabuki) (2012) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453616.jpg" />
-</div>
-
-
-###  Подробнее
-
-02. Stealth - High Plane Drifter
-03. dRamatic & dbAudio - Vigilante (Level 2 Remix)
-04. Andy Skopes & Mr Joseph - Gatcherman
-05. dRamatic & dbAudio - Seduction
-06. Level 2 - No Time VIP
-07. Kabuki - Rhodesia VIP
-08. Serum & Bladerunner - Take It Back
-09. Mr Joseph - Sparkle In Your Eye
-10. DJ Chap & Level 2 - Skys The Limit
-11. Mr Joseph - Wonderful Feeling(   Читать дальше...   )Жанр: Продолжительность: 01:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA1947B22357B97FD1BD617268716C34DC0CCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408734   (453613) от 13.09.2020
-
-Светлана Пятак | Ломоносовская школа. Читаю слова и предложения. Для одаренных детей 6-7 лет (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие подготовлено для детей, которые уже знают буквы. Основные задачи издания: совершенствование навыков и техники чтения; закрепление знаний о гласных и согласных звуках и буквах; знакомство со слогом как частью слова и с предложением как синтаксической единицей русского языка; закрепление навыков письма печатными буквами.
-Предлагаемые упражнения способствуют (   Читать дальше...   )Жанр: Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26945D6AB6049F2BEFD166296CAFA8C0E1CDB1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408715   (453612) от 13.09.2020
-
-Zoner Photo Studio X 19.2004.2.262 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC052EE6896BA243FA6B1B7087BEC69DF8BE76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408050   (453611) от 13.09.2020
-
-Журнал | The English Garden [UK] №10 (октябрь 2020) [PDF] [En]
+Kunstzone - Exit Babylon (2020) [mp3|320kbps] <Industrial Death Metal>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_453611.jpg" />
+  <img src="Z:/picture/005/save_picture_455769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The English Garden - журнал для всех, кто любит красивые сады. Каждый выпуск оживляет лучшие сады Великобритании благодаря великолепным фотографиям и увлекательным историям, поддерживаемым опытными советами по посадке растений и вдохновляющими дизайнерскими идеями опытных садоводов.Жанр: СадоводствоФормат: PDF
+01. Right of Retaliation (5:22)
+02. The Desir﻿e Apparition (4:23)
+03. Blood Cry (7:26)
+04. Core Amnesia (5:00)(   Читать дальше...   )Жанр: Industrial Death MetalПродолжительность: 00:50:42
 
 ## Скачать торент
 ```bash
@@ -681,25 +478,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408783   (453610) от 13.09.2020
+###  Публикация: 1408382   (455768) от 12.09.2020
 
-Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Сан-Марино / MotoGP 2020. San-Marino GP (2020) WEB-DL [H.264/720p-LQ]
+VA - Meditation Music for Inner Peace Vol.5 (Beautiful Ambient and Chillout Music) (2020) [MP3|320 Kbps] <Easy Listening, Chillout, Ambient>
 
->>Спорт и активный отдых
->>Авто, Мото
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453610.jpg" />
+  <img src="Z:/picture/005/save_picture_455768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:51:36
+01. Elmara - Rem (Original Mix)
+02. Tigerforest - Bellefontaine (Original Mix)
+03. La Estación Del Mar - Una Espiga En Mi Boca
+04. Peter Pearson - Watching the Sun Rise    (Original Mix)(   Читать дальше...   )Жанр: Easy Listening, Chillout, AmbientПродолжительность: 01:40:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F02745CA3BB912659EBFFA1F7BC378176DE20E49
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -707,28 +507,161 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408591   (453609) от 13.09.2020
+###  Публикация: 1408291   (455767) от 12.09.2020
 
-VA - The Jazz Hop Conspiracy, Vol. 3 (2020) S!X Music [FLAC|Lossless|Web-DL|tracks] <Jazz Hop, Instrumental Hip-Hop, Trip Hop>
+Tatakae! Iczer-1 | Fight! Iczer-1 | В бой, Икзер-1! [1985, OVA, 3 из 3] BDRip 1080p raw
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_455767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то очень давно, в далекой галактике была небольшая планета, на которой жили отважные и смелые воины - амазонки из племени Ктулху. Но после уничтожения своей планеты, они были вынуждены скитаться по вселенной в поисках нового пристанища. Уже не одну сотню лет они занимаются этими поисками и не теряют надежду на то, что у них когда-нибудь всё же появится новый (   Читать дальше...   )Производство: AICЖанр: приключения, фантастика, меха, эттиРежиссер: Хирано ТосикиПеревод: AlexMalkavianЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 30 мин. + 1 эп. на 45 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942267   (455766) от 30.09.2015
+
+Сделано в СССР. Детские сады (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455766.jpg" />
+</div>
+
+
+###  Подробнее
+
+1917–1991 – это не просто промежуток времени, а целая эпоха со своими особенностями, научными открытиями, спортивными достижениями, культурными феноменами. Эта эпоха оставила наследство, которое до сих пор интересно и актуально. Кто-то все еще ностальгирует по своему советскому детству, проведенному в пионерлагере. У кого-то дома хранятся коллекции марок с Гагариным, (   Читать дальше...   )Телекомпания: МИРЖанр: ДокументальныйРежиссер: Михаил ДиговцовПродолжительность: ~ 00:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F375DDE61D75F9FF67FD44BD7C826400DBD6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408512   (455765) от 12.09.2020
+
+VA - Music News vol.36 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_455765.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dima Prokopov - Бессонная Ночь (Shnaps Remix) (02:14)
+ 002. Aisha - Puzzle (03:33)
+ 003. Alicia Keys - Love Looks Better (03:25)
+ 004. Amelia - Кружила (03:38)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:09:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408344   (455764) от 12.09.2020
+
+Ninin ga Shinobuden: The Nonsense Kunoichi Fiction | Ninja Nonsense: The Legend of Shinobu | 2x2=Shinobuden | Дважды два - это Синобу [2004, TV, 12 из 12] BDRip 1080p raw
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_455764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жили-были ниндзя, и был у них в тренировочном центре мастер Онсокумару. Жили они припеваючи, танцующие, выпивающие и чего только праздно не делающие. Но главной целью для них являлся завет мастера: "Женщину раздень, прижми, соблазни!" или ты не настоящий ниндзя. А как же быть девушкам-ниндзя? Легко им быть! Все что надо сделать - раздеться, прижаться, соблазниться. (   Читать дальше...   )Производство: Ufotable / ユーフォーテーブルЖанр: комедия, фэнтези, эттиРежиссер: Мацуи ХитоюкиПеревод: SeRGiosЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942112   (455763) от 30.09.2015
+
+Jjos - Balearic Chill Оut Vibes Compilation (2015) [FLAC|tracks]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me the Way (with Manu Lopez) (Chill Mix) (05:04)
+02. All I Need (Sensual Chill Mix) (04:16)
+03. Dreamer 0.2 (Chill Mix) (04:57)
+04. Paradise (Tim Angrave Utopia Remix) (05:47)(   Читать дальше...   )Производство: Contrasena Records S.LЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D134CD972DBE3BDC3D82CA6E9C151C72FC9249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408492   (455762) от 12.09.2020
+
+VueScan Pro 9.7.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453609.jpg" />
+  <img src="Z:/picture/008/save_picture_455762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JK Soul – All the Beauty in This World (2:48)
-02. Funkonami – Lucid Dreams (3:04)
-03. Karmawin – Cotemplation (3:18)
-04. Josh Furey – Small Time (3:15)(   Читать дальше...   )Производство: S!X MusicЖанр: Jazz Hop, Instrumental Hip-Hop, Trip Hop, BeatsПродолжительность: 01:34:03
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:244CFBDFE357F70A48DBA56E0B19F17C16D32FDB
+magnet:?xt=urn:btih:1B3D4D58E50A6104596A5A6293E70F81BFF1D841
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -736,22 +669,47 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408703   (453608) от 13.09.2020
+###  Публикация: 942268   (455761) от 30.09.2015
 
-Seisenshi Dunbine | Aura Battler Dunbine | Святой воин Данбайн [1983, TV, 49 из 49] BDRip 1080p raw
+Сделано в СССР. Борьба за молодость (2015) SATRip
 
->>
->>
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_453608.jpg" />
+  <img src="Z:/picture/008/save_picture_455761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простой японский парень Шо Зама оказался таинственным образом перенесён в странный мир, где феи и рыцари соседствуют с летающими линкорами и меха. Он должен управлять одним из таких боевых меха и участвовать в непонятной ему войне.
-Основным оружием в этом мире являются "аура-баттлеры (аура-воины)", которыми управляют элитные рыцари, именующиеся "сей (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фэнтези, меха, драмаРежиссер: Томино ЁсиюкиПеревод: antinormanistЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 49 эп. по 25 мин.
+1917–1991 – это не просто промежуток времени, а целая эпоха со своими особенностями, научными открытиями, спортивными достижениями, культурными феноменами. Эта эпоха оставила наследство, которое до сих пор интересно и актуально. Кто-то все еще ностальгирует по своему советскому детству, проведенному в пионерлагере. У кого-то дома хранятся коллекции марок с Гагариным, (   Читать дальше...   )Телекомпания: МИРЖанр: ДокументальныйРежиссер: Михаил ДиговцовПродолжительность: ~ 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E2844036F5F97091D5F0458451097E971ED7FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408491   (455760) от 12.09.2020
+
+Прочерк (2020) WEBRip [H.264/1080p-LQ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_455760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Прочерк» - это продолжение короткометражной ленты «Сын». Усыновленный еще в младенчестве парень живет в любящей семье. Став взрослым, он пытается найти ответы на важные для себя вопросы, чтобы двигаться дальше. Он отправляется в путь за ответами. Понять кто он и откуда. История поиска себя и своих корней.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Павел МеняйлоАктеры: Александр Вострухин, Максим Битюков, Артур Маркаров, Даня ТарасовСубтитры: ОтсутствуютПродолжительность: 00:11:52
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,61 @@
+###  Публикация: 1658533   (190357) от 10.09.2023
+
+Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2CD, Remastered, 2016, Polydor [MP3|320 Kbps] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Around (Northern Lights Club Mix) [00:10:28]
+02. Age Of Loneliness (Enigmatic Club Mix) [00:06:15]
+03. Push The Limits (ATB Remix) [00:07:51]
+04. Gravity Of Love (Judgement Day Club Mix) [00:05:59](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAFBCC78E106DE596BC1FDB673259766EC611ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659767   (189242) от 13.09.2023
+
+Stephen Parsons & Francis Haines - Считанные секунды / Split Second (1992) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Split Second Theme
+02. Chasing Stone
+03. Shes's Really Something (performed by Playground)
+04. "I'm Back"(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB12A986E4123935F1BBC153447518555762324E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589624   (189133) от 13.11.2022
 
 Oduchu - Road to Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
@@ -6,7 +64,7 @@ Oduchu - Road to Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189133.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Gregorian - Pure Chants II (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambien
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189002.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Cliff Martinez & VA - Drive (Original Motion Picture Soundtrack) (2011) [FLAC 24
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188762.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Adult Smooth Jazz: Sax for Sex, Erotic Music, Ultra Sensual Mind (2023) [FL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188742.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187895.jpg" />
+  <img src="Z:/picture/005/save_picture_187895.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187816.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187537.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Хочу замуж (к\ф «Хочу замуж» официальный �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187518.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187179.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185858.jpg" />
+  <img src="Z:/picture/004/save_picture_185858.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185846.jpg" />
+  <img src="Z:/picture/004/save_picture_185846.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwrit
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185460.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Romantic Melodies - Moonlight Sax (2004) [APE|Lossless|image + .cue] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184769.jpg" />
+  <img src="Z:/picture/004/save_picture_184769.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ John S. Weekley - Dread Templar (Original Game Soundtrack) (2023) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184735.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ V.A. - Yoga Music Session, Vol. 4:  Relaxation & Meditation (2022) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184275.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Richard Clayderman - When a Man Loves a Woman (2023) [FLAC|Lossless|WEB-DL|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182996.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ North Americans - Roped In (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181460.jpg" />
+  <img src="Z:/picture/005/save_picture_181460.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Bjarla - Bifröst (Bifrost) (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181024.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Daft Punk - Трон: Наследие / TRON: Legacy (Original Motion Picture S
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180650.jpg" />
+  <img src="Z:/picture/005/save_picture_180650.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tr
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180169.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180151.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180112.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180108.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - The Orient Collective: From the Ancient Lands (2023) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180070.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - The Orient Collective: From the Ancient Lands (2023) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CB1CA031FC9D1D14A7F04161F051BCA788763FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666139   (179937) от 03.10.2023
-
-Sex Music Zone - Kiss N' Ride Erotic Lounge Music for Sex & Porno (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss N’ Ride (3:55)
-02. Double Pleasure (2:57)
-03. Gangsta Lovin (2:51)
-04. Lost in Xtazy (3:27)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09694A3A08B0307DB131E9859427098256F35D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428773   (178243) от 04.12.2020
-
-Christian Grey & Sasha Black - The Fire of Love (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fire of Love (3:22)
-02. Sex and Love (3:33)
-03. Lounge for Love (3:38)
-04. Red Room - Sax Bondage (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99D9257FDE88F0C423F9497BAFCD4DF94D67B15
 ```
 
 https://mybot314.ru/tekegram_catalog/

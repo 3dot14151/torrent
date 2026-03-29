@@ -1,3 +1,109 @@
+###  Публикация: 1418354   (348807) от 24.10.2020
+
+Adobe XD 34.0.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEA97A2E44451FCED01CE0F2871F2A690824942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418315   (348803) от 24.10.2020
+
+Adobe Audition 2020 v13.0.11 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition 2020 представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838D00867E1D8DF84EEF7438293570BA06C4086A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179294   (348769) от 31.10.2017
+
+Color Finale Pro 1.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Color Finale - плагин цветокоррекции от Color Grading Central для программы монтажа Final Cut Pro X, который заставит пользователей думать, стоит ли использовать стороннее приложение для цветокоррекции или же все сделать в FCP X. Плагин имеет очень много профессиональных инструментов.   Color Finale - позволяет превратить Ваши кадры в буйство ярких красок и сделать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2017Разработчик: Color Grading CentralПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939074E9CACCCBB9A77AFAE089C8BD87E28BDC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418305   (348534) от 24.10.2020
+
+Adobe After Effects 2020 17.5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe After Effects — одно из ведущих в отрасли приложений для разработки анимации и творческих композиций, позволяющих создавать профессиональную графику и визуальные эффекты для киноэкранов, телевидения и веб-сайтов.
+
+Название происходит от эффекта, известного как «стойкость (инертность) зрительного ощущения», этот механизм использует сенсорную память сетчатки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AE7B4AB97916D4D9595D4C6F7467FCAC08E4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418317   (348529) от 24.10.2020
 
 Adobe Character Animator 2020 v3.4 [Multi/Ru]
@@ -6,7 +112,7 @@ Adobe Character Animator 2020 v3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348529.jpg" />
+  <img src="Z:/picture/008/save_picture_348529.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ Axure RP Pro 7.0.0.3189 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348430.jpg" />
+  <img src="Z:/picture/008/save_picture_348430.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Astute Graphics Plugins Elite Bundle v2.0.4 + Pro Texture Packs for Texturino
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348403.jpg" />
+  <img src="Z:/picture/008/save_picture_348403.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Adobe Dreamweaver 2020 v21.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348399.jpg" />
+  <img src="Z:/picture/008/save_picture_348399.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ Adobe Photoshop Lightroom Classic v10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348246.jpg" />
+  <img src="Z:/picture/008/save_picture_348246.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Adobe InDesign 2021 v16.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348245.jpg" />
+  <img src="Z:/picture/008/save_picture_348245.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ Adobe Illustrator 2021 v25.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348241.jpg" />
+  <img src="Z:/picture/008/save_picture_348241.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Adobe Photoshop 2021 v22.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348231.jpg" />
+  <img src="Z:/picture/008/save_picture_348231.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Scrutiny 8.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347943.jpg" />
+  <img src="Z:/picture/008/save_picture_347943.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Cookie 5 v5.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347941.jpg" />
+  <img src="Z:/picture/008/save_picture_347941.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ PopChar X 8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347940.jpg" />
+  <img src="Z:/picture/008/save_picture_347940.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ Affinity Designer 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347806.jpg" />
+  <img src="Z:/picture/008/save_picture_347806.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ PDF Checkpoint 1.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347785.jpg" />
+  <img src="Z:/picture/008/save_picture_347785.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ Graphic Inspector 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347782.jpg" />
+  <img src="Z:/picture/008/save_picture_347782.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ Secret Folder Pro 9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347780.jpg" />
+  <img src="Z:/picture/008/save_picture_347780.jpg" />
 </div>
 
 
@@ -407,7 +513,7 @@ SILKYPIX Developer Studio Pro 9E 9.0.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347768.jpg" />
+  <img src="Z:/picture/008/save_picture_347768.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ Algoriddim djay Pro 2 (Complete FX Pack) 2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347767.jpg" />
+  <img src="Z:/picture/008/save_picture_347767.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ Viscosity 1.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347656.jpg" />
+  <img src="Z:/picture/008/save_picture_347656.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ OmniFocus Pro 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347612.jpg" />
+  <img src="Z:/picture/008/save_picture_347612.jpg" />
 </div>
 
 
@@ -518,7 +624,7 @@ Vipor Plus CRM 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347530.jpg" />
+  <img src="Z:/picture/008/save_picture_347530.jpg" />
 </div>
 
 
@@ -545,7 +651,7 @@ Live Home 3D Pro 3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347475.jpg" />
+  <img src="Z:/picture/008/save_picture_347475.jpg" />
 </div>
 
 
@@ -573,7 +679,7 @@ Affinity Designer 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347397.jpg" />
+  <img src="Z:/picture/008/save_picture_347397.jpg" />
 </div>
 
 
@@ -587,112 +693,6 @@ Affinity Designer  в (   Читать дальше...   )Тип издания
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A49AFF497763FDEB032CD53051F221E41289E181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257120   (347361) от 25.10.2018
-
-Disk Drill Enterprise 3.6.918 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill - восстановление информации без помощи специалистов
-Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: maOS softwareРелиз состоялся: 2018Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.8.5 +Язык интерфейса: Русский, Английский, Польский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50709DD69EC3DB4A49EC4F623A4EB891B17ABB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073161   (347160) от 15.11.2016
-
-Parallels Desktop for Mac Business Edition 12.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop® 12 для Mac — это самое быстрое, простое и эффективное решение для запуска приложений Windows на Mac без перезагрузки. Без всяких усилий переключайтесь между приложениями для Mac и для Windows, запускайте Windows-приложения с панели Mac Dock, пользуйтесь привычными по работе с Mac жестами в Windows-приложениях, а также копируйте и перетаскивайте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2016Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.10.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575919C96113DED61E245C6F49975F87DB9BEDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179673   (347104) от 01.11.2017
-
-iTubeDownloader 6.3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347104.jpg" />
-</div>
-
-
-###  Подробнее
-
-iTubeDownloader - загрузчик для Youtube, который делает загрузку видео с YouTube еще более приятной с помощью простых в использовании функций, таких как очереди загрузки, каналов и списка воспроизведения загрузки, просмотр и многое другое.
-Вы можете использовать iTubeDownloader для просмотра веб-страницы YouTube и быстро просматривать видео: когда вы то, что хотите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2017Разработчик: AlphaSoftПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E39020C20C8CD0F7023CD20C621FF636578003C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179670   (346948) от 01.11.2017
-
-AutoMounter 1.5.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устали подключать и отключать общие ресурсы сети? AutoMounter сделает так, что общие ресурсы будут всегда доступны в нужное время.Тип издания: macOS SoftwareРелиз состоялся: 24.08.2017Разработчик: Pixeleyes LtdПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D427EFFA6B7CCCBC4B1687C1D4F0EC2F0E8B1D06
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1546542   (241661) от 24.04.2022
+
+Георгий Ладонщиков | Заиграла балалайка (1959) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заиграй-ка, балалайка,
+Балалайка - три струны!
+Подпевайте, не зевайте,
+Выходите, плясуны!(   Читать дальше...   )Жанр: ЧастушкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3290AF401927424B9E014D853B0F545E2CF94AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546569   (241562) от 24.04.2022
 
 Александр Куприн | Книги – мои друзья. Слон и другие истории (2011) [PDF]
@@ -6,7 +35,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241562.jpg" />
+  <img src="Z:/picture/004/save_picture_241562.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241335.jpg" />
+  <img src="Z:/picture/004/save_picture_241335.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241275.jpg" />
+  <img src="Z:/picture/004/save_picture_241275.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241119.jpg" />
+  <img src="Z:/picture/004/save_picture_241119.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241113.jpg" />
+  <img src="Z:/picture/004/save_picture_241113.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240767.jpg" />
+  <img src="Z:/picture/004/save_picture_240767.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240635.jpg" />
+  <img src="Z:/picture/004/save_picture_240635.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240629.jpg" />
+  <img src="Z:/picture/004/save_picture_240629.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240628.jpg" />
+  <img src="Z:/picture/004/save_picture_240628.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240610.jpg" />
+  <img src="Z:/picture/004/save_picture_240610.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240603.jpg" />
+  <img src="Z:/picture/004/save_picture_240603.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240576.jpg" />
+  <img src="Z:/picture/004/save_picture_240576.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240536.jpg" />
+  <img src="Z:/picture/004/save_picture_240536.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240535.jpg" />
+  <img src="Z:/picture/004/save_picture_240535.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240490.jpg" />
+  <img src="Z:/picture/004/save_picture_240490.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240465.jpg" />
+  <img src="Z:/picture/004/save_picture_240465.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240372.jpg" />
+  <img src="Z:/picture/004/save_picture_240372.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240360.jpg" />
+  <img src="Z:/picture/004/save_picture_240360.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240176.jpg" />
+  <img src="Z:/picture/004/save_picture_240176.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239936.jpg" />
+  <img src="Z:/picture/004/save_picture_239936.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239852.jpg" />
+  <img src="Z:/picture/004/save_picture_239852.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239843.jpg" />
+  <img src="Z:/picture/004/save_picture_239843.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239837.jpg" />
+  <img src="Z:/picture/004/save_picture_239837.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239819.jpg" />
+  <img src="Z:/picture/004/save_picture_239819.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239806.jpg" />
+  <img src="Z:/picture/004/save_picture_239806.jpg" />
 </div>
 
 
@@ -663,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09CEB1EB62AB626D0E368A9D725BA5D25536C6E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422194   (239799) от 07.11.2020
-
-Евгений Перов | Бурундучок по имени Сим. Сим и великаны. Книга 1 (2019) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239799.jpg" />
-</div>
-
-
-###  Подробнее
-
-На одном тропическом острове, там, где всегда царит лето и даже в самую ненастную погоду можно обходиться без шапки и теплых вещей, жил бурундучок по имени Сим. Жил он в саду со множеством фруктовых деревьев недалеко от моря. Домом ему служило маленькое, но уютное дупло внутри мангового дерева. Сим был самым обычным бурундуком и вел самую обычную бурундучью жизнь: (   Читать дальше...   )Жанр: Детская литература/ПриключенияФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84FF828E3E8006E8CFF9CFFECEACC9B7D0479330
 ```
 
 https://mybot314.ru/tekegram_catalog/

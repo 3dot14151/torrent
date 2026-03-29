@@ -1,3 +1,90 @@
+###  Публикация: 1488841   (1001470) от 13.08.2021
+
+Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For a New Pagan Age to Come(01:38)
+02. Silvano, senor de los bosques (05:19)
+03. The Last European Wolves (04:24)
+04. Son of the Fatherland (06:40)(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB7E034E29BBE89DB00B90E21F9F3897EFA36E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352330   (1001349) от 13.01.2020
+
+Concerto Moon - Ouroboros (2019) [WavPack|Lossless|image + .cue] <Neoclassical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Change My Heart
+02 Dream Chaser
+03 Surrender
+04 Holy Child(   Читать дальше...   )Жанр: Neoclassical MetalПродолжительность: 01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC51BD54951B127619B1779B985C8F0888E3EDF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488979   (1001190) от 14.08.2021
+
+Nawather - Kenz Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Oriental Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treasure Chest
+02. Breath of Jasmin
+03. Money Slave
+04. Falleg(   Читать дальше...   )Жанр: Heavy Oriental Metal, Male Female VocalПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAC10742A52E2D887D87327D0F2F0739E8E380D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352696   (1000888) от 15.01.2020
 
 Rage - Wings of Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Rage - Wings of Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000888.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Nightwish - Decades: Live in Buenos Aires (2019) 2CD [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000864.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Compos Mentis - Fragments Of A Withered Dream (2003) [WavPack|Lossless]<Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000543.jpg" />
 </div>
 
 
@@ -97,7 +184,7 @@ Seventh Wonder - The Great Escape  (2011) / Japanese Edition / [FLAC|Lossless]<P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000473.jpg" />
 </div>
 
 
@@ -129,7 +216,7 @@ Sothis - De Opresso Liber (2008) [WavPack|Lossless]<Symphonic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999428.jpg" />
 </div>
 
 
@@ -163,7 +250,7 @@ Coffin Texts - The Tomb of Infinite Ritual (2012) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999409.jpg" />
 </div>
 
 
@@ -195,7 +282,7 @@ Shining - 7 Альбомов (2000 - 2009) [FLAC|Lossless]<Depressive Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999376.jpg" />
 </div>
 
 
@@ -226,7 +313,7 @@ Dimmu Borgir - 5 CD (1994 - 1998) [FLAC|Lossless]<Symphonic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999306.jpg" />
 </div>
 
 
@@ -259,7 +346,7 @@ Majesty - Thunder Rider (Limited Edition) (2013) [FLAC (tracks+.cue)|Lossless]<H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998933.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Triosphere - The Road Less Travelled (2010) Japan Edition [WavPack|Lossless]<Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998648.jpg" />
 </div>
 
 
@@ -329,7 +416,7 @@ The Faceless - Autotheism (2012) [FLAC|Lossless]<Progressive / Technical Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998603.jpg" />
 </div>
 
 
@@ -363,7 +450,7 @@ Nebulous - The Quantum Transcendence Of Death (2013) [FLAC|Lossless]<Technical D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997859.jpg" />
 </div>
 
 
@@ -397,7 +484,7 @@ Therion - 3 Albums + 2 Singles + 1 Compilation (1991-2001) [FLAC|Lossless]<Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996687.jpg" />
 </div>
 
 
@@ -423,7 +510,7 @@ Infernal Poetry - Paraphiliac (2013) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996204.jpg" />
 </div>
 
 
@@ -458,7 +545,7 @@ Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995912.jpg" />
 </div>
 
 
@@ -493,7 +580,7 @@ Baroness - 4 albums (2007-2009) [FLAC/APE|Lossless] <Sludge, Progressive / Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994824.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Bullet For My Valentine - The Poison (2006) [FLAC|Lossless]<Heavy Metal, Rock, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994455.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Helloween - Straight Out Of Hell (Limited Edition) (2013) [FLAC|Lossless]<Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994019.jpg" />
 </div>
 
 
@@ -598,7 +685,7 @@ A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993677.jpg" />
 </div>
 
 
@@ -632,7 +719,7 @@ Forgotten Tales - All The Sinners (Japan Edition) (2004) [WavPack|Lossless]<Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993595.jpg" />
 </div>
 
 
@@ -667,7 +754,7 @@ Love And Death - Between Here & Lost (2013) [FLAC|Lossless]<Nu Metal | Alt. Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993516.jpg" />
 </div>
 
 
@@ -702,7 +789,7 @@ Aspid - Musa (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993334.jpg" />
 </div>
 
 
@@ -731,7 +818,7 @@ Envenomed - Evil Unseen (2014) [FLAC|Lossless|image + .cue] <Melodic Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993332.jpg" />
 </div>
 
 
@@ -745,105 +832,6 @@ Envenomed - Evil Unseen (2014) [FLAC|Lossless|image + .cue] <Melodic Thrash Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B99D3954FA1798352080F8E3FEC2BF9F90256AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608823   (992937) от 26.01.2013
-
-Dysentery - Internal Devastation (2011) [FLAC|Lossless]<Slamming Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epilogue (01:09)
-02. Beyond Light, Amongst the Shadows (02:47)
-03. Pernicious Passing (02:11)
-04. Entropic Putrefaction (01:34)
-05. Internal Devastation (02:19)
-06. A World Apart (03:22)
-07. In Rememberance of the Lifeless (02:32)
-08. From Creation to Dust (02:30)
-09. Forsaken Memories (02:14)
-10. Scars of Suffering (01:52)(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608247   (992936) от 26.01.2013
-
-nuERA - Dialysis (2012) [FLAC|Lossless]<Nu Metal | Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992936.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-------------------------------------------------------------------------
-01. unDONE
-02. Dialysis
-03. Circle the Drain
-04. End Transmission
-05. Own Up
-06. Head of State
-07. 90ten
-08. Because of You(   Читать дальше...   )Тип издания: АльбомЖанр: Nu Metal | RapcoreПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353570   (991988) от 18.01.2020
-
-Angellore - La Litanie Des Cendres (2015) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Shrine of Clouds (13:47)
-02. Still Glowing Ashes (10:26)
-03. Twilight's Embrace (9:28)
-04. Inertia (6:28)(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9C150ECE251D29BEB4851DF9E4704E657A6A5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

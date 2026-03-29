@@ -1,3 +1,135 @@
+###  Публикация: 475183   (85381) от 30.03.2012
+
+Путь дракона / Meng long guo jiang / The Way of the Dragon (1972) [1080p] BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тан приезжает из Гонконга в Рим, чтобы помочь друзьям семьи, чей ресторан задумали отобрать местные мафиози. Привыкшие всегда получать то, что захотят и не останавливаться ни перед чем, бандиты совершили большую ошибку, недооценив с виду скромного молодого человека.
+
+Не сумев справиться с ним своими силами, мафиози нанимают лучших европейских и японских мастеров (   Читать дальше...   )Производство: Гонконг, Concord Productions Inc., Golden Harvest Company Ltd.Жанр: Боевик, Триллер, Драма, Комедия, КриминалРежиссер: Брюс ЛиАктеры: Брюс Ли, Нора Миао, Чак Норрис, Вэй Пинао, Чун Синь Хуан, Роберт Уолл, Ван Вэнг, Тони Лю, Юникорн Чан, Мализа ЛонгоПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:38:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471308   (83541) от 21.03.2012
+
+36 Ступеней Шаолиня / Shao Lin san shi liu fang / The 36th Chamber of Shaolin (1978) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена правления династии Манчу правители не церемонились с вольнодумцами и бунтарями, казни случались практически каждый день. Молодой парень, еще не окончивший школу, глядя на произвол тирании в стране, решает присоединиться к повстанческому движению. После гибели семьи и всех друзей, главный герой покидает родню деревню и отправляется в легендарный храм Шаолинь, (   Читать дальше...   )Жанр: Боевик, Приключения, ДрамаРежиссер: Лиу Чиа-ЛянгАктеры: Гордон Лиу, Ло Лье, Лау Кар-Винг, Уилсон Тонг, Ли Хой-Сан, Саймон Юэнь ст., Норман Чу, Билли Чан, Джонни Чеунг, Ван Фат, Шен Чан, Хон Квок-Чои, Фунг Кин-Ман, Хсяо Хо, Ланг Чан, Чан Си-Кай, Шум ЛоПеревод: Авторский одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE6BF5C6B49A0AD280CB0E4794A8165537BA8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468530   (82488) от 16.03.2012
+
+Игра смерти / Game of Death (1978) [720p] BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступный синдикат зловещего доктора Лэнда контролирует гонконгский шоу-бизнес: все артисты обязаны отчислять мафии немалые суммы со всех своих доходов. Молодой актер Билли Ло вступает в борьбу с преступным синдикатом.Жанр: Боевик, Триллер, КриминалРежиссер: Роберт Клауз, Саммо Хунг Кам-Бо, Брюс ЛиАктеры: Брюс Ли, Коллин Кэмп, Дин Джэггер, Гиг Янг, Таи Чунг Ким, Юэнь Бяо, Роберт Уолл, Карим Абдул-Джаббар, Мел Новак, Хью О’Брайен и другие.Перевод: Профессиональный многоголосый (Superbit), Авторский одноголосыйПродолжительность: 01:41:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462868   (80210) от 05.03.2012
+
+Битва в космосе / Uchu daisenso / Battle in outer space (1959) HDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главы крупнейших мировых держав вынуждены забыть о разногласиях и объединиться, чтобы дать отпор оккупировавшим Землю инопланетным захватчикам. Для начала нужно разрушить ближайшую базу пришельцев, расположенную на Луне.Производство: Япония / Toho CompanyЖанр: Фантастика, БоевикРежиссер: Исиро ХондаАктеры: Рё Икэбэ, Куоко Анзаи, Корэя Сэнда, Минору Такада, Леонард Стэнфорд, Харольд Конуэй, Ёсио Цутия, Хисая Ито, Надао Кирино, Фуюки МуракамиПеревод: Одноголосый закадровый (Язык субтитров: Русский, АнглийскийПродолжительность: 01:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7A46DF74694270608B4316D6E1516D93FDE02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447438   (74754) от 07.02.2012
+
+Кулак ярости (Китайский связной) / Jing wu men (Fist Of Fury) (1972) BDRip [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусный и быстрый, как молния, мастер восточных боевых искусств Чен Жен возвращается в свою бывшую школу, где его ждет страшная новость. Зверски убит глубоко почитаемый наставник, преподававший кунг-фу и карате. Действие фильма происходит в 1908 году в оккупированном японцами Шанхае. Нападение на школу и убийство учителя было организовано одной из японских школ (   Читать дальше...   )Производство: Гонконг / Golden Harvest CompanyЖанр: Боевик, Триллер, Драма, МелодрамаРежиссер: Ло ВэйАктеры: Брюс Ли, Нора Миао, Джеймс Тьен, Мария Йи, Роберт Бейкер, Фу Чинг Чен, Сань Чинь, Инь-Чиэ Хань, Рики Хашимото, Дзюн Кацумура, Чун Синь Хуан, Куин Ли, Фенг ТиенПеревод: Авторский одноголосый (В. Горчаков)Субтитры: Russian, EnglishПродолжительность: 01:46:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773770   (71689) от 17.01.2025
 
 Красота внутри / Byuti insaideu (2015) BDRip [H.264/720p] [MVO]
@@ -6,7 +138,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71689.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71069.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70693.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70323.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70322.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70262.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70211.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69778.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68472.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67399.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65656.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64829.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63979.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63943.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63942.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63778.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63525.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63325.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63322.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63251.jpg" />
 </div>
 
 
@@ -526,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63047.jpg" />
 </div>
 
 
@@ -537,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34ACEC4095D1187A9673C0FEDB08502BD3DBAEF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706765   (63016) от 14.03.2024
-
-Меня зовут Ро Ги-ван / Ro Giwan / Ro Gi Wan / My Name Is Loh Kiwan (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Северокорейский перебежчик Ро Ги-ван прибывает в Бельгию из Китая, где он прожил несколько лет, и пытается получить статус беженца. Но доказать, что он на самом деле из Северной Кореи, а не китаец корейского происхождения, оказывается не так просто. Пока парень вынужденно бомжует и ночует, где придётся, у него крадёт бумажник бельгийка корейского происхождения — (   Читать дальше...   )Производство: Корея Южная / HighZium Studio, Netflix, Yong FilmЖанр: драма, мелодрама, криминалРежиссер: Ким Хи-джинАктеры: Сон Джун-ги, Чхве Сон-ын, Ваэль Серсуб, Чо Хан-чхоль, Ким Сон-нён, Ли Сан-хи, Ли Иль-хва, Со Хён-у, Кан Гир-у, У Ган-минПеревод: Многоголосый любительский (DublikTV)Язык озвучки: Русский, корейский, английскийСубтитры: Русские, украинские, корейские (SDH), английские (forced, full)Продолжительность: 02:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047EA04A25563122403391064BC26A50F66ABA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706768   (63015) от 14.03.2024
-
-Ночной рейд / Topakk (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший спецназовец берется за рискованную миссию — спасти жизнь невиновного от коварных рук продажных полицейских и самых отбитых головорезов наркокартеля.Производство: Филиппины / Fusee, Moygolos, Nathan Studios, Raven Banner EntertainmentЖанр: Боевик, триллерРежиссер: Ричард СомесАктеры: Архо Атайде, Сид Лусеро, Джерард Акао, Хели Булаонг, Рош Барман, Вин Абреника, Чоло Барретто, Кейли Кэрриган, Иван КарапиетПеревод: Дублированный (MOYGOLOS)Язык озвучки: РусскийСубтитры: Русские (Forced) хардсабПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56C732CECC7EF654BBDA7AB5C109F4A65BCD2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707490   (62784) от 16.03.2024
-
-Меня зовут Ро Ги-ван / Ro Giwan / Ro Gi Wan / My Name Is Loh Kiwan (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Северокорейский перебежчик Ро Ги-ван прибывает в Бельгию из Китая, где он прожил несколько лет, и пытается получить статус беженца. Но доказать, что он на самом деле из Северной Кореи, а не китаец корейского происхождения, оказывается не так просто. Пока парень вынужденно бомжует и ночует, где придётся, у него крадёт бумажник бельгийка корейского происхождения — (   Читать дальше...   )Производство: Корея Южная / Netflix Studios, Yong FilmЖанр: драма, мелодрама, криминалРежиссер: Ким Хи-джинАктеры: Сон Джун-ги, Чхве Сон-ын, Ваэль Серсуб, Чо Хан-чхоль, Ким Сон-нён, Ли Сан-хи, Ли Иль-хва, Со Хён-у, Кан Гир-у, У Ган-минПеревод: Профессиональный многоголосый (TVShows)Язык озвучки: Русский, корейскийСубтитры: Русские, украинские, английские, корейские (SDH), польские, испанские, итальянские, немецкие, французские, португальские, китайскиеПродолжительность: 02:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB800866914C4B67AB91891923CBDF234C08D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708607   (62169) от 22.03.2024
-
-Ворота плоти / Nikutai no mon / Gate of Flesh (1964) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация одноимённого романа Тадзиро Тамура... Небольшая группа проституток пытаются выжить в хаотичном, оккупированном американцами и криминалом, послевоенном Токио. Живя по строгому кодексу, любая из проституток может быть сурово наказана, если вступит в связь с клиентом без получения денег... В группу попадает дезертир Синтаро, который начинает помыкать женщинами. (   Читать дальше...   )Производство: Япония / Nikkatsu Corporation, Nikkatsu Film CompanyЖанр: драмаРежиссер: Сэйдзюн СудзукиАктеры: Юмико Ногава, Каё Мацуо, Сатоко Касай, Тамико Исии, Мисако Томинага, Исао Тамагава, Кодзи Вада, Дзё Сисидо, Кунико Каваниши, Кеисуке Норо, Чико ЛоранПеревод: авторскийЯзык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E683D8BD4890457BBE98E22AE906D1145D2AC262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709335   (61988) от 24.03.2024
-
-Фантазия Тами / Pantasya ni Tami (2024) WEBRip [H.264/2160p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тами — скромная девочка, любящая аниме и обожающая писать горячие фанфики по мотивам аниме. Жизнь у неё не простая, мачеха её ненавидит, а отцу на неё просто плевать. И однажды она открыла для себя мир косплея и эротических фотосессий, и это точно не понравится её семье!Производство: ФилиппиныЖанр: драма, эротикаРежиссер: Изи Феррер, Топпел ЛиАктеры: Ази Акоста, Jiad Arroyo, Ali Asistio, Shiena Yu, Зия Самора, Принц Сальвадор, Mhack Morales, Justin Macapinlac, Ширли ФуэнтесПеревод: Двуголосый любительский (RealFake)Язык озвучки: русский, тагальскийСубтитры: отсутствуютПродолжительность: 01:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A645E8FB645F51A47CEA5E4F973B662A8DDF894
 ```
 
 https://mybot314.ru/tekegram_catalog/

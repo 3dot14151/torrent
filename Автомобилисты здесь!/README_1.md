@@ -6,7 +6,7 @@
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33918.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29952.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Toyota провела тайные переговоры с бывшими авт
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25813.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21378.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BMW теперь будет сама  включать поворотники
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14666.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8303.jpg" />
 </div>
 
 

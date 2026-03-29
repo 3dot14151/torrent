@@ -1,3 +1,148 @@
+###  Публикация: 1394825   (760514) от 07.07.2020
+
+VA - Chasing Sunrise: Heroes Of Modern Rock Vol.02 (2020) [MP3|320 Kbps] <Rock, Hard, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_760514.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Silence - Sarabande
+002. Stonefield - The Eyes Of The Dawn
+003. Gatsby In A Daze - Summer Mushi
+004. The Morganatics - Gloria(   Читать дальше...   )Жанр: Rock, Hard, AlternativeПродолжительность: 08:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E3212C7D0B1F49FC4977942FBC454BB8F85BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280581   (760427) от 03.02.2019
+
+VA - Heavy Metal Collections Vol. 7 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_760427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beast In Black - Beast In Black (2017) (4:29)
+02. Excalion - Divergent Falling (2017) (5:18)
+03. Visions of Atlantis - Seven Seas (2016) (4:11)
+04. Nocturnal Rites - Before We Waste Away (2017) (4:46)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB70195E327A5C82F5FDE0001956DC99B969678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215317   (759609) от 25.03.2018
+
+VA - Rock & Metal Collection от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759609.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK121 Joe Satriani - Summer Song
+122 Ozzy Osbourne - Zombie Stomp
+123 3 Doors Down - Kryptonite
+124 Aerosmith - Cryin'(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720D2FDCE4D5680B006C6DF1AA2015ECDD21797B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215165   (759463) от 25.03.2018
+
+VA - Перфоратор: Сборник Русского Рока (2018) [MP3|320 Kbps] <Рок, Альтернатива>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759463.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Северный Флот  -  Революция на вылет  4:10
+002.  Вячеслав Бутусов  -  Бедная птица  4:06
+003.  Северный флот  -  Время любить  4:15
+004.  Аквариум  -  Двери травы  3:13(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 07:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAC3213D6C4E5C90890D3F70F69E0F6684B4673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280754   (758721) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 8 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758721.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Grave Digger - The Commandments Of Metal (2017) (3:28)
+02. Visions of Atlantis - Winternight (2016) (5:37)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3B06992971D17C9B9BC942CFE1CC3E9F34F175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280756   (758647) от 04.02.2019
 
 VA - Heavy Metal Collections Vol. 9 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
@@ -6,7 +151,7 @@ VA - Heavy Metal Collections Vol. 9 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758647.jpg" />
+  <img src="Z:/picture/008/save_picture_758647.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Heavy Metal Collections vol. 6 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758644.jpg" />
+  <img src="Z:/picture/008/save_picture_758644.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Heavy Metal Collections Vol. 11 (3CD + 1CD LIVE) (2019) [MP3|320 Kbps] <Hea
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758631.jpg" />
+  <img src="Z:/picture/008/save_picture_758631.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Heavy Metal Collections Vol. 10 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758626.jpg" />
+  <img src="Z:/picture/008/save_picture_758626.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Heavy Metal Collections Vol. 12 (3CD) (2019) [MP3|320 Kbps] <Heavy - Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758605.jpg" />
+  <img src="Z:/picture/008/save_picture_758605.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Joe Cocker - Compilation (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758384.jpg" />
+  <img src="Z:/picture/008/save_picture_758384.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757851.jpg" />
+  <img src="Z:/picture/008/save_picture_757851.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - 100 Hits Rock Vol.2 (2018) [MP3|256-320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757801.jpg" />
+  <img src="Z:/picture/005/save_picture_757801.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Bonnie Tyler - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Pop, Rock, Soul>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757322.jpg" />
+  <img src="Z:/picture/005/save_picture_757322.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Bryan Ferry - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Glam Rock, Art Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757321.jpg" />
+  <img src="Z:/picture/005/save_picture_757321.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756498.jpg" />
+  <img src="Z:/picture/008/save_picture_756498.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Rock & Metal Collection от ALEXnROCK часть 4 (2018) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756115.jpg" />
+  <img src="Z:/picture/008/save_picture_756115.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Kiss - Kiss Live (2019) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753243.jpg" />
+  <img src="Z:/picture/008/save_picture_753243.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Rock & Metal Collection от ALEXnROCK часть 6 (2018) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752732.jpg" />
+  <img src="Z:/picture/008/save_picture_752732.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Frank Duval - Compilation (2022) [MP3|320 Kbps] <Rock, Pop Rock, Electronic>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751422.jpg" />
+  <img src="Z:/picture/008/save_picture_751422.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - The Night In Question (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748677.jpg" />
+  <img src="Z:/picture/008/save_picture_748677.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Just An Illusion: Hard Rock Songbook (2019) [MP3|320 Kbps] <Alternative, Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748305.jpg" />
+  <img src="Z:/picture/008/save_picture_748305.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - The Hard Apocrypha (2022) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748090.jpg" />
+  <img src="Z:/picture/008/save_picture_748090.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Перфоратор 2: Русский Рок (2018) [MP3|320 Kbps] <Рок
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745840.jpg" />
+  <img src="Z:/picture/008/save_picture_745840.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Кавер Rock (2015) [MP3|128-320 кб/с] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744741.jpg" />
+  <img src="Z:/picture/008/save_picture_744741.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744356.jpg" />
+  <img src="Z:/picture/008/save_picture_744356.jpg" />
 </div>
 
 
@@ -600,148 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A65DDD83FA7BD3C24B71AAA3E603F03D7FB0E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783349   (744054) от 05.05.2014
-
-VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative, Metal, RockПродолжительность: 02:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282694   (743389) от 13.02.2019
-
-Pink Floyd - Pink Floyd Deep Cuts (2019) [MP3|320 Kbps] <Progressive & Art-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Slip
-02. When The Tigers Broke Free
-03. Not Now John
-04. Take It Back(   Читать дальше...   )Жанр: Progressive & Art-RockПродолжительность: 02:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423D91DFDD1FE56BE9E92AF0ED4D88C83BE9D6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217326   (743236) от 04.04.2018
-
-VA - Ancient Spell (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743236.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Burning Witches - Black Widow
-002. Esclavitud - This Time
-003. Dark Sarah - Breath
-004. Ghost of Mary - The Moon and the Tree(   Читать дальше...   )Жанр: Heavy, Power, Death MetalПродолжительность: 10:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E147CDE1A037845A9BFF5DE42F248A9A58070BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524804   (742245) от 17.01.2022
-
-L.A. Guns - Kiss Of Death (2022) 2xCD, Japanese Edition, Compilation [MP3|320 Kbps] <Hard Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742245.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Killing Machine
-02. Kiss Of Death
-03. One More Reason(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96ABCCEE38CD628C8D85EBCE84F68E2650285E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525724   (739036) от 22.01.2022
-
-VA - All New Rock (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shaman's Harvest - Pretty People (3:12)
-002. Simple Minds - Act of Love (3:59)
-003. Skillet - Destiny (4:02)
-004. Slash, Myles Kennedy And The Conspirators - Call Off The Dogs (3:15)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 05:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC12A3C01EBCEEDB67E919FBCE0C5C2E6E0EAC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

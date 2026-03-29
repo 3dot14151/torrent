@@ -1,3 +1,67 @@
+###  Публикация: 610500   (990337) от 29.01.2013
+
+VA - Club Dubstep №27 (2013) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Lurkin - You (Original Mix)
+02. Teriszega - Rapture by DJ Poet & Chebacca ft. Ms Madison (Teriszega Remix)
+03. The Temper Trap - Fader (Jakwob Remix)
+04. Tijani - Breathe Out (Prod. Great Skies)
+05. Twistex - Million Eyes
+06. VEVA - H.E.R. (TOER Remix)
+07. Zedd - Spectrum (Anarchy & System Remix)
+08. Zomboy - Hoedown
+09. Angus and Julia Stone - Draw Your Swords (Alpha Data Remix)
+10. Dirt Monkey - Go feat.Steptech (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77862CDC5C603E32F130EA66AE6DD3C20B7EC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353961   (989891) от 20.01.2020
+
+VA - Cosmospace House (2020) [MP3|320 Kbps] <Progressive, Deep, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mowgly3 M3 - Suenan Los Tambores
+02. Stazam - Sonido Espacial
+03. Flo Monghy - Unidentified
+04. Pilato - Cosmic Horizon (Original Mix)(   Читать дальше...   )Жанр: Progressive, Deep, Electro HouseПродолжительность: 07:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC4809D65E1D13F0E33BBFFB511AFBAC704FDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607627   (989612) от 30.01.2013
 
 DJ Stinger - Minimix For Time2Bass Radio-Show (Time 2 Bass) (12.05.2010) [MP3|160 кб/с]<Drum & Bass>
@@ -6,7 +70,7 @@ DJ Stinger - Minimix For Time2Bass Radio-Show (Time 2 Bass) (12.05.2010) [MP3|16
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989612.jpg" />
 </div>
 
 
@@ -41,7 +105,7 @@ VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989060.jpg" />
 </div>
 
 
@@ -70,7 +134,7 @@ VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambie
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989043.jpg" />
 </div>
 
 
@@ -99,7 +163,7 @@ VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988657.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ VA - Sounds & Cocktails (2015) [MP3|320 кб/с] <Electronic, Downtempo, Trip-ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988627.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ VA - Suenos de California Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987660.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ VA - Sunday Brunch Lounge (Chilled Jazzy Weekend Lounge) (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987658.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ VA - Emotions: Extended Deep House Party (2020) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987631.jpg" />
 </div>
 
 
@@ -244,7 +308,7 @@ VA - Extra Trance (New year edition) (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987476.jpg" />
 </div>
 
 
@@ -273,7 +337,7 @@ VA - Dj Compressor Energy Mix 13-01 (2013) [MP3|320 кб/с]<House, Trance, Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987339.jpg" />
 </div>
 
 
@@ -308,7 +372,7 @@ VA - Авто. Музыка. Дорога - Жаркие ночи (Sound Clinic 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987078.jpg" />
 </div>
 
 
@@ -337,7 +401,7 @@ VA - Drum and Bass Pro V.4 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986257.jpg" />
 </div>
 
 
@@ -372,7 +436,7 @@ Twistex - The Best (2013) [MP3|256 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986253.jpg" />
 </div>
 
 
@@ -407,7 +471,7 @@ VA - World of Electronic Music Vol.5 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986153.jpg" />
 </div>
 
 
@@ -436,7 +500,7 @@ VA - January DJ News (2016) [MP3|320 кб/с] <Funky, Club, Tech-House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986025.jpg" />
 </div>
 
 
@@ -465,7 +529,7 @@ VA - Lovers Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986013.jpg" />
 </div>
 
 
@@ -494,7 +558,7 @@ VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 5 (2015) [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985942.jpg" />
 </div>
 
 
@@ -523,7 +587,7 @@ VA - Cinema Lounge Vol 1 (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Liste
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985937.jpg" />
 </div>
 
 
@@ -552,7 +616,7 @@ VA - Fantasy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984772.jpg" />
 </div>
 
 
@@ -581,7 +645,7 @@ VA - Water Show: Matrix Bass (2016) [MP3|320 кб/с] <Dubstep, DnB>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984654.jpg" />
 </div>
 
 
@@ -610,7 +674,7 @@ VA - Explosion Samples Tropic House (2016) [MP3|230-320 кб/с] <Tech House, So
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984594.jpg" />
 </div>
 
 
@@ -639,7 +703,7 @@ VA - Top 100 Deep House (December) (2016) [MP3|302-320 кб/с] <House, Indie Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984587.jpg" />
 </div>
 
 
@@ -668,7 +732,7 @@ VA - Resident Advisor Top 100 Charted Tracks Of 2015 (2016) [MP3|245-320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984367.jpg" />
 </div>
 
 
@@ -697,7 +761,7 @@ VA - Chill and Lounge Volume 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983592.jpg" />
 </div>
 
 
@@ -711,64 +775,6 @@ VA - Chill and Lounge Volume 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B05B51546DF923F90936509A268E4EC40B695197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355295   (983531) от 26.01.2020
-
-VA - Record Super Chart 622 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
-02. Carla Morrison - Disfruto 3:57
-03. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48
-04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983A44DA66D88B20CE3B60B242AD748A99D2EA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971951   (983502) от 05.01.2016
-
-VA - Super Bomb Electro 56 (2015) [MP3|320 кб/с] <Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acti - Spender (Extended Mix) (5:30)
-02. Afrojack - Unstoppable (Extended Mix) (5:43)
-03. Aftershock - Hacker (Original Mix) (5:12)
-04. Andrea Rullo - Alpha Centauri (John Christian Edit) (3:43)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04524E239361E6EA93D32D4E250C76BD48B4EF88
 ```
 
 https://mybot314.ru/tekegram_catalog/

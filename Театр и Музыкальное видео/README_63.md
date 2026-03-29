@@ -1,3 +1,171 @@
+###  Публикация: 684857   (616416) от 30.07.2013
+
+Серия "Christmas in Vienna III" - 1994 / Sissel Kyrkjebo, Placido Domingo, Charles Aznavour (1995) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_616416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Very Private Christmas (Charles Aznavour)
+02. Un Enfant de Toi pour Noël/My Own Child for Christmas from You (Sissel Kyrkjebø и Charles Aznavour)
+03. When a Child is Born (Sissel Kyrkjebø, Plácido Domingo, Charles Aznavour)
+04. Ave Maria (Plácido Domingo)(   Читать дальше...   )Жанр: Classical, Soul, VocalПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684874   (616277) от 30.07.2013
+
+Celtic Woman - Believe (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. Nocturne
+03. Sailing
+04. The Foxhunter(   Читать дальше...   )Жанр: Celtic, New Age, Adult Contemporary, ClassicalПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0090AC24217ECBD3C9556D09FDE5D6B9ED08319E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 353018   (615923) от 20.06.2011
+
+Алые паруса 2011 (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615923.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь с 18 на 19 июня 2011 года в Санкт-Петербурге состоится самый романтический праздник лета – «Алые паруса». Это торжество стало одним из знаковых событий жизни Северной Пальмиры. В самую светлую из белых ночей в акваторию Невы войдёт корабль-мечта под алыми парусами – символ надежды, исполнения желаний и яркого будущего. Торжественные мероприятия развернутся (   Читать дальше...   )Жанр: КонцертПродолжительность: 03:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB6AAE44F14A496C950CF5C2BE3D8FE15ED0711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 353014   (615755) от 20.06.2011
+
+Sensation 2011 - Celebrate Life / St. Petersburg Russia (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615755.jpg" />
+</div>
+
+
+###  Подробнее
+
+SENSATION - музыкальный фестиваль с десятилетний историей, который посещают более одного миллиона человек каждый год.
+SENSATION привлекает внимание своей оригинальной концепцией:
+- строгий дресс-код: белый верх, белый низ
+- расположение сцены с вращающимися элементами по центру танцпола(   Читать дальше...   )01. Timothy Watt & Greg Van Bueren - Bad Motha (Housequake)
+02. Sonny Wharton - Where Is Joyce? (Nocturnal Groove) w/ "We Celebrate Life With House" (Acappella)
+03. Filthy Rich - Revival (Toolroom) w/ Alex Gardini & Simone Cattaneo - It's Like That (Acappella) (Bootylicious)
+04. ID(   Читать дальше...   )Жанр: КонцертПродолжительность: 05:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDD3FF8E0C9CFE40EE14390D3756598B21C389D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352759   (615612) от 20.06.2011
+
+Алые паруса 2011 - вступление + салют на празднике выпускников (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наипрекраснейшее музыкально-пиротехническое шоу в акватории Невы, в честь выпускников 2011 года. Тысячи залпов, красивая музыка!Жанр: Телепередача, ВидовойПродолжительность: Общая - 00:32:00, салют - 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EBFF9E22003586E3745CE33DEFA6CFEC907989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295802   (615135) от 15.04.2019
+
+Квартирник НТВ у Маргулиса. Леприконсы (13.04.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615135.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередном выпуске в гости к Евгению Маргулису пришла известная белорусская поп-панк-группа «Леприконсы». В российские хит-парады группа ворвалась в конце 90-х с песней «Хали-гали, паратрупер», а уже потом вышли «Девчонки полюбили не меня», «Тополя» и другие. В уютной обстановке участники группы поделились воспоминаниями из творческой жизни.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B604760C8D8D5B3345ED4B710EAE87B5FF2869E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524141   (614497) от 17.07.2012
 
 ВИА - Синяя птица  (2002) DVD5
@@ -6,7 +174,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_614497.jpg" />
+  <img src="Z:/picture/005/save_picture_614497.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614320.jpg" />
+  <img src="Z:/picture/008/save_picture_614320.jpg" />
 </div>
 
 
@@ -62,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614048.jpg" />
+  <img src="Z:/picture/008/save_picture_614048.jpg" />
 </div>
 
 
@@ -88,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613919.jpg" />
+  <img src="Z:/picture/008/save_picture_613919.jpg" />
 </div>
 
 
@@ -118,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612373.jpg" />
+  <img src="Z:/picture/008/save_picture_612373.jpg" />
 </div>
 
 
@@ -148,7 +316,7 @@ Garbage - Live at Festival Beauregard (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611151.jpg" />
+  <img src="Z:/picture/008/save_picture_611151.jpg" />
 </div>
 
 
@@ -183,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611149.jpg" />
+  <img src="Z:/picture/008/save_picture_611149.jpg" />
 </div>
 
 
@@ -212,7 +380,7 @@ Madonna - MDNA Tour (Live in Abu Dhabi) (2012) CAMRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611053.jpg" />
+  <img src="Z:/picture/008/save_picture_611053.jpg" />
 </div>
 
 
@@ -241,7 +409,7 @@ Aerosmith / Rock for the Rising Sun (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611009.jpg" />
+  <img src="Z:/picture/005/save_picture_611009.jpg" />
 </div>
 
 
@@ -270,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609434.jpg" />
+  <img src="Z:/picture/008/save_picture_609434.jpg" />
 </div>
 
 
@@ -301,7 +469,7 @@ Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607502.jpg" />
+  <img src="Z:/picture/008/save_picture_607502.jpg" />
 </div>
 
 
@@ -327,7 +495,7 @@ AC/DC: Let There Be Rock (1980/2011) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_607217.jpg" />
+  <img src="Z:/picture/005/save_picture_607217.jpg" />
 </div>
 
 
@@ -356,7 +524,7 @@ Queen - Rock Montreal & Live Aid (1981) Blu-ray [H.264/1080p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605996.jpg" />
+  <img src="Z:/picture/008/save_picture_605996.jpg" />
 </div>
 
 
@@ -385,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605943.jpg" />
+  <img src="Z:/picture/008/save_picture_605943.jpg" />
 </div>
 
 
@@ -411,7 +579,7 @@ AC/DC-No Bull (Live from Plaza De Toros De Las Ventas, Madrid, Spain) (1996) DVD
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_605225.jpg" />
+  <img src="Z:/picture/005/save_picture_605225.jpg" />
 </div>
 
 
@@ -440,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605021.jpg" />
+  <img src="Z:/picture/008/save_picture_605021.jpg" />
 </div>
 
 
@@ -469,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604054.jpg" />
+  <img src="Z:/picture/008/save_picture_604054.jpg" />
 </div>
 
 
@@ -495,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603798.jpg" />
+  <img src="Z:/picture/008/save_picture_603798.jpg" />
 </div>
 
 
@@ -525,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602399.jpg" />
+  <img src="Z:/picture/008/save_picture_602399.jpg" />
 </div>
 
 
@@ -554,7 +722,7 @@ The Eagles - Live '1974 & '1977 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602239.jpg" />
+  <img src="Z:/picture/008/save_picture_602239.jpg" />
 </div>
 
 
@@ -568,178 +736,6 @@ The Eagles — американская рок-группа, исполнявш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A46EF0B33CE08BE080141105F2A1DF9CA9E5C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 686687   (601321) от 06.08.2013
-
-DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC330ECFFE9E4BCE14DB5BC364F8B4786C27FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548339   (600129) от 02.05.2022
-
-Леонид Агутин и Владимир Пресняков – ДНК (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песня «ДНК» была написана больше года назад. Предложил Володе дуэт и очень благодарен другу, что он откликнулся. Выход в свет «ДНК» намечался на начало марта. Известные события внесли коррективы в наши планы. Изначально песня написана о любви. О том как взрослые люди осознанно переживают настоящую привязанность, настоящую человеческую близость, которая выше страсти. (   Читать дальше...   )Производство: Velvet MusicЖанр: PopРежиссер: Виталий НиколаевПродолжительность: 00:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FBD31BFADF13EF35B169F50C2CC29E9CDA3C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913609   (599965) от 01.07.2015
-
-VA - Летний марафон № 175 / Видеоклипы (Turbo Дискотека) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (29.06.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.1. 5Angels - Long Lost Weekend (Official Video) (00:03:19)
-2. Andeeno Damassy ft. Jimmy Dub - Ese Amor (Official Video) (00:03:42)
-3. Auryn - I'll Reach You (Official Video) (00:04:25)
-4. Claydee & Ermal Mamaqi - Senorita (Official Video) (00:04:14)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Reggaeton, RockПродолжительность: 01:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689A9EB0A5DD59B94A9F3DA55C234B529E1BAE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232492   (599796) от 24.06.2018
-
-Алые паруса 2018. Выпускной бал в Санкт-Петербурге (23.06.2018) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздник выпускников школ «Алые паруса» прошел в Петербурге в ночь с 23 на 24 июня. В 22:00 после официального открытия и традиционного удара в рынду началась музыкальная шоу-программа, которую вели Иван Ургант и Даша Александрова, в концерте участвовали Quest Pistols Show, Alekseev, Каста, Виктория Дайнеко, Алсу, а также рэпер Баста.
-После полуночи в акватории Невы (   Читать дальше...   )Телекомпания: 5 каналЖанр: Документальный, концертСубтитры: отсутствуютПродолжительность: 03:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B702F51A3E1AAA7FC421CB6507A84D1B87BEB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526176   (599057) от 23.07.2012
-
-Norah Jones - The BBC One Sessions (2007) HDTV [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_599057.jpg" />
-</div>
-
-
-###  Подробнее
-
-BBC One представляет выступление Норы Джонс, состоявшеся 13 января 2007-го года в LSO St Luke's, London.01. Sunrise 
-02. Don't know why 
-03. Be my somebody  
-04. Thinking about you 
-05. Sinkin' soon 
-06. Cold cold heart 
-07. Wake me up  
-08. Come away with me 
-09. Not too late 
-10. The long way home (   Читать дальше...   )Жанр: Jazz, blues, soulПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806049   (598756) от 19.07.2014
-
-Elton John - The Million Dollar Piano (2014) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bitch Is Back
-02. Bennie And The Jets
-03. Rocket Man
-04. Levon(   Читать дальше...   )Жанр: Pop rock, piano rockПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631A794561F895E6A144D1CAB2A7DBAD8B6ACB30
 ```
 
 https://mybot314.ru/tekegram_catalog/

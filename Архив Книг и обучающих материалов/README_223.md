@@ -1,3 +1,29 @@
+###  Публикация: 457033   (78101) от 24.02.2012
+
+Книжная серия «Art-Афера» [2006] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art-Афера - серия остросюжетных книг: авантюрных, детективных, фантастических и юмористических историй из сферы искусства.2006Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456936   (77895) от 23.02.2012
 
 Ежи Тумановский | Два мутанта (S.T.A.L.K.E.R.) [2011] [FB2,RTF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77895.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77868.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77827.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77502.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77265.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77108.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76965.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76916.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76904.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76686.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76663.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76555.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76523.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76327.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76293.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76259.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76115.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75854.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75514.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75455.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75439.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75413.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75268.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75112.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75012.jpg" />
 </div>
 
 
@@ -666,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AE865E196552149BC4DE57F88BF46773B24E764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448898   (74924) от 08.02.2012
-
-Святитель Игнатий (Брянчанинов) | Полное собрание творений [VIII Томов] (2006) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник знатного дворянского рода, святитель Игнатий получил прекрасное образование. Благодаря выдающимся способностям Брянчанинов стал любимцем императора и мог бы занять блестящее положение в высшем обществе. Он же избирает жизнь монаха. Основополагающая идея учения о человеке епископом Игнатием взята у святого Апостола Павла. Человек – это храм. Его назначение (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EC7319FE71EE584F21AD3C6C2734D48ACCEC43
 ```
 
 https://mybot314.ru/tekegram_catalog/

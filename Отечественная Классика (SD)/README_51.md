@@ -1,3 +1,30 @@
+###  Публикация: 1585283   (184138) от 21.11.2022
+
+Прости (1986) DVDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_184138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что бы Вы сделали, случайно встретив на улице своего мужа с другой красивой девушкой? Героиня фильма в состоянии аффекта решила ответить супругу изменой на измену, но явно переоценила свои силы.
+Попытка эта для нее закончилась еще большими потрясениями. Пройдя все злоключения, несчастная женщина вернулась в родную семью - к своим близким и родным, после всего происшедшего, (   Читать дальше...   )Производство: СССР, МосфильмЖанр: драма, мелодрамаРежиссер: Эрнест ЯсанАктеры: Наталья Андрейченко, Игорь Костолевский, Виктор Мережко, Александра Яковлева, Алиса Фрейндлих, Владимир Меньшов, Алексей Жарков, Татьяна Михайлова, Мария Мережко, Александр КузнецовПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36531C8F261C2A163E6F621FF2420BAE37061F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665457   (182172) от 30.09.2023
 
 Короткие встречи (1967) BDRip [H.264]
@@ -6,7 +33,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182172.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181230.jpg" />
+  <img src="Z:/picture/005/save_picture_181230.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181047.jpg" />
+  <img src="Z:/picture/005/save_picture_181047.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180770.jpg" />
+  <img src="Z:/picture/005/save_picture_180770.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180605.jpg" />
+  <img src="Z:/picture/005/save_picture_180605.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179547.jpg" />
+  <img src="Z:/picture/005/save_picture_179547.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179456.jpg" />
+  <img src="Z:/picture/005/save_picture_179456.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178303.jpg" />
+  <img src="Z:/picture/005/save_picture_178303.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177794.jpg" />
+  <img src="Z:/picture/005/save_picture_177794.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177315.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177299.jpg" />
+  <img src="Z:/picture/005/save_picture_177299.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176483.jpg" />
+  <img src="Z:/picture/004/save_picture_176483.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176458.jpg" />
+  <img src="Z:/picture/004/save_picture_176458.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176275.jpg" />
+  <img src="Z:/picture/004/save_picture_176275.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176266.jpg" />
+  <img src="Z:/picture/004/save_picture_176266.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176259.jpg" />
+  <img src="Z:/picture/004/save_picture_176259.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176257.jpg" />
+  <img src="Z:/picture/004/save_picture_176257.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175683.jpg" />
+  <img src="Z:/picture/004/save_picture_175683.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174935.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173713.jpg" />
+  <img src="Z:/picture/004/save_picture_173713.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171692.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170864.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170464.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168322.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168162.jpg" />
 </div>
 
 
@@ -645,37 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2405154A6989B38E3E6E7E1D46B59BDD70A3C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348615   (167115) от 13.12.2020
-
-О бедном гусаре замолвите слово (1980) DVDRip (Реставрация "КП")
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167115.jpg" />
-</div>
-
-
-###  Подробнее
-
-«— Нет в России порядочных людей! Нет! Рылом не вышли!»
-« — Мои орлы газет не читают, книг в глаза не видели, никаких идей не имеют.»
-
-Небольшой городок взбудоражен вступлением гусарского полка.(   Читать дальше...   )Жанр: Комедия, Мелодрама, МюзиклРежиссер: Эльдар РязановАктеры: Евгений Леонов, Олег Басилашвили, Валентин Гафт, Георгий Бурков, Ирина Мазуркевич, Станислав Садальский,
-Зиновий Гердт, Виктор Павлов, Борислав Брондуков, Валерий Носик, Николай Кочегаров, Валерий Погорельцев,
-Наталья Гундарева, Лия Ахеджакова, Светлана Немоляева, Андрей Миронов, Валентина Талызина.Перевод: ОригинальныйПродолжительность: 01:18:50 + 01:21:28 (двухсерийный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB645E325BAF68444A7852CE1BB3852AF00C16BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

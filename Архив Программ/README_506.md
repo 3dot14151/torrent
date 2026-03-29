@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788395.jpg" />
+  <img src="Z:/picture/008/save_picture_788395.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ AAct 3.9.7 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788394.jpg" />
+  <img src="Z:/picture/008/save_picture_788394.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Balabolka 2.15.0.806 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788364.jpg" />
+  <img src="Z:/picture/008/save_picture_788364.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ WizFile 3.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788358.jpg" />
+  <img src="Z:/picture/008/save_picture_788358.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Opera 81.0.4196.54 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788354.jpg" />
+  <img src="Z:/picture/008/save_picture_788354.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Notepad++ 8.1.9.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788348.jpg" />
+  <img src="Z:/picture/008/save_picture_788348.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ExamDiff Pro Master Edition 12.0.1.10 RePack & Portable by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788346.jpg" />
+  <img src="Z:/picture/008/save_picture_788346.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Paint.NET 4.3.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788345.jpg" />
+  <img src="Z:/picture/008/save_picture_788345.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ NirLauncher Package 1.23.54 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788343.jpg" />
+  <img src="Z:/picture/008/save_picture_788343.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ WinNTSetup 5.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788336.jpg" />
+  <img src="Z:/picture/008/save_picture_788336.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Extreme Picture Finder 3.58.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788326.jpg" />
+  <img src="Z:/picture/008/save_picture_788326.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wondershare UniConverter 13.2.1.89 (х64) Repack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788325.jpg" />
+  <img src="Z:/picture/008/save_picture_788325.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ StartAllBack 3.1.0 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788315.jpg" />
+  <img src="Z:/picture/008/save_picture_788315.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SanDisk SSD Dashboard 3.4.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788312.jpg" />
+  <img src="Z:/picture/008/save_picture_788312.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ BELOFF [dp] 2021.11.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788303.jpg" />
+  <img src="Z:/picture/008/save_picture_788303.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788298.jpg" />
+  <img src="Z:/picture/008/save_picture_788298.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Evorim Free Firewall 2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788297.jpg" />
+  <img src="Z:/picture/008/save_picture_788297.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Movavi Video Converter 22.1.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788276.jpg" />
+  <img src="Z:/picture/008/save_picture_788276.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Any Video Converter Ultimate 7.1.5 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788261.jpg" />
+  <img src="Z:/picture/008/save_picture_788261.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ PicturesToExe Deluxe 9.0.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788204.jpg" />
+  <img src="Z:/picture/008/save_picture_788204.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ SRWare Iron 71.0.3700.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788193.jpg" />
+  <img src="Z:/picture/008/save_picture_788193.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Pale Moon 28.3.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788189.jpg" />
+  <img src="Z:/picture/008/save_picture_788189.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ R-Wipe & Clean 20.0 Build 2222 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788184.jpg" />
+  <img src="Z:/picture/008/save_picture_788184.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Brave Browser 0.58.21 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788152.jpg" />
+  <img src="Z:/picture/008/save_picture_788152.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Your Universal MultiBoot Installer 2.0.6.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788150.jpg" />
+  <img src="Z:/picture/008/save_picture_788150.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ WinSnap 5.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788145.jpg" />
+  <img src="Z:/picture/008/save_picture_788145.jpg" />
 </div>
 
 

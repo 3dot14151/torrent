@@ -1,3 +1,119 @@
+###  Публикация: 1574024   (407544) от 03.09.2022
+
+Joey Alexander - Origin (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembering [5:44]
+02. On the Horizon [5:28]
+03. Dear Autumn [5:38]
+04. Winter Blues [7:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C5FAEA1E1771F0E838D4B4C1A4072BEF80ADC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326094   (407433) от 18.09.2019
+
+Dizzy Gillespie - Dizzy's Diamonds: The Best Of The Verve Years (1950 - 1964) 3CD, 1992, Verve Records [FLAC|Lossless|tracks + .cue] <Bop, Afro-Cuban Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407433.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Big Band:
+01. Prelude [5:57]
+02. 'Bout to Wail [6:49]
+03. Umbrella Man [3:03](   Читать дальше...   )Жанр: Bop, Afro-Cuban Jazz, Big BandПродолжительность: 03:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45250A40CC93D69579966570842AD0E3FA1C30D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326116   (407424) от 18.09.2019
+
+The Swingaroos - Music  Of The Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Retro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: Tea for Two
+02. Manhattan
+03. Ain't Misbehavin'
+04. Without a Song / The Song Is You(   Читать дальше...   )Жанр: Retro SwingПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D471D917B6412CF2DB788EA867DCF9779DCE7074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413762   (407267) от 05.10.2020
+
+The Vanguard Jazz Orchestra - Forever Lasting: Live in Tokyo (2010) 2011, 2CD, Planet Arts [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407267.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Low Down [5:22]
+02. You Tell Me [7:53]
+03. 61st and Rich' It [14:44](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 02:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C6C59C5EDEE867B405916AA4D26A0CF1022A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414034   (406830) от 06.10.2020
 
 Samarabalouf - NoNo Future (2020) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy.Jazz>
@@ -6,7 +122,7 @@ Samarabalouf - NoNo Future (2020) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy.Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406830.jpg" />
+  <img src="Z:/picture/008/save_picture_406830.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Louis Armstrong - Big Bands, Vol.1 (1930 - 1931) 1988, JSP Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406828.jpg" />
+  <img src="Z:/picture/008/save_picture_406828.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Buster Poindexter - Buster's Happy Hour (1994) [FLAC|Lossless]<Swing, Neo-Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406712.jpg" />
+  <img src="Z:/picture/005/save_picture_406712.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ VA - Verve Today (2010-2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406672.jpg" />
+  <img src="Z:/picture/005/save_picture_406672.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ VA - The Sound Gallery (1995-1996) 2CD[FLAC|Lossless]<Jazz, Instrumental, Jazz-F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406349.jpg" />
+  <img src="Z:/picture/005/save_picture_406349.jpg" />
 </div>
 
 
@@ -163,7 +279,7 @@ Carlos Garnett - Under Nubian Skies (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405968.jpg" />
+  <img src="Z:/picture/005/save_picture_405968.jpg" />
 </div>
 
 
@@ -197,7 +313,7 @@ Julie London - Sophisticated Lady & For The Night People (1998) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405917.jpg" />
+  <img src="Z:/picture/005/save_picture_405917.jpg" />
 </div>
 
 
@@ -223,7 +339,7 @@ Emilie-Claire Barlow - 2 альбома (2005, 2009) [FLAC|Lossless]<Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405861.jpg" />
+  <img src="Z:/picture/005/save_picture_405861.jpg" />
 </div>
 
 
@@ -258,7 +374,7 @@ VA - The Famous Sound of three blind mice (1987-1989) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405835.jpg" />
+  <img src="Z:/picture/005/save_picture_405835.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ VA - Bar Classics Vocal - Greatest Late Hour Blue Songs (2010) [FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405551.jpg" />
+  <img src="Z:/picture/005/save_picture_405551.jpg" />
 </div>
 
 
@@ -328,7 +444,7 @@ Caetano Veloso - A Foreign Sound (2004) [FLAC|Lossless]<Jazz, Tropicalia, Psyche
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405253.jpg" />
+  <img src="Z:/picture/005/save_picture_405253.jpg" />
 </div>
 
 
@@ -363,7 +479,7 @@ VA - Venus Jazz Cafe - 20th Anniversary Special Blend (2012) 2CD [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405226.jpg" />
+  <img src="Z:/picture/005/save_picture_405226.jpg" />
 </div>
 
 
@@ -398,7 +514,7 @@ The Teodross Avery Quartet - In Other Words (1994) GRP [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405064.jpg" />
+  <img src="Z:/picture/008/save_picture_405064.jpg" />
 </div>
 
 
@@ -427,7 +543,7 @@ Paul Motian - Play Monk And Powell (1999) Winter & Winter [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405063.jpg" />
+  <img src="Z:/picture/008/save_picture_405063.jpg" />
 </div>
 
 
@@ -456,7 +572,7 @@ Antonella Catanese - Red Inside (2012) Jazzy Record Label [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405062.jpg" />
+  <img src="Z:/picture/008/save_picture_405062.jpg" />
 </div>
 
 
@@ -485,7 +601,7 @@ Herbie Hancock - Head Hunters (1973) 2016 [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405059.jpg" />
+  <img src="Z:/picture/008/save_picture_405059.jpg" />
 </div>
 
 
@@ -514,7 +630,7 @@ Nina Simone - Little Girl Blue (1957) Analogue Productions, 2015 [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404995.jpg" />
+  <img src="Z:/picture/008/save_picture_404995.jpg" />
 </div>
 
 
@@ -543,7 +659,7 @@ European Jazz Trio - Best of Classics (2006) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404693.jpg" />
+  <img src="Z:/picture/008/save_picture_404693.jpg" />
 </div>
 
 
@@ -578,7 +694,7 @@ VA - Greatest Audiophile Voices (2011-2012) 4CD[FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404357.jpg" />
+  <img src="Z:/picture/008/save_picture_404357.jpg" />
 </div>
 
 
@@ -622,7 +738,7 @@ Big Bad Voodoo Daddy - How Big Can You Get (2009) [FLAC|Lossless]<Swing Revival>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404344.jpg" />
+  <img src="Z:/picture/008/save_picture_404344.jpg" />
 </div>
 
 
@@ -651,7 +767,7 @@ Stacey Kent - The Changing Lights (2013) [FLAC (tracks)|Lossless|WEB-DL]<Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404217.jpg" />
+  <img src="Z:/picture/008/save_picture_404217.jpg" />
 </div>
 
 
@@ -680,7 +796,7 @@ Al Hirt & Pete Fountain - Super Jazz 1 (1975) 1988, CBS [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404117.jpg" />
+  <img src="Z:/picture/008/save_picture_404117.jpg" />
 </div>
 
 
@@ -694,122 +810,6 @@ Al Hirt & Pete Fountain - Super Jazz 1 (1975) 1988, CBS [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92D53715174D5FED38FCDA9D703DE3A50CF99B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169142   (404116) от 26.09.2017
-
-Al Hirt - At The Mardi Gras (1962) 2000, RCA Victor [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Announcement & Bourbon Street Parade [03:33]
-02. Basin Street Blues [03:28]
-03. Perdido [02:39]
-04. Show Me the Way to Go Home [03:18](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4707B7106D782271D25306E0371B6B1F54EC251F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169155   (404115) от 26.09.2017
-
-Al Hirt - The Sound of Christmas (1965) 2013, Relayer Records [FLAC|Lossless|tracks + .cue] <Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nutty Jingle Bells [02:14]
-02. Medley: I Saw Mommy Kissing Santa Claus/Here Comes Santa Claus (Right Down Santa Claus Lane) [02:18]
-03. Rudolph The Red-Nosed Reindeer [02:12]
-04. Sleigh Ride [02:13](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7F74783DA3A09BD54DD3B5DA8C27B7FBC05AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169162   (404113) от 26.09.2017
-
-The Ted Rosenthal Trio - Rosenthology (1996) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Walked In [04:40]
-02. Snowscape [05:32]
-03. Slippin' And Slidin' [04:51]
-04. Will You Still Be Mine [05:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917ADDAB2281C67F1D723CCCCAE8450BFA0FDBFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169148   (404112) от 26.09.2017
-
-Al Hirt - All Time Greatest Hits (1960-e) 1989, RCA [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bourbon Street Parade [03:34]
-02. I Can't Get Started [02:46]
-03. Stranger in Paradise (from 'Kismet') [02:46]
-04. Java [01:59](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE77730B8AC3B8C8178DCEF1604FB437275231F
 ```
 
 https://mybot314.ru/tekegram_catalog/

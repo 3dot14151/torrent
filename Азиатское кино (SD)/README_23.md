@@ -1,3 +1,29 @@
+###  Публикация: 888548   (744476) от 20.04.2015
+
+Битва за Мён Рян / Myeong-ryang (2014) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об известной битве за Мён Рян, состоявшейся в 1597 году во время японского вторжения в Корею. Тогда культовому адмиралу Ли Сунсину удалось уничтожить 133 японских корабля имея флот всего в 13 кораблей...Производство: South Korea / CJ Entertainment, Big Stone Pictures, CJ EntertainmentЖанр: приключения, военный, биографияРежиссер: Ким Хан МинАктеры: Чхве Мин Сик, Сын-Рён Рёо, Рю Сын Рён, Jin-Woong Cho, Ким Мён Гон, Чин Гу, Ли Чун Хюн, Чо Чжин УнПеревод: любительский (одноголосый закадровый) (Green Tea)Продолжительность: 02:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048CEC6C237060339DF3EB88548A9666DD2804E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524244   (743564) от 16.01.2022
 
 Три сестры / Se jamae / Three Sisters (2020) WEB-DLRip [DVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743564.jpg" />
+  <img src="Z:/picture/008/save_picture_743564.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742689.jpg" />
+  <img src="Z:/picture/008/save_picture_742689.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739821.jpg" />
+  <img src="Z:/picture/008/save_picture_739821.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738737.jpg" />
+  <img src="Z:/picture/008/save_picture_738737.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738626.jpg" />
+  <img src="Z:/picture/008/save_picture_738626.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738432.jpg" />
+  <img src="Z:/picture/008/save_picture_738432.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738119.jpg" />
+  <img src="Z:/picture/008/save_picture_738119.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737764.jpg" />
+  <img src="Z:/picture/008/save_picture_737764.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737528.jpg" />
+  <img src="Z:/picture/008/save_picture_737528.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737362.jpg" />
+  <img src="Z:/picture/008/save_picture_737362.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737340.jpg" />
+  <img src="Z:/picture/008/save_picture_737340.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736649.jpg" />
+  <img src="Z:/picture/008/save_picture_736649.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736394.jpg" />
+  <img src="Z:/picture/008/save_picture_736394.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736363.jpg" />
+  <img src="Z:/picture/008/save_picture_736363.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735856.jpg" />
+  <img src="Z:/picture/008/save_picture_735856.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735695.jpg" />
+  <img src="Z:/picture/008/save_picture_735695.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735369.jpg" />
+  <img src="Z:/picture/005/save_picture_735369.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734965.jpg" />
+  <img src="Z:/picture/008/save_picture_734965.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734951.jpg" />
+  <img src="Z:/picture/008/save_picture_734951.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734686.jpg" />
+  <img src="Z:/picture/008/save_picture_734686.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734430.jpg" />
+  <img src="Z:/picture/008/save_picture_734430.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734405.jpg" />
+  <img src="Z:/picture/008/save_picture_734405.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734070.jpg" />
+  <img src="Z:/picture/005/save_picture_734070.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733804.jpg" />
+  <img src="Z:/picture/008/save_picture_733804.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733153.jpg" />
+  <img src="Z:/picture/008/save_picture_733153.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D210FDBBFF2BBF5FBC6BE1BDF02A3DD7543ECE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529223   (733084) от 05.02.2022
-
-Дверь в лето / Natsu e no Tobira: Kimi no Iru Mirai e / The Door Into Summer (2021) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733084.jpg" />
-</div>
-
-
-###  Подробнее
-
-1995 год. Молодой учёный Соитиро Такакура занимается созданием робота и разработкой плазменного аккумулятора. Вне работы у парня есть кот Пито и невеста Рико. Но однажды его предают партнер по бизнесу и невеста. В отчаянии Соитиро решает заморозить себя в криокамере, надеясь, что когда он проснется, мир будет лучше. Придя в себя ото сна, он понимает, что оказался (   Читать дальше...   )Производство: Япония, TohoЖанр: Фантастика, драмаРежиссер: Такахиро МикиАктеры: Кэнто Ямадзаки, Кая Киёхара, Наохито Фудзики, Бекон, Кэнта Хамано, Таидзо Харада, Хидэкадзу Масима, Нацуна Ватанабэ, Томорово Тагути, Рин ТаканасиПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 01:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B62C24A40BC8FEA297C44AA4CD8095658AAF6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

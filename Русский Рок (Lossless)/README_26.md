@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_570790.jpg" />
+  <img src="Z:/picture/005/save_picture_570790.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569800.jpg" />
+  <img src="Z:/picture/008/save_picture_569800.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569138.jpg" />
+  <img src="Z:/picture/008/save_picture_569138.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567978.jpg" />
+  <img src="Z:/picture/008/save_picture_567978.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567974.jpg" />
+  <img src="Z:/picture/008/save_picture_567974.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566937.jpg" />
+  <img src="Z:/picture/008/save_picture_566937.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566817.jpg" />
+  <img src="Z:/picture/008/save_picture_566817.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564626.jpg" />
+  <img src="Z:/picture/008/save_picture_564626.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559648.jpg" />
+  <img src="Z:/picture/008/save_picture_559648.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557381.jpg" />
+  <img src="Z:/picture/008/save_picture_557381.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554649.jpg" />
+  <img src="Z:/picture/008/save_picture_554649.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546275.jpg" />
+  <img src="Z:/picture/008/save_picture_546275.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544915.jpg" />
+  <img src="Z:/picture/008/save_picture_544915.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544227.jpg" />
+  <img src="Z:/picture/008/save_picture_544227.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544146.jpg" />
+  <img src="Z:/picture/008/save_picture_544146.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542419.jpg" />
+  <img src="Z:/picture/008/save_picture_542419.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541450.jpg" />
+  <img src="Z:/picture/008/save_picture_541450.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539258.jpg" />
+  <img src="Z:/picture/008/save_picture_539258.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536592.jpg" />
+  <img src="Z:/picture/008/save_picture_536592.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Hatters - Forte & Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska, Pun
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536210.jpg" />
+  <img src="Z:/picture/008/save_picture_536210.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535278.jpg" />
+  <img src="Z:/picture/008/save_picture_535278.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Imperial Age - Turn the Sun Off! (2012) Japanese Edition, Reissued, 2018 [FLAC|L
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535105.jpg" />
+  <img src="Z:/picture/008/save_picture_535105.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534019.jpg" />
+  <img src="Z:/picture/008/save_picture_534019.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Moratory - The Old Tower Burns (2021) [FLAC|Lossless|image + .cue] <Thrash, Punk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533649.jpg" />
+  <img src="Z:/picture/008/save_picture_533649.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Imperial Age - Warrior Race (2016) Japan [FLAC|Lossless|image + .cue] <Symphonic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533240.jpg" />
+  <img src="Z:/picture/008/save_picture_533240.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ VA - Mastersland.com - Украдено Из Студии 1 и 2 + 10 лет в 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531791.jpg" />
+  <img src="Z:/picture/008/save_picture_531791.jpg" />
 </div>
 
 

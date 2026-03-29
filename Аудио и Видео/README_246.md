@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223214.jpg" />
+  <img src="Z:/picture/005/save_picture_223214.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223189.jpg" />
+  <img src="Z:/picture/005/save_picture_223189.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223066.jpg" />
+  <img src="Z:/picture/005/save_picture_223066.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223057.jpg" />
+  <img src="Z:/picture/005/save_picture_223057.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223041.jpg" />
+  <img src="Z:/picture/005/save_picture_223041.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223014.jpg" />
+  <img src="Z:/picture/005/save_picture_223014.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Silent Sunset Lounge: Chillout Your Mind (2020) [AAC|~330 Kbps] <Chillout, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222971.jpg" />
+  <img src="Z:/picture/005/save_picture_222971.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222962.jpg" />
+  <img src="Z:/picture/005/save_picture_222962.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Early Morning Lounge: Chillout Your Mind (2020) [AAC|~340 Kbps] <Chillout, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222954.jpg" />
+  <img src="Z:/picture/005/save_picture_222954.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Chillout Orange, vol. 2: Relaxing Chillout Vibes (2020) [AAC|~312 Kbps] <Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222947.jpg" />
+  <img src="Z:/picture/005/save_picture_222947.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Beach House Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Chillout, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222914.jpg" />
+  <img src="Z:/picture/005/save_picture_222914.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Feeling Relaxed Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222908.jpg" />
+  <img src="Z:/picture/005/save_picture_222908.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Chillout Orange, vol. 1: Relaxing Chillout Vibes (2020) [AAC|~326 Kbps] <Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222899.jpg" />
+  <img src="Z:/picture/005/save_picture_222899.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - We Are 3000Grad (Stephan Zovsky DJ Mix 002) (2021) [AAC|~316 Kbps] <Deep Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222898.jpg" />
+  <img src="Z:/picture/005/save_picture_222898.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Flower Blossom Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222892.jpg" />
+  <img src="Z:/picture/005/save_picture_222892.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - We Are 3000Grad (Pophop DJ Mix 003) (2021) [AAC|~337 Kbps] <Deep House, Tec
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222891.jpg" />
+  <img src="Z:/picture/005/save_picture_222891.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222890.jpg" />
+  <img src="Z:/picture/005/save_picture_222890.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - We Are 3000Grad (Mollono.Bass DJ Mix 001) (2021) [AAC|~317 Kbps] <Deep Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222880.jpg" />
+  <img src="Z:/picture/005/save_picture_222880.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222856.jpg" />
+  <img src="Z:/picture/005/save_picture_222856.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222838.jpg" />
+  <img src="Z:/picture/005/save_picture_222838.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222810.jpg" />
+  <img src="Z:/picture/005/save_picture_222810.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222668.jpg" />
+  <img src="Z:/picture/005/save_picture_222668.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222624.jpg" />
+  <img src="Z:/picture/005/save_picture_222624.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222513.jpg" />
+  <img src="Z:/picture/005/save_picture_222513.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222502.jpg" />
+  <img src="Z:/picture/005/save_picture_222502.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222481.jpg" />
+  <img src="Z:/picture/005/save_picture_222481.jpg" />
 </div>
 
 

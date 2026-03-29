@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495116.jpg" />
+  <img src="Z:/picture/008/save_picture_495116.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492910.jpg" />
+  <img src="Z:/picture/008/save_picture_492910.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491829.jpg" />
+  <img src="Z:/picture/008/save_picture_491829.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490540.jpg" />
+  <img src="Z:/picture/008/save_picture_490540.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489862.jpg" />
+  <img src="Z:/picture/008/save_picture_489862.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486415.jpg" />
+  <img src="Z:/picture/008/save_picture_486415.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485303.jpg" />
+  <img src="Z:/picture/008/save_picture_485303.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485279.jpg" />
+  <img src="Z:/picture/008/save_picture_485279.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483973.jpg" />
+  <img src="Z:/picture/008/save_picture_483973.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483963.jpg" />
+  <img src="Z:/picture/008/save_picture_483963.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482142.jpg" />
+  <img src="Z:/picture/008/save_picture_482142.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482069.jpg" />
+  <img src="Z:/picture/008/save_picture_482069.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482055.jpg" />
+  <img src="Z:/picture/008/save_picture_482055.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479964.jpg" />
+  <img src="Z:/picture/008/save_picture_479964.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478267.jpg" />
+  <img src="Z:/picture/008/save_picture_478267.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477785.jpg" />
+  <img src="Z:/picture/008/save_picture_477785.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476840.jpg" />
+  <img src="Z:/picture/008/save_picture_476840.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476809.jpg" />
+  <img src="Z:/picture/008/save_picture_476809.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476670.jpg" />
+  <img src="Z:/picture/008/save_picture_476670.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475879.jpg" />
+  <img src="Z:/picture/008/save_picture_475879.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475861.jpg" />
+  <img src="Z:/picture/008/save_picture_475861.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475850.jpg" />
+  <img src="Z:/picture/008/save_picture_475850.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Nate Murray и др. | ng-book2: The Complete Book of Angular 4 (2017) [PDF] [En
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475732.jpg" />
+  <img src="Z:/picture/008/save_picture_475732.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469322.jpg" />
+  <img src="Z:/picture/008/save_picture_469322.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468752.jpg" />
+  <img src="Z:/picture/008/save_picture_468752.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Benoît Blanchon | The Ultimate Guide to Master ArduinoJson / Руководст
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468376.jpg" />
+  <img src="Z:/picture/008/save_picture_468376.jpg" />
 </div>
 
 

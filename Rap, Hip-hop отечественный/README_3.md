@@ -6,7 +6,7 @@ Mnogoznaal - Круг Ветров (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848266.jpg" />
+  <img src="Z:/picture/008/save_picture_848266.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_848178.jpg" />
+  <img src="Z:/picture/009/save_picture_848178.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844635.jpg" />
+  <img src="Z:/picture/008/save_picture_844635.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Krec - Обелиск16 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839526.jpg" />
+  <img src="Z:/picture/008/save_picture_839526.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839458.jpg" />
+  <img src="Z:/picture/008/save_picture_839458.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Oxxxymiron - ГОРГОРОД (2015) [MP3|320 kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837495.jpg" />
+  <img src="Z:/picture/008/save_picture_837495.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Lord - Перемены (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836392.jpg" />
+  <img src="Z:/picture/008/save_picture_836392.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Morgenshtern (Моргенштерн) - Million Dollar Business (2021) [MP3|320 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836273.jpg" />
+  <img src="Z:/picture/008/save_picture_836273.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Jahmal TGK - Неваляшка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834988.jpg" />
+  <img src="Z:/picture/008/save_picture_834988.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Brick Bazuka - Я и Мой Демон (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834436.jpg" />
+  <img src="Z:/picture/008/save_picture_834436.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833863.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Jillzay - Open Season (2017) EP [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829871.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Guf & Murovei - Дом, который построил Алик (2020) [MP3|320
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829296.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826895.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821070.jpg" />
+  <img src="Z:/picture/008/save_picture_821070.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ ATL - Лимб (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818551.jpg" />
+  <img src="Z:/picture/008/save_picture_818551.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ L'One - Концерт с симфоническим оркестром (2018) [
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811772.jpg" />
+  <img src="Z:/picture/008/save_picture_811772.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ NIGXNIZ - INFRA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810244.jpg" />
+  <img src="Z:/picture/008/save_picture_810244.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810240.jpg" />
+  <img src="Z:/picture/008/save_picture_810240.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Archi - Не спасти не сохранить (2020) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810239.jpg" />
+  <img src="Z:/picture/008/save_picture_810239.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810114.jpg" />
+  <img src="Z:/picture/008/save_picture_810114.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810110.jpg" />
+  <img src="Z:/picture/008/save_picture_810110.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802497.jpg" />
+  <img src="Z:/picture/008/save_picture_802497.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797689.jpg" />
+  <img src="Z:/picture/008/save_picture_797689.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797080.jpg" />
+  <img src="Z:/picture/008/save_picture_797080.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Mnogoznaal - Гостиница Космос (2018) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795593.jpg" />
+  <img src="Z:/picture/008/save_picture_795593.jpg" />
 </div>
 
 

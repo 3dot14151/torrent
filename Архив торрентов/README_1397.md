@@ -6,7 +6,7 @@ Firefox Browser 96.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737332.jpg" />
+  <img src="Z:/picture/008/save_picture_737332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737326.jpg" />
+  <img src="Z:/picture/008/save_picture_737326.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 83.0.4254.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737304.jpg" />
+  <img src="Z:/picture/008/save_picture_737304.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LDPlayer 4.0.76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737299.jpg" />
+  <img src="Z:/picture/008/save_picture_737299.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nox App Player 7.0.2.1009 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737293.jpg" />
+  <img src="Z:/picture/008/save_picture_737293.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ macOS 12 Monterey 12.2 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737286.jpg" />
+  <img src="Z:/picture/008/save_picture_737286.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Nik Complete 4 Collection by DxO v4.3.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737264.jpg" />
+  <img src="Z:/picture/008/save_picture_737264.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Blender 3.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737261.jpg" />
+  <img src="Z:/picture/008/save_picture_737261.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Auslogics Duplicate File Finder 9.2.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737257.jpg" />
+  <img src="Z:/picture/008/save_picture_737257.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Android Studio Bumblebee 2021.1.1 Build #AI-211.7628.21.2111.8092744 + Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737253.jpg" />
+  <img src="Z:/picture/008/save_picture_737253.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BELOFF [dp] 2022
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737247.jpg" />
+  <img src="Z:/picture/008/save_picture_737247.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Internet Download Manager 6.40 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737222.jpg" />
+  <img src="Z:/picture/008/save_picture_737222.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Auslogics BoostSpeed 12.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737218.jpg" />
+  <img src="Z:/picture/008/save_picture_737218.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737211.jpg" />
+  <img src="Z:/picture/008/save_picture_737211.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Postico 1.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737134.jpg" />
+  <img src="Z:/picture/008/save_picture_737134.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ File Cabinet Pro 7.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737133.jpg" />
+  <img src="Z:/picture/008/save_picture_737133.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737132.jpg" />
+  <img src="Z:/picture/008/save_picture_737132.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737124.jpg" />
+  <img src="Z:/picture/008/save_picture_737124.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737123.jpg" />
+  <img src="Z:/picture/008/save_picture_737123.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737108.jpg" />
+  <img src="Z:/picture/008/save_picture_737108.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737096.jpg" />
+  <img src="Z:/picture/008/save_picture_737096.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Sweet Home 3D 6.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737087.jpg" />
+  <img src="Z:/picture/008/save_picture_737087.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Fieldrunners 2  1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737060.jpg" />
+  <img src="Z:/picture/008/save_picture_737060.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737052.jpg" />
+  <img src="Z:/picture/008/save_picture_737052.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Topaz A.I. Gigapixel 5.0.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737008.jpg" />
+  <img src="Z:/picture/008/save_picture_737008.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736986.jpg" />
+  <img src="Z:/picture/008/save_picture_736986.jpg" />
 </div>
 
 

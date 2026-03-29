@@ -1,3 +1,235 @@
+###  Публикация: 1686302   (126576) от 22.12.2023
+
+Ritual King - The Infinite Mirror (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Blues, Stoner, Progressive>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flow State [00:09:29]
+02. Worlds Divide [00:07:28]
+03. Landmass [00:07:14]
+04. Tethered [00:11:50](   Читать дальше...   )Жанр: Heavy Blues, Stoner, ProgressiveПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786F106DBD2E3B34BB0D04B588018BF8A76DC076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686615   (126401) от 23.12.2023
+
+Dusk - Dissolve Into Ash (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126401.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beacon Obscured 06:09
+2. The Dim Divide 05:09
+3. Ancient Passage 04:18
+4. Libations Offered 07:41(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C7D47993F392C9F0B78A0C1786790E75FFE3DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686589   (126272) от 24.12.2023
+
+VA - Oktoberfest Drinking Songs 2023 Traditional German Beer Festival Music (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oktoberfest Band - Festival Beer Atmosphere (2:59)
+02. Oktoberfest Masters - Folk Music Germany (3:16)
+03. Oktoberfest Akademie - Rhythm of the World (3:17)
+04. Glenn Milton - Drinking Beer Festival Music (3:17)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAD2B65D0012D8FAB1932EDC10A6711E9E3927E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686580   (126248) от 24.12.2023
+
+Various Artists - Best Carnival Party Jazz 2023 Brazilian Vibes (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Jazz Mood - Caribbean Cafe (Ocean Waves) (4:34)
+02. Cuban Latin Collection - Chillin Bossa Nova Vibes (3:19)
+03. Coffee Lounge Collection - Sunset Walk (3:47)
+04. Soft Jazz Mood - Costa Del Mar (3:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177C5AD7E2BC9DA6F3849ADF1DE254E1E37B9DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686585   (126244) от 24.12.2023
+
+VA - Morning Bells Coffee Jazz Music for A Cozy Christmas Mood (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Sax Lounge Collection - Families United (3:23)
+02. Christmas Time - The Reindeer's Bells (3:25)
+03. Smooth Jazz Sax Instrumentals - Peace on Earth (3:23)
+04. Jazz Sax Lounge Collection - Under a Tree (3:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187CC206691BCE2B24348B89E33108DBB07B95D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686575   (126232) от 24.12.2023
+
+Vibe Brothers Band - Everyday (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vibe Brothers (3:20)
+02. Come On (5:55)
+03. Bad Love (4:12)
+04. Find You (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281356F1A5F3C5FACBB9FD5CD49DC516BA6BD758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686843   (126224) от 24.12.2023
+
+Freya Ridings - Blood Orange (Live at Apollo) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Introduction (Live at Apollo)
+02 – Dancing In A Hurricane (Live at Apollo)
+03 – Weekends (Live at Apollo)
+04 – Bite Me (Live at Apollo)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF90C16D41FCC5668921C1DBB04CE941345DF12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686907   (126218) от 24.12.2023
+
+Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Worthwhile (4:04)
+02. Gone Away Prelude (0:19)
+03. Gone Away (2:45)
+04. Roses On The Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686908   (126213) от 24.12.2023
 
 Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +238,7 @@ Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126213.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Jack and the Axes - Proof Is In The Poison (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126211.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126209.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126208.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Phil Seymour - Live On The Sunset Strip (Live) (2023) [FLAC 24/88.2|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126203.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Assemblage - Album (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126201.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Neon Fields - Neon Fields (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126198.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Elisa - Intimate - Recordings at Abbey Road Studios (2023) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126196.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Sefirot - The Mystical Lybrary (2023) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126195.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Satis - Despair (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126188.jpg" />
 </div>
 
 
@@ -297,7 +529,7 @@ Nebula Drag - Western Death (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126187.jpg" />
 </div>
 
 
@@ -326,7 +558,7 @@ Simple Stone - Through This Dark (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126186.jpg" />
 </div>
 
 
@@ -355,7 +587,7 @@ Shropshire Collective - For the Children (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126183.jpg" />
 </div>
 
 
@@ -384,7 +616,7 @@ Starchild - Magic Well (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126182.jpg" />
 </div>
 
 
@@ -413,7 +645,7 @@ Critical Heartbeat - Revolution (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126180.jpg" />
 </div>
 
 
@@ -442,7 +674,7 @@ Junkyard Heights - Junkyard Heights (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126175.jpg" />
 </div>
 
 
@@ -471,7 +703,7 @@ Unanimated - Studio Albums (5 releases) (1993-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126077.jpg" />
 </div>
 
 
@@ -500,7 +732,7 @@ Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126076.jpg" />
 </div>
 
 
@@ -513,234 +745,6 @@ Countless Skies - рок-руппа из Хартфордшира, Велико�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D8DD6D5172F1520E1A3FA232DA68580627DA62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823936   (126075) от 13.10.2025
-
-Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Callenish Circle - метал-группа из Нидерландов, существовавшая с 1992 по 2007 годы1996 - Drift Of Empathy
-2000 - Graceful... Yet Forbidding
-2002 - Flesh_Power_Dominion
-2003 - My Passion, Your PainЖанр: Melodic Death MetalПродолжительность: 04:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E204AD3D49AC80699CD216EAB7D77693C1DF9AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823933   (126074) от 13.10.2025
-
-Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126074.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Let's Begin
-A2 Lullaby Of Broadway
-A3 Let There Be Love
-A4 Love For Sale(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 00:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E590A54D79E5FA1EC404220F1D40D53B54912D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823608   (125889) от 12.10.2025
-
-Loredana Groza - Buna Seara, Iubito! (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125889.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Iti Citesc In Ochi
-A2 Toate Femeile
-A3 O Inima De 16 Ani
-A4 Sa-ti Spun Adio(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F753AB424058B8324B87ED6F6C24B08177C85591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823696   (125888) от 12.10.2025
-
-Greyhaven - Keep It Quiet (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Chaotic Hardcore, Progressive Metal, Mathcore, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude: Evening Star (2:26)
-02. Shatter And Burst (3:44)
-03. Show Me Where You Are (3:02)
-04. Burn A Miracle (4:02)(   Читать дальше...   )Жанр: Chaotic Hardcore, Progressive Metal, Mathcore, Post-HardcoreПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78B42A27CAC1613D03B32137D413E857D48C2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823418   (125784) от 11.10.2025
-
-Testament - Para Bellum (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - For the Love of Pain (05:35)
- 02 - Infanticide A.I (03:28)
- 03 - Shadow People (05:45)
- 04 - Meant to Be (07:33)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFC01A77F466448133FBB75D68278815E002262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687034   (125755) от 25.12.2023
-
-Till Lindemann - Entre dos tierras (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entre dos tierras (3:45)Жанр: Industrial metalПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603BC5B326E7767A1C3C694FAD8F135EECC531AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686977   (125707) от 25.12.2023
-
-Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Charred Walls of the Damned — американская хэви-метал супергруппа, образованная в 2009 году и состоящая из барабанщика Ричарда Кристи, басиста Стива Ди Джорджио, вокалиста Тима «Риппера» Оуэнса и гитариста Джейсона Суэкофа.2010 - Charred Walls Of The Damned
-2011 - Cold Winds on Timeless Days
-2016 - Creatures Watching Over The DeadЖанр: Power/Thrash MetalПродолжительность: 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870A070C4D4C2174F4599C9EEC5D64EA683D07CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687926   (125478) от 27.12.2023
-
-All India Radio - Diamonds in the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Ambient, Post Rock, Trip Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Space Jazz (Diamonds Mix)
-02 – Ancient Invocations
-03 – The Western Plains
-04 – Longevity (feat. MANNERISMS & Emily Hopkins)(   Читать дальше...   )Жанр: Electronic, Ambient, Post Rock, Trip HopПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76343340DF5EBCFCBE5D14D0BAED9AB995AEB332
 ```
 
 https://mybot314.ru/tekegram_catalog/

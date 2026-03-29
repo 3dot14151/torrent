@@ -6,7 +6,7 @@ StartIsBack++ 2.8.2 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_724185.jpg" />
+  <img src="Z:/picture/005/save_picture_724185.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio Network 9.0 Build 190295 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724127.jpg" />
+  <img src="Z:/picture/008/save_picture_724127.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724116.jpg" />
+  <img src="Z:/picture/008/save_picture_724116.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724110.jpg" />
+  <img src="Z:/picture/008/save_picture_724110.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 Final RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724105.jpg" />
+  <img src="Z:/picture/008/save_picture_724105.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724101.jpg" />
+  <img src="Z:/picture/008/save_picture_724101.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724097.jpg" />
+  <img src="Z:/picture/008/save_picture_724097.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WinTools.net Premium 17.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724083.jpg" />
+  <img src="Z:/picture/008/save_picture_724083.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724000.jpg" />
+  <img src="Z:/picture/008/save_picture_724000.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Glarysoft Malware Hunter PRO 1.10.0.21 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723953.jpg" />
+  <img src="Z:/picture/008/save_picture_723953.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723897.jpg" />
+  <img src="Z:/picture/008/save_picture_723897.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Tenkai no shichiryuu / Blue Dragon / Синий Дракон (1 сезон) [200
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723890.jpg" />
+  <img src="Z:/picture/008/save_picture_723890.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723880.jpg" />
+  <img src="Z:/picture/008/save_picture_723880.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723845.jpg" />
+  <img src="Z:/picture/008/save_picture_723845.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ R-Studio 8.3 Build 167546 Network Edition RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723844.jpg" />
+  <img src="Z:/picture/008/save_picture_723844.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Astroneer (2016) [Ru/Multi] (0.3.10154.0) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723837.jpg" />
+  <img src="Z:/picture/008/save_picture_723837.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723836.jpg" />
+  <img src="Z:/picture/008/save_picture_723836.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723814.jpg" />
+  <img src="Z:/picture/008/save_picture_723814.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723811.jpg" />
+  <img src="Z:/picture/008/save_picture_723811.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723809.jpg" />
+  <img src="Z:/picture/008/save_picture_723809.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723744.jpg" />
+  <img src="Z:/picture/008/save_picture_723744.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cent Browser 1.9.13.75 Portable by CheshireCat [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723743.jpg" />
+  <img src="Z:/picture/008/save_picture_723743.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723734.jpg" />
+  <img src="Z:/picture/008/save_picture_723734.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723725.jpg" />
+  <img src="Z:/picture/008/save_picture_723725.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ R-Studio 8.3 Build 167546 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723722.jpg" />
+  <img src="Z:/picture/008/save_picture_723722.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723718.jpg" />
+  <img src="Z:/picture/008/save_picture_723718.jpg" />
 </div>
 
 

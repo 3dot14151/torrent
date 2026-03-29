@@ -6,7 +6,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.3.1-f1/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896726.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Repetto Paris Ballerina [Multi 5] [PAL] [Wii] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896571.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Diva Girls: Diva Ballerina[Wii] [PAL] [Multi 6] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896468.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895405.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ King's Bounty: The Legend / King's Bounty: Armored Princess / King`s Bounty: Л�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893538.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Turnip Boy Commits Tax Evasion (2021) [Ru/Multi] (1.1.0f2) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893382.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Legendary (L) [Ru] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892240.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Eldest Souls (2021) [Ru/Multi] (1.0.472) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891728.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ The Longing (2020) [Ru/Multi] (1.0.7) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890401.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.01.977/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888983.jpg" />
+  <img src="Z:/picture/005/save_picture_888983.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kingdom Wars 2: Battles (2016) [Ru/Multi] (1.0) Repack by bosenok
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888942.jpg" />
+  <img src="Z:/picture/005/save_picture_888942.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Call of Duty: Ghosts (2013) [Ru] (3.15.1.0.0.702660/upd20) Rip xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888927.jpg" />
+  <img src="Z:/picture/005/save_picture_888927.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dead Age (2016) [Ru/Multi] (1.7) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887326.jpg" />
+  <img src="Z:/picture/005/save_picture_887326.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Punch Club (2016) [Ru/Multi] (1.1) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887268.jpg" />
+  <img src="Z:/picture/005/save_picture_887268.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.00.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887067.jpg" />
+  <img src="Z:/picture/005/save_picture_887067.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Grand Theft Auto: San Andreas [Ru/En] (P) 2005
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883331.jpg" />
+  <img src="Z:/picture/005/save_picture_883331.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882073.jpg" />
+  <img src="Z:/picture/005/save_picture_882073.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.0а) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882066.jpg" />
+  <img src="Z:/picture/005/save_picture_882066.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Them and Us (2018) [Ru/Multi] (1.0.0/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881962.jpg" />
+  <img src="Z:/picture/005/save_picture_881962.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_100) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880302.jpg" />
+  <img src="Z:/picture/005/save_picture_880302.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Between the Stars (2019) [Multi] (0.5.2.6f) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880292.jpg" />
+  <img src="Z:/picture/005/save_picture_880292.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ SUPERHOT (2016) [En] (1.0/upd2) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876579.jpg" />
+  <img src="Z:/picture/005/save_picture_876579.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Airships: Conquer the Skies (2018) [Ru/Multi] (1.0.15.4) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876208.jpg" />
+  <img src="Z:/picture/005/save_picture_876208.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Hidden Mysteries: The Fateful Voyage - Titanic (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875316.jpg" />
+  <img src="Z:/picture/008/save_picture_875316.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.0a) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874769.jpg" />
+  <img src="Z:/picture/005/save_picture_874769.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.0a) Repack =nemos=
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874588.jpg" />
+  <img src="Z:/picture/005/save_picture_874588.jpg" />
 </div>
 
 

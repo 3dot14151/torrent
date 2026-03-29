@@ -1,3 +1,136 @@
+###  Публикация: 1279615   (765326) от 30.01.2019
+
+TunesKit iPhone Data Recovery 2.2.0 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление до 20 типов потерянных и удаленных данных на iPhone/iPad/iPod touch с высокой скоростью восстановления всего за несколько кликов - на 100% безопасно, легко и просто.
+
+Потерянны данные на iPhone, iPad или iPod? Не принимайте это близко к сердцу! TunesKit iPhone Data Recovery для Mac поможет вам, спасти от любые данных на iOS, полностью восстановив более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2019Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2898B4C52B91B7C76DB50A69500E3C7FB596C88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394061   (765185) от 03.07.2020
+
+DxO Photo Software Suite (02.07.2020) [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для редактирования фотографий, разработанное для фотографов с высокими стандартами и любовью к красивым изображениям. Ручная или автоматическая коррекция, технология локальной регулировки, технология Prime Denoising. Технологии призваны помочь вам в работе самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 02.07.2020Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84D673CE73BF49B8A9E9757492F63B61564F948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126719   (764616) от 19.04.2017
+
+Lingon X 4.3.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon X  - автоматический запуск приложений и сценариев
+Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Немецкий  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6BB1C154BC303740F7D11DE220FB7593A56B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279806   (764536) от 31.01.2019
+
+Smart Player 1.0.1 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкое воспроизведение видео и управление библиотекой на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2019Разработчик: ShedWorxПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFCA155FC52021DF1CC0803CBC7C5FD2A7F5947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279803   (764467) от 31.01.2019
+
+Joyoshare Screen Recorder 2.0.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joyoshare Screen Recorder for Mac - приложение для записи видео, а также аудио с экрана. Программа запишет любое видео: лекции, чаты, фильмы, звонки Skype и т.д. в полноэкранном режиме и сохранит видео и аудио файлы в форматах: HD, MP4, AVI, FLV, MOV, SWF, MP3, AAC, M4A, M4B, и т.д. Вы можете проигрывать полученную запись , а также передавать ее на любые устройства: (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2019Разработчик: JoyoshareПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21EE093F2F1C8FEF61166DEA1CFCE1651E31FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279800   (764463) от 31.01.2019
 
 iNet Network Scanner 2.6.3 [Multi]
@@ -6,7 +139,7 @@ iNet Network Scanner 2.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764463.jpg" />
+  <img src="Z:/picture/008/save_picture_764463.jpg" />
 </div>
 
 
@@ -34,7 +167,7 @@ CrazyTalk Animator 3 v3.31.3514.2 Pipeline [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764221.jpg" />
+  <img src="Z:/picture/008/save_picture_764221.jpg" />
 </div>
 
 
@@ -60,7 +193,7 @@ iPasscode Unlocker 1.1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764044.jpg" />
+  <img src="Z:/picture/008/save_picture_764044.jpg" />
 </div>
 
 
@@ -88,7 +221,7 @@ App Uninstaller 4.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763985.jpg" />
+  <img src="Z:/picture/008/save_picture_763985.jpg" />
 </div>
 
 
@@ -116,7 +249,7 @@ Cathode 2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763974.jpg" />
+  <img src="Z:/picture/008/save_picture_763974.jpg" />
 </div>
 
 
@@ -144,7 +277,7 @@ PhpStorm 2017.3.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763897.jpg" />
+  <img src="Z:/picture/008/save_picture_763897.jpg" />
 </div>
 
 
@@ -170,7 +303,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763864.jpg" />
+  <img src="Z:/picture/008/save_picture_763864.jpg" />
 </div>
 
 
@@ -196,7 +329,7 @@ Tyme2 v1.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763132.jpg" />
+  <img src="Z:/picture/008/save_picture_763132.jpg" />
 </div>
 
 
@@ -224,7 +357,7 @@ Movavi Screen Capture Studio 5 v5.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762988.jpg" />
+  <img src="Z:/picture/008/save_picture_762988.jpg" />
 </div>
 
 
@@ -250,7 +383,7 @@ Media Inspector 2.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762940.jpg" />
+  <img src="Z:/picture/008/save_picture_762940.jpg" />
 </div>
 
 
@@ -278,7 +411,7 @@ E-Book Viewer 5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762839.jpg" />
+  <img src="Z:/picture/008/save_picture_762839.jpg" />
 </div>
 
 
@@ -307,7 +440,7 @@ Aquarium 4K - Live Wallpaper 1.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761275.jpg" />
+  <img src="Z:/picture/008/save_picture_761275.jpg" />
 </div>
 
 
@@ -333,7 +466,7 @@ Share Bucket 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761112.jpg" />
+  <img src="Z:/picture/008/save_picture_761112.jpg" />
 </div>
 
 
@@ -362,7 +495,7 @@ El Capitan Cache Cleaner 10.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760806.jpg" />
+  <img src="Z:/picture/008/save_picture_760806.jpg" />
 </div>
 
 
@@ -389,7 +522,7 @@ The Archive Browser 1.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760804.jpg" />
+  <img src="Z:/picture/008/save_picture_760804.jpg" />
 </div>
 
 
@@ -415,7 +548,7 @@ Downie 2.3.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760797.jpg" />
+  <img src="Z:/picture/008/save_picture_760797.jpg" />
 </div>
 
 
@@ -443,7 +576,7 @@ NetWorker 5.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760543.jpg" />
+  <img src="Z:/picture/008/save_picture_760543.jpg" />
 </div>
 
 
@@ -469,7 +602,7 @@ Waterfox 56.2.7.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760533.jpg" />
+  <img src="Z:/picture/008/save_picture_760533.jpg" />
 </div>
 
 
@@ -495,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759876.jpg" />
+  <img src="Z:/picture/008/save_picture_759876.jpg" />
 </div>
 
 
@@ -521,7 +654,7 @@ JetBrains PyCharm Professional 2017.3.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759366.jpg" />
+  <img src="Z:/picture/008/save_picture_759366.jpg" />
 </div>
 
 
@@ -547,7 +680,7 @@ Sparkle 2.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759094.jpg" />
+  <img src="Z:/picture/008/save_picture_759094.jpg" />
 </div>
 
 
@@ -560,140 +693,6 @@ Sparkle создана специально для веб-дизайна и ст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB8443A2135D3CBE3C84AC6C4D4E4B25048A01E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017946   (758960) от 18.05.2016
-
-ProVideoPlayer 2.1.2 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758960.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProVideoPlayer - Видео плеер, предназначенный для проигрывания роликов на различных развлекательных и других мероприятиях.
-
-С его помощью вы сможете организовывать видео для показа, создавать несколько плейлистов для разных мероприятий, изменять цвет, скорость и параметры вопроизведения видео. В ProVideoPlayer вы можете настроить эффекты перехода от одного видео (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 мая 2016Разработчик: Renewed Vision LLCПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BDDD64CA126E9DF2ED1782B5207BE1B9C5626C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017860   (758915) от 18.05.2016
-
-Apple GarageBand 10.1.2 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью обновленная программа GarageBand с новым интерфейсом и замечательными новыми функциями — это самый простой способ создавать великолепно звучащие песни на Вашем компьютере Mac. Добавляйте в песни реалистичные, безупречно исполненные и записанные барабанные ритмы с использованием Drummer. С легкостью корректируйте звучание любого инструмента в фонотеке, используя (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 мая 2016Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298B4BD6D0F4792F1BE673C423A06218C72E0554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017750   (758834) от 18.05.2016
-
-Xee 3.5.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xee - быстрый и удобным просмотрщик и браузер изображений для Mac OS X. Он разработан, чтобы быть серьезным инструментом для просмотра изображений и управления, с удобным и мощным интерфейсом.
-
-Xee полезна как более мощная замена для предварительного просмотра или большинства других просмотрщиков изображений доступны на OS X. Программа очень быстрая, и использует (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 мая 2016Разработчик: Dag AgrenПоддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4470A0D82E6429941F725809B33C8CA3BE798F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017794   (758823) от 18.05.2016
-
-CorelCAD 2016.5 (6.2.1.3056) [Multi/Ru]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный пакет CorelCAD — это мощное и доступное решение для САПР, предлагающее высокоточный инструментарий для создания на компьютере двухмерных чертежей и трёхмерных моделей. CorelCAD поддерживает весь стандартный функционал решений для САПР и обеспечивает расширенную совместимость с форматом файлов .DWG. CorelCAD — отличное решение для реализации проектов любой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 мая 2016Разработчик: CorelПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB8ED740C437E4EA8ED6EC1794A312B928065F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522702   (757024) от 08.01.2022
-
-ShowKeyPro 1.0.3 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757024.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением ShowKeyPro вы получите отображение в реальном времени всех нажатых клавиш клавиатуры и положение курсора мыши.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2021 Столп ЧжоуПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Японский, Упрощенный китайский и Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5F1FCA629E638D1CB3886943AF544F652938F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

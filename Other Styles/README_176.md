@@ -1,3 +1,61 @@
+###  Публикация: 1818121   (2599) от 15.09.2025
+
+Надежда Бабкина, Русская Песня - Модно-народно (2025) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ты воспой [00:03:30]
+02 - Чеботуха [00:03:58]
+03 - Через садик [00:03:52]
+04 - Во саду ли [00:03:12](   Читать дальше...   )Жанр: FolkПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905A2686593E1DF2C632B3DFDE8225F3FE66BF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817763   (2595) от 15.09.2025
+
+Анна Пингина - Радость моя (2025) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Песня [00:03:17]
+02 - Высоко [00:04:41]
+03 - Мальчоночка [00:04:08]
+04 - Кукушка [00:03:41](   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818374   (2480) от 16.09.2025
 
 Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, Easy Listening>
@@ -6,7 +64,7 @@ Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, E
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2480.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2131.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1784.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Laura Cantrell - Just Like A Rose: The Anniversary Sessions (2023) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1267.jpg" />
 </div>
 
 

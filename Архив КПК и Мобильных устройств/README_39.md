@@ -1,3 +1,30 @@
+###  Публикация: 514706   (657628) от 24.06.2012
+
+[Программа] (Android 1.5+) Рецепты в картинках 1.00 - Кулинария
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_657628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит 8 тысяч рецептов в 130 категориях.
+Каждый рецепт представлен в виде пошаговых инструкций с фотографиями, при нажатии на которые картинка открывается во весь экран. Все картинки и рецепты хранятся на сервере, что сэкономит место на вашем телефоне или планшете. Скачанные рецепты сохраняются на карте памяти, и в следующий раз рецепт не нужно скачивать. Скачанные ранее рецепты Вы можете удалить в настройках. В настройках также имеется возможность изменить размер и цвет шрифта. Поддерживает работу (   Читать дальше...   )Разработчик: IceWyrmЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139954   (657608) от 04.06.2017
 
 HD Serials Android 1.14.43 [Ru]
@@ -6,7 +33,7 @@ HD Serials Android 1.14.43 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657608.jpg" />
+  <img src="Z:/picture/008/save_picture_657608.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Time Tangle - Adventure Time 1.0.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657564.jpg" />
+  <img src="Z:/picture/008/save_picture_657564.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657493.jpg" />
+  <img src="Z:/picture/008/save_picture_657493.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Red Baron: War of Planes 2.08.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657492.jpg" />
+  <img src="Z:/picture/008/save_picture_657492.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ God of Light HD 1.1 / 1.1.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657476.jpg" />
+  <img src="Z:/picture/008/save_picture_657476.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ MOBILedit! Enterprise 7.8.3.6076 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657328.jpg" />
+  <img src="Z:/picture/008/save_picture_657328.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ Thomas Was Alone 1.0.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656779.jpg" />
+  <img src="Z:/picture/008/save_picture_656779.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_656311.jpg" />
+  <img src="Z:/picture/005/save_picture_656311.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656283.jpg" />
+  <img src="Z:/picture/008/save_picture_656283.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655796.jpg" />
+  <img src="Z:/picture/008/save_picture_655796.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Phonto - Text on Image v1.7.8 Unlocked [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655726.jpg" />
+  <img src="Z:/picture/008/save_picture_655726.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Racing Air 1.2.10 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655459.jpg" />
+  <img src="Z:/picture/008/save_picture_655459.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ XON Episode 1 (Все три версии) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655383.jpg" />
+  <img src="Z:/picture/008/save_picture_655383.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655382.jpg" />
+  <img src="Z:/picture/008/save_picture_655382.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655265.jpg" />
+  <img src="Z:/picture/005/save_picture_655265.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655261.jpg" />
+  <img src="Z:/picture/005/save_picture_655261.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655245.jpg" />
+  <img src="Z:/picture/008/save_picture_655245.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ Chess War 1.0.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655179.jpg" />
+  <img src="Z:/picture/008/save_picture_655179.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655137.jpg" />
+  <img src="Z:/picture/008/save_picture_655137.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655126.jpg" />
+  <img src="Z:/picture/008/save_picture_655126.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ Ballance Resurrection / Баланс Возрождение 2.0.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655125.jpg" />
+  <img src="Z:/picture/008/save_picture_655125.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ Adguard для Android 1.1.888.light premium [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655100.jpg" />
+  <img src="Z:/picture/008/save_picture_655100.jpg" />
 </div>
 
 
@@ -592,7 +619,7 @@ Match 3 Quest / Три в ряд  2.1.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655099.jpg" />
+  <img src="Z:/picture/008/save_picture_655099.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ VK Coffee 7.17 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654484.jpg" />
+  <img src="Z:/picture/008/save_picture_654484.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654339.jpg" />
+  <img src="Z:/picture/005/save_picture_654339.jpg" />
 </div>
 
 
@@ -657,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904278   (654258) от 03.06.2015
-
-Death Moto 3 1.2.5 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Death Moto - довольно известная серия экшен ранеров в мистическом стиле, первые две части которой выпустила студия разработчик ICLOUDZONE GAMES , третья же часть разработана молодым коллективом WEDO1.COM GAME . В целом сюжет остался без изменений, вы в роли поднявшегося из могилы беспощадного гонщика сев за руль адского байка отправляетесь мстить за что-то там, об (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 1 июня 2015 г.Разработчик: WEDO1.COM GAMEПоддерживаемая ОС: Android 2.3+Жанр: RacingЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DFCA151D4E52D35DFC0AAD7A9CA9FE08344B44
 ```
 
 https://mybot314.ru/tekegram_catalog/

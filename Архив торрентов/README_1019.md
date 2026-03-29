@@ -6,7 +6,7 @@ SiSoftware Sandra Lite 2021.11.31.49 (R7a 31.49) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813857.jpg" />
+  <img src="Z:/picture/008/save_picture_813857.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Reg Organizer 8.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813856.jpg" />
+  <img src="Z:/picture/008/save_picture_813856.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MeldaProduction - MCompleteBundle 15.01 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813854.jpg" />
+  <img src="Z:/picture/008/save_picture_813854.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NoMachine 7.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813852.jpg" />
+  <img src="Z:/picture/008/save_picture_813852.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Desktop Calendar 2.3.97.5444 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813851.jpg" />
+  <img src="Z:/picture/008/save_picture_813851.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Duplicate File Detective 7.1.66 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813849.jpg" />
+  <img src="Z:/picture/008/save_picture_813849.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ StartAllBack 3.0.0 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813838.jpg" />
+  <img src="Z:/picture/008/save_picture_813838.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Typinator 6.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813824.jpg" />
+  <img src="Z:/picture/008/save_picture_813824.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Future Prophecies - Raw (the Outbreak recordings 2002-2005) (2016) [MP3|320 кб
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813822.jpg" />
+  <img src="Z:/picture/008/save_picture_813822.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Registry Life 3.26 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813801.jpg" />
+  <img src="Z:/picture/008/save_picture_813801.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813795.jpg" />
+  <img src="Z:/picture/008/save_picture_813795.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Nekopara | Кошачий рай [2017, OVA] WEB-DL 1080p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813777.jpg" />
+  <img src="Z:/picture/008/save_picture_813777.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Glary Utilities Pro 5.91.0.112 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813775.jpg" />
+  <img src="Z:/picture/008/save_picture_813775.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ LibreOffice [Portable] 3.3.2 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813764.jpg" />
+  <img src="Z:/picture/008/save_picture_813764.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ PeaZip 7.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813747.jpg" />
+  <img src="Z:/picture/008/save_picture_813747.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Opera GX 68.0.3618.112 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813746.jpg" />
+  <img src="Z:/picture/008/save_picture_813746.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MediaHuman Youtube Downloader 3.9.9.38 (build 1305) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813736.jpg" />
+  <img src="Z:/picture/008/save_picture_813736.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813732.jpg" />
+  <img src="Z:/picture/008/save_picture_813732.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - 99 Goa Hits (2016) [MP3|320 кб/с] <Psy, Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813704.jpg" />
+  <img src="Z:/picture/008/save_picture_813704.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Sketch 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813700.jpg" />
+  <img src="Z:/picture/008/save_picture_813700.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Carlos De La Garza & Imida - Scopaesthesia (2016) Single [MP3|320 кб/с] <Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813693.jpg" />
+  <img src="Z:/picture/008/save_picture_813693.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813691.jpg" />
+  <img src="Z:/picture/008/save_picture_813691.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813681.jpg" />
+  <img src="Z:/picture/008/save_picture_813681.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ CPU-Z 1.98 Portable by ALEX [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813678.jpg" />
+  <img src="Z:/picture/008/save_picture_813678.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813675.jpg" />
+  <img src="Z:/picture/008/save_picture_813675.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ WiFi Explorer Pro 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813668.jpg" />
+  <img src="Z:/picture/008/save_picture_813668.jpg" />
 </div>
 
 

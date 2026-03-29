@@ -1,3 +1,119 @@
+###  Публикация: 1724539   (109199) от 20.05.2024
+
+Malachi Thompson & Africa Brass - Buddy Bolden's Rag (1995) Delmark Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Bolden's Rag [5:59]
+02. World View [8:33]
+03. The Chaser in Brazil [5:44]
+04. We Bop [5:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C789486F88EE2C8289B4DD8B40B34678EA66B1E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724727   (109158) от 21.05.2024
+
+Howard Alden & George Van Eps - Seven And Seven (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night and Day [5:31]
+02. Ja-Da [5:17]
+03. Just Friends [6:01]
+04. My Romance [5:36](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E51DBF4F434A2354F783BA355A5BBBA906E4E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724732   (109156) от 21.05.2024
+
+Xavier Cugat - The Original Latin Dance King (1940 - 1957) 2002, Columbia [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babalu [2:50]
+02. Jamay [2:41]
+03. Anana Boroco Tinde [2:49]
+04. The Brand New Cha Cha [2:45](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A1A308A3B498063B4AD85FA8D623E867454F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724729   (109154) от 21.05.2024
+
+Joe Pass - Better Days (1970 - 1972) 2022, P-Vine Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Days [2:47]
+02. Free Sample [3:17]
+03. After School [3:10]
+04. Balloons [2:58](   Читать дальше...   )Жанр: Jazz-Pop, Mainstream Jazz, Guitar JazzПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED88EE8EFBF7363315C6C72FBD0031CBC15AA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724736   (109153) от 21.05.2024
 
 Xavier Cugat And His Orchestra - Latin Best (1988) Nippon Phonogram [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
@@ -6,7 +122,7 @@ Xavier Cugat And His Orchestra - Latin Best (1988) Nippon Phonogram [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109153.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Jazz L’Amour - Erotic Jazz 2024 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109094.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Superblue - Superblue (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109089.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Malachi Thompson - 47th Street (1997) Delmark Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109088.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ricky Ford - Hot Brass (1992) Candid [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109087.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Malachi Thompson - Freebop Now! (1998) Delmark Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109044.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Superblue - Superblue 2 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109043.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Howard Alden, Frank Vignola, Jimmy Bruno - Concord Jazz Guitar Collective (1995)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108983.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Kenny Burrell & The Jazz Heritage All-Stars - Live At The Blue Note (1996) Conco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108982.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Kenny Burrell - When Lights Are Low (1978) 1997, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108981.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Alice Coltrane - The Carnegie Hall Concert (1971) 2CD, 2024, Impulse! [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108893.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Smooth Jazz Italian Songs Vol. 3 (2024) Canzoni Italiane In Versione Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108859.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Christian De Mesones - You Only Live Twice (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108820.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Tommy Turrentine - Tommy Turrentine (1960) 1993, Bainbridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108818.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Lew Tabackin Quartet - I'll Be Seeing You (1992) Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108817.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Roy Eldridge - Little Jazz & The Jimmy Ryan All-Stars (1975) 2001, Original Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108799.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Randy Scott - Oasis (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108795.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Paula Atherton - Dancin' Shoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108794.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Dave Stryker Quartet - Blue Degrees (1993) SteepleChase [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108778.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Horace Parlan - Blue Parlan (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108776.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Lorne Lofsky - Lorne Lofsky (1992) Jazz Inspiration [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108773.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Gerry Wiggins - Live at Maybeck Recital Hall, Vol. 8 (1990) 1991, Concord Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108737.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Gerry Wiggins - Live at Maybeck Recital Hall, Vol. 8 (1990) 1991, Concord Jazz [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23655EDEFA61C793EBDF53BD9BE769ACAA65AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726353   (108736) от 28.05.2024
-
-Horace Parlan - Musically Yours (1979) 1994, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Together [6:16]
-02. Memories of You [6:18]
-03. Musically Yours [5:38]
-04. Ill Wind [7:04](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0F34464293E84474516F6FAFB48FEB168B8180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726350   (108734) от 28.05.2024
-
-Phil Woods - Into The Woods: The Best of Phil Woods (1987 - 1995) 1996, Concord Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Bird's Children [7:12]
-02. Hal Mallet [5:12]
-03. Bop Stew [7:31]
-04. Misirlou [7:04](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A3C4A65FBE4580ACD9946D27800185F3E94D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726408   (108718) от 29.05.2024
-
-VA - Smooth Jazz House Music (Bar & Coffee Lounge) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Von Mondo - Whiskey and Chocolate (2:35)
-02. Nenei - Feeling Good (Ronan Remix) (2:34)
-03. Index - Noon Hour Blues (Short Mix) (2:59)
-04. The Moleskins - Is It A Crime (Extended Mix) (5:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A7996B7E243F681DC730662864A6952FEC1E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726398   (108696) от 29.05.2024
-
-VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Belleto - Hope (3:49)
-02. Stuart Fischer - Time After Time (4:02)
-03. Doyle McCarthy - Falling Leaves (4:01)
-04. Zoltan Swanson - Sweet Sadness (3:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42726AB5494EA6A759B47F8EC01A2A93817B083E
 ```
 
 https://mybot314.ru/tekegram_catalog/

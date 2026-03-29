@@ -1,3 +1,90 @@
+###  Публикация: 523586   (616471) от 16.07.2012
+
+Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_616471.jpg" />
+</div>
+
+
+###  Подробнее
+
+A rare snowy day in Nashville, Tennessee set the stage for an even rarer event – an intimate concert by rock icon Robert Plant at the War Memorial Auditorium. Performing with his new, Grammy-nominated group aptly titled the Band of Joy – Plant played both Led Zeppelin classics and new songs that continue to have an impact on the music scene today.....01. Black Dog
+02. Angel Dance
+03. Houses Of The Holy
+04. House Of Cards
+05. Cindy, I'll Marry You Someday
+06. Satan Your Kingdom Must Come Down
+07. Somewhere Trouble Don't Go
+08. Tangerine
+09. A Satisfied Mind
+10. Move Up(   Читать дальше...   )Жанр: RockФормат: BDMVПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295802   (615135) от 15.04.2019
+
+Квартирник НТВ у Маргулиса. Леприконсы (13.04.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615135.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередном выпуске в гости к Евгению Маргулису пришла известная белорусская поп-панк-группа «Леприконсы». В российские хит-парады группа ворвалась в конце 90-х с песней «Хали-гали, паратрупер», а уже потом вышли «Девчонки полюбили не меня», «Тополя» и другие. В уютной обстановке участники группы поделились воспоминаниями из творческой жизни.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B604760C8D8D5B3345ED4B710EAE87B5FF2869E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230586   (614048) от 13.06.2018
+
+Большой праздничный концерт к Дню России. Трансляция с Красной площади (2018) HDTV [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздничный концерт, посвящённый Дню России, прошедший 12 июня на Красной Площади. В преддверии Чемпионата Мира по футболу, вы увидите короткие видеосюжеты из городов, в коротых пройдут матчи. А также в рубрике "Мы Россия" будет рассказано о жителях нашей необъятной страны.Жанр: ТВ-шоуСубтитры: Russian Teletext SubtitleПродолжительность: 01:16:15 + 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE3270E5419E2CC059F8FD7D17CC1CF9B676881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524572   (611151) от 19.07.2012
 
 Garbage - Live at Festival Beauregard (2012) HDTVRip 720p
@@ -6,7 +93,7 @@ Garbage - Live at Festival Beauregard (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611151.jpg" />
+  <img src="Z:/picture/008/save_picture_611151.jpg" />
 </div>
 
 
@@ -41,7 +128,7 @@ Aerosmith / Rock for the Rising Sun (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611009.jpg" />
+  <img src="Z:/picture/005/save_picture_611009.jpg" />
 </div>
 
 
@@ -70,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607777.jpg" />
+  <img src="Z:/picture/008/save_picture_607777.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ AC/DC: Let There Be Rock (1980/2011) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_607217.jpg" />
+  <img src="Z:/picture/005/save_picture_607217.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Queen - Rock Montreal & Live Aid (1981) Blu-ray [H.264/1080p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605996.jpg" />
+  <img src="Z:/picture/008/save_picture_605996.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605943.jpg" />
+  <img src="Z:/picture/008/save_picture_605943.jpg" />
 </div>
 
 
@@ -183,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604054.jpg" />
+  <img src="Z:/picture/008/save_picture_604054.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Norah Jones - The BBC One Sessions (2007) HDTV [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_599057.jpg" />
+  <img src="Z:/picture/005/save_picture_599057.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598756.jpg" />
+  <img src="Z:/picture/008/save_picture_598756.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Guns N' Roses - Appetite for Democracy Live at Hard Rock Las Vegas (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598665.jpg" />
+  <img src="Z:/picture/008/save_picture_598665.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598063.jpg" />
+  <img src="Z:/picture/008/save_picture_598063.jpg" />
 </div>
 
 
@@ -329,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597896.jpg" />
+  <img src="Z:/picture/008/save_picture_597896.jpg" />
 </div>
 
 
@@ -358,7 +445,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596850.jpg" />
+  <img src="Z:/picture/008/save_picture_596850.jpg" />
 </div>
 
 
@@ -387,7 +474,7 @@ Nier Music Concert: Ningyou Tachi no Kioku / NieR Music Concert: The Memory of P
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596148.jpg" />
+  <img src="Z:/picture/008/save_picture_596148.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592205.jpg" />
+  <img src="Z:/picture/008/save_picture_592205.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590543.jpg" />
+  <img src="Z:/picture/008/save_picture_590543.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-L
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589580.jpg" />
+  <img src="Z:/picture/008/save_picture_589580.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589019.jpg" />
+  <img src="Z:/picture/008/save_picture_589019.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Megadeth - Countdown To Extinction - Live  (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588621.jpg" />
+  <img src="Z:/picture/008/save_picture_588621.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Status Quo - Pictures - Live At Montreux (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588607.jpg" />
+  <img src="Z:/picture/008/save_picture_588607.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ The Prodigy - World's on Fire (2011) [1080i] BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587790.jpg" />
+  <img src="Z:/picture/008/save_picture_587790.jpg" />
 </div>
 
 
@@ -622,7 +709,7 @@ Linkin Park - Rock in Rio (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_586673.jpg" />
+  <img src="Z:/picture/005/save_picture_586673.jpg" />
 </div>
 
 
@@ -648,7 +735,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586050.jpg" />
+  <img src="Z:/picture/008/save_picture_586050.jpg" />
 </div>
 
 
@@ -659,90 +746,6 @@ The iconic duo's acclaimed production, first presented at the Royal Opera House 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21BCEB820F947EC0F658BF8B6BDE79D310B957C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300917   (585992) от 10.05.2019
-
-Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) BDRemux [H.264/1080p] [EN]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585992.jpg" />
-</div>
-
-
-###  Подробнее
-
-The iconic duo's acclaimed production, first presented at the Royal Opera House in 2016 over four sold-out shows, was reprised at the venue for a further four nights in July 2018 as part of their 'Super' tour. Staged by long-term PSB designer Es Devlin and choreographer/director Lynne Page, the show was filmed by director David Barnard. Filmed on 27 and 28 July 2018, (   Читать дальше...   )Производство: Великобритания, Pet Shop Boys Partnership LimitedЖанр: Synth-pop, Dance-pop, New waveРежиссер: David BarnardПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF83C61444553C30D48F430539D4999A5C657B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919318   (583628) от 18.07.2015
-
-Nightwish - Showtime, Storytime (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление знаменитой финской Symphonic Power Metal команды "Nightwish" на "Wacken Open Air 2013" с новой нидерландской вокалисткой Floor Jansen (ex - After Forever, действующая вокалистка ReVamp и Nightwish).01. Dark Chest Of Wonders
-02. Wish I Had An Angel
-03. She Is My Sin
-04. Ghost River(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Folk MetalПродолжительность: 01:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744DB7EF307F0D09AF0B251E6F78F7DCAB5C7365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 179360   (583352) от 05.08.2014
-
-Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акустическое выступление Avril Lavigne в Roxy Theatre, Los Angeles, 16 Oct. 200701. Sk8er Boi
-02. Girlfriend
-03. My Happy Ending
-04. Innocence(   Читать дальше...   )Продолжительность: 00:50:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1277446   (785478) от 20.01.2019
+
+Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy Free [12:07]
+02. I Love the Girl [8:48]
+03. The Uptowner [9:17]
+04. Weasil [9:00]Жанр: Soul Jazz, Hard BopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B1D1B567C416D2FA012B00F706AFD669B3D16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277418   (785474) от 20.01.2019
+
+Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Loves Me
+02. I've Grown Accustomed To Her Face
+03. Unforgettable
+04. This Can't Be Love(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92844172832B086571BC5B8CE0C2B7059D519879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204001   (785471) от 04.02.2018
+
+Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|image + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Domino [04:22]
+02. Old Folks [06:44]
+03. My Little Red Nose [05:51]
+04. Sweet Love Of Mine [05:44](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7EC6B1310C8F76BF2361E651E3CE98F619F92B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203990   (785465) от 04.02.2018
+
+Charles Tolliver - Mosaic Select 20 (1970) 3CD, 2005, Mosaic Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785465.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Drought [09:23]
+02. Felicite [08:26]
+03. Orientale [17:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 03:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C61BA379B1D96B9851C3EFA55F4A330F7A9F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277455   (785413) от 20.01.2019
 
 Frank Sinatra, Dean Martin, Sammy Davis Jr. - Eee-O 11: The Best Of The Rat Pack (2001) [FLAC|Lossless|image + .cue] <Jazz, Pop, Swing>
@@ -6,7 +122,7 @@ Frank Sinatra, Dean Martin, Sammy Davis Jr. - Eee-O 11: The Best Of The Rat Pack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785413.jpg" />
+  <img src="Z:/picture/008/save_picture_785413.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Josh Berman & His Gang - There Now (2012) Delmark Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785170.jpg" />
+  <img src="Z:/picture/008/save_picture_785170.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Nat Adderley Quintet - Mercy, Mercy, Mercy (1997) Evidence [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785169.jpg" />
+  <img src="Z:/picture/008/save_picture_785169.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Alan Pasqua - My New Old Friend (2005) Cryptogramophone [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785168.jpg" />
+  <img src="Z:/picture/008/save_picture_785168.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Cannonball Adderley - Swingin' in Seattle: Live at The Penthouse 1966 - 1967 (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785159.jpg" />
+  <img src="Z:/picture/008/save_picture_785159.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Eddie Gomez - Power Play (1988) Sony [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785071.jpg" />
+  <img src="Z:/picture/008/save_picture_785071.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ornette Coleman Trio - Live Manchester Free Trade Hall 1966 (2018) 2CD, Hi Hat [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785070.jpg" />
+  <img src="Z:/picture/008/save_picture_785070.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Ari Brown - Groove Awakening (2013) Delmark [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785061.jpg" />
+  <img src="Z:/picture/008/save_picture_785061.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Modern Jazz Quartet - Concert In Japan, Vol.1 (1966) 2014, Warner [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784987.jpg" />
+  <img src="Z:/picture/008/save_picture_784987.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Kim Richmond Ensemble - Live At Cafe Metropol (2007) Origin Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784785.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Gene Krupa - Five Classic Albums Plus 1952 - 1957 (2012) 2CD, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784782.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ George Wallington - Four Classic Albums 1955 - 1957 (2016) 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784594.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Martin Taylor - Sarabanda (1989) Gaia Records [FLAC|Lossless|tracks + .cue] <Cro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784589.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Gene Krupa And His Orchestra - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784405.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784399.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Dexter Gordon - Gotham City (1981) Columbia [FLAC|Lossless|image + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784343.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Jack Parnell - Two Classic Albums Plus 1946 - 1954 (2010) 2CD, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784285.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Richard Smith - First Kiss (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784280.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Norah Jones - Pick Me Up Off The Floor (2020) [FLAC|Lossless|WEB-DL|tracks] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784212.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Joe Morello - Joe Morello (1961, 1962) 1989, Bluebird [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784109.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ The George Shearing Trio with Ray Brown and Marvin "Smitty" Smith - Breakin' Out
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784098.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Benny Golson - Four Classic Albums 1957 - 1958 (2018) 2CD, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783948.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F91E39135AC69275DC5E7C75170DC3F5C9B126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389788   (783915) от 12.06.2020
-
-Boney James - Solid (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Effect
-02. Solid
-03. The Bottom Line
-04. Luna(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330F46F450D6D5DB14C4354659504B77CF41D25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205356   (783807) от 09.02.2018
-
-Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament [06:55]
-02. Four [04:37]
-03. Line for Lyons [06:33]
-04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205492   (783554) от 10.02.2018
-
-Georgie Auld - 1946 - 1951 (2004) Classics [FLAC|Lossless|image + .cue] <Swing, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canyon Passage [02:56]
-02. You're Blase [03:01]
-03. Handicap [02:56]
-04. Mo Mo [02:42](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13785BADFFCE8E90F34F173452F1EBBF607E7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205489   (783553) от 10.02.2018
-
-Eddie Jefferson - Letters From Home (1962) 1987, Original Jazz Classics [APE|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letter from Home [03:02]
-02. Take the 'A' Train [03:13]
-03. Billie's Bounce (take 4) [02:48]
-04. Billie's Bounce (take 3) [02:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B94CD9452E14FAD71A05A3CC2D9DFB5DB16AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

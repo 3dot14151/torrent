@@ -1,3 +1,83 @@
+###  Публикация: 957217   (325681) от 19.11.2015
+
+Евгений Францев | 100 возражений. Окружение (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_325681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приятно иметь дело с книгами, написанными по существу. Эта книга не только покажет Вам возражения, с которыми можно столкнуться при общении с окружающими людьми, но и варианты их обработки. На 99% книга состоит из примеров, прочитав и пережив которые, Вы сможете легко договариваться о самых разных вещах даже с незнакомыми людьми.
+
+В этой книге собраны 100 самых популярных (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86975ADA23DE1E4F88FE8F50F5A2C0044CFF4999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957935   (325624) от 19.11.2015
+
+Эдуард Исхаков | Как поставить цель и мотивировать себя для ее достижения (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_325624.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части книги представлена пошаговая техника постановки конкретных личных и профессиональных целей для достижения в них реальных результатов. Вторая часть посвящена описанию различных приемов самомотивации, применение которых поможет найти силы и энергию для воплощения задуманного в реальные дела и достижения поставленной цели (целей). Книга будет интересна (   Читать дальше...   )Жанр: Практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A63B935BC50377FADE42B4FA0495082A89E2FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957831   (325492) от 19.11.2015
+
+Константин Шереметьев | Феноменальный интеллект. Искусство думать эффективно (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_325492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете, как работает интеллект, что такое сила интеллекта, можно ли стать умнее, каков универсальный алгоритм решения жизненных проблем, какие ловушки подстерегают на пути их решения, когда нужно включить интеллект, а когда выключить, и о чем следует думать в первую очередь, как построить сценарий успеха? С помощью этой книги вы сможете наслаждаться результатами (   Читать дальше...   )Жанр: Общая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF88DD5269A745FEB6CC6E11EF349C0974ECFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258990   (323268) от 02.11.2018
 
 Моника Биттль, Зильке Ноймайер | Книга-ботокс. Истории, которые омолаживают лучше косметических процедур (2018) [FB2]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323268.jpg" />
+  <img src="Z:/picture/008/save_picture_323268.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323032.jpg" />
+  <img src="Z:/picture/008/save_picture_323032.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322728.jpg" />
+  <img src="Z:/picture/008/save_picture_322728.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322615.jpg" />
+  <img src="Z:/picture/008/save_picture_322615.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318056.jpg" />
+  <img src="Z:/picture/008/save_picture_318056.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317681.jpg" />
+  <img src="Z:/picture/008/save_picture_317681.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317292.jpg" />
+  <img src="Z:/picture/008/save_picture_317292.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316016.jpg" />
+  <img src="Z:/picture/008/save_picture_316016.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314053.jpg" />
+  <img src="Z:/picture/008/save_picture_314053.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313343.jpg" />
+  <img src="Z:/picture/008/save_picture_313343.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313226.jpg" />
+  <img src="Z:/picture/008/save_picture_313226.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313216.jpg" />
+  <img src="Z:/picture/008/save_picture_313216.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313111.jpg" />
+  <img src="Z:/picture/008/save_picture_313111.jpg" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312123.jpg" />
+  <img src="Z:/picture/008/save_picture_312123.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311465.jpg" />
+  <img src="Z:/picture/008/save_picture_311465.jpg" />
 </div>
 
 
@@ -408,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311388.jpg" />
+  <img src="Z:/picture/008/save_picture_311388.jpg" />
 </div>
 
 
@@ -434,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310494.jpg" />
+  <img src="Z:/picture/008/save_picture_310494.jpg" />
 </div>
 
 
@@ -460,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310426.jpg" />
+  <img src="Z:/picture/008/save_picture_310426.jpg" />
 </div>
 
 
@@ -486,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309834.jpg" />
+  <img src="Z:/picture/008/save_picture_309834.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309618.jpg" />
+  <img src="Z:/picture/008/save_picture_309618.jpg" />
 </div>
 
 
@@ -538,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309357.jpg" />
+  <img src="Z:/picture/008/save_picture_309357.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309164.jpg" />
+  <img src="Z:/picture/008/save_picture_309164.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308973.jpg" />
+  <img src="Z:/picture/008/save_picture_308973.jpg" />
 </div>
 
 
@@ -604,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A3B583390B6499F3D62088871C90780FDB8C0BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260583   (308823) от 08.11.2018
-
-Тони Бьюзен | Интеллект-карты. Полное руководство по мощному инструменту мышления (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие современники называют технику создания интеллект-карт (mind-карт) по-настоящему революционным инструментом мышления. При должном усердии оно позволяет в корне изменить собственную жизнь. Интеллект-карты помогают эффективно генерировать новые идеи, обрабатывать большие объемы информации, улучшать память и рационально использовать собственное время.
-Тони Бьюзен (   Читать дальше...   )Жанр: Психология, Личностный ростПеревод: Юлия КонстантиноваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD2C047A5804041335D977CDD5648CFD2DFD748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422703   (308134) от 09.11.2020
-
-Райан Холидей | Эго – это враг (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бытует мнение, что препятствия на пути к полноценной успешной жизни возникают вовне – во внешнем мире. Но в действительности самый опасный враг находится внутри – это наше эго. На любом этапе нашей жизни именно эго становится помехой.
-
-Райан Холидей на примерах известных людей рассказывает, как, обуздав свое эго, можно достичь самого высокого уровня власти и успеха. (   Читать дальше...   )Жанр: Личная эффективность, Мотивация, Саморазвитие, Личностный ростФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AA0A230BBFFD1F4EB5576B30081409F5F211B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333041   (306745) от 23.10.2019
-
-Джарон Ланье | 10 аргументов удалить все свои аккаунты в социальных сетях (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто у вас возникает желание удалить аккаунты в социальных сетях? У Джарона Ланье, программиста, футуролога и революционера IT-индустрии, найдется целых 10 убедительных причин в пользу вашей правоты. Вы думаете, что создаете уникальный цифровой образ себя, подпитывая его лайками и социальным одобрением. На деле вы оказываетесь обезличенной жертвой бездушных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3B50D0A3C98D081B3F3853F1C3CB4E3B2F87E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

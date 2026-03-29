@@ -6,7 +6,7 @@ Microsoft Windows 10 TP Language Pack build 10051 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802879.jpg" />
+  <img src="Z:/picture/008/save_picture_802879.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ The Replacements - Sorry Ma, Forgot To Take Out The Trash (2021) 4xCD, Deluxe Ed
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802845.jpg" />
+  <img src="Z:/picture/008/save_picture_802845.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Endurance Antivirus 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802835.jpg" />
+  <img src="Z:/picture/008/save_picture_802835.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802828.jpg" />
+  <img src="Z:/picture/008/save_picture_802828.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Wondershare UniConverter 13.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802827.jpg" />
+  <img src="Z:/picture/008/save_picture_802827.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ FileZilla 3.56.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802819.jpg" />
+  <img src="Z:/picture/008/save_picture_802819.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ WPI by Roman Lukyanets v.2.0 (extended version) 2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802817.jpg" />
+  <img src="Z:/picture/008/save_picture_802817.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ VA - Goa 2018 Vol.1 (Compiled by DJ Bim) (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802811.jpg" />
+  <img src="Z:/picture/008/save_picture_802811.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ PowerPhotos 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802761.jpg" />
+  <img src="Z:/picture/008/save_picture_802761.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ MovieSherlock 6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802760.jpg" />
+  <img src="Z:/picture/008/save_picture_802760.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ WebVideoHunter Pro 6.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802758.jpg" />
+  <img src="Z:/picture/008/save_picture_802758.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Numi 3.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802755.jpg" />
+  <img src="Z:/picture/008/save_picture_802755.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ AweCleaner Professional CR2 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802753.jpg" />
+  <img src="Z:/picture/008/save_picture_802753.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ SRWare Iron 94.0.4800.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802746.jpg" />
+  <img src="Z:/picture/008/save_picture_802746.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Unity Pro 2018.4.22f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802742.jpg" />
+  <img src="Z:/picture/008/save_picture_802742.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Adguard 2.4.71 (791) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802738.jpg" />
+  <img src="Z:/picture/008/save_picture_802738.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Freac 1.1.5 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802737.jpg" />
+  <img src="Z:/picture/008/save_picture_802737.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Macgo Mac Blu-ray Player Pro 3.3.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802731.jpg" />
+  <img src="Z:/picture/008/save_picture_802731.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Grids for Instagram 7.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802728.jpg" />
+  <img src="Z:/picture/008/save_picture_802728.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ WonderFox HD Video Converter Factory Pro 24.2 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802725.jpg" />
+  <img src="Z:/picture/008/save_picture_802725.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802721.jpg" />
+  <img src="Z:/picture/008/save_picture_802721.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802712.jpg" />
+  <img src="Z:/picture/008/save_picture_802712.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Ja Rule - Pain Is Love (2001) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802709.jpg" />
+  <img src="Z:/picture/008/save_picture_802709.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802706.jpg" />
+  <img src="Z:/picture/008/save_picture_802706.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802684.jpg" />
+  <img src="Z:/picture/008/save_picture_802684.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802683.jpg" />
+  <img src="Z:/picture/008/save_picture_802683.jpg" />
 </div>
 
 

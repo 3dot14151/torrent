@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743400.jpg" />
+  <img src="Z:/picture/008/save_picture_743400.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743368.jpg" />
+  <img src="Z:/picture/008/save_picture_743368.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743225.jpg" />
+  <img src="Z:/picture/008/save_picture_743225.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743223.jpg" />
+  <img src="Z:/picture/008/save_picture_743223.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743063.jpg" />
+  <img src="Z:/picture/008/save_picture_743063.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742843.jpg" />
+  <img src="Z:/picture/008/save_picture_742843.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742838.jpg" />
+  <img src="Z:/picture/008/save_picture_742838.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742555.jpg" />
+  <img src="Z:/picture/008/save_picture_742555.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742228.jpg" />
+  <img src="Z:/picture/008/save_picture_742228.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Serebro - Сила трёх (2016) [AAC|WEB-DL|256 кб/с]<Pop, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741808.jpg" />
+  <img src="Z:/picture/008/save_picture_741808.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741719.jpg" />
+  <img src="Z:/picture/008/save_picture_741719.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741646.jpg" />
+  <img src="Z:/picture/008/save_picture_741646.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741637.jpg" />
+  <img src="Z:/picture/008/save_picture_741637.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741607.jpg" />
+  <img src="Z:/picture/008/save_picture_741607.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741518.jpg" />
+  <img src="Z:/picture/008/save_picture_741518.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Starперцы / Last Vegas (2013) BDRip [576p] iPad
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741138.jpg" />
+  <img src="Z:/picture/008/save_picture_741138.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741018.jpg" />
+  <img src="Z:/picture/008/save_picture_741018.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740758.jpg" />
+  <img src="Z:/picture/008/save_picture_740758.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740700.jpg" />
+  <img src="Z:/picture/008/save_picture_740700.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740584.jpg" />
+  <img src="Z:/picture/008/save_picture_740584.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740572.jpg" />
+  <img src="Z:/picture/008/save_picture_740572.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740194.jpg" />
+  <img src="Z:/picture/008/save_picture_740194.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740140.jpg" />
+  <img src="Z:/picture/008/save_picture_740140.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740135.jpg" />
+  <img src="Z:/picture/008/save_picture_740135.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740084.jpg" />
+  <img src="Z:/picture/008/save_picture_740084.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739570.jpg" />
+  <img src="Z:/picture/008/save_picture_739570.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Alex Martelli и др. | Python в двух словах:/ Python in a Nutshell,
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_190139.jpg" />
+  <img src="Z:/picture/005/save_picture_190139.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hem Dutt | Full Stack iOS Development with Swift and Vapor (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190037.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ted Hagos | Beginning Kotlin (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189923.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189911.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189243.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189068.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Derek Fisher | Справочник по программе безопаснос
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188689.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188655.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188639.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188601.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188582.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188361.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Peter Royal | Building Modern Business Applications (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188231.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Patrick Hall, James Curtis | Machine Learning for High-Risk Applications (2023) 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188225.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Joshua M Willman | Beginning PyQt, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188221.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Sufyan bin Uzayr | Mastering SQL: A Beginner’s Guide (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188213.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ John M. Stewart, Michael Mommert | Python for Scientists, 3rd Edition (2023) [PD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188209.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Shing Lyu, Andrew Rzeznik | Practical Rust Projects, 2nd Edition (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188195.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sufyan bin Uzayr | Conquering JavaScript: Node.js (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188169.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187844.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ I. Cosmina, R. Harrop, Ch. Schaefer, C. Ho | Pro Spring 6: An In-Depth Guide to 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187268.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186960.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186917.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Musa Arda | Hands-On Python / Практический Python (2022) [EPUB] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186693.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186673.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186314.jpg" />
 </div>
 
 

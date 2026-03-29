@@ -1,3 +1,87 @@
+###  Публикация: 933108   (846379) от 25.04.2020
+
+Heaven and Hell - Radio City Music Hall Live! (2007/2011) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846379.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Heaven And Hell Live From Radio City" - концертный релиз, основой для которого стало выступление команды в нью-йоркском Radio City Music Hall в марте 2007 года. В ходе концерта группа представила сет из 15 композиций из репертуара Black Sabbath - в том числе 15-минутную "Heaven And Hell", давшую название альбому группы 1980-го года, и две новые (   Читать дальше...   )1. E5150/After All
+2. The Mob Rules
+3. Children Of The Sea
+4. Lady Evil(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9189851CB858D553B1A69C9EBAAA9D38AAEF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002475   (846330) от 01.04.2016
+
+Ленинград - Stadium Live, Москва (2016.03.25) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группировка "Ленинград" вновь ворвалась на вершину музыкального Олимпа - на этот раз на "лабутенах" и в соответственных штанах. На волне ошеломительного "вирусного" успеха клипа "Экспонат" (более 20 миллионов просмотров за 2 недели) весенние концерты "Ленинграда" в Москве и Петербурге обещают быть супераншлаговыми. (   Читать дальше...   )01. *бубаб
+02. WWW
+03. Экспонат
+04. Пару баб(   Читать дальше...   )Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC1C41216497EA08CFE4A964EA630CFB4BEF609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499781   (846053) от 03.10.2021
+
+Квартирник НТВ у Маргулиса. PLC (02.10.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846053.jpg" />
+</div>
+
+
+###  Подробнее
+
+PLC занимается хип-хопом уже много лет: он начинал в рэп-группе «Альманах» в качестве битмейкера и MC, но довольно быстро ушел в соло. А благодаря своей любви к баттлам он стал основателем проекта Slovo — первого оффлайн-баттла в России. Его музыка мало похожа на отечественный рэп, зато оригинальные треки находят отклик даже у самых недружественных хип-хопу слушателей. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6EE3416415B832B11A656318EFE6D7B8CB88B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001754   (845011) от 02.04.2016
 
 Борис Гребенщиков и группа Аквариум - Концерт в ОДО Самара 23 марта (2016) HDCam [H.264/1080p ]
@@ -6,7 +90,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845011.jpg" />
+  <img src="Z:/picture/008/save_picture_845011.jpg" />
 </div>
 
 
@@ -37,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844825.jpg" />
+  <img src="Z:/picture/008/save_picture_844825.jpg" />
 </div>
 
 
@@ -66,7 +150,7 @@ Annihilator - Triple Threat (2017) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844591.jpg" />
+  <img src="Z:/picture/008/save_picture_844591.jpg" />
 </div>
 
 
@@ -95,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844380.jpg" />
+  <img src="Z:/picture/008/save_picture_844380.jpg" />
 </div>
 
 
@@ -124,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844122.jpg" />
+  <img src="Z:/picture/008/save_picture_844122.jpg" />
 </div>
 
 
@@ -154,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843315.jpg" />
+  <img src="Z:/picture/008/save_picture_843315.jpg" />
 </div>
 
 
@@ -183,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842940.jpg" />
+  <img src="Z:/picture/008/save_picture_842940.jpg" />
 </div>
 
 
@@ -213,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842904.jpg" />
+  <img src="Z:/picture/008/save_picture_842904.jpg" />
 </div>
 
 
@@ -242,7 +326,7 @@ Annihilator - Triple Threat (2017)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842829.jpg" />
+  <img src="Z:/picture/008/save_picture_842829.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_842684.jpg" />
+  <img src="Z:/picture/005/save_picture_842684.jpg" />
 </div>
 
 
@@ -302,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842672.jpg" />
+  <img src="Z:/picture/008/save_picture_842672.jpg" />
 </div>
 
 
@@ -329,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842263.jpg" />
+  <img src="Z:/picture/008/save_picture_842263.jpg" />
 </div>
 
 
@@ -359,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841604.jpg" />
+  <img src="Z:/picture/008/save_picture_841604.jpg" />
 </div>
 
 
@@ -388,7 +472,7 @@ Silvesterkonzert / New Year's Eve Concert (2015) [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841597.jpg" />
+  <img src="Z:/picture/008/save_picture_841597.jpg" />
 </div>
 
 
@@ -418,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841497.jpg" />
+  <img src="Z:/picture/008/save_picture_841497.jpg" />
 </div>
 
 
@@ -447,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841356.jpg" />
+  <img src="Z:/picture/008/save_picture_841356.jpg" />
 </div>
 
 
@@ -476,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840695.jpg" />
+  <img src="Z:/picture/008/save_picture_840695.jpg" />
 </div>
 
 
@@ -502,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840687.jpg" />
+  <img src="Z:/picture/008/save_picture_840687.jpg" />
 </div>
 
 
@@ -528,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840684.jpg" />
+  <img src="Z:/picture/008/save_picture_840684.jpg" />
 </div>
 
 
@@ -554,7 +638,7 @@ Disco Дача. Весенний концерт (2013.05.01) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839499.jpg" />
+  <img src="Z:/picture/008/save_picture_839499.jpg" />
 </div>
 
 
@@ -583,7 +667,7 @@ Madonna: Rebel Heart Tour Showtime (09.12.2016) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837827.jpg" />
+  <img src="Z:/picture/008/save_picture_837827.jpg" />
 </div>
 
 
@@ -609,7 +693,7 @@ Leonard Cohen: Songs from the Road (2010) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837383.jpg" />
+  <img src="Z:/picture/008/save_picture_837383.jpg" />
 </div>
 
 
@@ -635,7 +719,7 @@ Whitesnake - Made In Japan (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835653.jpg" />
+  <img src="Z:/picture/008/save_picture_835653.jpg" />
 </div>
 
 
@@ -649,84 +733,6 @@ Whitesnake - Made In Japan (2013) BDRip [720p]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194652   (835158) от 22.04.2010
-
-Within Temptation: Black Symphony (2008) [1080i] Blu-Ray
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blu-Ray версия грандиозного концерта, прошедшего 7 февраля 2008 года в городе Роттердам. Помимо самой группы в этом действе участвовал орекстр Metropole из 60 человек и классического хора из 35 человек. Концерт проходил на фоне экрана площадью 400 квадратных метров и сопровождался оглушительной пиротехникой, световыми эффектами и сменами костюмов. Съемки концерта (   Читать дальше...   )Жанр: Gothic MetalФормат: BDMVПродолжительность: 02:06:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501535   (835036) от 10.10.2021
-
-Квартирник НТВ у Маргулиса. Александр Пушной с новой группой (09.10.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карьера российского музыканта-мультиинструменталиста и певца Александра Пушного началась с создания группы «Медведь» в далеком 1993 году. С тех пор он прочно обосновался на музыкальной сцене, его карьера с каждым годом набирает обороты, он записывает каверы на различные песни и выпускает альбомы, а количество поклонников его творчества только увеличивается. В гостях (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8834519F1DA7B4ADA02BA749C24161AA7426F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380502   (833052) от 03.05.2020
-
-Квартирник НТВ у Маргулиса. Ольга Кормухина и Алексей Белов (02.05.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833052.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске в гости к Евгению Маргулису пришли Ольга Кормухина и Алексей Белов. Одна из самых талантливых рок-исполнительниц России и лидер и автор всех композиций легендарной группы «Парк Горького» в прошлом году отметили 20-ю годовщину семейно-творческого союза. В атмосферной студии Ольга и Алексей поделились интересными воспоминаниями, а также исполнили как (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8A0E52040ECA9EA0909AC121CE31363EDC8614
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,91 @@
+###  Публикация: 1515198   (170215) от 06.12.2021
+
+Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянские симфо-пауэр-металлисты RHAPSODY OF FIRE выпустили новый полноформатный альбом "Glory For Salvation" 26 ноября 2021 года на лейбле AFM. Эта надрывная и скоростная работа призвана стать новым шедевром симфонического металла от группы, ведомой клавишником Alex Staropoli.
+4 июня 2021 года у RHAPSODY OF FIRE вышел EP “I’ll Be Yor Hero”, служащий (   Читать дальше...   )01. Son Of Vengeance (5:46)
+02. The Kingdom Of Ice (4:26)
+03. Glory For Salvation (5:04)
+04. Eternal Snow (1:34)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90FC4BFCB5401D63AA99685BE246DE4236B6CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596381   (170025) от 10.12.2022
+
+Ribspreader - The Van Murderers - Part 2 (2018) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Departure LA
+02. Flesh Desperados
+03. Back on Frostbitten Shores
+04. Equipped to Kill(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495C5E787D735BA87401DADCABAA5F57D0AE1713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430652   (170011) от 11.12.2020
+
+Deeds of Flesh - Nucleus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Technical-Death-Metal, Brutal-Death-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Odyssey [00:03:27]
+02. Alyen Scourge [00:05:02]
+03. Ascension Vortex (feat. Decrepit Bill, Obie Flett, Anthony Trapani) [00:04:29]
+04. Catacombs of the Monolith (feat. Luc Lemay) [00:05:09](   Читать дальше...   )Жанр: Technical-Death-Metal, Brutal-Death-MetalПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03A9BC8B850E86C7AB894180AE684E6A7880C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596331   (170002) от 10.12.2022
 
 Airstrike - Power in Your Hand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
@@ -6,7 +94,7 @@ Airstrike - Power in Your Hand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170002.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ Eufobia - Insemination (2010) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169995.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ All the Fury - Layers (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169990.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ Barabbas - La Mort Appelle Tous Les Vivants (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169981.jpg" />
 </div>
 
 
@@ -122,7 +210,7 @@ After Lapse - Face the Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive m
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169975.jpg" />
 </div>
 
 
@@ -151,7 +239,7 @@ Krilloan - Emperor Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169968.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ StormHammer - Seven Seals (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169951.jpg" />
 </div>
 
 
@@ -209,7 +297,7 @@ All Empires Fall - Oblivious Momentum (2022) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169947.jpg" />
 </div>
 
 
@@ -238,7 +326,7 @@ Ardarith - Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog-Metal, Prog-Opera, Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169927.jpg" />
 </div>
 
 
@@ -267,7 +355,7 @@ Merging Flare - Revolt Regime (2019) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169895.jpg" />
 </div>
 
 
@@ -296,7 +384,7 @@ Psideralica - Inhuman Feelings (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169886.jpg" />
 </div>
 
 
@@ -325,7 +413,7 @@ The Last Bear Ender - The Second Year Ender (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169875.jpg" />
 </div>
 
 
@@ -354,7 +442,7 @@ Turisas - The Varangian Way (2007) [FLAC|Lossless|image + .cue] <Epic Viking Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169815.jpg" />
 </div>
 
 
@@ -383,7 +471,7 @@ Soreption - Engineering The Void (2014) [WavPack|Lossless|image + .cue] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169556.jpg" />
 </div>
 
 
@@ -412,7 +500,7 @@ Maharaja - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Sto
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169384.jpg" />
 </div>
 
 
@@ -441,7 +529,7 @@ Bloodstone - Fight For Jerusalem (1995) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169359.jpg" />
 </div>
 
 
@@ -470,7 +558,7 @@ Void Vator - Stranded (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169333.jpg" />
 </div>
 
 
@@ -499,7 +587,7 @@ Shaam Larein - Sticka En Kniv I Världen (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169328.jpg" />
 </div>
 
 
@@ -528,7 +616,7 @@ Drakmord - Iter (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169322.jpg" />
 </div>
 
 
@@ -557,7 +645,7 @@ Bifrost - Her Den (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169312.jpg" />
 </div>
 
 
@@ -586,7 +674,7 @@ Ofdrykkja/Vanhelga/Psychonaut 4/In Luna - Urban Negativism (2015) Split [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169288.jpg" />
 </div>
 
 
@@ -615,7 +703,7 @@ Volbeat - Servant Of The Mind (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169243.jpg" />
 </div>
 
 
@@ -644,7 +732,7 @@ Leviathan - Deepest Secrets Beneath & Leviathan (2010) EP [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169231.jpg" />
 </div>
 
 
@@ -658,93 +746,6 @@ Leviathan - Deepest Secrets Beneath & Leviathan (2010) EP [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D321C2101F3E2BCE6488E6AB3D673F06BF8FC2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344623   (169224) от 12.12.2019
-
-Blind Fury - Out Of Reach (1985) Reissue 2008 [APE|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It Loud 05:05
-02. Out of Reach 06:32
-03. Evil Eyes 06:03
-04. Contact Rock and Roll 03:56(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DC286FAAD71F8DE990DA20AB4F365E8D277A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344653   (169207) от 12.12.2019
-
-Leviathan - Deepest Secrets Beneath (1994) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confidence Not Arrogance
-02. Sanctuary
-03. The Calling
-04. Painful Pursuit Of Passion And Purpose(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5D690B4AC8DD39A1A00970F8AF9406BB4E03FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344646   (169199) от 12.12.2019
-
-Borknagar - True North (2019) [FLAC|Lossless|image + .cue] <Black Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderous
-02. Up North
-03. The Fire That Burns
-04. Lights(   Читать дальше...   )Жанр: Black Folk MetalПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1B6439139B62FEA5B01E2F1D331FF1A945E133
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Zver Windows 10 Enterprise LTSC x64 v.2022.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736250.jpg" />
+  <img src="Z:/picture/008/save_picture_736250.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Illustrator 2022 26.0.3.778 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736246.jpg" />
+  <img src="Z:/picture/008/save_picture_736246.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DuplicateViewer 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736236.jpg" />
+  <img src="Z:/picture/008/save_picture_736236.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Scrutiny 9 v9.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736235.jpg" />
+  <img src="Z:/picture/008/save_picture_736235.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CopyClip 2 v2.9.98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736226.jpg" />
+  <img src="Z:/picture/008/save_picture_736226.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Transfer 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736225.jpg" />
+  <img src="Z:/picture/008/save_picture_736225.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ FinalShot 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736224.jpg" />
+  <img src="Z:/picture/008/save_picture_736224.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AnyTrans for iOS 8.7.0.20200713 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736200.jpg" />
+  <img src="Z:/picture/008/save_picture_736200.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Nebulosity 4.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736196.jpg" />
+  <img src="Z:/picture/008/save_picture_736196.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736194.jpg" />
+  <img src="Z:/picture/008/save_picture_736194.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Sensei 1.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736191.jpg" />
+  <img src="Z:/picture/008/save_picture_736191.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PhoneRescue for Android 3.7.0.20200722 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736188.jpg" />
+  <img src="Z:/picture/008/save_picture_736188.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ AnyTrans for Android 7 v7.3.0 (build 20200722) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736157.jpg" />
+  <img src="Z:/picture/008/save_picture_736157.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Bat! Voyager 9.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736115.jpg" />
+  <img src="Z:/picture/008/save_picture_736115.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Kerish Doctor 2020 4.80 [DC 21.07.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736108.jpg" />
+  <img src="Z:/picture/008/save_picture_736108.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Windows 10 Manager 3.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736080.jpg" />
+  <img src="Z:/picture/008/save_picture_736080.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Hetman Partition Recovery 3.1 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736075.jpg" />
+  <img src="Z:/picture/008/save_picture_736075.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ BELOFF [dp] 2020.07.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736074.jpg" />
+  <img src="Z:/picture/008/save_picture_736074.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ EaseUS Data Recovery Wizard Technician 13.5 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735989.jpg" />
+  <img src="Z:/picture/008/save_picture_735989.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735970.jpg" />
+  <img src="Z:/picture/008/save_picture_735970.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735910.jpg" />
+  <img src="Z:/picture/008/save_picture_735910.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VoodooPad 5 v5.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735892.jpg" />
+  <img src="Z:/picture/008/save_picture_735892.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Tipard Screen Capture 1.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735890.jpg" />
+  <img src="Z:/picture/008/save_picture_735890.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Tinderbox 9 v9.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735887.jpg" />
+  <img src="Z:/picture/008/save_picture_735887.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ RAR Extractor  - unzi‪p‬ 8.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735885.jpg" />
+  <img src="Z:/picture/008/save_picture_735885.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ System Toolkit 5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735881.jpg" />
+  <img src="Z:/picture/008/save_picture_735881.jpg" />
 </div>
 
 

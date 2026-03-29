@@ -1,3 +1,107 @@
+###  Публикация: 1128744   (726013) от 26.04.2017
+
+Nat Geo Wild: Амазонская электрическая рыба / Amazon's Electric Fish (2015) HDTVRip  [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726013.jpg" />
+</div>
+
+
+###  Подробнее
+
+В водах Амазонки водятся необычные рыбы, которые с помощью электричества общаются и координируют действия собратьев.Производство: США, Earth Touch and Smithsonian NetworksЖанр: Документальный, научно-популярныйРежиссер: Кира ИваноффПеревод: Одноголосый закадровый, профессиональный (Велес)Продолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071BE0A312EE8549E3B1DB539B569559C0D370CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667460   (725358) от 14.06.2013
+
+Я не должен был выжить / I Shouldn't Be Alive (2010-2012) IPTVRip [Сезон 4: серии 1-8, 13-20; Сезон 5: серии 1-8]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярного сериала, повествующего о людях, оказавшихся в шаге от верной гибели, для которых встреча со смертью стала переломным эпизодом в биографии, тяжелым испытанием и – началом новой жизни. Подобное может произойти с каждым!Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: НетПродолжительность: 24 x ~43-50 мин. серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B8F1DFA9749F46C86C4A4A112A0F6D710BF0A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399940   (724710) от 02.08.2020
+
+Собор Парижской Богоматери. Тайны средневековых зодчих / Notre-Dame de Paris. Les Secrets des Batisseurs (2020) SATRip (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собор Нотр-Дам-де-Пари, который 15 апреля 2019 года едва не погиб в огне, считается одним из величайших творений человека и символом не только Франции, но и миллионов верующих по всему миру. Он выстоял почти девять веков и стал свидетелем огромного количества исторических событий. А что нам известно о строительстве Собора Парижской Богоматери? Оно длилось практически (   Читать дальше...   )Производство: Франция, PROGRAM33 при участии FRANCE TÉLÉVISIONSЖанр: Документальный, познавательный, история, архитектураРежиссер: Эмануюэль БланшарПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04E0D4E16AA87C476E2A49CB77FA7869731DCB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395750   (724509) от 02.08.2020
+
+NG. Научные глупости / Science of stupid (2019) HDTVRip (сезон 8, серии 1-16 из 16)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые расскажут нам о том, как и почему приключение может превратиться в злоключение. В этой передаче объективная наука сочетается с глупостью и выступает на одной сцене с самыми сумасшедшими любительскими видеоклипами. Ричард Хаммонд продемонстрирует все виды несчастных случаев, свойственных отважным, но заблуждающимся смельчакам со всего мира, а затем объясняет (   Читать дальше...   )Производство: США, Eyeboogie, National GeographicЖанр: Документальный, научно-популярный, познавательныйРежиссер: Маркус РутледжПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA5B3C1E00DF7AB3C2385F70026859329F17432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285183   (724462) от 24.02.2019
 
 BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (серии 2 из 2) [PR]
@@ -6,7 +110,7 @@ BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724462.jpg" />
+  <img src="Z:/picture/008/save_picture_724462.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Пчелы-Убийцы / Killer Bees (200?) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723989.jpg" />
+  <img src="Z:/picture/008/save_picture_723989.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723972.jpg" />
+  <img src="Z:/picture/008/save_picture_723972.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ BBC. Horizon. Откуда берутся гении? / Horizon. What Makes a Ge
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723966.jpg" />
+  <img src="Z:/picture/008/save_picture_723966.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ NG. Взгляд изнутри: Секреты зоны 51 / Area 51 Declassifi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723736.jpg" />
+  <img src="Z:/picture/008/save_picture_723736.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723623.jpg" />
+  <img src="Z:/picture/008/save_picture_723623.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ NGW: Ягуары против крокодилов / Jaguar vs. Croc (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723122.jpg" />
+  <img src="Z:/picture/008/save_picture_723122.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722648.jpg" />
+  <img src="Z:/picture/008/save_picture_722648.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722637.jpg" />
+  <img src="Z:/picture/008/save_picture_722637.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ NGW: Смертоносная Африка. Рифы / Africa's Deadly Kingdom (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722582.jpg" />
+  <img src="Z:/picture/008/save_picture_722582.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ History Channel: Жизнь и смерть в Древнем Риме / Life an
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722273.jpg" />
+  <img src="Z:/picture/008/save_picture_722273.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ Discovery. Недружелюбная вселенная / Bad Universe (2010) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721912.jpg" />
+  <img src="Z:/picture/008/save_picture_721912.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ Discovery. Экстремальные боевые искусства / XMA: Xtr
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721819.jpg" />
+  <img src="Z:/picture/008/save_picture_721819.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ NGW: Дикая зима / Wild winter (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721623.jpg" />
+  <img src="Z:/picture/008/save_picture_721623.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ NGW: Неукротимая Южная Америка / South America Untamed (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721542.jpg" />
+  <img src="Z:/picture/008/save_picture_721542.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721524.jpg" />
+  <img src="Z:/picture/008/save_picture_721524.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721403.jpg" />
+  <img src="Z:/picture/008/save_picture_721403.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NGW: Десять смертельно опасных змей / Ten deadliest s
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721397.jpg" />
+  <img src="Z:/picture/008/save_picture_721397.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ NGW: Апокалипсис животных / World's deadliest. Animal Apocaly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721271.jpg" />
+  <img src="Z:/picture/008/save_picture_721271.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ NGW: Дикий Нил / Wild Nile (2014) HDTV [H.264/1080i-LQ] (Серии 1-3 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721265.jpg" />
+  <img src="Z:/picture/008/save_picture_721265.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720823.jpg" />
+  <img src="Z:/picture/008/save_picture_720823.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720677.jpg" />
+  <img src="Z:/picture/008/save_picture_720677.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF8C4E82B176D797D4C2DA5727CEDB2BB1B969D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531667   (720284) от 16.02.2022
-
-Открытие / Decouverte (2022) HDTVRip [H.264] (выпуски 1 из?) [FR / RU Sub] (Обновляемая)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Квебекский научно-популярный тележурнал "Открытие" выходит в эфир с 1988 года. Он предлагает репортажи, которые помогают лучше понять нашу Вселенную. Он приглашает зрителей узнать о последних научных исследованиях и технологических разработках. Тележурнал "Открытие" интересуется широким кругом тем, связанных, среди прочего, со здоровьем, окружающей (   Читать дальше...   )Производство: Канада, TV5MONDE Europe HDЖанр: документальный, познавательный, научно-популярныйРежиссер: Лилиан ЛемеПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, Hiventy)Продолжительность: серии x ~01:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEAE0D43367E5149C30281535C2840EB9E45830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709785   (720052) от 07.06.2016
-
-NG. Бушующие миры: Солнечная буря / Storm Worlds: Cosmic Fire (2010) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погодные явления, исходящие от Солнца и звезд, обычно незаметны на Земле, но последствия сильных солнечных бурь могут быть разрушительными. Вспышки на Солнце происходят довольно часто, но они только предшественники более серьезного события - коронального выброса массы. Шторм с Солнца, возникающий на пиках солнечной активности по мощности равен миллионам водородных (   Читать дальше...   )Жанр: Документальный, научно-популярныйПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115745EEDFC4EFA8277D0EEC1BCFD4E6E8577607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710878   (719930) от 07.06.2016
-
-BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже многие сотни лет люди пытаются найти эликсир молодости. Выдающиеся открытия, сделанные в течение последних лет, позволяют сделать вывод о том, что старение - это достаточно гибкий процесс, которым можно управлять. Сотрудники BBC Horizon беседуют с учёными, которые пытаются выяснить, что же такое старение и можно ли его предотвратить.Жанр: Документальный, научно-популярный, исследованияПеревод: Одноголосый закадровый (профессиональный, Видеофильм ТВ)Язык субтитров: русский, русский (на непереведенные места), английскийПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330A5EF19CF6EEF879C0341F16FB7F6063FD70AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327902   (719889) от 24.04.2011
-
-Animal Planet: Cинее царство (Лазурная страна). Целебный яд / The Blue Realm. Miracle Venom (2004) HDTVRip [2 серия]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный сериал - это телевизионные истории об удивительных существах в океане. Используя превосходную съёмку высокой четкости, привлечение ведущих ученых, опытных ныряльщиков - эти серии переносят зрителей в чарующий мир дайвинга. Съемки производились в местах: Папуа-Новая Гвинея, Палау (Микронезия), Южная Африка, Красное море, Большой Барьерный риф, Багамские острова, остров Кокос (Коста-Рика), Британская Колумбия, штат Техас, Индонезия, архипелаг Сокорро (Мексика), Калифорния и Флорида.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D096DDB3178ECA1F0E407676716B5A69D9CC0447
 ```
 
 https://mybot314.ru/tekegram_catalog/

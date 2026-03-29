@@ -1,3 +1,81 @@
+###  Публикация: 1779293   (70706) от 13.02.2025
+
+В прошлом году в Мариенбаде / L'annee derniere a Marienbad (1961) HDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский отель. Молодой человек пытается убедить девушку, что в прошлом году они уже встречались в саду Фредериксбурга. Но девушка не помнит этого человека и не знает, была ли эта встреча в Фредериксбурге или Мариенбаде. Молодой человек описывает момент их встречи. Рассказывает, что она едва не отдалась ему, но передумала в последнюю минуту. Они тогда договорились (   Читать дальше...   )Производство: Франция, Италия / Argos Film, Cinetel, CinerizЖанр: драма, детективРежиссер: Ален РенеАктеры: Джорджио Альбертацци, Дельфин Сейриг, Саша Питоефф, Франсуаз Бертен, Люси Гарсиа-Виль, Элена Корнель, Франсуаза Спира, Карин Тоше-Миттлер, Пьер Барбо, Вильгельм фон ДикПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94F51C14F9CE703DFFBC3E0CA1107C363E86BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779371   (70610) от 15.02.2025
+
+Плененное сердце / The Captive Heart (1946) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70610.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному рассказу Патрика Кёрвана. 1940 год, лагерь для военнопленных в Германии. Чтобы выжить, чешский офицер присваивает имя погибшего англичанина и начинает переписку с его женой.Производство: Великобритания / Ealing StudiosЖанр: драма, военныйРежиссер: Бэзил ДирденАктеры: Майкл Редгрейв, Рэйчел Кемпсон, Фредерик Лейстер, Мервин Джонс,Рэйчел Томас, Джек Уорнер, Глэдис Хенсон, Джеймс Харкорт, Гордон Джексон, Эллиот МейсонПеревод: Многоголосый профессиональный (с телеканала FilmBox Arthouse)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335551070AF0BADB65B134FBAB7F6E97EA283776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780444   (70459) от 18.02.2025
+
+Мой слуга Годфри / My man Godfrey (1936) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70459.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа Хэтча «1101 Парк-авеню» (1935)... Годфри, Нанятый на должность дворецкого, становится участником жизни высшего общества на Парк-Авеню. Какая-то сотня щегольских выходок, и он захватывает контроль над домом богатых людей: очаровывает красавицу Ирэн, разоблачает любовника её глуповатой матери и помогает её сварливому отцу избежать банкротства и тюрьмы (   Читать дальше...   )Производство: США / Universal PicturesЖанр: мелодрама, комедияРежиссер: Грегори Ла КаваАктеры: Уильям Пауэлл, Кэрол Ломбард, Элис Брэйди, Гейл Патрик, Юджин Паллетт, Жан Диксон, Алан Маубрэй, Миша Ауэр, Пэт Флаэрти, Роберт Лайт, Эрни Адамс, Филлис Крэйн, Эдди Фетерстон, Джеймс Флавин, Бесс ФлауэрсПеревод: профессиональный двухголосый (Светла)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39488422A902C44B3C2A99AEDF40399F03B7AC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794020   (67418) от 27.04.2025
 
 Горшок мёда / The Honey Pot (1967) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67418.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63940.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63885.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62500.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62412.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62389.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62335.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62139.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61720.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61673.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60984.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60854.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60035.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59813.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59592.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59530.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59487.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59441.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59406.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59397.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59228.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59213.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58968.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26F9A9E4EF889245A885020029C6639D3F68BBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718136   (58793) от 23.04.2024
-
-М убийца / M - Eine Stadt sucht einen Morder (1931) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58793.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Берлине полиция сбилась с ног, пытаясь найти маньяка, убившего нескольких девочек. Обнаруженные улики не дают ключей к разгадке. Между тем, убийства продолжаются... Жителями города постепенно овладевает паранойя — они готовы учинить самосуд над каждым, кто заговорит с ребёнком на улице, и даже начинают подозревать своих соседей... В поисках маньяка полиция проводит (   Читать дальше...   )Производство: Германия / Nero-Film AGЖанр: криминал, детектив, триллерРежиссер: Фриц ЛангАктеры: Петер Лорре, Эллен Видман, Инге Ландгут, Отто Вернике, Теодор Лоос, Фриц Одемар, Пол Кемп, Тео ЛингенПеревод: профессиональный многоголосыйЯзык озвучки: русский, немецкийСубтитры: русские (Видеоимпульс; Е.Клавдиенко), английскиеПродолжительность: 01:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91EC26B4ED99E272E4C969135B8AE45EDD8FFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718169   (58681) от 24.04.2024
-
-Пейзаж в тумане / Topio stin omihli / Landscape in the Mist (1988) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58681.jpg" />
-</div>
-
-
-###  Подробнее
-
-История, рассказанная в фильме , на вид простая, детская. Брат и сестра, сбежавшие из дома, от матери - девочка лет одиннадцати и мальчик лет пяти,- бредут по дороге строго на север, из Греции в Германию, где живёт их отец (мать солгала им, чтобы не говорить правду). После многочисленных злоключений они достигают вожделенной границы и гибнут, переходя её. Даже не (   Читать дальше...   )Производство: Греция, Франция, Италия / Basic Cinematografica, Rai Due, Greek Television ET-1Жанр: драмаРежиссер: Тео АнгелопулосАктеры: Михалис Зик, Таня Палайологу, Стратос Цорцоглу, Димитрис Каберидис, Герасимос Скиадаресис, Василис Коловос, Ева Котаманиду, Вангелис Казан, Кириакос КатриваносПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, греческийСубтитры: русские (семья ГД), английскиеПродолжительность: 02:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E2FB4FE7942B6664D14E79C5424E216BED527C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717984   (58561) от 25.04.2024
-
-Дети райка (2 серии из 2) / Les Enfants du Paradis (1945) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в Париже 20-30-х 19-го века. Фильм повествует историю куртизанки и четырёх мужчин - мима, актёра, преступника и аристократа, — которые любят её совершенно по-разному. Это обширный рассказ о безответной любви, тайных романах, ревности и страсти в мире театра, преступности и аристократии. «Дети райка» - это бедняки, занимающие галёрку театров (   Читать дальше...   )Производство: Франция / Pathé Consortium Cinéma, Société Nouvelle Pathé CinémaЖанр: драма, мелодрамаРежиссер: Марсель КарнеАктеры: Арлетти, Жан-Луи Барро, Пьер Брассёр, Марсель Эрран, Пьер Ренуар, Мария Казарес, Гастон Модо, Фабьен Лорис, Марсель Пере, Пьер Пало, Этьен Декру, Жана Маркен, Марсель Монтиль, Луи ФлорансиПеревод: дублированный, профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:47:47 + 01:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F250AD9F7D0F84220F7D6F74FAAF82E9025794A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

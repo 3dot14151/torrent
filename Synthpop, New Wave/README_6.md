@@ -1,3 +1,32 @@
+###  Публикация: 921745   (573594) от 26.07.2015
+
+Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб/с]<Electronic, Ambient, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquistador (JMJ Rmx) (3:50)
+ 02. Glory (Radio Mix) (2:54)
+ 03. Glory (Steve Angello Remix) (5:53)
+ 04. Zero Gravity (Above And Beyond Remix) (7:20)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-popПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709FB2A72E409198C078D98D1718ADA9170E7195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303504   (572703) от 21.05.2019
 
 Blancmange - 4 Albums (1982-1985) [MP3|320 Kbps] <Electronic, Synth-pop, New Wave>
@@ -6,7 +35,7 @@ Blancmange - 4 Albums (1982-1985) [MP3|320 Kbps] <Electronic, Synth-pop, New Wav
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572703.jpg" />
+  <img src="Z:/picture/008/save_picture_572703.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Rheingold - Im Lauf der Zeit (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564074.jpg" />
+  <img src="Z:/picture/008/save_picture_564074.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Fixx - 15 Albums (1982-2014)(16 CD) [MP3|320 Kbps] <Electronic, New Wave, Po
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561393.jpg" />
+  <img src="Z:/picture/008/save_picture_561393.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ C.C.C.P. - Album & Compilation (1990, 1992) [MP3|320 Kbps] <Electronic, Industri
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561264.jpg" />
+  <img src="Z:/picture/008/save_picture_561264.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Synthesize Me (2007) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557337.jpg" />
+  <img src="Z:/picture/008/save_picture_557337.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Missing Persons - Missing in Action (2014) Deluxe Edition [MP3|320 Kbps] <New Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556942.jpg" />
+  <img src="Z:/picture/008/save_picture_556942.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Synth Dimension (2013) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, D
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553616.jpg" />
+  <img src="Z:/picture/008/save_picture_553616.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Jan Hammer - Seasons, Pt. 1 (2018) [MP3|320 Kbps] <Synth-Pop, Instrumental>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553286.jpg" />
+  <img src="Z:/picture/008/save_picture_553286.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VHS Glitch - MORAL DECAY (2016) [MP3|320 Kbps] <Synthwave, Dark Synth, Cyberpunk
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545644.jpg" />
+  <img src="Z:/picture/008/save_picture_545644.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Anosphere - 3 Studio Albums (2007-2011) CD [MP3|320 Kbps] <Electronic, Synth-pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543780.jpg" />
+  <img src="Z:/picture/008/save_picture_543780.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Logic System - History of Logic System (2003) CD Compilations [MP3|320 Kbps] <El
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543765.jpg" />
+  <img src="Z:/picture/008/save_picture_543765.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Synthpop 2017 vol.1-3 (2017) [MP3|320 Kbps] <Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542420.jpg" />
+  <img src="Z:/picture/008/save_picture_542420.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Droid Bishop - Beyond The Blue (2014) [MP3|320 кб/с]<Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539112.jpg" />
+  <img src="Z:/picture/008/save_picture_539112.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Dynatron - Escape Velocity (2012) [MP3|320 кб/с]<80s, dreamwave, electronic>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539007.jpg" />
+  <img src="Z:/picture/008/save_picture_539007.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Lost Years - Amplifier (2013) [MP3|320 кб/с]<Electronic, Electro, Disco, Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528502.jpg" />
+  <img src="Z:/picture/008/save_picture_528502.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Summer In Space Vol. 5 (2022) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527801.jpg" />
+  <img src="Z:/picture/008/save_picture_527801.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522486.jpg" />
+  <img src="Z:/picture/008/save_picture_522486.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Magic Sword - Vol.1 (2015) [MP3|320 кб/с]<Synth Wave,Retro Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522454.jpg" />
+  <img src="Z:/picture/008/save_picture_522454.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Synthwave, Vol. 5 (Retro Dreams) (2018) [MP3|320 Kbps] <Synthwave, Retrowav
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522261.jpg" />
+  <img src="Z:/picture/008/save_picture_522261.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518365.jpg" />
+  <img src="Z:/picture/008/save_picture_518365.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ BELLATRIX - Cosmic Dust (2019) [MP3|320 Kbps] <Spacepop, Spacesynth, Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513813.jpg" />
+  <img src="Z:/picture/008/save_picture_513813.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Neuroticfish - A Sign Of Life (2015) [MP3|320 кб/с]<Synthpop, EBM>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512921.jpg" />
+  <img src="Z:/picture/008/save_picture_512921.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510785.jpg" />
+  <img src="Z:/picture/008/save_picture_510785.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Gunship - Gunship (2015) [MP3|320 кб/с]<Electronic, Synthwave, Dreamwav>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509985.jpg" />
+  <img src="Z:/picture/008/save_picture_509985.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Profil - Profil (серия "Другие восьмидесятые") (1982) CD
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505160.jpg" />
+  <img src="Z:/picture/008/save_picture_505160.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Profil - Profil (серия "Другие восьмидесятые") (1982) CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B061053D5F1ED537BE9862FCCE70CF4B1AAC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316854   (503971) от 28.07.2019
-
-Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - The Key To Perfection
-2017 - Frautonium (The Andrew Weatherall Remixes)
-2017 - Limbo (The Remixes)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945B6C03A4AF07020E30F6DB3EA705820F95E443
 ```
 
 https://mybot314.ru/tekegram_catalog/

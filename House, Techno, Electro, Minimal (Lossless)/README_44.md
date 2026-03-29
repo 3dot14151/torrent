@@ -1,3 +1,119 @@
+###  Публикация: 1063209   (435164) от 16.10.2016
+
+VA - DJ Viper-Garage Sound System_Mix001 (2006) [FLAC|Lossless|image + .cue] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coco Silco - Ola (5:41)
+02. Harold Heath - Long Relationships (Asad Rizvi Remix) (6:13)
+03. Davide & Pedro - Glue (4:12)
+04. King Roc - Pressure (4:37)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC234300597A8998926C7DCB532419E274B6282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410780   (434064) от 22.09.2020
+
+VA - Personal Space Nikolay Mikryukov (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikolay Mikryukov - Deep Hypnosis (Original Mix) (7:29)
+02. Nikolay Mikryukov - Low Kiss (Original Mix) (7:14)
+03. Nikolay Mikryukov - Resort (Original Mix) (9:17)
+04. Alexander Hristov - Sunset Beach (Nikolay Mikryukov Remix) (8:41)(   Читать дальше...   )Жанр: Deep House, Progressive House, DowntempoПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFDDD7E33457638DC1C36B157FDDE0352F17D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323712   (433891) от 05.09.2019
+
+VA - Nine Years Of Techno: Selected by Rafa Ortega (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rephlekt - Pushit (6:08)
+02. Miss Electric - Invisibility (4:49)
+03. Paula Cazenave - Posers (6:13)
+04. Anri - Heart Goes Where It Goes (6:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3A7A7DF15F15596B1D92693E5C4B387F3A0783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323643   (433890) от 05.09.2019
+
+Soultek - Dreaming Under A Starlit Sky (2014) echospace [detroit] [FLAC|Lossless|tracks+.cue] <Techno, Ambient, Dub Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Control (06:12)
+ 02. Never Letting Go (06:15)
+ 03. The Dub Star (06:00)
+ 04. Tints And Shades (06:02)(   Читать дальше...   )Тип издания: CDЖанр: Techno, Ambient, Dub Techno, Electro •Продолжительность: 01:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C54E85669C0A2A8C7886F64BE8A1D684057F7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410796   (433752) от 22.09.2020
 
 VA - Sexy Deep Passion (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -6,7 +122,7 @@ VA - Sexy Deep Passion (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433752.jpg" />
+  <img src="Z:/picture/008/save_picture_433752.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Vėjopatis - Belaukiant Saules (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433596.jpg" />
+  <img src="Z:/picture/008/save_picture_433596.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Rauschhaus - The End Of All Things (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432686.jpg" />
+  <img src="Z:/picture/008/save_picture_432686.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Laid Back - Fuck (2014) EP [FLAC|Lossless|WEB-DL|tracks] <House, Dub, Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432594.jpg" />
+  <img src="Z:/picture/008/save_picture_432594.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ VA - James Warren Presents: Visceral 041 (2016) [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432390.jpg" />
+  <img src="Z:/picture/008/save_picture_432390.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Maribou State - Portraits (2015) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431575.jpg" />
+  <img src="Z:/picture/008/save_picture_431575.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ VA - Techno Ballads Collection (1996-1999) Millennium Records [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431204.jpg" />
+  <img src="Z:/picture/008/save_picture_431204.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Mirae Arts - Label 2 Releases (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431191.jpg" />
+  <img src="Z:/picture/008/save_picture_431191.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ VA - Nine Years Of Techno: Selected by Diarmaid O Meara (2019) [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429795.jpg" />
+  <img src="Z:/picture/008/save_picture_429795.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ VA - Nine Years Of Techno: Selected by Anderson Noise (2019) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429794.jpg" />
+  <img src="Z:/picture/008/save_picture_429794.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ VA - Nine Years Of Techno: Selected by Agent Orange DJ (2019) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429792.jpg" />
+  <img src="Z:/picture/008/save_picture_429792.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ VA - Summer Compilation 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429666.jpg" />
+  <img src="Z:/picture/008/save_picture_429666.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ VA - Mixmag Germany Presents Dantze (Curated by Nicone) (2016) [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428366.jpg" />
+  <img src="Z:/picture/008/save_picture_428366.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ VA - Mark Slee plays 7v (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427183.jpg" />
+  <img src="Z:/picture/008/save_picture_427183.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Thomas Gandey - Lovemachine (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426918.jpg" />
+  <img src="Z:/picture/008/save_picture_426918.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ VA - Deep House Summer Essentials 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426655.jpg" />
+  <img src="Z:/picture/008/save_picture_426655.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ VA - Summer Collection 2022 [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Or
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425508.jpg" />
+  <img src="Z:/picture/008/save_picture_425508.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Satin Jackets - Reunion (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423511.jpg" />
+  <img src="Z:/picture/008/save_picture_423511.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ VA - Kindisch Presents: Kindisch Steps VIII (2017) Kindisch [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422767.jpg" />
+  <img src="Z:/picture/008/save_picture_422767.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ VA - Deep Trip (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Min
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421769.jpg" />
+  <img src="Z:/picture/008/save_picture_421769.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ Bryan Ferry - Avonmore (The Remix Album) (2016) [FLAC|Lossless|WEB-DL|tracks] <H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421129.jpg" />
+  <img src="Z:/picture/008/save_picture_421129.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ Moolsaasa - Sleepless EP (2016) Kopoc Label [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420285.jpg" />
+  <img src="Z:/picture/008/save_picture_420285.jpg" />
 </div>
 
 
@@ -624,128 +740,6 @@ Moolsaasa - Sleepless EP (2016) Kopoc Label [FLAC|Lossless|WEB-DL|tracks] <Dub T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFC3668C3FD3DDBF58203601070D2D2D75FE6A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266611   (420082) от 28.09.2020
-
-Deadbeat | Scott Monteith - Discography 53 Releases (2000-2020) [FLAC|Lossless|tracks+.cue, tracks] <Dub, Dub Techno, Ambient, Tech House, Techno, Minimal>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadbeat - House Of Vampires (08:42)
- 02. Fluxion - Perfuse (Deadbeat Remix) (06:44)
- 03. Deadbeat - Vampire Dub (09:31)
- 04. Deadbeat - Mercy Cage Dub (07:37)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Techno/Dub Techno/Tech House/MinimalПродолжительность: 34:50:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304780F73336A1E3FF48489019E5EDA2E5F9EC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167207   (419582) от 19.09.2017
-
-VA - Top 30 Club Hits (Autumn '17) (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Big Room>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peyton Williams – All I Do (04:28)
-02. Shane Robertson – He We Go (04:22)
-03. Mironov & Lykov – All Night Long (04:13)
-04. Tali & De Fault – Heart & Ice (04:20)(   Читать дальше...   )Жанр: House, Big RoomПродолжительность: 02:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8734F0A84A435EAEEC439F0178B170A25C4FB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065625   (419343) от 23.10.2016
-
-VA - Unfinished Business Vol. 4 (Compiled & Mixed by Luke Solomon) (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419343.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Luke Solomon - Unfinished Business Vol 4 (continuous mix Pt 1) (01:11:01)
-2. Luke Solomon - Unfinished Business Vol 4 (continuous mix Pt 2) (01:17:51)
-3. Honey Dijon - Houze (feat Seven Davis Jr - Deetron extended remix) (07:59)
-4. Eli Escobar - Chaka Khan (05:30)(   Читать дальше...   )Жанр: House, ElectronicaПродолжительность: 06:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A4AA0848C4E65A482BC0AE9E33AC0D991947E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557792   (418845) от 08.10.2012
-
-Sonique - Hear My Cry (2000) [FLAC|Lossless]<Trance, Euro House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Feels So Good
-02. I Put A Spell On You
-03. Are You Ready?
-04. Cold And Lonely
-05. Drama
-06. Move Closer
-07. Can't Get Enough
-08. Hear My Cry
-09. Empty (Hideaway)
-10. Love Is On Our Side(   Читать дальше...   )Жанр: Trance, Euro House, DanceПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

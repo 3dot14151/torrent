@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937480.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937294.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934760.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934627.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933190.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932261.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932132.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932075.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931760.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931560.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930789.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930787.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930685.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930680.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930574.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929202.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928339.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927147.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_927127.jpg" />
+  <img src="Z:/picture/009/save_picture_927127.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926825.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926042.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925569.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922355.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922346.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922340.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922329.jpg" />
 </div>
 
 

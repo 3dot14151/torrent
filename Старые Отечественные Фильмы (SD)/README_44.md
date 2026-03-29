@@ -1,3 +1,55 @@
+###  Публикация: 1058935   (466080) от 02.10.2016
+
+Однажды осенью (1977) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткометражный телевизионный фильм режиссёра Вадима Гнедкова, поставленный по рассказу алтайского писателя Евгения Гущина "Красные лисы" в 1977 году.Главные герои фильма - молодая доярка и механизатор, жители обыкновенного сибирского села. Их любовь вдруг стала не только их личным делом, а смятением, завистью, болью многих людей.Производство: СССР, НовосибирсктелефильмЖанр: Короткометражный, ДрамаРежиссер: Вадим ГнедковАктеры: Альберт Дорожко, Ирина Нахаева, Дмитрий Бутенко, Михаил Стрелков, Т. Лосева, Анастасия Гаршина, И. Баранов, Евгений Лемешонок, М. Манюнин, Л. СумниковаПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBCFE4158A58FC0B291749855BDB40F3C07E12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058942   (465968) от 02.10.2016
+
+Конец Чёрных рыцарей (1969) WEBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465968.jpg" />
+</div>
+
+
+###  Подробнее
+
+О разоблачении советскими разведчиками неонацистской организации «Черные рыцари», которая пыталась возродить фашистское движение в Европе. Действие происходит в 1956 году во Франции.Производство: СССР, Центральное телевидениеЖанр: Детектив, ДрамаРежиссер: Вячеслав БровкинАктеры: Борис Иванов, Леонид Евтифьев, Геннадий Некрасов, Ирина Карташёва, Сергей Цейц, Константин Михайлов, Вячеслав Бутенко, Андрей Цимбал, Владимир Шурупов, Михаил ПогоржельскийПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33250445B26CB067E7416D4828DF98978C304CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 387484   (464983) от 14.09.2011
 
 Мичурин (1948) DVDRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464983.jpg" />
+  <img src="Z:/picture/008/save_picture_464983.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464031.jpg" />
+  <img src="Z:/picture/008/save_picture_464031.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462830.jpg" />
+  <img src="Z:/picture/008/save_picture_462830.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460551.jpg" />
+  <img src="Z:/picture/008/save_picture_460551.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457833.jpg" />
+  <img src="Z:/picture/008/save_picture_457833.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455973.jpg" />
+  <img src="Z:/picture/008/save_picture_455973.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455057.jpg" />
+  <img src="Z:/picture/008/save_picture_455057.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455024.jpg" />
+  <img src="Z:/picture/008/save_picture_455024.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453702.jpg" />
+  <img src="Z:/picture/008/save_picture_453702.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453490.jpg" />
+  <img src="Z:/picture/008/save_picture_453490.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_453205.jpg" />
+  <img src="Z:/picture/005/save_picture_453205.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452286.jpg" />
+  <img src="Z:/picture/008/save_picture_452286.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451726.jpg" />
+  <img src="Z:/picture/008/save_picture_451726.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451110.jpg" />
+  <img src="Z:/picture/008/save_picture_451110.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450972.jpg" />
+  <img src="Z:/picture/008/save_picture_450972.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450601.jpg" />
+  <img src="Z:/picture/008/save_picture_450601.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450158.jpg" />
+  <img src="Z:/picture/008/save_picture_450158.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449363.jpg" />
+  <img src="Z:/picture/008/save_picture_449363.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449281.jpg" />
+  <img src="Z:/picture/008/save_picture_449281.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449056.jpg" />
+  <img src="Z:/picture/008/save_picture_449056.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448930.jpg" />
+  <img src="Z:/picture/008/save_picture_448930.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_448262.jpg" />
+  <img src="Z:/picture/005/save_picture_448262.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_448254.jpg" />
+  <img src="Z:/picture/005/save_picture_448254.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446996.jpg" />
+  <img src="Z:/picture/008/save_picture_446996.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB27D18DF548D09684392E73F7B134B6D95FF773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704768   (446630) от 01.10.2013
-
-Трое вышли из леса (1958) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446630.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как партизаны Юлия, Павел и Сергей ушли на боевое задание, отряд был окружен и уничтожен карателями. Спустя много лет после окончания Великой Отечественной войны следственные органы обнаружили документ, указывающий на то, что отряд был уничтожен по наводке одного из оставшихся в живых.Жанр: Драма, военныйРежиссер: Константин ВоиновАктеры: Лидия Смирнова, Валентин Зубков, Михаил Погоржельский., Борис Смирнов, Евгений Буренков, Зоя Степанова, С. Морозов, Геннадий Горохов, Ольга СуминаПродолжительность: 01:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2017FABAF4ADB50D9D5023485F9CAA7C367386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061256   (446425) от 11.10.2016
-
-Сороковой день (1988) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья отмечает сороковой день трагической гибели главы семьи. Неожиданный приход обвиняемого в убийстве молодого парня приводит к выяснению сложных семейных отношений...Производство: СССР, ЛентелефильмЖанр: ДрамаРежиссер: Олег ЕрышевАктеры: Инна Макарова, Людмила Шевель, Виктор Ильичёв, Вадим Ермолаев, Елена Соловей, Олег Дмитриев, Лев Семенов, Владимир ТатосовПродолжительность: 01:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB8DEAB19CB0EB1E25B642BF1DDBC4734CDAD27
 ```
 
 https://mybot314.ru/tekegram_catalog/

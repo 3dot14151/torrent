@@ -6,7 +6,7 @@ Bigasoft Video Downloader Pro 3.14.3.6319 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740809.jpg" />
+  <img src="Z:/picture/008/save_picture_740809.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740807.jpg" />
+  <img src="Z:/picture/008/save_picture_740807.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Asura - Atmosphere (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Down
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740803.jpg" />
+  <img src="Z:/picture/008/save_picture_740803.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - New York Jazz Lounge Afternoon (2017) [FLAC|Lossless|WEB-DL|tracks] <Downte
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740802.jpg" />
+  <img src="Z:/picture/008/save_picture_740802.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Oddisee - The Odd Tape (2016) [FLAC|Lossless|Web-DL|tracks] <Underground Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740795.jpg" />
+  <img src="Z:/picture/008/save_picture_740795.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ GraphicConverter 10.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740792.jpg" />
+  <img src="Z:/picture/008/save_picture_740792.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740787.jpg" />
+  <img src="Z:/picture/008/save_picture_740787.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Kunteynir - Последняя запись (2016) EP [MP3|192-320 кб/с] <Und
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740786.jpg" />
+  <img src="Z:/picture/008/save_picture_740786.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ K-Lite Codec Pack Update 12.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740785.jpg" />
+  <img src="Z:/picture/008/save_picture_740785.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Bandicam 4.3.3.1498 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740776.jpg" />
+  <img src="Z:/picture/008/save_picture_740776.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ The Bat! Professional 8.8.0 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740775.jpg" />
+  <img src="Z:/picture/008/save_picture_740775.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Norton Internet Security 22.16.4.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740774.jpg" />
+  <img src="Z:/picture/008/save_picture_740774.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ SoftMaker Office Professional 2018 rev 946.0211 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740766.jpg" />
+  <img src="Z:/picture/008/save_picture_740766.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Sting & Shaggy feat. Aidonia and Morgan Heritage - 44/876 (2018) Single [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740756.jpg" />
+  <img src="Z:/picture/008/save_picture_740756.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Avira Free Antivirus 15.0.36.137 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740740.jpg" />
+  <img src="Z:/picture/008/save_picture_740740.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Movavi PDF Editor 1.4.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740738.jpg" />
+  <img src="Z:/picture/008/save_picture_740738.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740732.jpg" />
+  <img src="Z:/picture/008/save_picture_740732.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740726.jpg" />
+  <img src="Z:/picture/008/save_picture_740726.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ WinUtilities Professional Edition 12.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740695.jpg" />
+  <img src="Z:/picture/008/save_picture_740695.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ DJ Odyssey - Spring Grenade Music is Life Vol. 7 (2016) [MP3|192 кб/с] <Dance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740691.jpg" />
+  <img src="Z:/picture/008/save_picture_740691.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Hospital Mixtape: S.P.Y (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740677.jpg" />
+  <img src="Z:/picture/008/save_picture_740677.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740666.jpg" />
+  <img src="Z:/picture/008/save_picture_740666.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Lingon X 6.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740663.jpg" />
+  <img src="Z:/picture/008/save_picture_740663.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740661.jpg" />
+  <img src="Z:/picture/008/save_picture_740661.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ AusLogics BoostSpeed 10.0.8.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740650.jpg" />
+  <img src="Z:/picture/008/save_picture_740650.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Driver Easy Pro 5.6.1.14162 RePack (& Portable) by elchupacabra (05.04.2018) [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740646.jpg" />
+  <img src="Z:/picture/008/save_picture_740646.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1113383   (838629) от 11.03.2017
+
+Архимандрит Феофан | Неблаженные блаженные святые. Рассказы о необыкновенных подвижниках (2017) [PDF, FB2, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838629.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны поразительные жизнеописания юродивых, прославленных в лике святых, а также не прославленных подвижников, живших в разные века в разных частях света. Важно не место, где они начали свой земной путь… Египет, Сирия, Рим, Пруссия, Россия… Куда важнее то, что они услышали и сердцем восприняли слова Спасителя: «Царство Мое не от мира сего» (Ин.18, (   Читать дальше...   )Жанр: Жития святыхФормат: PDF, FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9013EC831633173F6E4E4C9069915490107E27C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113399   (836809) от 12.03.2017
+
+Св. Игнатий Лойола | Рассказ паломника о своей жизни (2002) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836809.jpg" />
+</div>
+
+
+###  Подробнее
+
+В релизе представлен перевод автобиографии св. Игнатия Лойолы, основателя Общества Иисуса (ордена иезуитов)Жанр: АвтобиографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884384BF5CFDD559B594DEEEE9F2B2D8CD7CABDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113750   (836712) от 12.03.2017
+
+Священник Андрей Лоргус | Книга о счастье (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор «Книги о счастье» Андрей Лоргус — православный священник и одновременно — практикующий психолог, ректор Института христианской психологии. Уже только поэтому интересно прочитать то, что он пишет. В этой книге отец Андрей взялся за рискованную тему, в которой каждый может считать себя специалистом. Однако счастливы далеко не все. В чем же проблема? В книге автор (   Читать дальше...   )Жанр: Духовное богословие, психологияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F5999AC14E17D58C5150575AE35B0FC995BAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113755   (836702) от 12.03.2017
 
 Леонид Виноградов | О страстях и искушениях [Ответы православных психологов] (2016) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836702.jpg" />
+  <img src="Z:/picture/008/save_picture_836702.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836675.jpg" />
+  <img src="Z:/picture/008/save_picture_836675.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836599.jpg" />
+  <img src="Z:/picture/008/save_picture_836599.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835235.jpg" />
+  <img src="Z:/picture/008/save_picture_835235.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835173.jpg" />
+  <img src="Z:/picture/008/save_picture_835173.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834963.jpg" />
+  <img src="Z:/picture/008/save_picture_834963.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833757.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833750.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833745.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833729.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833727.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833721.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833720.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833594.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833311.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831578.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830007.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830002.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828400.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828394.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828308.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828253.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828164.jpg" />
 </div>
 
 
@@ -605,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D4F2524707FEC6992E6FE28C07CDB6B54A634D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115078   (828061) от 17.03.2017
-
-М. Горев | Последний святой [Последние дни романовской церкви. Канонизационный процесс Иоанна Тобольского 22 мая 1914 г. - 8 апреля 1917 г.] (1928) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_828061.jpg" />
-</div>
-
-
-###  Подробнее
-
-В работе на основе архивных материалов рассказано о канонизации Иоанна Тобольского - последнего святого, канонизированного Православной церковью до Великой Октябрьской революции. Показано использование религиозного культа для укрепления царского самодержавия и борьбы с революционным движением.Жанр: История, политология, религиоведение, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84291B4D41EE9B15B76018608D84E01989D35500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502516   (826718) от 15.10.2021
-
-Издание Оптиной Пустыни | Как научиться Иисусовой молитве (1994) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы убеждены тою мыслiю, что любезные читатели нашей книжицы не поскучаютъ чтенiемъ, где многократно упоминается одинъ смыслъ о молитве, но въ разныхъ словесныхъ формахъ, ибо мы описали молитву всесторонне. Посему и думаемъ, что для сердца, любящаго имя Сладчайшаго Iисуса, многократное повторенiе Его имени должно быть усладительнее «паче меда и сота». Аще кто Боголюбивъ, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1380845A6B43BAA65B0A347ACD8F172488B429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775251   (825943) от 08.04.2014
-
-И.К. Антошевский | Евреи христиане. Историко-генеалогические заметки (1907) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой заметки о христианах еврейского происхождения, освещающие малоисследованные стороны русской истории и генеалогии. Их автор — библиограф и литератор И.К. Антошевский. Ныне обрусевшие древние роды часто ведут свое начало от выходцев из других стран. В XVIII веке, в результате первого и второго разделов Польши, произошло массовое появление евреев (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10FE6C22BAE2F1611ADC35A62AFA1D4DADF0067
 ```
 
 https://mybot314.ru/tekegram_catalog/

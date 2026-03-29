@@ -1,3 +1,38 @@
+###  Публикация: 553396   (441912) от 29.09.2012
+
+Big & Rich - Hillbilly Jedi (2012) [MP3|320 кб/с]<Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_441912.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:54) 01. Born Again
+(3:35) 02. Party like Cowboyz
+(4:00) 03. That's Why I Pray
+(4:22) 04. Lay It All On Me
+(2:59) 05. Last Words
+(4:04) 06. Rock The Boat
+(4:07) 07. Can't Be Satisfied
+(3:32) 08. Get Your Game On
+(3:33) 09. 'Cause I Play Guitar
+(3:15) 10. Cheat On You(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDF3AD6045072EB3013F988223045990899003F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553859   (441530) от 29.09.2012
 
 Alvin Lee - Still On The Road To Freedom (2012) [MP3|320 кб/с]<Rock>
@@ -6,7 +41,7 @@ Alvin Lee - Still On The Road To Freedom (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441530.jpg" />
+  <img src="Z:/picture/008/save_picture_441530.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Tori Amos - Gold Dust (2012) [MP3|320 кб/с]<Alternative Rock, Piano Rock, Bar
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441349.jpg" />
+  <img src="Z:/picture/008/save_picture_441349.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ Cold Chisel - The Perfect Crime (2015) Deluxe Edition [OGG| 456-523 кб/с]<Cla
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440506.jpg" />
+  <img src="Z:/picture/008/save_picture_440506.jpg" />
 </div>
 
 
@@ -105,7 +140,7 @@ Blitzen Trapper - Furr (2008) 10th Anniversary Deluxe Edition, 2018, Sub Pop [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440176.jpg" />
+  <img src="Z:/picture/008/save_picture_440176.jpg" />
 </div>
 
 
@@ -134,7 +169,7 @@ Hush - Aloud 'n' Live (1973) [MP3|320 Kbps] <Glam Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440025.jpg" />
+  <img src="Z:/picture/008/save_picture_440025.jpg" />
 </div>
 
 
@@ -163,7 +198,7 @@ Trubetskoy - Трафик (2018) EP [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439833.jpg" />
+  <img src="Z:/picture/008/save_picture_439833.jpg" />
 </div>
 
 
@@ -191,7 +226,7 @@ VA - 101 Hits - No.1 Dad 5CD (2018) [MP3|320 Kbps] <Pop, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439478.jpg" />
+  <img src="Z:/picture/008/save_picture_439478.jpg" />
 </div>
 
 
@@ -223,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438869.jpg" />
+  <img src="Z:/picture/008/save_picture_438869.jpg" />
 </div>
 
 
@@ -252,7 +287,7 @@ Stoned Void - Throbbing Rhythm of the Doldrums (2022) [MP3|320 Kbps] <Heavy Psyc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438475.jpg" />
+  <img src="Z:/picture/008/save_picture_438475.jpg" />
 </div>
 
 
@@ -281,7 +316,7 @@ Deep Purple - Bombay Calling (Live in 95) (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438183.jpg" />
+  <img src="Z:/picture/008/save_picture_438183.jpg" />
 </div>
 
 
@@ -310,7 +345,7 @@ Pink Floyd The Wall Rebuilt - Mojo Magazine 30th (Tribute) (2009) 2CD [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437358.jpg" />
+  <img src="Z:/picture/008/save_picture_437358.jpg" />
 </div>
 
 
@@ -339,7 +374,7 @@ Sweet - Action (The Ultimate Story) (2015) 2CD Deluxe Edition [OGG| 446-548 кб
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435678.jpg" />
+  <img src="Z:/picture/008/save_picture_435678.jpg" />
 </div>
 
 
@@ -368,7 +403,7 @@ Status Quo - Backbone (2019) Limited Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435632.jpg" />
+  <img src="Z:/picture/008/save_picture_435632.jpg" />
 </div>
 
 
@@ -397,7 +432,7 @@ Liam Gallagher - C'mon You Know (2022) Deluxe CD [MP3|320 kbps] <Indie Rock, Bri
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433938.jpg" />
+  <img src="Z:/picture/008/save_picture_433938.jpg" />
 </div>
 
 
@@ -426,7 +461,7 @@ The Zombies - Still Got That Hunger (2015) [OGG| 450-508 кб/с]<Classic Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433820.jpg" />
+  <img src="Z:/picture/008/save_picture_433820.jpg" />
 </div>
 
 
@@ -455,7 +490,7 @@ Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433814.jpg" />
+  <img src="Z:/picture/008/save_picture_433814.jpg" />
 </div>
 
 
@@ -484,7 +519,7 @@ Nick Mason's Saucerful Of Secrets - Live At The Roundhouse (2020) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431918.jpg" />
+  <img src="Z:/picture/008/save_picture_431918.jpg" />
 </div>
 
 
@@ -513,7 +548,7 @@ Erick Hovey - Blues Farm (2009) [MP3|128 кб/с]<Blues, Rock, Swamp, Country, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431870.jpg" />
+  <img src="Z:/picture/008/save_picture_431870.jpg" />
 </div>
 
 
@@ -548,7 +583,7 @@ Atlantis - Atlantis (1972) Reissue, 2008, Universal [MP3|320 Kbps] <Krautrock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430807.jpg" />
+  <img src="Z:/picture/008/save_picture_430807.jpg" />
 </div>
 
 
@@ -577,7 +612,7 @@ Ringo Starr - Give More Love (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430299.jpg" />
+  <img src="Z:/picture/008/save_picture_430299.jpg" />
 </div>
 
 
@@ -606,7 +641,7 @@ Chris Norman - Don't Knock the Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430292.jpg" />
+  <img src="Z:/picture/008/save_picture_430292.jpg" />
 </div>
 
 
@@ -635,7 +670,7 @@ Creye - Creye (2018) Japanese Edition [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429131.jpg" />
+  <img src="Z:/picture/008/save_picture_429131.jpg" />
 </div>
 
 
@@ -664,7 +699,7 @@ Medicine Head - Dark Side Of The Moon (1972) Remastered, 2004, Dandelion Records
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428473.jpg" />
+  <img src="Z:/picture/008/save_picture_428473.jpg" />
 </div>
 
 
@@ -693,7 +728,7 @@ The Doors - The Singles (2017) 2CD, Remastered [MP3|320 Kbps] <Classic Rock, Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428158.jpg" />
+  <img src="Z:/picture/008/save_picture_428158.jpg" />
 </div>
 
 
@@ -724,7 +759,7 @@ Trishula - Time Waits For No Man (2020) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427623.jpg" />
+  <img src="Z:/picture/008/save_picture_427623.jpg" />
 </div>
 
 
@@ -738,35 +773,6 @@ Trishula - Time Waits For No Man (2020) [MP3|320 Kbps] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4363DFC53870E5831A74DA36F550086A8AFF9BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411270   (427525) от 25.09.2020
-
-The Rolling Stones - Steel Wheels Live (Live From Atlantic City, NJ, 1989) (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Me Up (Live) (03:47)
- 02. Bitch (Live) (03:28)
- 03. Sad Sad Sad (Live) (03:47)
- 04. Undercover Of The Night (Live) (04:21)(   Читать дальше...   )Жанр: RockПродолжительность: 02:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66B8008A116026ED55A3432B149F7050679E3A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1640952   (196743) от 20.06.2023
+
+Алексей Левошко | Пособие будущему ополченцу (2020) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет из себя учебное пособие по быстрому построению эффективных боевых структур и быстрого обучения неквалифицированных солдат. Эта книга — концентрация реального боевого опыта современной войны. Войны, которую ведут те люди и с теми навыками, которые есть в реальности, а не те солдаты, которые смотрят на нас с пропагандистских плакатов. И эта война (   Читать дальше...   )Жанр: Военное дело, учебное пособиеИздательство: Координационный центр Помощи НовороссииФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97EF6ADCFD28F0BD78C4C4B6066D22F1C138DF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642383   (196436) от 27.06.2023
+
+М.С. Григорьев,  М.Ю. Мягков | Черная книга (2023) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196436.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «Чёрной книге» приведены страшные свидетельства о пытках, насилиях, убийствах, совершённых украинскими неонацистами и военнослужащими ВСУ в 2014–2023 годах. Люди в нашей стране и за рубежом должны знать, что все военные преступники, защищающие киевский режим, понесут заслуженное наказание. Следственный комитет России, Международный общественный трибунал по преступлениям (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1EC8885D83622BBE7DD5B0B14F3AB49E62F4B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592009   (196275) от 03.07.2023
+
+Элизабет Шимпфёссль | Безумно богатые русские. От олигархов к новой буржуазии (2022) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Противоречивая слава российских олигархов давно выплеснулась за пределы страны, где они сколотили свои капиталы. Весь мир сплетничает о них, то посмеиваясь, то осуждая, однако с неизменным удовольствием берет их деньги. А что они думают о себе сами?
+Австрийская социолог Элизабет Шимфёссль, вот уже пятнадцать лет живущая в Лондоне, столице олигархов, провела сотню (   Читать дальше...   )Жанр: Социология, публицистикаПеревод: Ирина ЕвстигнееваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258FE2A4F46DD010FAC9209D8BB51300AA2ED388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648918   (195099) от 29.07.2023
 
 Александр Невзоров | Происхождение личности и интеллекта человека. Опыт обобщения данных классической нейрофизиологии (2020) [PDF, EPUB]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195099.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195097.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195052.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193720.jpg" />
+  <img src="Z:/picture/004/save_picture_193720.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192572.jpg" />
+  <img src="Z:/picture/004/save_picture_192572.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192354.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192324.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191982.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191542.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190572.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189909.jpg" />
 </div>
 
 
@@ -300,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189722.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189593.jpg" />
 </div>
 
 
@@ -354,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188857.jpg" />
 </div>
 
 
@@ -380,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188676.jpg" />
 </div>
 
 
@@ -407,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187773.jpg" />
 </div>
 
 
@@ -433,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186047.jpg" />
+  <img src="Z:/picture/005/save_picture_186047.jpg" />
 </div>
 
 
@@ -459,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186034.jpg" />
+  <img src="Z:/picture/005/save_picture_186034.jpg" />
 </div>
 
 
@@ -486,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185292.jpg" />
+  <img src="Z:/picture/004/save_picture_185292.jpg" />
 </div>
 
 
@@ -512,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184973.jpg" />
+  <img src="Z:/picture/004/save_picture_184973.jpg" />
 </div>
 
 
@@ -538,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184255.jpg" />
+  <img src="Z:/picture/004/save_picture_184255.jpg" />
 </div>
 
 
@@ -566,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183213.jpg" />
+  <img src="Z:/picture/004/save_picture_183213.jpg" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182254.jpg" />
 </div>
 
 
@@ -603,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF36D689977A900F14B723AC5AF82E0C5465F491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665502   (182181) от 30.09.2023
-
-Хайнц Фельфе | Мемуары разведчика (1988) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор, бывший офицер разведки германского рейха, затем сотрудник западногерманской разведывательной службы БНД, рассказывает о сложном пути, который привел его к борьбе против тех, кто строит планы подготовки новой войны. В книге разоблачаются подрывные акции западных спецслужб против СССР, других социалистических стран.Жанр: Мемуары, СпецслужбыИздательство: ПолитиздатФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1CC16ACF28330FF51A7CF503D2D71FC3B28581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665492   (182140) от 30.09.2023
-
-Эрвин Ставинский | Восемнадцатое мгновение весны. Подлинная история Штирлица (2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чекист Максим Максимович Исаев, он же Всеволод Владимирович Владимиров, он же штандартенфюрер СС Штирлиц – кем на самом деле был этот человек? О трагической судьбе особо ценного агента внешней разведки НКВД – Вильгельма Лемана (А/201, «Брайтенбах»), настоящего, а не придуманного Штирлица рассказывает эта книга.Жанр: Спецслужбы, БиографияИздательство: АлгоритмФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842D8B41DB5D6029DFA95212786F064B4D516D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427700   (182092) от 29.11.2020
-
-Александр Абалов, Владислав Иноземцев | Бесконечная империя: Россия в поисках себя (2021) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182092.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге историк Александр Абалов и экономист и публицист Владислав Иноземцев рассматривают прошлое, настоящее и будущее нашей страны с точки зрения эволюции ее имперской сущности. По мнению авторов, Россия являлась и является бесконечной империей: с самого зарождения и до наших дней, как бы ни называлась страна, она воспроизводила и воспроизводит имперские стратегии (   Читать дальше...   )Жанр: История, Политология, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC820E1FFC58687DBFEB3A6A41E008D09C55A4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

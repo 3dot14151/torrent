@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1862193   (1062978) от 
+
+Квартирник у Маргулиса. Калинов Мост (28.03.2026) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062978.jpg" />
+</div>
+
+
+###  Подробнее
+
+На НТВ — камерный концерт легенд отечественного рока, группы «Калинов Мост». В гостях у Евгения Маргулиса участники коллектива поделились подробностями о грядущем туре, а также исполнили свои главные хиты: «Сберегла», «Вслед за мной», «Четыре стороны», «Камушек», «Цветная», «Сон наградой». Зрители погрузились в атмосферу живого звучания знаковых композиций группы (   Читать дальше...   )00:00:06 Сберегла
+00:06:26 Вслед за мной
+00:13:06 Четыре стороны
+00:19:49 Камушек(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: фолк-рок, арт-рок, блюз-рокЯзык: РусскийПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4CB73ED3FAD159C5BC79A6C2202B0F8A0CC61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861473   (1062458) от 
+
+Fuki & Unlucky Morpheus - Fuki Fes Live (2016) [AV1/1080p] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Fuki (Unlucky Morpheus) - Fuki Fes. 2016 LIVE (Shinjuku ReNY 13.11.2016)01. Welcome to My Dream (instrumental)
+02. I'll Never Let You Down!
+03. Liberator
+04. Boku ga Ikiru Sekai / 僕が生きる世界(   Читать дальше...   )Жанр: Speed Metal, Power Metal, ProgressiveРежиссер: Nozomu Wakai, Takeshi NomuraУчастники: Fuki, Mao, ISAO, Atsushi Hasegawa, Takeo Shimoda, Hideki Otsuka, Nozomu Wakai, EijiroПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DBFF5E9B33A83C3E39547FF8CE9FDFF5E02D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860724   (1062019) от 
+
+Квартирник у Маргулиса. Женя Любич. Песни на стихи поэтов (21.03.2026) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя Любич на «Квартирнике НТВ у Маргулиса» представила атмосферную программу, исполнив композиции на стихи классиков мировой литературы (таких как Шекспир, Верлен) и поэтов Серебряного века. Певица, известная как «русская француженка», порадовала зрителей акустическим звучанием, сочетая французский шарм с авторской поэзией.00:00:06 Небо и звезды
+00:07:23 Кино и вино
+00:11:36 My Heart’s in the Highlands
+00:18:20 Ville de France(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-попЯзык: РусскийПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB485D5F845FBA9E1C46F03D5198A8C92E8D3CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859967   (1061611) от 
 
 Праздничный концерт - "«Эхо любви» Роберта Рождественского" (2025) WEBRip [H.264/1080p]
@@ -7,7 +94,7 @@ https://t.me/izofen
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061611.jpg" />
+  <img src="Z:/picture/005/save_picture_1061611.jpg" />
 </div>
 
 
@@ -36,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061457.jpg" />
+  <img src="Z:/picture/005/save_picture_1061457.jpg" />
 </div>
 
 
@@ -62,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061377.jpg" />
+  <img src="Z:/picture/005/save_picture_1061377.jpg" />
 </div>
 
 
@@ -88,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061226.jpg" />
+  <img src="Z:/picture/005/save_picture_1061226.jpg" />
 </div>
 
 
@@ -117,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061116.jpg" />
 </div>
 
 
@@ -146,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060807.jpg" />
+  <img src="Z:/picture/005/save_picture_1060807.jpg" />
 </div>
 
 
@@ -175,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059992.jpg" />
+  <img src="Z:/picture/005/save_picture_1059992.jpg" />
 </div>
 
 
@@ -204,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057980.jpg" />
+  <img src="Z:/picture/005/save_picture_1057980.jpg" />
 </div>
 
 
@@ -233,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057718.jpg" />
+  <img src="Z:/picture/005/save_picture_1057718.jpg" />
 </div>
 
 
@@ -259,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057124.jpg" />
+  <img src="Z:/picture/005/save_picture_1057124.jpg" />
 </div>
 
 
@@ -288,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055026.jpg" />
+  <img src="Z:/picture/005/save_picture_1055026.jpg" />
 </div>
 
 
@@ -317,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053904.jpg" />
+  <img src="Z:/picture/005/save_picture_1053904.jpg" />
 </div>
 
 
@@ -346,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050841.jpg" />
+  <img src="Z:/picture/005/save_picture_1050841.jpg" />
 </div>
 
 
@@ -372,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050213.jpg" />
+  <img src="Z:/picture/005/save_picture_1050213.jpg" />
 </div>
 
 
@@ -401,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049562.jpg" />
+  <img src="Z:/picture/005/save_picture_1049562.jpg" />
 </div>
 
 
@@ -430,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048522.jpg" />
+  <img src="Z:/picture/008/save_picture_1048522.jpg" />
 </div>
 
 
@@ -459,7 +546,7 @@ Andrea Bocelli: The Celebration 30th Anniversary (2025) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048328.jpg" />
+  <img src="Z:/picture/008/save_picture_1048328.jpg" />
 </div>
 
 
@@ -485,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047448.jpg" />
+  <img src="Z:/picture/008/save_picture_1047448.jpg" />
 </div>
 
 
@@ -514,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046376.jpg" />
 </div>
 
 
@@ -543,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044844.jpg" />
 </div>
 
 
@@ -570,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044630.jpg" />
 </div>
 
 
@@ -596,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044608.jpg" />
 </div>
 
 
@@ -622,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044386.jpg" />
 </div>
 
 
@@ -636,91 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C0D48C2752C6631C8B07A8CA1E44B0ECEA8A834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607622   (1043948) от 27.01.2023
-
-Trident — Blue Field, Finale Concert (2016) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй и последний живой концерт группы Trident, сформированной из сэйю, озвучивавших героев сериала Aoki Hagane no Arpeggio: Ars Nova. Исполняются песни с альбома Blue Field, посвящённого выходу второго полнометражного фильма Aoki Hagane no Arpeggio: Ars Nova - Cadenza. 
-01. アルペジオ
-02. 変わらない場所
-03. Expose(   Читать дальше...   )Производство: Япония | FlyingDog, Inc.Жанр: J-Pop, J-RockЯзык озвучки: ЯпонскийПродолжительность: 02:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7EAB4AEB6804CBC6AFF687888458822D52EA97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607294   (1043931) от 27.01.2023
-
-МузЛофт-подкаст / МузLoft. Тося Чайкина (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043931.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Свежая русская музыка. Про сложные отношения и работу со звездами. Всем привет, мы любим открывать для вас новые имена, знакомить с талантливыми артистами и сегодняшний выпуск как раз про такого человека. Знакомьтесь - Тося Чайкина. Ну, а дальше она сама расскажет (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: Инди-поп, поп, R`n`BЯзык озвучки: РусскийПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335B22185D5081F9DFF543B5C7B355C720CA1AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607620   (1043925) от 27.01.2023
-
-Trident — Blue Snow, 1st Live Concert (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый живой концерт группы Trident, сформированной из сэйю, озвучивавших героев сериала Aoki Hagane no Arpeggio: Ars Nova. Исполняются песни с альбома Blue Snow, посвящённого выходу первого полнометражного фильма Aoki Hagane no Arpeggio: Ars Nova - DC. 
-01. 7儿一.フイ一ルド
-02. Sentimental Blue
-03. Purest Blue(   Читать дальше...   )Производство: Япония | FlyingDog, Inc.Жанр: J-Pop, J-RockЯзык озвучки: ЯпонскийПродолжительность: 02:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA21AFF0F170BAF1FA0BE30315860CBF14BAC18
 ```
 
 https://mybot314.ru/tekegram_catalog/

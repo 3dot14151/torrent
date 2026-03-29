@@ -1,3 +1,148 @@
+###  Публикация: 703649   (458705) от 26.09.2013
+
+ZZ Top - ZZ Top's First Album (1970) SHM-CD, 2013, Warner Music [FLAC|Lossless|image + .cue]<Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  (Somebody Else Been) Shaking Your Tree   (2:35)
+02.  Brown Sugar   (5:25)
+03.  Squank   (2:49)
+04.  Goin' Down To Mexico   (3:24)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1231E20429BB745AF0C32CB586F6BC4CEECB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408013   (458298) от 11.09.2020
+
+The Beauty of Gemina - Skeleton Dreams (2020) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	A Night Like This
+02.	Naked
+03.	Maybe God Knows
+04.	Friends Of Mine(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42B7671F97E46FE006E8A9C7E0E2E207C9884BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942084   (458214) от 29.09.2015
+
+Rick Miller - Immortal Remains (2013) [FLAC|image+.cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rats In My Darkness 3:00
+02. Ode To An Angel 9:20
+03. Like A Drug 5:12
+04. The Hands Of Time 10:19(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6A2C511B8BA0988E1A276D8FCF7C11BFC522CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942068   (458125) от 29.09.2015
+
+Rick Miller - Heart Of Darkness (2014) [FLAC|image+.cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of Darkness 06:20
+02. Blood Of The Rose 10:03
+03. Castle Walls 05:06
+04. The Dark Lady 13:26(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F956C76FAEB461AAA443D67A70CE394D72301C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941987   (457976) от 29.09.2015
+
+Artful Dodger - Artful Dodger (1975)/Remastered/1997, P.E.G./[FLAC|tracks+.cue]<Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayside (4:22)
+02. You Know It's Alright (3:33)
+03. It's Over (4:06)
+04. Follow Me (3:45)(   Читать дальше...   )Жанр: Power PopПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E0D2147ECDAA1C895802403767BC5BEE8731C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941979   (457973) от 29.09.2015
 
 Chris Cornell - Higher Truth (2015) Deluxe Edition [FLAC|image+.cue]<Rock, Alternative Rock, Grunge>
@@ -6,7 +151,7 @@ Chris Cornell - Higher Truth (2015) Deluxe Edition [FLAC|image+.cue]<Rock, Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457973.jpg" />
+  <img src="Z:/picture/008/save_picture_457973.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Clive Nolan & Oliver Wakeman - The Hound Of The Baskervilles (2002) [APE|image+.
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457972.jpg" />
+  <img src="Z:/picture/008/save_picture_457972.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Fluance Featuring Duncan Mackay - Lunacy (2020) Japanese Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457942.jpg" />
+  <img src="Z:/picture/008/save_picture_457942.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Cockney Rebel - The Human Menagerie (1973) Reissue, Unofficial Release, 1999, Li
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457857.jpg" />
+  <img src="Z:/picture/008/save_picture_457857.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Dark Side Of The Moon A Cappella - Dark Side Of The Moon A Cappella (2005) [APE|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457804.jpg" />
+  <img src="Z:/picture/008/save_picture_457804.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Ladies Sing The Boss (2022) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457781.jpg" />
+  <img src="Z:/picture/008/save_picture_457781.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Elvis Presley - Elvis Movies (2006) [FLAC|Lossless|image + .cue] <Rock'N'Roll, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456801.jpg" />
+  <img src="Z:/picture/008/save_picture_456801.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ The Heavy's - Mega Metal Marathon (2008) [FLAC|Lossless|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456629.jpg" />
+  <img src="Z:/picture/008/save_picture_456629.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Equisa - Strange Release (2013) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456134.jpg" />
+  <img src="Z:/picture/008/save_picture_456134.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ Alcantara - Solitaire (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456120.jpg" />
+  <img src="Z:/picture/008/save_picture_456120.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ Soft Heap (Soft Head) - 4 альбома (1978-2009) Дискография [Wav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455190.jpg" />
+  <img src="Z:/picture/008/save_picture_455190.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Closure In Moscow - Pink Lemonade (2014) [FLAC|Lossless|tracks + .cue] <Prog Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454943.jpg" />
+  <img src="Z:/picture/008/save_picture_454943.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ Beefeaters - Secret Tapes (1968) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454801.jpg" />
+  <img src="Z:/picture/008/save_picture_454801.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Eklipse - Electric Air (2013) [FLAC|Lossless]<Instrumental Symphonic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453957.jpg" />
+  <img src="Z:/picture/008/save_picture_453957.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ VA - AngelHeaded Hipster: The Songs Of Marc Bolan & T. Rex (2020) 2xCD [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453917.jpg" />
+  <img src="Z:/picture/008/save_picture_453917.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Knight Area - D-Day II - The Final Chapter (2022) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453823.jpg" />
+  <img src="Z:/picture/008/save_picture_453823.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Fortune - Level Ground (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451812.jpg" />
+  <img src="Z:/picture/008/save_picture_451812.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ New Haven - New Haven (1987-1990) Compilation, 2022, FnA Records [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451793.jpg" />
+  <img src="Z:/picture/008/save_picture_451793.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Hydra - Point Break (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451789.jpg" />
+  <img src="Z:/picture/008/save_picture_451789.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ Sinead O'Connor - Sean-Nos Nua (2002) [APE|image+.cue]<Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451748.jpg" />
+  <img src="Z:/picture/008/save_picture_451748.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ James House - The L.A Tapes: Classic Rock Years (2022) 2 x CD, Compilation, Rema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451517.jpg" />
+  <img src="Z:/picture/008/save_picture_451517.jpg" />
 </div>
 
 
@@ -595,151 +740,6 @@ James House наиболее известен как кантри-звезда �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B07EE44A7FC2444B12F62FD5CD1655E4FC54305F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247729   (451210) от 16.09.2018
-
-Per Gessle - Small Town Talk (2018) BMG [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's A Place (3:19)
- 02. The Finest Prize (feat. Helena Josefsson) (4:11)
- 03. Small Town Talk (feat. Nick Lowe) (3:40)
- 04. Simple Sound (3:45)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1067970723E6155D0D1D196BAF1C260621703ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943127   (451181) от 02.10.2015
-
-VA - 100 Hits: Rock (2007) 5CD Box Set [FLAC|track+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия 100 Hits широко известна в музыкальном мире, да и на трекере представлена достаточно полно (см. ссылку в конце поста). Но вот рок-направление упущено и сегодня восполняем этот пробел пятидисковым бокссетом. Я долго терзался сомнениями: выкладывать диск или нет - уж больно плохо поработали с ним звукоинженеры. Но потом всё же решил выложить, а там пусть каждый (   Читать дальше...   )CD1:
-01. T. Rex - Children Of The Revolution  (2:30)
-02. Zz Top - Tush  (2:17)
-03. Santana - She's Not There  (4:03)(   Читать дальше...   )Продолжительность: 06:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2A6FB05D408A798680CE2B7B114C42F4F9508E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061133   (451135) от 09.10.2016
-
-Comus - Song To Comus: The Complete Collection (2005) 2CD [WavPack|Lossless|image + .cue] <Prog Rock, Folk Rock, Acid Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451135.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Down (Like a Movie Star) (4:07)
-2. Touch Down (4:46)
-3. Waves and Caves (1:34)
-4. Figure in Your Dreams (3:11)(   Читать дальше...   )Жанр: Prog Rock, Folk Rock, Acid FolkПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C2883FE5488CF4DE1930F36856ADD519668402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247837   (450927) от 16.09.2018
-
-T. Rex - Gold (2018)(3CD Box Set)[FLAC|Lossless|image + .cue] <Classic Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Debora [03:09]
-02. One Inch Rock [01:47]
-03. King Of The Rumbling Spires [02:09]
-04. By The Light Of A Magical Moon [02:50](   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 02:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B8573254A0F38A57F8EC18AA8F23D7E9F5163E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247695   (450916) от 16.09.2018
-
-Uriah Heep - Easy Livin' (The Masters Collection) (2018) 2CD [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Livin' (2:36)
- 02. Gypsy (6:38)
- 03. Stealin' (4:50)
- 04. One Way Or Another (4:40)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Progressive RockПродолжительность: 02:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51793D377EDF21C93DA0115E51BAE273B9132436
 ```
 
 https://mybot314.ru/tekegram_catalog/

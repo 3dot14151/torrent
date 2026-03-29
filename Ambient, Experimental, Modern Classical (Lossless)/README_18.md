@@ -1,3 +1,32 @@
+###  Публикация: 1833806   (247785) от 02.11.2025
+
+Eguana - Silent Pulsar (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247785.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Fracture (5:20)
+2. Echoes Beyond Saturn (5:17)
+3. Transgalactic Silence (1:41)
+4. Graviton Flow (4:26)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCA7C9B0835C03F863B48FB78CF8D04C377EC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452102   (244647) от 05.03.2021
 
 Aura Minimum - Fragments (2021) Strange Key [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Dub Techno>
@@ -6,7 +35,7 @@ Aura Minimum - Fragments (2021) Strange Key [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244647.jpg" />
+  <img src="Z:/picture/004/save_picture_244647.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ I/O - Calm (2001) Room40 [FLAC|Lossless|tracks+.cue] <Ambient, Minimal, Experime
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244359.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Void Stasis - Viral Incubation (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243772.jpg" />
+  <img src="Z:/picture/004/save_picture_243772.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Francesca Lee - Moonhattan (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Synthpop,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243623.jpg" />
+  <img src="Z:/picture/004/save_picture_243623.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243394.jpg" />
+  <img src="Z:/picture/004/save_picture_243394.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Daniel Avery - More Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electron
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240813.jpg" />
+  <img src="Z:/picture/004/save_picture_240813.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ IzangoMa - Ngo Ma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238907.jpg" />
+  <img src="Z:/picture/004/save_picture_238907.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sangam - Until (2016) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Ambient, Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237910.jpg" />
+  <img src="Z:/picture/004/save_picture_237910.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Tim Schaufert - Our Wreckage (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237903.jpg" />
+  <img src="Z:/picture/004/save_picture_237903.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Daniel[i] - Terra Amica I (2020) Pyramid Blood Recordings [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237313.jpg" />
+  <img src="Z:/picture/005/save_picture_237313.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ Decisive Pink - Ticket to Fame (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Elect
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237163.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Eguana - Night Ambient (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235525.jpg" />
+  <img src="Z:/picture/004/save_picture_235525.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Kyle Bobby Dunn - FHTE-B (2019) Past Inside the Present [FLAC 2.0|44.1/24|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229511.jpg" />
+  <img src="Z:/picture/004/save_picture_229511.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ PGD/MV - Morvan (2019) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229334.jpg" />
+  <img src="Z:/picture/004/save_picture_229334.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Lauver - Celestial Bodies (2019) Past Inside the Present [FLAC 2.0|96/24|tracks|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229326.jpg" />
+  <img src="Z:/picture/004/save_picture_229326.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Polar Moon - As Above, So Below (2020) Past Inside The Present [FLAC 2.0|48/24|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229123.jpg" />
+  <img src="Z:/picture/004/save_picture_229123.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ db and Ishq - Inbetween (2020) Virtual [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229106.jpg" />
+  <img src="Z:/picture/004/save_picture_229106.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ Eguana - Night Ambient Vol​.​2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228347.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Will Dutta - 2 Albums (2012-2017) Just Music [FLAC|Lossless|tracks+.cue, tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228235.jpg" />
+  <img src="Z:/picture/005/save_picture_228235.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Lamasz - Nature Morte (2020) Past Inside The Present [FLAC 2.0|44.1/24|tracks|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227771.jpg" />
+  <img src="Z:/picture/005/save_picture_227771.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Arno Hoddinghaus (A/R/N/O/, ARNO, Höddinghaus) - Discography (1994-2014) [FLAC|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227768.jpg" />
+  <img src="Z:/picture/005/save_picture_227768.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ VA - Healing Sounds: A Compilation for Hurricane Recovery (2019) Past Inside the
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227669.jpg" />
+  <img src="Z:/picture/005/save_picture_227669.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ VA - Healing Sounds II: A Compilation For Those In Need (2020) Past Inside the P
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227632.jpg" />
+  <img src="Z:/picture/005/save_picture_227632.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227615.jpg" />
+  <img src="Z:/picture/005/save_picture_227615.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ Slow Dancing Society - The Torchlight Parade Vol. I & II (2020) Past Inside the 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227470.jpg" />
+  <img src="Z:/picture/005/save_picture_227470.jpg" />
 </div>
 
 
@@ -707,34 +736,6 @@ Slow Dancing Society - The Torchlight Parade Vol. I & II (2020) Past Inside the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01540A1253A8D28237C5E8485009E2FB2D6DB73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424704   (227450) от 17.11.2020
-
-r beny - The Dashboard Cast a Spectral Glow (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227450.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Dashboard Cast a Spectral Glow (05:03)
-2. Fjorda (04:56)
-3. Golden Larch Emerging in Spring (09:52)Жанр: Ambient, DroneПродолжительность: 00:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8118D3A5C72052DD1CE5EDE6564C7AE7A0BED95
 ```
 
 https://mybot314.ru/tekegram_catalog/

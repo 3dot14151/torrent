@@ -1,3 +1,81 @@
+###  Публикация: 1738534   (49130) от 23.07.2024
+
+Adobe Substance 3D Sampler 2024 4.5.0 (x64) Portable by 7997 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Substance 3D Sampler — это приложение нового поколения, позволяющее легко и просто создавать коллекции материалов. Можно смешивать и корректировать существующие материалы или создавать новые из фотографий и отсканированных изображений в высоком разрешении. Adobe Substance 3D Sampler лежит в основе вашего рабочего процесса 3D: без труда преобразуйте реальное (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE85682F57C5F5451661F98D0101721C51732A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738547   (49123) от 23.07.2024
+
+RizomUV Virtual Spaces / Real Space 2024.0.100 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49123.jpg" />
+</div>
+
+
+###  Подробнее
+
+RizomUV VS - это полнофункциональное приложение UV развертки, с функциями, превосходящими большинство предложений, представленных в настоящее время на рынке. В то время как его брат, RizomUV RS ((Real Spaces), предназначен для пространства САПР, RizomUV VS (Virtual Spaces) - это приложение UV развертки для индустрии компьютерной графики, от инди-кадров до игр, в (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5237747AD7EAA472C36999A12F94BAB06D8B242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744491   (46062) от 22.08.2024
+
+Sweet Home 3D 7.5 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sweet Home 3D – замечательная программа для создания плана дома и моделирования дизайна вашего интерьера. Программа написана на языке Java, является мультиязычной и исходный код у нее открытый. С помощью данной программы можно сделать планировку дома, добавить мебель и многое другое на свой вкус.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5E21C40D45BC1430BC36FC39DB222EFE315BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745421   (45590) от 26.08.2024
 
 Adobe Substance 3D Stager 2024 3.0.3 (x64) Portable by 7997 [Multi]
@@ -6,7 +84,7 @@ Adobe Substance 3D Stager 2024 3.0.3 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45590.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Adobe Substance 3D Modeler 2024 1.13.0.53 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45587.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Adobe Dimension 2024 4.0.3 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45585.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Blender 3.6.17 LTS + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40305.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ Chaos Enscape 3D 4.2.1.88 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34337.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ Lumion Pro 2024.4.2.0 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33014.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ LuBan 3D 06.02.2025 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27739.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ SolidRocks 2.5.0 for 3ds Max repack by MSI [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27537.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ Blender 4.2.9 LTS + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21280.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ Blender 4.4.1 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21176.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ Chaos Vantage 2.8.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19497.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ Autodesk 3ds Max 2026 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18273.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ SketchUp Pro 2025 25.0.660 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15720.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ SketchUp Pro 2025 25.0.660 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15719.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ Phaser Editor 4.11.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15181.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ Corona Renderer 13 for 3ds Max 2016-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12514.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ V-Ray 7.00.40 for Blender 4.2-4.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12283.jpg" />
 </div>
 
 
@@ -462,7 +540,7 @@ Rhinoceros 3D 8.21.25188.17001 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11981.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ Pepakura Designer 6.1.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11727.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ Luxion KeyShot Enteprise 2025.2 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10963.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ Cinema4D 2024.2.0 + Redshift 3.5.23 + RedGiant bundle 2024.0.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10933.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ Chief Architect Premier X17 Build 27.1.0.54 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10806.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ Room Arranger 10.1.0.716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8716.jpg" />
 </div>
 
 
@@ -604,85 +682,6 @@ Room Arranger - программа специально предназначен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:453353219C38FCFBAEA579500DFB06120BEFC6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811900   (8321) от 12.08.2025
-
-V-Ray 7.20.00 for 3ds Max 2021-2026 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8321.jpg" />
-</div>
-
-
-###  Подробнее
-
-V-Ray — мощный инструмент визуализации, нацеленный в первую очередь на фото-реалистичность. Имеет собственные камеры со схожими параметрами как и у настоящих фото-камер. Имеет собственные источники освещения и шейдеры материалов.
-Является одним из основных плагинов для архитектурной визуализации. Под V-ray "заточено" множество готовых 3d моделей и материалов, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D65F60BC6B8DBA9D4FB3012FF32C5ABE34BB364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814359   (6190) от 24.08.2025
-
-Дизайн Интерьера 3D 12.0 Repack (& Portable) by elchupacabra [Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6190.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10DAFE25209EC9B44004E0D12BFB9BD81284F390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814283   (5273) от 30.08.2025
-
-Room Arranger 10.2.0.732 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2D7255EEFD0671BCDE0059B7EA3FD3A4FE1C7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

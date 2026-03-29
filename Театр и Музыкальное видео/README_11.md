@@ -1,3 +1,167 @@
+###  Публикация: 740802   (985721) от 01.01.2014
+
+Дискотека 80-х (2014.01.01) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985721.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дискотека 80-х" - яркое и захватывающее шоу, ультрасовременная сценография, оригинальные творческие находки и, конечно же, незабываемая встреча с кумирами. Двадцать звездных имен, двадцать лучших, по мнению слушателей и команды радиостанции "Авторадио": Rick Astley, Ten Sharp, Sandra, Alphaville, Tomas Anders, Boney M, F.R. David, Pupo, Joy, (   Читать дальше...   )Жанр: КонцертАктеры: Олег Газманов, Игорь Николаев, Сергей Минаев, Владимир Маркин, Мираж, OttawanПродолжительность: 03:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8746B805BC24D0575141779DB20080033D7B4E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971501   (985686) от 03.01.2016
+
+Песня года 2015  (2016.01.01-02) HDTV [1080i-LQ] (части 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985686.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" - главный концерт страны. Участвуют все звезды!
+Каждый год в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, на любой дороге, в стороне любой песне ты не скажешь "до свидания", песня не прощается с тобой…"
+На сцене "Олимпийского" соберутся лучшие (   Читать дальше...   )Телекомпания: Россия HDЖанр: КонцертПродолжительность: 04:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAA598D86D8FF016246DD3D1133C6AC9BF65D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971308   (985476) от 03.01.2016
+
+Звёздные войны: Музыкальное путешествие (видео) / Star Wars: A Musical Journey (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иэн МакДайармид показывает клипы из 6 эпизодов легендарной фантастики компании «ЛукасАртс», сопровождённые музыкой Королевского филармонического оркестра и хора.Производство: СШАЖанр: МузыкаРежиссер: Типпи БушкинАктеры: Иен МакДермид (Ian McDiarmid)Перевод: ОтсутствуетПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A798FAA59BB73D9DCF4FB8C73DC60B63CFBD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971781   (985469) от 03.01.2016
+
+VA - Зимний марафон № 217: Новогодний Хит Парад (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (03.01.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Alex Blue ft. Judith - Dance (Official Video) (00:03:20)
+02. BBX ft. Paul Mayre - Longing 4 You (Official Video) (00:03:30)
+03. Brutto - Вечірнє сонце (Прем'ера!) (00:05:07)
+04. Cream - Change (Official Video) (00:04:06)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, Шансон, House, TranceПродолжительность: 01:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088145E58C425E846586F78B83C60351C3BF4525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612651   (985465) от 02.02.2013
+
+Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAC52A633086A4243A946E05A4FE6211079E63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971548   (985399) от 03.01.2016
+
+Легенды Ретро FM на РенТВ (2016.01.01)  SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодные фестивали в Москве и Санкт-Петербурге - это новогодний подарок от Ретро FM всем слушателям и зрителям. Очень много людей целый год работают над тем, чтобы в декабре порадовать поклонников хорошей музыки новым шоу, редкими артистами, свежими идеями. В 2015 году на «Легендах» произошло столько интересных событий, что удалось воплотить многое из того, что (   Читать дальше...   )01. ВИА "Самоцветы" - "Мой адрес - Советский Союз", "Синий иней"
+02. Bad Boys Blue - "You're a Woman"
+03. Алена Апина - "Ксюша", "Электричка"
+04. Riccardo Fogli - "Storie di Tutti i Giorni"(   Читать дальше...   )Телекомпания: РЕНЖанр: КонцертПродолжительность: 04:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3867CD706F78653F726F459531DAC9310C4731A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612657   (985283) от 02.02.2013
 
 System Of A Down - Rock in Rio [1080p] (2011) HDTV
@@ -6,7 +170,7 @@ System Of A Down - Rock in Rio [1080p] (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985283.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_984637.jpg" />
+  <img src="Z:/picture/005/save_picture_984637.jpg" />
 </div>
 
 
@@ -61,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_984636.jpg" />
+  <img src="Z:/picture/005/save_picture_984636.jpg" />
 </div>
 
 
@@ -87,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984633.jpg" />
 </div>
 
 
@@ -116,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984597.jpg" />
 </div>
 
 
@@ -143,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984551.jpg" />
 </div>
 
 
@@ -170,7 +334,7 @@ Michael Flatley Riverdance Live From New York (1998) DVDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984507.jpg" />
 </div>
 
 
@@ -196,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_984502.jpg" />
+  <img src="Z:/picture/005/save_picture_984502.jpg" />
 </div>
 
 
@@ -222,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984497.jpg" />
 </div>
 
 
@@ -248,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984470.jpg" />
 </div>
 
 
@@ -274,7 +438,7 @@ Stromae - Racine Carree Live (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984280.jpg" />
 </div>
 
 
@@ -303,7 +467,7 @@ DJ Smash & Семён Слепаков/Откат (2013).HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983877.jpg" />
 </div>
 
 
@@ -329,7 +493,7 @@ In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983443.jpg" />
 </div>
 
 
@@ -358,7 +522,7 @@ Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983439.jpg" />
 </div>
 
 
@@ -386,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982450.jpg" />
 </div>
 
 
@@ -412,7 +576,7 @@ VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982331.jpg" />
 </div>
 
 
@@ -438,7 +602,7 @@ Scorpions. Концерт "Get Your Sting & Blackout - Live In 3D" ( + доку�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982318.jpg" />
 </div>
 
 
@@ -468,7 +632,7 @@ Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982201.jpg" />
 </div>
 
 
@@ -494,7 +658,7 @@ VA - Millenium Sexy - Сборник популярных видеоклипов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982166.jpg" />
 </div>
 
 
@@ -520,7 +684,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982158.jpg" />
 </div>
 
 
@@ -533,179 +697,6 @@ VA - 50 Самых сексуальных музыкальных видео вс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5812635B529BEB61577F370DBCA95AD64ECC80D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435845   (982061) от 13.01.2012
-
-VA - 50 Самых сексуальных музыкальных видео всех времен - 2 Часть (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: ~01:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366AE2F7306707E3437B9757383E9625C2DDEC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972598   (981735) от 06.01.2016
-
-Квартирник у Маргулиса - Евгений Маргулис (2015) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса сам хозяин квартиры - Евгений Магрулис. Выпуск посвящен юбилею Евгения Шулимовича. Дата эфира: 26.12.2015.01. Последняя-2
-02. Я рядом с тобой
-03. Джаз
-04. Заносит(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C8F40A44777FC9A60DA65890FB0F58C64FA41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972334   (981624) от 06.01.2016
-
-Квартирник у Маргулиса. Новогодний квартирник. Часть 2 (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречай Новый год вместе с Евгением Маргулисом и его знаменитыми гостями. В новогоднюю ночь на квартирнике соберутся вместе лучшие исполнители: Алексей Кортнев, Александр Пушной, Варвара Визбор и многие другие. В теплой и душевной атмосфере гости квартирника встретят Новый год и исполнят зажигательные композиции для вас. Дата эфира: 01.01.201601. Песенка о белых медведях - Алексей Кортнев
-02. Невезуха - Александр Пушной & Виктория Айзентир
-03. Серега, вынеси елку - Николай Гринько
-04. Желтые глаза - Евгений Феклистов(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77353A73BEC4E3ACFEA512661FAC0A6CD6688227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972192   (981621) от 06.01.2016
-
-Квартирник у Маргулиса. Новогодний квартирник. Часть 1 (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Квартирника не будет! Сегодня будет Новогодник! Встречайте Новый год в веселой компании лучших музыкантов (Найк Борзов, Алексей Кортнев, Александр Пушной, Сергей Галанин, Александр Шевченко,Валерий Сюткин) и радушного хозяина Евгения Маргулиса. Скучно не будет! Дата эфира: 31.12.201501. Песня Зайца и Волка
-02. Верхом на звезде - Найк Борзов
-03. Ради Любви - Найк Борзов
-04. Новый год и Белка - Мангo-Манго(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B8301EE8DEB0FDEA24F081301C6E9EBB41B4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613445   (981342) от 05.02.2013
-
-Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192E56324315FEA2F6D16F20646295D40BFC079B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613728   (981335) от 05.02.2013
-
-Концерт Примадонн VH1 / VH1 Divas Live (2009) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981335.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 сентября - день возвращения пользующегося популярностью концертного шоу VH1 Divas. Премьера новейшего сезона свершилась в Нью-Йорке.(   Читать дальше...   )01. Paula Abdul - Medley: Cold Hearted Snake/Opposites Attract/Straight Up/Forever Your Girl
-02. Jennifer Hudson - Spotlight
-03. Kelly Clarkson - Already Gone
-04. Jordin Sparks - S.O.S. (Let the Music Play)
-05. Adele - Hometown Glory
-06. Leona Lewis - Happy
-07. Leona Lewis & Cyndi Lauper - True Colors
-08. Miley Cyrus - Party in the U.S.A.
-09. Adele & India Arie - Video(   Читать дальше...   )Жанр: Концерт, Pop, R'n'BПродолжительность: 01:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D3C628D64D3DEE3DE2C5EE2E67BFF911213921
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1041856   (581380) от 10.08.2016
+
+Евгений Гаглоев | Сотрясающий землю (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый роман цикла «Пардус»
+В четвертой книге серии «Пардус» из тени наконец-то выходит профессор Штерн со своей прекрасной дочерью. Их появление вызывает цепь страшных и кровавых событий, которые конечно же затрагивают Никиту и самых близких ему людей. И в буквальном, и в переносном смысле земля уходит у него из-под ног, тучи воронья кружат над головой, да еще (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2BF5FFFB526C34E5F6F9EAB999A795292183E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302332   (581314) от 15.05.2019
 
 Юрий Стрехнин | Легенда о флаге (1969) [FB2]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581314.jpg" />
+  <img src="Z:/picture/008/save_picture_581314.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581248.jpg" />
+  <img src="Z:/picture/008/save_picture_581248.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581181.jpg" />
+  <img src="Z:/picture/008/save_picture_581181.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581146.jpg" />
+  <img src="Z:/picture/008/save_picture_581146.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581120.jpg" />
+  <img src="Z:/picture/008/save_picture_581120.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581022.jpg" />
+  <img src="Z:/picture/008/save_picture_581022.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580586.jpg" />
+  <img src="Z:/picture/008/save_picture_580586.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580533.jpg" />
+  <img src="Z:/picture/008/save_picture_580533.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580433.jpg" />
+  <img src="Z:/picture/008/save_picture_580433.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580336.jpg" />
+  <img src="Z:/picture/008/save_picture_580336.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580191.jpg" />
+  <img src="Z:/picture/008/save_picture_580191.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580189.jpg" />
+  <img src="Z:/picture/008/save_picture_580189.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580183.jpg" />
+  <img src="Z:/picture/008/save_picture_580183.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580081.jpg" />
+  <img src="Z:/picture/008/save_picture_580081.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579404.jpg" />
+  <img src="Z:/picture/008/save_picture_579404.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579081.jpg" />
+  <img src="Z:/picture/008/save_picture_579081.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578859.jpg" />
+  <img src="Z:/picture/008/save_picture_578859.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578661.jpg" />
+  <img src="Z:/picture/008/save_picture_578661.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578629.jpg" />
+  <img src="Z:/picture/008/save_picture_578629.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578585.jpg" />
+  <img src="Z:/picture/008/save_picture_578585.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578448.jpg" />
+  <img src="Z:/picture/008/save_picture_578448.jpg" />
 </div>
 
 
@@ -567,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578272.jpg" />
+  <img src="Z:/picture/008/save_picture_578272.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578183.jpg" />
+  <img src="Z:/picture/008/save_picture_578183.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577743.jpg" />
+  <img src="Z:/picture/008/save_picture_577743.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577712.jpg" />
+  <img src="Z:/picture/008/save_picture_577712.jpg" />
 </div>
 
 
@@ -658,34 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B706A814AB153C1DBAB61E1A344CEB5541815348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920949   (577354) от 24.07.2015
-
-Николай Некрасов | Избранная лирика (1986) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу входят такие стихотворения, как «Тройка», «Перед дождем», «Я за то глубоко презираю себя...», «Блажен незлобивый поэт...», «Муза», «Несжатая полоса», «Безвестен я...», «Школьник», «Тишина», «Три эллегии», «Сеятелям» и др. Поэзию Некрасова, глубоко лирическую, страстную по своей сути, отличают вместе с тем суровое мужество и неколебимая вера в народ.
-
-Для (   Читать дальше...   )Жанр: Поэзия, лирикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18177AC69D2AD2B5D43FD329ADAECACFC9C6528
 ```
 
 https://mybot314.ru/tekegram_catalog/

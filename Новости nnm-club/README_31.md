@@ -1,3 +1,108 @@
+###  Публикация: 981837   (949241) от 02.02.2016
+
+Главный (2015) WEBRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что Сергей Королев запустил в космос и Первый искусственный спутник Земли, и Лайку, и Гагарина, и вывел в открытый космос Алексея Леонова. Но никто не знает, насколько ему было трудно преодолеть и косность партийного руководства, и недоверие коллег. Но, как сказал один из его соратников, что у Королева все получалось потому, что ему верили и знали, что (   Читать дальше...   )Производство: РоссияЖанр: история, драмаРежиссер: Юрий КараАктеры: Валерий Гришко, Борис Щербаков, Лидия Арефьева, Алексей Богачук, Федор Лавров, Георгий Солдатов, Борис Каморзин, Анатолий Котенёв, Вадим Андреев, Александр КузнецовПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE2838CFFE7CC1C537E1F8BA67F3FBDD8DAB374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089979   (948489) от 05.01.2017
+
+Tixati 2.51 + Portable [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tixati — это полноценный и бесплатный клиент сети BitTorrent, простой и легкий в использовании. Предоставляет пользователю расширенные возможности по управлению раздачами, как в отношении локальных файлов, так и сетевых соединений. Программа не требовательна к системным ресурсам, потребляет меньше оперативной памяти по сравнению с последними версиями µTorrent. Приятным (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FD7D5F85CD8FA3E6A637B95426FC27BB7531E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089745   (948434) от 05.01.2017
+
+Прекрасное далеко: в Сети обнаружили советский диафильм с предсказаниями на 2017 год
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каким видели 2017-й в советском диафильме 1960 года
+В соцсетях кто-то вспомнил советский комикс, датированный 1960 годом. В нём художники и авторы студии «Диафильм» фантазировали на тему того, какой будет страна советов в годовщину Великой Октябрьской революции, то есть в 2017 году. Авторам диафильма удалось спрогнозировать некоторые технические новинки, однако ряд (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090064   (948397) от 05.01.2017
+
+Diskeeper 16 Professional 19.0.1214.0 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diskeeper – быстрый дефрагментатор для Windows, который работает в шесть раз быстрее встроенных средств дефрагментации. Программа использует минимум системных ресурсов для поддержания максимальной производительности. Дефрагментация выполняется в фоновом режиме, не мешая работе пользователя. Интеллектуальное планирование динамически корректирует расписание процесса (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F782DA7EEF43C4238122424608B6BAFBDD70F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040088   (948391) от 05.01.2017
 
 This Is the Police (2016) [Ru/Multi] (1.0.50) Repack Other s
@@ -6,7 +111,7 @@ This Is the Police (2016) [Ru/Multi] (1.0.50) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948391.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Paragon Migrate OS to SSD 5.0 v10.1.28.154 Boot Medias [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948387.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948384.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948189.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948171.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ Adguard 6.0.183.953 RC3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947894.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947788.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ S.T.A.L.K.E.R.: Тень Чернобыля - Альтернатива (2016) [R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947787.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947558.jpg" />
 </div>
 
 
@@ -249,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947551.jpg" />
 </div>
 
 
@@ -275,7 +380,7 @@ Udemy | Полный Курс Python 3: от Новичка до Мастера 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947550.jpg" />
 </div>
 
 
@@ -303,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947132.jpg" />
 </div>
 
 
@@ -329,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946817.jpg" />
 </div>
 
 
@@ -355,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946768.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ Linux Mint 17.1 Rebecca XFCE [x32, x64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946693.jpg" />
 </div>
 
 
@@ -410,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946685.jpg" />
 </div>
 
 
@@ -436,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946599.jpg" />
 </div>
 
 
@@ -462,7 +567,7 @@ Advanced Systemcare Pro 9.1.0.1090 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946345.jpg" />
 </div>
 
 
@@ -488,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946327.jpg" />
 </div>
 
 
@@ -514,7 +619,7 @@ Acronis True Image 19.0.6027 + Universal Restore 11.5.40010 + Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946320.jpg" />
 </div>
 
 
@@ -540,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946315.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946313.jpg" />
 </div>
 
 
@@ -577,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC362E5C6E5EAB7A48B8F53C05C7BEF7EFD631D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215866   (946289) от 25.02.2020
-
-Лёд (2018) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946289.jpg" />
-</div>
-
-
-###  Подробнее
-
-С самого детства Надя верила в чудеса. Она представляла себе, как выходит на лёд под овации публики и танцует свой самый красивый танец. И вот, благодаря вере и упорству, Надя становится знаменитой фигуристкой. Но когда ее мечты о громких победах, красивой жизни и прекрасном принце уже, кажется, готовы исполниться, судьба преподносит ей настоящее испытание. И чтобы (   Читать дальше...   )Производство: Россия, Телеканал «РОССИЯ 1», Кинокомпания «Водород», Art Pictures StudioЖанр: Мелодрама, Драма, СпортРежиссер: Олег ТрофимАктеры: Аглая Тарасова, Диана Енакаева, Мария Аронова, Александр Петров, Милош Бикович, Ян Цапник, Ксения Раппопорт, Ксения Лаврова-Глинка, Павел МайковПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D352214AF98FA9309DD91EB352B0C74A2156EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751267   (945711) от 30.01.2014
-
-Советник / The Counselor (2013) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный адвокат, стоящий практически на вершине успеха и на пороге собственной свадьбы, из любопытства и, конечно, ради денег соглашается на предложение своего давнего знакомого, имеющего тесные связи с преступным миром, перевезти из Мексики в США партию кокаина стоимостью 20 млн. долл.Производство: США, Великобритания / Chockstone PicturesЖанр: Триллер, Криминал, ДрамаРежиссер: Ридли Скотт / Ridley ScottАктеры: Майкл Фассбендер, Хавьер Бардем, Брэд Питт, Натали Дормер, Пенелопа Крус, Кэмерон Диаз, Дин Норрис, Джон Легуизамо, Рози Перес, Горан ВишничПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CBC680EF4AEF83E36680E5B94678CC6DAE09E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090588   (945498) от 07.01.2017
-
-Intel Compute Card — компьютер размером с кредитную карту
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Intel представила новую модульную компьютерную платформу. Она называется Intel Compute Card и призвана ускорить развитие интернета вещей за счет увеличения количества «умных и подключенных устройств». В ее продвижении Intel полагается на своих партнеров.Платформа Intel Compute Card имеет размеры 95 x 55 x 5 мм. При этом она включает все элементы полноценного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090326   (945412) от 07.01.2017
-
-Total Commander 9.0a LitePack | PowerPack | ExtremePack 2017.1 Final + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82B240C4E56CD074BD08A4A026754FCDAC47FCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

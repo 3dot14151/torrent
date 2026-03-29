@@ -1,3 +1,163 @@
+###  Публикация: 1804362   (12305) от 07.07.2025
+
+Чем советские киносказки 1970-х годов отличаются от фильмов 1960-х?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12305.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Если совсем кратко, то от советских фильмов для детей 1960-х годов киносказки 1970-х отличают две основные вещи: непременная философская идея и слегка печальная атмосфера.
+В 1960-х годах главным советским киносказочником был Александр Роу. В 1970-е годы его место занял Борис Рыцарев. Смену эпохи легко заметить, анализируя их фильмы, но мы поговорим и о других сказках.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805087   (12174) от 08.07.2025
+
+Ветераны советской ракетной отрасли и ИИ создадут многоразовую ракету — конкурента SpaceX Falcon 9
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зарегистрированная в 2023 году в Люксембурге ракетная компания Aspire Space объявила о переносе операций в Дубай, ОАЭ. Компания была основана Станиславом Руденко, получившим образование в Санкт-Петербурге. Техническим директором Aspire Space стал ветеран космической отрасли СССР Сергей Сопов, ранее возглавлявший космодром «Морской старт». Вместе с командой инженеров, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805111   (12095) от 09.07.2025
+
+MInstAll v.03.07.2025 By Andreyonohov (ISO) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами обновленный 03 Июля 2025 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805731   (12039) от 09.07.2025
+
+Очередное достижение: 9000 релизов от b_igor1-1
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12039.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Очередное достижение: 9000 релизов от b_igor1-1 Уважаемые одноклубники, буквально недавно мы поздравляли нашего товарища с преодолением очередного рубежа и, спустя совсем немного времени, мы спешим поздравить его вновь! От всей души поздравляем b_igor1-1 с преодолением отметки в 9000 релизов! Спасибо за вклад в развитие трекера! :friend:
+От всей души поздравляем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784364   (11888) от 11.07.2025
+
+Бригада (2002) HDRip [H.265/720p] (сезон 1, серии 1-15 из 15) [Hand made Enhanced Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история четырех друзей детства, обычных московских парней, Саши Белого, Космоса, Пчелы и Фила, выросших в одном дворе. Друзья решили немного подзаработать, но незапланированное убийство вмиг перемешало все задуманное, поставив на кон их жизни. Ставка слишком высока, но отступать некуда. Теперь парни прокладывают себе дорогу в криминальном мире и волею судеб превращаются (   Читать дальше...   )Производство: Россия / Аватар фильмЖанр: криминал, боевикРежиссер: Алексей СидоровАктеры: Сергей Безруков, Дмитрий Дюжев, Павел Майков, Владимир Вдовиченков, Екатерина Гусева, Андрей Панин, Валентина Теличкина, Алексей Кравченко, Александр Высоковский, Николай Ерёменко мл. и др.Субтитры: отсутствуютПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804941   (11882) от 11.07.2025
+
+Главы государств / Heads of State (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11882.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире зреет глобальный заговор, цель которого — уничтожить глав ведущих государств. Мишенями для противника становятся премьер-министр Великобритании Сэм Кларк и президент США Уилл Дерринджер, которые ведут публичное соперничество. Но чтобы остаться в живых, им приходится объединить силы и вместе противостоять масштабной угрозе. В этом им помогает опытная разведчица (   Читать дальше...   )Производство: США / Amazon MGM Studios, Big Indie Pictures, Safran Company, TheЖанр: боевик, комедияРежиссер: Илья НайшуллерАктеры: Джон Сина, Идрис Эльба, Приянка Чопра Джонас, Джек Куэйд, Пэдди Консидайн, Карла Гуджино, Стивен Рут, Сара Нилс, Ричард Койл, Александр КузнецовПеревод: Дублированный (HATE Studio), Многоголосый (HDRezka, TVShows, Red Head Sound, WStudio, заКАДРЫ, LE-Production), Одноголосый (Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5588A62971D3ED2D99ECEF0BA5060CC5EC0A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806152   (11870) от 11.07.2025
 
 «Роскосмос» передумал строить собственный аналог Starlink для экономии бюджета
@@ -6,7 +166,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11870.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.5.1/dlc) Repack FitGir
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11777.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11763.jpg" />
 </div>
 
 
@@ -85,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11689.jpg" />
 </div>
 
 
@@ -111,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11674.jpg" />
 </div>
 
 
@@ -137,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11673.jpg" />
 </div>
 
 
@@ -163,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11656.jpg" />
 </div>
 
 
@@ -189,7 +349,7 @@ Dr.Web CureIt! (2025.07.13) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11568.jpg" />
 </div>
 
 
@@ -215,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11460.jpg" />
 </div>
 
 
@@ -241,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11367.jpg" />
 </div>
 
 
@@ -267,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11355.jpg" />
 </div>
 
 
@@ -293,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11255.jpg" />
 </div>
 
 
@@ -320,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11200.jpg" />
 </div>
 
 
@@ -347,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11038.jpg" />
 </div>
 
 
@@ -373,7 +533,7 @@ Cтроительство энергоблока № 5  на Белоярск�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10986.jpg" />
 </div>
 
 
@@ -399,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10942.jpg" />
 </div>
 
 
@@ -428,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10646.jpg" />
 </div>
 
 
@@ -458,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10636.jpg" />
 </div>
 
 
@@ -484,7 +644,7 @@ Windows 10 PRO 22H2 19045.3324 (х64) remaked as Windows 7/Windows Vista by wind
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10625.jpg" />
 </div>
 
 
@@ -510,7 +670,7 @@ Ozzy Osbourne - 49 аlbums, 2 Box-Set, 144CD (1980-2022) [FLAC|Lossless|image + 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10624.jpg" />
 </div>
 
 
@@ -524,164 +684,6 @@ Ozzy Osbourne - 49 аlbums, 2 Box-Set, 144CD (1980-2022) [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAB94FAB287E2912CFCFB7D720446E6B36542BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790016   (10542) от 24.07.2025
-
-The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.0105/dlc) Repack Other s [Remastered]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя пять лет после страшного путешествия по охваченной эпидемией Америке Элли и Джоэл осели в Джексоне, штат Вайоминг. Обосновавшись в процветающей общине, они обрели желанную стабильность, несмотря на постоянную угрозу нападения зараженных и теряющих смысл жизни выживших. Но однажды жестокие события разрушают эту идиллию, и Элли снова отправляется в изнуряющее (   Читать дальше...   )Тип издания: RepackРазработчик: Naughty Dog LLC, Nixxes Software, Iron Galaxy StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6848322E75ACA0C2B53419B65CACE65D81146D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808577   (10335) от 26.07.2025
-
-Launcher for zapret 2.9 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
-Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
-На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA39B01F28DCA64AF6D93ACB1DFC1F84B79BA04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808524   (10332) от 26.07.2025
-
-Счастливчик Гилмор 2 / Happy Gilmore 2 (2025) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы исполнить мечту дочери и оплатить её обучение в балетной школе, Хэппи Гилмор решает вернуться в большой гольф. Вскоре ему вновь предстоит встретиться на поле со своим главным соперником — Шутером МакГевином.Производство: США / Happy Madison ProductionsЖанр: комедия, спортРежиссер: Кайл НьюачекАктеры: Адам Сэндлер, Маргарет Куолли, Джули Боуэн, Бен Стиллер, Эрик Андре, Кристофер Макдональд, Итан Каткоски, Санни Сэндлер, Бенни Сэфди, Деннис ДуганПеревод: Дублированный (Videofilm Int., укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), английские (Forced, Full, SDH), украинские (Forced, 2xFull)Продолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D968D42D31EE175126597495BF0960ED48011A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808440   (10317) от 26.07.2025
-
-Отдыхающий на пляже пожарный из Ростова Великого спас трех человек
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10317.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Ярославской области сотрудник МЧС Михаил Грачёв отдыхал с семьёй на реке. Вдруг он увидел, как мужчина прыгнул в воду с обрыва и не всплыл на поверхность. Михаил поспешил на помощь и быстро вытащил на берег пострадавшего, который, как выяснилось, ударился головой о дно. Прибывшие на место медики госпитализировали ныряльщика, и Михаил продолжил свой отдых. Однако (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808845   (10235) от 27.07.2025
-
-Windows 11 Pro x64 Version 24H2 Build 26100.4652 by Igors_VL [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настроенная авторская сборка Windows 11 Pro с автоматизированной установкойРазработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDCB170A44DE6037F920D77CE323F555F07850C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808691   (10141) от 28.07.2025
-
-Cloudflare начал блокировать пиратские сайты для пользователей из Великобритании
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый случай в мире, когда к борьбе с пиратством подключается еще и CDN, ранее доступ к таким сайтам ограничивали только провайдеры и такие блокировки легко обходились с помощью VPN (сейчас тоже).Ограничение доступа осуществляется  на основании судебного приказа, вероятно, по требованию организации Motion Picture Association (MPA), защищающей авторские права. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 896187   (519242) от 19.08.2015
+
+Звуковые библиотеки - West One Music - Fired Earth Music 01-27 (2009-2015) [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_519242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудио библиотеки от Лондонской студии West One Music. Эта студия создает музыку для звукового оформления в различном направлении, таком как оформление кинофильмов, трейлеров, мультфильмов, видео игр, телепередач, радиопередач, презентационных роликов, видео инсталляций и рекламы, а также, для аранжировки музыки и песен.
+
+Fired Earth Music - лейбл от компании West (   Читать дальше...   )Жанр: Soundtrack, Trailer music, AdvertisingФормат: MP3Продолжительность: 21:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AF216B5FAD863C1D09769AB3CB94C79783E3D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314395   (519163) от 14.07.2019
+
+Звуковые библиотеки - Spitfire Audio - Chamber Strings [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_519163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Струнные инструменты. Когда многие из нас слышат слово «камерный ансамбль», мы думаем о белых париках и клавесинах. В современном народном языке он просто описывает группу, которая меньше симфонического оркестра. Там, где речь идет о струнах, это обычно означает ансамбль среднего размера, состоящий из 5 секций (1-я скрипка, 2-я скрипка, альты, виолончели и басы). (   Читать дальше...   )Формат: Kontakt: NICNT, NKI, NKC, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC65192BFBF328F7A5226C11650A797C05AC6AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315045   (515986) от 17.07.2019
+
+Звуковые библиотеки - Wavesfactory - Mercury Lite v1.0.1 [Kontakt, WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mercury Lite - это сердце библиотеки Mercury, но с меньшей нагрузкой для тех, у кого ограниченные ресурсы. Разработанный, чтобы быть легче, но сохраняя полный звук и выразительные возможности. Mercury Lite объединяет все 5 позиций микрофона в одном аудиофайле. Это экономит не только 80% размера диска, но и потребление ресурсов процессора, поскольку Kontakt не приходится (   Читать дальше...   )Формат: Kontakt: NCW, NKC, NKI, NKR, NKX, NDX; WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E041BEE2DF3E5E6B0130336FC9AB01C63E9AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315098   (515017) от 18.07.2019
 
 Звуковые библиотеки - Fable Sounds - Broadway LITEs 2.0.24 [Kontakt]
@@ -6,7 +86,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515017.jpg" />
+  <img src="Z:/picture/008/save_picture_515017.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515013.jpg" />
+  <img src="Z:/picture/008/save_picture_515013.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513821.jpg" />
+  <img src="Z:/picture/008/save_picture_513821.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512783.jpg" />
+  <img src="Z:/picture/008/save_picture_512783.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512708.jpg" />
+  <img src="Z:/picture/008/save_picture_512708.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510850.jpg" />
+  <img src="Z:/picture/008/save_picture_510850.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508699.jpg" />
+  <img src="Z:/picture/008/save_picture_508699.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507706.jpg" />
+  <img src="Z:/picture/008/save_picture_507706.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506854.jpg" />
+  <img src="Z:/picture/008/save_picture_506854.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506786.jpg" />
+  <img src="Z:/picture/008/save_picture_506786.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505806.jpg" />
+  <img src="Z:/picture/008/save_picture_505806.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500404.jpg" />
+  <img src="Z:/picture/008/save_picture_500404.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500286.jpg" />
+  <img src="Z:/picture/008/save_picture_500286.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499303.jpg" />
+  <img src="Z:/picture/008/save_picture_499303.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497747.jpg" />
+  <img src="Z:/picture/008/save_picture_497747.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493810.jpg" />
+  <img src="Z:/picture/008/save_picture_493810.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493676.jpg" />
+  <img src="Z:/picture/008/save_picture_493676.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493673.jpg" />
+  <img src="Z:/picture/008/save_picture_493673.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492620.jpg" />
+  <img src="Z:/picture/008/save_picture_492620.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491090.jpg" />
+  <img src="Z:/picture/008/save_picture_491090.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490601.jpg" />
+  <img src="Z:/picture/008/save_picture_490601.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487691.jpg" />
+  <img src="Z:/picture/008/save_picture_487691.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484593.jpg" />
+  <img src="Z:/picture/008/save_picture_484593.jpg" />
 </div>
 
 
@@ -597,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE1D1137399BBED9393F9C5184DC1CE00D451C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319381   (484591) от 11.08.2019
-
-NNM-Club Sound Cleaner Group Collection - s6
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle и не только к проектам After Effects от наших неформальных участников движения Sound cleaner, а также не вошедших в ранние сборники от именитых и активных.Формат: WAV, MP3, AAC, MPC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E29D023C2A3600B075CD4F532B74B932EB7CA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319458   (482579) от 12.08.2019
-
-Звуковые библиотеки - Music Maker Jam - Soundpools Pack 4 [OGG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборники стилей Music Maker Jam возвращаются и в очередной раз собирают все новинки из MMJ, а также упущения из предыдущих релизов. В 4 издании собрано 136 стилей, содержащие 25607 звучаний различных инструментов высокого качества. Стили подходят для установки не только в MMJ, но и в более профессиональные версии программы (Magix Music Maker Premium/Live и т.д.). (   Читать дальше...   )Формат: OGG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15543D17FDC40103D83918CF3948ABFF7E718611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319661   (480912) от 13.08.2019
-
-Звуковые библиотеки - Orange Tree Samples - Evolution Jumbo 12 [Kontakt, OGG, MID, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы рады представить Evolution Jumbo 12, долгожданное 12-струнное акустическое дополнение к нашей серии гитар Evolution, записанное с Taylor 355. Эта гитара обладает шелковистым верхом, но в то же время обладает достаточным количеством тела в низких и средних частотах. несомненно, результатом этого является гитара большего размера. Evolution Jumbo 12, смешанный на (   Читать дальше...   )Формат: Kontakt: NICNT, NKI, NKC, NKR, NKX, NKSN; OGG, MID, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361382569B2C96995AB09ADA2EE300326D7F0857
 ```
 
 https://mybot314.ru/tekegram_catalog/

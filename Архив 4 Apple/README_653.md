@@ -1,3 +1,113 @@
+###  Публикация: 1435715   (142714) от 29.12.2020
+
+Chaos Control Premium 1.11 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаос-контроль: органайзер целей и задач на базе GTD.
+Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
+Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435918   (142693) от 29.12.2020
+
+Dropshare 5.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142693.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72F0D1EDA31A1C066629F9003B902037CE4612E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435947   (142654) от 29.12.2020
+
+Downie 4 v4.1.13 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F0C49F68EEEB6CB029013887C5CCCA161C01E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435641   (142643) от 29.12.2020
+
+GrabIt 4.930 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всякий раз, когда вы хотите избавиться от чего-либо на экране, вы, вероятно, использовали Cmd + Shift + 4 или другие приложения. Но, как вы знаете, «Cmd + Shift + 4», приложение «снимок экрана», включенное в Mac OS X, просто сохраняет захваченное изображение на рабочем столе, а не показывает его вам мгновенно.
+Это приложение захватывает любую часть экрана в виде (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: MajimakHARUПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Упрощенный китайский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F924F3425BD2CFC7468DA9E16ADE3AA5EADDACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435711   (142606) от 29.12.2020
 
 BlueHarvest 8 v8.0.8 [Multi/Ru]
@@ -6,7 +116,7 @@ BlueHarvest 8 v8.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142606.jpg" />
 </div>
 
 
@@ -33,7 +143,7 @@ Disk Space Analyzer Pro 3 v3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142583.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ uDock 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142553.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ CleanMyMac 3.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142477.jpg" />
 </div>
 
 
@@ -115,7 +225,7 @@ Artstudio Pro 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142426.jpg" />
 </div>
 
 
@@ -141,7 +251,7 @@ SiteSucker 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142414.jpg" />
 </div>
 
 
@@ -168,7 +278,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142380.jpg" />
 </div>
 
 
@@ -194,7 +304,7 @@ OmniGraffle Pro 7.22.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142369.jpg" />
 </div>
 
 
@@ -220,7 +330,7 @@ Wondershare PDFelement Pro OCR 10.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142363.jpg" />
 </div>
 
 
@@ -246,7 +356,7 @@ Permute 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142313.jpg" />
 </div>
 
 
@@ -274,7 +384,7 @@ Irvue 2.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142300.jpg" />
 </div>
 
 
@@ -300,7 +410,7 @@ WonderPen 2.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142292.jpg" />
 </div>
 
 
@@ -326,7 +436,7 @@ TaskPaper 3.8.16 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142270.jpg" />
 </div>
 
 
@@ -353,7 +463,7 @@ Soulver 3 v3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142257.jpg" />
 </div>
 
 
@@ -380,7 +490,7 @@ Privatus 6 v6.3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142248.jpg" />
 </div>
 
 
@@ -406,7 +516,7 @@ Cookie 6.6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142239.jpg" />
 </div>
 
 
@@ -433,7 +543,7 @@ Tower Pro 10 v.10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142231.jpg" />
 </div>
 
 
@@ -460,7 +570,7 @@ Duplicate File Finder Pro 6.12.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142210.jpg" />
 </div>
 
 
@@ -487,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142203.jpg" />
 </div>
 
 
@@ -513,7 +623,7 @@ MacCleaner 2 PRO 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142175.jpg" />
 </div>
 
 
@@ -539,7 +649,7 @@ Wondershare Recoverit for Mac 12.0.19.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142165.jpg" />
 </div>
 
 
@@ -566,7 +676,7 @@ WiFiSpoof 3.8.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142136.jpg" />
 </div>
 
 
@@ -577,111 +687,6 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21A44678C476A4FBB98BB529EAA3966C15BCFABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520434   (142105) от 28.12.2021
-
-XCap 1.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита XCap - создана специально для цифровых микроскоповТип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 SHIH-CHUEH CHENПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Традиционный китайский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4764F1996FCD35D781F5D6BEBD85291D1A261619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520549   (142094) от 28.12.2021
-
-SiteSucker Pro 4.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142094.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 2021 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657B8ABECF1CCAC9938D16D3DAE5BAF41C55354E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195473   (142073) от 29.12.2017
-
-iMazing 2.5.3 (8307) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142073.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 декабря 2017Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11044A0DC03FE5BAE2974AA646979011646C55BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435902   (142057) от 29.12.2020
-
-BestZip 2-Unarchive 7z&rar&zip 1.3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142057.jpg" />
-</div>
-
-
-###  Подробнее
-
-BestZip 2 имеет совершенно новый дизайн, и на основе унаследованных от BestZip преимуществ добавлены более мощные функции. В то же время программный интерфейс проще и удобнее в использовании.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Shao Bing FuПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C37FF5F2BD7D81E5E6228C988C22921ECF1C922
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1585880   (219618) от 24.10.2022
+
+Ben Webster Quartet - My Man: Live At Montmartre (1973) 1986, SteepleChase [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday [6:28]
+02. Willow Weep for Me [9:02]
+03. Exactly Like You [7:13]
+04. Old Folks [10:22](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21EB0B624A555F1A7C048B1A16FE6915FABA816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651983   (219527) от 09.08.2023
+
+James Moody - Return From Overbrook (1958) 1996, GRP [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Train From Overbrook [3:06]
+02. Don't Worry 'Bout Me [2:34]
+03. Why Don't You [2:26]
+04. I'm Free aka What's New? [3:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Big BandПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A887A7E2257158DEE811AD6D4D508B838FD6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425783   (219318) от 22.11.2020
+
+Dakota Staton - Time To Swing (1959) 2009, DRG Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Lights Are Low [1:56]
+02. Willow Weep for Me [2:31]
+03. But Not for Me [1:55]
+04. You Don't Know What Love Is [2:28](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57363B81C3A03204E76FE62797C10BCB4169B76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084769   (219233) от 19.12.2016
+
+Sonny Cox - The Wailer (1966) Remaster, 1998, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Come Rain Or Come Shine [03:44]
+ 02.I'm Just A Lucky So And So [04:21]
+ 03.Soulero [04:57]
+ 04.The Retreat Song [04:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59E816B14828EC82B0293D3DB29BAB23E29437A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084776   (219224) от 19.12.2016
 
 Coleman Hawkins - Bouncing With Bean (1926-1949) 2CD, 2010, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -6,7 +122,7 @@ Coleman Hawkins - Bouncing With Bean (1926-1949) 2CD, 2010, Le Chant Du Monde[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219224.jpg" />
+  <img src="Z:/picture/005/save_picture_219224.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Mal Waldron - You And The Night And The Music (1983) 2005, King Record [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219164.jpg" />
+  <img src="Z:/picture/005/save_picture_219164.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - 'That's What I Call Sweet Music': American Dance Orchestras of the 1920s (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219066.jpg" />
+  <img src="Z:/picture/005/save_picture_219066.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Big Band Brothers - A Jazz Celebration of The Allman Brothers Band (2019) New We
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219051.jpg" />
+  <img src="Z:/picture/005/save_picture_219051.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Oscar Pettiford - Another One (1955) 2000, Bethlehem [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219015.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Ray Conniff Singers - Christmas With Conniff (1959) 1990, Columbia[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218991.jpg" />
+  <img src="Z:/picture/005/save_picture_218991.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Jim Stahlhut - Exit 228 (2013) Self-Released [FLAC|Lossless|image + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218819.jpg" />
+  <img src="Z:/picture/005/save_picture_218819.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Christmas Favorites (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Folk, Pop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218674.jpg" />
+  <img src="Z:/picture/005/save_picture_218674.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Power Quintet - High Art (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218364.jpg" />
+  <img src="Z:/picture/005/save_picture_218364.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Gil Evans - The Individualism of Gil Evans (1963, 1964) 2003, Universal [APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218356.jpg" />
+  <img src="Z:/picture/005/save_picture_218356.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Tom Harrell - Something Gold, Something Blue (2016) HighNote [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218350.jpg" />
+  <img src="Z:/picture/005/save_picture_218350.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Betty Buckley - Hope (2018) Palmetto+ [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218342.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Stephane Grappelli & Barney Kessel - Limehouse Blues (1969) 1991, Black Lion [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218327.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Bobo Stenson Trio - Contra La Indecision (2018) ECM [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218318.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Eddie Daniels - Heart Of Brazil: A Tribute to Egberto Gismonti (2018) Resonance 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218307.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Cannonball Adderley - The Complete Albums Collection 1960-1962 (2016) 4CD, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218286.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Bob Reynolds - Quartet (2018) Bob Reynolds Music [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218207.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Michel Legrand - Six Classic Albums (1954 - 1958) 4CD, 2016, Real Gone Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218192.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Big Bad Voodoo Daddy - Louie Louie Louie (2017) Savoy Jazz [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218145.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Benny Green - Then and Now (2018) Sunnyside Records [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217980.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Bill Evans Trio - Consecration. The Last Complete Collection (1980) 8CD, 1989, A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217932.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Steve Kuhn Torio - Easy To Love (2004) Venus Records [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217804.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Steve Kuhn Torio - Easy To Love (2004) Venus Records [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6B589D296A50ADCFB46AEA73319626B043165A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514372   (217479) от 03.12.2021
-
-Kenny G - New Standards (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Emeline (3:40)
-2. Only You (5:51)
-3. Paris By Night (5:30)
-4. Rendezvous (6:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB81C5CD552E7F589BADD1049C62727A1681958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586374   (217260) от 26.10.2022
-
-Jeff Parker, Eric Revis, Nasheet Waits - Eastside Romp (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217260.jpg" />
-</div>
-
-
-###  Подробнее
-
-In May 2016, guitarist Jeff Parker, double bassist Eric Revis, and drummer Nasheet Waits spent a single day recording in a Pasadena studio. The seven tunes they cut appear on Eastside Romp. Mixed in 2018, it sat on a shelf for four more years. This collaboration juxtaposes Parker, an adaptable and mercurial player, with the incendiary, wildly inventive rhythm section (   Читать дальше...   )01. Similar Limits (Brown) - 4:16
-02. Wait (Parker) - 8:13
-03. Between Nothingness and Infinity (Waits) - 7:05
-04. Drunkard's Lullaby (Revis) - 5:44(   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F1C40978F890EE8F3F2FE67E023FB62A2DCDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652579   (217214) от 12.08.2023
-
-James Moody - Wail Moody, Wail (1955) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Golden Touch [4:13]
-02. The Nearness Of You [4:56]
-03. Donkey Serenade [3:48]
-04. Moody's Blue Again [4:37](   Читать дальше...   )Жанр: BopПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F73E73EF34B563E07E39E513F60DC1973B0D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084887   (217177) от 20.12.2016
-
-Terry Gibbs Quartet - Take It From Me (1964) Remaster, 2010, Universal[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Take It From Me [04:25]
- 02.El Fatso [04:01]
- 03.Oge [03:09]
- 04.Pauline's Place [02:33](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AA0A4AB0B7AD090AB5AA57E92588CBFE6878CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

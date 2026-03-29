@@ -6,7 +6,7 @@ AnyTrans for Android 6.5.0 (20190130) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752085.jpg" />
+  <img src="Z:/picture/008/save_picture_752085.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Script Debugger 7.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752084.jpg" />
+  <img src="Z:/picture/008/save_picture_752084.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ SoundSource 3.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752080.jpg" />
+  <img src="Z:/picture/008/save_picture_752080.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ iA Writer 5.2.2 (6256)[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752076.jpg" />
+  <img src="Z:/picture/008/save_picture_752076.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752058.jpg" />
+  <img src="Z:/picture/005/save_picture_752058.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ UnHackMe 11.80.0.980 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752018.jpg" />
+  <img src="Z:/picture/008/save_picture_752018.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751985.jpg" />
+  <img src="Z:/picture/008/save_picture_751985.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751976.jpg" />
+  <img src="Z:/picture/008/save_picture_751976.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ iCalamus 2 v2.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751967.jpg" />
+  <img src="Z:/picture/008/save_picture_751967.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Blockhead - Free Sweatpants (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751961.jpg" />
+  <img src="Z:/picture/008/save_picture_751961.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ CADintosh X 8.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751959.jpg" />
+  <img src="Z:/picture/008/save_picture_751959.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ LibreOffice 6.4.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751931.jpg" />
+  <img src="Z:/picture/008/save_picture_751931.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751923.jpg" />
+  <img src="Z:/picture/008/save_picture_751923.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751922.jpg" />
+  <img src="Z:/picture/005/save_picture_751922.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Movavi Slideshow Maker 6.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751916.jpg" />
+  <img src="Z:/picture/008/save_picture_751916.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751902.jpg" />
+  <img src="Z:/picture/005/save_picture_751902.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Image2icon - Make your own icons 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751888.jpg" />
+  <img src="Z:/picture/008/save_picture_751888.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Schiller - Timeline (The Very Best Of 1998-2011) (2011) [FLAC|Lossless|tracks + 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751881.jpg" />
+  <img src="Z:/picture/008/save_picture_751881.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Moderat - Running (2016) [MP3|320 кб/с] <Electronica, Techno, IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751877.jpg" />
+  <img src="Z:/picture/008/save_picture_751877.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ u-he - Hive 1.2.1.8256 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751874.jpg" />
+  <img src="Z:/picture/008/save_picture_751874.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Pale Moon 28.3.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751868.jpg" />
+  <img src="Z:/picture/008/save_picture_751868.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Aaron and Melissa | Подкасты (2017-2018) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751860.jpg" />
+  <img src="Z:/picture/008/save_picture_751860.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VueScan Pro 9.7.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751821.jpg" />
+  <img src="Z:/picture/008/save_picture_751821.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Boxy SVG 3  v3.74.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751766.jpg" />
+  <img src="Z:/picture/008/save_picture_751766.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Smooze Pro 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751765.jpg" />
+  <img src="Z:/picture/008/save_picture_751765.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Golden Software Didger 5.11.1438 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751758.jpg" />
+  <img src="Z:/picture/008/save_picture_751758.jpg" />
 </div>
 
 

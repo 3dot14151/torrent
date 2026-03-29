@@ -1,3 +1,29 @@
+###  Публикация: 430174   (209557) от 28.08.2022
+
+Сказка о Мальчише-Кибальчише (1958) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209557.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дальние-дальние времена жил со своими родными Мальчиш-Кибальчиш. Не в пример трусливому Мальчишу-Плохишу, он не обижал птиц, не разорял их гнезд и не ломал деревьев, а поступал наоборот: всем и всему помогал и других мальчишей вдохновлял. Но вот пришла беда — из-за черных гор пошли на советскую землю буржуины. Поднялись на защиту родины отцы, а потом и взрослые (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Александра Снежко-БлоцкаяАктеры: Георгий Вицин, Алексей Консовский, Константин Устюгов, Виктор Хохряков, Михаил Названов и др.Субтитры: ОтсутствуютПродолжительность: 00:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE6AB772D42D598A3A6025325CFB3DA9B5EC8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 56208   (209543) от 28.08.2022
 
 Сон смешного человека (1992) DVDRip
@@ -6,7 +32,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209543.jpg" />
+  <img src="Z:/picture/005/save_picture_209543.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209503.jpg" />
+  <img src="Z:/picture/005/save_picture_209503.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208985.jpg" />
+  <img src="Z:/picture/005/save_picture_208985.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208976.jpg" />
+  <img src="Z:/picture/005/save_picture_208976.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208955.jpg" />
+  <img src="Z:/picture/005/save_picture_208955.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208910.jpg" />
+  <img src="Z:/picture/005/save_picture_208910.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208892.jpg" />
+  <img src="Z:/picture/005/save_picture_208892.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208881.jpg" />
+  <img src="Z:/picture/005/save_picture_208881.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208784.jpg" />
+  <img src="Z:/picture/005/save_picture_208784.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208722.jpg" />
+  <img src="Z:/picture/005/save_picture_208722.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208675.jpg" />
+  <img src="Z:/picture/005/save_picture_208675.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208586.jpg" />
+  <img src="Z:/picture/005/save_picture_208586.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208582.jpg" />
+  <img src="Z:/picture/005/save_picture_208582.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208443.jpg" />
+  <img src="Z:/picture/005/save_picture_208443.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208424.jpg" />
+  <img src="Z:/picture/005/save_picture_208424.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208418.jpg" />
+  <img src="Z:/picture/005/save_picture_208418.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207865.jpg" />
+  <img src="Z:/picture/005/save_picture_207865.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207823.jpg" />
+  <img src="Z:/picture/005/save_picture_207823.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206826.jpg" />
+  <img src="Z:/picture/005/save_picture_206826.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206767.jpg" />
+  <img src="Z:/picture/005/save_picture_206767.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206354.jpg" />
+  <img src="Z:/picture/005/save_picture_206354.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206350.jpg" />
+  <img src="Z:/picture/005/save_picture_206350.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206331.jpg" />
+  <img src="Z:/picture/005/save_picture_206331.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206329.jpg" />
+  <img src="Z:/picture/005/save_picture_206329.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206325.jpg" />
+  <img src="Z:/picture/005/save_picture_206325.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9CF76AC14AF5C4A045A98B97AB5FD7B154A8BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 325954   (206324) от 09.10.2022
-
-Лесная хроника (1970) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о том, как жадный волк, который отнимал у зверюшек их собственность, был наказан, попав в капкан, который он принял за ценную вещь.Производство: СССР, СоюзмультфильмЖанр: детский, сказкаРежиссер: Петр НосовАктеры: Юрий Хржановский, Анатолий Папанов, Клара Румянова, Юлия ЮльскаяСубтитры: ОтсутствуютПродолжительность: 00:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3723D0EF5845D8BB3AB867BDB199A5045EB649E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

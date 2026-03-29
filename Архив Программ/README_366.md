@@ -6,7 +6,7 @@ VMWare ThinApp Enterprise 5.2.1 Build 3655846 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862277.jpg" />
+  <img src="Z:/picture/008/save_picture_862277.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BestReminder v2020.04.15.15 Covid Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862260.jpg" />
+  <img src="Z:/picture/008/save_picture_862260.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ The Bat! Professional 7.4.14 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862251.jpg" />
+  <img src="Z:/picture/008/save_picture_862251.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Adobe Flash Player 21.0.0.197 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862190.jpg" />
+  <img src="Z:/picture/008/save_picture_862190.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Comodo Internet Security Premium 8.2.0.4978 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862189.jpg" />
+  <img src="Z:/picture/008/save_picture_862189.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Windows 8 PE x86x64 Universal by Xemom1 22.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862177.jpg" />
+  <img src="Z:/picture/008/save_picture_862177.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ NetBalancer 9.17.1 Build 2297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862160.jpg" />
+  <img src="Z:/picture/008/save_picture_862160.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Daum PotPlayer 1.7.457 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862154.jpg" />
+  <img src="Z:/picture/008/save_picture_862154.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862144.jpg" />
+  <img src="Z:/picture/008/save_picture_862144.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Google Chrome 81.0.4044.113 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862052.jpg" />
+  <img src="Z:/picture/008/save_picture_862052.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NetBalancer 9.17.1 Build 2297 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862051.jpg" />
+  <img src="Z:/picture/008/save_picture_862051.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ R-Drive Image Technician 6.3 Build 6301 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862046.jpg" />
+  <img src="Z:/picture/008/save_picture_862046.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lacey Free Music & Video Downloader 2.40 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862038.jpg" />
+  <img src="Z:/picture/008/save_picture_862038.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ FastStone Capture 8.4 Final RePack (& portable) by KpoJIuK (23.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861962.jpg" />
+  <img src="Z:/picture/008/save_picture_861962.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ SamDrivers 16.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861960.jpg" />
+  <img src="Z:/picture/008/save_picture_861960.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Rufus 2.8 (Build 886) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861947.jpg" />
+  <img src="Z:/picture/008/save_picture_861947.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Google Chrome 81.0.4044.113 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861930.jpg" />
+  <img src="Z:/picture/008/save_picture_861930.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Internet Download Manager 6.37 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861929.jpg" />
+  <img src="Z:/picture/008/save_picture_861929.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ OpenMPT 1.28.10.00 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861918.jpg" />
+  <img src="Z:/picture/008/save_picture_861918.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ DAEMON Tools Ultra 5.0.1.0551 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861899.jpg" />
+  <img src="Z:/picture/008/save_picture_861899.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Windows 7 PE x86 compact by Xemom1 22.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861846.jpg" />
+  <img src="Z:/picture/008/save_picture_861846.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Adobe After Effects CC 2015.2 13.7.1.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861839.jpg" />
+  <img src="Z:/picture/008/save_picture_861839.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ LibreOffice 6.4.3.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861808.jpg" />
+  <img src="Z:/picture/008/save_picture_861808.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 10 Manager 3.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861806.jpg" />
+  <img src="Z:/picture/008/save_picture_861806.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wise Care 365 Pro 5.5.3.548 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861801.jpg" />
+  <img src="Z:/picture/008/save_picture_861801.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Comodo Dragon 80.0.3987.163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861800.jpg" />
+  <img src="Z:/picture/008/save_picture_861800.jpg" />
 </div>
 
 

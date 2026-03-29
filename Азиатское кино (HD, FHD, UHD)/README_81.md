@@ -1,3 +1,136 @@
+###  Публикация: 1719886   (57992) от 01.05.2024
+
+Змеи 3: Битва с драконом / Da she 3: long she zhi zhan / Snake 3: Dinosaur vs Python (2022) HDTV [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Строительная команда разрабатывала неизвестный остров, что привело к пробуждению двух свирепых существ на острове. Жадные до наживы разработчики организовали бюро, чтобы пригласить всех желающих посетить остров.Производство: Китай / Tag ProductionsЖанр: боевик, приключения, ужасыРежиссер: Линь ЧжэньчжаоАктеры: Чэнь Цзыхань, Ло Лицюнь, Lei Zhong, Gao Linyu, Юэ Дунфэн, Li Ruand, Линь Чжэньчжао, Yang Di, Shang Churan, Liu WeiПеревод: Дублированный (ТНТ)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8AB5AD028CEA6AC68691BEB35F914A3E4209CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720425   (57801) от 03.05.2024
+
+Годзилла: Минус один / Gojira -1.0 / Godzilla: Minus One (2023) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние дни Второй мировой камикадзе Коити Сикисима посадил самолёт на острове Одо, где располагалась ремонтная база императорской армии Японии. В тот же вечер на них напал невесть откуда взявшийся огромный ящер Годзилла — именно так называли его местные.
+Коити возвращается в разрушенный бомбардировками Токио (родители погибли, от дома остались одни обломки) (   Читать дальше...   )Производство: Япония / Robot Communications, Toho Company, Toho StudiosЖанр: фантастика, боевик, драмаРежиссер: Такаси ЯмадзакиАктеры: Рюносукэ Камики, Минами Хамабэ, Хидэтака Ёсиока, Сакура Андо, Юки Ямада, Такато Ёнэмото, Рикако Миура, Мунэтака Аоки, Майкл Ариас, Юки ТакаоПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0071CC73F25D654C10D86ACB82C93D0358451ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720475   (57588) от 05.05.2024
+
+Годзилла: Минус один / Gojira -1.0 / Godzilla: Minus One (2023) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit, Dolby Vision P7] [MVO]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57588.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние дни Второй мировой камикадзе Коити Сикисима посадил самолёт на острове Одо, где располагалась ремонтная база императорской армии Японии. В тот же вечер на них напал невесть откуда взявшийся огромный ящер Годзилла — именно так называли его местные.
+Коити возвращается в разрушенный бомбардировками Токио (родители погибли, от дома остались одни обломки) (   Читать дальше...   )Производство: Япония / Robot Communications, Toho Company, Toho StudiosЖанр: фантастика, боевик, драмаРежиссер: Такаси ЯмадзакиАктеры: Рюносукэ Камики, Минами Хамабэ, Хидэтака Ёсиока, Сакура Андо, Юки Ямада, Такато Ёнэмото, Рикако Миура, Мунэтака Аоки, Майкл Ариас, Юки ТакаоПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F04F12E7D02A91E2EAAC1C6FCA4A661A5CA1D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721022   (57586) от 05.05.2024
+
+Годзилла: Минус один / Gojira -1.0 / Godzilla: Minus One (2023) BDRip [H.265/1080p] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57586.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние дни Второй мировой камикадзе Коити Сикисима посадил самолёт на острове Одо, где располагалась ремонтная база императорской армии Японии. В тот же вечер на них напал невесть откуда взявшийся огромный ящер Годзилла — именно так называли его местные.
+Коити возвращается в разрушенный бомбардировками Токио (родители погибли, от дома остались одни обломки) (   Читать дальше...   )Производство: Япония / Robot Communications, Toho Company, Toho StudiosЖанр: фантастика, боевик, драмаРежиссер: Такаси ЯмадзакиАктеры: Рюносукэ Камики, Минами Хамабэ, Хидэтака Ёсиока, Сакура Андо, Юки Ямада, Такато Ёнэмото, Рикако Миура, Мунэтака Аоки, Майкл Ариас, Юки ТакаоПеревод: Многоголосый профессиональный (GoltFilm)Язык озвучки: Русский, ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B5F58FA5ACC3E9D0993BED6C9BDED79A2C46E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720073   (57475) от 06.05.2024
+
+Битва в проливе Норян / Noryang: jukeumui bada / Noryang: Deadly Sea (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57475.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о морской битве в проливе Норян 16 декабря 1598 года, последней битвы Имджинской войны. Корейский флот из 150 кораблей под предводительством адмирала Ли Сунсина противостоит 500 судам японских агрессоров.Производство: Корея Южная / Acemaker Movie Works, Big Stone Pictures, Lotte EntertainmentЖанр: военный, биография, боевик, историяРежиссер: Ким Хан-минАктеры: Ким Юн-сок, Чон Джэ-ён, Пэк Юн-щик, Хо Джун-хо, Лим Иль-гю, Чон Ун-джон, Ли Му-сэн, Чу Сок-тхэ, Ким Джун-хи, Ан Сон-бонПеревод: ДублированныйЯзык озвучки: Русский, КорейскийСубтитры: русские (forced), французские (forced, full)Продолжительность: 02:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C80215F4B3296CF0A91FA2DFDED63C887FDABAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721148   (57400) от 06.05.2024
 
 Герой / Ma Yong Zhen / Hero (1997) BDRemux [H.264/1080p] [AVO]
@@ -6,7 +139,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57400.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57299.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57123.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56733.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56627.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56541.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56445.jpg" />
 </div>
 
 
@@ -190,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55901.jpg" />
 </div>
 
 
@@ -216,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55659.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55652.jpg" />
 </div>
 
 
@@ -271,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55231.jpg" />
 </div>
 
 
@@ -297,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55200.jpg" />
 </div>
 
 
@@ -323,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54815.jpg" />
 </div>
 
 
@@ -349,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54713.jpg" />
 </div>
 
 
@@ -375,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54707.jpg" />
 </div>
 
 
@@ -401,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54567.jpg" />
 </div>
 
 
@@ -427,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54466.jpg" />
 </div>
 
 
@@ -453,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54388.jpg" />
 </div>
 
 
@@ -479,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54061.jpg" />
 </div>
 
 
@@ -505,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54025.jpg" />
 </div>
 
 
@@ -531,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53822.jpg" />
 </div>
 
 
@@ -542,136 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B1C527F0681452C4F84D3F79120F13F9ADD29C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729309   (53778) от 10.06.2024
-
-Ящик Пандоры / Opeun deo doeo / Open the Door (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина средних лет была застрелена в прачечной, но убийцу так и не нашли. Семь лет спустя два брата за выпивкой начинают вспоминать события, которые, возможно, привели к убийству их матери. Копаясь в прошлом своей семьи, они открывают шокирующие тайны.Производство: Корея Южная / B.A. Entertainment, Contentslab Vivo, MadmanpostЖанр: детектив, триллерРежиссер: Чан Хан-джунАктеры: Ли Сун-вон, Со Ён-джу, Ким Су-джин, Кан Э-щим, Дэниэл Джои ОлбрайтПеревод: Дублированный (OKKO)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE54B7BA9BF8716366B3000B317BC2D0EA617EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729275   (53711) от 10.06.2024
-
-О, Люси! / Oh Lucy! (2017) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53711.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Сэцуко Кавасимы — немолодой офисной служащей, без конца курящей и неизменно одинокой в огромном Токио. Однажды, по просьбе племянницы Мики, женщина идёт на курсы английского и в своём американском альтер-эго — Люси — Сэцуко узнаёт другую, обновлённую версию себя. Это вдохновляет и раскрепощает женщину. Она влюбляется в своего преподавателя Джона. Когда Джон (   Читать дальше...   )Производство: Япония, США / Matchgirl Pictures, Gloria Sanchez Productions, Meridian ContentЖанр: драма, комедияРежиссер: Ацуко ХираянагиАктеры: Синобу Тэрадзима, Джош Хартнетт, Кахо Минами, Сиори Куцуна, Кодзи Якусё, Сосэки Яматоя, Мию Ягю, Каяно Масуяма, Миоко Ямагути, Хадзимэ ИноэПеревод: профессиональный многоголосыйЯзык озвучки: русский, японскийСубтитры: русские (FOCS), английскиеПродолжительность: 01:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA21EA5B770E2AE1A79C87554B526333C47BF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729793   (53518) от 12.06.2024
-
-Неразлучные / Alone (2007) WEB-DLRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пим — выжившая сиамская близняшка — переезжает из Таиланда в Корею, чтобы забыть о вине перед сестрой. Жизнь налаживается, но вскоре девушке приходится вернуться на родину повидаться с умирающей матерью. И тут дух умершей сестры стремительно врывается в жизнь Пим.Производство: Таиланд / Dedicate Ltd., GMM Grammy, PhenomenaЖанр: драма, ужасы, триллерРежиссер: Банйонг Писантханакун, Паркпум ВонгпумАктеры: Марша Ваттанапанич, Виттая Васукрайпайсан, Рачану Бунчудуанг, Хатайрат Егерефф, Рутайрат Егерефф, Намо Тонгкумнерд, Чутикан Вимуктананда, Чаякан Вимуктананда, Нимит Луксамипонг, Юпаван УннатараварангкулПеревод: Двуголосый профессиональный ("Инис" по заказу "Союз Видео")Язык озвучки: Русский, ТайскийСубтитры: Русские (full - Голованов Алексей), английскиеПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF4479D0BEE9AA3A7DB42787632981F34E0E03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730235   (53373) от 14.06.2024
-
-Инцидент в Синдзюку / Xin Su shi jian / Shinjuku Incident (2009) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53373.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1990-е годы из-за экономического кризиса в КНР тысячи китайцев перебрались в Японию в надежде найти работу. Один из таких нелегальных мигрантов, Тиету по прозвищу Стальная Голова, покинул родную страну, чтобы найти свою девушку Сю Сю, которая уехала на заработки, но так и не вернулась. Не имея денег и документов, Тиету примыкает к банде таких же нелегальных иммигрантов, (   Читать дальше...   )Производство: Гонконг / Emperor Dragon MoviesЖанр: боевик, драма, криминалРежиссер: Дерек ИАктеры: Джеки Чан, Наото Такэнака, Дэниэл У, Сюй Цзинлэй, Масая Като, Фань Бинбин, Тору Минэгиси, Кэнъя Савада, Джек Као, Пол ЧуньПеревод: Многоголосый профессиональный (Официальный)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3E2138DAAF500A448097CD94A2272629C23CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730018   (53369) от 14.06.2024
-
-Обряд. Во власти демона / Di Ambang Kematian / The Verge of Death (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53369.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002 год. Отец девочки Надии проводит ритуальный жертвенный обряд, во время которого погибает её мать, а спустя 10 лет при схожих обстоятельствах умирает и старшая сестра. Вскоре выясняется, что каждые 10 лет жуткому демону требуется новая жертва, и теперь настал черёд Надии.Производство: Индонезия / MVP PicturesЖанр: ужасыРежиссер: Азхар Кинои ЛубисАктеры: Таскья Намья, Вафда Саифан Лубис, Тёку Рифну Викана, Кинарьосих, Элли Д. Лусан, Гиулио Паренкуан, Анди Берсама, Фарас Фатик, Рая Адена Сьях, Джоно ДжавирПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, индонезийскийСубтитры: Русские (Forced), английские (full, SDH), индонезийские (full, SDH)Продолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858F45DA1D3465A1E25598B745B8DFBB2C5306AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

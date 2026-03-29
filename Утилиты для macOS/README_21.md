@@ -6,7 +6,7 @@ Moom 3 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_680589.jpg" />
+  <img src="Z:/picture/005/save_picture_680589.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BetterZip 4.2.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680212.jpg" />
+  <img src="Z:/picture/008/save_picture_680212.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Command-Tab Plus 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677150.jpg" />
+  <img src="Z:/picture/008/save_picture_677150.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Dropzone 3 v3.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677001.jpg" />
+  <img src="Z:/picture/008/save_picture_677001.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Hide My IP 6.2.40 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676341.jpg" />
+  <img src="Z:/picture/008/save_picture_676341.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ CCleaner Pro 1.13.442 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676102.jpg" />
+  <img src="Z:/picture/008/save_picture_676102.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ XCap 1.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672897.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Syncios Data Transfer 1.2.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672649.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Command Center 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672162.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Code Collector Pro 1.7.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671141.jpg" />
+  <img src="Z:/picture/008/save_picture_671141.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ TinkerTool System 4.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670828.jpg" />
+  <img src="Z:/picture/008/save_picture_670828.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ DoYourData Super Eraser for Mac 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670498.jpg" />
+  <img src="Z:/picture/008/save_picture_670498.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ App Pier 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669397.jpg" />
+  <img src="Z:/picture/008/save_picture_669397.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ ColoFolXS 2.1.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667900.jpg" />
+  <img src="Z:/picture/008/save_picture_667900.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ DiskWarrior (Standalone) 5.1 + Bootable 5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667054.jpg" />
+  <img src="Z:/picture/008/save_picture_667054.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Mic Drop 1.4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666817.jpg" />
+  <img src="Z:/picture/008/save_picture_666817.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ SimBooster Premiun 2 2.9.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666777.jpg" />
+  <img src="Z:/picture/008/save_picture_666777.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ KCNcrew Pack 03-15-22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666761.jpg" />
+  <img src="Z:/picture/008/save_picture_666761.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Paste 2.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664321.jpg" />
+  <img src="Z:/picture/008/save_picture_664321.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Simple Screen Shade 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662459.jpg" />
+  <img src="Z:/picture/008/save_picture_662459.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Endurance 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662302.jpg" />
+  <img src="Z:/picture/008/save_picture_662302.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Forecast Bar 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662155.jpg" />
+  <img src="Z:/picture/008/save_picture_662155.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Cocktail Big Sur Edition 14.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660268.jpg" />
+  <img src="Z:/picture/008/save_picture_660268.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ TangerineWallpaper 1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660254.jpg" />
+  <img src="Z:/picture/008/save_picture_660254.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ MenuBar Stats 3 v3.8.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655030.jpg" />
+  <img src="Z:/picture/008/save_picture_655030.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ StatsBar 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654867.jpg" />
+  <img src="Z:/picture/008/save_picture_654867.jpg" />
 </div>
 
 

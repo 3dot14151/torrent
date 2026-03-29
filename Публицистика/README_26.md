@@ -1,3 +1,81 @@
+###  Публикация: 1211757   (776875) от 09.03.2018
+
+Вл. Мирошевский | Буржуазные юношеские организации в Германии (1924) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уяснить себе развитие буржуазного юношеского движения можно только в сопоставлении с теми объективными общественными условиями, которые вызвали это движение к жизни. Если буржуазные организации молодежи играли и играют весьма значительную роль в социальной жизни Германии (достаточно вспомнить хотя бы о фашистских союзах молодежи, образующих основные боевые силы воинствующей (   Читать дальше...   )Жанр: История, политология, религиоведение, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8DCB6A798C826D77814CAD951FD129CDD2237D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895657   (776688) от 06.05.2016
+
+Книжная серия | Вожди Советского Союза [13 книг.Обновляемая] (2012-2013) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776688.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вожди Советского Союза» - серия книг о политических деятелях СССР. Каждая книга - это сборник документальных произведений российских и зарубежных авторов.Жанр: История, Военная История, Биография и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA102134DA9495656E585F3D5A28B886827437D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014597   (776021) от 08.05.2016
+
+Кевин Фонг | EXTREMES. На пределе. Границы возможностей человеческого организма (2016) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — о хрупкости и одновременно невероятной стойкости человеческого организма. Дипломированный астрофизик, инженер и врач Кевин Фонг на реальных примерах из жизни и врачебной практики показывает, как ведёт себя наше тело в экстремальных условиях — при гипотермии, ожогах, травмах, инфекции — и рассказывает, как наука и практическая медицина научились побеждать (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3211439CB02162FB1E7FB894D3B3ECF73C2D709F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277556   (775159) от 22.01.2019
 
 С. И. Гуськов | В атаке доллар [Международный спорт и идеологическая борьба] (1988) [DJVU]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775159.jpg" />
+  <img src="Z:/picture/008/save_picture_775159.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775157.jpg" />
+  <img src="Z:/picture/008/save_picture_775157.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775103.jpg" />
+  <img src="Z:/picture/008/save_picture_775103.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775009.jpg" />
+  <img src="Z:/picture/008/save_picture_775009.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772561.jpg" />
+  <img src="Z:/picture/008/save_picture_772561.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772484.jpg" />
+  <img src="Z:/picture/008/save_picture_772484.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771907.jpg" />
+  <img src="Z:/picture/008/save_picture_771907.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771375.jpg" />
+  <img src="Z:/picture/008/save_picture_771375.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771271.jpg" />
+  <img src="Z:/picture/008/save_picture_771271.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770947.jpg" />
+  <img src="Z:/picture/008/save_picture_770947.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770446.jpg" />
+  <img src="Z:/picture/008/save_picture_770446.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770255.jpg" />
+  <img src="Z:/picture/008/save_picture_770255.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770231.jpg" />
+  <img src="Z:/picture/008/save_picture_770231.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769879.jpg" />
+  <img src="Z:/picture/008/save_picture_769879.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769102.jpg" />
+  <img src="Z:/picture/008/save_picture_769102.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769068.jpg" />
+  <img src="Z:/picture/008/save_picture_769068.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768915.jpg" />
+  <img src="Z:/picture/008/save_picture_768915.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768677.jpg" />
+  <img src="Z:/picture/008/save_picture_768677.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768002.jpg" />
+  <img src="Z:/picture/008/save_picture_768002.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767824.jpg" />
+  <img src="Z:/picture/008/save_picture_767824.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767623.jpg" />
+  <img src="Z:/picture/008/save_picture_767623.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767608.jpg" />
+  <img src="Z:/picture/008/save_picture_767608.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766898.jpg" />
+  <img src="Z:/picture/008/save_picture_766898.jpg" />
 </div>
 
 
@@ -601,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BACC50D7326E1EBC9D2BB5585720C9F86A6494A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213962   (766592) от 19.03.2018
-
-С. Смирнов (ред.) | Рабочие и крестьяне капиталистической каторги о нас и о себе (1933) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766592.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книжке речь идет о крестьянстве. А ведут эту речь представители иностранных рабочих делегаций, посетивших СССР и побывавших в советской колхозной деревне.
-
-Они радуются тем победам, которых достигло советское крестьянство на колхозном пути и в материальном и культурном отношении, опровергая буржуазную и социал-фашистскую ложь, которую распространяют враги (   Читать дальше...   )Жанр: История, политология, экономика, культурология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618E162854D96A6669320FA55E31BCC693CCCE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126258   (766067) от 17.04.2017
-
-Пол Салливан | Кодекс состоятельных. Живи, как 1% населения в мире (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колумнист The New York Times Пол Салливан на протяжении целого десятилетия изучал привычки богатых людей и пытался сформулировать основополагающие принципы их успеха. Чем отличается мировоззрение супербогачей от философии жизни простых людей? Благодаря чему они являются теми, кто они есть? И возможно ли, следуя их правилам, проложить путь на вершину олимпа? Из книги (   Читать дальше...   )Жанр: публицистика, экономикаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27928F060513507E2B70DF5C65AB5E2CAC528965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126192   (765481) от 18.04.2017
-
-Б. Томсон | Шпионаж во время войны (1938) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Базиль Томсона «Шпионаж во время войны» иллюстрирует указания товарища Сталина, что засылка шпионов, диверсантов даже в однотипных буржуазных государствах является законом их взаимоотношений. Книга раскрывает перед читателем всю опасность капиталистического окружения, ознакомляя его с диверсионной и шпионской работой иностранных разведывательных органов на (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6967510AB1BA661DB73DA82BE2BD64D1B6303D
 ```
 
 https://mybot314.ru/tekegram_catalog/

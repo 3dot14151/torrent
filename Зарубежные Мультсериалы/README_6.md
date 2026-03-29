@@ -1,3 +1,55 @@
+###  Публикация: 1354618   (950581) от 22.02.2020
+
+Харли Квинн / Harley Quinn (2019) UHD WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-13 из 13) The Kitchen Russia, Good People
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира ГотэмаПроизводство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation и др.Жанр: Мультсериал для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детективРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Дублированный (The Kitchen Russia), Многоголосый профессиональный (Good People - ненормативная лексика)Субтитры: Русские, английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF8A283883F1131BA786147344A81FC944FA750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360261   (950455) от 22.02.2020
+
+Отважные птенцы / Top Wing (2019) WEBRip [H.264/1080p-LQ] (сезон 2, эпизоды 10 из 13)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважные птенцы – это приключенческий мультсериал для дошкольнишков, рассказывающий о команде юных пернатых смельчаков, проходящих обучение в академии Высший пилотаж.Производство: Канада / Industrial Brothers и 9 Story Media GroupЖанр: мультфильм, боевик, комедия, приключения, семейныйРежиссер: Мэтью ФернандесПеревод: ДублированныйСубтитры: нетПродолжительность: 00:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EDA3C999F6AA91F73B3BBCF758EE822B9DBF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362265   (949481) от 23.02.2020
 
 Шесть рук / Seis Manos (2019) WEBRip  (сезон 1, серии 1-8 из 8) NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949481.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949464.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949344.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947557.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946302.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946299.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946298.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946034.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945928.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945779.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945589.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945386.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944907.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944134.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943097.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941857.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940961.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940440.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939667.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939423.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938802.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938150.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937996.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937926.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:482401ADBDBB38579A4248F93EBEC4AFD2D1B8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563155   (937764) от 09.03.2013
-
-Звёздные Войны: Войны Клонов / Star Wars: The Clone Wars (2012) WEB-DLRip (сезон 5, полный) (LostFilm)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарт Мол и Саваж Опресс сеют смерть и разрушение, занимаясь разбоем на Внешнем Кольце. Избавив брата от отчаяния и забвения, Саваж со своим братом убивают и мародёрствуют всюду. Снедаемый бешенством и местью, они прибывают в поиске смысла в их новом альянсе; тогда как слухи о их жестоких набегах распространяется по галактике. Дарт Мол явно не горит желанием примкнуть (   Читать дальше...   )Жанр: Мультфильм, Фантастика, Фэнтези, Боевик, Драма, Приключения, ...Режиссер: Дэйв Филони / Dave Filoni, Дуэйн Данэм / Duwayne Dunham, Роберт Далва / Robert DalvaПеревод: Многоголосый закадровый, профессиональныйОзвучка: СтудияФормат: AVIПродолжительность: ~ 00:21:00 мин серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3259E7030ACA9486B52B8CB2DA24BBC2703A44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364099   (937549) от 02.03.2020
-
-Аватар: Легенда об Аанге / Avatar: The Last Airbender (2005-2008) WEB-DLRip [H.265/1080p-LQ] [10-bit] (Сезон 1-3, Серии 1-61 из 61)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир разделен на четыре народа: Водные племена, королевство Земли, Воздушные кочевники и страна Огня. В этом мире часть людей из каждого народа обладают способностью к контролю своего элемента, такие люди именуют себя магами Воды, Земли, Воздуха или Огня. Только Аватар является властелином всех четырех стихий. Его роль заключается в поддержке баланса между народами (   Читать дальше...   )Производство: США. Nickelodeon Animation StudiosЖанр: Рисованная анимация, Фэнтези, ПриключенияРежиссер: Джанкарло Вольпе, Этан Сполдинг, Лорен Макмаллен и другиеПеревод: Дублированный (Арт-Дубляж)Субтитры: Русские (отдельными файлами)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC33819A2876A3F820223763B7D0776E4C7D4599
 ```
 
 https://mybot314.ru/tekegram_catalog/

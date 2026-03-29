@@ -6,7 +6,7 @@
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889075.jpg" />
+  <img src="Z:/picture/005/save_picture_889075.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888450.jpg" />
+  <img src="Z:/picture/005/save_picture_888450.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886372.jpg" />
+  <img src="Z:/picture/005/save_picture_886372.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873111.jpg" />
+  <img src="Z:/picture/008/save_picture_873111.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872238.jpg" />
+  <img src="Z:/picture/008/save_picture_872238.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871594.jpg" />
+  <img src="Z:/picture/008/save_picture_871594.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871274.jpg" />
+  <img src="Z:/picture/008/save_picture_871274.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870914.jpg" />
+  <img src="Z:/picture/008/save_picture_870914.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870882.jpg" />
+  <img src="Z:/picture/008/save_picture_870882.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869227.jpg" />
+  <img src="Z:/picture/008/save_picture_869227.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868840.jpg" />
+  <img src="Z:/picture/008/save_picture_868840.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868079.jpg" />
+  <img src="Z:/picture/008/save_picture_868079.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860135.jpg" />
+  <img src="Z:/picture/008/save_picture_860135.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856206.jpg" />
+  <img src="Z:/picture/008/save_picture_856206.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848189.jpg" />
+  <img src="Z:/picture/008/save_picture_848189.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844653.jpg" />
+  <img src="Z:/picture/008/save_picture_844653.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843275.jpg" />
+  <img src="Z:/picture/008/save_picture_843275.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839445.jpg" />
+  <img src="Z:/picture/008/save_picture_839445.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830270.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828553.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821593.jpg" />
+  <img src="Z:/picture/008/save_picture_821593.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817619.jpg" />
+  <img src="Z:/picture/008/save_picture_817619.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817304.jpg" />
+  <img src="Z:/picture/008/save_picture_817304.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815563.jpg" />
+  <img src="Z:/picture/008/save_picture_815563.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813103.jpg" />
+  <img src="Z:/picture/008/save_picture_813103.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812277.jpg" />
+  <img src="Z:/picture/008/save_picture_812277.jpg" />
 </div>
 
 

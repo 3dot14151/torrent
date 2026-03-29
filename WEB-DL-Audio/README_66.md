@@ -6,7 +6,7 @@ Deaf Havana - We're Never Getting Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104453.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Playingtheangel - любовь побеждает смерть (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104450.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Acres - The Host (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104448.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mastodon, Lamb of God - Floods of Triton (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104346.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ The Funeral Portrait - Greetings From Suffocate City (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104341.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ In Extremo - Wolkenschieber (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104334.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Sam Smith - Gloria (2023) (Special Edition) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104332.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Snow Patrol - The Forest Is The Path (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104327.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ A Killer's Confession - Victim 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104326.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ The Nail - The Nail (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Thrash Menal, Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104274.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Ryan Keberle - Bright Moments (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104272.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Mike Stern - Echoes and Other Songs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104271.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Blues Bizarre - Blues Bizarre (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104269.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Rich Russman - Second Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104268.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Jamie Carr Band - KY Chrome (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104267.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fatigue Force - Wandering Blues T (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104266.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104265.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Francesco Bearzatti and Federico - And Then Winter Came Again (2024) [FLAC 24/96
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104260.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Earth Lux - Earth Lux (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104255.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Bones Uk - Soft (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Imdustrial Rock, G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104244.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Fleetwood Mac - Mirage Tour '82 (1982) Remaster, 2024,  Rhino - Warner Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104237.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Defiled - Horror Beyond Horror (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104232.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Unto Others - Never, Neverland (2024) Deluxe Edition [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104231.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Zetra - Zetra (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Synth-Rock, Synth-Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104230.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Ctraltu - NO EXIT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104229.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Skid Row - Live in London (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104228.jpg" />
 </div>
 
 

@@ -1,3 +1,114 @@
+###  Публикация: 1519809   (147127) от 25.12.2021
+
+Colibri 2.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нативный Lossless Audio проигрыватель, созданный на основе технологии BASS.
+Colibri поддерживает воспроизведение всех популярных форматов без потерь, использует только небольшое количество вычислительной мощности и предлагает чистый и интуитивно понятный пользовательский интерфейс.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2021Разработчик: © 2021 Gabor HargitaiПоддерживаемая ОС: macOS 10.10 или новееЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3EFD0C7BE342B9F7434FEC5287EDC09E616AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519722   (147102) от 25.12.2021
+
+Beyond Compare 4 v4.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальность цифровых файлов - они копятся. И у пользователей, как правило, скапливаются одни и те же файлы снова и снова. Так как же вы узнаете, что два огромных файла действительно одинаковые, прежде чем удалить один из них?
+Есть один инструмент, который поможет вам устранять дубликаты, объединять изменения из нескольких источников и поддерживать синхронизацию каталогов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Scooter Software, Inc.Поддерживаемая ОС: Mac OS X 10.11 или вышеЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DE525E62DDABFE48269117B40CB0140DC7E60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589721   (146972) от 15.12.2012
+
+[AppStore] Batman: Arkham City Game of the Year Edition [Native]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не меняя обкатанной формулы, Rocksteady ударила ногой и выбила двери, соединявшие кусочки открытых уровней. Аркхем-сити — город в городе, резервация для преступников, созданная профессором Хьюго Стрейнджем с одобрения экс-начальника тюрьмы, пересевшего в кресло мэра. По меркам современных «песочниц» пространство тесновато, зато берет за душу отменной проработкой деталей. Снег падает на грязные улицы, заброшенную сталеплавильную фабрику, обветшавшую церковь и бесполезный музей, но тает в полете, не успевая скрыть горы мусора и кровь на асфальте.
+
+Отрезанные от сияющих огней мегаполиса ледяной водой и пулеметными вышками, злодеи замышляют гнусности. Банды Пингвина, Джокера и Двуликого делят сферы влияния, Ядовитый Плющ свила уютное гнездышко в бывшем отеле, маньяк Виктор Заз опять похищает людей, громила Бейн ищет емкости с драгоценным препаратом «TITAN», снайпер-убийца Дедшот исполняет «заказы», и лишь Календарный Человек скучает в подвале… Пусть Стрейндж — злой гений, раскусивший личину Бэтмена, он совершил фатальную (   Читать дальше...   )Релиз состоялся: 2012Тип издания: MacOS X gameЖанр: Action / 3D / 3rd Person / StealthЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Польский, Португальский, Испанский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087437   (146860) от 27.12.2016
+
+URL Manager Pro 4.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146860.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 декабря 2016Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.6.9 +Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0B606EE8B57553EF27D23285AA24F8B71CC070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435221   (146835) от 27.12.2020
 
 Multitouch 1.21.2 [En]
@@ -6,7 +117,7 @@ Multitouch 1.21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146835.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Smooze 1.9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146829.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ Magnet - Snap windows into various sizes and positions 1.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146615.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ Cisdem Document Reader 4 v4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146479.jpg" />
 </div>
 
 
@@ -110,7 +221,7 @@ GrandTotal 6 v6.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146469.jpg" />
 </div>
 
 
@@ -138,7 +249,7 @@ iNotepad Pro 4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146461.jpg" />
 </div>
 
 
@@ -164,7 +275,7 @@ Timemator 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146451.jpg" />
 </div>
 
 
@@ -190,7 +301,7 @@ iA Writer 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146444.jpg" />
 </div>
 
 
@@ -216,7 +327,7 @@ Davinci Resolve Studio 18.6.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146434.jpg" />
 </div>
 
 
@@ -244,7 +355,7 @@ InstaCal 1.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146423.jpg" />
 </div>
 
 
@@ -271,7 +382,7 @@ WindowSwitcher 1.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146382.jpg" />
 </div>
 
 
@@ -299,7 +410,7 @@ MediaHuman Youtube Downloader 3.9.9.30 (build 2512) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146353.jpg" />
 </div>
 
 
@@ -328,7 +439,7 @@ Tinderbox 8 v8.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146293.jpg" />
 </div>
 
 
@@ -356,7 +467,7 @@ AnyMP4 DVD Converter 8.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146283.jpg" />
 </div>
 
 
@@ -382,7 +493,7 @@ Scrutiny 12.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146265.jpg" />
 </div>
 
 
@@ -409,7 +520,7 @@ Integrity Pro 12.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146228.jpg" />
 </div>
 
 
@@ -435,7 +546,7 @@ AnyMP4 iPhone GPS Spoofer for Mac 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146221.jpg" />
 </div>
 
 
@@ -462,7 +573,7 @@ Garden Planner 3.7.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146201.jpg" />
 </div>
 
 
@@ -488,7 +599,7 @@ Alfred 3 Powerpack 3.7.1(948)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146173.jpg" />
 </div>
 
 
@@ -517,7 +628,7 @@ XMind 7 Pro 3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146170.jpg" />
 </div>
 
 
@@ -543,7 +654,7 @@ Downie 3 v3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146148.jpg" />
 </div>
 
 
@@ -571,7 +682,7 @@ eMail Address Extractor 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146147.jpg" />
 </div>
 
 
@@ -583,116 +694,6 @@ eMail Address Extractor - ищем и извлекаем email адреса. eMa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:345A0CBB9FBA4F52E8311C4F5036BBC3210FC1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348208   (146115) от 26.12.2019
-
-Allegorithmic Substance Painter 2019.3.1 (build 3547) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Painter - совершенно новое решение для 3D-рисования с невиданными возможностями и оптимизированным рабочим процессом, позволяющее создавать текстуры проще, чем когда-либо. Substance Painter признали как самое инновационное приложение для 3D рисования.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AllegorithmicПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D535822FDA094B373B3C2BABF09C187A743AB50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348150   (146088) от 26.12.2019
-
-Elmedia Player Pro 7.8 (build 1897) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58A477E34700945D20096148921A6EADA42DD7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348181   (146053) от 26.12.2019
-
-Folx Pro 5 v5.14 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146053.jpg" />
-</div>
-
-
-###  Подробнее
-
-FOLX 5 - Менеджер загрузок для Мас
-
-Folx- бесплатный менеджер загрузок с удобным интерфейсом в стиле macOS. Менеджер загрузок предлагает удобную систему управления загрузок, гибкие настройки и т.д
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.12.2019Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DA345C3AAE3B36764E0792B443614A120F5C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348028   (146030) от 26.12.2019
-
-ATOM RPG: Post-apocalyptic indie game v1.11 (2019) [Multi/Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146030.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATOM RPG - это постапокалиптическая инди-игра, вдохновлённая классическими CRPG: Fallout, Wasteland, System Shock, Deus Ex, Baldur's Gate.
-В 1986 году СССР и Западный блок были практически уничтожены в ходе обмена ядерными ударами. Вы - один из выживших после апокалипсиса. Ваша задача - исследовать жестокий и загадочный мир Советских Пустошей, завоевать в нём своё (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: AtomTeamПоддерживаемая ОС: macOS 10.12 и вышеЖанр: RPGЯзык интерфейса: Русский, английский, китайский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D61A91A19320E84F287AF08CF2236F81787EF36
 ```
 
 https://mybot314.ru/tekegram_catalog/

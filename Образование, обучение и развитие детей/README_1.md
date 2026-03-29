@@ -1,3 +1,57 @@
+###  Публикация: 1436988   (1042798) от 02.01.2021
+
+Вячеслав Ликсо | Объясни мне почему. Покажи мне как. Техника (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всем мире на протяжении многих веков для перемещения какого-либо груза использовалась сила человека или животного. А в конце XIX века люди изобрели двигатель внутреннего сгорания, который глобально повлиял на развитие цивилизации. И теперь мощные строительные машины помогают возводить невероятной высоты небоскребы, самолеты за один рейс доставляют сотни пассажиров (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1334991E4CCE1D57BF4F6DE96B7EEBAF9240E624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436941   (1042796) от 02.01.2021
+
+Дарья Гордиевич | На все 100%. Только для супердевочек (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - прекрасный путеводитель по непростому девичьему миру: здесь содержатся сведения, необходимые каждой девочке, которая стремится стать образованной, воспитанной и творческой личностью. Ну и, конечно же, она хочет выглядеть на все 100%.
+
+Советы по питанию помогут тебе правильно составить меню, а правила этикета, изложенные на страницах книги - вырасти настоящей (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6D585764B5BD69E24B5F9D5541A27E61F3281E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436986   (1042787) от 02.01.2021
 
 А. Полбенникова (ред.) | Знаниус. Музей занимательных наук. Что такое искусство и зачем оно нужно (2015) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042787.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042782.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042695.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042548.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042545.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042544.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042463.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042291.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042284.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041737.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041503.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041180.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041179.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040911.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040905.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040898.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040576.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039977.jpg" />
 </div>
 
 
@@ -494,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038809.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038766.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038526.jpg" />
 </div>
 
 
@@ -574,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038495.jpg" />
 </div>
 
 
@@ -600,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038467.jpg" />
 </div>
 
 
@@ -628,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038269.jpg" />
 </div>
 
 
@@ -642,61 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23FB03561279F29080B550F2D7205C41D212E5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441002   (1038246) от 19.01.2021
-
-Ирина Френк | Английский язык. Тренажер по чтению. Буквы и звуки (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038246.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даются основные правила чтения английских букв и буквосочетаний,
-которые помогут сформировать правильное произношение. Вместе с этим тре-
-нажёром малыши с помощью родителей научатся разбираться в знаках транс-
-крипции, усвоят правильное произношение звуков.(   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3714D7D81293B2A463C1CE44394440AA09C1D477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440867   (1038236) от 19.01.2021
-
-К.А. Кноп | Азы теории чисел (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга продолжает брошюру А. И.Сгибнева «Делимость и простые числа», переходя от вопросов делимости к математическим понятиям и языку, чьё появление произвело революцию в теории чисел. Рассматриваются теорема Вильсона, свойства функции Эйлера, китайская теорема об остатках, малая теорема Ферма и теорема Эйлера.Последние два занятия посвящены новым для кружков темам: (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B97C5DEA5D4C88A3501A38967848A72FE2F47B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

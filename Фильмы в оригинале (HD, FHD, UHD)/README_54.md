@@ -1,3 +1,107 @@
+###  Публикация: 1617752   (201599) от 09.03.2023
+
+Триплексоголик / xxxHOLiC (2022) BDRip [H.264/1080p] [JP / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кимихиро Ватануки обладает особой способностью видеть аякаси (призраков). Однажды бабочка приводит его в таинственный магазин, торгующий исполнением желаний. Там он встречает хозяйку магазина Итихару Юко (Фамилия и Имя не настоящие). Она говорит ему, что исполнит его желание за соразмерную плату в отношении самого драгоценного для него...Производство: Япония / Asmik Ace, Hachinoji, ShochikuЖанр: фэнтези, мистика, триллерРежиссер: Мика НинагаваАктеры: Рюносукэ Камики, Ко Сибасаки, Хокуто Мацумура, Тина Тамасиро, Сюри, Даоко, Серена Мотола, Нанасэ Нисино, Сакурако Охара, Тэнка ХасимотоПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно)Продолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B592019BAD2F92C7A37693D2306B7C5FAF3D53BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602711   (201579) от 09.03.2023
+
+Падающая звезда / Nagareboshi / Shooting Star (2021) HDTVRip [MPEG-2/1080i] [JP / RU, JP Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хосино Нацко закрывает пансионат «Хосюкан» в связи с непопулярностью данного формата гостиниц. Её муж уходит на собрание ассоциации жителей. Тогда она видела его в последний раз... На сорок девятый день перед ней возникает из ниоткуда девушка назвавшаяся «Юмэно Мари». Юная особа предложила вдове исполнить четыре её желания. Первым невысказанным желанием Нацко было (   Читать дальше...   )Производство: Япония, NHKЖанр: фантастика, мелодрамаРежиссер: Коно КэйтаАктеры: Мацудзака Кэйко, Куросима Юина, Тайра Юна, Кирияма Акито, Хории Арата, Окавара Мэгуми, Ёкояма Рё, Вакабаяси Гэнта, Оми Тосинори, Фунакоси ЭйитироПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно), Японские (ASS, отдельно)Продолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48FBB846E812A1DE28605320EA3361BD99A2754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621016   (200893) от 24.03.2023
+
+Патхан / Pathaan (2023) WEBRip [H.265/1080p] [10-bit] [Hindi / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индийский шпион берется за лидера группы наемников, у которых есть гнусные планы напасть на его родину.Производство: Индия, Yash Raj Films Pvt. Ltd.Жанр: боевик, приключения, драма, триллерРежиссер: Сиддхарт АнандАктеры: Шах Рукх Кхан, Джон Абрахам, Дипика Падукон, Димпл Кападиа Ашутош Рана, Салман Кхан, Вираф Патель, Шаджи Чаудхари и др.Перевод: отсутствуетЯзык озвучки: ХиндиСубтитры: русские, английские (SDH, Full)Продолжительность: 02:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE11702C8D0CC0CE8D468A6FE365C5DD749C52B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623107   (200468) от 31.03.2023
+
+Крид 3 / Creed III (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200468.jpg" />
+</div>
+
+
+###  Подробнее
+
+На свободу после длительного тюремного заключения выходит друг детства Крида и бывший вундеркинд бокса Дэмиан «Дама» Андерсон, который горит желанием доказать, что заслуживает своего шанса на ринге. Чтобы свести счеты, Донни должен поставить на карту свое будущее, ведь Дэмиану нечего терять.Производство: США / Metro-Goldwyn-Mayer (MGM), Chartoff-Winkler Productions, GlickmaniaЖанр: драма, спортРежиссер: Майкл Б. ДжорданАктеры: Майкл Б. Джордан, Тесса Томпсон, Джонатан Мэйджерс, Вуд Харрис, Филисия Рашад, Майла Дэвис-Кент, Хосе Бенавидез, Селенис Лейва, Флориан Мунтяну, Тадеус Дж. МиксонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, SDH), французские и др.Продолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4BAA64F356B0208419A11F3ECEE7FDE4D29BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623276   (200457) от 01.04.2023
 
 Убийство в Париже / Murder Mystery 2 (2023) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200457.jpg" />
+  <img src="Z:/picture/005/save_picture_200457.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200118.jpg" />
+  <img src="Z:/picture/005/save_picture_200118.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200105.jpg" />
+  <img src="Z:/picture/005/save_picture_200105.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_200028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200028.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199759.jpg" />
+  <img src="Z:/picture/005/save_picture_199759.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199686.jpg" />
+  <img src="Z:/picture/005/save_picture_199686.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199255.jpg" />
+  <img src="Z:/picture/005/save_picture_199255.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198963.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_198952.jpg" />
+  <img src="Z:/picture/005/save_picture_198952.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198936.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198735.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198637.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198473.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Air: Большой прыжок / Air (2023) WEB-DL [H.264/1080p] [EN / RU, EN 
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198443.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_198040.jpg" />
+  <img src="Z:/picture/004/save_picture_198040.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197225.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196943.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195818.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195761.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195720.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195061.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194486.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79038A50998B1209C82EF805573790D5D728B764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655305   (193797) от 25.08.2023
-
-Мег 2: Бездна / Meg 2: The Trench (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Водолаз-спасатель Джонас отправляется во впадину, где обитает очередная акула-мегалодон. Одолеть суперхищницу и её подводных приспешников будет совсем непросто.Производство: США, Китай / Apelles Entertainment, China Media Capital, Flagship Entertainment Group, Gravity Pictures, Maeday Productions, Warner Bros. Studios LeavesdenЖанр: ужасы, фантастика, боевикРежиссер: Бен УитлиАктеры: Джейсон Стэйтем, Клифф Кёртис, Сиенна Гиллори, Шуя Софиа Цай, Скайлер Сэмюэлс, Мелиссанти Махут, Пейдж Кеннеди, Джеки У, Whoopie Van Raam, Киран Соня СаварПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full, SDH), французские (full)Продолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF22284AF3FB8613E34376F7B0F7B06A7414AF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656077   (193642) от 29.08.2023
-
-Индиана Джонс и колесо судьбы / Indiana Jones and the Dial of Destiny (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неувядающий авантюрист и пытливый археолог-исследователь по-прежнему в седле. На этот раз ему придётся столкнуться с непростой задачей, которую решить на раз-два вряд ли получится. Но Индиана Джонс не даст слабину и не отступит при виде даже самой безнадёжной ситуации.Производство: США, Walt Disney Pictures, Lucasfilm, Paramount PicturesЖанр: боевик, приключенияРежиссер: Джеймс МэнголдАктеры: Харрисон Форд, Фиби Уоллер-Бридж, Мадс Миккельсен, Антонио Бандерас, Джон Рис-Дэвис, Тоби Джонс, Бойд Холбрук, Карен Аллен, Шонетт Рене Уилсон, Томас КречманПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full), французские, испанскиеПродолжительность: 02:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A98A21D7F88FDCECD5649978DC299F992FEB3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656621   (193550) от 31.08.2023
-
-Последнее путешествие «Деметра» / The Last Voyage of the Demeter (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дракула путешествует в Лондон на русском корабле «Деметр» и потихоньку ест матросов и пассажиров.Производство: США, Великобритания, Мальта, Италия, Германия, Amblin Partners, Dreamworks Pictures, Firebrand Video, Latina Pictures, New Republic Pictures, Phoenix Pictures, Studio Babelsberg, Universal Pictures, Viola FilmЖанр: ужасыРежиссер: Андре ЭвредалАктеры: Кори Хокинс, Эшлинг Франчози, Лиам Каннингэм, Давид Дастмалчян, Крис Уолли, Джон Джон Брионес, Стефан Капичич, Мартин Фурулунд, Николай Николаефф, Вуди НорманПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (full, SDH)Продолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3818B23FF5F68FF737453DF1EA63E4B9A20AC31B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586969   (193053) от 29.10.2022
-
-На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) WEB-DL [H.264/1080p-LQ] [DE / RU, EN Sub]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их вырвали из привычной жизни и швырнули в кровавую грязь войны. Когда-то они были юношами, учившимися жить и мыслить, а теперь они — пушечное мясо, которое учится выживать и не думать.Производство: Германия, США, Великобритания / Amusement Park Films, Rocket ScienceSliding, Down Rainbows EntertainmentЖанр: военный, боевик, драма, историяРежиссер: Эдвард БергерАктеры: Даниэль Брюль, Альбрехт Шух, Себастьян Хюльк, Эдин Хасанович, Феликс Каммерер, Антон фон Люк, Девид Штрисов, Люк Фейт, Джо Вайнтрауб, Михаэль ВиттенборнПеревод: отсутствуетЯзык озвучки: немецкийСубтитры: русские (full), украинские (full), английские (full, SDH) и др.Продолжительность: 02:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4CF64A13DF0A08C313EF5258E76F3A7685D354
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1489857   (922258) от 18.08.2021
+
+Кубок мира по электробайкам MotoE 2021. Этап 5. Гран-При Австрии / FIM Enel MotoE World Cup 2021. Rd 4. Austrian GP (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922258.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoE, официальное название FIM Enel MotoE World Cup, это класс мотоциклетных гонок в которых используются только электрические байки. Серия была одобрена FIM и первый сезон пройдёт на пяти европейских трассах в рамках поддержки чемпионата MotoGP в 2019 году.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A431F3D4AA93A4D54006A7630A6626ACB30A3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489852   (922257) от 18.08.2021
+
+Чемпионат мира по шоссейно-кольцевым гонкам Формула Е. Сезон 2021. Этап 14-15. Германия. Квалификация 1,2, Гонка 1,2 / Formula E. 2021. R14-15. BMW i Berlin E-Prix presented by CBMM Niobium. Quali  ...
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922257.jpg" />
+</div>
+
+
+###  Подробнее
+
+14-15 этап электрической формулы Formula E в Германия, Берлин.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:46:23 + 01:47:13 + 01:21:27 + 01:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DB26C8154F10EE860CAE1876DDDD40431FD7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490298   (919012) от 20.08.2021
+
+Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2021. Нокхилл, Гонка 1-3 / BTCC. Knockhill, Race 1-3 (2021) (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 48:59 + 41:51 + 39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5228E0755438873526DD4508D748B90BA3EFCB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491424   (912381) от 24.08.2021
 
 Национальное первенство Великобритании по супербайку 2021. Кэдвелл Парк, Гонка 1-3 / British Superbike Championship. Cadwell Park, Race 1-3  (2021) WEB-DL [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912381.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912379.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912363.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910692.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ MotoGP. Этап 12. Гран-при Великобритании. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904012.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902378.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902372.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902357.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900782.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886746.jpg" />
+  <img src="Z:/picture/005/save_picture_886746.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882374.jpg" />
+  <img src="Z:/picture/005/save_picture_882374.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ MotoGP. Этап 13. Гран-при Арагона. Гонка (12.09.2021) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880723.jpg" />
+  <img src="Z:/picture/005/save_picture_880723.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880719.jpg" />
+  <img src="Z:/picture/005/save_picture_880719.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ MotoGP. Этап 13. Гран-при Арагона. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880711.jpg" />
+  <img src="Z:/picture/005/save_picture_880711.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880607.jpg" />
+  <img src="Z:/picture/005/save_picture_880607.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874223.jpg" />
+  <img src="Z:/picture/005/save_picture_874223.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ WRC. Чемпионат мира по ралли. Обзоры / World Rally Cha
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872326.jpg" />
+  <img src="Z:/picture/008/save_picture_872326.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ MotoGP. Этап 14. Гран-при Сан-Марино. Квалификаци
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871408.jpg" />
+  <img src="Z:/picture/008/save_picture_871408.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ MotoGP. Этап 14. Гран-при Сан-Марино. Гонка (19.09.2021
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867865.jpg" />
+  <img src="Z:/picture/008/save_picture_867865.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859635.jpg" />
+  <img src="Z:/picture/008/save_picture_859635.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858055.jpg" />
+  <img src="Z:/picture/008/save_picture_858055.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ MotoGP. Этап 15. Гран-при США. Квалификация (02.10.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846180.jpg" />
+  <img src="Z:/picture/008/save_picture_846180.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ MotoGP. Этап 15. Гран-при США. Гонка (03.10.2021) WEBRip [H.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844436.jpg" />
+  <img src="Z:/picture/008/save_picture_844436.jpg" />
 </div>
 
 
@@ -591,85 +669,6 @@ MotoGP. Этап 15. Гран-при США. Гонка (03.10.2021) WEBRip [H.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA7E07197449DBDADF8D8C795F690FDFA17517B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197489   (813510) от 08.01.2018
-
-Феррари: Гонка за бессмертие / Ferrari: Race to Immortality (2017) DVDRip [H.264/1080p-LQ] [VO]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на название, в центре внимания в фильме не столько Ferrari, сколько жизнь и смерть её пилотов Луиджи Муссо, Альфонсо де Портаго, Питера Коллинза и Майка Хоторна, а также их порой непростых взаимоотношениях с Энцо Феррари.
-Основой для фильма послужила биографическая книга Криса Никсона «Mon Ami Mate» (можно перевести с французского как «Мой друг и напарник»), (   Читать дальше...   )Телекомпания: Великобритания, Embankment Films, Artimis FilmЖанр: Документальный, СпортРежиссер: Дэрил ГудричПеревод: Одноголосый закадровый, любительскийСубтитры: отсутствуютПродолжительность: 01:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71490534766626780AE97F7616873AEA0A66E76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504666   (810349) от 24.10.2021
-
-MotoGP. Этап 16. Гран-при Эмилии-Романьи. Квалификация (23.10.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810349.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 октября 2021, суббота. 15:10 МСК. Этап 16, Гран-при Эмилии-Романьи. Италия, КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53257F65C8A99B9E9E4E3FEAB6CDE612A8DE44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504819   (802727) от 28.10.2021
-
-MotoGP. Этап 16. Гран-при Эмилии-Романьи. Гонка (24.10.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802727.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 октября 2021, воскресенье. 15:00 МСК. Этап 16, Гран-при Эмилии-Романьи. Италия, Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E424EFB58528A82B3384BA29E5BB3B9FE09ABD9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

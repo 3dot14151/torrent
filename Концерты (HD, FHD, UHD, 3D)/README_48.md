@@ -1,3 +1,87 @@
+###  Публикация: 1771523   (31415) от 10.01.2025
+
+Mylene Farmer: Nevermore (2024) BDRip [H.264/1080p]
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный тур Милен Фармер Nevermore, организованный в поддержку её последнего студийного альбома L'Emprise начался 3 июня 2023 г. и завершился 1 октября 2024 г. Это первый тур певицы, который полностью проходил на стадионах. Основная часть шоу была снята во время двух концертов в Лионе. Для съемок были использованы 42 камеры, включая установленные на беспилотник. (   Читать дальше...   )01. Prologue
+02. Du Temps
+03. Peut-Être Toi
+04. Libertine(   Читать дальше...   )Производство: Франция / Stuffed MonkeyЖанр: ПопРежиссер: Франсуа АнссУчастники: Mylène Farmer - vocals, Joel Shearer - guitar, Sébastien Chouard - guitar, Éric Chevalier - keyboards, piano, Johan Dalgaard - keyboards, piano, Jonathan Noyce - bass, Charles Paxson - drumsПродолжительность: 02:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77281282664B7EA88C8B6234E79DB541E6ED9484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774244   (30406) от 19.01.2025
+
+Def Leppard: One Night Only. Live at the Leadmill (2023) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Def Leppard's One Night Only: Live at The Leadmill Sheffield captures the energy and intimacy of a rare club performance by the stadium fillers in their hometown. Recorded on May 19, 2023, the show took place in front of just under 900 fans, marking the smallest venue the band had played in the UK or Europe in over 35 years. Returning to their roots, the band performed (   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D8393557D4297BD05130AAC194AAAD40772DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771630   (29202) от 31.01.2025
+
+Легенды Ретро FM (2024) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера телеверсии международного музыкального фестиваля Легенды Ретро FM-202401. Ottawan — D.I.S.C.O.
+02. Ottawan — Hands up
+03. Лариса Долина — Льдинка
+04. Лариса Долина — Погода в доме(   Читать дальше...   )Производство: Россия / 1 каналЖанр: PopПродолжительность: 01:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6805365EFCD50138E25FCC0B080A711B0933421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821113   (29148) от 30.09.2025
 
 NEMOPHILA. Oshikura Manju OSARETE WARAOU TOUR at SENDAI (2024) BDRip [H.264/1080p]
@@ -6,7 +90,7 @@ NEMOPHILA. Oshikura Manju OSARETE WARAOU TOUR at SENDAI (2024) BDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29148.jpg" />
 </div>
 
 
@@ -36,7 +120,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.265
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28975.jpg" />
 </div>
 
 
@@ -65,7 +149,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28906.jpg" />
 </div>
 
 
@@ -94,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28904.jpg" />
 </div>
 
 
@@ -120,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28879.jpg" />
 </div>
 
 
@@ -147,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28781.jpg" />
 </div>
 
 
@@ -173,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27961.jpg" />
 </div>
 
 
@@ -200,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27929.jpg" />
 </div>
 
 
@@ -227,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27713.jpg" />
 </div>
 
 
@@ -254,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27411.jpg" />
 </div>
 
 
@@ -283,7 +367,7 @@ Scooter - The stadium techno inferno - Live in Hamburg (2011) DVDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27398.jpg" />
 </div>
 
 
@@ -312,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27226.jpg" />
 </div>
 
 
@@ -341,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26695.jpg" />
 </div>
 
 
@@ -370,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25936.jpg" />
 </div>
 
 
@@ -400,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25796.jpg" />
 </div>
 
 
@@ -429,7 +513,7 @@ eRa: The Live Experience 2025 (2025) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23090.jpg" />
 </div>
 
 
@@ -460,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22205.jpg" />
 </div>
 
 
@@ -486,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21666.jpg" />
 </div>
 
 
@@ -512,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21009.jpg" />
 </div>
 
 
@@ -539,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21003.jpg" />
 </div>
 
 
@@ -566,7 +650,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20926.jpg" />
 </div>
 
 
@@ -594,7 +678,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20921.jpg" />
 </div>
 
 
@@ -621,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20862.jpg" />
 </div>
 
 
@@ -636,93 +720,6 @@ Concerto No.2 in G minor, Op.8, RV 315, Summer (L'estate)(   Читать дал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D41AADB646857A67545094FA45541C0FB1E903E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792698   (20857) от 20.04.2025
-
-Квартирник у Маргулиса. Бонд с кнопкой (19.04.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультиинструментальная группа «Бонд с кнопкой» была образована в 2017 году, а их дебютный альбом «Путешествие» вышел осенью 2023-го. Их творчество отличается особой лирикой, аутентичным вокалом, а также диапазоном аранжировок, в которых гитара и клавиши сочетаются с виолончелью, скрипкой и саксофоном. «Бонд с кнопкой» — одна из главных инди-сенсаций последнего времени: (   Читать дальше...   )00:00:06 Плач
-00:04:47 Даль
-00:08:42 Камушки
-00:15:04 Кухни(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-фолкЯзык: РусскийПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDCE4DC4FBCD628C4188BD6977889107E7CA4A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793993   (20066) от 27.04.2025
-
-Квартирник у Маргулиса. Слот (26.04.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «СЛОТ» была основана в 2002 году и с тех пор прочно закрепила за собой звание одной из самых популярных альтернативных команд страны. Их первый же тур захватил более 40 городов. Музыканты и сейчас славятся продолжительными гастролями и могут давать концерты больше года подряд.00:00:05  С.М.Г.О.
-00:07:18  Мертвые звезды
-00:15:01  Одни
-00:20:33  Ангел или демон(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Рок, рэп, металЯзык: РусскийПродолжительность: 01:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF2078BE66A7BE09BE6FA51451958D9694A355C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796521   (18706) от 10.05.2025
-
-Квартирник у Маргулиса. 80 лет Победе в Великой Отечественной войне (10.05.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18706.jpg" />
-</div>
-
-
-###  Подробнее
-
-На НТВ — специальный выпуск «Квартирника НТВ у Маргулиса», посвященный юбилею Победы в Великой Отечественной войне. В этот вечер со сцены прозвучала композиция «Минута молчания», ставшая саундтреком фильма «В списках не значился». А в гости к Евгению Маргулису пришли народные артисты России Владимир Машков и Николай Расторгуев, а также сенатор РФ и ветеран группы (   Читать дальше...   )00:00:05  «Минута молчания»
-00:04:54  «Солдат»
-00:14:40  «Бери шинель»
-00:18:26  «Смуглянка»(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: ПопЯзык: РусскийПродолжительность: 01:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78770089F8346B587DA5D05C7E546CA188684D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

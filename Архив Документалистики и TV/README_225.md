@@ -1,3 +1,162 @@
+###  Публикация: 1244378   (481798) от 01.09.2018
+
+Футбол. Серия А. Чемпионат Италии 2018-2019. Обзор 2-го тура (2018) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия А . Чемпионат Италии по футболу 2018-2019.
+117-й сезон высшего дивизиона в системе футбольных лиг Италии и 87-й сезон в качестве турнира, проводящегося по круговой системе. Сезон начался 18 августа 2018 года и завершится 26 мая 2019 года.
+Обзор матчей 2-го тура:Телекомпания: Матч! Футбол 2 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87297E953A6A32DCF88E45D24531777A000EC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405856   (481491) от 31.08.2020
+
+Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Лаузицринг, Гонка 1-2 / DTM. Lausitzring, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:36:42 + 1:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29659FB2C39967DE9385218AAFB6E95F6C7E0D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405722   (481490) от 31.08.2020
+
+Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2020. Нокхилл, Гонка 1-3 / BTCC. Knochill, Race 1-3 (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Жанр: СпортПродолжительность: 49:37 + 38:45 + 52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6865563872517FA04CF69255AD30B755E8ECFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405717   (481488) от 31.08.2020
+
+Австралийский Чемпионат суперкаров. Этап 7. Таунсвилль. Гонка 1-3 / Virgin Australia Supercars Championship. NTI Townsville SuperSprint. Race 1-3 (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2020 года — Этап 7.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:35:12 + 01:29:05 + 01:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082F312B55D489BFAD894C944159CDE9F31E2401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405861   (481479) от 31.08.2020
+
+Серия Кубков NASCAR-2020. Дайтона 400 / NASCAR Cup Series 2020. Coke Zero Sugar 400, Daytona International Speedway (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481479.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 этап Nascar Cup Series, Coke Zero Sugar 400, Daytona International Speedway (160 Laps, 400 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A051AD9BE6E1EA7E97D892318F32022C2BD264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546504   (480621) от 12.09.2012
+
+Дорога длиною в жизнь (2004) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480621.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 августа 2002 года умер схиархимандрит Зосима. О старце, живущем в селе Никольское Волновахского района Донецкой области и обладающем Божьей силой, знал весь православный мир. Ему было всего 58 лет. Но философская мудрость, сила веры и знание пути для спасения души человеческой сделали его старцем в людском понимании.
+К нему приходили отовсюду. За советами, помощью, благословением. Имевшие великое счастье общаться с ним возвращались в мирскую жизнь добрее, чище, светлее.Жанр: ДокументальныйРежиссер: В. РоманюкПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D907C3B3F1C979F215844395966944DB9DE05B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319574   (480618) от 13.08.2019
 
 Английская Премьер-лига 2019/2020.Обзор матчей / English Premier League 2019-20 Round 1 Highlights (12.08.2019) SATRip [H.264/720p] [hand made 50fps]
@@ -6,7 +165,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480618.jpg" />
+  <img src="Z:/picture/008/save_picture_480618.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480234.jpg" />
+  <img src="Z:/picture/008/save_picture_480234.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480210.jpg" />
+  <img src="Z:/picture/008/save_picture_480210.jpg" />
 </div>
 
 
@@ -88,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480102.jpg" />
+  <img src="Z:/picture/008/save_picture_480102.jpg" />
 </div>
 
 
@@ -114,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480100.jpg" />
+  <img src="Z:/picture/008/save_picture_480100.jpg" />
 </div>
 
 
@@ -140,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480083.jpg" />
+  <img src="Z:/picture/008/save_picture_480083.jpg" />
 </div>
 
 
@@ -169,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480010.jpg" />
+  <img src="Z:/picture/008/save_picture_480010.jpg" />
 </div>
 
 
@@ -195,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479871.jpg" />
+  <img src="Z:/picture/008/save_picture_479871.jpg" />
 </div>
 
 
@@ -221,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479806.jpg" />
+  <img src="Z:/picture/008/save_picture_479806.jpg" />
 </div>
 
 
@@ -250,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479804.jpg" />
+  <img src="Z:/picture/008/save_picture_479804.jpg" />
 </div>
 
 
@@ -279,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479802.jpg" />
+  <img src="Z:/picture/008/save_picture_479802.jpg" />
 </div>
 
 
@@ -308,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479800.jpg" />
+  <img src="Z:/picture/008/save_picture_479800.jpg" />
 </div>
 
 
@@ -334,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479797.jpg" />
+  <img src="Z:/picture/008/save_picture_479797.jpg" />
 </div>
 
 
@@ -360,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479741.jpg" />
+  <img src="Z:/picture/008/save_picture_479741.jpg" />
 </div>
 
 
@@ -389,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479736.jpg" />
+  <img src="Z:/picture/008/save_picture_479736.jpg" />
 </div>
 
 
@@ -418,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479735.jpg" />
+  <img src="Z:/picture/008/save_picture_479735.jpg" />
 </div>
 
 
@@ -447,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479734.jpg" />
+  <img src="Z:/picture/008/save_picture_479734.jpg" />
 </div>
 
 
@@ -476,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479733.jpg" />
+  <img src="Z:/picture/008/save_picture_479733.jpg" />
 </div>
 
 
@@ -505,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479732.jpg" />
+  <img src="Z:/picture/008/save_picture_479732.jpg" />
 </div>
 
 
@@ -534,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479721.jpg" />
+  <img src="Z:/picture/008/save_picture_479721.jpg" />
 </div>
 
 
@@ -548,174 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF33BF84889CCF3A075B3E83269780023552108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056701   (479718) от 26.09.2016
-
-Мини-футбол (Футзал). Чемпионат мира-2016. 1/8 финала. Испания - Казахстан (21.09.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479718.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 сентября 2016, четверг. 01:30 МСК
-Чемпионат мира-2016. Меделин (Колумбия). Плей-офф
-1/8 финала
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин, Олег Денисов)Продолжительность: 01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68AC7ACD64E89493810FB8140B0A80C9B3771E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056872   (479409) от 26.09.2016
-
-Бои без правил (2014) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бои без правил - смешанный бой. Для кого-то это кровавое шоу, для кого-то спорт, для кого-то способ проявить себя, а еще для кого-то только способ подраться. В любом случае один боец будет повержен, другой встанет на ринге с поднятой рукой. И только ради этих мгновений он готов идти до конца.Телекомпания: Россия, Первый каналЖанр: ДокументальныйПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD1673D2602114B431B3EEA1295181E2AA92E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405952   (479389) от 01.09.2020
-
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 1-й тур. Бордо — Нант (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-21 августа 2020, пятница. 20:00 МСК
-1-й тур
-Бордо (Бордо) — Нант (Нант)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B02E233E48A5FC80B7F1CDE1D449D2B6A0F93A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406028   (479388) от 01.09.2020
-
-Футбол. Чемпионат России 2020-2021. 6-й Тур. Локомотив — Зенит (2020) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тинькофф Российская Премьер-Лига.
-Чемпионат России 2020-2021. 6-й Тур.
-30 августа 2020, воскресенье. 16:00 МСК
-Локомотив (Москва) — Зенит (Санкт-Петербург)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92CEEFDF726F05A0B1D692041011AFB00464DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405962   (479386) от 01.09.2020
-
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 1-й тур. Лилль — Ренн (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-22 августа 2020, суббота. 22:00 МСК
-1-й тур
-Лилль (Лилль) — Ренн (Ренн)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9484EE3C9B66480D96091EDA239DCC76E01776BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546522   (479123) от 13.09.2012
-
-Рестлинг / TNA No Surrender (2012) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479123.jpg" />
-</div>
-
-
-###  Подробнее
-
-No Surrender - это ежегодное pay-per-view (ППВ) шоу которое проводит Total Nonstop Action(TNA).Шоу будет проходить 9 сентября 2012 года на Impact Wrestling Zone в Орлалндо, штат Флорида. Первое ППВ прошло в 2005 году.Жанр: СпортПеревод: Многоголосый закадровый, любительскийПродолжительность: 02:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B98A4CB5B88C2963AF3E30A2C07758DE9AA9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

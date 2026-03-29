@@ -1,3 +1,145 @@
+###  Публикация: 1579580   (335956) от 27.09.2022
+
+Innopolis University, Олег Игонин | Введение в разработку корпоративных приложений на Java (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335956.jpg" />
+</div>
+
+
+###  Подробнее
+
+На онлайн-курсе Java Junior освоите современный стек для работы (SQL, Maven, JUnit, JDB) и познакомитесь с фреймворком Spring. Получите новую цифровую профессию и работайте на «удаленке» всего через три месяца.
+Чему вы научитесь на курсе?
+Понимать объектно-ориентированное программирование
+Писать код на Java, разбираться в синтаксисе языка программирования(   Читать дальше...   )Производство: Innopolis UniversityЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 89:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6A4E95953D88D02155B4BB9DB11B6211F8AC8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579575   (335952) от 27.09.2022
+
+Innopolis University, Иван Кривов | Основы Frontend-разработки (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн-курс «основы Frontend-разработки» поможет стать начинающим ИТ-специалистом всего за три месяца. Вы изучите новый стек технологий, научитесь писать код на Javascript и применять библиотеку Redux.
+Чему вы научитесь на курсе?Верстать адаптивные веб-страницы на HTML/CSS
+Писать код на JavaScript
+Разбираться в синтаксисе языка программирования(   Читать дальше...   )Производство: Innopolis UniversityЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 29:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A29CE7C52F6829B0F6E37F40474044B2079A353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579564   (335950) от 27.09.2022
+
+Нетология, Павел Козлов | Продвинутый курс Power BI & Excel PRO (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите расширенные возможности инструментов Power Query, Power Pivot & DAX
+Освойте продвинутые техники визуализации данных
+Чему научитесь на курсе:
+Обрабатывать данные.Работать с большими массивами данных из разных источников, не хуже программистов строить сложные запросы с множеством параметров(   Читать дальше...   )Производство: НетологияЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 14:23:43Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC8A7A981862A1397E87CC7A77B59F3BDA4D018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319099   (334295) от 13.10.2019
+
+itgid | Интернет магазин на node.js (2019) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы создаем полноценный Интернет-магазин. Все шаги - записаны в видеоуроках. Начинаем разработку с установки необходимых программ и их настройки. Все шаги и объяснение полностью разобрано в видеоуроках по шагам.
+
+К каждому уроку доступны исходные коды. Вы можете скачать сразу готовый проект в готовом виде, либо изучать по шагам по видео, сравнивая готовые коды с написанным! (   Читать дальше...   )Производство: itgidЖанр: программирование, JavaScript, Node.jsПродолжительность: 12:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1AB0D5D1FE8A6C4FB2BC87B9EC5E73E52EF4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259526   (334248) от 17.11.2010
+
+lynda.com | Visual Studio 2010 Essential Training [2010] [EN] PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334248.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе Visual Studio 2010 Essential Training автор Walt Ritscher демонстрирует, как разрабатывать полнофункциональные приложения для разнообразных платформ. Начиная с обзора интегрированной среды разработчика, курс охватывает работу по редактированию кода, навигации, форматированию кода и инсталляции приложений. Также включены уроки по работе и загрузке тестов, отладочному коду.
+Файлы упражнений прилагаются к курсу.Жанр: Visual StudioПродолжительность: 08:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5D8E57D4E277E20DE8E76053936125292E6AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579559   (334093) от 28.09.2022
 
 Stepik, Михаил Непомнящий | TypeScript для современной разработки (2022) WEB-DL [RU]
@@ -6,7 +148,7 @@ Stepik, Михаил Непомнящий | TypeScript для современн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334093.jpg" />
+  <img src="Z:/picture/008/save_picture_334093.jpg" />
 </div>
 
 
@@ -33,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333574.jpg" />
+  <img src="Z:/picture/008/save_picture_333574.jpg" />
 </div>
 
 
@@ -59,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333564.jpg" />
+  <img src="Z:/picture/008/save_picture_333564.jpg" />
 </div>
 
 
@@ -86,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333561.jpg" />
+  <img src="Z:/picture/008/save_picture_333561.jpg" />
 </div>
 
 
@@ -112,7 +254,7 @@ Duckademy | Освоение SQL-инъекций / Mastering SQL injection (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333406.jpg" />
+  <img src="Z:/picture/008/save_picture_333406.jpg" />
 </div>
 
 
@@ -140,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333373.jpg" />
+  <img src="Z:/picture/008/save_picture_333373.jpg" />
 </div>
 
 
@@ -166,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333269.jpg" />
+  <img src="Z:/picture/008/save_picture_333269.jpg" />
 </div>
 
 
@@ -194,7 +336,7 @@ AutoIt Guide RUS | Основы программирования на AutoIT (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331948.jpg" />
+  <img src="Z:/picture/008/save_picture_331948.jpg" />
 </div>
 
 
@@ -223,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331801.jpg" />
+  <img src="Z:/picture/008/save_picture_331801.jpg" />
 </div>
 
 
@@ -249,7 +391,7 @@ Udemy, in28Minutes Official, Ranga Karanam | Java Programming for Complete Begin
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331655.jpg" />
+  <img src="Z:/picture/008/save_picture_331655.jpg" />
 </div>
 
 
@@ -277,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331518.jpg" />
+  <img src="Z:/picture/008/save_picture_331518.jpg" />
 </div>
 
 
@@ -304,7 +446,7 @@ Laracon Online | Laracon Online 2020. The official Laravel online conference (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331130.jpg" />
+  <img src="Z:/picture/008/save_picture_331130.jpg" />
 </div>
 
 
@@ -331,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331118.jpg" />
+  <img src="Z:/picture/008/save_picture_331118.jpg" />
 </div>
 
 
@@ -358,7 +500,7 @@ Udemy | Java для начинающих: с нуля до сертификат�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329533.jpg" />
+  <img src="Z:/picture/008/save_picture_329533.jpg" />
 </div>
 
 
@@ -384,7 +526,7 @@ Udemy, Mammoth Interactive, John Bura | The Complete Course To Advance Your Codi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328715.jpg" />
+  <img src="Z:/picture/008/save_picture_328715.jpg" />
 </div>
 
 
@@ -410,7 +552,7 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328573.jpg" />
+  <img src="Z:/picture/008/save_picture_328573.jpg" />
 </div>
 
 
@@ -438,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326550.jpg" />
+  <img src="Z:/picture/008/save_picture_326550.jpg" />
 </div>
 
 
@@ -464,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325166.jpg" />
+  <img src="Z:/picture/008/save_picture_325166.jpg" />
 </div>
 
 
@@ -491,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323816.jpg" />
+  <img src="Z:/picture/008/save_picture_323816.jpg" />
 </div>
 
 
@@ -518,7 +660,7 @@ Mr-Grey/NZTCoder | Богатый Python разработчик (2022) WEB-DL [�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322544.jpg" />
+  <img src="Z:/picture/008/save_picture_322544.jpg" />
 </div>
 
 
@@ -547,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319858.jpg" />
+  <img src="Z:/picture/008/save_picture_319858.jpg" />
 </div>
 
 
@@ -558,143 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72CB4E8947F28ECF0F0D84014EFC739B021CA31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421314   (319441) от 04.11.2020
-
-[Udemy] Stephen Grider | ES6 Javascript - Полный туториал / ES6 Javascript: The Complete Developer's Guide (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319441.jpg" />
-</div>
-
-
-###  Подробнее
-
-ES6 Javascript с нуля. Ознакомьтесь с практическими примерами в реальном времени и узнайте где именно нужно применять функции ES6. Это пособие именно то, которое вы искали для овладения ES6 Javascript. Генераторы? Конечно. Стрелочные функции? Ага. Оператор Rest/Spread? Есть! И все новое в ES6 уже в этом курсе.
-Понимания синтаксиса ES6 может помочь вам найти место (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657755E67952DE6461C5DCBD209A73F2BD34A041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421506   (319318) от 04.11.2020
-
-[Udemy] Sean Bradley | Three.js and TypeScript (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на мой курс по Three.js и Typescript. В этом курсе мы узнаем все о Three.js, будем использовать его с TypeScript, а также напишем клиентский HTML и серверный компонент с помощью NodeJS.
-Курс состоит из 4 основных разделов:
-
-1. Настройка среды разработки и установка TypeScript(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727E434FED010DD45E57E60EE89BE2977A21631E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421313   (319203) от 04.11.2020
-
-[Udemy] Stephen Grider | SQL и PostgreSQL: полное руководство разработчика / SQL and PostgreSQL: The Complete Developer's Guide (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте экспертом в SQL и PostgreSQL! Храните и извлекайте данные, настраивайте запросы и создавайте эффективные структуры баз данных!
-
-Это единственный онлайн-курс, который научит вас, как проектировать базу данных, хранить сложные данные, оптимизировать ваши запросы, все, что необходимо для работы продакшн масштабируемой базы данных!
-(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 22:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7937DE33451693B66BEE5F738E4E6124CD4104D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582833   (318175) от 11.10.2022
-
-Ultimate Courses, Todd Motto | Angular Basics (v14) (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные лучшие практики и шаблоны Angular за годы эволюции. Масштабируемая архитектура, неизменяемые структуры данных, сервисы состояния и совершенно новые автономные компоненты. Создайте приложение от начала до конца, быстро оттачивая свои навыки работы с Angular.Производство: Ultimate CoursesЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 08:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B9E47CCBF1D7D056B15DC1E15A476C28342FC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331848   (318072) от 18.10.2019
-
-Роман Шацкий | Эксперт по конкурентной разведке (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знания о Ваших конкурентах - это второй по важности блок информации после клиентов, который необходим для успеха на рынке. В современном мире существуют большие возможности по получению данных о деятельности компании, однако большинство маркетологов останавливаются только на анализе сайтов конкурентов. А в обучающих курсах конкурентная разведка приравнивается к изучению (   Читать дальше...   )Производство: UdemyЖанр: Конкурентная разведка, OSINTПродолжительность: 01:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2BE1601CB8745BADAA94624D93BAD35C811929
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252436.jpg" />
+  <img src="Z:/picture/005/save_picture_252436.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250994.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250752.jpg" />
+  <img src="Z:/picture/004/save_picture_250752.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249987.jpg" />
+  <img src="Z:/picture/004/save_picture_249987.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249388.jpg" />
+  <img src="Z:/picture/004/save_picture_249388.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVDRemux 480p 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246099.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVD9 480p raw+
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246080.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243344.jpg" />
+  <img src="Z:/picture/004/save_picture_243344.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233407.jpg" />
+  <img src="Z:/picture/005/save_picture_233407.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRe
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232717.jpg" />
+  <img src="Z:/picture/005/save_picture_232717.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Inu-Oh | Inu-Ou | Ину-о: Рождение легенды [2022, Movie] BDRem
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232433.jpg" />
+  <img src="Z:/picture/004/save_picture_232433.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2001,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230747.jpg" />
+  <img src="Z:/picture/004/save_picture_230747.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228403.jpg" />
+  <img src="Z:/picture/005/save_picture_228403.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ One Piece: Dream Soccer King! / One Piece: Soccer King of Dreams / Ван-Пис
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228046.jpg" />
+  <img src="Z:/picture/005/save_picture_228046.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ One Piece: Jango no Dance Carnival / One Piece: Django's Dance Carnival / Ван
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227908.jpg" />
+  <img src="Z:/picture/005/save_picture_227908.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ One Piece: Baseball Special / One Piece: Take Aim! The Pirate Baseball King / В
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227893.jpg" />
+  <img src="Z:/picture/005/save_picture_227893.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221287.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221280.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dog Soldier: Shadows of the Past | Пес войны [1989, OVA] LDRip 480p HS+r
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212296.jpg" />
+  <img src="Z:/picture/005/save_picture_212296.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211229.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Darling in the FranXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208766.jpg" />
+  <img src="Z:/picture/005/save_picture_208766.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205634.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205020.jpg" />
+  <img src="Z:/picture/004/save_picture_205020.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204015.jpg" />
+  <img src="Z:/picture/004/save_picture_204015.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200673.jpg" />
+  <img src="Z:/picture/005/save_picture_200673.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Da Wang Rao Ming | Spare Me, Great Lord! | Пощади меня, Великий
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199949.jpg" />
+  <img src="Z:/picture/005/save_picture_199949.jpg" />
 </div>
 
 

@@ -1,3 +1,159 @@
+###  Публикация: 1736480   (49971) от 15.07.2024
+
+Создан наноспутник с самым острым в России гиперспектральным "зрением"
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самарский университет им. Королёва и частная космическая компания "СПУТНИКС" (входит в Sitronics Group) создали наноспутник с рекордной остротой гиперспектрального "зрения", позволяющего увидеть из космоса на поверхности Земли то, что нельзя обнаружить с помощью обычной оптики.Гиперспектральное "зрение" позволяет рассмотреть мир в многоканальном (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736860   (49905) от 16.07.2024
+
+Россия вошла в мировой топ-10 по торговым доходам
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия заработала на торговле 121 миллиард долларов и заняла седьмое место в мире по размеру торгового профицита, Об этом свидетельствуют данные Всемирного банка за 2023 год, передает РИА Новости.На первом месте в рейтинге находится Китай, торговый профицит которого в прошлом году составил 594 миллиарда долларов. Следом идут Германия (245,3 млрд) и Ирландия (178 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524001   (49783) от 17.07.2024
+
+Звёздные Врата: Атлантида / Stargate: Atlantis (сезоны 1-5 полные, серии: 1-100) (2004-2009) HDTVRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49783.jpg" />
+</div>
+
+
+###  Подробнее
+
+После победы над Анубисом, люди начали изучение старого аванпоста Древних в Антарктиде, в результате чего был найден адрес звёздных врат давно потерянного города Древних. Для его изучения была создана специальная экспедиция отправившаяся в галактику Пегас через врата. Прибыв на место, члены экспедиции поняли, что Атлантида находиться под водой, а энергии МНТ, которая (   Читать дальше...   )Жанр: Фантастика, Приключения, СемейныйРежиссер: Мартин Вуд, Девид Уэрри-Смит, Марио Азопарди, Девид Уиннинг, Бред Тарнер, Холли Дейл, Питер ДеЛуис, Джеймс Хед, Энди МикитаАктеры: Джо Флениган, Тори Хиггинсон, Девид Хьюлет, Рэйчел Латрелл, Джейсон Момоа, Пол МакГиллон и др.Перевод: Закадровый, Многоголосый  (Студия «ИНИС»)Язык субтитров: Русские, АнглийскиеПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563B30BE9E0FAD3DD17C12591B3F1D47456C2967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737279   (49660) от 18.07.2024
+
+Нидерландская Yandex N.V. будет работать под брендом Nebius
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49660.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 июля было объявлено, что нидерландская компания Yandex N.V. закрыла сделку по продаже российского бизнеса Яндекса и полностью вышла из состава акционеров группы. Вскоре после этого на международном сайте Yandex начало выдаваться сообщение, что информация о компании Yandex N.V. теперь перемещена на новый сайт, а ссылка ведёт на сайт Nebius Group.Там же опубликован (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737469   (49579) от 19.07.2024
+
+Microsoft отказалась от «повесточки»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft полностью расформировала подразделение по вопросам обеспечению равноправия и инклюзивности. Корпорация больше не ставит «повесточку» во главу угла, о чем заявляет открыто – у компании «сменились потребности бизнеса». Теперь это новый модный тренд среди ИТ-гигантов.Софтверный гигант Microsoft закрыл отдел DEI (diversity, equity, and inclusion), занимавшийся (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737577   (49554) от 19.07.2024
+
+«Разведи мошенника»: в России запускают «Фрод-рулетку» — первый в мире сервис с перехватом звонков мошенников
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда «Т-банка» (бывшего «Тинькофф») открыла доступ к новому экспериментальному сервису «Фрод-рулетке». Сейчас уже начат приём заявок для желающих участвовать в «Ловушке для мошенников». Как подчеркнули в пресс-службе банка, это «первый в мире сервис, где звонки телефонных мошенников перехватываются в режиме реального времени и переводятся на пользователей». Имеются (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 351679   (49164) от 23.07.2024
 
 Whitesnake - Live at Donington'1990 (2011) DVD9
@@ -6,7 +162,7 @@ Whitesnake - Live at Donington'1990 (2011) DVD9
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49164.jpg" />
 </div>
 
 
@@ -35,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49156.jpg" />
 </div>
 
 
@@ -61,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49135.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49050.jpg" />
 </div>
 
 
@@ -113,7 +269,7 @@ Chernobylite (2019) [Ru/Multi] (s04/dlc) License GOG [Complete Edition] (обн�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49049.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48942.jpg" />
 </div>
 
 
@@ -166,7 +322,7 @@ $1000 в месяц: эксперимент Альтмана показал пл
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48922.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ Acronis True Image 2025 Build 41393 BootCD [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48733.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ Games Workshop | Warhammer: Citadel Colour Masterclass (2021-2024) WEBRip [EN, R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48732.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48634.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 3 | Konosuba 3 | Да благослов�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48631.jpg" />
 </div>
 
 
@@ -298,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48630.jpg" />
 </div>
 
 
@@ -324,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48437.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ Kaspersky Free 21.18.5.438 Repack by LcHNextGen (01.08.2024) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48243.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48221.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48140.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48137.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48119.jpg" />
 </div>
 
 
@@ -480,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47924.jpg" />
 </div>
 
 
@@ -506,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47922.jpg" />
 </div>
 
 
@@ -517,164 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9103FF98388D44E316E80394C95B9338B0F596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740784   (47730) от 06.08.2024
-
-Россия за время продэмбарго стала чистым экспортером свинины и мяса птицы
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия в этом году "отмечает" очередной юбилей продовольственного эмбарго: ровно десять лет назад в ответ на санкции Запада страна запретила ввоз некоторых произведенных там продуктов питания. Эти ограничения не привели к дефициту, Россия даже смогла сама существенно нарастить поставки продуктов из стоп-листа за рубеж, а по ряду позиций и вовсе стала чистым (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241155   (47714) от 06.08.2024
-
-Декстер / Dexter (2010) HDTVRip (сезон 5, серии 1-12 из 12) Новамедиа
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дом в пригороде, любящая жена, трое детей... хронический недосып, проваленное дело в суде, жажда убийства, агент Лэнди, вернувшийся в Майами и загадочный маньяк, убивающий вот уже тридцать лет - будни Декстера Моргана становятся все более насыщенными и разнообразными. Можно ли удержаться на грани, если в одной руке у тебя разделочный нож, а в другой - памперс? Удастся (   Читать дальше...   )Производство: США / Clyde Phillips Productions, Devilina Productions, ShowtimeЖанр: триллер, драма, криминал, детективРежиссер: Джон Дал, Стив Шилл, Кит ГордонАктеры: Майкл С. Холл, Дженнифер Карпентер, Дэвид Зайас, Джеймс Римар, К.С. Ли, Луна Лорен Велес, Десмонд Хэррингтон, Джули Бенц, Кристина Робинсон, Джеффри ПирсонПеревод: hatifnattenЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8820248EB145AB84F31CAC2082222C3B4AEF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740785   (47601) от 07.08.2024
-
-Российский робот установил новый рекорд по сборке кубика Рубика
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский робот побил мировой рекорд по скоростной сборке кубика Рубика. Ему удалось собрать головоломку за 0,203 секунды. Об этом сообщил создатель робота Александр Кротов, передает РИА Новости.Уточняется, что предыдущий рекорд принадлежал роботу японской компании Mitsubishi Electric Corporation, который смог собрать кубик Рубика за 0,305 секунды. Для сравнения, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741381   (47553) от 07.08.2024
-
-Очередное достижение: 3000 релизов от krochka1!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 3000 релизов от krochka1!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 3000-м релизом!
-Невероятное количество релизов, огромный труд!!!
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616844   (47503) от 08.08.2024
-
-SnowRunner (2020) [Ru/Multi] (31.0/dlc) Repack dixen18
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главное отличие SnowRunner от множества других симуляторов грузоперевозок заключается в том, что здесь нет ровных дорог, шоссе и автобанов. Только снег, грязь и непреодолимые препятствия. Игра встречает интересными и разнообразными заданиями, обширными картами и, самое главное, широким выбором транспорта: внедорожники, тягачи, вездеходы и грузовики. После выбора (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E39DF33F3113BF4F00FF623F0CF6ECC9411CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741565   (47312) от 10.08.2024
-
-Представлен первый калиево-ионный аккумулятор стандартного форм-фактора 18650
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Group1 выпустила первый в мире калиево-ионный аккумулятор, выполненный в широко распространённом цилиндрическом форм-факторе 18650. Новинка была представлена в рамках 14-й ежегодной конференции Beyond Lithium, и она может стать важным шагом на пути создания стабильных и экономически выгодных альтернатив привычным литийионным батареям.Калиево-ионные батареи (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

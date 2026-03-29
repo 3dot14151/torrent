@@ -1,3 +1,111 @@
+###  Публикация: 929858   (518280) от 20.08.2015
+
+Gemini 1.5.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не заставят себя долго ждать. По окончании работы кольцо радостно позеленеет и появится предложение перейти к результатам сканиования.
+Gemini распределяет данные по типам, например (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 августа 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCB49EE701CCDE835A43282F80AC3291A604E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241272   (518224) от 19.08.2018
+
+CloudMounter 3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518224.jpg" />
+</div>
+
+
+###  Подробнее
+
+CloudMounter - это централизованный сервис, который позволяет монтировать облачные хранилища как локальные диски и работать с онлайн файлами так же как с локальными. При этом сохраняя их защищенными от внешнего доступа. Приложение обеспечит Вам непосредственный доступ к онлайн данным на сервере, прямо из Finder на Вашем Mac, а так же позволит защитить их с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2018Разработчик: Eltima SoftwareПоддерживаемая ОС: MacOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426AEBA47481E9F03E49771E5F3DC52F10539279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929668   (517984) от 20.08.2015
+
+Affinity Designer 1.3.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Designer - векторный редактор
+Affinity Designer является самым быстрым, плавным, самым точным векторным графическим редактором. Работаете ли вы над графикой для маркетинговых материалов, веб-сайтов, иконками, дизайном пользовательского интерфейса или просто, как создание концепт-арт, Affinity Designer внесет революцию в Вашу работу.
+
+Affinity Designer  в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 августа 2015Разработчик: Serif (Europe) LtdПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: английский, испанский, немецкий, французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99341B732D075548409503F305CC8D18A010881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560926   (517804) от 02.07.2022
+
+Iridient Developer 3.7.0 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE6B5FAEE2CBE9DB14B1FDBE5DDBA2627AE1A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560924   (517794) от 02.07.2022
 
 FontLab 8 v8.0.0.8203 [En]
@@ -6,7 +114,7 @@ FontLab 8 v8.0.0.8203 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517794.jpg" />
+  <img src="Z:/picture/008/save_picture_517794.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Dropzone 4 Pro v4.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517722.jpg" />
+  <img src="Z:/picture/008/save_picture_517722.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ iDealshare VideoGo for Mac 6.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517720.jpg" />
+  <img src="Z:/picture/008/save_picture_517720.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517711.jpg" />
+  <img src="Z:/picture/008/save_picture_517711.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ Movist Pro 2.8.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517663.jpg" />
+  <img src="Z:/picture/008/save_picture_517663.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ BetterZip 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517303.jpg" />
+  <img src="Z:/picture/008/save_picture_517303.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ Dreamfall Chapters Book 1-2 v. 3.0.1.4 (2014) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517299.jpg" />
+  <img src="Z:/picture/008/save_picture_517299.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ CleanMyMac X 4.4.3.1 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517034.jpg" />
+  <img src="Z:/picture/008/save_picture_517034.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ Commander One PRO Pack 2.1 (3037) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516845.jpg" />
+  <img src="Z:/picture/008/save_picture_516845.jpg" />
 </div>
 
 
@@ -253,7 +361,7 @@ TextSoap 8.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516250.jpg" />
+  <img src="Z:/picture/008/save_picture_516250.jpg" />
 </div>
 
 
@@ -279,7 +387,7 @@ Translatium 8.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516241.jpg" />
+  <img src="Z:/picture/008/save_picture_516241.jpg" />
 </div>
 
 
@@ -305,7 +413,7 @@ PhotoSweeper 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516191.jpg" />
+  <img src="Z:/picture/008/save_picture_516191.jpg" />
 </div>
 
 
@@ -332,7 +440,7 @@ Movist 2.0.0b18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516183.jpg" />
+  <img src="Z:/picture/008/save_picture_516183.jpg" />
 </div>
 
 
@@ -360,7 +468,7 @@ BetterZip 4.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516178.jpg" />
+  <img src="Z:/picture/008/save_picture_516178.jpg" />
 </div>
 
 
@@ -389,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516044.jpg" />
+  <img src="Z:/picture/008/save_picture_516044.jpg" />
 </div>
 
 
@@ -415,7 +523,7 @@ Money Pro 1.9.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516037.jpg" />
+  <img src="Z:/picture/008/save_picture_516037.jpg" />
 </div>
 
 
@@ -441,7 +549,7 @@ Stellar Partition Manager 3.0.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513802.jpg" />
+  <img src="Z:/picture/008/save_picture_513802.jpg" />
 </div>
 
 
@@ -469,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513572.jpg" />
+  <img src="Z:/picture/008/save_picture_513572.jpg" />
 </div>
 
 
@@ -495,7 +603,7 @@ aText 2.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513168.jpg" />
+  <img src="Z:/picture/008/save_picture_513168.jpg" />
 </div>
 
 
@@ -521,7 +629,7 @@ RapidWeaver 8 v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513114.jpg" />
+  <img src="Z:/picture/008/save_picture_513114.jpg" />
 </div>
 
 
@@ -549,7 +657,7 @@ FontLab Studio VI 6.0.9 (6796) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512886.jpg" />
+  <img src="Z:/picture/008/save_picture_512886.jpg" />
 </div>
 
 
@@ -577,7 +685,7 @@ Currencier 1.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512806.jpg" />
+  <img src="Z:/picture/008/save_picture_512806.jpg" />
 </div>
 
 
@@ -591,114 +699,6 @@ Currencier практичный конвертер валют для OS X Yosemi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92903B6492E94447ADB823A031759563E0769BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931309   (512804) от 25.08.2015
-
-Dropzone 3.5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone: Автоматизация рутинных действий
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что Mac OS X заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные операции, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 августа 2015Разработчик: Aptonic LimitedПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A265D58E48F0B2A236C55AD251373031213E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197461   (512749) от 24.08.2018
-
-Mini Metro v.gamma 37 (2015) [Multi/Ru] [OS X Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512749.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Mini Metro вашей задачей будет разработка схемы метро в быстро растущем городе. В начале в вашем городе есть три станции. Прокладывайте маршруты между этими станциями, чтобы соединить их с линиями метро. Пассажиры перемещаются по вашим линиям, чтобы добраться до цели как можно быстрее.Тип издания: OS X Native gameРелиз состоялся: 6 ноября 2015Разработчик: Dinosaur Polo ClubПоддерживаемая ОС: Mac: OS X 10.7.0 и вышеЖанр: Симулятор, Строительство, МенеджментЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57E0D49DD31EE9B53F00D054E3A4852C5951B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931470   (511757) от 26.08.2015
-
-Waltr 1.6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511757.jpg" />
-</div>
-
-
-###  Подробнее
-
-WALTR - новое приложение для Mac от Softorino (создатели iBetterCharge).
-Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все еще проще. Но (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 августа 2015Разработчик: Softorno Inc .Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CE24C7BD153C0F6AFC6CFD08D182CE51ACAA0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931454   (511623) от 26.08.2015
-
-VMware Fusion Professional  8.0.0 (2985594) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511623.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Fusion — виртуальная машина, позволяющая в среде Mac OS X на базе платформы Intel запускать приложения, разработанные для других операционных систем, в том числе Windows и Linux. Поддерживаются как 32-разрядные, так и 64-разрядные версии ОС.
-
-VMware  решение для виртуализации в среде Mac OS X. Новая версия программного обеспечения VMware Fusion, поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 августа 2015Разработчик: VMware, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6FF6C7B66F866FDA2D2F2E080DB62CA0527B22
 ```
 
 https://mybot314.ru/tekegram_catalog/

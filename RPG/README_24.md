@@ -1,3 +1,239 @@
+###  Публикация: 922770   (567801) от 29.07.2015
+
+Kyn (2015) [En/De] License FAiRLIGHT
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kyn – ролевая игра, действия которой разворачиваются в мире, где мифология викингов объединилась с магией. Вам предстоит возглавить одного из шести доступных героев и отправиться на исследование этой необычной, полной загадок и врагов фэнтезийной вселенной.Тип издания: ЛицензияРазработчик: Tangrin EntertainmentЖанр: RPG (Rogue/Action) / 3DЯзык озвучки: n/a (отсутствует)Язык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE6A66A6D5A62B96F830DF1CDD60AD90997B37D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152452   (566810) от 22.07.2017
+
+Avernum 2 (2000) [En] (1.0.1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avernum – настоящая подземная тюрьма с сотнями пещер и туннелей, расположенных под поверхностью земли. Вас изгнали туда из Империи на пожизненное заточение, и вначале вам казалось, что люди вполне могут основать в этом мрачном месте свою собственную нацию, чтобы жить в мире вдалеке от солнечного света. Но в какой-то момент группа людей из Avernum убила императора, (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: RPG, IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443F5698A6591273088B371E647C159DDF297A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555667   (566432) от 05.06.2022
+
+Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack Decepticon
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте за викинга по имени Эйвор, которого с самого детства готовили стать бесстрашным воином. Вам предстоит повести свой клан из безжизненной ледяной Норвегии, чтобы обрести новый дом на плодородных землях Англии IX века. Вы должны основать селение и любыми средствами обуздать этот непокорный край, чтобы обеспечить себе место в Вальгалле. В те времена Англия представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: RPG, 3rd Person, Action, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB0C700D47272F92339B698ABAC948AAEE92F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923061   (566011) от 30.07.2015
+
+ICY (2015) [En] (1.0) Rip ALiAS
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icy - сюжетная survival-RPG, где Вы возьмете на себя роль вожака небольшой группы людей, которые пытаются выжить в суровых условиях замерзающего мира. Исследуйте огромный игровой мир и старайтесь найти знающих людей, которые Вам могут поведать больше о событиях, приведших к апокалипсису и чудовищному изменению климата. Icy обладает продуманной диалоговой системой, (   Читать дальше...   )Тип издания: RipРазработчик: Inner VoidЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF77E6C68A714D3CAA3CF4F04D1CC59F5EFF255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555939   (564847) от 06.06.2022
+
+Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далеко не всем из класса 2-9 Академии Кисараги удалось вернуться из начальной школы известной как Небесное Воинство, охваченной демоническими потусторонними силами. Староста класса Айуми Шинозаки попытался использовать древнюю Книгу Теней, чтобы воскресить погибших друзей, но это лишь усугубило трагедию. А теперь книгу украли.Тип издания: LicenseРазработчик: MAGES. Inc., 5pb.Жанр: Ролевая игра, Приключение, ХоррорЯзык озвучки: ЯпонскийЯзык субтитров: Английски, Японски, КорейскийЯзык интерфейса: Английски, Японски, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A3A235398E460601947E3A8D5B624F271D3C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044682   (564668) от 20.08.2016
+
+The Fall of the Dungeon Guardians (2015) [En/Multi] (1.0e) License PROPHET
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564668.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Fall of the Dungeon Guardians представляет собой бродилку по подземельям с видом от первого лица. В ходе приключений партии из четырех героев игрокам предстоит пройти огромное подземелье, а препятствовать в этом будут монстры 100 разновидностей во главе с 20 различными боссами.Тип издания: LicenseРазработчик: Mana GamesЖанр: RPG, 3D, 1st PersonЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C9C075DB065D59DAF03E8D89EF631EDDD1BA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044858   (562717) от 21.08.2016
+
+Rage of the Battlemage (2016) [Ru/Multi] (1.0) License PROPHET
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage of the Battlemage - динамичная hack'n'slash RPG, где вы окажетесь в роли последнего боевого мага по имени Лортан, которому предстоит очистить свою страну от нашествия адских демонов!Тип издания: LicenseРазработчик: dev4playЖанр: RPG, ActionЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D16F459B112B9713D3D6DABB9FCFEEDFA624E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001783   (558881) от 23.08.2016
+
+Hero Defense - Haunted Island (2016) [Ru/Multi] (1.2.6.3610r) Repack Other s
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hero Defense - Haunted Island предоставляет игроку пять уникальных героев, проходящих через различные арены, чтобы победить Графа Некросиса. Для уничтожения всемогущего вампира мира, команде убийц предстоит колоть, убивать, раздирать и сжигать целые легионы нежити, одержимой идеей власти над миром. Hero Defense - Haunted Island приглашает фанатов MOBA, RPG и TD к (   Читать дальше...   )Тип издания: RepackРазработчик: Happy TuesdayЖанр: Strategy (Tower Defense), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C2A0B2235610FD1620C8F79639129B1C147CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531072   (558318) от 04.08.2012
+
+Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmented Edition [Ru/En] (Steam-Rip) 2011 l R.G. Игроманы
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальный заговор в Deus Ex: Human Revolution набирает обороты в «Недостающем звене». Адам отправился на поиски истины, но таинственным образом исчез на целых три дня. Где ему суждено было побывать? Что довелось обнаружить? «Недостающее звено» раскроет все подробности.
+
+  После того как Адама схватили и пытали агенты «Беллтауэр», а его импланты были отключены, герою пришлось воспользоваться способностями, данными ему с рождения, чтобы спастись с грузового судна, плывущего в неизвестном направлении. Во время сражения на борту корабля Адам обнаружил новую цепочку заговора, о которой даже и не подозревал. Вместе с ним вы сможете обрести новых, загадочных союзников, сразиться с безжалостными врагами и узнать то, что произошло в сумраке событий Deus Ex: Human Revolution!.(   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Разработчик: Eidos Montreal и Nixxes SoftwareЖанр: Action (Shooter) / RPG / 3D / 1st Person / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9DC739351522EBE2D6E7157FF85CFC9026E5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305111   (557751) от 29.05.2019
 
 SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
@@ -6,7 +242,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557751.jpg" />
+  <img src="Z:/picture/008/save_picture_557751.jpg" />
 </div>
 
 
@@ -32,7 +268,7 @@ Blood & Gold: Caribbean! (2015) [Ru/En] (2.065/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557413.jpg" />
+  <img src="Z:/picture/008/save_picture_557413.jpg" />
 </div>
 
 
@@ -58,7 +294,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556904.jpg" />
+  <img src="Z:/picture/008/save_picture_556904.jpg" />
 </div>
 
 
@@ -84,7 +320,7 @@ City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556892.jpg" />
+  <img src="Z:/picture/008/save_picture_556892.jpg" />
 </div>
 
 
@@ -110,7 +346,7 @@ Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556690.jpg" />
+  <img src="Z:/picture/008/save_picture_556690.jpg" />
 </div>
 
 
@@ -136,7 +372,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556342.jpg" />
+  <img src="Z:/picture/008/save_picture_556342.jpg" />
 </div>
 
 
@@ -162,7 +398,7 @@ Deep Sky Derelicts (2018) [Ru/En] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556297.jpg" />
+  <img src="Z:/picture/008/save_picture_556297.jpg" />
 </div>
 
 
@@ -188,7 +424,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555961.jpg" />
+  <img src="Z:/picture/008/save_picture_555961.jpg" />
 </div>
 
 
@@ -214,7 +450,7 @@ Mary Skelter: Nightmares (2018) [En/Jp] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553761.jpg" />
+  <img src="Z:/picture/008/save_picture_553761.jpg" />
 </div>
 
 
@@ -240,7 +476,7 @@ Overlord II / Overlord 2 (2009) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552098.jpg" />
+  <img src="Z:/picture/008/save_picture_552098.jpg" />
 </div>
 
 
@@ -266,7 +502,7 @@ SteamWorld Quest: Hand of Gilgamech (2019) [Ru/Multi] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550003.jpg" />
+  <img src="Z:/picture/008/save_picture_550003.jpg" />
 </div>
 
 
@@ -292,7 +528,7 @@ Zombasite (2016) [En] (1.000) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549823.jpg" />
+  <img src="Z:/picture/008/save_picture_549823.jpg" />
 </div>
 
 
@@ -318,7 +554,7 @@ SpellForce 3 (2017) [Ru/Multi] (1.40.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549177.jpg" />
+  <img src="Z:/picture/008/save_picture_549177.jpg" />
 </div>
 
 
@@ -344,7 +580,7 @@ Bastion (2011) [Ru/Multi] (1.50436) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547511.jpg" />
+  <img src="Z:/picture/008/save_picture_547511.jpg" />
 </div>
 
 
@@ -370,7 +606,7 @@ Divinity Original Sin 2 / Divinity Original Sin II (2017) [Ru/Multi] (3.6.44.404
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547493.jpg" />
+  <img src="Z:/picture/008/save_picture_547493.jpg" />
 </div>
 
 
@@ -396,7 +632,7 @@ Outward (2019) [Multi] (1.0upd2/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545062.jpg" />
+  <img src="Z:/picture/008/save_picture_545062.jpg" />
 </div>
 
 
@@ -422,7 +658,7 @@ Sword Art Online: Hollow Realization (2017) [Multi] (1.00) License SKIDROW [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543549.jpg" />
+  <img src="Z:/picture/008/save_picture_543549.jpg" />
 </div>
 
 
@@ -433,240 +669,6 @@ Sword Art Online: Hollow Realization - это очередная часть пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEEDF4851644399011BEBD4FE6EB6383BB2E244C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037144   (542301) от 14.06.2022
-
-Starbound (2016) [Ru/En] (1.4.4) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starbound - динамичная ролевая игра с открытым миром об освоении процедурно генерируемой вселенной и исследовании случайных планет. Вы одинокий пришелец, оказавшийся на незнакомой планете далеко от дома. Ваш корабль, как и мечты о путешествиях к далёким звёздам, серьёзно пострадали.Тип издания: LicenseРазработчик: ChucklefishЖанр: Adventure, RPG, Massively multiplayerЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F5C0AE2F854BB4D3E6549EE4B16D2FC2BFF84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074462   (539420) от 30.06.2019
-
-Titan Quest Anniversary Edition (2016) [Ru/Multi] (2.7a/dlc) Repack R.G. Catalyst
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Titan Quest Anniversary Edition - мифический набор, из которого так и рвётся наружу отполированный до блеска эпоc оригинальной экшен/RPG и дополнения The Immortal Throne. В эпоху древних богов, полководцев и царей страна, охваченная бедствием, молила о герое... То есть, о вас!Тип издания: RepackРазработчик: THQ Nordic, Iron Lore EntertainmentЖанр: RPG (Rogue, Action), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B900E2B6336D2A7C46949FD076951939D2F63413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925762   (536816) от 08.08.2015
-
-Undercroft (2006) [En] (1.2) Repack dark_elf2
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старомодная hack'n'slash RPG в лучших традициях Eye of the Beholder и Dungeon Master. Даже графика - VGA, несмотря на разрешение в 640x480. По миру ходят слухи о том что на старом заброшенном кладбище, вблизи города Долбрата, проснулось древнее зло. Мертвецы убивают любого кто приблизится к могилам кладбища, будь то женщина, мужчина или ребенок.Тип издания: RepackРазработчик: Rake in GrassЖанр: RPG / 1st PersonЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF923544232C7ACFABE61F9818D306F1C022A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034207   (535857) от 09.09.2016
-
-NECROPOLIS: A Diabolical Dungeon Delve (2016) [Ru/Multi] (1.1) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535857.jpg" />
-</div>
-
-
-###  Подробнее
-
-NECROPOLIS, безжалостный и динамичный боевик, в котором смерть является своеобразной наградой. Кто будет возражать против зрелищной, жестокой и поучительной смерти? Особенно, если она необратима. Весь ваш с трудом заработанный или созданный шмот, эликсиры и вера в товарищей теперь разбиты и разбросаны по полу этого проклятого, то и дело меняющегося подземелья.Тип издания: LicenseРазработчик: Harebrained SchemesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6641D44E4D224E4B1CA8BA118BC3B04363D56C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311754   (533836) от 03.07.2019
-
-Lisa (2014) [Ru] (1.0u2) Repack MasterDarkness
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра о выживании, самопожертвовании и извращенцах... Действие этой причудливой рпг проходит в пост апокалиптической пустоши. За чарующей и забавной наружностью находится мир, полный отвращения и морального разрушения. Игроки узнают, что они за люди, будучи вынужденными делать решения. Эти решения имеют перманентный эффект на игровой процесс. Если вы захотите спасти (   Читать дальше...   )Тип издания: RepackРазработчик: DingalingЖанр: Adventure, Indie, RPGЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9004140108FF1D06EA73AA9C1F7C57F21B2155B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051127   (533787) от 10.09.2016
-
-The Technomancer (2016) [Ru] (1.0.3636) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533787.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Technomancer - это продолжение Mars: War Logs, в котором главному герою предстоит посетить новые области на Марсе - от заброшенных городов до огромных пещер под полярными шапками, уходя от тайной полиции людей и сражаясь с разнообразными противниками. Дивный новый мир породил гулей-мутантов — низшую касту рабов, а также техномансеров — людей, обладающих властью (   Читать дальше...   )Тип издания: RepackРазработчик: SpidersЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2462FABFFC8364A73E08714FD6C82F6C087C0789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089598   (531333) от 20.06.2022
-
-Silver (1999) [Ru/En] (1.23) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Silver – это игра, созданная британскими разработчиками, которая представляет собой двухмерное приключение с видом от третьего лица. Ее интерфейс напоминает собой приставочные аркады: герой перебегает с одного экрана на другой, отличающийся от предыдущего декорациями и ракурсом наблюдения за главным героем. Простота этой игры и есть ее главное достоинство: любой (   Читать дальше...   )Тип издания: LicenseРазработчик: InfogramesЖанр: Action, RPG, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C2ADCDD047901BA57AC21B5242AC6C94EFE5BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515195   (531332) от 20.06.2022
-
-Mechajammer (2021) [En] (1.11) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mechajammer - ролевая игра с изометрическим видом камеры в киберпанк сеттинге. События игры происходят на острове, страдающем от перенаселения с названием Каталина. Именно там случился наибольший скачок человечества, но в итоге все обернулось вспять - отсутствие законов, безнаказанность и полная коррупция не дают когда-то великому месту вновь стать таковым.Тип издания: LicenseРазработчик: Whalenought StudiosЖанр: Ролевая игра, Пошаговая, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D11DE2359ADC58EFD7E498259F724C5BC4AE572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240149   (531131) от 09.08.2018
-
-Deiland (2018) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deiland – однопользовательская приключенческая RPG. Вам предстоит развивать и защищать свою планету, выращивать урожай, добывать ресурсы, строить здания, рыбачить, охотиться и даже путешествовать на другие планеты.Тип издания: LicenseРазработчик: ChibigЖанр: Adventure, RPGЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895821C1A0D308090FE1A9A64442D83300967471
 ```
 
 https://mybot314.ru/tekegram_catalog/

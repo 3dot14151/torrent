@@ -6,7 +6,7 @@ Lost Lands: The Four Horsemen / Затерянные Земли. Четыре В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889041.jpg" />
+  <img src="Z:/picture/005/save_picture_889041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Minit (2018) [Ru/Multi] (1.0.0.3) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888718.jpg" />
+  <img src="Z:/picture/005/save_picture_888718.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lithium: Inmate 39 (2016) [Ru/Multi] (1.3.1) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888657.jpg" />
+  <img src="Z:/picture/005/save_picture_888657.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Midnight Calling: Anabel / Полуночный зов: Анабель (2015) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885974.jpg" />
+  <img src="Z:/picture/005/save_picture_885974.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hidden Motives: The Diamond Rush (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885768.jpg" />
+  <img src="Z:/picture/005/save_picture_885768.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ A Tale for Anna / Сказка для Анны (2021) [Ru] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885656.jpg" />
+  <img src="Z:/picture/005/save_picture_885656.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Reflections of Life 9: Utopia (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885028.jpg" />
+  <img src="Z:/picture/005/save_picture_885028.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Grim Tales 10: The Heir / Страшные сказки 10: Наследник (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884048.jpg" />
+  <img src="Z:/picture/005/save_picture_884048.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Order of the Light: The Deathly Artisan / Орден Света: Смертел�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883077.jpg" />
+  <img src="Z:/picture/005/save_picture_883077.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Myths Of The World 8: Born Of Clay And Fire (2016) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882590.jpg" />
+  <img src="Z:/picture/005/save_picture_882590.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fairy Godmother Stories: Cinderella / Истории Крёстной Феи: З
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880094.jpg" />
+  <img src="Z:/picture/005/save_picture_880094.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mind Snares: Alice's Journey (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876323.jpg" />
+  <img src="Z:/picture/005/save_picture_876323.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Space Legends: At the Edge of the Universe (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876265.jpg" />
+  <img src="Z:/picture/005/save_picture_876265.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Others (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874770.jpg" />
+  <img src="Z:/picture/005/save_picture_874770.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Eventide: Slavic Fable / На закате. Предания славян (2015)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874755.jpg" />
+  <img src="Z:/picture/005/save_picture_874755.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Nevertales 9: Hearthbridge Cabinet (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872569.jpg" />
+  <img src="Z:/picture/008/save_picture_872569.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Reflections of Life 9: Utopia / Отражения жизни 9: Утопия (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872276.jpg" />
+  <img src="Z:/picture/008/save_picture_872276.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mountain Trap 2: Under The Cloak Of Fear (2016) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870364.jpg" />
+  <img src="Z:/picture/008/save_picture_870364.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Fear for Sale 8: The House on Black River (2016) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870272.jpg" />
+  <img src="Z:/picture/008/save_picture_870272.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Endless Fables:The Minotaur's Curse (2016) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870211.jpg" />
+  <img src="Z:/picture/008/save_picture_870211.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Amaranthine Voyage 4: The Obsidian Book / Вечное путешествие 4.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869697.jpg" />
+  <img src="Z:/picture/008/save_picture_869697.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Shadow Wolf Mysteries 6: Curse of Wolfhill / Призрачная тень во�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869693.jpg" />
+  <img src="Z:/picture/008/save_picture_869693.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869128.jpg" />
+  <img src="Z:/picture/008/save_picture_869128.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Bonfire Stories 3: Manifest Horror / Истории у костра 3: Вопл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868537.jpg" />
+  <img src="Z:/picture/008/save_picture_868537.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Dark City 4: Dublin / Мрачный город 4: Дублин (2020) [Ru] (1.0
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868534.jpg" />
+  <img src="Z:/picture/008/save_picture_868534.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Dead Reckoning 3: The Crescent Case / Точный расчет 3: Дело По
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867964.jpg" />
+  <img src="Z:/picture/008/save_picture_867964.jpg" />
 </div>
 
 

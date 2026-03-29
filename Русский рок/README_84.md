@@ -1,3 +1,119 @@
+###  Публикация: 1646974   (231747) от 17.07.2023
+
+Way To Stars - Путь К Звёздам (2023) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Путь...
+02. Глазами Звёзд
+03. Лица Лжецов
+04. Диссонанс(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E068BCE57ABB32A46EDC67444FC88EB1E5442E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646982   (231703) от 17.07.2023
+
+Артемий Волынский - Черный мир. Часть 1 (2023) MP3|320 kbps] <Punk Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231703.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы
+2. Не такой как все
+3. Утренним днем
+4. На грани коллапса(   Читать дальше...   )Жанр: Punk Rock/AcousticПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEB67766F018723F5059D4BE5357374B664D0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645173   (231539) от 08.07.2023
+
+Dead Souls - No Hope For Tomorrow (2022) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Crashed
+02. Face to Face
+03. Hold on and Stand
+04. Final Warning(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F66B39677C1A0DC69168D24BD1F1B54A2A9D517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581306   (231318) от 04.10.2022
+
+ДДТ (DDT) - Творчество в пустоте. Часть 2 (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_231318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Эволюция
+3. Ваши вещи мертвы
+4. Лажа(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D897A186B1EA015BD245C0317DE58CE56B6FF752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649029   (231240) от 26.07.2023
 
 Pont Of Reindeer - Мир И Порядок (2023) [MP3|320 Kbps] <Thrash Metal>
@@ -6,7 +122,7 @@ Pont Of Reindeer - Мир И Порядок (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231240.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ealee - Лабиринт (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231229.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231176.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230962.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230757.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Inteam - Точёный пик (2023) [MP3|320 Kbps] <Comedy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230734.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ TOWARDS the SUN - Интоксикация (2022) [MP3|320 Kbps] <Industrial Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230138.jpg" />
+  <img src="Z:/picture/005/save_picture_230138.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230128.jpg" />
+  <img src="Z:/picture/005/save_picture_230128.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230124.jpg" />
+  <img src="Z:/picture/005/save_picture_230124.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230111.jpg" />
+  <img src="Z:/picture/005/save_picture_230111.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229777.jpg" />
+  <img src="Z:/picture/004/save_picture_229777.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Get Cold - 3 Relise (2014-2022) [MP3|320 Kbps] <Emo Punk, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229205.jpg" />
+  <img src="Z:/picture/004/save_picture_229205.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229198.jpg" />
+  <img src="Z:/picture/004/save_picture_229198.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Desires Dawn - Один (2022) [MP3|320 Kbps] <Metalcore, Post Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229147.jpg" />
+  <img src="Z:/picture/004/save_picture_229147.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228897.jpg" />
+  <img src="Z:/picture/004/save_picture_228897.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228889.jpg" />
+  <img src="Z:/picture/004/save_picture_228889.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228599.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228581.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228390.jpg" />
+  <img src="Z:/picture/005/save_picture_228390.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228290.jpg" />
+  <img src="Z:/picture/005/save_picture_228290.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228198.jpg" />
+  <img src="Z:/picture/005/save_picture_228198.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Made In Ural Vol.3 (2015) [MP3|320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228178.jpg" />
+  <img src="Z:/picture/005/save_picture_228178.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Made In Ural Vol.3 (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A7A38F1E52A3100288133D46DC1D2A9411CAE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650002   (227814) от 30.07.2023
-
-Anzhela Vopit - Атрибуты Восторга (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Деад принцесс [00:03:05]
-02 - Не кури [00:03:33]
-03 - Никто [00:04:34]
-04 - Мантра [00:04:03](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3512B4FF40FE4FAAE8259B939458B681CD4583FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650114   (227687) от 30.07.2023
-
-ГхЛхДхМхР - 7 Albums (2020-2023) [MP3|320 Kbps] <Hardcore, Crust Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-ГхЛхДхМхР - 2020 - Infernum
-ГхЛхДхМхР - 2020 - Карцер
-ГхЛхДхМхР - 2021 - Agonia(   Читать дальше...   )Жанр: Hardcore, Crust PunkПродолжительность: 7CD, 02:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4338E4AA4F590A44EFFBE775A5C1558F93BDFC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650103   (227656) от 30.07.2023
-
-Вова Синий и Братья По Разуму - Те самые песни (1993) [MP3|320 Kbps] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я одна [00:02:44]
-02 - Унылый Париж [00:02:04]
-03 - День рождения [00:02:21]
-04 - Рок-н-ролл [00:02:33](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47441E870A182D0990CCBA3D90FD01C78ADE279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513032   (227588) от 27.11.2021
-
-Обе две - Мне это не подходит (2021) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227588.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 3 по 50
-2. Хрусталь
-3. Кавказ
-4. Ты мне говоришь пока (из фильма «Джетлаг»)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBB4A1CFCEC962FC53C9E2706E31BB9AD5E5C95
 ```
 
 https://mybot314.ru/tekegram_catalog/

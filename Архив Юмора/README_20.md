@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776194.jpg" />
+  <img src="Z:/picture/008/save_picture_776194.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776109.jpg" />
+  <img src="Z:/picture/008/save_picture_776109.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774215.jpg" />
+  <img src="Z:/picture/008/save_picture_774215.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772946.jpg" />
+  <img src="Z:/picture/008/save_picture_772946.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771617.jpg" />
+  <img src="Z:/picture/008/save_picture_771617.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771167.jpg" />
+  <img src="Z:/picture/008/save_picture_771167.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771157.jpg" />
+  <img src="Z:/picture/005/save_picture_771157.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771000.jpg" />
+  <img src="Z:/picture/008/save_picture_771000.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770477.jpg" />
+  <img src="Z:/picture/008/save_picture_770477.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770465.jpg" />
+  <img src="Z:/picture/008/save_picture_770465.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770362.jpg" />
+  <img src="Z:/picture/008/save_picture_770362.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770227.jpg" />
+  <img src="Z:/picture/008/save_picture_770227.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770200.jpg" />
+  <img src="Z:/picture/008/save_picture_770200.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769884.jpg" />
+  <img src="Z:/picture/008/save_picture_769884.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769881.jpg" />
+  <img src="Z:/picture/008/save_picture_769881.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769878.jpg" />
+  <img src="Z:/picture/008/save_picture_769878.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769876.jpg" />
+  <img src="Z:/picture/008/save_picture_769876.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769853.jpg" />
+  <img src="Z:/picture/008/save_picture_769853.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769852.jpg" />
+  <img src="Z:/picture/008/save_picture_769852.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769841.jpg" />
+  <img src="Z:/picture/008/save_picture_769841.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769529.jpg" />
+  <img src="Z:/picture/008/save_picture_769529.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769379.jpg" />
+  <img src="Z:/picture/008/save_picture_769379.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768805.jpg" />
+  <img src="Z:/picture/008/save_picture_768805.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768688.jpg" />
+  <img src="Z:/picture/008/save_picture_768688.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768482.jpg" />
+  <img src="Z:/picture/008/save_picture_768482.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768448.jpg" />
+  <img src="Z:/picture/008/save_picture_768448.jpg" />
 </div>
 
 

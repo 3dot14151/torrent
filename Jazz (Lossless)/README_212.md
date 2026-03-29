@@ -1,3 +1,119 @@
+###  Публикация: 1180842   (338020) от 05.11.2017
+
+Les McCann - In New York (1961) 1989, Capitol Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chip Monck [07:46]
+02. Fayth, You're... [06:11]
+03. Cha-Cha Twist [07:39]
+04. A Little 3/4 For God & Co. [09:25](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6353E1406FE6909F4118F648543A86573C93D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180856   (338019) от 05.11.2017
+
+Joe Williams & George Shearing - The Heart And Soul Of Joe Williams And George Shearing (1971) 2001, Sheba [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart and Soul [03:12]
+02. Nobody's Heart [02:23]
+03. Body and Soul [02:25]
+04. Humpty Dumpty Heart [02:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F1458C60CC8A07273E255E6C358297ACDFC807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180853   (338016) от 05.11.2017
+
+Gary Peacock Trio - Tangents (2017) ECM Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contact [06:40]
+02. December Greenwings [04:51]
+03. Tempei Tempo [04:11]
+04. Cauldron [02:30](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2917814717350EAF218CE00120B800C7944E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419710   (337418) от 29.10.2020
+
+Marion Brown - Why Not? Porto Novo! Revisited (1966, 1967) 2020, Hat Hut Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Sorella [11:32]
+02. Fortunato [8:36]
+03. Why Not [7:00]
+04. Homecoming [10:19](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C80FA9C2769F40157D8F1BD303D903E42828781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258515   (336650) от 30.10.2018
 
 Barney Kessel - It's A Blue World (1968 - 1973) 1990, Jazz Hour [APE|Lossless|image + .cue] <Bop, Mainstream Jazz>
@@ -6,7 +122,7 @@ Barney Kessel - It's A Blue World (1968 - 1973) 1990, Jazz Hour [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336650.jpg" />
+  <img src="Z:/picture/008/save_picture_336650.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Howard Rumsey's Lighthouse All-Stars - Music For Lighthousekeeping (1956) 1991, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336616.jpg" />
+  <img src="Z:/picture/008/save_picture_336616.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Sonny Rollins - Our Man In Jazz (1962) 1995, Classic Compact Discs[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336352.jpg" />
+  <img src="Z:/picture/008/save_picture_336352.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ Sonny Rollins - All The Things You Are (1963, 1964) 1990, Bluebird[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336141.jpg" />
+  <img src="Z:/picture/008/save_picture_336141.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Billy Cobham - Ayajala Live (2015) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335823.jpg" />
+  <img src="Z:/picture/008/save_picture_335823.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Paolo Fresu - Thinking (2006) EMI [WavPack|Lossless|image + .cue] <Post-Bop, Mod
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335690.jpg" />
+  <img src="Z:/picture/008/save_picture_335690.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Joe Williams - Live (1973) 1997, Original Jazz Classics [APE|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335689.jpg" />
+  <img src="Z:/picture/008/save_picture_335689.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Peter O'Mara - Stairway (1993) Enja [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335688.jpg" />
+  <img src="Z:/picture/008/save_picture_335688.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Barney Wilen - Tilt (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335416.jpg" />
+  <img src="Z:/picture/008/save_picture_335416.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Vic Dickenson - Five Classic Albums Plus (1953 - 1959) 2CD, 2012, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335116.jpg" />
+  <img src="Z:/picture/008/save_picture_335116.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Soul Ballet - 2019 (2009) [FLAC|Lossless|image + .cue] <Trip Hop, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334990.jpg" />
+  <img src="Z:/picture/008/save_picture_334990.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Roxy Coss - The Future Is Female (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334713.jpg" />
+  <img src="Z:/picture/008/save_picture_334713.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Phineas Newborn, Jr. - The Classic Albums 1956-1962 (2015) 5CD, Enlightenment [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334702.jpg" />
+  <img src="Z:/picture/008/save_picture_334702.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Redman, Mehldau, McBride, Blade - LongGone (2022) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334690.jpg" />
+  <img src="Z:/picture/008/save_picture_334690.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Duke Ellington - 3 Essential Albums (1959, 1966, 1972) 3CD, 2017, Universal [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334007.jpg" />
+  <img src="Z:/picture/008/save_picture_334007.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ The Joe Newman Quintet - Jive At Five (1960) 1989, Original Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333959.jpg" />
+  <img src="Z:/picture/008/save_picture_333959.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ The Australian Jazz Quintet  +1 (1957) /2014, Solid Records/[FLAC|tracks+.cue]<M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333935.jpg" />
+  <img src="Z:/picture/008/save_picture_333935.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ John Coltrane - "Live" At The Village Vanguard (1961) 2007, Verve [FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333911.jpg" />
+  <img src="Z:/picture/008/save_picture_333911.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 2 (2020) Signo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333876.jpg" />
+  <img src="Z:/picture/008/save_picture_333876.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Glenn Miller - Chattanooga Choo Choo: The #1 Hits (1991) [FLAC|tracks+.cue]<Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333852.jpg" />
+  <img src="Z:/picture/008/save_picture_333852.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Hubert Laws - The Laws Of Jazz & Flute By-Laws (1964, 1966) 1994, Atlantic [WavP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333505.jpg" />
+  <img src="Z:/picture/008/save_picture_333505.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333284.jpg" />
+  <img src="Z:/picture/005/save_picture_333284.jpg" />
 </div>
 
 
@@ -632,128 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259514   (333283) от 18.11.2010
-
-Олег Лундстрем - Антология джаза (2000) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bugle Call Rag
-2. Begin the Beguin
-3. Air Mail Special
-4. Lady Luck
-5. Легенда о Сююмбеке
-6. Снова вместе
-7. East St. Louise toodle - 00
-8. Mood Indigo
-9. Dear Old Southland
-10. Lazy Bug(   Читать дальше...)Жанр: JazzПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947961   (333209) от 29.09.2022
-
-Lem Winchester and the Ramsey Lewis Trio - Perform A Tribute To Clifford Brown (1958) 1997, Argo[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Joy Spring [03:28]
- 02.Where It Is [04:33]
- 03.Sandu [06:16]
- 04.Once In A While [05:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F368E48A292DD1365D02EF8C9672D5432CFDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258962   (333158) от 01.11.2018
-
-Elmer Snowden Quartet Featuring Cliff Jackson - Harlem Banjo! (1960) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Mean A Thing (If It Ain't Got That Swing) [2:47]
-02. Doin' The New Lowdown [3:33]
-03. Runnin' Wild [3:30]
-04. Diga Diga Doo [2:26](   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, SwingПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD34418BCEA220778BCAACE957CB8DF2E7B44EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259007   (333157) от 01.11.2018
-
-VA - Future Sounds of Jazz - Vol. 6 (1999) [FLAC|Lossless|tracks + .cue] <Future Jazz, Downtempo>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beatless - Vertigo (06:27)
-02. Victor Simonelli - Bateria (Latin Impressions) (09:35)
-03. Christian Zimmermann - Diary of a Lost Girl (07:12)
-04. Wei Chi - Don't Know (04:36)(   Читать дальше...   )Жанр: Future Jazz, DowntempoПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A88564E8160DE4D8F3FB0448A45589E9204AD88
 ```
 
 https://mybot314.ru/tekegram_catalog/

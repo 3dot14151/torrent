@@ -1,3 +1,29 @@
+###  Публикация: 1445180   (149018) от 23.12.2021
+
+Подшивка журналов | Веселые картинки [1-12 номер, с приложениями] (2021) [DJVU]
+
+>>След.
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский и российский литературно-художественный детский юмористический журнал. Рассчитан на детей от 4 до 11 лет. Издаётся в Москве ежемесячно с 24 сентября 1956 года. Журнал включает стихи и рассказы, настольные игры, комиксы, ребусы, шутки, загадки. Он организует досуг всей семьи, поскольку маленьким детям читают родители, а дети постарше нуждаются в одобрении (   Читать дальше...   )Жанр: Детский юмористический журналФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314F9D6B527F564200BD6C24FDAAA3B8EC611BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589590   (148196) от 15.12.2012
 
 Газета | Юный ленинец № 3 (184) [22 января 1927] [PDF]
@@ -6,7 +32,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148196.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148014.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145903.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145852.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145114.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139609.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131085.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131071.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131044.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126246.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125601.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125572.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125569.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125454.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125451.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123943.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122380.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118591.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112522.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112518.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110906.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110650.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110644.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110574.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110549.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B822A2FDA3D42A0A05E5481BC179D0BEFC95140D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719699   (110548) от 30.04.2024
-
-Журнал | Левша №2 (февраль 2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110548.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Левша» - Журнал для любителей моделирования из картона. Распечатай, вырежи и склей. Журнал «Левша» издается с 1972 года для читателя среднего и старшего возраста. Главной особенностью журнала является его практическая направленность – иллюстрация изобретений и открытий изобретений конкретными конструкциями для самостоятельного изготовления. Журнал имеет гриф «Допущено (   Читать дальше...   )Жанр: Умелые рукиИздательство: ООО "Юный техник"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DA2BEC4BB16D8684EEB2F0BB8B3DB298EECEB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

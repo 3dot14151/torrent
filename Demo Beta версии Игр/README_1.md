@@ -1,3 +1,136 @@
+###  Публикация: 1484225   (1006216) от 18.07.2021
+
+The Architect: Paris (2021) [Ru/Multi] (0.8.2) License GOG [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006216.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Architect: Paris (TA:P) - строительная игра. Превратите столицу Франции в город средневекового или футуристического вида, постройте деловой район, окруженный парками, создайте гигантские площади, достойные величайших советских городов, представьте себе кварталы, в которых историческая архитектура сочетается с самыми современными стилями...Тип издания: LicenseРазработчик: Enodo GamesЖанр: Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B768552A214A122DA0EF035B9541FA19787790F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601093   (998165) от 10.01.2013
+
+StarCraft II: Heart of The Swarm [En] (Beta) 2013 | [Установленная]
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998165.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Королевой Клинков покончено. На страшной планете Чар, в отчаянной попытке остановить нашествие зергов на сектор Копрулу, Джим Рейнор привел в действие древний артефакт Зел’нага. Под его воздействием к Саре Керриган вернулся человеческий облик. Зерги остались без королевы: ни командовать ими, ни объединять их больше было некому. Рой распался на несколько стай, которые рассеялись по сектору Копрулу. Одну из величайших угроз для Вселенной удалось нейтрализовать.
+
+Однако Сара Керриган осталась в живых. И хотя у нее больше нет ни чудовищного могущества Королевы Клинков, ни Роя зергов под началом, бывший «призрак» — по-прежнему опасный противник. И если артефакт действительно освободил ее, то почему она разыскивает стаи зергов, разбросанные по Копрулу? Что случилось с Рейнором? Одержима ли Керриган, как прежде, жаждой мести — или после перерождения у нее появилась и новая цель?
+Кто же такая на самом деле Сара Керриган?(   Читать дальше...   )Тип издания: BetaЖанр: Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD704E9F5D9D646D95A4A275D2CAD623C100F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088914   (954799) от 01.01.2017
+
+Out of Reach (2015) [Ru/Multi] (0.24) Repack Other s
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – выброшенная на неизвестный берег жертва кораблекрушения. Шторм прошел, но худшее еще впереди. Ищите еду и ресурсы, мастерите снаряжение, постройте укрытие. Это – основы, но для того, чтобы остаться здесь в живых, вам потребуется намного большее.Тип издания: RepackРазработчик: Space Boat StudiosЖанр: Simulator, Strategy, RPGЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BF54A48C7D490B9CE1727241960917E8966EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090793   (945429) от 07.01.2017
+
+Empyrion - Galactic Survival (2015) [Ru/Multi] (5.0.3.0792) Repack Other s
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Empyrion - Galactic Survival — это приключенческий космосим, в котором игрок может летать с планеты на планету, строить станции и корабли, а так же сражаться с таинственными противниками - как в одиночку, так и в кооперативе.Тип издания: RepackРазработчик: Eleon Game StudiosЖанр: Adventure (Space, Survival), Simulator, 1st Person, 3rd PersonЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A8F9DE5CAAB33DC04008C7BA16F48E0BF73B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091148   (943972) от 08.01.2017
+
+Space Engineers (2013) [Ru/Multi] (01.169.001) Repack Other s
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Space Engineers или Космические инженеры – это игра в которой вам предстоит создавать различные космические объекты. Перед вами целая вселенная для вашего творчества. Управлять вы будете обычным космонавтом. Стройте корабли, базы и любые другие приспособления, но не забывайте, что для постройке вам нужен материал, который вы и будете искать по всей вселенной. Разрабатывайте (   Читать дальше...   )Тип издания: RepackРазработчик: Keen Software HouseЖанр: Simulator (Space), 3D, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB131B9AFCB3B052B3C91D37150DD972F7F71FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092977   (936959) от 13.01.2017
 
 RoboMatch (2017) [Ru/Multi] (GreenLight Demo) License
@@ -6,7 +139,7 @@ RoboMatch (2017) [Ru/Multi] (GreenLight Demo) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936959.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ MadOut Open City (2015) [Ru/En] (08-02-2016) Unofficial [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936365.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Sheltered (2015) [Ru/Multi] (Update 8) Repack MasterDarkness [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929811.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ Good Night, Knight (2021) [En] (0.6.2.04) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916827.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ The Last Look (2016) [Ru/Multi] (0.4.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916744.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ Roguelands (2015) [En] (0.6.1) Repack By Trol80lvl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914683.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ BeamNG.drive (2013) [En] (0.5.2.1) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914597.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ Castle Story (2015) [En] (0.6.0) Repack John2s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_910960.jpg" />
+  <img src="Z:/picture/008/save_picture_910960.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907958.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ Dorfromantik (2021) [Ru/Multi] (0.2.0.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898428.jpg" />
 </div>
 
 
@@ -267,7 +400,7 @@ World of Horror (2020) [En] (0.9.17h1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897151.jpg" />
 </div>
 
 
@@ -293,7 +426,7 @@ Finding Bigfoot (2017) [Ru/Multi] (1.1.7) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882783.jpg" />
+  <img src="Z:/picture/005/save_picture_882783.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ The Wild Eight (2017) [Ru/Multi] (09.02.2017) Unofficial VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882671.jpg" />
+  <img src="Z:/picture/005/save_picture_882671.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ Paint the Town Red (2016) [En] (0.4.2) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872792.jpg" />
+  <img src="Z:/picture/008/save_picture_872792.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (0.0.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870693.jpg" />
+  <img src="Z:/picture/008/save_picture_870693.jpg" />
 </div>
 
 
@@ -397,7 +530,7 @@ Surviving the Aftermath (2019) [Ru/Multi] (1.17.0.3533/dlc) Repack Other s [Foun
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855692.jpg" />
+  <img src="Z:/picture/008/save_picture_855692.jpg" />
 </div>
 
 
@@ -423,7 +556,7 @@ Life is Feudal: Forest Village (2016) [Ru/Multi] (0.9.6042) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853218.jpg" />
+  <img src="Z:/picture/008/save_picture_853218.jpg" />
 </div>
 
 
@@ -449,7 +582,7 @@ Warshift (2015) [Ru/En] (1.3.7) SteamRip
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851615.jpg" />
+  <img src="Z:/picture/008/save_picture_851615.jpg" />
 </div>
 
 
@@ -475,7 +608,7 @@ Endzone - A World Apart (2020) [Ru/En] (0.7.7412.34215) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849355.jpg" />
+  <img src="Z:/picture/008/save_picture_849355.jpg" />
 </div>
 
 
@@ -501,7 +634,7 @@ Portal Knights (2016) [Ru/Multi] (Alpha 0.2.2) SteamRip MarkusEVO (R.G. Games)
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848105.jpg" />
+  <img src="Z:/picture/008/save_picture_848105.jpg" />
 </div>
 
 
@@ -527,7 +660,7 @@ The Forest (2014) [Ru] (0.35d) Repack SpaceX
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846338.jpg" />
+  <img src="Z:/picture/008/save_picture_846338.jpg" />
 </div>
 
 
@@ -538,136 +671,6 @@ The Forest — это необычный survival horror с открытым м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5A5D8973CC19AACCE20E07C50358FEA652F5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112800   (841105) от 09.03.2017
-
-World War Party: Balls of Duty (2017) [En] (0.1.9) Repack VseTop [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир сошел с ума, все народы мира воюют друг против друга. Причем делают это не стандартным способом, а на футбольном поле. Выберите страну, берите танки, взрывчатку и много оружия, чтобы победить соперника в кровавой игре. World War Party: Balls of Duty – это мультиплеерная игра до 8 игроков на одном матче. Также есть возможность играть в одиночку против ботов – (   Читать дальше...   )Тип издания: RepackРазработчик: Piet DAmoreЖанр: Arcade, Action, SportЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120839CC69E4CEA8A34D3DB48AA39738C225C032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113161   (839163) от 10.03.2017
-
-Gremlins vs Automatons (2016) [Ru/Multi] (1.0.0.200) Repack VseTop [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gremlins vs Automatons – это автономная версия карточной игры «Gremlins, Inc.», не требующая связи с каким-либо сервером. Также в игру была добавлена новая стимпанк музыка, переработан и улучшен фон основного меню и другие важные изменения. По сути, это хорошо всем известный «Gremlins, Inc.», только с перечисленными выше улучшениями.Тип издания: RepackРазработчик: Alexey Bokulev, Sergei Klimov, Charlie Oscar Lima Tango Interactive EntertainmentЖанр: Strategy, IndieЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17B561C5AD766B81A019764D3D1F61762442E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112884   (839157) от 10.03.2017
-
-MadOut BIG City (2017) [Ru/En] (24.02.2017) Repack Andrxaxa
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь нет правил – только необходимость победы, можно творить любой беспредел. Подпрыгивающие на кочках, не всегда вписывающиеся в повороты, они летят на максимальной скорости. Оказаться лучше соперников во всем. Взять первое место. Делай все чтобы остальные водители дрожали. Также можно улучшить и машину. Их более 30, каждая уникальна и отличается от других.Тип издания: RepackРазработчик: MadOut GamesЖанр: Arcade, Action, Racing, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2842B932878F5D22DEFB079BDF875CD0E700640E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026470   (837497) от 11.03.2017
-
-Slime Rancher (2016) [Ru/Multi] (0.5.0b) Repack Kuji Kita
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slime Rancher - оригинальный симулятор по разведению Слизи на далекой планете, где в роли отважной молодой девушки по имени Беатрикс вам предстоит создать прибыльную ферму по производству очень ценных ресурсов! В далеком будущем мегакорпорации Земли обнаружили новый источник дохода в виде невероятного ресурса на очень далёкой планете, которую населяют странные маленькие (   Читать дальше...   )Тип издания: RepackРазработчик: Monomi ParkЖанр: Action, Adventure, SimulationЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759658BE312DB2AE421D48BDFC4A93CDBCFF4923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004903   (835778) от 07.04.2016
-
-ARK: Survival Evolved (2015) [Ru/Multi] (build 238.3) Repack SpaceX
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835778.jpg" />
-</div>
-
-
-###  Подробнее
-
-ARK: Survival Evolved – это захватывающая и увлекательная игра в жанре выживания в открытом мире, с уникальной смесью мультиплеерного, кооперативного и соревновательного режимов. Игроки просыпаются голыми и голодными на пляже таинственного острова, среди множества других обескураженных людей. Ваша задачи: охотится, собирать урожай, осваивать ремесло, исследовать (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Wildcard, Instinct Games, Efecto Studios, Virtual Basement LLCЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E4ECC82A1636A3315A2DAE749629FAE05211E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

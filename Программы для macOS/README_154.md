@@ -1,3 +1,139 @@
+###  Публикация: 1517235   (163775) от 14.12.2021
+
+Untouch 1.2.3 [En/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Untouch, при запуске и включении, проверяет не активна ли сенсорная панель. В некоторых случаях,  когда мы кладем руки на клавиатуру MacBook и непреднамеренно касаемся сенсорной панели. Это может сильно раздражать или мешать работе.
+Кроме того, вы можете использовать выбранные клавиши-модификаторы, чтобы временно активировать сенсорную панель или выбрать приложения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 Nikita ZubkovПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B202ACA6B824D59EAD972489AE28E72FD9EF28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517226   (163745) от 14.12.2021
+
+Posterino 3 v3.11.2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
+Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8136C6B1AFC9A68A88A9DB2373D874406A7C7CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432568   (163740) от 17.12.2020
+
+Zoc Terminal 8.01.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoc terminal - является довольно известным telnet/SSH/SSH2 клиентом и мощным эмулятором терминала. С помощью Zoc terminal, используя протоколы telnet, Secure Shell (SSH/SSH2) или модем, можно получить консольный доступ к различным серверам Unix, Linux, Mac OS X, активному сетевому оборудованию - CISCO, Watchguard, Mikrotik и т.д.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2020Разработчик: EmTec Innovate SoftvareПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2BB45A8418384CE3B771CA915AA947847388134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517205   (163727) от 14.12.2021
+
+Big Mean Folder Machine 2 v2.43 fix [EN]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Mean Folder Machine - интересное приложение, предназначенное для упорядочения файлов по определённому критерию. Т.е., если в одной папке все файлы свалены в одну кучу (часто бывает в папке "Загрузка"), мы можем, выбрав определенный критерий, моментально навести порядок, переместив определенные типы файлов в нужные папки.
+Например, идеально подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2021Разработчик: publicspace.netПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2671E12590F499905ADA311E67A20F0D173FD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517301   (163701) от 14.12.2021
+
+Typinator 8 v.8.11 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Typinator – это простое приложение которое сэкономит ваше время, вставляя заранее заготовленные шаблоны вместо установленных вами сокращений.
+Например, набрав на клавиатуре «подп.», вместо него автоматически будет вставлено:
+Имя, Фамилия
+Должность(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 Ergonis SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D624F0DAD05624302474E9C3CA44DE1BC07C275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517231   (163674) от 14.12.2021
 
 JPEG SILKYPIX Photography 10 v10.2.17.0 [EN]
@@ -6,7 +142,7 @@ JPEG SILKYPIX Photography 10 v10.2.17.0 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163674.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ WidsMob Denoise 2.18 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163658.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ Audirvana 3.5.29 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163646.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ Donemax Data Recovery 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163615.jpg" />
 </div>
 
 
@@ -110,7 +246,7 @@ Tayasui Sketches Pro 6.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163609.jpg" />
 </div>
 
 
@@ -137,7 +273,7 @@ Blocs 4.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163592.jpg" />
 </div>
 
 
@@ -164,7 +300,7 @@ Typinator 9 v.9.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163518.jpg" />
 </div>
 
 
@@ -193,7 +329,7 @@ Surge for Mac 5.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163479.jpg" />
 </div>
 
 
@@ -219,7 +355,7 @@ HD Video Converter Movavi 22.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163471.jpg" />
 </div>
 
 
@@ -245,7 +381,7 @@ Paste 2.5.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163439.jpg" />
 </div>
 
 
@@ -271,7 +407,7 @@ BetterZip 5 v5.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163371.jpg" />
 </div>
 
 
@@ -298,7 +434,7 @@ iTrash 5 v5.3.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163288.jpg" />
 </div>
 
 
@@ -324,7 +460,7 @@ Hookshot 1.23.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163047.jpg" />
 </div>
 
 
@@ -350,7 +486,7 @@ Art Files 3 v3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163004.jpg" />
 </div>
 
 
@@ -377,7 +513,7 @@ Noise Machine 1.18 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162994.jpg" />
 </div>
 
 
@@ -403,7 +539,7 @@ PDF Reader Pro Edition 2.8.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162804.jpg" />
 </div>
 
 
@@ -429,7 +565,7 @@ Synalyze It! Pro 1.32 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162728.jpg" />
 </div>
 
 
@@ -457,7 +593,7 @@ Awaken 6.4.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162646.jpg" />
 </div>
 
 
@@ -483,7 +619,7 @@ Tidabie Tidal Music Converter 1.4.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162625.jpg" />
 </div>
 
 
@@ -509,7 +645,7 @@ Timer RH PRO  2.13.0 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162480.jpg" />
 </div>
 
 
@@ -535,7 +671,7 @@ Swift Publisher 5 v.5.6.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162463.jpg" />
 </div>
 
 
@@ -546,139 +682,6 @@ Swift Publisher - это пакет графических утилит для m
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2AAA633B354E86CCAA680A9296F32245F4AF222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517628   (162443) от 16.12.2021
-
-Dropzone 3 v3.8.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2021 Aptonic LimitedПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C93E22D46BB33E23AEF419698380E853E56CCD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517641   (162408) от 16.12.2021
-
-PhotosBlender 2.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162408.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotosBlender - это приложение для комбинирования фотографий по горизонтали или вертикали с использованием градиентного смешивания на стыках. Если результат не такой, как вы ожидали, дважды проверьте, совпадают ли размер и разрешение изображений.
-PhotosBlender «обрежет» результат, чтобы он соответствовал ширине или высоте самой маленькой фотографии. Если вы хотите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2020 Limit Point LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EB4BF75348D706F65FEAA910E2364727033F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517632   (162401) от 16.12.2021
-
-PatterNodes 2 v2.4.11 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162401.jpg" />
-</div>
-
-
-###  Подробнее
-
-PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
-Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2021Разработчик: © 2021 Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4258D00C7DAC0AC481852008790C973228A3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674294   (162399) от 04.11.2023
-
-Flyingbee PDF to PowerPoint 5.3.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162399.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF to PowerPoint используется для преобразования документов PDF в файлы Powerpoint. Вы можете получить редактируемый файл PPT для презентации в повседневной работе или учебе. Текст и изображения хорошо сохраняются в выходном файле. Вам не нужно тратить много времени на набор текста, копирование и вставку текста из других документов в файлы PPT, потому что универсальное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2023Разработчик: © 2023 Flyingbee SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7C8970535CF674FBAF1FFC7D1C040780DF87C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433173   (162371) от 19.12.2020
-
-Base64 Coder 2.1.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Base64 Coder - это быстрый и простой конвертер файлов в формат Base64.Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: Pavel KosykhПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A23A3591C469164F15CEE2D5E8B829192309CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

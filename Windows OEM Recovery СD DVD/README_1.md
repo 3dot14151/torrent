@@ -6,7 +6,7 @@ Recovery DVD для ноутбуков Samsung / Windows 7 Home Premium (x64) SP
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_311563.jpg" />
+  <img src="Z:/picture/005/save_picture_311563.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Recovery USB-flash for Acer Aspire E5-573 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304791.jpg" />
+  <img src="Z:/picture/008/save_picture_304791.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Recovery USB-flash for Acer Aspire V3-551G / Windows 8 (х64) [Русский]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296457.jpg" />
+  <img src="Z:/picture/008/save_picture_296457.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Recovery Toshiba A110-293 / Диск-реаниматор Windows XP Home Editio
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230172.jpg" />
+  <img src="Z:/picture/005/save_picture_230172.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Recovery Samsung RC510 Windows 7 Home Premium [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230160.jpg" />
+  <img src="Z:/picture/005/save_picture_230160.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ HP 6470b-6570b recovery 2 DVD win 7 sp1 pro x64 (rus), drivers and applications
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157560.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ System Partition for ASUS EeePC X101CH / Windows 7 Starter (х86) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146923.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Recovery USB-flash for Asus X555 LN / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146192.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Recovery USB-Flash for HP 15-ay512ur / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141650.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Recovery Partition for ASUS A53TK / Windows 7 Home Basic (х64) SP1 [русск�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135522.jpg" />
+  <img src="Z:/picture/005/save_picture_135522.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Lenovo S-Series recovery DVD Windows 7 Starter SP1 x86 RUS 6.1 6.1 (сборка
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87286.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ One Key Recovery 7 для Lenovo 7.0 [rus]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82979.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ ASUS Eee PC 1001PX вспомогательный DVD-диск Rev 1.2 [Русс
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78879.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Recovery Fujitsu-Siemens Computers Windows Vista Home Premium (x86) [Ru/En]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11543.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Recovery Fujitsu-Siemens Computers Windows Vista Home Basic (x86) [Ru/En]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11505.jpg" />
 </div>
 
 

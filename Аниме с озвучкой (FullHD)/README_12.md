@@ -1,3 +1,29 @@
+###  Публикация: 1388689   (786492) от 07.06.2020
+
+Godzilla. Kessen Kidou Zoushoku Toshi | Годзилла. Город на Грани Битвы [2018, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прибыв на Землю спустя 20 000 лет, Харуо вместе с остатками человечества обнаруживают, что планета стала совершенно другой. Флора и фауна здесь олицетворяют Годзиллу, а сама Земля спустя тысячелетия превратилась в планету-монстра, управляемую гигантской Годзиллой высотой 300 метров. Человечество оказывается на грани исчезновения и вынуждено бороться за своё выживание. (   Читать дальше...   )Производство: Polygon Pictures, ЯпонияЖанр: Приключения, ФантастикаРежиссер: Сидзуно КобунОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 01:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18E73368505FFC406C399AD00CA5D78F7FAC42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388690   (786491) от 07.06.2020
 
 Godzilla. Hoshi wo Kuu Mono | Годзилла. Пожиратель звёзд [2018, Movie] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Godzilla. Hoshi wo Kuu Mono | Годзилла. Пожиратель звёзд 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786491.jpg" />
+  <img src="Z:/picture/008/save_picture_786491.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Godzilla. Kaijuu Wakusei  | Годзилла. Планета Чудовищ [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786490.jpg" />
+  <img src="Z:/picture/008/save_picture_786490.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Shirobako | Белая Коробка [2014, TV, 24 ep + 2 Specials] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785041.jpg" />
+  <img src="Z:/picture/008/save_picture_785041.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Non Non Biyori | Деревенская Глубинка [TV-1] [2013, TV, 12 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785040.jpg" />
+  <img src="Z:/picture/008/save_picture_785040.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Kidou Senshi Gundam F91 | Mobile Suit Gundam F91 | Мобильный воин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784692.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые Ведьмы: Оп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784427.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Anime-Gataris | Аниме Истории [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784426.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Denpa Teki na Kanojo | Электромагнитная Подружка [2009, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784425.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Yagate Kimi ni Naru | В Конечном Счёте я Стану Твоей [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784423.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Go-Toubun no Hanayome | Пять Невест [TV-1] [2019, TV, 12 ep] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784422.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Strike Witches the Movie | Штурмовые Ведьмы Фильм [2012, Mov
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784121.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Gabriel Dropout | Габриэль Бросает Школу [2017, TV, 12 ep + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782989.jpg" />
+  <img src="Z:/picture/008/save_picture_782989.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Shokugeki no Souma: Ni no Sara | Кулинарные поединки Сомы 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781750.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Shokugeki no Souma: San no Sara | Кулинарные поединки Сомы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781749.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ New Game! | Новая игра! [TV-1] [2016, TV, 12 ep + OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780920.jpg" />
+  <img src="Z:/picture/008/save_picture_780920.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Kono Subarashii Sekai ni Shukufuku wo! Kurenai Densetsu | Этот Замеча�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780917.jpg" />
+  <img src="Z:/picture/008/save_picture_780917.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Hajimete no Gal | My First Girlfriend Is a Gal | Моя первая гяру [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776260.jpg" />
+  <img src="Z:/picture/008/save_picture_776260.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Noragami | Noragami Aragoto | Бездомный Бог | Бог-Бродяга 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774875.jpg" />
+  <img src="Z:/picture/008/save_picture_774875.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Sewayaki Kitsune no Senko-san | Заботливая Лисица Сэнко [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772430.jpg" />
+  <img src="Z:/picture/008/save_picture_772430.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Strike Witches 2 | Штурмовые Ведьмы [ТВ-2] [2010, TV, 12 ep] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772429.jpg" />
+  <img src="Z:/picture/008/save_picture_772429.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772428.jpg" />
+  <img src="Z:/picture/008/save_picture_772428.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Yesterday o Utatte | Sing "Yesterday" for Me | Спой мне "Yesterday" [2020
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772427.jpg" />
+  <img src="Z:/picture/008/save_picture_772427.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ ReLife | Повторная Жизнь [2016, TV, 13 ep + 4 OVA] BDRip 1080p 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770275.jpg" />
+  <img src="Z:/picture/008/save_picture_770275.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Ore no Imouto | Ну не Может Моя Сестрёнка Быть Тако
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770273.jpg" />
+  <img src="Z:/picture/008/save_picture_770273.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Another | Иная [2012, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770271.jpg" />
+  <img src="Z:/picture/008/save_picture_770271.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Another | Иная [2012, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0365918904E61070720EE9AE756671345C10DB0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374713   (769266) от 25.06.2020
-
-Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 из 12 эп.] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды Кагами Казуя, ничем не примечательный паренёк, встретил прекрасную девушку по имени Кириха. Казуя и подумать не мог, что они уже когда-то встречались, но Кириха приветствует его словами "Давно не виделись". Как оказалось, Кириха является цукумогами, который возник из пояса оби покойной матери Казуи. Вокруг небывалой красоты Кирихи разворачиваются (   Читать дальше...   )Производство: Япония, студия Zero-G / ゼロジーЖанр: эччи, комедия, романтика, мистикаРежиссер: Курая РёитиЯзык озвучки: РусскийФормат: MР4Продолжительность: 13 эпизодов по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DED923669FD6283FBA2F142F782452E8398E4D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786077.jpg" />
+  <img src="Z:/picture/008/save_picture_786077.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Clookai - Massage Gold (2008) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785931.jpg" />
+  <img src="Z:/picture/008/save_picture_785931.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mixed Choir под управлением М. Попсавова - Страст�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785927.jpg" />
+  <img src="Z:/picture/008/save_picture_785927.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785910.jpg" />
+  <img src="Z:/picture/008/save_picture_785910.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785908.jpg" />
+  <img src="Z:/picture/008/save_picture_785908.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Nexion-Project - Voices of the Ascension (2011) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785780.jpg" />
+  <img src="Z:/picture/008/save_picture_785780.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785646.jpg" />
+  <img src="Z:/picture/008/save_picture_785646.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785613.jpg" />
+  <img src="Z:/picture/008/save_picture_785613.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ David Arkenstone - Fairy Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785404.jpg" />
+  <img src="Z:/picture/008/save_picture_785404.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785391.jpg" />
+  <img src="Z:/picture/008/save_picture_785391.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785361.jpg" />
+  <img src="Z:/picture/008/save_picture_785361.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785360.jpg" />
+  <img src="Z:/picture/008/save_picture_785360.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Romantic Strings and Twin Pianos - Full Moon & Empty Arms (1993) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785350.jpg" />
+  <img src="Z:/picture/008/save_picture_785350.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785332.jpg" />
+  <img src="Z:/picture/008/save_picture_785332.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sagor Som Leder Mot Slutet - 2 Альбома (2016-2018) [MP3|320 кб/с]<Post
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785302.jpg" />
+  <img src="Z:/picture/008/save_picture_785302.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785196.jpg" />
+  <img src="Z:/picture/008/save_picture_785196.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784350.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784342.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack 2 (2020) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784247.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Opii - Encounters (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Chil
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784065.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Jeff Russo - Видоизмененный углерод | Altered Carbon (Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784027.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Armik - Pacifica (2018) [FLAC|24/96|Lossless|WEB-DL|tracks|] <Nuevo Flamenco>
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784020.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Fifty Shades Freed (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783770.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Justin Johnson - If Walls Could Talk (2016) [MP3|320 Kbps] <Roots Acoustic Instr
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783767.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Giorgio Costantini - Atmosphere (432 Hz) (2015) [FLAC|Lossless|WEB-DL|tracks] <E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783348.jpg" />
+  <img src="Z:/picture/008/save_picture_783348.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783204.jpg" />
+  <img src="Z:/picture/008/save_picture_783204.jpg" />
 </div>
 
 

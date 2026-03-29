@@ -1,3 +1,55 @@
+###  Публикация: 916202   (591373) от 07.07.2015
+
+Сергей Зимин | Как научиться плавать (1951) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уметь плавать необходимо каждому человеку. Ведь это один из самых приятных и полезных видов спорта, который всесторонне развивает организм, укрепляет мышцы , сердце и легкие. Научиться плавать совсем не трудно. Конечно, легче и скорее удается овладеть техникой этого вида спорта под руководством опытного инструктора. Но научиться плавать каждый из вас может и сам. (   Читать дальше...   )Жанр: ПлаваниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F25C791B2A70B0B11B49E912C8DE26D2B5EDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916179   (591306) от 07.07.2015
+
+Х.Я. Суляев | Азбука Морзе (1948) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Азбука Морзе состоит из точек, тире или комбинаций из них. Азбука Морзе оказалась настолько удобной и универсальной, что ею стали пользоваться везде, где только это возможно. Так, например, азбукой Морзе можно переговариваться миганием глаз, заключенные переговаривались в своих одиночных камерах постукиванием по стенке или топотом ног, слепые даже теперь читают прикосновением (   Читать дальше...   )Жанр: Телеграфная связьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14A6FCC15F1E1209E9FA9BA8305F79414C87AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916760   (590445) от 09.07.2015
 
 И. Рейн | Рычаг (1931) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590445.jpg" />
+  <img src="Z:/picture/008/save_picture_590445.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590443.jpg" />
+  <img src="Z:/picture/008/save_picture_590443.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590406.jpg" />
+  <img src="Z:/picture/008/save_picture_590406.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590344.jpg" />
+  <img src="Z:/picture/008/save_picture_590344.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590336.jpg" />
+  <img src="Z:/picture/008/save_picture_590336.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590332.jpg" />
+  <img src="Z:/picture/008/save_picture_590332.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589956.jpg" />
+  <img src="Z:/picture/008/save_picture_589956.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589925.jpg" />
+  <img src="Z:/picture/008/save_picture_589925.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589921.jpg" />
+  <img src="Z:/picture/008/save_picture_589921.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589913.jpg" />
+  <img src="Z:/picture/008/save_picture_589913.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589579.jpg" />
+  <img src="Z:/picture/008/save_picture_589579.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589559.jpg" />
+  <img src="Z:/picture/008/save_picture_589559.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589115.jpg" />
+  <img src="Z:/picture/008/save_picture_589115.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589107.jpg" />
+  <img src="Z:/picture/008/save_picture_589107.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587947.jpg" />
+  <img src="Z:/picture/008/save_picture_587947.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587769.jpg" />
+  <img src="Z:/picture/008/save_picture_587769.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587743.jpg" />
+  <img src="Z:/picture/008/save_picture_587743.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587352.jpg" />
+  <img src="Z:/picture/008/save_picture_587352.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586184.jpg" />
+  <img src="Z:/picture/008/save_picture_586184.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586120.jpg" />
+  <img src="Z:/picture/008/save_picture_586120.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584427.jpg" />
+  <img src="Z:/picture/008/save_picture_584427.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583015.jpg" />
+  <img src="Z:/picture/008/save_picture_583015.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582434.jpg" />
+  <img src="Z:/picture/008/save_picture_582434.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581353.jpg" />
+  <img src="Z:/picture/008/save_picture_581353.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60DFED1D2624C393272EC60F17FC21DCD0252DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302298   (581143) от 15.05.2019
-
-Григорий Остер | Задачник по математике. Ненаглядное пособие (1994) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие ребята, эта книжка нарочно называется «Задачник», чтоб ее можно было читать на уроке математики и не прятать под парту. А если учителя начнут возмущаться, говорите: «Ничего не знаем, министерство просвещения разрешило».
-Нет, нет, задачи тут самые настоящие. Для второго, третьего и четвертого классов. Все они имеют решение и помогают закрепить пройденный в (   Читать дальше...   )Жанр: ЗадачникФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8853F1D29B3ACCCF16CB88C1AA2E24ABE57E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920344   (580185) от 22.07.2015
-
-Бернар Фрио | Нетерпеливые истории (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем давно известно, что дети думают по-другому. Их мир полон невероятных при-ключений, и совершенно непонятно, как из них вырастают такие скучные взрослые.Они до ужаса нетерпеливы, и длинные истории с неприкрытой моралью заставляют их лишь зевать да пересчитывать птиц за окном. Известному французскому писателю Бернару Фрио повезло: конечно, он, как и все остальные, (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1F049A8969F1861F23FE40DD1C5E9C4FB3C2D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1671702   (171194) от 25.10.2023
+
+Alfred PowerPack 5.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2023 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A5807570EFD5117A4F6564C678AC5C3F853A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671661   (171187) от 25.10.2023
+
+DxO PureRAW 3 for Mac v.3.6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
+С программным обеспечением DxO PureRAW легко и просто улучшить  файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C151C0C81DC2EBB2E770C237E69787833FF023D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671675   (171159) от 25.10.2023
+
+Capture One 23 Pro 16.3.0.76 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конвертеров цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2023 Phase OneПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93CD52EB9BDFA42A5B2CF85AEC4A7C2FEB77B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671879   (171097) от 26.10.2023
+
+Cookie 7.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 12.0 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB9416287D2C1370DE3C5D8C978B3E436F2567F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672007   (171096) от 26.10.2023
 
 Integrity Pro 12.8.0 [En]
@@ -6,7 +114,7 @@ Integrity Pro 12.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171096.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Author 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171093.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Airtool 2 v.2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171087.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ MetaRename for Mac 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171082.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ CheckBook Pro 2.7.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171079.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ myTracks 4.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171077.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ OmniGraffle Pro 7.22.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171062.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ Dynamic Wallpaper Engine 16.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171053.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Keyboard Maestro 11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171047.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ Transmit 5.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171046.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ Disk Space Analyzer Pro 4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171037.jpg" />
 </div>
 
 
@@ -299,7 +407,7 @@ Duplicate File Finder Pro for Mac 7 v.7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171029.jpg" />
 </div>
 
 
@@ -326,7 +434,7 @@ Native Instruments Guitar Rig 6 Pro for Mac 6.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171022.jpg" />
 </div>
 
 
@@ -352,7 +460,7 @@ Ableton Live Suite 11 v.11.3.13 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170908.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ Wondershare Filmora Х v10.1.5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170758.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ macOS 14 Sonoma 14.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170718.jpg" />
 </div>
 
 
@@ -430,7 +538,7 @@ Cheetah3D 7 v7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170680.jpg" />
 </div>
 
 
@@ -457,7 +565,7 @@ iFinance 4 v 4.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170673.jpg" />
 </div>
 
 
@@ -483,7 +591,7 @@ Dash 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170651.jpg" />
 </div>
 
 
@@ -509,7 +617,7 @@ CrossOver 19.0 (build 32195 ) RC2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170648.jpg" />
 </div>
 
 
@@ -537,7 +645,7 @@ Navicat Premium 15.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170643.jpg" />
 </div>
 
 
@@ -563,7 +671,7 @@ Omni Recover 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170628.jpg" />
 </div>
 
 
@@ -576,112 +684,6 @@ Omni Recover для macOS позволяет восстанавливать уд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F0BE7F9C46AC360E59D57AF481E098643B19DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515308   (170620) от 06.12.2021
-
-Scrollow 1.6.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrollow позволяет управлять различными параметрами системы (громкость, яркость экрана, подсветка клавиатуры) и управлять мультимедиа (переключение треков, воспроизведение и пауза), не касаясь функциональных клавиш или используя Touch Bar. Просто используйте жесты прокрутки вверху экрана или на значке в строке меню приложения.Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: © 2021 Nikita ZubkovПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717EC088C3D2EFB84695BDFB97ADF3ED268B3B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515402   (170604) от 06.12.2021
-
-Ink2Go 1.9.1 fix [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ink2Go - интересное приложение, которое позволяет создавать аннотации и выделять текст различными способами на любом приложении, работающем в данный момент времени: Web-страницы, окна других приложений, документы и даже на видео.
-Все ваши действия вы можете сохранить в виде графического файла или сохранить весь сеанс работы как видео, для совместного просмотра с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: © 2021 EyePower Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59F0126894D56A31A70E641FECC88901147D1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515364   (170582) от 06.12.2021
-
-Smultron 12 v12.5.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smultron - простой и удобный редактор. Smultron - простой и элегантный текстовый редактор, с которым можно легко создавать и редактировать любые неформатированные тексты.
-По словам разработчика, при создании редактора ставилась задача снабдить программу богатой функциональностью и обеспечить удобство ее использования как для опытных пользователей, так и для новичков. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: © 2021 Peter Borg Apps ABПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFED890CE89F556C4E2702A117EB8E1082049AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671824   (170576) от 26.10.2023
-
-CleanMyMac X 4.14.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170576.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac X — это пакет «все в одном», который сделает ваш Mac как из кробки. Он очищает мегатонны мусора и заставляет ваш компьютер работать быстрее. Так же, как это было в первый день знакомства с Macintosh.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C323225065ACA904200893791E0E7483E2D9F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

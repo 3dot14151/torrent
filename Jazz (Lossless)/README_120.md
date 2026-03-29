@@ -1,3 +1,119 @@
+###  Публикация: 904775   (653380) от 04.06.2015
+
+Cherry Poppin' Daddies - Please Return The Evening (2014) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come (2:49)
+02. Come Fly With Me (3:09)
+03. The Lady Is A Tramp (3:27)
+04. Ain't That A Kick In The Head (2:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC908887F5FE6028E6CC97F931120FCB0274B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291754   (652731) от 26.03.2019
+
+Manuel Rocheman - Cactus Dance (2007) Nocturne [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aulnay Blue [4:16]
+02. You Must Believe In Spring [6:13]
+03. Batida De Coco [6:21]
+04. Cactus Dance [7:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877132A17DC227953249B17FF815F08CA673F9D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291752   (652730) от 26.03.2019
+
+Fred Astaire - The Great MGM Stars (1940-e - 1950-e) 1991, EMI Records [FLAC|Lossless|image + .cue] <Vocal Jazz, Soundtrack>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steppin' Out with My Baby [2:33]
+02. It Only Happens When I Dance with You [2:36]
+03. Oops! [3:07]
+04. Batchelor's Dinner Song [3:25](   Читать дальше...   )Жанр: Vocal Jazz, SoundtrackПродолжительность: 01:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A75D28E0164F9EC4A30716D1D11CB4D377A8823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291750   (652729) от 26.03.2019
+
+Kansas City Jazz Orchestra - Take One (2005) KCJO Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vine Street Rumble [3:55]
+02. I Just Found Out About Love [2:31]
+03. Take the A Train [3:37]
+04. Michelle [2:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA5E1A261E84AB3939BC422B5D083AF37D49781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140942   (652648) от 09.06.2017
 
 Albert Vila - The Unquiet Sky (2016) Fresh Sound New Talent [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -6,7 +122,7 @@ Albert Vila - The Unquiet Sky (2016) Fresh Sound New Talent [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652648.jpg" />
+  <img src="Z:/picture/008/save_picture_652648.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Jazz Vibes: Milestones Of Legends (1949 - 1962) 10CD, 2017, The Intense Med
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652637.jpg" />
+  <img src="Z:/picture/008/save_picture_652637.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dave McKenna - Blues Up: Piano Solo (1955, 1963) 2007, Fresh Sound Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652566.jpg" />
+  <img src="Z:/picture/008/save_picture_652566.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Marco Mezquida Trio + Bill McHenry - Cantabile (2015) Fresh Sound New Talent [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652565.jpg" />
+  <img src="Z:/picture/008/save_picture_652565.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Maynard Ferguson - Birdland Dream Band, vol.1  (1956) 2017, Sony Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652564.jpg" />
+  <img src="Z:/picture/008/save_picture_652564.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652563.jpg" />
+  <img src="Z:/picture/008/save_picture_652563.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Billy Strayhorn with Duke Ellington - Rare Strayhorn (1941 - 1965) 2015, La Mais
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652562.jpg" />
+  <img src="Z:/picture/008/save_picture_652562.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Clementine - Cle (2003) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652561.jpg" />
+  <img src="Z:/picture/008/save_picture_652561.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652559.jpg" />
+  <img src="Z:/picture/008/save_picture_652559.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652556.jpg" />
+  <img src="Z:/picture/008/save_picture_652556.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Duke Ellington - Elvin chez Duke: European Tour - January 1966 (2015) La Maison 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652551.jpg" />
+  <img src="Z:/picture/008/save_picture_652551.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ David Bixler - Call It A Good Deal (2006) Zoho Music [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652469.jpg" />
+  <img src="Z:/picture/008/save_picture_652469.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jack Teagarden - 1944 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652467.jpg" />
+  <img src="Z:/picture/008/save_picture_652467.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Denny Zeitlin Trio - Live at the Trident (1965) Remaster, 2014, Sony Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652166.jpg" />
+  <img src="Z:/picture/008/save_picture_652166.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Hendrik Meurkens Quartet - A Night In Jakarta (2010) [FLAC|Lossless]<Jazz, Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652097.jpg" />
+  <img src="Z:/picture/008/save_picture_652097.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Gerry Mulligan - The Complete Verve Gerry Mulligan Concert Band Mosaic (May 21, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651331.jpg" />
+  <img src="Z:/picture/008/save_picture_651331.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Joscho Stephan - Django Nuevo (2009) Acoustic Music Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650759.jpg" />
+  <img src="Z:/picture/008/save_picture_650759.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Eclectic Maybe Band - Again Alors? (2022) [FLAC|Lossless|image + .cue] <Jazz-Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650756.jpg" />
+  <img src="Z:/picture/008/save_picture_650756.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ George Wallington - Knight Music (1956) 2000, Koch Jazz [APE|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650696.jpg" />
+  <img src="Z:/picture/008/save_picture_650696.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Dizzy Gillespie - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650695.jpg" />
+  <img src="Z:/picture/008/save_picture_650695.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650694.jpg" />
+  <img src="Z:/picture/008/save_picture_650694.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650561.jpg" />
+  <img src="Z:/picture/008/save_picture_650561.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6EAA96BADD009B0B8212C07F4B82DA97A80F244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141443   (650559) от 10.06.2017
-
-Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Comparsa [03:33]
-02. Cancao De Noite [04:35]
-03. Danzas cubanas: A los tres golpes [01:22]
-04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141448   (650558) от 10.06.2017
-
-Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No brain no pain [05:10]
-02. A wonderful afternoon with Zena-Laure [05:00]
-03. Fema ka [04:47]
-04. Summer run [04:37](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEB0D1BBB5BE29A03D98A2267980EF0F9FD15AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141579   (650545) от 10.06.2017
-
-The Johnny Smith Guitar - My Dear Little Sweetheart (1960) 2017, Roost, Parlophone, Warner Music Japan [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Dear Little Sweetheart (3:45)
-02. Indian Summer (3:45)
-03. Softly, As In A Morning Sunrise (3:09)
-04. All The Things You Are (4:20)(   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9948851DBB1546A0A8AEFD6E652927D218FF2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227141   (650521) от 24.05.2018
-
-Rickey Woodard - The Silver Strut (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Silver Strut [6:42]
-02. Grizzly [6:11]
-03. Quick Flash [6:21]
-04. Kerstin [7:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50744230357A01EAA529C7CA14BC087CA8C45DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

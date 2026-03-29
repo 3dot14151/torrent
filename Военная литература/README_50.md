@@ -1,3 +1,29 @@
+###  Публикация: 1576173   (235408) от 13.09.2022
+
+Leigh Neville | The SAS 1983–2014 (2016) [EPUB, PDF] [Elite #211] [EN]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235408.jpg" />
+</div>
+
+
+###  Подробнее
+
+211-я книга серии Elite издательства Osprey посвящена SAS, одному из лучших подразделений специального назначения в мире. На примере 22-го полка SAS, в просторечии ‘the Regiment’, книга проливает свет на причастность SAS к беспорядкам в Северной Ирландии, на их операции в Ираке и Афганистане. Миссии SAS разнообразны: борьба с терроризмом дома и за рубежом; контрпартизанская (   Читать дальше...   )Жанр: Военная история, военное делоФормат: EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815B8C8EF8D6D9C5CDE024D3F60979609ED53ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586341   (229647) от 08.12.2012
 
 Л.А.Федоров | Химическое вооружение - война с собственным народом. Том I [2009] [PDF]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229647.jpg" />
+  <img src="Z:/picture/004/save_picture_229647.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227095.jpg" />
+  <img src="Z:/picture/005/save_picture_227095.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225901.jpg" />
+  <img src="Z:/picture/005/save_picture_225901.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225747.jpg" />
+  <img src="Z:/picture/005/save_picture_225747.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225546.jpg" />
+  <img src="Z:/picture/005/save_picture_225546.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224112.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224055.jpg" />
+  <img src="Z:/picture/005/save_picture_224055.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223047.jpg" />
+  <img src="Z:/picture/005/save_picture_223047.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220950.jpg" />
+  <img src="Z:/picture/005/save_picture_220950.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220403.jpg" />
+  <img src="Z:/picture/005/save_picture_220403.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219114.jpg" />
+  <img src="Z:/picture/005/save_picture_219114.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218309.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216594.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216351.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216336.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215312.jpg" />
+  <img src="Z:/picture/005/save_picture_215312.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215253.jpg" />
+  <img src="Z:/picture/005/save_picture_215253.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214343.jpg" />
+  <img src="Z:/picture/005/save_picture_214343.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213616.jpg" />
+  <img src="Z:/picture/005/save_picture_213616.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212853.jpg" />
+  <img src="Z:/picture/005/save_picture_212853.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211063.jpg" />
+  <img src="Z:/picture/005/save_picture_211063.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210493.jpg" />
+  <img src="Z:/picture/005/save_picture_210493.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209902.jpg" />
+  <img src="Z:/picture/005/save_picture_209902.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209165.jpg" />
+  <img src="Z:/picture/005/save_picture_209165.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208369.jpg" />
+  <img src="Z:/picture/005/save_picture_208369.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DE4307A865E6FD15ADBF035918A041BCDEE8E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400896   (206874) от 08.08.2023
-
-Susan Southard | Nagasaki: Life After Nuclear War / Нагасаки: жизнь после атомной войны (2015) [EPUB] [EN]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206874.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 августа 1945 года, через три дня после атомной бомбардировки Хиросимы, Соединенные Штаты сбросили вторую атомную бомбу на Нагасаки, небольшой портовый город на самом южном острове Японии. По оценкам, 74 000 человек погибли в течение первых пяти месяцев, а еще 75 000 получили ранения. Опубликованная в честь семидесятой годовщины бомбардировки, книга переносит читателей (   Читать дальше...   )Жанр: История, Военная историяЯзык: АнглийскийИздательство: VikingФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA15B02948BA4A023C9FAC130D517C53A3439A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

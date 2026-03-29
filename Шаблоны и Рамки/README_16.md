@@ -1,3 +1,29 @@
+###  Публикация: 1037165   (615288) от 23.07.2016
+
+Шаблоны - CreativeMarket - Corporate Flyer [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615288.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла формата А4 в разных цветовых решениях с обрезом для печати 25 мм.Формат: PSDРазрешение файлов: А4/300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3666C41BE717EBE0DFB7D704EB41E22F5B1550BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037094   (615278) от 23.07.2016
 
 Шаблоны - CreativeMarket - Billboards - Mockups V02 [PSD]
@@ -6,7 +32,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615278.jpg" />
+  <img src="Z:/picture/008/save_picture_615278.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615164.jpg" />
+  <img src="Z:/picture/008/save_picture_615164.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614982.jpg" />
+  <img src="Z:/picture/008/save_picture_614982.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613856.jpg" />
+  <img src="Z:/picture/008/save_picture_613856.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613784.jpg" />
+  <img src="Z:/picture/008/save_picture_613784.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613781.jpg" />
+  <img src="Z:/picture/008/save_picture_613781.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613772.jpg" />
+  <img src="Z:/picture/008/save_picture_613772.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613681.jpg" />
+  <img src="Z:/picture/008/save_picture_613681.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613678.jpg" />
+  <img src="Z:/picture/008/save_picture_613678.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613676.jpg" />
+  <img src="Z:/picture/008/save_picture_613676.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613670.jpg" />
+  <img src="Z:/picture/008/save_picture_613670.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613668.jpg" />
+  <img src="Z:/picture/008/save_picture_613668.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613665.jpg" />
+  <img src="Z:/picture/008/save_picture_613665.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613571.jpg" />
+  <img src="Z:/picture/008/save_picture_613571.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613562.jpg" />
+  <img src="Z:/picture/008/save_picture_613562.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613433.jpg" />
+  <img src="Z:/picture/008/save_picture_613433.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613432.jpg" />
+  <img src="Z:/picture/008/save_picture_613432.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613427.jpg" />
+  <img src="Z:/picture/008/save_picture_613427.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613424.jpg" />
+  <img src="Z:/picture/008/save_picture_613424.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613353.jpg" />
+  <img src="Z:/picture/008/save_picture_613353.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613340.jpg" />
+  <img src="Z:/picture/008/save_picture_613340.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612598.jpg" />
+  <img src="Z:/picture/008/save_picture_612598.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610795.jpg" />
+  <img src="Z:/picture/008/save_picture_610795.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610038.jpg" />
+  <img src="Z:/picture/008/save_picture_610038.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610029.jpg" />
+  <img src="Z:/picture/008/save_picture_610029.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8562BBC0E22B8DD05186286D668E68CA96390FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038031   (610024) от 26.07.2016
-
-Шаблоны - CreativeMarket - Macbook, iPhone, iPad - Mockups V02 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610024.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 PSD-файлов, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F97EA8F205E019ACB44D7B865832E258B5A4BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

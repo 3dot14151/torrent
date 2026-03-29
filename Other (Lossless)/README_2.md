@@ -6,7 +6,7 @@ Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, P
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666227.jpg" />
+  <img src="Z:/picture/005/save_picture_666227.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666103.jpg" />
+  <img src="Z:/picture/005/save_picture_666103.jpg" />
 </div>
 
 
@@ -75,7 +75,7 @@ Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Pos
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659118.jpg" />
+  <img src="Z:/picture/005/save_picture_659118.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658151.jpg" />
+  <img src="Z:/picture/005/save_picture_658151.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657968.jpg" />
+  <img src="Z:/picture/005/save_picture_657968.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Gu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657745.jpg" />
+  <img src="Z:/picture/005/save_picture_657745.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classica
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643320.jpg" />
+  <img src="Z:/picture/005/save_picture_643320.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Cla
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643313.jpg" />
+  <img src="Z:/picture/005/save_picture_643313.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641398.jpg" />
+  <img src="Z:/picture/005/save_picture_641398.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630865.jpg" />
+  <img src="Z:/picture/005/save_picture_630865.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks +
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613768.jpg" />
+  <img src="Z:/picture/008/save_picture_613768.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Sta
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612832.jpg" />
+  <img src="Z:/picture/005/save_picture_612832.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612603.jpg" />
+  <img src="Z:/picture/005/save_picture_612603.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609412.jpg" />
+  <img src="Z:/picture/005/save_picture_609412.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (201
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603412.jpg" />
+  <img src="Z:/picture/008/save_picture_603412.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Roc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603089.jpg" />
+  <img src="Z:/picture/008/save_picture_603089.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593296.jpg" />
+  <img src="Z:/picture/008/save_picture_593296.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_560585.jpg" />
+  <img src="Z:/picture/005/save_picture_560585.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554176.jpg" />
+  <img src="Z:/picture/008/save_picture_554176.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545449.jpg" />
+  <img src="Z:/picture/008/save_picture_545449.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542289.jpg" />
+  <img src="Z:/picture/008/save_picture_542289.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515361.jpg" />
+  <img src="Z:/picture/008/save_picture_515361.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515015.jpg" />
+  <img src="Z:/picture/008/save_picture_515015.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, D
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512278.jpg" />
+  <img src="Z:/picture/008/save_picture_512278.jpg" />
 </div>
 
 
@@ -775,7 +775,7 @@ Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490757.jpg" />
+  <img src="Z:/picture/008/save_picture_490757.jpg" />
 </div>
 
 
@@ -804,7 +804,7 @@ VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audioph
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490629.jpg" />
+  <img src="Z:/picture/008/save_picture_490629.jpg" />
 </div>
 
 

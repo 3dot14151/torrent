@@ -1,3 +1,29 @@
+###  Публикация: 1725151   (55677) от 23.05.2024
+
+Министерство неджентльменских дел / The Ministry of Ungentlemanly Warfare (2024) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55677.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 год, Великобритания. Они — лучшие из лучших. Отпетые авантюристы и первоклассные спецы, привыкшие действовать в одиночку. Но когда на кону стоит судьба всего мира, им приходится объединиться в сверхсекретное боевое подразделение и отправиться на выполнение дерзкой миссии против нацистов. Теперь их дело — война, и вести они её будут совершенно не по-джентльменски.Производство: США, Великобритания, Турция / Black Bear Pictures, Jerry Bruckheimer Films, LionsgateЖанр: боевик, драма, военный, историяРежиссер: Гай РичиАктеры: Генри Кавилл, Алан Ричсон, Рори Киннер, Генри Голдинг, Фредди Фокс, Эйса Гонсалес, Алекс Петтифер, Хиро Файнс Тиффин, Тиль Швайгер, Кэри ЭлвесПеревод: Многоголосый профессиональный (укр. DniproFilm)Язык озвучки: украинский, английскийСубтитры: украинские (forced), английские (full, SDH)Продолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E13268A8353885E1957A992AB9FEBAB914B436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725223   (55668) от 23.05.2024
 
 Министерство неджентльменских дел / The Ministry of Ungentlemanly Warfare (2024) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] [UKR, EN / UKR, EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55668.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54826.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52720.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52695.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51659.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51630.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51416.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51375.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50783.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50772.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49566.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47852.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45173.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44659.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44630.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44424.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44399.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44306.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44235.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44206.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43782.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43390.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43372.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43059.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43026.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4335924EFC8F7AE9C01EEC083E593FEED135E860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750409   (43022) от 19.09.2024
-
-Реальные зомби / We Are Zombies (2023) WEB-DL [H.264/1080p] [UKR, ENG / ENG Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43022.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем зомби перестали быть агрессивными и стали полноправными членами общества. Одни стоят за кассой, другие крутят баранку, а некоторые даже ведут прогноз погоды и снимаются в фильмах для взрослых. Трое любителей легких деньжат переходят дорогу мегакорпорации, вынашивающей идею нового зомби-апокалипсиса. Они сделают все, чтобы помешать их планам и вернуть похищенную (   Читать дальше...   )Производство: Канада, Франция / Humanoids Inc.Жанр: ужасы, комедияРежиссер: Франсуа Симар, Анук Висселль, Йоанн-Карл ВисселльАктеры: Александр Начи, Меган Пета Хилл, Дерек Джонс, Патрик Абейяр, Венсан Леклер, Бенц Антуан, Карло Местрони, Ги Надон, Марк-Андре Буланже, Розмари СаборПеревод: Многоголосый профессиональный (DniproFilm)Язык озвучки: Украинский, АнглийскийСубтитры: Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AB2A5BA1CF6A12B384F5B55C4675221341ADA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

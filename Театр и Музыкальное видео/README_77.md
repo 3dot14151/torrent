@@ -1,3 +1,179 @@
+###  Публикация: 934097   (502152) от 05.09.2015
+
+Gary Moore - Blues for Jimi (2007/2012) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт, который состоялся 25 октября 2007 года в рамках программы Jimi Hendrix Live At Monterey. Blu-Ray выпущен 24 сентября 2012 года под лейблом Eagle Rock.01. Purple Haze
+02. Manic Depression
+03. Foxey Lady
+04. The Wind Cries Mary(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5664E66DA080722C57B1CB0F258AFC7AE38860F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934396   (502149) от 05.09.2015
+
+U.D.O. - Navy Metal Night (2014/2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502149.jpg" />
+</div>
+
+
+###  Подробнее
+
+В феврале 2014 года U.D.O. сыграли специальное шоу в сопровождении немецкого военно-морского оркестра Marinemusikkorps Nordsee. Симфоническое звучание оркестра и хора слились воедино с песнями U.D.O., сделав вечер незабываемым для собравшейся аудитории.01. Das Boot
+02. Future Land
+03. Independence Day
+04. Animal Instinct(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalРежиссер: Oliver "Bomber" BarthПродолжительность: 01:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30458A58AEC6D3DDEFE71FB1FEFA8F02217D30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934508   (502136) от 05.09.2015
+
+Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись шоу поп-певицы Мадонна составлена по материалам южноамериканской части мирового турне, озаглавленного "Sticky and Sweet", а именно выступлений 4, 6 и 7 декабря 2008 года на концертной площадке River Plate Stadium в Буэнос-Айресе (Аргентина). "Sticky and Sweet" — восьмой по счету мировой тур Мадонны, приуроченный к выходу одиннадцатого альбома (   Читать дальше...   )1. Intro: The Sweet Machine
+2. Candy Shop Medley
+3. Beat Goes On MedleyЖанр: PopРежиссер: Nathan Rissman, Nick WickhamПродолжительность: 02:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FFDA01B7B4DCD47B4B9895CDB89CA850EF4666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317210   (502114) от 30.07.2019
+
+Rammstein - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая рок-группа Rammstein даст два масштабных концерта в России: 29 июля 2019 года – Москва, Большая Спортивная Арена «Лужники», 2 августа 2019 года – Санкт-Петербург, Стадион «Газпром Арена».Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B301F3CF588F1A58BBE2AFB42608FC02FF519801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541202   (502093) от 30.08.2012
+
+Валерия: Русские романсы и золотые шлягеры XX века (2012) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическое качество изображения и звука обеспечил формат Blu-ray новому альбому Валерии, на котором запечатлен юбилейный концерт в Кремле «Русские романсы и золотые шлягеры ХХ века», посвященный двадцатилетию творческой деятельности певицы. Это уникальное коллекционное издание, изысканно внешне оформленное, порадует и внутренним содержанием. На концерте Валерия спела 25 композиций: лучшие романсы и нестареющие хиты ХХ века, которые певица исполнила вместе со специальными гостями: маэстро Раймондом Паульсом, Давидом Тухмановым, Игорем Крутым и Иосифом Кобзоном. Последний, кстати, обучал певицу эстрадному мастерству в академии им. Гнесиных. Это шоу Валерии впечатлило всех изысканной утонченностью, потрясающим репертуаром, неподражаемым, живым звуком и атмосферой романтического торжества...01. П.И. Чайковский - Полонез из оперы "Евгений Онегин"
+02. Как хороши те очи
+03. Хризантемы
+04. Оправдаешь ли ты
+05. Небо звездами (За роялем Д. Тухманов)
+06. Напрасные слова (За роялем Д. Тухманов)
+07. Нищая
+08. Подруга
+09. Ноктюрн (Дуэт с И. Кобзоном)
+10. Была любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540889   (502016) от 30.08.2012
+
+Король и Шут - Праздник скоморох (1997) DVD-5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Внезапная голова
+02. Ели мясо мужики
+03. Холодное тело
+04. Бродяга и старик(   Читать дальше...   )Жанр: Punk, Horror, RockПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4186C4D8AFD46BFA7016CD98174F35D2352AD58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541018   (501967) от 30.08.2012
 
 Король и Шут - Страшные Истории. Томъ 1 (2003) DVD-5
@@ -6,7 +182,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501967.jpg" />
+  <img src="Z:/picture/008/save_picture_501967.jpg" />
 </div>
 
 
@@ -35,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501113.jpg" />
+  <img src="Z:/picture/008/save_picture_501113.jpg" />
 </div>
 
 
@@ -64,7 +240,7 @@ Pet Shop Boys - Pandemonium (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500890.jpg" />
+  <img src="Z:/picture/008/save_picture_500890.jpg" />
 </div>
 
 
@@ -90,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500874.jpg" />
+  <img src="Z:/picture/008/save_picture_500874.jpg" />
 </div>
 
 
@@ -119,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500871.jpg" />
+  <img src="Z:/picture/008/save_picture_500871.jpg" />
 </div>
 
 
@@ -145,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500778.jpg" />
+  <img src="Z:/picture/008/save_picture_500778.jpg" />
 </div>
 
 
@@ -171,7 +347,7 @@ Madonna - The MDNA Tour (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500199.jpg" />
+  <img src="Z:/picture/008/save_picture_500199.jpg" />
 </div>
 
 
@@ -200,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500193.jpg" />
+  <img src="Z:/picture/008/save_picture_500193.jpg" />
 </div>
 
 
@@ -229,7 +405,7 @@ Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499513.jpg" />
+  <img src="Z:/picture/008/save_picture_499513.jpg" />
 </div>
 
 
@@ -255,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499180.jpg" />
+  <img src="Z:/picture/008/save_picture_499180.jpg" />
 </div>
 
 
@@ -281,7 +457,7 @@ IKA - Москва Слезам Не Верит (DJ Sergey Fisun version) (2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499122.jpg" />
+  <img src="Z:/picture/008/save_picture_499122.jpg" />
 </div>
 
 
@@ -307,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499051.jpg" />
+  <img src="Z:/picture/008/save_picture_499051.jpg" />
 </div>
 
 
@@ -342,7 +518,7 @@ Edguy - Live Wacken (2012) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498347.jpg" />
+  <img src="Z:/picture/008/save_picture_498347.jpg" />
 </div>
 
 
@@ -371,7 +547,7 @@ Steve Hackett - Genesis Revisited – Live at the Royal Albert Hall (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497270.jpg" />
+  <img src="Z:/picture/008/save_picture_497270.jpg" />
 </div>
 
 
@@ -400,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496974.jpg" />
+  <img src="Z:/picture/008/save_picture_496974.jpg" />
 </div>
 
 
@@ -426,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496942.jpg" />
+  <img src="Z:/picture/008/save_picture_496942.jpg" />
 </div>
 
 
@@ -455,7 +631,7 @@ Dream Theater - Live at Luna Park (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496053.jpg" />
+  <img src="Z:/picture/008/save_picture_496053.jpg" />
 </div>
 
 
@@ -484,7 +660,7 @@ VA - Осенний марафон № 188 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495788.jpg" />
+  <img src="Z:/picture/008/save_picture_495788.jpg" />
 </div>
 
 
@@ -513,7 +689,7 @@ The AIX All Star Band - Pachelbel Canon Acoustica (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495468.jpg" />
+  <img src="Z:/picture/008/save_picture_495468.jpg" />
 </div>
 
 
@@ -539,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494837.jpg" />
+  <img src="Z:/picture/008/save_picture_494837.jpg" />
 </div>
 
 
@@ -552,174 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7836F1789013C81F45F3597F51D2F4EAA70CC3C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820427   (494349) от 11.09.2014
-
-I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OMNIA - Earth Warrior
-02. Indian Passion
-03. Life Nature You
-04. Black Kat(   Читать дальше...   )Жанр: Ambient, Chillout, New Age, Pop, InstrumentalПродолжительность: 02:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C670211842D1A48827DCB2F7552B2573CE6E79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936693   (494179) от 12.09.2015
-
-The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
-02. When The Whip Comes Down
-03. Let s Spend The Night Together
-04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichПродолжительность: 02:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45237ACFA950099DED804EEC5A0676A9C67C50B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054029   (494118) от 19.09.2016
-
-Неоконченный роман (2015) TVRip (Театрально-концертный центр "Новое искусство")
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои сериала «Всегда говори всегда» впервые предстанут вместе на одной сцене в лирической комедии «Неоконченный роман».
-
-Мужчина и женщина много лет любят друг друга. И хотя у них есть семьи, наши герои приходят к мысли, что наконец-то встретили свою половинку, без которой уже не смогут жить. Но как быть со своими семейными обязательствами?Производство: Россия, Театрально-концертный центр "Новое искусство"Жанр: Спектакль, комедияРежиссер: Михаил МокеевАктеры: Ярослав Бойко, Мария ПорошинаПродолжительность: 01:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F74BCC44D490CCB05F44DBB699637974A2A8587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053154   (494101) от 19.09.2016
-
-Борис Эйфман - Безумный день (1983) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Балет-буфф по мотивам комедии Пьера Огюста Карона де Бомарше «Безумный день, или Женитьба Фигаро».
-Один из ранних и, безусловно, лучших спектаклей Бориса Эйфмана, созданный в те годы. Музыкальная фантазия Тимура Когана по мотивам произведений Джоаккино Антонио Россини придаёт балету своеобразный шарм и юмор. Балет - своеобразный бенефис блистательных танцовщиков (   Читать дальше...   )Производство: СССР, ЛентелефильмЖанр: Фильм-балет, комедия, экранизацияРежиссер: Виктор ОкунцовАктеры: Валентина Морозова, Валерий Михайловский, Сергей Фокин, Валентина Ганибалова, Кирилл Матвеев, Илья Пьянцев, Николай КозловПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2437DE410E6C4371B3092D8E77F3B0ABF58C5350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053145   (494096) от 19.09.2016
-
-Морис Равель - Болеро (1975) SATRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494096.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Болеро» отличается уникальным единством. Композитор писал: «Это - танец в очень умеренном темпе, совершенно неизменный как мелодически, так гармонически и ритмически, причем ритм непрерывно отбивается барабаном. Единственный элемент разнообразия вносится оркестровым крещендо». «Болеро» - оркестровые вариации, в основе которых краткая мелодия народно-танцевального (   Читать дальше...   )Производство: СССР, Творческое объединение «Экран»Жанр: Фильм-балетРежиссер: Феликс СлидовкерАктеры: Инна Лещинская, Олег Микрашевский, Зураб СахокияПродолжительность: 00:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A32BDCD7D3CA075588DBC89E11878B92080C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936410   (494024) от 12.09.2015
-
-Крематорий - Концерт в ДК "Горбунова" (1993) VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы «Крематорий» в Горбушке 1993 года. Группа «Крематорий» - одна из культовых групп середины 80-х – начала 90-х годов прошлого столетия. Песни «Крематория» точно отражали все что происходило и в развалившейся стране под названием Советский Союз и в душах людей которые понятия не имели что будет дальше. Началось все в 1983 году когда однокурсники Армен (   Читать дальше...   )01. Крематорий (01:59)
-02. Проходящие мимо (01:45)
-03. Реанимационная машина (03:30)
-04. Женщины города Роз (04:41)(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA6E6CD25E34811C3C384F299A441FDCAB24AF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

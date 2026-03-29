@@ -1,3 +1,55 @@
+###  Публикация: 1037845   (611519) от 25.07.2016
+
+The Shadowland (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький жнец потерялся в мрачной потустороннем мире. Помоги ему найти путь назад, через предательские препятствия и устрашающих врагов. Положись на свои рефлексы, чтобы пройти 30+ уровней, 6+ локаций, и пройди 3 уникальных боссов.Тип издания: RepackРазработчик: Bloodcraft DevЖанр: Arcade (Platform), IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5365FA34F846C949CFAF571AD19FB646F653989A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147153   (610898) от 01.07.2017
+
+World of One (2017) [Ru/Multi] (1.2.2 B9) SteamRip Let'sPlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы живете в собственном маленьком мире, в котором есть все – уютный домик, двор с креслом-качалкой, цветами и деревьями, и даже собственный парк развлечений с музыкой, бесконечным запасом фейерверков, и даже колесо обозрения, с которого можно дотянуться до звезд!Тип издания: SteamRipРазработчик: Grimwood TeamЖанр: Adventure, Action, PlatformЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A247C0344BF3AA4D8477CFF192F966CA0F19979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037976   (609776) от 26.07.2016
 
 Headlander (2016) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +58,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609776.jpg" />
+  <img src="Z:/picture/008/save_picture_609776.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Headlander (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609772.jpg" />
+  <img src="Z:/picture/008/save_picture_609772.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Shantae Anthology (2014-2018) [En] (1.0.1.5/1.04g/1.0hf21245) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608310.jpg" />
+  <img src="Z:/picture/008/save_picture_608310.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Terraria (2011) [Ru/Multi] (1.3.2.1) Repack NIK220V
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607792.jpg" />
+  <img src="Z:/picture/008/save_picture_607792.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ ITORAH (2022) [Ru/Multi] (1.1.0.0) License GOG [Save the World Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607307.jpg" />
+  <img src="Z:/picture/008/save_picture_607307.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Tom vs. The Armies of Hell (2016) [En] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606459.jpg" />
+  <img src="Z:/picture/008/save_picture_606459.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Tom vs. The Armies of Hell (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606195.jpg" />
+  <img src="Z:/picture/008/save_picture_606195.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606173.jpg" />
+  <img src="Z:/picture/008/save_picture_606173.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Supraland (2019) [Ru/Multi] (1.2b) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606156.jpg" />
+  <img src="Z:/picture/008/save_picture_606156.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ SEUM: Speedrunners from Hell (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604387.jpg" />
+  <img src="Z:/picture/008/save_picture_604387.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Cuphead (2017) [Ru/Multi] (1.2) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604010.jpg" />
+  <img src="Z:/picture/008/save_picture_604010.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Pinstripe (2017) [Ru/Multi] (2.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603617.jpg" />
+  <img src="Z:/picture/008/save_picture_603617.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Candle (2016) [Ru/Multi] (1.1.17) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602310.jpg" />
+  <img src="Z:/picture/008/save_picture_602310.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Cuphead (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602063.jpg" />
+  <img src="Z:/picture/008/save_picture_602063.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Deputy Dangle (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599179.jpg" />
+  <img src="Z:/picture/008/save_picture_599179.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Deputy Dangle (2016) [En] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599176.jpg" />
+  <img src="Z:/picture/008/save_picture_599176.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Pinstripe (2017) [Ru/Multi] (2.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597784.jpg" />
+  <img src="Z:/picture/008/save_picture_597784.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Vive le Roi / Vive le Roi 2 (2017-2018) [Ru/Multi] (1.0.10/1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597616.jpg" />
+  <img src="Z:/picture/008/save_picture_597616.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Fly and Destroy (2016) [En] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597164.jpg" />
+  <img src="Z:/picture/008/save_picture_597164.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ DreamBreak (2016) [Ru/En] (1.11) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596986.jpg" />
+  <img src="Z:/picture/008/save_picture_596986.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Super Mario Brawl (P) [En] 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596458.jpg" />
+  <img src="Z:/picture/008/save_picture_596458.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Pinball Yeah (P) [En] 2010
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585904.jpg" />
+  <img src="Z:/picture/008/save_picture_585904.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Goose Gogs (P) [Ru] 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585765.jpg" />
+  <img src="Z:/picture/008/save_picture_585765.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Orbital Gear (2014) [En] (1.3.3) Repack OUTLAWS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580810.jpg" />
+  <img src="Z:/picture/008/save_picture_580810.jpg" />
 </div>
 
 
@@ -619,65 +671,6 @@ Orbital Gear — это динамичный шутер, в котором вы 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBC8D3E83F3A4CBFDDAFFCDF24084D9E84E69613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920467   (579618) от 22.07.2015
-
-Tembo The Badass Elephant (2015) [Multi] (1.0) License SKIDROW
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579618.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате нападения жестоких войск организации Phantom Shell City оказался в чрезвычайном положении. Ужасные военные машины, увешанные черепами, прорываются через город, разрушая все на своем пути! National Army пытается сдержать силы Phantom, а General Krenman тем временем берет на себя неподъемную задачу и призывает на помощь единственное существо, способное (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Game FreakЖанр: Arcade, Side-scrolling Action-AdventureЯзык озвучки: Английский, французский, итальянский, немецкий, испанскийЯзык интерфейса: Английский, французский, итальянский, немецкий, испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3AAF984FF3C3018091CA3E2FAC21CA9156F2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360951   (578494) от 09.07.2011
-
-[Repack] Bit.Trip Runner [En] 2011 | John2s
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bit.Trip Runner - следующая часть из серии Bit.Trip.
-Это самый быстрый, хардкорный, и самый весёлый музыкальный платформер.
-
-Гоняйте по Луне, разбивайте хрустальные стены и проскальзывайте под клацающими зубами лунных монстров!
-Прорывайтесь через роботизированные шахты и сразитесь с МайнерМехом!
-Промчитесь по Большому городу в поисках друзей, чтобы вместе победить финального босса!
-
-(   Читать дальше...)Тип издания: RePackЖанр: Arcade (Platform)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48FA96B42496F89B8C1278AB3FE8E7535C25FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

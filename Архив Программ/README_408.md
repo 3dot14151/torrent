@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 17.3.2 Build 8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836021.jpg" />
+  <img src="Z:/picture/008/save_picture_836021.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KMSAuto++ Portable 1.5.9 by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836016.jpg" />
+  <img src="Z:/picture/008/save_picture_836016.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Freac 1.1.1 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835997.jpg" />
+  <img src="Z:/picture/008/save_picture_835997.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adobe Animate CC 2015 (v15.1.1) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835945.jpg" />
+  <img src="Z:/picture/008/save_picture_835945.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Alcohol 52% 2.0.3.8806 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835944.jpg" />
+  <img src="Z:/picture/008/save_picture_835944.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Google Chrome 49.0.2623.112 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835929.jpg" />
+  <img src="Z:/picture/008/save_picture_835929.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Windows 10 Manager 2.0.7 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835913.jpg" />
+  <img src="Z:/picture/008/save_picture_835913.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.3 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835901.jpg" />
+  <img src="Z:/picture/008/save_picture_835901.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Ashampoo Burning Studio 21.6.0.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835892.jpg" />
+  <img src="Z:/picture/008/save_picture_835892.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ KMS Tools Portable by Ratiborus 08.10.2021 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835846.jpg" />
+  <img src="Z:/picture/008/save_picture_835846.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MKVToolNix 46.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835822.jpg" />
+  <img src="Z:/picture/008/save_picture_835822.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tixati 2.73 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835817.jpg" />
+  <img src="Z:/picture/008/save_picture_835817.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Alcohol 120% 2.0.3.8806 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835784.jpg" />
+  <img src="Z:/picture/008/save_picture_835784.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft Windows 10 Insider Preview 10.0.14316 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835781.jpg" />
+  <img src="Z:/picture/008/save_picture_835781.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ KMSAuto Net 2016 1.4.9 DC 11.03.2017 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835752.jpg" />
+  <img src="Z:/picture/008/save_picture_835752.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ KMS Tools Portable 11.03.2017 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835749.jpg" />
+  <img src="Z:/picture/008/save_picture_835749.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Red Giant Magic Bullet Suite 13.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835744.jpg" />
+  <img src="Z:/picture/008/save_picture_835744.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Psiphon 3 build 154 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835696.jpg" />
+  <img src="Z:/picture/008/save_picture_835696.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AAct Network 1.1.8 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835522.jpg" />
+  <img src="Z:/picture/008/save_picture_835522.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ USDownloader 1.3.5.9 Portable (13.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835303.jpg" />
+  <img src="Z:/picture/008/save_picture_835303.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Allavsoft Video Downloader Converter 3.14.1.6281 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835245.jpg" />
+  <img src="Z:/picture/008/save_picture_835245.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ FileZilla 3.25.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835242.jpg" />
+  <img src="Z:/picture/008/save_picture_835242.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Stellarium 0.90.0.9172 TEST + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835236.jpg" />
+  <img src="Z:/picture/008/save_picture_835236.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Ultra Adware Killer 5.7.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835180.jpg" />
+  <img src="Z:/picture/008/save_picture_835180.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Vivaldi 1.8.770.25 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835177.jpg" />
+  <img src="Z:/picture/008/save_picture_835177.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Glary Utilities Pro 5.71.0.92 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835168.jpg" />
+  <img src="Z:/picture/008/save_picture_835168.jpg" />
 </div>
 
 

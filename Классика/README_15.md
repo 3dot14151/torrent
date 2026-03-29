@@ -6,7 +6,7 @@ Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|track
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834361.jpg" />
+  <img src="Z:/picture/008/save_picture_834361.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Narciso Yepes, Melos Quartett - Luigi Boccherini: 3 Gitarren-Quintette (1971) 19
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834160.jpg" />
+  <img src="Z:/picture/008/save_picture_834160.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Beautiful Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833639.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Luciano Pavarotti - Los Mayores Tenor Vivo en el Escenario (Live) (2017) [FLAC|L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833297.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chad Lawson - Home Sweet Home: The 2018 Lore Variations (2018) [FLAC|Lossless|WE
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833164.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832943.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mito Chamber Orchestra, Seiji Ozawa - Mozart, Strauss - Woodwind Concertos (2002
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832387.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Audiomachine - Decimus (2015) [MP3|320 кб/с] <Classical Crossover, Soundtrack
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832308.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Top 50 Most Popular Classical Piano (2014) [MP3|320 кб/с] <Classical, Pi
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832212.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ New London Chorale - Young Messiah (1979) [FLAC|Lossless|WEB-DL|image + .cue] <C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831448.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ New London Chorale - Young Matthew Passion (1983) [FLAC|Lossless|WEB-DL|image + 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831357.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Franz Anton Hoffmeister - Symphonies (Orchestra della Svizzera italiana, Howard 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831351.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Carlo Maria Giulini - Rossini: Stabat Mater (2006) [FLAC|Lossless|tracks] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830648.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ravel - Romantic Classic: Le Tombeau de Couperin, Piano Concerto in G, La Valse,
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828391.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mozart - Horn Concertos (Tuckwell, Marriner - ASMF) (2001) [MP3|320 кб/с] <Cl
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828386.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827694.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Han de Vries - Appassionato (1989) [FLAC|Lossless|tracks] <Classical, Romantic>
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824996.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ravel - Romantic Classic: Le Tombeau de Couperin, Piano Concerto in G, La Valse,
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824902.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Andre Rieu - Romantique (1998) [FLAC|Lossless|tracks] <Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823119.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ L'escolania De Montserrat - Chante La Vierge Marie (2010) [FLAC|Lossless|tracks 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822482.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Chill Out Piano (2017) [MP3|320 Kbps] <Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822236.jpg" />
+  <img src="Z:/picture/008/save_picture_822236.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822150.jpg" />
+  <img src="Z:/picture/008/save_picture_822150.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Antonio Lucio Vivaldi-Concerti per mandolini: Europa Galante, conductor Fabio Bi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821520.jpg" />
+  <img src="Z:/picture/008/save_picture_821520.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Essential Classical Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821233.jpg" />
+  <img src="Z:/picture/008/save_picture_821233.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821213.jpg" />
+  <img src="Z:/picture/008/save_picture_821213.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Cla
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820525.jpg" />
+  <img src="Z:/picture/008/save_picture_820525.jpg" />
 </div>
 
 

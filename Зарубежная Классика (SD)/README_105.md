@@ -1,3 +1,83 @@
+###  Публикация: 1605528   (208524) от 01.02.2023
+
+Белое рабство / White Savage (1943) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_208524.jpg" />
+</div>
+
+
+###  Подробнее
+
+На отдаленный остров Темпл в Тихом океане, где правит принцесса Тахия, закрыт доступ для чужеземцев. Туземцы поклоняются морскому богу Тангоруа, дно бассейна, возле посвященного ему храма, украшено драгоценными камнями. Многие белые уже заплатили своей жизнью за попытку нарушить покой идола. Лишь немецкий колонист в близлежащем портовом городке Коро знает об их ценности. (   Читать дальше...   )Производство: США / Universal PicturesЖанр: ПриключенияРежиссер: Артур ЛюбинАктеры: Мария Монтес, Джон Холл, Сабу, Томас Гомес, Сидни Толер, Пол Гилфойл, Турхан Бей, Дон Терри, Констанс Парди, Аль КикумеПеревод: Одноголосый любительский, KolobroadСубтитры: Английские (SDH)Продолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B351E3EE5AA4150986457FBA9F33086ADE4032EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646386   (208391) от 21.07.2023
+
+Вторая истина / La seconde verite (1966) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный адвокат Пьер Монто встречает женщину своей жизни. Натали молода, беззаботна и невероятно красива.
+Поначалу им кажется, что они счастливы. Но вскоре Пьер вспоминает о супружеском долге. Натали теряет голову от ревности. Происходит бурное объяснение.
+Но результатом вспышки становится не расставание, а убийство. Убит бывший возлюбленный Натали, молодой соперник (   Читать дальше...   )Производство: Франция, Италия / Agnes Delahaie Productions, Explorer Films, Valoria FilmsЖанр: драма, детективРежиссер: Кристиан-ЖакАктеры: Мишель Мерсье, Робер Оссейн, Паскаль де Буассон, Жак Кастело, Жан-Пьер Даррас, Раймон Жером, Фернан Гио, Пьер-Луи, Жан Мико, Малка РибовскаПеревод: Дублированный, киностудия «Союзмультфильм»Язык озвучки: Русский, французскийСубтитры: АнглийскиеПродолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E33EA32397A492D7F0724BE27B2DB1CBEEC0DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646692   (208382) от 20.07.2023
+
+Настоящий и ложный / Il vero e il falso (1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Луиза, скромная учительница, была осуждена за убийство любовницы мужа, Клаудио. После освобождения из тюрьмы за хорошее поведение, она обнаруживает, что женщина жива и живет с Клаудио. Луиза решает на самом деле убить ту, чья поддельная смерть отправила её в тюрьму. Возникает почти философский вопрос: можно ли быть дважды осужденным за одно преступление…Производство: Италия / Euro International Film (EIA), Explorer Film '58Жанр: драма, криминалРежиссер: Эрипрандо ВисконтиАктеры: Теренс Хилл, Мартин Болсам, Паола Питагора, Адальберто Мария Мерли, Ширли Корригэн, Мария Тереза Албани, Рита Калдерони, Калисто Калисти, Этторе Джери, Пьеро ГерлиниПеревод: Двуголосый профессиональный, студия "Дубляж 1"Язык озвучки: Русский, итальянскийСубтитры: ИтальянскиеПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EECAF56FC71F15FEC1B34D0C768E5A6465BFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648326   (208334) от 22.07.2023
 
 Фриско Кид / The Frisco Kid (1979) BDRip [H.264]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208334.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208140.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207927.jpg" />
+  <img src="Z:/picture/005/save_picture_207927.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207924.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207767.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207689.jpg" />
+  <img src="Z:/picture/005/save_picture_207689.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207665.jpg" />
+  <img src="Z:/picture/005/save_picture_207665.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207425.jpg" />
+  <img src="Z:/picture/005/save_picture_207425.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207406.jpg" />
+  <img src="Z:/picture/005/save_picture_207406.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207330.jpg" />
+  <img src="Z:/picture/005/save_picture_207330.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206859.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206827.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206683.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206668.jpg" />
+  <img src="Z:/picture/005/save_picture_206668.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206193.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206185.jpg" />
+  <img src="Z:/picture/005/save_picture_206185.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205877.jpg" />
+  <img src="Z:/picture/005/save_picture_205877.jpg" />
 </div>
 
 
@@ -449,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205719.jpg" />
+  <img src="Z:/picture/005/save_picture_205719.jpg" />
 </div>
 
 
@@ -476,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204424.jpg" />
+  <img src="Z:/picture/004/save_picture_204424.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204196.jpg" />
+  <img src="Z:/picture/004/save_picture_204196.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203977.jpg" />
+  <img src="Z:/picture/004/save_picture_203977.jpg" />
 </div>
 
 
@@ -555,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203957.jpg" />
+  <img src="Z:/picture/004/save_picture_203957.jpg" />
 </div>
 
 
@@ -581,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203914.jpg" />
+  <img src="Z:/picture/004/save_picture_203914.jpg" />
 </div>
 
 
@@ -592,85 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D24B232F685AA270ACFD3065F9EE9D03ED71A4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653944   (203879) от 28.08.2023
-
-Великая иллюзия / La grande illusion / Grand Illusion (1937) HDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая мировая война. Самолет французских летчиков Морешаля и Больде сбит немецким асом фон Рауффенштайном, но оба пилота остались живы и попали в лагерь для военнопленных. Там же находятся несколько британских офицеров, с которыми новички объединяются в работе над тоннелем для побега.
-  После победы французов на Западном фронте Морешаля, Болдье и остальных французских (   Читать дальше...   )Производство: Франция, R.A.C. (Réalisation d'art cinématographique)Жанр: военный, драмаРежиссер: Жан РенуарАктеры: Жан Габен, Дита Парло, Пьер Френе, Эрих фон Штрогейм, Жюльен Каретт, Жорж Пекле, Вернер Флориан, Жан Дасте, Сильвен Иткин, Гастон МодоПеревод: Многоголосый профессиональный (DVD-Магия)Язык озвучки: русский, французскийСубтитры: РусскиеПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDB9992487CB40C756AAEC92BE1B23729542E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654703   (203855) от 28.08.2023
-
-Засыпай, мой малыш / Rock-a-Bye Baby (1958) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клейтон Пул (Джерри Льюис), телемастер из маленького городка Мидвейла, с детства безнадёжно влюблён в Карлу Неплз (Мерилин Максвелл), ставшую кинозвездой Голливуда. И когда Карла попросила его на время съёмок очередного блокбастера присмотреть за её новорожденным ребёнком, он с готовностью согласился. Знал бы он, какой сюрприз его ждёт! Справился ли Клейтон с ролью (   Читать дальше...   )Производство: США / York Pictures CorporationЖанр: комедия, мюзиклРежиссер: Фрэнк ТэшлинАктеры: Джерри Льюис, Мэрилин Максвелл, Конни Стивенс, Реджинальд Гардинер, Сальваторе Баккалони, Ганс Конрид, Изобел Элсом, Джеймс Глисон, Ида Мур, Гари Льюис, Хоуп ЭмерсонПеревод: Одноголосый любительский, Andre1288Язык озвучки: Русский, английский, немецкийСубтитры: Русские (Songs, Full), английские, немецкиеПродолжительность: 01:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0F1CBFAB2862862C7139CD55564A031BBE9C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423504   (203722) от 21.01.2023
-
-Прекрасный ноябрь / Un bellissimo novembre / That Splendid November (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоятельный сицилианский клан собирается на родовой вилле отметить очередную годовщину смерти одного из членов семьи, отца юноши Нино. Самой последней на виллу прибыла неугомонная красавица, тетя Четтина, которую Нино не видел два года, а встретившись, вдруг понял, что безумно влюблен в нее. Первая любовь оказалась не только волнующим, но и горьким жизненным уроком, (   Читать дальше...   )Производство: Италия, Франция / Adelphia Compagnia Cinematografica, Les Productions Artistes AssociésЖанр: ДрамаРежиссер: Мауро БолоньиниАктеры: Джина Лоллобриджида, Габриэле Ферцетти, Андре Лоуренс, Паоло Турко, Даниэль Годе, Маргарита Лосано, Изабелла Савона, Жан Мокорп, Коррадо Гайпа, Этторе РиботтаПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3B29366C555F1F380C45EBBAFCAE1877B59900
 ```
 
 https://mybot314.ru/tekegram_catalog/

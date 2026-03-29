@@ -1,3 +1,57 @@
+###  Публикация: 1501122   (837861) от 08.10.2021
+
+В.П. Кубанов и др. | Основы теории антенн и распространения радиоволн. Учебное пособие (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются основы теории антенн и распространения радиоволн. Формулируются вопросы для самопроверки и задачи (с ответами) для самостоятельного решения. Приводятся примеры решения задач.
+Для студентов вузов, имеющих направления подготовки по инфокоммуникационным технологиям и радиотехнике.Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79425F4903A2A83818F55207DC8ADB03C630124C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004161   (837744) от 06.04.2016
+
+А.Б. Василевский | Обучение решению задач по математике (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются методы решения задач элементарной математики. Приводятся общие и частные алгоритмы поиска решения нестандартных уравнений и неравенств, геометрических и других задач. Описывается комплексное использование различные методов при решении задач повышенной трудности.
+Для студентов физико-математических факультетов педагогических вузов. Может быть использовано (   Читать дальше...   )Жанр: Учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592C6BE22D3F41948D5FAAEFEB0B5E1B2AE87665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380424   (833040) от 03.05.2020
 
 Г. И. Атабеков | Основы теории цепей (2009) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833040.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832623.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831967.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831847.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831834.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831767.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831677.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831392.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828491.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823226.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823216.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822473.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821884.jpg" />
+  <img src="Z:/picture/008/save_picture_821884.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819449.jpg" />
+  <img src="Z:/picture/008/save_picture_819449.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817748.jpg" />
+  <img src="Z:/picture/008/save_picture_817748.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817606.jpg" />
+  <img src="Z:/picture/008/save_picture_817606.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817463.jpg" />
+  <img src="Z:/picture/008/save_picture_817463.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817239.jpg" />
+  <img src="Z:/picture/008/save_picture_817239.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815064.jpg" />
+  <img src="Z:/picture/008/save_picture_815064.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814541.jpg" />
+  <img src="Z:/picture/008/save_picture_814541.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813846.jpg" />
+  <img src="Z:/picture/008/save_picture_813846.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813518.jpg" />
+  <img src="Z:/picture/008/save_picture_813518.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812974.jpg" />
+  <img src="Z:/picture/008/save_picture_812974.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811604.jpg" />
+  <img src="Z:/picture/008/save_picture_811604.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B54966A2CB3EBFE69CD2419A69D874600E42A9E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383384   (811572) от 15.05.2020
-
-А.А. Дурнаков | Физические основы микро- и наноэлектроники (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит описания физических эффектов и их компонентов, классификацию веществ, модели энергетических зон и ковалентных связей, физическое описание собственного и примесного полупроводника, применение и характеристики однородных полупроводников. Рассмотрено равновесное и неравновесное состояние p-n перехода, токи в нем, виды пробоев, туннелирование в сильнолегированных (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D940F1EDEF80A395175FDBDDC537204341D1C49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383407   (811274) от 15.05.2020
-
-Т.М. Алтунина | Основы технического анализа финансовых рынков (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811274.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматриваются понятия и основы философии технического анализа финансовых рынков, разбираются самые популярные методы и способы анализа, выработанные практикой рекомендации начинающему аналитику и порядок адаптации теоретических методов к реальным рынкам. Пособие содержит большое количество практических примеров, а также заданий для самостоятельного решения.Жанр: Экономика, Бизнес, Финансы, Банковское дело, ИнвестицииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DF60AEEABD3E439960869CD5346622C61DAB26
 ```
 
 https://mybot314.ru/tekegram_catalog/

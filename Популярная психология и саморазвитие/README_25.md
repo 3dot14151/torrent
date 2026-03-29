@@ -1,3 +1,84 @@
+###  Публикация: 1108387   (862017) от 25.02.2017
+
+Илсе Санд | Страх близости. Как перестать защищаться и начать любить (2017) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_862017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человеческая психика устроена милосердно: мы забываем слишком неприятные и болезненные ситуации и эмоции, чтобы жить нормально. Однако нормально – не значит счастливо. За высоким забором сложно увидеть красоту мира и трудно завязать знакомство с новыми людьми.
+
+Датский психотерапевт Илсе Санд на примерах из жизни объясняет, как разные варианты психологической защиты (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66884EC89DDD31D0235D406D6D420742B1D4E36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999769   (861949) от 23.03.2016
+
+Барбара Шер | Лучше поздно, чем никогда. Как начать новую жизнь в любом возрасте (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_861949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проснуться, чувствуя себя молодым и бесстрашным, полным творческих сил, не беспокоясь о чужом мнении, точно зная, что хочешь сделать со своей жизнью, и с твердым намерением этим и заниматься? Звучит как несбыточная мечта, особенно если достиг того возраста, когда кажется, что время прекрасных возможностей подошло к концу, а будущее видится чем-то катящимся под уклон. (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, достижение успехаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0294661B7563CE7275C6594F56C76AEBBB8A925E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376095   (861917) от 16.04.2020
+
+Анастасия Максимова | Из депрессии. Выход рядом (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_861917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всестороннее исследование депрессии от человека, который побывал по ту сторону «большой Д» и сумел выкарабкаться. Вы узнаете, когда необходимо обратиться к специалисту, зачем общаться с людьми и почему фразы «просто не грусти» не работают. В подробном руководстве автор рассказывает, как жить с депрессией и как помочь себе или близкому человеку.
+Книга будет интересна (   Читать дальше...   )Жанр: О психологии популярноФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5507596CCF28077EF91D3D4C090CBECA178C40E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376115   (861699) от 16.04.2020
 
 Сьюзен Фаулер | Ваш источник мотивации. Как захотеть сделать то, что нужно (2020) [EPUB]
@@ -6,7 +87,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861699.jpg" />
+  <img src="Z:/picture/008/save_picture_861699.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861698.jpg" />
+  <img src="Z:/picture/008/save_picture_861698.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859980.jpg" />
+  <img src="Z:/picture/008/save_picture_859980.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859066.jpg" />
+  <img src="Z:/picture/008/save_picture_859066.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858791.jpg" />
+  <img src="Z:/picture/008/save_picture_858791.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858540.jpg" />
+  <img src="Z:/picture/008/save_picture_858540.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858355.jpg" />
+  <img src="Z:/picture/008/save_picture_858355.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857539.jpg" />
+  <img src="Z:/picture/008/save_picture_857539.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857169.jpg" />
+  <img src="Z:/picture/008/save_picture_857169.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856964.jpg" />
+  <img src="Z:/picture/008/save_picture_856964.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856961.jpg" />
+  <img src="Z:/picture/008/save_picture_856961.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856896.jpg" />
+  <img src="Z:/picture/008/save_picture_856896.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856775.jpg" />
+  <img src="Z:/picture/008/save_picture_856775.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856580.jpg" />
+  <img src="Z:/picture/008/save_picture_856580.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856570.jpg" />
+  <img src="Z:/picture/008/save_picture_856570.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856459.jpg" />
+  <img src="Z:/picture/008/save_picture_856459.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856453.jpg" />
+  <img src="Z:/picture/008/save_picture_856453.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855533.jpg" />
+  <img src="Z:/picture/008/save_picture_855533.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855408.jpg" />
+  <img src="Z:/picture/008/save_picture_855408.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855339.jpg" />
+  <img src="Z:/picture/008/save_picture_855339.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855244.jpg" />
+  <img src="Z:/picture/008/save_picture_855244.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855232.jpg" />
+  <img src="Z:/picture/008/save_picture_855232.jpg" />
 </div>
 
 
@@ -591,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854964.jpg" />
+  <img src="Z:/picture/008/save_picture_854964.jpg" />
 </div>
 
 
@@ -602,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C9115E27B28996C2AFE81412125869CD0B01ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110065   (854850) от 01.03.2017
-
-Крис Бэйли | Мой продуктивный год. Как я проверил самые известные методики личной эффективности на себе (2017) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854850.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках действенных приемов личной эффективности Крис Бэйли взялся за амбициозный проект – в течение года он исследовал и протестировал на себе множество методик: например, он работал по 90 часов в неделю, медитировал 30 минут каждый день, месяц пил только воду, пользовался смартфоном только час в день и пытался жить в полной изоляции. Для своей книги Крис Бэйли (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, достижение успехаФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE7C5F21A774AD6435D67D1B2254B12612E805F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377196   (854601) от 20.04.2020
-
-Брайан Трейси | Привычки на миллион. Проверенные способы удвоить и утроить свой доход (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из нас постоянно задают себе вопрос: «Почему одни люди успешнее других?». Ведь непонятно, как у одних получается все, за что бы они ни взялись, а другие едва сводят концы с концами и не могут сделать шаг вперед. Кто-то убежден, что величия добиваются лишь благодаря связям и богатым родственникам. Кто-то верит, что вершин достигают только трудоголики, которые (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: П.А. СамсоновФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD4C7E419899BF0DC772CD8D03DED54E7BB0A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001398   (853749) от 28.03.2016
-
-Татьяна Санс-Цветкова | Мне лень (2014) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена исключительно для лентяев, и она обязательно пригодится если не вам, то кому-либо из вашего окружения. Все лентяи уверены, что прекрасно устроились в этой жизни. На самом деле они всего лишь наблюдают за чужой. Своей жизни у них нет. У нас, русских, а точнее — советских (я пишу про свое поколение), совершенно перевернутое представление об успешности (   Читать дальше...   )Жанр: Психология саморазвитияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E210D5A63D262F4DF557357F653C9D9834252A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

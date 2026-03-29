@@ -1,3 +1,119 @@
+###  Публикация: 1726353   (108736) от 28.05.2024
+
+Horace Parlan - Musically Yours (1979) 1994, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together [6:16]
+02. Memories of You [6:18]
+03. Musically Yours [5:38]
+04. Ill Wind [7:04](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0F34464293E84474516F6FAFB48FEB168B8180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726350   (108734) от 28.05.2024
+
+Phil Woods - Into The Woods: The Best of Phil Woods (1987 - 1995) 1996, Concord Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Bird's Children [7:12]
+02. Hal Mallet [5:12]
+03. Bop Stew [7:31]
+04. Misirlou [7:04](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A3C4A65FBE4580ACD9946D27800185F3E94D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726408   (108718) от 29.05.2024
+
+VA - Smooth Jazz House Music (Bar & Coffee Lounge) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Von Mondo - Whiskey and Chocolate (2:35)
+02. Nenei - Feeling Good (Ronan Remix) (2:34)
+03. Index - Noon Hour Blues (Short Mix) (2:59)
+04. The Moleskins - Is It A Crime (Extended Mix) (5:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A7996B7E243F681DC730662864A6952FEC1E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726398   (108696) от 29.05.2024
+
+VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Belleto - Hope (3:49)
+02. Stuart Fischer - Time After Time (4:02)
+03. Doyle McCarthy - Falling Leaves (4:01)
+04. Zoltan Swanson - Sweet Sadness (3:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42726AB5494EA6A759B47F8EC01A2A93817B083E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726559   (108692) от 29.05.2024
 
 Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Piano Jazz>
@@ -6,7 +122,7 @@ Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108692.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108689.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jeff Shirley - Contigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108688.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Kurt Flavin - Six String Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108687.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Alluring Sweet Relaxing Chill Lounge Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108686.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Jazz Tempoe Doeloe (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108685.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108684.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108683.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108682.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108676.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108673.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108672.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108631.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Mary Lou Williams - Zodiac Suite (1945) 1991, Vintage Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108614.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ David Schumacher - Every Corner (1993) Amosaya Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108611.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Tim Warfield - One For Shirley (2008) Criss Cross Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108610.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Lee Ritenour - Portrait (1987) GRP [FLAC|Lossless|tracks + .cue] <Crossover Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108569.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Dave Brubeck - We're All Together Again For The First Time (1973) 1990, Atlantic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108568.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108549.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Houston Person & Ron Carter - The Complete Muse Sessions (1989, 1990) 2CD, 1997,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108545.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Carmen McRae - Great Women Of Song (1955 - 1959) 2024, Universal [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108538.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jim Hall - Live In Tokyo (1976) 1991, King Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108536.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jim Hall - Live In Tokyo (1976) 1991, King Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F181484690F97FDE4F9B7855668FD9972022849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727431   (108493) от 02.06.2024
-
-V.A. - Bossanova & Jazz: Summer Bossanova & Jazz Vibes 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Rodriguez - Peter Pan's Syndrome (Edit)
-02. Montefiori Cocktail - Sofisticata (Nicola Conte's Soft Samba Mix)
-03. Silvia Donati, Nova 40, Giancarlo Bianchetti, Roberto Rossi - Parece Vortice
-04. Papik, Giuseppe Milici - Passos De Esperança(   Читать дальше...   )Жанр: Bossa Nova, Nu JazzПродолжительность: 01:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B25E4C9106D97B0E73C58A4CE82BD2786C044F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727375   (108480) от 02.06.2024
-
-Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954) 1989, Savoy Jazz [FLAC|Lossless|image + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mary Lou Williams - Mary Lou Williams' Blues (aka Mary Lou Blues) (Williams) - 3:21
-02. Mary Lou Williams - Tea for Two (Youmans-Caesar) - 2:52
-03. Mary Lou Williams - Scratchin' the Gravel (Williams) - 3:15
-04. Mary Lou Williams - Zonky (Waller-Razaf) - 2:57(   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71C2072DAE5AFBAE2C3402A8D0F09DA06CEA441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727382   (108475) от 02.06.2024
-
-Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mod House [5:46]
-02. Symphony for Jr. [10:11]
-03. Wilbur's Red Cross [8:18]
-04. A Real Nice Lady [7:32](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00CF9FA171E585793EC895E9C3BF84881281E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727379   (108469) от 02.06.2024
-
-Lee Ritenour - Rio & On the Line (1979, 1983) 2003, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rio Funk [5:11]
-02. San Juan Sunset [5:38]
-03. Rainbow [5:48]
-04. A Little Bit of This and a Little Bit of That [5:09](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46EBB5CABE2330A20F76D4871E8E6797917156A
 ```
 
 https://mybot314.ru/tekegram_catalog/

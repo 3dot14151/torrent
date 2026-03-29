@@ -1,3 +1,119 @@
+###  Публикация: 1641979   (231681) от 25.06.2023
+
+Hank Crawford - Night Beat (1989) Milestone [FLAC|Lossless|tracks + .cue] <Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For The Love Of You [8:07]
+02. Mobile Bay [5:02]
+03. Midnight Fantasy [6:55]
+04. K. C. Blues [5:31](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873710FDF178F79D7A52405DD56D0ABFE84B38D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647317   (231679) от 18.07.2023
+
+Ben Webster - The Classic Collaborations (1958 - 1963) 4CD, 2021, Enlightenment [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Blues [10:15]
+02. Lula [7:46]
+03. When Lights Are Low [4:47]
+04. You Can't Tell The Difference [12:07](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 05:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE1E757EF49429D9B5CE28A3AE979FF2F3E100D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641977   (231665) от 25.06.2023
+
+Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arianna [6:21]
+02. Bologna d'Inverno [9:32]
+03. Why Cry? [10:55]
+04. Forever [6:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50574E3463677E1467811A1E491C50F063B34440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647232   (231633) от 18.07.2023
+
+Rob McConnell & The Boss Brass - Big Band Christmas (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Yourself A Merry Little Christmas / I'll Be Home For Christmas [7:19]
+02. Silver Bells / In The Bleak Mid-Winter [3:58]
+03. White Christmas / Let It Snow, Let It Snow, Let It Snow / Winter Wonderland [7:00]
+04. Away In A Manger [2:10](   Читать дальше...   )Жанр: Bop, Swing, Big BandПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFCED622C68870534C4BEAC9AF2E1FF25DE06F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643046   (231608) от 30.06.2023
 
 Jimmy Smith - Milestone Profiles (1981 - 1993) 2CD, 2006, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -6,7 +122,7 @@ Jimmy Smith - Milestone Profiles (1981 - 1993) 2CD, 2006, Milestone [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231608.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Lionel Hampton And His Orchestra - Jazz Flamenco (1957) 1996, RCA [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231407.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Clark Terry Quintet - Top And Bottom Brass (1959) 1992, Original Jazz Classics [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231350.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Yasukuni Terashima Presents: Jazz Bar (2017) Terasima Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231339.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Clifford Jordan Quartet - Bearcat (1962) 1990, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231337.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Dave Brubeck - Ballads (1956 - 1991) 2015, Sony Music [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231334.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Charlie Rouse / Paul Quinichette - The Chase Is On (1957) 2004, Toshiba-EMI [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231239.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Steps Ahead - Steps Ahead (1983) [FLAC|Lossless|tracks + .cue] <Fusion, Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230548.jpg" />
+  <img src="Z:/picture/004/save_picture_230548.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Glenn Miller - The Very Best Of (1938 - 1942) 2CD, 2011, One Day Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230022.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Avishai Cohen - Triveni II (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229968.jpg" />
+  <img src="Z:/picture/005/save_picture_229968.jpg" />
 </div>
 
 
@@ -299,7 +415,7 @@ Peter Beets - Our Love Is Here to Stay: Gershwin Reimagined (2019) Magic Ball Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229747.jpg" />
+  <img src="Z:/picture/004/save_picture_229747.jpg" />
 </div>
 
 
@@ -328,7 +444,7 @@ Helmut Zacharias und sein Orchester (1948 - 1959) 2011, 2CD, Membran Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229596.jpg" />
+  <img src="Z:/picture/004/save_picture_229596.jpg" />
 </div>
 
 
@@ -357,7 +473,7 @@ Claude Williamson - 'Round Midnight (1956) 2000, Bethlehem [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229412.jpg" />
 </div>
 
 
@@ -386,7 +502,7 @@ Elek Bacsik - The Electric Guitar Of The Eclectic Elek Bacsik (1962) 1989, Fonta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229366.jpg" />
+  <img src="Z:/picture/004/save_picture_229366.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ Alex Malheiros - Tempos Futuros (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229349.jpg" />
+  <img src="Z:/picture/004/save_picture_229349.jpg" />
 </div>
 
 
@@ -444,7 +560,7 @@ Cliff (Clifford) Jordan & John Gilmore - Blowing In From Chicago (1957) 2010, An
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229322.jpg" />
+  <img src="Z:/picture/004/save_picture_229322.jpg" />
 </div>
 
 
@@ -473,7 +589,7 @@ Chick Corea, Christian McBride, Brian Blade - Trilogy 2 (2019) 2CD, Concord Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229312.jpg" />
+  <img src="Z:/picture/004/save_picture_229312.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ VA - Sensuous Smooth Jazz For Lovers (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229171.jpg" />
+  <img src="Z:/picture/004/save_picture_229171.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ Dick Wellstood - This Is the One... Dig! (1975) 1994, Solo Art [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229078.jpg" />
+  <img src="Z:/picture/004/save_picture_229078.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ Dmitri Kolesnik - Blues For Dad (2001) Boheme Music[APE|tracks+.cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228721.jpg" />
+  <img src="Z:/picture/005/save_picture_228721.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ Wes Montgomery - Way Out Wes (1957-1959) 2CD, 2010, Not Now Music[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228652.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Lea DeLaria - Play It Cool (2001) Warner [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228257.jpg" />
+  <img src="Z:/picture/005/save_picture_228257.jpg" />
 </div>
 
 
@@ -632,122 +748,6 @@ Lea DeLaria - Play It Cool (2001) Warner [FLAC|Lossless|tracks + .cue] <Vocal Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C3D538DCBAF377C0E5D57BB5ACDF5CE0F291271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268360   (228250) от 10.12.2018
-
-Clora Bryant - Gal With A Horn (1957) 1995, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsy in My Soul [2:48]
-02. Makin' Whoopee [3:34]
-03. Man with a Horn [3:58]
-04. Sweet Georgia Brown [4:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E32B3AE98ED32A0F1584D3FBF4346F3FD55A671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268354   (228244) от 10.12.2018
-
-Helen Carr - The Complete Bethlehem Collection (1955) 1993, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Mine [3:02]
-02. I Don't Want to Cry Anymore [5:16]
-03. Tulip or Turnip [2:25]
-04. Memory of the Rain [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8C31094F39DC1386C3CD3343049E09A1B1F014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268345   (228227) от 10.12.2018
-
-Shirley Horn - Live At The 4 Queens (1988) 2016, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fly [6:31]
-02. You'd Be So Nice to Come Home To [4:03]
-03. Meditation (Meditacao) [9:12]
-04. The Boy from Ipanema [5:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7758C5BF9B4D67DD6F5C15C4F5A694FBCDC1B35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268350   (228218) от 10.12.2018
-
-Hank Crawford - From The Heart (1962) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry Baby [4:22]
-02. Sweet Cakes [3:41]
-03. You've Changed [3:20]
-04. Baby Let Me Hold Your Hand [3:54](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08902CF6C71FEC84866813F878E9022C093DB31
 ```
 
 https://mybot314.ru/tekegram_catalog/

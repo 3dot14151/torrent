@@ -1,3 +1,29 @@
+###  Публикация: 1416075   (371159) от 14.10.2020
+
+Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_371159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы освоите одно из самых востребованных направлений дизайна. Научитесь профессионально создавать визуальные эффекты, анимацию и 3D. Сделаете шоурил для портфолио, сможете начать карьеру в motion-дизайне и работать над новыми интересными проектами.Жанр: ДизайнПродолжительность: 72:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8408C9D6AD9C9520B5F62B4D2CBC1F795F53D959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416197   (369125) от 15.10.2020
 
 Udemy, Mrawan Hussain | Создание реалистичного автомобиля в Blender 2.82 и Substance Painter 2020 / BLENDER: Realistic Vehicle Creation From Start To Finish (2020) PCRec [EN]
@@ -6,7 +32,7 @@ Udemy, Mrawan Hussain | Создание реалистичного автомо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369125.jpg" />
+  <img src="Z:/picture/008/save_picture_369125.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364528.jpg" />
+  <img src="Z:/picture/008/save_picture_364528.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364524.jpg" />
+  <img src="Z:/picture/008/save_picture_364524.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359968.jpg" />
+  <img src="Z:/picture/008/save_picture_359968.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Skillshare | Сделай своего первого милого 3D персо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358761.jpg" />
+  <img src="Z:/picture/008/save_picture_358761.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ CG Cookie | Моделирование, Текстурирование и Шей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356301.jpg" />
+  <img src="Z:/picture/008/save_picture_356301.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ CG Cookie | Риггинг и Анимация Сундука с сокрови�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356299.jpg" />
+  <img src="Z:/picture/008/save_picture_356299.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355261.jpg" />
+  <img src="Z:/picture/008/save_picture_355261.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355206.jpg" />
+  <img src="Z:/picture/008/save_picture_355206.jpg" />
 </div>
 
 
@@ -257,7 +283,7 @@ Udemy, Imran Nuruhussen | Rendering For Jewelers With Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354286.jpg" />
+  <img src="Z:/picture/008/save_picture_354286.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ Cubebrush, Pierrick Picaut | Рыцарь Дракон - Полный курс �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353817.jpg" />
+  <img src="Z:/picture/008/save_picture_353817.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ CG Fast Track | Процедурные шейдеры в Blender 2.90 / Procedur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352987.jpg" />
+  <img src="Z:/picture/008/save_picture_352987.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352821.jpg" />
+  <img src="Z:/picture/008/save_picture_352821.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352673.jpg" />
+  <img src="Z:/picture/008/save_picture_352673.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Udemy, Darrin Lile | Blender 2.8 Создание персонажа / Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351867.jpg" />
+  <img src="Z:/picture/008/save_picture_351867.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Lynda.com | Photoshop CC 2019 New Features (2018)  PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351684.jpg" />
+  <img src="Z:/picture/008/save_picture_351684.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Igor Staritsin | Создание эпического мэтт-пейнт шо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350799.jpg" />
+  <img src="Z:/picture/008/save_picture_350799.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Skillshare, Neil Bettison | Создание стилизованной 3D мо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350796.jpg" />
+  <img src="Z:/picture/008/save_picture_350796.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349623.jpg" />
+  <img src="Z:/picture/008/save_picture_349623.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Udemy, Darrin Lile | Blender 2.8 Создание игрового персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349619.jpg" />
+  <img src="Z:/picture/008/save_picture_349619.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Videosmile, Максим Кузнецов | Супер Figma  (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349513.jpg" />
+  <img src="Z:/picture/008/save_picture_349513.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347703.jpg" />
+  <img src="Z:/picture/008/save_picture_347703.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Lynda.com | Photoshop CC 2019 Essential Training Photography (2018) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347189.jpg" />
+  <img src="Z:/picture/008/save_picture_347189.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Lynda.com | Photoshop CC 2019 Essential Training: The Basics (2018) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347048.jpg" />
+  <img src="Z:/picture/008/save_picture_347048.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ Udemy | Создание Sci-Fi ассета для игр в Blender 2.81 / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346434.jpg" />
+  <img src="Z:/picture/008/save_picture_346434.jpg" />
 </div>
 
 
@@ -673,32 +699,6 @@ Udemy | Создание Sci-Fi ассета для игр в Blender 2.81 / Ble
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3BEAC15C5EACFD3FF59F16BA399F61E7947C6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179745   (346184) от 01.11.2017
-
-HighLights | Основы веб-дизайна (2016) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс идеален для начинающих! Также подойдет тем, кто хочет углубить свои знания и улучшить качество работ. На этом курсе много практики в виде домашних заданий. В финале курса вы создадите дизайн собственного сайта!Жанр: ДизайнПродолжительность: 17:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC4BE10A9CE74A82CCD7BB4644B03A191D107FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

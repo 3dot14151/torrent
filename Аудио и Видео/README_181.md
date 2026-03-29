@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467214.jpg" />
+  <img src="Z:/picture/008/save_picture_467214.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467200.jpg" />
+  <img src="Z:/picture/008/save_picture_467200.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ David Gilmour - Rattle That Lock (Deluxe) (2015) [AAC|256 кб/с]<Progressive R
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466851.jpg" />
+  <img src="Z:/picture/008/save_picture_466851.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466790.jpg" />
+  <img src="Z:/picture/008/save_picture_466790.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466745.jpg" />
+  <img src="Z:/picture/008/save_picture_466745.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465877.jpg" />
+  <img src="Z:/picture/008/save_picture_465877.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465866.jpg" />
+  <img src="Z:/picture/008/save_picture_465866.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465398.jpg" />
+  <img src="Z:/picture/008/save_picture_465398.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Group | Stand Up Сезон 9
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465249.jpg" />
+  <img src="Z:/picture/008/save_picture_465249.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463942.jpg" />
+  <img src="Z:/picture/008/save_picture_463942.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463444.jpg" />
+  <img src="Z:/picture/008/save_picture_463444.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463091.jpg" />
+  <img src="Z:/picture/008/save_picture_463091.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Drum & Bass Floor Fillers 2013 Vol3 (2013) [AAC|274-308 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462964.jpg" />
+  <img src="Z:/picture/008/save_picture_462964.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461901.jpg" />
+  <img src="Z:/picture/008/save_picture_461901.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461769.jpg" />
+  <img src="Z:/picture/008/save_picture_461769.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461316.jpg" />
+  <img src="Z:/picture/008/save_picture_461316.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460781.jpg" />
+  <img src="Z:/picture/008/save_picture_460781.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459449.jpg" />
+  <img src="Z:/picture/008/save_picture_459449.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459378.jpg" />
+  <img src="Z:/picture/008/save_picture_459378.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459295.jpg" />
+  <img src="Z:/picture/008/save_picture_459295.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Prizm - All Night (2020) [AAC|~329 Kbps]<Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458409.jpg" />
+  <img src="Z:/picture/008/save_picture_458409.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Nils Wülker - Go (2020) [AAC|~283 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458408.jpg" />
+  <img src="Z:/picture/008/save_picture_458408.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Marilyn Manson - We Are Chaos (2020) [AAC|256 Kbps]<Alternative Rock, Industrial
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458157.jpg" />
+  <img src="Z:/picture/008/save_picture_458157.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Jazz Ballads, Vol. 1 (2016) [AAC|~300 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458152.jpg" />
+  <img src="Z:/picture/008/save_picture_458152.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457844.jpg" />
+  <img src="Z:/picture/008/save_picture_457844.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457440.jpg" />
+  <img src="Z:/picture/008/save_picture_457440.jpg" />
 </div>
 
 

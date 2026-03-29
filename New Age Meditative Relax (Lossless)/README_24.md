@@ -1,3 +1,32 @@
+###  Публикация: 1261863   (301199) от 12.11.2018
+
+Michael Logozar - Passage (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timelapse
+02. Passage
+03. Midnight in the Garden
+04. Through the Storm(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DA613E63B2F0A42DE289705686364A6561A052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333646   (298941) от 27.10.2019
 
 Tron Syversen - Sacred Dreams (2005) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Instrumental>
@@ -6,7 +35,7 @@ Tron Syversen - Sacred Dreams (2005) [FLAC|Lossless|WEB-DL|tracks] <New Age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298941.jpg" />
+  <img src="Z:/picture/008/save_picture_298941.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) [FLAC| (tracks + .cue)]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298553.jpg" />
+  <img src="Z:/picture/008/save_picture_298553.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jean-Michel Jarre - Oxygene 3 (2016) [FLAC|Lossless|image + .cue] <New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297663.jpg" />
+  <img src="Z:/picture/008/save_picture_297663.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Tron Syversen - Piano Poems (2009) [FLAC|Lossless|tracks + .cue] <New Age, Relax
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296914.jpg" />
+  <img src="Z:/picture/008/save_picture_296914.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) 2CD Deluxe Edition [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294730.jpg" />
+  <img src="Z:/picture/008/save_picture_294730.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293728.jpg" />
+  <img src="Z:/picture/008/save_picture_293728.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Greg Maroney - The Light Within (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291990.jpg" />
+  <img src="Z:/picture/008/save_picture_291990.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291067.jpg" />
+  <img src="Z:/picture/008/save_picture_291067.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Meister der Entspannung und Meditation - Early Morning Yoga Music (2019) [FLAC|L
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287735.jpg" />
+  <img src="Z:/picture/008/save_picture_287735.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Musica Relajante - Power Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Med
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287177.jpg" />
+  <img src="Z:/picture/008/save_picture_287177.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Fridrik Karlsson - Total Chillout (2009) [APE|image+.cue]<New Age, Instrumental,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283946.jpg" />
+  <img src="Z:/picture/008/save_picture_283946.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Enigmatic I & II (2006) [FLAC (tracks+.cue)|Lossless]<New Age, Enigmatic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282849.jpg" />
+  <img src="Z:/picture/008/save_picture_282849.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Jim Brickman - 8: Just Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279462.jpg" />
+  <img src="Z:/picture/008/save_picture_279462.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Jim Brickman - Soothe, Vol. 3: Meditation - Music for Peaceful Relaxation (2017)
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279458.jpg" />
+  <img src="Z:/picture/008/save_picture_279458.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279107.jpg" />
+  <img src="Z:/picture/008/save_picture_279107.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279062.jpg" />
+  <img src="Z:/picture/008/save_picture_279062.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277295.jpg" />
+  <img src="Z:/picture/008/save_picture_277295.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276042.jpg" />
+  <img src="Z:/picture/008/save_picture_276042.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Yiruma - Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275974.jpg" />
+  <img src="Z:/picture/008/save_picture_275974.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275007.jpg" />
+  <img src="Z:/picture/008/save_picture_275007.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274805.jpg" />
+  <img src="Z:/picture/008/save_picture_274805.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274760.jpg" />
+  <img src="Z:/picture/008/save_picture_274760.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274580.jpg" />
+  <img src="Z:/picture/008/save_picture_274580.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273462.jpg" />
+  <img src="Z:/picture/008/save_picture_273462.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ ERA - The 7th Sword (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273236.jpg" />
+  <img src="Z:/picture/008/save_picture_273236.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ ERA - The 7th Sword (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55355215C94F1B47CA54BB6FD2A60C46A90264DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083747   (273056) от 16.12.2016
-
-Jean-Michel Jarre - Essentials & Rarities (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiness Is A Sad Song (5:54)
-02. Hypnose (3:30)
-03. Erosmachine (2:58)
-04. La Cage (3:24)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F1ABFF0A66A4C52298987C4C09B391EC21EF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

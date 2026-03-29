@@ -1,3 +1,206 @@
+###  Публикация: 1471425   (1015125) от 20.05.2021
+
+St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pay Your Way In Pain [03:03]
+02. Down And Out Downtown [03:42]
+03. Daddy's Home [03:19]
+04. Live In The Dream [06:29](   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCDC010D87F94244EA442430F9482F2FC33EE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471998   (1014667) от 23.05.2021
+
+Zolita - Evil Angel (Deluxe) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bedspell (00:02:49)
+02. Loveline (00:02:32)
+03. Somebody I Fucked Once (00:03:07)
+04. Shut Up And Cry (00:03:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B433DD79A5F6DCB005996D089E20EFF5664676B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472106   (1014527) от 24.05.2021
+
+VA - American Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Count On Me (3:17)
+02. Jason Mraz - Have It All - Acoustic (3:45)
+03. Christina Perri - A Thousand Years (4:45)
+04. Seasick Steve - Walkin Man (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC16A188607A1D2C232783262D4E7AEE134EDBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472686   (1014202) от 26.05.2021
+
+My Brothers And I - Love Is (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unrealistic Expectations (00:03:36)
+02. Own The Night (00:03:29)
+03. Long Distance (00:03:14)
+04. Look At You (00:02:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D9A07B8FD111866CCE23EBA053B6B706133EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473187   (1013842) от 28.05.2021
+
+Texas - Hi (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Haze (3:39)
+ 02. Hi (ft. Wu-Tang Clan) (2:51)
+ 03. Just Want to Be Liked (3:01)
+ 04. Unbelievable (3:31)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6E424E6D6B59EC943C69CBFA7DD5A2F96D1425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473144   (1013795) от 28.05.2021
+
+Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everloving (3:19)
+02. Natural Blues (4:30)
+03. Go (3:42)
+04. Porcelain (5:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF26C480B0F199728669C67514E9C32395EF42B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474128   (1013222) от 01.06.2021
+
+VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect (4:23)
+02. Lianne La Havas - Paper Thin (4:58)
+03. Wiz Khalifa; Charlie Puth - See You Again (3:49)
+04. Paul Rey - Talking In My Sleep (2:58)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474718   (1012890) от 03.06.2021
 
 Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -6,7 +209,7 @@ Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012890.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012881.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012727.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012439.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ Michael Bolton - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012111.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ Pastel Coast - Hovercraft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011844.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ Ryan Adams ‎ - Big Colors (2021) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010831.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ Sophie Ellis‐Bextor - Trip the Light Fantastic (2007) [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010807.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Vaccine of Sadness (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010663.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Goodbye My Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010195.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010192.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010176.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ Percy Faith - Columbia Singles Volume III 1959-1967 (2005) [FLAC|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009857.jpg" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Acoustic Pop 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009720.jpg" />
 </div>
 
 
@@ -412,7 +615,7 @@ Melanie C - In And Out Of Love (Acoustic) (2021) EP [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009600.jpg" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009586.jpg" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009559.jpg" />
 </div>
 
 
@@ -499,7 +702,7 @@ Andy Williams - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Vocal, Oldie
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009298.jpg" />
 </div>
 
 
@@ -528,7 +731,7 @@ VA - The Best 2000s Album In The World… Ever! (2021) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009128.jpg" />
 </div>
 
 
@@ -542,210 +745,6 @@ VA - The Best 2000s Album In The World… Ever! (2021) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC4B07E9497DC29ECE008786667CDFD5A059A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481201   (1008448) от 02.07.2021
-
-Frank Duval - Lonesome Fighter (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Fighter Prologue
-02. Lonesome Fighter
-03. Om Mani Padme Hum
-04. Mysterious Call(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8425F2D37E86CEB138B0611D659C99848512CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481439   (1008304) от 03.07.2021
-
-Richard Marx - Stories To Tell (2021) 2CD [FLAC|Lossless|image + .cue] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008304.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Don't Mean Nothing
-02. Should've Known Better
-03. Endless Summer Nights(   Читать дальше...   )Жанр: Pop, Pop-Rock|Продолжительность: 02:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADED79E0004F159B91DE6DB8EF1E9A7828123AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481739   (1008168) от 04.07.2021
-
-VA - Calming Acoustic Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Lost (03:41)
-02. Karizma Duo - Moonlight Shadow (02:48)
-03. John Burnsby - Easy (03:29)
-04. Meg Birch - Falling (Acoustic Version) (03:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C0E22A6CED72501502A41ADDCD262A1C95623C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482401   (1007587) от 08.07.2021
-
-ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ring Ring (German Version) (03:10)
-2. Intermezzo No. 1 (03:46)
-3. Waterloo (French Version) (02:44)
-4. Take A Chance On Me (04:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7CEE710F1A8BE86EF9138F481A904B137E9372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483360   (1006882) от 13.07.2021
-
-VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Devon Seyward, Thom Cooper - Flume (Acoustic Version) (3:01)
-2. Joanie Loves Chachi - (Nice Dream) (3:23)
-3. Thom Cooper - Your Power (3:59)
-4. Charlie Blue Skies - Songbird (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483395   (1006854) от 13.07.2021
-
-VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не ошибусь, если скажу, что на нашем трекере собрана наиболее полная серия, которую в свое время издавала Sony Music (ссылка на всю серию внизу поста). И сегодня представляю Вам последний (из имеющихся у меня) боксет - Alternative 80s.
-Если честно вспомнить именно 80-е, то не то что альтернативные треки, едва доступны были и самые популярные композиции, которые гремели (   Читать дальше...   )CD1:
-01. Adam and the Ants - Stand and Deliver  (3:08)
-02. The Stranglers - No Mercy  (3:39)
-03. Big Audio Dynamite - E=MC²  (5:57)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 10 окт. 2011 г.Жанр: Pop, Electronic, RockПродолжительность: 04:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BEDD6667E775E9EFEE10547DF31F5E6B46B92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483485   (1006771) от 14.07.2021
-
-Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sliding Doors (00:03:10)
-02 - 1961 (00:03:42)
-03. Aftermath (00:03:46)
-04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
 ```
 
 https://mybot314.ru/tekegram_catalog/

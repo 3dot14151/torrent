@@ -1,3 +1,84 @@
+###  Публикация: 612440   (986705) от 01.02.2013
+
+Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13827629989978522B80FE3F7363B34D6CE6E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355006   (985875) от 24.01.2020
+
+Сборник клипов - Свежий Русский Хит от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985875.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые современные клипы. Обложка и блины для дисков в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Русский Хит — Вступление
+01. Ольга Бузова — Лайкер
+02. Макс Барских — Моя любовь
+03. Zivert — Beverly Hills(   Читать дальше...   )Жанр: PopПродолжительность: 05:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350CF6223E2502343BC3385F2920628AB7B9640B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971308   (985476) от 03.01.2016
+
+Звёздные войны: Музыкальное путешествие (видео) / Star Wars: A Musical Journey (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иэн МакДайармид показывает клипы из 6 эпизодов легендарной фантастики компании «ЛукасАртс», сопровождённые музыкой Королевского филармонического оркестра и хора.Производство: СШАЖанр: МузыкаРежиссер: Типпи БушкинАктеры: Иен МакДермид (Ian McDiarmid)Перевод: ОтсутствуетПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A798FAA59BB73D9DCF4FB8C73DC60B63CFBD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971781   (985469) от 03.01.2016
 
 VA - Зимний марафон № 217: Новогодний Хит Парад (2015-2016) WEBRip [H.264/1080p-LQ]
@@ -6,7 +87,7 @@ VA - Зимний марафон № 217: Новогодний Хит Парад
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985469.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985465.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ DJ Smash & Семён Слепаков/Откат (2013).HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983877.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983443.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983439.jpg" />
 </div>
 
 
@@ -144,7 +225,7 @@ VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982331.jpg" />
 </div>
 
 
@@ -170,7 +251,7 @@ Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982201.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ VA - Millenium Sexy - Сборник популярных видеоклипов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982166.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982158.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982061.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981342.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981297.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ Stars Of The 90'S (2004-2006) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981079.jpg" />
 </div>
 
 
@@ -363,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981023.jpg" />
 </div>
 
 
@@ -390,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980082.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980079.jpg" />
 </div>
 
 
@@ -442,7 +523,7 @@ Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978774.jpg" />
 </div>
 
 
@@ -468,7 +549,7 @@ Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977475.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976658.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976574.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ VA - Зимний марафон № 218: Зимняя волна новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975575.jpg" />
 </div>
 
 
@@ -582,7 +663,7 @@ U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975530.jpg" />
 </div>
 
 
@@ -610,7 +691,7 @@ Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <De
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975453.jpg" />
 </div>
 
 
@@ -624,96 +705,6 @@ Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87CF6D6ADC1892DC95DE91088E1FFCA820422CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616196   (974857) от 10.02.2013
-
-Гэри Мур / Gary Moore - Ballads & Blues 1982-1994 (1994) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие баллады великого виртуоза....01. Always Gonna Love You
-02. Still Got the Blues
-03. Empty Rooms
-04. Parisienne Walkways (live 1992)
-05. Separate Ways
-06. Story of the Blues
-07. Midnight Blues (live 1990)
-08. Jumpin' at Shadows (live 1992)
-09. The Loner
-10. Still Got the Blues (live 1990)Жанр: Музыка, Blues
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A903AE67B9924C1D96F4876DB5ADF688D47004E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357258   (974326) от 03.02.2020
-
-Зверские инстинкты & Леша Закон - 5 Music Video (2014-2019) WEB-DL [H.264/480p/720p]-LQ <Turbo-Chanson>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зверские инстинкты (2014) ''Маньяк''
-Зверские инстинкты (2019) ''Бензопила'' (Николай Мухин)
-Зверские инстинкты (2019) ''Буёвщина'' (''ВдРоВа'' cover)
-Зверские инстинкты (2019) ''Зараза'' (Александр Дюмин cover)(   Читать дальше...   )Производство: Zymotic Productions UltraЖанр: Turbo-ChansonПродолжительность: 00:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0FA24A7F3CDB3DCD83A2D30A4AC34162503974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617540   (972478) от 12.02.2013
-
-Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C9BA189BF073A4952274300922C591A9FC1A0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

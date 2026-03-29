@@ -1,4 +1,168 @@
 https://t.me/izofen
+###  Публикация: 1862113   (1062996) от 
+
+КВН-2026. Высшая лига. 1/8 финала, игра 3 (2026.03.28) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2467D24B1B386523EED6E70E9929656B7A45820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862174   (1062993) от 
+
+КВН-2026. Высшая лига. 1/8 финала. Игра третья (2026) WEBRip [H.264/720p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья игра игра одной восьмой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: «Дэдди Мерфи» (Университет «Синергия», Москва), «Агрофак» (СтГАУ, Ставропольский край), «НК Казахстан» (Астана, Казахстан), «ИНДА» (Набережные Челны), Сборная РУДН (Москва).
+Конкурсы: Приветствие, Разминка, Музыкальное домашнее задание.Телекомпания: "Первый канал"Жанр: ЮморЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F7744B9D49223E03239483D93802B9ADB82E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862176   (1062991) от 
+
+КВН-2026. Высшая лига. 1/8 финала. Игра третья (2026) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья игра игра одной восьмой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: «Дэдди Мерфи» (Университет «Синергия», Москва), «Агрофак» (СтГАУ, Ставропольский край), «НК Казахстан» (Астана, Казахстан), «ИНДА» (Набережные Челны), Сборная РУДН (Москва).
+Конкурсы: Приветствие, Разминка, Музыкальное домашнее задание.Телекомпания: "Первый канал"Жанр: ЮморЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937CA384B236DCDD4CED35FA2FD04F709309A60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860705   (1062041) от 
+
+КВН-2026. Высшая лига. Вторая 1/8 финала (2026) WEBRip [H.264/720p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая игра одной восьмой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: "Не беспокоить" (Балашиха), "СПИКЛ" (Мытищи), "Кыргызы" (РУДН, Москва), "Абарович" (Синергия, Москва), "Леон Киллер" (Камышлов).
+Конкурсы: Приветствие, Разминка, Музыкальное домашнее задание.Телекомпания: "Первый канал"Жанр: ЮморСубтитры: РусскиеПродолжительность: 01:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FDA36A5A85F1038110A1D9D265133E393DACB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860706   (1062040) от 
+
+КВН-2026. Высшая лига. Вторая 1/8 финала (2026) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая игра одной восьмой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: "Не беспокоить" (Балашиха), "СПИКЛ" (Мытищи), "Кыргызы" (РУДН, Москва), "Абарович" (Синергия, Москва), "Леон Киллер" (Камышлов).
+Конкурсы: Приветствие, Разминка, Музыкальное домашнее задание.Телекомпания: "Первый канал"Жанр: ЮморСубтитры: РусскиеПродолжительность: 01:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381F6D83C6C9941558ADCFC908FDAD5F0A44617D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860610   (1061861) от 
+
+КВН-2026. Высшая лига. 1/8 финала, игра 2 (2026.03.21) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C2F85FC9B5777ED0078E01A5590AF8D195785D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859246   (1060820) от 
 
 КВН-2026. Высшая лига. Первая 1/8 финала (2026) WEBRip [H.264/720p]
@@ -7,7 +171,7 @@ https://t.me/izofen
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060820.jpg" />
+  <img src="Z:/picture/005/save_picture_1060820.jpg" />
 </div>
 
 
@@ -35,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060818.jpg" />
+  <img src="Z:/picture/005/save_picture_1060818.jpg" />
 </div>
 
 
@@ -61,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060809.jpg" />
+  <img src="Z:/picture/005/save_picture_1060809.jpg" />
 </div>
 
 
@@ -89,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052852.jpg" />
+  <img src="Z:/picture/005/save_picture_1052852.jpg" />
 </div>
 
 
@@ -115,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052629.jpg" />
+  <img src="Z:/picture/005/save_picture_1052629.jpg" />
 </div>
 
 
@@ -141,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050572.jpg" />
+  <img src="Z:/picture/005/save_picture_1050572.jpg" />
 </div>
 
 
@@ -167,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050555.jpg" />
+  <img src="Z:/picture/005/save_picture_1050555.jpg" />
 </div>
 
 
@@ -195,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042963.jpg" />
 </div>
 
 
@@ -221,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035269.jpg" />
 </div>
 
 
@@ -250,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035263.jpg" />
 </div>
 
 
@@ -279,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032861.jpg" />
 </div>
 
 
@@ -305,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020426.jpg" />
 </div>
 
 
@@ -331,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019223.jpg" />
 </div>
 
 
@@ -357,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017827.jpg" />
 </div>
 
 
@@ -383,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015713.jpg" />
 </div>
 
 
@@ -409,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012526.jpg" />
 </div>
 
 
@@ -435,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012372.jpg" />
 </div>
 
 
@@ -461,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905232.jpg" />
 </div>
 
 
@@ -487,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904804.jpg" />
 </div>
 
 
@@ -513,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893209.jpg" />
 </div>
 
 
@@ -524,167 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0935712BE099A81DAC8B7B683D5C7B237C50B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493942   (892168) от 05.09.2021
-
-КВН-2021. Встреча выпускников КВН (28.08.2021) WEBRip [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892168.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 августа Первый канал покажет «Игру-встречу выпускников КВН». Игра была сыграна 19 июня 2021 года в Екатеринбурге. На сцену вышли три команды КВН: «Вятка», «Азия-MIX Артель» и «Борцы. Северный десант». В жюри: Владимир Шахрин, Пелагея, Валдис Пельш, Алла Михеева, Сергей Светлаков.Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB75EDA3395E2B6FD23E8F5353810C6F0B9C85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493944   (891814) от 05.09.2021
-
-КВН-2021. Высшая лига. Голосящий КиВиН (04.09.2021) WEBRip [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891814.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 сентября Первый канал показал музыкальный фестиваль КВН «Голосящий КиВиН 2021», состоявшийся 17 июня 2021 года в Светлогорске. В конкурсной программе фестиваля приняли участие 16 команд: «Уже не дети», Светлый; «Пал Палыч», Хабаровск; «Юра», Москва; «Северяне», Нягань; «Такая история», Орел; «G-Drive», Россия; «Доктор Хаусс», Могилев; «Город N», Челябинск; «ИП (   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 02:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEA5D7F5B265FC9D59A2C7B0E88EFE83E24E9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495386   (880463) от 12.09.2021
-
-КВН-2021. Высшая лига. Кубок чемпионов (11.09.2021) HDTV [H.264/1080i]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880463.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 сентября в Первый канал показал Кубок чемпионов КВН, сыгранный в Крыму 24 августа.
-Участие в игре принимают команды: «Русская дорога», «ИП Бондарев», Сборная «Татнефти», Сборная Снежногорска. На "разогреве" команда «Полуостров»
-В жюри: Константин Эрнст, Вадим Галыгин, Валдис Пельш, Пелагея, Никита Нагорный, Сергей Першин и Сангаджи Тарбаев.Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ТелетекстПродолжительность: 01:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3ADAC12F135344A8D3A2A11272EE0CA2E69EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495380   (880458) от 12.09.2021
-
-КВН-2021. Высшая лига. Летний кубок чемпионов  (11.09.2021) WEBRip [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880458.jpg" />
-</div>
-
-
-###  Подробнее
-
-В летнем амфитеатре «Mriya Resort & SPA» в Крыму сошлись золотые медалисты прошлого сезона — команды КВН «Русская дорога» и Сборная «Татнефти» с помощниками в лице «ИП Бондарев» и Сборной Снежногорска.
-В жюри: Константин Эрнст, Пелагея, Валдис Пельш, Вадим Галыгин, Сангаджи Тарбаев, Сергей Першин (Руководитель Арт-кластера «Таврида») и Никита Нагорный (гимнаст, (   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F499657D1E73CB270C65593DD08BAD2250F2C866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996570   (878849) от 14.03.2016
-
-КВН-2016. Высшая лига. 1.8 финала. Игра 2  (2016.03.13) WEB-DL [H.264/720p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DF177074703DFB9D59971907E25262628716DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496735   (871063) от 18.09.2021
-
-КВН-2021. Высшая лига. Первая 1/2 финала (18.09.2021) HDTVRip [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871063.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 сентября в 21:20 Первый канал показал первую игру 1/2 финала Высшей лиги КВН 2021 года.
-Играют: «Имени меня», Королёв; «Город N», Челябинск; «Михаил Дудиков», Ставрополь; «G-Drive», РФ
-В жюри: Юлий Гусман, Семён Слепаков, Вячеслав Муругов, Алла Михеева, Вадим Галыгин, Валерий Меладзе, Валдис Пельш.Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9BC1A9E982F0C94FD684F8ED3811916D6766E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

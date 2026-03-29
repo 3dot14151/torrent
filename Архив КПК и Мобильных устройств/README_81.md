@@ -1,3 +1,29 @@
+###  Публикация: 1419335   (332360) от 01.11.2020
+
+Songsterr Guitar Tabs & Chords v2.4.16 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Songsterr — приложение для просмотра и разучивания табов и аккордов музыки ваших любимых исполнителей. В нашем каталоге более 500.000 интерактивных табулатур для гитары, баса и барабанов. При покупке полной версии вы получаете возможность воспроизведения, зацикливания и замедления табулатур.Тип издания: Пиратка (открыт Premium) + Mod: (получен PREMIUM, удалена реклама и аналитика)Релиз состоялся: 12.10.2020Разработчик: SongsterrПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A32AE10A410A47E1792475D6CBC10CCFCDDC360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915634   (331947) от 12.11.2015
 
 Respawnables 3.4.0 [Ru]
@@ -6,7 +32,7 @@ Respawnables 3.4.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331947.jpg" />
+  <img src="Z:/picture/008/save_picture_331947.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ MIUI-ify v1.8.12 Premium [Ru/Multi] - Уведомления и быстрые �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331894.jpg" />
+  <img src="Z:/picture/008/save_picture_331894.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Minecraft - Pocket Edition 0.12.3 + 0.13.0.b4[Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331788.jpg" />
+  <img src="Z:/picture/008/save_picture_331788.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Telegram for Android 9.0.2 (2808) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331696.jpg" />
+  <img src="Z:/picture/008/save_picture_331696.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Batman And Robin Immortality 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331057.jpg" />
+  <img src="Z:/picture/008/save_picture_331057.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ tTorrent Pro 1.5.4.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330971.jpg" />
+  <img src="Z:/picture/008/save_picture_330971.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Aladdin Retro Remix 1.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330915.jpg" />
+  <img src="Z:/picture/008/save_picture_330915.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330896.jpg" />
+  <img src="Z:/picture/008/save_picture_330896.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Skies of Glory 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330555.jpg" />
+  <img src="Z:/picture/005/save_picture_330555.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330364.jpg" />
+  <img src="Z:/picture/005/save_picture_330364.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330326.jpg" />
+  <img src="Z:/picture/008/save_picture_330326.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Zool 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330212.jpg" />
+  <img src="Z:/picture/008/save_picture_330212.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Tattoo my Photo 2.0  v2.60 Pro [Ru/Multi] - татуировки на фото
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330042.jpg" />
+  <img src="Z:/picture/008/save_picture_330042.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Materialistik Icon pack 3.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329971.jpg" />
+  <img src="Z:/picture/008/save_picture_329971.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329395.jpg" />
+  <img src="Z:/picture/008/save_picture_329395.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Side Pocket 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329214.jpg" />
+  <img src="Z:/picture/008/save_picture_329214.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ KK Launcher Prime 6.82 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329032.jpg" />
+  <img src="Z:/picture/008/save_picture_329032.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Julls' Calendar Widget Lite 2.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328352.jpg" />
+  <img src="Z:/picture/008/save_picture_328352.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327615.jpg" />
+  <img src="Z:/picture/008/save_picture_327615.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_326824.jpg" />
+  <img src="Z:/picture/005/save_picture_326824.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_326803.jpg" />
+  <img src="Z:/picture/005/save_picture_326803.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Foxit MobilePDF Business 3.6.0.1117 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326588.jpg" />
+  <img src="Z:/picture/008/save_picture_326588.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326539.jpg" />
+  <img src="Z:/picture/008/save_picture_326539.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326527.jpg" />
+  <img src="Z:/picture/008/save_picture_326527.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ CamScanner 4.0.0.20151110 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326384.jpg" />
+  <img src="Z:/picture/008/save_picture_326384.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ CamScanner – интеллектуальное решение для управ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4866FB162A0BF5ED8CA6BC32E3EBFEA246A968D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935702   (326313) от 18.11.2015
-
-AVG AntiVirus Pro Android Security 5.0 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа AVG AntiVirus Pro для Android™ обеспечит вашему устройству полнофункциональную защиту от вирусов, вредоносных и шпионских программ, а также веб-атак в режиме реального времени.Тип издания: ПираткаРелиз состоялся: 16 ноября 2015 г.Разработчик: AVG MobileПоддерживаемая ОС: Android™ зависит от устройстваЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4198C895521C7A797BEC3214F99B5DE440668524
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1634671   (233303) от 21.05.2023
+
+С.А. Немнюгин | Программирование на Intel Cilk Plus (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_233303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс представляет собой краткое введение в основы программирования на Intel® CilkTM Plus. В курсе излагаются сведения о структуре Intel® CilkTM Plus и компонентах Cilk. Среди них ключевые слова, расширенная индексная нотация, редукторы, элементные функции и т.д. Рассматриваются вопросы диспетчеризации исполнения параллельной Cilk-программы, особенности распараллеливания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17077A5EF193AA97AEECEB76DEF34D4BC3BBE00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634575   (233266) от 21.05.2023
+
+Ю.В. Дашко, А.А. Заика | Основы разработки компьютерных игр в XNA Game Studio (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_233266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс посвящен основным методам разработки компьютерных игр в XNA Game Studio 2.0., разработке документации и реализации самостоятельных игровых проектов. Он предназначен для C#-программистов (студентов специальности «Прикладная информатика»). Курс будет реализован в виде дисциплины регионального компонента учебного плана указанной специальности.
+Курс начинается с (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1463D5FC8CEF328E7CD5621AD348077E279D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634552   (233185) от 21.05.2023
 
 А.С. Жукарев и др. | Задачи повышенной сложности в курсе общей физики (1985) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233185.jpg" />
+  <img src="Z:/picture/004/save_picture_233185.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232994.jpg" />
+  <img src="Z:/picture/004/save_picture_232994.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232907.jpg" />
+  <img src="Z:/picture/004/save_picture_232907.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232756.jpg" />
+  <img src="Z:/picture/004/save_picture_232756.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232728.jpg" />
+  <img src="Z:/picture/004/save_picture_232728.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232667.jpg" />
+  <img src="Z:/picture/004/save_picture_232667.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232630.jpg" />
+  <img src="Z:/picture/004/save_picture_232630.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232471.jpg" />
+  <img src="Z:/picture/004/save_picture_232471.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232387.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232385.jpg" />
+  <img src="Z:/picture/004/save_picture_232385.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232343.jpg" />
+  <img src="Z:/picture/004/save_picture_232343.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232113.jpg" />
+  <img src="Z:/picture/004/save_picture_232113.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231492.jpg" />
+  <img src="Z:/picture/005/save_picture_231492.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231109.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231063.jpg" />
+  <img src="Z:/picture/004/save_picture_231063.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231002.jpg" />
+  <img src="Z:/picture/004/save_picture_231002.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230917.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230851.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230811.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230788.jpg" />
+  <img src="Z:/picture/004/save_picture_230788.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230772.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230743.jpg" />
+  <img src="Z:/picture/004/save_picture_230743.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230600.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230504.jpg" />
+  <img src="Z:/picture/005/save_picture_230504.jpg" />
 </div>
 
 
@@ -632,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B5F95E9060603B3EB1EFE863A1E43A077BA3DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649143   (230404) от 26.07.2023
-
-М.Я. Выгодский | Основы высшей математики (1963 - 1965) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее руководство составлено применительно к действующей программе по основному курсу высшей математики механико-машиностроительных технических учебных заведений и специально предназначено для студентов, обучающихся заочно. Поэтому уделено особое внимание примерам, поясняющим теоретические выводы, а зачастую и предваряющие последние.Жанр: МатематикаИздательство: ФизматгизФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FBF46C2553DC9BB99B5B66FC14F2D6FEDF98A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649153   (230392) от 26.07.2023
-
-Ю.Н. Дементьев и др. | Электротехника и электроника. Электрический привод (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230392.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии изложены основы теории электропривода. Рассматриваются принципы действия разомкнутых и замкнутых систем электроприводов постоянного и переменного тока. Представлена методика и примеры расчета параметров двигателей, статических и динамических характеристик электроприводов.
-Пособие предназначено для студентов, обучающихся по специальностям укрупненной группы (   Читать дальше...   )Жанр: Электротехника, электроникаИздательство: ПрофобразованиеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86908C64E1C2EF334EF40BC3689CBAA04E649629
 ```
 
 https://mybot314.ru/tekegram_catalog/

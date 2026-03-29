@@ -1,3 +1,109 @@
+###  Публикация: 1605380   (1044801) от 18.01.2023
+
+Очередное достижение: 1000 релизов от krochka1
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1044801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 1000 релизов от krochka1!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища krochka1 с 1000-м релизом! Спасибо за регулярное пополнение трекера отличной музыкой!
+От всей души поздравляем с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!  :pozdravlyayu:Надеюсь, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525728   (1044781) от 18.01.2023
+
+Терминатор 2: Судный день / Terminator 2: Judgment Day (1991) BDRip [H.264/1080p-LQ] [Extended Special Edition] [handmade remastered AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война роботов и людей продолжается. Казалось, что человечество обречено на полное уничтожение. Но благодаря своему лидеру Джону Коннору у сопротивления появляется шанс победить. Не имея возможности убить Джона в реальном времени, роботы отправляют в прошлое свою самую совершенную разработку - терминатора-убийцу из жидкого металла, способного принимать любое обличье. (   Читать дальше...   )Производство: США, Франция / Carolco Pictures, Pacific Western, Lightstorm Entertainment, Canal+Жанр: Фантастика, Боевик, ТриллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Линда Хэмилтон, Эдвард Ферлонг, Роберт Патрик, Эрл Боэн, Джо Мортон, С. Ипейта Меркерсон, Кастуло Герра, Дэнни Кукси, Дженетт ГолдстинПеревод: Дублированный (со вставками MVO от Позитив)Субтитры: Русские, английскиеПродолжительность: 02:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D622CE2168EF6439B7607B07B6F6F17847E08C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605724   (1044662) от 19.01.2023
+
+Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2023) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 SP1, включающая в себя 13 русских редакций и 13 английских редакций x86/x64, с обновлениями по 01.2023, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F8E7C2D834287D0991F28BAC8709EFBD9BA7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536159   (1044659) от 19.01.2023
+
+Многоавторский сборник | Серия супер-крупных книг «Diximir» (старое название: «Абсолют») [62 книг] (2018-2023) [FB2, PDF] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия супер-крупных книг «Diximir» (старое название: «Абсолют»), на сегодняшний день наиболее мощное собрание компиляций в сети. В каждом томе собраны все произведения одного из представленных авторов, а их в серии очень много и все они являются признанными литературными мэтрами.
+Книги изготовлены мастером Diximir на очень высоком уровне, как в чисто техническом (   Читать дальше...   )Жанр: МногожанровыйИздательство: Интернет издательство «Diximir»Формат: FB2, PDFКачество: Изначально электронное (ebook), обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A586EEABB72CDB39F71C97AF475ED045B9BAABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606237   (1044479) от 21.01.2023
 
 Очередное достижение: 5000 релизов от ishutinow
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044479.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ VivaVideo Video Editor v9.7.5 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044456.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Windows 10 PE (x86/x64) by Ratiborus v.3.2023 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044343.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (01.2023) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044094.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Windows 11 3in1 x64 22Н2 (build 22621.1105) by ivandubskoj 26.01.2023 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043871.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ Adobe Photoshop 2022 23.5.4.981 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1043764.jpg" />
+  <img src="Z:/picture/005/save_picture_1043764.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Wondershare Filmora 12.0.12.1450 + Plug-ins (x64) RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043195.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042910.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042909.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042907.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ Comedy Woman (2008-2019) SATRip/WEBRip/TVRip [Выпуск: 1-231]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042903.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042718.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042696.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042626.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042582.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ Parallels Desktop for Mac 9.0.23062.920702 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042568.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042566.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042326.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042314.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042311.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042309.jpg" />
 </div>
 
 
@@ -556,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042062.jpg" />
 </div>
 
 
@@ -567,112 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8AA02CEDD2162E26B5E1B53DBEFF0ABF44CFAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437254   (1041870) от 05.01.2021
-
-Понимают ли кошки и собаки, что хвост – часть их тела. Мнение ученых
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди впускают кошек и собак в дома, позволяют им играть с детьми и делают их частью семьи. В какой-то момент собаки или кошки набрасываются на собственный хвост и с яростью «рвут» его зубами. Затем они снова возвращаются к использованию хвоста для выражения эмоций, будто ничего не произошло. Так в чем же дело? Неужели кошки и собаки настолько глупы, чтобы думать, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437482   (1041862) от 05.01.2021
-
-Карл Маркс | Капитал. Полная квинтэссенция 3-х томов (2019) [EPUB]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041862.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Капитал» – главный труд немецкого экономиста и политического деятеля Карла Маркса, несомненно, оказавший влияние на мировую историю. Данное издание – это основные положения и идеи содержащиеся в «Капитале», обработанные немецким экономистом и политиком Ю. Борхардтом. Как отмечает сам Борхардт, ему «удалось передать теорию учения в правильной форме», что «дает ключ (   Читать дальше...   )Жанр: Зарубежная классика, Книги по экономикеПеревод: С. АлексеевФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BC907A56E994581B65199F1BBE05D415A62EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695623   (1041825) от 05.01.2021
-
-Почемучка. Астрономия (2013) DVBRip/WEB-DLRip/IPTVRip (5 сезон: 26 из 26 серий) [обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже знакомые зрителям канала «Карусель» персонажи программы «Почемучка» решают изучить мир, который находится за пределами их обычного жилья — старого компьютера.
-Более того, Процессор, Бит, Байт, Память, Контроллер и Вирус хотят изучить мир, находящийся за пределами планеты Земля.
-Их интересуют вопросы, которые задает каждый человек, поднимая глаза к небу: «Что (   Читать дальше...   )Производство: Россия, ООО "Пилот Тэ Вэ", ВГТРКЖанр: Детский, ОбучающийРежиссер: Родион СоловьёвАктеры: Сергей Лобанков, Борис ЛютиковПродолжительность: 26 x ~ 00:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D6B486CC311CA8B2613CA1B83E1CC75D0548F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437446   (1041824) от 05.01.2021
-
-Anno 1800 (2020) [Ru/Multi] (9.2/dlc) Uplay-Rip InsaneRamZes [Complete Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anno 1800 – возглавьте промышленную революцию! Anno 1800 перенесет игроков в XIX век, в мир запутанных политических интриг и стремительно развивающихся технологий. Придется приложить максимум усилий, чтобы отточить способности к управлению и справиться с основной задачей - построить собственную империю, влияние которой распространится от туманных городов Европы до (   Читать дальше...   )Тип издания: Uplay-RipРазработчик: Blue ByteЖанр: Strategy, SimulatorЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B3FF9766A938EE413DD9D153DC02D04E96DB87
 ```
 
 https://mybot314.ru/tekegram_catalog/

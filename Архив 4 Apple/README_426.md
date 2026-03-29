@@ -1,3 +1,109 @@
+###  Публикация: 1577856   (352432) от 20.09.2022
+
+Clipboard Manager 2.3.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер истории буфера обмена для Mac.
+Сохраняет все, что вы копируете для последующего использования.
+Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2016-2022 Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E98EAE6A24B39A25ABA0261306C83BB1CB4C61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577883   (352322) от 20.09.2022
+
+SILKYPIX Developer Studio Pro 11 v.11.0.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352322.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2022, Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9166C5D8EE3B7F3F66A65A31654F28702680D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577864   (352317) от 20.09.2022
+
+SponsorBlock for YouTube 5.0.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352317.jpg" />
+</div>
+
+
+###  Подробнее
+
+SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2022Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656547B0C9270AA2F69EAE2B66C89F51FAC09F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577859   (352315) от 20.09.2022
+
+rcmd • App Switcher 2.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переосмысленная вкладка Command. Мы переосмыслили Command-Tab, чтобы переключать приложения без суеты.Тип издания: macOS SoftwareРелиз состоялся: 19.09.2022Разработчик: © 2022 The low-tech guysПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E2076171E9272F5F92A9A9212605917856406E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577787   (352308) от 20.09.2022
 
 iToolab FixGo 3.1.0 [En]
@@ -6,7 +112,7 @@ iToolab FixGo 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352308.jpg" />
+  <img src="Z:/picture/008/save_picture_352308.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ Vectoraster 7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352283.jpg" />
+  <img src="Z:/picture/008/save_picture_352283.jpg" />
 </div>
 
 
@@ -63,7 +169,7 @@ JustStream PRO 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352201.jpg" />
+  <img src="Z:/picture/008/save_picture_352201.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ Beyond Compare 4 v.4.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352194.jpg" />
+  <img src="Z:/picture/008/save_picture_352194.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ IconJar 1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352108.jpg" />
+  <img src="Z:/picture/008/save_picture_352108.jpg" />
 </div>
 
 
@@ -145,7 +251,7 @@ Path Finder 8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351998.jpg" />
+  <img src="Z:/picture/008/save_picture_351998.jpg" />
 </div>
 
 
@@ -171,7 +277,7 @@ QuickRes 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351992.jpg" />
+  <img src="Z:/picture/008/save_picture_351992.jpg" />
 </div>
 
 
@@ -197,7 +303,7 @@ Tweak Photos 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351991.jpg" />
+  <img src="Z:/picture/008/save_picture_351991.jpg" />
 </div>
 
 
@@ -225,7 +331,7 @@ iVI Video Converter 4 v4.620 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351990.jpg" />
+  <img src="Z:/picture/008/save_picture_351990.jpg" />
 </div>
 
 
@@ -252,7 +358,7 @@ ProPresenter 6 v6.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351988.jpg" />
+  <img src="Z:/picture/008/save_picture_351988.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ Grids for Instagram 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351890.jpg" />
+  <img src="Z:/picture/008/save_picture_351890.jpg" />
 </div>
 
 
@@ -305,7 +411,7 @@ Things 3.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351882.jpg" />
+  <img src="Z:/picture/008/save_picture_351882.jpg" />
 </div>
 
 
@@ -333,7 +439,7 @@ Mirror for LG TV 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351815.jpg" />
+  <img src="Z:/picture/008/save_picture_351815.jpg" />
 </div>
 
 
@@ -362,7 +468,7 @@ VueScan Pro 9.6.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351810.jpg" />
+  <img src="Z:/picture/008/save_picture_351810.jpg" />
 </div>
 
 
@@ -388,7 +494,7 @@ Doo - Get Things Done 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351524.jpg" />
+  <img src="Z:/picture/008/save_picture_351524.jpg" />
 </div>
 
 
@@ -417,7 +523,7 @@ Downie 3.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351517.jpg" />
+  <img src="Z:/picture/008/save_picture_351517.jpg" />
 </div>
 
 
@@ -446,7 +552,7 @@ ProFind 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351490.jpg" />
+  <img src="Z:/picture/008/save_picture_351490.jpg" />
 </div>
 
 
@@ -472,7 +578,7 @@ Coherence X 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351489.jpg" />
+  <img src="Z:/picture/008/save_picture_351489.jpg" />
 </div>
 
 
@@ -498,7 +604,7 @@ Loopback 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351487.jpg" />
+  <img src="Z:/picture/008/save_picture_351487.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ FigrCollage 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351486.jpg" />
+  <img src="Z:/picture/008/save_picture_351486.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ BlueHarvest 8 v8.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351485.jpg" />
+  <img src="Z:/picture/008/save_picture_351485.jpg" />
 </div>
 
 
@@ -580,7 +686,7 @@ Cisdem Duplicate Finder 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351484.jpg" />
+  <img src="Z:/picture/008/save_picture_351484.jpg" />
 </div>
 
 
@@ -593,114 +699,6 @@ Cisdem Duplicate Finder - поиск дубликатов и их удалени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A15005BA467810CDA77ADA75BAFED8CB1ACCE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418218   (351480) от 23.10.2020
-
-RightFont 5 v5.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное приложение для управления шрифтами, которое может использовать любой пользователь.
-RightFont - менеджер шрифтов с красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам легко управлять всеми своими шрифтами. B RightFont 5. наконец-то появилась библиотека шрифтов. Теперь вы можете организовывать шрифты и шрифты в библиотеке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2020Разработчик: Markly TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA4FEAFCF38B1CA40609B89E9A86A2794059087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953068   (351432) от 03.11.2015
-
-Vox 2.6.3 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vox - небольшой и очень простой в использовании аудиоплейер для Mac OS X, который является неплохой альтернативой iTunes. Проигрыватель умеет работать с огромным количеством поддерживаемых форматов (FLAC, MP3, AAC, Musepack, Monkey’s Audio, OGG Vorbis, Apple Lossless, AIFF, WAV и др.), распознает различные форматы плейлистов (PLS, M3U, XSPF, CUE), может воспроизводить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 ноября 2015Разработчик: Coppertino Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1038D1F1D9FC9CB3FC1EB71BB6B92D4E02152A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953110   (351430) от 03.11.2015
-
-Dash 3.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash  - браузер документации и примеров кода
-Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2015Разработчик: Bogdan PopescuПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAD5B975E7D20F19046B76152661BB4A99236CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953111   (351416) от 03.11.2015
-
-Movist 1.3.18 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-
-Movist больше не поддерживает декодер QuickTime, только FFmpeg. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 ноября 2015Разработчик: MovistПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E14FFC7BB2D21FCFDF053B0857250735DA466E
 ```
 
 https://mybot314.ru/tekegram_catalog/

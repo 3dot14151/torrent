@@ -1,3 +1,32 @@
+###  Публикация: 1242655   (496028) от 25.08.2018
+
+Stereophonics - Decade in the Sun: The Best of Stereophonics (2008) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, British Trad Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madame Helga (3:54)
+02. Bank Holiday Monday (3:12)
+03. Rewind (4:27)
+04. My Friends (3:36)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, British Trad Rock |Продолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AAC67C21EE8671C95867D079545430D4959375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541967   (493157) от 06.09.2012
 
 Archive - With Us Until You're Dead (2012) Special Edition [FLAC|Lossless]<Alternative Rock, Downtempo, Indie Rock>
@@ -6,7 +35,7 @@ Archive - With Us Until You're Dead (2012) Special Edition [FLAC|Lossless]<Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493157.jpg" />
+  <img src="Z:/picture/008/save_picture_493157.jpg" />
 </div>
 
 
@@ -43,7 +72,7 @@ Gene Loves Jezebel - Voodoo Dollies: The Best Of Gene Loves Jezebel (1999) [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492841.jpg" />
+  <img src="Z:/picture/008/save_picture_492841.jpg" />
 </div>
 
 
@@ -72,7 +101,7 @@ Elliott Smith - Figure 8 (2000) 50th Birthday Deluxe Edition, 2019, UMG Recordin
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492836.jpg" />
+  <img src="Z:/picture/008/save_picture_492836.jpg" />
 </div>
 
 
@@ -101,7 +130,7 @@ The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492237.jpg" />
+  <img src="Z:/picture/008/save_picture_492237.jpg" />
 </div>
 
 
@@ -130,7 +159,7 @@ The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492114.jpg" />
+  <img src="Z:/picture/008/save_picture_492114.jpg" />
 </div>
 
 
@@ -159,7 +188,7 @@ Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491531.jpg" />
+  <img src="Z:/picture/008/save_picture_491531.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ Spun Out - Touch the Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491477.jpg" />
+  <img src="Z:/picture/008/save_picture_491477.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ Glasswork - Metabole (2020) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491475.jpg" />
+  <img src="Z:/picture/008/save_picture_491475.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ The All-American Rejects - Rejects Faves (2020) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491312.jpg" />
+  <img src="Z:/picture/008/save_picture_491312.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Guided by Voices - Mirrored Aztec (2020) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491179.jpg" />
+  <img src="Z:/picture/008/save_picture_491179.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490868.jpg" />
+  <img src="Z:/picture/008/save_picture_490868.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ Palisades - Reaching Hypercritical (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490440.jpg" />
+  <img src="Z:/picture/008/save_picture_490440.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ Baxter Dury - It's a Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490336.jpg" />
+  <img src="Z:/picture/008/save_picture_490336.jpg" />
 </div>
 
 
@@ -397,7 +426,7 @@ Snow Patrol - Reworked (EP1) (2019) EP [FLAC|Lossless|tracks] <Indie Pop, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488733.jpg" />
+  <img src="Z:/picture/008/save_picture_488733.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ Callejon - Metropolis (2020) [FLAC|Lossless|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487285.jpg" />
+  <img src="Z:/picture/008/save_picture_487285.jpg" />
 </div>
 
 
@@ -455,7 +484,7 @@ From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487131.jpg" />
+  <img src="Z:/picture/008/save_picture_487131.jpg" />
 </div>
 
 
@@ -484,7 +513,7 @@ Hawksley Workman - Median Age Wasteland (2019) [FLAC|Lossless|tracks + .cue] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484798.jpg" />
+  <img src="Z:/picture/008/save_picture_484798.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ Blisses B - Tell Your Friends You Love Them And Why (2019) [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484793.jpg" />
+  <img src="Z:/picture/008/save_picture_484793.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ Operators - Radiant Dawn (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Synth
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484790.jpg" />
+  <img src="Z:/picture/008/save_picture_484790.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ Hapax - Monade (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, Gothic Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484727.jpg" />
+  <img src="Z:/picture/008/save_picture_484727.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ Point North - Brand New Vision (2020) [FLAC|Lossless|tracks] <Alternative, Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483548.jpg" />
+  <img src="Z:/picture/008/save_picture_483548.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ Louise Connell - Squall Echo Rale (2019) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481225.jpg" />
+  <img src="Z:/picture/008/save_picture_481225.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ Mermaidens - Look Me In The Eye (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481223.jpg" />
+  <img src="Z:/picture/008/save_picture_481223.jpg" />
 </div>
 
 
@@ -687,7 +716,7 @@ Chumbawamba - Tubthumper (1997) [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481215.jpg" />
+  <img src="Z:/picture/008/save_picture_481215.jpg" />
 </div>
 
 
@@ -716,7 +745,7 @@ Taking Back Sunday - Tidal Wave (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479610.jpg" />
+  <img src="Z:/picture/008/save_picture_479610.jpg" />
 </div>
 
 
@@ -730,35 +759,6 @@ Taking Back Sunday - Tidal Wave (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3AC681B080D48CE84B0B9FE0863E0BF1419893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124934   (475640) от 04.09.2018
-
-Milky Chance - Blossom (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blossom (04:12)
-02. Ego (03:52)
-03. Firebird (03:41)
-04. Doing Good (04:10)(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6755230D4FF190997E0C3B19F957060C88233D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Shotcut 20.04.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861795.jpg" />
+  <img src="Z:/picture/008/save_picture_861795.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.37 Build 9 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861701.jpg" />
+  <img src="Z:/picture/008/save_picture_861701.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BlueStacks App Player 4.190.10.5004 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861700.jpg" />
+  <img src="Z:/picture/008/save_picture_861700.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rufus 3.10 (Build 1642) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861690.jpg" />
+  <img src="Z:/picture/008/save_picture_861690.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ App Builder 2020.69 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861688.jpg" />
+  <img src="Z:/picture/008/save_picture_861688.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Infix PDF Editor Pro 7.5.1 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861687.jpg" />
+  <img src="Z:/picture/008/save_picture_861687.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VirtualBox 6.1.6 Build 137129 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861620.jpg" />
+  <img src="Z:/picture/008/save_picture_861620.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Skype 8.59.0.77 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861617.jpg" />
+  <img src="Z:/picture/008/save_picture_861617.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NVIDIA GeForce Desktop 445.87 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861615.jpg" />
+  <img src="Z:/picture/008/save_picture_861615.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Symantec Endpoint Protection 14.2.2.1 (14.2 RU2 MP1 refresh) build 5587 (14.2.55
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861612.jpg" />
+  <img src="Z:/picture/008/save_picture_861612.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Sweet Home 3D 6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861606.jpg" />
+  <img src="Z:/picture/008/save_picture_861606.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861542.jpg" />
+  <img src="Z:/picture/008/save_picture_861542.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Movavi Screen Recorder 11.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861537.jpg" />
+  <img src="Z:/picture/008/save_picture_861537.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Windows 8.1 6.3 (Build 9600.19678) (24in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861536.jpg" />
+  <img src="Z:/picture/008/save_picture_861536.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Total Commander 9.51 mak pack by mak [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861531.jpg" />
+  <img src="Z:/picture/008/save_picture_861531.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Kaspersky Internet Security 2020 20.0.14.1085 (h) (без KSC) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861530.jpg" />
+  <img src="Z:/picture/008/save_picture_861530.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Windows 8.1 40in1 (x86/x64) +/- Office 2019 by Eagle123 (04.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861529.jpg" />
+  <img src="Z:/picture/008/save_picture_861529.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ FPS Monitor 5230 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861459.jpg" />
+  <img src="Z:/picture/008/save_picture_861459.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861457.jpg" />
+  <img src="Z:/picture/008/save_picture_861457.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Kaspersky Total Security 2020 20.0.14.1085 (h) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861451.jpg" />
+  <img src="Z:/picture/008/save_picture_861451.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Advanced SystemCare Ultimate с Антивирусом 13.2.0.131 (акция CO
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861450.jpg" />
+  <img src="Z:/picture/008/save_picture_861450.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Windows 7 SP1 6.1 (Build 7601.24552) (13in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861449.jpg" />
+  <img src="Z:/picture/008/save_picture_861449.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ MobaXterm 20.2 build 4296 + Portable[En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861444.jpg" />
+  <img src="Z:/picture/008/save_picture_861444.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Uninstall Tool 3.5.10 Build 5670 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861439.jpg" />
+  <img src="Z:/picture/008/save_picture_861439.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861438.jpg" />
+  <img src="Z:/picture/008/save_picture_861438.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Opera 79.0.4143.56 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861252.jpg" />
+  <img src="Z:/picture/008/save_picture_861252.jpg" />
 </div>
 
 

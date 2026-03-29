@@ -1,3 +1,107 @@
+###  Публикация: 1035317   (628186) от 16.07.2016
+
+Суперсооружения Третьего рейха - 3 / Nazi Megastructures (Megastructures: Nazi Mega Weapons) - 3 (2016) HDTVRip [H.264/720p-LQ] (Сезон 3, Серии: 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628186.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стремлении к мировому господству нацисты построили некоторые из самых амбициозных и прогрессивных образцов боевой техники, а также разработали самые злодейские технологии в истории; создали продвинутые машины террора, огромные оборонительные системы и оружие массового уничтожения, чтобы завоевать континент и выиграть войну. Этот сериал о Второй Мировой войне рассказывает (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, война, историяПеревод: ДублированныйПродолжительность: 6 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8080377E22B8178BE4E576A3F7D73F25B1D766A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229371   (628077) от 05.06.2018
+
+NGW: Крупные рыбы Зэба: нашествие акул-молотов / Monster Fish. Zeb's Big Fish (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зеб Хоган направляется в тропические Багамы, чтобы отважно исследовать прибрежные воды этого архипелага, в которых обитают одни из крупнейших в мире популяций акул.Производство: Сингапур, Infocus Asia, LLC for National GeographicЖанр: Документальный, экстрим, рыбалкаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E261F253332193F0119D95978F7AC69E70AAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229377   (628065) от 05.06.2018
+
+NGW: Империя гризли / Grizzly Empire (2015) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628065.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме запечатлена жизнь гризли, огромных медведей, чья популяция находится под угрозой вымирания.Производство: США, National Geographic StudiosЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A3D109A9582AA845088123C4865D01C1468148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229249   (627677) от 05.06.2018
+
+NG: Неизвестная планета Земля / One Strange Rock (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычайная история Земли и почему она необыкновенно наполнена жизнью в значительной части неизвестной, но суровой космической арены; астронавты рассказывают историю Земли с помощью уникальной перспективы.Производство: США, Nutopia, Protozoa PicturesЖанр: Документальный, познавательный, научно-популярныйРежиссер: Грэхэм Бут, Нат Шарман, Ник Шулингин-Иордания, Ник Стэйси, Элис Джонс, Кристофер РайлиПеревод: Одноголосый профессиональный (Велес), VO D1 (D1production)Субтитры: отсутствуютПродолжительность: серии x ~00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20FA292A747F27B71B0F115F8022829CE4E9EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543775   (627462) от 12.04.2022
 
 NG. Шершни из ада / Hornets from hell (2002) DVDRip
@@ -6,7 +110,7 @@ NG. Шершни из ада / Hornets from hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627462.jpg" />
+  <img src="Z:/picture/008/save_picture_627462.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: С точки зрения науки. Тайна возникновения
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626591.jpg" />
+  <img src="Z:/picture/008/save_picture_626591.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626330.jpg" />
+  <img src="Z:/picture/008/save_picture_626330.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626175.jpg" />
+  <img src="Z:/picture/008/save_picture_626175.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626165.jpg" />
+  <img src="Z:/picture/008/save_picture_626165.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ NGW: Дикая природа Ирана / Iran's Wild Side (2018) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625808.jpg" />
+  <img src="Z:/picture/008/save_picture_625808.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ NG. Осушить Титаник / Drain the Titanic (2015) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625423.jpg" />
+  <img src="Z:/picture/008/save_picture_625423.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624435.jpg" />
+  <img src="Z:/picture/008/save_picture_624435.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ NGW: Гризли Аляски бросают вызов. Арктические
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624369.jpg" />
+  <img src="Z:/picture/008/save_picture_624369.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ NGW: Акулотрас / Sharkatraz (2016) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624365.jpg" />
+  <img src="Z:/picture/008/save_picture_624365.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624335.jpg" />
+  <img src="Z:/picture/008/save_picture_624335.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ NGW: Дикая природа: Остров Воскресения / Wild Life:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623978.jpg" />
+  <img src="Z:/picture/008/save_picture_623978.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ NG. Бушующие миры. Космический ветер / Storm Worlds.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623539.jpg" />
+  <img src="Z:/picture/008/save_picture_623539.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622348.jpg" />
+  <img src="Z:/picture/008/save_picture_622348.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ NG. Осушить Бермудский треугольник / Drain the Bermu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621561.jpg" />
+  <img src="Z:/picture/008/save_picture_621561.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621008.jpg" />
+  <img src="Z:/picture/008/save_picture_621008.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ NG: Когда сталкиваются континенты / When Continents C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620928.jpg" />
+  <img src="Z:/picture/008/save_picture_620928.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620738.jpg" />
+  <img src="Z:/picture/008/save_picture_620738.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ NG: В пещере кристаллов / Into the Crystal Cave (2010) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619502.jpg" />
+  <img src="Z:/picture/008/save_picture_619502.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ NG.Запреты: Экстремальное лечение / NG.Taboo: Freaky 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619126.jpg" />
+  <img src="Z:/picture/008/save_picture_619126.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618968.jpg" />
+  <img src="Z:/picture/008/save_picture_618968.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618964.jpg" />
+  <img src="Z:/picture/008/save_picture_618964.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BCED9C4BE651C8CE0C32C3E4446598AF640F106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522035   (618345) от 15.07.2012
-
-NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запреты. Мы заставляем вас забыть о комфорте и переносим через множество границ с огромным разнообразием культур, чтобы познакомить с необычными ритуалами и обрядами, которые для некоторых народов стали неотъемлемой частью повседневной жизни, а для некоторых считаются запретными и преследуются законом. Находясь на стыке правил современной жизни некоторых народов с их древними поверьями и перейдя границу между ними, сериал "Запреты" наглядно рассказывает о богатой мозаичной структуре и образе жизни многочисленных народностей мира и о ценностях, составляющих основу их культур. Это уже восьмой сезон интересного сериала " Запреты " или " Табу ".Жанр: Документальный, научно-познавательный, психология, исследованиеПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1CA6583DE39047B8FECC6262B3F0CF0A2D528B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910832   (617815) от 22.06.2015
-
-NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может ли инфекция стать причиной зомби-апокалипсиса? Эксперты объясняют, что может случиться, если мы столкнемся со смертельной болезнью.Телекомпания: NGC HDЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0150F82F89FFA53703CB4BCD0ECC21199DD8455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 673070   (616957) от 22.07.2016
-
-NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts of Machu Picchu) (2010) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расположенный на вершине горного хребта на высоте 2450 метров над уровнем моря и покинутый своими жителями почти пять столетий назад при загадочных обстоятельствах, город Мачу-Пикчу является одним из самых знаменитых археологических памятников Западного полушария, а так же символом власти и инженерного мастерства инков. Как люди, не знавшие ни железа, ни колеса, (   Читать дальше...   )Жанр: Документальный, научно-познавательный, история, исследованиеПеревод: Двухголосый закадровый (профессиональный)Субтитры: вшитыеЯзык субтитров: английскийПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295875   (616842) от 14.04.2019
-
-NG: Осушить океан: глубокое погружение. Затонувшие военные корабли / Drain the Oceans: Deep Dive. Sunken Warships (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под поверхностью морей и океанов лежит целое кладбище затонувших военных кораблей. Морское дно буквально усеяно обломками судов, принимавших участие в Первой и Второй мировых войнах. Среди них и самые крупные из когда-либо построенных военных кораблей. Но свидетельства кораблекрушений скрыты глубоко под водой, и истинные истории этих событий остаются пока окутанными (   Читать дальше...   )Производство: Великобритания, Австралия, Mallinson Sadler Productions, Electric Pictures, National GeographicЖанр: Документальный, история, исследованияРежиссер: Софи Элвин Харрис, Майкл ДивайсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63709DD3A34E095046D0E0BFCE91DBBD7488C276
 ```
 
 https://mybot314.ru/tekegram_catalog/

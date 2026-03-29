@@ -6,7 +6,7 @@ Doom 3 BFG Edition [En/Ru] (P) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349928.jpg" />
+  <img src="Z:/picture/008/save_picture_349928.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Hitman Absolution [PS3] [ENG] [PAL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349792.jpg" />
+  <img src="Z:/picture/008/save_picture_349792.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349747.jpg" />
+  <img src="Z:/picture/008/save_picture_349747.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Hitman: Absolution [Ru/En/Multi8] (RePack/1.0.433.1) 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349668.jpg" />
+  <img src="Z:/picture/008/save_picture_349668.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wolfenstein II (2017) [Ru/Multi] (1.0/u1) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348498.jpg" />
+  <img src="Z:/picture/008/save_picture_348498.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Domino Rally [Wii] [ENG] [NTSC] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348102.jpg" />
+  <img src="Z:/picture/008/save_picture_348102.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Gray Matter / Gray Matter: Призраки подсознания [En] (L) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_348081.jpg" />
+  <img src="Z:/picture/005/save_picture_348081.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Tom Clancy's H.A.W.X. 2 [Multi6\-] (L) 2010 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_347678.jpg" />
+  <img src="Z:/picture/005/save_picture_347678.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Family Guy: Back to the Multiverse [En/Multi4] (Repack/1.0) 2012 |  R.G. ReCodin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347501.jpg" />
+  <img src="Z:/picture/008/save_picture_347501.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Devil May Cry [XBOX360] [Ru] [Region Free] [DEMO] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347385.jpg" />
+  <img src="Z:/picture/008/save_picture_347385.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Noita (2019) [Ru/Multi] (01.10.19) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347305.jpg" />
+  <img src="Z:/picture/008/save_picture_347305.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_347249.jpg" />
+  <img src="Z:/picture/005/save_picture_347249.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.019854) Repack FAIRLIGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347153.jpg" />
+  <img src="Z:/picture/008/save_picture_347153.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Outlast (2013) [Ru/Multi] (1.0.11795.0) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347140.jpg" />
+  <img src="Z:/picture/008/save_picture_347140.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Hitman: Absolution (Crack/1.0) 2012 | POSTMORTEM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_347075.jpg" />
+  <img src="Z:/picture/005/save_picture_347075.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Medal Of Honor.Warfighter:Digital Deluxe [Ru] (Repack/1.0.0.2/3 DLC) 2012 | Yell
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_347062.jpg" />
+  <img src="Z:/picture/005/save_picture_347062.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Runes of Magic [Ru] (L) 2009
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345014.jpg" />
+  <img src="Z:/picture/008/save_picture_345014.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Torchlight II [Ru/En/Multu1] (Steam-Rip/1.18.5.1) 2012 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_344990.jpg" />
+  <img src="Z:/picture/005/save_picture_344990.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ SCP - Containment Breach / SCP - Нарушение условий содерж�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_342035.jpg" />
+  <img src="Z:/picture/005/save_picture_342035.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340178.jpg" />
+  <img src="Z:/picture/008/save_picture_340178.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Anomaly: Warzone Earth / Аномалия: Поле битвы Земля [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339489.jpg" />
+  <img src="Z:/picture/008/save_picture_339489.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fallout Collection [Ru/En] (Steam-Rip) 1997 - 2010 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339382.jpg" />
+  <img src="Z:/picture/008/save_picture_339382.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ King's Bounty Dark Side / King's Bounty Темная Сторона (2014) [Ru/M
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339065.jpg" />
+  <img src="Z:/picture/008/save_picture_339065.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Lethis - Path of Progress (2015) [En/Multi] (1.2) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338957.jpg" />
+  <img src="Z:/picture/008/save_picture_338957.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Far Cry 3 [xbox 360] [eng] [Region Free] [XGD3] [LT+ 3.0] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337295.jpg" />
+  <img src="Z:/picture/008/save_picture_337295.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Anno 2205 (2015) [Ru/Ml] (1.1.2124.38702/dlc) Repack R.G. Games [Gold Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336550.jpg" />
+  <img src="Z:/picture/008/save_picture_336550.jpg" />
 </div>
 
 

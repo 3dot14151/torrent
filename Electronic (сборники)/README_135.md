@@ -1,3 +1,58 @@
+###  Публикация: 545582   (480387) от 12.09.2012
+
+VA - Record Superchart № 257 (08.09.2012) [MP3|320 кб/с]<Electro House / Trance / Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro House / Trance / DanceПродолжительность: 02:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11DB64F088C7015590D168632883893E335ED32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938547   (479997) от 19.09.2015
+
+VA - Trance Desire Volume 55 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn & Eskova - One More Night (Original Mix) (07:46)
+02. Meridian And Vidoven With Tiff Lacey - Phoenix (Original Mix) (07:39)
+03. Andy Moor & Somna feat. Amy Kirkpatrick - One Thing About You (Original Mix) (05:54)
+04. Emma Louise - 17 Hours (Luigi Lusini Remix) (06:36)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D709929AA43DF7516D8BEE16234BBF24EC7EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159939   (479942) от 22.08.2017
 
 VA - Festival Tropical Fiesta (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -6,7 +61,7 @@ VA - Festival Tropical Fiesta (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479942.jpg" />
+  <img src="Z:/picture/008/save_picture_479942.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ VA - Beatport Trance Pack (25.09.) (2016) [MP3|320 Kbps] <Trance, Energy, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479726.jpg" />
+  <img src="Z:/picture/008/save_picture_479726.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ VA - TOP DJs Trance Sounds Melody World (2016) [MP3|320 Kbps] <Trance, Melodic, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479626.jpg" />
+  <img src="Z:/picture/008/save_picture_479626.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ VA - 125 Melodic Trance Skyline (2016) [MP3|320 Kbps] <Trance, Melodic, Emotiona
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479611.jpg" />
+  <img src="Z:/picture/008/save_picture_479611.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ VA - Beatport Psy Trance: Electro Sound Pack #162 (2020) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479383.jpg" />
+  <img src="Z:/picture/008/save_picture_479383.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ VA - Cosmic Heaven: Future House / Electronic (2020) [MP3|320 Kbps] <EDM, Future
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479267.jpg" />
+  <img src="Z:/picture/008/save_picture_479267.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ VA - Beatport Techno: Electro Sound Pack #160 (2020) [MP3|320 Kbps] <Techno, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478981.jpg" />
+  <img src="Z:/picture/008/save_picture_478981.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ VA - Beatport Trance: Electro Sound Pack #161 (2020) [MP3|320 Kbps] <Trance, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478832.jpg" />
+  <img src="Z:/picture/008/save_picture_478832.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ Joe Kelly & Heavyweight Recordings - Best Of In The Mix (2022) Mixed by aQuaLuna
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478502.jpg" />
+  <img src="Z:/picture/008/save_picture_478502.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ VA - Trance Nation: The Vocal Session (2017) [MP3|320 Kbps] <Vocal Trance, Uplif
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478187.jpg" />
+  <img src="Z:/picture/008/save_picture_478187.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ VA - World Chillout - Bestsellers (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478152.jpg" />
+  <img src="Z:/picture/008/save_picture_478152.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ VA - World Chillout - Bestsellers second edition (2015) [MP3|320 кб/с]<Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478147.jpg" />
+  <img src="Z:/picture/008/save_picture_478147.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ VA - Autumn Relaxation Moments Best of Chillout and Lounge for the Fall and Late
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478026.jpg" />
+  <img src="Z:/picture/008/save_picture_478026.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ VA - Deep House Excitation Two - 15 Finest Deep-and Chillhouse Tunes (2015) [MP3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478023.jpg" />
+  <img src="Z:/picture/008/save_picture_478023.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ VA - Atom 19.0 (Compiled and mixed by Deeper82) (2015) [MP3|320 кб/с]<Atmosph
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478022.jpg" />
+  <img src="Z:/picture/008/save_picture_478022.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ VA - TOP Non-Stop 2010-2015 - Lounge & Chillout (2010-2015) [MP3|192 кб/с]<Ch
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478014.jpg" />
+  <img src="Z:/picture/008/save_picture_478014.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ VA - Deep House and Techno - Dream Selection 2010-2015 vol.2 (2010-2015) [MP3|25
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477794.jpg" />
+  <img src="Z:/picture/008/save_picture_477794.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ VA - Luxury Lounge (2016) [MP3|320 Kbps] <Lounge, Dountempo, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477616.jpg" />
+  <img src="Z:/picture/008/save_picture_477616.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ VA - Record Super Chart #455 (2016) [MP3|320 Kbps] <House, Electro House, Future
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477610.jpg" />
+  <img src="Z:/picture/008/save_picture_477610.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ VA - Beatport Psychedelic Trance: Electro Sound Pack #167 (2020) [MP3|320 Kbps] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477595.jpg" />
+  <img src="Z:/picture/008/save_picture_477595.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ VA - Happy Disco House (2020) [MP3|320 Kbps] <Funky, Disco House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477483.jpg" />
+  <img src="Z:/picture/008/save_picture_477483.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ VA - Beatport Progressive House: Electro Sound Pack #165 (2020) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477479.jpg" />
+  <img src="Z:/picture/008/save_picture_477479.jpg" />
 </div>
 
 
@@ -644,7 +699,7 @@ VA - Битва DJ: Dинамит vs. Бинокль (2007) [MP3|320 кб/с]<Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477076.jpg" />
+  <img src="Z:/picture/008/save_picture_477076.jpg" />
 </div>
 
 
@@ -679,7 +734,7 @@ VA - Вирус Bookings #1 (Июнь-Август 2004) 2CD (2004) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477071.jpg" />
+  <img src="Z:/picture/008/save_picture_477071.jpg" />
 </div>
 
 
@@ -693,67 +748,6 @@ CD1: (01:16:34)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D879125EC2EEA00BED66DE657669E17E29F4624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546841   (477070) от 14.09.2012
-
-VA - Trance Tattoe #23 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akira Kayosa & Bevan Miller fe - Phase 3 (Original Mix)
-02. Bartlett Bros., Matt Loki & Ti - Sweet Child (Fabio XB Rework)
-03. Cathy Burton & Omnia - Hearts Connected (Original Mix
-04. Dave Silcox feat. Amy Pearson - This Is Love
-05. Ehren Stowers - Enigma
-06. Faruk Sabanci & Mark Sixma - Starburst (Original Mix)
-07. MaRLo - Megalodon (Original Mix)
-08. Nash & Pepper pres. Ostrega - First Scream (Mike Foyle Remix
-09. Protoculture - Cobalt (Original Mix)
-10. Ralphie B. - Massive (James Dymond Rework)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A91E5526F783E8C524978E24503E4455A169FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547047   (477069) от 14.09.2012
-
-DJ Decibel - Be_Progressive (2006) [MP3|320 кб/с]<Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477069.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: Progressive TranceПродолжительность: 01:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4A4B3825DD3CD273BE4505A39D96033DED9FD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

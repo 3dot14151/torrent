@@ -6,7 +6,7 @@ Fatboy Slim - Halfway Between The Gutter & The Stars (15th Anniversary) (2015) [
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655169.jpg" />
+  <img src="Z:/picture/008/save_picture_655169.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wsahl - All Eyes On Wsahl (2017) [MP3|320 Kbps] <Breakbeat, Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653951.jpg" />
+  <img src="Z:/picture/008/save_picture_653951.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fatboy Slim - The Best Of (2019) [MP3|320 Kbps] <Electronic, Big Beat, Breakbeat
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644693.jpg" />
+  <img src="Z:/picture/008/save_picture_644693.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644461.jpg" />
+  <img src="Z:/picture/008/save_picture_644461.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ The Glitch Mob - Piece of the Indestructible EP (2015) [MP3|320 кб/с]<Electro
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643491.jpg" />
+  <img src="Z:/picture/008/save_picture_643491.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ DJ Sports - Modern Species (2017) [MP3|320 Kbps] <House, Jungle, Ambient>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639340.jpg" />
+  <img src="Z:/picture/008/save_picture_639340.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Spectrasoul - The Mistress (2015) [MP3|320 кб/с]<Electronic, Drum & Bass, Hip
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629759.jpg" />
+  <img src="Z:/picture/008/save_picture_629759.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Major Lazer - 3 Albums + 2 EP + Singles + Remixes + Bonus (2009-2015) [MP3|320 �
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627390.jpg" />
+  <img src="Z:/picture/008/save_picture_627390.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Hybrid Minds - Elements (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625641.jpg" />
+  <img src="Z:/picture/008/save_picture_625641.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Arch Origin - Soul Castle (2017) EP [MP3|320 Kbps] <Deep Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623900.jpg" />
+  <img src="Z:/picture/008/save_picture_623900.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ The Chemical Brothers - No Geography (2019) [MP3|320 Kbps] <Electronic, Breakbea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622055.jpg" />
+  <img src="Z:/picture/008/save_picture_622055.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Colombo - Beat Blender (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614230.jpg" />
+  <img src="Z:/picture/008/save_picture_614230.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Technique Summer (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606960.jpg" />
+  <img src="Z:/picture/008/save_picture_606960.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Bassnectar - Into The Sun (2015) [MP3|320 кб/с]<Dubstep, Future Bass, Trap>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597892.jpg" />
+  <img src="Z:/picture/008/save_picture_597892.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Pendulum - The Reworks (2018) [MP3|320 Kbps] <Drum'n'Bass / Electronic Rock>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593295.jpg" />
+  <img src="Z:/picture/008/save_picture_593295.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Sinister Souls - FCKN Hostile (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk, Cro
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591197.jpg" />
+  <img src="Z:/picture/008/save_picture_591197.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ The Chemical Brothers - Born In The Echoes (2015) [MP3|320 кб/с]<Breakbeat, E
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586768.jpg" />
+  <img src="Z:/picture/008/save_picture_586768.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [MP3|320 кб/�
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584713.jpg" />
+  <img src="Z:/picture/008/save_picture_584713.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Lukhash - The Other Side (2015) [MP3|320 кб/с]<Chiptune, Dubstep, Electronic,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577180.jpg" />
+  <img src="Z:/picture/008/save_picture_577180.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Mind Technologies Vol. 7 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576630.jpg" />
+  <img src="Z:/picture/008/save_picture_576630.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573843.jpg" />
+  <img src="Z:/picture/008/save_picture_573843.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Planet of the Bass (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560080.jpg" />
+  <img src="Z:/picture/008/save_picture_560080.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Technique Summer (100 Percent Drum and Bass) (2019) [MP3|320 Kbps] <Drum & 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559785.jpg" />
+  <img src="Z:/picture/008/save_picture_559785.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ S.P.Y - Dubplate Style (2019) [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555356.jpg" />
+  <img src="Z:/picture/008/save_picture_555356.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ The Chemical Brothers - No Geography (2019) Japanese Edition [MP3|320 Kbps] <Bre
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555331.jpg" />
+  <img src="Z:/picture/008/save_picture_555331.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Riya - Sublimation (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535380.jpg" />
+  <img src="Z:/picture/008/save_picture_535380.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1347085   (154253) от 22.12.2019
+
+Degreed - 4 альбома Discography (2010-2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2010 - Life Love Loss
+2013 - We Don't Belong
+2015 - Dead But Not Forgotten(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 03:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19BD7FD917CD56773A1FAA9C6EA8A026F59313D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577838   (154243) от 22.12.2020
+
+Gotthard - Firebirth (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlight
+02. Give me real
+03. Remember it´s me
+04. Fight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA877CD3496F976D01664D01F45DDC6BD7E4036F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347097   (154224) от 22.12.2019
 
 Badhoven - 3 альбома Discography (2001-2013) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Badhoven - 3 альбома Discography (2001-2013) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154224.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Casablanca - 3 альбома Discography (2012-2015) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154199.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Lost Circus - Lost Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154135.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Heartland - 13 альбомов Discography 14CD (1991-2011) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154072.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154056.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Pink Cream 69 - 18 альбомов Discography 20 CD (1989-2017) [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153992.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153867.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Yeah Bop Station - Upfront (1992) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153079.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Phil Koubek Project - I'm Your Rock Star (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153050.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Small Jackets - Just Like This! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152952.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Boudreaux - Fallen Angel (1994) Reissue, 2021, Metallic Blue Records [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152710.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Black Rose - Fortune Favours The Brave (1993) [FLAC|Lossless|tracks + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152364.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Cyanide - 21 Gun Salute (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152346.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Falcon Scream - Falcon Scream (1995) [FLAC|Lossless|image + .cue] <Hard Rock, He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152308.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Kiss - 25 Studio Albums, 11 Live, 15 Compilations, 5 Box Set (1974 - 2017) 158 C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151373.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Tyketto - Don't Come Easy (1991) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150937.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Tim Karr - Rubbin' Me The Right Way (1989) [APE|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150403.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Pat Travers and Carmine Appice - The Balls Album (2016) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150240.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Europe - Best ballads (1995) Compilation [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149871.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Heavy Pettin - Best Of (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148359.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Shy Tiger - Feed The Kitty/Tails Out (2018) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147591.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ David Coverdale - Whitesnake and Northwinds (1988) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147406.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Fortune - 3 альбома Discography (1993-1995) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146347.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Autumn's Child - Zenith (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145660.jpg" />
 </div>
 
 
@@ -693,70 +751,6 @@ Autumn's Child - Zenith (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D5945C08EF6A4B43C78A082EB96FEF7D848E3B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589860   (145413) от 16.12.2012
-
-Adler (ex-Guns N' Roses) - Back From The Dead (2012) [FLAC|Lossless]<Hard Rock / Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back from the Dead (04:18)
-02. Own Worst Enemy (03:23)
-03. Another Version of the Truth (03:26)
-04. The One That You Hated (03:07)
-05. Good to Be Bad (feat. John 5) (03:19)
-06. Just Don't Ask (feat. Slash) (04:51)
-07. Blown Away (03:07)
-08. Waterfall (03:56)
-09. Habit (03:23)
-10. Your Diamonds (04:09)(   Читать дальше...   )Жанр: Hard Rock / GlamПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970256   (142791) от 29.12.2015
-
-Deep Purple - Machine Head (1972) SACD, 2003 EMI [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway Star (6:08)
-02. Pictures of Home (5:05)
-03. Maybe I’m a Leo (4:52)
-04. Never Before (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB19FF5ED5A2363325919737D9409CD930A0A275
 ```
 
 https://mybot314.ru/tekegram_catalog/

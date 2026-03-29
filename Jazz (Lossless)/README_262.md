@@ -1,3 +1,119 @@
+###  Публикация: 1424799   (226278) от 18.11.2020
+
+Bobby Timmons - Quartets And Orchestra (1967, 1968) 2001, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Ain't Got It [3:19]
+02. Up Up and Away [4:11]
+03. Travelin' Light [5:10]
+04. Come Sunday [3:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E11338D942C16A23C249D11B3F2936CA4FF19CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424804   (226215) от 18.11.2020
+
+Oscar Peterson Trio - Tristeza On Piano (1970) 2005, MPS Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tristeza [3:16]
+02. Nightingale [6:48]
+03. Porgy [6:16]
+04. Triste [5:24](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EA45D22E3CD95F78742BBF501C6EADDC33EBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342193   (226147) от 01.12.2019
+
+Lu Watters' Yerba Buena Jazz Band - Air Shots From The Dawn Club 1941 - 1942 (1997) Merry Makers Record Company [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South [2:45]
+02. London Blues [2:59]
+03. The Wise Old Owl [2:18]
+04. Yerba Buena Shout [2:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891F1DC2C02C46D63B635994411DE570FBB16318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424805   (226089) от 18.11.2020
+
+Nino Tempo - Purveyor of Balladry: The Best Of Nino Tempo On Atlantic (1990 - 1993) 2018, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darn That Dream (Live) [4:56]
+02. This Masquerade (Instrumental Version) [3:57]
+03. Anyone Who Had a Heart [3:09]
+04. Amazon River (feat. April Stevens) [4:10](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0F3BBEF50D098F24FA785D7AEBA9AC0AE47E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650214   (226058) от 02.08.2023
 
 George Wallington Quintet - The New York Scene (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
@@ -6,7 +122,7 @@ George Wallington Quintet - The New York Scene (1957) 1992, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226058.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Earl Hines - Four Classic Albums Plus 1954 - 1961 (2015) 2CD, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226029.jpg" />
+  <img src="Z:/picture/005/save_picture_226029.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Kurushimi - What Is Chaos? (2018) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226020.jpg" />
+  <img src="Z:/picture/005/save_picture_226020.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Hank Mobley - Four Classic Albums (1958 - 1961) 2CD, 2017, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226017.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Fats Navarro - Nostalgia (1946, 1947) 1991, Savoy Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225972.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Aging - Suitable For Night (2017) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225948.jpg" />
+  <img src="Z:/picture/005/save_picture_225948.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Frank Wess, Kenny Burrell, Joe Newman - Jazz For Playboys (1956, 1957) 2000, Sav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225877.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Alexandra Shakina - All The Way (2020) Venus Records [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225832.jpg" />
+  <img src="Z:/picture/005/save_picture_225832.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - The Rat Pack: 50 Original Recordings (2007) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225783.jpg" />
+  <img src="Z:/picture/005/save_picture_225783.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The Mount Fuji Doomjazz Corporation - Егор (Egor) (2012) [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225781.jpg" />
+  <img src="Z:/picture/005/save_picture_225781.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Alexandra Shakina - Mood Indigo (2021) Japanese Edition [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225653.jpg" />
+  <img src="Z:/picture/005/save_picture_225653.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Andre Previn & David Rose - Like Blue (1959) 2010, Hallmark [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225620.jpg" />
+  <img src="Z:/picture/005/save_picture_225620.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Brian Bromberg - The Magic of Moonlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225458.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Erika Paul - Jazz Just For Kids (2021) Jazz Q [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225402.jpg" />
+  <img src="Z:/picture/005/save_picture_225402.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Hal Singer With Charlie Shavers - Blue Stompin' (1957) 1994, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225014.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Martin Salemi - About Time (2021) Igloo [APE|Lossless|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224793.jpg" />
+  <img src="Z:/picture/005/save_picture_224793.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ De-Phazz - Jelly Banquet (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224652.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Ella Fitzgerald - The Complete 1960-1961 Ella in Berlin (2017) Essential Jazz Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224482.jpg" />
+  <img src="Z:/picture/005/save_picture_224482.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Eddie Condon featuring Wild Bill Davison 1951 - 1952 - Dr. Jazz Series, Vol. 5 (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224230.jpg" />
+  <img src="Z:/picture/005/save_picture_224230.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - The Complete Felsted Mainstream Collection (1958, 1959) 5CD, 2011, Solar Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224140.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Cory Weeds - What is There to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224045.jpg" />
+  <img src="Z:/picture/005/save_picture_224045.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Kurt Elling - SuperBlue (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz,Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224024.jpg" />
+  <img src="Z:/picture/005/save_picture_224024.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Kurt Elling - SuperBlue (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz,Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAAAE470E025A89EB0453F6DDCC85AA854FEAFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852297   (223801) от 21.12.2014
-
-The Christmas Swing Orchestra - Christmas Swing (1999) [FLAC|Lossless]<Jazz Holiday,  Christmas Holidays>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В преддверии Рождества и Нового Года для любителей джаза представляю интересную компиляцию Christmas Swing. Обязательно послушайте увертюру к "Щелкунчику" и "Танец цветов", Па-де-де (Вариация II) Танец Феи Драже (которая почему-то превратилсь в звучное "Sugar Rum Cherry") от туда же. Думаю, что наравне с легко узнаваемыми напевами П.И. (   Читать дальше...   )01. Santa Claus Is Coming To Town  (4:55)
-02. Nutcracker Overture  (3:22)
-03. Peanut Brittle Brigade  (4:46)
-04. Sugar Rum Cherry  (3:20)(   Читать дальше...   )Жанр: Jazz Holiday,  Christmas HolidaysПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A2F0C91A9634BD5A28929A2BDE62B4176E3E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585082   (223682) от 20.10.2022
-
-Milt Jackson - Ain't But A Few Of Us Left (1981) 1993, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't But a Few of Us Left [7:28]
-02. Stuffy [6:01]
-03. A Time for Love [6:01]
-04. Body and Soul [5:58](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80E9478190BB4EFA7E7D531F1B759E8E8CFB9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269086   (223516) от 13.12.2018
-
-Tom Bacon - The Flipside: Jazz Horn Solos (1989) Summit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto for Tom: Tomfoolery [4:41]
-02. Concerto for Tom: Hornful of Blues [4:55]
-03. Concerto for Tom: Cooking with Bacon [3:16]
-04. Grand Ur [5:42](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3528D744CFDDD65D960A39BA04B0816D826ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269089   (223510) от 13.12.2018
-
-Bunny Berigan - 1938 - 1942 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Dark [2:46]
-02. Walkin' The Dog [3:07]
-03. Patty Cake, Patty Cake [3:31]
-04. Jazz Me Blues [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE79954FF30CB325A7B6E97315F6B3000F416A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

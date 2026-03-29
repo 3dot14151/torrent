@@ -6,7 +6,7 @@ Adobe InDesign 2022 17.0.0.096 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798053.jpg" />
+  <img src="Z:/picture/008/save_picture_798053.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Youtube Downloader HD 4.2 RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798050.jpg" />
+  <img src="Z:/picture/008/save_picture_798050.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 4.0.34 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797975.jpg" />
+  <img src="Z:/picture/008/save_picture_797975.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIMP 5.00 Build 2342 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797963.jpg" />
+  <img src="Z:/picture/008/save_picture_797963.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TBProAudio - DSEQ3 3.5.4 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797958.jpg" />
+  <img src="Z:/picture/008/save_picture_797958.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AquaSoft Stages 12.3.07 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797947.jpg" />
+  <img src="Z:/picture/008/save_picture_797947.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bootstrap Studio 5.8.5 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797940.jpg" />
+  <img src="Z:/picture/008/save_picture_797940.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WhatsApp 2.2142.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797938.jpg" />
+  <img src="Z:/picture/008/save_picture_797938.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Universal Media Creation Tool 03.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797928.jpg" />
+  <img src="Z:/picture/008/save_picture_797928.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ DVDFab 12.0.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797925.jpg" />
+  <img src="Z:/picture/008/save_picture_797925.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hibernate Enable or Disable 1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797924.jpg" />
+  <img src="Z:/picture/008/save_picture_797924.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.1 Build 4 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797909.jpg" />
+  <img src="Z:/picture/008/save_picture_797909.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Movavi Video Suite 22.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797887.jpg" />
+  <img src="Z:/picture/008/save_picture_797887.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Red Giant Trapcode Suite 14.0.4 RePack by PooShock [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797855.jpg" />
+  <img src="Z:/picture/008/save_picture_797855.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Adobe Audition 2022 (22.0.0.96) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797831.jpg" />
+  <img src="Z:/picture/008/save_picture_797831.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Adobe Illustrator 2022 (26.0.1.731) Portable by XpucT [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797823.jpg" />
+  <img src="Z:/picture/008/save_picture_797823.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ K-Lite Codec Pack Update 15.4.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797790.jpg" />
+  <img src="Z:/picture/008/save_picture_797790.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Media Player Classic Home Cinema 1.9.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797786.jpg" />
+  <img src="Z:/picture/008/save_picture_797786.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797774.jpg" />
+  <img src="Z:/picture/008/save_picture_797774.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.3 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797770.jpg" />
+  <img src="Z:/picture/008/save_picture_797770.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ummy Video Downloader 1.10.10.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797756.jpg" />
+  <img src="Z:/picture/008/save_picture_797756.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ YouTube By Click Premium 2.2.129 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797755.jpg" />
+  <img src="Z:/picture/008/save_picture_797755.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BELOFF [dp] 2020.05.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797748.jpg" />
+  <img src="Z:/picture/008/save_picture_797748.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VMware Workstation 15 Pro 15.5.2 Build 15785246 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797728.jpg" />
+  <img src="Z:/picture/008/save_picture_797728.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Adobe Acrobat Pro DC 2020.009.20065 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797726.jpg" />
+  <img src="Z:/picture/008/save_picture_797726.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Transmission 3.00 (bb6b5a062e) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797724.jpg" />
+  <img src="Z:/picture/008/save_picture_797724.jpg" />
 </div>
 
 

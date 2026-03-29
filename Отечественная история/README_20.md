@@ -1,3 +1,29 @@
+###  Публикация: 1682865   (130844) от 09.12.2023
+
+Черноморский цугцванг. Гибель теплохода «Армения» (2021) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130844.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 ноября 1941 года состоялся парад на Красной площади, к тому моменту почти окруженной войсками Вермахта. На кону — судьба советской столицы, и все внимание страны и мира обращено на нее. И когда в радиоэфире еще звучали трансляции дерзновенного парада-послания непреклонной Москвы граду и миру, в Чёрном море от немецких бомб погиб теплоход «Армения». День великого (   Читать дальше...   )Производство: Россия, НТВЖанр: документальный, история, военный, драмаРежиссер: Иван СкворцовЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251C5F37678BD3809D5F97BB07965206059FA3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221286   (128598) от 14.10.2025
 
 Освоение Крыма (2015) BDRip [H.264/1080p-LQ] (частей 3)
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128598.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128148.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127111.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126390.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126072.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118833.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118461.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118456.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117337.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116781.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109928.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77746.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71355.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61966.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57000.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55053.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54001.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51100.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47134.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44524.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43177.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35061.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31710.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31645.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29635.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4E26FA1ECC1708E0D1C9E3810B78779DCA54175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781786   (26448) от 25.02.2025
-
-Святой архипелаг (2022) WEBRip [H.264/720p] [hand made 60fps]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятно красивый документальный фильм о вере, надежде, выборе пути и жизни знаменитого Спасо-Преображенского Соловецкого монастыря.Производство: Россия / кинокомпания "Два Капитана"Жанр: ДокументальныйРежиссер: Сергей ДебижевУчастники: монахи Спасо-Преображенского Соловецкого монастыря.Продолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2DD77C89A76E590FBB48FB95E35D117CF99517
 ```
 
 https://mybot314.ru/tekegram_catalog/

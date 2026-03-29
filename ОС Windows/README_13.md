@@ -1,3 +1,56 @@
+###  Публикация: 1283690   (730721) от 19.02.2019
+
+Раздел восстановления (Recovery) для ноутбука HP Pavilion tx2550er (Vista HP x86 SP1) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_730721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ снимался программой Acronis True Image 2015. Предназначен для восстановления заводского состояния ноутбука HP Pavilion tx2550er. Содержит раздел восстановления с ОС Vista HP x86 SP1Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1631A0F79A571FCE761557AA12090E7B3FF1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284246   (728386) от 21.02.2019
+
+Microsoft Windows 10.0.17763.316 Version 1809 ( February 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.316 (Updated February 2019).
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084A363BF05BB903F598A2AD022C43300FA8E647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022764   (726867) от 03.06.2016
 
 Microsoft Windows 10 Home Single Language 10.0.10586 Version 1511 (Updated Apr 2016) - Оригинальные образы от Microsoft TechBench [Ru]
@@ -6,7 +59,7 @@ Microsoft Windows 10 Home Single Language 10.0.10586 Version 1511 (Updated Apr 2
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726867.jpg" />
+  <img src="Z:/picture/008/save_picture_726867.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Microsoft Windows 10.0.19043.1526, Version 21H1 (Updated February 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720636.jpg" />
+  <img src="Z:/picture/008/save_picture_720636.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Microsoft Windows 10.0.19042.1526, Version 20H2 (Updated February 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720535.jpg" />
+  <img src="Z:/picture/008/save_picture_720535.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ Microsoft Windows 10.0.19043.1526, Version 21H1 (Updated February 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720293.jpg" />
+  <img src="Z:/picture/008/save_picture_720293.jpg" />
 </div>
 
 
@@ -119,7 +172,7 @@ Windows Server, Version 20H2 (10.0.19042.1526) (Updated February 2022) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720285.jpg" />
+  <img src="Z:/picture/008/save_picture_720285.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.524 (Updated February 2022) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720163.jpg" />
+  <img src="Z:/picture/008/save_picture_720163.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ Microsoft Windows 11 [10.0.22000.493], Version 21H2 (Updated February 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720162.jpg" />
+  <img src="Z:/picture/008/save_picture_720162.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ Microsoft Windows 11 [10.0.22000.493], Version 21H2 (Updated February 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720143.jpg" />
+  <img src="Z:/picture/008/save_picture_720143.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Microsoft Windows 10.0.17763.316 Version 1809 ( February 2019 Update) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716261.jpg" />
+  <img src="Z:/picture/008/save_picture_716261.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ Microsoft Windows 10 Professional 10.0.15063.0 Version 1703 (Updated March 2017)
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713920.jpg" />
+  <img src="Z:/picture/008/save_picture_713920.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Microsoft Windows 10 Professional 10.0.15063.0 Version 1703 (Updated March 2017)
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713915.jpg" />
+  <img src="Z:/picture/008/save_picture_713915.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ Microsoft Windows For Workgroups 3.11 [Английский + Русский] В
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703122.jpg" />
+  <img src="Z:/picture/005/save_picture_703122.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ Recovery USB-flash for Asus T100TAL / Windows 8.1 (х86) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696912.jpg" />
+  <img src="Z:/picture/008/save_picture_696912.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ Microsoft Windows 10.0.18362.1016 Version 1903 (Updated Aug 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690474.jpg" />
+  <img src="Z:/picture/008/save_picture_690474.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ Microsoft Windows 10.0.18363.1016 Version 1909 (Updated Aug 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690321.jpg" />
+  <img src="Z:/picture/008/save_picture_690321.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ Microsoft Windows 10.0.17763.1397 Version 1809 (Updated Aug 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690164.jpg" />
+  <img src="Z:/picture/008/save_picture_690164.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690016.jpg" />
+  <img src="Z:/picture/008/save_picture_690016.jpg" />
 </div>
 
 
@@ -465,7 +518,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1397 (Updated Aug 2020) Ори
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690006.jpg" />
+  <img src="Z:/picture/008/save_picture_690006.jpg" />
 </div>
 
 
@@ -491,7 +544,7 @@ Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 201
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689681.jpg" />
+  <img src="Z:/picture/008/save_picture_689681.jpg" />
 </div>
 
 
@@ -518,7 +571,7 @@ Windows Server, Version 2004 (10.0.19041.450) (Updated Aug 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687894.jpg" />
+  <img src="Z:/picture/008/save_picture_687894.jpg" />
 </div>
 
 
@@ -544,7 +597,7 @@ Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687883.jpg" />
+  <img src="Z:/picture/008/save_picture_687883.jpg" />
 </div>
 
 
@@ -571,7 +624,7 @@ Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 201
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687717.jpg" />
+  <img src="Z:/picture/008/save_picture_687717.jpg" />
 </div>
 
 
@@ -598,7 +651,7 @@ Recovery USB-flash for Sony VAIO SVF152A29V (SVF1521H1R) Windows 8 [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683685.jpg" />
+  <img src="Z:/picture/008/save_picture_683685.jpg" />
 </div>
 
 
@@ -626,7 +679,7 @@ Microsoft Windows 10 10.0.17134.1 Business editions Version 1803 (Updated April 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680554.jpg" />
+  <img src="Z:/picture/008/save_picture_680554.jpg" />
 </div>
 
 
@@ -637,60 +690,6 @@ Microsoft Windows 10 10.0.17134.1 Business editions Version 1803 (Updated April 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3972DD1A47B0C7CB5CDF83997085A2C1CACD9F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222973   (678684) от 02.05.2018
-
-Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] by WZT [Ru/En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 April 2018 Update от 30 апреля 2018 года. С обновлением Redstone 4 должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский/Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27445BD9A44A7D3CAF754129AA57830C9A04DB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290519   (677896) от 20.03.2019
-
-Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
-
-Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0887D600D0C950AD278648C592EF5384C93C0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

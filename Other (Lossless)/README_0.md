@@ -6,7 +6,7 @@ V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966182.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (19
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962057.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961979.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ultrasone - S-Logic Demo-CD (2008) [FLAC|Lossless|tracks + .cue] <Audiofile, Tes
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960766.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952810.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Cactus Blossoms - The Cactus Blossoms (2011) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948422.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948413.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Coun
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948224.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944548.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917510.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911723.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905075.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Co
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881573.jpg" />
+  <img src="Z:/picture/005/save_picture_881573.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861972.jpg" />
+  <img src="Z:/picture/008/save_picture_861972.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Atlas - Прогревочный и размагничивающий диск (2
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861059.jpg" />
+  <img src="Z:/picture/008/save_picture_861059.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Various - Полонезы И Вальсы Русских Композиторо
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853020.jpg" />
+  <img src="Z:/picture/008/save_picture_853020.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852051.jpg" />
+  <img src="Z:/picture/008/save_picture_852051.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830743.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Yanni - Inspirato (2014) [FLAC|Lossless]<New Age, Classical crossover>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806913.jpg" />
+  <img src="Z:/picture/008/save_picture_806913.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795451.jpg" />
+  <img src="Z:/picture/008/save_picture_795451.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ SunSquabi - Odyssey (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic Hydro Fu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794570.jpg" />
+  <img src="Z:/picture/008/save_picture_794570.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791441.jpg" />
+  <img src="Z:/picture/008/save_picture_791441.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788122.jpg" />
+  <img src="Z:/picture/008/save_picture_788122.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Mixed Choir под управлением М. Попсавова - Страст�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785927.jpg" />
+  <img src="Z:/picture/008/save_picture_785927.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785332.jpg" />
+  <img src="Z:/picture/008/save_picture_785332.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780242.jpg" />
+  <img src="Z:/picture/008/save_picture_780242.jpg" />
 </div>
 
 

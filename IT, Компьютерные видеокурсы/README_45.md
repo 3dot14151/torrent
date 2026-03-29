@@ -1,3 +1,141 @@
+###  Публикация: 1400388   (720729) от 04.08.2020
+
+[Udemy] Lev Gorfel | Основы Linux для QA инженеров (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите узнать, как использовать Linux и сделать следующий шаг в своей карьере, но у вас не хватает на это времени, то этот курс именно для вас! Всего за 60 минут вы познакомитесь с Линуксом, узнаете самые используемые команды и сможете попрактиковаться в написании простых скриптов.
+Операционные системы на базе LinuxOS являются сегодня неотъемлемой частью (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E7C408B7B130F65684292ED951D8BE4DC04CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400123   (720624) от 04.08.2020
+
+GeekBrains | Профессия Веб-аналитик (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-аналитик — это специалист в digital-сфере, который анализирует данные о поведении пользователей веб-ресурсов и помогает бизнесу повысить эффективность маркетинга и рекламы.
+В курсе будут рассмотрены следующие темы:
+- введение в веб-аналитику
+- планирование и подготовка к настройке(   Читать дальше...   )Жанр: АналитикаПродолжительность: 42:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8367F07E6368AC4C3FEEF81A663845288075C182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530647   (720147) от 16.02.2022
+
+Udemy, Bhrugen Patel, Andrei Brizhak | ASP.NET Core MVC для .NET 5. Первая и вторая части (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720147.jpg" />
+</div>
+
+
+###  Подробнее
+
+ASP.NET Core MVC для .NET 5. Первая часть. 
+Этот курс для начинающих по ASP.NET Core 5 с использованием фреймворка MVC, начиная от базовой структуры до создания полнофункционального веб-сайта.
+Этот курс предназначен для всех, кто знаком с основами ASP.NET и хочет знать больше о приложениях с использованием ASP.NET Core MVC и  интеграции его с Entity Framework Core. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 14:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247CBECA2D514717595D47AF16B5363D7F6645A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992238   (719292) от 07.06.2016
+
+Geekbrains | Профессия Программист Python (2015) PCRec [H.264/720p]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_719292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google, Яндекс, Mail, Youtube, Instagram и Pinterest не случайно выбрали его своим фаворитом. Самый популярный язык программирования в ведущих вузах США, Python прост как в освоении, так и в программировании.
+
+Web-разработка, системные утилиты, десктопные приложения, разработка под любую операционную систему - ему все подвластно! Этот язык лучше любого другого структурирует (   Читать дальше...   )Жанр: Программирование, PythonПродолжительность: 67:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0755B3BA1A1780699913BC04086208D063328D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057809   (718269) от 17.02.2022
+
+Иннокентий Солнцев | Cisco SWITCH CCNP - Коммутация v2.0 (2014) WEB-DLRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео-уроки для подготовки к сдаче экзамена CCNP SWITCHПроизводство: УЦ Advanced TrainingЖанр: СетиПродолжительность: 21:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E1C1C660BBDAE7935A1FC7BFAA1CD3EC778282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057814   (718189) от 17.02.2022
 
 Иннокентий Солнцев | Курс SWITCH 2.0 - Коммутация в сетях Cisco (Implementing Cisco IP Switched Networks) (2014) WEB-DLRip
@@ -6,7 +144,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718189.jpg" />
+  <img src="Z:/picture/008/save_picture_718189.jpg" />
 </div>
 
 
@@ -32,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718177.jpg" />
+  <img src="Z:/picture/008/save_picture_718177.jpg" />
 </div>
 
 
@@ -59,7 +197,7 @@ PentestIT | Безопасность сетевой инфраструктуры
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716545.jpg" />
+  <img src="Z:/picture/008/save_picture_716545.jpg" />
 </div>
 
 
@@ -85,7 +223,7 @@ PythonYoga, Leo Trieu | Build Your Own UberEats system with Python/Django and Sw
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716178.jpg" />
+  <img src="Z:/picture/008/save_picture_716178.jpg" />
 </div>
 
 
@@ -113,7 +251,7 @@ Softwaretesting, Арсений Батыров, Виталий Котов | SQL:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716176.jpg" />
+  <img src="Z:/picture/008/save_picture_716176.jpg" />
 </div>
 
 
@@ -139,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716076.jpg" />
+  <img src="Z:/picture/008/save_picture_716076.jpg" />
 </div>
 
 
@@ -168,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715303.jpg" />
+  <img src="Z:/picture/008/save_picture_715303.jpg" />
 </div>
 
 
@@ -196,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714955.jpg" />
+  <img src="Z:/picture/008/save_picture_714955.jpg" />
 </div>
 
 
@@ -222,7 +360,7 @@ OTUS | Deep Learning Engineer (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714557.jpg" />
+  <img src="Z:/picture/008/save_picture_714557.jpg" />
 </div>
 
 
@@ -248,7 +386,7 @@ Udemy, Coding Minutes, Prateek Narang | Data Structures & Algorithms Essentials 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714411.jpg" />
+  <img src="Z:/picture/008/save_picture_714411.jpg" />
 </div>
 
 
@@ -274,7 +412,7 @@ Udemy, John Smilga | React Tutorial and Projects Course  (2021) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714396.jpg" />
+  <img src="Z:/picture/008/save_picture_714396.jpg" />
 </div>
 
 
@@ -300,7 +438,7 @@ OTUS | Руководитель разработки (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712623.jpg" />
+  <img src="Z:/picture/008/save_picture_712623.jpg" />
 </div>
 
 
@@ -326,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712604.jpg" />
+  <img src="Z:/picture/008/save_picture_712604.jpg" />
 </div>
 
 
@@ -352,7 +490,7 @@ PHP Academy | Курс PHP Developer (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712402.jpg" />
+  <img src="Z:/picture/008/save_picture_712402.jpg" />
 </div>
 
 
@@ -378,7 +516,7 @@ ProfIT | T4: быстрый вход в мир современных фрейм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711193.jpg" />
+  <img src="Z:/picture/008/save_picture_711193.jpg" />
 </div>
 
 
@@ -406,7 +544,7 @@ WebDesign Master | Создание контентного сайта на Jekyl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711108.jpg" />
+  <img src="Z:/picture/008/save_picture_711108.jpg" />
 </div>
 
 
@@ -432,7 +570,7 @@ HTML Academy | Профессиональный Node.js (2018) PCRec [H.264/1080
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711099.jpg" />
+  <img src="Z:/picture/008/save_picture_711099.jpg" />
 </div>
 
 
@@ -458,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710688.jpg" />
+  <img src="Z:/picture/008/save_picture_710688.jpg" />
 </div>
 
 
@@ -487,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710340.jpg" />
+  <img src="Z:/picture/008/save_picture_710340.jpg" />
 </div>
 
 
@@ -513,7 +651,7 @@ Udemy | Полный Курс Python С Нуля До Героя (2017) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710339.jpg" />
+  <img src="Z:/picture/008/save_picture_710339.jpg" />
 </div>
 
 
@@ -539,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709479.jpg" />
+  <img src="Z:/picture/008/save_picture_709479.jpg" />
 </div>
 
 
@@ -550,148 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F452D41BAC5B30B8B87A80D6DC539D52F2F71F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401468   (708922) от 10.08.2020
-
-NizamovStudio | Разработка мобильного приложения B2B в 1С (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание мобильного приложения 1С для B2B с нуля до 100%.
-В итоге вы научитесь создавать:
-- Кроссплатформенные мобильные приложение на базе платформы 1С
-- HTTP сервисы для обмена с центральной базой(   Читать дальше...   )Жанр: Программирование 1СПродолжительность: 05:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9470C7DDFC1E80C5D92C1B1F5F3B50C4F5FFF6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401470   (708830) от 10.08.2020
-
-[Курсы-по-1С.РФ] Гилев Евгений, Насипов Фарид | Тренинг-интенсив по 1С: Конвертации данных 2.1 (2016) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс построено на практических задачах
-Мы считаем, что навык появится только поле того, как будет отработано хотя бы несколько типовых задач.
-Поэтому мы разобрали 45 практических ситуаций, когда возникают обмены данными, переносы и конвертации объектов.
-Кроме того, мы отобрали 16 задач для “закрепления руками” (домашние задания).Производство: Курсы-по-1С.РФЖанр: Программирование 1СПродолжительность: 11:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD5047E78B62BCDFF4C1AAFAD2D8A4F689B4056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398209   (704881) от 12.08.2020
-
-[Udemy] Mefodiy Kelevra | VPN мастеркласс. Public VPN, Personal VPN, WireGuard VPN (2019) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое VPN и почему смена IP адреса это только его "побочный эффект"
-Как производятся атаки на протокол VPN и как сделать так что бы Ваш трафик не расшифровали.
-Как замаскировать ваше VPN соединение для обхода фаерволов например в людных местах - Кафе и Гостиницах
-Разберем плюсы и минусы большинства VPN провайдеров в интернете.(   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеПродолжительность: 01:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228E7CD96320B8437B7D9498394B10231E2390F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402044   (704874) от 12.08.2020
-
-Skillbox | Работа в командной строке Bash (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь использовать командную строку в Linux-системах, чтобы оптимизировать вашу работу с кодом и серверами.Жанр: АдминистрированиеПродолжительность: 04:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B760E8CDCAA5A8BEB6BD64E60A78D009A7690952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401887   (704863) от 12.08.2020
-
-Skillbox | Excel + Google Таблицы с нуля до PRO (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь составлять сложные отчёты и строить прогнозы, сможете автоматизировать свою работу с помощью скриптов и макросов — тем самым освободите время для других задач.
-В состав релиза входят курсы:
-- Excel базовый
-- Excel PRO(   Читать дальше...   )Жанр: Работа с таблицамиПродолжительность: 23:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC12394ADFCF1F60E823E2FF4C96EA9360F9A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

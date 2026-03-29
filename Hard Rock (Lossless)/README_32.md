@@ -1,3 +1,61 @@
+###  Публикация: 1289137   (686637) от 16.03.2019
+
+Tesla - Shock (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Won't Take Me Alive (03:34)
+02. Taste Like (03:12)
+03. We Can Rule The World (04:15)
+04. Shock (03:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D731D94E14FD8C4BA85C342E2FAB475A0A9804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178621   (685976) от 16.03.2019
+
+ELF | The Elves (featuring Ronnie James Dio) - 5 альбомов, 8CD (1971-2018) [FLAC|Lossless| image + .cue | tracks+.cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа "Elf" известна в основном благодаря участию в ней вокалиста Ронни Джеймса Дио (Рональд Падавона), продолжившего потом работу в таких коллективах, как "Rainbow" и "Black sabbath". Созданная в конце 60-х годов команда носила название "The electric elves". Изначальный состав выглядел так: Дио (бас, вокал), его двоюродный (   Читать дальше...   )Список альбомов:
+1971 | The Elves – And Before Elf there were Elves
+1972 | Elf
+1974 | Carolina County Ball(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 05:47:56 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E3350D7A0C6A05DE179176FFD97CD450137560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796268   (685956) от 14.06.2014
 
 GILLAN - Gillan At The BBC (1997) 2 CD Live /1997, Nippon Crown Co. Japan/ [FLAC|Lossless]<Hard Rock>
@@ -6,7 +64,7 @@ GILLAN - Gillan At The BBC (1997) 2 CD Live /1997, Nippon Crown Co. Japan/ [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685956.jpg" />
+  <img src="Z:/picture/008/save_picture_685956.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ted Nugent - Shutup & Jam! (2014) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685646.jpg" />
+  <img src="Z:/picture/008/save_picture_685646.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ Laos - We Want It (1990) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684419.jpg" />
+  <img src="Z:/picture/008/save_picture_684419.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ Done Messed Up - Me, Myself And A Few Other People (2022) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684320.jpg" />
+  <img src="Z:/picture/008/save_picture_684320.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ Crazy Lixx - Street Lethal (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684319.jpg" />
+  <img src="Z:/picture/008/save_picture_684319.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Lionheart - 3 Studio Albums (1984-2020) 3xCD [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684272.jpg" />
+  <img src="Z:/picture/008/save_picture_684272.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ Deep Purple - Deep Purple III (1969) K2HD HiQuality CD, 2011, Victor [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684048.jpg" />
+  <img src="Z:/picture/008/save_picture_684048.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Scorpions - Rock Believer (2022) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683973.jpg" />
+  <img src="Z:/picture/008/save_picture_683973.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Grand Slam - A New Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682589.jpg" />
+  <img src="Z:/picture/008/save_picture_682589.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Boxer - 3 albums (1975-1979) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682505.jpg" />
+  <img src="Z:/picture/008/save_picture_682505.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Wild Ox Moan - Wild Ox Moan (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682376.jpg" />
+  <img src="Z:/picture/008/save_picture_682376.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Q5 - 3 albums (1984-2016) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n' Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681983.jpg" />
+  <img src="Z:/picture/008/save_picture_681983.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680434.jpg" />
+  <img src="Z:/picture/008/save_picture_680434.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Heart - Live In Atlantic City`2018 (2019) [FLAC|lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680433.jpg" />
+  <img src="Z:/picture/008/save_picture_680433.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Thunder - Please Remain Seated (2019) 2CD [FLAC|Lossless|tracks + .cue] <Rock, A
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680315.jpg" />
+  <img src="Z:/picture/008/save_picture_680315.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Whitesnake - The Purple Album (2015) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677164.jpg" />
+  <img src="Z:/picture/008/save_picture_677164.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Michael Ernst (with Alan Parsons & Chris Thompson) - Excalibur (2003) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676991.jpg" />
+  <img src="Z:/picture/008/save_picture_676991.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Rainbow - Catch The Rainbow: The Anthology (2003) 2CD, Compilation, Remastered [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676720.jpg" />
+  <img src="Z:/picture/008/save_picture_676720.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Voltrider - Weapon Of Choice (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676690.jpg" />
+  <img src="Z:/picture/008/save_picture_676690.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Cozy Powell - The Best Of Cozy Powell (1997) Reissue [APE|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676522.jpg" />
+  <img src="Z:/picture/008/save_picture_676522.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Van Halen - 6 альбомов (1978-1984) 6 Remastered CD Box Set /2013, Warner
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675758.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Scorpions - GOLD-The Ultimate Collection (1996) [FLAC|Lossless|image + .cue] <Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674351.jpg" />
+  <img src="Z:/picture/008/save_picture_674351.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ De-Arrow - De-Arrow (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672886.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Edge Of Forever - Seminole (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672883.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Edge Of Forever - Seminole (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC852109DEA1553427D2FB505EA1CFFBC42F20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536820   (672790) от 13.03.2022
-
-Heartwind - Strangers (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strangers In The Night
-02. Line Of Fire
-03. Amanda
-04. Angels Cry Again(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E72DC4096B67C3BB8BCC391324511AF2A8E4F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536583   (670977) от 14.03.2022
-
-D'or - Veni Vidi Ignis (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veni Vidi Ignis (03:54)
-02. Scream (03:55)
-03. Jack-In-The-Box (04:02)
-04. Future, Baby! (03:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B27F54332CB823E3AD073490AB23E4A889F92F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

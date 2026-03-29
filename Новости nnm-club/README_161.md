@@ -1,3 +1,174 @@
+###  Публикация: 382901   (490689) от 02.09.2011
+
+Cheat Engine 6.1 [Rus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cheat Engine — мощная программа для изменения значений памяти в оффлайн играх. Нахождение нужного значения в памяти процесса игры и изменение его для получение неограниченных ресурсов в игре (деньги, жизнь, опыт и т.д.) или изменение баланса, уровней и всего, что позволит вам ваша фантазия.
+
+Особенности Cheat Engine:
+Создание и встраивание чит-кодов.
+Поиск многоуровневых указателей.
+Внедрение чит-кода.
+Создание трейнеров.
+Поиск адреса.
+Спидхак — изменение скорости игры.
+Встроенный отладчик.(   Читать дальше...   )Язык интерфейса: Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544309   (490619) от 07.09.2012
+
+Avira Internet Security 2012 12.1.9.354 SP1 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avira Internet Security 2012 - защищает вас с помощью 15 различных защитных технологий, в числе которых дополнительный сетевой экран. Еще более лучшее распознавание и удаление вирусов, червей, троянов, рекламных и шпионских программ, дозвонщиков и прочего вредоносного ПО.
+
+(   Читать дальше...   )Название программы: Avira Internet Security 2012Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544335   (490608) от 07.09.2012
+
+Norton 360 2013 20.1.1.2 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norton - продукт всимирно известной компании Symantec для комплексной защиты компьютера. По своим возможностям Norton 360 превосходит Norton Internet Security: помимо антивируса, файрволла, антишпиона и антифишинга (которые имеются и в NIS), Norton 360 включает в себя такие функциональности как аутентификация веб-сайтов, локальный и онлайновый бэкап и восстановление данных (включая их шифрование), дефрагментация и очистка диска, а также интегрированная круглосуточная поддержка посредством емейла и чата.Название программы: Norton 360Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544235   (490557) от 07.09.2012
+
+Tekken Tag Tournament 2 [XBOX360] [RUS] [Region Free] (LT+2.0) (2012)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиквел к десятилетней давности файтингу, который многие игроки считают самым лучшим в серии по сей день. Новая игра вберет в себя все самое лучшее от оригинала – мы вновь будем принимать участие в схватках «два на два» и баловаться с безграничными комбо-возможностями и сменой персонажей во время боя. Также добавятся и новые элементы, позаимствованные из наисвежайших частей Tekken. Все-таки прошло двенадцать лет и многое за это время успело измениться – поединки стали более стремительными и быстрыми, а баланс между персонажами был перекроен не один миллион раз. Разработчики обещают все это учесть и добавить еще больше динамики в битвы на просторах Tekken Tag Tournament 2.Тип издания: ЛицензияЖанр: Arcade (Fighting) / 3DЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A6C37B970AA3D771B133252A948A1B10AFF6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544331   (490551) от 07.09.2012
+
+Norton Internet Security 2013 Final 20.1.1.2 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norton Internet Security 2013 - официальная версия антивируса от компании Symantec. Norton Internet Security - это комплексный антивирус и фаервол, который защищает ваш компьютер, локальную сеть, деятельность в Интернете и ваши личные данные, используя инновационные технологии, позволяющие бороться с современными агрессивными угрозами. мощная и быстрая защита от вредоносных программ и онлайн-угроз без замедления компьютера. Улучшенная система Norton Protection System с многоуровневыми технологиями безопасности, работающих вместе, обеспечивает комплексную защиту.Название программы: Norton Internet Security 2013 FinalЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544288   (490529) от 07.09.2012
+
+Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, объединяющий элементы шутера от первого лица, гоночного боевика и классической ролевой игры.
+
+Действие разворачивается на Пандоре — малонаселенной пустынной планете, где законы переписываются ежедневно — при помощи оружия. Все местное население сосредоточено на небольших аванпостах, расположенных на границе принадлежащих людям территорий, известных как Приграничные земли. Единственная достопримечательность на Пандоре — таинственное Хранилище, скрывающее несметные сокровища, якобы спрятанные представителями высокоразвитой инопланетной цивилизации многие века назад.
+
+Солдат или охотник, сирена или берсерк — выбрав одного из четырех персонажей, каждый из которых обладает уникальными навыками, игрок отправиться на поиски Хранилища. Можно попытаться добраться до сокровищ в одиночку, однако лучше найти союзников, чтобы сражаться с ними плечом к плечу. (   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA81300D61DA1872C821A9ED73D9DE76B4B2B493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299737   (490368) от 08.08.2019
 
 Сотня / The 100 (2019) WEBRip [H.264/720p-LQ] (сезон 6, серии 1-13 из 13) Kelix [AD]
@@ -6,7 +177,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490368.jpg" />
+  <img src="Z:/picture/008/save_picture_490368.jpg" />
 </div>
 
 
@@ -32,7 +203,7 @@ Google создала оружие для борьбы с интернет-тр�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_489734.jpg" />
+  <img src="Z:/picture/005/save_picture_489734.jpg" />
 </div>
 
 
@@ -59,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489411.jpg" />
+  <img src="Z:/picture/008/save_picture_489411.jpg" />
 </div>
 
 
@@ -85,7 +256,7 @@ Crysis 3 (2013) [Ru] (1.3/dlc) Rip xatab [Hunter Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489408.jpg" />
+  <img src="Z:/picture/008/save_picture_489408.jpg" />
 </div>
 
 
@@ -111,7 +282,7 @@ Opera 32.0.1948.25 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489380.jpg" />
+  <img src="Z:/picture/008/save_picture_489380.jpg" />
 </div>
 
 
@@ -137,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489366.jpg" />
+  <img src="Z:/picture/008/save_picture_489366.jpg" />
 </div>
 
 
@@ -164,7 +335,7 @@ macOS Sierra 10.12 (16A323) [Multi/Ru] (Installer)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489348.jpg" />
+  <img src="Z:/picture/008/save_picture_489348.jpg" />
 </div>
 
 
@@ -191,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489344.jpg" />
+  <img src="Z:/picture/008/save_picture_489344.jpg" />
 </div>
 
 
@@ -217,7 +388,7 @@ Daum PotPlayer 1.6.56209 DC 14.09.2015 Stable RePack by 7sh3 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489269.jpg" />
+  <img src="Z:/picture/008/save_picture_489269.jpg" />
 </div>
 
 
@@ -243,7 +414,7 @@ BBC: Секс, смерть и смысл жизни / Sex, Death and Meaning of
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489268.jpg" />
+  <img src="Z:/picture/008/save_picture_489268.jpg" />
 </div>
 
 
@@ -272,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488825.jpg" />
+  <img src="Z:/picture/008/save_picture_488825.jpg" />
 </div>
 
 
@@ -299,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488486.jpg" />
+  <img src="Z:/picture/008/save_picture_488486.jpg" />
 </div>
 
 
@@ -330,7 +501,7 @@ Half-Life: Cry of Fear [Ru] (Repack/Mod/1.4) 2012 | z0x
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488484.jpg" />
+  <img src="Z:/picture/008/save_picture_488484.jpg" />
 </div>
 
 
@@ -357,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_487447.jpg" />
+  <img src="Z:/picture/005/save_picture_487447.jpg" />
 </div>
 
 
@@ -383,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487398.jpg" />
+  <img src="Z:/picture/008/save_picture_487398.jpg" />
 </div>
 
 
@@ -409,7 +580,7 @@ Agnitum Outpost Firewall Pro 9.2.4859.708.2041 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487187.jpg" />
+  <img src="Z:/picture/008/save_picture_487187.jpg" />
 </div>
 
 
@@ -435,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487158.jpg" />
+  <img src="Z:/picture/008/save_picture_487158.jpg" />
 </div>
 
 
@@ -461,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_486908.jpg" />
+  <img src="Z:/picture/005/save_picture_486908.jpg" />
 </div>
 
 
@@ -490,7 +661,7 @@ Hotspot Shield VPN Business 9.8.7 RePack by epxilion90 & Hss721 [x64] [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486761.jpg" />
+  <img src="Z:/picture/008/save_picture_486761.jpg" />
 </div>
 
 
@@ -516,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486338.jpg" />
+  <img src="Z:/picture/008/save_picture_486338.jpg" />
 </div>
 
 
@@ -527,166 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C32D5EDE7C54D6AECEB4163F50CBC5B96CFF76D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318942   (486318) от 10.08.2019
-
-Полярный / Polar (2019) WEB-DLRip [H.265/720p-LQ] [10-bit] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дункан Визла — один из самых опасных киллеров в мире, известный под прозвищем Черный Кайзер. Когда-то он убивал людей по всему свету, но теперь наслаждается мирным существованием и давно уже не брал в руки оружие.
-Только вот бывший клиент, с которым у Дункана произошел небольшой конфликт, не собирается забывать старые обиды. В скором времени мирной жизни бывшего (   Читать дальше...   )Производство: США, Германия / Constantin Film, Dark Horse EntertainmentЖанр: Боевик, КриминалРежиссер: Йонас ОкерлундАктеры: Мадс Миккельсен, Ванесса Энн Хадженс, Кэтрин Уинник, Руби О. Фи, Джонни Ноксвилл, Мэтт Лукас, Сима Фишер, Роберт Мэйллет, Фэй Рен, Инга КадранелПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688CF2A9812AE33F69DBB262B68CCFC353E56665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545176   (486223) от 09.09.2012
-
-[Xbox 360] NHL 13 [RUS] (2012) (XGD2/14719) (PAL, NTSC-U)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцатый сезон знаменитого симулятора хоккея — огромный шаг вперед в развитии серии. NHL 13 представляет модернизированную игровую систему, благодаря которой виртуальные матчи по динамике ничуть не уступают настоящим. Она дает возможность подходить к игре творчески и использовать интересные стратегии, как это делают истинные мастера современного хоккея. Особое внимание разработчики уделили визуальной составляющей игры — демонстрация матчей в NHL 13 максимально приближена к телетрансляциям. Усовершенствованы и сетевые, и одиночные режимы, в частности Hockey Ultimate Team, Be a Pro, EA SPORTS Hockey League.Тип издания: ЛицензияРазработчик: EA CanadaЖанр: Sport (Hockey) / 3DЯзык интерфейса: RUS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A5F8E9E234357C74428976E680830D1591CFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158985   (485547) от 19.08.2017
-
-VA - Beautiful Rock Ballads Vol.22 (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Axxis - The Fire Still Burns  3:49
-02.  Revolution Renaissance - Frozen Winter Heart  4:27
-03.  The Poodles - Wings Of Destiny  4:15
-04.  Metal Scent - Rain  3:31(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37E2B0F3520F44B3F919544B83CC2EB2FE0DC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159166   (485387) от 19.08.2017
-
-Heroes of Might & Magic III / Герои Меча и магии 3 (2015) [Ru] (1.17) Repack xatab [HD Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обратите внимание: контент «Герои III – HD Edition» основан на оригинальной игре, вышедшей в 1999: Возрождение Эрафии. С ностальгией вспоминаете о бессонных ночах, проведенных в сражениях с Черными Драконами, Архангелами, Демонами и Чародеями? Настоящие фанаты Heroes  of Might & Magic  III, у нас есть отличные новости!Тип издания: RepackРазработчик: DotEmuЖанр: Strategy (Turn-based), Top-downЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313312336FB0D71EE9EC8539644E7474E79F881C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937729   (485143) от 16.09.2015
-
-Destroy Windows 10 Spying 1.5 Build 423 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485143.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BCB7A6CD1490F2C3E22F2519DA587AD2AA683D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910468   (485108) от 16.09.2015
-
-Total War ATTILA (2015) [Ru/Multi] (1.4.0/dlc) SteamRip Let'sРlay
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total War: ATTILA - новая часть прославленной стратегической серии игр, сочетающей сражения в реальном времени и пошаговые бои, переносит игрока в 395 год. Темное время начинается с катастрофы. На фоне голода, войны и эпидемий в восточных степях растет новая сила. Выходит новый вождь, и за спиной у него - миллион всадников, а взгляд его устремлен на Рим. Как вы будете (   Читать дальше...   )Тип издания: SteamRipРазработчик: Creative AssemblyЖанр: Strategy (Real-time / Turn-based) / 3DЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F562A472B5D3B256C9BED5EC37F8BC62F064CAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

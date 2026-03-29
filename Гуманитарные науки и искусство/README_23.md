@@ -1,3 +1,29 @@
+###  Публикация: 1485225   (870816) от 18.09.2021
+
+Книжная серия | «Популярная философия с иллюстрациями» [7 книг] (2020-2021) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_870816.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Популярная философия с иллюстрациями» (изд.«АСТ») – издательская серия, в которой планируется выпуск знаковых философских произведений с комментариями и иллюстрациями, которые сделают чтение более понятным и увлекательным.Жанр: Научно-популярная литература, Психология, Древневосточная литература, Античная литература, Книги по философииФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2FD89A85881828877811559109A560922FBE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105088   (870807) от 20.02.2017
 
 А. Борисюк (сост.) | Леонардо да Винчи. Художник в 100 картинах (2015) [PDF, FB2]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870807.jpg" />
+  <img src="Z:/picture/008/save_picture_870807.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870768.jpg" />
+  <img src="Z:/picture/008/save_picture_870768.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870366.jpg" />
+  <img src="Z:/picture/008/save_picture_870366.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869658.jpg" />
+  <img src="Z:/picture/008/save_picture_869658.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ G.Ellis | Каталог продукции заборов и оград [1845] 
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869114.jpg" />
+  <img src="Z:/picture/008/save_picture_869114.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868915.jpg" />
+  <img src="Z:/picture/008/save_picture_868915.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868127.jpg" />
+  <img src="Z:/picture/008/save_picture_868127.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865384.jpg" />
+  <img src="Z:/picture/008/save_picture_865384.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864824.jpg" />
+  <img src="Z:/picture/008/save_picture_864824.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864728.jpg" />
+  <img src="Z:/picture/008/save_picture_864728.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864346.jpg" />
+  <img src="Z:/picture/008/save_picture_864346.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863870.jpg" />
+  <img src="Z:/picture/008/save_picture_863870.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863052.jpg" />
+  <img src="Z:/picture/008/save_picture_863052.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863049.jpg" />
+  <img src="Z:/picture/008/save_picture_863049.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863039.jpg" />
+  <img src="Z:/picture/008/save_picture_863039.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862848.jpg" />
+  <img src="Z:/picture/008/save_picture_862848.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862283.jpg" />
+  <img src="Z:/picture/008/save_picture_862283.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861694.jpg" />
+  <img src="Z:/picture/008/save_picture_861694.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860645.jpg" />
+  <img src="Z:/picture/008/save_picture_860645.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859305.jpg" />
+  <img src="Z:/picture/008/save_picture_859305.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859280.jpg" />
+  <img src="Z:/picture/008/save_picture_859280.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859276.jpg" />
+  <img src="Z:/picture/008/save_picture_859276.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859120.jpg" />
+  <img src="Z:/picture/008/save_picture_859120.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859108.jpg" />
+  <img src="Z:/picture/008/save_picture_859108.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859069.jpg" />
+  <img src="Z:/picture/008/save_picture_859069.jpg" />
 </div>
 
 
@@ -662,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829AA820AF1DF36B95F4E25C5E2A32B093BA978F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000311   (858982) от 25.03.2016
-
-А. Буторин | Определитель аппликатуры аккордов для шестиструнной гитары (1976) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858982.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нотных магазинах встречается большое количество изданий популярных вокальных произведений, в которых имеются буквенно-цифровые обозначения аккордов для аккомпанирования на гитаре. Описываемая здесь система определения аппликатуры (расположения пальцев на грифе) аккордов на шестиструнной гитаре поможет гитаристам-любителям подбирать аккорды при аккомпанементе пению. (   Читать дальше...   )Жанр: Справочная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEA902480D224917BDBD23E78C07E4271F26C2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

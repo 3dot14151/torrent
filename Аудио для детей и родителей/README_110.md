@@ -1,3 +1,84 @@
+###  Публикация: 1781543   (70188) от 23.02.2025
+
+Эдит Несбит | Искатели сокровищ (2024) [MP3, Алиса Поздняк]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случается, в дом приходят горе и бедность. Для взрослых это причина расстраиваться, много работать, беспокоиться о вложениях и кредитах. А для детей – отличный повод отправиться на поиск сокровищ. Что и сделали шестеро братьев и сестёр из семейства Бэстейбл. Так они решили помочь своему овдовевшему отцу разбогатеть. Но стоило им только включить воображение, как сразу (   Читать дальше...   )Жанр: Детская литература, ПриключенияИздательство: Азбука-АттикусПродолжительность: 06:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C70306987308657BBD918BE3449FF6DCAA7EB46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781774   (70147) от 25.02.2025
+
+Януш Корчак | Уважение к ребенку (2020) [MP3, Юрий Беляев]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательные, открытые, нежные и беззащитные книги Януша Корчака никого не оставляют равнодушными. Прочитанные всего один раз, они не забываются, а требуют возвращения к себе, обдумывания, заставляют сверять жизнь с теми истинами, которые великий педагог так просто и естественно рассказывал в своих небольших историях. Корчак – один из немногих, кто говорит о воспитании (   Читать дальше...   )Жанр: Советы родителямИздательство: ПитерПродолжительность: 07:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A364A8007DC23B615E43DA7D24634373E16B06BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782254   (70050) от 27.02.2025
+
+Марк Твен | Городок на Миссисипи (Радиоспектакль) (2019) [MP3, Валентина Сперантова, Мария Бабанова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Марк Твен (1835–1910) – американский писатель.
+Радиоспектакль по мотивам романа Марка Твена «Приключения Тома Сойера».
+Том Сойер, весёлый проказник, любитель похулиганить и прогулять уроки, живет у строгой тети Полли вместе со своим сводным братом Сидом, послушным мальчиком, который в отличие от Тома не доставляет никаких (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, прозаИздательство: Старое радио. ИДДКПродолжительность: 01:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA16EEB6982B8EBA406EF1966C378526F30DBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782852   (69913) от 02.03.2025
 
 Павел Бажов | Сказы Павла Бажова. Выпуск 1 (2012) [MP3, Клара Румянова и др.]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69913.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69912.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69911.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69646.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69645.jpg" />
 </div>
 
 
@@ -146,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69622.jpg" />
 </div>
 
 
@@ -174,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69621.jpg" />
 </div>
 
 
@@ -203,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69610.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69504.jpg" />
 </div>
 
 
@@ -258,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69482.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69470.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69123.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69119.jpg" />
 </div>
 
 
@@ -371,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69118.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68770.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68769.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68768.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68767.jpg" />
 </div>
 
 
@@ -512,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68766.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68765.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68747.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68745.jpg" />
 </div>
 
 
@@ -626,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68744.jpg" />
 </div>
 
 
@@ -639,90 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5CC08CB63A787874136F0EBBA24539CAC272293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787859   (68699) от 27.03.2025
-
-Энид Блайтон | Знаменитый утёнок Тим (Инсценировка) (1972) [MP3, Николай Литвинов, Клара Румянова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям.
-Энид Мэри Блайтон (1897–1968) – английская писательница, автор многочисленных книг для детей и подростков, включающих сказки, рассказы и приключенческие повести.
-Сказка про любознательного, храброго и доброго утёнка Тима, который жил на птичьем дворе, утёнок Тим известен всем вокруг тем, что никогда не сидит на месте и попадает в курьёзные (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EA65C15F3DE9943BEB486EC7BA8E8332A6A1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787868   (68698) от 27.03.2025
-
-Энид Блайтон | Знаменитый утёнок Тим (Радиоспектакль) (2022) [MP3, Светлана Письмиченко, Сергей Барковский и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детский остров.
-Энид Мэри Блайтон (1897–1968) – английская писательница, автор многочисленных книг для детей и подростков, включающих сказки, рассказы и приключенческие повести.
-Сказка «Знаменитый утёнок Тим» (1936). Жил-был утёнок Тим – ужасный непоседа, однажды забрался он в чёрную трубу и запачкался так, что родная мама не узнала и испугалась...
-(   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7050AE256577A938A15F871C82659E38347CE1EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788080   (68637) от 28.03.2025
-
-Пётр Ершов | Конёк-Горбунок (Инсценировка) (2023) [MP3, Сергей Лукьянов, Клара Лучко, Валентина Сперантова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям.
-«Конёк-горбунок» – знаменитая сказка в стихах Петра Павловича Ершова (1815–1869), не теряющая своей популярности и сегодня. Впервые сказка была опубликована в 1834 году. В ней высмеивается глупость царя и бояр, а Иван – крестьянский сын с помощью волшебного конька-горбунка побеждает своих врагов, потому что на его стороне правда, добро (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AE4D99DA2F70CE542133CA328FC24496D41EBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

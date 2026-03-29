@@ -1,3 +1,55 @@
+###  Публикация: 1415595   (136567) от 31.12.2020
+
+Голос (2020) HDTV [H.264/1080i] (сезон 9, выпуски 1-13 из 13)
+
+>>След.
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых ярких шоу-проектов в очередной раз продемонстрирует невероятные результаты от альянса обладателей незаурядных голосов и опытных наставников, позволяющих талантам раскрыться и расцвести. Великолепные голоса, уникальные музыкальные постановки, молодые и не очень участники, которым придется испытать радость творчества, счастье триумфа и слезы поражения (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: ~ 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9DB2BB258F93D09A57B0780688A07A58102A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414988   (136562) от 31.12.2020
+
+Голос (2020) HDTVRip (сезон 9, выпуски 1-13 из 13)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых ярких шоу-проектов в очередной раз продемонстрирует невероятные результаты от альянса обладателей незаурядных голосов и опытных наставников, позволяющих талантам раскрыться и расцвести. Великолепные голоса, уникальные музыкальные постановки, молодые и не очень участники, которым придется испытать радость творчества, счастье триумфа и слезы поражения (   Читать дальше...   )Телекомпания: Первый канал, Красный квадрат, Talpa ProductionsЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: ~01:30:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA516BA223D9AA0A36BA44C385EC47E6F9CD9B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596304   (131244) от 30.12.2012
 
 Голос. Выпуск №13. Финал (2012.12.29) HDTV [1080i]
@@ -6,7 +58,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131244.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131178.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130781.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124944.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124913.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119543.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119542.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119524.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104831.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103249.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102735.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71148.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60324.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44085.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43375.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43346.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43344.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42705.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33307.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32544.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24500.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17795.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1495.jpg" />
 </div>
 
 

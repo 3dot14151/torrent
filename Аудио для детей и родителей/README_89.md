@@ -1,3 +1,81 @@
+###  Публикация: 1472027   (127426) от 17.12.2023
+
+Эдуард Николаевич Успенский | Крокодил Гена и грабители (2019) [MP3, Егор Серов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ребята! Крокодил Гена, которого вы все прекрасно знаете и любите, умеет не только работать в зоопарке крокодилом. Совершенно неожиданно для него самого он отправился служить в армию, где научился стрелять, прыгать с парашютом и овладел приёмами самообороны. А после армии Гена вместе со своим другом Чебурашкой решил начать новую жизнь. Теперь он ловит грабителей на (   Читать дальше...   )Жанр: Детские приключения, СказкиИздательство: Литрес Паблишинг, Издательство АСТПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D54C58837E78F6CC1624A9162C207AFCBA42EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471932   (127425) от 17.12.2023
+
+Туве Янссон | Папа и море (2018) [MP3, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Муми-троллям уже доводилось переезжать, а Муми-папа – тот вообще великий путешественник. Вот и сейчас, к концу лета, Муми-папа решил, что размеренная жизнь в Долине – не для его мятежной души. Его призвание – жить на острове с маяком, средь бушующего моря, и указывать путь кораблям. Cемейство отправляется в путь. Маяк на первый взгляд кажется довольно скучным и неуютным (   Читать дальше...   )Жанр: Детские приключения, Зарубежные детские книги, СказкиПеревод: Евгения ТиновицкаяИздательство: Азбука-АттикусПродолжительность: 04:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E3086050B1825BCD76C33EFC44C69C2877FF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524106   (127421) от 17.12.2023
+
+Белла Свифт | Мопс, который мечтал стать единорогом (2021) [MP3, Татьяна Манетина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мопсик Пегги – собачка с маленьким закрученным хвостиком и большим добрым сердцем. Больше всего на свете она мечтает о любящих хозяевах, которые будут с ней играть и гулять. Но, к сожалению, однажды Пегги оказалась в приюте. Хорошо ещё, что семья девочки Хлои согласилась взять её на передержку до Рождества. Пегги знает, что Хлои мечтает о настоящем волшебном единороге! (   Читать дальше...   )Жанр: Детская проза, Зарубежные детские книгиПеревод: Мария М. ВиноградоваИздательство: ЭксмоПродолжительность: 01:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151B251AE562107944D16151AD999F4DF184484E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524064   (127420) от 17.12.2023
 
 Карл-Йохан Форссен Эрлин | Тракторёнок, который хочет уснуть. Сказка в помощь родителям (2018) [MP3, Марина Лисовец]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127420.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127418.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127417.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127414.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127412.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127411.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127409.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127407.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127406.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127404.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127400.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127381.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127379.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127362.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127226.jpg" />
 </div>
 
 
@@ -412,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127176.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127173.jpg" />
 </div>
 
 
@@ -467,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126867.jpg" />
 </div>
 
 
@@ -493,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126865.jpg" />
 </div>
 
 
@@ -522,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126819.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126795.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126793.jpg" />
 </div>
 
 
@@ -605,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126747.jpg" />
 </div>
 
 
@@ -616,89 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12BE80FE49FA11DA12D4F6BE081981DE6B12D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686156   (126742) от 21.12.2023
-
-Анатолий Алексин | Звоните и приезжайте (2014) [MP3, Екатерина Егорова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Георгиевич Алексин (1924–2017) – известный русский писатель, прозаик, драматург и сценарист, лауреат Государственной премии СССР и международных премий.
-Повести А.Г. Алексина поднимают важные темы: дружбы и предательства, любви и разлуки, взаимопонимания с родителями, сверстниками и учителями, нравственного выбора и справедливости, – всего того, что составляет (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Нигде не купишьПродолжительность: 10:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E43CEB0DA96A31A7BAC80ADE75317BF9B35D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686137   (126740) от 21.12.2023
-
-Анатолий Алексин | Необычайные похождения Севы Котлова (2020) [MP3, Иван Литвинов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Золотое наследие (Эксмо).
-Анатолий Георгиевич Алексин (1924–2017) – советский писатель, драматург.
-В аудиокнигу вошли три жизнерадостные и трогательные повести известного русского писателя Анатолия Алексина о весёлых приключениях школьника Севы Котлова: «Под чужим именем», «Тайный сигнал барабанщика, или Как я вел дневник» и «Сева Котлов за Полярным кругом». (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: ЭксмоПродолжительность: 06:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A161F99571DA1C8B3687F0266B2E36306482D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686123   (126726) от 21.12.2023
-
-Анатолий Алексин | Саша и Шура (2017) [MP3, Александр Бордуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Детская литература.
-Анатолий Георгиевич Алексин (1924–2017) – советский писатель, драматург.
-Ах, какие замечательные летние каникулы должны быть в этом году у Саши. Ведь он впервые, сам, без мамы и папы едет на поезде к дедушке и не на какую-то там дачу, а в далекий город Белогорск. Да и попутчик Саше попался такой необыкновенный, самый настоящий подполковник-артиллерист. (   Читать дальше...   )Жанр: Русская литература для детей, приключения, прозаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 06:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76D9E5E760340584356740C4F945956E8E0369F
 ```
 
 https://mybot314.ru/tekegram_catalog/

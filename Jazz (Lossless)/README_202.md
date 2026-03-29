@@ -1,3 +1,119 @@
+###  Публикация: 1327651   (372623) от 26.09.2019
+
+Paul Bley - Indian Summer (1987) 1991, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black and Blue [6:17]
+02. Blue Waltz [8:32]
+03. Lisbon Lights [10:05]
+04. Long Ago and Far Away [8:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A01F5F4A88C418DEFB56E3ED6B28CCACFEB490F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176223   (372449) от 21.10.2017
+
+James Hurt - Dark Grooves • Mystical Rhythms (1999) Blue Note [APE|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neptune [04:18]
+02. The Tree of Life [05:56]
+03. Waterfall [04:56]
+04. Mars [04:34](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AFBFE92672C2AED8717E4048CEEE701ACB07B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176226   (372448) от 21.10.2017
+
+John Muggsy Spanier - Classic Jazz Archive (1939 - 1946) 2CD, 2004, Membran Music [APE|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372448.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Whistlin' The Blues:
+01. At the Jazz Band Ball [02:53]
+02. Sister Kate [02:57]
+03. Dippermouth Blues (Sugar Foot Stomp) [02:29](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 02:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A454FA84E167A3B1F191C612FF8EC60BC8D38543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176220   (372447) от 21.10.2017
+
+Peter Ecklund - Gigs Reminiscing In Music (1999) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say It With A Kiss [02:56]
+02. Winter Waltz [04:41]
+03. Django And Bix [04:42]
+04. Blues My Naughty Sweetie Gives To Me [05:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC4DE47B8300F272A2B0401F9FBEBA30C57BF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415709   (372137) от 14.10.2020
 
 Sun Ra & Walt Dickerson - Visions (1978) 1988, SteepleChase [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -6,7 +122,7 @@ Sun Ra & Walt Dickerson - Visions (1978) 1988, SteepleChase [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372137.jpg" />
+  <img src="Z:/picture/008/save_picture_372137.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Poncho Sanchez - Chile Con Soul (1990) Concord [FLAC|Lossless|tracks + .cue] <La
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372135.jpg" />
+  <img src="Z:/picture/008/save_picture_372135.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Peter Bernstein Quartet - Live At Smalls (2008) Smalls Live [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372133.jpg" />
+  <img src="Z:/picture/008/save_picture_372133.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Peter Bernstein Trio - Monk (2008) Xanadu Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372019.jpg" />
+  <img src="Z:/picture/008/save_picture_372019.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Elvin Jones - The Main Force (1976) 2019, Wounded Bird Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372018.jpg" />
+  <img src="Z:/picture/008/save_picture_372018.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tito Puente - Live at Birdland: Dancemania '99 (1998) RMM Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372015.jpg" />
+  <img src="Z:/picture/008/save_picture_372015.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Poncho Sanchez - Soul Sauce: Memories Of Cal Tjader (1995) Concord [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372006.jpg" />
+  <img src="Z:/picture/008/save_picture_372006.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Simone Kopmajer, Paul Urbanek, Reinhardt Winkler - Soulmates (2016) Lucky Mojo R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371534.jpg" />
+  <img src="Z:/picture/008/save_picture_371534.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Nicholas Payton - Smoke Sessions (2021) Smoke Sessions Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370945.jpg" />
+  <img src="Z:/picture/008/save_picture_370945.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370508.jpg" />
+  <img src="Z:/picture/008/save_picture_370508.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370499.jpg" />
+  <img src="Z:/picture/008/save_picture_370499.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Ondrej Pivec - Never Enough (2007) [FLAC|image+.cue]<Neo-Bop, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370498.jpg" />
+  <img src="Z:/picture/008/save_picture_370498.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Omer Klein - Heart Beats (2008) [APE|image+.cue]<Post-Bop, Etho-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370497.jpg" />
+  <img src="Z:/picture/008/save_picture_370497.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ One For All - Blueslike (2004) [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370496.jpg" />
+  <img src="Z:/picture/008/save_picture_370496.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Omer Klein - Rockets on the Balcony (2010) [APE|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370495.jpg" />
+  <img src="Z:/picture/008/save_picture_370495.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Erik Tagg - Rendez-Vous (1977) /1998, Celeste/[APE|image+.cue]<Vocal Jazz, Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370494.jpg" />
+  <img src="Z:/picture/008/save_picture_370494.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Rosemary Clooney - The Songbook Collection (2000) 6CD /Concord Records/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370425.jpg" />
+  <img src="Z:/picture/008/save_picture_370425.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Toshiko Akiyoshi - Lew Tebackin Big Band (2009) /Mosaic Select 33, LE, 3CD/ [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370413.jpg" />
+  <img src="Z:/picture/008/save_picture_370413.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Pat Metheny and Ornette Coleman - Song X (1985) [FLAC|tracks+.cue]<Jazz, Free Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370400.jpg" />
+  <img src="Z:/picture/008/save_picture_370400.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ One For All - No Problem (2003) /Venus Records/[FLAC|tracks+.cue]<Post-Bop, Stra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370395.jpg" />
+  <img src="Z:/picture/008/save_picture_370395.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Joshua Redman Quartet - Come What May (2019) Nonesuch Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370260.jpg" />
+  <img src="Z:/picture/008/save_picture_370260.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Fred Hersch & The WDR Big Band - Begin Again (2019) Palmetto Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370256.jpg" />
+  <img src="Z:/picture/008/save_picture_370256.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Fred Hersch & The WDR Big Band - Begin Again (2019) Palmetto Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:475B93B2861195B673B216CF90F95910B15F4E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176508   (370150) от 22.10.2017
-
-The Duke Pearson Nonet - Honeybuns (1965) 2012, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeybuns [07:11]
-02. New Girl [05:18]
-03. You Know I Care [04:19]
-04. Is That So? [04:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926222E412DD63F60B8C069DAAA38F3023C57870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176515   (370148) от 22.10.2017
-
-Volker Kriegel - Journal & Palazzo Blue (1981, 1987) 2CD, 2010, Inakustik [APE|Lossless|image + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370148.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Journal:
-01. Calcador [03:55]
-02. Storyboard [04:54]
-03. Am Wцrthsee [04:44](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2F0AAF01664FF8C0BEBB314F4C13EF37129817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176512   (370146) от 22.10.2017
-
-The Junior Mance Trio - Blue Mance (1994) Chiaroscuro [WavPack|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling in Love with Love [05:39]
-02. Headstart [05:15]
-03. Emily [08:12]
-04. Teach Me Tonight [05:24](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5355DA201C769ED69AD7A82BDF6D18FDCE2C80F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950524   (369917) от 26.10.2015
-
-Zaz - Paris (2014) Limited Edition [FLAC|image + .cue]<Nu Jazz, Chanson>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris sera toujours Paris [2:59]
-02. Sous le ciel de Paris [3:18]
-03. La parisienne [3:01]
-04. Dans mon Paris (Swing Manouche version) [3:19](   Читать дальше...   )Жанр: Nu Jazz, ChansonПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15F280B44FB5D0E1835FFAE26B74E584A748BAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

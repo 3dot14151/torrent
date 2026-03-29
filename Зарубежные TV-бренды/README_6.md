@@ -1,3 +1,108 @@
+###  Публикация: 971884   (981922) от 06.01.2016
+
+Шпионы в берлинском тоннеле / Spies Beneath Berlin (2011) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981922.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар холодной войны Великобритания и США осуществили секретную операцию по прослушиванию линий связи Красной Армии. Операция проходила во время холодной войны и до сих пор была окутана слухами и противоречиями. Спустя 60 лет ЦРУ рассекретило файлы. Как же удалось агентам избежать разоблачения? Сегодня 4 шпиона, связанных с одной из гениальнейших операций являются (   Читать дальше...   )Телекомпания: Великобритания, ORTV International Ltd., Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCBAE3E06F45D79EDA4BCC82DA02A607BACBC82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972762   (981620) от 06.01.2016
+
+Чуйский тракт (2015) HDTVRip [720p-LQ] [серии 1-2 из 2]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приглашаем вас в увлекательное путешествие по одной из самых красивых и древних дорог не только России, но и мира.
+Вы преодолеете весь путь этой уникальной автомагистрали, которая с каждым поворотом открывает путникам абсолютно новые пейзажи - природа на Чуйском тракте меняется буквально каждые 10 километров. Мы увидите реки Катунь и Чуя, ставшие меккой рафтеров, (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: каждая серия ~00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FF7432AEBE2B11DA159274C22EAE60E1E46D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614215   (981301) от 05.02.2013
+
+NG: Снежный барс Афганистана / NG: Snow Leopard of Afghanistan (2012) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общество охраны дикой природы совместно с National Geographic объединяются для того, чтобы сделать то, что никому ранее не удавалось: с помощью специальных ошейников и приспособлений изучить жизнь неуловимого и удивительно красивого животного – снежного барса Афганистана. Горная экспедиция общества охраны дикой природы в зону войны – это настоящий вызов здравому смыслу. Кроме того, регион, в котором обирают снежные барсы является лавиноопасным регионом, с возможному неожиданными снежными буранами и резкими перепадами температур. Команда, путешествующая из Кабула в дом снежного барса в горах на северо-востоке Афганистана, сталкивается с множеством проблем. Неисправное и потерянное оборудование, резкое изменение погоды и угроза нападения талибов могут стать причинами задержек и помешать исследователям найти снежного барса. Тем не менее, они находят снежного барса – первого в истории афганского барса, которого удалось поймать и с помощью специального оборудования начать исследование его жизни, которое позволит собрать (   Читать дальше...   )Жанр: Документальный, фаунаПеревод: ДублированныйПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938D0CEEDF3031FE975F56D96F548DC82E950972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355763   (980894) от 28.01.2020
+
+NG. Мухи и пиявки (мерзкие существа) / Flies and leeches (2004) TVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они представляют собой мерзких и грязных созданий и их никто не любит. Но у них есть своя ниша в нашей жизни, и они живут рядом с нами. И людям ничего не остается, как признать этот факт и попытаться использовать их для своих нужд. Документальное повествование посвящено мухам и пиявкам, их жизни, использования для людей в области медицины и криминалистики.Производство: США, Explorer, National GeographicЖанр: Документальный, научно-популярный, фаунаРежиссер: Джеф МоралесПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A563B93E61924D305A43907C44B18296A0E9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614064   (979602) от 06.02.2013
 
 Выход через сувенирную лавку / Exit Through the Gift Shop (2010) DVD9
@@ -6,7 +111,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979602.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ Discovery: Дикая кухня / Kings of the Wild (2015) HDTVRip (сезон 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978745.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ National Geographic: Сканеры древнего мира. Египетск�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976701.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ NG. Семейное оружие: Ковбойская перестрелка /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976622.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976618.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976509.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976507.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ PBS: Сканеры древнего мира / Time scanners (2013) HDTVRip [H.
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976502.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ History Channel: Вселенная. Звуки из космоса / The Univer
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976075.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ History Channel: Вселенная. Микровселенна / The Universe. 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976014.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975629.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975180.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974344.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974283.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974271.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973021.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ NG. Осушить океан: корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972947.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972888.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ History Channel: Древние пришельцы (3 сезон: 16 серий 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972671.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ History Channel: Вселенная. Как космос изменял ход �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971957.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ History Channel: Вселенная. Немезида: злобный двойн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971836.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971762.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C45FC27C5850AC1A648F210AA13EBF706821E0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270997   (971749) от 15.01.2016
-
-NG: Запреты. Изгои общества / Taboo. Outcasts of society (2003) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек — социальное животное. По всему миру люди формируют сообщества и группы, к которым они принадлежат. Но в любом обществе есть те, кто чувствует себя чужими.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE696F1A5FC1C24E946B619CD5B7AE24249ADFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224241   (971696) от 15.01.2016
-
-NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему вуду запрещено? Возможно, потому, что оно включает такие жуткие обряды, как одержимость и черная магия. Проследите, как вуду обрело разнообразие и стало табу даже у народов, практикующих его.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440517   (970602) от 22.01.2012
-
-NG: Апокалипсис: Вторая мировая война: Развязывание войны / National Geographic: Apocalypse. World War II. The outbreak of war (2009 (эфир от 21.01.2012)) IPTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970602.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью редких киноматериалов 1939 года фильм ярко воссоздает события начала войны, включая нападение на Польшу и создание лодзинского гетто.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA11B797D1F177E18463E5E43518D0BEA183E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 353969   (970584) от 16.01.2016
-
-NG: Запреты. Опознавательные знаки / Taboo. Marks of Identity (2004) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый принадлежит к какой-то группе, но некоторые выражают свою принадлежность экстремальным образом. Татуировки, клеймение, растягивание частей тела – все это обозначения своей субкультуры, но у других это может считаться табу.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D9C7C831FA38CEE258DA9EC152358B6E5D86FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,138 @@
+###  Публикация: 990909   (909355) от 26.02.2016
+
+Антон Брежестовский | Пикассо украл колесо и еще 39 лингвистических конфет для ежедневного прогресса в английском (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909355.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уникальном учебном пособии ключевые грамматические темы и лексические тонкости представлены в виде мини-уроков, которые можно освоить за 10-15 минут. Многолетний преподавательский опыт и тонкое чувство юмора позволяют автору просто и занятно рассказывать обо всем, что нужно знать, чтобы говорить по-английски. Понятные объяснения и запоминающиеся примеры помогут (   Читать дальше...   )Жанр: Иностранный язык детямФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49860576FA823B0C998337319DA705484A41D6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759095   (909291) от 21.02.2014
+
+И. Рахтанов | Амангельды Иманов (1938) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909291.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Турксибе, неподалеку от полотна железной дороги, возвышается круглая солка. Ее называют Иман-тау---в память о Имане. Иман--дед Амангельды-был человек зависимый, полукрепостной. Он погиб лет сто тому назад, когда вольные кочевники-казахи защищали свои степм и свободу...
+
+Исторический рассказ для младшего и среднего возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0AD872F40EB4B57A504090170757D26BBDFA1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759269   (909274) от 21.02.2014
+
+Г. Гулиа | Горная сказка (1952) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909274.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Абхазии, в этом маленьком крае, очень большие горы, вершины их достигают почти до самого неба.
+У подножия одной такой горы, в деревни Олений Родник, жили дедушка и внучек...Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CF4CA310A50B2485710D5301823BCB18DBACFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759266   (909228) от 21.02.2014
+
+А. Праведникова | Пароходы (1929) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книжка-картинка рассказывает о том, какие бывают пароходы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D535B2DD50B1F45606C85F49B0CE1A10718149F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759092   (909200) от 21.02.2014
+
+Н. Дмитриев, О. Ровинский | Битва при Гангуте (1939) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский парусный и галерный флот готовился к трудному походу против шведов....
+
+Исторический рассказ для младшего и среднего возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3725A98BF6273705BAB089FC92C2A60B8B407E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368689   (909080) от 20.03.2020
 
 Катя Шницлер | «Считаю до трех!»: Что делать, если дети сводят нас с ума (2016) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +141,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909080.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908933.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908882.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908868.jpg" />
 </div>
 
 
@@ -114,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908704.jpg" />
 </div>
 
 
@@ -141,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908678.jpg" />
 </div>
 
 
@@ -167,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908564.jpg" />
 </div>
 
 
@@ -193,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908535.jpg" />
 </div>
 
 
@@ -219,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908527.jpg" />
 </div>
 
 
@@ -247,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908209.jpg" />
 </div>
 
 
@@ -275,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907693.jpg" />
 </div>
 
 
@@ -301,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907689.jpg" />
 </div>
 
 
@@ -329,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907423.jpg" />
 </div>
 
 
@@ -356,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907415.jpg" />
 </div>
 
 
@@ -382,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907338.jpg" />
 </div>
 
 
@@ -408,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907068.jpg" />
 </div>
 
 
@@ -434,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907063.jpg" />
 </div>
 
 
@@ -460,7 +595,7 @@ Colouring Book: Endangered Species (2021) [PDF]
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907048.jpg" />
 </div>
 
 
@@ -486,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907026.jpg" />
 </div>
 
 
@@ -512,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906966.jpg" />
 </div>
 
 
@@ -538,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906918.jpg" />
 </div>
 
 
@@ -550,137 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0964179BF661CBBA0BF2DB83BF99C4CAFFCE45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866860   (906770) от 06.02.2015
-
-Николай Блинов | Флаг на грот-мачте (1987) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная приключенческая повесть о возникновении пионерского движения на Севере, в Архангельске. Ребята создают первый пионерский лагерь, издают рукописный журнал "Костер", активно участвуют в зарождении новой жизни.Жанр: Детская проза, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0AC4E21AF001BD9F5070B650B6799F7745AA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491957   (906749) от 27.08.2021
-
-Е. Комиссарова (отв.ред.) | Игрополис. Новые игры для развития мозга (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тренируй мозг, как спортсмена, воспитывай его, как аристократа, учи – как будущего Эйнштейна. А в этом тебе поможет наш сборник игр! Нет-нет, это не скучные монотонные упражнения. Это интересные и необычные игры, которые смогут надолго увлечь не только тебя, но и твоих друзей! Играя, ты сможешь потренировать логическое и абстрактное мышление, развить фантазию, память, (   Читать дальше...   )Жанр: Игры/ГоловоломкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC00B02DA266BADCDF28CB7D5A16A6CDACEE90F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539223   (906746) от 27.08.2021
-
-Джанни Родари | Путешествие Голубой Стрелы [1958] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джанни Родари (итал. Gianni Rodari, 23 октября 1920, Оменья, Италия — 14 апреля 1980, Рим, Италия) — известный итальянский детский писатель и журналист.
-Сказочная повесть рассказывает о рождественском волшебном путешествии игрушечного поезда «Голубая Стрела» и его кукольных пассажиров. Джанни Родари пишет о детях бедняков, которые частенько остаются без подарков (   Читать дальше...   )Жанр: СказкиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD1BEF4148381B69D8B086A256A1197B8AD88D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866863   (906645) от 06.02.2015
-
-Борис Бондаренко | Залив Терпения (1988) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Бондаренко известен читателю романами «Пирамида», «По собственному желанию» и другими книгами. Герои повестей, вошедших в настоящий сборник, наши современники – физики одного из научно-исследовательских институтов Москвы, рыбаки Сахалина, жители глухой сибирской деревин, разные по возрасту и образованию. Но все повести объединены неизменным интересом автора (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7C77B081CDB5355E32B965890FD38CA6BC97FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098350   (906640) от 31.01.2017
-
-Фрэнсис Элиза Бёрнетт | Собрание сочинений в четырех томах (1993) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творчество американской детской писательницы Фрэнсис Элизы Бёрнетт (1849-1924) по праву пользовалось в дореволюционной России шиpокой известностью. В романе «Приключения маленького лорда» (издавался также под названием «Маленький лорд Фаунтлерой») писательница описывает полный драматических событий год жизни юного американца, неожиданно для всех ставшего наследником (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D28916091FD9E0BB8047D163691B41C365DD5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

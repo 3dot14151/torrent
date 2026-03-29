@@ -6,7 +6,7 @@ Microsoft Visual C++ 2017 Redistributable 14.16.27024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791004.jpg" />
+  <img src="Z:/picture/008/save_picture_791004.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alternate File Shredder 2.211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790975.jpg" />
+  <img src="Z:/picture/008/save_picture_790975.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 09.01.2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790968.jpg" />
+  <img src="Z:/picture/008/save_picture_790968.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ uTorrent 3.5.5 Build 44994 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790956.jpg" />
+  <img src="Z:/picture/008/save_picture_790956.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790938.jpg" />
+  <img src="Z:/picture/008/save_picture_790938.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ uTorrent 3.5.5 Build 44994 (Ad-Free) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790918.jpg" />
+  <img src="Z:/picture/008/save_picture_790918.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790914.jpg" />
+  <img src="Z:/picture/008/save_picture_790914.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Easy Duplicate Finder 5.10.0.992 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790892.jpg" />
+  <img src="Z:/picture/008/save_picture_790892.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ uTorrent 3.5.5 (build 44994) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790883.jpg" />
+  <img src="Z:/picture/008/save_picture_790883.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Comodo Internet Security Premium 11.0.0.6744 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790877.jpg" />
+  <img src="Z:/picture/008/save_picture_790877.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VueScan Pro 9.6.06 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790857.jpg" />
+  <img src="Z:/picture/008/save_picture_790857.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ CPU-Z 1.83.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790856.jpg" />
+  <img src="Z:/picture/008/save_picture_790856.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ SoftPerfect WiFi Guard 2.0.1 RePack (&Portable) by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790850.jpg" />
+  <img src="Z:/picture/008/save_picture_790850.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6798.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790838.jpg" />
+  <img src="Z:/picture/008/save_picture_790838.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WizTree 4.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790808.jpg" />
+  <img src="Z:/picture/008/save_picture_790808.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Wise Care 365 Pro 6.1.2.597 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790802.jpg" />
+  <img src="Z:/picture/008/save_picture_790802.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Opera GX 81.0.4196.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790798.jpg" />
+  <img src="Z:/picture/008/save_picture_790798.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Waterfox Current G4.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790765.jpg" />
+  <img src="Z:/picture/008/save_picture_790765.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Glary Utilities Pro 5.176.0.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790764.jpg" />
+  <img src="Z:/picture/008/save_picture_790764.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Any Video Converter Ultimate 7.1.4 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790761.jpg" />
+  <img src="Z:/picture/008/save_picture_790761.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ DiskDigger 1.53.97.3169 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790746.jpg" />
+  <img src="Z:/picture/008/save_picture_790746.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790740.jpg" />
+  <img src="Z:/picture/008/save_picture_790740.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ StartAllBack 3.0.6 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790738.jpg" />
+  <img src="Z:/picture/008/save_picture_790738.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Universal Media Creation Tool 16.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790737.jpg" />
+  <img src="Z:/picture/008/save_picture_790737.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Movavi Video Converter 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790725.jpg" />
+  <img src="Z:/picture/008/save_picture_790725.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ AnyDesk 7.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790724.jpg" />
+  <img src="Z:/picture/008/save_picture_790724.jpg" />
 </div>
 
 

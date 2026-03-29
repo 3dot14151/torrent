@@ -6,7 +6,7 @@ Luminar 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807340.jpg" />
+  <img src="Z:/picture/008/save_picture_807340.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Unclutter 2.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807333.jpg" />
+  <img src="Z:/picture/008/save_picture_807333.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ LibreOffice 4.4.2 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807312.jpg" />
+  <img src="Z:/picture/008/save_picture_807312.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807311.jpg" />
+  <img src="Z:/picture/008/save_picture_807311.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Rufus 2.8 (Build 886) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807310.jpg" />
+  <img src="Z:/picture/008/save_picture_807310.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807309.jpg" />
+  <img src="Z:/picture/008/save_picture_807309.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807306.jpg" />
+  <img src="Z:/picture/008/save_picture_807306.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807305.jpg" />
+  <img src="Z:/picture/008/save_picture_807305.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ JoJo no Kimyou na Bouken: Diamond wa Kudakena / JoJo`s Bizarre Adventure: Diamon
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807303.jpg" />
+  <img src="Z:/picture/008/save_picture_807303.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807297.jpg" />
+  <img src="Z:/picture/008/save_picture_807297.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807293.jpg" />
+  <img src="Z:/picture/008/save_picture_807293.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Autodesk AutoCAD P&ID 2017 HF1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807292.jpg" />
+  <img src="Z:/picture/008/save_picture_807292.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807265.jpg" />
+  <img src="Z:/picture/008/save_picture_807265.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Drum & Bass Miami (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807230.jpg" />
+  <img src="Z:/picture/008/save_picture_807230.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Ummy Video Downloader 1.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807226.jpg" />
+  <img src="Z:/picture/008/save_picture_807226.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ DCommander 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807225.jpg" />
+  <img src="Z:/picture/008/save_picture_807225.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Internet Download Manager 6.28 Build 3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807224.jpg" />
+  <img src="Z:/picture/008/save_picture_807224.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Bigasoft Video Downloader Pro 3.14.1.6285 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807222.jpg" />
+  <img src="Z:/picture/008/save_picture_807222.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ save2pc Ultimate 5.4.8 Build 1563 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807218.jpg" />
+  <img src="Z:/picture/008/save_picture_807218.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807212.jpg" />
+  <img src="Z:/picture/008/save_picture_807212.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Wise Care 365 Pro 3.59.319 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807203.jpg" />
+  <img src="Z:/picture/008/save_picture_807203.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Torch Browser 39.0.0.9329 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807202.jpg" />
+  <img src="Z:/picture/008/save_picture_807202.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807188.jpg" />
+  <img src="Z:/picture/008/save_picture_807188.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807180.jpg" />
+  <img src="Z:/picture/008/save_picture_807180.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ ACDSee Pro 9.2 Build 524 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807174.jpg" />
+  <img src="Z:/picture/008/save_picture_807174.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Nail'd [Ru] (RePack) 2010 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807114.jpg" />
+  <img src="Z:/picture/008/save_picture_807114.jpg" />
 </div>
 
 

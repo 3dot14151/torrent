@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393110.jpg" />
+  <img src="Z:/picture/008/save_picture_393110.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Viasat History: По железным дорогам бывшей империи
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386847.jpg" />
+  <img src="Z:/picture/008/save_picture_386847.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386564.jpg" />
+  <img src="Z:/picture/008/save_picture_386564.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386563.jpg" />
+  <img src="Z:/picture/008/save_picture_386563.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385253.jpg" />
+  <img src="Z:/picture/008/save_picture_385253.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380907.jpg" />
+  <img src="Z:/picture/008/save_picture_380907.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380786.jpg" />
+  <img src="Z:/picture/008/save_picture_380786.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378494.jpg" />
+  <img src="Z:/picture/008/save_picture_378494.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376705.jpg" />
+  <img src="Z:/picture/008/save_picture_376705.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376463.jpg" />
+  <img src="Z:/picture/008/save_picture_376463.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374611.jpg" />
+  <img src="Z:/picture/008/save_picture_374611.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374480.jpg" />
+  <img src="Z:/picture/008/save_picture_374480.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374396.jpg" />
+  <img src="Z:/picture/008/save_picture_374396.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374064.jpg" />
+  <img src="Z:/picture/008/save_picture_374064.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372841.jpg" />
+  <img src="Z:/picture/008/save_picture_372841.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372028.jpg" />
+  <img src="Z:/picture/008/save_picture_372028.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371854.jpg" />
+  <img src="Z:/picture/008/save_picture_371854.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371765.jpg" />
+  <img src="Z:/picture/008/save_picture_371765.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368613.jpg" />
+  <img src="Z:/picture/008/save_picture_368613.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368224.jpg" />
+  <img src="Z:/picture/008/save_picture_368224.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367492.jpg" />
+  <img src="Z:/picture/008/save_picture_367492.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366619.jpg" />
+  <img src="Z:/picture/008/save_picture_366619.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364403.jpg" />
+  <img src="Z:/picture/008/save_picture_364403.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364264.jpg" />
+  <img src="Z:/picture/008/save_picture_364264.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362549.jpg" />
+  <img src="Z:/picture/008/save_picture_362549.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360019.jpg" />
+  <img src="Z:/picture/008/save_picture_360019.jpg" />
 </div>
 
 

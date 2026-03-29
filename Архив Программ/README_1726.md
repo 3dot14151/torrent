@@ -1,3 +1,293 @@
+###  Публикация: 1619153   (201249) от 14.03.2023
+
+Advanced SystemCare Pro 16.3.0.190 Portable by zeka.k [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced SystemCare PRO - это мощный пакет для оптимизации операционной системы, включает в себя множество модулей для оптимизации, настройки и повышения производительности компьютеров. Благодаря возможностям данной программы вы сможете настроить Windows до уровня оптимальной производительности, увеличить скорость интернета (до 300 процентов) и защитить компьютер (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8F2C8593D6342D4D974B69188BEB934554CA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619228   (201240) от 15.03.2023
+
+Torrent Merkle Root Reader (TMRR) 1.1.4g [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная программа командной строки позволяет извлечь корневые Merkle хеши из BitTorrent v2 совместимых, гибридных .torrent файлов, также вычислять корневой хеш для любого файла.
+Можно зная хеш индивидуальных файлов, искать их на раздачах трекеров, которые обзавелись поддержкой BitTorrent v2 протокола.
+Для поиска сидов, восстановления умерших раздач, чтобы категоризировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3AABB00CFB3A25D32E67A18109480FD140DE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619309   (201230) от 15.03.2023
+
+Opera 96.0.4693.80 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8655728410138AA9158330CD7BD96163B333C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619292   (201229) от 15.03.2023
+
+Microsoft  Visual C++ Runtimes AIO v0.68.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2425FC9B9B34498ACAC23E326AE1B29DE098B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619343   (201226) от 15.03.2023
+
+PC HelpSoft Driver Updater 6.3.924 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201226.jpg" />
+</div>
+
+
+###  Подробнее
+
+PC HelpSoft Driver Updater автоматически сканирует разные базы данных. Идентификация устройства пользователя будет проводиться в автоматическом режиме. Позволяет моментально находить рабочие, новейшие драйвера.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F36380404195E2B0489EEDE24872E12E5C90742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619667   (201224) от 17.03.2023
+
+Stardock Fences 4.1.1.0 (x64) RePack by xetrin [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stardocks Fences - программа, которая помогает Вам стильно навести порядок в хаосе Вашего рабочего стола. Элементы группируются либо по типу, либо по личным критериям в затемнённых областях, которые можно создавать, переименовывать, перемещать и изменять в размере.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF285687F4019FB7A400286D1832764F31F66DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619290   (201223) от 15.03.2023
+
+Microsoft Visual C++ 2015-2022 Redistributable 14.36.32502.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распространяемый компонент Visual C++ устанавливают компоненты среды выполнения, необходимые для выполнения приложений C++, которые разработаны с помощью Visual Studio.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EFC48D0EC0F285939955D76FDC7CAEE3DA7230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619681   (201222) от 17.03.2023
+
+Allavsoft Video Downloader Converter 3.25.6.8475 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665D2B358681CCA52FA907228A9FBBDC90FCA307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619755   (201219) от 17.03.2023
+
+VMware vCenter Converter Standalone 6.3.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201219.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware vCenter Converter Standalone, конвертер VMware P2V и V2V – бесплатное приложение для конвертации и миграции компьютеров, серверов и виртуальных машин в виртуальные машины VMware на Windows. Включает 3 компонента: сервер, агент, клиент
+
+VMware vCenter Converter Standalone – бесплатное приложение, которое предоставлено официально с сайта VMware и его можно установить (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354ED56853F616C0420CB24B83B1D1CE22E78DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619715   (201216) от 17.03.2023
+
+Microsoft  Visual C++ Runtimes AIO v0.69.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC9B11C197989004C977E4FCB435762E8A89F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619390   (201215) от 15.03.2023
+
+Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.5493.1000 VL (x86) RePack by SPecialiST v23.3 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 – лучший пакет прикладных программы для работы над документами различных типов. В его состав входят лучшие средства для развития бизнеса, а так же для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия, не важно, Office 2013 просто обязан быть установлен на любом (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F865EFC6943999584BA70C76F8D21244F8D263D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619332   (201213) от 15.03.2023
 
 StartAllBack 3.6.3 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +296,7 @@ StartAllBack 3.6.3 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201213.jpg" />
+  <img src="Z:/picture/005/save_picture_201213.jpg" />
 </div>
 
 
@@ -32,7 +322,7 @@ Total Commander 10.52 (15.03.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201210.jpg" />
+  <img src="Z:/picture/005/save_picture_201210.jpg" />
 </div>
 
 
@@ -58,7 +348,7 @@ CCleaner 6.10.10347 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201208.jpg" />
+  <img src="Z:/picture/005/save_picture_201208.jpg" />
 </div>
 
 
@@ -84,7 +374,7 @@ CCleaner 6.10.10347 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201206.jpg" />
+  <img src="Z:/picture/005/save_picture_201206.jpg" />
 </div>
 
 
@@ -110,7 +400,7 @@ Maplesoft Maple 2023 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201198.jpg" />
+  <img src="Z:/picture/005/save_picture_201198.jpg" />
 </div>
 
 
@@ -137,7 +427,7 @@ Office Tool Plus 10.0.6.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201191.jpg" />
+  <img src="Z:/picture/005/save_picture_201191.jpg" />
 </div>
 
 
@@ -163,7 +453,7 @@ PicPick Free+Pro 7.1.0 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201187.jpg" />
+  <img src="Z:/picture/005/save_picture_201187.jpg" />
 </div>
 
 
@@ -189,7 +479,7 @@ StartAllBack 3.6.3 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201173.jpg" />
+  <img src="Z:/picture/005/save_picture_201173.jpg" />
 </div>
 
 
@@ -215,7 +505,7 @@ DAEMON Tools Lite 11.1.0.2051 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201152.jpg" />
+  <img src="Z:/picture/005/save_picture_201152.jpg" />
 </div>
 
 
@@ -242,7 +532,7 @@ Microsoft .Net Framework 14.03.23 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201135.jpg" />
+  <img src="Z:/picture/005/save_picture_201135.jpg" />
 </div>
 
 
@@ -268,7 +558,7 @@ Windows 11 Manager 1.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201130.jpg" />
+  <img src="Z:/picture/005/save_picture_201130.jpg" />
 </div>
 
 
@@ -294,7 +584,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5537.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201117.jpg" />
+  <img src="Z:/picture/005/save_picture_201117.jpg" />
 </div>
 
 
@@ -320,7 +610,7 @@ Master PDF Editor 5.9.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201108.jpg" />
+  <img src="Z:/picture/005/save_picture_201108.jpg" />
 </div>
 
 
@@ -346,7 +636,7 @@ MiniTool Power Data Recovery 11.5 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201102.jpg" />
+  <img src="Z:/picture/005/save_picture_201102.jpg" />
 </div>
 
 
@@ -372,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201089.jpg" />
+  <img src="Z:/picture/005/save_picture_201089.jpg" />
 </div>
 
 
@@ -384,297 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F59C0DFE06D8383099CAE2F6A02DD35A360ACC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620498   (201086) от 20.03.2023
-
-HitPaw Watermark Remover 2.2.0.25 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201086.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Watermark Remover предоставит возможность вам удалять водяные знаки с видеороликов и изображений, легко удалит дату, какой угодно объект, мешающих в кадре прохожих и прочее.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5EEB109CE99C0E8703CFF4B79A459C73EC0919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620096   (201085) от 18.03.2023
-
-Luminar Neo 1.7.1.11148 (Repack & Portable) by elchupacabra [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EC898E61846329E5CD9D6D6EDF44402C343317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620576   (201084) от 20.03.2023
-
-Mirillis Action! 4.31.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
-Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D6B2990AEBF7A0C79324401FA2B1CEFBEDC470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620458   (201079) от 20.03.2023
-
-HitPaw Video Converter 2.8.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201079.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Video Converter позволяет пользователям редактировать и конвертировать свои видео в любой формат, чтобы использовать их на любом устройстве и загружать видео с более чем 1000 веб-сайтов, таких как YouTube, Facebook и Vimeo.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06DCD2A7C9F1D937EE5DB78822F05794F23B320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620064   (201076) от 18.03.2023
-
-Rufus 3.22 (Build 2003) Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A7732072679A42CC80C89FB2536D6A015BC7DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620027   (201038) от 19.03.2023
-
-Windows 10 (v22h2) x64 HSL/PRO by KulHunter v5.1 (esd) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_22h2_updated_
-feb_2023_x64_dvd_909defc0.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5C2EEAB922ACB6634E9DFAF2B4F0C26A39F6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620771   (201024) от 21.03.2023
-
-VueScan Pro 9.7.99 (20.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201024.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA8E59863694D599B359BBD4AD2C70262418086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620462   (201016) от 20.03.2023
-
-MetaProducts Offline Explorer Enterprise 8.4.4960 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201016.jpg" />
-</div>
-
-
-###  Подробнее
-
-MetaProducts Offline Explorer Enterprise — мощнейшая программа, позволяющая скачивать как отдельные файлы, так и целые веб-сайты (HTTP, FTP и HTTPS) на жесткий диск для их последующего офлайн просмотра как на отдельном компьютере, так и пользователями целой локальной сети. Используя Offline Explorer Enterprise, вы можете одновременно качать неограниченное количество (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFCC6DA477958094D78C8883663225D09ACBA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620568   (201013) от 20.03.2023
-
-DxO PureRAW 3.0.0 build 9 RePack by KpoJIuK [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
-С программным обеспечением DxO PureRAW легко и просто улучшить файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B05027223DE5EB795DCF1E622E072143DC6B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620856   (201012) от 22.03.2023
-
-IceCream Ebook Reader Pro 6.28 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читалка для ПК, которая превратит Ваш экран в первоклассную программу для чтения книг. Читайте книги в ePub, MOBI, FB2, CBR и других популярных форматах. С легкостью управляйте цифровой библиотекой на компьютере с Icecream Ebook Reader. Добавляйте заметки, переводите текст, используйте закладки и многое другое.Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964B4229568F972E9387A00C197C4FDD128BA262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620452   (201011) от 20.03.2023
-
-Driver Easy Pro 5.8.0.17776 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Easy Professional — профессиональная и в тоже время простая в использовании программа для вашего компьютера, которая предназначена для работы с драйверами системы — для поиска и загрузки последних версий драйверов. Просканировав вашу систему, программа найдет устаревшие драйвера, позволит вам скачать их обновленные версии и установить. Driver Easy может создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5CBBA83E1DA50DE8A3EC1B207ECA4FE7177AEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ TNOD User & Password Finder 1.6.4.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780017.jpg" />
+  <img src="Z:/picture/008/save_picture_780017.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CocCoc 68.4.154 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779974.jpg" />
+  <img src="Z:/picture/008/save_picture_779974.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779954.jpg" />
+  <img src="Z:/picture/008/save_picture_779954.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sandboxie 5.23.6 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779949.jpg" />
+  <img src="Z:/picture/008/save_picture_779949.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tixati 2.56 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779929.jpg" />
+  <img src="Z:/picture/008/save_picture_779929.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ qBittorrent 4.0.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779925.jpg" />
+  <img src="Z:/picture/008/save_picture_779925.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Auslogics File Recovery 8.0.5.0 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779921.jpg" />
+  <img src="Z:/picture/008/save_picture_779921.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Movavi Video Suite 17.2.1 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779908.jpg" />
+  <img src="Z:/picture/008/save_picture_779908.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mailbird Pro 2.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779892.jpg" />
+  <img src="Z:/picture/008/save_picture_779892.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Opera 51.0.2830.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779883.jpg" />
+  <img src="Z:/picture/008/save_picture_779883.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AusLogics BoostSpeed 10.0.5.0 RePack (& Portable)  by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779871.jpg" />
+  <img src="Z:/picture/008/save_picture_779871.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FxSound Enhancer 13.019 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779867.jpg" />
+  <img src="Z:/picture/008/save_picture_779867.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Red Giant Shooter Suite 13.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779856.jpg" />
+  <img src="Z:/picture/008/save_picture_779856.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Skype 8.16.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779840.jpg" />
+  <img src="Z:/picture/008/save_picture_779840.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Auslogics Disk Defrag Free 8.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779785.jpg" />
+  <img src="Z:/picture/008/save_picture_779785.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Calibre 3.18.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779784.jpg" />
+  <img src="Z:/picture/008/save_picture_779784.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Viber 8.3.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779775.jpg" />
+  <img src="Z:/picture/008/save_picture_779775.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Google Chrome 64.0.3282.186 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779773.jpg" />
+  <img src="Z:/picture/008/save_picture_779773.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ GPU-Z 2.8.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779772.jpg" />
+  <img src="Z:/picture/008/save_picture_779772.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Movavi Video Suite 17.2.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779754.jpg" />
+  <img src="Z:/picture/008/save_picture_779754.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ ProduKey 1.92 Portabe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779752.jpg" />
+  <img src="Z:/picture/008/save_picture_779752.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ CompactGUI 2.5.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779751.jpg" />
+  <img src="Z:/picture/008/save_picture_779751.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ FastStone Capture 8.8 Final RePack (& portable) by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779745.jpg" />
+  <img src="Z:/picture/008/save_picture_779745.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ mp3DirectCut 2.24 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779739.jpg" />
+  <img src="Z:/picture/008/save_picture_779739.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Media Player Classic Home Cinema 1.7.15 RePack (& portable) by KpoJIuK  [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779736.jpg" />
+  <img src="Z:/picture/008/save_picture_779736.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ SamDrivers 18.2 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779735.jpg" />
+  <img src="Z:/picture/008/save_picture_779735.jpg" />
 </div>
 
 

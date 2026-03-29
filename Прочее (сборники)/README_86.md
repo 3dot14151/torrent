@@ -1,3 +1,206 @@
+###  Публикация: 1149223   (602512) от 09.07.2017
+
+VA - The 90’s (2017) [MP3|320 Kbps] <Pop, Rock, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candlebox – Far Behind.mp3
+02. Mase – Feel So Good.mp3
+03. Barenaked Ladies – Alcohol.mp3
+04. Faith No More – Easy.mp3(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 03:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0C91A3F72269843B8B7D92497668889E3BDFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148869   (602411) от 09.07.2017
+
+VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.23 (2017) [MP3|128-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michel Telo - Ai Se Eu Te Pego
+002. Taio Cruz feat FloRida - Hangover
+003. Ёлка - Около тебя
+004. Serge Devant and Coyle Girelli - On your Own(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE9811BE1ED72B6EDD5B7E4258D2F40616488AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298099   (602171) от 26.04.2019
+
+VA - Bassline Megamix: Spring Party (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep, Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602171.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anile - Earth & Mars
+002. Fishy - Suspense (Original Mix)
+003. Hoover1 - Hoover1A
+004. Dj Tiny M - Sanity Killz Dat (Original Mix)(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, BassПродолжительность: Drum And Bass, Dubstep, Bass
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0441F44A51BD824376383D40B96B6F5069D95FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298231   (602159) от 26.04.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 26.04.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Sweet But Psycho (3:07)
+02. Ariana Grande - 7 Rings (2:58)
+03. Aaron Smith feat. Luvli - Dancin (Krono Remix) (3:17)
+04. Lil Peep & XXXTentacion - Falling Down (3:16)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4062B2F593AA8619D722A3AECEC63FE588DE7762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548012   (601969) от 30.04.2022
+
+VA - ЕвроХит Топ 40 Europa Plus 29.04.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Puth - Light Switch (3:05)
+02. Stromae - L'enfer (3:09)
+03. Tove Lo - How Long (3:19)
+04. Shouse - Wont Forget You (3:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D71F0535970D727B2D62566081D073AC6E2D33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298343   (601907) от 27.04.2019
+
+VA - The Official UK Top 40 Singles Chart 26.04.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Nas X - Old Town Road
+02. Meduza, GOODBOYS - Piece Of Your Heart
+03. Lewis Capaldi - Someone You Loved
+04. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CCF2FEBEDC8CE9F95E429199E22574120478FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298981   (601575) от 29.04.2019
+
+VA - Фитнес 50 треков (2019) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amped Up Fitness - Everybody Let It Rock (2:36)
+02. Capital Cities - Safe And Sound (3:12)
+03. Crossfit Junkies - Jump (2:50)
+04. Crossfit Junkies - Rave (3:12)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 03:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2D79C6BA4412A71F23764D7F9FE7F084FFF029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913811   (601301) от 30.06.2015
 
 VA - German Top 50 Official Dance (06.07.2015) [MP3|320 кб/с]<Dance>
@@ -6,7 +209,7 @@ VA - German Top 50 Official Dance (06.07.2015) [MP3|320 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601301.jpg" />
+  <img src="Z:/picture/008/save_picture_601301.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Coctail Driver Summer Party (2015) [MP3|187-320 кб/с]<EuroDance, Euro Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601300.jpg" />
+  <img src="Z:/picture/008/save_picture_601300.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Hot Dance Summer 2015 Vol.2 (2015) [MP3|320 кб/с]<Club House , Electro H
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601292.jpg" />
+  <img src="Z:/picture/008/save_picture_601292.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Billboard Hot 100 Singles Chart 4 July (2015) [MP3|320 кб/с]<Pop, Euro, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601291.jpg" />
+  <img src="Z:/picture/008/save_picture_601291.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - TOP June (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601221.jpg" />
+  <img src="Z:/picture/008/save_picture_601221.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - White And Gold: Popular Dance Hit (2017) [MP3|320 Kbps] <Dance, Club, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601040.jpg" />
+  <img src="Z:/picture/008/save_picture_601040.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Лучшие новинки июня 2015 от Zaycev.net (2015) [MP3|160 -
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600939.jpg" />
+  <img src="Z:/picture/008/save_picture_600939.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - не Громкие новинки недели 13 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600840.jpg" />
+  <img src="Z:/picture/008/save_picture_600840.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Хитовый форсаж №1 (2015) [MP3|320 кб/с]<Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600269.jpg" />
+  <img src="Z:/picture/008/save_picture_600269.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Empire Records - Deep Disco (2017) [MP3|320 Kbps] <Dance, Deep House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600244.jpg" />
+  <img src="Z:/picture/008/save_picture_600244.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Hot Dance Summer Vol.2 (2017) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600105.jpg" />
+  <img src="Z:/picture/008/save_picture_600105.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - ЕвроХит Топ 40 Europa Plus 22.06.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599807.jpg" />
+  <img src="Z:/picture/008/save_picture_599807.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Летний музыкальный Non-Stop (2CD) (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599620.jpg" />
+  <img src="Z:/picture/008/save_picture_599620.jpg" />
 </div>
 
 
@@ -398,7 +601,7 @@ VA - Летний Молодежный Top 100 (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599616.jpg" />
+  <img src="Z:/picture/008/save_picture_599616.jpg" />
 </div>
 
 
@@ -433,7 +636,7 @@ VA - Дискотека 2018 Dance Club Vol.180 от NNNB (2018) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599463.jpg" />
+  <img src="Z:/picture/008/save_picture_599463.jpg" />
 </div>
 
 
@@ -465,7 +668,7 @@ VA - Флейта в Рок Музыке (2012) [MP3|181-320 кб/с]<Blues Rock
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599213.jpg" />
+  <img src="Z:/picture/008/save_picture_599213.jpg" />
 </div>
 
 
@@ -500,7 +703,7 @@ VA - Empire Records - Deep Disco 3 (2017) [MP3|256-320 Kbps] <Dance, Deep House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598452.jpg" />
+  <img src="Z:/picture/008/save_picture_598452.jpg" />
 </div>
 
 
@@ -529,7 +732,7 @@ VA - Empire Records - Deep Disco 2 (2017) [MP3|263-320 Kbps] <Dance, Deep House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598429.jpg" />
+  <img src="Z:/picture/008/save_picture_598429.jpg" />
 </div>
 
 
@@ -558,7 +761,7 @@ VA - La Perla De Musica: New Latin (2022) [MP3|320 Kbps] <Latin, Dance, Reggaeto
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598198.jpg" />
+  <img src="Z:/picture/008/save_picture_598198.jpg" />
 </div>
 
 
@@ -572,239 +775,6 @@ VA - La Perla De Musica: New Latin (2022) [MP3|320 Kbps] <Latin, Dance, Reggaeto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C97F2F7E5ED9A053C63EDC845532196C9404E2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914440   (598168) от 02.07.2015
-
-VA - Summer Pop Mania (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer X DJ Snake Feat. MO - Lean On
-02. Fabio XB & Liuck Feat. Christina Novelli - Step Into The Light
-03. CJ Stone - Sound Of Infinity
-04. Madcon Feat. Ray Dalton - Don't Worry(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1741C29846D6680727EE3A50C2E89E3A5715BF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548224   (598019) от 03.05.2022
-
-VA - Music News vol.185 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598019.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna Krishtal - Выходной От Тебя (02:57)
- 002. 13Kai - Мишка (01:37)
- 003. Adam feat. Mikki - Прошу Постой (04:09)
- 004. Alan Walker - The Drum (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A5D2570089CBB9325252FDE09CE7257E1F9C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914331   (597993) от 02.07.2015
-
-VA - (OST - Score) Sonic Adventure 2 (2001) [MP3|320 кб/с]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип собранный из Lossless качестваЖанр: Electronic / RockПродолжительность: 03:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A21FEB7A6ADAD561A671A78FC9121471EA78C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526341   (597811) от 24.07.2012
-
-VA - Волна Свежести 50/ 50 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biome feat. Fox - No Soul
- 02. Kill Paris - I Wanna Be Your Lover
- 03. 5sta Family - Вместе Мы
- 04. Alexa - Love The Way You Lie
- 05. All Давай feat. DJ Ihlas - Москва-Дубай
- 06. Alya - Damelo (Radio Edit)
- 07. Ани Лорак - Обними Меня
- 08. Анна Седокова - Что Я Наделала
- 09. D-Bosh - Верь Мне (Remix By Lasteden)
- 10. David Dino MC 47 - Ты Больше Не Моя (DJ_Iksiy_Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EC47DBF6F314A281B2FE7F8A4952308159A2F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526731   (597654) от 24.07.2012
-
-VA - Recordный драйв 3 50/50 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dato - Потанцуй (DJ Fisun remix)
-02. DJ Fisun feat. Liz Anderson - About you
-03. Артур Пирожков - Плач Детка (Dj Vengerov Radio Remix)
-04. Hippies & Gadgets - Electronic Simpaties
-05. Время и стекло - Серебряное Море (DJ Melloffon Remix)
-06. Jerome - Stars (Original Mix)
-07. Макsим - Дождь (DJ Fisun & i-DEA radio edit)
-08. Malu Project - Heartbeat (Marc Korn Bigroom Remix) Mental Madness Records
-09. DJ Val & Ди-Кей - Море (Original Mix)
-10. Maroon 5 feat. Christina Aguilera vs. Purple Project - Moves Like Jagger (Sir Art & Vivi Dj Mashup)(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7628733B3B38CE8DA3241F2E9E4E27A42D38EBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526350   (597644) от 24.07.2012
-
-VA - Всю ночь танцы (2CD) (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597644.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-001. Charmlex feat. Анастасия Бережная И Андрей Леницкий - Сhampion
-002. Dan Balan - Не Любя
-003. Наталья Строгая - Гимн R-Club
-004. Оксана Почепа - По Подоконнику Дождь
-005. Оксана Ковалевская & Dj Antonas - Я Убегаю
-006. A-Merika - Смотри На Меня
-007. Dj Сателлит & Marlena Ft. Polcox - Почему (Tonada Radio Mix)
-008. Катя Лель - С Днем Рождения
-009. D.Lemma feat. Игорь Татаренко - У Ла Ла Ла(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:25:10
-001. Dиk - Легко
-002. Artik Pres. Asti - Облака (Extended Mix)
-003. Джеджула - Иванова
-004. Эльдар Далгатов - Не Своди С Ума
-005. Неангелы - Твоя (Sunrise Dance Mix By Mk)
-006. Ksela feat. Dj Alix - Наше Лето
-007. Андрей Артемьев - Твой Ангел-Хранитель
-008. Danila Rastv - А Я Тебя Запомнил
-009. Арина И Размер Project - Забирай (Hard Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7B4EEEE434B427158965C0425143B83ED3F81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526711   (597535) от 24.07.2012
-
-VA - Жажда Скорости По-Летнему (2012) [MP3|256 кб/с]<Pop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597535.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Master Blaster - Let's Get Mad (DJ Tht & Ced Tecknoboy Radio Edit)
-002. Pulsedriver - Lookout Weekend 2012 (Ti-Mo Edit)
-003. Michel Telo - Ai Se Eu Te Pego (Sunray vs. Giga Dance Bootleg Mix)
-004. Scooter feat. Vicky Leandros - C'est Bleu (Radio Edit)
-005. Movetown feat. Nana - Lonely (DJ Klubbingman Meets Raindropz! Remix Edit)
-006. Dual Playaz - Alone Again (Rocco & Bass-T Edit)
-007. Frisco Disco feat. Ski - One Way Ticket (Rico Bernasconi Remix)
-008. Luengo & Diaz feat. Tommy Clint - Adrenalized (De-Liver Edit)
-009. Darius & Finlay & Tom Mountain - UBAP (Tom Mountain goes Melody Parc Mix)
-010. Chuckie feat. Gregor Salto - What Happens In Vegas (Radio Edit)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 06:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F5BE0E4AE114ED1195A33815C0158E868AB854
 ```
 
 https://mybot314.ru/tekegram_catalog/

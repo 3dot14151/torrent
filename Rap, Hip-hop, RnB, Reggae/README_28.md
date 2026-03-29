@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221549.jpg" />
+  <img src="Z:/picture/005/save_picture_221549.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chingy - Powerballin' (2004) [FLAC|Lossless|tracks + .cue] <Crunk/Midwest Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221526.jpg" />
+  <img src="Z:/picture/005/save_picture_221526.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221110.jpg" />
+  <img src="Z:/picture/005/save_picture_221110.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221043.jpg" />
+  <img src="Z:/picture/005/save_picture_221043.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220837.jpg" />
+  <img src="Z:/picture/005/save_picture_220837.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Denzel Curry - Ta13oo (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219860.jpg" />
+  <img src="Z:/picture/005/save_picture_219860.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Anacondaz - Мои дети не будут скучать (2019) [MP3|320 Kbps]
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219672.jpg" />
+  <img src="Z:/picture/005/save_picture_219672.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218930.jpg" />
+  <img src="Z:/picture/005/save_picture_218930.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Oxxxymiron - Красота и Уродство (2021) [MP3|320 Kbps] <Rap, Hip-
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218652.jpg" />
+  <img src="Z:/picture/005/save_picture_218652.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Oxxxymiron - Красота и Уродство (2021) [FLAC|Lossless|WEB-DL|tra
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218641.jpg" />
+  <img src="Z:/picture/005/save_picture_218641.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Big Russian Boss - G.O.L.D. (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218515.jpg" />
+  <img src="Z:/picture/005/save_picture_218515.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ THEY. - Fireside (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trap, Grime>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218090.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218058.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217745.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ RAM - TRIBE (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217666.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ RAM - TRIBE (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217550.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Big Russian Boss, Young P&H - MODNA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217541.jpg" />
+  <img src="Z:/picture/005/save_picture_217541.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Oxxxymiron - Красота и Уродство (2021) Kultizdat [FLAC 2.0|48/24
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217211.jpg" />
+  <img src="Z:/picture/005/save_picture_217211.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Chillhop Essentials Winter (2016) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, J
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216391.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ All Times. Rap Melodies  (2002) [MP3|320 кб/с]<HipHop/Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216008.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213603.jpg" />
+  <img src="Z:/picture/005/save_picture_213603.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_211988.jpg" />
+  <img src="Z:/picture/004/save_picture_211988.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Alicia Keys - Songs In A Minor (2001) Deluxe Edition, 2023, J Records/Legacy [MP
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211800.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209435.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Coolio - Gangsta's Paradise (1995) 2020, 25th Anniversary, Remastered [FLAC|24/9
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208829.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208680.jpg" />
 </div>
 
 

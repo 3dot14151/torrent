@@ -1,3 +1,67 @@
+###  Публикация: 829710   (403927) от 26.09.2017
+
+Виталий Волк - Неформат (2014) [MP3|320 Kbps]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_403927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волчья доля (3:37)
+02. На Дону (4:11)
+03. Кореша (2:56)
+04. Волюшка (3:46)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9185EE21AD60DA256E805760F0682FA86850FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564832   (402046) от 24.10.2012
+
+Герман Грач - Яд (2012) [MP3|320 кб/с]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_402046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не проси
+02. Фараон
+03. Эта женщина
+04. Стена
+05. Пой
+06. Яд
+07. Скажешь да
+08. Грешная любовь
+09. Сколько
+10. Друзья мои хорошиеЖанр: ШансонПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E961EE49135A031B0E5B718DF1D9858E6C58646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565265   (398928) от 27.10.2012
 
 Лукьяновка - Ангел мой хранитель (2012) [MP3|320 кб/с]<Шансон>
@@ -6,7 +70,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398928.jpg" />
+  <img src="Z:/picture/008/save_picture_398928.jpg" />
 </div>
 
 
@@ -41,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398905.jpg" />
+  <img src="Z:/picture/008/save_picture_398905.jpg" />
 </div>
 
 
@@ -76,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398397.jpg" />
+  <img src="Z:/picture/008/save_picture_398397.jpg" />
 </div>
 
 
@@ -105,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396576.jpg" />
+  <img src="Z:/picture/008/save_picture_396576.jpg" />
 </div>
 
 
@@ -140,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396190.jpg" />
+  <img src="Z:/picture/005/save_picture_396190.jpg" />
 </div>
 
 
@@ -175,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392776.jpg" />
+  <img src="Z:/picture/005/save_picture_392776.jpg" />
 </div>
 
 
@@ -210,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391547.jpg" />
+  <img src="Z:/picture/008/save_picture_391547.jpg" />
 </div>
 
 
@@ -239,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387762.jpg" />
+  <img src="Z:/picture/008/save_picture_387762.jpg" />
 </div>
 
 
@@ -268,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387349.jpg" />
+  <img src="Z:/picture/008/save_picture_387349.jpg" />
 </div>
 
 
@@ -303,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386937.jpg" />
+  <img src="Z:/picture/008/save_picture_386937.jpg" />
 </div>
 
 
@@ -332,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384675.jpg" />
+  <img src="Z:/picture/008/save_picture_384675.jpg" />
 </div>
 
 
@@ -367,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383642.jpg" />
+  <img src="Z:/picture/008/save_picture_383642.jpg" />
 </div>
 
 
@@ -396,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383448.jpg" />
+  <img src="Z:/picture/008/save_picture_383448.jpg" />
 </div>
 
 
@@ -425,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383438.jpg" />
+  <img src="Z:/picture/008/save_picture_383438.jpg" />
 </div>
 
 
@@ -454,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381951.jpg" />
+  <img src="Z:/picture/008/save_picture_381951.jpg" />
 </div>
 
 
@@ -483,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381688.jpg" />
+  <img src="Z:/picture/008/save_picture_381688.jpg" />
 </div>
 
 
@@ -512,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381020.jpg" />
+  <img src="Z:/picture/008/save_picture_381020.jpg" />
 </div>
 
 
@@ -542,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380457.jpg" />
+  <img src="Z:/picture/008/save_picture_380457.jpg" />
 </div>
 
 
@@ -571,7 +635,7 @@ VA - Песни нашего века - 9 альбомов (1998-2011) [MP3|320 
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379695.jpg" />
+  <img src="Z:/picture/008/save_picture_379695.jpg" />
 </div>
 
 
@@ -600,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378852.jpg" />
+  <img src="Z:/picture/008/save_picture_378852.jpg" />
 </div>
 
 
@@ -629,7 +693,7 @@ VA - Русский шансон часть 6 (1999) [FLAC|Lossless|tracks + .cu
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378654.jpg" />
+  <img src="Z:/picture/008/save_picture_378654.jpg" />
 </div>
 
 
@@ -658,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378044.jpg" />
+  <img src="Z:/picture/008/save_picture_378044.jpg" />
 </div>
 
 
@@ -687,7 +751,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378040.jpg" />
+  <img src="Z:/picture/008/save_picture_378040.jpg" />
 </div>
 
 
@@ -716,7 +780,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377104.jpg" />
+  <img src="Z:/picture/008/save_picture_377104.jpg" />
 </div>
 
 
@@ -730,64 +794,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65ABB8E9914F6866021970CF2DFBB6AC1637940B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414872   (376163) от 12.10.2020
-
-Олег Погудин - Русское танго (2020) [FLAC|Lossless|WEB-DL|tracks] <Романс>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танго соловья (2:31)
-02. Тайна (2:42)
-03. Скажите, почему (3:36)
-04. Голубые глаза (4:24)(   Читать дальше...   )Жанр: РомансПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535B00C8CD683D0C664CFF00B8448D23E1DCB10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019575   (375898) от 12.10.2020
-
-Александр Кальянов - Старое кафе (1986) 2003, Русский шансон [FLAC|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Старое кафе  "
-02. "Валентина  "
-03. "Ресторан качается  "
-04. "Карабас-барабас "(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF053D6CE1E9A17ED2D168109E00FDD679FBD40
 ```
 
 https://mybot314.ru/tekegram_catalog/

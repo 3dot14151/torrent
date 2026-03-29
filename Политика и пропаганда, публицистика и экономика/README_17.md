@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501443.jpg" />
+  <img src="Z:/picture/008/save_picture_501443.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498413.jpg" />
+  <img src="Z:/picture/008/save_picture_498413.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497651.jpg" />
+  <img src="Z:/picture/008/save_picture_497651.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496487.jpg" />
+  <img src="Z:/picture/008/save_picture_496487.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495536.jpg" />
+  <img src="Z:/picture/008/save_picture_495536.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494413.jpg" />
+  <img src="Z:/picture/008/save_picture_494413.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494410.jpg" />
+  <img src="Z:/picture/008/save_picture_494410.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494383.jpg" />
+  <img src="Z:/picture/008/save_picture_494383.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494164.jpg" />
+  <img src="Z:/picture/008/save_picture_494164.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494114.jpg" />
+  <img src="Z:/picture/008/save_picture_494114.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492375.jpg" />
+  <img src="Z:/picture/008/save_picture_492375.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490284.jpg" />
+  <img src="Z:/picture/008/save_picture_490284.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490166.jpg" />
+  <img src="Z:/picture/008/save_picture_490166.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489959.jpg" />
+  <img src="Z:/picture/008/save_picture_489959.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488230.jpg" />
+  <img src="Z:/picture/008/save_picture_488230.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482135.jpg" />
+  <img src="Z:/picture/008/save_picture_482135.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482089.jpg" />
+  <img src="Z:/picture/008/save_picture_482089.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482041.jpg" />
+  <img src="Z:/picture/008/save_picture_482041.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482016.jpg" />
+  <img src="Z:/picture/008/save_picture_482016.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482001.jpg" />
+  <img src="Z:/picture/008/save_picture_482001.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481987.jpg" />
+  <img src="Z:/picture/008/save_picture_481987.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480001.jpg" />
+  <img src="Z:/picture/008/save_picture_480001.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479632.jpg" />
+  <img src="Z:/picture/008/save_picture_479632.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478030.jpg" />
+  <img src="Z:/picture/008/save_picture_478030.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477370.jpg" />
+  <img src="Z:/picture/008/save_picture_477370.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477096.jpg" />
+  <img src="Z:/picture/008/save_picture_477096.jpg" />
 </div>
 
 

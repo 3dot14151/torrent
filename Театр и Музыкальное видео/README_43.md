@@ -1,3 +1,168 @@
+###  Публикация: 1275866   (789378) от 13.01.2019
+
+Легенды Ретро FM полная версия (2017) HDTVRIp [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера международного музыкального фестиваля Легенды Ретро FM-2017Производство: РоссияЖанр: PopРежиссер: 1 каналАктеры: Лариса Долина,Thomas Anders,Юрий Шатунов,Владимир Маркин и др.Перевод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 03:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2F178E9843CB029A1E2606BD2C60542B063309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511254   (789178) от 20.11.2021
+
+Майкл Джексон: Лунная походка / Michael Jackson: Moonwalker (1988) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смесь видеозаписей живых концертов Майкла Джексона и ряда художественных сцен с ним, как главным героем. Сюда вошли некоторые из лучших видеоклипов Майкла, отснятых во время мирового турне с альбомом «Bad», а также видео «Smooth Criminal» с сюжетной линией в стиле «фэнтэзи». Вся история рассказана посредством музыки\танца и полна спецэффектов.Производство: США / MJJ Productions, Ultimate Productions, Will Vinton StudiosЖанр: фэнтези, боевик, триллер, криминал, музыкаРежиссер: Джерри Крамер, Колин ЧилверсАктеры: Майкл Джексон, Джо Пеши, Шон Леннон, Келли Паркер, Брэндон Квинтин Адамс, Джефф Эдкинс, Патрик Алан, Brenda Barrett, Scott Benson, Бонни БётлерПеревод: многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08E47036E728D294F7EAB979BB821F34412815A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511476   (788838) от 21.11.2021
+
+Квартирник НТВ у Маргулиса. 60 лет с Детским сердцем — юбилей Сергея Галанина (20.11.2021) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергею Галанину – 60! Ветераны сцены – «СерьГа»! Пионеры сцены — «ВИА Борщевик»! Легендарный рокер, творчество которого без сомнений можно назвать символом эпохи, не только продолжает радовать поклонников новыми хитами, но и не боится экспериментировать с музыкой, собирая новую группу. Дуэты с друзьями, неожиданные сюрпризы и главные хиты в день рождения — все это (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907D87A18AFC5E364D287BCED357DDDB22F81070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105918   (787918) от 02.02.2018
+
+The Witcher 3: Wild Hunt concert (Film Music Festival 2016) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись музыкального концерта “Ведьмак 3: Дикая Охота”, который прошел в рамках фестиваля FMF (Film Music Festival 2016) в Кракове.
+Организован CD PROJEKT RED совместно с Краковским офисом фестиваля.
+
+Закрытие девятого фестиваля FMF (Film Music Festival) прошло в зале стадиона TAURON Arena в Кракове.(   Читать дальше...   )Производство: CD Projekt RED, ПольшаЖанр: Живой концерт, саундтрекПродолжительность: 01:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6722C31268972F56D25E720D4526478918A2BB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203481   (787647) от 03.02.2018
+
+Billy Idol - VH1 Storytellers (2002) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билли Айдол (Billy Idol), (настоящее имя - Уильям Майкл Альберт Брод) родился 30 ноября 1955 года в Миддлсексе (Великобритания). Живая легенда и икона новой волны, один из самых популярных артистов 80-х. Его песни до сих пор считаются классикой жанра и входят в ротации телеканалов и радиостанций. В раздаче представлен его камерный, акустический концерт, состоявшийся (   Читать дальше...   )01. Cradle Of Love
+02. Don't Need A Gun
+03. Flesh For Fantasy
+04. White Wedding(   Читать дальше...   )Производство: США, Warner Music Vision, Image Entertainment Inc.Жанр: Рок, поп, панкПеревод: ОтсутствуетСубтитры: Английские, испанские, немецкие, итальянские, французскиеПродолжительность: 01:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9E9D0D2148186242464F4B0E68BE19541737BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684452   (786951) от 19.01.2019
+
+Ю-Питер – Концерт, посвященный 1025-летию крещения Руси (Киев, Украина 27.07.2013) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786951.jpg" />
+</div>
+
+
+###  Подробнее
+
+В концерте прозвучали легендарные песни «Наутилуса Помпилиуса» из готовящейся осенней программы, приуроченной к 30-летию Наутилуса Помпилиуса. А также две песни группы «Кино» посвященных памяти Виктора Цоя и Георгия Гурьянова. Ну и конечно не обошлось без визитной карточки группы Ю-Питер «Песни идущего домой».01. Прогулки по воде
+02. Песня идущего домой
+03. Тутанхамон
+04. Взгляд с экрана(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08133C522C89A27B549FE77A273AA3B9912A305C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 184679   (786628) от 06.06.2020
 
 Joe Dassin - a Toi... Live A L'Olympia '77 (2005) DVD-9
@@ -6,7 +171,7 @@ Joe Dassin - a Toi... Live A L'Olympia '77 (2005) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786628.jpg" />
+  <img src="Z:/picture/008/save_picture_786628.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785917.jpg" />
+  <img src="Z:/picture/008/save_picture_785917.jpg" />
 </div>
 
 
@@ -61,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785766.jpg" />
+  <img src="Z:/picture/008/save_picture_785766.jpg" />
 </div>
 
 
@@ -87,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785728.jpg" />
+  <img src="Z:/picture/008/save_picture_785728.jpg" />
 </div>
 
 
@@ -113,7 +278,7 @@ Labyrinth - Return to Live (2016/(2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785301.jpg" />
+  <img src="Z:/picture/008/save_picture_785301.jpg" />
 </div>
 
 
@@ -143,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785271.jpg" />
+  <img src="Z:/picture/008/save_picture_785271.jpg" />
 </div>
 
 
@@ -169,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785261.jpg" />
+  <img src="Z:/picture/008/save_picture_785261.jpg" />
 </div>
 
 
@@ -195,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784913.jpg" />
 </div>
 
 
@@ -221,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784828.jpg" />
 </div>
 
 
@@ -250,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784276.jpg" />
 </div>
 
 
@@ -279,7 +444,7 @@ Sarah Brightman: Harem - A Desert Fantasy (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784183.jpg" />
 </div>
 
 
@@ -308,7 +473,7 @@ David Gilmour: Remember That Night (2007) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784175.jpg" />
 </div>
 
 
@@ -337,7 +502,7 @@ Music maestro. Brahms, The complete live and music of the great composers (1992)
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783488.jpg" />
+  <img src="Z:/picture/008/save_picture_783488.jpg" />
 </div>
 
 
@@ -366,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783335.jpg" />
+  <img src="Z:/picture/008/save_picture_783335.jpg" />
 </div>
 
 
@@ -392,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783038.jpg" />
+  <img src="Z:/picture/008/save_picture_783038.jpg" />
 </div>
 
 
@@ -419,7 +584,7 @@ Whitesnake - The Purple Tour '2015 (2018) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782911.jpg" />
+  <img src="Z:/picture/008/save_picture_782911.jpg" />
 </div>
 
 
@@ -448,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782900.jpg" />
+  <img src="Z:/picture/008/save_picture_782900.jpg" />
 </div>
 
 
@@ -474,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782853.jpg" />
+  <img src="Z:/picture/008/save_picture_782853.jpg" />
 </div>
 
 
@@ -500,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782609.jpg" />
+  <img src="Z:/picture/008/save_picture_782609.jpg" />
 </div>
 
 
@@ -529,7 +694,7 @@ Yello-Live in Berlin '2016 (2017) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781165.jpg" />
 </div>
 
 
@@ -543,179 +708,6 @@ Yello-Live in Berlin '2016 (2017) DVD5 [Custom]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE5D5C9728623A03452D5964EDBF80B3DB6A636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200044   (780673) от 15.05.2010
-
-Yamato The Drummers of Japan (1995) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень понравился концерт. Переделал в .ави для уменьшения размера,стараясь без потери качества.
-Ультрасовременное, синтезирующее традиционную и авангардную музыку шоу японских барабанщиков с элементами театра и танца. В чистом виде «Wadaiko Yamato Show» представляет собой уникальное представление, соединяющее виртуозное мастерство исполнения и древние магические (   Читать дальше...   )01. Yamato — Prelude
-02. Yamato — Aozora
-03. Yamato — Kurenai
-04. Yamato — Kagiroi(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199920   (780639) от 15.05.2010
-
-Ромео и Джульетта / Romeo and Juliet (2001) DVD5
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МюзиклРежиссер: Gerard PresguvicАктеры: Romeo - Damien Sargue
-Juliette - Cecilia Cara
-Benvolio - Gregori Baquet
-Mercutio - Philippe D'Avilla(   Читать дальше...   )Перевод: ОригинальныйЯзык субтитров: RUПродолжительность: 02:29:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207493   (780556) от 18.02.2018
-
-Квартирник на НТВ у Маргулиса. Квартал (02.17.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780556.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла советская и российская рок-группа «Квартал», которая недавно отметила юбилей. Музыканты исполнили свои лучшие композиции для гостей и телезрителей. Евгений Маргулис вспомнил, как в 1988 году «Квартал» играл совместный концерт с «Машиной времени» и рассказал, что Татьяна Литвиненко, солистка группы, пела с легендарными «Би-2».
-Поздравить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F65E6F86218829F6819A3E703560892F2E7699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207087   (780169) от 20.02.2018
-
-Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-LQ] <Pop, Rock> [hand made реставрация]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное собрание клипов и лучших живых выступлений шведского дуэта. Все видео прошло реставрационную обработку, звук в клипах заменен на CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK000 Intro
-001 Roxette - Neverending Love
-002 Roxette - Soul Deep
-003 Roxette - I Call Your Name(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BFEBC4B4A8525102F62EED27DB2241D693D402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208452   (779924) от 22.02.2018
-
-Nana Mizuki - Live Zipangu x Izumo Taisha Dedicated Performance (2017) [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз группа 月亮龍 Production представляет  концерт исполнителя Nana Mizuki который стал заключительным в конце ее  тура по всем городам Японии в 2017 году.   Здесь вы найдете   полный релиз из 4-х дискового издания включившего в себя  2 концерта,  бонусные материалы записи  репетиций,   уникальные кадры  подготовки  второго концерта а так же бонусное выступление (   Читать дальше...   )1. Shimey Murasaki
-2. Power Gate
-3. Don't be long
-4. Pleasure Camelia(   Читать дальше...   )Производство: Япония, King Records Ltd.Жанр: J-popРежиссер: Urara SatoПеревод: ОтсутствуетСубтитры: НетПродолжительность: 01:55:22, 01:52:32, 01:31:52, 00:49:55, 02:11:49, 00:12:58, 00:06:28, 00:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9357B1152BBC9E3490B5412196293DE8301D33FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209180   (779491) от 25.02.2018
-
-Whitesnake - The Purple Tour Live (2018) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779491.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Purple Tour - концертный альбом группы Whitesnake, в который вошли классические хиты группы Whitesnake и Deep Purple времен Дэвида Кавердейла. В данном издании содержатся песни с нескольких студийных альбомов, записанных Дэвидом Ковердейлом в составе Deep Purple, в том числе Burn (1974), Stormbringer (1974) и Come Taste The Band (1975), а также You Fool No One, (   Читать дальше...   )01. Burn
-02. Bad Boys
-03. Love Ain't No Stranger
-04. The Gypsy(   Читать дальше...   )Производство: США, Rhino MusicЖанр: Rock, Hard RockПродолжительность: 01:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891A724B023E5EA8D103950937A77E4ADA4F5E27
 ```
 
 https://mybot314.ru/tekegram_catalog/

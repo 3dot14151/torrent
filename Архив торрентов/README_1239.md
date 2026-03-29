@@ -6,7 +6,7 @@ Paste 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774466.jpg" />
+  <img src="Z:/picture/008/save_picture_774466.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774465.jpg" />
+  <img src="Z:/picture/008/save_picture_774465.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ SMARTReporter 3.1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774461.jpg" />
+  <img src="Z:/picture/008/save_picture_774461.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] License Reloaded
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774415.jpg" />
+  <img src="Z:/picture/008/save_picture_774415.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774410.jpg" />
+  <img src="Z:/picture/008/save_picture_774410.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Dash 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774408.jpg" />
+  <img src="Z:/picture/008/save_picture_774408.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774407.jpg" />
+  <img src="Z:/picture/008/save_picture_774407.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mozilla Firefox ESR 52.7.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774392.jpg" />
+  <img src="Z:/picture/008/save_picture_774392.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Mozilla Firefox Quantum 59.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774390.jpg" />
+  <img src="Z:/picture/008/save_picture_774390.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Viber 8.4.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774388.jpg" />
+  <img src="Z:/picture/008/save_picture_774388.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774381.jpg" />
+  <img src="Z:/picture/008/save_picture_774381.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774380.jpg" />
+  <img src="Z:/picture/008/save_picture_774380.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774377.jpg" />
+  <img src="Z:/picture/008/save_picture_774377.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774375.jpg" />
+  <img src="Z:/picture/008/save_picture_774375.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774373.jpg" />
+  <img src="Z:/picture/008/save_picture_774373.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774371.jpg" />
+  <img src="Z:/picture/008/save_picture_774371.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Lost in Trance Vol. 2 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774366.jpg" />
+  <img src="Z:/picture/008/save_picture_774366.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ DJ Nike Twist - TranceWave 139 @ GTI Radio (05.05.2016) [MP3|320 кб/с] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774358.jpg" />
+  <img src="Z:/picture/008/save_picture_774358.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774354.jpg" />
+  <img src="Z:/picture/008/save_picture_774354.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Meta 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774316.jpg" />
+  <img src="Z:/picture/008/save_picture_774316.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ French Revolution - Fantasia (1988) Virgin Scandinavia AB [FLAC|Lossless|tracks 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774313.jpg" />
+  <img src="Z:/picture/008/save_picture_774313.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Roger Molls - Melography (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrume
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774309.jpg" />
+  <img src="Z:/picture/008/save_picture_774309.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Photo Supreme 4.3.2.1901 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774307.jpg" />
+  <img src="Z:/picture/008/save_picture_774307.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ExpanDrive 6.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774297.jpg" />
+  <img src="Z:/picture/008/save_picture_774297.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VA - Beautiful Songs For You Vol.16 (Compiled by Виктор31Rus & Людми�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774294.jpg" />
+  <img src="Z:/picture/008/save_picture_774294.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Process Lasso Pro 9.0.0.440 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774291.jpg" />
+  <img src="Z:/picture/008/save_picture_774291.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Gas Guzzlers: Combat Carnage [En] (RePack) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255845.jpg" />
+  <img src="Z:/picture/005/save_picture_255845.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WWE 2K23 (2023) [Multi] (1.08/dlc) License TENOKE [Icon Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254891.jpg" />
+  <img src="Z:/picture/005/save_picture_254891.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Game of Thrones / Игра престолов [Multi3/-] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254235.jpg" />
+  <img src="Z:/picture/005/save_picture_254235.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Warhammer 40.000: Space Marine (RePack/1.0.156.0) + 13 DLC [Ru/En] 2011 l R.G. O
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254143.jpg" />
+  <img src="Z:/picture/005/save_picture_254143.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Treasure Trap [En] (RePack) 1990 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253927.jpg" />
+  <img src="Z:/picture/005/save_picture_253927.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Game of Thrones / Игра престолов [En] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253886.jpg" />
+  <img src="Z:/picture/005/save_picture_253886.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253863.jpg" />
+  <img src="Z:/picture/005/save_picture_253863.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Nexuiz [En] (Repack) 2012 | R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253858.jpg" />
+  <img src="Z:/picture/005/save_picture_253858.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253856.jpg" />
+  <img src="Z:/picture/005/save_picture_253856.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Counter-Strike 1.6 Original [Ru/En] (pv47/48/No-Steam) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253579.jpg" />
+  <img src="Z:/picture/005/save_picture_253579.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253550.jpg" />
+  <img src="Z:/picture/005/save_picture_253550.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253544.jpg" />
+  <img src="Z:/picture/005/save_picture_253544.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Warhammer 40.000: Dawn of War II - Retribution (RePack/3.19.1.6123) + 13 DLC [Ru
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253525.jpg" />
+  <img src="Z:/picture/005/save_picture_253525.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Warhammer 40 000: Space Marine + 13 DLC [Ru/En] (RePack/1.0.156.0) 2011 l  Serap
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253497.jpg" />
+  <img src="Z:/picture/005/save_picture_253497.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253464.jpg" />
+  <img src="Z:/picture/005/save_picture_253464.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ L. A. Noire The Complete Edition [Ru/En] (1.3.2613/Repack) 2011 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253332.jpg" />
+  <img src="Z:/picture/005/save_picture_253332.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Call of Duty: Modern Warfare 2 [Ru] (RePack/Multiplayer Only|alterRev1.3.37a++b1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253326.jpg" />
+  <img src="Z:/picture/005/save_picture_253326.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Confrontation / Confrontation: Последняя битва [Ru] (RePack/1.0.0.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253290.jpg" />
+  <img src="Z:/picture/005/save_picture_253290.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Stacking + DLC [Ru] (1.0.0.3/Repack) 2012 | R.G. ReCoding {обновлено 13
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253281.jpg" />
+  <img src="Z:/picture/005/save_picture_253281.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Confrontation (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253013.jpg" />
+  <img src="Z:/picture/005/save_picture_253013.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Realms (RePack) [En] 1991 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252888.jpg" />
+  <img src="Z:/picture/005/save_picture_252888.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Angry Birds Anthology / Сердитые Птицы: Антология [En] (2.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252799.jpg" />
+  <img src="Z:/picture/005/save_picture_252799.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Day of Defeat: Source {1.0.0.37} (P) [Ru] 2005 | tdc-team
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252763.jpg" />
+  <img src="Z:/picture/005/save_picture_252763.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Counter Strike 1.6 Cyber Monitoring v1.3 [Ru] (pv47/48/No-Steam) 2012 | jesuspun
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252747.jpg" />
+  <img src="Z:/picture/005/save_picture_252747.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Stacking + DLC [Ru] (RePack) 2012 | R.G. PowerPack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252702.jpg" />
+  <img src="Z:/picture/005/save_picture_252702.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Wild West Dynasty (2023) [Ru/Multi] (0.1.8238) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252014.jpg" />
+  <img src="Z:/picture/004/save_picture_252014.jpg" />
 </div>
 
 

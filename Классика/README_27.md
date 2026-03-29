@@ -6,7 +6,7 @@ Gossec - Aux Armes, Citoyens! (2010) [FLAC|Lossless|tracks + .cue] <Music for Wi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574577.jpg" />
+  <img src="Z:/picture/008/save_picture_574577.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Richard Wagner / Friedmann Dressler: The Symphonic Ring (2009) [FLAC 2.0 192/24 
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_570610.jpg" />
+  <img src="Z:/picture/005/save_picture_570610.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Gyrowetz - Symphonies (Matthias Bamert & London Mozart Players Orchestra) (2000)
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569868.jpg" />
+  <img src="Z:/picture/008/save_picture_569868.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Kronos Quartet - 25 Years - 10CD BoxSet (1998) [FLAC|Lossless]<Classical, Classi
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568498.jpg" />
+  <img src="Z:/picture/008/save_picture_568498.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ VA - Шедевры Классики В Современной Обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566582.jpg" />
+  <img src="Z:/picture/008/save_picture_566582.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Шедевры Классики В Современной Обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566569.jpg" />
+  <img src="Z:/picture/008/save_picture_566569.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Mozart - Symphonies No.9 & No.19, Piano Concerto No.27 (Bernhard Paumgartner & S
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566440.jpg" />
+  <img src="Z:/picture/008/save_picture_566440.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Anna Netrebko - Live at The Metropolitan Opera (2011) [MP3|320 кб/с]<Vocal, O
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566298.jpg" />
+  <img src="Z:/picture/008/save_picture_566298.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Raimonds Ozols - Classics in Pop (2004) [FLAC|Lossless|image + .cue] <Instrument
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565265.jpg" />
+  <img src="Z:/picture/008/save_picture_565265.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Yiruma - Solo (2021) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Modern Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565164.jpg" />
+  <img src="Z:/picture/008/save_picture_565164.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ The Symphonic Sound Orchestra - Classic Rock Symphony (Unknown) [FLAC|Lossless|i
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565123.jpg" />
+  <img src="Z:/picture/008/save_picture_565123.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ John Barry - John Barry - Somewhere In Time (1998) [MP3|320 Kbps] <Score>
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564899.jpg" />
+  <img src="Z:/picture/008/save_picture_564899.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Lindsey Stirling - Brave Enough (2016) Limited Deluxe Edition [FLAC|Lossless|WEB
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564763.jpg" />
+  <img src="Z:/picture/008/save_picture_564763.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Mikhail Gnesin - Russian Futurism (Vol.4)(Konstantin Krimets & Russian Philarmon
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562698.jpg" />
+  <img src="Z:/picture/008/save_picture_562698.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561794.jpg" />
+  <img src="Z:/picture/008/save_picture_561794.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Leif Ove Andsnes, Mahler Chamber Orchestra - Mozart Momentum 1786: Piano Concert
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561512.jpg" />
+  <img src="Z:/picture/008/save_picture_561512.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Anne-Sophie Mutter, Herbert Von Karajan, Wiener Philharmoniker - The Four Season
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561511.jpg" />
+  <img src="Z:/picture/008/save_picture_561511.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Lindsey Stirling - Brave Enough (2016) [MP3|320 Kbps] <Classical Crossover, Pop,
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560998.jpg" />
+  <img src="Z:/picture/008/save_picture_560998.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Nova Era - Fortissimo (2014) [MP3|320 кб/с]<Classical crossover, New Age>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560656.jpg" />
+  <img src="Z:/picture/008/save_picture_560656.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sergei Prokofiev - The complete piano sonatas 3 (1991) [FLAC|Lossless]<classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560435.jpg" />
+  <img src="Z:/picture/008/save_picture_560435.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_559077.jpg" />
+  <img src="Z:/picture/005/save_picture_559077.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Beatles Symphonic Orchestra - 3 CD (1999) [MP3|320 кб/с]<Classical, Symph
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558486.jpg" />
+  <img src="Z:/picture/008/save_picture_558486.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ The Royal Philharmonic Orchestra - Plays Hits Of Phil Collins (1990) [FLAC|Lossl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557970.jpg" />
+  <img src="Z:/picture/008/save_picture_557970.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VA - Шедевры классической музыки в рок-обрабо
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555886.jpg" />
+  <img src="Z:/picture/008/save_picture_555886.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ VA - Шедевры классической музыки в рок-обрабо
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555743.jpg" />
+  <img src="Z:/picture/008/save_picture_555743.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Adya - Classic (2011) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, In
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555460.jpg" />
+  <img src="Z:/picture/008/save_picture_555460.jpg" />
 </div>
 
 

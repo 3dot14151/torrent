@@ -1,3 +1,202 @@
+###  Публикация: 1448285   (1030907) от 17.02.2021
+
+Футбол. Лига Чемпионов 2020-2021.1/8 финала. Барселона (Испания) - ПСЖ (Франция) (16.02.2021) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2020-2021. 1/8 финала.  Барселона (Испания) - ПСЖ (Италия) (16.02.2021)
+
+СУДЬЯ Кейперс Бьорн (Олдензал, Нидерланды)
+Судья на линии 1: ван Рукел Сандер (Нидерланды)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E178907E292ADE028BDD3264AC6806D2387A4FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448342   (1030875) от 17.02.2021
+
+Хоккей. НХЛ 2020-2021. Флорида Пантерз - Тампа-Бэй Лайтнинг (15.02.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030875.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 февраля 2021, вторник. 03:00 МСК
+Стадион: Амали-Арена (Тампа, США). Матч прошёл без зрителей
+Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: FOXSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B2DE3E54179E2D7F2C69CF59BAA22EA801666C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448349   (1030866) от 17.02.2021
+
+Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Питтсбург Пингвинз (16.02.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030866.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 февраля 2021, среда. 03:00 МСК
+Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США). Матч прошёл без зрителей
+Главный судья: Джон Макисаак (Труро, Канада); Главный судья: Гислейн Эбер (Батерст, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB26454D8159ACA5DC7443225EE34F4784C9BABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621854   (1030731) от 26.03.2023
+
+Хоккей. НХЛ 2022-2023. Вашингтон Кэпиталз - Питтсбург Пингвинз (25.03.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030731.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта 2023, воскресенье. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 456 зрителей (99% при вместимости 18 673)
+Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Стив Козари (Пентиктон, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F99E8A5FE9E34ED0E78D13B2C7670E08FA2F169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448830   (1030485) от 19.02.2021
+
+Футбол. UEFA Europa League 2020-2021 (1/16 финала) Краснодар - Динамо (Загреб) (18.02.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030485.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 февраля 2021, четверг. 20:55 МСК
+1/16 финала. 1-й матч
+Стадион: ФК Краснодар (Краснодар, Россия), вместимость: 35059
+Главный судья: Бартош Франковски (Торунь, Польша)Жанр: Спорт, футболЯзык озвучки: Русский, интершумСубтитры: нетПродолжительность: 02:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648BEC3F311466AF6DEE3A5465432F23057ECCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448534   (1030471) от 19.02.2021
+
+Футбол. Лига Чемпионов 2020-2021.1/8 финала. Порту (Португалия) - Ювентус (Италия) (17.02.2021) HDTVRip [H.264/720p] [hand made 50 fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2020-2021. 1/8 финала. Порту (Португалия) - Ювентус (Италия) (17.02.2021)
+СУДЬЯ Дель Серро Карлос (Мадрид, Испания)
+Судья на линии 1: Юсте Хуан (Испания)
+Судья на линии 2: Алонсо Роберто (Испания)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C48641D0969B5BC6D2C49BD84D261FD87EF7ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448532   (1030467) от 19.02.2021
+
+Футбол. Лига Чемпионов 2020-2021.1/8 финала. Севилья (Испания) - Боруссия Дортмунд (Германия) (17.02.2021) HDTVRip [H.264/720p] [hand made 50 fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2020-2021. 1/8 финала. Севилья (Испания) - Боруссия Дортмунд (Германия) (17.02.2021)
+СУДЬЯ Маккели Данни (Нидерланды)
+Судья на линии 1: Стеегстра Хессел (Нидерланды)
+Судья на линии 2: Дикс Марио (Нидерланды)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1C5D2C2DCB7F7E8BCBF48DE9219A39AE670CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448906   (1030463) от 19.02.2021
 
 Лыжные гонки. Кубок мира 2020-2021. Этап 5. Тур де Ски 2. Тоблах (Италия). Женщины. Гонка преследования 10 км (2021) HDTV [H.264/1080i-LQ]
@@ -6,7 +205,7 @@
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030463.jpg" />
 </div>
 
 
@@ -35,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030460.jpg" />
 </div>
 
 
@@ -64,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030458.jpg" />
 </div>
 
 
@@ -93,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030456.jpg" />
 </div>
 
 
@@ -122,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030452.jpg" />
 </div>
 
 
@@ -151,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030280.jpg" />
 </div>
 
 
@@ -177,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030212.jpg" />
 </div>
 
 
@@ -206,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030027.jpg" />
 </div>
 
 
@@ -233,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029879.jpg" />
 </div>
 
 
@@ -262,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029603.jpg" />
 </div>
 
 
@@ -289,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029505.jpg" />
 </div>
 
 
@@ -317,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029504.jpg" />
 </div>
 
 
@@ -345,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029495.jpg" />
 </div>
 
 
@@ -373,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029491.jpg" />
 </div>
 
 
@@ -401,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029482.jpg" />
 </div>
 
 
@@ -429,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029481.jpg" />
 </div>
 
 
@@ -457,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029470.jpg" />
 </div>
 
 
@@ -485,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029458.jpg" />
 </div>
 
 
@@ -511,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029390.jpg" />
 </div>
 
 
@@ -524,194 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B89803D6260267C58FBDAE03415E8D0E26DE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449648   (1029377) от 24.02.2021
-
-Серия Кубков NASCAR 2021. Этап 2. Дайтона 253. Гонка / NASCAR Cup Series 2021. Daytona 253 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6F5CB1855A89B71DDE80B82984A327BE0C7034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449646   (1029371) от 24.02.2021
-
-Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Орландо 2 / AMA Supercross Championship. Orlando 2 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029371.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Жанр: СпортПродолжительность: 02:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2413E38102D8D1F5C17BF3D536A9F6D2A9621333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449226   (1029350) от 24.02.2021
-
-Азиатский чемпионат Формулы-3. Сезон 2021. Этап 5. Абу-Даби. Гонка 1-3 / F3 Asian Championship 2021. Abu Dhabi. Race 1-3 (19-20.02.2021)  WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Азиатский чемпионат Формулы-3 — региональная гоночная серия класса «Формула-3», основанная в 2018 году.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:16:36 + 01:11:00 + 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245FFF846263241C6D62AB3BB708954AC41B1DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450009   (1029346) от 24.02.2021
-
-Серия Кубков NASCAR 2021. 2-й Этап. Дайтона 253. Гонка / NASCAR Cup Series 2021. Round 2. O'Reilly Auto Parts 253 (2021) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2021 года.
-21 февраля 2021 года
-2-й Этап. Дайтона (O'Reilly Auto Parts 253). Дайтона-Бич (штат Флорида, США).
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE23CDF457A6819A36B5374DED6500F2FE1C1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449319   (1029329) от 24.02.2021
-
-Смешанные единоборства. UFC Fight Night 185: Кёртис Блэйдс - Деррик Льюис / UFC Fight Night 185: Blaydes vs. Lewis. Prelims & Main Card (21.02.2021) IPTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029329.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 февраля в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC Fight Night 185. Главным событием которого стало противостояние двух тяжеловесов: топового борца Кертиса Блэйдса и Деррика Льюиса — обладателя одного из самых тяжелых ударов. Оба входят в топ-5 мирового рейтинга, и победа в этом бою позволит одному из них претендовать на бой (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:50 - 02:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006047324E1142F27B51991DEC9828A3CF93DC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623901   (1029093) от 03.04.2023
-
-Хоккей. НХЛ 2022-2023. Нью-Йорк Рейнджерс - Вашингтон Кэпиталз (02.04.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029093.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 апреля 2023, воскресенье. 20:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47371BD1825C9ECDFB5B31087F5D2412CB0B16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450416   (1028996) от 26.02.2021
-
-Хоккей. НХЛ 2020-2021. Каролина Харрикейнз - Тампа-Бэй Лайтнинг (25.02.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028996.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 февраля 2021, пятница. 03:00 МСК
-Стадион: Амали-Арена (Тампа, США), 536 зрителей (3 % при вместимости 19 500)
-Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Джастин Сен-Пьер (Дольбо, Канада)Телекомпания: FOXSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DD655FE7261B324447EB6289323E25C640E52F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_837616.jpg" />
+  <img src="Z:/picture/005/save_picture_837616.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837613.jpg" />
+  <img src="Z:/picture/008/save_picture_837613.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837606.jpg" />
+  <img src="Z:/picture/008/save_picture_837606.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_837597.jpg" />
+  <img src="Z:/picture/005/save_picture_837597.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Bridge CC 2017 7.0.0.93 RePack by KpoJIuK (09.03.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837592.jpg" />
+  <img src="Z:/picture/008/save_picture_837592.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ScreenToGif 2.23.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837576.jpg" />
+  <img src="Z:/picture/008/save_picture_837576.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837572.jpg" />
+  <img src="Z:/picture/008/save_picture_837572.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ iExplorer 4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837567.jpg" />
+  <img src="Z:/picture/008/save_picture_837567.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Viber 12.8.1.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837564.jpg" />
+  <img src="Z:/picture/008/save_picture_837564.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Capture One 20 Pro v13.1.0.140 beta 2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837559.jpg" />
+  <img src="Z:/picture/008/save_picture_837559.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837556.jpg" />
+  <img src="Z:/picture/008/save_picture_837556.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837550.jpg" />
+  <img src="Z:/picture/008/save_picture_837550.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Icecream Screen Recorder PRO 6.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837549.jpg" />
+  <img src="Z:/picture/008/save_picture_837549.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837540.jpg" />
+  <img src="Z:/picture/008/save_picture_837540.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ IObit Driver Booster Pro 3.3.1.749 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837526.jpg" />
+  <img src="Z:/picture/008/save_picture_837526.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837473.jpg" />
+  <img src="Z:/picture/008/save_picture_837473.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ SSDReporter 1.5.5 (build 1389) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837463.jpg" />
+  <img src="Z:/picture/008/save_picture_837463.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Ashampoo Burning Studio 21.6.0.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837461.jpg" />
+  <img src="Z:/picture/008/save_picture_837461.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ PostworkShop Professional 2.0.3606beta [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837446.jpg" />
+  <img src="Z:/picture/008/save_picture_837446.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837354.jpg" />
+  <img src="Z:/picture/008/save_picture_837354.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Sensorica - Eva (2015) [MP3|320 кб/с]<Ambient, Chillout, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837353.jpg" />
+  <img src="Z:/picture/008/save_picture_837353.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837323.jpg" />
+  <img src="Z:/picture/008/save_picture_837323.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837306.jpg" />
+  <img src="Z:/picture/008/save_picture_837306.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ DAPlayer 1.0.1.9 [Multi(русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837295.jpg" />
+  <img src="Z:/picture/008/save_picture_837295.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Madlib - Medicine Show No. 1: Before The Verdict With Guilty Simpson (2010) [FLA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837274.jpg" />
+  <img src="Z:/picture/008/save_picture_837274.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837260.jpg" />
+  <img src="Z:/picture/008/save_picture_837260.jpg" />
 </div>
 
 

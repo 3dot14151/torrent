@@ -6,7 +6,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305210.jpg" />
+  <img src="Z:/picture/008/save_picture_305210.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304011.jpg" />
+  <img src="Z:/picture/008/save_picture_304011.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303043.jpg" />
+  <img src="Z:/picture/008/save_picture_303043.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301888.jpg" />
+  <img src="Z:/picture/008/save_picture_301888.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298630.jpg" />
+  <img src="Z:/picture/008/save_picture_298630.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296887.jpg" />
+  <img src="Z:/picture/008/save_picture_296887.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291719.jpg" />
+  <img src="Z:/picture/008/save_picture_291719.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280159.jpg" />
+  <img src="Z:/picture/008/save_picture_280159.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275638.jpg" />
+  <img src="Z:/picture/008/save_picture_275638.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274496.jpg" />
+  <img src="Z:/picture/008/save_picture_274496.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273165.jpg" />
+  <img src="Z:/picture/008/save_picture_273165.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269808.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267148.jpg" />
+  <img src="Z:/picture/008/save_picture_267148.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267125.jpg" />
+  <img src="Z:/picture/008/save_picture_267125.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267112.jpg" />
+  <img src="Z:/picture/008/save_picture_267112.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267111.jpg" />
+  <img src="Z:/picture/008/save_picture_267111.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266145.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265333.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264263.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264262.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264261.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_263995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_263995.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263964.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263597.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263277.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263261.jpg" />
 </div>
 
 

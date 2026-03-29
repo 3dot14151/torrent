@@ -1,3 +1,30 @@
+###  Публикация: 480410   (87587) от 10.04.2012
+
+Бессонная ночь (1960) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87587.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам повести Н. Дементьева "Мои дороги".
+Молодой инженер Павел Кауров едет к месту своего первого назначения - в портовый город Сибирск. Его назначают руководить группой кранов: портальных и плавучих. После нескольких неполадок Павел осваивается с портовой работой и получает серьезное поручение. А тем временем в Сибирск приезжает его невеста Нина, (   Читать дальше...   )Жанр: Мелодрама, социальная драмаРежиссер: Исидор АнненскийАктеры: Юрий Соломин, Евгений Самойлов, Людмила Чернышева, Джемма Осмоловская, Маргарита Володина, Александр Граве, Луиза Кошукова, Геннадий Карнович-Валуа, Алексей Грибов, Андрей Тутышкин, Иван Любезнов, Юрий Медведев, Инна Выходцева, Л. Нечаева, Леонид Чубаров, Вадим Захарченко, Олег ТумановПродолжительность: 01:26:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479156   (87463) от 09.04.2012
 
 Каждый вечер в одиннадцать (1969) DVDRip
@@ -6,7 +33,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87463.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87454.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87222.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87219.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86990.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86977.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86800.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86405.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86395.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86377.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86187.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86146.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86069.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85615.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85358.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85346.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85103.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85093.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84972.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84957.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84349.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83943.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83726.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83702.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83471.jpg" />
 </div>
 
 
@@ -653,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DDEF907F5796F9C88F7B04B87D3D5900E1BD0DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471026   (83308) от 20.03.2012
-
-Счастливый рейс (1949) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой шофёр Синичкин получает первую в своей жизни машину - потрёпанную полуторку с номером МВ 22-12, доведённую до плачевного состояния «шофёром первого класса» Зачёсовым - разгильдяем и злостным нарушителем правил дорожного движения.
-Благодаря усилиям Синичкина старая машина преображается и приносит своему водителю не только успехи в труде, но и удачу в личной (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Владимир НемоляевАктеры: Николай Крючков Михаил Жаров Вера Орлова Ольга Викланд Владимир Попов Светлана Немоляева Эммануил Геллер Евгений Леонов Татьяна Пельтцер Елена ПонсоваПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D390BDCD3661B9456FAA9ED9405C84E06207A014
 ```
 
 https://mybot314.ru/tekegram_catalog/

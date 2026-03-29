@@ -1,3 +1,125 @@
+###  Публикация: 1225094   (662827) от 13.05.2018
+
+ЕжеВикА - Оберег (2018) [MP3|320 Kbps] <Folk Rock, Art Folk, Neofolk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_662827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весна
+02. Оберег
+03. Зимушка-зима
+04. Рябина(   Читать дальше...   )Жанр: Folk Rock, Art Folk, NeofolkПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEFA1F947C5AFAB1E095BF99E90E364010B0528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330070   (662013) от 21.03.2022
+
+Ангел НеБес - 10 Альбомов (2010-2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_662013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская рок-группа, образованная в 2006 году в Туле. С 2009 года участники проекта живут и продолжают музыкальную карьеру в Санкт-Петербурге. Один из самых рок-н-ролльных и эпатажных коллективов Северной Столицы. Группа регулярно выступает на больших клубных площадках и на крупнейших фестивалях страны. Композиции "Ангел НеБес" уже много лет звучат в (   Читать дальше...   )2010 - Идиотрока. Том I
+2011 - пятиЛЕТНИЙ альбом
+2012 - наКРЫЛО
+2013 - Я играю в войнуЖанр: RockПродолжительность: 09:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F79ADDDF23D0CEA6B0E42F5C1AC1B3D9129B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902868   (659824) от 29.05.2015
+
+Фактор Страха - Выше Сил (2015) [MP3|320 кб/с]<Modern Metal / Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Проси
+02. Отречься От Себя
+03. Мир Иллюзий
+04. Вернуть Всё Назад(   Читать дальше...   )Жанр: Modern Metal / Melodic Death MetalПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC69A96495EAB15F0B2D04F954A038CC6DD52FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514183   (659349) от 23.06.2012
+
+СВ - Московское время (1984) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вот начало
+ 02. Лето
+ 03. Вот и лето прошло
+ 04. Осень
+ 05. День продолжается
+ 06. Когда на улице темно
+ 07. Песочные часы (зима)
+ 08. Пили и курили
+ 09. Я выдохся
+ 10. Весна(   Читать дальше...   )1984Жанр: RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AA12AF0D8E31D6DECFF91FB838BC303895B806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138998   (657610) от 04.06.2017
 
 СерьГа - Приметы (2017) [MP3|320 Kbps] <Rock>
@@ -6,7 +128,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657610.jpg" />
+  <img src="Z:/picture/008/save_picture_657610.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ The Souldiggers Band - Search For Greater Things (2012) [MP3|320 кб/с]<Hard R
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657091.jpg" />
+  <img src="Z:/picture/008/save_picture_657091.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ The Souldiggers Band - Second Coming (2015) [MP3|320 кб/с]<Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657088.jpg" />
+  <img src="Z:/picture/008/save_picture_657088.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656681.jpg" />
+  <img src="Z:/picture/008/save_picture_656681.jpg" />
 </div>
 
 
@@ -119,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656645.jpg" />
+  <img src="Z:/picture/008/save_picture_656645.jpg" />
 </div>
 
 
@@ -148,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656535.jpg" />
+  <img src="Z:/picture/008/save_picture_656535.jpg" />
 </div>
 
 
@@ -177,7 +299,7 @@ Well -  Нове життя (2012) [MP3|320 kbps] <Alternative Romantic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655929.jpg" />
+  <img src="Z:/picture/008/save_picture_655929.jpg" />
 </div>
 
 
@@ -212,7 +334,7 @@ Mordor - Glamour, Glamour (2008) [MP3|320 kbps] <Heavy Metal / Industrial>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655818.jpg" />
+  <img src="Z:/picture/008/save_picture_655818.jpg" />
 </div>
 
 
@@ -247,7 +369,7 @@ Unreal - Discography 9 альбомов (2006-2012) [MP3|128-320 кб/с]<Gothic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655748.jpg" />
+  <img src="Z:/picture/008/save_picture_655748.jpg" />
 </div>
 
 
@@ -273,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655547.jpg" />
+  <img src="Z:/picture/008/save_picture_655547.jpg" />
 </div>
 
 
@@ -302,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655480.jpg" />
+  <img src="Z:/picture/008/save_picture_655480.jpg" />
 </div>
 
 
@@ -337,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654991.jpg" />
+  <img src="Z:/picture/008/save_picture_654991.jpg" />
 </div>
 
 
@@ -366,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654764.jpg" />
+  <img src="Z:/picture/008/save_picture_654764.jpg" />
 </div>
 
 
@@ -395,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654757.jpg" />
+  <img src="Z:/picture/008/save_picture_654757.jpg" />
 </div>
 
 
@@ -424,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654391.jpg" />
+  <img src="Z:/picture/008/save_picture_654391.jpg" />
 </div>
 
 
@@ -453,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654388.jpg" />
+  <img src="Z:/picture/008/save_picture_654388.jpg" />
 </div>
 
 
@@ -482,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653854.jpg" />
+  <img src="Z:/picture/008/save_picture_653854.jpg" />
 </div>
 
 
@@ -511,7 +633,7 @@ VеSёLый  RоDGеR (Весёлый Роджер) - 2 альбома [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653831.jpg" />
+  <img src="Z:/picture/008/save_picture_653831.jpg" />
 </div>
 
 
@@ -548,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653652.jpg" />
+  <img src="Z:/picture/008/save_picture_653652.jpg" />
 </div>
 
 
@@ -583,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653119.jpg" />
+  <img src="Z:/picture/008/save_picture_653119.jpg" />
 </div>
 
 
@@ -618,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653028.jpg" />
+  <img src="Z:/picture/008/save_picture_653028.jpg" />
 </div>
 
 
@@ -653,7 +775,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652420.jpg" />
+  <img src="Z:/picture/008/save_picture_652420.jpg" />
 </div>
 
 
@@ -673,120 +795,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16133C55CBEDFBE9F5D61DDC9B19BA10C995E493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226903   (652352) от 23.05.2018
-
-Симптом - Ближе (2018) [MP3|320 Kbps] <Love Metal, Gothic Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652352.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Километры Снов
-2. Try
-3. Мегаполис
-4. Тысяча Дней(   Читать дальше...   )Жанр: Love Metal, Gothic Metal, Gothic RockПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1234CA77ADA946D8CCF691280AEB42D3F6FEE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031416   (651806) от 04.07.2016
-
-Симптом - С новым утром! (2016) Single [MP3|320 Kbps] <Gothic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651806.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. С Новым Утром!
-2. Твои Слёзы (Goth'n'Roll version)Жанр: Gothic Hard RockПродолжительность: 00:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9B320D262148C1A61B51D1DD4229C8917BE84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540691   (650752) от 31.03.2022
-
-Теория Всего - Инициация (2022) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро [00:02:36]
-02 - Правила игры [00:03:22]
-03 - Ты и они [00:03:18]
-04 - Отражение [00:03:35](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843F27C5E51A0B68E6D0F7167A391EC454D4D2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540693   (650751) от 31.03.2022
-
-Третье измерение - Открой позабытую сказку (2022) [MP3|320 Kbps] <Folk Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Рим [00:04:34]
-02 - Суккуб [00:04:17]
-03 - Не со мной [00:04:04]
-04 - Языческая Русь [00:04:40](   Читать дальше...   )Жанр: Folk Rock, Hard RockПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552B739AB5545B70669CD0585F338F746705C642
 ```
 
 https://mybot314.ru/tekegram_catalog/

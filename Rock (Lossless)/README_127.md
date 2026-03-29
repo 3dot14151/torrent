@@ -1,3 +1,148 @@
+###  Публикация: 1465092   (240311) от 25.04.2021
+
+Marko Hietala - Pyre Of The Black Heart (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stones (5:15)
+02. The Voice Of My Father (4:37)
+03. Star, Sand And Shadow (5:01)
+04. Dead God's Son (4:42)(   Читать дальше...   )Жанр: Symphonic Rock, Heavy MetalПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6545C02E7AFA5348C84C84B8A63A38C33DD9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634347   (240301) от 19.05.2023
+
+Stormburst - III (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up On Your Feet
+02. Peace Of Mind
+03. When The Worlds Collide
+04. Wild And Crazy(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC0D9957284BECBB0BDB77D75543ABA7E6D7C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411638   (240290) от 26.09.2020
+
+Yuri Gagarin - The Outskirts Of Reality (2020) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock / Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. QSO (10:05)
+02. Oneironaut (13:36)
+03. Crystal Dunes (08:00)
+04. Laboratory 1 (03:48)(   Читать дальше...   )Жанр: Psychedelic Rock / Space RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DACDE09370DC76CF7AC22408F4F30AC4239D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637069   (240282) от 02.06.2023
+
+Hollywood Vampires - Live In Rio (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raise the Dead (5:30)
+02. My Generation (3:02)
+03. I Got a Line on You (2:54)
+04. Cold Turkey (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01D9B218644945161571CEBBBB281A6227F938E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465064   (240275) от 25.04.2021
+
+Carla Riehl - Heroes (1991) [FLAC|Lossless|image + .cue] <Soft Rock, Lite AOR, CCM>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240275.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heroes
+2. Out On The Ocean
+3. Write Your Vision
+4. Destiny(   Читать дальше...   )Жанр: Soft Rock, Lite AOR, CCMПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96890B85A50B5ECA54D514B747DFAAF253E257C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621126   (240262) от 23.03.2023
 
 VA - Dead Don’t Die - Rock Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ VA - Dead Don’t Die - Rock Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240262.jpg" />
+  <img src="Z:/picture/004/save_picture_240262.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Various Artists - Flower Power - Best Of Love, Peace and Happiness (2023) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240259.jpg" />
+  <img src="Z:/picture/004/save_picture_240259.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - 00s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240229.jpg" />
+  <img src="Z:/picture/004/save_picture_240229.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - All Out Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240214.jpg" />
+  <img src="Z:/picture/004/save_picture_240214.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Various Artists - Rock & Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240211.jpg" />
+  <img src="Z:/picture/004/save_picture_240211.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Places Around The Sun - Places Around the Sun (2020) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240161.jpg" />
+  <img src="Z:/picture/004/save_picture_240161.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ La Famiglia Degli Ortega - La Famiglia Degli Ortega (1973) 1996, Vinyl Magic [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240150.jpg" />
+  <img src="Z:/picture/004/save_picture_240150.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - The Rock Collection: 80s Rock (1993) 2CD Compilation [FLAC|Lossless|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240001.jpg" />
+  <img src="Z:/picture/004/save_picture_240001.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Miss Mellow - Miss Mellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychy, Funky, K
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239880.jpg" />
+  <img src="Z:/picture/004/save_picture_239880.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Days Of Wine - Days Of Wine (2022) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239877.jpg" />
+  <img src="Z:/picture/004/save_picture_239877.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Dorothy - Gifts From The Holy Ghost (2022) [FLAC|Lossless|tracks + .cue] <Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239858.jpg" />
+  <img src="Z:/picture/004/save_picture_239858.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Outroduction - Cubique a Face Centree (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239786.jpg" />
+  <img src="Z:/picture/004/save_picture_239786.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ The Black Cats Eye - The Empty Space Between A Seamount And Shock-Headed Julia (
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239656.jpg" />
+  <img src="Z:/picture/004/save_picture_239656.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Huis - Abandoned (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239507.jpg" />
+  <img src="Z:/picture/004/save_picture_239507.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Mozart Gabriel - Sign Me Up 4 The Apocalypse (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239366.jpg" />
+  <img src="Z:/picture/004/save_picture_239366.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Brunorock - War Maniacs (2009) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239356.jpg" />
+  <img src="Z:/picture/004/save_picture_239356.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Ian Hunter - Defiance Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239344.jpg" />
+  <img src="Z:/picture/004/save_picture_239344.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Page 99 - For Imagination's Sake (2022) [FLAC|Lossless|image + .cue] <AOR, Westc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239340.jpg" />
+  <img src="Z:/picture/004/save_picture_239340.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Phil Collins - Love Songs: A Compilation... Old And New (2004) 2CD [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239331.jpg" />
+  <img src="Z:/picture/005/save_picture_239331.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Rainbow - The Very Best Of Rainbow (1997) [APE|Lossless|image + .cue] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239328.jpg" />
+  <img src="Z:/picture/004/save_picture_239328.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Tomi Malm - Walkin' On Air (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239304.jpg" />
+  <img src="Z:/picture/004/save_picture_239304.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Tomi Malm - Walkin' On Air (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86FE474FBE0E020E3205CD6B49DFA08CE7D76420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636012   (239298) от 28.05.2023
-
-Bite The Bullet - Rocky Road (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Men Walking (4:01)
-02. Not Today (3:52)
-03. Digging That Hole (4:12)
-04. Call Of The Wild (4:01)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98FE8AEC79E88E7AAB2B394924642A9C4F8CB3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574099   (239297) от 04.09.2022
-
-David Sinclair - Apropos Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hip-Hopping 03:45
-02. Borrowed Rhyme 04:09
-03. Apropos Blues 05:39
-04. The Bands Of London 03:08(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657F339A9B5B79EA87D5372EDA6ADD065E56BBC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638451   (239247) от 08.06.2023
-
-The Blacktop Kings - Royalty (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Some People (00:03:00)
-02 - Lost Your Mind (00:05:13)
-03 - No Reflection (00:06:19)
-04 - Long Long Gone (00:08:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58158D3B783A10FCE9109D216FF76F1946B2BCC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638450   (239217) от 08.06.2023
-
-Bloodsugar - Join The Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Join the Lines (00:03:50)
-02 - Song for a Rainy Day (00:05:03)
-03 - Can't Slow Down (00:06:15)
-04 - Breathing (00:06:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9382519C19335E4EADDEBDEB5BA7849948A4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628160   (239209) от 22.04.2023
-
-Imagine Dragons - Mercury - Acts 1 & 2 (2022) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239209.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Act 1:
-01. Enemy (from the series Arcane League Of Legends) (feat. JID) (02:53)
-02. My Life (03:44)
-03. Lonely (02:39)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED48573D2B1AF9896866E0F250844A37910A259
 ```
 
 https://mybot314.ru/tekegram_catalog/

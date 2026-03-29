@@ -1,3 +1,73 @@
+###  Публикация: 600315   (998972) от 08.01.2013
+
+VA - Tropiques Dancefloor 2013 (2012) [MP3|320 кб/с]<Dance, Pop,Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Ken - DJ Ken Pr sente Dancehall Party 4:13
+2. Lylloo (Feat. Matt Houston) - Tu Y Yo 3:04
+3. Le la Chicot - Lov Intas 4:00
+4. Marvin - Sans Toi 4:06
+5. Colonel Reyel - Toi Moi 3:26
+6. Moussier Tombola - Logobitombo (Corde Sauter) 3:31
+7. Milca (Feat. Passi) - La Vie Va Donner 4:13
+8. Kalash (Feat. Lieutenant) - Pran Pi 3:14
+9. Ls - Jet T oublierai 4:17
+10. Dj Jairo - Kalin 4:13(   Читать дальше...   )Жанр: Dance, Pop,ClubПродолжительность: 01:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04C5274007D51EBE1528FBF5674F89862615945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600300   (998843) от 08.01.2013
+
+VA - Gangnam Style Hits (2013) [MP3|320 кб/с]<Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998843.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Psy - Gangnam Style (3:39)
+2. Scissor Sisters - Only the Horses (3:42)
+3. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (3:42)
+4. Federico Seven Feat Marti Caos - Night Dreams (Radio Mix) (3:59)
+5. Asaf Avidan & the Mojos - Reckoning Song (Wankelmut Remix) (3:30)
+6. Kyota - Nemo (Original Mix) (6:54)
+7. Andu Angelo Feat Rares & Joshua - Fly With You (Original Mix) (3:40)
+8. Ray Burnz - Fck The Club (Club Mix) (9:18)
+9. Calabria Vs Rob Estell - Nature (Club Mix) (4:41)
+10. Dima Koch - Eurythmic Hook (Original Mix) (5:10)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 05:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C3A075F5F152DE43A9F760C6484A27A64D173C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600897   (998401) от 10.01.2013
 
 VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
@@ -6,7 +76,7 @@ VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998401.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ VA - Radio Italia 30 Anni (3CD) (2012) [MP3|320 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998108.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998020.jpg" />
 </div>
 
 
@@ -111,7 +181,7 @@ VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997582.jpg" />
 </div>
 
 
@@ -146,7 +216,7 @@ VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997579.jpg" />
 </div>
 
 
@@ -181,7 +251,7 @@ VA-Зажигательные Зимние Хиты (2013) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997547.jpg" />
 </div>
 
 
@@ -216,7 +286,7 @@ VA-200 Хитов зимы (2013) [MP3|192 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997229.jpg" />
 </div>
 
 
@@ -251,7 +321,7 @@ VA - OE3 Greatest Hits Vol. 59 (2012) [MP3|320 kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997064.jpg" />
 </div>
 
 
@@ -286,7 +356,7 @@ VA - Зимняя Дискотека DFm (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997040.jpg" />
 </div>
 
 
@@ -321,7 +391,7 @@ VA - Танцевальная Сборная Хитов. Зарубежный (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997028.jpg" />
 </div>
 
 
@@ -356,7 +426,7 @@ VA-Зимний хит-парад звёзд Российской попмузы
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996989.jpg" />
 </div>
 
 
@@ -391,7 +461,7 @@ VA-Шевели попой (2013) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996765.jpg" />
 </div>
 
 
@@ -426,7 +496,7 @@ VA-Cупер новая сотка хитов Dfm (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996742.jpg" />
 </div>
 
 
@@ -461,7 +531,7 @@ VA - Горячая 20 (22 Альбома) (1999-2012) [MP3|320 kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996658.jpg" />
 </div>
 
 
@@ -496,7 +566,7 @@ VA-Golden Romance Collection (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996624.jpg" />
 </div>
 
 
@@ -531,7 +601,7 @@ VA-Убойный Русский Хит (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996493.jpg" />
 </div>
 
 
@@ -566,7 +636,7 @@ VA-Super Dance Hits DFM (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996474.jpg" />
 </div>
 
 
@@ -601,7 +671,7 @@ VA - Шевели Попой 2 (Русский выпуск) (2013) [MP3|128 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_996455.jpg" />
+  <img src="Z:/picture/008/save_picture_996455.jpg" />
 </div>
 
 
@@ -636,7 +706,7 @@ VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996163.jpg" />
 </div>
 
 
@@ -671,7 +741,7 @@ VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|1
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_995863.jpg" />
+  <img src="Z:/picture/008/save_picture_995863.jpg" />
 </div>
 
 
@@ -706,7 +776,7 @@ VA - Зажигательная вечеринка. Зимний выпуск. �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995236.jpg" />
 </div>
 
 
@@ -741,7 +811,7 @@ VA - Митяевские песни. Часть 3 (2011) [MP3|320 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995182.jpg" />
 </div>
 
 
@@ -776,7 +846,7 @@ VA - Радио Шторм - Русский Шторм - 85 (2013) [MP3|128-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994829.jpg" />
 </div>
 
 
@@ -811,7 +881,7 @@ VA-Зимний марафон DFM №22 (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992290.jpg" />
 </div>
 
 
@@ -831,76 +901,6 @@ VA-Зимний марафон DFM №22 (2013) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:993BD01F5C69AF5A4652FB8CCF7D0B9E124F7A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608780   (992259) от 27.01.2013
-
-VA - Радио Шторм - NeРусский Шторм - 86 (2013) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akces - I Feel Lucky (Radio Edit)
-02. Akon - That Na Na
-03. Alex Clare - Too Close (Slider & Magnit Remix)
-04. Alex Gaudino feat. Jrdn - Playing With My Heart (Radio Edit)
-05. Angeliya - Love Is Life
-06. Armin Van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
-07. Arsenie - New Bang Bang
-08. Ask Embla - I Fell In Love
-09. Belinda - En La Obscuridad
-10. Cascada - GloriousЖанр: Pop, DanceПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CEFC4DC744E98C9049A7718BE60EB957AC72D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608543   (992212) от 27.01.2013
-
-VA - Зарубежный чарт TOP 100 German (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lenka - Everything At Once
-02. Lana Del Rey - Summertime Sadness
-03. Chris Brown - Don't Judge Me
-04. Loreen - Euphoria
-05. Kesha - Die Young
-06. Andreas Gabalier - I Sing A Liad Für Di
-07. Labrinth - Express Yourself
-08. David Bowie - Where Are We Now!
-09. Otto Knows - Million Voices
-10. Flo Rida - I Cry(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F662AC6A44139081DD02D747DCAD2A6397F3D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

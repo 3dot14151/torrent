@@ -1,3 +1,29 @@
+###  Публикация: 1766211   (101264) от 17.12.2024
+
+Аромат карри / Curry Scent (2024) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно иммигрировав в Америку, Гита пытается помочь своей семье осуществить американскую мечту, заключив современный брак по договоренности.Производство: США / Angry Elf Entertainment. Hello DesiЖанр: Комедия, мелодрамаРежиссер: Криста БоариниАктеры: Akalvir, Эби Байс, Джастин Дэвид, Прия Дева, Talha Ehtasham, Nikhil Kamkolkar, Anirudh Keshamouni, Самир Кхан, Мелани Киран, Лорен ЛичПеревод: Многоголосый профессиональный (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: 01:45:23Реклама: присутствует пара вставок видеорекламы и статичный логотип
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED8EC6B3C290646627778CD3848DADD0B920E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767495   (101187) от 22.12.2024
 
 Хайп хаус / Buzz House: The Movie (2024) WEBRip [DVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101187.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71971.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71962.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71862.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71843.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71777.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71764.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71545.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71542.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71541.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71291.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71116.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70324.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70025.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69971.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69881.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69363.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69029.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68951.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68926.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67926.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67925.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67924.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67862.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67859.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96BEA7F940F470CE18598BD90E1CF7DBE1808512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790855   (67852) от 13.04.2025
-
-Тайная жизнь орангутанов / Secret Lives of Orangutans (2024) WEBRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Аттенборо рассказывает о жизни семьи орангутанов из нескольких поколений: об их приключениях, достижениях и трудностях.Производство: Великобритания / Silverback FilmsЖанр: документальныйРежиссер: Хув КордиАктеры: Дэвид АттенбороПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:16Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8A5AD3A0BE8A1B6058FCA201051382682A03E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

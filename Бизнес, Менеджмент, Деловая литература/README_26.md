@@ -1,3 +1,30 @@
+###  Публикация: 1206894   (781632) от 15.02.2018
+
+Елена Николаева | Делай сегодня! Опыт 64 успешных российских стартапов (2018) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известной журналистки и ведущей телеканалов РБК и «Россия-1» Елены Николаевой посвящена одновременно и бизнесу и самореализации. Точнее – самореализации в бизнесе.
+Автор журналов «Сноб» и «Эксперт», Николаева в течение ряда лет скрупулезно собирает материал о молодых российских компаниях. В книгу вошли 64 успешных кейса из различных отраслей – от сельского (   Читать дальше...   )Жанр: Истории успеха, Креатив, идеи, Российская практика, Стартапы и создание бизнеса, Эффективность бизнесаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91CAE5AE044A8C3659C15479AF223A029288ECAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206608   (781626) от 15.02.2018
 
 Елена Котова | Откуда берутся деньги, Карл? Природа богатства и причины бедности (2018) [PDF]
@@ -6,7 +33,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781626.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781172.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780503.jpg" />
+  <img src="Z:/picture/008/save_picture_780503.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780491.jpg" />
+  <img src="Z:/picture/008/save_picture_780491.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780470.jpg" />
+  <img src="Z:/picture/008/save_picture_780470.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779872.jpg" />
+  <img src="Z:/picture/008/save_picture_779872.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779352.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779337.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779181.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778626.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778611.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778587.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778183.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777884.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777876.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777836.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777586.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777457.jpg" />
 </div>
 
 
@@ -487,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777173.jpg" />
+  <img src="Z:/picture/008/save_picture_777173.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776743.jpg" />
+  <img src="Z:/picture/008/save_picture_776743.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776727.jpg" />
+  <img src="Z:/picture/008/save_picture_776727.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776317.jpg" />
+  <img src="Z:/picture/008/save_picture_776317.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775997.jpg" />
+  <img src="Z:/picture/008/save_picture_775997.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775635.jpg" />
+  <img src="Z:/picture/008/save_picture_775635.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774222.jpg" />
+  <img src="Z:/picture/008/save_picture_774222.jpg" />
 </div>
 
 
@@ -658,34 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A4AA0FBAA4B7CE022D140D302492DD6E61D1F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212606   (774126) от 14.03.2018
-
-Дэвид Стиллман, Иона Стиллман | Поколение Z на работе (2017) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поколение Z — это те, кто родился в 1995–2012 годах. Постепенно они становятся основной рабочей силой на рынке труда.
-Эта книга — о представителях поколения Z в рабочей обстановке. Об их особенностях, существенных отличиях от «миллениалов», привычках, мотивации, взглядах на карьеру и успех.
-Автор книги, Дэвид Стиллман, потратил почти двадцать лет на исследования (   Читать дальше...   )Жанр: Экономика, Бизнес, Управление персоналом,  МенеджментПеревод: Юрий КондуковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3D8B336DB4104A2D16FD6166779F60FC74D885
 ```
 
 https://mybot314.ru/tekegram_catalog/

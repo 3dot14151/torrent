@@ -6,7 +6,7 @@
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314863.jpg" />
+  <img src="Z:/picture/008/save_picture_314863.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283588.jpg" />
+  <img src="Z:/picture/008/save_picture_283588.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283580.jpg" />
+  <img src="Z:/picture/008/save_picture_283580.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283465.jpg" />
+  <img src="Z:/picture/008/save_picture_283465.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280008.jpg" />
+  <img src="Z:/picture/008/save_picture_280008.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261362.jpg" />
+  <img src="Z:/picture/005/save_picture_261362.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259243.jpg" />
+  <img src="Z:/picture/005/save_picture_259243.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150222.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148487.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148268.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144366.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130636.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117530.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ui Kits - UI8 -   Painted Style Landscapes - Set of 20 [PNG, PSD]
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100949.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69448.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67363.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66904.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66882.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66875.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66697.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66689.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66671.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66664.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66663.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66587.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66565.jpg" />
 </div>
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1277747   (785025) от 21.01.2019
+
+М. М. Розенталь | Диалектика ленинского исследования империализма и революции (1976) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785025.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге раскрывается богатое диалектическое содержание работ В. И. Ленина, посвященных исследованию природы империалистической стадии капитализма, а также закономерностей революции и революционного процесса, стратегии и тактики борьбы за революционное преобразование общества.
+
+В книге выделены те стороны и аспекты ленинской диалектики, рассматриваемой в широком плане (   Читать дальше...   )Жанр: История, политология, философия, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738D5A237CF18F7B9E1A96E4E47704909FC14843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277750   (785021) от 21.01.2019
 
 Л. А. Леонтьев | Ленинская теория империализма (1960) [DJVU]
@@ -6,7 +34,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785021.jpg" />
+  <img src="Z:/picture/008/save_picture_785021.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784939.jpg" />
+  <img src="Z:/picture/008/save_picture_784939.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784903.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784899.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784766.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784750.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784683.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784680.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784615.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784356.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784205.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783904.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783790.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783661.jpg" />
+  <img src="Z:/picture/008/save_picture_783661.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783359.jpg" />
+  <img src="Z:/picture/008/save_picture_783359.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783226.jpg" />
+  <img src="Z:/picture/008/save_picture_783226.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782731.jpg" />
+  <img src="Z:/picture/008/save_picture_782731.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782148.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782119.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781669.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781434.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781417.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781283.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780426.jpg" />
+  <img src="Z:/picture/008/save_picture_780426.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780421.jpg" />
+  <img src="Z:/picture/008/save_picture_780421.jpg" />
 </div>
 
 
@@ -651,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2455D42B56C602F60C0D80BD8F5DFF5C90DD843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206679   (780399) от 19.02.2018
-
-В.А. Внуков, Ц.М. Фейнберг (общ. ред.) | Судебная психиатрия: Учебник для юридических вузов (1936) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий учебник, составленный сотрудниками Научно-исследовательского института судебной психиатрии им. Сербского, рассчитан в основном на студентов правовых вузов. Кроме того учебник может служить пособием для студентов-медиков и врачей, работающих в области судебной психиатрии, так как основные вопросы судебной психиатрии в нем достаточно полно освещены. Студенты (   Читать дальше...   )Жанр: История, политология, правоведение, психиатрия, медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D69AB5BA43FBB40162844318B0DA1D23AD8556
 ```
 
 https://mybot314.ru/tekegram_catalog/

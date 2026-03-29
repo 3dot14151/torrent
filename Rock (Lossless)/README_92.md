@@ -1,3 +1,144 @@
+###  Публикация: 939750   (469149) от 24.09.2015
+
+Peter Hammill - Nadir's Big Chance (1975) Remastered, Reissue /2006, Virgin, Charisma/ [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третье рождение Van Der Graaf Generator предвосхитившее нашествие панка.
+Во вступлении к диску Хэммилл дает объяснение, кто такой Рикки Надир, характеризуя его как альтер эго, оборотную сторону личности музыканта.
+"Я сидел в комнате ожидания, когда я понемногу стал осознавать, что я не один - или, по крайней мере, не единственен. Это длилось всего один миг, (   Читать дальше...   )Жанр: RockПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AA14E75B003EF81A4DF3D0467D2A46C63EE36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407162   (468608) от 06.09.2020
+
+ESP Project - The Rising (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rising (09:17)
+02. Connected (05:45)
+03. On Lunar Tides (10:49)
+04. Flowers In Snow (06:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C89E95DC70689C8C55EE2D4D681615E81E9D44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407159   (468606) от 06.09.2020
+
+ESP Project - Phenomena (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Flight (07:36)
+02. Before Saturn Turned Away (08:00)
+03. Telesthesia (07:53)
+04. Fear Of Flying (06:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A9FCACB7DA1D560FB15033AD31594B83BBDAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570195   (468317) от 24.09.2015
+
+VA - 100 Greatest Guitar Solos (2007) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 09:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1DD2696D0E41E9D9F938910D4881C39AB660A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320836   (467269) от 20.08.2019
+
+Howe Gelb - Gathered (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Singer Songwriter, World, & Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_467269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Fence (02:12)
+02. A Thousand Kisses Deep (feat. M. Ward) (05:39)
+03. Not the End of the World (feat. Anna Karina) (03:59)
+04. Anna (02:36)(   Читать дальше...   )Жанр: Indie Rock, Singer Songwriter, World, & CountryПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4797E84CD2B99F8FC78518CCFA18C202B73D1202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940649   (466539) от 25.09.2015
 
 VA - Rock Classics Top 100 (2007) 6CD [FLAC|image + .cue]<Rock>
@@ -6,7 +147,7 @@ VA - Rock Classics Top 100 (2007) 6CD [FLAC|image + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466539.jpg" />
+  <img src="Z:/picture/008/save_picture_466539.jpg" />
 </div>
 
 
@@ -35,7 +176,7 @@ AOR - L.A Connection (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466441.jpg" />
+  <img src="Z:/picture/008/save_picture_466441.jpg" />
 </div>
 
 
@@ -64,7 +205,7 @@ The Swinging Blue Jeans - 5 альбомов (1992-1998) [APE|Lossless]<Pop, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464688.jpg" />
+  <img src="Z:/picture/008/save_picture_464688.jpg" />
 </div>
 
 
@@ -99,7 +240,7 @@ Rikard Sjoblom's Gungfly - Alone Together (2020) [FLAC|Lossless|WEB-DL|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464253.jpg" />
+  <img src="Z:/picture/008/save_picture_464253.jpg" />
 </div>
 
 
@@ -128,7 +269,7 @@ Martin and Garp - Sentimental Fools (2020) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464220.jpg" />
+  <img src="Z:/picture/008/save_picture_464220.jpg" />
 </div>
 
 
@@ -157,7 +298,7 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)  2 CD Gold Editio
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464198.jpg" />
+  <img src="Z:/picture/008/save_picture_464198.jpg" />
 </div>
 
 
@@ -197,7 +338,7 @@ Champlin Williams Friestedt - CWF (2015) Reissue, 2021, Sony Records Int'l, Japa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464106.jpg" />
+  <img src="Z:/picture/008/save_picture_464106.jpg" />
 </div>
 
 
@@ -226,7 +367,7 @@ Tempest - Tempest / Living In Fear (1990) [FLAC|Lossless|tracks + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464100.jpg" />
+  <img src="Z:/picture/008/save_picture_464100.jpg" />
 </div>
 
 
@@ -255,7 +396,7 @@ Ringo Starr - 32 albums, 2 EPs, 3 singles, 49 CD (1970-2021) [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463808.jpg" />
+  <img src="Z:/picture/008/save_picture_463808.jpg" />
 </div>
 
 
@@ -284,7 +425,7 @@ Vanilla Ninja - Blue Tattoo (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463626.jpg" />
+  <img src="Z:/picture/008/save_picture_463626.jpg" />
 </div>
 
 
@@ -313,7 +454,7 @@ Vanilla Ninja - Blue Tattoo (2005) 2CD, Limited Edition [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463625.jpg" />
+  <img src="Z:/picture/008/save_picture_463625.jpg" />
 </div>
 
 
@@ -342,7 +483,7 @@ VA - Rock Morning Mixtape 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461958.jpg" />
+  <img src="Z:/picture/008/save_picture_461958.jpg" />
 </div>
 
 
@@ -371,7 +512,7 @@ Major Parkinson - Songs From A Solitary Home(2010) [FLAC|Lossless]<Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460195.jpg" />
+  <img src="Z:/picture/008/save_picture_460195.jpg" />
 </div>
 
 
@@ -400,7 +541,7 @@ Anna von Hausswolff - Ceremony (2013) [FLAC|Lossless]<Pop, Indie Rock, Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460052.jpg" />
+  <img src="Z:/picture/008/save_picture_460052.jpg" />
 </div>
 
 
@@ -429,7 +570,7 @@ Caught In The Act - Act 1: Relapse Of Reason (1995) Japan [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459934.jpg" />
+  <img src="Z:/picture/008/save_picture_459934.jpg" />
 </div>
 
 
@@ -458,7 +599,7 @@ Bob Dylan - Bob Dylan's Greastest Hits (1967) HDCD, Remastered /2012,Audio Fidel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459845.jpg" />
+  <img src="Z:/picture/008/save_picture_459845.jpg" />
 </div>
 
 
@@ -493,7 +634,7 @@ Level 42 - True Colours (1984) [FLAC|Lossless|image + .cue] <Pop Rock, Funk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459692.jpg" />
+  <img src="Z:/picture/008/save_picture_459692.jpg" />
 </div>
 
 
@@ -522,7 +663,7 @@ Profuna Ocean - In Vacuum (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459690.jpg" />
+  <img src="Z:/picture/008/save_picture_459690.jpg" />
 </div>
 
 
@@ -551,7 +692,7 @@ Janis Joplin - Farewell Song (1982) [FLAC|Lossless|image + .cue] <Blues Rock, Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459520.jpg" />
+  <img src="Z:/picture/008/save_picture_459520.jpg" />
 </div>
 
 
@@ -580,7 +721,7 @@ Camel - Breathless (1978) Remaster, 1992, Dream [FLAC|Lossless|image + .cue] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459212.jpg" />
+  <img src="Z:/picture/008/save_picture_459212.jpg" />
 </div>
 
 
@@ -609,7 +750,7 @@ Camel - Rain Dances (1977) Remaster, 1991, Dream [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459204.jpg" />
+  <img src="Z:/picture/008/save_picture_459204.jpg" />
 </div>
 
 
@@ -623,151 +764,6 @@ Camel - Rain Dances (1977) Remaster, 1991, Dream [FLAC|Lossless|image + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B5DB4FA13BFB96FDAA79AF01521EFB0EDF127F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703649   (458705) от 26.09.2013
-
-ZZ Top - ZZ Top's First Album (1970) SHM-CD, 2013, Warner Music [FLAC|Lossless|image + .cue]<Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  (Somebody Else Been) Shaking Your Tree   (2:35)
-02.  Brown Sugar   (5:25)
-03.  Squank   (2:49)
-04.  Goin' Down To Mexico   (3:24)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1231E20429BB745AF0C32CB586F6BC4CEECB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408013   (458298) от 11.09.2020
-
-The Beauty of Gemina - Skeleton Dreams (2020) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	A Night Like This
-02.	Naked
-03.	Maybe God Knows
-04.	Friends Of Mine(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42B7671F97E46FE006E8A9C7E0E2E207C9884BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942084   (458214) от 29.09.2015
-
-Rick Miller - Immortal Remains (2013) [FLAC|image+.cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rats In My Darkness 3:00
-02. Ode To An Angel 9:20
-03. Like A Drug 5:12
-04. The Hands Of Time 10:19(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6A2C511B8BA0988E1A276D8FCF7C11BFC522CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942068   (458125) от 29.09.2015
-
-Rick Miller - Heart Of Darkness (2014) [FLAC|image+.cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of Darkness 06:20
-02. Blood Of The Rose 10:03
-03. Castle Walls 05:06
-04. The Dark Lady 13:26(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F956C76FAEB461AAA443D67A70CE394D72301C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941987   (457976) от 29.09.2015
-
-Artful Dodger - Artful Dodger (1975)/Remastered/1997, P.E.G./[FLAC|tracks+.cue]<Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayside (4:22)
-02. You Know It's Alright (3:33)
-03. It's Over (4:06)
-04. Follow Me (3:45)(   Читать дальше...   )Жанр: Power PopПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E0D2147ECDAA1C895802403767BC5BEE8731C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

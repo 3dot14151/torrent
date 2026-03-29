@@ -1,3 +1,82 @@
+###  Публикация: 1371415   (891840) от 30.03.2020
+
+Роб Хобсон | Маленькая книга хорошего сна (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это практическое руководство – чудесное путешествие в страну сна, которое начинается с определения различных причин бессонницы и других проблем с засыпанием. Популярный британский диетолог-нутрициолог и коуч по здоровому образу жизни Роб Хобсон, основываясь на новейших научных исследованиях и рекомендациях экспертов, помогает выявить факторы, которые мешают хорошему (   Читать дальше...   )Жанр: ПсихологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9373F451439FA916C2942FCF7F856AEB91608B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993979   (890965) от 07.03.2016
+
+Марк Меерович, Лариса Шрагина | Технология творческого мышления (2016) [FB2, DOCX]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — ответ на вызов времени о необходимости познать природу креативности и научить человека управлять своей интеллектуальной деятельностью. Развивая возможности знаменитой теории решения изобретательских задач (ТРИЗ), созданной Г.С.Альтшуллером, авторы разработали уникальную методику формирования творческого мышления как осознанного, целенаправленного и управляемого (   Читать дальше...   )Жанр: Психология, Креативность, Творчество, ТРИЗ, ТРИСФормат: FB2, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA897BC09A4605D90A73941C038E9F67806252A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371509   (889970) от 31.03.2020
+
+Джон Максвелл, Лес Пэрротт | 25 способов мотивировать людей (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие в мире эксперты по вопросам лидерства и мотивации преподают все премудрости эффективного общения, овладев которыми, вы сможете легко налаживать правильные отношения с людьми, т. е. привлекать на свою сторону каждого, кто встретится на пути и покажется полезным.
+Для широкого круга читателей.Жанр: Психология, саморазвитие, личностный ростПеревод: Сергей БоричФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB5CE9D244D77893DF8AA9ECE4B3CA2271CB801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371633   (889949) от 31.03.2020
 
 Мэттью Либерман | Социальный вид. Почему мы нуждаемся друг в друге (2020) [EPUB]
@@ -6,7 +85,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889949.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889934.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889279.jpg" />
+  <img src="Z:/picture/005/save_picture_889279.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888479.jpg" />
+  <img src="Z:/picture/005/save_picture_888479.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888360.jpg" />
+  <img src="Z:/picture/005/save_picture_888360.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888289.jpg" />
+  <img src="Z:/picture/005/save_picture_888289.jpg" />
 </div>
 
 
@@ -169,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888185.jpg" />
+  <img src="Z:/picture/005/save_picture_888185.jpg" />
 </div>
 
 
@@ -195,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887346.jpg" />
+  <img src="Z:/picture/005/save_picture_887346.jpg" />
 </div>
 
 
@@ -221,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886984.jpg" />
+  <img src="Z:/picture/005/save_picture_886984.jpg" />
 </div>
 
 
@@ -249,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886780.jpg" />
+  <img src="Z:/picture/005/save_picture_886780.jpg" />
 </div>
 
 
@@ -276,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886745.jpg" />
+  <img src="Z:/picture/005/save_picture_886745.jpg" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886735.jpg" />
+  <img src="Z:/picture/005/save_picture_886735.jpg" />
 </div>
 
 
@@ -328,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886686.jpg" />
+  <img src="Z:/picture/005/save_picture_886686.jpg" />
 </div>
 
 
@@ -355,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886674.jpg" />
+  <img src="Z:/picture/005/save_picture_886674.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885962.jpg" />
+  <img src="Z:/picture/005/save_picture_885962.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885296.jpg" />
+  <img src="Z:/picture/005/save_picture_885296.jpg" />
 </div>
 
 
@@ -435,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885293.jpg" />
+  <img src="Z:/picture/005/save_picture_885293.jpg" />
 </div>
 
 
@@ -461,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885291.jpg" />
+  <img src="Z:/picture/005/save_picture_885291.jpg" />
 </div>
 
 
@@ -487,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885220.jpg" />
+  <img src="Z:/picture/005/save_picture_885220.jpg" />
 </div>
 
 
@@ -513,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885090.jpg" />
+  <img src="Z:/picture/005/save_picture_885090.jpg" />
 </div>
 
 
@@ -539,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885009.jpg" />
+  <img src="Z:/picture/005/save_picture_885009.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884954.jpg" />
+  <img src="Z:/picture/005/save_picture_884954.jpg" />
 </div>
 
 
@@ -593,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884898.jpg" />
+  <img src="Z:/picture/005/save_picture_884898.jpg" />
 </div>
 
 
@@ -604,86 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40DC6790D76FBB1AA2429B6A4FC9708841FA3042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995562   (884102) от 11.03.2016
-
-Павел Раков | 50 правил умной дуры (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы еще не дура? Звучит парадоксально, но только признающие собственную глупость женщины действительно умны! Не верите? Тогда эта книга создана специально для вас! Являясь успешным альфа-самцом, автор собрал самое емкое руководство к действию для настоящих женщин. В этих 50 правилах, возможно, кроется залог вашего семейного и просто жизненного благополучия! Готовьтесь (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, достижение успехаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C9305FA249855FFB327909B7DA0F8C20BD08D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995630   (883833) от 11.03.2016
-
-Энди Паддикомб | Медитация и осознанность. 10 минут в день, которые приведут ваши мысли в порядок (2014) [FB2, DOCX]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медитация по системе Энди Паддикомба – это прежде всего инструмент повышения качества жизни. Она не только снижает уровень стресса, помогает избавиться от тревог, раздражительности, бессонницы, но и помогает осознать, что жизнь прекрасна. Кроме того, состояние осознанности, которому учит медитация, зачастую позволяет находить решения самых сложных жизненных задач (   Читать дальше...   )Жанр: ПсихологияФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D0FF9CEF357C66954D7FB27A5F724DE130BA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103810   (882991) от 13.02.2017
-
-Виктор Франкл | Логотерапия и экзистенциальный анализ. Статьи и лекции (2017) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882991.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу книги психиатра, психолога, невролога, философа и основателя Третьей Венской школы психотерапии Виктора Франкла вошли 13 написанных им за 60 лет работы статей и лекций о логотерапии – психотерапевтическом методе, в котором делается акцент на поисках человеком смысла бытия.
-
-В книге прослеживается зарождение и становление логотерапии, дается ее теоретическое (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FCB87EA25AC0E58A86DCF7124FCD4F194AEDC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

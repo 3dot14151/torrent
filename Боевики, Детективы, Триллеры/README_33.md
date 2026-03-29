@@ -1,3 +1,83 @@
+###  Публикация: 1201372   (792816) от 24.01.2018
+
+Ванесса Рубио-Барро, Ноэль Балан | Смертельное фрикасе. Убийство по лионскому рецепту [сборник] (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийство тетушки Адель, знаменитого перигорского кулинара, вызвало много вопросов у полиции и общественности. В ее доме не пропало ничего, кроме маленького черного блокнота, который она всегда держала при себе. Даже самые близкие не знали, что же в нем таится. Какой драгоценный рецепт? Неужели рецепт вечной жизни? Лоре Гренадье снова придется разгадывать тайны и (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FDD40FE19658502EBFF8DCD035ED7555AF3724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201375   (792703) от 24.01.2018
+
+Эрик Ларсон | Дьявол в Белом городе. История серийного маньяка Холмса (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это классический документальный триллер о первом американском серийном убийце, действовавшем под псевдонимом… Холмс.
+
+Доктор Холмс творил свои мрачные дела в конце XIX века в Чикаго, где к Всемирной выставке 1893 года он выстроил свой зловещий отель (в народе его прозвали «замок») с лабиринтами и комнатами без окон. Позже осмотр подвала этого дома вызвал шок даже (   Читать дальше...   )Жанр: Документальная литература, Исторические детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251AFA9EB76F6E946A0ADA6C1724A7BDF8701C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387023   (792521) от 31.05.2020
+
+Лиз Лоулер | Я найду тебя (2020) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год назад бесследно пропала Зои Джейкобс. Ее сестра Эмили не может смириться с потерей и не прекращает собственное расследование. Эмоциональное состояние Эмили сильно пошатнулось и вызывает опасения у друзей и коллег. Однажды после небольшой операции она просыпается в клинике и видит доктора, безуспешно пытающегося реанимировать женщину на соседней койке. Но утром (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84094C273DE0D3FA9869918AF44301A130816C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387027   (792518) от 31.05.2020
 
 Камбрия Брокманн | Скажи мне все (2020) [FB2]
@@ -6,7 +86,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792518.jpg" />
+  <img src="Z:/picture/008/save_picture_792518.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792440.jpg" />
+  <img src="Z:/picture/008/save_picture_792440.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791498.jpg" />
+  <img src="Z:/picture/008/save_picture_791498.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791450.jpg" />
+  <img src="Z:/picture/008/save_picture_791450.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791449.jpg" />
+  <img src="Z:/picture/008/save_picture_791449.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791443.jpg" />
+  <img src="Z:/picture/008/save_picture_791443.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790998.jpg" />
+  <img src="Z:/picture/008/save_picture_790998.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790932.jpg" />
+  <img src="Z:/picture/008/save_picture_790932.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790667.jpg" />
+  <img src="Z:/picture/008/save_picture_790667.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790666.jpg" />
+  <img src="Z:/picture/008/save_picture_790666.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790664.jpg" />
+  <img src="Z:/picture/008/save_picture_790664.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790648.jpg" />
+  <img src="Z:/picture/008/save_picture_790648.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790010.jpg" />
+  <img src="Z:/picture/008/save_picture_790010.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789877.jpg" />
+  <img src="Z:/picture/008/save_picture_789877.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789833.jpg" />
+  <img src="Z:/picture/008/save_picture_789833.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789513.jpg" />
+  <img src="Z:/picture/008/save_picture_789513.jpg" />
 </div>
 
 
@@ -429,13 +509,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789009.jpg" />
+  <img src="Z:/picture/008/save_picture_789009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-﻿Больше всего на свете Катя Скворцова боялась, что любимый Дима может ее бросить. Он слишком привлекателен, и за свое счастье рядом с ним нужно бороться! Ведь Катя не слепая и прекрасно видит, что в их паре любит она, а Дима лишь позволяет себя любить. Значит, в любой момент их непрочная связь может оборваться… А ведь Катя готова посвятить Диме всю жизнь и (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+Больше всего на свете Катя Скворцова боялась, что любимый Дима может ее бросить. Он слишком привлекателен, и за свое счастье рядом с ним нужно бороться! Ведь Катя не слепая и прекрасно видит, что в их паре любит она, а Дима лишь позволяет себя любить. Значит, в любой момент их непрочная связь может оборваться… А ведь Катя готова посвятить Диме всю жизнь и (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788578.jpg" />
+  <img src="Z:/picture/008/save_picture_788578.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788558.jpg" />
+  <img src="Z:/picture/008/save_picture_788558.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788181.jpg" />
+  <img src="Z:/picture/008/save_picture_788181.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788158.jpg" />
+  <img src="Z:/picture/008/save_picture_788158.jpg" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788153.jpg" />
+  <img src="Z:/picture/008/save_picture_788153.jpg" />
 </div>
 
 
@@ -589,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788115.jpg" />
+  <img src="Z:/picture/008/save_picture_788115.jpg" />
 </div>
 
 
@@ -600,91 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4522251EC8F40F4487F74AF90D00A90F1929E012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203832   (787695) от 03.02.2018
-
-Буало-Нарсежак | Любимец зрителей [сборник] (2011) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два классических криминальных романа о том, что зачастую мир искусства напрямую связан с преступным миром.
-
-«Конечная остановка» — рассказ о том, как муж, начав расследование обстоятельств автокатастрофы, в которую попала его жена, понимает, что та вела двойную жизнь и под чужим именем была любимой моделью у популярного парижского художника. Но это лишь небольшая (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективы, ТриллерыПеревод: Л. ЗавьяловаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7218045C3F8A98CBC616108D8F1D10833BBF4A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276965   (787228) от 18.01.2019
-
-Элизабет Нуребэк | Скажи, что ты моя (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где проходит тонкая грань между безумием и надеждой?
-
-Перед нами три женщины: одна полагает, что нашла свою дочь, другая боится, что теряет своего ребенка, третья пытается понять, кто она на самом деле.
-(   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПеревод: Юлия КолесоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864744C61C7ED45D921D68273AADCF7EC7D562DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277236   (787008) от 19.01.2019
-
-Линда Ла Плант | Флэш-Рояль (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787008.jpg" />
-</div>
-
-
-###  Подробнее
-
-У миллионера Эдварда де Джерси есть все, что нужно для счастья: красавица-жена вдвое моложе его, любящие дочери, поместье, в котором он разводит скаковых лошадей. Но главная его страсть – скачки, и к призовому жеребцу по кличке Флэш-Рояль он относится почти как к сыну, мечтая увидеть его победу на главных соревнованиях – Дерби.
-
-Внезапно оказавшись на грани разорения (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективы, Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEDC65D6B842A01672CEFFA997C639988B0E5F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

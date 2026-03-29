@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728763.jpg" />
+  <img src="Z:/picture/008/save_picture_728763.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728593.jpg" />
+  <img src="Z:/picture/008/save_picture_728593.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728343.jpg" />
+  <img src="Z:/picture/008/save_picture_728343.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728336.jpg" />
+  <img src="Z:/picture/008/save_picture_728336.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728302.jpg" />
+  <img src="Z:/picture/008/save_picture_728302.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728241.jpg" />
+  <img src="Z:/picture/008/save_picture_728241.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728239.jpg" />
+  <img src="Z:/picture/008/save_picture_728239.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728160.jpg" />
+  <img src="Z:/picture/008/save_picture_728160.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728157.jpg" />
+  <img src="Z:/picture/008/save_picture_728157.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728075.jpg" />
+  <img src="Z:/picture/008/save_picture_728075.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728038.jpg" />
+  <img src="Z:/picture/008/save_picture_728038.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728016.jpg" />
+  <img src="Z:/picture/008/save_picture_728016.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727838.jpg" />
+  <img src="Z:/picture/008/save_picture_727838.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727658.jpg" />
+  <img src="Z:/picture/008/save_picture_727658.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727656.jpg" />
+  <img src="Z:/picture/008/save_picture_727656.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727641.jpg" />
+  <img src="Z:/picture/008/save_picture_727641.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727583.jpg" />
+  <img src="Z:/picture/008/save_picture_727583.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727479.jpg" />
+  <img src="Z:/picture/008/save_picture_727479.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727359.jpg" />
+  <img src="Z:/picture/008/save_picture_727359.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727242.jpg" />
+  <img src="Z:/picture/008/save_picture_727242.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727197.jpg" />
+  <img src="Z:/picture/008/save_picture_727197.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727145.jpg" />
+  <img src="Z:/picture/008/save_picture_727145.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727103.jpg" />
+  <img src="Z:/picture/008/save_picture_727103.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727075.jpg" />
+  <img src="Z:/picture/008/save_picture_727075.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727067.jpg" />
+  <img src="Z:/picture/008/save_picture_727067.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727065.jpg" />
+  <img src="Z:/picture/008/save_picture_727065.jpg" />
 </div>
 
 

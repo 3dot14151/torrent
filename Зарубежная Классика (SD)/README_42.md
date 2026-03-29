@@ -1,3 +1,81 @@
+###  Публикация: 1018950   (728165) от 02.06.2016
+
+Серафино / Serafino (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728165.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме Челентано создал близкий своему имиджу образ простого деревенского парня, прячущего под напускной дурашливостью, неотесанностью природный острый ум, насмешливую иронию, благородство. Получив наследство, Серафино (Адриано Челентано) раздает деньги односельчанам, спускает с откоса автомобиль, приводит в дом не расчетливую невесту, зарящуюся на наследство, (   Читать дальше...   )Производство: Италия, ФранцияЖанр: КомедияРежиссер: Пьетро ДжермиАктеры: Адриано Челентано, Оттавия Пикколо, Лючана Турино, Саро Урци, Бенжамин Лев, Наццарено Натале, Эрмелинда Де ФеличеПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9449FD7A3A1C41D959BD8C12EBA68A7B3870531C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018916   (728080) от 02.06.2016
+
+Женщины / Les femmes (1969) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый писатель Жером Эрве всю жизнь пишет романы о своих женщинах. Женщинам он посвятил лучшие часы своей жизни. Женщины принесли ему славу, богатство и приключения. Но однажды Жером понимает, что ему осточертели все его женщины. Они его обожают. Они хотят замуж. Они все время доступны. И Жорж бежит, прихватив с собой новую секретаршу. Мог ли он знать, что Клара (   Читать дальше...   )Производство: Италия, ФранцияЖанр: КомедияРежиссер: Жан ОрельАктеры: Брижит Бардо, Морис Роне, Жан-Пьер Марьель, Анни Дюпере, Кристина Холм, Жоель Лятур, Таня Лоперт ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB587EC7DDCD6C78264649900D1A3BF4981428E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019016   (727350) от 03.06.2016
+
+Белые телефоны / Telefoni bianchi (1976) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ироническая комедия о симпатичной и доступной Мачелле, которая, в погоне за счастьем и в стремлении стать кинозвездой, готова стать любовницей самого Муссолини. Но до этого ей придется переспать не с одним негодяем продюсером, побывать в доме терпимости и научиться петь...Производство: ИталияЖанр: КомедияРежиссер: Дино РизиАктеры: Агостина Белли, Коки Понзони, Маурицио Арена, Вильям Бергер, Лино Тоффоло, Витторио Гассман, Уго Тоньяцци, Паоло Барони, Карла Терлицци, Элеонора Морана, Марселло Фуско, Лаура Троттер, Энрико Марчани, Джованни БрусадориПеревод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8341B1ADDEAADA0B7A5FFC1BCE250D3FBA4DDFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 325927   (727265) от 20.04.2011
 
 Правила игры / The Rules of the Game (1939) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727265.jpg" />
+  <img src="Z:/picture/008/save_picture_727265.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727035.jpg" />
+  <img src="Z:/picture/008/save_picture_727035.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726489.jpg" />
+  <img src="Z:/picture/008/save_picture_726489.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726317.jpg" />
+  <img src="Z:/picture/008/save_picture_726317.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726273.jpg" />
+  <img src="Z:/picture/008/save_picture_726273.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726171.jpg" />
+  <img src="Z:/picture/008/save_picture_726171.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726028.jpg" />
+  <img src="Z:/picture/008/save_picture_726028.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725483.jpg" />
+  <img src="Z:/picture/008/save_picture_725483.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725003.jpg" />
+  <img src="Z:/picture/008/save_picture_725003.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724102.jpg" />
+  <img src="Z:/picture/008/save_picture_724102.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723565.jpg" />
+  <img src="Z:/picture/008/save_picture_723565.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722735.jpg" />
+  <img src="Z:/picture/008/save_picture_722735.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722010.jpg" />
+  <img src="Z:/picture/008/save_picture_722010.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721911.jpg" />
+  <img src="Z:/picture/008/save_picture_721911.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721125.jpg" />
+  <img src="Z:/picture/008/save_picture_721125.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720395.jpg" />
+  <img src="Z:/picture/008/save_picture_720395.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720011.jpg" />
+  <img src="Z:/picture/008/save_picture_720011.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719599.jpg" />
+  <img src="Z:/picture/008/save_picture_719599.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719201.jpg" />
+  <img src="Z:/picture/008/save_picture_719201.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719035.jpg" />
+  <img src="Z:/picture/005/save_picture_719035.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718881.jpg" />
+  <img src="Z:/picture/008/save_picture_718881.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718660.jpg" />
+  <img src="Z:/picture/008/save_picture_718660.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717964.jpg" />
+  <img src="Z:/picture/008/save_picture_717964.jpg" />
 </div>
 
 
@@ -599,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB7EF58FE8B8D61A80924F53B35CEE5CD4DD6224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021748   (717478) от 08.06.2016
-
-Операция начнется после полудня / Olsen-banden overgiver sig aldrig (1979) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уморительная история о похождениях хитроумных мошенников. Главарь банды Ольсен — Эган, отсиживая очередной срок в датской тюрьме, набрался знаний по менеджменту и бизнесу у своего сокамерника. Из полученных знаний он сделал только один вывод: бизнес — это законное мошенничество. Освободившись, он немедленно приступает к делу… Вознамерившись прибрать к рукам крупнейший (   Читать дальше...   )Производство: ДанияЖанр: Комедия, криминалРежиссер: Эрик БаллингАктеры: Ове Спрогёе, Мортен Грунвальд, Поуль Бундгор, Керстен Уолтер, Аксель Стрёбюэ, Оле Эрнст, Бьорн Уатт-Булсен, Питер Стин, Ове Вернер Хансен, Бастер Ларсен, Вера Гебур ...Перевод: Дублированный, любительский одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD508011392966205D3C984A613CEB99075BF787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668784   (717379) от 18.06.2013
-
-Лётчик-испытатель / Test Pilot (1938) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717379.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме всё: и настоящая мужская дружба, и самопожертвование во имя этой дружбы, и настоящая любовь. Кроме того, это лучший фильм об авиации и лётчиках, о скоротечности их жизни по независящим от них причинам и о глубине переживаний жен и подруг каждую минуту осознающих, что неотвратимость потери столь дорогого человека неизбежна, и в то же время нужно жить (   Читать дальше...   )Жанр: ДрамаРежиссер: Виктор ФлемингАктеры: Кларк Гейбл, Мирна Лой, Спенсер Трэйси, Лайонел Бэрримор, Сэмюэл С. Хиндс, Марджори Мэйн, Тед Пирсон, Глория Холден, Луис Джин Хейдт, Вирджиния Грей, Присцилла Лоусон, Клаудия Колман, Артур ЭйлесуортПеревод: Профессиональный (двухголосый, закадровый)Субтитры: нетПродолжительность: 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE14E04CF9D569C4969045450E31B2FC7A017ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021981   (717366) от 08.06.2016
-
-Бархатные ручки / Mani di velluto (1979) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженер Гвидо изобретает особо прочное стекло, которое позволяет спокойно спать владельцам ювелирных магазинов. Но это изобретение очень не нравится ворам, и они подсылают очаровательную девушку, чтобы завлечь изобретателя в свои ряды. Но неожиданно планы мошенников рушатся, как карточный домик. Девушка влюбляется в неотразимого Гвидо. Некоторые комические выходки (   Читать дальше...   )Производство: ИталияЖанр: КомедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Элеонора Джорджи, Джон Шарп, Ольга Карлатос, Джино Сантерколе, Ания Пьерони, Джанкарло Тондинелли, Пиппо Сантонастасо, Джанни Дзулло, Джефри Коплстон, Вальтер Вальди, Сандро Гиани, Пьетро Торди, Серджо Тардиоли, Дино КассиоПеревод: Профессиональный многоголосый, профессиональный двухголосый, профессиональный одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD8195A05EB13B40E9880E5DB1522148A4BC925
 ```
 
 https://mybot314.ru/tekegram_catalog/

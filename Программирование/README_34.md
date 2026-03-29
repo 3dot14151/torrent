@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313831.jpg" />
+  <img src="Z:/picture/008/save_picture_313831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313725.jpg" />
+  <img src="Z:/picture/008/save_picture_313725.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312892.jpg" />
+  <img src="Z:/picture/008/save_picture_312892.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307953.jpg" />
+  <img src="Z:/picture/008/save_picture_307953.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305038.jpg" />
+  <img src="Z:/picture/008/save_picture_305038.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301742.jpg" />
+  <img src="Z:/picture/008/save_picture_301742.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301679.jpg" />
+  <img src="Z:/picture/008/save_picture_301679.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300573.jpg" />
+  <img src="Z:/picture/008/save_picture_300573.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298344.jpg" />
+  <img src="Z:/picture/008/save_picture_298344.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293980.jpg" />
+  <img src="Z:/picture/008/save_picture_293980.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292683.jpg" />
+  <img src="Z:/picture/008/save_picture_292683.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ James Cook / Джеймс Кук | LibGDX Game Development By Example / LibGDX �
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292508.jpg" />
+  <img src="Z:/picture/008/save_picture_292508.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292468.jpg" />
+  <img src="Z:/picture/008/save_picture_292468.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281842.jpg" />
+  <img src="Z:/picture/008/save_picture_281842.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281519.jpg" />
+  <img src="Z:/picture/008/save_picture_281519.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281516.jpg" />
+  <img src="Z:/picture/008/save_picture_281516.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273150.jpg" />
+  <img src="Z:/picture/008/save_picture_273150.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272193.jpg" />
+  <img src="Z:/picture/008/save_picture_272193.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271995.jpg" />
+  <img src="Z:/picture/008/save_picture_271995.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271985.jpg" />
+  <img src="Z:/picture/008/save_picture_271985.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271896.jpg" />
+  <img src="Z:/picture/008/save_picture_271896.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271890.jpg" />
+  <img src="Z:/picture/008/save_picture_271890.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271874.jpg" />
+  <img src="Z:/picture/008/save_picture_271874.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269263.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268689.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266583.jpg" />
 </div>
 
 

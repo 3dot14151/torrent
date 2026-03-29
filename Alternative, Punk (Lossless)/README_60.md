@@ -1,3 +1,32 @@
+###  Публикация: 1427491   (181807) от 29.11.2020
+
+Nirvana - 9 Albums, 3 Box-Sets, 6 Singles, 43CD (1989-2013) [FLAC|Lossless|image + .cue] <Grunge, Alt Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_181807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная в Сиэтле в 1987 году группа Nirvana стала одной из самых больших и влиятельных групп в истории музыки, исполнявшей гранж. Недолгая, но яркая история группы прервалась в 1994 году, в связи со смертью Курта Кобейна. В начале 90-х Курт Кобейн оказался в глазах СМИ не просто музыкантом, а «голосом поколения», а Nirvana — флагманом «поколения Х». Многие музыкальные (   Читать дальше...   )--------------------------
+
+01. Heart-Shaped Box (LP Version) (4:41)
+02. Milk It (LP Version) (3:54)(   Читать дальше...   )Жанр: Grunge, Alternative Rock |Продолжительность: 37:50:56 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA9D75001F3A7D9481EF31D27C5D883C3FF3F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592747   (181747) от 25.11.2022
 
 Nickelback - Get Rollin' (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alt. Rock,  Modern Rock>
@@ -6,7 +35,7 @@ Nickelback - Get Rollin' (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181747.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Daisy George - see me now (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Alternative & I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181719.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Nomy - Stay (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_181502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181502.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181453.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Nick Cave & The Bad Seeds - Idiot Prayer (2020) Nick Cave Alone at Alexandra Pal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181449.jpg" />
+  <img src="Z:/picture/005/save_picture_181449.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Muse - Ghosts (How Can I Move On) [feat. Elisa] (2022) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180931.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Soul Exchange - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180893.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ The Crossed - The Producer Of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180539.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180450.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Oceans Turn Red - MOIRAE (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore / Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180026.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ The Veer Union - Covers Collection Vol.1-2 (2020-2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179644.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Marked As An Enemy - Meanwhile (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179416.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Behind Our Reflections - Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <MetalCor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178826.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Hollywood Undead - New Empire, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178323.jpg" />
+  <img src="Z:/picture/005/save_picture_178323.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Brojob - A Very Deathcore Christmas With Brojob (2022) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178218.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ The Heavy - 7 альбомов (2007 - 2023) [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177894.jpg" />
+  <img src="Z:/picture/005/save_picture_177894.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Texas - Ricks Road (1993) Vertigo 518 252-2 [FLAC|Lossless|image + .cue]< Adult 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177658.jpg" />
+  <img src="Z:/picture/005/save_picture_177658.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Luca Brasi - The World Don’t Owe You Anything (2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177643.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Wage War - The Stripped Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176849.jpg" />
+  <img src="Z:/picture/005/save_picture_176849.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Lunatic Soul - Through Shaded Woods (2020) [FLAC|Lossless|image + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176706.jpg" />
+  <img src="Z:/picture/005/save_picture_176706.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ The Cure - Faith (1981) Fiction 827 667-2 [FLAC|Lossless|image + .cue]<Goth Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176694.jpg" />
+  <img src="Z:/picture/005/save_picture_176694.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ In Search of Solace - The Endless Ache (2022) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176325.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176283.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176092.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Paul Bartolome - Reflections (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175701.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Paul Bartolome - Reflections (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E1525D8E1D56275AB0681161AA7A25B986E7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595390   (175697) от 05.12.2022
-
-Temple Agents - Next Step (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roses [00:03:34]
-02. Lies On TV [00:03:36]
-03. Spanish Steps [00:04:09]
-04. Let It Go [00:04:33](   Читать дальше...   )Жанр: Modern Rock, Post GrungeПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BBD1FF5B417A1D4D459787B36A99E1816CF33D
 ```
 
 https://mybot314.ru/tekegram_catalog/

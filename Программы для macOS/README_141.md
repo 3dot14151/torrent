@@ -1,3 +1,135 @@
+###  Публикация: 1661866   (188265) от 16.09.2023
+
+Speech 1.11.0 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speech объединяет все функции синтезатора речи macOS в единый удобный интерфейс. Доступно множество языков: выберите один из более чем 40 голосов и языков. Перетащите или вставьте текст в речь и начните читать/воспроизводить. Вы можете изменить в любое время голос и скорость речи. Нажмите на слово для воспроизведения с определенной точки текста.
+Экспортируйте текст (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2023Разработчик: © 2-23 HugyAppsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E3F87BF76CDAE7915D5EB48672BB867DE0973A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661995   (188263) от 16.09.2023
+
+PDF Merge & PDF Splitter + 6.3.9 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188263.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Merge and PDF Splitter - это очень простое в использовании приложение, которое позволяет быстро объединять несколько PDF-файлов в один или разделять указанные страницы в новый PDF-файл.Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2024 qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235130066017805386CA37F17A9B5AB93DCE5FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661886   (188253) от 16.09.2023
+
+Web Dumper for Mac 3.4.5 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы просматриваете веб-сайт в своем браузере и решаете создать его копию на своем жестком диске, вам придется вручную сохранять каждую просматриваемую страницу вместе со встроенными изображениями, звуками и т. д. Это может быть очень долгим и утомительным процессом, и во многих случаях это приносит больше хлопот, чем пользы. Однако это не обязательно должно быть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2022Разработчик: © 2002 - 2022 Maxprog, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18635C89B5BE4C7DBE41F16F991A4ABEEEF578BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661861   (188243) от 16.09.2023
+
+Cool Menu 1.5.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cool Menu — это набор из 10 очень полезных функций, которых нет в macOS. Вместо нескольких приложений строки меню для каждой функции, которые тратят впустую драгоценное пространство вашей строки, все они аккуратно упакованы под одним значком строки меню.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2022Разработчик: © 2019-2022 SolutionShare Technologies Private Limited.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8475EF200C85B11C252FEFE71F293BA673517765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661910   (188207) от 16.09.2023
+
+DiskWarrior 5.3.1 (Standalone) [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все просто исчезло после того, как Ваш Mac вышел из строя. Все Ваши рабочие документы. Музыка, которой Вы больше всего наслаждаетесь. Фильм о первых шагах Вашего ребенка.  Не паникуйте! DiskWarrior восстановит Ваши документы, фотографии, музыку и любые другие файлы, когда что-то случится, и Вы потеряете доступ к Вашим файлам.
+DiskWarrior (утилита)  - инструмент, который (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17.03.2023Разработчик: © 2023 AlsoftПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E190B6F31D560E33A5E861C3422544A21D676D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661822   (188127) от 16.09.2023
 
 GRAPHISOFT ArchiCAD 26.0 ARM/Intel [Rus]
@@ -6,7 +138,7 @@ GRAPHISOFT ArchiCAD 26.0 ARM/Intel [Rus]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188127.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ Native Instruments Guitar Rig 7 Pro for Mac 7.0.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187962.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ IINA 1.3.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187736.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ Microsoft Office 2021 for Mac LTSC 16.66 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187620.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ Xojo 2020 Release  2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_185990.jpg" />
+  <img src="Z:/picture/005/save_picture_185990.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ PullTube 1.8.4.14 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185467.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ Wondershare AllMyMusic 3.0.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185449.jpg" />
+  <img src="Z:/picture/004/save_picture_185449.jpg" />
 </div>
 
 
@@ -193,7 +325,7 @@ Rectangle Pro 2.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185382.jpg" />
 </div>
 
 
@@ -222,7 +354,7 @@ ScreenFlow 10 v10.0.8 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185243.jpg" />
 </div>
 
 
@@ -250,7 +382,7 @@ AnyTrans 8.9.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185187.jpg" />
 </div>
 
 
@@ -277,7 +409,7 @@ My Favorites 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184611.jpg" />
+  <img src="Z:/picture/004/save_picture_184611.jpg" />
 </div>
 
 
@@ -304,7 +436,7 @@ Motive 1.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184580.jpg" />
+  <img src="Z:/picture/004/save_picture_184580.jpg" />
 </div>
 
 
@@ -331,7 +463,7 @@ HyperDither 2.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184555.jpg" />
+  <img src="Z:/picture/004/save_picture_184555.jpg" />
 </div>
 
 
@@ -357,7 +489,7 @@ Clipboard Booster 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184527.jpg" />
+  <img src="Z:/picture/004/save_picture_184527.jpg" />
 </div>
 
 
@@ -383,7 +515,7 @@ PhotosRevive 1.3.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184481.jpg" />
+  <img src="Z:/picture/004/save_picture_184481.jpg" />
 </div>
 
 
@@ -409,7 +541,7 @@ New File Menu 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184471.jpg" />
+  <img src="Z:/picture/004/save_picture_184471.jpg" />
 </div>
 
 
@@ -436,7 +568,7 @@ Particulars 34 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184446.jpg" />
+  <img src="Z:/picture/004/save_picture_184446.jpg" />
 </div>
 
 
@@ -462,7 +594,7 @@ iDatabase 6.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184367.jpg" />
+  <img src="Z:/picture/004/save_picture_184367.jpg" />
 </div>
 
 
@@ -488,7 +620,7 @@ CrystalMaker X 10.5.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184318.jpg" />
+  <img src="Z:/picture/004/save_picture_184318.jpg" />
 </div>
 
 
@@ -515,7 +647,7 @@ JetBrains Full Pack 2020.2.3 - 2020.2.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183695.jpg" />
+  <img src="Z:/picture/004/save_picture_183695.jpg" />
 </div>
 
 
@@ -541,7 +673,7 @@ SideNotes 1.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183542.jpg" />
+  <img src="Z:/picture/004/save_picture_183542.jpg" />
 </div>
 
 
@@ -552,140 +684,6 @@ SideNotes - это боковая панель, которая заполнит 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1858A4F7BF0D3FEB7F6D0D35CD3A779E0803EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592726   (182439) от 24.11.2022
-
-Pixelmator Classic 3.9.11 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2022Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4 и вышеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D66A935DFE35D5797D4430CBC07B6379AFB8F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427821   (182401) от 29.11.2020
-
-GPG Suite 2020.2 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один простой пакет со всем необходимым, чтобы защитить ваши электронные письма и файлы. Используйте GPG Suite для шифрования, расшифровки, подписания и проверки файлов или сообщений. Управляйте своим GPG Keychain несколькими щелчками мыши и испытайте всю мощь GPG проще, чем когда-либо прежде.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: GPGTools GmbH.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5218420BADA1E86A6BD66C32BB46FBF8EAEE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592491   (182236) от 24.11.2022
-
-KeyKey v.2.9.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь печатать максимально быстро, без ошибок и не глядя на клавиатуру
-
-Слепая десятипальцевая печать — штука полезная. Даже если вы пишете только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
-Чтобы научится слепому набору не нужны учителя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2022Разработчик: Sergiy Vynnychenko & Vlad GorohovskyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27BF24F7A8B1016DD083314B90A07DE49E68732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592738   (182175) от 24.11.2022
-
-PyCharm Community Edition 2022.2.4 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182175.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyCharm – это самая интеллектуальная Python IDE с полным набором средств для эффективной разработки на языке Python. PyCharm выполняет инспекцию кода на лету, автодополнение, в том числе основываясь на информации, полученной во время исполнения кода, навигацию по коду, обеспечивает множество рефакторингов.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2022Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABA12FBDB6C3A85A8DB2242092ABA53BBEC986F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427796   (182136) от 29.11.2020
-
-ForkLift 3.4.4 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182136.jpg" />
-</div>
-
-
-###  Подробнее
-
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
-На ForkLift стоит обратит внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: BinaryNightsПоддерживаемая ОС: OS X 10.11.6 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210FE46B5D43E11B060C193FE2C8D15C0A425CAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

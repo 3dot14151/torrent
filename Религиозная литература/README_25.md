@@ -1,3 +1,81 @@
+###  Публикация: 1115078   (828061) от 17.03.2017
+
+М. Горев | Последний святой [Последние дни романовской церкви. Канонизационный процесс Иоанна Тобольского 22 мая 1914 г. - 8 апреля 1917 г.] (1928) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_828061.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе на основе архивных материалов рассказано о канонизации Иоанна Тобольского - последнего святого, канонизированного Православной церковью до Великой Октябрьской революции. Показано использование религиозного культа для укрепления царского самодержавия и борьбы с революционным движением.Жанр: История, политология, религиоведение, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84291B4D41EE9B15B76018608D84E01989D35500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502516   (826718) от 15.10.2021
+
+Издание Оптиной Пустыни | Как научиться Иисусовой молитве (1994) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы убеждены тою мыслiю, что любезные читатели нашей книжицы не поскучаютъ чтенiемъ, где многократно упоминается одинъ смыслъ о молитве, но въ разныхъ словесныхъ формахъ, ибо мы описали молитву всесторонне. Посему и думаемъ, что для сердца, любящаго имя Сладчайшаго Iисуса, многократное повторенiе Его имени должно быть усладительнее «паче меда и сота». Аще кто Боголюбивъ, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1380845A6B43BAA65B0A347ACD8F172488B429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775251   (825943) от 08.04.2014
+
+И.К. Антошевский | Евреи христиане. Историко-генеалогические заметки (1907) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой заметки о христианах еврейского происхождения, освещающие малоисследованные стороны русской истории и генеалогии. Их автор — библиограф и литератор И.К. Антошевский. Ныне обрусевшие древние роды часто ведут свое начало от выходцев из других стран. В XVIII веке, в результате первого и второго разделов Польши, произошло массовое появление евреев (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10FE6C22BAE2F1611ADC35A62AFA1D4DADF0067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007073   (825576) от 13.04.2016
 
 Антонио А. Борелли | Фатимская весть. Трагедия или надежда? (1993) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825576.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825043.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824981.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824980.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824974.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824971.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824969.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824965.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824866.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824808.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823516.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823477.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823396.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823142.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823124.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822990.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822892.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821906.jpg" />
+  <img src="Z:/picture/008/save_picture_821906.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821424.jpg" />
+  <img src="Z:/picture/008/save_picture_821424.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821231.jpg" />
+  <img src="Z:/picture/008/save_picture_821231.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821206.jpg" />
+  <img src="Z:/picture/008/save_picture_821206.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ World Bible Translation Center (изд.) | Библия. Современный 
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821201.jpg" />
+  <img src="Z:/picture/008/save_picture_821201.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821170.jpg" />
+  <img src="Z:/picture/008/save_picture_821170.jpg" />
 </div>
 
 
@@ -601,88 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC57FB342AF4523128C65B87121CD7061C3A97CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382351   (821015) от 10.05.2020
-
-Протоиерей Александр Никольский | Как быть счастливым в браке. Вопросы и ответы (2019) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги «Как быть счастливым в браке» – протоиерей Александр Никольский, настоятель строящегося в Москве храма Трёх Святителей в Раменках. В течение последних десяти лет батюшка руководит клубом «Православная семья». Он выступал на телеканале «Союз», на радио «Радонеж». С 2008 года несёт послушание духовного окормления заключённых при одном из тюремных храмов (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71F9381A6E5D766794AA2783B573FFEE8933DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007610   (820905) от 15.04.2016
-
-Российское Библейское Общество (изд.) | Библия. Современный русский перевод (2011) [PDF, DJVU, FB2, DOC, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный перевод Библии основывается на лучших изданиях оригинальных текстов Ветхого и Нового Заветов и использует последние достижения библейских научных исследований.
-
-Отличие сего перевода точная передача смысла Священного Писания в сочетании с ясностью и доступностью изложения.
-(   Читать дальше...   )Жанр: РелигияФормат: PDF, DJVU, FB2, DOC, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B72B8EB432E65248E772FAB9B9B287678BBDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008013   (819649) от 16.04.2016
-
-Бессам М.Медани | Библия и ислам (2001) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги, доктор Бессам М. Медани, выражает надежду, что второе дополненное издание на русском языке книги «Библия и ислам» поможет всем христианам с любовью и терпением свидетельствовать своим мусульманским друзьям и соседям о Слове Божьем.
-Доктор Медани, в прошлом радиопроповедник арабского отдела радиовещания «The Back to God Hour», в настоящее время продолжает (   Читать дальше...   )Жанр: Религия, апологетика, сравнительное богословиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299BE835482601B0B845B585D0D954880914395B
 ```
 
 https://mybot314.ru/tekegram_catalog/

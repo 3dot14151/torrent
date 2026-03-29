@@ -1,3 +1,29 @@
+###  Публикация: 1136633   (672876) от 23.05.2017
+
+Премьер / De Premier (2016) HDRip [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в Бельгии, где неизвестная группа преступников успешно справляется с заданием по похищению премьер-министра. Главный герой картины - глава службы безопасности, занимающейся охраной второго лица государства. Бандиты быстро выходят на связь с властями и озвучивают им одно-единственное требование: убить американского президента. Теперь (   Читать дальше...   )Производство: БельгияЖанр: ТриллерРежиссер: Эрик Ван ЛойАктеры: Адам Годли, Саския Ривз, Коэн Де Боу, Труус де Бур, Шарлотта Вандермерс, Нэйтан Уайли, Джероен Ван дер Вен, Дирк РуфтхуфтПеревод: Профессиональный многоголосый (GreenРай Studio)Субтитры: ОтсутствуютПродолжительность: 01:55:28Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F021D37210F0F0AB7E6D5494D0A0CC686F8CCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136580   (672757) от 23.05.2017
 
 Невеста дьявола / Tulen morsian (2016) WEB-DLRip [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672757.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672641.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672632.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672532.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672422.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672418.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672316.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671134.jpg" />
+  <img src="Z:/picture/008/save_picture_671134.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670952.jpg" />
+  <img src="Z:/picture/008/save_picture_670952.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670926.jpg" />
+  <img src="Z:/picture/008/save_picture_670926.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670915.jpg" />
+  <img src="Z:/picture/008/save_picture_670915.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670624.jpg" />
+  <img src="Z:/picture/008/save_picture_670624.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670623.jpg" />
+  <img src="Z:/picture/008/save_picture_670623.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670541.jpg" />
+  <img src="Z:/picture/008/save_picture_670541.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670538.jpg" />
+  <img src="Z:/picture/008/save_picture_670538.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670535.jpg" />
+  <img src="Z:/picture/008/save_picture_670535.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670529.jpg" />
+  <img src="Z:/picture/008/save_picture_670529.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670524.jpg" />
+  <img src="Z:/picture/008/save_picture_670524.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670523.jpg" />
+  <img src="Z:/picture/008/save_picture_670523.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667637.jpg" />
+  <img src="Z:/picture/008/save_picture_667637.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666575.jpg" />
+  <img src="Z:/picture/008/save_picture_666575.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666321.jpg" />
+  <img src="Z:/picture/008/save_picture_666321.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664047.jpg" />
+  <img src="Z:/picture/008/save_picture_664047.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662948.jpg" />
+  <img src="Z:/picture/008/save_picture_662948.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662001.jpg" />
+  <img src="Z:/picture/008/save_picture_662001.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C775050B0142B3C3BB415BFFA2F14B32BA51B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139016   (661852) от 31.05.2017
-
-Поркпай / Pork Pie (2017) HDRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трио случайных преступников путешествуют по всей Новой Зеландии в желтой машине Мини, протестуя и преследуя потерянную любовь, пока за ними гонится отряд полицейских.Производство: Новая ЗеландияЖанр: Боевик, комедия, криминалРежиссер: Мэтт МерфиАктеры: Дин О`Горман, Джеймс Роллестон, Эшли Каммингс, Антония Преббл, Мэтт Вилан, Шиван Маршалл, Бен Митчелл, Томас Сейнсбури, Джеральдин Брофи, Скотт УиллсПеревод: Любительский многоголосый (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:46:27Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9D9F4678FC7333E89D9138AB4F29F7CD1F2596
 ```
 
 https://mybot314.ru/tekegram_catalog/

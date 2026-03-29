@@ -6,7 +6,7 @@ NVIDIA Inspector 1.9.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855409.jpg" />
+  <img src="Z:/picture/008/save_picture_855409.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EZ CD Audio Converter 5.3.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855406.jpg" />
+  <img src="Z:/picture/008/save_picture_855406.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Icecream Slideshow Maker Pro 2.15 Portable by Speedzodiac [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855398.jpg" />
+  <img src="Z:/picture/008/save_picture_855398.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dism++ 10.1.23.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855325.jpg" />
+  <img src="Z:/picture/008/save_picture_855325.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Icecream Slideshow Maker Pro 2.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855318.jpg" />
+  <img src="Z:/picture/008/save_picture_855318.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Daum PotPlayer 1.7.457 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855316.jpg" />
+  <img src="Z:/picture/008/save_picture_855316.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855314.jpg" />
+  <img src="Z:/picture/008/save_picture_855314.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Clover 3.2.9.02131 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855230.jpg" />
+  <img src="Z:/picture/008/save_picture_855230.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Emsisoft Emergency Kit 2017.2.0.7222 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855219.jpg" />
+  <img src="Z:/picture/008/save_picture_855219.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Photo Supreme 5.4.0.2821 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855205.jpg" />
+  <img src="Z:/picture/008/save_picture_855205.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Video to Flash 6.7.7.443 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855202.jpg" />
+  <img src="Z:/picture/008/save_picture_855202.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.36 (1604) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855200.jpg" />
+  <img src="Z:/picture/008/save_picture_855200.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Soft4Boost Document Converter 6.2.9.459 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855076.jpg" />
+  <img src="Z:/picture/008/save_picture_855076.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Soft4Boost AMPlayer 5.6.7.291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855070.jpg" />
+  <img src="Z:/picture/008/save_picture_855070.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ LDPlayer 3.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855065.jpg" />
+  <img src="Z:/picture/008/save_picture_855065.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Zemana AntiMalware Premium 2.20.2.8 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854995.jpg" />
+  <img src="Z:/picture/008/save_picture_854995.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Windows 7 Manager 5.1.8 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854993.jpg" />
+  <img src="Z:/picture/008/save_picture_854993.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ WonderFox HD Video Converter Factory Pro 18.9 (20.04.2020) RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854925.jpg" />
+  <img src="Z:/picture/008/save_picture_854925.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ MediaHuman YouTube Downloader 3.9.9.36 (1704) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854923.jpg" />
+  <img src="Z:/picture/008/save_picture_854923.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Foxit Reader 8.2.1.6871 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854849.jpg" />
+  <img src="Z:/picture/008/save_picture_854849.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ SamDrivers 17.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854838.jpg" />
+  <img src="Z:/picture/008/save_picture_854838.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ DriverPack Solution 16.17.3 + Драйвер-Паки 17.02.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854835.jpg" />
+  <img src="Z:/picture/008/save_picture_854835.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ DAEMON Tools Ultra 5.0.1.0551 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854833.jpg" />
+  <img src="Z:/picture/008/save_picture_854833.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ XnConvert 1.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854806.jpg" />
+  <img src="Z:/picture/008/save_picture_854806.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 45 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854801.jpg" />
+  <img src="Z:/picture/008/save_picture_854801.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ LDPlayer 4.0.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854790.jpg" />
+  <img src="Z:/picture/008/save_picture_854790.jpg" />
 </div>
 
 

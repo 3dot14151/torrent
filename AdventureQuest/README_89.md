@@ -1,3 +1,81 @@
+###  Публикация: 1753864   (39131) от 27.10.2024
+
+Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beyond Shadowgate, захватывающее продолжение классической приключенческой игры для NES, вдыхает новую жизнь в жанр приключений "укажи и щелкни". Спустя более трех десятилетий эта любимая жемчужина вновь появляется на свет с повествованием, которое в четыре раза масштабнее, чем у ее предшественницы, сочетая ностальгическую 8-битную эстетику с современным (   Читать дальше...   )Тип издания: LicenseРазработчик: Zojoi LLC., GrahfMetalЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720E080ABD6327B3E9031D87F819E61B69EA33FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756246   (39054) от 28.10.2024
+
+Neva (2024) [Ru/Multi] (1.02) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмоциональное приключение Neva сделала та же команда разработчиков, которая выпустила игру GRIS, тепло принятую критиками и полюбившуюся игрокам. Главная героиня Neva - девушка Альба, которая после встречи с тёмными силами оказалась связана с любопытным волчонком. Вместе они отправляются в опасное путешествие по некогда прекрасному умирающему миру. Альба и волчонок (   Читать дальше...   )Тип издания: RepackРазработчик: Nomada StudioЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C1A284079C42A49CBB336E82325B7495277797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757578   (39022) от 28.10.2024
+
+The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39022.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Coma 2B: Catacomb - корейская приключенческая игра, совмещающая в себе элементы хоррора и симулятора выживания. Сюжет этой предыстории The Coma 2: Vicious Sisters объединяет всю серию. Чой Ёнхо, герой The Coma 1, снова отправляется в жуткое зеркальное измерение. Что произошло между The Coma 1 и The Coma 2? Ответ вы узнаете в этой игре.Тип издания: RepackРазработчик: Dvora Studio Co., Ltd.Жанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: КорейскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36775F509416F63A548650AA2729E1B38352E004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757736   (38940) от 29.10.2024
 
 Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
@@ -6,7 +84,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38940.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38936.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38886.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38854.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38833.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38780.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38748.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38725.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Tintin Reporter Cigars of the Pharaoh / Репортер Тинтин: Сига�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38660.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38654.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38652.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38650.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38642.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38600.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38537.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38417.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Night is Grey (2024) [En] (1.4) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38397.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38379.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38340.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ CRUELTY (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38305.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38164.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38116.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38057.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C0F01B885198B000935705FF1F1F6F68F0F7C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742541   (38006) от 07.11.2024
-
-Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франшиза вновь порадует вас интересной историей и заставит дрожать от страха при виде аниматроников. Ваше приключение пройдет в формате point & click, сыграйте за парня по имени Освальд, который в поисках чего-то интересного забрел в заброшенную пиццерию. Там наш герой решил опробовать бассейн с шариками, после этого его переносит в прошлое.Тип издания: RepackРазработчик: Mega Cat StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6CC631B53A20B7A27F55494EAFBA5B367A590F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759009   (37825) от 09.11.2024
-
-Lula 3D (2006) [Ru/En] (1.0) Unofficial
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лула, соблазнительная пышногрудая блондинка, продюсер эротического фильма, попала в затруднительное положение. Прямо перед съемками её нового шедевра - трое близняшек-звёзд, которые должны были исполнять главные роли, похитили из их роскошных апартаментов в Беверли-Хиллз. На месте преступления Лула находит подозрительный спичечный коробок с логотипом одного из клубов (   Читать дальше...   )Тип издания: UnofficialРазработчик: RedFire SoftwareЖанр: ПриключенияЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759513   (37806) от 09.11.2024
-
-Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] (build 16327099) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chicken Police: Into the HIVE! - увлекательное детективное приключение в стиле нуарных фильмов, в котором вам предстоит собирать улики, допрашивать подозреваемых и решать головоломки, чтобы раскрыть хитросплетения мирового заговора. Сонни и Марти - самые крутые детективы Дикой природы - собираются взяться за крупнейшее дело жизни, что приведет их в гетто насекомых, (   Читать дальше...   )Тип издания: RepackРазработчик: The Wild GentlemenЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

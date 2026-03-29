@@ -1,3 +1,84 @@
+###  Публикация: 1135674   (679506) от 20.05.2017
+
+И. И. Мигович | Преступный альянс: О союзе униатской церкви и украинского буржуазного национализма (1985) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679506.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении трех с половиной веков униатская церковь, охраняя интересы господствующих классов и католической церкви, вела в Западной Украине борьбу за умы людей. Многие ее пастыри, сотрудничавшие в период Великой Отечественной войны с фашистскими оккупантами, сбежали на Запад, где в альянсе с украинскими буржуазными националистами выступают за возрождение униатской (   Читать дальше...   )Жанр: История, политология, религиоведение, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343A944811F9C35F82609428B54EA87B40E0F8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135667   (679504) от 20.05.2017
+
+В. А. Васильев | Ноев ковчег (1965) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор настоящей брошюры, преподаватель мединститута, анализируя библейское сказание о «всемирном потопе» и основываясь на научных данных, убедительно доказывает, что никакого «всемирного потопа» в действительности не было, а сама легенда возникла из преданий доисторических народов о больших наводнениях, происшедших на Ближнем Востоке. Легенда о потопе понадобилась (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DAB3F644F1ACFD546BE7A3BD0739315B9C02AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135665   (679428) от 20.05.2017
+
+М. Я. Ленсу | Кто такие «инициативники»? (1967) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679428.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1960 году в среде евангельских христиан-баптистов произошел раскол.
+
+Автор брошюры кандидат философских наук М. Ленсу рассказывает о причинах этого раскола и появлении так называемых баптистов-«инициативников», вскрывает вред, который наносят они своей явно антисоветской деятельностью.
+(   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512968F10E760C59BC1EC9C3EE74FA8E4F947647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222839   (679365) от 02.05.2018
 
 Святитель Николай Сербский | «Ты нужен Богу». Слова и наставления (2013) [PDF, DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679365.jpg" />
+  <img src="Z:/picture/008/save_picture_679365.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679315.jpg" />
+  <img src="Z:/picture/008/save_picture_679315.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679314.jpg" />
+  <img src="Z:/picture/008/save_picture_679314.jpg" />
 </div>
 
 
@@ -91,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679300.jpg" />
+  <img src="Z:/picture/008/save_picture_679300.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679140.jpg" />
+  <img src="Z:/picture/008/save_picture_679140.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678639.jpg" />
+  <img src="Z:/picture/008/save_picture_678639.jpg" />
 </div>
 
 
@@ -169,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678554.jpg" />
+  <img src="Z:/picture/008/save_picture_678554.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678448.jpg" />
+  <img src="Z:/picture/008/save_picture_678448.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678340.jpg" />
+  <img src="Z:/picture/008/save_picture_678340.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678323.jpg" />
+  <img src="Z:/picture/008/save_picture_678323.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677525.jpg" />
+  <img src="Z:/picture/008/save_picture_677525.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677403.jpg" />
+  <img src="Z:/picture/008/save_picture_677403.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677400.jpg" />
+  <img src="Z:/picture/008/save_picture_677400.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677399.jpg" />
+  <img src="Z:/picture/008/save_picture_677399.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677137.jpg" />
+  <img src="Z:/picture/008/save_picture_677137.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675070.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674975.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_674824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_674824.jpg" />
 </div>
 
 
@@ -491,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674763.jpg" />
 </div>
 
 
@@ -520,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674498.jpg" />
+  <img src="Z:/picture/008/save_picture_674498.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674407.jpg" />
+  <img src="Z:/picture/008/save_picture_674407.jpg" />
 </div>
 
 
@@ -575,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673458.jpg" />
+  <img src="Z:/picture/008/save_picture_673458.jpg" />
 </div>
 
 
@@ -601,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672469.jpg" />
 </div>
 
 
@@ -612,84 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8425EB46CFD32B54EE31FA7A3EFFBE9095540985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291229   (672467) от 23.03.2019
-
-В.М. Тюленев | Рождение латинской христианской историографии. С приложением "Церковной истории" Руфина Аквилейского (2005) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в отечественной медиевистике проводится комплексное изучение латинской христианской историографии IV — начала V в. и включаются в исследовательский оборот малоизученные авторы — Лактанций, Иероним Стридонский, Руфин Аквилейский, Сульпиций Север и Павел Орозий. Христианская историография рассматривается в книге как целостное историографическое явление, прошедшее (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCF8F0FD3E8E8024F1E356458EE20A06E07EFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291224   (672462) от 23.03.2019
-
-о. Станислав Гнедзейко | Евхаристическое событие в Сокулке. История и плоды (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день на всех алтарях мира совершается величайшее из всех возможных чудес - чудо Пресуществления хлеба и вина в истинное Тело и Кровь Иисуса Христа. Однако, принимая Святое Причастие, мы можем прикасаться к Нему только верой, потому что доступными для наших чувств остаются лишь не изменённые освящением виды хлеба и вина. Так что же привносит в нашу веру евхаристическое (   Читать дальше...   )Жанр: ТаинстваФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69D838ADB213D43E3B5FD1CF233631A9020A11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030802   (672400) от 01.07.2016
-
-Франсуа Эве | Экуменика (1995) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена изучению вопросов, связанных с воссоединением христианских церквей. В ней приведен как краткий очерк истории современного экуменического движения, так и анализ экуменической деятельности в настоящее время. Подробно разобраны католические принципы экуменизма и отношения с протестантами и Восточными Церквами.Жанр: ЭкуменизмФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90ADA98B2BAA286ECCF4D5B0FA37D537B395389
 ```
 
 https://mybot314.ru/tekegram_catalog/

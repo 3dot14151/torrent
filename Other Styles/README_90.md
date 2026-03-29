@@ -1,3 +1,61 @@
+###  Публикация: 1234227   (572491) от 04.07.2018
+
+Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellar
+02. Taiyo
+03. Brassy Sunrise
+04. Ghostly Disco(   Читать дальше...   )Жанр: Ambient, Downtempo,New AgeПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A46CEB1A0BFDF0392C0B7E0CD2DA815D41B6B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043144   (572371) от 16.08.2016
+
+Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечность (Music From The Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logo And Prosper (01:45)
+02. Thank Your Lucky Star (02:13)
+03. Night On The Yorktown (05:34)
+04. The Dance Of The Nebula (02:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988DB1F52AD8FE0EC354C1E2E9B7A5EEE8BFE53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554789   (572324) от 02.06.2022
 
 Vartra - Luna Noua (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
@@ -6,7 +64,7 @@ Vartra - Luna Noua (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Do
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572324.jpg" />
+  <img src="Z:/picture/008/save_picture_572324.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Mirror's Edge (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572309.jpg" />
+  <img src="Z:/picture/008/save_picture_572309.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Olga Stankevich - Alone With the City (2014) [FLAC 2.0|48/24|WEB-DL|tracks] <Ins
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572250.jpg" />
+  <img src="Z:/picture/008/save_picture_572250.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечнос�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572203.jpg" />
+  <img src="Z:/picture/008/save_picture_572203.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music f
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571990.jpg" />
+  <img src="Z:/picture/008/save_picture_571990.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Piano Dreamers - Indie Pop Piano (2015) [MP3|320 кб/с]<New Age, Piano, Classi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571750.jpg" />
+  <img src="Z:/picture/008/save_picture_571750.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Ennio Morricone - Once Upon A Time... (2 CD) (2007) [MP3|320 кб/с]<Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571042.jpg" />
+  <img src="Z:/picture/008/save_picture_571042.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Shelby Lynne - Just A Little Lovin' (2008) [FLAC|Lossless|image + .cue] <Folk, C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570801.jpg" />
+  <img src="Z:/picture/008/save_picture_570801.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Vyanah - Zen Relaxation (2019) [MP3|320 Kbps] <New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570666.jpg" />
+  <img src="Z:/picture/008/save_picture_570666.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ TagTraumer - Zuviel ist nicht genug (2001) [MP3|320 Kbps] <Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570367.jpg" />
+  <img src="Z:/picture/008/save_picture_570367.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570249.jpg" />
+  <img src="Z:/picture/008/save_picture_570249.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570244.jpg" />
+  <img src="Z:/picture/008/save_picture_570244.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music f
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570187.jpg" />
+  <img src="Z:/picture/008/save_picture_570187.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Ramin Djawadi, VA - Game of Thrones / Игра престолов: Season 1-8 (C
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570180.jpg" />
+  <img src="Z:/picture/008/save_picture_570180.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Jean Michel Jarre - Cities In Concert Houston Lyon (2014) Live [MP3|320 кб/с]
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569802.jpg" />
+  <img src="Z:/picture/008/save_picture_569802.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Medusa - Exploration (2000) [MP3|320 кб/с]<New age,Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569357.jpg" />
+  <img src="Z:/picture/008/save_picture_569357.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ Erotic Moods - Эротические настроения (2004) [MP3|256 кб/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568839.jpg" />
+  <img src="Z:/picture/008/save_picture_568839.jpg" />
 </div>
 
 
@@ -517,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568809.jpg" />
+  <img src="Z:/picture/008/save_picture_568809.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|ima
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568748.jpg" />
+  <img src="Z:/picture/008/save_picture_568748.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568733.jpg" />
+  <img src="Z:/picture/008/save_picture_568733.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568236.jpg" />
+  <img src="Z:/picture/008/save_picture_568236.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ James Newton Howard - Snow White & The Huntsman (2012) [FLAC|tracks+.cue]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568196.jpg" />
+  <img src="Z:/picture/008/save_picture_568196.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Joe Hisaishi - Sonatine (1999) [FLAC|tracks+.cue]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568124.jpg" />
+  <img src="Z:/picture/008/save_picture_568124.jpg" />
 </div>
 
 
@@ -707,7 +765,7 @@ David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568053.jpg" />
+  <img src="Z:/picture/008/save_picture_568053.jpg" />
 </div>
 
 
@@ -721,69 +779,6 @@ David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E737FD4F189B973B054C00E83C28BBA897705897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921967   (568026) от 29.07.2015
-
-Luca Stricagnoli - Luca Stricagnoli (2015) [MP3|320 кб/с] <Instrumental, Acoustic, Guitar, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с гитарной сенсацией из Италии - Лука Стриканьоли (Luca Stricagnoli).
-Лука является одним из самых захватывающих новых музыкантов виртуозно владеющий акустической гитарой. Он обходит нормальные пределы классической аккустички и адаптирует её к любому музыкальному жанру: от поп-музыки до рока, от саундтреков к оригиналу.
-
-Он довольно молод, всего каких (   Читать дальше...   )01. Thunderstruck (4:11)
-02. Braveheart (3:15)
-03. Conquest of Paradise (2:18)
-04. Paradise (3:38)(   Читать дальше...   )Жанр: Instrumental, Acoustic, Guitar, New AgeПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E32D1DB88B4DA739137E78829EBDEA36999DA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529267   (567596) от 31.07.2012
-
-Wil Bolton - Under A Name That Hides Her (2012) [MP3|320 кб/с]<Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567596.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:43) 1. Clearing
-..(6:21) 2. Blackpoint
-(5:42) 3. Skyview
-(5:53) 4. Barbed
-(6:29) 5. Dissolve
-(6:23) 6. PassingЖанр: Meditative, AmbientПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AF65E4A428142D768A2F17E29CFE161A0DBD51
 ```
 
 https://mybot314.ru/tekegram_catalog/

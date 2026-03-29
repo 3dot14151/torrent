@@ -1,3 +1,120 @@
+###  Публикация: 1063557   (434961) от 16.10.2016
+
+BY Effect - Нам по дороге (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй студийный альбом группы BY Effect. Это совокупность мыслей, ощущений, энергии и звука, собранных в единое целое и тесно переплетённых между собой. Музыканты характеризуют этот альбом как более «зрелый», чем предыдущий, возможно более «форматный» или «радийный», кому как больше нравится! На смену жестким металлическим риффам пришел более «тёплый», ламповый (   Читать дальше...   )01. Кто будет первым
+02. Нам по дороге
+03. Святая даль
+04. Дотянуться до Солнца(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9B29E0891B10CC74FCA82B24C82B5C123FC347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165400   (434421) от 12.09.2017
+
+Гражданская Оборона и Александр Рожков - Psychedelia Today (2017) 2CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schizophrenia Today
+02. Полюса
+03. Подозрение
+04. ?(   Читать дальше...   )Жанр: RockПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BA89A9F837120E34AF03F13F67FEBED1E9704E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945505   (433827) от 10.10.2015
+
+Дети Picasso - Motherland (2015) [MP3|320 кб/с]<Rock, Avantgarde, Ethnic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sareri Hovin Mernem
+02. Es Gisher
+03. Dance In The Mountains
+04. Mer Tan Itev(   Читать дальше...   )Жанр: Rock, Avantgarde, EthnicПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D368202495D3DAF5F2D3E93243886835CC9217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410637   (433734) от 22.09.2020
+
+Театр "Этериус" - Песнь о Довакине (2015) [MP3|320 Kbps] <рок-опера>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433734.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Песнь о Довакине" - рок-опера основанная на сюжете игры The Elder Scroll's V: Skyrim (действие оперы происходит в популярной фэнтези-вселенной «Древних Свитков»). В центре повествования "драконорожденный", которому выпала судьба спасти мир от древнего ужаса - драконов.
+Думаю, те, кто хоть раз играл в Скайрим, оценят это произведение =)01. Закон Империи (5:17)
+02. Висельник (3:07)
+03. Ривервуд (5:31)
+04. Пророчество (1:46)(   Читать дальше...   )Жанр: рок-операПродолжительность: 01:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCB0894381844F01AD8D374453AAFDB7ADBFD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249518   (433442) от 24.09.2018
 
 Зимавсегда - Ледовитый (2018) [MP3|320 Kbps] <Indie Rock>
@@ -6,7 +123,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433442.jpg" />
+  <img src="Z:/picture/008/save_picture_433442.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433299.jpg" />
+  <img src="Z:/picture/008/save_picture_433299.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ Eldiarn - Безудержное счастье (2016) [MP3|320 Kbps] <Folk Meta
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432265.jpg" />
+  <img src="Z:/picture/008/save_picture_432265.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432071.jpg" />
+  <img src="Z:/picture/008/save_picture_432071.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431661.jpg" />
+  <img src="Z:/picture/008/save_picture_431661.jpg" />
 </div>
 
 
@@ -152,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430695.jpg" />
+  <img src="Z:/picture/005/save_picture_430695.jpg" />
 </div>
 
 
@@ -187,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429562.jpg" />
+  <img src="Z:/picture/008/save_picture_429562.jpg" />
 </div>
 
 
@@ -216,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429256.jpg" />
+  <img src="Z:/picture/008/save_picture_429256.jpg" />
 </div>
 
 
@@ -245,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428786.jpg" />
+  <img src="Z:/picture/008/save_picture_428786.jpg" />
 </div>
 
 
@@ -274,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427549.jpg" />
+  <img src="Z:/picture/008/save_picture_427549.jpg" />
 </div>
 
 
@@ -302,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427536.jpg" />
+  <img src="Z:/picture/008/save_picture_427536.jpg" />
 </div>
 
 
@@ -332,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427522.jpg" />
+  <img src="Z:/picture/008/save_picture_427522.jpg" />
 </div>
 
 
@@ -361,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427479.jpg" />
+  <img src="Z:/picture/008/save_picture_427479.jpg" />
 </div>
 
 
@@ -387,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427467.jpg" />
+  <img src="Z:/picture/008/save_picture_427467.jpg" />
 </div>
 
 
@@ -416,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427463.jpg" />
+  <img src="Z:/picture/008/save_picture_427463.jpg" />
 </div>
 
 
@@ -445,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427348.jpg" />
+  <img src="Z:/picture/008/save_picture_427348.jpg" />
 </div>
 
 
@@ -474,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427100.jpg" />
+  <img src="Z:/picture/008/save_picture_427100.jpg" />
 </div>
 
 
@@ -503,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426988.jpg" />
+  <img src="Z:/picture/008/save_picture_426988.jpg" />
 </div>
 
 
@@ -532,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426158.jpg" />
+  <img src="Z:/picture/005/save_picture_426158.jpg" />
 </div>
 
 
@@ -558,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425718.jpg" />
+  <img src="Z:/picture/008/save_picture_425718.jpg" />
 </div>
 
 
@@ -587,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425587.jpg" />
+  <img src="Z:/picture/008/save_picture_425587.jpg" />
 </div>
 
 
@@ -616,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425153.jpg" />
+  <img src="Z:/picture/008/save_picture_425153.jpg" />
 </div>
 
 
@@ -630,128 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A87B6E796EC45D370D6AC99CB1B2EA188AB1C9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946765   (424718) от 14.10.2015
-
-F.P.G. - Сквозь ненависть (2015) [MP3|320 кб/с]<Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весть
- 02. Холодное
- 03. Свети
- 04. Со мной(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5E3608FC2495CAB076472974E0CE4059D21818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250528   (424475) от 28.09.2018
-
-Би-2 - Горизонт событий @ ВТБ Арена (2018) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424475.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лётчик
-2. Чёрное солнце
-3. Тема века
-4. Детство(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7750AF2DB32AD8D9C75F740A3EF040A639836B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064931   (423791) от 21.10.2016
-
-МодеМ - Дисконнект (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сольный проект вокалиста и сооснователя группы СЛОТ Игоря «Кэша» Лобанова. Музыка МодеМа далека от альтернативного рока (сам Кэш определяет стилистику дебютного альбома как «электро-софт-рок»), но возможно именно поэтому альбом может быть особенно интересен поклонникам СЛОТа, которые смогут услышать Игоря в совершенно ином качестве. Ну, а о качестве лирики автора (   Читать дальше...   )01. Акт
-02. Полярник
-03. Слоны
-04. Дисконнект(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE422597242EC0E0C4A4FACDE956C0BEF0F026B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554737   (423217) от 06.10.2012
-
-Пикник - Певец декаданса (2012) [MP3|320 kbps] <Rock>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Декаданс (04:23)
-02. Игла (04:30)
-03. За пижоном пижон (03:49)
-04. Вплети меня в свое кружево (04:18)
-05. Клоун беспощадный (04:42)
-06. Гильотины сечение, веревки петля (04:34)
-07. Трилогия (02:12)
-08. Инкогнито (03:20)
-09. Прикосновение (05:08)
-10. Звезда Декаданс (03:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3FE63F671591736F9AA0B4268F47E154D3CB129
 ```
 
 https://mybot314.ru/tekegram_catalog/

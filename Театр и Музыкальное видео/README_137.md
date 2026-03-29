@@ -1,3 +1,175 @@
+###  Публикация: 1716307   (59626) от 15.04.2024
+
+Synthony: Live at Auckland Domain with Auckland Philharmonia (2024) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающее столкновение электронной танцевальной музыки, живого оркестра, диджеев и вокалистов в захватывающем световом, лазерном и визуальном шоу, переосмысляющем культовые клубные гимны. Запись в прямом эфире в культовом Окленд Домен, Новая Зеландия, 10 февраля 2024 года.
+Треклист:
+01. Strauss - Sunrise
+02. Eric Prydz - Pjanoo(   Читать дальше...   )Производство: Новая Зеландия / Manuka Pharm, Global Production PartnersЖанр: концертная программа, транс, прогрессив, инструментальная музыкаАктеры: Сара-Грейс Уильямс, Нэйт Таузенд, Джованна Берсола, Элла Моннери, Сэм Аллен, Джон Чарльз Уилтшир-Батлер, Шери Мэтисон, Илан Кидрон, Льюис Маккаллум, Итан Джуп, Наталья Скотт, Тики Таане, Паора Апера, Питер УрлихПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3B3882184BEF2FE5993A5E6DB8397A8646213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716316   (59614) от 15.04.2024
+
+Andrea Bocelli & CeCe Winans: An Easter Music Special from Lakewood Church with Joel Osteen (2022) HDTV [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из церкви Лейквуд в Хьюстоне, штат Техас, Андреа Бочелли выступил с прекрасной программой прославления и поклонения. Не похожей ни на одного другого, итальянский тенор и икона мировой музыки Андреа Бочелли дал самое необычное выступление в своей карьере в церкви Лейквуд в преддверии пасхального воскресенья.
+Треклист:
+01. You'll Never Walk Alone - Andrea Bocelli
+02. (   Читать дальше...   )Производство: США / Trinity Broadcasting NetworkЖанр: концертная программа, вокал, классика, попРежиссер: Андреа БочеллиАктеры: Андреа Бочелли, Таурен Габриэль Уэллс, Клара Барбье Серрано, Майкл Уитакер Смит, Вирджиния Бочелли, Присцилла Мари УайнансПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: английскийСубтитры: отсутствуютПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BEF17B862415EB629FDA0E94860D8DBE8AEC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716563   (59526) от 16.04.2024
+
+Диана Арбенина. Ночные Снайперы -30 лет. Стадион "Спартак" (2023) WEB-DL [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт был снят 8 июля 2023 года на Арене Спартак в Москве, где группа в честь своего 30-летнего юбилея представила шоу мирового уровня.. «Оглядываясь назад, могу точно сказать две вещи, — комментирует фронтмен группы Диана Арбенина. — Первое: 8-го июля 2023 года на стадионе «Спартак» мы сделали лучший концерт за всю 30-летнюю историю группы «Ночные снайперы». И (   Читать дальше...   )Производство: Россия / John Ru, Студия Никиты СадовниковаЖанр: концерт, рок, попРежиссер: Никита СадовниковАктеры: Диана Арбенина, Денис Жданов, Сергей Макаров, Станислав Веселов, Артём Арбенин, Алексей Макаров, Юрий ГалицкийПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8B7831A26426290E3B76CB3112BE04828593B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716514   (59501) от 16.04.2024
+
+The Black Keys - Live from the KROQ Helpful Honda Sound Space (2024) HDTV [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Black Keys присоединилась к нам для живого выступления в Helpful Honda Sound Space на KROQ, подарив поклонникам предварительный просмотр своего нового альбома "Ohio Players" и рассказали о том, что ждет их в международном туре Players.
+Треклист:
+1. Intro
+2. Howlin For You(   Читать дальше...   )Производство: США / Sound SpaceЖанр: концертная программа, блюз, рок, индиАктеры: Дэн Ауэрбах, Патрик КарниПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: английскийСубтитры: отсутствуютПродолжительность: 00:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E6BED2C7E4459E2C6788DE6DD77B06A17A5526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717935   (58877) от 22.04.2024
+
+Квартирник у Маргулиса. Группа «Аффинаж» (20.04.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58877.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Аффина́ж» — российская рок-группа, работающая в синтетическом стиле нуар-шансон, который содержит отсылки к множеству жанров поп- и рок-музыки.
+«Аффинаж» по праву считается одним из самых аутентичных и самобытных коллективов в стране.00:00:05 Кошечки
+00:06:39 Волчком
+00:15:34 Весело
+00:20:35 Брать или нет?(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Нуар-шансонЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95EA13AD38237DDC2D3DC0E0793C636E2D01E075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310083   (58528) от 26.04.2024
+
+Запрещенные видеоклипы часть 3 / Banned, Uncensored & Uncut Music Videos part 3 (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальные видеоклипы эротического содержания.Bloodhound Gang - Ballad Of Chasey Lain
+Calanit - Sculptured
+Carmen Electra - 2-4-6-8
+Dope - today is the day(   Читать дальше...   )Жанр: эротика, музыкальное видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653B61CBCFB4BD921F820E1996ACAAE0B181B41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 323793   (58483) от 26.04.2024
 
 Бешеные деньги (1978) DVDRip (Малый театр)
@@ -6,7 +178,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58483.jpg" />
 </div>
 
 
@@ -33,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58274.jpg" />
 </div>
 
 
@@ -59,7 +231,7 @@ Two Steps From Hell - Europe Tour 2023 (2024) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58048.jpg" />
 </div>
 
 
@@ -90,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57720.jpg" />
 </div>
 
 
@@ -116,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57509.jpg" />
 </div>
 
 
@@ -145,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57456.jpg" />
 </div>
 
 
@@ -174,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56840.jpg" />
 </div>
 
 
@@ -203,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56790.jpg" />
 </div>
 
 
@@ -232,7 +404,7 @@ Modern Talking - Video Collection (2024) WEBRip [H.264/1080p] [Handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56724.jpg" />
 </div>
 
 
@@ -261,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56710.jpg" />
 </div>
 
 
@@ -290,7 +462,7 @@ Emma Shapplin (1997-1999) DVDRip [MPEG2]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56653.jpg" />
 </div>
 
 
@@ -322,7 +494,7 @@ Modern Talking - Video Collection (2024) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56499.jpg" />
 </div>
 
 
@@ -351,7 +523,7 @@ Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55436.jpg" />
 </div>
 
 
@@ -377,7 +549,7 @@ Queen: Live Aid (1985) BDRemux [H.265/1080p] [10-bit] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55339.jpg" />
 </div>
 
 
@@ -407,7 +579,7 @@ Queen: Rock Montreal (1981) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [EN / EN S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55332.jpg" />
 </div>
 
 
@@ -436,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55306.jpg" />
 </div>
 
 
@@ -465,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53540.jpg" />
 </div>
 
 
@@ -494,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53292.jpg" />
 </div>
 
 
@@ -523,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53090.jpg" />
 </div>
 
 
@@ -552,7 +724,7 @@ BAND-MAID - World Domination Tour at Zepp Tokyo (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52996.jpg" />
 </div>
 
 
@@ -567,180 +739,6 @@ BAND-MAID — японская хард-рок-группа, сформиров�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06A467652BEEE43A06520F015B5352425FB67609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730157   (52985) от 17.06.2024
-
-BAND-MAID - Tour Autumn-Winter 2017 at Studio Coast (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52985.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-Концерт группы в Studio Coast, состоявшийся 24 ноября 2017 и выпущенный на бонусном Blu-Ray диске к лимитированному изданию альбома "World Domination".01. Intro
-02. Choose me
-03. Don't you tell ME
-04. Moratoriamu (モラトリアム)(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFA93098CDC3F331320E74643F5244089074B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730212   (52978) от 17.06.2024
-
-BAND-MAID - World Domination Tour (Shinka) at Line Cube Shibuya (Shibuya Public Hall) (2020) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52978.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-Концерт группы в Line Cube Shibuya (Shibuya Public Hall), состоявшийся 14 февраля 2020 и выпущенный на Blu-Ray диске 29 апреля 2020.01. Maid Waltz
-02. Rinne (Reincarnation. 輪廻)
-03. Blooming
-04. Screaming(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 01:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C39AF8EF5787B4C0B3FA021689DB0BF35EBB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730910   (52809) от 19.06.2024
-
-BAND-MAID - Tokyo Garden Theater OKYUJI (2023) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52809.jpg" />
-</div>
-
-
-###  Подробнее
-
-BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
-Концерт группы в Tokyo Garden Theater, состоявшийся 9 января 2023 и выпущенный на Blu-Ray диске 26 апреля 2023.01. Intro
-02. Unleash!!!!!
-03. Play (with MISA/Kanami battle and Akane's solo)
-04. Influencer(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4812C048CB09EE76B73AAA2FEAB94545D51DE88B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731165   (52775) от 19.06.2024
-
-МузЛофт / МузLoft. Евгений Дятлов (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая глыба актерского и песенного мастерства, человек-история и солист той самой группы АукцЫон, песню которой все знают, потому что она играла в фильме Брат 2. В общем наслаждайтесь песнями и байками со съемок от Евгения Валерьевича Дятлова.Производство: Россия | Y-GenerationУчастники: Евгений ДятловПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FA00CB4C90BBAE26E3ED7447E6187424ECB9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966835   (52622) от 21.06.2024
-
-Виктор Цой - Просто хочешь ты знать (2006) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-концерт о творчестве Виктора Цоя. С элементами мультипликации, компьютерной графики и спецэффектов. Автор фильма разговаривает со зрителями полунамеками, незаконченными фразами. Кто жил в то время все поймет и так, а кто знаком с тем временем только по рассказам старших товарищей, имеет шанс не только увидеть, но и почувствовать истинный дух, энергетику того (   Читать дальше...   )01. Просто хочешь ты знать
-02. Бездельник
-03. Камчатка
-04. Генерал(   Читать дальше...   )Производство: Россия, Аэроплан-фильм, MOROZ RECORDSЖанр: Документальный, Фильм-концертРежиссер: Олег ФлянгольцАктеры: Виктор Цой, Борис Гребенщиков, Майк Науменко, Андрей Панов, Георгий Гурьянов, Юрий Каспарян, Игорь ТихомировПродолжительность: 01:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB79C4FC1EFF72E542D7612991D456709B2D5A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605528   (52447) от 23.06.2024
-
-Кино и Виктор Цой - Концерт в СКК "Олимпийский" (5.05.1990) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет запись одного из последних концертов Виктора Цоя и гр. "Кино", прошедшего 5 мая 1990 года в московском спорткомплексе "Олимпийский". Через три с половиной месяца легендарный советский рок-музыкант погиб.01. Группа крови
-02. Песня без слов
-03. Звезда по имени Солнце
-04. Закрой за мной дверь(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4342A8E2377BA6AAF2271BC7AB6075753EEEC61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

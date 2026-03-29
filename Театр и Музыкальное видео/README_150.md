@@ -1,3 +1,170 @@
+###  Публикация: 104987   (47195) от 11.08.2024
+
+Кошки / Cats (1998) DVD5 (Мюзикл)
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Кошки (мюзикл)- 1998 года. Автор музыкальных композиций: Эндрю Ллойд. Cats - явление pop-культуры, заслужившее любовь более 50 миллионов поклонников в 26 странах мира. За 18 лет зарегистрировано более 2 миллиардов долларов кассовых сборов. По отзывам многих критиков, этот диск несомненно заслуживает внимание истинных любителей pop жанра.Жанр: МюзиклРежиссер: Дэвид Малле (David Mallet)Актеры: Илэйн Пэйдж /Elaine Paige/, Джон Миллз /John Mills/, Кен Пэйдж /Ken Page/, Розмари Форд /Rosemarie Ford/, Майкл Грюбер /Michael Gruber/, Джон Пэтридж /John Partridge/, Эива Мэй /Aeva May/, Джеффри Гэррэтт /Geoffrey Garratt/, Джеймс Бэррон /James Barron/Перевод: ОригинальныйЯзык: АнглийскийФормат: DVD VideoКачество: DVD5Продолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CCC122D461678584BD3DED4B4BECC341A462DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 265073   (47188) от 11.08.2024
+
+Chickenfoot - Get Your Buzz On Live (2010) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chickenfoot объединяет таланты бывших участников группы Van Halen Сэмми Хагара (гитара и вокал) и Майкла Энтони (бас), барабанщика Red Hot Chilli Peppers Чеда Смита и легендарного гитарного героя Джо Сатриани. Собравшись вместе в конце 2008 года, они выпустили свой одноименный дебютный альбом весной 2009 года, получив единодушное признание критиков и впечатляющие (   Читать дальше...   )01. Avenida Revolution
+02. Sexy Little Thing
+03. Soap On A Rope
+04. My Kinda Girl(   Читать дальше...   )Жанр: Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 01:36:44 + 00:01:50 + 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C33A696C927643A3AD6D63590517B372A25FD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 83128   (47182) от 11.08.2024
+
+Def Leppard - Historia: In the Round In Your Face (2001) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47182.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине и конце 1980-х годов Def Leppard был самой продаваемой рок-группой, и две концертные программы в этой коллекции DVD вернулись к коммерческому расцвету британского квинтета. Historia - это 85-минутный взгляд на видео группы примерно в 1980-1988 годах, от его дебюта «Hello America» до его огромных радиоприемников «Налейте мне немного сахара» и «Любовные (   Читать дальше...   )Жанр: Hard-RockВ ролях: Def LeppardФормат: DVD VideoКачество: DVD9Продолжительность: 177 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E7389C7F4702D9E981A5FB1FDBB598A5324485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432389   (47179) от 11.08.2024
+
+Пер Гюнт / Литературно-музыкальный моноспектакль А. Кузнецовой (1993) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль прошёл в юбилейный григовский 1993 год в Москве.
+Так случилось, что музыка Грига к драме Ибсена всем хорошо известна, между тем сама драма незаслуженно остаётся в тени. А жаль!
+Поэма "Пер Гюнт" - одна из лучших пьес драматурга - на сцене появляется, к сожалению, редко.
+Антонина Кузнецова завораживает Вас волшебным действом, берёт в плен с первых (   Читать дальше...   )Жанр: литературно-музыкальный моноспектакльАктеры: народная артистка России Антонина КузнецоваПродолжительность: 01:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60A9D9968171A6F896F665AC9AA5AF91558EAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446295   (47177) от 11.08.2024
+
+Орфей спускается в ад / Театр Советской Армии (1986) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-спектакль по одноименной пьесе Теннеси Уильямса в постановке Центрального академического театра Советской Армии.
+
+В городке на юге США текла обычная провинциальная жизнь. Событий было так мало, что люди жили днями напролет обсуждая чужие жизни и истории, произошедшие много лет назад.
+Но вот однажды привычный уклад этой жизни был нарушен, в городке появился (   Читать дальше...   )Жанр: драма, спектакльРежиссер: Александр Бурдонский, Вадим ЗобинПродолжительность: 02:33:12
+
+Качество видео, - не подарок.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5F637BEE8431D1E7AAF3D57B8A4070871F30C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617387   (47163) от 11.08.2024
+
+Кай Трейсид - Видео коллекция / Kai Tracid - Video collection (1997-2004) DVDRip [H.264/1080p] [Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный сборник видеоклипов знаменитого немецкого диджея, пик популярности которого пришёлся на вторую половину 90-ых и первую половину "нулевых".Производство: ГерманияЖанр: Trance, AcidПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A5BBF0660F19F25944C4812CD591EDE4B283CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742326   (47125) от 11.08.2024
 
 Открытие первого международного музыкального фестиваля «Dream fest» в Баку (2024) WEBRip [H.264/1080p]
@@ -6,7 +173,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47125.jpg" />
 </div>
 
 
@@ -32,7 +199,7 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47089.jpg" />
 </div>
 
 
@@ -58,7 +225,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47088.jpg" />
 </div>
 
 
@@ -84,7 +251,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47068.jpg" />
 </div>
 
 
@@ -115,7 +282,7 @@ Dream fest. День звезд российской эстрады (2024) WEBRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47008.jpg" />
 </div>
 
 
@@ -143,7 +310,7 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46996.jpg" />
 </div>
 
 
@@ -169,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46986.jpg" />
 </div>
 
 
@@ -195,7 +362,7 @@ Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46978.jpg" />
 </div>
 
 
@@ -227,7 +394,7 @@ THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46976.jpg" />
 </div>
 
 
@@ -260,7 +427,7 @@ Vaya Con Dios - the ultimate collection (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46961.jpg" />
 </div>
 
 
@@ -290,7 +457,7 @@ Deep Purple: Live In California 1974 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46880.jpg" />
 </div>
 
 
@@ -320,7 +487,7 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46786.jpg" />
 </div>
 
 
@@ -346,7 +513,7 @@ Metallica - The Videos 1989-2004 (2006) DVD-9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46784.jpg" />
 </div>
 
 
@@ -375,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46735.jpg" />
 </div>
 
 
@@ -403,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46734.jpg" />
 </div>
 
 
@@ -429,7 +596,7 @@ Eurythmics Ultimate Collection  (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46685.jpg" />
 </div>
 
 
@@ -457,7 +624,7 @@ Dire Straits - Rockpalast (1979) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46684.jpg" />
 </div>
 
 
@@ -490,7 +657,7 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46678.jpg" />
 </div>
 
 
@@ -516,7 +683,7 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46669.jpg" />
 </div>
 
 
@@ -545,7 +712,7 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46653.jpg" />
 </div>
 
 
@@ -556,180 +723,6 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DC4B5BCF539A178F5B5E7A1128C83B9FF065C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628391   (46652) от 16.08.2024
-
-Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это было время когда рок концерты были как визуальный стимулятор, поскольку были на слуху, время взрывающейся пиротехники, не покоряющихся тяжести гитаристов и певцов пропитывающих потом кровь и душу всего освещённого пятна сцены. В те дни одна группа правила как короли зрелищности и технически точной музыкальности, группа, которая полностью владеет сценой  - это (   Читать дальше...   )01. The More Things Change
-02. Push Push
-03. Sick For The Cure
-04. Make Your Own Way(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6515EC24E1EEDCBED3BAE2B9BA1B20397CF55588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285534   (46651) от 16.08.2024
-
-Grand Funk & Mark Farner (2005) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46651.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом диске собраны ранее не издававшиеся видео материалы, а также пиратские записи концертов и выступлений (бутлеги).Жанр: RockУчастники: Mark Farner
-Don Brewer
-Mel Schacher
-Craig Frost(   Читать дальше...   )Продолжительность: 0:55:17 + 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA45CC4AD4F07714EFF97A8144F5A690B7B457DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602816   (46641) от 16.08.2024
-
-Styx -Counght In The Akt- 1984 (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Styx - Caught In The Act: Live 1983 (2007):
-01. Kilroy Was Here(Short Film)
-02. Mr.Roboto
-03. Rockin'The Paradise(   Читать дальше...   )Жанр: Hard Prog RockВ ролях: Dennis DeYoung
-Chuck Panozzo
-John Panozzo
-Tommy Shaw(   Читать дальше...   )Формат: DVD videoКачество: DVD9Продолжительность: 01:27:41 + 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2F0EC619FD6225A9386EAD54EFDC9E883AEED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 72966   (46635) от 16.08.2024
-
-LIVING LOUD - Live Sydney Fox Studios (2004) DVD
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46635.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2003 г. пять музыкантов, живые легенды рок-музыки, участники (бывшие и/или нынешние) Deep Purple, Uriah Heep, Ozzy, Rainbow и Black Sabbath, объединились, чтобы исполнить написанные для группы Оззи песни, из-за гонораров за которые у Lee Kerslake и Bob Daisley с семейством Осборн возникли непреодолимые разногласия. Кроме этого, вдобавок придумали 5 своих вещей. (   Читать дальше...   )Жанр: Hard RockПеревод: ОригинальныйПродолжительность: 01:18:45 (непосредственно концерт)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98986C43749DD427221F86925ECA0E4E3FCF8489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577174   (46578) от 17.08.2024
-
-Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46578.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 декабря 2007г Led Zeppelin вышли на сцену лондонской O2 Arena и исполнили концерт в память Ахмета Эртегуна, одного из основателей Atlantic Records. Двухчасовое выступление группы, в числе зрителей которого были многие известные музыканты, получило наивысшие оценки музыкальных обозревателей. Группа порадовала фанатов своим неподражаемым звучанием, ставшим визитной (   Читать дальше...   )01. Good Times Bad Times
-02. Ramble On
-03. Black Dog
-04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4FAE9E91B9102F370B8F678903E733FA16D545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694744   (46575) от 17.08.2024
-
-Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот концерт 1995 года снят в Дюссельдорфе в серии популярных Германских ТВ шоу в Rockpalast. Он следует за выходом Блэкмора из Deep Purple и реформированием Rainbow новым составом. Группа в очень горячей форме представляя треки из заявленного альбома "Stranger in Us All" рядом с классическими песнями Rainbow и Deep Purple. Это никогда ранее не публиковавшееся (   Читать дальше...   )01. Introduction
- 02. Spotlight kid
- 03. Too Late For Tears
- 04. Long Live Rock 'n' Roll / Black Night(   Читать дальше...   )Жанр: Hard RockЯзык: АнглийскийПродолжительность: 01:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFEE0281B653F23C3D1895667B389148D94CBF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

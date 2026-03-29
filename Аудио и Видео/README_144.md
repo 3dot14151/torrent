@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624277.jpg" />
+  <img src="Z:/picture/008/save_picture_624277.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624050.jpg" />
+  <img src="Z:/picture/008/save_picture_624050.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623969.jpg" />
+  <img src="Z:/picture/008/save_picture_623969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623967.jpg" />
+  <img src="Z:/picture/008/save_picture_623967.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623871.jpg" />
+  <img src="Z:/picture/008/save_picture_623871.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Muse - Drones (2015) [AAC|WEB-DL|256 кб/с]<Alternative Rock, Indie Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623704.jpg" />
+  <img src="Z:/picture/008/save_picture_623704.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623541.jpg" />
+  <img src="Z:/picture/008/save_picture_623541.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623420.jpg" />
+  <img src="Z:/picture/008/save_picture_623420.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623390.jpg" />
+  <img src="Z:/picture/008/save_picture_623390.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623288.jpg" />
+  <img src="Z:/picture/008/save_picture_623288.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623269.jpg" />
+  <img src="Z:/picture/008/save_picture_623269.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623268.jpg" />
+  <img src="Z:/picture/008/save_picture_623268.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622557.jpg" />
+  <img src="Z:/picture/008/save_picture_622557.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Zомбоящик  (2017) WEB-DL [1080p] ATV
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622516.jpg" />
+  <img src="Z:/picture/008/save_picture_622516.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622466.jpg" />
+  <img src="Z:/picture/008/save_picture_622466.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Hotel Skt. Petri - Boxed Pleasures, Vol. 1 (2014) [AAC|~320 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622375.jpg" />
+  <img src="Z:/picture/008/save_picture_622375.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Valleys and Tries Chillout Sounds (2017) [AAC|~323 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622367.jpg" />
+  <img src="Z:/picture/008/save_picture_622367.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Sunday Afternoon, Vol. 1 (20 Lovely Lounge Cookies) (2017) [AAC|~290 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622355.jpg" />
+  <img src="Z:/picture/008/save_picture_622355.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622321.jpg" />
+  <img src="Z:/picture/008/save_picture_622321.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - Sunday Afternoon, Vol. 2 (20 Lovely Lounge Cookies) (2021) [AAC|~305 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622211.jpg" />
+  <img src="Z:/picture/008/save_picture_622211.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ ERA - Era I (2002) [AAC|~341 Kbps] <New Age>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622209.jpg" />
+  <img src="Z:/picture/008/save_picture_622209.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ ERA - Era II (2000) [AAC|~332 Kbps] <New Age>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622200.jpg" />
+  <img src="Z:/picture/008/save_picture_622200.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622194.jpg" />
+  <img src="Z:/picture/008/save_picture_622194.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621956.jpg" />
+  <img src="Z:/picture/008/save_picture_621956.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621950.jpg" />
+  <img src="Z:/picture/008/save_picture_621950.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621748.jpg" />
+  <img src="Z:/picture/008/save_picture_621748.jpg" />
 </div>
 
 

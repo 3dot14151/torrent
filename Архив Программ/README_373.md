@@ -6,7 +6,7 @@ CCleaner Browser 80.1.3902.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858544.jpg" />
+  <img src="Z:/picture/008/save_picture_858544.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Download Master 6.19.5.1651 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858482.jpg" />
+  <img src="Z:/picture/008/save_picture_858482.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz DeNoise AI 2.1.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858481.jpg" />
+  <img src="Z:/picture/008/save_picture_858481.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bulk Crap Uninstaller 4.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858476.jpg" />
+  <img src="Z:/picture/008/save_picture_858476.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ashampoo Snap 11.1.0 RePack (&Portable) elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858475.jpg" />
+  <img src="Z:/picture/008/save_picture_858475.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ UnHackMe 11.65 Build 965 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858463.jpg" />
+  <img src="Z:/picture/008/save_picture_858463.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DAEMON Tools Pro 8.1.1.0666 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858441.jpg" />
+  <img src="Z:/picture/008/save_picture_858441.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Xilisoft Video Converter Ultimate 7.8.19 Build 20170209 RePack (& Portable) by e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858435.jpg" />
+  <img src="Z:/picture/008/save_picture_858435.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Topaz Gigapixel AI 4.6.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858246.jpg" />
+  <img src="Z:/picture/008/save_picture_858246.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NVIDIA GeForce/ION driver release 266.77 WHQL (Драйвер для видео�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_858238.jpg" />
+  <img src="Z:/picture/009/save_picture_858238.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ JetBrains WebStorm 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857977.jpg" />
+  <img src="Z:/picture/008/save_picture_857977.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Balabolka 2.15.0.801 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857924.jpg" />
+  <img src="Z:/picture/008/save_picture_857924.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Chromium 94.0.4606.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857920.jpg" />
+  <img src="Z:/picture/008/save_picture_857920.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ SRWare Iron 93.0.4750.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857808.jpg" />
+  <img src="Z:/picture/008/save_picture_857808.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PreSonus Studio One 5 Professional 5.4.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857803.jpg" />
+  <img src="Z:/picture/008/save_picture_857803.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Ableton - Live Suite 11.0.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857666.jpg" />
+  <img src="Z:/picture/008/save_picture_857666.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Just Color Picker 5.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857656.jpg" />
+  <img src="Z:/picture/008/save_picture_857656.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Adobe Acrobat Reader DC 2021.007.20091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857578.jpg" />
+  <img src="Z:/picture/008/save_picture_857578.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Windows 10 (v21h1) x64 PRO by KulHunter v3 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857531.jpg" />
+  <img src="Z:/picture/008/save_picture_857531.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ XMedia Recode 3.3.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857426.jpg" />
+  <img src="Z:/picture/008/save_picture_857426.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Mirillis Splash 2.0.2.0 Premium RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857352.jpg" />
+  <img src="Z:/picture/008/save_picture_857352.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ MKVToolNix 9.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857344.jpg" />
+  <img src="Z:/picture/008/save_picture_857344.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Allavsoft Video Downloader Converter 3.13.9.6268 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857341.jpg" />
+  <img src="Z:/picture/008/save_picture_857341.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ PicturesToExe Deluxe 9.0.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857339.jpg" />
+  <img src="Z:/picture/008/save_picture_857339.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ YouTube Video Downloader PRO 5.3 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857297.jpg" />
+  <img src="Z:/picture/008/save_picture_857297.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ EZ CD Audio Converter 5.3.0.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857292.jpg" />
+  <img src="Z:/picture/008/save_picture_857292.jpg" />
 </div>
 
 

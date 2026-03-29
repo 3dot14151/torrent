@@ -1,3 +1,160 @@
+###  Публикация: 1453481   (1026866) от 11.03.2021
+
+Руслан и Людмила. Ледовое шоу (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руслан и Людмила» - шоу с участием мировых звезд фигурного катания, олимпийских чемпионов и действующих финалистов международных соревнований. Татьяна Навка - автор идеи, продюсер - приготовила для зрителей захватывающее зрелище с монументальными декорациями, яркими номерами и музыкой композитора Романа Игнатьева и группы «Sunny from the Moon», которая была написана (   Читать дальше...   )Производство: РоссияЖанр: Мюзикл, спектакль, ледовое шоуРежиссер: Алексей СеченовАктеры: Татьяна Навка, Пётр Чернышев, Маргарита Дробязко, Повилас Ванагас, Филипп Канделоро, Виктор Петренко, Иван Ригини, Артур Гачинский, Юко Кавагути, Александр СмирновСубтитры: ОтсутствуютПродолжительность: 01:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7A84767502DCE87C70B0390377CA9102A01A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453897   (1026556) от 13.03.2021
+
+Power Tale - Огненный Бог Марранов (2021) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео-версия постановки рок-оперы Огненный Бог Марранов украинской группы Power Tale, состоявшейся 8 декабря 2019 года, в г. Харькове, Арт-завод “Механика” Иная Земля.Жанр: Рок-опера, концертРежиссер: Алексей Маршалко (ARCANE CINEMA)Актеры: Урфин Джюс — Станислав Прошкин, Чарли Блек — Иван Ворон, Клем — Илья Скребнёв, Стелла — Вероника Завьялова, Харт — Сергей Брыков, Торм — Клим Апальков, Орёл Карфакс — Дмитрий Ленковский, Страшила Мудрый — Анатолий Яковлев, Железный дровосек — Сергей Сорокин,  Филин Гуамоколатокинт — Станислав Осычнюк, Валентин Керо — ударные, Александр Гмыря — гитара, Анатолий Яковлев (   Читать дальше...   )Продолжительность: 01:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DE1FB953F79C9C0FC7EE30ACEA866F0DE7CAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453917   (1026461) от 13.03.2021
+
+Евгений Крылатов. Любимые песни из детства и фильмов (2021) TVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни Евгения Крылатова. Любимые песни нашего детства. Песни из советских фильмов.Телекомпания: ВГТРК ГостелерадиофондЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0855C42A6659FC49BDD2B7EE21BA0D0D20FD150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454283   (1026404) от 14.03.2021
+
+Квартирник НТВ у Маргулиса. Группа Sirotkin (13.03.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026404.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2015 году музыкант Сергей Сироткин, вдохновленный музыкой Майкла Джексона, Курта Кобейна и многих других культовых артистов, собрал коллектив и решил создавать авторскую музыку на акустической гитаре с добавлением электронных партий. Так появилась инди-рок-группа Sirotkin. За чуть более пятилетний период музыканты выпустили четыре EP и завоевали ряд премий, включая (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47045B95AFA90D37ADC08D6623FB29F13D4A736A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447642   (1025596) от 19.03.2021
+
+Dua Lipa - We're Good (2021) WEB-DL [1440p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025596.jpg" />
+</div>
+
+
+###  Подробнее
+
+« We Good » - песня английской певицы Dua Lipa из переиздания ее второго студийного альбома Future Nostalgia: The Moonlight Edition (2021). Он был выпущен на лейбле Warner Records 11 февраля 2021 года в качестве ведущего сингла переиздания.
+Новый клип Dua Lipa "We're Good" — это душераздирающая история одного лобстера. Его сняли Ваня Хейманн и Галь Муджиа, (   Читать дальше...   )Производство: UMG, WMG (от лица компании "Warner Music UK"Жанр: Pop, tropicalРежиссер: Vania Heymann, Gal MuggiaАктеры: Dua LipaПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71BAC5A47B3EFADEE01BC20749CEC29397F930B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455786   (1025420) от 20.03.2021
+
+Большой праздничный концерт (18.03.2021) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филипп Киркоров, Николай Басков, Олег Газманов, Сергей Лазарев, Стас Михайлов, Лариса Долина, Полина Гагарина, Пелагея и "Хор Турецкого" – на сцену "Лужников" выйдут любимые артисты, чтобы вместе со всей страной отпраздновать День воссоединения Крыма с Россией. Во время концерта состоятся прямые включения из Севастополя и Симферополя, где запланированы (   Читать дальше...   )Производство: Россия, ВГТРКЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408629DBA8243F6DD65B19EB48A45F21C0FDCD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456048   (1025302) от 21.03.2021
 
 Квартирник НТВ у Маргулиса. Группа Anacondaz (20.03.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +163,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025302.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Within Temptation - Videos and Live - Essentials (Compilation) (2021) Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024853.jpg" />
 </div>
 
 
@@ -61,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023956.jpg" />
 </div>
 
 
@@ -91,7 +248,7 @@ Alice Cooper - The Detroit Stories (2021) DVDRip [H.264/360p] <Hard Rock>
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023645.jpg" />
 </div>
 
 
@@ -117,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023582.jpg" />
 </div>
 
 
@@ -143,7 +300,7 @@ The Beatles: Мне следовало быть осторожнее / I Should 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023106.jpg" />
 </div>
 
 
@@ -169,7 +326,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022912.jpg" />
 </div>
 
 
@@ -196,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022894.jpg" />
 </div>
 
 
@@ -222,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022722.jpg" />
 </div>
 
 
@@ -251,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022401.jpg" />
 </div>
 
 
@@ -277,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022365.jpg" />
 </div>
 
 
@@ -306,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022195.jpg" />
 </div>
 
 
@@ -335,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021579.jpg" />
 </div>
 
 
@@ -362,7 +519,7 @@ The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021282.jpg" />
 </div>
 
 
@@ -389,7 +546,7 @@ The Beatles: Не приставай / Don’t Bother Me (A Hard Day's Night) (1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020800.jpg" />
 </div>
 
 
@@ -416,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020483.jpg" />
 </div>
 
 
@@ -442,7 +599,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019615.jpg" />
 </div>
 
 
@@ -469,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019266.jpg" />
 </div>
 
 
@@ -495,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018532.jpg" />
 </div>
 
 
@@ -521,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018346.jpg" />
 </div>
 
 
@@ -535,168 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:129922B79D42B00AC04E4E5E19477A81C9387837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015259   (1016354) от 12.05.2021
-
-Концерт Кубанского казачьего хора. Священной победе! (2010) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Кубанского казачьего хора. Запись в Государственном Кремлевском Дворце, 2010 год. Художественный руководитель – Виктор Захарченко. В программе звучат произведения Александра Александрова, Георгия Свиридова, Давида Тухманова, русские и казачьи народные песни и пляски.01. Священная война - А.Александров, В.Лебедев-Кумач
-02. В путь-дорожку дальнюю - М.Блантер, С.Островой
-03. Прощай, мий край, дэ я родився - казачья народная песня
-04. Ихав козак за Дунай - казачья народная песня(   Читать дальше...   )Производство: Россия, ВГТРКЖанр: КонцертПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6334C45F0F68A09FD67D2FE7684F70D42949FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456105   (1016145) от 14.05.2021
-
-Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - CALIBAN - Intoleranz (2021) 1080p PCMЖанр: MetalcoreПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808DAAF371264F084CCD51EB443815E4C0204440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468167   (1016143) от 14.05.2021
-
-Алексей Глухов (Леша закон) - Твой Куратор из ФСБ (2018) WEB-DL [H.264, 1080p-LQ] <Alternative>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Глухов - Твой Куратор из ФСБ
-01 - Здравствуй (Леша закон)
-02 - Я анархист (Волков)
-03 - Пуля дура (Летов)Жанр: AlternativeПродолжительность: 00:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6553F8B99AD8968ED1DEA32872D6511BF386E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452999   (1016139) от 14.05.2021
-
-Восьмая Марта - Лётчик (2001) WEBRip [H.264/480p] <Punk>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AlternativeПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33573A96896EBAF8994B08FFA3D2D528D5CB7661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456279   (1016062) от 14.05.2021
-
-Thundercloud - Lightning Queen (2021) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thundercloud  - Lightning Queen (2021) 480p PCMЖанр: Progressive Rock, Heavy Blues RockПродолжительность: 00:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BADC1EF06DAA043FEAC6B8F7FCACF5BF99F128B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470365   (1015771) от 16.05.2021
-
-Квартирник НТВ у Маргулиса. Павел Пиковский и друзья (15.05.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыку Павла Пиковского высоко оценивают и слушатели, и мэтры рок-сцены. Одни называют ее роковой, другие — авторской, но все любят его за творческий подход, индивидуальность, желание экспериментировать, а также сходятся в том, что его песни идут от сердца. В гостях у Евгения Маргулиса лидер группы «Хьюго» и его друзья поделились интересными воспоминаниями из жизни (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFAA5DB4B1A3F343B2EF8A5039406E82D91DFF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,112 @@
+###  Публикация: 1405032   (487034) от 28.08.2020
+
+Native Instruments Kontakt 6 v6.4.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_487034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47506C1A918641F9AB3284D6140448E2B0944371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319148   (486579) от 10.08.2019
+
+Kerbal Space Program (1.7.3.02594/all dlc) (2019) [Ru] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_486579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kerbal Space Program – симулятор космических полетов, где вы разрабатываете собственную космическую программу.
+
+Ваша цель в KSP – сконструировать космический корабль, способный отправить ваш экипаж в космос. В вашем распоряжении множество деталей, из которых можно собрать рабочий звездолет. У каждой из них своя функция, которая определенным образом влияет на движение (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: SquadПоддерживаемая ОС: OS X 10.7+Жанр: космический симулятор, открытый мир, песочницаЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81C463A16E08E8670BF87394300ED326AA2524E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566164   (486530) от 27.07.2022
+
+Scrutiny 12 v12.3.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_486530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17545B83C08FB7F10CF983835DD419B5AB61374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566072   (486528) от 27.07.2022
+
+Yate 6.10.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_486528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2022 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E34ABF9659EDDEFC747644BF0282559E3CB6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566097   (486527) от 27.07.2022
 
 Contacts Journal CRM 3.2.2 [En]
@@ -6,7 +115,7 @@ Contacts Journal CRM 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486527.jpg" />
+  <img src="Z:/picture/008/save_picture_486527.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ Dropzone 4 Pro v4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486526.jpg" />
+  <img src="Z:/picture/008/save_picture_486526.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Default Folder X 5.7b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486524.jpg" />
+  <img src="Z:/picture/008/save_picture_486524.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ CheckBook Pro 2.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486523.jpg" />
+  <img src="Z:/picture/008/save_picture_486523.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ RAR Extractor - ZIP Unarchiver 6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486519.jpg" />
+  <img src="Z:/picture/008/save_picture_486519.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ PullTube 1.8.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486518.jpg" />
+  <img src="Z:/picture/008/save_picture_486518.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ PDF Reader Pro Edition 2.8.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486513.jpg" />
+  <img src="Z:/picture/008/save_picture_486513.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ DxO PhotoLab 5 ELITE Edition 5.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486405.jpg" />
+  <img src="Z:/picture/008/save_picture_486405.jpg" />
 </div>
 
 
@@ -217,7 +326,7 @@ Path Finder 2136 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486395.jpg" />
+  <img src="Z:/picture/008/save_picture_486395.jpg" />
 </div>
 
 
@@ -243,7 +352,7 @@ Grids for Instagram 8.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486295.jpg" />
+  <img src="Z:/picture/008/save_picture_486295.jpg" />
 </div>
 
 
@@ -269,7 +378,7 @@ Navicat Premium 16.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486293.jpg" />
+  <img src="Z:/picture/008/save_picture_486293.jpg" />
 </div>
 
 
@@ -295,7 +404,7 @@ DxO PureRAW 2 for Mac v2.1.0.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486280.jpg" />
+  <img src="Z:/picture/008/save_picture_486280.jpg" />
 </div>
 
 
@@ -322,7 +431,7 @@ Espresso 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486237.jpg" />
+  <img src="Z:/picture/008/save_picture_486237.jpg" />
 </div>
 
 
@@ -349,7 +458,7 @@ Tidy Up 5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486183.jpg" />
+  <img src="Z:/picture/008/save_picture_486183.jpg" />
 </div>
 
 
@@ -375,7 +484,7 @@ Check Off - A Task Manager 5.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486179.jpg" />
+  <img src="Z:/picture/008/save_picture_486179.jpg" />
 </div>
 
 
@@ -401,7 +510,7 @@ Movist 2.0.0 b19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486174.jpg" />
+  <img src="Z:/picture/008/save_picture_486174.jpg" />
 </div>
 
 
@@ -429,7 +538,7 @@ Dash 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486173.jpg" />
+  <img src="Z:/picture/008/save_picture_486173.jpg" />
 </div>
 
 
@@ -456,7 +565,7 @@ VueScan Pro 9.5.82 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486127.jpg" />
+  <img src="Z:/picture/008/save_picture_486127.jpg" />
 </div>
 
 
@@ -482,7 +591,7 @@ Nice Clipboard 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486114.jpg" />
+  <img src="Z:/picture/008/save_picture_486114.jpg" />
 </div>
 
 
@@ -511,7 +620,7 @@ World Clock 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486111.jpg" />
+  <img src="Z:/picture/008/save_picture_486111.jpg" />
 </div>
 
 
@@ -540,7 +649,7 @@ Keep It 1.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486095.jpg" />
+  <img src="Z:/picture/008/save_picture_486095.jpg" />
 </div>
 
 
@@ -567,7 +676,7 @@ PhotoLine 21.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486092.jpg" />
+  <img src="Z:/picture/008/save_picture_486092.jpg" />
 </div>
 
 
@@ -578,116 +687,6 @@ PhotoLine 21.01 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFF6F26B56B4273D7DC93B7B92F2C7C78F9FB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243705   (486090) от 30.08.2018
-
-Translatium 8.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Translatium - мощное приложение для перевода для macOS.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2018Разработчик: Quang LamПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461ECED815AF65D9160325B83553A03B5857A08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243823   (486084) от 30.08.2018
-
-Camtasia v2018.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac  делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.08.2018Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4FF16876460465047E7CD5034F376259E6D131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055829   (486005) от 23.09.2016
-
-Yummy FTP Pro 1.11.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yummy FTP - “вкусный клиент” для ФТП
-Один из лучших фтп клиентов для Mac OS X со “вкусным” названием Yummy FTP. Придется по вкусу многим. И на самом деле, программа замечательна, удобна и полна “вкусностей”. Вполне достаточно взглянуть на список наиболее интересных:
-	•	возможность подключаться по FTP, FTPS и SFTP
-	•	ftp-ярлыки — загружайте файлы простым перетаскиванием (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 сентября 2016Разработчик: Yummy SoftwareПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164651A882D9B1C370FAB294F6967D5AB962C17E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243633   (485963) от 30.08.2018
-
-Art Text 3.2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Text - красивая текстовая графика
-Art Text - незаменимая программа под Mac OS для тех кому часто нужно рисовать высококачественную графику: тексты заголовков, кнопки, баннеры, логотипы, иконки и тому подобное. Программа позволяет преобразовать любой текст или векторное изображение в яркую графику высочайшего качества.
-
-Благодаря поддержке слоев, обширной векторной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.08.2018Разработчик: BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA0B518B2640FFE5EDA5A3D15DDFB9A3816D4E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

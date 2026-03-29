@@ -1,3 +1,60 @@
+###  Публикация: 1321516   (458806) от 24.08.2019
+
+NG: Дикая природа России / Россия от края до края / Wild Russia (2009) BDRemux [H.264/1080p] [hand made 50fps] (серии 1-6 из 6) [VO]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простираясь на 11 часовых поясов и расположившись на территории двух континентов, от центра Европы до Тихого океана, эта огромная страна поражает своим размахом и нетронутыми природными богатствами, которые в их первозданной красоте таят необъятные российские просторы, раскинувшиеся вдали от шумных и тесных мегаполисов - Москвы и Санкт-Петербурга. Получив уникальную (   Читать дальше...   )Производство: Германия, Animal Planet, JWM Productions, NDR Naturfilm, Norddeutscher Rundfunk (NDR), Parthenon Entertainment, Studio Hamburg Filmproduktion, Studio Hamburg International Production (SHIP), Westdeutscher Rundfunk (WDR)Жанр: Документальный, природа, флора, фаунаРежиссер: Оливер Гётцль, Тобиас Менле, Иво Нёренберг, Генри МиксПеревод: Одноголосый закадровый, любительский (Trinitron)Субтитры: Немецкие, Английские, Русские (все PGS)Продолжительность: серии x ~00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7041BA9D844F682FEFAA5DB0DB78A4DB361D93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550787   (457764) от 22.09.2012
+
+Живые пейзажи: Красивейшие рассветы и закаты / Living Landscapes:Earthscapes - World's Most Beautiful Sunrises & Sunsets (2009) [H.264/1080p-LQ] BDRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Час восходов и закатов красивейших мест этого мира. Парк каньонов, Бали, тихоокеанское побережье, тропические пляжи и другие уголки природы.
+
+Этот фильм расскажет Вам о чудесных утренних и вечерних мгновениях, красоту и зыбкость которых сумела увидеть и снять команда Майкла Хьюмана.
+Технически - это сборник из материалов, отснятых группой во время работы над предыдущими эпизодами своей серии "Живые пейзажи".
+
+Коллекция "Живые пейзажи" - это серия программ высокой четкости изображения, предназначенных для создания эффекта присутствия среди самых прекрасных ландшафтов во всем мире.Жанр: Документальный, ВидовойПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A09484C499C63AA6DC60B826A7EBD2C41BC741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 702903   (454420) от 03.09.2017
 
 Голубая бездна II: Экватор. Риф изобилия / Deep Blue II: Equator Reefs of Riches (2005) BDRip [H.264/720p]
@@ -6,7 +63,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454420.jpg" />
+  <img src="Z:/picture/008/save_picture_454420.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ BBC. Восхождение животных. Триумф позвоночны�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441669.jpg" />
+  <img src="Z:/picture/008/save_picture_441669.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ BBC. Зачарованное Королевство / Enchanted Kingdom (2013) 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441504.jpg" />
+  <img src="Z:/picture/008/save_picture_441504.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438346.jpg" />
+  <img src="Z:/picture/008/save_picture_438346.jpg" />
 </div>
 
 
@@ -110,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438329.jpg" />
+  <img src="Z:/picture/008/save_picture_438329.jpg" />
 </div>
 
 
@@ -136,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438039.jpg" />
+  <img src="Z:/picture/008/save_picture_438039.jpg" />
 </div>
 
 
@@ -162,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437915.jpg" />
+  <img src="Z:/picture/008/save_picture_437915.jpg" />
 </div>
 
 
@@ -188,7 +245,7 @@ Viasat Nature: С водой и без воды / Life in the Great Wetlands [с
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431436.jpg" />
+  <img src="Z:/picture/008/save_picture_431436.jpg" />
 </div>
 
 
@@ -216,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429656.jpg" />
+  <img src="Z:/picture/008/save_picture_429656.jpg" />
 </div>
 
 
@@ -242,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427558.jpg" />
+  <img src="Z:/picture/008/save_picture_427558.jpg" />
 </div>
 
 
@@ -268,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427440.jpg" />
+  <img src="Z:/picture/008/save_picture_427440.jpg" />
 </div>
 
 
@@ -294,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426418.jpg" />
+  <img src="Z:/picture/008/save_picture_426418.jpg" />
 </div>
 
 
@@ -320,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424549.jpg" />
+  <img src="Z:/picture/008/save_picture_424549.jpg" />
 </div>
 
 
@@ -346,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423510.jpg" />
+  <img src="Z:/picture/008/save_picture_423510.jpg" />
 </div>
 
 
@@ -372,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423508.jpg" />
+  <img src="Z:/picture/008/save_picture_423508.jpg" />
 </div>
 
 
@@ -398,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423385.jpg" />
+  <img src="Z:/picture/008/save_picture_423385.jpg" />
 </div>
 
 
@@ -424,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418975.jpg" />
+  <img src="Z:/picture/008/save_picture_418975.jpg" />
 </div>
 
 
@@ -450,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418799.jpg" />
+  <img src="Z:/picture/008/save_picture_418799.jpg" />
 </div>
 
 
@@ -476,7 +533,7 @@ Nat Geo Wild: Тайны дикой природы / Secrets Of The Wild (2013) 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418588.jpg" />
+  <img src="Z:/picture/008/save_picture_418588.jpg" />
 </div>
 
 
@@ -502,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418574.jpg" />
+  <img src="Z:/picture/008/save_picture_418574.jpg" />
 </div>
 
 
@@ -529,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417450.jpg" />
+  <img src="Z:/picture/008/save_picture_417450.jpg" />
 </div>
 
 
@@ -555,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414487.jpg" />
+  <img src="Z:/picture/008/save_picture_414487.jpg" />
 </div>
 
 
@@ -581,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413861.jpg" />
+  <img src="Z:/picture/008/save_picture_413861.jpg" />
 </div>
 
 
@@ -608,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410241.jpg" />
+  <img src="Z:/picture/008/save_picture_410241.jpg" />
 </div>
 
 
@@ -619,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:952815C0B1A09A23DCF92E5E1B8E603BDCD0166F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557992   (406561) от 15.10.2012
-
-Сфера колдовства / La cle des champs (Das Wunder der Natur) (2011)  [H.264] BDRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм от создателей «Микрокосмос» - это невероятно трогательная история дружбы мальчика (Симон Делане) и девочки (Линдси Енок), обрамленная красотой живой природы... «Детская любовь - большое везение. Ни одному из нас не удалось ее пережить», - сообщили на презентации фильма «Сфера колдовства» его режиссеры Клод Нуридзани и Мари Перенну. По их замыслу, пруд - это символ взрослого мира, в который должен войти ребенок, а чувства мечтательного, замкнутого мальчика к девочке в красном платье - лучшее, что могло с ним случиться.... Французский мальчик лет десяти проводит каникулы в деревне. Скучный мир взрослых людей его мало занимает, чего не скажешь о мире природы: на краю деревни раскинулся пруд, волшебный в своем многообразии...Жанр: Документальный, фэнтези, семейныйРежиссер: Клод Нуридзани, Мари ПеренуВ ролях: Симон Делане, Линдси Енок, Жан-Клод Айриньяк, Дени ПодалидесПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:21:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B96A9E6568D8BD365B2B875579B2E27198160DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170818   (398561) от 02.10.2017
-
-Бесценные рифы острова Окинава / Okinawa's Precious Reefs (1998) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы побываем в районе архипелага Рюкю и островов Кирама, где находятся знаменитые рифы. Здесь обитает около 400 видов кораллов всевозможных форм и расцветок. Колонии кораллов обеспечивают питанием многие формы жизни, являются убежищем для разных морских созданий. Мы узнаем, как образуются рифы, как размножаются и питаются кораллы, кто живёт в коралловых лесах, и почему (   Читать дальше...   )Производство: Япония, NHKЖанр: Документальный, флора, фаунаРежиссер: Тетсухиро Сузуки, Юко МиякеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22331589F6F9F192F073D614A72752A5CB6680D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

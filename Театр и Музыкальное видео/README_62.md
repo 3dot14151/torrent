@@ -1,3 +1,163 @@
+###  Публикация: 682117   (624088) от 26.07.2013
+
+Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armin Van Buuren Ft. Sharon Den Adel HD - In And Out Of LoveЖанр: DanceПеревод: ОтсутствуетПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3505C2DD6D60DC7787EE61FCB9D2D8BB5E5A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145208   (623635) от 24.06.2017
+
+Алые паруса 2017. Выпускной бал в Санкт-Петербурге (2017.06.23) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трансляция праздника выпускников "Алые паруса" на Пятом канале - грандиозный проект, ставший традиционным для Телеканала. Пятый канал в который раз покажет стране одно из самых ярких европейских шоу в прямом эфире.Телекомпания: 5Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D2BFD89827D3058C186FF51006EE414DE6307D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683113   (623550) от 26.07.2013
+
+Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в токийском Ниппон Будокане 26 апреля 2004 года. Релиз Eagle Rock в Blu-ray формате 18 октября 2011 года.01. As I Am
+ 02. This Dying Soul
+ 03. Beyond This Life
+ 04. Hollow Years(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC92EB7CE351BE40D17A92731813C7C7FED2D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145209   (623513) от 24.06.2017
+
+Алые паруса 2017. Выпускной бал в Санкт-Петербурге (2017.06.23) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трансляция праздника выпускников "Алые паруса" на Пятом канале - грандиозный проект, ставший традиционным для Телеканала. Пятый канал в который раз покажет стране одно из самых ярких европейских шоу в прямом эфире.Телекомпания: 5Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BF8AF980A3FC57856CAA3B7D1E2500760E527A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683131   (623461) от 26.07.2013
+
+Rihanna - Good Girl Gone Bad Live (2008) Blu-Ray [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R'n'B, PopСубтитры: Английские, Французские, Немецкие, Португальские, ИспанскиеПродолжительность: 01:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97990EBBC331AD48051D31789C1360EAC85941E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908861   (623423) от 19.06.2015
+
+Битлз - Первый визит в США / The Beatles - The first US visit (2004) HDTVRip [H.264/720p-LQ] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623423.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом документально-игровом фильме запечатлен первый приезд Битлз в США. Это была ознакомительная поездка, ни о каких американских турне еще не было речи. Битлз побывали в Нью-Йорке, Вашингтоне и Майми, где приняли участие в трех телевизионных шоу Эда Салливана. Именно после этих выступлений Америка, как до этого и Европа, заразилась битломанией. .
+Фильм братьев (   Читать дальше...   )Производство: СШАЖанр: Музыкальный, МьюзиклРежиссер: Кати Доферти /Kathy Dougherty/, Сюзан Фромке /Susan Fromke/, Альберт Мэйзлес /Albert Maysles/Актеры: The Beatles, Браен Эпстайн, Ральф Ренник, Эд Салливан, Уолтер КронкайтПеревод: Одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB4DC9F0F1B7A8A78903435FE4C07D86C7632F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 350757   (623387) от 16.06.2011
 
 Серия "Jazz Icons" / Oscar Peterson Live In '63, '64 & '65 (2008) DVD5
@@ -6,7 +166,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623387.jpg" />
+  <img src="Z:/picture/005/save_picture_623387.jpg" />
 </div>
 
 
@@ -35,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622168.jpg" />
+  <img src="Z:/picture/008/save_picture_622168.jpg" />
 </div>
 
 
@@ -64,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621509.jpg" />
+  <img src="Z:/picture/008/save_picture_621509.jpg" />
 </div>
 
 
@@ -90,7 +250,7 @@ Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620979.jpg" />
+  <img src="Z:/picture/008/save_picture_620979.jpg" />
 </div>
 
 
@@ -116,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620697.jpg" />
+  <img src="Z:/picture/008/save_picture_620697.jpg" />
 </div>
 
 
@@ -142,7 +302,7 @@ Black Sabbath: Paranoid - Classic Albums (1970/2010) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620392.jpg" />
+  <img src="Z:/picture/008/save_picture_620392.jpg" />
 </div>
 
 
@@ -172,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620260.jpg" />
+  <img src="Z:/picture/008/save_picture_620260.jpg" />
 </div>
 
 
@@ -198,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620014.jpg" />
+  <img src="Z:/picture/008/save_picture_620014.jpg" />
 </div>
 
 
@@ -227,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619476.jpg" />
+  <img src="Z:/picture/008/save_picture_619476.jpg" />
 </div>
 
 
@@ -253,7 +413,7 @@ Gia. Lights Out (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619227.jpg" />
+  <img src="Z:/picture/008/save_picture_619227.jpg" />
 </div>
 
 
@@ -279,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618616.jpg" />
+  <img src="Z:/picture/008/save_picture_618616.jpg" />
 </div>
 
 
@@ -305,7 +465,7 @@ Jimi Hendrix: Jimi Plays Berkeley (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_618538.jpg" />
+  <img src="Z:/picture/005/save_picture_618538.jpg" />
 </div>
 
 
@@ -331,7 +491,7 @@ Duran Duran - A Diamond In the Mind (2011) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_618337.jpg" />
+  <img src="Z:/picture/005/save_picture_618337.jpg" />
 </div>
 
 
@@ -370,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618302.jpg" />
+  <img src="Z:/picture/008/save_picture_618302.jpg" />
 </div>
 
 
@@ -399,7 +559,7 @@ In Flames - Rock Am Ring (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617902.jpg" />
+  <img src="Z:/picture/008/save_picture_617902.jpg" />
 </div>
 
 
@@ -428,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617897.jpg" />
+  <img src="Z:/picture/008/save_picture_617897.jpg" />
 </div>
 
 
@@ -457,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617819.jpg" />
+  <img src="Z:/picture/008/save_picture_617819.jpg" />
 </div>
 
 
@@ -487,7 +647,7 @@ Savage Garden - The Video Collection (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617172.jpg" />
+  <img src="Z:/picture/008/save_picture_617172.jpg" />
 </div>
 
 
@@ -516,7 +676,7 @@ Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616473.jpg" />
+  <img src="Z:/picture/008/save_picture_616473.jpg" />
 </div>
 
 
@@ -544,7 +704,7 @@ Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616471.jpg" />
+  <img src="Z:/picture/005/save_picture_616471.jpg" />
 </div>
 
 
@@ -564,174 +724,6 @@ A rare snowy day in Nashville, Tennessee set the stage for an even rarer event �
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684857   (616416) от 30.07.2013
-
-Серия "Christmas in Vienna III" - 1994 / Sissel Kyrkjebo, Placido Domingo, Charles Aznavour (1995) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Very Private Christmas (Charles Aznavour)
-02. Un Enfant de Toi pour Noël/My Own Child for Christmas from You (Sissel Kyrkjebø и Charles Aznavour)
-03. When a Child is Born (Sissel Kyrkjebø, Plácido Domingo, Charles Aznavour)
-04. Ave Maria (Plácido Domingo)(   Читать дальше...   )Жанр: Classical, Soul, VocalПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684874   (616277) от 30.07.2013
-
-Celtic Woman - Believe (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening
-02. Nocturne
-03. Sailing
-04. The Foxhunter(   Читать дальше...   )Жанр: Celtic, New Age, Adult Contemporary, ClassicalПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0090AC24217ECBD3C9556D09FDE5D6B9ED08319E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 353018   (615923) от 20.06.2011
-
-Алые паруса 2011 (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615923.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ночь с 18 на 19 июня 2011 года в Санкт-Петербурге состоится самый романтический праздник лета – «Алые паруса». Это торжество стало одним из знаковых событий жизни Северной Пальмиры. В самую светлую из белых ночей в акваторию Невы войдёт корабль-мечта под алыми парусами – символ надежды, исполнения желаний и яркого будущего. Торжественные мероприятия развернутся (   Читать дальше...   )Жанр: КонцертПродолжительность: 03:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB6AAE44F14A496C950CF5C2BE3D8FE15ED0711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 353014   (615755) от 20.06.2011
-
-Sensation 2011 - Celebrate Life / St. Petersburg Russia (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615755.jpg" />
-</div>
-
-
-###  Подробнее
-
-SENSATION - музыкальный фестиваль с десятилетний историей, который посещают более одного миллиона человек каждый год.
-SENSATION привлекает внимание своей оригинальной концепцией:
-- строгий дресс-код: белый верх, белый низ
-- расположение сцены с вращающимися элементами по центру танцпола(   Читать дальше...   )01. Timothy Watt & Greg Van Bueren - Bad Motha (Housequake)
-02. Sonny Wharton - Where Is Joyce? (Nocturnal Groove) w/ "We Celebrate Life With House" (Acappella)
-03. Filthy Rich - Revival (Toolroom) w/ Alex Gardini & Simone Cattaneo - It's Like That (Acappella) (Bootylicious)
-04. ID(   Читать дальше...   )Жанр: КонцертПродолжительность: 05:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDD3FF8E0C9CFE40EE14390D3756598B21C389D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 352759   (615612) от 20.06.2011
-
-Алые паруса 2011 - вступление + салют на празднике выпускников (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наипрекраснейшее музыкально-пиротехническое шоу в акватории Невы, в честь выпускников 2011 года. Тысячи залпов, красивая музыка!Жанр: Телепередача, ВидовойПродолжительность: Общая - 00:32:00, салют - 00:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9EBFF9E22003586E3745CE33DEFA6CFEC907989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295802   (615135) от 15.04.2019
-
-Квартирник НТВ у Маргулиса. Леприконсы (13.04.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615135.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередном выпуске в гости к Евгению Маргулису пришла известная белорусская поп-панк-группа «Леприконсы». В российские хит-парады группа ворвалась в конце 90-х с песней «Хали-гали, паратрупер», а уже потом вышли «Девчонки полюбили не меня», «Тополя» и другие. В уютной обстановке участники группы поделились воспоминаниями из творческой жизни.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B604760C8D8D5B3345ED4B710EAE87B5FF2869E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

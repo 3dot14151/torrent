@@ -1,3 +1,29 @@
+###  Публикация: 1503847   (816065) от 21.10.2021
+
+Алиса тюремная пташка / Alice the Jail Bird (1925) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_816065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чужое брать нельзя, это преступление. За это можно в тюрьму угодить, что и произошло с Алисой и Джулиусом.Производство: США, Walt Disney ProductionsЖанр: Рисованная анимация, ДетскийРежиссер: Уолт ДиснейАктеры: Марджи ГэйПеревод: НемойСубтитры: Русские hardsubПродолжительность: 00:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B59F810ABF5D77FF1A6028B5819039A5F57A23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 777317   (813829) от 14.04.2014
 
 Аладдин: Возвращение Джафара / Aladdin: The Return Of Jafar (1994) DVDRip [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813829.jpg" />
+  <img src="Z:/picture/008/save_picture_813829.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812837.jpg" />
+  <img src="Z:/picture/008/save_picture_812837.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811383.jpg" />
+  <img src="Z:/picture/008/save_picture_811383.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810469.jpg" />
+  <img src="Z:/picture/008/save_picture_810469.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808348.jpg" />
+  <img src="Z:/picture/008/save_picture_808348.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806901.jpg" />
+  <img src="Z:/picture/008/save_picture_806901.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806519.jpg" />
+  <img src="Z:/picture/008/save_picture_806519.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804548.jpg" />
+  <img src="Z:/picture/008/save_picture_804548.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803019.jpg" />
+  <img src="Z:/picture/008/save_picture_803019.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801667.jpg" />
+  <img src="Z:/picture/008/save_picture_801667.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801102.jpg" />
+  <img src="Z:/picture/008/save_picture_801102.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800108.jpg" />
+  <img src="Z:/picture/008/save_picture_800108.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799522.jpg" />
+  <img src="Z:/picture/008/save_picture_799522.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799125.jpg" />
+  <img src="Z:/picture/008/save_picture_799125.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798521.jpg" />
+  <img src="Z:/picture/008/save_picture_798521.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798476.jpg" />
+  <img src="Z:/picture/008/save_picture_798476.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798287.jpg" />
+  <img src="Z:/picture/008/save_picture_798287.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798118.jpg" />
+  <img src="Z:/picture/008/save_picture_798118.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798005.jpg" />
+  <img src="Z:/picture/008/save_picture_798005.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797833.jpg" />
+  <img src="Z:/picture/008/save_picture_797833.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797556.jpg" />
+  <img src="Z:/picture/008/save_picture_797556.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796868.jpg" />
+  <img src="Z:/picture/008/save_picture_796868.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796279.jpg" />
+  <img src="Z:/picture/008/save_picture_796279.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794085.jpg" />
+  <img src="Z:/picture/008/save_picture_794085.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793348.jpg" />
+  <img src="Z:/picture/008/save_picture_793348.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FA807928918882CB63D0960A5615DE2467F17B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509973   (792936) от 14.11.2021
-
-Алиса и дерби / Alice's Brown Derby (1926) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная стычка и соперничество кота Джулиуса с медведем Питом и другими участниками дербиПроизводство: США, Walt Disney ProductionsЖанр: Рисованная анимация, ДетскийРежиссер: Уолт ДиснейАктеры: Марджи ГэйПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A038B77C6611C7311D101A019B2123483D27EBF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

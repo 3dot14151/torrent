@@ -1,3 +1,30 @@
+###  Публикация: 104302   (187617) от 16.11.2022
+
+Мой муж - гений (2008)   DVDRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_187617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь гениального ученого, сумевшего в эпоху «развитого» социализма жить, сообразуясь собственным представлениям о свободе и морали, не оставляла равнодушными ни его коллег, ни властей.
+О его сексуальных похождениях ходили легенды, его взгляды на семейную жизнь — семью он называл «кооперативчик» — сильно отличались от общепринятых: тайным изменам предпочитал честное (   Читать дальше...   )Производство: Россия, DixiMediaЖанр: ДрамаРежиссер: Татьяна АрхипцоваАктеры: Даниил Спиваковский, Ксения Громова, Полина Кутепова, Вячеслав Гришечкин, Людмила Чурсина.Продолжительность: 01:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597F3C87E6A1603A7B1A55AECE666D18EAF38164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 186437   (187304) от 17.11.2022
 
 Любовь на сене (2009) DVDRip
@@ -6,7 +33,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187304.jpg" />
+  <img src="Z:/picture/005/save_picture_187304.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187041.jpg" />
+  <img src="Z:/picture/005/save_picture_187041.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186991.jpg" />
+  <img src="Z:/picture/005/save_picture_186991.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_186735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186735.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186645.jpg" />
+  <img src="Z:/picture/005/save_picture_186645.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186492.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186069.jpg" />
+  <img src="Z:/picture/005/save_picture_186069.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_185780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185780.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184338.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183683.jpg" />
+  <img src="Z:/picture/004/save_picture_183683.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183414.jpg" />
+  <img src="Z:/picture/004/save_picture_183414.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182838.jpg" />
+  <img src="Z:/picture/004/save_picture_182838.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181365.jpg" />
+  <img src="Z:/picture/005/save_picture_181365.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181327.jpg" />
+  <img src="Z:/picture/005/save_picture_181327.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181162.jpg" />
+  <img src="Z:/picture/005/save_picture_181162.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181145.jpg" />
+  <img src="Z:/picture/005/save_picture_181145.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181064.jpg" />
+  <img src="Z:/picture/005/save_picture_181064.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181007.jpg" />
+  <img src="Z:/picture/005/save_picture_181007.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181000.jpg" />
+  <img src="Z:/picture/005/save_picture_181000.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180517.jpg" />
+  <img src="Z:/picture/005/save_picture_180517.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180475.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180455.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180337.jpg" />
+  <img src="Z:/picture/005/save_picture_180337.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180283.jpg" />
+  <img src="Z:/picture/005/save_picture_180283.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180252.jpg" />
+  <img src="Z:/picture/005/save_picture_180252.jpg" />
 </div>
 
 
@@ -650,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DFF43EB06C13A21B8424D7AAB16AE0988D32F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593748   (179803) от 28.11.2022
-
-Дожди в океане (1994) TVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179803.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале прошлого века на океанском лайнере встречаются юная Лилиан, инженер Картер и полицейский Симмонс, выслеживающий Картера, чтобы арестовать его по обвинению в убийстве. Внезапно все трое оказываются на спасательных кругах в открытом океане ...Производство: Россия, Ленфильм, Роскомкино, UlyssЖанр: драмаРежиссер: Виктор Аристов, Юрий МаминАктеры: Анна Молчанова, Сергей Ражук, Юрий Беляев, Светлана Сланскене, Диана Рубанова, Марина Николаева, Павел Корнаков, Эммануил ШварцбергПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678797BD8DAB9C9E70EE715669BA19F6E4435B68
 ```
 
 https://mybot314.ru/tekegram_catalog/

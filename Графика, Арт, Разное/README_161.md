@@ -1,3 +1,29 @@
+###  Публикация: 1820089   (798) от 26.09.2025
+
+Промты - SevenUnited LLC - 554 Midjourney Prompts for Jewelry: Vol 2 - 6094680 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 554 настраиваемых промтов Midjourney и примеров изображений для ювелирных изделий: Том 2Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2B9D808AFBC80631970D6008AEA29D6C492AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820608   (356) от 28.09.2025
 
 Обои - Eternal Mix Wallpapers Part 75 [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_356.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_322.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_300.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72.jpg" />
 </div>
 
 

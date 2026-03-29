@@ -1,3 +1,148 @@
+###  Публикация: 1595084   (176289) от 04.12.2022
+
+Newman - Into The Monsters' Playground (2021) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start This Fire
+02. Timebomb
+03. Hurricane Sky
+04. I'll Be The One(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2735986341748BC65DDB8F84BE3DA1E66290CE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595127   (176267) от 04.12.2022
+
+That Joe Payne - Ding Dong (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ding Dong (Merry Me, I'm High) 05:49
+02. Christmas Cheer 04:02
+03. Greatest Gift of All 04:22
+04. Present 4 U 04:01(   Читать дальше...   )Жанр: Progressive Rock, Pop RockПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9370BFE3FEFA08852DFD95CF5ACF8697C8C961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595034   (176165) от 04.12.2022
+
+Karfagen - Land of Green and Gold (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizons, Pt 1 [00:07:34]
+02. Horizons, Pt 2 [00:09:10]
+03. Shade of Green [00:03:00]
+04. The Blossom [00:02:26](   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 2 CD, 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC28958F3AA0C9A30278F226B1769B0F68A79A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595168   (176018) от 04.12.2022
+
+Outland - Where Do We Go From Here? (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Time (3:31)
+02. Wrong Side Of Town (3:41)
+03. Lost (4:01)
+04. This Broken Heart (3:22)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD214DB120EAD6821841CD48215D5356C3903AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429614   (175936) от 07.12.2020
+
+Lionville - Magic Is Alive (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Without You
+02. You're Not Alone
+03. Runaway
+04. Finally You're With Me(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5577CA700C09E14FD8153B3380B633A3C03A93A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595327   (175664) от 05.12.2022
 
 Fiddler's Green - Seven Holy Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk, Folk>
@@ -6,7 +151,7 @@ Fiddler's Green - Seven Holy Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175664.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Fleetwood Mac - 16 Studio albums + 6 Solo-albums + 1 Compilations + 1 Box Set (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_175238.jpg" />
+  <img src="Z:/picture/005/save_picture_175238.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Rain - Singularity (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175155.jpg" />
+  <img src="Z:/picture/004/save_picture_175155.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Les Big Byrd - Eternal Light Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175111.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Slow Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175045.jpg" />
+  <img src="Z:/picture/004/save_picture_175045.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Samsara Blues Experiment - Rock Hard in Concert - Live (2023) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174730.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ The Inner Road - Visions (2011) [FLAC|Lossless|image + .cue] <Sympho Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174624.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Group 1850 - 3 Albums, 1 Box-set, 11CD (1969-2019) [FLAC|Lossless|image + .cue |
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174404.jpg" />
+  <img src="Z:/picture/004/save_picture_174404.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Arabs In Aspic - 3 Albums (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174087.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Boppin' B - Saxbomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174036.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Summertime Rock Hits 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174026.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174019.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Rock Anthem Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_173997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173997.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Lee Abraham - Harmony-Synchronicity (2020) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173846.jpg" />
+  <img src="Z:/picture/004/save_picture_173846.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Eye 2 Eye - The Wish (2011) [FLAC|Lossless|image + .cue] <Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173799.jpg" />
+  <img src="Z:/picture/004/save_picture_173799.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ VA - Rock Christmas 2022 - The Very Best Of (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_173797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173797.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ Flying Colors - Second Flight: Live At The Z7 (2015) 2CD [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173736.jpg" />
+  <img src="Z:/picture/004/save_picture_173736.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ The Dead Amigos - Denim Egos (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173474.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ Kevin Bailey - Ride Into The Storm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173419.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ Kristofer Lee Bentley - It's So Good (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173417.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ Mr. M.D - Dog Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173414.jpg" />
 </div>
 
 
@@ -602,153 +747,6 @@ Mr. M.D - Dog Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88A95A04E274BEE91E65E776181A810E76EF3A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827139   (173413) от 20.10.2025
-
-Nakia - Signal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Signal (3:50)
-02.  Mary Mary (3:29)
-03.  Show It to Me (3:46)
-04.  We Can Make Believe (3:47)(   Читать дальше...   )Жанр: Rock, Alternative & IndieПродолжительность: 00:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3611382035487C9E96D703A7934F7A7C7115C745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669192   (173004) от 15.10.2023
-
-Ringo Starr - Rewind Forward (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows On The Wall
-02. Feeling The Sunlight
-03. Rewind Forward
-04. Miss JeanЖанр: Pop RockПродолжительность: 00:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7861AA5DAD8CFBB12288F534F0D80EF37149B8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669535   (172674) от 17.10.2023
-
-Crocodile - The Tale of Otter, Thorn Eater, And the Colored Coyotes of Hidden City (2023) [FLAC|Lossless|WEB-DL|tracks] <progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise Overture [00:04:03]
-02. Days Of Bravery And Cruelty [00:00:51]
-03. Thorn Eater [00:05:02]
-04. Pale Eyed Preachers [00:00:53](   Читать дальше...   )Жанр: progressive rockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D3A1858FE4F396CCE12789AC59C87E489716BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669593   (172655) от 17.10.2023
-
-VA - All Out Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine Gun Kelly - I Think I'm OKAY (2:50)
-02. The Killers - Mr. Brightside (3:43)
-03. Olivia Rodrigo - good 4 u (2:58)
-04. Empire Of The Sun - We Are The People (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B22C6AE2FF55FF2834B90ED046CE1D477CE2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670615   (171889) от 21.10.2023
-
-Dave Stewart - Who To Love: The Time Experience Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из создателей дуэта Eurythmics Дэйв Стюарт (Dave Stewart) основал новый творческий коллектив под названием The Time Experience Project.
-Как сообщил музыкант, в него входит целая группа писателей, актеров, музыкантов, исполнителей и режиссеров.
-20 октября 2023 года они выпустили «современную рок-оперу» из 10 треков под названием «Who To Love». Снятый по ней кoроткометражный (   Читать дальше...   )01. Time Is A Masterpiece
-02. Electrified
-03. Not The Sweetest Taboo
-04. Brings Me Home(   Читать дальше...   )Жанр: Pop Rock, Rock OperaПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE74CE504647AFEF7679C65920DB41F3B0B345B
 ```
 
 https://mybot314.ru/tekegram_catalog/

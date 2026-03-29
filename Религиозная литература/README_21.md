@@ -1,3 +1,84 @@
+###  Публикация: 995767   (881156) от 13.03.2016
+
+А.В. Потапова, В.П. Герейло (сост.) | Нагорная проповедь  Спасителя. Сущность христианского учения (1991) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая нагорная проповедь Иисуса Христа с объяснениями читается легко и свободно, воспринимается как бальзам для души. Читайте, перечитывайте ее и вы почувствуете, какое спокойствие и душевное равновесие вольется в вас, как возвысятся ваши устремления и помыслы.
+В настоящий сборник также включены текст нагорной проповеди Спасителя по Евангелию от Матфея, Десять (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F120E880A43598D314D99545959691806426F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995726   (881070) от 13.03.2016
+
+Святитель Игнатий Брянчанинов | В помощь кающимся (1992) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если крещение избавляет нас от власти первородного греха, то покаяние омывает от скверны наших собственных грехов, совершенных уже после крещения. Однако для того, чтобы покаяться и получить оставление грехов, необходимо увидеть свой грех...
+     Начало, основание и вершина духовной жизни в Православии — сугубое покаяние. Это тот самый трудный и узкий путь, по которому (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5914DEC09E9654B489ED80A0805B6E438755B13B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494089   (880608) от 12.09.2021
+
+Митрополит Вениамин (Федченков) | Из того мира. Книга чудес и знамений нашего времени (2007) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всю жизнь митрополит Вениамин записывал свидетельства о чудесах, о чудотворных иконах, о заступничестве и помощи святых, о явлениях умерших из загробного мира. Большинство из рассказанного пережито и увидено самим автором.
+Книга митрополита Вениамина — яркое свидетельство о жизни Церкви в XX столетии.Жанр: ПравославиеФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD26633F5A32A9D79CBCCCC2936BA2F95E3F159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871578   (879250) от 22.02.2015
 
 Н. В. Румянцев | Рождество христово: Очерк сравнительной мифологии (1923) [DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879250.jpg" />
+  <img src="Z:/picture/005/save_picture_879250.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879001.jpg" />
+  <img src="Z:/picture/005/save_picture_879001.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878225.jpg" />
+  <img src="Z:/picture/005/save_picture_878225.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877659.jpg" />
+  <img src="Z:/picture/005/save_picture_877659.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876559.jpg" />
+  <img src="Z:/picture/005/save_picture_876559.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875734.jpg" />
+  <img src="Z:/picture/005/save_picture_875734.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875724.jpg" />
+  <img src="Z:/picture/005/save_picture_875724.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875632.jpg" />
+  <img src="Z:/picture/008/save_picture_875632.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873612.jpg" />
+  <img src="Z:/picture/008/save_picture_873612.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872123.jpg" />
+  <img src="Z:/picture/008/save_picture_872123.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872119.jpg" />
+  <img src="Z:/picture/008/save_picture_872119.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871961.jpg" />
+  <img src="Z:/picture/008/save_picture_871961.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871802.jpg" />
+  <img src="Z:/picture/008/save_picture_871802.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871755.jpg" />
+  <img src="Z:/picture/008/save_picture_871755.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871573.jpg" />
+  <img src="Z:/picture/008/save_picture_871573.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871566.jpg" />
+  <img src="Z:/picture/008/save_picture_871566.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871557.jpg" />
+  <img src="Z:/picture/008/save_picture_871557.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869091.jpg" />
+  <img src="Z:/picture/008/save_picture_869091.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868991.jpg" />
+  <img src="Z:/picture/008/save_picture_868991.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868506.jpg" />
+  <img src="Z:/picture/008/save_picture_868506.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868240.jpg" />
+  <img src="Z:/picture/008/save_picture_868240.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867110.jpg" />
+  <img src="Z:/picture/008/save_picture_867110.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866694.jpg" />
+  <img src="Z:/picture/008/save_picture_866694.jpg" />
 </div>
 
 
@@ -603,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67C459EA0DFCAF9004431BBA8BA370455F121661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998385   (866683) от 21.03.2016
-
-Преподобный Лев (2016) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электронное издание в современной орфографии книги, выпущенной в 1917 г. Свято-Введенской Оптиной пустынью.
-Иеросхимонах Лев (Наголкин) (1768—1841) ― первый основатель и вдохновитель оптинского старчества. Человек непоколебимой веры, необычайной смелости, твердости и энергии. Выражением евангельской любви была вся жизнь этого старца, проходившая в самоотверженном (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6FC9CAC2F1C2D961C8B45B22EBD6D1523A45EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767605   (866516) от 17.03.2014
-
-Г. А. Гурев | Антирелигиозная хрестоматия (1930) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие для пропагандистов, преподавателей и учащихся.
-
-Пролетариат, разбивающий цепи политического и экономического рабства, не может одновременно с этим не разрушать тяжких оков духовного, умственного рабства. Эти оковы - религия, идея бога, представление о существовании сверхъестественных, внеприродных, сверхчувственньх, таинственных сил, находящихся в определенных (   Читать дальше...   )Жанр: Хрестоматия, сборник, религиоведение, история, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184512856CC2AC96142F577E08BB2E4CAB23BE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999453   (864821) от 22.03.2016
-
-А. А. Алексеев | Библия в богослужении. Византийско-славянский лекционарий (2008) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лекционарий (сборник библейских пассажей для чтения за богослужением) нашел применение в Византии в VIII—XII, а у славян в X—XIV вв. В книге охарактеризованы рукописная традиция лекционария на греческом и славянском языках и его структура, рассмотрены причины назначения библейских пассажей для чтения в определенные дни литургического года, устанавливаются обстоятельства (   Читать дальше...   )Жанр: ЛитургикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C892633E39D85F28B0C5C36CAC989470FE27AB2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

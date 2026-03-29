@@ -1,3 +1,32 @@
+###  Публикация: 1673357   (165460) от 01.11.2023
+
+Bruce Hornsby - Spirit Trail (1998) 25th Anniversary Edition, 2023, Zappo Productions [MP3|320 Kbps] <Rock, Singer & Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 01
+DISC 02
+DISC 03(   Читать дальше...   )Жанр: Rock, Singer & SongwriterПродолжительность: 4 CD, 03:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EE2520F629A36B59DE9DD98E6A21C956162E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431900   (165251) от 16.12.2020
 
 Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165251.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dark Pink Moon - A Chill Out Tribute To Pink Floyd (2002) [MP3|320 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165246.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Christmas Rock Legends (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165236.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Atlanta - Nugrybauti (2020) [MP3|320 Kbps] <Psychedelic Rock, Prog Rock, Jam Ban
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164506.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164472.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rock Legends - Metal Christmas (2015) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164423.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bon Jovi - 2020 (2020) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164138.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ John Miles - 7 Studio Albums (1976-1983) Collection [MP3|320 Kbps] <Rock, Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163806.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Richard Marx - Stories To Tell (2010) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163435.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Kansas - Another Fork in the Road: 50 Years of Kansas (2022) 3xCD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163250.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Big J - Above (2020) [MP3|320 Kbps] <Atmospheric Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163244.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Paul McCartney - McCartney III (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162907.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Anthologie Du Twist Francais 1961-1962 (2017) 3CD [MP3|320 Kbps] <Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162869.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ High School Music Band - Rock It (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162089.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Eagles - One Of These Nights (1975) Reissue, Remastered, 2022, Mobile Fidelity S
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162009.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Mark Murdock - The Phoenix Has Risen (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161383.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Maximum Rock The 1970s (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160585.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Aerosmith - Rocks (1976) Reissue, 2000, Columbia [OGG Vorbis|480 Kbps] <Rock, Cl
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159650.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ King Crimson - In the Court of the Crimson King: King Crimson at 50 (Music from 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159567.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Slade - Singles & Rarities 3CD (2007) (1969-1984) [MP3|320 Kbps] <Rock, Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159319.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ The Rolling Stones - Goats Head Soup (1973) 3CD, Deluxe Edition, 2020, Polydor R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159238.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Joe Cocker - Joe Cocker! (1969) Reissue, 2017, Audio Fidelity [OGG Vorbis|480 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159017.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Mater a Clivis Imperat - Atrox Locus (2022) [MP3|320 Kbps] <Progressive Rock, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158954.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157808.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157804.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B599D1B7709434EA126FA24E3EB45A454FF4474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600313   (157558) от 27.12.2022
-
-Rainbow - Rising (1976) Reissue, Remastered, 2014, Polydor [OGG Vorbis|480 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarot Woman
-02. Run With The Wolf
-03. Starstruck
-04. Do You Close Your Eyes(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BEB0604816AA64300812F796E5E30CFC0BFD3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

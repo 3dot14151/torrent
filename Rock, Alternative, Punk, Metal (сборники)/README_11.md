@@ -1,3 +1,148 @@
+###  Публикация: 1379373   (839192) от 29.04.2020
+
+Krokus - 100% Krokus (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock The Block
+02. Drive It In
+03. Eat the Rich (Remastered)
+04. Save Me(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B0FBE918D92C3455B97A278426D068B7D7ED0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379506   (839073) от 29.04.2020
+
+Kingdom Come - 100% Kingdom Come (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Crying for the Moon
+02. Passion Departed
+03. Over You
+04. What Love Can Be(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5355AAC6AF7F77F30988EE244ED69CBE215C3CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379552   (838985) от 29.04.2020
+
+Uriah Heep - Best of the Best (1970-2011) (De-Noised) (2020) Remaster SMRP [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 03:04:48
+02-01. The Hanging Tree (1977) (03:41)
+02-02. Been Away Too Long (1977) (05:03)
+02-03. Wise Man (1977) (04:42)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D9FB1CDF4FCF48F4C2B79D50A8853F7E441470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379748   (837389) от 30.04.2020
+
+The Alan Parsons Project - 100% Alan Parsons (2020) [MP3|320 Kbps] <Progressive rock, Art rock, Progressive Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sirius (Chicago Bulls Theme Song)
+02. Eye In The Sky
+03. Games People Play
+04. Don't Answer Me(   Читать дальше...   )Жанр: Progressive rock, Art rock, Progressive PopПродолжительность: 03:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C297192629DA256534432B5C006633DB0D42EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379860   (836238) от 01.05.2020
+
+VA - Rock Your Day (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Rolling Stones - Start Me Up (3:33)
+2.Queen - Don't Stop Me Now (3:29)
+3.Red Hot Chili Peppers - Can't Stop (4:29)
+4.Oasis - Supersonic (4:44)(   Читать дальше...   )Жанр: Rock, Alternative, OtherПродолжительность: 03:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1615A09FF2DA1ECA754B9371809EDFFDC44B98BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379916   (835975) от 01.05.2020
 
 VA - Home Sweet Rock (2020) [MP3|320 Kbps] <Rock , Indie Rock, Rock Pop>
@@ -6,7 +151,7 @@ VA - Home Sweet Rock (2020) [MP3|320 Kbps] <Rock , Indie Rock, Rock Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835975.jpg" />
+  <img src="Z:/picture/008/save_picture_835975.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Classic Pop-Rock Hits (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835897.jpg" />
+  <img src="Z:/picture/008/save_picture_835897.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Dreaming Up Life: Indie Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835129.jpg" />
+  <img src="Z:/picture/008/save_picture_835129.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Classic Pop & Rock Songs Hits Of The 80's (2020) [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834626.jpg" />
+  <img src="Z:/picture/008/save_picture_834626.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834158.jpg" />
+  <img src="Z:/picture/008/save_picture_834158.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - I Love Music! - Heavy Metal Edition Vol.32 (2017) [MP3|288-320 Kbps] <Heavy
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833499.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - I Love Music! - Nu Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833493.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic M
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833489.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - I Love Music! - Extreme Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Thrash 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833416.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - I Love Music! - Alternative Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Alte
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833414.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - I Love Music! - Indie & Soft Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833408.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - I Love Music! - Hard Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Hard Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833146.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Quiet Riot - 100% Quiet Riot (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833036.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - 90s Rock (2020) [MP3|320 Kbps] <Rock, Alternative Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832951.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - XimeRa present Alternative Collection vol.24 (2016) [MP3|192 - 320 кб/с]
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832560.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - Danger: Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Alterna
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831569.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Metallica - The Best of the Best (2017) 2CD [MP3|320 Kbps] <Thrash Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830989.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - Second Breath - Unknown Bands Vol.8 (2016) [MP3|64 - 320 кб/с] <Alt.Meta
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830918.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Alterportal HITS 16 Vol. 91 - March (2016) [MP3|128-320 кб/с] <Alternati
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830907.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Country Music Ballads (2016) [MP3|320 кб/с] <Country, Folk Rock, Rock Bl
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830719.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Sting - 25 Best Songs (2014) [MP3|256 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830576.jpg" />
 </div>
 
 
@@ -600,152 +745,6 @@ Sting - 25 Best Songs (2014) [MP3|256 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D5488B425E405A9FA92F6F721FAB5A3C3EE4F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005861   (830556) от 10.04.2016
-
-VA - Legends of Metal (2016) [MP3|320 кб/с] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slipknot - The Devil In I (5:43)
-02. Disturbed - The Vengeful One (4:12)
-03. Killswitch Engage - The End of Heartache (4:58)
-04. Trivium - Pull Harder On the $trings of Your Martyr (4:51)(   Читать дальше...   )Жанр: MetalПродолжительность: 02:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17888F309EB282C1C183EB9AF8696CEDA1803823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005954   (830483) от 10.04.2016
-
-VA - Best Rock at all times (2016) [MP3|128-320 кб/с] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slade - Did Ya Mama Ever Tell Ya
-02. Status Quo - Hard Time
-03. Paul Stanley - Take Me Away (Together As One)
-04. Slade - Look What You Dun(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9E880A934EF5A7AD1D5C26FC8FC99F1CDE8EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855575   (830348) от 10.04.2016
-
-VA - Hair Force One (2014-2015) [MP3|320 кб/с]<Hard'n'Heavy, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Private Life - Fallin' Apart [00:03:37]
-02. Electric Angels - Head Above Water [00:04:16]
-03. Joshua - Back To The Rock [00:03:34]
-04. Talisman - I'll Be Waiting [00:02:59](   Читать дальше...   )Жанр: Hard'n'Heavy, Glam RockПродолжительность: 10:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52485C9ED9ACB236C5E4A040361A111C81CD1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599891   (829127) от 22.03.2015
-
-VA - Heavy Instrumentals 01-45 (2012-2015) [MP3|177-320 кб/с]<Instrumental Metal>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Segor - Kingdom Of Heaven [00:05:50]
-02. Racer X - Catapult To Extinction [00:04:54]
-03. Mendel - Shores [00:06:46]
-04. Marcus Jidell - Rei Zan [00:03:18]
-05. Sanity Decay - Dis [00:01:54](   Читать дальше...   )Жанр: Instrumental MetalПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DEF86D99EEB050EA493461BFCEAA4439BB8DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381776   (824464) от 08.05.2020
-
-Styx - Best of the Best (1972-2017) 2 CD (De-Noised) (2020) Remaster SMRP [MP3|320 Kbps] <Progressive Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Rock, Hard RockПродолжительность: 02:47:32
-02-01. A.D. 1928_Rockin' The Paradise (1980)  (04:42)
-02-02. Too Much Time On My Hands (1980)  (04:33)
-02-03. Nothing Ever Goes As Planned (1980)  (04:48)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3227417950E8FC4CF495170E1CFD4F99C745F99E
 ```
 
 https://mybot314.ru/tekegram_catalog/

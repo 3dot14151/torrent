@@ -1,3 +1,402 @@
+###  Публикация: 1491249   (912140) от 24.08.2021
+
+Шаблоны - Certificate Neon [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сертификат Neon - это макет, который может представлять сертификат под разными углами, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA944D8BBCB99962A857E093BC43F4FC9D80D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368050   (912139) от 18.03.2020
+
+Растровый клипарт - Gift Cliparts 3D Renders Pack [JPG, PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний клипарт подарки и Тележки для покупок.Формат: JPG, PNG, PSDРазрешение файлов: 1000x1000-2400x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D02E7BC074D50DFF64C486E0285CE96B453EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491248   (912136) от 24.08.2021
+
+Шаблоны - Caffe Social media [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caffe Social media - это макет, который может представить смайлики социальных сетей в разных ракурсах, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73CE8BE34C387406CA5CB3AF235A4B988F0095A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368215   (912116) от 18.03.2020
+
+Рамки - NNM-Club - Рамки от Warrior 123 #7 - 1368215 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамки созданные нашим одноклубником Warrior 123
+ОднослойныеФормат: PSDРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FA9C77E9EA73D88E682AE0DCA04D6AD7F2A73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491402   (912090) от 24.08.2021
+
+Векторный клипарт - Cartoon Animals Mega Set [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сборник детского клипарта.
+199 EPS + preview.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C76BD472FC9C5913FA5CF98355F41E15B7260F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491354   (912076) от 24.08.2021
+
+Шаблоны - Creative Market - Pillows in Kids Room Mock-ups Set - 6272135 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912076.jpg" />
+</div>
+
+
+###  Подробнее
+
+С макетами White Mocca вы действительно можете наслаждаться бесчисленными возможностями. Все элементы на макетах разделены и доступны для редактирования. Если вы работаете над продвинутым проектом, требовательным дизайном и ищете сверхреалистичные эффекты, White Mocca удовлетворит ваши потребности. Просто перетащите - это действительно просто. Давайте создадим миллиарды (   Читать дальше...   )Формат: PSDРазрешение файлов: 4000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18F010A78B1645531A5C978AD5A60E485474643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368112   (912028) от 18.03.2020
+
+Кисти - Creative Market - Cosmic Vector Bundle - 3576086 [AI, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор кистей, рисунков и векторных объектов Adobe Illustrator, созданный по мотивам научно-фантастических комиксов 1950–1965 годов.Формат: AI, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCCC8B87AE900C7A12EFA6AB2453A1C8398E261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368049   (912015) от 18.03.2020
+
+Оверлеи - Creative Market - Clouds & Stars Overlays - 4579517 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот пакет изображений содержит 17 PNG-файлов высокого разрешения (300 точек на дюйм) с причудливыми акварельными облаками, золотым блеском и сверкающими звездами. Изображения имеют ширину около 6 дюймов при разрешении 300 точек на дюйм, с прозрачным фоном, поэтому вы можете наложить их поверх любой текстуры, фона или фотографии. Идеально подходит для использования (   Читать дальше...   )Формат: PNGРазрешение файлов: 1578x696-2863x1604
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCBCE4AE0CCA0196354B10D751CC0557B8B576F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368055   (911902) от 18.03.2020
+
+Стили - Creative Market - FROZEN Photoshop Effects+Action - 3803185 [JPG, ASL, PAT, ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всего одним щелчком мыши вы можете создать магию! Представьте, что вам подарили волшебную палочку, и вы можете заморозить любые предметы? Попытайся!
+Легко и быстро превратить текст или изображение в замороженном стиле!.Формат: JPG, ASL, PAT, ATNРазрешение файлов: 2000x2000-3000×2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421678F1279926164208A5A92D4CF7F8E8D38AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368059   (911885) от 18.03.2020
+
+Кисти - GraphicRiver - Smooth Hair Flow Photoshop Brushes - 22388214 [PNG, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусство это линия ваших мыслей. К счастью, с этими великолепными высокотехнологичными гладкими волнистыми кистями вы сможете выразить свой внутренний мир воображения с выразительной скоростью и удовольствием. Прежде всего, они так просты в установке. Во-вторых, созданные с текстурами высокого разрешения. Еще один существенный факт об этих футуристических кистях (   Читать дальше...   )Формат: PNG, ABRРазрешение файлов: 5000x3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62965DEE4500C3037B8CF65C6A3D11A8A6A2BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 758717   (911821) от 19.02.2014
+
+Растровый клипарт - 23 Февраля 2 / 23 February 2 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911821.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 Февраля, День защитника Отечества
+и защитницФормат: JPEGРазрешение файлов: 3200х2800-7000х5500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22C8C09AD9B36DB05D6801AAE8BB6567FC7663F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368051   (911819) от 18.03.2020
+
+3D модели - Maxtree - Plant Models Vol 21 [Corona|V-Ray|*.max, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plant Models Vol 21 - это коллекция высококачественных 3D-моделей растений. Включает 15 видов, всего 131 модель.Формат: Corona|V-Ray|*.max, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA444566E01DA53CE3A43ECEA1312E70CD92196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097830   (911514) от 28.01.2017
+
+3D модели - Evermotion - Archmodels Vol. 150 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+В данный сборник вошли 52 высококачественных моделей хлебобулочных и мясных изделий.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC2CFA9A0AE46650C36C1C829F3A153A71BB5EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990540   (911241) от 25.02.2016
+
+Звуковые библиотеки - Bluezone Corporation - World Percussion Loops and Samples [WAV, AIFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911241.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Percussion Loops and Samples - этот типовой пакет обеспечивает широкую коллекцию экзотических петель ударных, ритмов и сэмплов ударных из различных индийских, арабских и африканских ударных инструментов.Формат: WAV, AIFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97866A6FE612D5B85DF951F68F51C6960D53B3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990364   (911154) от 25.02.2016
+
+Звуковые библиотеки - Cinematic Trailer Music [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный сборник создан для оформления мульти-медиа проектов,
+содержит 62 трека разных вариаций.
+Звуковые файлы открываются в любых проигрывателях , аудио- или видео- редакторах, естественно при наличии надлежащих кодеков в системе.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12873CF5DF520D4F4322179AF37CC93B05AA6C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491485   (910584) от 25.08.2021
 
 Векторный клипарт - Children cute cartoon animals vector [EPS]
@@ -6,7 +405,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910584.jpg" />
 </div>
 
 
@@ -34,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910348.jpg" />
 </div>
 
 
@@ -60,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910347.jpg" />
 </div>
 
 
@@ -86,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910333.jpg" />
 </div>
 
 
@@ -112,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910332.jpg" />
 </div>
 
 
@@ -138,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910246.jpg" />
 </div>
 
 
@@ -164,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910225.jpg" />
 </div>
 
 
@@ -190,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910222.jpg" />
 </div>
 
 
@@ -216,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910214.jpg" />
 </div>
 
 
@@ -242,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910209.jpg" />
 </div>
 
 
@@ -269,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910208.jpg" />
 </div>
 
 
@@ -280,401 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34347F5500E56396FBDD5F0E8D81E69BD11D0372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491633   (910193) от 25.08.2021
-
-Оверлеи - Creative Market - Broken Glass Photoshop Overlays - 4147752 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наложение битого стекла для Photoshop.Формат: PNGРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72C4E8C1CA55E13F5BFFFBAE7B2E98CF4435D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491479   (910168) от 25.08.2021
-
-3D модели - CGTrader - POLYGON - City Pack Low-poly [FBX, OBJ, MB, UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Низкополигональный набор персонажей, зданий, реквизита, транспортных средств и ресурсов окружающей среды для создания игры в многоугольном стиле, основанной на городе.Формат: FBX, OBJ, MB, UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F79D62543F65C4E3CC37657E74E1A37EA2BD0E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491484   (910060) от 25.08.2021
-
-3D модели - CGTrader - POLYGON - Town Pack Low-poly [UNITY, FBX, UPROJECT, UASSET, OBJ, MA]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Synty Studios представляет - низкополигональный набор ресурсов зданий, транспортных средств, персонажей и реквизитов, который можно добавить в существующую игру в многоугольном стиле. Включите демонстрационную сцену (позы персонажей ориентировочные).Формат: UNITY, FBX, UPROJECT, UASSET, OBJ, MA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C3D25BFDE4E6312B91E7D699A37DFB0E7A1AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098245   (910008) от 29.01.2017
-
-Векторный клипарт - Creative business golden company logos [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативный сборник золотых логотипов для бизнес компаний.Формат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E0EF6E6F764851C219545938B6966A911D8F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990676   (909521) от 26.02.2016
-
-Звуковые библиотеки - Bluezone Corporation - Deep Tech Minimal [WAV, AIFF]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bluezone Corporation предлагает новую коллекцию сэмплов - Deep Tech Minimal. Если Вам нужен богатый источник звукового контента для стилей Deep House, Tech House and Minimal House, то этот набор то, что вам нужно. В составе 59 музыкальных петель, петли ударных, электронной перкуссии, синтезаторов, а также 38 одиночных сэмплов. Есть еще и 16 звуковых эффектов.Формат: WAV, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A24DE86CB701F8BED5BE75FEAFF1F110D788E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990556   (909504) от 26.02.2016
-
-Звуковые библиотеки - Bluezone Corporation - Drum and Bass DJ Tools [WAV, REX2, AIFF]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bluezone Corporation возвращается с новым набором передовых барабанов и басов, DJ Tools для производителей которые ищут тщательно отобранные звуки ударных.Формат: WAV, REX2, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB509DE63D15BDF4867F4421D653A874E935840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990823   (909497) от 26.02.2016
-
-Звуковые библиотеки - Bluezone Corporation - Tech House World [WAV, AIFF]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет, созданный AV-продакшн студии состоит из сложных петель, ориентированных на минимализм Tech-House. Tech House World обеспечивает прочную основу для получения оригинальных композиций. Подходящие стили FOT, такие как: Deep, Tech и Tribal House, Minimal, Techno и Trance.Формат: WAV, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F72D4B5B0E28C59F238E9566CEBB3ECEC41D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990657   (909419) от 26.02.2016
-
-Звуковые библиотеки - Bluezone Corporation - Advanced Minimal Techno [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Minimal Techno предлагает Вам Minimal и Techno сэмплы с массивной дозой Electro. Новый сборник звуков от Bluezone Corporation дает богатое и комплексное звучание, основанное на стилях Electro и Fidget House. В наборе содержатся 291 петель и сэмплов, включая ударные, музыкальные петли, перкуссию, синтезаторы, звуковые эффекты и одиночные сэмплы.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963A2812D2723747802475BC8FCDE1DDACBCB496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990806   (909413) от 26.02.2016
-
-Векторный клипарт - Festive Fireworks [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фейерверк в векторе.
-25 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3824ABC2E82DFBD6AD06C1A16D29332D41C0FB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990498   (909354) от 26.02.2016
-
-Звуковые библиотеки - Beatport Sounds - K-Size Dark FX [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark FX представляет собой набор мрачных звуковых эффектов, которые придадут вашим Tech House, Deep House и Techno проектам особый мрачный вкус. Этот набор содержит различные звуки от утонченных фоновых окружений до шумовых эффектов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92B638E78215BAA03563ACB7C50A7E0063BB186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368570   (908712) от 20.03.2020
-
-Растровый клипарт - Creative Market - Hello Spring - 4670016 [PNG, JPG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельная большая коллекция Hello Spring chsracters девушки и животные, цветы с золотом и прозрачные фоны.Формат: PNG, JPG, PSDРазрешение файлов: 420x480-8334x8334
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C740BF56B37EDC49B744379D332FA9A99ED3F061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098752   (908388) от 30.01.2017
-
-Шрифты - Slot [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Количество / Штук: 2
-Разработчик: Adrien Coquet & Hugo Dath
-
-Поддержка кириллицы: Есть (Русская, Украинская, Белорусская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40FE71FF672996EFF3354B04A00F971C0666C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990941   (907681) от 27.02.2016
-
-Звуковые библиотеки - Bluezone Corporation - Bumper Drums [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bumper Drums от Bluezone Corporation предоставляет широкий спектр электронных наборов ударных, minimal, tribal house, trance и techno music.  Каждый звук был тщательно обработан с эффектами, чтобы быть готовым к использованию в повседневном производстве. Если вы производите EDM, это загружаемый типовой пакет является мощным дополнением к вашей музыкальной панели инструментов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CFC270961A650404CD703C0C8F3B4BB67A033D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990437   (907575) от 27.02.2016
-
-Звуковые библиотеки - Bigfishaudio - Computer Noises  [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Computer Noises основан на широкой палитре шумов, которые издают компьютеры, загружая, читая CD-ROM или получая доступ к жесткому диску.
-В библиотеке имеются звуки начальной загрузки 10 различных ноутбуков и настольных компьютеров (от старого ATARI PC 2 до Pentium I и III, Celeron и CoreDuo). Каждая начальная загрузка была записана в различных местах системного блока. (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD597F257C9145EC2E50B743EBE1094BA35C8B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990352   (907498) от 27.02.2016
-
-Boom Library - SILENCERS [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Silencers - Bundle - включает в себя два отдельных набора SILENCERS - DESIGNED и SILENCERS - CONSTRUCTION KIT - Эти библиотеки SFX ориентированы на необычный звуковой сектор. Эти звуки для безмолвных убийц, специальных агентов, наемных убийц, спецназа, снайперов, охотников и всех тех, у кого спецификой профессией необходимо молчать. Библиотека записана убедительным (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7904A9827F7CE9270261F27E29FD2A07FD28F1D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

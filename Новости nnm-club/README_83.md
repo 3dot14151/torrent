@@ -1,3 +1,109 @@
+###  Публикация: 1209407   (779161) от 27.02.2018
+
+Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEB-DLRip [H.264] [MVO] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779161.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стране Аместрис алхимия широко распространена как точная наука. Два брата Эдвард и Альфонс Элрики ещё детьми пытались при помощи алхимии воскресить мёртвую маму, но поплатились за это. Старший лишился руки и ноги, младший — всего тела, хотя и был в самый последний момент чудом спасен — брат привязывает его душу к стальным рыцарским доспехам. Теперь два брата — (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Боевик, фэнтези, приключенияРежиссер: Ясухиро Ириэ, Киёмицу Сато, Хироши ИкетомиАктеры: Рёске Ямада, Цубаса Хонда, Дин Фудзиока, Рюта Сато, Мисако Рэмбуцу, Ё Ойзуми, Кэндзиро Исимару, Ясуко Мацуюки, Синдзи Утияма, Каната ХонгоПеревод: Многоголосый закадровый (AlexFilm)Субтитры: русские (форсированные, полные), английские, + много других языков (см. MediaInfo)Продолжительность: 02:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934C998FF078FF457CFCEE54FBB6018E0A4B1C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209268   (779032) от 28.02.2018
+
+Nokia воскресила телефон из "Матрицы"
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания HMD Global, которой принадлежат права на выпуск смартфонов и обычных мобильников под брендом Nokia, анонсировала на проходящей в Барселоне выставке Mobile World Congress (MWC) очередное переиздание легендарной модели из 90-х. Если год назад производитель получил массу бесплатного пиара благодаря "воскрешению" Nokia 3310, то в этот раз удивить всех (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204437   (779024) от 28.02.2018
+
+Видоизмененный углерод / Altered Carbon (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля, XXVII век. Мир, в котором появилась возможность «сгружать» человеческое сознание и личность из одного тела в другое. Идеальный мир и для преступников, и для полицейских, и для армии, но вряд ли идеальный для бывшего военного спецназовца Такеси Ковача, которого миллиардер Бэнкрофт нанял для расследования гибели одного из своих тел. Внешне — явное самоубийство. (   Читать дальше...   )Производство: США, Mythology Entertainment, Skydance TelevisionЖанр: фантастика, триллер, драмаРежиссер: Ута Бризвитц, Питер Хор, Ник Харран и др.Актеры: Юэль Киннаман, Джеймс Пьюрфой, Марта Игареда, Крис Коннер, Антонио Марциале, Кристин Леман, Хиро Канагава, Валид Зуэйтер, Марлин Форте, Тич Грант и др.Перевод: многоголосый закадровый, профессиональный - NewStudio (ненормативная лексика)Субтитры: русские, английские
+
+ВНИМАНИЕ! Присутствует ненормативная лексика.Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98BC246B259B78307AC9728B288C5B3EE635E45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209845   (778922) от 01.03.2018
+
+МОК восстановил членство Олимпийского комитета России
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный олимпийский комитет (МОК) восстановил членство Олимпийского комитета России в организации, которое было приостановлено 5 декабря прошлого года за два месяца до старта зимней Олимпиады в Пхенчхане, сообщили РИА Новости несколько источников, не связанных друг с другом.Исполком МОК 5 декабря принял решение временно отстранить ОКР. Российские атлеты были (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210120   (778912) от 01.03.2018
 
 Ежегодное послание Президента России Владимира Путина Федеральному Собранию (01.03.2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778912.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778743.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ CyberGhost VPN 6.5.0.3180 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778741.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778739.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ DiRT 4 (2017) [Multi] (1.8/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778733.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.03.02 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778576.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778451.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778413.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778132.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778124.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778058.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ Symantec Endpoint Protection 14.0.1 RU1 MP1 Build 3897 (14.0.3897.1101) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778035.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ Linux Deepin 15.1.1 [x86-64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777767.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777707.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777689.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777429.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (03.05.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777409.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777407.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777398.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ Malwarebytes Premium 3.4.4.2398 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777370.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777363.jpg" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777021.jpg" />
+  <img src="Z:/picture/008/save_picture_777021.jpg" />
 </div>
 
 
@@ -570,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0CF37C5C20F6B6F0B798E61241042D2C8147B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011544   (777018) от 05.05.2016
-
-Rage of Mages / Аллоды: Печать тайны (1998) [Ru/En] (1.03) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777018.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «Аллодах» соединяются два серьезных и хорошо разработанных жанра: ролевая игра и стратегия в реальном времени. Действие в «Аллодах» делится на миссии, между которыми герой поводит время в городе, где можно сходить в магазин (за новым вооружением и заклинаниями), повысить свое боевое умение у опытного наставника и подобрать наемников для очередного задания. Cистема (   Читать дальше...   )Тип издания: LicenseРазработчик: Nival InteractiveЖанр: Strategy (Real-time), RPG, Top-downЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DEBF3DBF88E8647B6241F6464CD9025AFEF835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013874   (777014) от 05.05.2016
-
-Adobe Audition CC 2015.1 8.1.0.162 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F265C0627EA16E9AF76DE0CEDCAE606F6EE272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013792   (777007) от 05.05.2016
-
-Avira Antivirus Pro 15.0.17.273 Final RePack by Alker [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avira Antivirus Pro - простой, легкий и надежный антивирус. Включает комплексную защиту от вирусов, кражи личных данных и финансовых потерь. Этот отличный набор инструментов безопасности является идеальным решением для обеспечения защиты пользователя, компьютера и важных данных. Новый Avira Antivirus Pro использует передовые и эффективные функции антивирусной защиты, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F389DA490CB8A8A82D4500A4DC69FAF41C9874D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211570   (776988) от 08.03.2018
-
-Adobe Premiere Pro CC 2018 (12.0.1.69) Portable by XpucT [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2018 — профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55EFE56FFADFC543482B53481B16EB73696A5D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

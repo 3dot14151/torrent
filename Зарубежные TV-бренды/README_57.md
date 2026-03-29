@@ -1,3 +1,107 @@
+###  Публикация: 1036011   (621008) от 20.07.2016
+
+NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_621008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 2010. Наводнение в Австралии и Пакистане, экстремальная жара и лесные пожары в России, снежные бури в США. Аномальные проявления погоды будут усиливаться с каждым годом, пока каждый не осознает, что мы все живём на одной планете.Телекомпания: США, National Geographic TelevisionЖанр: ДокументальныйПеревод: Одноголосый закадровый профессиональныйПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAB8709AC11C5C5F6F2F12C5D5409924548CBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036012   (620928) от 20.07.2016
+
+NG: Когда сталкиваются континенты / When Continents Collide (2010) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два континента. Разные и незнакомые миры. На каждом из них обитали странные и экзотические существа. За миллионы лет геологические силы образовали перемычку между ними. Там, где сейчас походит Панамский канал, раньше плескалось море. Северная и Южная Америки столкнулись. Сегодня ученые изучают это столкновение, собирая обломки и изучая следы. Доисторические хищники (   Читать дальше...   )Телекомпания: New Pony Productions, National Geographic TelevisionЖанр: ДокументальныйРежиссер: Рон БоуманПеревод: Одноголосый закадровый профессиональныйПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DEE6CF55655BA65DC61A1729F2A4F3178F15051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229903   (620777) от 09.06.2018
+
+BBC: Захватывающая история криминалистики / Catching History's Criminals: The Forensics Story (2015) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительный мир криминалистики оказывается под микроскопом доктора Габриэлы Вестон, которая решает изучить историю науки, стоящей за борьбой с преступностью. От использования ДНК для реконструкции лица убийцы до волосинки, рассказывающей о том, где жила жертва. Благодаря современным технологиям и историческим материалам, мы увидим полицейские дела и узнаем о культуре, (   Читать дальше...   )Производство: Великобритания, BBC Scotland, Open University PartnershipЖанр: Документальный, история, криминалистикаРежиссер: Грэхам РасселПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 3 х ~ 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5AC01E4BCD5E5D5DB439546E2211311A082331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702568   (620738) от 20.07.2016
+
+NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes) / Tauchen im Labyrinth (2010) BDRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620738.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Багамских островах лучшие пещерные дайверы погружаются в голубую бездну... Они исследуют подводные пещеры, наполненные загадками и дайверами, которым не удалось их покинуть живыми. В расчете на количество попыток, дайвинг - самый опасный спорт на земле. Им грозят обрушения скал, потеря сознания и паника. Они делают это ради острых ощущений, для того чтобы быть (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDA40F33208C409B7D1E586539ED4D824A4A727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523007   (620695) от 14.07.2012
 
 BBC: Выдающиеся женщины ХХ столетия. Агата Кристи / Extraordinary Women. Agatha Christie (2011) SATRip [11 из 13]
@@ -6,7 +110,7 @@ BBC: Выдающиеся женщины ХХ столетия. Агата Кр�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620695.jpg" />
+  <img src="Z:/picture/008/save_picture_620695.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC: Выдающиеся женщины ХХ столетия. Одри Хеп�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620546.jpg" />
+  <img src="Z:/picture/008/save_picture_620546.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620526.jpg" />
+  <img src="Z:/picture/008/save_picture_620526.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery. Короли Леса / Kings of the Wood (2022) WEBRip [H.264/1080p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619904.jpg" />
+  <img src="Z:/picture/008/save_picture_619904.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG: В пещере кристаллов / Into the Crystal Cave (2010) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619502.jpg" />
+  <img src="Z:/picture/008/save_picture_619502.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Discovery. Акула Тьмы: Ярость Субмарины / Shark of Darkn
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619490.jpg" />
+  <img src="Z:/picture/008/save_picture_619490.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG.Запреты: Экстремальное лечение / NG.Taboo: Freaky 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619126.jpg" />
+  <img src="Z:/picture/008/save_picture_619126.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618968.jpg" />
+  <img src="Z:/picture/008/save_picture_618968.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618964.jpg" />
+  <img src="Z:/picture/008/save_picture_618964.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618734.jpg" />
+  <img src="Z:/picture/008/save_picture_618734.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618345.jpg" />
+  <img src="Z:/picture/008/save_picture_618345.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618335.jpg" />
+  <img src="Z:/picture/008/save_picture_618335.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617815.jpg" />
+  <img src="Z:/picture/008/save_picture_617815.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616957.jpg" />
+  <img src="Z:/picture/005/save_picture_616957.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ BBC: Выдающиеся женщины ХХ столетия. Жозефина
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616884.jpg" />
+  <img src="Z:/picture/008/save_picture_616884.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616842.jpg" />
+  <img src="Z:/picture/008/save_picture_616842.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG: Осушить океан: глубокое погружение. Сабот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616834.jpg" />
+  <img src="Z:/picture/008/save_picture_616834.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NGW: Акула против тунца / Shark vs Tuna (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616830.jpg" />
+  <img src="Z:/picture/008/save_picture_616830.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ History Channel: Жизнь после людей / Life After People (2009) HDT
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616465.jpg" />
+  <img src="Z:/picture/008/save_picture_616465.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Discovery: Головоломы (Мозголомы): Насилие над на
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616453.jpg" />
+  <img src="Z:/picture/008/save_picture_616453.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NG: С точки зрения науки: Магнитное поле Земл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615934.jpg" />
+  <img src="Z:/picture/008/save_picture_615934.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTVRip [Сер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615927.jpg" />
+  <img src="Z:/picture/008/save_picture_615927.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTVRip [Сер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B27BE3989C97611645EC149D3FD515FB5171EEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908904   (615855) от 23.06.2015
-
-Discovery. Ванная под ключ / King of Thrones (2013) HDTV [H.264/720p] [Серии 1-6 из 6]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615855.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ванной комнате мы проводим около четырнадцати дней в году — ничуть не меньше, чем в отпуске, здесь можно найти свой маленький оазис спокойствия и тишины. А если это самое сакральное место в доме напоминает скорее поле боя – пора вызывать Джеффа Хокси и Дэйва Куба, мастеров ремонта, которые даже из деревенской «дырки в полу» могут сотворить произведение искусства (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D71F412DF556A4156E3FD96CF2C530064714B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296042   (614928) от 15.04.2019
-
-NGW: Самые опасные животные Африки: Ботсвана / Africa's Deadliest (2019) HDTV [H.264/1080i-LQ] (Эпизоды 1-3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тех, кто живет среди самых опасных хищников Африки, опасность подстерегает буквально повсюду. В этом беспокойном мире способность быть быстрым или яростным может означать выбор между жизнью и смертью.Производство: Южная Африка, Aquavision TV Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кейт ФрэзерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: эпизоды х ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F342157C215BBE87DE0C7A9001AE4A263F91A771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295978   (614919) от 15.04.2019
-
-History Channel. Бойцовский клуб Юрского периода / Jurassic Fight Club (2008) HDTVRip [H.264/720p-LQ] (1-12 серии из 12)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они первые в истории бойцы! Самые страшные хищники! Находки палеонтологов и методы криминалистики позволят воссоздать доисторическое военное искусство динозавров. Это были войны Юрского периода!
-Это рассказ о самых свирепых бойцах доисторического мира - гигантских ящерах, населявших Землю миллионы лет назад. Как оказалось, мир хищников был гораздо сложнее и расчетливей, (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, палеонтология, динозавры, историяРежиссер: Крег ЛотербачПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 12 х ~ 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6E930D312B85775BAC3534CA4479E8DC2AAA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296111   (614916) от 15.04.2019
-
-NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614916.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Земле есть несколько мест, которых не коснулась история развития человечества. В полной темноте и безмолвии они хранят величайшие тайны Земли. Недоступные, как далекие планеты, они полны научных открытий. Одно из таких мест — Марианская впадина. Джеймс Кэмерон — самый известный и успешный режиссер в мире, еще и страстный исследователь океанов, ведомый мечтой всей (   Читать дальше...   )Производство: США, National Geographic Entertainment, Beyond Productions, Disruptive LA, Earthship Productions, Wight Expedition FilmsЖанр: Документальный, научно-познавательный, океанографияРежиссер: Джон Бруно, Рэй Квинт, Эндрю УайтПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE235221CDC2EA7992F576FA15432DD853A7198
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 848316   (290011) от 08.12.2014
+
+Анатолий Алексин | Собрание сочинений [3 книги] (1979-1981) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Своеобразие прозы Анатолия Алексина не только в остроте и актуальности нравственной проблематики, часто афористически сформулированной: «С добром надо спешить, а то оно может оказаться без адресата» («В тылу как в тылу»), «Дети должны уметь плакать, не только когда разбивают свою коленку, но когда коленка болит у кого-то другого» («Третий в пятом ряду»).
+Писателю (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84FDF7E67930F06AE8363405CABCC1D6CC10DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186033   (289951) от 23.11.2017
 
 Галина Демыкина, Георгий Балл | Алошка (1966) [FB2]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289951.jpg" />
+  <img src="Z:/picture/008/save_picture_289951.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289945.jpg" />
+  <img src="Z:/picture/008/save_picture_289945.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287768.jpg" />
+  <img src="Z:/picture/008/save_picture_287768.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287660.jpg" />
+  <img src="Z:/picture/008/save_picture_287660.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286641.jpg" />
+  <img src="Z:/picture/008/save_picture_286641.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286407.jpg" />
+  <img src="Z:/picture/008/save_picture_286407.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286406.jpg" />
+  <img src="Z:/picture/008/save_picture_286406.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286401.jpg" />
+  <img src="Z:/picture/008/save_picture_286401.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286025.jpg" />
+  <img src="Z:/picture/008/save_picture_286025.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285946.jpg" />
+  <img src="Z:/picture/008/save_picture_285946.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285903.jpg" />
+  <img src="Z:/picture/008/save_picture_285903.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285892.jpg" />
+  <img src="Z:/picture/008/save_picture_285892.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285891.jpg" />
+  <img src="Z:/picture/008/save_picture_285891.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285793.jpg" />
+  <img src="Z:/picture/008/save_picture_285793.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285734.jpg" />
+  <img src="Z:/picture/008/save_picture_285734.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285373.jpg" />
+  <img src="Z:/picture/008/save_picture_285373.jpg" />
 </div>
 
 
@@ -439,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284896.jpg" />
+  <img src="Z:/picture/008/save_picture_284896.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284750.jpg" />
+  <img src="Z:/picture/008/save_picture_284750.jpg" />
 </div>
 
 
@@ -491,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284731.jpg" />
+  <img src="Z:/picture/008/save_picture_284731.jpg" />
 </div>
 
 
@@ -517,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284465.jpg" />
+  <img src="Z:/picture/008/save_picture_284465.jpg" />
 </div>
 
 
@@ -543,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284161.jpg" />
+  <img src="Z:/picture/008/save_picture_284161.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284159.jpg" />
+  <img src="Z:/picture/008/save_picture_284159.jpg" />
 </div>
 
 
@@ -596,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284158.jpg" />
+  <img src="Z:/picture/008/save_picture_284158.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284152.jpg" />
+  <img src="Z:/picture/008/save_picture_284152.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284148.jpg" />
+  <img src="Z:/picture/008/save_picture_284148.jpg" />
 </div>
 
 
@@ -664,33 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7F428AD3E149ED441845C1C024A2B9A656C079C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964112   (284143) от 10.12.2015
-
-Николай Тихонов и др. | Клятва юных (1945) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284143.jpg" />
-</div>
-
-
-###  Подробнее
-
-В. Каверин. Клятва юных.
-«Мы встречались всегда неожиданно, — сказал мои друг капитан-лейтенант. — В нем самом было что-то неожиданное, быстрое, меняющееся ежеминутно. Я как-то сказал ему, что он похож на детский калейдоскоп — повернешь, и разноцветные стеклышки вдруг ложатся — в новое сочетание. Каждый день он начинал жизнь сначала. По утрам — он будил меня, подражая (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FABEF6BC8B7D12E306F9F93077A1061890CA891
 ```
 
 https://mybot314.ru/tekegram_catalog/

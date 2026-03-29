@@ -1,3 +1,29 @@
+###  Публикация: 1487723   (1003030) от 07.08.2021
+
+Dodgeball Academia (2021) [Ru/Multi] (1.2) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спортивная ролевая игра о начинающем спортсмене Отто, который вместе с разношёрстной командой друзей учится побеждать и на учебной площадке, и вне её. В мире, где игра в вышибалы — это целая жизнь, вам нужно играть за Отто, который учится в академии и хочет стать величайшим чемпионом вышибал. В игре восемь глав, в ходе которых нужно собрать лучшую спортивную команду, (   Читать дальше...   )Тип издания: LicenseРазработчик: Pocket TrapЖанр: Спорт, Ролевая игра, ДрамаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690D22469E246661B7FD6D348B38C50498570408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351170   (1002344) от 09.01.2020
 
 Luxar (2020) [Ru/Multi] (1.0) Repack Mr_Weegley
@@ -6,7 +32,7 @@ Luxar (2020) [Ru/Multi] (1.0) Repack Mr_Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002344.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.23.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002193.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BDSM: Big Drunk Satanic Massacre (2019) [Ru/Multi] (1.0.33) Repack Mr_Weegley [1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001211.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shank: Dilogy [En/Ru] (Repack) 201 - 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000573.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Pure [Ru/En] (RePack) 2008 l R.G. Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999499.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Karateka [Ru/En/Multi5] (L) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998484.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ MediEvil: Dilogy [Ru] (PC/Emul) 1998-2000 | Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997632.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Soldier vs. Aliens [Ru/En] (RePack) 2013 | F4CG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994963.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Dawnstar [En] (L) 2013 | *SKIDROW*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994340.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Wasteland Angel [Ru/En/Multi4] (L) 2011 | *PROPHET*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993875.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993179.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.21) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991576.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991508.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ iBomber Attack [En] (RePack) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991490.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ Dungeonland: Special Edition [En/Multi4] (Steam-Rip/3.5.6.44817) 2013 | R.G. Gam
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988798.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985670.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ We Need To Go Deeper: The Awakened (2019) [En] (1.1) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984604.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Retrovirus [En] (Steam-Rip/1.0.5251.0) 2013 | R.G. GameWorks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983635.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Cargo! The Quest For Gravity / Эврика! [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980954.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980948.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Kung Fu Panda: Showdown of Legendary Legends (2016) [En/Multi] (1.0) License COD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980574.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Evil Defenders (2015) [Ru/Multi] (1.0/upd1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979788.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ Psychonauts (2005) [Ru/Multi] (1.1.603.0/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978734.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Deadlight [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978301.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru/En] (1.07) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977571.jpg" />
 </div>
 
 
@@ -660,38 +686,6 @@ Mortal Kombat: Komplete Edition (2013) [Ru/En] (1.07) Repack R.G. Механик
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C1C4551B679D1CAAA2291B6E68447F1C6827867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568464   (975782) от 09.02.2013
-
-Deadlight [Ru/En/Multi6] (Repack/1.0.9249.u.1) 2012 | R.G. Origami
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Deadlight, — это альтернативный 1986-й, когда мир столкнулся с новой апокалиптической угрозой — загадочной вирусной инфекцией, обращающей людей в «тени», или попросту в зомби. При этом, в отличие от подавляющего большинства подобных проектов, Deadlight, вы не поверите, — пазл-платформер. То есть придётся не столько стрелять, сколько думать.
-
-«1986-й выбран не случайно, — поясняет исполнительный директор студии Рауль Рубио (Raul Rubio). — Это время запомнилось активным освоением космоса и выходом таких фильмов, как Rambo: First Blood и Day of the Dead. Смешайте всё это — и получите уникальную визуальную стилистику».
-
-Перемещаясь по полумёртвому северо-западному побережью Британской Колумбии (Канада) и США, Рэндэлл Уэйн будет искать оружие и других выживших. «Вам не нужно биться за правду или спасать мир, — продолжает г-н Рубио. — Это история Рэндэлла, его проблем, чувств и желаний». Сценарий написан испанским драматургом Антонио Роджано (Antonio Rojano), который вдохновлялся произведениями Стивена Кинга, Джеймса Балларда и Кормака Маккарти.
-
-«Вы поймёте, что в этом мире даже простое действие вроде перехода улицы становится невероятно сложным и опасным», — продолжают девелоперы. Обещана достоверная физическая модель, на которой и будут базироваться головоломки. Созданием «альтернативного мира паранойи и хаоса» занимается команда из 22 человек, прежде работавших в таких компаниях, как Blizzard, Pyro Studios, Sony..(   Читать дальше...   )Тип издания: RepackРазработчик: Tequila WorksЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE10931CDE8EDB635E8C54C1D60E5E2FF6DCD48
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1376520   (241752) от 18.04.2020
+
+Народный напев Цугару / Tsugaru jongarabushi / Jongara / Tsugaru Folk Song (1973) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исако Накасато вернулась в родные места, где её никто не ждет. Её отец и брат погибли в море, сосед Такадзо ненавидит её за то, что она сбежала из деревни с его сыном. Теперь она вернулась с парнем, который моложе её. Зачем она сюда приехала? Это спасение или гибель для всех?Производство: Япония / Art Theatre Guild, Saito Koichi ProductionЖанр: ДрамаРежиссер: Койти СаитоАктеры: Кёко Энами, Акира Ода, Михоко Накагава, Ко Нисимура, Кодзиро Хонго, Хидэо Сато, Минори Тэрада, Харуко ТодаПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F03197D9771D03C9A45E9CCDDA1E98A03CCE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376553   (241747) от 18.04.2020
 
 Повелитель Восточно-китайского моря 2 / Shang Hai huang di zhi: Xiong ba tian xia / Lord of East China Sea II (1993) DVDRip [VO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241747.jpg" />
+  <img src="Z:/picture/004/save_picture_241747.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240702.jpg" />
+  <img src="Z:/picture/004/save_picture_240702.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240164.jpg" />
+  <img src="Z:/picture/004/save_picture_240164.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240151.jpg" />
+  <img src="Z:/picture/004/save_picture_240151.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239622.jpg" />
+  <img src="Z:/picture/004/save_picture_239622.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239599.jpg" />
+  <img src="Z:/picture/004/save_picture_239599.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239081.jpg" />
+  <img src="Z:/picture/004/save_picture_239081.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237733.jpg" />
+  <img src="Z:/picture/004/save_picture_237733.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234548.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234057.jpg" />
+  <img src="Z:/picture/005/save_picture_234057.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233727.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233582.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233565.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233336.jpg" />
+  <img src="Z:/picture/004/save_picture_233336.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233254.jpg" />
+  <img src="Z:/picture/004/save_picture_233254.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232929.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232575.jpg" />
+  <img src="Z:/picture/004/save_picture_232575.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232131.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231776.jpg" />
+  <img src="Z:/picture/004/save_picture_231776.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231549.jpg" />
+  <img src="Z:/picture/004/save_picture_231549.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230897.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230802.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230528.jpg" />
+  <img src="Z:/picture/005/save_picture_230528.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230369.jpg" />
+  <img src="Z:/picture/005/save_picture_230369.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230327.jpg" />
+  <img src="Z:/picture/005/save_picture_230327.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E03258536D2DE5014ED78B54A262DC01E3DCA0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583167   (230178) от 13.10.2022
-
-Змеи в женской академии / Rising Boas in a Girl's School (2022) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230178.jpg" />
-</div>
-
-
-###  Подробнее
-
-На полуподпольной змеиной ферме в погоне за быстрой наживой хозяева начали давать рептилиям «модернизированный» корм, который ускоряет их рост. Но в конце концов змеи выросли не только в размерах, но и в интеллекте и устроили «восстание», в ходе которого убили хозяев фермы и освободились. Следующая цель на их пути – женская академия по подготовке стюардесс, в считанные (   Читать дальше...   )Производство: КитайЖанр: ужасы, триллер, боевикРежиссер: Го Юйлун, Се ВэньцзюньАктеры: Чжэн Лун, Манки Пэн, Ши Сюаньжу, Цао Тянькай, Пан Юн, Юань Ицин, Чжан Даньмэн, У ЧуньиПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, китайскийСубтитры: корейские (hardsub)Продолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB65E613600EC7275E43BBE875982AF41BD8F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

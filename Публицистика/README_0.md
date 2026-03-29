@@ -1,3 +1,83 @@
+###  Публикация: 1846449   (1051673) от 08.01.2026
+
+Евгений Лукин | На палачах крови нет. Типы и нравы Ленинградского НКВД (2022) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальную книгу петербургского писателя Евгения Валентиновича Лукина «На палачах крови нет» составили биографические очерки о чекистах — организаторах массовых репрессий в Ленинграде и Ленинградской области в 1937–1938 годах. Очерки написаны на основе совершенно секретных материалов из архивов Федеральной службы безопасности России.
+
+Первое издание этой книги, опубликованное (   Читать дальше...   )Жанр: История, ПублицистикаИздательство: СкифияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF19CB199D3E6C479F99E7AE8F5C8381E1C1830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846788   (1051562) от 09.01.2026
+
+Тай Боллинджер | Правда О Раке (2025) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рак уносит больше жизней, чем вы думаете. По данным Всемирной организации здравоохранения, каждая третья женщина и каждый второй мужчина в течение жизни столкнутся с диагнозом «рак». Для Тая Боллинджера это не просто статистика. Это личное. Потеряв семерых членов своей семьи из-за рака за десять лет, Тай отправился в глобальное путешествие, чтобы узнать как можно (   Читать дальше...   )Жанр: ПублицистикаПеревод: DJSIИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0EC9EE556256DCA2521D36752CB52369E6778F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846267   (1051532) от 07.01.2026
+
+Евгений Фельдман | Мечтатели против космонавтов (2024) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы видели фотографии Евгения Фельдмана, даже если не знаете, кто их снял. Панорама митинга на Болотной, Алексей Навальный с «дошираком» и по дороге в ЦИК, столкновения с «Беркутом» на Майдане, «парад пленных» в Донецке, живая цепь в Минске — в кадрах Фельдмана уместилась целая эпоха, и никто другой не видел столько ее ключевых событий с такого близкого расстояния. (   Читать дальше...   )Жанр: История, документалистика, современная литератураИздательство: BAbookФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FD64F3CE72D1AB1DB84AC4FD251E081B487237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846349   (1051398) от 08.01.2026
 
 Книжная серия | Коллекция Изборского клуба [70 книг] (2013-2022) [PDF, FB2]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051398.jpg" />
+  <img src="Z:/picture/005/save_picture_1051398.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051292.jpg" />
+  <img src="Z:/picture/005/save_picture_1051292.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051149.jpg" />
+  <img src="Z:/picture/005/save_picture_1051149.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051033.jpg" />
+  <img src="Z:/picture/005/save_picture_1051033.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050651.jpg" />
+  <img src="Z:/picture/008/save_picture_1050651.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049303.jpg" />
+  <img src="Z:/picture/008/save_picture_1049303.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049212.jpg" />
+  <img src="Z:/picture/008/save_picture_1049212.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048724.jpg" />
+  <img src="Z:/picture/008/save_picture_1048724.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047521.jpg" />
+  <img src="Z:/picture/008/save_picture_1047521.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045386.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044686.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044196.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043441.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043034.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042758.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042536.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042514.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042501.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041787.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041483.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041462.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041447.jpg" />
 </div>
 
 
@@ -589,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040884.jpg" />
 </div>
 
 
@@ -601,85 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A7A123C3E185F3259F9F3B6ABADE31E23B18611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438627   (1040852) от 09.01.2021
-
-Вячеслав Никонов | Октябрь 1917. Кто был ничем, тот станет всем (2017) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Революцию 1917 года часто называют Великой. Она определила судьбы России и мира. И только сейчас мы обретаем способность спокойно и трезво оценивать, что тогда с нами случилось.
-В книге Вячеслава Никонова вы узнаете, каким образом за восемь месяцев на развалинах великой евразийской державы в разгар мировой войны в октябре 1917 года возникло государство Советов под (   Читать дальше...   )Жанр: История России, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE205B67D6D68F354F2B709093989269FB25AFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439497   (1039907) от 13.01.2021
-
-Андраш Форгач | Незакрытых дел – нет (2021) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039907.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1975 году в отделе III/I Министерства внутренних дел Венгерской Народной Республики появилось вербовочное, а потом и рабочее досье агента под кодовым именем “г-жа Папаи”. В марте 2014 года они попали в руки сыну этого агента – венгерскому эссеисту, драматургу, писателю Андрашу Форгачу (р. 1952). Попытка понять, что происходило с его матерью в 1975–1985 годах, привела (   Читать дальше...   )Жанр: Биографии и мемуары, Спецслужбы, ПублицистикаПеревод: Ольга СеребрянаяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD451CB0C410B750C11F4482D23C5B6B54170AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439500   (1039861) от 13.01.2021
-
-Патрик Радден Киф | Ничего не говори. Северная Ирландия: Смута, закулисье, «голоса из могил» (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский журналист и лауреат национальной премии Патрик Радден Киф («Нью-Йоркер») предпринял попытку разобраться в самой сути англо-ирландского конфликта, его истинных причинах и последствиях для населения. Избрав точкой отсчета печально известное дело МакКонвилл (похищение обвиненной ИРА в пособничестве британской армии матери десяти детей, чьи останки были (   Читать дальше...   )Жанр: Политология, ПублицистикаПеревод: Ирина МизининаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC54FCF0988ACE18791BFEBE4CAAF8FCE7E2170
 ```
 
 https://mybot314.ru/tekegram_catalog/

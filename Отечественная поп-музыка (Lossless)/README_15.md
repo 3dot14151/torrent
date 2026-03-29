@@ -1,3 +1,32 @@
+###  Публикация: 1326497   (384976) от 20.09.2019
+
+Андрей Державин и Сталкер - Песни о хорошем, Часть 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_384976.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Катя-Катерина
+2. Чужая свадьба
+3. Наташа
+4. Журавли(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6CB36C6224AD06FFC3711AAA7FCB4170EFD9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326496   (384841) от 20.09.2019
 
 Андрей Державин и Сталкер - Песни о хорошем, Часть 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -6,7 +35,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384841.jpg" />
+  <img src="Z:/picture/008/save_picture_384841.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383028.jpg" />
+  <img src="Z:/picture/008/save_picture_383028.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_377768.jpg" />
+  <img src="Z:/picture/005/save_picture_377768.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377269.jpg" />
+  <img src="Z:/picture/008/save_picture_377269.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365210.jpg" />
+  <img src="Z:/picture/008/save_picture_365210.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362833.jpg" />
+  <img src="Z:/picture/008/save_picture_362833.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349713.jpg" />
+  <img src="Z:/picture/008/save_picture_349713.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Zivert - Vinyl #1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349620.jpg" />
+  <img src="Z:/picture/008/save_picture_349620.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349072.jpg" />
+  <img src="Z:/picture/008/save_picture_349072.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ VA – Новая игрушка 13 (2002) [FLAC|Lossless|tracks + .cue]<Pop, Da
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347849.jpg" />
+  <img src="Z:/picture/008/save_picture_347849.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344973.jpg" />
+  <img src="Z:/picture/008/save_picture_344973.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_344859.jpg" />
+  <img src="Z:/picture/005/save_picture_344859.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ VA - А у нас во дворе... (2005) [FLAC|Lossless|image + .cue]<Рор>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343118.jpg" />
+  <img src="Z:/picture/008/save_picture_343118.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340903.jpg" />
+  <img src="Z:/picture/008/save_picture_340903.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340423.jpg" />
+  <img src="Z:/picture/008/save_picture_340423.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ VA – Популярная радиодвадцатка 3 (2005) [FLAC|Lossless
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336600.jpg" />
+  <img src="Z:/picture/008/save_picture_336600.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332540.jpg" />
+  <img src="Z:/picture/008/save_picture_332540.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ VA - Высшая лига 3 (2004) [FLAC|Lossless|tracks + .cue]<Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332493.jpg" />
+  <img src="Z:/picture/008/save_picture_332493.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ VA - Романтические дуэты 2 (2005) [FLAC|Lossless|tracks + .cue
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332487.jpg" />
+  <img src="Z:/picture/008/save_picture_332487.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331149.jpg" />
+  <img src="Z:/picture/008/save_picture_331149.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331132.jpg" />
+  <img src="Z:/picture/008/save_picture_331132.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324766.jpg" />
+  <img src="Z:/picture/008/save_picture_324766.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Jony - Список твоих мыслей (2019) [FLAC|Lossless|WEB-DL|tracks]
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318260.jpg" />
+  <img src="Z:/picture/008/save_picture_318260.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317645.jpg" />
+  <img src="Z:/picture/008/save_picture_317645.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ VA - Хиты Теплого Моря (2012) [APE|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315981.jpg" />
+  <img src="Z:/picture/008/save_picture_315981.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ VA - Хиты Теплого Моря (2012) [APE|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:082683C7123E18721E18032AF62587BAAA3BD8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422063   (313050) от 07.11.2020
-
-Витас (Vitas)  - 4 Альбома (2002 - 2006) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucia Di Lammermoor
-02. Оперная
-03. Лебедь мой
-04. Я прошу всех святых(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23813FF2395AE1B8FC5EF0C88E8AE64FEEC55D91
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1446068   (238069) от 07.02.2021
+
+Dash 5.5.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2021Разработчик: Bogdan PopescuПоддерживаемая ОС: macOS 10.14 и новееЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787D5779CBBB7D6193E08EA4A411E99E86263558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624280   (238065) от 05.04.2023
+
+BusyContacts 2023.1.1 U2B [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238065.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2023Разработчик: © 2007-2022 Busy AppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524CD970F7FE65FFA1F2D358BB5512E01B0D4DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638320   (238061) от 07.06.2023
+
+PullTube 1.8.5.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 06.06.2023Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B775AEDE42483FCFBC8CEA345E5216C224C418A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446127   (238060) от 07.02.2021
+
+Usher 2.0 Beta [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Usher - Отличное средство для создания и ведения собственной фильмотеки. Usher поможет управиться с видео, которое хранится на жестких дисках и в медиатеках iTunes, iPhoto, и Aperture. Пользователи могут добавлять подробную информацию о каждом видео и использовать "умные" плейлисты для их фильтрации по этим данным.
+С помощью Usher пользователи смогут искать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: Many TricksПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7F3BB236E80BD8353B2A0E878AB1AF3B16E269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445843   (238049) от 07.02.2021
 
 Yate 6.3.0.1 [En]
@@ -6,7 +112,7 @@ Yate 6.3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238049.jpg" />
+  <img src="Z:/picture/004/save_picture_238049.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ Boxy SVG 3  v3.61.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238046.jpg" />
+  <img src="Z:/picture/004/save_picture_238046.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Screenium 3 v3.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238035.jpg" />
+  <img src="Z:/picture/004/save_picture_238035.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Omni Recover 3 v3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238014.jpg" />
+  <img src="Z:/picture/004/save_picture_238014.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ A Better Finder Rename 11 v11.37 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238009.jpg" />
+  <img src="Z:/picture/004/save_picture_238009.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Dropzone 4 Pro 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237984.jpg" />
+  <img src="Z:/picture/004/save_picture_237984.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ iShowU Instant (Advanced) 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237972.jpg" />
+  <img src="Z:/picture/005/save_picture_237972.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ Xliff Editor 2.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237961.jpg" />
+  <img src="Z:/picture/004/save_picture_237961.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ AudioSwitcher 3.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237954.jpg" />
+  <img src="Z:/picture/004/save_picture_237954.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ Timer RH PRO  2.11.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237951.jpg" />
+  <img src="Z:/picture/004/save_picture_237951.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ MiniNote Pro 5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237949.jpg" />
+  <img src="Z:/picture/004/save_picture_237949.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ iStat Menus 6 v.6.62 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237922.jpg" />
+  <img src="Z:/picture/004/save_picture_237922.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ Folder Designer: Custom Icon‪s 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237918.jpg" />
+  <img src="Z:/picture/004/save_picture_237918.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ Geekbench 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237904.jpg" />
+  <img src="Z:/picture/004/save_picture_237904.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ Notebooks – Write and Organize 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237890.jpg" />
+  <img src="Z:/picture/004/save_picture_237890.jpg" />
 </div>
 
 
@@ -407,7 +513,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237856.jpg" />
+  <img src="Z:/picture/004/save_picture_237856.jpg" />
 </div>
 
 
@@ -434,7 +540,7 @@ SiteSucker 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237849.jpg" />
+  <img src="Z:/picture/004/save_picture_237849.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237842.jpg" />
+  <img src="Z:/picture/004/save_picture_237842.jpg" />
 </div>
 
 
@@ -487,7 +593,7 @@ VideoProc Converter 4K 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237838.jpg" />
+  <img src="Z:/picture/004/save_picture_237838.jpg" />
 </div>
 
 
@@ -513,7 +619,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237830.jpg" />
+  <img src="Z:/picture/004/save_picture_237830.jpg" />
 </div>
 
 
@@ -539,7 +645,7 @@ EdgeView 3 v.3.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237823.jpg" />
+  <img src="Z:/picture/004/save_picture_237823.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ A Better Finder Rename 11 v.11.57 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237810.jpg" />
+  <img src="Z:/picture/004/save_picture_237810.jpg" />
 </div>
 
 
@@ -577,111 +683,6 @@ A Better Finder Rename является лучшим решением для а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C70E9AF9B763769A72D0B4360875A414F7AC596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605499   (237805) от 18.01.2023
-
-AssetsGen 4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики, не занимающиеся дизайном приложений, часто испытывают трудности с подготовкой необходимой графики в проектах. Приложение AssetsGen может помочь преодолеть трудности подготовки различных ресурсов в проектах.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2023Разработчик: © 2023 ONLYAPPSПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B759F50E73CDCDA880E53C7BC48EB56BFE2B58B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605627   (237797) от 18.01.2023
-
-Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEFD7E80DE91CB46D29F5103D7EBC6FD9BE54C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448838   (237786) от 19.02.2021
-
-WonderPen 1.8.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237786.jpg" />
-</div>
-
-
-###  Подробнее
-
-WonderPen - приложение для как для профессиональных, так и для писателей любителей. WonderPen - простой в использовании текстовый редактор с поддержкой Markdown с поддержкой полноэкранного режима. Документы могут быть экспортированы в качестве Image, PDF, HTML и т.д. WonderPen поддерживает автоматическое сохранение при редактировании, возможность добавления заметок (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.02.2021Разработчик: Yingjie WuПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023A9318D70AB17AED77F7D3231CE1041F027584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448853   (237778) от 19.02.2021
-
-iBarcoder 3.12.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 18.02.2021Разработчик: Cristallight SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B526B1CB57994CDF194AB3DA63D8CD98A7B7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

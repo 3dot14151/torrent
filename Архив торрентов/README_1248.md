@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772946.jpg" />
+  <img src="Z:/picture/008/save_picture_772946.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Camtasia 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772941.jpg" />
+  <img src="Z:/picture/008/save_picture_772941.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FolderSizes 8.5.174 Enterprise Edition [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772935.jpg" />
+  <img src="Z:/picture/008/save_picture_772935.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.4 Full | Lite by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772888.jpg" />
+  <img src="Z:/picture/008/save_picture_772888.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pedro Del Mar - Mellomania Vocal Trance Anthems 151 (04-04-2011) [MP3|256 kbps]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772868.jpg" />
+  <img src="Z:/picture/008/save_picture_772868.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CoolUtils Total Image Converter 6.1.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772843.jpg" />
+  <img src="Z:/picture/008/save_picture_772843.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Comodo Dragon 49.13.20.400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772841.jpg" />
+  <img src="Z:/picture/008/save_picture_772841.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772839.jpg" />
+  <img src="Z:/picture/008/save_picture_772839.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772830.jpg" />
+  <img src="Z:/picture/008/save_picture_772830.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772821.jpg" />
+  <img src="Z:/picture/008/save_picture_772821.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Astra Image PLUS 5.5.2.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772820.jpg" />
+  <img src="Z:/picture/008/save_picture_772820.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Anvir Task Manager 8.1.0 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772819.jpg" />
+  <img src="Z:/picture/008/save_picture_772819.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ganja White Night - Mystic herbalist (2013) [MP3|320 кб/с] <Dubstep, Electron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772817.jpg" />
+  <img src="Z:/picture/008/save_picture_772817.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sweet Home 3D 6.1a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772810.jpg" />
+  <img src="Z:/picture/008/save_picture_772810.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ NetWorx 5.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772809.jpg" />
+  <img src="Z:/picture/008/save_picture_772809.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Wise Care 365 Pro 4.17.403 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772807.jpg" />
+  <img src="Z:/picture/008/save_picture_772807.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ GridinSoft Anti-Malware 4.1.50.4970 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772803.jpg" />
+  <img src="Z:/picture/008/save_picture_772803.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Unreal Commander 3.57 Build 1465 +Portable +GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772800.jpg" />
+  <img src="Z:/picture/008/save_picture_772800.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ AllDup 4.4.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772795.jpg" />
+  <img src="Z:/picture/008/save_picture_772795.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772786.jpg" />
+  <img src="Z:/picture/008/save_picture_772786.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772783.jpg" />
+  <img src="Z:/picture/008/save_picture_772783.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Tor Browser Bundle 7.5.1 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772782.jpg" />
+  <img src="Z:/picture/008/save_picture_772782.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772776.jpg" />
+  <img src="Z:/picture/008/save_picture_772776.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772775.jpg" />
+  <img src="Z:/picture/008/save_picture_772775.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772772.jpg" />
+  <img src="Z:/picture/008/save_picture_772772.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772754.jpg" />
+  <img src="Z:/picture/008/save_picture_772754.jpg" />
 </div>
 
 

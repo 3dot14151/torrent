@@ -1,3 +1,148 @@
+###  Публикация: 1113802   (835336) от 13.03.2017
+
+Urma - Nomad Rhymes (2004) [FLAC|Lossless|image + .cue] <Art Rock, Acoustic, Prog rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835336.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 This Time 6:29
+2 Perfect Spot 3:56
+3 Comfort 3:38
+4 After All 4:19(   Читать дальше...   )Жанр: Art Rock, Acoustic, Prog rockПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF322BCA4C12320E9D815DB9AAB22C733658BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501388   (835313) от 10.10.2021
+
+Nuclear Bird - Tyrannical Megalomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835313.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Exposition Of Fools (6:54)
+2. Tyrannical Megalomaniac (4:11)
+3. Addicted To The Water (4:18)
+4. Fascination With The Afterlife (4:08)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275AB5529190CE0440F10E3D42E2951DB868B5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501432   (835308) от 10.10.2021
+
+Kimmo Porsti - Past And Present (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (2:10)
+02. At Lombardy Convent (8:40)
+03. Changewinds (5:40)
+04. Fused (5:04)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3864F31A55A0934376D0F9474B6D99122A737902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113943   (835300) от 13.03.2017
+
+The Sweet Lord Animals - Rise (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 14 Dollars (3:09)
+02. Away (2:16)
+03. Flood (4:45)
+04. Crazy Faces (4:29)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666A7C1512D4D239F322DD3B3930F56BFDCF1104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113738   (835299) от 13.03.2017
+
+Ten Jinn - Alone (2003) [FLAC|Lossless|image + .cue] <Crossover prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who You Are (5:43)
+02. Alone (5:02)
+03. Never Ending Love (5:19)
+04. Felis Feminalis (4:23)(   Читать дальше...   )Жанр: Crossover progПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724B8659A24750BC175C793C3ABFA1DE7C076F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501314   (835193) от 10.10.2021
 
 Yes - The Quest (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
@@ -6,7 +151,7 @@ Yes - The Quest (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835193.jpg" />
+  <img src="Z:/picture/008/save_picture_835193.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Bonnie Tyler - The Collection (2013) 2CD [FLAC|Lossless|tracks + .cue] <Pop-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835082.jpg" />
+  <img src="Z:/picture/008/save_picture_835082.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Marillion + Fish - 17 Albums, 18 CD (1983 - 2003) [FLAC|Lossless|image + .cue]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834867.jpg" />
+  <img src="Z:/picture/008/save_picture_834867.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Thembi - Morning Melody (2009) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833735.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Lost Coast - Lost Coast (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Ambient
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833321.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - NOW Roadtrip Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833306.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - NOW Acoustic Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833305.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Santana - Lotus (1974) 3CD /Reissue, 2006/ [FLAC|Lossless]<Classic Rock,  Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832665.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Robert Palmer - Rhythm & Blues (1999) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832557.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Daturana - Ghosts In The Flowers (2009) [WavPack|Lossless]<Psychedelic/Blues/Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832001.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ One Desire - One Desire (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831964.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Rhizone - Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Ecle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831905.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Hunka Munka - Foreste Interstellari (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831904.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ House Of Lords - Saint Of The Lost Souls (2017) Japanese Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831850.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Peter Straker - This One's On Me (2020) Deluxe Expanded Edition, 3CD Box-Set [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831664.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Jeff Beck - Performing This Week...Live At Ronnie Scott's (2008) [APE|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830913.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Natalie Merchant - Ophelia (1998) HDCD, Tri-fold card-paper sleeve  [APE|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830912.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Robert Palmer - Sneakin' Sally Through The Alley (1974) Remastered, 2013 [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830817.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Electric Light Orchestra - 12 Albums (1971-2001) 13 CD Japan Remastered Reissue 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830579.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ The Donnas - Spend The Night (2002) Expanded Edition, Remastered, 2016, HNE Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829949.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Jeff Beck - History Of Rock 70-80's (1995) [APE|Lossless|image + .cue] <Rock, Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828971.jpg" />
 </div>
 
 
@@ -599,154 +744,6 @@ Jeff Beck - History Of Rock 70-80's (1995) [APE|Lossless|image + .cue] <Rock, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48102EA8484944595BB466C95583D1FDF2C7B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774379   (828905) от 06.04.2014
-
-VA -The Very Best of While My Guitar Gently Weeps 2CD (2008) [FLAC|Lossless]<Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Who -  Who are You  (5:06)
-02.  Joe Walsh -  Life's Been Good  (4:39)
-03.  Stealers Wheel -  Stuck in the Middle With You  (3:23)
-04.  John Stewart -  Gold  (4:21)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EED22032DAD02AB65C7AE4839752944DDC1419C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006628   (826753) от 12.04.2016
-
-Echoes - Barefoot To The Moon: An Acoustic Tribute To Pink Floyd (2015) Unofficial Release [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On Your Crazy Diamond Pt. I-V (13:00)
-02. High Hopes (9:10)
-03. Welcome To The Machine (5:57)
-04. Wish You Were Here (6:18)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0619954E608FF2A6FA3AF77F44BB061857BB5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502553   (826704) от 15.10.2021
-
-Roger Taylor - Outsider (2021) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ро́джер Те́йлор (англ. Roger Meddows Taylor; 26 июля 1949, Кингс-Линн, Норфолк) — британский барабанщик, мультиинструменталист, автор песен, композитор, певец (лирический тенор). Наиболее знаменит как участник группы01. Tides
-02. I Know, I Know, I Know
-03. More Kicks (Long Day's Journey into Night... Life)
-04. Absolutely Anything(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEC5A35F170BB8B5540B1030782E7CF8DFD0E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502247   (826621) от 15.10.2021
-
-Rockets - Alienation (2021) Limited Edition, Numbered [FLAC|Lossless|image + .cue] <Space Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826621.jpg" />
-</div>
-
-
-###  Подробнее
-
-40 ЛЕТ ОЖИДАНИЯ И НАКОНЕЦ-ТО!!!!! ВЫПУСК АЛЬБОМА ROCKETS - ALIENATION - ЛЕГЕНДАРНЫЙ "GHOST ALBUM", КОТОРЫЙ НЕ БЫЛ ВЫПУЩЕН В 1981 ГОДУ. Записан в конце 1980-го начале 1981 года, но так и не был выпущен.
-Восемь невероятных треков.
-Этот альбом должен был стать продолжением фантастического альбома "GALAXY"
-Группа ROCKETS была создана СLAUDE LEMOINE, (   Читать дальше...   )1. Non-Stop
-2. Sky Invaders
-3. Venus Queen
-4. Electromental(   Читать дальше...   )Жанр: Space Rock, New WaveПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF3056E468019559B583BC1940C3618AC537DFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115395   (826549) от 18.03.2017
-
-Phil Collins - Hello, I Must Be Going! (1982) Remaster, 1998, WEA International [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Care Anymore (5:00)
-02. I Cannot Believe It's True (5:14)
-03. Like China (5:05)
-04. Do You Know, Do You Care? (4:57)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085E58DF494CFAAB7019AA58081996F68CDFE4D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

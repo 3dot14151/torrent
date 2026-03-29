@@ -1,3 +1,112 @@
+###  Публикация: 1695533   (120301) от 29.01.2024
+
+Эрих Мария Ремарк | Женщина с золотыми глазами (2024) [MP3, YoWayYo]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120301.jpg" />
+</div>
+
+
+###  Подробнее
+
+В театре, во время перерыва после первого акта, он заметил золотисто-карие глаза и сразу понял, что это именно та женщина, о которой он мечтал с молодости. После спектакля она сказала ему своим прекрасным голосом: "Идем домой"...Жанр: Классика, РассказИздательство: Аудиокнига своими рукамиПродолжительность: 00:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56FDA06F6BF7833951D64E7566375127CC51864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357649   (120216) от 30.01.2024
+
+Карло Гольдони | Слуга двух господ (Радиоспектакль) (2010) [MP3, Лев Дуров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театральный фонограф.
+Забавная история случившаяся 250 лет тому назад, началась с убийства богатого сеньора Федерико, за которого венецианский купец Панталоне обещал выдать свою дочь Клариче. И тогда пришлось Панталоне отдать свою дочь за Сильвио, сына местного доктора. Однако в день помолвки молодых, в дом Панталоне вдруг является убитый Федерико. Только (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияВ ролях: Лев Дуров, Татьяна Божок, Александр Макаров, Дмитрий Кобряков, Екатерина Дурова, Владимир Феофанов, Владимир Ершов, Татьяна Ошуркова, Виктор Поляков и Андрей ЗенинИздательство: АрМир (аудио)Продолжительность: 02:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE347AF5503DEAB66BF15E1122F2F11E3045711B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357716   (120199) от 30.01.2024
+
+Карло Гольдони | Бабьи сплетни (Радиоспектакль) [2003] [MP3, Юрий Яковлев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Всемирная аудиобиблиотека
+Блистательная комедия Карло Гольдони, полная юмора и сарказма, в очередной раз доказывает правоту устоявшихся мнений, что «женщины, безусловно, умеют хранить тайну, но сообща» и, «что дружба двух женщин – всегда заговор против третьей»…
+
+Запись 1957 года из архива «Гостелерадиофонда».Жанр: Классика, комедияВ ролях: Юрий Яковлев, Николай Светловидов, Ростислав Плятт, Ольга Якунина, Борис Иванов, Ангелина СтепановаИздательство: ИД «Союз»Продолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F91B2ED06017A4C14F15710A5C9516DC157887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357653   (120197) от 30.01.2024
+
+Карло Гольдони | Трактирщица (Радиоспектакль) (2009) [MP3, Светлана Письмеченко и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Гольдони написал «Трактирщицу» в 1753 году, а на русский язык пьеса была переведена в середине XIX века. В начале прошлого столетия в переводе Федора Комиссаржевского она получила название «Хозяйка гостиницы». Главная героиня пьесы, Мирандолина – владелица преуспевающего отеля, которая, ловко манипулируя своими постояльцами, доказывает (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияВ ролях: Светлана Письмеченко, Александр Лыков, Сергей Кузнецов, Вячеслав Захаров и Евгений БарановИздательство: «Радио России Санкт-Петербург»Продолжительность: 01:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51792652C27F5958B4FC9ADCDF8E1BEC76ABC35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 324756   (120186) от 30.01.2024
 
 Карел Чапек | Средство Макропулоса (Радиоспектакль) (2008) [MP3, Янина Лисовская и др.]
@@ -6,7 +115,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120186.jpg" />
 </div>
 
 
@@ -35,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120094.jpg" />
 </div>
 
 
@@ -63,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120091.jpg" />
 </div>
 
 
@@ -90,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120063.jpg" />
 </div>
 
 
@@ -117,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120030.jpg" />
 </div>
 
 
@@ -145,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119893.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119861.jpg" />
 </div>
 
 
@@ -199,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119792.jpg" />
 </div>
 
 
@@ -226,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119700.jpg" />
 </div>
 
 
@@ -253,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119699.jpg" />
 </div>
 
 
@@ -281,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119674.jpg" />
 </div>
 
 
@@ -309,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119673.jpg" />
 </div>
 
 
@@ -337,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119386.jpg" />
 </div>
 
 
@@ -365,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119383.jpg" />
 </div>
 
 
@@ -393,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119331.jpg" />
 </div>
 
 
@@ -422,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119327.jpg" />
 </div>
 
 
@@ -449,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119302.jpg" />
 </div>
 
 
@@ -476,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119269.jpg" />
 </div>
 
 
@@ -503,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118579.jpg" />
 </div>
 
 
@@ -530,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118578.jpg" />
 </div>
 
 
@@ -558,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118365.jpg" />
 </div>
 
 
@@ -585,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118219.jpg" />
 </div>
 
 
@@ -597,114 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9629C300B87621C0FB13274CAEDF43FA1167AD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284600   (118180) от 11.02.2024
-
-Николай Лесков | Овцебык (2008) [MP3, Дмитрий Кинге]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Семёнович Лесков (1831–1895) –  русский писатель. Его называли самым национальным из писателей России. Высоко ценивший творчество Н. С. Лескова М. Горький писал о нем: «Жил этот крупный писатель в стороне от публики и литераторов, одинокий и непонятый почти до конца дней. Только теперь к нему начинают относиться более внимательно». Литературная судьба Лескова (   Читать дальше...   )Жанр: Русская литература, классика, рассказПродолжительность: 02:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1627BB99DE8E087946D6DDA261F09D0B599D1421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699067   (118118) от 11.02.2024
-
-А.К. Толстой, Николай Лесков, Сергей Аксаков | Рассказы (2009) [MP3, Георгий Корольчук]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из фонда радио «Град Петров».
-1.Жанр: Русская литература, классика, рассказИздательство: Град ПетровПродолжительность: 05:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EF61DA048588F0705A10DC7A8BF6397B2DB2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699063   (118105) от 11.02.2024
-
-Сергей Аксаков | Семейная хроника (2007) [MP3, Алексей Злаказов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Тимофеевич Аксаков (1791–1859) – русский писатель,  литературный и театральный критик.
-«Тесно стало моему дедушке жить в Симбирской губернии, в родовой отчине своей, жалованной предкам его от царей московских... С некоторого времени стал он часто слышать об Уфимском наместничестве, о неизмеримом пространстве земель...». Так начинает свое повествование о роде (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 08:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A694868DB8227EE65F61BD6EFE74303FE9D499F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292010   (118052) от 12.02.2024
-
-Григорий Данилевский | Царственный узник (Радиоспектакль) (2000) [MP3, Наталья Данилова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у микрофона.
-Петрович Данилевский (1829–1890) – русский писатель, публицист, переводчик, автор художественных произведений, в том числе романов из истории России XVIII—XIX веков.
-Радиоспектакль «Царственный узник» по роману Г. П. Данилевского «Мирович» (1879). В спектакле воспроизведены исторические события эпохи Екатерины II. Неудачная попытка (   Читать дальше...   )Жанр: Русская литература, классика, исторический романВ ролях: Наталья Данилова, Татьяна Иванова, Валерий Соловьев, Вадим Никитин, Андрей ТолубеевИздательство: ТРК «Петербург», НИК и КомпанияПродолжительность: 17:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9A350E9BDF184A59FCC811B06D12A5A3B6FE3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

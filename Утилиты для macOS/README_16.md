@@ -6,7 +6,7 @@ iNet Network Scanner 2.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764463.jpg" />
+  <img src="Z:/picture/008/save_picture_764463.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ iPasscode Unlocker 1.1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764044.jpg" />
+  <img src="Z:/picture/008/save_picture_764044.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ App Uninstaller 4.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763985.jpg" />
+  <img src="Z:/picture/008/save_picture_763985.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Cathode 2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763974.jpg" />
+  <img src="Z:/picture/008/save_picture_763974.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Aquarium 4K - Live Wallpaper 1.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761275.jpg" />
+  <img src="Z:/picture/008/save_picture_761275.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Share Bucket 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761112.jpg" />
+  <img src="Z:/picture/008/save_picture_761112.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ El Capitan Cache Cleaner 10.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760806.jpg" />
+  <img src="Z:/picture/008/save_picture_760806.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ The Archive Browser 1.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760804.jpg" />
+  <img src="Z:/picture/008/save_picture_760804.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ NetWorker 5.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760543.jpg" />
+  <img src="Z:/picture/008/save_picture_760543.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ ShowKeyPro 1.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757024.jpg" />
+  <img src="Z:/picture/008/save_picture_757024.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ BetterZip 4.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756842.jpg" />
+  <img src="Z:/picture/008/save_picture_756842.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Reflector 3.0.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755911.jpg" />
+  <img src="Z:/picture/008/save_picture_755911.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ AppZapper 2.0.3 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755177.jpg" />
+  <img src="Z:/picture/008/save_picture_755177.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Fix My iPhone 2.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755061.jpg" />
+  <img src="Z:/picture/008/save_picture_755061.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Unarchiver 3.11.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754375.jpg" />
+  <img src="Z:/picture/008/save_picture_754375.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Classic Color Meter 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753619.jpg" />
+  <img src="Z:/picture/008/save_picture_753619.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ TinkerTool System 7 v7.71 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753609.jpg" />
+  <img src="Z:/picture/008/save_picture_753609.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ WebScraper 4.15.3 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753522.jpg" />
+  <img src="Z:/picture/008/save_picture_753522.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ PDF Squeezer – PDF Toolbox 6.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753514.jpg" />
+  <img src="Z:/picture/008/save_picture_753514.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Instaradio 8.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753486.jpg" />
+  <img src="Z:/picture/008/save_picture_753486.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Total Adware Doctor 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752946.jpg" />
+  <img src="Z:/picture/008/save_picture_752946.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Fileloupe - Media Browser 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752263.jpg" />
+  <img src="Z:/picture/008/save_picture_752263.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Aiseesoft PDF Converter 3.2.39 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752177.jpg" />
+  <img src="Z:/picture/008/save_picture_752177.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ BalenaEtcher 1.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749919.jpg" />
+  <img src="Z:/picture/008/save_picture_749919.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Typeeto: remote BT keyboard 1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749903.jpg" />
+  <img src="Z:/picture/008/save_picture_749903.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ AnyToISO Pro 3.9.6 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749793.jpg" />
+  <img src="Z:/picture/008/save_picture_749793.jpg" />
 </div>
 
 

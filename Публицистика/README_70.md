@@ -1,3 +1,84 @@
+###  Публикация: 1360527   (242867) от 15.02.2020
+
+Вадим Верник | Книга победителей (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вадим Верник – известный журналист, автор и ведущий программы «2 ВЕРНИК 2» на телеканале «Культура», главный редактор журнала ОК! собрал самые дорогие для него беседы и эссе в отдельную книгу. Собеседники Вадима Верника – звезды театра и кино, музыки и спорта.Жанр: Биографии и Мемуары, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A874D177C4343C81927D01546E4DFE49FB9FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360253   (242747) от 15.02.2020
+
+Янина Жеймо | Длинный путь от барабанщицы в цирке до Золушки в кино (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242747.jpg" />
+</div>
+
+
+###  Подробнее
+
+В почти уже бесклассовом обществе строителей коммунизма каждая школьница, как ни парадоксально, мечтала стать принцессой. Именно так вознаграждались трудолюбие и доброта в сказке Шарля Перро и в ее советской киноверсии. И вера в светлое будущее и торжество справедливости приходила в каждый дом в образе ясноглазой и белокурой Янины Жеймо, сыгравшей роль Золушки. Более (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF34A044B5C9F2DA5AA5B00768DC8CFFEE99DB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362624   (242484) от 24.02.2020
+
+Ю. А. Поляков | Революция защищается (1978) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга повествует о славных страницах героической истории Советских Вооруженных Сил.
+
+Борьба советского народа против интервентов и белогвардейцев в 1918—1920 гг. составила яркую страницу в героической летописи отечественной истории.
+(   Читать дальше...   )Жанр: История, политология, публицистика, социологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F719F26CA22F63BB3942FBB2A70694241DC72CBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543193   (242303) от 12.04.2022
 
 Юрий Мороз | Типичные ошибки мужчин. Книга не для женщин (2020) [PDF, FB2]
@@ -6,7 +87,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242303.jpg" />
+  <img src="Z:/picture/004/save_picture_242303.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242221.jpg" />
+  <img src="Z:/picture/004/save_picture_242221.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239735.jpg" />
+  <img src="Z:/picture/004/save_picture_239735.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238183.jpg" />
+  <img src="Z:/picture/004/save_picture_238183.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238139.jpg" />
+  <img src="Z:/picture/004/save_picture_238139.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238127.jpg" />
+  <img src="Z:/picture/004/save_picture_238127.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238102.jpg" />
+  <img src="Z:/picture/004/save_picture_238102.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236487.jpg" />
+  <img src="Z:/picture/005/save_picture_236487.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235804.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235767.jpg" />
+  <img src="Z:/picture/004/save_picture_235767.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231020.jpg" />
+  <img src="Z:/picture/004/save_picture_231020.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230424.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230073.jpg" />
+  <img src="Z:/picture/005/save_picture_230073.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229886.jpg" />
+  <img src="Z:/picture/005/save_picture_229886.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229321.jpg" />
+  <img src="Z:/picture/004/save_picture_229321.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229196.jpg" />
+  <img src="Z:/picture/004/save_picture_229196.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229100.jpg" />
+  <img src="Z:/picture/004/save_picture_229100.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228929.jpg" />
+  <img src="Z:/picture/004/save_picture_228929.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228542.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227992.jpg" />
+  <img src="Z:/picture/005/save_picture_227992.jpg" />
 </div>
 
 
@@ -539,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227941.jpg" />
+  <img src="Z:/picture/005/save_picture_227941.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227784.jpg" />
+  <img src="Z:/picture/005/save_picture_227784.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_227353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227353.jpg" />
 </div>
 
 
@@ -603,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70503059C90B3D7359E65EB4772EC7F34090B872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965812   (224098) от 15.12.2015
-
-Александр Дугин | Философия войны (2004) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224098.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного российского философа, политолога и публициста А.Г.Дугина «Философия войны» рассказывается о феномене боя, ненависти, силового столкновения регулярных и партизанских частей, о происхождении и становлении воинской касты с древнейших времен до наших дней. Анализ изначальных мифов человеческой цивилизации соседствуете проектами ультрасовременной модернизации (   Читать дальше...   )Жанр: Философия, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4557980643F5983691B4AF139C2934490202AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425050   (223797) от 19.11.2020
-
-Л. М. Гатовский | О роли политических факторов в войне (1944) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война есть продолжение политики иными средствами, — говорил Ленин. Это значит, что цели, характер и методы войны определяются внутренней и внешней политикой, строем государств ведущих войну. Это значит также, что и результаты войны зависят от прочности политической и экономической системы каждой воюющей страны, от политико-морального состояния её армии и тыла. В (   Читать дальше...   )Жанр: История, экономика, политология, социология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352868027D778249CF5E36287FCDA3E708CE2F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342608   (223713) от 02.12.2019
-
-Юджин Сернан, Дональд Дэвис | Последний человек на Луне (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юджин Сернан – один из пионеров программы «Аполлон», второй американский астронавт, вышедший в открытый космос, и последний человек, оставивший след на поверхности Луны. Книга Сернана – правдивый рассказ от первого лица о мужестве и смелости людей, о радости побед и о трудном пути к мечте.Жанр: Биографии и мемуары, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE145B3BABE0CBBB83CAD96DA906792B87ADAEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

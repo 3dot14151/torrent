@@ -1,3 +1,109 @@
+###  Публикация: 1608029   (237029) от 28.01.2023
+
+Bigasoft Video Downloader Pro for Mac 3.25.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft Video Downloader Pro - это популярный одношаговый онлайн-загрузчик и конвертер видео, который помогает быстро загружать и конвертировать видеофайлы для воспроизведения на персональном компьютере, портативном устройстве, мобильном телефоне, mp4-плеере, Apple телевидении и т. д. Мощный инструмент Video Downloader может сохранять онлайн-видео в формате HD, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.012023Разработчик: © 2022 Bigasoft CorporationПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BC4E52EB8A836E028F95336AF98FDE390CC739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607924   (237020) от 28.01.2023
+
+CADintosh X 8.8.3 Beta [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237020.jpg" />
+</div>
+
+
+###  Подробнее
+
+CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2023Разработчик: © 2002-2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7425B26973C0637C51CE102482018D65227ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452613   (237009) от 07.03.2021
+
+Display Maid 3.3.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Maid позволяет сохранять и восстанавливать расположение окон в зависимости от конфигурации дисплея. Если у вас есть ноутбук, который вы используете с одним или несколькими внешними дисплеями, и вам надоело переставлять окна каждый раз при подключении / отключении дисплея, тогда Display Maid для вас.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2021Разработчик: Funk-iSoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56958A0E993CA529D7834B01517D589414C4433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608005   (236999) от 28.01.2023
+
+Bigasoft Audio Converter for Mac 5.7.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft Audio Converter для Mac, все-в-одном аудио преобразователь для Мас, предоставляет легкий путь для преобразования всех популярных аудиоформатов, включая WMA, MP3, APE, M4A, AAC, AC3, WAV, OGG, AUD, AIFF, CAF, FLAC, и другие дляMac OS X Lion, Snow Leopard, Tiger, и Leopard.
+Извлечение аудиодорожек из видеофайлов разных форматов.
+Например, MP4, MOV, AVI, MPEG, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2023Разработчик: © 2021 Bigasoft CorporationПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20470B8B0719622DC45630B5AB63672C969863EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452663   (236989) от 07.03.2021
 
 A Better Finder Rename 11 v11.29 [Multi]
@@ -6,7 +112,7 @@ A Better Finder Rename 11 v11.29 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236989.jpg" />
+  <img src="Z:/picture/005/save_picture_236989.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236985.jpg" />
+  <img src="Z:/picture/005/save_picture_236985.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Reader for Mac 4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236956.jpg" />
+  <img src="Z:/picture/005/save_picture_236956.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Multitouch 1.24.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236944.jpg" />
+  <img src="Z:/picture/005/save_picture_236944.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ DirEqual 5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236938.jpg" />
+  <img src="Z:/picture/005/save_picture_236938.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ TaskPaper 3.8.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236931.jpg" />
+  <img src="Z:/picture/005/save_picture_236931.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236923.jpg" />
+  <img src="Z:/picture/005/save_picture_236923.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236920.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236917.jpg" />
+  <img src="Z:/picture/005/save_picture_236917.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236913.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ Find Any File (FAF) 2.3 b10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236905.jpg" />
+  <img src="Z:/picture/005/save_picture_236905.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ Cisdem Duplicate Finder 5.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236891.jpg" />
+  <img src="Z:/picture/005/save_picture_236891.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ Dynamic Wallpaper 14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236890.jpg" />
+  <img src="Z:/picture/005/save_picture_236890.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ Aiseesoft Mac FoneLab for Android 5.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236887.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ Mac FoneLab Android Data Recovery 3.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236869.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ Data Guardian 6 v.6.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236866.jpg" />
+  <img src="Z:/picture/005/save_picture_236866.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ MacMagic 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236858.jpg" />
+  <img src="Z:/picture/005/save_picture_236858.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ Live Wallpaper & Themes 4K Pro 16.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236857.jpg" />
+  <img src="Z:/picture/005/save_picture_236857.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ File Juicer 4.93 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236849.jpg" />
+  <img src="Z:/picture/005/save_picture_236849.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ Affinity Designer 2 v.2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236848.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ BetterTouchTool 3.9993 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236846.jpg" />
+  <img src="Z:/picture/005/save_picture_236846.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ Network & Battery 12.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236836.jpg" />
+  <img src="Z:/picture/005/save_picture_236836.jpg" />
 </div>
 
 
@@ -577,111 +683,6 @@ Network & Battery 12.2.4 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:771C27C86B5BD45CCCF82C03E850BE9C103F94A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641069   (236825) от 20.06.2023
-
-Affinity Photo 2 v.2.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 12.06.2023Разработчик: © 2022 Serif (Europe) LtdПоддерживаемая ОС: OS X 10.15 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5669EFEBFF7E5AABB1692860A206D76213628DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608765   (236823) от 31.01.2023
-
-GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236823.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2023Разработчик: © 2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A126149A9F8B30276E250CAFB31D801546606D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608646   (236813) от 31.01.2023
-
-Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3845DDBECE127C3E5412438A107419C5AE9F830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455689   (236806) от 20.03.2021
-
-Tempomate 4.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tempomate - умный и красивый метроном.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2021Разработчик: Rene LasseronПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A789D926A924979DBD48E27734B275F0781D7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

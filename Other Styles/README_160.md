@@ -1,3 +1,61 @@
+###  Публикация: 1195052   (152123) от 27.12.2017
+
+O. D. Davey - Some Waking Woman (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Some Waking Woman
+02. Every Rebel Campaign
+03. Two Fingers Flicked
+04. The Way Home(   Читать дальше...   )Жанр: Folk, IndieПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BC670FBFD57D05950E4D176796BDEE26A7A119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738521   (152114) от 25.12.2013
+
+Юрий Пашалы - Для влюблённых... в аккордеон. Музыка для души (2007) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Брызги шампанского (А.М. Люкери) (3:26)
+02. Домино (Плане-Ферари) (3:05)
+03. Тико-тико (З. Эбрю) (4:42)
+04. Танго любви (А. Пьяццола) (5:20)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B6899F2EA71917DC87E98DC6AB30319897A8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086332   (152101) от 24.12.2016
 
 Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +64,7 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152101.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Ved
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151762.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151589.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150463.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150433.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150063.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150010.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Rammstein - Klavier (2015) Piano Version [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149998.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Heilung - Drif (2022) [FLAC|Lossless|Web-DL|tracks] <Neofolk, Dark Folk, Experim
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149097.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148968.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|imag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148693.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148556.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Molotohvin Koktaili - Sota-ajan propagandaa levyillä 1940-42 (1940-1942) [MP3|2
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148407.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, Worl
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148344.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ VA - Country Christmas Greatest Hits (2016) [MP3|320 Kbps] <Country, Pop, Soul, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148199.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ She & Him - Christmas Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Ind
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148136.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ Theodore Shapiro - Collateral Beauty / Призрачная красота (Orig
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148126.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ Theodore Shapiro - Collateral Beauty / Призрачная красота (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148106.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ VA - A New You (2015) 3CD [MP3|320 кб/с] <Relax, Pop, Nu Jazz, Easy Listening
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147570.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ Concrescence - Obscured By The Dark Years (2006) [FLAC|Lossless|image + .cue] <N
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147471.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147407.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ VA - Cyberpunk 2077- Radio, Vol. 1-3 (2020) OST [MP3|320 Kbps] <Films-Games, Fil
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147210.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147113.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear M
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147092.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36381591E3BE4018B21762B2DD28279CBBBF3759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271690   (147074) от 25.12.2018
-
-Johnny Cash - More Cash (2018) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Folsom Prison Blues
-02. Big River
-03. Get Rhythm
-04. Katy Too(   Читать дальше...   )Жанр: CountryПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D277BC42D1B0CB2DEE0CE7E0B7AA98AB595668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271804   (146870) от 25.12.2018
-
-VA - Свадебный хит (Весільний хіт) (2006-2010) 6CD [MP3|320 Kbps] <Folk, Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В.Іжицький - Дай, кума
-02. Б.Сичевський - Чоботи
-03. І.Книжник - Чорна редька
-04. Б.Сичевський - Ой, Марічко, чичері(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 05:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B534796407FF1A98ABEDEC80BC8C3C76E532105
 ```
 
 https://mybot314.ru/tekegram_catalog/

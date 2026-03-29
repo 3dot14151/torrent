@@ -1,3 +1,81 @@
+###  Публикация: 1452465   (244545) от 06.03.2021
+
+Своя игра (06.03.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E15850788346CA67E5362FB95161A8E1E03B23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452428   (244456) от 07.03.2021
+
+Сто к одному (06.03.2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AB150B421ECBBA47BB5B5C5F47E48A952E0904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452680   (244397) от 07.03.2021
+
+Сто к одному (07.03.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3965A66A2399F4F4C45E2F16CD5E20050304A200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452423   (244322) от 07.03.2021
 
 Пятеро на одного (06.03.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244322.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244318.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244189.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244141.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244058.jpg" />
+  <img src="Z:/picture/004/save_picture_244058.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243820.jpg" />
+  <img src="Z:/picture/004/save_picture_243820.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243819.jpg" />
+  <img src="Z:/picture/004/save_picture_243819.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243599.jpg" />
+  <img src="Z:/picture/005/save_picture_243599.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243460.jpg" />
+  <img src="Z:/picture/004/save_picture_243460.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242801.jpg" />
+  <img src="Z:/picture/004/save_picture_242801.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242798.jpg" />
+  <img src="Z:/picture/005/save_picture_242798.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242587.jpg" />
+  <img src="Z:/picture/005/save_picture_242587.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242580.jpg" />
+  <img src="Z:/picture/005/save_picture_242580.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242561.jpg" />
+  <img src="Z:/picture/005/save_picture_242561.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241681.jpg" />
+  <img src="Z:/picture/004/save_picture_241681.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241534.jpg" />
+  <img src="Z:/picture/004/save_picture_241534.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241482.jpg" />
+  <img src="Z:/picture/004/save_picture_241482.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241480.jpg" />
+  <img src="Z:/picture/004/save_picture_241480.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241411.jpg" />
+  <img src="Z:/picture/004/save_picture_241411.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240992.jpg" />
+  <img src="Z:/picture/004/save_picture_240992.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240968.jpg" />
+  <img src="Z:/picture/005/save_picture_240968.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240927.jpg" />
+  <img src="Z:/picture/005/save_picture_240927.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240912.jpg" />
+  <img src="Z:/picture/004/save_picture_240912.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6BEC002205584BAA2B58A965A892D729701DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620305   (240787) от 19.03.2023
-
-Своя игра (19.03.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833AD684130A3E98B14F71367C5CE3D7FEF98F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549634   (240562) от 07.05.2022
-
-Пятеро на одного (07.05.2022) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F4EEF872D0CF9147E7410AE88FA1235BA12F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549631   (240543) от 07.05.2022
-
-Сто к одному (07.05.2022) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB99D3616DAF37D76EB9FCE2506FC3B4859C797F
 ```
 
 https://mybot314.ru/tekegram_catalog/

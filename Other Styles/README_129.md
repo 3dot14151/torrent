@@ -1,3 +1,61 @@
+###  Публикация: 1420627   (331896) от 01.11.2020
+
+James Last & Richard Clayderman - Traummelodien (1990) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonnenschein über den Wolken
+02. Karussell der Liebe
+03. Aliscia
+04. Distant Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6A4A5C869A0BD0DD21F8332E0CE8EAAC336D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420649   (331270) от 02.11.2020
+
+VA - Идеальный голос / Ultimate Pitch Perfect OST (2015) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna Kendrick - Cups (When I'm Gone) Pop Version (2:08)
+02. The Treblemakers - Don't Stop the Music (3:05)
+03. The Outfit - 212 vs. Bust a Move (1:27)
+04. The Treblemakers - Let it Whip (2:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDFEF10540172BD2168F92AFE9B6090DD7E6176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956041   (331148) от 13.11.2015
 
 Saulius Petreikis & The Unit 7 Allstars - Lowlands (2014) [OGG| 405-493 кб/с]<World, Folk, African, Celtic, Persian Classical, Relax>
@@ -6,7 +64,7 @@ Saulius Petreikis & The Unit 7 Allstars - Lowlands (2014) [OGG| 405-493 кб/с]
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331148.jpg" />
+  <img src="Z:/picture/008/save_picture_331148.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330580.jpg" />
+  <img src="Z:/picture/008/save_picture_330580.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329913.jpg" />
+  <img src="Z:/picture/008/save_picture_329913.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ Hans Zimmer - Interstellar (2014) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Sco
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329886.jpg" />
+  <img src="Z:/picture/008/save_picture_329886.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329021.jpg" />
+  <img src="Z:/picture/008/save_picture_329021.jpg" />
 </div>
 
 
@@ -155,7 +213,7 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328966.jpg" />
+  <img src="Z:/picture/008/save_picture_328966.jpg" />
 </div>
 
 
@@ -184,7 +242,7 @@ Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary G
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328444.jpg" />
+  <img src="Z:/picture/008/save_picture_328444.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328419.jpg" />
+  <img src="Z:/picture/008/save_picture_328419.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ Soulwire (Ken Hill) - три альбома (2006-2011) дискография [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328414.jpg" />
+  <img src="Z:/picture/008/save_picture_328414.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327551.jpg" />
+  <img src="Z:/picture/008/save_picture_327551.jpg" />
 </div>
 
 
@@ -300,7 +358,7 @@ VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327544.jpg" />
+  <img src="Z:/picture/008/save_picture_327544.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327503.jpg" />
+  <img src="Z:/picture/008/save_picture_327503.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327338.jpg" />
+  <img src="Z:/picture/008/save_picture_327338.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Luca Stricagnoli - Luca Stricagnoli (2015) [FLAC|Lossless|WEB-DL]<Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327328.jpg" />
+  <img src="Z:/picture/008/save_picture_327328.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Trevor Morris - Dragon Age: Inquisition (2014) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327302.jpg" />
+  <img src="Z:/picture/008/save_picture_327302.jpg" />
 </div>
 
 
@@ -451,7 +509,7 @@ Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326721.jpg" />
+  <img src="Z:/picture/008/save_picture_326721.jpg" />
 </div>
 
 
@@ -480,7 +538,7 @@ Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326707.jpg" />
+  <img src="Z:/picture/008/save_picture_326707.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|tracks]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325690.jpg" />
+  <img src="Z:/picture/008/save_picture_325690.jpg" />
 </div>
 
 
@@ -538,7 +596,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|image + .cue] <New Age, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325632.jpg" />
+  <img src="Z:/picture/008/save_picture_325632.jpg" />
 </div>
 
 
@@ -567,7 +625,7 @@ VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Elect
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325628.jpg" />
+  <img src="Z:/picture/008/save_picture_325628.jpg" />
 </div>
 
 
@@ -596,7 +654,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [MP3|320 кб/с]<New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325619.jpg" />
+  <img src="Z:/picture/008/save_picture_325619.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325436.jpg" />
+  <img src="Z:/picture/008/save_picture_325436.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324962.jpg" />
+  <img src="Z:/picture/008/save_picture_324962.jpg" />
 </div>
 
 
@@ -683,7 +741,7 @@ Orchestra Ennio Morricone - Once Upon A Time In The West (1969) /1995, RCA/ [FLA
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323878.jpg" />
+  <img src="Z:/picture/008/save_picture_323878.jpg" />
 </div>
 
 
@@ -697,64 +755,6 @@ Orchestra Ennio Morricone - Once Upon A Time In The West (1969) /1995, RCA/ [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FDB791B8CF5F15E22C432E978F274FCDFE68DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633183   (323652) от 21.11.2015
-
-Ассия Ахат - 7 альбомов (2002-2007) [FLAC|Lossless] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323652.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002 - Тебе, Анаис
-2003 - Homo Novus
-2003 - Шоколад
-2005 - Душа болела(   Читать дальше...   )Жанр: New AgeПродолжительность: 05:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CD72E5E4BDB5E21BC32C55558FD868DB7D1A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181223   (323509) от 07.11.2017
-
-Yiruma - Blind Film (2014) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/11. Beginning : Playing The Scene (2:33)
- 02/11. Blind Film (4:00)
- 03/11. Walzer (2:28)
- 04/11. Serenade (4:02)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8590F544FA17B52E6641F8318FA2D0FF3B15B4EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

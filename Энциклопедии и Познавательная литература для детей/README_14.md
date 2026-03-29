@@ -1,3 +1,55 @@
+###  Публикация: 979771   (958288) от 27.01.2016
+
+Станислав Зигуненко идр. | Как это устроено? (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник произведений популяризаторов науки М.Собе-Панек, Л.Яхнина и С.Зигуненко "Как это устроено" расскажет о том, как устроены машины, ракеты, космические станции, корабли, разнообразные дома мира. Вы узнаете историю создания, принцип действия и устройство каждого из объектов: как работают двигатель внутреннего сгорания, реактивный двигатель, электрический (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63DBC771353130227AF2E92C815D1B0AD2CCC3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360953   (958089) от 17.02.2020
+
+А.А. Спектор, Л.Л. Лобанова | О химических элементах (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена для тех, кто хочет знать все о химических элементах — своеобразных «кирпичиках», из которых построен наш удивительный мир. Необычные истории их открытия, распространение, свойства и, конечно же, их практическое применение представлены здесь в виде интересных емких статей. Многочисленные иллюстрации и поясняющие схемы сделают чтение более увлекательным. (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FAF67DCC8CFD1BEF4F23E031A75BA67BB84D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361182   (956747) от 18.02.2020
 
 А.А. Спектор | Краткая история мира (2018) [PDF]
@@ -6,7 +58,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956747.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956691.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953914.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950723.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946397.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945859.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945671.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944379.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938154.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933484.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933483.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933416.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933323.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933256.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931969.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931961.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929939.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924181.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924090.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923574.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923559.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922252.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920801.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920678.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D6793BBA0379C4B56EFF07D9D23E39599B2E822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366797   (920297) от 13.03.2020
-
-Вячеслав Волков | Огнестрельное оружие. Иллюстрированный путеводитель (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огнестрельное оружие даво и прочно стало легендой, оставив заметный след в истории вооружений человечества. Невозможно представить себе освоение Дальнего Запада без «Кольта» и «Винчестера», а историю XX века без «Максима», «Маузера», и «Калашникова». Издание предназначено для широкого круга читателей, коллекционеров, а также всех тех, кто интересуется историей развития (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3522C7AD40B06CDEFACAF56AA82BF4065D821178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367035   (918764) от 14.03.2020
-
-Вячеслав Волков | Ножи. Иллюстрированный путеводитель (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами прекрасно иллюстрированный обзор ножей всех видов : от обычных до экзотических и авангардистских, от карманных до грозного оружия войны. Здесь представлены лучшие ножи, собранные со всего мира. Наша книга - прекрасный подарок для всех, влюбленных в стальной клинок.Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C4CAF77E805D9459F740FAFA70AAD75179BB550
 ```
 
 https://mybot314.ru/tekegram_catalog/

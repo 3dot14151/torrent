@@ -1,3 +1,56 @@
+###  Публикация: 1203079   (36315) от 24.11.2024
+
+Ольга Сергеевна (1975) DVDRip (серии 1-8 из 8)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини-сериал снят по повести Эдварда Радзинского «Воспоминания…».
+Фильм рассказывает о судьбе крупного учёного, океанолога Ольги Сергеевны. Через всю свою жизнь Ольга Сергеевна пронесла любовь лишь к одному человеку, с которым ей так и не суждено было обрести счастье.Производство: СССРЖанр: драмаРежиссер: Александр ПрошкинАктеры: Татьяна Доронина, Армен Джигарханян, Лев Дуров, Валентин Гафт, Татьяна Карпова, Марина Неёлова, Ростислав Плятт, Сергей Проханов, Константин Райкин, Олег Ефремов и др.Продолжительность: ~01:07:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7DFF3A9F65175E7511C53A6546682951313F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724026   (36229) от 25.11.2024
+
+ТАСС уполномочен заявить... (1984) DVDRip [H.265/1080p] (серии 1-10 из 10) [hand made Upscale AI]
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36229.jpg" />
+</div>
+
+
+###  Подробнее
+
+События фильма происходят в Москве во времена “холодной войны”, перенося нас из столицы в несуществующую в реальности страну Луисбург, находящейся в Африке. К агентам КГБ попадает информация, что в Москве под прикрытием действует тайный агент службы ЦРУ, имеющий кодовую кличку Трианон. Его подозревают в сборе и передачи американским спецслужбам данных о состоянии (   Читать дальше...   )Производство: СССР / Киностудия им. М. ГорькогоЖанр: детектив, приключения, экранизация, реальные событияРежиссер: Владимир ФокинАктеры: Вячеслав Тихонов, Юрий Соломин, Вахтанг Кикабидзе, Алексей Петренко, Эльвира Зубкова, Леонид Куравлёв, Борис Клюев, Николай Скоробогатов, Ирина АлфёроваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:06:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C3D93259EF8D0B9AC91B124C512E2539EB40FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762240   (35686) от 30.11.2024
 
 Долгая дорога в дюнах (1980) DVDRip (серии 1-7 из 7)
@@ -6,7 +59,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35686.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35272.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33518.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33470.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31753.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30060.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28813.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28600.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28091.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26338.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25703.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23705.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23049.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22105.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22014.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21709.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21537.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21142.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20940.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20647.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20222.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19622.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18872.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18648.jpg" />
 </div>
 
 
@@ -626,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E9A878C65C7ED98EED7EF4174449E1FE4424681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653350   (18140) от 16.05.2025
-
-Поднятая целина (1959-1961) DVDRip [H.264] (серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18140.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноимённого романа Михаила Шолохова.
-Ленинградский рабочий Давыдов приезжает в казачий хутор Гремячий Лог с целью помочь донскому казачеству перейти к новым, коллективным формам хозяйства. Кулаки умело используют ошибки руководителя местной партийной организации Макара Нагульнова, восстанавливая против него бедняков.
-Давыдову удается организовать колхоз. (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: драмаРежиссер: Александр ИвановАктеры: Петр Чернов, Евгений Матвеев, Федор Шмаков, Владимир Дорофеев, Людмила Хитяева, Петр Глебов, Виктор Чекмарев, Леонид Кмит, Олег Ярошенко, Иосиф Кутянский и др.Продолжительность: ~01:35:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F4185A86367B43C37584763094A384029FAB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156926   (17939) от 18.05.2025
-
-В лесах под Ковелем (1984) DVDRip (серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17939.jpg" />
-</div>
-
-
-###  Подробнее
-
-О партизанском соединении, действовавшем в 1943 году в районе Ковельского железнодорожного узла.Производство: СССРЖанр: военный, историяРежиссер: Юрий ТупицкийАктеры: Алексей Булдаков, Виктор Уральский, Анатолий Гурьев, Виктор Фокин, Леонид Белозорович, Наталья Сумская, Борис Халеев, Геннадий Болотов, Виталий Дорошенко, Игорь Слободской и др.Продолжительность: ~01:03:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F47BE8C539404BB39578A484C680992B2FFB49
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1709040   (62022) от 23.03.2024
+
+4K YouTube to MP3 Pro for Mac 5.2.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62022.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 22.03.2024Разработчик: © 2024 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCA2A97250678786B1ECBA3F1F61C48047282CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709038   (62010) от 23.03.2024
+
+4K Video Downloader + 1.5.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECE18E91621CACDC723EBC193B27E7A3FF76C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710133   (61711) от 26.03.2024
+
+Swinsian 3.0 Preview 15 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swinsian — простой аудио плеер с функцией управлениями файлами вашей музыкальной коллекции. К основным возможностям следует отнести:
+● Поддержку форматов FLAC/Ogg Vorbis, а так же MP3, AAC, WAV, APE, AC3, WavPack, WMA и CUE файлов
+● Быстрое и эффективное управление
+● Импорт библиотеки iTunes(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 SwinsianПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB53A2437DDAA58008F6ED4797CE381C46F1413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710110   (61691) от 26.03.2024
+
+PullTube 1.8.5.30 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A34B0F09D0564E78C815271F0D0B0F27B6F986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711012   (61513) от 28.03.2024
 
 Elmedia Player Pro 8.18 [Multi/Ru]
@@ -6,7 +113,7 @@ Elmedia Player Pro 8.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61513.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Elmedia Video Player Pro 8.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61449.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Allavsoft Video Downloader Converter 3.27.0.8852  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61308.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ OmniPlayer Pro - Media Player 2.1.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61091.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ Wondershare UniConverter for Mac 15.5.5 Intel/ARM [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61015.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ Downie 4 v.4.7.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61008.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ Bigasoft Total Video Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60888.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ Bigasoft Audio Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60872.jpg" />
 </div>
 
 
@@ -221,7 +328,7 @@ Movist Pro 2.11.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30375.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_792.jpg" />
 </div>
 
 

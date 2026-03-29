@@ -1,3 +1,148 @@
+###  Публикация: 1618070   (241738) от 10.03.2023
+
+Kitchen Sink - Clandestiny  (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kitchen Suite [00:13:49]
+02. Outside [00:06:16]
+03. La Bestia [00:09:07]
+04. Clown Analysis [00:03:39](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FA9BE0945866F0D98BC397467E99032AB07429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635529   (241646) от 26.05.2023
+
+Sweat - Who Do They Think They Are? (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_241646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament
+02. Errors
+03. Convenient Bird
+04. Jane(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19C57AC61C322995BDED6105454DF7743B9CF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459807   (241645) от 03.04.2021
+
+Harry Chapin - Cats In the Cradle (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cats In the Cradle
+02. Taxi
+03. W*O*L*D*
+04. I Wanna Learn a Love Song(   Читать дальше...   )Жанр: Rock FolkПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC82A84022679EBF8BB0145397E6B1F544E54D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625527   (241641) от 10.04.2023
+
+Motus - Here Comes the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Bluesy, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloom [00:04:55]
+02. Wormsurfer [00:05:43]
+03. Blitz [00:02:51]
+04. These Days [00:02:39](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Bluesy, 70'sПродолжительность: 00:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3854CF3FA40308A5D78D212B72E74D3FB49DA615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625526   (241632) от 10.04.2023
+
+Kreeature - Two Leaves / Dos Hojas (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Funk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road to Death [00:04:37]
+02. The Sound of Money [00:05:48]
+03. Footprints in the Sand [00:06:54]
+04. The Parable of the Sower [00:05:26](   Читать дальше...   )Жанр: Progressive Rock, Funk RockПродолжительность: 2 CD, 02:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1071EA212CC901104DD2487877EFB099A1C8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625521   (241625) от 10.04.2023
 
 Dead Shaman - Under the Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Acid>
@@ -6,7 +151,7 @@ Dead Shaman - Under the Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241625.jpg" />
+  <img src="Z:/picture/004/save_picture_241625.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Adventure - Tales of Belle Part 1: Across the Ocean (2022) [FLAC 2.0|44.1/24|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241621.jpg" />
+  <img src="Z:/picture/004/save_picture_241621.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Black eXpression - Mundo Real (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241612.jpg" />
+  <img src="Z:/picture/004/save_picture_241612.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ The Bad Ends - The Power And The Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241597.jpg" />
+  <img src="Z:/picture/004/save_picture_241597.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Raveonettes - Chain Gang Of Love (2003) [FLAC|Lossless|image + .cue] <Indie 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241581.jpg" />
+  <img src="Z:/picture/004/save_picture_241581.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Lee Kerslake - Eleventeen (2021) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241573.jpg" />
+  <img src="Z:/picture/004/save_picture_241573.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Jaimee Harris - Boomerang Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241563.jpg" />
+  <img src="Z:/picture/004/save_picture_241563.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Murderbait - Nostalgia Like Cancer (2022) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241545.jpg" />
+  <img src="Z:/picture/004/save_picture_241545.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Hit The Ground Runnin' - Sudden Impact (1989) 2xCD, Reissue, Remastered, 2022, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241528.jpg" />
+  <img src="Z:/picture/004/save_picture_241528.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - Rock 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241509.jpg" />
+  <img src="Z:/picture/004/save_picture_241509.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Creye - III Weightless (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241471.jpg" />
+  <img src="Z:/picture/004/save_picture_241471.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Dangermuffin - Heritage (2017) [FLAC|Lossless|tracks + .cue] <Folk Rock, America
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241458.jpg" />
+  <img src="Z:/picture/004/save_picture_241458.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Van der Graaf Generator - The Bath Forum Concert (2023) Live, 2CD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241385.jpg" />
+  <img src="Z:/picture/004/save_picture_241385.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Santana - Santana Live In 1978: Black Magic Woman (Live) (2022) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241374.jpg" />
+  <img src="Z:/picture/004/save_picture_241374.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Hawkwind - Days Of The Underground: The Studio & Live Recordings 1977-1979 (2023
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241360.jpg" />
+  <img src="Z:/picture/004/save_picture_241360.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Neil Young - Promise of the Real - Noise and Flowers (2022) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241348.jpg" />
+  <img src="Z:/picture/004/save_picture_241348.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Richard Wright - Wet Dream (1978) Japanese Edition, Reissue, 1994, Sony Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241300.jpg" />
+  <img src="Z:/picture/004/save_picture_241300.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ Ringo Starr - La De Da (1998) Single [FLAC|Lossless|image + .cue] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241237.jpg" />
+  <img src="Z:/picture/004/save_picture_241237.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ The Beau Brummels - Triangle (1967) Reissue, 1993, Warner Bros. [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241233.jpg" />
+  <img src="Z:/picture/004/save_picture_241233.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ Dreams In Stereo - Chapter 2- Foreign Man (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241201.jpg" />
+  <img src="Z:/picture/004/save_picture_241201.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ BSFOE - The Siege on Phobos and Deimos (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241183.jpg" />
+  <img src="Z:/picture/004/save_picture_241183.jpg" />
 </div>
 
 
@@ -602,151 +747,6 @@ BSFOE - The Siege on Phobos and Deimos (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3967D62049CF82C5E840803C42EB4D4F7DB571E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119853   (241179) от 29.03.2017
-
-The Jelly Jam - Profit (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Care (5:47)
-02. Stain On The Sun (3:09)
-03. Water (4:58)
-04. Stop (3:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC706E93083C3938C27ECEACF2B5FDFCC451533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547789   (241104) от 30.04.2022
-
-The William Loveday Intention - Early Demos, Vol. 2 (The Devil and God Entwined) (2022) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock, Psychedelic, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Make Me Die [02:42]
-02. Das Lied Der Kriegsmarine (Take 2) [02:25]
-03. The Angel of Death [03:08]
-04. I Don't Like the Man I Am (Take 2) [04:22](   Читать дальше...   )Жанр: Garage Rock, Psychedelic, Blues RockПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42D821297359E1438DCF161CDD568ED37D6E62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461756   (241095) от 14.04.2021
-
-Dominoe - The Lost Radio Show (2018) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Sugar (4:35)
-02. Satellite (3:39)
-03. Dark Dogs (3:30)
-04. Angel Don't Cry (3:45)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106A70B3F61B98126CA442144FF2F6C0B416B7D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017075   (241085) от 17.04.2022
-
-VA - The Rock: The Ultimate Collection (2011) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название Ultimate Collection ко многому обязывает. Но думаю, Sony Music вполне справилась с этой задачей. Такого сборника классического рока (сбалансированного и по исполнителям и по классическим трекам) достаточно трудно найти. Многие найдут для себя какие-то новые имена, а кто-то просто вспомнит как это всё было...CD1:
-01. Sweet - Ballroom Blitz  (4:03)
-02. Toto - Hold The Line  (3:57)
-03. Survivor - Eye Of The Tiger  (4:06)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C39B48627A98DD557C50296B9E7DC3E095732E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625656   (241036) от 11.04.2023
-
-VA - 70s Lost & Found (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Don't Stop (2018 Remaster)
- 02. Hot Chocolate - Every 1's a Winner (Single Version)
- 03. Chicago - Baby, What a Big Surprise
- 04. Aretha Franklin - Until You Come Back to Me (That's What I'm Gonna Do)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAB818E955030F387DDE24D17529756BBC8D825
 ```
 
 https://mybot314.ru/tekegram_catalog/

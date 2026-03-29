@@ -6,7 +6,7 @@ Carto v1.0.2 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337398.jpg" />
+  <img src="Z:/picture/008/save_picture_337398.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Scooby-Doo! and the Spooky Swamp [WineSkin]
 >>Kinder Games для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_337302.jpg" />
+  <img src="Z:/picture/005/save_picture_337302.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Darksiders II [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337287.jpg" />
+  <img src="Z:/picture/008/save_picture_337287.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Iron Sky: Invasion [Native]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_337284.jpg" />
+  <img src="Z:/picture/005/save_picture_337284.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Never Alone Arctic Collection v. 2.0.0.1 (2014) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336668.jpg" />
+  <img src="Z:/picture/008/save_picture_336668.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Blasphemous v2.0.27 (2019) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335209.jpg" />
+  <img src="Z:/picture/008/save_picture_335209.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Kingdom Two Crowns (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334671.jpg" />
+  <img src="Z:/picture/008/save_picture_334671.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FAR: Lone Sails v. 1.21 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334403.jpg" />
+  <img src="Z:/picture/008/save_picture_334403.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Lilly Looking Through 1.1.50 (2014) [Ru/Multi] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333692.jpg" />
+  <img src="Z:/picture/008/save_picture_333692.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333260.jpg" />
+  <img src="Z:/picture/008/save_picture_333260.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332848.jpg" />
+  <img src="Z:/picture/008/save_picture_332848.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Fallout 1 от MacPlay [Eng]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331567.jpg" />
+  <img src="Z:/picture/008/save_picture_331567.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ The Baconing [Native] [RUS]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325695.jpg" />
+  <img src="Z:/picture/008/save_picture_325695.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Game of Thrones: A Telltale Games Series. Episode 1-6 v. 1.0 (2015) [En] [OS X N
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325476.jpg" />
+  <img src="Z:/picture/008/save_picture_325476.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Call of Duty 4: Modern Warfare v. 1.7.495 (2008) [Ru] [OS X Native game]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325414.jpg" />
+  <img src="Z:/picture/008/save_picture_325414.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Tropico 4 + Modern Time [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_321884.jpg" />
+  <img src="Z:/picture/005/save_picture_321884.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Overland v849 (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321537.jpg" />
+  <img src="Z:/picture/008/save_picture_321537.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Tomb Raider v1.2 GOTY Edition (2013) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321531.jpg" />
+  <img src="Z:/picture/008/save_picture_321531.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ The Saboteur (2009) [Ru] [macOS Cider]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318461.jpg" />
+  <img src="Z:/picture/008/save_picture_318461.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Valkyria Chronicles (2014) [Ru] [OS X WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318189.jpg" />
+  <img src="Z:/picture/008/save_picture_318189.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Game of Thrones: A Telltale Games Series. Episode 1-6 v. 1.0 (2015) [Ru] [OS X N
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316213.jpg" />
+  <img src="Z:/picture/008/save_picture_316213.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Abandon Ship v1.3.14934 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315058.jpg" />
+  <img src="Z:/picture/008/save_picture_315058.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Memoranda  [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311834.jpg" />
+  <img src="Z:/picture/008/save_picture_311834.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ State of Mind  [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311678.jpg" />
+  <img src="Z:/picture/008/save_picture_311678.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ HardWest v.1.5.1118 (2015) [Multi/Ru] [OS X Native game]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311553.jpg" />
+  <img src="Z:/picture/008/save_picture_311553.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Magicka 2 v. 1.1.2.0 (2015) [Multi/Ru] [OS X Native game]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311547.jpg" />
+  <img src="Z:/picture/008/save_picture_311547.jpg" />
 </div>
 
 

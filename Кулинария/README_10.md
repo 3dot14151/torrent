@@ -1,3 +1,29 @@
+###  Публикация: 1099233   (906630) от 31.01.2017
+
+Наталия Попович | Сочные блюда из курицы (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906630.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Что вкусного и полезного подать на ужин? Чем порадовать неожиданных гостей? Какой доступный продукт станет основой для массы аппетитных и всевозможных блюд? Конечно же курица! Открывайте книгу и убедитесь сами! Нежнейшие отбивные, ароматные котлетки, окорочка гриль с золотистой корочкой, хрустящие наггетсы, аппетитное филе с грибами, овощами и фруктами, (   Читать дальше...   )Жанр: КулинарияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA429C43D9993D114FF47836CC23C8C8A751E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099312   (904758) от 01.02.2017
 
 Ольга Кузьмина | Быстрое консервирование. Холодное и горячее. Овощи, грибы, зелень, фрукты, ягоды (2016) [RTF, FB2]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904758.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904036.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903543.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903465.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903132.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902962.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902519.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902511.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902444.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900163.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900055.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900041.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900035.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899866.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899058.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898950.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898387.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_896216.jpg" />
+  <img src="Z:/picture/009/save_picture_896216.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_896047.jpg" />
+  <img src="Z:/picture/009/save_picture_896047.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895854.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893578.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893414.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893413.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893358.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893341.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A1AC1FC3D278F17942466289245E10E421CA7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102268   (892504) от 08.02.2017
-
-С. Иванова (сост.) | 365 рецептов вкусных мясных блюд (2016) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892504.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: В этой книге вы найдете блюда практически на все случаи жизни. Это и мясные пироги, и сочные шашлыки, и диетические супы, и оригинальные рулеты. А также большой выбор основных блюд на каждый день. Наряду с хорошо знакомыми сочетаниями продуктов встречаются и новые комбинации, взятые из кулинарных традиций разных народов.Также в книге есть советы относительно (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699AD1A06ABB423CECD86E6F66779386EF4D48E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

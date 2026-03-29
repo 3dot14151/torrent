@@ -1,3 +1,82 @@
+###  Публикация: 994063   (889635) от 08.03.2016
+
+Новые приключения Флиппера / Flipper's New Adventure (1964) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_889635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений Сэнди и дельфина по имени Флиппер. На этот раз друзья оказываются на Багамских островах, где спасают английское семейство.Производство: США, Ivan Tors ProductionsЖанр: Драма, приключения, семейныйРежиссер: Леон Бенсон/Leon BensonАктеры: Люк Хэлпин, Памела Франклин, Хелен Черри, Том Хелмор, Франческа Аннис, Брайан Келли, Джо Хиггинс, Ллойд Баттиста, Гордон Дилворт, Кортни Браун и др.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31828BDCA74BB3FC15D6406049A006482B2F664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992134   (889255) от 08.03.2016
+
+Унесенные ветром / Gone with the Wind (1939) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_889255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скарлетт О'Хара не была красавицей, но «свет еще не видывал более лакомой штучки в туфельках». Ретт Батлер не был похож на прекрасного принца, но он всегда находил выход из любой ситуации и она невольно уважала его за это. Война не была похожа на пикник, а последующая тяжёлая жизнь на безоблачное счастье сбывшихся надежд юности... Но за право оставшихся в живых не (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM), Selznick International PicturesЖанр: Мелодрама, Драма, Военный, ПриключенияРежиссер: Виктор Флеминг, Джордж Кьюкор, Сэм ВудАктеры: Вивьен Ли, Кларк Гейбл, Лесли Ховард, Оливия Де Хэвиллэнд, Оскар Полк, Хэтти МакДэниэл, Эверетт Браун, Томас Митчелл, Барбара О`Нил, Эвелин Кийес, Энн Рутерфорд, Джордж Ривз, Фред Крэйн, Баттерфлай МакКуин, Виктор Джори, Ховард С. ХикманПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 03:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394A96224715D98FC583C941A4DC67389F830DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097201   (888911) от 10.02.2017
+
+Пустоши / Badlands (1973) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888911.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1959 году юноша по имени Кит и его несовершеннолетняя подружка Холли пускаются в бега после убийства отца Холли, запрещавшего им встречаться.
+Направляясь к пустошам Монтаны, парочка совершает на своем пути череду хладнокровных убийств.Производство: США / Badlands Company, Jill Jakes Production, Pressman-Williams, Warner Bros. PicturesЖанр: Драма, КриминалРежиссер: Терренс МаликАктеры: Мартин Шин, Сисси Спейсек, Уоррен Оутс, Рамон Биери, Алан Винт, Гари Литтлджон, Джон Картер, Брайан Монтгомери, Гэйл Трелкелд, Чарльз ФицпатрикПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D766A12EF563C469429E45A9FBC7B95F39F1267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 296935   (888675) от 17.02.2011
 
 Расслабься, Фредди! / Slap af, Frede! (1966) DVDRip
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888675.jpg" />
+  <img src="Z:/picture/005/save_picture_888675.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888460.jpg" />
+  <img src="Z:/picture/005/save_picture_888460.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888420.jpg" />
+  <img src="Z:/picture/005/save_picture_888420.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886902.jpg" />
+  <img src="Z:/picture/005/save_picture_886902.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886894.jpg" />
+  <img src="Z:/picture/005/save_picture_886894.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_886470.jpg" />
+  <img src="Z:/picture/009/save_picture_886470.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886355.jpg" />
+  <img src="Z:/picture/005/save_picture_886355.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886213.jpg" />
+  <img src="Z:/picture/005/save_picture_886213.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885436.jpg" />
+  <img src="Z:/picture/005/save_picture_885436.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885423.jpg" />
+  <img src="Z:/picture/005/save_picture_885423.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884961.jpg" />
+  <img src="Z:/picture/005/save_picture_884961.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884894.jpg" />
+  <img src="Z:/picture/005/save_picture_884894.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_884676.jpg" />
+  <img src="Z:/picture/009/save_picture_884676.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884569.jpg" />
+  <img src="Z:/picture/005/save_picture_884569.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884417.jpg" />
+  <img src="Z:/picture/005/save_picture_884417.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884273.jpg" />
+  <img src="Z:/picture/005/save_picture_884273.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884229.jpg" />
+  <img src="Z:/picture/005/save_picture_884229.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884227.jpg" />
+  <img src="Z:/picture/005/save_picture_884227.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884179.jpg" />
+  <img src="Z:/picture/005/save_picture_884179.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884172.jpg" />
+  <img src="Z:/picture/005/save_picture_884172.jpg" />
 </div>
 
 
@@ -534,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884127.jpg" />
+  <img src="Z:/picture/005/save_picture_884127.jpg" />
 </div>
 
 
@@ -560,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884108.jpg" />
+  <img src="Z:/picture/005/save_picture_884108.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884062.jpg" />
+  <img src="Z:/picture/005/save_picture_884062.jpg" />
 </div>
 
 
@@ -598,87 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E38C31F077DBD9B62D7C34DA439DADEA07E08BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 290032   (884050) от 10.09.2021
-
-День на скачках / A Day at the Races (1937) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884050.jpg" />
-</div>
-
-
-###  Подробнее
-
-У очаровательной женщины, запутавшейся в долгах, хотят отнять заложенный и перезаложенный санаторий, в котором осталась только одна богатая пациентка, настоявшая на том, чтобы главврачом назначили любовь ее далекой молодости, ветеринара Хэкенбуша.Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, комедия, спортРежиссер: Сэм ВудАктеры: Граучо Маркс, Чико Маркс, Харпо Маркс, Аллан Джонс, Морин О`Салливан, Маргарет Дюмон, Леонард Кели, Дагласс Дамбрилл, Эстер Мьюир, Зиг Руман, Роберт Миддлмэсс, Вивьен Фэй, Кинг Баггот, Кенни Бэйкер (II), Вивиан Бэрри, Барбара Бедфорд, Джино Коррадо, Ричард ФарнсуортПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8564914A33534383D814625AB88FCD12B29E705D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389630   (884044) от 10.09.2021
-
-Ромео и Джульетта / Romeo and Juliet (1936) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая экранизация одноименной трагедии Уильяма Шекспира.
-Прекрасная и одновременно печальная история Ромео и Джульетты – юных возлюбленных, силой своего чувства преодолевших, казалось бы, самое непреодолимое – ненависть, вражду и даже саму смерть...Производство: США (Metro-Goldwyn-Mayer)Жанр: Мелодрама, трагедия, экранизацияРежиссер: Джордж КьюкорАктеры: Норма Ширер, Лесли Хауард, Джон Бэрримор, Эдна Мэй Оливер, Бейзил Рэтбоун, Си. Обри Смит, Энди ДивайПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A87DD8A6400E13345E8DCDFEB1683533E18B670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387682   (884013) от 10.09.2021
-
-Потерянный горизонт / Lost Horizon (1937) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепная приключенческая фантастика, сверхнеобычная работа Фрэнка Капры (1897-1991), ведущего комедиографа 30-х-40-х.
-
-Герои фильма попадают в мифическую страну Шангри-Ла, о которой грезят все поклонники эзотерических знаний. По их мнению, духовный «центр» человечества расположен в сердце Гималаев, в районе, который не отмечен на картах и, по существу, недоступен, (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: Фэнтези, драма, приключенияРежиссер: Фрэнк КапраАктеры: Рональд Колман, Джейн Виатт, Эдвард Эверетт Хортон, Джон Ховард, Томас Митчелл, Марго, Изабель Джуэлл, Х.Б. Уорнер, Сэм Джаффе, Норман ЭйнслиПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAACA691E8B78822E11AFE046CD76CF3CBE7473D
 ```
 
 https://mybot314.ru/tekegram_catalog/

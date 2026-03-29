@@ -6,7 +6,7 @@ Resident Evil: Revelations 2 (2015) [PS3] [EUR] 4.60 [OFW / HEN / CFW] [Repack /
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027622.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Resident Evil: Revelations (2013) [PS3] [EUR] 3.30 [HEN] [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027440.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Resident Evil HD Remaster / Biohazard HD Remaster (2015) [PS3] [JPN] 3.30 [HEN] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026640.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Crash Bandicoot 4: It's About Time / Crash Bandicoot 4: Это Вопрос Вр
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026038.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ghosts 'n Goblins Resurrection (2021) [Switch] [USA] 10.2.0 [NSP] [License / 1.0
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025692.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Little Nightmares II (2021) [Switch] [USA] 10.2.0 [NSZ] [License / 1.3 / DLC] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025690.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cuphead (2020) [PS4] [EUR] 5.05 / 6.72 / 7.02 / 7.50 / 7.55 HEN [License] [Ru/En
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025342.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Need for Speed: Hot Pursuit Remastered (2020) [PS4] [EUR] 5.05 [HEN] [License / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024977.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mafia Definitive Edition (2020) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024804.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Assassin's Creed Valhalla (2020) [PS4] [EUR] 5.05 [HEN] [License] [En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024664.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Streets of Rage 4 (2020) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024476.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Assassin's Creed Valhalla (2020) [PS4] [EUR] 7.55 [HEN] [Unofficial] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023899.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Crash Bandicoot: 4 It's About Time (2021) [Switch] [USA] 10.2.0 [NSZ] [License /
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021475.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Splatoon 2 (2017) [Switch] [EUR] 10.2.0 [NSZ] [License / DLC / 5.4.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021472.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MediEvil (2019) [PS4] [EUR] [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019851.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Monster Hunter Rise (2021) [Switch] [USA] 11.0.1 [NSP] [License / 2.0.0 / DLC] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018485.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adidas miCoach (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017621.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Alice Madness Returns (2011) [PS3] [JAP] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016184.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Bayonetta (2018) [Switch] [EUR] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011736.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Bayonetta 2 (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011731.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Final Fantasy VII Remake (2020) [PS4] [USA] 6.50 [HEN] [License / 1.0 / dlc] [Mu
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009891.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Plants vs. Zombies (2011) [PS3] [USA] 3.72 [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006047.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Dr. Kawashima’s Brain Training for Nintendo Switch (2020) [Switch] [USA] 9.0.1
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003117.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Silence (2019) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.1] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002892.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Batman: The Telltale Series. Episodes 1-5 (2016) [PS3] [USA] 3.55 [Cobra ODE / E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002624.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Okami HD (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002359.jpg" />
 </div>
 
 

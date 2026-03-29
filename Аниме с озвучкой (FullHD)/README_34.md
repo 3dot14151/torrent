@@ -1,3 +1,29 @@
+###  Публикация: 1793837   (67388) от 27.04.2025
+
+Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 из 10 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покинув Канаду, чтобы переехать к Хару, Рэн наконец-то привык к жизни младшего из четырех братьев, и новое кафе Хару начало процветать... когда появилась их мать, Харука, и сказала, что берет Рэна с собой в Швейцарию! Шок от ее внезапного заявления как раз тогда, когда Хару и Рэн начали сближаться, привел к увеличению разногласий между ними. Неужели на горизонте (   Читать дальше...   )Производство: Studio DeenЖанр: комедия, романтика, повседневность, сёнэн-айРежиссер: Исихира СиндзиПеревод: SovetRomanticaОзвучка: OriginalЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 10 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA90F853C3E837FE9565A01D44FE8D2E0E29471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793682   (67333) от 28.04.2025
 
 Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA, 2 из 2 эп.] BDRip 1080p (HEVC) 10-bit raw+rus
@@ -6,7 +32,7 @@ Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67333.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66931.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65653.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65480.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65144.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64911.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62814.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62742.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62564.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62401.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62208.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62165.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62104.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62048.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | Zom 100: Bucket List of the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62045.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Mato Seihei no Slave | Chained Soldier | Раб элитного корпуса 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61964.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61944.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61894.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61890.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Triage X | Искусственный отбор [2015, TV, 10 из 10 + OVA] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61849.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Kekkon Yubiwa Monogatari | Легенда свадебных колец | Скa�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61783.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61651.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61577.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61555.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61548.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED0A54C10BC86DF44AEF8ED06E745FB01BA288F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693717   (61345) от 30.03.2024
-
-Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Злодейка 99 уровня: Да, я скрытый босс, но не повелительница демонов [2024, TV, 12 из 12] WEBRip 1080p rus+raw
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этой отомэ-RPG происходит в королевстве Варшайн, где темные волосы стали клеймом проклятия и предвестником несчастий. Юмиэлла Долкнесс — дочь графа, которую с рождения ненавидят из-за черных как смоль волос. А ещё она - тайный босс по сюжету игры. Но в возрасте пяти лет Юмиэлла вспоминает свою прошлую геймерскую жизнь в Японии. Не интересовавшаяся романтическими (   Читать дальше...   )Производство: Япония, студия JumondouЖанр: приключения, фэнтезиРежиссер: Ямаока МиноруЯзык озвучки: Русский закадровый (AniBaza), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F42223E642692859438BE96378F998F5CEF86E
 ```
 
 https://mybot314.ru/tekegram_catalog/

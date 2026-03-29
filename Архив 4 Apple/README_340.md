@@ -1,3 +1,109 @@
+###  Публикация: 1558400   (532151) от 20.06.2022
+
+Infuse PRO 7 v7.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 14.06.2022Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C722061F43D51269FB5E84778EA5141A62B91B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558367   (532046) от 20.06.2022
+
+Glyphs 3 v3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glyphs - это профессиональный редактор шрифтов для Mac OS X.
+Грамотно подобранный шрифт очень сильно может сказаться на восприятии приложения или печатного издания. Слишком резкие переходы в глифах не нравятся глазу при чтении, зато легко подойдут к смелому дизайнерскому решению. Плавные линии подчиняются похожей концепции. Восприятие информации через текст очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2022Разработчик: © 2022 Georg SeifertПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865E330795F912E0657962143BB2DCB680DD1E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558361   (532044) от 20.06.2022
+
+Tower Pro 8 v8.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tower - мощный и элегантный Git клиент для Mac
+Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2022Разработчик: © 2010-2022 TowerПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A58D1281353E5A6FF92C9BBD32BC551D569204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558532   (532042) от 20.06.2022
+
+Task Office 7.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 20.06.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9A79FCA709BA2CF8EC386E908B2475491F985B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558463   (532026) от 20.06.2022
 
 Aiseesoft Mac Video Converter Ultimate 10.3.10 [Multi/Ru]
@@ -6,7 +112,7 @@ Aiseesoft Mac Video Converter Ultimate 10.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532026.jpg" />
+  <img src="Z:/picture/008/save_picture_532026.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Infuse PRO 7 v7.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531894.jpg" />
+  <img src="Z:/picture/008/save_picture_531894.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Easy Data Transform 1.31.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531885.jpg" />
+  <img src="Z:/picture/008/save_picture_531885.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Movist Pro 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531867.jpg" />
+  <img src="Z:/picture/008/save_picture_531867.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ iA Writer 6.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531794.jpg" />
+  <img src="Z:/picture/008/save_picture_531794.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Wondershare Filmora Х 11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531773.jpg" />
+  <img src="Z:/picture/008/save_picture_531773.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Calendarique 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531566.jpg" />
+  <img src="Z:/picture/008/save_picture_531566.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ Maxon Cinema 4D R16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531298.jpg" />
+  <img src="Z:/picture/008/save_picture_531298.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ ScreenFlow 7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531144.jpg" />
+  <img src="Z:/picture/008/save_picture_531144.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ News Explorer 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531067.jpg" />
+  <img src="Z:/picture/008/save_picture_531067.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ VMware Fusion Pro 8.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531052.jpg" />
+  <img src="Z:/picture/008/save_picture_531052.jpg" />
 </div>
 
 
@@ -303,7 +409,7 @@ Downcast 2.9.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531006.jpg" />
+  <img src="Z:/picture/008/save_picture_531006.jpg" />
 </div>
 
 
@@ -332,7 +438,7 @@ Xojo 2016r2.1 16.2.1.34484 (2016r2.1) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530674.jpg" />
+  <img src="Z:/picture/008/save_picture_530674.jpg" />
 </div>
 
 
@@ -360,7 +466,7 @@ SyncBird Pro 3.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530303.jpg" />
+  <img src="Z:/picture/008/save_picture_530303.jpg" />
 </div>
 
 
@@ -386,7 +492,7 @@ Scrutiny 12 v12.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530302.jpg" />
+  <img src="Z:/picture/008/save_picture_530302.jpg" />
 </div>
 
 
@@ -413,7 +519,7 @@ Stats 2.7.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530301.jpg" />
+  <img src="Z:/picture/008/save_picture_530301.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ Fix My iPhone 2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530296.jpg" />
+  <img src="Z:/picture/008/save_picture_530296.jpg" />
 </div>
 
 
@@ -468,7 +574,7 @@ djay - DJ App & AI Mixer 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530295.jpg" />
+  <img src="Z:/picture/008/save_picture_530295.jpg" />
 </div>
 
 
@@ -494,7 +600,7 @@ Typora 1.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530171.jpg" />
+  <img src="Z:/picture/008/save_picture_530171.jpg" />
 </div>
 
 
@@ -520,7 +626,7 @@ FxFactory Pro 8.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529990.jpg" />
+  <img src="Z:/picture/008/save_picture_529990.jpg" />
 </div>
 
 
@@ -547,7 +653,7 @@ Instant Translate – translator, dictionary, voice 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529772.jpg" />
+  <img src="Z:/picture/008/save_picture_529772.jpg" />
 </div>
 
 
@@ -576,7 +682,7 @@ ExpanDrive 5.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529712.jpg" />
+  <img src="Z:/picture/008/save_picture_529712.jpg" />
 </div>
 
 
@@ -590,112 +696,6 @@ ExpanDrive - удаленный сервер, как локальный диск
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE71C39DD54A6497AA1DFD1A94DBC38A8B58BAEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155918   (529691) от 05.08.2017
-
-Soulver 2.6.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего экселя много, а калькулятора мало или неудобно.
-Для пользователей интересным в Soulver может оказаться то, что в самой программе можно задавать числа не только используя цифры, но и их словесные обозначения, Soulver прекрасно понимает оба варианта записи даже вперемешку. Например, можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 августа 2017Разработчик: AcqualiaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3D590AC9812068168CD684CBC376F25B59E103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119648   (529674) от 05.08.2017
-
-Mac Blu-ray Player Pro 3.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mac Bluray Player - Проигрыватель HD Blu-ray дисков, отличное качество воспроизведение видео и аудио с поддержкой Dolby DTS, поддержка просмотра Blu-ray, DVD, Video CD, MOV, MKV, AVI, FLV, WMV, MP4, MPEG, RMVB, MP3, WMA, AAC, AC3 и других форматов, обход защит AACS, BD+ и других, имеет ряд стандартных функций сменные шкурки, проигрывание графики, маркировка и закладки, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 августа 2017Разработчик: Macgo INTERNATIONAL LTD.Поддерживаемая ОС: Mac OS X 10.8  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EEF73581218ACEC8E0E37366EAC8A5DCC90AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820119   (529611) от 09.09.2014
-
-Pantone Color Manager 2.1.0 (730) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pantone Color Manager это: Полный набор электронных библиотек Pantone, включающий свыше 11 тысяч цветов.
-PANTONE® Color Manager предоставляет доступ и возможность обновления всех актуальных на сегодняшний момент библиотек PANTONE®, которые вы сможете с легкостью использовать в дизайнерских приложениях Adobe® и Quark®. PANTONE® Color Manager поможет достичь беспрецедентного (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2013Разработчик: X-RiteПоддерживаемая ОС: MacOS X 10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27AD44C677BEE32191A234CC435A9FE9B166E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920849   (529509) от 12.08.2015
-
-VOX 2.5.4 (2540.63)  [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vox - небольшой и очень простой в использовании аудиоплейер для Mac OS X, который является неплохой альтернативой iTunes. Проигрыватель умеет работать с огромным количеством поддерживаемых форматов (FLAC, MP3, AAC, Musepack, Monkey’s Audio, OGG Vorbis, Apple Lossless, AIFF, WAV и др.), распознает различные форматы плейлистов (PLS, M3U, XSPF, CUE), может воспроизводить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 июля 2015Разработчик: Coppertino Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837E39948F37C2F75E4FF93F0216691F695D80B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

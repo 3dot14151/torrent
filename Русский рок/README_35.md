@@ -1,3 +1,120 @@
+###  Публикация: 1395006   (758375) от 08.07.2020
+
+Ночные Снайперы - O2 (2020) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_758375.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. интро
+2. заметь (интро)
+3. заметь
+4. авиарежим (интро)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F09C9A533ECDB88330007D9E7C45FD40591AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215573   (757941) от 26.03.2018
+
+Good Times - Просто Сложно Понять (2018) [MP3|320 Kbps] <Ska, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:54)
+ 02. Бельмондо (3:42)
+ 03. Титьки (3:02)
+ 04. Раз и навсегда (3:24)(   Читать дальше...   )Жанр: Ska, PunkПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB9069EF483EDC5CE5B298BEA110B5BD9ED4AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017237   (757245) от 19.05.2016
+
+Несчастный случай - 19 альбомов (1994 - 2014) [MP3|320 кб/с] <Рок, Рок-н-Ролл, Арт-Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несча́стный Слу́чай — советская и российская рок-группа, образованная Алексеем Кортневым и Валдисом Пельшем в 1982 году.
+В течение 2012—2013 гг. группа проводила масштабный гастрольный тур по России под названием «Тридцатилогия», посвященный своему 30-летию. Завершился тур 30 ноября 2013 г. большим юбилейным концертом в московском «Крокус Сити Холле». В (   Читать дальше...   )1994 - Троды Плудов
+1995 - Mein Lieber Tanz
+1996 - Межсезонье
+1997 - Это любовь(   Читать дальше...   )Жанр: Рок, Рок-н-Ролл, Арт-РокПродолжительность: 19:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AE920F27ED4E489BC177AFDB025F981BDD3EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395118   (757196) от 09.07.2020
+
+Save My Name - Дойти До Трёх (2020) [MP3|320 Kbps] <Symphonic Metal, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Буря (04:00)
+ 02. Танцы на костях (04:28)
+ 03. Время не ждёт (03:37)
+ 04. Мечта (04:59)(   Читать дальше...   )Жанр: Symphonic Metal, Heavy Metal, Power MetalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24214DFE95C266DAD34D36B599B186D593519CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395184   (757107) от 09.07.2020
 
 Панк Жлоб Рок Банда СГ - В хлам (2020) [MP3|320 Kbps] <Punk Rock>
@@ -6,7 +123,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757107.jpg" />
+  <img src="Z:/picture/008/save_picture_757107.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757102.jpg" />
+  <img src="Z:/picture/005/save_picture_757102.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756985.jpg" />
+  <img src="Z:/picture/008/save_picture_756985.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756984.jpg" />
+  <img src="Z:/picture/008/save_picture_756984.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756354.jpg" />
+  <img src="Z:/picture/008/save_picture_756354.jpg" />
 </div>
 
 
@@ -151,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755587.jpg" />
+  <img src="Z:/picture/008/save_picture_755587.jpg" />
 </div>
 
 
@@ -178,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755575.jpg" />
+  <img src="Z:/picture/008/save_picture_755575.jpg" />
 </div>
 
 
@@ -207,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755084.jpg" />
+  <img src="Z:/picture/008/save_picture_755084.jpg" />
 </div>
 
 
@@ -236,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754946.jpg" />
+  <img src="Z:/picture/008/save_picture_754946.jpg" />
 </div>
 
 
@@ -262,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753801.jpg" />
+  <img src="Z:/picture/005/save_picture_753801.jpg" />
 </div>
 
 
@@ -291,7 +408,7 @@ Animal ДжаZ - Счастье (2018) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752839.jpg" />
+  <img src="Z:/picture/008/save_picture_752839.jpg" />
 </div>
 
 
@@ -320,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752749.jpg" />
+  <img src="Z:/picture/005/save_picture_752749.jpg" />
 </div>
 
 
@@ -354,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752280.jpg" />
+  <img src="Z:/picture/008/save_picture_752280.jpg" />
 </div>
 
 
@@ -383,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751965.jpg" />
+  <img src="Z:/picture/008/save_picture_751965.jpg" />
 </div>
 
 
@@ -413,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751080.jpg" />
+  <img src="Z:/picture/008/save_picture_751080.jpg" />
 </div>
 
 
@@ -439,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750365.jpg" />
+  <img src="Z:/picture/008/save_picture_750365.jpg" />
 </div>
 
 
@@ -474,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749927.jpg" />
+  <img src="Z:/picture/008/save_picture_749927.jpg" />
 </div>
 
 
@@ -503,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749205.jpg" />
+  <img src="Z:/picture/008/save_picture_749205.jpg" />
 </div>
 
 
@@ -532,7 +649,7 @@ Catharsis - Антология. Лучшее (2016) [MP3|320 кб/с] <Power Met
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748186.jpg" />
+  <img src="Z:/picture/008/save_picture_748186.jpg" />
 </div>
 
 
@@ -561,7 +678,7 @@ Katalepsy - Gravenous Hour (2016) [MP3|320 кб/с] <Brutal Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746896.jpg" />
+  <img src="Z:/picture/008/save_picture_746896.jpg" />
 </div>
 
 
@@ -590,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746656.jpg" />
+  <img src="Z:/picture/008/save_picture_746656.jpg" />
 </div>
 
 
@@ -619,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745318.jpg" />
+  <img src="Z:/picture/008/save_picture_745318.jpg" />
 </div>
 
 
@@ -633,122 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A860D38DE936B60D0F239CD16ED929267C53875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282429   (745158) от 12.02.2019
-
-7Б - Атмосфера (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем уру-ру! Вот и пришло время подытожить полувековой итог моего земного пути этим Атмосферным музыкальным альбомом и представить его вам в качестве подарка и ответов на всё! Хочу выразить огромное спасибо и низкий поклон всем моим любимым и родным людям и дорогим уважаемым коллегам, друзьям и поклонникам. СПАСИБО за вашу Любовь, Музу, безграничное терпение, заботу, (   Читать дальше...   )1. Рок жив! (feat. Влад Демьян)
-2. ВПЭН (Верный пёс этого неба)
-3. Сны весны
-4. Ночное лето(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E441C4A940D3E09CB31A849997360B911B6232D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020634   (745137) от 26.05.2016
-
-Тайм-Аут - Всё лучшее в одном (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Люди как люди
-02. Я люблю кататься
-03. Осколки зла
-04. Буратино(   Читать дальше...   )Жанр: RockПродолжительность: 01:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53506E4FA604E96686304A9D0526C4A8A105AB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217256   (744763) от 03.04.2018
-
-7000$ - Цена победы (2018) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цена победы
-02. Человек человеку волк
-03. Королевство теней
-04. Голоса звучат(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208075A344DF22974623EAB6494AB9F7DF103273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217277   (744522) от 03.04.2018
-
-План Ломоносова - Альбом №4 (2018) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зубодробительный, оглушительный и в тоже время романтичный новый альбом от "Плана Ломоносова", который все мы ждали 4 года. После экспериментов с Маяковским мы сделали по-панковски простой, добротный и душевный альбом. Рекомендуется к прослушиванию на предельной громкости!45. Москва-Питер
-46. Калинов Гр.Об.
-47. Гаражная лирика
-48. Ни к чему(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EBA69B444644C6A03831C3EC8395D819E1723B
 ```
 
 https://mybot314.ru/tekegram_catalog/

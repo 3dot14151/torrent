@@ -1,3 +1,61 @@
+###  Публикация: 1762785   (35928) от 27.11.2024
+
+Black Whiskey - Last Temptation (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Riding On The Wind (03:58)
+ 02 - Break Me (02:16)
+ 03 - Eat You Alive (03:49)
+ 04 - Down (Devils Highway) (03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3611A735B3521CE0B60D0B84F58005DC797FEE0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 208821   (35575) от 01.12.2024
+
+Cinderella - Live At The Mohegan Sun (2010) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35575.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (1:36)
+2. Night Songs (3:16)
+3. The Last Mile (3:16)
+4. Somebody Save Me (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769F91094751B3BD8B6284B071006D01ABDE6D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407819   (35568) от 01.12.2024
 
 Brian Johnson - Brian Johnson & Geordie & AC/DC (2007) [FLAC|Lossless]<Hard Rock>
@@ -6,7 +64,7 @@ Brian Johnson - Brian Johnson & Geordie & AC/DC (2007) [FLAC|Lossless]<Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35568.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ No To Co - So What (1970) [FLAC|Lossless]<Folk-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35550.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Quireboys - HalfPenny Dancer (2009) [FLAC|Lossless]<rock, glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35529.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ House Of Lords - Full Tilt Overdrive (2024) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34803.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Stevie DeAcutis - Torn from the Pages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34418.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Illogica - Underdogs in the Limelight (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34391.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Wolverine Leipzig - Machine Messiah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34390.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Erika - United States Of Erika (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34382.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Cole Havoc - My Former Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34380.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Texas TNT - Crossroads Are Burning (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34379.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Todd Michael Hall - Off the Rails (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34375.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Nazareth - Razamanaz (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34286.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33997.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Godsmack - Godsmack Power Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32567.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Fast Eddie Clarke - The Rock 'n' Roll Story of Fast Eddie Clarke (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32403.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Broken Silence - Last Man Standing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31368.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Vessel - Another Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30101.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Bonfire - Higher Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30027.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Uriah Heep - 26 Studio Albums, 8 Live, 27 Compilations (1970 - 2023) 167 CD [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29654.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ House Of Lords - 16 альбомов (1988 - 2024) 17 CD [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28221.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Thin Lizzy - 39 Albums, 5 Box Set (1971 - 2025) 114 CD [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27690.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Alex Beyrodt's Voodoo Circle - 8 альбомов (2008-2024) Discography [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27575.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Bonfire - 32 albums, 42 CD (1986-2025) [FLAC|Lossless|image + .cue | tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27486.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27098.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:726CA168F08D263488BA58A269DE7BE2793517AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501378   (26962) от 21.02.2025
-
-Crazy Lixx - 9 альбомов (2007 - 2025) [FLAC|Lossless|image + .cue]<Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crazy Lixx - шведская хард-рок, хард'н'хэви группа, основанная в 2002 году Мальмё, Швеция. Состав до первого альбома был следующий: вокалист - Danny Rexon,гитарист-Vic Zino, барабанщик-Joйl Cirera и басист-Loke Rivano. На данный момент на месте Vic Zino, перешедшего в Hardcore Superstar, в группе играет Andy Dawson. Это одна из первых групп, представлявших Новую (   Читать дальше...   )Список альбомов:
-2007 - Loud Minority
-2010 - New Religion
-2012 - Riot AvenueЖанр: Hard Rock, GlamПродолжительность: 06:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BDC273B019F9B89027275B4B1011CFE5A61C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468494   (26833) от 22.02.2025
-
-Krokus - 24 albums, 31 CD (1976-2024) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Krokus — ветераны швейцарского хард-рока, добившиеся международного признания и распродавшие свыше 14 миллионов своих пластинок по всему миру. Группа была основана в городе Солотурн в 1974 году Крисом фон Рёре (бас, вокал) и Томи Кифером (гитара). Оригинальный состав выпустил один альбом в 1976-ом году, резко отличавшийся от дальнейших опусов арт-роковой направленностью (   Читать дальше...   )--------------------------
-
-01. Intro (Medley) (10:07)
-- Highway to Hell(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 1d 1:07:21 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36191156D31ECFBE2EB0B798960BC13D2419022B
 ```
 
 https://mybot314.ru/tekegram_catalog/

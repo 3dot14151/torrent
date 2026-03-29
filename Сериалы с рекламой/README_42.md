@@ -1,3 +1,29 @@
+###  Публикация: 1678699   (143177) от 22.11.2023
+
+Выгодное предложение / Торг / Momgaps / Bargain (2022-2023) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчина пришёл в номер отеля, чтобы приятно провести время с красивой девушкой. А на месте выясняется, что коварная обольстительница собирается продать своего клиента на органы и даже устраивает аукцион. Спасение приходит в виде внезапного землетрясения — здание рушится, и теперь за жизнь придётся бороться всем присутствующим.Производство: Корея Южная / Climax Studio, JTBC StudiosЖанр: триллер, боевик, криминалРежиссер: Чон У-сонАктеры: Чин Сон-гю, Чон Джон-со, Кан Гир-у, Чан Рюль, Чо Хан-джун, О Мин-э, Пак Хён-су, Чон Ин-гём, Пак Чин, Рю Джи-хун и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CEE14AC3636173F0FDFAB2F62102857EFCEEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194595   (143006) от 28.12.2017
 
 Гоморра / Gomorra: La serie (2017) HDTVRip [H.264/1080p-LQ] (сезон 3, серии 1-12 из 12) AMS [AD]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143006.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142323.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142294.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142235.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142060.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141936.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141658.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141297.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140959.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140908.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140781.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140338.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140162.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140094.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140010.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139964.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139942.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139250.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138893.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138866.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138437.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137409.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137264.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137118.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137060.jpg" />
 </div>
 
 
@@ -654,34 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9504D686FC0EE4592FAE133E074769419D82882C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436410   (136642) от 31.12.2020
-
-Чёрный детектив / Serie Noire (2014) WEB-DLRip (сезон 1, серии 1-12 из 12) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героем "Чёрного детектива", стиля, ставшего особенно популярным после второй мировой войны, редко бывает некий гениальный следователь. Чаще всего это обычный человек, попавший в необычную ситуацию. Поэтому многие считают, что написать произведение в стиле "чёрного детектива" совершенно несложно.
-
-Именно эту ошибку совершили два начинающих сценариста, (   Читать дальше...   )Производство: Канада / Productions CasablancaЖанр: драма, комедия, криминалРежиссер: Жан-Франсуа РиварАктеры: Франсуа Летурно, Винсан-Гийом Отис, Эдит Кокрейн, Марк Бопре, Bernard Derome, Анн-Элизабет Боссе, Charlie Laplante, Луиз Бомбардье, Ги Надон, Хьюго Дюбэ и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8796A7B98163E679342BD93EC466FAAE9FBC36C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

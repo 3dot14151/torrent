@@ -1,3 +1,90 @@
+###  Публикация: 1637591   (239716) от 05.06.2023
+
+Cran Arcanaria - Raging Raven (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Habataki (-Instrumental-) (00:01:37)
+02 - Karasu (00:04:03)
+03 - Dark Eternal (00:03:51)
+04 - Judgement (00:04:48)(   Читать дальше...   )Жанр: Symphonic, Power MetalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CA03229888DE461E7408653705C3349542DC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422122   (239690) от 07.11.2020
+
+ReVamp - Wild Card (2013) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Anatomy of a Nervous Breakdown: On the Sideline (3:46)
+02. The Anatomy of a Nervous Breakdown: The Limbic System (4:54)
+03. Wild Card (4:22)
+04. Precibus (4:25)(   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673C3731B47E370ED02A12CDD71483BFA9A6F560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467395   (239645) от 04.05.2021
+
+Crumbsuckers - Beast On My Back (1988) 1998, Century Media / KINGfisher [FLAC|Lossless|image + .cue] <Crossover, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakout 05:02
+02. Jimmies Dream 03:10
+03. Charge 03:10
+04. Initial Shock 04:57(   Читать дальше...   )Жанр: Crossover, Thrash MetalПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA2655647C0EC30790A3EC51BEA3CFABEDA91EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423495   (239631) от 13.11.2020
 
 Mysterium - The Glowering Facades Of Night (2000) [FLAC|Lossless|image + .cue] <Dark Doom Metal, Black Metal>
@@ -6,7 +93,7 @@ Mysterium - The Glowering Facades Of Night (2000) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239631.jpg" />
+  <img src="Z:/picture/004/save_picture_239631.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Aethernaeum - Naturmystik (2015) [FLAC|Lossless|image + .cue] <Black Metal, Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239629.jpg" />
+  <img src="Z:/picture/004/save_picture_239629.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Wicked Maraya - Cycles (1994) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239623.jpg" />
+  <img src="Z:/picture/004/save_picture_239623.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Alghazanth - The Three-Faced Pilgrim (2014) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239613.jpg" />
+  <img src="Z:/picture/004/save_picture_239613.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ River Crow - Remains Of A New Life (2020) [FLAC|Lossless|image + .cue] <Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239611.jpg" />
+  <img src="Z:/picture/004/save_picture_239611.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Macabre - Carnival Of Killers (2020) [FLAC|Lossless|image + .cue] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239605.jpg" />
+  <img src="Z:/picture/004/save_picture_239605.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Mysterium - Soulwards (2003) [FLAC|Lossless|image + .cue] <Dark Doom Metal, Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239598.jpg" />
+  <img src="Z:/picture/004/save_picture_239598.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Lacrimosa - The Anniversary Box (1990-2020) (2021) 3CD, For the 30th anniversary
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239558.jpg" />
+  <img src="Z:/picture/004/save_picture_239558.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Yngwie Malmsteen - Odyssey (1988) [FLAC|Lossless|image + .cue] <Neoclassical Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239501.jpg" />
+  <img src="Z:/picture/004/save_picture_239501.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Yngwie Malmsteen - Eclipse (1990) [FLAC|Lossless|image + .cue] <Neoclassical Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239444.jpg" />
+  <img src="Z:/picture/005/save_picture_239444.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Mortician - Shout for Heavy Metal (2014) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239442.jpg" />
+  <img src="Z:/picture/004/save_picture_239442.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ DevilDriver - Dealing With Demons, Volume II (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239415.jpg" />
+  <img src="Z:/picture/004/save_picture_239415.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Chiliasm - Flesh Over Finite (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neoclassic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239406.jpg" />
+  <img src="Z:/picture/004/save_picture_239406.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Drautran - Throne Of The Depths (2007) [APE|Lossless|image + .cue] <Sympho Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239399.jpg" />
+  <img src="Z:/picture/004/save_picture_239399.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Drautran - Unter dem Banner der Nordwinde (Demo) (2002) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239392.jpg" />
+  <img src="Z:/picture/004/save_picture_239392.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Aerodyne - Damnation (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239389.jpg" />
+  <img src="Z:/picture/004/save_picture_239389.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Dark Millennium - Ashore the Celestial Burden (1992) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239383.jpg" />
+  <img src="Z:/picture/004/save_picture_239383.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Dawn of Creation - Self-Destructive Matters (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239359.jpg" />
+  <img src="Z:/picture/004/save_picture_239359.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Titanskull - Titanomachy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239349.jpg" />
+  <img src="Z:/picture/004/save_picture_239349.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Crimson Sunsets - A Furore Normannorum Libera Nos Domine (Demo) (1997) Reissue, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239334.jpg" />
+  <img src="Z:/picture/004/save_picture_239334.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Slog - Divination (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239307.jpg" />
+  <img src="Z:/picture/005/save_picture_239307.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Offensive - Blast from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239273.jpg" />
+  <img src="Z:/picture/004/save_picture_239273.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239228.jpg" />
+  <img src="Z:/picture/004/save_picture_239228.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|image + .cue] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB509AEDC65D6895376CCC28FF29FE988283DB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622591   (239220) от 29.03.2023
-
-Synn Unsworth - Phobetor (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Empty Inside (04:53)
-02 - Girl in the Mirror (04:53)
-03 - Phobetor (06:37)
-04 - Madness from the Depths (05:18)(   Читать дальше...   )Жанр: Groove, Death MetalПродолжительность: 00:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F910852E3CBC77A21B0235011F2AAE191DC5286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438233   (239211) от 07.01.2021
-
-Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stick your knife
-02 Coition interruptus
-03 Surrealistic manoeuvres
-04 An invisible disease strikes(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4AE31A7EC1ACDD9BD2D5CB63A16D288FEF5128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622683   (239208) от 29.03.2023
-
-Grisly - Tomb King (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadowborn 03:27
-2. Tomb King 03:06
-3. Hours of Torment 03:39
-4. The Key to Algernon 03:00(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B365735CB88594483AFD0EE5B9DBEDA67F30C459
 ```
 
 https://mybot314.ru/tekegram_catalog/

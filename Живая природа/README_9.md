@@ -1,3 +1,55 @@
+###  Публикация: 1502245   (830008) от 13.10.2021
+
+Суровое море России / Russlands wildes Meer (2018) WEB-DL [H.264/720p] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830008.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 6 000 километров от Москвы, на Дальнем Востоке России, находится одно из самых богатых по биологическому разнообразию, но и самое неприветливое море на нашей планете. Зимой оно покрыто паковым льдом, а летом тайфуны вздымают огромные волны. Этот регион отличается постоянной сейсмической активностью и смертоносными цунами. Побережье Охотского моря, его нетронутые (   Читать дальше...   )Производство: Австрия, ARTE, Channel One Russia, Interspot Film, National Geographic, ORF Enterprise (in association with), Smithsonian Channel, Zweites Deutsches Fernsehen (ZDF), Österreichischer Rundfunk (ORF)Жанр: Документальный, природа, флора, фаунаРежиссер: Франц ХафнерПеревод: Дублированный (Первый канал)Субтитры: отсутствуютПродолжительность: 2x ~ 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9895FF321071C3674F4CE45D21A4342A199C2B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115035   (829785) от 16.03.2017
+
+Странные контакты третьей степени / Strange Encounters of The Third Kind (2004) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грибы растут на Земле более 400 миллионов лет. Они многообразны по размеру и форме. На сегодняшний день их насчитывается более 100 тысяч видов. В фильме рассказывается об удивительном мире грибов, таящем множество загадок и тайн.Телекомпания: АвстрияЖанр: Документальный, флора и фаунаРежиссер: Курт МюндлПеревод: Одноголосый профессиональный, студия СВ-дубль по заказу ВГТРК "Культура"Продолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8534D5013070BAD0AD090FDE220CD01FADDC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365339   (829302) от 05.05.2020
 
 Африканские охотники / Africa's Hunters (2016-2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезоны 1-2, серии 1-12 из 12)
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829302.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829098.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828795.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ IMAX: Голубая планета / Blue Planet (1990) BDRemux [VC-1/1080p] [E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828601.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828097.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827651.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Animal Planet. Чудеса голубой планеты. Семь контин
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826534.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822622.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822338.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818985.jpg" />
+  <img src="Z:/picture/008/save_picture_818985.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ BBC. Как устроена природа / Secrets of Our Living Planet (2012
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818839.jpg" />
+  <img src="Z:/picture/008/save_picture_818839.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817842.jpg" />
+  <img src="Z:/picture/008/save_picture_817842.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ NG. Кевин Ричардсон - Заклинатель львов / Kevin Ri
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817597.jpg" />
+  <img src="Z:/picture/008/save_picture_817597.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817001.jpg" />
+  <img src="Z:/picture/008/save_picture_817001.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815447.jpg" />
+  <img src="Z:/picture/008/save_picture_815447.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815376.jpg" />
+  <img src="Z:/picture/008/save_picture_815376.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814068.jpg" />
+  <img src="Z:/picture/008/save_picture_814068.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ NG. Дикая Арктика / Wild Arctic (2018) WEB-DL [H.264/1080p] (Сер�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814001.jpg" />
+  <img src="Z:/picture/008/save_picture_814001.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813597.jpg" />
+  <img src="Z:/picture/008/save_picture_813597.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813456.jpg" />
+  <img src="Z:/picture/008/save_picture_813456.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813453.jpg" />
+  <img src="Z:/picture/008/save_picture_813453.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813445.jpg" />
+  <img src="Z:/picture/008/save_picture_813445.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813444.jpg" />
+  <img src="Z:/picture/008/save_picture_813444.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812311.jpg" />
+  <img src="Z:/picture/008/save_picture_812311.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA46B81CEA3AFAD3388614871F3BC6A0A481EF19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383563   (809961) от 16.05.2020
-
-Кеа - остроумные смельчаки Новой Зеландии / Keas - New Zealand's Witty Daredevils (2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809961.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Новой Зеландии живут попугаи кеа - остроумные птицы, большие проказники и серьёзные хищники. Они признаны самыми умными птицами в мире. О том, как они выживают в суровых природных условиях Новой Зеландии Вы узнаете, посмотрев данный фильм.Производство: Германия, Text Bild Medienproduktion, ARTE, Westdeutscher Rundfunk (WDR)Жанр: Документальный, природа, флора, фаунаРежиссер: Фолькер Арзт, Анжелика СиглПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A822A7633F29059147BB153B7C5B4703BD544718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009410   (809655) от 21.04.2016
-
-Зеленая планета / The Green Planet (Das  grüne Wunder - Unser Wald) (2012) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леса занимают 30 процентов поверхности Земли, но мы до сих пор мало что о них знаем. «Зеленая планета» позволит нам приблизиться к этому загадочному и волшебному миру. Режиссер Ян Хафт и его команда покажут истории лесных жителей, от грациозных оленей до хитрых лисиц и диких кабанов.Телекомпания: Германия, Natural History Germany, Nautilusfilm, NDR Naturfilm, Polyband GmbH, Studio Hamburg Doclights ProduktionЖанр: Документальный, видовой, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF70E128D70CBF6F4760E333D362586664084A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

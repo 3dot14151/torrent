@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994223.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Postmortem - Bloodground Messiah (2012) [MP3|217-302 kbps VBR]<Death Metal / Dea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994221.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Patti Smith Group - Wave (1979) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Post-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994220.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994217.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ B - Thong - 3 Albums (1994 - 1997) [MP3|192 - 320 kbps]<Groove Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994215.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994207.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994180.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994178.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Chasys Draw IES 4.02.01 Portable by Valx [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994174.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ EditPlus 3.50.241 [Multi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994172.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ StudioLine Photo Classic Plus 3.70.52.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994169.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Comodo Dragon 24.2.0.0 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994140.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994130.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ MiniLyrics 7.5.23 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994126.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ WinASO Registry Optimizer 4.8.1.0 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994103.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994097.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994096.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ashampoo Snap 6.0.4 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994089.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ ALLPlayer 5.4.0 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994088.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994086.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ ICQ 8.0 Build 5989 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994057.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994049.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994047.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ CCleaner 3.27.1900 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994045.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ All-Radio 3.75 + Portable [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994044.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994040.jpg" />
 </div>
 
 

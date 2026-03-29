@@ -1,3 +1,90 @@
+###  Публикация: 1469626   (1016168) от 14.05.2021
+
+Batushka - Черная Литургия (2020) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Знаменный Распиев / Znamiennyj Raspiew (0:35)
+02. Ирмос / Irmos I (4:42)
+03. Ирмос / Irmos II (6:08)
+04. Ирмос / Irmos III (6:45)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7FB4067B841976F47802167E79342A1E1D098C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470018   (1016000) от 15.05.2021
+
+Artas - Riotology (2011) [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Journey Begins...
+02. Fortress Of No Hope
+03. The Day The Books Will Burn Again
+04. The Suffering Of John Doe(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6237F56FEF8CDA98BDD62231B57210BBA2EC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469925   (1015998) от 15.05.2021
+
+Antioch - Antioch V (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang The Eagle
+02. On A Ledge
+03. A Facade At The Third Castle
+04. Demon Wick(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA6859A3F5B978B332F02D38053A7843E5BD187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469920   (1015995) от 15.05.2021
 
 Fortunato - Insurgency (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Heavy Metal>
@@ -6,7 +93,7 @@ Fortunato - Insurgency (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015995.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dan Baune's Lost Sanctuary - Lost Sanctuary (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015994.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Witchbound - End Of Paradise (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015993.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Gojira - Fortitude (2021) [FLAC|Lossless|image + .cue] <Technical Death Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015981.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Against Evil - End Of The Line (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015952.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Traveler - Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015822.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Everlasting Mortality - The Retless Waves (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015818.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Caliban - Zeitgeister (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015817.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Traveler - Termination Shock (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015800.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Antioch - Antioch IV: Land Of No Kings (2019) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015735.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Dreariness - My Mind Is Too Weak To Forget (2013) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015661.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Dreariness - Closer (2020) EP [FLAC|Lossless|Web-DL|tracks] <Blackgaze, Depressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015650.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Mustasch - A Final Warning (2021) EP [FLAC|Lossless|image + .cue] <Stoner Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015515.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Ancient Dome - OWT ...And Still We Are! (2015) [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015508.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Ancient Dome - The Void Unending (2017) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015504.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Mustasch - Powerhouse (2005) [FLAC|Lossless|image + .cue] <Stoner Metal, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015345.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Mustasch - Killing It For Life (2020) [FLAC|Lossless|image + .cue] <Stoner Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015337.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Angel Witch - Angel Of Light (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015333.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Angel Witch - As Above, So Below (2012) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015332.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Revolverz - Work Hard, Play Harder (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015174.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Anvil - Pounding The Pavement (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015017.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Artillery - X (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015009.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Liquid Steel - Mountains Of Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015007.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Liquid Steel - Mountains Of Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734FAA7759ECA26ADB13E839FA9909399A413E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471532   (1015006) от 21.05.2021
-
-Agent Steel - No Other Godz Before Me (2021) [FLAC|Lossless|image + .cue] <Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passage to Afron-V (2:15)
-02. Crypts of Galactic Damnation (4:11)
-03. No Other Godz Before Me (4:37)
-04. Trespassers (4:01)(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3517BCAF4C69E71F879572F1F4A64422B49112AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471619   (1015003) от 21.05.2021
-
-Herman Frank - Two For A Lie (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teutonic Order
-02. Venom
-03. Hate
-04. Eye Of The Storm(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D17A38792ED35A49FED91E42C156A6CF4C399E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471484   (1015001) от 21.05.2021
-
-Artem Illusio - Artem Illusio (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beast (04:16)
-02. The Temple of My Soul (03:49)
-03. Pharaoh (04:58)
-04. Forgiven by the Sun (05:29)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A96C0E1404056B99D69834746CF9DA582D255F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

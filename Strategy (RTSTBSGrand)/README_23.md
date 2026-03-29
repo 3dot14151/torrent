@@ -1,3 +1,29 @@
+###  Публикация: 1758860   (11026) от 19.07.2025
+
+Empire of the Ants (2024) [Ru/Multi] (1.04.20550/dlc) Repack LetsPlay [Digital Deluxe Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыцари в хитиновых доспехах: сражайтесь за свою королеву, за наш союз… за нашу империю! Отправьтесь в захватывающее путешествие по крошечному миру и защитите свои земли в эпических сражениях, где потребуется проявить чудеса стратегии и тактики. Вам предстоит сыграть за 103 683-го, любопытного муравья из касты воинов. Исследуйте муравьиный союз и сражайтесь за него, (   Читать дальше...   )Тип издания: RepackРазработчик: Tower FiveЖанр: Экшены, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8204B54D9224CD1D0F0126C3BB79046B7DAA676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777436   (10989) от 19.07.2025
 
 Plague Inc: Evolved (2016) [Ru/Multi] (1.21.0.3/dlc) Repack Pioneer
@@ -6,7 +32,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.21.0.3/dlc) Repack Pioneer
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10989.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/En] (1.053.0/dlc) Repack Let's
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10840.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1145/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9926.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104.0611.1642/dlc) Repack FitGir
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9834.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1145/dlc) Repack FitGir
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9816.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Headquarters: World War II (2024) [Ru/Multi] (1.04.03/dlc) Repack Let'sРlay [Co
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9088.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Mul
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9061.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Rise Of The White Sun (2023) [Multi] (1.86) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8137.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7811.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Stellar Monarch 2 (2022) [En] (1.24/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7403.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.42553.0/dlc) Repack Wanterlud
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7376.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (build 19595286) Repack seleZen 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7336.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.0.889.0) Repack FitGirl [Defi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7297.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Songs of Silence (2024) [Ru/Multi] (1.4.4-d.8679/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6714.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1151/dlc) Repack Let's�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6573.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.44294.0/dlc) Repack Let'sРla
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6563.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Witch Way (2025) [Multi] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6043.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.10.3) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5576.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5462.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.73r) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5302.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1151/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5100.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5024.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Mechabellum (2023) [Ru/Multi] (1.7.1.0.1780/dlc) Repack Let'sРlay [Premium Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4874.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Emperor of the Fading Suns / Император Угасающих Звезд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4731.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4267.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:218E1D11A05A9DF903519D93B6FC7F3F3B961BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816774   (4187) от 06.09.2025
-
-Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя годы неутомимых поисков отважные викинги обнаружили Нордгард – новую землю, полную тайн, опасностей и богатств. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам. Но для этого им придется отбиваться от диких зверей и мертвецов, (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: 3D, Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9E233A35B69527807F30918A201C9A099CBCC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

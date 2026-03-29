@@ -1,3 +1,55 @@
+###  Публикация: 1285563   (161231) от 17.12.2021
+
+Генлок / gen:Lock (2019) WEBRip (сезон 1, серии 1-8 из 8)  [H.264/1080p-LQ] NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет мультсериала расскажет о юных рекрутах-пилотах, способных управлять механическими робо-гигантами следующего поколения, которые должны положить конец глобальной войне. Однако, за их новообретенные способности придется немало заплатить.Производство: США, Rooster TeethЖанр: фантастика, приключения, боевикРежиссер: Грэй Дж. ХэддокПеревод: Двуголосый закадровый, любительский (NewStation)Субтитры: Русские, английскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D80E4E688A659F42DC505CF038CBCCACA8CDAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598850   (161229) от 21.12.2022
+
+Алиса и пекарня чудес / Alice's Wonderland Bakery (2022) SATRip (сезон 1, серии 1-20 из 20)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиса, правнучка оригинальной Алисы и подающая надежды молодая пекарь в пекарне "Зачарованная страна чудес", где угощения объединяют новое поколение персонажей.Производство: Сша, Disney Junior, Disney Television Animation, Wild CanaryЖанр: комедия, музыкальный, фэнтези, короткометражныйРежиссер: Нэйтан Чю, Arielle Yett, Steven Umbleby.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:11:45 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DFFC5FF5FC2E94A1C7472A40480C8CE006F384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479585   (161069) от 21.12.2022
 
 Дружные мопсы / Puppy Dog Pals (2020) SATRip (Сезон 4, серий 1-16 из 16)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161069.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160740.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160538.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160509.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160496.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160333.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160015.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159692.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159597.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159549.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158862.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158744.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158727.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157993.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157583.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_157571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_157571.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157430.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157249.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157158.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157099.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156978.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156739.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156633.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156605.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E6D991DDAB58FB441E2D6B40D51DD8442A73796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 107507   (156477) от 19.12.2018
-
-Сумасшедшие за стеклом / Drawn Together (2004 - 2007) DVDRip (Сезон 1-3, серий 36)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь нарисованных психопатов в одном доме борются за свою жизнь, за ними день и ночь следят мультипликаторы и фиксируют все на миллион камер. У каждого героя свои проблемы, но никто не придет на помощь. Дальше все будет только хуже. Первое и единственное мультреалити в мире.Жанр: реальное ТВРежиссер: Рич Мур, Stephen Sandoval, Ray ClaffeyАктеры: Билл Фрейбергер, Эрик Соммерс, Рид ЭгньюПеревод: Канал 2х2Формат: AVIПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC122B65571A198C491B11DB69C6754D6A3F7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675971   (156340) от 13.11.2023
-
-Пантеон / Pantheon (2022) WEBRip [H.265/1080p-LQ] (сезон 1-2, серии 1-16 из 16) RuDub
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156340.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пантеон», мультсериал, раскрывающий увлекательную концепцию загрузки сознания в виртуальную систему, привлек внимание зрителей по всему миру. Несмотря на неожиданные проблемы, включая отмену и удаление с онлайн-платформ, второй сезон «Пантеона» недавно неожиданно вернулся. Сериал рассказывает историю Мэдди, молодой девушки, которая начинает получать сообщения с (   Читать дальше...   )Производство: США / AMC StudiosЖанр: мультфильм, фантастика, драмаАктеры: Пол Дано, Уильям Хёрт, Тейлор Шиллинг, Лара Пулвер, Мод Апатоу, Скут МакНэри, Аарон Экхарт, Дэниэл Дэ Ким, Крис Диамантополос, Розмари ДеУиттПеревод: Многоголосый профессиональный (RuDub)Язык озвучки: Русский, английскийСубтитры: английскиеПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4C6FF91BA0B049AFEA46D856B01914F39CDF35
 ```
 
 https://mybot314.ru/tekegram_catalog/

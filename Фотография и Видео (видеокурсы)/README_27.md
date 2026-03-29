@@ -6,7 +6,7 @@ Juliagraule, Юлия Грауле | Онлайн-курс по фотограф
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61793.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ LiveClasses, Виталий Бужан | Калибровка мониторов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61559.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Photoshop Easy, PiXimperfect | The Ultimate Online Photoshop Course (2022) WEB-D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59576.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56848.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56620.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Базов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55552.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Продв
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55550.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51371.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51362.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51336.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51231.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51230.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46775.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Annie Leibovitz | Annie Leibovitz Teaches Photography (2017) WEB-DL [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27998.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Udemy, Евгений Курилов | Premiere pro для фрилансера 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27908.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Udemy, Intellezy Trainers | Adobe Premiere Pro Essentials - Beginner (2025) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27039.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Udemy, Udit Gala | Blender Masterclass: Camera Tracking & VFX Combined (2025) WE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24950.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ fxphd, Doug Hogan | The Nuke Unfiltered Series (2024) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24820.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ David Dubnitskiy School - The Secrets of Masterful Erotic Photography - Renault 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24503.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Peter Coulson Photography - In The Garden With Stefania (2024) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19639.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15201.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ LiveClasses, Дмитрий Ларионов | Подготовка монтаж
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15175.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13629.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12917.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Filmmakers Academy, Shane Hurlbut | DIY Lighting Tips and Tricks (2021) WEB-DL [
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11627.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Udemy, Eyevenear | An Ultimate Premiere Masterclass: Beginner to Pro Editing (20
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11439.jpg" />
 </div>
 
 

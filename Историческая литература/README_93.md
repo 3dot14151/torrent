@@ -1,3 +1,139 @@
+###  Публикация: 1739352   (106113) от 27.07.2024
+
+И.Э. Фишер | Сибирская история с самого открытия Сибири до завоевания сей земли российским оружием (1774) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сибирская история с самого открытия Сибири до завоевания сей земли российским оружием, сочиненная на немецком языке и в собрании академическом, читанная членом С-Петербургской академии и профессором древностей и истории, также членом исторического Геттингенского собрания И. Е. Фишером.(1697-1771).
+Иоган Эбергарт – уроженец Вюртемберга, где получил образование и стал (   Читать дальше...   )Жанр: историческое исследованиеПеревод: В.И. ЛебедевЯзык: Русский (дореформенный)Издательство: Санкт-Петербург: При Императорской Академии наукФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A261D1D068E0DDF33ED6DDC13C22B2FFF2CEB7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752128   (104010) от 28.09.2024
+
+Вячеслав Бондаренко | 100 великих героев Великой Отечественной войны (2015) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104010.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Нет в России семьи такой, где бы не памятен был свой герой". В годы Великой Отечественной войны 1941-1945 гг. наш народ проявил массовые героизм и мужество, отстаивая свою страну от нашествия чудовищного врага. Золотыми буквами вписаны в летопись войны имена прославленных полководцев в маршальских и генеральских погонах и рядовых бойцов, верных долгу офицеров (   Читать дальше...   )Жанр: Биографии. История.Издательство: Москва: «Вече»Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FD653E1CDC773B0D53D051AA8C7075096FFBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489836   (102509) от 01.05.2012
+
+Книжная серия | «Историческая библиотека» АСТ [2001-2012] [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102509.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Историческая библиотека» — книжная серия, основанная издательской группой «АСТ» в 2001 году. Один из крупнейших исторических литературных проектов, объединяет в себе книги разных жанров.
+ Особое место занимают энциклопедические труды известных ученых, историков, социологов, этнографов, являющиеся подлинными шедеврами в истории науки, искусства и общественной жизни. Выдержав испытание временем, они давно стали классическими учебниками истории.
+ Многие художественные произведения, выходящие в серии, являются непревзойденными по количеству малоизвестного фактического материала и психологической достоверности портретов героев.
+ Биографии и мемуары великих людей, история стран и целых цивилизаций, войн и военного искусства, дворцовые интриги и кровопролитные революции, грандиозное строительство и опустошающие нашествия — все это в книгах серии «Историческая библиотека».
+ Многие книги серии выдержали десятки переизданий и переведены на все основные европейские языки. Рассчитаны на самый широкий круг читателей.2001-2012Формат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C00B4F2C9ECBD2E8B62C100F85888CB7A141F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822427   (100719) от 06.10.2025
+
+Евгений Спицын | Сборник книг. Советская держава в 1945-1991 годах. [7] (2019-2025) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами плод многолетних трудов известного писателя, посвященный истории СССР 1945 - 1985 гг. В нашей историографии, уже давно закрепилось несколько названий той эпохи, в том числе предельно лживые штампы как «хрущёвская слякоть», «брежневский застой», созданный архитекторами и прорабами горбачёвской перестройки. Автор мастерски и беспристрастно на основе архивного (   Читать дальше...   )Жанр: История, Биография, ПублицистикаИздательство: КонцептуалФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC635B6AB766D35C8DCD9FB552920D3BCD5F53C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770175   (100567) от 30.12.2024
+
+Фёдор Синицын | Эпоха Брежнева: советский ответ на вызовы времени. 1964 – 1982 (2022) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как только не называют брежневские времена - «развитой социализм», «застой», «эпоха стабильности»... В таких оценках звучат и критика, и сарказм, и восхищение.
+В то же время этот период не вполне еще стал «историей». Значительная часть населения России и других стран постсоветского пространства - непосредственные участники событий, свидетели тех лет. Цель настоящей (   Читать дальше...   )Жанр: ИсторияИздательство: ВечеФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19D191A0E85BA602041630C9FDCCEC00B41B5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482919   (99659) от 14.04.2012
 
 Алексей Харузин | Славянское жилище в Северо-Западном крае [1907] [PDF]
@@ -6,7 +142,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99659.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97142.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89225.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88369.jpg" />
 </div>
 
 
@@ -111,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87192.jpg" />
 </div>
 
 
@@ -137,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86986.jpg" />
 </div>
 
 
@@ -165,7 +301,7 @@ Iоаннъ Гоффертъ | Иллюстрированная Отечеств
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82031.jpg" />
 </div>
 
 
@@ -191,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81938.jpg" />
 </div>
 
 
@@ -217,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81602.jpg" />
 </div>
 
 
@@ -243,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81532.jpg" />
 </div>
 
 
@@ -271,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81501.jpg" />
 </div>
 
 
@@ -297,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80178.jpg" />
 </div>
 
 
@@ -323,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79946.jpg" />
 </div>
 
 
@@ -349,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79508.jpg" />
 </div>
 
 
@@ -375,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77238.jpg" />
 </div>
 
 
@@ -404,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76600.jpg" />
 </div>
 
 
@@ -433,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76225.jpg" />
 </div>
 
 
@@ -462,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76014.jpg" />
 </div>
 
 
@@ -491,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64848.jpg" />
 </div>
 
 
@@ -518,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62172.jpg" />
 </div>
 
 
@@ -544,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61400.jpg" />
 </div>
 
 
@@ -555,137 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B87ACAE0CD8036579C967708C95E8CB32AE7F7CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728516   (54085) от 07.06.2024
-
-Rob Houston (editor) | History of the World Map by Map (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54085.jpg" />
-</div>
-
-
-###  Подробнее
-
-More than 140 detailed maps tell the story of pivotal episodes in world history, from the first human migrations out of Africa to the space race.
-Custom regional and global maps present the history of the world in action, charting how events traced patterns on land and ocean-patterns of exploration, discovery, or conquest that created empires, colonies, or theaters (   Читать дальше...   )Жанр: КартографияЯзык: английскийИздательство: Dorling Kindersley Limited, SmithsonianФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5435D9E32997276614DA58A6FAD1C54427BF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735549   (50643) от 08.07.2024
-
-В.О. Ключевский | Сказания иностранцев о Московском государстве [3 книги] (1866, 1916, 1918) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50643.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сказания иностранцев о Московском государстве» - выпускное сочинение В.О.Ключевского, представленное молодым исследователем к окончанию Московского университета. Оно было удостоено золотой медали, а его автор – степени кандидата. В.О.Ключевский рассматривает записки путешественников как особый вид исторических источников. Их своеобразие и уникальность состоят в (   Читать дальше...   )Жанр: историческая монографияЯзык: русский дореформенныйИздательство: Москва: Университетская типографияФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF11F90482A23514761B5E9357382F0A16D40E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736977   (50028) от 14.07.2024
-
-Борис Якеменко | Пепел над пропастью. Феномен Концентрационного мира нацистской Германии. (2023) [PDF, FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – первое в отечественной историографии комплексное исследование феноменологии нацистских концентрационных лагерей (Концентрационного мира), как особой системы, глобально трансформировавшей всё, что оказывалось в орбите её влияния – от времени, истории и пространства до человеческой антропологии и психологии. Обнажение и одежда, пища и голод, насилие и боль, (   Читать дальше...   )Жанр: историография, научно-популярная литератураИздательство: ЯузаФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E41CD02CC45D9CF06517B9A6382E1CF23F3DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738004   (49396) от 20.07.2024
-
-Н.Н.Попов (редактор) | М. Н. Покровский об Украине. Сборник статей и материалов (1935) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49396.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены только те отрывки из работ М. Н. Покровского, которые более или менее близко затрагивают или освещают вопросы истории Украины. Не представляя целостного курса по истории Украины, выдержки из работ М Н. Покровского дают очень полезный материал для понимания основных вопросов истории Украины.Жанр: Историческая публицистика, архивные материалыИздательство: Киев: Соцэкгиз УкраиныФормат: PDFКачество: Обработанный скан (Internet Archive - San Francisco)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3CE5E7F52F42FD3A595A59A9B6F4746BEA853EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738093   (49315) от 21.07.2024
-
-О. Егер | Всеобщая история стран и народов мира. Избранное (2024) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся немецкий исследователь Оскар Егер в конце XIX века опубликовал фундаментальный труд по мировой истории, в котором проследил прошлое цивилизации от возникновения первых государств до главных событий позапрошлого столетия. Автор, обобщив колоссальный опыт научных достижений предшественников, создал самобытное красочное полотно событий, в которых прослеживались (   Читать дальше...   )Жанр: Всемирная историяИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2387C7BC5D09B95C390B0D0C12C9E5A6AC8A8980
 ```
 
 https://mybot314.ru/tekegram_catalog/

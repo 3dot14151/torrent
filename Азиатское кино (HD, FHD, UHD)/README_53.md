@@ -1,3 +1,133 @@
+###  Публикация: 1628175   (238788) от 22.04.2023
+
+Ударная волна 2 / Chai dan zhuan jia 2 / Shock Wave 2 (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный сапер особого подразделения SWAT в Гонконге при очередном разминировании бомбы допускает роковую ошибку, вследствие чего по всему городу происходит серия крупных взрывов. Выйдя из комы, он должен во всем разобраться и узнать правду в этой запутанной ситуации.Производство: Гонконг, Китай / Alibaba Pictures, Cinedigit SoundЖанр: Боевик, Криминал, ТриллерРежиссер: Герман ЯуАктеры: Энди Лау, Шон Лау, Ни Ни, Цзэ Кван-Хо, Рон Нг, Кенни Вон, Рэймонд Чхиу, Чжан Ян, Филип Кюн, Chun Kit ChangПеревод: Дублированный (Видео Продакшн)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D63FFB26B9D8CCBC87907E275F0E013E2006E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573270   (238369) от 30.08.2022
+
+Кулак легенды / Jingwu Chen Zhen / Chenzhen Legend (2019) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чэнь Чжэнь, ученик Хо Юаньцзя, приезжает на учебу в Японию. Он скрывает от окружающих, что знает кунг-фу. Когда мститель в маске расправляется с ронинами, пытавшимися изнасиловать китаянок, все подозрения падают на Чэнь Чжэня.Производство: Китай / iQIYI PicturesЖанр: БоевикРежиссер: Ма ЧжунсюаньАктеры: Тайгер Сюй, Хуан Вэйтин, Ван Цзюшэн, Ван Хунцянь, Джейсон ВонПеревод: Профессиональный многоголосый (Кириллица)Язык озвучки: Русский, китайскийСубтитры: Русские (Full, SDH), английскиеПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C9373788E263291B588D71074A0C9B3075155D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573273   (238336) от 30.08.2022
+
+Искусство Шаолиня – змея и журавль / She he ba bu / Snake and Crane Arts of Shaolin (1978) BDRip [H.264/1080p-LQ] [MVO] [UK Transfer]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год восемь мастеров кун-фу из монастырей Шаолиня собирались вместе. Однажды после долгих обсуждений, рассмотрев все известные виды кун-фу, они соединили воедино самое лучшее в этих боевых искусствах. Так появилась новая техника, названная «Восемь ступеней Змеи и Журавля»…Производство: Гонконг, Тайвань / Lo Wei Motion Picture CompanyЖанр: боевик, драмаРежиссер: Чэнь Чи-ХваАктеры: Джеки Чан, Нора Мяо, Ким Джон-нан, Yung-Kuo Li, Я Йинг Лью, Хсин Йи Чен, Кан Чин, Чун Чо, Ан Чанг Ху, Куан-синь ХуанПеревод: Многоголосый профессиональный (СТС), двухголосый профессиональный (ТВ6)Субтитры: ОтсутствуютПродолжительность: 01:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B06CA5A72697DB2286D9588A834CAED8DF59FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573290   (238328) от 30.08.2022
+
+Кулак легенды / Jingwu Chen Zhen / Chenzhen Legend (2019) WEB-DLRip [H.264/720p-LQ] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чэнь Чжэнь, ученик Хо Юаньцзя, приезжает на учебу в Японию. Он скрывает от окружающих, что знает кунг-фу. Когда мститель в маске расправляется с ронинами, пытавшимися изнасиловать китаянок, все подозрения падают на Чэнь Чжэня.Производство: Китай / iQIYI PicturesЖанр: БоевикРежиссер: Ма ЧжунсюаньАктеры: Тайгер Сюй, Хуан Вэйтин, Ван Цзюшэн, Ван Хунцянь, Джейсон ВонПеревод: Многоголосый профессиональный (Кириллица)Язык озвучки: Русский, КитайскийСубтитры: Русские (Full, SDH), АнглийскиеПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BDA64F4424F575561B6629BCB63EF13FF0A9B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573885   (237798) от 02.09.2022
+
+Над обрывом / Xuan ya zhi shang / Cliff Walkers (2021) BDRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1930-е, марионеточное государство Маньчжоу-го. Четыре коммунистических агента, прошедших подготовку в Советском Союзе, готовят спецоперацию. Они высаживаются в заснеженном лесу и разделяются по двое: первая группа обнаруживает, что их предали, и, убив шпионов, пускается в бега; вторая же попадает в сети правительственных агентов, даже об этом не догадываясь. Теперь (   Читать дальше...   )Производство: Китай / China Film Co., Ltd., Emperor Motion Pictures, Huaxia Film Distribution, Shanghai Film GroupЖанр: Триллер, история, драмаРежиссер: Чжан ИмоуАктеры: Чжан И, Юй Хэвэй, Цинь Хайлу, Чжу Явэнь, Лю Хаоцюнь, Ни Дахун, Ли Найвэнь, Юй Айлэй, Лэй Цзяинь, Ша ИПеревод: Двуголосый любительский (Колобок)Язык озвучки: Русский, китайскийСубтитры: Китайские ASS (со вставками английского)Продолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2238280872CFF543E36D276282D37A4FD1054C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574433   (237344) от 04.09.2022
 
 Форсаж. Китайский дрифт / Chi zha feng yun / Nezha (2021) BDRip [H.264/1080p-LQ]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237344.jpg" />
+  <img src="Z:/picture/005/save_picture_237344.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237291.jpg" />
+  <img src="Z:/picture/005/save_picture_237291.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236834.jpg" />
+  <img src="Z:/picture/005/save_picture_236834.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236630.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236317.jpg" />
+  <img src="Z:/picture/005/save_picture_236317.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235850.jpg" />
+  <img src="Z:/picture/004/save_picture_235850.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235656.jpg" />
+  <img src="Z:/picture/004/save_picture_235656.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235616.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235486.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235026.jpg" />
+  <img src="Z:/picture/005/save_picture_235026.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234693.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234533.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234522.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234517.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234506.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234471.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233786.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233591.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233568.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233553.jpg" />
+  <img src="Z:/picture/005/save_picture_233553.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233219.jpg" />
+  <img src="Z:/picture/004/save_picture_233219.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E45861EC7C51C28AB57207DD3150992E6772754C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634574   (233211) от 21.05.2023
-
-Таверна Дракона / San lung moon hak chan / Dragon Inn (1992) BDRip [H.265/1080p] [10-bit] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233211.jpg" />
-</div>
-
-
-###  Подробнее
-
-1457 год, правление династии Минг, власть загребают под себя жестокие и коварные евнухи. Один из них, Чжао добивается казни генерала Ю и повелевает уничтожить всех его наследников, однако тех ссылают на удаленный пограничный пост под названием «Врата Дракона». Чжао не собирается останавливаться на полпути и посылает отряд убийц в таверну, через которую эскорт обязательно (   Читать дальше...   )Производство: Гонконг / Film Workshop Ltd., Ningxia Film Group, Seasonal Film CorporationЖанр: боевик, триллерРежиссер: Рэймонд Ли, Тони Чин, Цуй ХаркАктеры: Мэгги Чун, Бриджит Линь, Тони Люн Ка-Фай, Донни Йен, Лау Шунь, Ень Ши-Квань, Юэнь Чун-Янь, Лоуренс Нг, Сюн Синьсинь, Элвис ЦуйПеревод: Одноголосый любительский (Сергей Кузнецов)Язык озвучки: русский, китайскийСубтитры: английские, китайскиеПродолжительность: 01:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003D1CF82DED438A0F4EF46BD824F489AE0C4466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635438   (232530) от 25.05.2023
-
-Фантом / Призрак / Yuryeong / Phantom (2023) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232530.jpg" />
-</div>
-
-
-###  Подробнее
-
-1933 год. Время японской колонизации Кореи. История начинается с неудачной попытки подпольной антияпонской организации убить нового японского генерального резидента в его первый день в Сеуле. Японское колониальное правительство собирает пятерых подозреваемых в отдалённом отеле на приморском утёсе, чтобы в течение дня выследить "фантома", шпиона, внедрённого (   Читать дальше...   )Производство: Южная Корея, The LampЖанр: боевик, триллерРежиссер: Хэ Ён Ли (IV)Актеры: Гён Гу Соль, Ха Ни Ли, Со Дам Пак, Хэ Су Пак, Хён У Со, Дон Хи Ким (I), Джун Хи Ким, Чжон Су Ким, Чжу Ён Ли (II), Ин Бом Ко, Сан Хун Пак (I), Ха Сок Чо, Хе Ок Ким, Джин Вон СоПеревод: любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: нетКачество: BDRip 720pПродолжительность: 02:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7ADE312E4C492D7A04D1268C2756A24A2CBD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646434   (232074) от 14.07.2023
-
-Ни на одного меньше / Yi ge dou bu neng shao / Not One Less (1999) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация рассказа Ши Сяншэна «Солнце в небе». Гао, преподаватель в начальной школе китайской деревни, должен уехать на месяц к своей больной матери. Поскольку его некем заменить, староста деревни предлагает кандидатуру 13-летней девочки Вэй Миньчжи. Гао нехотя соглашается и перед отъездом даёт последние указания: петь с учениками песни; заставлять их переписывать (   Читать дальше...   )Производство: Китай, Bejing New Picture Distribution Company, Guangxi Film StudioЖанр: драмаРежиссер: Чжан ИмоуАктеры: Вэй Миньчжи, Чжан Хуйкэ, Чжэньда Тянь, Эньмань Гао, Чжимэй Сунь, Юйин Фэн, Фаньфань Ли, Ичан Чжан, Чжаньцин Сюй, Ханьчжи ЛюПеревод: профессиональный многоголосыйЯзык озвучки: русский, китайскийСубтитры: русские (D.I.M), английскиеПродолжительность: 01:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20037837EDE57A4CACCF62E55189CB1155BDB42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636395   (231731) от 30.05.2023
-
-Возвращение в Сеул / Retour a Seoul / Return to Seoul (2022) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фредди — 25-летняя кореянка, которая выросла в приёмной семье во Франции. Поддавшись порыву, она впервые возвращается на родину, чтобы найти биологических родителей. Её путешествие разворачивается в новом и неожиданном направлении.Производство: Франция, Германия, Бельгия, Корея Южная, Румыния, Камбоджа, Катар / Aurora Films, Vandertastic Films, Frakas ProductionsЖанр: ДрамаРежиссер: Дэви ШуАктеры: Пак Чи-мин, О Гван-нок, Guka Han, Ким Сон-ён, Йоанн Циммер, Луи-До де Ланкесэ, Хо Джин, Hur Ouk-Sook, Son Seung-Beom, Dong Seok KimПеревод: Профессиональный многоголосый (OKKO)Язык озвучки: Русский, ФранцузскийСубтитры: Русские (Forced), Английские (Full, SDH), Французские (Forced, Full)Продолжительность: 01:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A94C8B5BC4DE12F5CCEB6EC044C4DFE806A844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555176   (231445) от 03.06.2022
-
-Доспехи бога / Armour of God (1986) BDRip [H.264/1080p-LQ] [MVO] [Extended Chinese Version]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231445.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Азиатский ястреб» — так назвали героя Джеки в Европе. Когда он похитил в Африке ритуальный меч, то не предполагал, что это начало опасных приключений. Оказывается, что меч — часть древних доспехов Бога, и если их уничтожить, то в мире будут править силы Ужаса и Зла. Силы Зла, которые укрылись в неприступном монастыре, узнают, что у Джеки есть доступ к остальным (   Читать дальше...   )Производство: Гонконг, Югославия / Media Asia DistributionЖанр: Боевик, комедия, приключенияРежиссер: Джеки Чан, Эрик ЦанАктеры: Джеки Чан, Алан Там, Розамунд Кван, Лола Форнер, Божидар Смилянич, Кен Бойл, Джон Ладальски, Роберт О’Брайэн, Борис Грегорич, Марсия ЧишолмПеревод: Многоголосый профессиональный (Омикрон, НТВ+, РЕН-ТВ)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841359EC954F79504D29ACE8AEEEDC13ED83FF92
 ```
 
 https://mybot314.ru/tekegram_catalog/

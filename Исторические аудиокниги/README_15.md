@@ -1,3 +1,56 @@
+###  Публикация: 1021574   (731996) от 30.05.2016
+
+Александр Говоров | Последние Каролинги (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало средневековья, Франция, вторая половина IX века… Идет ожесточенная борьба за власть, которая ускользает из рук слабеющих потомков Карла Великого. На первый план выдвигается Эд, незаконнорожденный отпрыск династии. Ему суждено объединить страну для отпора норманнам, защитить Париж от их нашествия. Рядом с ним юная Азарика, которую молва несправедливо ославила (   Читать дальше...   )Жанр: Русская приключенческая литератураПродолжительность: 12:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C08506B34B194011370D1810BA3ED39E6614B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021749   (731109) от 31.05.2016
+
+Юзеф Игнацы Крашевский | Брюль (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731109.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Брюль" — достойное произведение своего жанра. Прекрасно описана и культурная жизнь королевского двора с неизменными развлечениями того времени: охотой, операми, коллекционированием предметов искусства и повседневный распорядок дня Августа III, и характеры героев, и само явление фаворитизма.
+При этом в повествовании нет ничего лишнего, растянутого, здесь (   Читать дальше...   )Жанр: Исторический романПродолжительность: 12:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9461FC45FBB78D8D745400B56FD2CE7E7B088C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021810   (731073) от 31.05.2016
 
 Гарольд Лэмб | Кир Великий. Первый монарх (2013) [MP3]
@@ -6,7 +59,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731073.jpg" />
+  <img src="Z:/picture/008/save_picture_731073.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731071.jpg" />
+  <img src="Z:/picture/008/save_picture_731071.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731064.jpg" />
+  <img src="Z:/picture/008/save_picture_731064.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731041.jpg" />
+  <img src="Z:/picture/008/save_picture_731041.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730990.jpg" />
+  <img src="Z:/picture/008/save_picture_730990.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730825.jpg" />
+  <img src="Z:/picture/008/save_picture_730825.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730692.jpg" />
+  <img src="Z:/picture/008/save_picture_730692.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730545.jpg" />
+  <img src="Z:/picture/008/save_picture_730545.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729506.jpg" />
+  <img src="Z:/picture/008/save_picture_729506.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727596.jpg" />
+  <img src="Z:/picture/008/save_picture_727596.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727471.jpg" />
+  <img src="Z:/picture/008/save_picture_727471.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727241.jpg" />
+  <img src="Z:/picture/008/save_picture_727241.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726618.jpg" />
+  <img src="Z:/picture/008/save_picture_726618.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726363.jpg" />
+  <img src="Z:/picture/008/save_picture_726363.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724993.jpg" />
+  <img src="Z:/picture/008/save_picture_724993.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724601.jpg" />
+  <img src="Z:/picture/008/save_picture_724601.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723224.jpg" />
+  <img src="Z:/picture/008/save_picture_723224.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722948.jpg" />
+  <img src="Z:/picture/008/save_picture_722948.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722947.jpg" />
+  <img src="Z:/picture/008/save_picture_722947.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722247.jpg" />
+  <img src="Z:/picture/008/save_picture_722247.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720796.jpg" />
+  <img src="Z:/picture/008/save_picture_720796.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720194.jpg" />
+  <img src="Z:/picture/008/save_picture_720194.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720026.jpg" />
+  <img src="Z:/picture/008/save_picture_720026.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717635.jpg" />
+  <img src="Z:/picture/008/save_picture_717635.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65A208BBCFD9EFD703AE027441246401B75408AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130169   (716540) от 01.05.2017
-
-Александр Мыльников | Искушение чудом: «Русский принц», его прототипы и двойники-самозванцы (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена забытым драматическим страницам в истории XVIII в., связанным с появлением под именем российского императора Петра III принятых народом самозванцев не только в России, но и за ее пределами. Рассматривая события 60 - 70-х годов XVIII в., связанные с появлением самозванцев, в контексте межславянских контактов, автор останавливается на причинах возникновения (   Читать дальше...   )Жанр: историческийПродолжительность: 14:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AF8C7C9BD87132A6B2246B82FD34A0CB69F09E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328435   (715462) от 26.04.2011
-
-Николай Альбертович Кун | Легенды и мифы Древней Греции (2011) [MP3, Сергей Ефремов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Альбертович Кун (1877–1940) – русский историк, писатель и педагог. С 1908 г. он был профессором всеобщей истории московских Высших женских педагогических курсов и в 1914 году написал «для учениц и учеников старших классов средних учебных заведений, а также для всех тех, кто интересуется мифологией греков и римлян» свою знаменитую книгу «Что рассказывали древние (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 20:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A046A0461C9DD185ECA2665BD4F3A941744F13ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

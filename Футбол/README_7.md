@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684388.jpg" />
+  <img src="Z:/picture/008/save_picture_684388.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680514.jpg" />
+  <img src="Z:/picture/008/save_picture_680514.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680513.jpg" />
+  <img src="Z:/picture/008/save_picture_680513.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678538.jpg" />
+  <img src="Z:/picture/008/save_picture_678538.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667846.jpg" />
+  <img src="Z:/picture/008/save_picture_667846.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667843.jpg" />
+  <img src="Z:/picture/008/save_picture_667843.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666751.jpg" />
+  <img src="Z:/picture/008/save_picture_666751.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665386.jpg" />
+  <img src="Z:/picture/008/save_picture_665386.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662202.jpg" />
+  <img src="Z:/picture/008/save_picture_662202.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657922.jpg" />
+  <img src="Z:/picture/008/save_picture_657922.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642763.jpg" />
+  <img src="Z:/picture/008/save_picture_642763.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638946.jpg" />
+  <img src="Z:/picture/008/save_picture_638946.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638942.jpg" />
+  <img src="Z:/picture/008/save_picture_638942.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637255.jpg" />
+  <img src="Z:/picture/008/save_picture_637255.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637118.jpg" />
+  <img src="Z:/picture/008/save_picture_637118.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633667.jpg" />
+  <img src="Z:/picture/008/save_picture_633667.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623806.jpg" />
+  <img src="Z:/picture/008/save_picture_623806.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611609.jpg" />
+  <img src="Z:/picture/005/save_picture_611609.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610525.jpg" />
+  <img src="Z:/picture/008/save_picture_610525.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610357.jpg" />
+  <img src="Z:/picture/008/save_picture_610357.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610050.jpg" />
+  <img src="Z:/picture/008/save_picture_610050.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608826.jpg" />
+  <img src="Z:/picture/008/save_picture_608826.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608757.jpg" />
+  <img src="Z:/picture/008/save_picture_608757.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606974.jpg" />
+  <img src="Z:/picture/008/save_picture_606974.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605175.jpg" />
+  <img src="Z:/picture/008/save_picture_605175.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603708.jpg" />
+  <img src="Z:/picture/008/save_picture_603708.jpg" />
 </div>
 
 

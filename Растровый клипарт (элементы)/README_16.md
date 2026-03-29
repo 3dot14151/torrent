@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600751.jpg" />
+  <img src="Z:/picture/008/save_picture_600751.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600750.jpg" />
+  <img src="Z:/picture/008/save_picture_600750.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600461.jpg" />
+  <img src="Z:/picture/008/save_picture_600461.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594408.jpg" />
+  <img src="Z:/picture/008/save_picture_594408.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592993.jpg" />
+  <img src="Z:/picture/008/save_picture_592993.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588293.jpg" />
+  <img src="Z:/picture/008/save_picture_588293.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583270.jpg" />
+  <img src="Z:/picture/008/save_picture_583270.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583207.jpg" />
+  <img src="Z:/picture/008/save_picture_583207.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582322.jpg" />
+  <img src="Z:/picture/008/save_picture_582322.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582212.jpg" />
+  <img src="Z:/picture/008/save_picture_582212.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582202.jpg" />
+  <img src="Z:/picture/008/save_picture_582202.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582196.jpg" />
+  <img src="Z:/picture/008/save_picture_582196.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582184.jpg" />
+  <img src="Z:/picture/008/save_picture_582184.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582152.jpg" />
+  <img src="Z:/picture/008/save_picture_582152.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565940.jpg" />
+  <img src="Z:/picture/008/save_picture_565940.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565847.jpg" />
+  <img src="Z:/picture/008/save_picture_565847.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557345.jpg" />
+  <img src="Z:/picture/008/save_picture_557345.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555664.jpg" />
+  <img src="Z:/picture/008/save_picture_555664.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555347.jpg" />
+  <img src="Z:/picture/008/save_picture_555347.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555322.jpg" />
+  <img src="Z:/picture/008/save_picture_555322.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554675.jpg" />
+  <img src="Z:/picture/008/save_picture_554675.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554188.jpg" />
+  <img src="Z:/picture/008/save_picture_554188.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553610.jpg" />
+  <img src="Z:/picture/008/save_picture_553610.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553235.jpg" />
+  <img src="Z:/picture/008/save_picture_553235.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553232.jpg" />
+  <img src="Z:/picture/008/save_picture_553232.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552938.jpg" />
+  <img src="Z:/picture/008/save_picture_552938.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1338426   (269706) от 15.11.2019
+
+Александр Марцинкевич - Отомстила (2019) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269706.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кусок хлеба
+2. В голове шум
+3. Красные сапожки
+4. Шут(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B1582A62200BD6279BA1B9AC1ED8007705FC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267000   (268351) от 04.12.2018
+
+Пётр Налич - Отражения в лужах (2018) [MP3|320 Kbps] <Авторская песня, Folk Rock>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268351.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Еду далеко
+2. Канцоне
+3. Мёртвый муж
+4. Речная(   Читать дальше...   )Жанр: Авторская песня, Folk RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5E845194F3C999515F7404AB57A51E5E693488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339068   (268048) от 17.11.2019
 
 VA - Визбор 85 (К 85-летию Юрия Визбора) (2019) [MP3|320 Kbps] <Авторская песня>
@@ -6,7 +64,7 @@ VA - Визбор 85 (К 85-летию Юрия Визбора) (2019) [MP3|320 
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268048.jpg" />
+  <img src="Z:/picture/008/save_picture_268048.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267957.jpg" />
+  <img src="Z:/picture/008/save_picture_267957.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267713.jpg" />
+  <img src="Z:/picture/008/save_picture_267713.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266994.jpg" />
+  <img src="Z:/picture/008/save_picture_266994.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265123.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265075.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265065.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264954.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263727.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263265.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262992.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262628.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262280.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261165.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258134.jpg" />
+  <img src="Z:/picture/005/save_picture_258134.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256551.jpg" />
+  <img src="Z:/picture/005/save_picture_256551.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256065.jpg" />
+  <img src="Z:/picture/005/save_picture_256065.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ iSenin - Я покинул родимый дом. Сергей Есенин (202
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255932.jpg" />
+  <img src="Z:/picture/005/save_picture_255932.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255931.jpg" />
+  <img src="Z:/picture/005/save_picture_255931.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255930.jpg" />
+  <img src="Z:/picture/005/save_picture_255930.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255513.jpg" />
+  <img src="Z:/picture/005/save_picture_255513.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255505.jpg" />
+  <img src="Z:/picture/005/save_picture_255505.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ VA - Привал романтиков 2 (2004) [MP3|320 Kbps] <Авторска
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255161.jpg" />
+  <img src="Z:/picture/005/save_picture_255161.jpg" />
 </div>
 
 
@@ -697,7 +755,7 @@ VA - Калина красная-Песни, спетые сердцем (2016) 
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254949.jpg" />
+  <img src="Z:/picture/005/save_picture_254949.jpg" />
 </div>
 
 
@@ -711,72 +769,6 @@ VA - Калина красная-Песни, спетые сердцем (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6A391F28DC8BC8BE46699BBB19E059C2C135A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497844   (253778) от 17.05.2012
-
-Сергей Трофимов - Аты-Баты (2012) [FLAC|Lossless]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая работа одного из самых востребованных исполнителей на современной российской сцене, Сергея Трофимова, посвящёна всем, кто служил и служит, день за днём выполняя такую трудную, но почётную обязанность - защищать Отечество.
- Этот сборник для тех, кто чтит память погибших, для кого слова «Родина» и «офицерская честь» - это не пустой звук.
- Этот диск – настоящим мужчинам, для которых слова этих песен - как эхо прошлого, бьющего по струнам натянутых нервов.01. Аты-Баты
-02. Моему другу
-03. Непогода
-04. Блюз-спецназ
-05. Вне закона
-06. Голубь мира  NEW
-07. Кем мы были для Отчизны
-08. Мой дикий ангел  (ранее не издавалась)
-09. Война (ранее не издавалась)
-10. Джомолунгма  NEW(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617776   (250239) от 08.03.2023
-
-VA - Лучшие песни радио русский шансон 8 (2008) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Шапиро - Женщина любимая
-02. М. Гулько - Почему ты замужем
-03. гр. Бутырка - Два полюса
-04. Е. Амирамов - Только не ты(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873FA7599AE904B226DF9960929942732FA10B24
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Peace of Mind (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802256.jpg" />
+  <img src="Z:/picture/008/save_picture_802256.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802252.jpg" />
+  <img src="Z:/picture/008/save_picture_802252.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Panda Free Antivirus 2016 16.1.2 DC 24.04.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802240.jpg" />
+  <img src="Z:/picture/008/save_picture_802240.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802239.jpg" />
+  <img src="Z:/picture/008/save_picture_802239.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Reg Organizer 8.81 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802230.jpg" />
+  <img src="Z:/picture/008/save_picture_802230.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Tormented Souls (2021) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802227.jpg" />
+  <img src="Z:/picture/008/save_picture_802227.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Photoshop 2021 22.5.2.491 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802221.jpg" />
+  <img src="Z:/picture/008/save_picture_802221.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Reg Organizer 8.81 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802220.jpg" />
+  <img src="Z:/picture/008/save_picture_802220.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ CorelDRAW Graphics Suite 2021.5 - Corporate v23.5.0.506 (Incl. CorelDRAW Technic
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802209.jpg" />
+  <img src="Z:/picture/008/save_picture_802209.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802155.jpg" />
+  <img src="Z:/picture/008/save_picture_802155.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802154.jpg" />
+  <img src="Z:/picture/008/save_picture_802154.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ YouTube Video Downloader PRO 5.5 (20160128) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802153.jpg" />
+  <img src="Z:/picture/008/save_picture_802153.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802150.jpg" />
+  <img src="Z:/picture/008/save_picture_802150.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sketch 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802148.jpg" />
+  <img src="Z:/picture/008/save_picture_802148.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AdwCleaner 5.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802144.jpg" />
+  <img src="Z:/picture/008/save_picture_802144.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802142.jpg" />
+  <img src="Z:/picture/008/save_picture_802142.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802139.jpg" />
+  <img src="Z:/picture/008/save_picture_802139.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Leaf 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802137.jpg" />
+  <img src="Z:/picture/008/save_picture_802137.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ TunesKit 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802135.jpg" />
+  <img src="Z:/picture/008/save_picture_802135.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Sophisticated Trance (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802134.jpg" />
+  <img src="Z:/picture/008/save_picture_802134.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Trance Top Spring (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802131.jpg" />
+  <img src="Z:/picture/008/save_picture_802131.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Always Alive 2017 Part One (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802127.jpg" />
+  <img src="Z:/picture/008/save_picture_802127.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802125.jpg" />
+  <img src="Z:/picture/008/save_picture_802125.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Cosmic Gate - Earth Mover (Platinum Edition) (2009) [MP3|320 Kbps] <Trance, Prog
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802114.jpg" />
+  <img src="Z:/picture/008/save_picture_802114.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Things 2.8.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802111.jpg" />
+  <img src="Z:/picture/008/save_picture_802111.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Quiver: The Programmer's Notebook 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802109.jpg" />
+  <img src="Z:/picture/008/save_picture_802109.jpg" />
 </div>
 
 

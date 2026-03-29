@@ -1,3 +1,38 @@
+###  Публикация: 517758   (646738) от 01.07.2012
+
+Adele - 21 (Limited Edition) (2011) [MP3 |320 кб/с]<POP>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646738.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rolling In The Deep (03:49)
+2. Rumor Has It (03:43)
+3. Turning Tabels (04:10)
+4. Don't You Remember (04:03)
+5. Set Fire To The Rain (04:01)
+6. He Won't Go (04:37)
+7. Take It All (03:48)
+8. I'll Be Waiting (04:01)
+9. One And Only (05:48)
+10. Lovesong (05:16)(   Читать дальше...   )Жанр: POPПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5747AB9904622C1D75CD4DA147EB41695AE1379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141986   (646510) от 12.06.2017
 
 Chromatics - Just Like You (2016) Vinyl, EP [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
@@ -6,7 +41,7 @@ Chromatics - Just Like You (2016) Vinyl, EP [MP3|320 Kbps] <Electronic, Alternat
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646510.jpg" />
+  <img src="Z:/picture/008/save_picture_646510.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Chromatics - Cherry (2016) [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646326.jpg" />
+  <img src="Z:/picture/008/save_picture_646326.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Izia - La Vague (2015) [OGG|497-517 кб/с]<Alternative, French Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645655.jpg" />
+  <img src="Z:/picture/008/save_picture_645655.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ James Blunt - All The Lost Souls (2007) [MP3|320 кб/с]<Pop, Soft Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645530.jpg" />
+  <img src="Z:/picture/008/save_picture_645530.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ Sister Crayon - Devoted (2015) [MP3|320 кб/с]<Trip-Hop, Dream Pop, Indie>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645527.jpg" />
+  <img src="Z:/picture/008/save_picture_645527.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645286.jpg" />
+  <img src="Z:/picture/008/save_picture_645286.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ VA - Radio Italia Spring (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645191.jpg" />
+  <img src="Z:/picture/008/save_picture_645191.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ VA - NRJ Extravadance (2019) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645189.jpg" />
+  <img src="Z:/picture/008/save_picture_645189.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ VA - Bravo Hits Wiosna (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645186.jpg" />
+  <img src="Z:/picture/008/save_picture_645186.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ Anggun - Toujours Un Ailleurs (2015) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644862.jpg" />
+  <img src="Z:/picture/008/save_picture_644862.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ VA - Ulitimate Funky House (2017) [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Groo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644722.jpg" />
+  <img src="Z:/picture/008/save_picture_644722.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ Tove Styrke - Kiddo (2015) [OGG|489-534 кб/с]<Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643570.jpg" />
+  <img src="Z:/picture/008/save_picture_643570.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ Loretta - The Stars My Destination (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643384.jpg" />
+  <img src="Z:/picture/008/save_picture_643384.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ VA - Girls Club, Vol.2 (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643375.jpg" />
+  <img src="Z:/picture/008/save_picture_643375.jpg" />
 </div>
 
 
@@ -412,7 +447,7 @@ VA - VA - Girls Club, Vol.1 (2018) Explicit [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643372.jpg" />
+  <img src="Z:/picture/008/save_picture_643372.jpg" />
 </div>
 
 
@@ -441,7 +476,7 @@ VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643290.jpg" />
+  <img src="Z:/picture/008/save_picture_643290.jpg" />
 </div>
 
 
@@ -470,7 +505,7 @@ Cristina - Contremano (1982) [MP3|320 Kbps] <Electronic, Pop, Italo-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642109.jpg" />
+  <img src="Z:/picture/008/save_picture_642109.jpg" />
 </div>
 
 
@@ -499,7 +534,7 @@ Shura - Nothing's Real (2016) [MP3|320 Kbps] <80's Synthpop, Indietronica, Femal
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641915.jpg" />
+  <img src="Z:/picture/008/save_picture_641915.jpg" />
 </div>
 
 
@@ -528,7 +563,7 @@ QED - Animal Magic (1984) [OGG|475-526 кб/с]<Electronic, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641699.jpg" />
+  <img src="Z:/picture/008/save_picture_641699.jpg" />
 </div>
 
 
@@ -557,7 +592,7 @@ John Metcalfe - Wrapped (2016) [EP] [MP3|320 Kbps] <Alternative, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641066.jpg" />
+  <img src="Z:/picture/008/save_picture_641066.jpg" />
 </div>
 
 
@@ -583,7 +618,7 @@ Coco Morier - Dreamer (2016) [MP3|320 Kbps] <Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640200.jpg" />
+  <img src="Z:/picture/008/save_picture_640200.jpg" />
 </div>
 
 
@@ -612,7 +647,7 @@ MAGIC! - Primary Colors (2016) [MP3|320 Kbps] <Pop, reggae>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640195.jpg" />
+  <img src="Z:/picture/008/save_picture_640195.jpg" />
 </div>
 
 
@@ -641,7 +676,7 @@ VA - FitHits (2016) [MP3|256 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639882.jpg" />
+  <img src="Z:/picture/008/save_picture_639882.jpg" />
 </div>
 
 
@@ -670,7 +705,7 @@ MIKA - No Place in Heaven (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639729.jpg" />
+  <img src="Z:/picture/008/save_picture_639729.jpg" />
 </div>
 
 
@@ -699,7 +734,7 @@ VA - KuschelRock The Most Beautiful Duets (2015) 2CD [MP3|320 кб/с]<Pop, Pop-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639645.jpg" />
+  <img src="Z:/picture/008/save_picture_639645.jpg" />
 </div>
 
 
@@ -713,35 +748,6 @@ VA - KuschelRock The Most Beautiful Duets (2015) 2CD [MP3|320 кб/с]<Pop, Pop-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D5DFFC34095F597DE4BDDAE0B1D879FE76EB2B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228104   (639397) от 30.05.2018
-
-VA - Pop Remixes Mixed By Christian Bartasek (2018) [MP3|320 Kbps] <Dancecore, Hands Up, Hard Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Bartasek - Pop Remixes Megamix (Continuous Mix)
-02. Toxic Outbreak - All Of Me (Sunny Dee And Dreaming Canon Remix Edit)
-03. Orangez - I Gotta Feeling (B-Tastic Remix Edit)
-04. Phat Bomb - Bad (Sunny Dee Remix Edit)(   Читать дальше...   )Жанр: Dancecore, Hands Up, Hard Dance, PopПродолжительность: 02:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7765ED87907BAC2DD6DC2682D362EDA4DE6BA5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

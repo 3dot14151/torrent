@@ -1,3 +1,55 @@
+###  Публикация: 1729740   (108074) от 12.06.2024
+
+Журнал | Золотые рецепты наших читателей №11 (357) (июнь 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88A998B9E60BFFE6A5C16060FC98B356FA67BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730134   (107964) от 14.06.2024
+
+Журнал | Сваты. Заготовки №6 (110) (июнь 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107964.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA0301A0BB9B9FF8D7A740E18CEBB5B23570F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732671   (107443) от 26.06.2024
 
 Журнал | Золотые рецепты наших читателей №12 (358) (июнь 2024) [PDF]
@@ -6,7 +58,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107443.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105532.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105522.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105520.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105519.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104780.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104762.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104758.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104753.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104315.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103755.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103186.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102817.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90832.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90379.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82004.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79148.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71498.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71341.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71259.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71248.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71152.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71149.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70798.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE587291CE598192C286FFB11F567128D275164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779185   (70751) от 12.02.2025
-
-Журнал | Кухонька Михалыча №1 (233) (январь 2025) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D425DB3090C5637D4EFD05246C11A51024305C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779250   (70688) от 13.02.2025
-
-Журнал | Кухонька Михалыча №2 (234) (февраль 2025) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CE0484AB43E679C99A90B5D83C43B4884A63A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

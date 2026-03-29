@@ -1,3 +1,109 @@
+###  Публикация: 1514498   (216843) от 03.12.2021
+
+Книжная серия | Мастера исторических приключений [54 книги] (2017-2019) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216843.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новую издательскую серию «Мастера исторических приключений» включены лучшие произведения приключенческого жанра современной русской литературы.  "Мастера исторических приключений" - серия исторических приключенческих романов отечественных авторов. Тайный и опытнейший агент Ее Величества Екатерины II Анастасия Аржанова, опираясь на помощь моряков Азовской (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C2DDCCF4B33A1804D8B6D0B038C404F4014487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588327   (216710) от 12.12.2012
+
+Борис Вишневский, Дмитрий Володихин, Геннадий Прашкевич, Ант Скаландис | Подборка книг "Братья Стругацкие" [2004-2012] [fb2, pdf]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три книги о братьях Стругацких.
+Они писали так, что и о них самих читать интересно, тем более, что представленные книги содержат интервью, беседы, размышления Стругацких.Формат: fb2, pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CC095953891A6C94ECCE5CFAFFDD51E700F067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514395   (215166) от 04.12.2021
+
+Книжная серия | Mystery Line [64 книги] (2004-2008) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_215166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия Mystery Line объединяет бестселлеры известных авторов. Основной жанр - боевик, во всех своих проявлениях.
+Серия выпускалась в 2004-2008 годах. Всего издано 64 книги.Жанр: БоевикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1160B935F39A28360813BA2A94408AA75CCEF519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832099   (213456) от 29.10.2025
+
+Книжная серия | Попaдaнцы. Древний Мир [422 книги] (2010-2025) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нелегка доля наших соотечественников, выбравших путь попаданцев - то тирранозавра с утра пораньше покормить надо, то неандертальцы из соседнего стойбища пришли на разборки, то наглые гунны осадили Рим, в котором ты вкалываешь цезарем от рассвета до заката на благо трудового древнеримского народа. Новый сборник про попаданцев, на этот раз в Древний мир.Жанр: Альтернативная история, попаданцы, приключенияИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82CBAB9886240BE855DD49D1319B0FCAC83E6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559042   (213067) от 26.06.2022
 
 Сборник | Книги от издательства Stribog [91 книга] (2019-2022) [FB2] [Обновляемая]
@@ -6,7 +112,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213067.jpg" />
+  <img src="Z:/picture/005/save_picture_213067.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212631.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212627.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212446.jpg" />
+  <img src="Z:/picture/005/save_picture_212446.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212354.jpg" />
+  <img src="Z:/picture/005/save_picture_212354.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210920.jpg" />
+  <img src="Z:/picture/005/save_picture_210920.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210884.jpg" />
+  <img src="Z:/picture/005/save_picture_210884.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210855.jpg" />
+  <img src="Z:/picture/005/save_picture_210855.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209963.jpg" />
+  <img src="Z:/picture/005/save_picture_209963.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209056.jpg" />
+  <img src="Z:/picture/005/save_picture_209056.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209053.jpg" />
+  <img src="Z:/picture/005/save_picture_209053.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208138.jpg" />
+  <img src="Z:/picture/005/save_picture_208138.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205702.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205701.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204507.jpg" />
+  <img src="Z:/picture/004/save_picture_204507.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204355.jpg" />
+  <img src="Z:/picture/004/save_picture_204355.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204311.jpg" />
+  <img src="Z:/picture/004/save_picture_204311.jpg" />
 </div>
 
 
@@ -460,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203980.jpg" />
+  <img src="Z:/picture/004/save_picture_203980.jpg" />
 </div>
 
 
@@ -486,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203322.jpg" />
+  <img src="Z:/picture/004/save_picture_203322.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202913.jpg" />
+  <img src="Z:/picture/004/save_picture_202913.jpg" />
 </div>
 
 
@@ -540,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202697.jpg" />
+  <img src="Z:/picture/004/save_picture_202697.jpg" />
 </div>
 
 
@@ -566,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202263.jpg" />
+  <img src="Z:/picture/004/save_picture_202263.jpg" />
 </div>
 
 
@@ -577,114 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAA520E58B0222E5FB5230A67708348E511BAAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829645   (201925) от 25.10.2025
-
-Книжная серия | CLIO [121 книга] (1999-2025) [FB2, PDF, DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201925.jpg" />
-</div>
-
-
-###  Подробнее
-
-CLIO - серия исторических книг издательства "Евразия".
-В рамках серии «CLIO» публикуются книги по истории Европы в V-XVI вв. Целью серии является знакомство отечественного читателя с социальными, политическими и культурными событиями, эволюцией и феноменами европейского средневековья. Эпоха средних веков как никакая другая оказала колоссальное влияние на (   Читать дальше...   )Жанр: История, биография, культура, политика, научно-популярная литератураИздательство: ЕвразияФормат: FB2, PDF, DJVUКачество: Изначально электронное (ebook), OCR, Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA87B26B3C7471E4FF6580C70458FF622CD0730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617163   (201704) от 06.03.2023
-
-Книжная серия | Лучшее зарубежное фэнтези (Best Fantasy) [14 книг] (2016-2023) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зарубежное переводное фэнтези от ведущих представителей жанра до плодовитых новичков.
-...Вопреки традиционному мнению, смерть – не конец всего и не переход к загробной жизни. Умершие просто просыпаются в одном из миллионов миров, где им суждено жить и умереть снова, чтобы проснуться где-то еще. Все рождаются только единожды, но умирают множество раз, пока не достигнут (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603481D9BBAAB3140AB973C27856F1BEEB04D067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617561   (201655) от 07.03.2023
-
-Книжная серия | Neoclassic: Триллер [5 книг] (2022) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neoclassic: Триллер - новая издательская серия от АСТ.
-Серия стартует новым романом - триллером американского писателя Итана Кросса - Пастух . Автор впервые издается на русском языке!
-Серия открыта в декабре 2021 года.Жанр: Триллер, ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7076F0E92907AFE544265CBC5809F6498212ECE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617587   (201605) от 08.03.2023
-
-Книжная серия | Neoclassic: Расследование [6 книг] (2021-2022) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neoclassic: Расследование – серия неординарных, динамичных детективных романов в стиле культового бестселлера «Один из нас лжёт» Карен М. Макманус, восьмисерийная экранизация которого вышла осенью 2021 года на стриминговом сервисе Peacock. В серию войдут долгожданные новинки и настоящие хиты молодежной литературы: переиздание в новом оформлении книг «Один из нас (   Читать дальше...   )Жанр: Детектив, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17773929ED3E99C0D30A17B7F368375C949D123D
 ```
 
 https://mybot314.ru/tekegram_catalog/

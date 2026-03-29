@@ -1,3 +1,32 @@
+###  Публикация: 1592340   (184326) от 21.11.2022
+
+Ola Hakansson (pre Secret Service) - 3 Albums (1976-1979) LP [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ола Хоканссон - шведский певец, композитор и продюсер. В раздаче представлены альбомы предшествующие появлению всем известной в мире группы Secret Service, где Ола вместе со своим постоянным ударником Leif Johansson участвовали в трех проектах с его узнаваемым исполнением. Последний был полным составом скоро переименован в Secret ServiceСписок альбомов:
+1976 - Ola & Janglers - Jet Leg
+1976 - Ola Hakansson, Frukt & Flingor - O.F.F.
+1979 - Ola+3 - Det Kanns Som Jag Vandrar Fram(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 01:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C62D4FB13C311F2ADA17E7D547EE76B28C4D1DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664789   (183966) от 28.09.2023
 
 Fantasy - Das Beste (2023) Deluxe Edition [MP3|320 Kbps] <Dance Pop>
@@ -6,7 +35,7 @@ Fantasy - Das Beste (2023) Deluxe Edition [MP3|320 Kbps] <Dance Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_183966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183966.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mariah Carey - Greatest Hits (2001) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Funk / 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183123.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Mylene Farmer - Cendres De Lune (1986) Reissue, Repress, 1994, Polydor [OGG Vorb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183113.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Secret Service - 8 Studio Albums (1979-2022) [MP3|320 Kbps] <Electronic, Pop Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182726.jpg" />
+  <img src="Z:/picture/004/save_picture_182726.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182387.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Various - Pure... 70s (2013) 4 CD [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181782.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - 50 Highway Drive Evergreen Hits (2020) All Tracks Remastered [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179968.jpg" />
+  <img src="Z:/picture/005/save_picture_179968.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Sex Music 2023 [MP3|320 Kbps] <Pop, RnB, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178790.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - The Greatest Love Songs (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178284.jpg" />
+  <img src="Z:/picture/005/save_picture_178284.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Disco Made Me Do It, Vol. 4 [MP3|320 Kbps] <Electronic, Nu-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178276.jpg" />
+  <img src="Z:/picture/005/save_picture_178276.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176191.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Solo Divas Volumen 2 (2023) [MP3|320 Kbps] <Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176060.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Solo Divas Volumen 3 (2023) [MP3|320 Kbps] <Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176054.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Solo Divas Volumen 1 (2023) [MP3|320 Kbps] <Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176016.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Julie Parsons - Piano Lady (1977) LP [MP3|320 Kbps] <Pop, Funk-Soul, Easy Listen
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175101.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - DMC Essential Hits 2022 December (2022) 3CD, Compilation [MP3|320 Kbps] <Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174011.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174007.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Bee Gees - 19 Albums (1967-1993) LP Collection [MP3|320 Kbps] <Pop, Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173317.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Bravo Hits 8 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171385.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ David A. Stewart Featuring Candy Dulfer - Lily Was Here (1989) [OGG Vorbis|480 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171205.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - Bravo The Hits 2023 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170932.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ VA - A'dam After Disco (2023) [MP3|320 Kbps] <Funky, Nu Disco, Indie Dance, Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170385.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ DJ Shadow - Action Adventure (2023) [MP3|320 Kbps] <Hip-Hop/Rap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170375.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - Indie Disco Hits (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, In
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170351.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ VA - Hit News Vol. 3 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170316.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ VA - Hit News Vol. 3 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AD734721E9D4E6ECBA95DE8A9E669AB541731F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672173   (170253) от 27.10.2023
-
-Prince & The New Power Generation - Diamonds and Pearls (1991) Super Deluxe Edition, 2023, Warner Records [MP3|320 Kbps] <Contemporary R&B, New Jack Swing, Funk, Minneapolis Sound>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01 - Diamonds and Pearls (Super Deluxe Edition)
-02 - Diamonds and Pearls (Super Deluxe Edition)
-03 - Diamonds and Pearls (Super Deluxe Edition)(   Читать дальше...   )Жанр: Contemporary R&B, New Jack Swing, Funk, Minneapolis SoundПродолжительность: 7 CD, 07:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A316B959113C202093B8D92063A7CCF91FEA3A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

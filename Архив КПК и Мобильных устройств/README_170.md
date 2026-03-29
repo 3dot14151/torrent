@@ -1,3 +1,29 @@
+###  Публикация: 1796086   (18918) от 08.05.2025
+
+Screenshot touch v2.5.2 Mod by Alex.Strannik [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screenshot Touch – это удобное и простое приложение, которое облегчит вам создание скриншотов и видео с экрана своего смартфона. На многих телефонах нынче существует и встроенная функция создания скриншота, но таких точных и разнообразных настроек, как в Screenshot touch, вы не найдете нигде! Захватывайте любую область экрана, убирайте ненужное, делайте скриншоты (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 07.05.2025Разработчик: Daejeong KimПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D9A40228E64ED1D6F3492345327B23691B49B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796096   (18917) от 08.05.2025
 
 Навамша: лунный календарь v4.6.3 Mod by Alex.Strannik [Ru]
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18917.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.3 Mod by Balatan  [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18911.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Battery Guru: Monitor & Health v2.3.21 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18850.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ NewPipe v0.27.7 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18837.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18832.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Magic Eraser / Магический ластик v2.21.16 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18820.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Proton VPN 5.11.29 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18807.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18727.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Genius Art: Image AI Generator v1.3.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18723.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18715.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.11.6 Stab
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18650.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Speedtest от Ookla v6.1.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18637.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18636.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18633.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Vanced Tube v5.3.81.185 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18626.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.2 Mod by 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18614.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Lighting calculations / Расчеты освещения v6.1.3 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18610.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ TuneIn Radio Pro v38.4.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18607.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ SoundHound ∞ - Music Discovery v10.4.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18605.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18603.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ HDRezka TV v1.3.1 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18558.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.27.7 Mod by baalajimaestro  [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18544.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Smart AudioBook Player Pro v11.2.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18516.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18471.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18450.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E1A3DC7D42D1749E5A1B4CC28340CDE8E3EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796986   (18435) от 13.05.2025
-
-Vanced Tube v5.3.81.191 Mod by TRUMods [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 13.05.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF1B3341A7659D8FF53EBA702B0953A39DD962C
 ```
 
 https://mybot314.ru/tekegram_catalog/

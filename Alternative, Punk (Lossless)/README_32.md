@@ -1,3 +1,32 @@
+###  Публикация: 1310803   (545235) от 26.06.2019
+
+A Projection - Framework (2017) [FLAC|Lossless|tracks + .cue] <New Wave, Post-Punk, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hands (3:44)
+02. Dark City (3:39)
+03. Transition (3:16)
+04. Sensible Ends (3:51)(   Читать дальше...   )Жанр: New Wave, Post-Punk, Goth RockПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7AF2CC4471B01BA033E135C7EEB15F386D2D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048996   (544861) от 04.09.2016
 
 De Staat - O (2016) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, Experimental Rock>
@@ -6,7 +35,7 @@ De Staat - O (2016) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544861.jpg" />
+  <img src="Z:/picture/008/save_picture_544861.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Weeping Willows - After Us (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544538.jpg" />
+  <img src="Z:/picture/008/save_picture_544538.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Cachorro Grande - Baixo Augusta (2012) [FLAC|Lossless|tracks + .cue] <Pop Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543744.jpg" />
+  <img src="Z:/picture/008/save_picture_543744.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Night Moves - Can You Really Find Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543743.jpg" />
+  <img src="Z:/picture/008/save_picture_543743.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Manafest - Stones (2017) [FLAC|Lossless|tracks] <Alternative Rock, Rap Rock, Chr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542779.jpg" />
+  <img src="Z:/picture/008/save_picture_542779.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Underoath (UnderØath) - 9 Albums (The Best of Oll) (2002-2022) [FLAC|Lossless|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542585.jpg" />
+  <img src="Z:/picture/008/save_picture_542585.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Mega Bog - Dolphine (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541983.jpg" />
+  <img src="Z:/picture/008/save_picture_541983.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Tunng - This Is Tunng…Magpie Bites and Other Cuts (2019) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541981.jpg" />
+  <img src="Z:/picture/008/save_picture_541981.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Atreyu - Lead Sails Paper Anchor (2007) [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540070.jpg" />
+  <img src="Z:/picture/008/save_picture_540070.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Vatican - Ultra (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Metalcore, Hardcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537466.jpg" />
+  <img src="Z:/picture/008/save_picture_537466.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Brand New - Discography 7 Releases (2001-2017) [FLAC|Lossless|tracks|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536303.jpg" />
+  <img src="Z:/picture/008/save_picture_536303.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Braii - City of Nothing (2018) EP [FLAC|Lossless|tracks] <Alternative Rock, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535101.jpg" />
+  <img src="Z:/picture/008/save_picture_535101.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Unloved - Heartbreak (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534490.jpg" />
+  <img src="Z:/picture/008/save_picture_534490.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ PIG - Candy (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Industrial, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534397.jpg" />
+  <img src="Z:/picture/008/save_picture_534397.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Sophia - The Infinite Circle (1998) [FLAC|Lossless|tracks + .cue] <Lo-Fi, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532787.jpg" />
+  <img src="Z:/picture/008/save_picture_532787.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sophia - People Are Like Seasons (2004) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532783.jpg" />
+  <img src="Z:/picture/008/save_picture_532783.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530959.jpg" />
+  <img src="Z:/picture/008/save_picture_530959.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529211.jpg" />
+  <img src="Z:/picture/008/save_picture_529211.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Raconteurs - 3 альбома (2006, 2008, 2019) [FLAC|Lossless|image + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528951.jpg" />
+  <img src="Z:/picture/008/save_picture_528951.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Green Day - Green Day - 15 альбомов (1990-2014) [APE, FLAC|Lossless|imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524931.jpg" />
+  <img src="Z:/picture/008/save_picture_524931.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Nuclear Sun - Rising (2015) EP [FLAC|Lossless|WEB-DL]<Industrial Rock | Futurepo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524112.jpg" />
+  <img src="Z:/picture/008/save_picture_524112.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Our Dying World - Hymns Of Blinding Darkness (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522772.jpg" />
+  <img src="Z:/picture/008/save_picture_522772.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Celldweller - End Of An Empire (Chapter 04: Death) (2015) [FLAC|Lossless]<Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522514.jpg" />
+  <img src="Z:/picture/008/save_picture_522514.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522354.jpg" />
+  <img src="Z:/picture/008/save_picture_522354.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ The Kills - Blood Pressures (2011) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522328.jpg" />
+  <img src="Z:/picture/008/save_picture_522328.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ The Kills - Blood Pressures (2011) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9DCF5AF6D0E0321F45D8615197184F847A255EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313975   (522327) от 11.07.2019
-
-The Kills - Midnight Boom (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Garage Rock, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U.R.A. Fever (2:16)
- 02. Cheap and Cheerful (2:27)
- 03. Tape Song (3:36)
- 04. Getting Down (2:56)(   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Lo-Fi, Indie RockПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FF0CE0BC2B41D6A08A61661902033B31572ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1164418   (376909) от 12.10.2018
+
+Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_376909.jpg" />
+</div>
+
+
+###  Подробнее
+
+На мир упала мрачная тень ужасного дракона. Жители деревень превращаются в камень. Армии скелетов, рои ос и неуклюжие огры бродят повсюду. Зло распространяется как лесной пожар. Только вы можете положить этому конец! По всему королевству разбросаны семь огромных древних кристаллов. Собранные вместе, они могут пробудить силу Сферы. Без нее у вас нет надежды сокрушить (   Читать дальше...   )Тип издания: LicenseРазработчик: Delphine Software InternationalЖанр: Action, RPG, 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED7C79A13BB9675DC96A0C03B7AE71136CEDA87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058931   (376753) от 12.10.2018
+
+Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) [Ru/En] (1.2.5 (19644)) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_376753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сектор галактики пережил страшные потрясения. Цивилизации достигали зенита и теряли свое величие. Разгорались грандиозные войны и заканчивались, не оставляя следа... Космос живёт по своему времени, одна секунда которого - бесконечные столетия для гуманоидного разума. Но от бурного прошлого остались тайны, которые хранит безмолвная тьма.Тип издания: LicenseРазработчик: Quicksilver SoftwareЖанр: Strategy (Turn-based, Grand Strategy)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E498028156CF8DCD5550E8BBB286B6CB638B5620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175730   (376124) от 19.10.2017
 
 Teenagent (1994) [En] (1.0) License GOG
@@ -6,7 +58,7 @@ Teenagent (1994) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376124.jpg" />
+  <img src="Z:/picture/008/save_picture_376124.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375360.jpg" />
+  <img src="Z:/picture/008/save_picture_375360.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Knight Rider: The Game / Рыцарь дорог (2003) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375189.jpg" />
+  <img src="Z:/picture/008/save_picture_375189.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370345.jpg" />
+  <img src="Z:/picture/008/save_picture_370345.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru/En] (Rip/1.02a) 2006 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369712.jpg" />
+  <img src="Z:/picture/008/save_picture_369712.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ Myth Anthology (1997-2001) [Ru/En] (1.5/1.8/1.3.1/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368243.jpg" />
+  <img src="Z:/picture/008/save_picture_368243.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ Blade & Sword 2 [Ru] (RePack) 2005 l IGALLARDOI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367371.jpg" />
+  <img src="Z:/picture/008/save_picture_367371.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Resident Evil 2 Seamless HD Project (1998) [En] (1.0) Repack/Mod Andriel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365096.jpg" />
+  <img src="Z:/picture/008/save_picture_365096.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364030.jpg" />
+  <img src="Z:/picture/008/save_picture_364030.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru/En] (1.4.3) Repack R.G. Catal
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363389.jpg" />
+  <img src="Z:/picture/008/save_picture_363389.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362861.jpg" />
+  <img src="Z:/picture/008/save_picture_362861.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ Crime Cities (2000) [En/Pl] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362563.jpg" />
+  <img src="Z:/picture/008/save_picture_362563.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362431.jpg" />
+  <img src="Z:/picture/008/save_picture_362431.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360775.jpg" />
+  <img src="Z:/picture/008/save_picture_360775.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Reah: Face the Unknown (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360260.jpg" />
+  <img src="Z:/picture/008/save_picture_360260.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358687.jpg" />
+  <img src="Z:/picture/008/save_picture_358687.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ eXoDOS Collection (2019) [En] (4.0) Repack eXo
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358371.jpg" />
+  <img src="Z:/picture/008/save_picture_358371.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Far Cry - Ёкарный Бабай (2019) [Ru/En] (1.0) Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358158.jpg" />
+  <img src="Z:/picture/008/save_picture_358158.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355219.jpg" />
+  <img src="Z:/picture/008/save_picture_355219.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354097.jpg" />
+  <img src="Z:/picture/008/save_picture_354097.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351712.jpg" />
+  <img src="Z:/picture/008/save_picture_351712.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350489.jpg" />
+  <img src="Z:/picture/008/save_picture_350489.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348497.jpg" />
+  <img src="Z:/picture/008/save_picture_348497.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ Final DOOM (1994) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348489.jpg" />
+  <img src="Z:/picture/008/save_picture_348489.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Final Doom - сборник из двух любительских IWAD-файл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8BE565B607FCB3B100FD821A361FE07FD21898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179432   (348361) от 31.10.2017
-
-DOOM II (1994) [En] (1.9/dlc) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры начинается вскоре после событий Doom. Игрок снова управляет безымянным морпехом из игры, расправившимся с силами ада на Фобосе, Деймосе и Марсе в оригинальной игре. Оказавшись на своей родной Земле, он обнаруживает, что она тоже стала жертвой нашествия монстров. На протяжении 30 уровней (не считая двух секретных) игрок снова сталкивается с адскими полчищами. (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36743EDEBBF5D61964FFCFAD1E295F9342DDEB3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578144   (347636) от 23.11.2012
-
-Uprising 2: Lead and Destroy [En] (L) 1998
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение экшена  Uprising : Join or Die!, в котором игрок управляет экипажем сверхсовременного танка. В сиквеле игрока ждут улучшенные графика и звук, а также значительно упрощенное управление.Тип издания: ЛицензияЖанр: Action / Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0CD89B168C0806F4DC8FDFBAB30014F0A2B684
 ```
 
 https://mybot314.ru/tekegram_catalog/

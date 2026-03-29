@@ -1,3 +1,56 @@
+###  Публикация: 1257381   (345808) от 26.10.2018
+
+Сигизмунд Либрович | Школа для родителей (1912) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Педагогика семейного воспитания.Жанр: Образование, обучение и развитие детейФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BD95531B916718293C86C2CF78D27DABADC36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257377   (345799) от 26.10.2018
+
+Александр Боргман | Учебная книга по русской истории. Часть 1-2 (1912) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345799.jpg" />
+</div>
+
+
+###  Подробнее
+
+История России.
+Для среднего и старшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06780100AA30A626B30498769BCA37709F5C6BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257384   (345795) от 26.10.2018
 
 Дмитрий Кузьменко | Воспитание детей (1912) [JPG]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345795.jpg" />
+  <img src="Z:/picture/008/save_picture_345795.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345186.jpg" />
+  <img src="Z:/picture/008/save_picture_345186.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344889.jpg" />
+  <img src="Z:/picture/008/save_picture_344889.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344881.jpg" />
+  <img src="Z:/picture/008/save_picture_344881.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344709.jpg" />
+  <img src="Z:/picture/008/save_picture_344709.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344556.jpg" />
+  <img src="Z:/picture/008/save_picture_344556.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344334.jpg" />
+  <img src="Z:/picture/008/save_picture_344334.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343579.jpg" />
+  <img src="Z:/picture/008/save_picture_343579.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343572.jpg" />
+  <img src="Z:/picture/008/save_picture_343572.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343443.jpg" />
+  <img src="Z:/picture/008/save_picture_343443.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343437.jpg" />
+  <img src="Z:/picture/008/save_picture_343437.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343097.jpg" />
+  <img src="Z:/picture/008/save_picture_343097.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342545.jpg" />
+  <img src="Z:/picture/008/save_picture_342545.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342541.jpg" />
+  <img src="Z:/picture/008/save_picture_342541.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342043.jpg" />
+  <img src="Z:/picture/008/save_picture_342043.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341920.jpg" />
+  <img src="Z:/picture/008/save_picture_341920.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341338.jpg" />
+  <img src="Z:/picture/008/save_picture_341338.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341210.jpg" />
+  <img src="Z:/picture/008/save_picture_341210.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340968.jpg" />
+  <img src="Z:/picture/008/save_picture_340968.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340773.jpg" />
+  <img src="Z:/picture/008/save_picture_340773.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340718.jpg" />
+  <img src="Z:/picture/008/save_picture_340718.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339983.jpg" />
+  <img src="Z:/picture/008/save_picture_339983.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339851.jpg" />
+  <img src="Z:/picture/008/save_picture_339851.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339847.jpg" />
+  <img src="Z:/picture/008/save_picture_339847.jpg" />
 </div>
 
 
@@ -628,63 +681,6 @@ Cборник содержит 720 разнообразных устных уп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC12715FAF2B692772D7FEC3EBB3AEF9C9183D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726467   (337956) от 25.11.2013
-
-Юлия Блоха | Бесстрашные воины прошлого (2008) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга открывает серию, посвященную захватывающему миру опасностей и битв, приключений и тайн, мифов и легенд, подвигов и злодейств. Герои этой серии: бесстрашные воины, таинственные незнакомцы, неутомимые искатели приключений, исследователи, первопроходцы — в общем все те, чья жизнь была полна риска и испытаний, открытий и удивительных происшествий.
-Первая книга начинает рассказ о легендарных воинах прошлого.
-Война всегда была ужасным бедствием для всех людей. Но, как справедливо сказал Вольтер, «чем страшнее бич войны, охватывающей все бедствия и все преступления, тем сильнее должна быть наша благодарность к тем мужественным воинам, которые погибли, чтобы дать нам счастливый мир».
-Волею судеб вовлеченные в смертельные битвы, воины всех народов создавали свои боевые искусства. Это наследие древних воинов служит нам и по сей день, ведь боевое искусство — это не просто искусство убивать, а в большей степени искусство выживать и побеждать несмотря ни на что.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B966D35FA11D7AE28ABDDAABAFC8961251B70F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726474   (337954) от 25.11.2013
-
-Л.Г.Ларионов | Всюду с нами (1960) [DJVU, PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электрические двигатели. Казалось бы, всем знакомы эти машины, которые были изобретены более ста лет назад. А между тем они совсем не стареют. Наоборот, их значение в нашей жизни с каждым годом возрастает. Эти неутомимые помощники человека работают всюду. Благодаря им в труде и в жизни людей произошли замечательные изменения.
-И далеко не каждый знает, что двигатели токарных станков по своему устройству совсем не похожи на двигатели троллейбусов или эскалаторов, что с помощью электрических двигателей можно не только приводить машины в движение, но и управлять ими, что многие станки и машины вообще нельзя построить, а тем более автоматизировать, не имея электрических двигателей. Без них не было бы метро, угольных комбайнов, подводных лодок, заводов-автоматов, шагающих экскаваторов, самолетов, пылесосов и других машин.
-Вот о том, что такое электрические двигатели, какую роль они играют в нашей жизни, и рассказывается в книге Л. Ларионова Всюду с нами.Формат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94148467A9CCBDE97DB9C315E3794DBE08163B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

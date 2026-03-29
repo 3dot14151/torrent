@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717517.jpg" />
+  <img src="Z:/picture/008/save_picture_717517.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717512.jpg" />
+  <img src="Z:/picture/008/save_picture_717512.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mocha Pro 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717483.jpg" />
+  <img src="Z:/picture/008/save_picture_717483.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717476.jpg" />
+  <img src="Z:/picture/008/save_picture_717476.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ O&O DiskImage Professional 10.5 Build 154 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717472.jpg" />
+  <img src="Z:/picture/008/save_picture_717472.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717411.jpg" />
+  <img src="Z:/picture/008/save_picture_717411.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Social Media Lab - Templates 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717404.jpg" />
+  <img src="Z:/picture/008/save_picture_717404.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717403.jpg" />
+  <img src="Z:/picture/008/save_picture_717403.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Divine Madness: Materia Prima (Compiled by Koaluna and Otkun) (2018) [MP3|3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717392.jpg" />
+  <img src="Z:/picture/008/save_picture_717392.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ CleanMyPC 1.7.4.258 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717369.jpg" />
+  <img src="Z:/picture/008/save_picture_717369.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717367.jpg" />
+  <img src="Z:/picture/008/save_picture_717367.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ JetBrains DataGrip 2016.1.1 Build #DB-145.863 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717363.jpg" />
+  <img src="Z:/picture/008/save_picture_717363.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Microsoft Windows and Office ISO Download Tool 2.03 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717360.jpg" />
+  <img src="Z:/picture/008/save_picture_717360.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Solus Project (2016) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717352.jpg" />
+  <img src="Z:/picture/008/save_picture_717352.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ DVDFab 9.2.4.4 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717351.jpg" />
+  <img src="Z:/picture/008/save_picture_717351.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717349.jpg" />
+  <img src="Z:/picture/008/save_picture_717349.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Рэп Архив Vol.1 (1995) [MP3|96 kbps]<Old school Rap from Russia>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717329.jpg" />
+  <img src="Z:/picture/005/save_picture_717329.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Simon & Garfunkel - Sounds Of Silence (1966) remastered, 2010, Audio Fidelity [A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717317.jpg" />
+  <img src="Z:/picture/005/save_picture_717317.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Postbox 6.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717308.jpg" />
+  <img src="Z:/picture/008/save_picture_717308.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MP4Tools 3.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717299.jpg" />
+  <img src="Z:/picture/008/save_picture_717299.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Ashampoo Photo Commander 16.0.3 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717294.jpg" />
+  <img src="Z:/picture/008/save_picture_717294.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717268.jpg" />
+  <img src="Z:/picture/008/save_picture_717268.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717256.jpg" />
+  <img src="Z:/picture/008/save_picture_717256.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ A Better Finder Rename 11 v11.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717221.jpg" />
+  <img src="Z:/picture/008/save_picture_717221.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ UctoX 2 v2.8.2 (build 1393) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717220.jpg" />
+  <img src="Z:/picture/008/save_picture_717220.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Rottenwood 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717219.jpg" />
+  <img src="Z:/picture/008/save_picture_717219.jpg" />
 </div>
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 778476   (806817) от 18.04.2014
+
+Николай Онуфриевич Лосский | Свобода воли (1927) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_806817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Онуфриевич ЛОССКИЙ (1870 - 1965) - русский философ-идеалист, представитель интуитивизма и персонализма.
+
+В книге "Свобода воли" Лосский очень внимательно и подробно анализирует проблему свободы, рассуждая о "металогической творческой силе воли", живущей в человеке. Здесь Лосский высказывает идею о возможности чудесного преображения человека (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C5C03C6E6C7F970FE73B8FD950198F8B519ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119748   (805614) от 29.03.2017
 
 Хавьер Субири | О сущности (2009) [PDF]
@@ -6,7 +34,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805614.jpg" />
+  <img src="Z:/picture/008/save_picture_805614.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805492.jpg" />
+  <img src="Z:/picture/008/save_picture_805492.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805485.jpg" />
+  <img src="Z:/picture/008/save_picture_805485.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804449.jpg" />
+  <img src="Z:/picture/008/save_picture_804449.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804444.jpg" />
+  <img src="Z:/picture/008/save_picture_804444.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804425.jpg" />
+  <img src="Z:/picture/008/save_picture_804425.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804395.jpg" />
+  <img src="Z:/picture/008/save_picture_804395.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804390.jpg" />
+  <img src="Z:/picture/008/save_picture_804390.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804302.jpg" />
+  <img src="Z:/picture/008/save_picture_804302.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804082.jpg" />
+  <img src="Z:/picture/008/save_picture_804082.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803508.jpg" />
+  <img src="Z:/picture/008/save_picture_803508.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802559.jpg" />
+  <img src="Z:/picture/008/save_picture_802559.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802556.jpg" />
+  <img src="Z:/picture/008/save_picture_802556.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801265.jpg" />
+  <img src="Z:/picture/008/save_picture_801265.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801258.jpg" />
+  <img src="Z:/picture/008/save_picture_801258.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800499.jpg" />
+  <img src="Z:/picture/008/save_picture_800499.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800421.jpg" />
+  <img src="Z:/picture/008/save_picture_800421.jpg" />
 </div>
 
 
@@ -457,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800416.jpg" />
+  <img src="Z:/picture/008/save_picture_800416.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800410.jpg" />
+  <img src="Z:/picture/008/save_picture_800410.jpg" />
 </div>
 
 
@@ -509,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800358.jpg" />
+  <img src="Z:/picture/008/save_picture_800358.jpg" />
 </div>
 
 
@@ -535,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800353.jpg" />
+  <img src="Z:/picture/008/save_picture_800353.jpg" />
 </div>
 
 
@@ -561,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800350.jpg" />
+  <img src="Z:/picture/008/save_picture_800350.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800349.jpg" />
+  <img src="Z:/picture/008/save_picture_800349.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800302.jpg" />
+  <img src="Z:/picture/008/save_picture_800302.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800202.jpg" />
+  <img src="Z:/picture/008/save_picture_800202.jpg" />
 </div>
 
 
@@ -654,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F20B94310A298CBA1FF5454DB03C8D9D42C89FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199782   (800133) от 17.01.2018
-
-Л.Б. Селезнева | Русское правописание [2-е издание] (2002) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для школьника, студента, преподавателя, для всех изучающих русский язык. Педагог найдет в ней достаточно полное и во многом нетрадиционное описание орфографических задач, учащийся, абитуриент сосредоточится преимущественно на правилах орфографии и способе их употребления.
-Разработанная автором теория орфограммы позволяет на новых, более эффективных принципах (   Читать дальше...   )Жанр: ЛингвистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483ED3C3066A6F20C5701F60D535C5B5389CC871
 ```
 
 https://mybot314.ru/tekegram_catalog/

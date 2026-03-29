@@ -1,3 +1,116 @@
+###  Публикация: 1793622   (67465) от 25.04.2025
+
+Александр Пушкин | Полтава (Радиоспектакль) (1987) [MP3, Кирилл Лавров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Библиотека школьника.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+Поэтический радиоспектакль по поэме А.С. Пушкина «Полтава» (1828) с участием советского и российского актёра, Народного артиста СССР Кирилла Юрьевича Лаврова (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11E62FD08AF430BE4480651E08CA9608743CDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793888   (67427) от 26.04.2025
+
+Фёдор Достоевский | Маленький герой (1979) [MP3, Мария Петрова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Библиотека школьника.
+Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
+Рассказ «Маленький герой» Ф.М. Достоевского, опубликованный под псевдонимом М-ий в 1857 году в восьмом номере журнала (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870634F6E97CBFEC0675E529EE8B3EC47F7AC082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795335   (67175) от 03.05.2025
+
+Антон Чехов | Скрипка Ротшильда (2002) [MP3, Игорь Дмитриев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Библиотека школьника.
+Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
+В 1882 году Чехов купил имение Мелихово, чему был несказанно рад. Он отстранился от столичной жизни и развил в имении бурную деятельность: стал строить школы для крестьянских детей, участвовал в (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD24574A068FD43B2206F73FA064DCF1174737C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795465   (67102) от 04.05.2025
+
+Николай Гумилёв | Рассказы (2024) [MP3, Юрий Елагин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения
+Николай Степанович Гумилёв (1886–1921) русский поэт, яркий представитель Серебряного века отечественной литературы. Основал поэтическую школу акмеизма, активно выступал как литературный критик и переводчик.
+В аудиокнигу вошли избранные рассказы Н.С.Гумилёва.
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D5BA0D2EB2AF8540BE5A5D3AFA150064EB8147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795568   (67055) от 05.05.2025
 
 Фёдор Достоевский | Записки из подполья (2024) [MP3, Иван Литвинов]
@@ -6,7 +119,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67055.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67052.jpg" />
 </div>
 
 
@@ -58,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67025.jpg" />
 </div>
 
 
@@ -87,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67022.jpg" />
 </div>
 
 
@@ -116,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66680.jpg" />
 </div>
 
 
@@ -144,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66677.jpg" />
 </div>
 
 
@@ -172,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66653.jpg" />
 </div>
 
 
@@ -201,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66612.jpg" />
 </div>
 
 
@@ -229,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66610.jpg" />
 </div>
 
 
@@ -257,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66575.jpg" />
 </div>
 
 
@@ -285,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66564.jpg" />
 </div>
 
 
@@ -314,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66494.jpg" />
 </div>
 
 
@@ -343,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66415.jpg" />
 </div>
 
 
@@ -371,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66385.jpg" />
 </div>
 
 
@@ -400,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66383.jpg" />
 </div>
 
 
@@ -429,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66272.jpg" />
 </div>
 
 
@@ -457,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66266.jpg" />
 </div>
 
 
@@ -485,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66265.jpg" />
 </div>
 
 
@@ -513,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66244.jpg" />
 </div>
 
 
@@ -541,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66204.jpg" />
 </div>
 
 
@@ -570,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66131.jpg" />
 </div>
 
 
@@ -599,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66059.jpg" />
 </div>
 
 
@@ -612,121 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEC188F50D4DDEF257140CC331ADB60317F95F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802454   (66058) от 17.06.2025
-
-Иван Бунин | Дело корнета Елагина (Радиоспектакль) (1991) [MP3, Борис Улитин, Анатолий Петров и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Литературный сериал.
-Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
-Рассказ Ивана Бунина «Дело корнета Елагина» (1926)написан на основе реального уголовного дела об убийстве русским офицером Бартеневым польской актрисы Висновской.
-Впервые напечатано в газете «Возрождение», (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D68798A5A0E20C29F18EB17261AE2AE5C47735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802478   (66056) от 17.06.2025
-
-Иван Бунин | Господин из Сан-Франциско (2002) [MP3, Игорь Дмитриев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Литературный сериал.
-Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
-Рассказ-притча И.А. Бунина «Господин из Сан-Франциско» был написан в 1915 году и впервые опубликован в этом же году в сборнике «Слово».
-(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636EB81973B951DC051BE2E0674952ED4372DA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802455   (66053) от 17.06.2025
-
-Иван Бунин | Дело корнета Елагина (2024) [MP3, Дмитрий Креминский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
-Писательскому перу Ивана Бунина всегда была присуща реалистическая манера. Когда речь шла об увядающей деревне, он создавал живописные картины гибели; когда речь шла о любви – картины радости и света.
-В «Деле корнета Елагина» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ООО «Эвербук»Продолжительность: 01:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A689BA0C5F73C69ED52C48193D91F78DF82B7612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803108   (65921) от 21.06.2025
-
-Александр Куприн | Ночная фиалка (Инсценировка) (1992) [MP3, Игорь Дмитриев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Малая проза.
-Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
-«Ночная фиалка» – рассказ А.И. Куприна, написанный им во время эмиграции в Париже (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09233C02B0F642BE8538F598335EF26E1F8253A
 ```
 
 https://mybot314.ru/tekegram_catalog/

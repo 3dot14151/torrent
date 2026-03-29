@@ -6,7 +6,7 @@ Grey Daze - Amends (2020) [MP3|320 Kbps] <Alt.Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769093.jpg" />
+  <img src="Z:/picture/008/save_picture_769093.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Anix - Graphite (2020) [MP3|320 Kbps] <Alt.Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769088.jpg" />
+  <img src="Z:/picture/008/save_picture_769088.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Everase - Go For Broke (2020) [MP3|320 Kbps] <Metalcore, Alternative, Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768914.jpg" />
+  <img src="Z:/picture/008/save_picture_768914.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bury Tomorrow - Cannibal (2020) [MP3|320 Kbps] <Melodic Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766290.jpg" />
+  <img src="Z:/picture/008/save_picture_766290.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ This Is Falling - Reprise (2020) [MP3|320 Kbps] <Metalcore, Post Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765347.jpg" />
+  <img src="Z:/picture/008/save_picture_765347.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ While She Sleeps - You Are We (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765285.jpg" />
+  <img src="Z:/picture/008/save_picture_765285.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sleepsculptor - Sleepsculptor (2020) [MP3|320 Kbps] <Mathcore, Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763754.jpg" />
+  <img src="Z:/picture/008/save_picture_763754.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Time Thieves - Space (2020) [MP3|320 Kbps] <Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763749.jpg" />
+  <img src="Z:/picture/008/save_picture_763749.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Deuce - Nightmare (2018) EP [MP3|320 Kbps] <Alternative Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763077.jpg" />
+  <img src="Z:/picture/008/save_picture_763077.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ White Lies - Five (2019) [MP3|320 Kbps] <Indie,  Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762135.jpg" />
+  <img src="Z:/picture/008/save_picture_762135.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Blessthefall - Hard Feelings (2018) [MP3|320 Kbps] <Post-Hardcore, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761454.jpg" />
+  <img src="Z:/picture/008/save_picture_761454.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760687.jpg" />
+  <img src="Z:/picture/008/save_picture_760687.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760602.jpg" />
+  <img src="Z:/picture/008/save_picture_760602.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Wildways - Day X (2018) [MP3|320 Kbps] <Post-Hardcore, Metalcore, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759615.jpg" />
+  <img src="Z:/picture/008/save_picture_759615.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ PVRIS - Use Me (2020) [MP3|320 Kbps] <Alt.Rock, Pop-Rock, Female Vocal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755476.jpg" />
+  <img src="Z:/picture/008/save_picture_755476.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755195.jpg" />
+  <img src="Z:/picture/008/save_picture_755195.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Escape the Fate - I Am Human (2018) [MP3|320 Kbps] <Alternative Rock, Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749326.jpg" />
+  <img src="Z:/picture/008/save_picture_749326.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ B.F.G - Blue (серия "Другие восьмидесятые") (1989) Remas
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743736.jpg" />
+  <img src="Z:/picture/008/save_picture_743736.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Blur - The Magic Whip (2015) [MP3|320 кб/с]<Alternative, Britpop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743247.jpg" />
+  <img src="Z:/picture/008/save_picture_743247.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741709.jpg" />
+  <img src="Z:/picture/008/save_picture_741709.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Spiderbait - Spiderbait (2013) [MP3|320 кб/с]<Alternative Rock, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741274.jpg" />
+  <img src="Z:/picture/008/save_picture_741274.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Underoath - Erase Me (2018) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740846.jpg" />
+  <img src="Z:/picture/008/save_picture_740846.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ We Are The Catalyst - Ephemeral (2019) [MP3|320 Kbps] <Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739730.jpg" />
+  <img src="Z:/picture/008/save_picture_739730.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Buzzcocks - The Way (2014) [MP3|320 кб/с]<Alternative Rock, Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739046.jpg" />
+  <img src="Z:/picture/008/save_picture_739046.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Clash - Hits Back (2013) 2 СD [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738973.jpg" />
+  <img src="Z:/picture/008/save_picture_738973.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Blue October - Дискография (1998-2009) [MP3|320 Kbps] <Alternative ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733008.jpg" />
+  <img src="Z:/picture/008/save_picture_733008.jpg" />
 </div>
 
 

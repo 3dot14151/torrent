@@ -1,3 +1,107 @@
+###  Публикация: 1414298   (386973) от 07.10.2020
+
+BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB (Серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_386973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взросление – это самая удивительная трансформация. Вот мы милые и симпатичные пучки радости, и все нас любят. И вот нас уже распирает от эмоций так, что мы покрываемся пятнами, и все нас ненавидят. Ну, нам так кажется. Ученые только сейчас обнаруживают массу удивительных вещей, которые происходят с нами по мере того, как растут наши тела и формируются наши личности… (   Читать дальше...   )Производство: Великобритания, Oxford Scientific Films, BBC WorldwideЖанр: Документальный, научно-популярныйРежиссер: Люк УайлсПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: НетПродолжительность: 2х ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081AA7C85B0D909B06B63112D341CF0BBD797A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164085   (386793) от 14.10.2017
+
+Discovery. Торговцы космосом (космические дилеры) / Space Dealers (2017) HDTVRip (Серия 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_386793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре торговца космической атрибутикой колесят по Америке в поисках побывавших в космосе артефактов. Будь то туалет с пилотируемого космического корабля «Джемини-12», шлем Нила Армстронга, который был на нём во время полёта на экспериментальном самолёте-ракетоплане «Икс-15», или даже сухой паёк астронавтов – коллекционеры готовы отдать огромные деньги, лишь бы пополнить (   Читать дальше...   )Производство: США, Discovery ChannelЖанр: Документальный, телешоуПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C993E99231B3705BDA43A465060A3896DD1ED8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253239   (385441) от 08.10.2018
+
+NG. Экстремальный Китай. Горы Сыгунян / Extreme China (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователь и фотограф Бен Хортон объединяется с несколькими китайскими исследователями, чтобы отправиться в путешествие, которое позволит им познакомиться с жизнью и бытом трех общин, живущих в экстремальных условиях. И убедиться, что они научились не только выживать, но и чувствовать себя в этих условиях вполне комфортно.Производство: КНР, China Intercontinental Communication, National GeographicЖанр: Документальный, путешествие, исследованиеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C0B39A9D0C20D00B6BD83F5B1B01BDFFEB1B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569589   (385060) от 08.11.2012
+
+GoPro HD: Dreams with Kelia Moniz - Roxy Wahine Classic 2011 (Music from SKY) [1080p] WEBRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рокси серфер Kelia Moniz на длинной доске, сессия на красивых пляжах Вайкики.Жанр: музыка, документальныйПеревод: oтсутствуетПродолжительность: 00:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70E9BC6BD0ECC4A4FEF6EAA6B9866F80B464BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534686   (385054) от 08.11.2012
 
 Discovery: 100 величайших гаджетов со Стивеном Фраем [серия 2] / Stephen Fry's 100 Greatest Gadgets (2011) SATRip
@@ -6,7 +110,7 @@ Discovery: 100 величайших гаджетов со Стивеном Фр�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385054.jpg" />
+  <img src="Z:/picture/008/save_picture_385054.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383558.jpg" />
+  <img src="Z:/picture/008/save_picture_383558.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383450.jpg" />
+  <img src="Z:/picture/008/save_picture_383450.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383020.jpg" />
+  <img src="Z:/picture/008/save_picture_383020.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Замбези / The Zambezi (2010) HDTVRip [H.264/720p-LQ] (эпизоды
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383014.jpg" />
+  <img src="Z:/picture/008/save_picture_383014.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382631.jpg" />
+  <img src="Z:/picture/008/save_picture_382631.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ History Channel: Библия - Секретные материалы / Bible Se
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382526.jpg" />
+  <img src="Z:/picture/008/save_picture_382526.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Animal Planet: Океанариум / The Aquarium (2019) HDTV [H.264/1080i] (э
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382518.jpg" />
+  <img src="Z:/picture/008/save_picture_382518.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Discovery. Дороги России: Трасса А-161: Саянский пе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382340.jpg" />
+  <img src="Z:/picture/008/save_picture_382340.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ PBS. Nova. Тайна кода майя / Cracking the Maya Code (2008) SATRip
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381237.jpg" />
+  <img src="Z:/picture/008/save_picture_381237.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Что такое красота? / What is beauty? (2009) DVBRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380619.jpg" />
+  <img src="Z:/picture/008/save_picture_380619.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Animal Planet: Expedition Mungo / Экспедиция Мунго (2017) HDTVRip
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380508.jpg" />
+  <img src="Z:/picture/008/save_picture_380508.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NGW: В неизвестность с Джеком Рэнделлом / Out Ther
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380500.jpg" />
+  <img src="Z:/picture/008/save_picture_380500.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380499.jpg" />
+  <img src="Z:/picture/008/save_picture_380499.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380244.jpg" />
+  <img src="Z:/picture/008/save_picture_380244.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380238.jpg" />
+  <img src="Z:/picture/008/save_picture_380238.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC. Британские времена года / The Great British Year (2013
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380224.jpg" />
+  <img src="Z:/picture/008/save_picture_380224.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380126.jpg" />
+  <img src="Z:/picture/008/save_picture_380126.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379981.jpg" />
+  <img src="Z:/picture/008/save_picture_379981.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378358.jpg" />
+  <img src="Z:/picture/008/save_picture_378358.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378105.jpg" />
+  <img src="Z:/picture/008/save_picture_378105.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Discovery: Я - это зло (сезон 1, 12 серий из 12) / Discovery.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378101.jpg" />
+  <img src="Z:/picture/008/save_picture_378101.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Discovery: Я - это зло (сезон 1, 12 серий из 12) / Discovery.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE33AD1FF82405D111BD071538DD1FAF4C742141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253987   (377379) от 12.10.2018
-
-BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In The Huddle (2013) BDRip (1-3 серии из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пингвины - за их вздорным очарованием скрывается удивительный характер. Эти нахальные птицы вынуждены выращивать своих птенцов сталкиваясь с самыми невероятными трудностями. Скрытые камеры помогут узнать настолько они на самом деле необыкновенные. От ледяной Антарктики до раскаленных тропиков - это рассказ о самых преданных родителях в мире - снятый так, как никогда (   Читать дальше...   )Производство: Великобритания, John Downer Productions Ltd., British Broadcasting Corporation (BBC), NHK BS PremiumЖанр: Документальный, познавательный, фаунаРежиссер: Джон ДоунерПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: отсутствуютПродолжительность: 3 х ~ 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33AD8986A313E76DFF52154E88EBAC8401861325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253989   (377373) от 12.10.2018
-
-BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In The Huddle (2013) BDRemux [H.264/1080i] (1-3 серии из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пингвины - за их вздорным очарованием скрывается удивительный характер. Эти нахальные птицы вынуждены выращивать своих птенцов сталкиваясь с самыми невероятными трудностями. Скрытые камеры помогут узнать настолько они на самом деле необыкновенные. От ледяной Антарктики до раскаленных тропиков - это рассказ о самых преданных родителях в мире - снятый так, как никогда (   Читать дальше...   )Производство: Великобритания, John Downer Productions Ltd., British Broadcasting Corporation (BBC), NHK BS PremiumЖанр: Документальный, познавательный, фаунаРежиссер: Джон ДоунерПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: Русские, английскиеПродолжительность: 3 х ~ 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACED283697999C4BF01EDD6155A65431699754F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252594   (377283) от 12.10.2018
-
-NG. Годы опасной жизни / Years of Living Dangerously (2016) DVB (Сезон 2, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробный рассказ о самых важных проблемах изменения климата угрожающих Земле, и о реальных решениях для них. От Индии и Китая до Африки и США - этот фильм покажет убедительные и важные истории о людях, сообществах и правительствах, которые сталкиваются с необходимостью сделать важный выбор, который повлияет на жизни миллионов людей следующих поколений.Производство: США, The Years Project, National Geographic, Showtime Networks, 20th Century Fox Home Entertainment, Discovery Channel, FilmRise, NHK BS1Жанр: Документальный, исследование, экологияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD61D544840A84AD2B0BC2CF7050C443096A3417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253985   (377167) от 12.10.2018
-
-NG. Титаник: 20 лет спустя с Джеймсом Кэмероном / Titanic: 20 Years Later with James Cameron (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через 20 лет после начала мирового проката "Титаника" Джеймс Кэмерон собирает группу экспертов, чтобы повторно проанализировать факты, собранные об этой катастрофе, и спросить себя: "Знаем ли мы правду?"Производство: США, Earthship Productions, Mob Scene, National Geographic ChannelЖанр: Документальный, расследование, драмаРежиссер: Томас С. ГрэйнПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD57F5AEDCA72976273F62A6A6D89CE60209BFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

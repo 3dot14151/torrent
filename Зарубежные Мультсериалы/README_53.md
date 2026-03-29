@@ -1,3 +1,56 @@
+###  Публикация: 592743   (133786) от 25.12.2012
+
+Мультфильмы Текса Эйвери. Полная коллекция Metro Goldwyn Mayer / Tex Avery. The Complete MGM Collection (1942-1957) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых известных режиссеров Текс Эйвери в 1940-50-х годах создал потрясающие короткометражные мультфильмы, принесшие ему мировую славу и ставшие уже давно классикой. Его забавные персонажи и море развеселых шуток никогда не устареют, потому что до сих пор над ними смеются как дети, так и взрослые.Жанр: Рисованная анимация, ДетскийРежиссер: Текс ЭйвериПерсонажи: Друпи, Бешенная Белка, Волк, Красная Шапочка, Спайк, Джордж и Малыш и др.Перевод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: Ошурков, Дольский, Дохалов, Кузнецов, Иванов, Латышев, ГранкинПродолжительность: Мультфильмы: 67 серий по ~ 00:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57999C5AA4870C08B72BBD8B448F4D4673169C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594572   (133307) от 26.12.2012
+
+Южный парк / South Park (15 сезон, серии 1-14 из 14) (2011) [H.264/720p-LQ] WEB-DL
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странноватые истории из жизни нескольких третьеклашек из маленького городка Саус Парк в штате Колорадо.
+Это комедия с элементами гротеска, фарса, пародии, обильно сдобренная музыкой и той самой плохо определяемой словами чертовщиной...Жанр: Мультфильм, КомедияРежиссер: Трей Паркер / Trey Parker, Мэтт Стоун / Matt StoneПерсонажи: Эрик Картман, Стэнли  Марш, Кайл Брофловски, Кенни МаккормикПеревод: Многоголосый закадровый, Двуголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 14 x ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C90074C3B744405C2F0F03AF981EE970655E0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682538   (131471) от 07.12.2023
 
 Новые дела Скуби-Ду / The New Scooby-Doo Movies (1973) DVDRip (Сезон 2, Серии 1-8 из 8) Пифагор
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131471.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131389.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130586.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2022) WEB-DL [H.264/1080
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130543.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130255.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128929.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128928.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128927.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127181.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126717.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126712.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125551.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125320.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125315.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124986.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124942.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124940.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124903.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124597.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124577.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124318.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124289.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124142.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123450.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E604D0BE4CA9301D7379677A7BD364E8472754D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692873   (122239) от 18.01.2024
-
-Соник Прайм / Sonic Prime (2022) DVBRip [H.264/1080p] (3 сезон серии 1 - 7 из 7) HDrezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал рассказывает о приключениях необычного синего ежа способного перемещаться в пространстве на сверхзвуковой скорости, что делает его своего рода супергероем. Битва с коварным злодеем доктором Эггманом приводит к тому, что Соник оказывается в совершенно другой Вселенной, а его привычный мир вскоре может и вовсе исчезнуть. Соник мчится по параллельным мирам, (   Читать дальше...   )Производство: США, Канада, Япония, Flixzilla Aura, Man of Action Entertainment, Netflix AnimationЖанр: мультфильм, фантастика, фэнтези, боевик, мелодрама, комедия, приключения, семейныйРежиссер: Kiran Sangherra, Эрик Висе, Иши РуделлАктеры: Девен Кристиан Мак, Эшли Болл, Шеннон Чан-Кент, Брайан Драммонд, Adam Nurada, Кадзуми Эванс, Иэн Хэнлин, Винсент Тонг, Шон МакЛофлинПеревод: Многоголосый профессиональный (HDrezka Studio)Субтитры: Русские (Full), Английские SDHПродолжительность: ~ 00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BBE9A786403237CD7D120582A6345B8A523305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823250   (121525) от 10.10.2025
-
-Обитатели холмов / Watership Down (2018) WEBRip [AV1/1080p-LQ] (сезон 1, серии 1-4 из 4) [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о семействе кроликов, который ищут себе новый дом после того, как одному из них приснился кошмарный сон о приближающейся катастрофе.Производство: Ирландия, Великобритания, США / Biscuit Ent., ITV Studios, BBCЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Ноам МурроАктеры: Джеймс Макэвой, Николас Холт, Джон Бойега, Бен Кингсли, Том Уилкинсон, Джемма Артертон, Питер Капальди, Оливия Колман, Макензи Крук, Энн-Мэри ДаффПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: ~ 00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7038818F79B270EB3E891DB75D47BA61B3AE95B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

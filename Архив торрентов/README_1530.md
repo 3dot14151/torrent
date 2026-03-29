@@ -6,7 +6,7 @@ VA - Platipus: Archive 10 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704160.jpg" />
+  <img src="Z:/picture/008/save_picture_704160.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Registry Life 3.29 DC 15.06.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704155.jpg" />
+  <img src="Z:/picture/008/save_picture_704155.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PeakHour 3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704153.jpg" />
+  <img src="Z:/picture/008/save_picture_704153.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704152.jpg" />
+  <img src="Z:/picture/008/save_picture_704152.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704137.jpg" />
+  <img src="Z:/picture/008/save_picture_704137.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Pedro Del Mar - Mellomania Deluxe 439 (14-06-2010) [MP3|256 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704131.jpg" />
+  <img src="Z:/picture/005/save_picture_704131.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Pedro Del Mar - Mellomania Vocal Trance Anthems 109 (14-06-2010) [MP3|256 kbps]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704130.jpg" />
+  <img src="Z:/picture/005/save_picture_704130.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ W10Privacy 3.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704105.jpg" />
+  <img src="Z:/picture/008/save_picture_704105.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Kubuntu*Pack 14.04 (апрель 2018) [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704101.jpg" />
+  <img src="Z:/picture/008/save_picture_704101.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ KCNcrew Pack 06-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704080.jpg" />
+  <img src="Z:/picture/008/save_picture_704080.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - The Best Of Touched (so far) (2015) Touched Music [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704078.jpg" />
+  <img src="Z:/picture/008/save_picture_704078.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704076.jpg" />
+  <img src="Z:/picture/008/save_picture_704076.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704075.jpg" />
+  <img src="Z:/picture/008/save_picture_704075.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Blocs 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704068.jpg" />
+  <img src="Z:/picture/008/save_picture_704068.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Free Studio 6.6.21.610 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704064.jpg" />
+  <img src="Z:/picture/008/save_picture_704064.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ K-Lite Codec Pack Update 12.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704063.jpg" />
+  <img src="Z:/picture/008/save_picture_704063.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Alfred Powerpack 3.0.2 (676) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704062.jpg" />
+  <img src="Z:/picture/008/save_picture_704062.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Xliff Editor 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704060.jpg" />
+  <img src="Z:/picture/008/save_picture_704060.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Antivirus Zap Pro 3.10.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704056.jpg" />
+  <img src="Z:/picture/008/save_picture_704056.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FSNotes 4 v4.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704055.jpg" />
+  <img src="Z:/picture/008/save_picture_704055.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dash 5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704052.jpg" />
+  <img src="Z:/picture/008/save_picture_704052.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Rottenwood 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704050.jpg" />
+  <img src="Z:/picture/008/save_picture_704050.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704039.jpg" />
+  <img src="Z:/picture/005/save_picture_704039.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Xubuntu*Pack 14.04 (апрель 2018) [i386, amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703982.jpg" />
+  <img src="Z:/picture/008/save_picture_703982.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Reg Organizer 8.11 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703975.jpg" />
+  <img src="Z:/picture/008/save_picture_703975.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Lubuntu*Pack 14.04 (апрель 2018) [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703968.jpg" />
+  <img src="Z:/picture/008/save_picture_703968.jpg" />
 </div>
 
 

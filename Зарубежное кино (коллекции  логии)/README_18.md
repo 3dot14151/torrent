@@ -6,7 +6,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302550.jpg" />
+  <img src="Z:/picture/008/save_picture_302550.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302549.jpg" />
+  <img src="Z:/picture/008/save_picture_302549.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301667.jpg" />
+  <img src="Z:/picture/008/save_picture_301667.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300793.jpg" />
+  <img src="Z:/picture/008/save_picture_300793.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300418.jpg" />
+  <img src="Z:/picture/008/save_picture_300418.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300382.jpg" />
+  <img src="Z:/picture/008/save_picture_300382.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300367.jpg" />
+  <img src="Z:/picture/008/save_picture_300367.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298225.jpg" />
+  <img src="Z:/picture/008/save_picture_298225.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292470.jpg" />
+  <img src="Z:/picture/008/save_picture_292470.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291362.jpg" />
+  <img src="Z:/picture/008/save_picture_291362.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291352.jpg" />
+  <img src="Z:/picture/008/save_picture_291352.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290640.jpg" />
+  <img src="Z:/picture/008/save_picture_290640.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290526.jpg" />
+  <img src="Z:/picture/008/save_picture_290526.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289311.jpg" />
+  <img src="Z:/picture/008/save_picture_289311.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283860.jpg" />
+  <img src="Z:/picture/008/save_picture_283860.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283617.jpg" />
+  <img src="Z:/picture/008/save_picture_283617.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278787.jpg" />
+  <img src="Z:/picture/008/save_picture_278787.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_278065.jpg" />
+  <img src="Z:/picture/005/save_picture_278065.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277603.jpg" />
+  <img src="Z:/picture/008/save_picture_277603.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276490.jpg" />
+  <img src="Z:/picture/008/save_picture_276490.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275617.jpg" />
+  <img src="Z:/picture/008/save_picture_275617.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274956.jpg" />
+  <img src="Z:/picture/008/save_picture_274956.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274712.jpg" />
+  <img src="Z:/picture/008/save_picture_274712.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273838.jpg" />
+  <img src="Z:/picture/008/save_picture_273838.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273251.jpg" />
+  <img src="Z:/picture/008/save_picture_273251.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272938.jpg" />
+  <img src="Z:/picture/008/save_picture_272938.jpg" />
 </div>
 
 

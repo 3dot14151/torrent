@@ -6,7 +6,7 @@ Haunted Hotel 6: Ancient Bane / Проклятый отель 6: Древнее 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545231.jpg" />
+  <img src="Z:/picture/008/save_picture_545231.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Death and Betrayal in Romania: A Dana Knightstone Novel 5 (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545126.jpg" />
+  <img src="Z:/picture/008/save_picture_545126.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dark Romance 9: A Performance To Die For / Роман Тьмы 9: Фантом �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543703.jpg" />
+  <img src="Z:/picture/008/save_picture_543703.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ New York Mysteries 4: The Outbreak / Загадки Нью-Йорка 4: Про�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543264.jpg" />
+  <img src="Z:/picture/008/save_picture_543264.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Immortal Love 2: The Price of a Miracle / Бессмертная любовь 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542649.jpg" />
+  <img src="Z:/picture/008/save_picture_542649.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PuppetShow 11: Arrogance Effect / Шоу марионеток 11: Эффект �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542380.jpg" />
+  <img src="Z:/picture/008/save_picture_542380.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Midnight Mysteries 5: Witches of Abraham / Тайны прошлого 5: Вед
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541706.jpg" />
+  <img src="Z:/picture/008/save_picture_541706.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kronville: Stolen Dreams (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541212.jpg" />
+  <img src="Z:/picture/008/save_picture_541212.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Morphopolis (2014) [En] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540350.jpg" />
+  <img src="Z:/picture/008/save_picture_540350.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Nightmares from the Deep: The Cursed Heart (2012) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540346.jpg" />
+  <img src="Z:/picture/008/save_picture_540346.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Zodiac Prophecies. The Serpent Bearer / Пророчество Зодиака. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538944.jpg" />
+  <img src="Z:/picture/008/save_picture_538944.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Enigmatis 3: The Shadow of Karkhala (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538301.jpg" />
+  <img src="Z:/picture/008/save_picture_538301.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fear for Sale 6: Endless Voyage / Страх на продажу 6: Призра
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538022.jpg" />
+  <img src="Z:/picture/008/save_picture_538022.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Labyrinths of the World 9: Lost Island / Лабиринты мира 9: Зате
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537928.jpg" />
+  <img src="Z:/picture/008/save_picture_537928.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Midnight Mysteries 4: Haunted Houdini / Тайны прошлого 4: Зага�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537926.jpg" />
+  <img src="Z:/picture/008/save_picture_537926.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Don't Escape: 4 Days to Survive (2019) [En] (1.0.1) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537798.jpg" />
+  <img src="Z:/picture/008/save_picture_537798.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Whispered Secrets 4: Golden Silence (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537195.jpg" />
+  <img src="Z:/picture/008/save_picture_537195.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Shadowplay 2. Whispers of the Past Collectors Edition (2017) [En] (1.0) Unoffici
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537071.jpg" />
+  <img src="Z:/picture/008/save_picture_537071.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Myths of the World 11: The Black Sun (2017) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537069.jpg" />
+  <img src="Z:/picture/008/save_picture_537069.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Flights Of Fancy: Two Doves / Полёты фантазии: Два голубя
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537039.jpg" />
+  <img src="Z:/picture/008/save_picture_537039.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537025.jpg" />
+  <img src="Z:/picture/008/save_picture_537025.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Kingdom Of Aurelia: Mystery Of The Poisoned Dagger / Королевство Ау
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536990.jpg" />
+  <img src="Z:/picture/008/save_picture_536990.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dark Realm 4: Guardian Of Flames (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536981.jpg" />
+  <img src="Z:/picture/008/save_picture_536981.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Green Moon 2. Children of the Moon / Зеленая Луна 2. Дети Лун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536886.jpg" />
+  <img src="Z:/picture/008/save_picture_536886.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Amaranthine Voyage 8. The Burning Sky (2017) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535316.jpg" />
+  <img src="Z:/picture/008/save_picture_535316.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Punished Talents: Seven Muses / Наказанные талантом: Семь 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535263.jpg" />
+  <img src="Z:/picture/008/save_picture_535263.jpg" />
 </div>
 
 

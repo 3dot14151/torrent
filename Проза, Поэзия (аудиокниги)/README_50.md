@@ -1,3 +1,56 @@
+###  Публикация: 1038759   (598037) от 31.07.2016
+
+Роберт Бёрнс | Джон - Ячменное зерно (2016) [MP3, Елизавета Крупина]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598037.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Джон Ячменное Зерно» – сборник шотландского поэта, фольклориста, автора многочисленных стихотворений и поэм Р. Бернса (1759 – 1796). *** В нем собраны стихотворные произведения автора, среди которых «Песнь бедняка», «Прежде всего» и известная баллада «Джон Ячменное Зерно», в основе которой лежат народные поверья о веселых духах. Эта бунтарская жизнерадостность шотландского (   Читать дальше...   )Жанр: поэзияИздательство: Нигде не купишьПродолжительность: 02:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3800A8E05404AFA677B677CD9A32A89E37726FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548620   (597907) от 03.05.2022
+
+Виктор Пелевин | Жизнь насекомых (2019) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_597907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прозу Пелевина пытались истолковать как фантастическую и постмодернистскую, но в целом определить четкие жанровые рамки его творчества - задача непосильная, и "Жизнь насекомых" - лишнее тому подтверждение.
+Действие романа разворачивается в небольшом курортном городке неподалеку от Феодосии. Автор помещает своих героев в условия постоянных социальных бурь (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53F8C3AC0329445350358F34427BC8A744B6B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038694   (597802) от 31.07.2016
 
 Петр Проскурин | Имя твое (2006) [MP3]
@@ -6,7 +59,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597802.jpg" />
+  <img src="Z:/picture/008/save_picture_597802.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597795.jpg" />
+  <img src="Z:/picture/008/save_picture_597795.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597634.jpg" />
+  <img src="Z:/picture/008/save_picture_597634.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597564.jpg" />
+  <img src="Z:/picture/008/save_picture_597564.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597380.jpg" />
+  <img src="Z:/picture/008/save_picture_597380.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596808.jpg" />
+  <img src="Z:/picture/008/save_picture_596808.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596617.jpg" />
+  <img src="Z:/picture/008/save_picture_596617.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595290.jpg" />
+  <img src="Z:/picture/008/save_picture_595290.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595276.jpg" />
+  <img src="Z:/picture/008/save_picture_595276.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595155.jpg" />
+  <img src="Z:/picture/008/save_picture_595155.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594974.jpg" />
+  <img src="Z:/picture/008/save_picture_594974.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594971.jpg" />
+  <img src="Z:/picture/008/save_picture_594971.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594968.jpg" />
+  <img src="Z:/picture/008/save_picture_594968.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594965.jpg" />
+  <img src="Z:/picture/008/save_picture_594965.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594964.jpg" />
+  <img src="Z:/picture/008/save_picture_594964.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594829.jpg" />
+  <img src="Z:/picture/008/save_picture_594829.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594685.jpg" />
+  <img src="Z:/picture/008/save_picture_594685.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594526.jpg" />
+  <img src="Z:/picture/008/save_picture_594526.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594521.jpg" />
+  <img src="Z:/picture/008/save_picture_594521.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594001.jpg" />
+  <img src="Z:/picture/008/save_picture_594001.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593484.jpg" />
+  <img src="Z:/picture/008/save_picture_593484.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593410.jpg" />
+  <img src="Z:/picture/008/save_picture_593410.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593316.jpg" />
+  <img src="Z:/picture/008/save_picture_593316.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593199.jpg" />
+  <img src="Z:/picture/008/save_picture_593199.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81A1E2B3184DB3D708D5E1F5C595F362AC2AAF06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550387   (592510) от 10.05.2022
-
-Ханс Фаллада | Один в Берлине. Каждый умирает в одиночку (2022) [MP3, Дмитрий Стрелков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1940-й год. Немецкие войска триумфально входят в Париж. Простые немцы ликуют в унисон с верхушкой Рейха, предвкушая скорый разгром Англии и установление германского мирового господства. В такой атмосфере бросить вызов режиму может или герой, или безумец. Или тот, кому нечего терять. Получив похоронку на единственного сына, столяр Отто Квангель объявляет нацизму войну. (   Читать дальше...   )Жанр: Зарубежная классика, Литература 20 векаПродолжительность: 19:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF3BCFC87D51F4B312E7AEBB17E46B7BC86D1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551812   (589432) от 17.05.2022
-
-Сергей Сергеев-Ценский | Преображение человека (1961) [MP3, Леонид Губанов и др.]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инсценированные страницы 3 части эпопеи «Преображение России» в исполнении артистов МХАТа. История инженера Матийцева, заведовавшего шахтой, принадлежавшей бельгийской компании. Он был уволен, а позже арестован за свои обвинительные слова в адрес хозяев о каторжном труде и кошмарных условиях жизни шахтеров. Это стало началом его революционного пути.Жанр: Драма, РадиоспектакльПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B425A474E7334695050567B0C4AEE71D0310295
 ```
 
 https://mybot314.ru/tekegram_catalog/

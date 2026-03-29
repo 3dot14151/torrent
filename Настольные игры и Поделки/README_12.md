@@ -6,7 +6,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217467.jpg" />
+  <img src="Z:/picture/005/save_picture_217467.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215942.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213253.jpg" />
+  <img src="Z:/picture/005/save_picture_213253.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211443.jpg" />
+  <img src="Z:/picture/005/save_picture_211443.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208930.jpg" />
+  <img src="Z:/picture/005/save_picture_208930.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207420.jpg" />
+  <img src="Z:/picture/005/save_picture_207420.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194679.jpg" />
+  <img src="Z:/picture/004/save_picture_194679.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_194669.jpg" />
+  <img src="Z:/picture/005/save_picture_194669.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194663.jpg" />
+  <img src="Z:/picture/004/save_picture_194663.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181738.jpg" />
+  <img src="Z:/picture/005/save_picture_181738.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179476.jpg" />
+  <img src="Z:/picture/005/save_picture_179476.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178910.jpg" />
+  <img src="Z:/picture/005/save_picture_178910.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178872.jpg" />
+  <img src="Z:/picture/005/save_picture_178872.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178866.jpg" />
+  <img src="Z:/picture/005/save_picture_178866.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178855.jpg" />
+  <img src="Z:/picture/005/save_picture_178855.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178821.jpg" />
+  <img src="Z:/picture/005/save_picture_178821.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177786.jpg" />
+  <img src="Z:/picture/005/save_picture_177786.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177562.jpg" />
+  <img src="Z:/picture/005/save_picture_177562.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177547.jpg" />
+  <img src="Z:/picture/005/save_picture_177547.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177395.jpg" />
+  <img src="Z:/picture/005/save_picture_177395.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177379.jpg" />
+  <img src="Z:/picture/005/save_picture_177379.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_177219.jpg" />
+  <img src="Z:/picture/004/save_picture_177219.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_177196.jpg" />
+  <img src="Z:/picture/004/save_picture_177196.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177033.jpg" />
+  <img src="Z:/picture/005/save_picture_177033.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176953.jpg" />
+  <img src="Z:/picture/005/save_picture_176953.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176722.jpg" />
+  <img src="Z:/picture/005/save_picture_176722.jpg" />
 </div>
 
 

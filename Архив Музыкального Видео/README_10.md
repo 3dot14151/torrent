@@ -6,7 +6,7 @@
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80663.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79798.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79726.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ A State Of Trance 550 Anthem Contest Podcast (2011) HDRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78937.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78554.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78308.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Korn, Ozzy Osbourne - Live at OZZFEST 2010 (2010) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78140.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Lee Ritenour&Chris Botti "Papa Was A Rolling Stone" (2005) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77508.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Glastonbury Festival 2011- Featuring Beyonce (Day 3) (2011) HDTV [H.264]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76286.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75870.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Billy Joel - Live At Shea Stadium (2011) BDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75698.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ David Garrett: Legacy - Live in Baden Baden (2011) Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72843.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Kylie Minogue, Jack Savoretti - Music's Too Sad Without You (2018) HDTVRip [H.26
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11633.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11616.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MediaInfo 0.7.86 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730998.jpg" />
+  <img src="Z:/picture/008/save_picture_730998.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ USDownloader 1.3.5.9 Portable (22.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730964.jpg" />
+  <img src="Z:/picture/008/save_picture_730964.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Master PDF Editor 5.3.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730953.jpg" />
+  <img src="Z:/picture/008/save_picture_730953.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GPU Caps Viewer 1.34.2.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730944.jpg" />
+  <img src="Z:/picture/008/save_picture_730944.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ reaConverter Pro 7.478 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730935.jpg" />
+  <img src="Z:/picture/008/save_picture_730935.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ocenaudio 3.6.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730845.jpg" />
+  <img src="Z:/picture/008/save_picture_730845.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Pale Moon 28.4.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730842.jpg" />
+  <img src="Z:/picture/008/save_picture_730842.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Bandicam 4.3.4.1503 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730832.jpg" />
+  <img src="Z:/picture/008/save_picture_730832.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mozilla Thunderbird 45.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730794.jpg" />
+  <img src="Z:/picture/008/save_picture_730794.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Firefox Browser 97.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730782.jpg" />
+  <img src="Z:/picture/008/save_picture_730782.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Firefox Browser 91.6.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730780.jpg" />
+  <img src="Z:/picture/008/save_picture_730780.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mozilla Thunderbird 91.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730767.jpg" />
+  <img src="Z:/picture/008/save_picture_730767.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CCleaner Professional 5.53.7034 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730744.jpg" />
+  <img src="Z:/picture/008/save_picture_730744.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Icecream PDF Converter Pro 2.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730724.jpg" />
+  <img src="Z:/picture/008/save_picture_730724.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Prelude CC 2017.1 6.1.0.82 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730709.jpg" />
+  <img src="Z:/picture/008/save_picture_730709.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730699.jpg" />
+  <img src="Z:/picture/008/save_picture_730699.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PhotoPad Image Editor Professional 3.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730695.jpg" />
+  <img src="Z:/picture/008/save_picture_730695.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Wise Hotkey 1.01.1 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730680.jpg" />
+  <img src="Z:/picture/008/save_picture_730680.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Blue Cat's Connector 1.0 VST (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730662.jpg" />
+  <img src="Z:/picture/008/save_picture_730662.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Opera 83.0.4254.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730659.jpg" />
+  <img src="Z:/picture/008/save_picture_730659.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ PDF24 Creator 10.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730656.jpg" />
+  <img src="Z:/picture/008/save_picture_730656.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Reg Organizer 8.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730646.jpg" />
+  <img src="Z:/picture/008/save_picture_730646.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Vivaldi 5.1.2567.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730644.jpg" />
+  <img src="Z:/picture/008/save_picture_730644.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ AutoRuns 13.94 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730631.jpg" />
+  <img src="Z:/picture/008/save_picture_730631.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ SamDrivers 19.2 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730629.jpg" />
+  <img src="Z:/picture/008/save_picture_730629.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Ashampoo WinOptimizer 16.00.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730624.jpg" />
+  <img src="Z:/picture/008/save_picture_730624.jpg" />
 </div>
 
 

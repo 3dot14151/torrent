@@ -1,3 +1,81 @@
+###  Публикация: 1381270   (827581) от 06.05.2020
+
+Александр Тамоников | След в заброшенном доме (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1943 года. В Брянской области действует немецкая шпионская сеть. Задача одной из групп – провести диверсию на прифронтовом железнодорожном узле. Фашисты уверены в успехе, ведь на советской стороне им помогает надежный агент. Но оперативникам капитана СМЕРШ Ивана Осокина удается захватить диверсантов. От них контрразведчики узнают о «кроте». Но как его вычислить? (   Читать дальше...   )Жанр: Боевики, шпионские детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E5C41A310E48856EAFC5CD4D8EDFA3CF77558C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006631   (826759) от 12.04.2016
+
+Александр Афанасьев | Транзит из ада (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морские пехотинцы США Конрад Миллер и Альдо Моралес захватывают в Гамбурге известного радикала Салема-аль-Убейди. Под угрозой пыток тот сообщает, что к берегам Европы направляется судно с атомной бомбой на борту. Оказывается, ядерный теракт в Париже, случившийся до этого, – ошибка, настоящей целью экстремистов является Германия. Именно с нее должна начаться дестабилизация (   Читать дальше...   )Жанр: Боевики: Прочее, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA1A745E5AB3613D548E311C47B20875EEDC399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381614   (826237) от 07.05.2020
+
+Анес  Батаев | Конец кровавого дьявола (1992) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общество распространения книг представляет книгу «Конец кровавого дьявола» Анеса Батаева. В характерном для начала 90-х стиле книга описывает грязным уличным языком порочное сексуальное влечение, сцены убийств и русский кулинарный каннибализм. Рассказ, подготовленный для массового читателя, стремился подчеркнуть и акцентировать самые грязные и жестокие подробности (   Читать дальше...   )Жанр: Детектив, Триллер, Про маньяков, На реальных событияхФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBA4DA5E5D2903BC7D5EDAA12059D42605AC47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196171   (825986) от 01.01.2018
 
 Ольга Лифинцева (ред.) | Трепет черных крыльев [сборник] (2017) [FB2]
@@ -6,7 +84,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825986.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825978.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825920.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825687.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825397.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825194.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824006.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823315.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823311.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822659.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822656.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822590.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822517.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822342.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822238.jpg" />
+  <img src="Z:/picture/008/save_picture_822238.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822141.jpg" />
+  <img src="Z:/picture/008/save_picture_822141.jpg" />
 </div>
 
 
@@ -443,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821228.jpg" />
+  <img src="Z:/picture/008/save_picture_821228.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821225.jpg" />
+  <img src="Z:/picture/008/save_picture_821225.jpg" />
 </div>
 
 
@@ -497,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821112.jpg" />
+  <img src="Z:/picture/008/save_picture_821112.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821111.jpg" />
+  <img src="Z:/picture/008/save_picture_821111.jpg" />
 </div>
 
 
@@ -549,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821110.jpg" />
+  <img src="Z:/picture/008/save_picture_821110.jpg" />
 </div>
 
 
@@ -575,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821109.jpg" />
+  <img src="Z:/picture/008/save_picture_821109.jpg" />
 </div>
 
 
@@ -601,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820807.jpg" />
+  <img src="Z:/picture/008/save_picture_820807.jpg" />
 </div>
 
 
@@ -612,84 +690,6 @@ XI век. В Залесский монастырь по поручению кн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5CB3A91BDCB169A6B0BC2EF1C0270BF83C5ABCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382133   (820755) от 10.05.2020
-
-Иван Погонин | Бриллианты шталмейстера [сборник] (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820755.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли два романа Ивана Погонина, главный герой которых – сыщик Мечислав Кунцевич – из небольшого криминального эпизода выходит на крупные дела. «Бриллианты шталмейстера» – о похищении драгоценностей и убийстве отпрыска высокопоставленного царедворца. «Белое золото» – о махинациях торговцев сахаром. Ретродетективы Погонина, как всегда, отличаются пристальным (   Читать дальше...   )Жанр: Исторические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FB1F4B84A3CDDF4C33F88FC6997E089A9929F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196773   (820615) от 04.01.2018
-
-Лука Д'Андреа | Сущность зла (2017) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820615.jpg" />
-</div>
-
-
-###  Подробнее
-
-После аварии, произошедшей на съемках, документалист Джереми Сэлинджер жестоко страдает от депрессии. Чтобы побыть вдали от всего и от всех, он со своей семьей едет на родину жены, в Южный Тироль, тихий уголок чудесной альпийской природы. Во время прогулки с дочерью по заповедному ущелью Блеттербах, знаменитому своими окаменелыми ископаемыми монстрами, Джереми случайно (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективы, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C102D492F5B99CC793F0CB59FCEF50B5A326C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382554   (818986) от 11.05.2020
-
-Николай Леонов, Алексей Макеев | Убит по собственному желанию (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818986.jpg" />
-</div>
-
-
-###  Подробнее
-
-В крупном областном центре совершена серия убийств. В числе погибших два предпринимателя, прокурор и журналист. Полковники МВД Гуров и Крячко выявляют людей, которые пересекались с потерпевшими. Подозрение падает на одного из них, бывшего боксера, а ныне таксиста. Оперативники устанавливают за ним наблюдение. Но боксер, почувствовав слежку, пытается бежать. Гуров (   Читать дальше...   )Жанр: Полицейские детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B5A07A237A877967D496796366A4598296AA34
 ```
 
 https://mybot314.ru/tekegram_catalog/

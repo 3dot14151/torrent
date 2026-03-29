@@ -1,3 +1,148 @@
+###  Публикация: 1330238   (340843) от 10.10.2019
+
+The Beatles - Sgt. Pepper's Lonely Hearts Club Band De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sgt. Pepper's Lonely Hearts Club Band (Take 9) (02:15)
+02-With A Little Help From My Friends (02:45)
+03-Lucy In The Sky With Diamonds (03:05)
+04-Getting Better (02:47)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6F38AB718A430BCB645B8A9ED71E7686E5FD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419401   (339840) от 28.10.2020
+
+Robert Plant - Funny In My Mind (2CD Compilation) (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom Fries
+02. Morning Dew
+03. One More Cup Of Coffee
+04. Pledge Pin(   Читать дальше...   )Жанр: RockПродолжительность: 02:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5BC997055E32A2B6D9FED439FEDAD027F1148E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419329   (339582) от 28.10.2020
+
+VA - Рок впрок 15 (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7линия - Меняем
+02. Лока 2.0 - По спирали
+03. Dругой Ветер - Нас не станет
+04. АЛЬТАВИСТА - Уникальная тварь(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 03:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679F535A69326DDB3A7D405C825C92564E092315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181007   (337650) от 05.11.2017
+
+VA - Rock Homily (2017) [MP3|192-320 Kbps] <Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337650.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Goldfrapp - Anymore
+002. Maverick - Free
+003. All but One - For the Waiting Good
+004. Slowdive - Slomo(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 08:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5466B77B52539A9A173BAC34BA8F917908B473AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181236   (334919) от 06.11.2017
+
+VA - Mark Knopfler & Dire Straits (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Knopfler & Dire Straits -  Fade to Black  (03:47) 
+02. Mark Knopfler & Dire Straits -  Heavy Fuel  (05:07) 
+03. Mark Knopfler & Dire Straits -  Iron Hand  (03:07) 
+04. Mark Knopfler & Dire Straits -  Lady Writer  (03:43) (   Читать дальше...   )Жанр: RockПродолжительность: 04:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255BD477ACCCDDEDD4D79B6428994F137B2C3693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955599   (333711) от 11.11.2015
 
 VA - Winter Rock (2015) [MP3|192-320 кб/с]<Rock, Hard Rock, Glam Rock>
@@ -6,7 +151,7 @@ VA - Winter Rock (2015) [MP3|192-320 кб/с]<Rock, Hard Rock, Glam Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333711.jpg" />
+  <img src="Z:/picture/008/save_picture_333711.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Всё это Рок-&-Ролл (2009) [MP3|192 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333705.jpg" />
+  <img src="Z:/picture/008/save_picture_333705.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Eliza Neals - Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333359.jpg" />
+  <img src="Z:/picture/008/save_picture_333359.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Music for You vol.14 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332418.jpg" />
+  <img src="Z:/picture/008/save_picture_332418.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - 100 Rock Ballads Vol.2 (2019) [MP3|320 Kbps] <Rock, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331887.jpg" />
+  <img src="Z:/picture/008/save_picture_331887.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Covered By Slade (2015) [MP3|128 кб/с]<Rock, Glam Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325630.jpg" />
+  <img src="Z:/picture/008/save_picture_325630.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Re:Aквариум (Трибьют) (2012-2013) (Lenta.ru - 135 треко�
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320283.jpg" />
+  <img src="Z:/picture/008/save_picture_320283.jpg" />
 </div>
 
 
@@ -210,7 +355,7 @@ VA - Жизнь и немного любви из русского рока-2 (2
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320222.jpg" />
+  <img src="Z:/picture/008/save_picture_320222.jpg" />
 </div>
 
 
@@ -239,7 +384,7 @@ VA - 100 Hits Total Rock (2014) 5 CD (2014) [MP3|320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318036.jpg" />
+  <img src="Z:/picture/008/save_picture_318036.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316398.jpg" />
+  <img src="Z:/picture/008/save_picture_316398.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ VA - The Gambling: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Punk Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315437.jpg" />
+  <img src="Z:/picture/008/save_picture_315437.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313973.jpg" />
+  <img src="Z:/picture/008/save_picture_313973.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ VA - Hits of My Soul Vol. 42 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311389.jpg" />
+  <img src="Z:/picture/008/save_picture_311389.jpg" />
 </div>
 
 
@@ -387,7 +532,7 @@ VA - Always On Your Side: Indie Music (2019) [MP3|320 Kbps] <Indie, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309713.jpg" />
+  <img src="Z:/picture/008/save_picture_309713.jpg" />
 </div>
 
 
@@ -416,7 +561,7 @@ VA - Hard Rock Ballads (2015) [MP3|320 кб/с]<Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309451.jpg" />
+  <img src="Z:/picture/008/save_picture_309451.jpg" />
 </div>
 
 
@@ -445,7 +590,7 @@ Gamma - Аnthology (1979-1982) [MP3|320 Kbps] <Hard & Heavy Progressive>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309063.jpg" />
+  <img src="Z:/picture/008/save_picture_309063.jpg" />
 </div>
 
 
@@ -474,7 +619,7 @@ Nightwish - From the Tarja Turunen Era (2015) 2CD, Compilation [MP3|320 Kbps] <S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308394.jpg" />
+  <img src="Z:/picture/008/save_picture_308394.jpg" />
 </div>
 
 
@@ -503,7 +648,7 @@ VA - Opera Metal Voices (2011) [MP3|256-320 кб/с]<Symphonic, Power, Gothic Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307712.jpg" />
+  <img src="Z:/picture/008/save_picture_307712.jpg" />
 </div>
 
 
@@ -532,7 +677,7 @@ VA - Mind Over Matter (2018) [MP3|320 Kbps] <Hard Rock, Metall>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305575.jpg" />
+  <img src="Z:/picture/008/save_picture_305575.jpg" />
 </div>
 
 
@@ -561,7 +706,7 @@ VA - An Olden Sea Of Prayers (2018) [MP3|320 Kbps] <Heavi, Black, Death Metall>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305573.jpg" />
+  <img src="Z:/picture/008/save_picture_305573.jpg" />
 </div>
 
 
@@ -590,7 +735,7 @@ VA - Русский рок - Фарш (2012) [MP3|320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304956.jpg" />
+  <img src="Z:/picture/008/save_picture_304956.jpg" />
 </div>
 
 
@@ -604,151 +749,6 @@ VA - Русский рок - Фарш (2012) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD94902A88B8AC4BD2822C57330B5473D61F0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960828   (304616) от 29.11.2015
-
-Ария - 30 (2015) [MP3|320 кб/с]<Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Мания величия
-02 Тореро
-03 Воля и разум
-04 Без тебя(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5133C2FA80E242A6229895BA79C55A295BFD898A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422949   (304272) от 11.11.2020
-
-VA - Hard Plylist (2020) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304272.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cellar Stone - Live While You're Alive
-002. Shadow Witch - Sour
-003. Future Static - Adaptive Manipulator
-004. Lamb Of God - Checkmate(   Читать дальше...   )Жанр: Metal, Hardcore, Hard Rock, AlternativeПродолжительность: 08:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12667398291CFB6922A141DAA434F01C30625B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261697   (301189) от 12.11.2018
-
-VA - Mind Over Matter Vol 02 (2018) [MP3|320 Kbps] <Hard Rock, Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301189.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tankard - Lock 'em Up
-002. Meliah Rage - The Kill
-003. Ensiferum - Ajattomasta Unesta
-004. Shroud of Satan - Prelude(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 10:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C8E4C9FD25C56390E0ADAFF44FC1FDAAE6D04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261731   (301073) от 12.11.2018
-
-VA - Awakening With You (2018) [MP3|320 Kbps] <Rock, Alternative Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301073.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bad Radiator - Finish What You Started
-002. For All We Know - Breathe: In
-003. Obnox - America In A Blender
-004. Viceversa - Love The Way(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 10:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D40FCFC8F07BCC3F714133B51151D8418E460A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078675   (299842) от 01.12.2016
-
-The Cult - Greatest Hits (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Fun
-02. Bad Medicine Waltz
-03. Born Into This
-04. Edie (Ciao Baby)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6998B4A50AD938828ECF065ED385B04B064A0E2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1034257   (461457) от 04.10.2016
+
+91 Days / 91 день [2016, TV, 12 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Времена сухого закона. Но власть в городе под названием Беззаконный принадлежит вовсе не полиции. Городом правит мафия. Криминальные боссы и мелкие сошки — каждый наживается за счет запрещенного варева, которое меж тем только укрепляет свои позиции на черном рынке.
+Авилио, чья семья погибла в результате мафиозных распрей, возвращается в город спустя семь долгих лет. (   Читать дальше...   )Жанр: приключенияРежиссер: Кабураки ХироСубтитры: ASS, Встроенные, Полные | Надписи «YakuSub Studio»Формат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4EC669371F8351A7F2BC8641F9B9248FA9BA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033703   (461258) от 04.10.2016
 
 Handa-kun / Ханда-кун [2016, TV, 12 ep] HDTV 720p Raw+Rus
@@ -6,7 +33,7 @@ Handa-kun / Ханда-кун [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461258.jpg" />
+  <img src="Z:/picture/008/save_picture_461258.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Haikyuu!! / Волейбол!! [2014, TV, 25 ep] WEBRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459536.jpg" />
+  <img src="Z:/picture/008/save_picture_459536.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Charlotte / Шарлотта [2015, TV, 13] HDTVRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457072.jpg" />
+  <img src="Z:/picture/008/save_picture_457072.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Orange / Апельсин [2016, TV, 13 ep] HDTVRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456652.jpg" />
+  <img src="Z:/picture/008/save_picture_456652.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Devil Survivor 2 The Animation / Выжившие среди демонов 2 [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456640.jpg" />
+  <img src="Z:/picture/008/save_picture_456640.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Muv-Luv Alternative: Total Eclipse / Total Eclipse / Полное затмени
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455487.jpg" />
+  <img src="Z:/picture/008/save_picture_455487.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Sakigake!! Otokojuku / Charge!! Men's School / Мужская школа, в а�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454968.jpg" />
+  <img src="Z:/picture/008/save_picture_454968.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken 2 / Fist of the North Star 2 / Ку
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454965.jpg" />
+  <img src="Z:/picture/008/save_picture_454965.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken / Ken, the Great Bear Fist / Кул
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454962.jpg" />
+  <img src="Z:/picture/008/save_picture_454962.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Hitsugi no Chaika: Avenging Battle / Чайка - принцесса с гроб
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454956.jpg" />
+  <img src="Z:/picture/008/save_picture_454956.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ Megalo Box | Мегалобокс [2018, TV, 13 из 13] HDTVRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454291.jpg" />
+  <img src="Z:/picture/008/save_picture_454291.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ Soten no Ken / Fist of the Blue Sky / Кулак Синего Неба [2006, TV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452827.jpg" />
+  <img src="Z:/picture/008/save_picture_452827.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ Koukaku Kidoutai 2.0 / Ghost in the Shell 2.0 / Призрак в доспеха
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452747.jpg" />
+  <img src="Z:/picture/008/save_picture_452747.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448438.jpg" />
+  <img src="Z:/picture/008/save_picture_448438.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ Arslan Senki / Сказания об Арслане [2015, TV-сериал, 25] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448432.jpg" />
+  <img src="Z:/picture/008/save_picture_448432.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446262.jpg" />
+  <img src="Z:/picture/008/save_picture_446262.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai / Скучный ми�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446257.jpg" />
+  <img src="Z:/picture/008/save_picture_446257.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ Birthday Wonderland | The Wonderland | В стране чудес [2019, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444482.jpg" />
+  <img src="Z:/picture/008/save_picture_444482.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ Shokugeki no Souma / Food Wars! Shokugeki no Soma / Кулинарные пое�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444049.jpg" />
+  <img src="Z:/picture/008/save_picture_444049.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ Mahouka Koukou no Rettousei / The Irregular at Magic High School / Бездар�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444045.jpg" />
+  <img src="Z:/picture/008/save_picture_444045.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444044.jpg" />
+  <img src="Z:/picture/008/save_picture_444044.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Berserk / Берсерк [TV-2] [2016, TV, 12] WEB-DL 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443454.jpg" />
+  <img src="Z:/picture/008/save_picture_443454.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ Outbreak Company / Мятежная компания [2013, TV, 12 ep] BDRip Hi1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439083.jpg" />
+  <img src="Z:/picture/008/save_picture_439083.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu / How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439024.jpg" />
+  <img src="Z:/picture/008/save_picture_439024.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ Naruto The Movie 10: The Last Naruto the Movie / Наруто последний
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437124.jpg" />
+  <img src="Z:/picture/008/save_picture_437124.jpg" />
 </div>
 
 
@@ -648,32 +675,6 @@ Naruto The Movie 10: The Last Naruto the Movie / Наруто последний
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B894206474929154A293B22E7DED4B42B3BD0325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165480   (432004) от 13.09.2017
-
-Mahou Tsukai no Yome: Hoshi Matsu Hito / The Ancient Magus' Bride: Those Awaiting a Star / Невеста чародея: В ожидании путеводной звезды [2017, OVA, 3 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало аниме переносит нас в Соединенное Королевство Великобритании и прекрасный ночной город Лондон, где, пока не известная нам чародейка по-имени Анжелика, готовит посылку нашей главной героине. Героиню зовут Хатори Чисэ. До событий данного аниме у неё была дюже жестокая жизнь. Мать покончила жизнь самоубийство, так как не могла принять столь странное дитя. А Чисэ (   Читать дальше...   )Жанр: приключения, фэнтези, магияРежиссер: Наганума НорихироЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 3 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C38015DD4CC4CA9D82B1D83471A47FBB4B1FE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

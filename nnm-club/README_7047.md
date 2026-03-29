@@ -1,22 +1,22 @@
-###  Публикация: 1012992   (777902) от 03.05.2016
+###  Публикация: 1209635   (779148) от 28.02.2018
 
-Проекты - VideoHive - Crystalius - Cube Logo [AEP]
+Н.В. Тулупов, П.М. Шестаков (ред.) | Пасхальный сборник (1913) [JPG]
 
->>Проекты
->>Логотипы (проекты)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Crystalius - Cube Logo - в течение 3-4 минут вы сможете получить полный логотип в стиле, соответствующем вашему бренду, цвету и даже вашему настроению. Стекло, дерево, бетон, мозаика и плитка - готовые материалы. Преломление, дисперсия отражения и свечение - являются некоторыми из эффектов, используемых в проекте. Видео инструкции включены.Формат: AEP
+Повести и рассказы русских писателей.Жанр: Детская прозаФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9F56CAA7C750A0F8D65D2FC026E8B47A7C6B8B9
+magnet:?xt=urn:btih:2DDC1B5707AFA634AE613434ECBE39DDA480D403
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013112   (777901) от 03.05.2016
+###  Публикация: 1209849   (779147) от 28.02.2018
 
-WISP - крошечный беспроводной компьютер, которому для работы достаточно энергии радиоволн
+VA - Yoga Love - The Full Moon Sessions 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
 
->>След.
->>DailyTechInfo
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разработчики различных электронных устройств каждый раз сталкиваются с проблемой обеспечения электрического питания. Самым легким способом является подключение устройства к электрической сети, однако это ограничивает мобильность устройства длиной его шнура питания. Можно снабдить устройство аккумуляторными батареями, но они требуют периодической подзарядки и имеют (   Читать дальше...   )
+01.  Arrival  11:20
+02.  Polyshake Bells  13:13
+03.  Interludium  02:54
+04.  Good Mooning  29:22(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:53:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:43DACBB21C71435799AB69AE5DCDA848288AED39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211229   (777900) от 06.03.2018
+###  Публикация: 1209670   (779146) от 28.02.2018
 
-Hal Galper - Wild Bird (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+Amanda Ginsburg - Jag har funderat pa en sak (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Convocation [07:12]
-02. Wild Bird [08:13]
-03. Change Up [05:18]
-04. This Moment [11:54](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:39:58
+01. I de manga valens land (4:09)
+02. Vem ar du? (4:20)
+03. En romantisk komedi (2:07)
+04. Flykten fran vardagen (feat. Nils Landgren) (4:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD022D5C411F4FDBBDB68AF84E2E556B2F14BDAA
+magnet:?xt=urn:btih:552814170AD452FC25A6BBEE37B7A773EA9D65A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,115 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211228   (777899) от 06.03.2018
+###  Публикация: 1209701   (779145) от 28.02.2018
 
-Oscar Pettiford - Vienna Blues: The Complete Session (1959) 1988, Black Lion [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cohn's Limit [04:29]
-02. The Gentle Art of Love [06:52]
-03. All the Things You Are [04:04]
-04. Stalag 414 [05:09](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78D95B416FEABBCE4808BD37DAB118DB06D9778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211223   (777898) от 06.03.2018
-
-Jimmy Rosenberg - Trio (2004) Hot Club Records [FLAC|Lossless|tracks + .cue] <Gypsy Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One of Those Things [02:41]
-02. China Boy [01:47]
-03. Made for Wesley [03:20]
-04. Cherokee [01:56](   Читать дальше...   )Жанр: Gypsy Jazz, SwingПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FC4093891664251CBA0C08D7B7D893799FB162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211118   (777897) от 06.03.2018
-
-VA - Peaceful Morning (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - Theme from "I Remember" 06:32
-02. Roy Dark - The Voice of the Goddes 06:19
-03. Monsieur Jean - The Color of Summer 07:07
-04. Aandra - Intermix (Feat. Derrick McKenzie) 04:15(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D33F4C54B014773DA4AB34C2E7F39D63C8C2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211167   (777896) от 06.03.2018
-
-VA - Empire Records - Blue Line Trance 2 (2018) [MP3|320 Kbps] <Trance>
+VA - Winter Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jonas Blue feat. William Singe - Mama (Kevu Festival Bootleg)
-02. Jon Thomas, DJ Backslash, Johnny Catch - Never Been Honest
-03. Jon Bellion - iRobot (Landis Remix)
-04. Newclaess - Be The One(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:47
+001. 7even (GR) - Make It Hot (Original Mix)
+002. The Models - Twist & Bounce
+003. Jaques Le Noir - Now It's Time (Original Mix)
+004. Beach Coffee Ensemble - Bsospicius Area(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:30:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E98C4EAAF5D2B20B71A31E66FD8045E0F38BF935
+magnet:?xt=urn:btih:9D29F35AE37201735FF339649FB03D75B24836FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,26 +111,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211193   (777895) от 06.03.2018
+###  Публикация: 1209763   (779144) от 28.02.2018
 
-The Temperance Movement - Up In The Sky Vs. Tender (2014) Single, Earache [MP3|320 Kbps] <Rock, Blues Rock, Hard Rock>
+VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Bukovski & Andy Elliass & Arczi With Aneym - All I Can Do (Extended Mix) 6:34
+02. Andy Moor & Michele C - We Can Be Free (Evan Pearce Remix) 6:33
+03. Rene Ablaze Ft. Crystal Blakk - Torn Into Pieces (Extended Mix) 7:11
+04. Sarah Lynn - Put You Together Again (Extended Mix) 7:28(   Читать дальше...   )Жанр: Energy, Blissful, UpliftingПродолжительность: 01:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209676   (779143) от 28.02.2018
+
+Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Temperance Movement - британская(вернее Шотланская ) блюз рок, хард рок- группа, сформированная в 2011 году вокалистом Филом Кэмпбеллом и гитаристами Люком Поташником и Полом Сайером. Секция ритма состоит из басиста Ника Фиффа и барабанщика из Австралии Деймона Уилсона. В совокупности группа имеет богатую историю. Начало становления группы 2011 год.01. Up In The Sky (Oasis Cover) 3:43
-02. Tender (Blur Cover) 4:16Жанр: Rock, Blues Rock, Hard RockПродолжительность: 00:07:59
+01. Intro
+02. Burning Insight
+03. Bleeding Sanity
+04. Soar(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10AE784B2D53FFFC7ED7007477AF38DA7137C8B1
+magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,25 +169,341 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013083   (777894) от 03.05.2016
+###  Публикация: 1209582   (779142) от 28.02.2018
 
-Орел и решка. Кругосветка (2016.05.02) SATRip (сезон 12: Покхара)
+Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The End Times (04:07)
+2. I Am A Dog (03:36)
+3. Frank (03:49)
+4. The Perfect Life Does Not Exist (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209819   (779141) от 28.02.2018
+
+Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jealousy (4:52)
+02. Ride (3:41)
+03. Who You Are (3:41)
+04. The Glass Parade (4:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209719   (779140) от 28.02.2018
+
+Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.Dreams (07:26)
+02. Cmyk (04:45)
+03. Cye (03:26)
+04. 50 Trees (04:10)(   Читать дальше...   )Жанр: Downtempo, Nu-Jazz, ChilloutПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BD9858ED6B31B85875105937A2F3CD84113FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209639   (779139) от 28.02.2018
+
+The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder Child (03:57)
+02. Lions Blood (03:47)
+03. Secrets (03:44)
+04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209694   (779138) от 28.02.2018
+
+Flunk - Morning Star (2004) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star (03:52)
+02. On My Balcony (03:11)
+03. Spring To Kingdom Come (05:01)
+04. Six Seven Times (04:39)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB52D5E84007984AD67EF40BB0C91F7FA7CFE66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209656   (779137) от 28.02.2018
+
+Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opener (03:40)
+02. How to Socialise & Make Friends (03:14)
+03. The Face of God (03:50)
+04. Anna (05:52)(   Читать дальше...   )Жанр: Alternative, Rock, Indie RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209714   (779136) от 28.02.2018
+
+Журнал | Salon-interior №3 (235) (март 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7467BE84CA48390D3734AD076CDEC65F2A1DC1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209740   (779135) от 28.02.2018
+
+Molecule (Molécule) Collection 4 Releases (2016-2018) Because Music [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Electro, Experimental, Field Recording>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aria (05:08)
+ 02. Elements (04:19)
+ 03. Sila (04:05)
+ 04. 5951Hz (05:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Techno/Electro/Experimental/Field RecordingПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC7493AD6D5BA65930F85381E36AF5D720EC9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209580   (779134) от 28.02.2018
+
+Angra - OMNI (ØMNI) (2018) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light of Transcendence
+02. Travelers of Time
+03. Black Widow’s Web
+04. Insania(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BEE7049534303D7D367C0A79EC50913E6C99B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209351   (779133) от 28.02.2018
+
+VA - Future Trance Vol.83 (2018) [MP3|320 Kbps] <Trance, Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779133.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD:1
+01.  Axwell & Ingrosso  -  Dreamer  4:11
+02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
+03.  Martin Garrix, Matisse & Sadko  -  Forever  3:38(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D2F3714AE39444CB864A859E6817948675859B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209767   (779132) от 28.02.2018
+
+Г. А. Белов и др. (ред.) | Из истории Всероссийской чрезвычайной комиссии (1958) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документы настоящего сборника систематизированы в двух разделах: «Военно-революционный комитет в борьбе с контрреволюцией в первые дни Советской власти», «Создание и деятельность Всероссийской Чрезвычайной комиссии».
+
+Внутри этих разделов документы расположены в строго хронологическом порядке по дате событий.
+(   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE4FEFE6433F8CC0A688AC9A40147261B742BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209716   (779131) от 28.02.2018
+
+Беседа с Евгением Федоровым (16.02.2018) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:49:54
+Руководитель направления НОД по взаимодействию с казачеством и представители Фонда социально-экономического развития регионов «Казна Творца РА» встретились с депутатом Государственной Думы, координатором Национально-Освободительного Движения Евгением Федоровым. Депутат и гости обсудили исторические и  правовые вопросы прекращения существования СССР.Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 00:52:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35D301A37065E77277F8D22084D975EF98518C78
+magnet:?xt=urn:btih:7EAA2E950E40D7293CA6EF9A0FC208526C606501
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,25 +511,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012654   (777893) от 03.05.2016
+###  Публикация: 1209816   (779130) от 28.02.2018
 
-Последний поезд из Ган Хилл / Last Train from Gun Hill (1959) DVDRip [H.264] [VO]
+VA - Galactic Dream Synthspace Version (2018) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У шерифа Мэтта Моргана два молодых негодяя насилуют и убивают жену. Шериф идет по следам убийц и они приводят его в город где живет его лучший друг Крэйг Белден, который оказывается отцом убийцы. Морган намерен выкрасть Рика и убраться вместе с ним на последнем 9-часовом поезде. Отец встает на защиту сына и поднимает против шерифа весь город. Но они не поняли с кем (   Читать дальше...   )Производство: США / Bryna Productions, Hal Wallis Productions, Paramount PicturesЖанр: Мелодрама, ВестернРежиссер: Джон СтёрджесАктеры: Кирк Дуглас, Энтони Куинн, Кэролин Джонс, Эрл Холлиман, Брэд Декстер, Брайан Дж. Хаттон, Зива Родан, Бинг Расселл, Вэл Эйвери, Уолтер СэндПеревод: Одноголосый закадровый (Foton99)Субтитры: ОтсутствуютПродолжительность: 01:30:27
+001. Pavel Kuznetsov - Introduction
+002. SellorektLA Dreams - Evolution of Dreams
+003. Son of Mars - Orbital Voyage
+004. Secret Space - Space Odyssey(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 08:20:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:515C637DF883C8468F8B3B9924619CF16DF8E19F
+magnet:?xt=urn:btih:E77CCE5E7E3714914C58E6597F017F1D5602F9FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,25 +540,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013189   (777892) от 03.05.2016
+###  Публикация: 1209772   (779129) от 28.02.2018
 
-Дьявольщина / Diabolique (1996) DVDRip [H.264]
+VA - De Top 100 Aller Tijden 1982 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У двух красивых женщин родился план: «Мы отравим этого подонка, который обращается с нами, как с грязью. Мы выбросим его тело в темную воду, и оно будет лежать там, пока кто-нибудь не обнаружит этот «сюрприз». Но сюрприз ждет их самих…Производство: США / ABC Productions, Marvin Worth Productions, Morgan Creek Productions, Warner Bros. Pictures Co.Жанр: Ужасы, Триллер, Драма, ДетективРежиссер: Джеримайя С. ЧечикАктеры: Шэрон Стоун, Изабель Аджани, Чазз Пальминтери, Кэти Бейтс, Сполдинг Грей, Ширли Найт, Аллен Гарфилд, Адам Хэнн-Берд, Донал Лог, Диана БелламиПеревод: Дублированный, многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:44:50
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. June Lodge & Prince Mohammed - Someone Loves You Honey (3:51)
+002. Ph.D - I Won't Let You Down (4:06)
+003. O. M. D. - Maid Of Orleans (4:08)
+004. Musical Youth - Pass The Dutchie (3:22)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:32:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:801ED254A24C4DC58760701B39011F289C0163C4
+magnet:?xt=urn:btih:04A6266A57A9F5A8508C313FD33473524154B2D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,25 +569,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013105   (777891) от 03.05.2016
+###  Публикация: 1209910   (779128) от 28.02.2018
 
-Проклятие / The Curse (1987) BDRip [H.264]
+Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В окрестностях одной из ферм в штате Теннесси как-то ночью упал метеорит. На следующую ночь из него вытекла странная коричневая жижа, тут же слившаяся с водой в ручье и смешавшаяся с почвой. Наутро поля покрылись буйной порослью и налились соком яблоки в садах. Вот только никто поначалу не заметил, что внутри плодов и овощей — гниль, черви и прочая ядовитая гадость. (   Читать дальше...   )Производство: США, Италия, TransWorld Entertainment (TWE)Жанр: Ужасы, ФантастикаРежиссер: Дэвид КитАктеры: Уил Уитон, Кэтлин Джордон Грегори, Джон Шнайдер, Эми Уитон, Стив Карлайл, Клод Экинс, Стив Дэвис, Купер Хукаби, Мальколм Дэнар, Хоуп НортПеревод: Профессиональный двухголосый (НТВ+), авторский А.ГавриловЯзык субтитров: АнглийскийПродолжительность: 01:30:37
+1. Those Loving Hands (10:29)
+2. The Orbs (10:11)
+3. Light and Warmth (11:50)
+4. Gentle was the Moment (6:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34F582E42B697C484856ABCAFAC7AB51BD015715
+magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,25 +598,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013307   (777890) от 03.05.2016
+###  Публикация: 1209859   (779127) от 28.02.2018
 
-Три дюйма / Three Inches (2011) HDTV [H.264/1080i]
+Журнал | Полный привод 4x4 №1-2 (170) (январь-февраль 2018) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал рассказывает о том, как правильно управлять полноприводной машиной, чтобы максимально эффективно и безопасно использовать весь ее потенциал на всех типах дорог - от асфальтированных магистралей до лесовозных усов. Дает практические рекомендации: по тюнингу автомобиля: что можно сделать, чем усовершенствовать и дополнить внедорожник, квадроцикл, снегоход; как (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44451596BA457A22A47A2655C5A6655B4CDED4BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209770   (779126) от 28.02.2018
+
+Двойной КОПец / Cop Out (2010) HDRip [H.264] [MP4|1280x534]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_779126.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух давних напарников — нью-йоркских полицейских, занятых поисками очень редкой и чертовски дорогой бейсбольной карточки, украденной у одного из них. Они вынуждены противостоять беспощадному гангстеру, просто помешанному на коллекционных вещицах.Производство: СШАЖанр: Боевик, Комедия, КриминалРежиссер: Кевин СмитАктеры: Брюс Уиллис, Трэйси Морган, Хуан Карлос Хернандез, Кори Фернандез, Ана Де Ла Регуера, Джейсон Харт, Джефф Лима, Шон Каллен, Кевин Поллак, Адам Броди, Мишель Трахтенберг, Джейсон Ли, Шонн Уильям СкоттПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F527586D2D4727C5F006CD666587305D6D14399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209214   (779125) от 28.02.2018
+
+Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. ODIN SPHERE's Theme [1:48]
+02. Opening Title [0:55]
+03. Attic Archive [3:15](   Читать дальше...   )Жанр: ScoreПродолжительность: 02:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209775   (779124) от 28.02.2018
+
+Alaska - Jasheri (V2) / Zoranine (V2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, Atmospheric>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главный герой фильма — профессиональный бездельник Уолтер Спэкмен — после удара молнии получает суперсилу и может передвигать предметы силой мысли. Впрочем, только на три дюйма. Он отправляется на поиски необычных людей, также обладающих способностями, и понимает, что быть «одаренным» не так весело и увлекательно, как он привык думать.Производство: США, Landscape EntertainmentЖанр: Фантастика, Боевик, ДрамаРежиссер: Джейс АлександрАктеры: Ной Рейд, Стефани Джейкобсен, Джеймс Марстерс, Наоко Мори, Алона Тал, Андреа Мартин, Брэндон Джей МакЛарен, Энтони Дель Рио, Кайл Шмид, Крэйг ЭлдриджПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:26:18
+01. Jasheri (V2) (10:24)
+ 02. Zoranine (V2) (09:07)Жанр: Drum & Bass, Drumfunk, AtmosphericПродолжительность: 00:19:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE7BDC41719D74258C1F4F16C4041D3EFDAFF139
+magnet:?xt=urn:btih:CF18D9EDA088D22F6094B09C562AD9E580607441
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -352,344 +706,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013094   (777889) от 03.05.2016
+###  Публикация: 1209854   (779123) от 28.02.2018
 
-Три девятки / Triple 9 (2016) WEB-DL [1080p] ATV
+VA - ZYX Italo Disco New Generation Vol. 11 (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сюжет разворачивается вокруг компании коррумпированных копов, решившихся на крупное ограбление. Но ради того, чтобы выйти сухими из воды, им необходимо убить кого-то из своих.
-Название «999» — соответственно — восходит к коду опасности американских полицейских.Производство: СШАЖанр: Криминал, драма, триллерРежиссер: Джон ХиллкоутАктеры: Чиветель Эджиофор, Кейси Аффлек, Энтони Маки, Вуди Харрельсон, Кейт Уинслет, Аарон Пол, Клифтон Коллинз мл., Норман Ридус, Галь Гадот, Тереза ПалмерПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:55:12
+01. Victor Ark feat. Matt Doll - Dark Affair (7:09)
+02. Stylove feat. Naoky - Now Close Your Eyes (6:15)
+03. Don Leone - In The Middle Of Love (4:47)
+04. R.B. Project feat. Brian Ice - I Am What I Am (Vocal Version) (7:42)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F8F1803653D9DB62216E9DDB2DE6885BFBAF17C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012918   (777888) от 03.05.2016
-
-Александра Черчень, Ольга Кандела | Дорога домой (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Колечко взбалмошной богини»
-
-Солнышко светит, птички поют, а события ускоряют свой бег. Люба и Стаська не унывают несмотря на все испытания, что встречают на пути, и с легкостью справляются с кознями коварного сида, который следует за сестрами буквально по пятам. Но у них есть отвага, оптимизм, истинно женское любопытство и замечательный защитник (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADC727B1107594A8E780FC1CF60E85EA12764FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013050   (777887) от 03.05.2016
-
-Проекты - VideoHive - Dynamic Logo Intro - 7227481 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для представления логотипа. Отличный переход графики движения логотипа, с красочными и различными анимированными формами и линиями: квадратов, треугольников, кругов и диагональными полосами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116418D1B2948C448B92FC8E2568407EAD459A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013220   (777886) от 03.05.2016
-
-Образцовый самец 2 / Zoolander 2 (2016) WEB-DLRip [Звук с CamRip]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Триумфальное возвращение на подиумы когда-то топовых, а ныне слегка потрепанных мужчин-моделей Дерека Зуландера и Ханселя в комедии о мире, где для обретения всеобщей популярности достаточно одного селфи.Производство: США / Red Hour Films, Scott Rudin ProductionsЖанр: КомедияРежиссер: Бен СтиллерАктеры: Бен Стиллер, Пенелопа Крус, Оуэн Уилсон, Уилл Феррелл, Кристина Тейлор, Кристен Уиг, Алан Каппелли Гец, Оливия Манн, Бенедикт Камбербатч, Джастин Теру, Джастин Бибер, Мика, Милла Йовович, Деми Ловато, Ариана Гранде, Сьюзан Сарандон, Билли Зейн...Перевод: Дублированный (звук с CamRip)Субтитры: ОтсутствуютПродолжительность: 01:42:16Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013137   (777885) от 03.05.2016
-
-Дмитрий Силлов | Закон Долга (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из цикла «Снайпер».
-
-Снайпер сделал то, что должен был сделать — спас тех, кто был ему дорог. Но при этом он нарушил один из самых страшных законов Зоны — Закон Долга. А ведь каждому ясно, что Зона не прощает тех, кто нарушает ее законы... К тому же Снайпер умудрился стать врагом одной из самых сильных группировок, действующих на аномальной территории. И вдобавок (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76521DD9A37EA0709D6EC9406648BA29CBF6115B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013074   (777884) от 03.05.2016
-
-Анита Элберс | Стратегия блокбастера. Уроки маркетинга от лидеров индустрии развлечений (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор больше десяти лет исследовала мир медиа и спорта, чтобы сделать глубокий вывод о природе конкуренции в этой отрасли: долгосрочный успех достигается за счет создания блокбастеров - очень дорогих и популярных фильмов, книг, музыки.
-Из этой книги вы узнаете, почему руководители в индустрии развлечений тратят невероятные деньги, чтобы создать очередной хит, почему (   Читать дальше...   )Жанр: БизнесФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4C3227C9CAEFE9EC956B3EC96FD2A09D1CC428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013221   (777883) от 03.05.2016
-
-Первый мститель: Противостояние / Captain America: Civil War (2016) CamRip [EN]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мстители под руководством Капитана Америки оказываются участниками разрушительного инцидента, имеющего международный масштаб. Эти события заставляют правительство задуматься над тем, чтобы начать регулировать действия всех людей с особыми способностями, введя «Акт о регистрации супергероев», вынуждая их раскрыть свои личности и работать на правительственные службы. (   Читать дальше...   )Производство: США |  Marvel Entertainment, Marvel Studios, Studio BabelsbergЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Крис Эванс, Роберт Дауни мл., Скарлетт Йоханссон, Себастьян Стэн, Энтони Маки, Дон Чидл, Джереми Реннер, Чедвик Боузман, Пол Беттани, Элизабет ОлсенПеревод: ОтсутствуетСубтитры: Испанские (на русскую речь, в начале фильма)Продолжительность: 02:17:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013228   (777882) от 03.05.2016
-
-Высотка / High-Rise (2015) WEB-DLRip [Звук с TS]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый современный дом, построенный по самым современным технологиям, должен предложить своим жителям все, чтобы они могли комфортно здесь жить, не покидая его. Но в какой-то момент замкнутая и беззаботная жизнь местных обитателей дает трещину...Производство: Великобритания, Ирландия, Бельгия /  Recorded Picture Company (RPC), British Film Institute (BFI), Film4, HanWay Films, Ingenious Media, Northern Ireland Screen, S Films, Scope PicturesЖанр: ДрамаРежиссер: Бен УитлиАктеры: Том Хиддлстон, Джереми Айронс, Сиенна Миллер, Люк Эванс, Элизабет Мосс, Джеймс Пьюрфой, Кили Хоуз, Сиенна Гиллори, Энзо Силенти, Питер Фердинандо, ...Перевод: Дублированный (Звук с TS)Субтитры: ОтсутствуютПродолжительность: 01:58:33Реклама: Присутствуют вставки голосовой и текстовой рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0A1EF285D1C5F6350E4EC827202354C2AB33A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013211   (777881) от 03.05.2016
-
-Образцовый самец 2 / Zoolander 2 (2016) WEB-DL [H.264/1080p-LQ] [Звук с CamRip]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Триумфальное возвращение на подиумы когда-то топовых, а ныне слегка потрепанных мужчин-моделей Дерека Зуландера и Ханселя в комедии о мире, где для обретения всеобщей популярности достаточно одного селфи.Производство: США / Red Hour Films, Scott Rudin ProductionsЖанр: КомедияРежиссер: Бен СтиллерАктеры: Бен Стиллер, Пенелопа Крус, Оуэн Уилсон, Уилл Феррелл, Кристина Тейлор, Кристен Уиг, Алан Каппелли Гец, Оливия Манн, Бенедикт Камбербатч, Джастин Теру, Джастин Бибер, Мика, Милла Йовович, Деми Ловато, Ариана Гранде, Сьюзан Сарандон, Билли Зейн...Перевод: Дублированный (звук с CamRip)Субтитры: английские (вшитые, отключаемые)Продолжительность: 01:42:16Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013001   (777880) от 03.05.2016
-
-Проекты - Animated Lights Kit [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Animated Lights Kit - это проект поможет быстро и легко создавать свои собственные красивые легкие анимации. Выбирайте любые из 40, включенных в шаблон анимаций. Благодаря гибкости, управляйте отражениями, регулируйте цвета и яркости - этот инструментарий позволяет создавать мощные, динамичные и бесшовные световые анимации.
-Здесь представленаФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2228CFC510E7469E64AF53CA27228EEA91A0BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013224   (777879) от 03.05.2016
-
-Shadow Defender 1.4.0.629 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Defender – программа, аналогичная программе ShadowUser, позволяющей поставить систему в режим тени - Shadow mode, при котором невозможны ни удаление важной информации, ни атака вирусов. Данная утилита также обеспечивает защиту компьютера и конфиденциальности информации, предотвращает нежелательные и злонамеренные изменения в вашем компьютере, позволяет загружаться (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A44CB9F0797A997D191483A0E66F0DC12F6EECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013053   (777878) от 03.05.2016
-
-Next Limit Maxwell Render 3.2.1.3 + Plugins [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максвелл рендер - это автономный движок рендеринга для создания идеальных образов, фильмов и анимаций из 3D моделей. Это готовое решение для тех, кто требует безукоризненных результатов за короткий срок. Максвелл рендер обеспечивает максимальное качество, скорость и совместимость для архитекторов, дизайнеров и художников визуальных эффектов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D2C1E5CA631B69E5103D02B47F6EB15DAB1AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013124   (777877) от 03.05.2016
-
-Подборка книг | Настройки BIOS [8 книг] (2004-2009) [DJVU, PDF, CHM]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777877.jpg" />
-</div>
-
-
-###  Подробнее
-
-BIOS (Basic Input/Output System) - базовая система ввода-вывода. Так расшифровывается эта загадочная и манящая надпись. Что же на самом деле представляет собой эта система ввода-вывода и для чего она нужна? Это и многое другое вы узнаете из книг о BIOS.На самом деле, BIOS это ничто иное, как низкоуровневое программное обеспечение, которое хранится в отдельном чипе (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU, PDF, CHM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D61151873047B8F1ABA86C224659B743FCAA4F9
+magnet:?xt=urn:btih:3D75BE753BC2045380AA1A641A2B1209B2CCF54D
 ```
 
 https://mybot314.ru/tekegram_catalog/

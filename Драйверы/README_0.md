@@ -1,3 +1,29 @@
+###  Публикация: 561367   (405383) от 19.10.2012
+
+Драйвера для ноутбуков Samsung серий 300E4X/300E5X/3431EX-DOS (System Software Media) for WINDOWS 7 32bit-64bit n/a [Русский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_405383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный диск шел в комплекте с ноутбуком SAMSUNG NP300E5X-U01RU.Сделал iso-образ и выложил.Название программы: Драйвера для ноутбуков Samsung серий 300E4X/300E5X/3431EX-DOS (System Software Media) for WINDOWS 7 32bit-64bitЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570513   (389661) от 05.11.2012
 
 Oscar Mouse Editor A4Tech V12.08V17   Update Date:2012-09-17 [multilanguage]
@@ -6,7 +32,7 @@ Oscar Mouse Editor A4Tech V12.08V17   Update Date:2012-09-17 [multilanguage]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389661.jpg" />
+  <img src="Z:/picture/005/save_picture_389661.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Oscar Mouse Editor A4Tech V12.03V20 Update Date:2012-03-21 [multilanguage]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_386644.jpg" />
+  <img src="Z:/picture/005/save_picture_386644.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336888.jpg" />
+  <img src="Z:/picture/008/save_picture_336888.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ DriverPack Solution 17.10.14 Полная версия (DP 20104) [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321400.jpg" />
+  <img src="Z:/picture/008/save_picture_321400.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304955.jpg" />
+  <img src="Z:/picture/008/save_picture_304955.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Broadcomm Bluetooth Driver X86/X64 (2012) [Мульти/Русский]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257364.jpg" />
+  <img src="Z:/picture/005/save_picture_257364.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ NVIDIA GeForce Desktop Studio 581.57 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128922.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Radeon Software Slimmer 1.11.0 Portable [En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124595.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ SamDrivers 24.0 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122450.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Creative Sound Blaster Command 3.5.10.0 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118478.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89537.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Drivers BackUp Solution 3.4.10 Final [Multi/Rus]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87707.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79901.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Realtek Ethernet Driver 1168.018 | 10.71 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54935.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ SamDrivers 24.7 Expert [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51370.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ SamDrivers 24.7 LAN [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51333.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ NVIDIA GeForce Desktop Game Ready 475.06 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51104.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ MCS Drivers Disk 24.5.13.2157 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49967.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ AMD Radeon Software Adrenalin Edition 24.9.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41525.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ ASIO4ALL 2.16 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27260.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Snappy Driver Installer Origin R816 | Драйверпаки 25.06.2 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13649.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ NVIDIA GeForce Desktop Game Ready 580.97 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7533.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Snappy Driver Installer Origin R817 | Драйверпаки 25.08.3 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5091.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ NVIDIA GeForce Desktop Studio 581.29 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2826.jpg" />
 </div>
 
 

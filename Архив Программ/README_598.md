@@ -6,7 +6,7 @@ Adobe Illustrator CC 2019 23.0.2.567 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749447.jpg" />
+  <img src="Z:/picture/008/save_picture_749447.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer 3.0.44 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749430.jpg" />
+  <img src="Z:/picture/008/save_picture_749430.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 3.0.44 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749424.jpg" />
+  <img src="Z:/picture/008/save_picture_749424.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749398.jpg" />
+  <img src="Z:/picture/008/save_picture_749398.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AVG Internet Security 2015 15.0.5941 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749360.jpg" />
+  <img src="Z:/picture/008/save_picture_749360.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FreeFileSync 9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749329.jpg" />
+  <img src="Z:/picture/008/save_picture_749329.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Slimjet 18.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749311.jpg" />
+  <img src="Z:/picture/008/save_picture_749311.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749218.jpg" />
+  <img src="Z:/picture/008/save_picture_749218.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Internet Download Manager 6.30 Build 8 Final RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749208.jpg" />
+  <img src="Z:/picture/008/save_picture_749208.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mailbird Pro 2.5.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749096.jpg" />
+  <img src="Z:/picture/008/save_picture_749096.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WavePad Sound Editor Masters Edition 8.02 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749092.jpg" />
+  <img src="Z:/picture/008/save_picture_749092.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Internet Download Manager 6.30 Build 8 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749087.jpg" />
+  <img src="Z:/picture/008/save_picture_749087.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Any DVD Converter Professional 4.2.1 ML/Rus + Any Video Converter Professional 3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748716.jpg" />
+  <img src="Z:/picture/008/save_picture_748716.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Mozilla Firefox 47.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748656.jpg" />
+  <img src="Z:/picture/008/save_picture_748656.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Icecream Slideshow Maker 1.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748563.jpg" />
+  <img src="Z:/picture/008/save_picture_748563.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CCleaner 5.18.5607 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748559.jpg" />
+  <img src="Z:/picture/008/save_picture_748559.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Trojan Killer 2.1.33 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748534.jpg" />
+  <img src="Z:/picture/008/save_picture_748534.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ TweakPower 1.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748519.jpg" />
+  <img src="Z:/picture/008/save_picture_748519.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ XLN Audio - XO 1.1.3 STANDALONE, VSTi, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748517.jpg" />
+  <img src="Z:/picture/008/save_picture_748517.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Wise Care 365 Pro 4.18.404 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748455.jpg" />
+  <img src="Z:/picture/008/save_picture_748455.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SIV (System Information Viewer) 5.50 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748404.jpg" />
+  <img src="Z:/picture/008/save_picture_748404.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Internet Download Manager 6.25 Build 19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748353.jpg" />
+  <img src="Z:/picture/008/save_picture_748353.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ AVG Internet Security 2016 16.71.7598 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748351.jpg" />
+  <img src="Z:/picture/008/save_picture_748351.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Wise Care 365 Pro 4.18.404 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748340.jpg" />
+  <img src="Z:/picture/008/save_picture_748340.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ CCleaner 5.18.5607 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748338.jpg" />
+  <img src="Z:/picture/008/save_picture_748338.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ HyperSnap 8.16.09 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748296.jpg" />
+  <img src="Z:/picture/008/save_picture_748296.jpg" />
 </div>
 
 

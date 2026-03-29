@@ -1,3 +1,159 @@
+###  Публикация: 1725481   (51777) от 28.06.2024
+
+Светлаков + (2024) IPTV [H.264/720p] (сезон 1, серии 1-12 из ??) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедийное скетч-шоу, в котором все главные роли исполняет комик Сергей Светлаков. Легендарные персонажи возвращаются в новых жизненных ситуациях! В прошлом заботливый депутат Юрий Венедиктович теперь мэр маленького городка, подросток Славик вырос и сам обучает сына Димона жизненным урокам во время отдыха. Кроме ставших мемами героев появятся и новые: офисный сотрудник (   Читать дальше...   )Производство: Россия / СвердловскЖанр: КомедияРежиссер: Сергей НаумовАктеры: Сергей Светлаков, Демис Карибидис, Ирина Розанова, Светлана Листова, Артемий Мильграм, Карина Сингх, Влас Кропалов, Алиса Тарасенко, Аслан Цаллати, Илхомджон АбдурахмоновПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3C22E90C342B6FEA822BDE5EC6795FC2A357AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733162   (51754) от 28.06.2024
+
+Cent Browser 5.1.1130.129 Stable + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DED89E34CEC61CAA7EC143D4E9200DB7B666C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732890   (51735) от 28.06.2024
+
+«Российский Starlink» от «Бюро 1440» впервые передал данные со спутника на Землю по стандарту 5G
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская компания «Бюро 1440» впервые провела сеанс спутниковой связи по стандарту 5G с использованием одного из спутников «Рассвет-2». Аппарат был отправлен на низкую околоземную орбиту в мае этого года в рамках проекта по созданию отечественного сервиса широкополосной спутниковой связи, способного обеспечить быстрый интернет-доступ по всей стране.В Telegram-канале (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733069   (51723) от 28.06.2024
+
+Ученые сделали кожу для роботов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые Токийского университета (Япония) вырастили кожу для «лица» робота-гуманоида. Исследование было описано в журнале Cell.Цель специалистов заключалась в создании аналога кожи для «лица» робота-гуманоида, которая бы могла передавать мимику и не отслаиваться. Результатом работы оказалась искусственная кожа на основе живых человеческих клеток.С помощью коллагена (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713766   (51683) от 29.06.2024
+
+Long Zu | Dragon Raja | Дракон Раджа [2022, Web, 16 эп.] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный и невезучий старшеклассник Лу Минфэй однажды получил письмо о зачислении в Кассельский колледж, зарубежный частный университет. После некоторых колебаний Лу Минфэй решил прояснить этот вопрос. В результате он попал в мир, где существует «Дракон», его жизнь претерпела потрясающие изменения, и он отправился в путешествие «Убить дракона».Производство: Garden CultureЖанр: приключения, фентезиРежиссер: Wang XinПеревод: официальный (crunchyroll)Язык озвучки: Японский (дубляж)Субтитры: Русские (мультисаб)Продолжительность: 16 эп. по 25 мин. + SP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E6E8DE63E3A3EDF41B5108B8551058F8633A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979483   (51565) от 30.06.2024
+
+Секретные материалы / The X-Files (2016) SATRip (сезон 10, серии 1-6 из 6) ТВ3
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США / 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Дублированный - ТВ3Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316483AF4A32A53E675E6FFEB664B1E00C778E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716298   (51547) от 30.06.2024
 
 Kaijuu 8 Gou | Kaiju No. 8 | Кайдзю номер 8 [2024, TV, 12 эп.] WEBRip 720 raw
@@ -6,7 +162,7 @@ Kaijuu 8 Gou | Kaiju No. 8 | Кайдзю номер 8 [2024, TV, 12 эп.] WEBR
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51547.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Ис�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51475.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Kaspersky Rescue Disk 2018 18.0.11.3 [01.07.2024] [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51457.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ K-Lite Codec Pack 18.4.5 Mega/Full/Standard/Basic [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51352.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51240.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51125.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ Dangerous Dave Pack (1991) [En] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51039.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50795.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50712.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50619.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4651]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50525.jpg" />
 </div>
 
 
@@ -299,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50517.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50502.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50491.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50395.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50200.jpg" />
 </div>
 
 
@@ -431,7 +587,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei II: Jobless Reincar
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50197.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50110.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50095.jpg" />
 </div>
 
 
@@ -509,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50065.jpg" />
 </div>
 
 
@@ -517,162 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Роскомнадзор считает справедливой и обоснованной инициативу властей по идентификации авторов публичных каналов (главным образом в Telegram) с аудиторией более 1000 пользователей. Ведомство напоминает, что анонимность в интернете ведёт к безответственности и часто распространению запрещённой информации.
 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736480   (49971) от 15.07.2024
-
-Создан наноспутник с самым острым в России гиперспектральным "зрением"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самарский университет им. Королёва и частная космическая компания "СПУТНИКС" (входит в Sitronics Group) создали наноспутник с рекордной остротой гиперспектрального "зрения", позволяющего увидеть из космоса на поверхности Земли то, что нельзя обнаружить с помощью обычной оптики.Гиперспектральное "зрение" позволяет рассмотреть мир в многоканальном (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736860   (49905) от 16.07.2024
-
-Россия вошла в мировой топ-10 по торговым доходам
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия заработала на торговле 121 миллиард долларов и заняла седьмое место в мире по размеру торгового профицита, Об этом свидетельствуют данные Всемирного банка за 2023 год, передает РИА Новости.На первом месте в рейтинге находится Китай, торговый профицит которого в прошлом году составил 594 миллиарда долларов. Следом идут Германия (245,3 млрд) и Ирландия (178 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524001   (49783) от 17.07.2024
-
-Звёздные Врата: Атлантида / Stargate: Atlantis (сезоны 1-5 полные, серии: 1-100) (2004-2009) HDTVRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49783.jpg" />
-</div>
-
-
-###  Подробнее
-
-После победы над Анубисом, люди начали изучение старого аванпоста Древних в Антарктиде, в результате чего был найден адрес звёздных врат давно потерянного города Древних. Для его изучения была создана специальная экспедиция отправившаяся в галактику Пегас через врата. Прибыв на место, члены экспедиции поняли, что Атлантида находиться под водой, а энергии МНТ, которая (   Читать дальше...   )Жанр: Фантастика, Приключения, СемейныйРежиссер: Мартин Вуд, Девид Уэрри-Смит, Марио Азопарди, Девид Уиннинг, Бред Тарнер, Холли Дейл, Питер ДеЛуис, Джеймс Хед, Энди МикитаАктеры: Джо Флениган, Тори Хиггинсон, Девид Хьюлет, Рэйчел Латрелл, Джейсон Момоа, Пол МакГиллон и др.Перевод: Закадровый, Многоголосый  (Студия «ИНИС»)Язык субтитров: Русские, АнглийскиеПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563B30BE9E0FAD3DD17C12591B3F1D47456C2967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737279   (49660) от 18.07.2024
-
-Нидерландская Yandex N.V. будет работать под брендом Nebius
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49660.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 июля было объявлено, что нидерландская компания Yandex N.V. закрыла сделку по продаже российского бизнеса Яндекса и полностью вышла из состава акционеров группы. Вскоре после этого на международном сайте Yandex начало выдаваться сообщение, что информация о компании Yandex N.V. теперь перемещена на новый сайт, а ссылка ведёт на сайт Nebius Group.Там же опубликован (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737469   (49579) от 19.07.2024
-
-Microsoft отказалась от «повесточки»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft полностью расформировала подразделение по вопросам обеспечению равноправия и инклюзивности. Корпорация больше не ставит «повесточку» во главу угла, о чем заявляет открыто – у компании «сменились потребности бизнеса». Теперь это новый модный тренд среди ИТ-гигантов.Софтверный гигант Microsoft закрыл отдел DEI (diversity, equity, and inclusion), занимавшийся (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737577   (49554) от 19.07.2024
-
-«Разведи мошенника»: в России запускают «Фрод-рулетку» — первый в мире сервис с перехватом звонков мошенников
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда «Т-банка» (бывшего «Тинькофф») открыла доступ к новому экспериментальному сервису «Фрод-рулетке». Сейчас уже начат приём заявок для желающих участвовать в «Ловушке для мошенников». Как подчеркнули в пресс-службе банка, это «первый в мире сервис, где звонки телефонных мошенников перехватываются в режиме реального времени и переводятся на пользователей». Имеются (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@ Butterfly - Favorite Colors Episode 076 (23.03.2013) [MP3|320 кб/с]<Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913381.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Malwarebytes Windows Firewall Control 6.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913376.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913352.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_913338.jpg" />
+  <img src="Z:/picture/009/save_picture_913338.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Windows 10 Pro VL x64 v.1909.18363.719 2in1 March 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913333.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913299.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Total Commander 10.00 (14.08.2021) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913286.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Process Lasso Pro 8.9.6.8 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913279.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913276.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913273.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913268.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Balabolka 2.11.0.597 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913264.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Patrick Bruel - Lequel De Nous (2012) [MP3|320 кб/с]<Pop, French Chanson, Var
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913223.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Roch Voisine & Coeur de Pirate - Helene (2013) HDTV [H.264/1080i-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913209.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ FixWin 1.2 [рус\англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913195.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ PowerArchiver 2016 16.00.68 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913177.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VidCoder 1.5.34.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913173.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Photomatix Pro 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913170.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ O&O ShutUp10 1.3.1355 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913163.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Iobit Smart Defrag 4.4.0.849 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913161.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ T-Faktor - Bricksplitter (2010) [MP3|96 - 320 (~179) kbps]<Industrial / Noise / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913122.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Emma - Saro Libera (2011) [1080p] HDRemux
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913119.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Nolwenn Leroy - Juste Pour Me Souvenir (2012) HDTV [H.264/1080i]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913116.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Hioctan - Under Control (2010) [MP3|192 - 320 (~224) kbps]<Dark Electro / Harsh 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913072.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Wise Memory Optimizer 3.45.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913060.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Vomito Negro - Skull & Bones (2010) [MP3|128 - 320 (~216) kbps]<Industrial / EBM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913052.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695608.jpg" />
+  <img src="Z:/picture/008/save_picture_695608.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695468.jpg" />
+  <img src="Z:/picture/008/save_picture_695468.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695463.jpg" />
+  <img src="Z:/picture/008/save_picture_695463.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695457.jpg" />
+  <img src="Z:/picture/008/save_picture_695457.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694925.jpg" />
+  <img src="Z:/picture/008/save_picture_694925.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694919.jpg" />
+  <img src="Z:/picture/008/save_picture_694919.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694885.jpg" />
+  <img src="Z:/picture/008/save_picture_694885.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694866.jpg" />
+  <img src="Z:/picture/008/save_picture_694866.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694862.jpg" />
+  <img src="Z:/picture/008/save_picture_694862.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694822.jpg" />
+  <img src="Z:/picture/008/save_picture_694822.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694687.jpg" />
+  <img src="Z:/picture/008/save_picture_694687.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694620.jpg" />
+  <img src="Z:/picture/008/save_picture_694620.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694618.jpg" />
+  <img src="Z:/picture/008/save_picture_694618.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694617.jpg" />
+  <img src="Z:/picture/008/save_picture_694617.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694537.jpg" />
+  <img src="Z:/picture/008/save_picture_694537.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694517.jpg" />
+  <img src="Z:/picture/008/save_picture_694517.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694400.jpg" />
+  <img src="Z:/picture/008/save_picture_694400.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693906.jpg" />
+  <img src="Z:/picture/008/save_picture_693906.jpg" />
 </div>
 
 
@@ -469,6 +469,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027701   (693877) от 20.06.2016
+
+Дом игрушек Пи-ви / Pee-wee's Big Holiday (2016) WEB-DLRip [VO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_693877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Пи-Ви, не совсем обычный, жизнерадостный человек, который проживает в небольшом городке. В целом он доволен жизнью и наслаждается каждой прожитой минутой, его знают все жители, включая детей. Не смотря на то, что он не любит перемены, однажды Пи-Ви, решает взять отпуск и отправиться в путешествие по стране. На своем пути, он повстречает множество интересных (   Читать дальше...   )Производство: СШАЖанр: Комедия, ПриключенияРежиссер: Джон ЛиАктеры: Пол Рубенс, Джордан Блэк, Даг Кокс, Линда Портер, Моника Хоран, Брайан Палермо, Кэтерин Вандерлинден, Тара Бак, Джон Х. Майер, Ричард РилиПеревод: Одноголосый закадровый, любительский (Cmert)Продолжительность: 01:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CCE8CBA0B1D0250A1E6F8CBC804F1D0CE2B0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 794946   (693837) от 10.06.2014
 
 Смешанные /  Blended (2014) WEBRip [H.264/720p-LQ] [EN]
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693837.jpg" />
+  <img src="Z:/picture/008/save_picture_693837.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693669.jpg" />
+  <img src="Z:/picture/008/save_picture_693669.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693338.jpg" />
+  <img src="Z:/picture/008/save_picture_693338.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693273.jpg" />
+  <img src="Z:/picture/008/save_picture_693273.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693271.jpg" />
+  <img src="Z:/picture/008/save_picture_693271.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693238.jpg" />
+  <img src="Z:/picture/008/save_picture_693238.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693170.jpg" />
+  <img src="Z:/picture/008/save_picture_693170.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAED38B58FC435D38DF21E91A49F78D480B806E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896380   (693049) от 09.05.2015
-
-Оно / It Follows (2015) WEBRip [H.264/720p-LQ] [VO]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693049.jpg" />
-</div>
-
-
-###  Подробнее
-
-После сексуальной связи 19-летнюю девушку по имени Джей начинают мучать странные видения и непреодолимое чувство того, что кто-то или что-то за ней следит…Производство: USA / Northern Lights Films, Animal Kingdom, Two FlintsЖанр: ужасы, детективРежиссер: Дэвид Роберт МитчеллАктеры: Кейр Гилкрист, Carollette Phillips, Лорен Басс, Оливия Луккарди, Лили Сепе, Майка Монро, Джейк Вири, Дэниэл Дзоватто, Чарльз Гертнер, Бэйли СпрайПеревод: любительский (одноголосый закадровый) (А.Матвеев)Язык субтитров: китайскийПродолжительность: 01:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F578826A1A4C5C3B71E17C98C51E862D4A6D6590
 ```
 
 https://mybot314.ru/tekegram_catalog/

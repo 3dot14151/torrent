@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729639.jpg" />
+  <img src="Z:/picture/008/save_picture_729639.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728536.jpg" />
+  <img src="Z:/picture/008/save_picture_728536.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727781.jpg" />
+  <img src="Z:/picture/008/save_picture_727781.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727364.jpg" />
+  <img src="Z:/picture/008/save_picture_727364.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726630.jpg" />
+  <img src="Z:/picture/008/save_picture_726630.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726623.jpg" />
+  <img src="Z:/picture/008/save_picture_726623.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726619.jpg" />
+  <img src="Z:/picture/008/save_picture_726619.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726482.jpg" />
+  <img src="Z:/picture/008/save_picture_726482.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726391.jpg" />
+  <img src="Z:/picture/008/save_picture_726391.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726383.jpg" />
+  <img src="Z:/picture/008/save_picture_726383.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726283.jpg" />
+  <img src="Z:/picture/008/save_picture_726283.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725334.jpg" />
+  <img src="Z:/picture/008/save_picture_725334.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721684.jpg" />
+  <img src="Z:/picture/008/save_picture_721684.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720075.jpg" />
+  <img src="Z:/picture/008/save_picture_720075.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719082.jpg" />
+  <img src="Z:/picture/008/save_picture_719082.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719006.jpg" />
+  <img src="Z:/picture/008/save_picture_719006.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717890.jpg" />
+  <img src="Z:/picture/008/save_picture_717890.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ David Dean Barrett | 140 Days to Hiroshima: The Story of Japan's Last Chance to 
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717105.jpg" />
+  <img src="Z:/picture/008/save_picture_717105.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717093.jpg" />
+  <img src="Z:/picture/008/save_picture_717093.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716996.jpg" />
+  <img src="Z:/picture/008/save_picture_716996.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716439.jpg" />
+  <img src="Z:/picture/008/save_picture_716439.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714817.jpg" />
+  <img src="Z:/picture/008/save_picture_714817.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713948.jpg" />
+  <img src="Z:/picture/008/save_picture_713948.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713704.jpg" />
+  <img src="Z:/picture/008/save_picture_713704.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712598.jpg" />
+  <img src="Z:/picture/008/save_picture_712598.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712555.jpg" />
+  <img src="Z:/picture/008/save_picture_712555.jpg" />
 </div>
 
 

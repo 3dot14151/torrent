@@ -1,3 +1,55 @@
+###  Публикация: 250789   (770284) от 23.06.2020
+
+Н. Архангельская; Е. Карлсен; А. Кеменова; С. Худак | Букварь (1970) [DJVU]
+
+>>След.
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_770284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Буква́рь (азбука) — учебное пособие для обучения грамоте. Букварь помогает учащимся усвоить печатные и рукописные буквы и их звуковые значения, научиться читать слитно простейшие слоги и слова и правильно понимать читаемое, уметь читать и понимать небольшие тексты и уметь писать простейшие слова и предложения.Жанр: УчебникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588BB28CE2B958BF7E84A03790673C7E89E06BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 122305   (770282) от 23.06.2020
+
+В.Г. Горецкий  | Букварь (1987) [JPEG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_770282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский Букварь средней общеобразовательной школы.Жанр: УчебникФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E3FBAD3C25AB3FF4B3BC232913CFCD197110E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017028   (769522) от 15.05.2016
 
 В.Савенков | Введение в электронику (2010) [DJVU]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769522.jpg" />
+  <img src="Z:/picture/008/save_picture_769522.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767826.jpg" />
+  <img src="Z:/picture/008/save_picture_767826.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766023.jpg" />
+  <img src="Z:/picture/008/save_picture_766023.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766022.jpg" />
+  <img src="Z:/picture/008/save_picture_766022.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766015.jpg" />
+  <img src="Z:/picture/008/save_picture_766015.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765678.jpg" />
+  <img src="Z:/picture/008/save_picture_765678.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765220.jpg" />
+  <img src="Z:/picture/008/save_picture_765220.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765063.jpg" />
+  <img src="Z:/picture/008/save_picture_765063.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765017.jpg" />
+  <img src="Z:/picture/008/save_picture_765017.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764332.jpg" />
+  <img src="Z:/picture/008/save_picture_764332.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763403.jpg" />
+  <img src="Z:/picture/008/save_picture_763403.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763247.jpg" />
+  <img src="Z:/picture/008/save_picture_763247.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762995.jpg" />
+  <img src="Z:/picture/008/save_picture_762995.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762714.jpg" />
+  <img src="Z:/picture/008/save_picture_762714.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761286.jpg" />
+  <img src="Z:/picture/008/save_picture_761286.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760746.jpg" />
+  <img src="Z:/picture/008/save_picture_760746.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760677.jpg" />
+  <img src="Z:/picture/008/save_picture_760677.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759643.jpg" />
+  <img src="Z:/picture/008/save_picture_759643.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759185.jpg" />
+  <img src="Z:/picture/008/save_picture_759185.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758542.jpg" />
+  <img src="Z:/picture/008/save_picture_758542.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758528.jpg" />
+  <img src="Z:/picture/008/save_picture_758528.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758500.jpg" />
+  <img src="Z:/picture/008/save_picture_758500.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756102.jpg" />
+  <img src="Z:/picture/008/save_picture_756102.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755523.jpg" />
+  <img src="Z:/picture/008/save_picture_755523.jpg" />
 </div>
 
 
@@ -625,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:508B5851A6EBE808AC84EAD94CDB90A14BF26DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018816   (753788) от 21.05.2016
-
-И.Д. Агеева | Английский язык для детей (2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга содержит кроссворды, ребусы, головоломки, шарады, занимательные задания и упражнения на английском языке. Она предназначена для детей, начинающих изучать английский язык и желающих знать его как можно лучше и глубже.Жанр: Иностранный язык детямФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F321BD903BD8EA5E44C92306D66F85EC8C94824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018797   (753722) от 21.05.2016
-
-Мартин Гарднер | Классические головоломки (2007) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все загадки в этой книге принадлежат к тому типу, который мы называем "загадки на всестороннее мышление" или "загадки-ситуации".
-
-Рекомендуется широкому кругу читателей.Жанр: Головоломки, развлеченияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E677E223D02B96151E841E296CC992F59331DB7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

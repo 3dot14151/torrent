@@ -1,3 +1,32 @@
+###  Публикация: 1050174   (538265) от 08.09.2016
+
+Эд Шульжевский - И только о любви (2011) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_538265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Она и он [3:46]
+02. По имени Настя [3:44]
+03. День рождения [3:45]
+04. Куда уходишь ты [3:31](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D744E132E49FE94A553C584C752367DD1C052278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312045   (536234) от 02.07.2019
 
 Братья Грим - Необитаемый остров (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -6,7 +35,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536234.jpg" />
+  <img src="Z:/picture/008/save_picture_536234.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536093.jpg" />
+  <img src="Z:/picture/008/save_picture_536093.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Zivert - Сияй (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535984.jpg" />
+  <img src="Z:/picture/008/save_picture_535984.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Belka - Я пришла (2012) [TAК|Lossless|image + .cue] <Pop, Dance-Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530782.jpg" />
+  <img src="Z:/picture/008/save_picture_530782.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526535.jpg" />
+  <img src="Z:/picture/008/save_picture_526535.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524194.jpg" />
+  <img src="Z:/picture/008/save_picture_524194.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524107.jpg" />
+  <img src="Z:/picture/008/save_picture_524107.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521460.jpg" />
+  <img src="Z:/picture/008/save_picture_521460.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510905.jpg" />
+  <img src="Z:/picture/008/save_picture_510905.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510201.jpg" />
+  <img src="Z:/picture/008/save_picture_510201.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509269.jpg" />
+  <img src="Z:/picture/008/save_picture_509269.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506820.jpg" />
+  <img src="Z:/picture/008/save_picture_506820.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503654.jpg" />
+  <img src="Z:/picture/008/save_picture_503654.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Stella (Стелла) - Я в это верю (2003) [FLAC|image+.cue]<Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503650.jpg" />
+  <img src="Z:/picture/008/save_picture_503650.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496168.jpg" />
+  <img src="Z:/picture/008/save_picture_496168.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496063.jpg" />
+  <img src="Z:/picture/008/save_picture_496063.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492187.jpg" />
+  <img src="Z:/picture/008/save_picture_492187.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490376.jpg" />
+  <img src="Z:/picture/008/save_picture_490376.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490209.jpg" />
+  <img src="Z:/picture/008/save_picture_490209.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490054.jpg" />
+  <img src="Z:/picture/008/save_picture_490054.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489792.jpg" />
+  <img src="Z:/picture/008/save_picture_489792.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489403.jpg" />
+  <img src="Z:/picture/008/save_picture_489403.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ VA - XXXL 13 Праздничный (2005) [FLAC|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486691.jpg" />
+  <img src="Z:/picture/008/save_picture_486691.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ ohdrina - 8 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R'n'B, Soul, Downtempo>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486583.jpg" />
+  <img src="Z:/picture/008/save_picture_486583.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484768.jpg" />
+  <img src="Z:/picture/008/save_picture_484768.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159338   (484157) от 20.08.2017
-
-Костя Наумов - Романтика (2007) [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Голос мой (4:37)
-02. Костер (4:30)
-03. Блистающий мир (4:06)
-04. Короткий роман (4:16)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138CE1832434D326ED819B5F4267C22677E7DB5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

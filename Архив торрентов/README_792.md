@@ -6,7 +6,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871196.jpg" />
+  <img src="Z:/picture/008/save_picture_871196.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Photo Supreme 5.4.0.2798 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871195.jpg" />
+  <img src="Z:/picture/008/save_picture_871195.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871178.jpg" />
+  <img src="Z:/picture/008/save_picture_871178.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WinZip System Utilities Suite 1.0.648.9787 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_871174.jpg" />
+  <img src="Z:/picture/009/save_picture_871174.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Marc Enfroy - 3 albums (2009-2012) [MP3|320 кб/с]<New age>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871169.jpg" />
+  <img src="Z:/picture/008/save_picture_871169.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ WinPE 10 Sergei Strelec (x64) 2016.03.18 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871137.jpg" />
+  <img src="Z:/picture/008/save_picture_871137.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871133.jpg" />
+  <img src="Z:/picture/008/save_picture_871133.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871131.jpg" />
+  <img src="Z:/picture/008/save_picture_871131.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ CDBurnerXP 4.5.6.6059 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871127.jpg" />
+  <img src="Z:/picture/008/save_picture_871127.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Adobe Photoshop Lightroom 6.5 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871125.jpg" />
+  <img src="Z:/picture/008/save_picture_871125.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ MediaInfo 21.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871077.jpg" />
+  <img src="Z:/picture/008/save_picture_871077.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ AIMP 4.13 Build 1887 DC 19.02.2017 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871067.jpg" />
+  <img src="Z:/picture/008/save_picture_871067.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Daum PotPlayer 1.7.351 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871064.jpg" />
+  <img src="Z:/picture/008/save_picture_871064.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Punto Switcher 4.3.5 Build 1815 Final RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871060.jpg" />
+  <img src="Z:/picture/008/save_picture_871060.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871048.jpg" />
+  <img src="Z:/picture/008/save_picture_871048.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Castro Premium 2.2.1 (build 40) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871043.jpg" />
+  <img src="Z:/picture/008/save_picture_871043.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Daum PotPlayer 1.7.351 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871042.jpg" />
+  <img src="Z:/picture/008/save_picture_871042.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871011.jpg" />
+  <img src="Z:/picture/008/save_picture_871011.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870992.jpg" />
+  <img src="Z:/picture/008/save_picture_870992.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870922.jpg" />
+  <img src="Z:/picture/008/save_picture_870922.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ AIMP 4.13 Build 1887 DC 19.02.2017 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870911.jpg" />
+  <img src="Z:/picture/008/save_picture_870911.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870909.jpg" />
+  <img src="Z:/picture/008/save_picture_870909.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Light Alloy 4.9.3 Build 2538 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870906.jpg" />
+  <img src="Z:/picture/008/save_picture_870906.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Alcohol 120% 2.0.3 Build 9811 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870902.jpg" />
+  <img src="Z:/picture/008/save_picture_870902.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Skype 7.33.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870898.jpg" />
+  <img src="Z:/picture/008/save_picture_870898.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Network Security Toolkit (NST) (хакинг, анализ безопаснос�
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870889.jpg" />
+  <img src="Z:/picture/008/save_picture_870889.jpg" />
 </div>
 
 

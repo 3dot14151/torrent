@@ -1,3 +1,81 @@
+###  Публикация: 640535   (888957) от 06.04.2013
+
+Валерия и Валерий Меладзе - Не теряй меня (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A3A39EB40DB14D053CEC667443E6E67098576A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640130   (888941) от 06.04.2013
+
+Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, Dance, Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA5278308BA4C0C699C1C3E53B51DF38C68E8F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640743   (887230) от 07.04.2013
+
+Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B082ED479B2B2C1F522106B79B3E7786289259D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640712   (887110) от 07.04.2013
 
 Емилия - Кукла (2013) WEBRip	 [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887110.jpg" />
+  <img src="Z:/picture/005/save_picture_887110.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industri
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886991.jpg" />
+  <img src="Z:/picture/005/save_picture_886991.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Malevolence (UK) 7 Music Videos (2015-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886980.jpg" />
+  <img src="Z:/picture/005/save_picture_886980.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886814.jpg" />
+  <img src="Z:/picture/005/save_picture_886814.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886643.jpg" />
+  <img src="Z:/picture/005/save_picture_886643.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885256.jpg" />
+  <img src="Z:/picture/005/save_picture_885256.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ History of Rock (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884290.jpg" />
+  <img src="Z:/picture/005/save_picture_884290.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Hea
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883628.jpg" />
+  <img src="Z:/picture/005/save_picture_883628.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883626.jpg" />
+  <img src="Z:/picture/005/save_picture_883626.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ Drum'n'Bass Clips. Коллекция музыкальных драм'н'бэй�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883304.jpg" />
+  <img src="Z:/picture/005/save_picture_883304.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ Sarah Brightman - Angel (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881012.jpg" />
+  <img src="Z:/picture/008/save_picture_881012.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880802.jpg" />
+  <img src="Z:/picture/008/save_picture_880802.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880669.jpg" />
+  <img src="Z:/picture/005/save_picture_880669.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880337.jpg" />
+  <img src="Z:/picture/005/save_picture_880337.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880231.jpg" />
+  <img src="Z:/picture/005/save_picture_880231.jpg" />
 </div>
 
 
@@ -412,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880217.jpg" />
+  <img src="Z:/picture/005/save_picture_880217.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ Babooshka (Александр Константинов) - Православны
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880139.jpg" />
+  <img src="Z:/picture/005/save_picture_880139.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877667.jpg" />
+  <img src="Z:/picture/005/save_picture_877667.jpg" />
 </div>
 
 
@@ -493,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877063.jpg" />
+  <img src="Z:/picture/005/save_picture_877063.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish P
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876708.jpg" />
+  <img src="Z:/picture/008/save_picture_876708.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876619.jpg" />
+  <img src="Z:/picture/005/save_picture_876619.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876612.jpg" />
+  <img src="Z:/picture/005/save_picture_876612.jpg" />
 </div>
 
 
@@ -601,7 +679,7 @@ Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875484.jpg" />
+  <img src="Z:/picture/008/save_picture_875484.jpg" />
 </div>
 
 
@@ -621,87 +699,6 @@ Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:295E5DC851FD22F3A0162A4CE195D950D0D22436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997146   (875237) от 16.03.2016
-
-Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cборник видеоклипов The Videos 1989—2004 содержит все на тот момент (2006г) видеоклипы, в разное время снятые группой, начиная с «One» 1989 года и заканчивая «Some Kind of Monster» 2003-го, а также различные бонус-материалы, включая альтернативные версии клипов и трейлер к документальному фильму 2005 года «Metallica: Some Kind of Monster».1. One
-2. Enter Sandman
-3.The Unforgiven
-4. Nothing Else Matters(   Читать дальше...   )Жанр: МузыкаАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Robert Trujillo, Jason NewstedПеревод: ОтсутствуетПродолжительность: 02:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C532F401DE229855C54D837CED3675293691E4C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373799   (874435) от 09.04.2020
-
-Feuerschwanz - Das Elfte Gebot (2020) WEBRip [H.264/1080p-LQ]<Mitellater Folk-Rock>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Feuerschwanz - Das Elfte GebotЖанр: Mitellater Folk-RockПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA630F5B7F76E12B03A58ABA306647450A625EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644050   (873265) от 14.04.2013
-
-Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bumaye) (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ReggaeПродолжительность: 00:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A7D0C21B6892CFDBA2B0FDB3996EBF63A38FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

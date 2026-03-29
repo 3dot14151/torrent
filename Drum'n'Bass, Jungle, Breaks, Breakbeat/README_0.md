@@ -6,7 +6,7 @@ VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915551.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Qemists - Warrior Sound (2016) [MP3|320 кб/с] <Drum & Bass, Alternative, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909421.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Technimatic (Technicolour & Komatic) - Дискография (Discography) (200
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908152.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Various Artists LP Vol. 1 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908020.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Funkware - Liquidator (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907075.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Malk & StarJam - Elements (2016) [MP3|320 кб/с] <Electronic, Deep Dubstep>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902714.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Colombo - iBreaks 12th Anniversary Series (2017) [MP3|320 Kbps] <Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901422.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - 5 Years of Kill Tomorrow, Pt. II (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890006.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Mystic (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890003.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Alien Signals (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890001.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Astral Existence, Vol. 01 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889996.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Astral Existence, Vol. 02 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889995.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Drum & Bass Selections, Vol. 10 (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889972.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Msdos - Goes Funky Town (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884770.jpg" />
+  <img src="Z:/picture/005/save_picture_884770.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA -  Drumsterdam (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877664.jpg" />
+  <img src="Z:/picture/005/save_picture_877664.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863947.jpg" />
+  <img src="Z:/picture/008/save_picture_863947.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Gydra - Unhinged (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860909.jpg" />
+  <img src="Z:/picture/008/save_picture_860909.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Apollo 440 - 4 Albums (1994 - 2003) [MP3|320 Kbps]<Drum & Bass, Electronic Rock,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850737.jpg" />
+  <img src="Z:/picture/008/save_picture_850737.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - All Killers, No Fillers LP Volume 7 (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846456.jpg" />
+  <img src="Z:/picture/008/save_picture_846456.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Med School: Graduation (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842889.jpg" />
+  <img src="Z:/picture/008/save_picture_842889.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Skrillex - Дискография (2009-2015) [MP3|320 кб/с]<Dubstep, Brostep
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841879.jpg" />
+  <img src="Z:/picture/008/save_picture_841879.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Ten Years of Med School (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841605.jpg" />
+  <img src="Z:/picture/008/save_picture_841605.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Under This - 1 Compilation, 18 Singles (2008 - 2016) [MP3|320 кб/с]<Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841057.jpg" />
+  <img src="Z:/picture/008/save_picture_841057.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Nothing But... Drum & Bass Anthems, Vol. 08 (2020) [MP3|320 Kbps] <Drum & B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834892.jpg" />
+  <img src="Z:/picture/008/save_picture_834892.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Padla (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834793.jpg" />
+  <img src="Z:/picture/008/save_picture_834793.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ The London Elektricity Big Band - Live In The Park (2017) [MP3|320 Kbps] <Drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826448.jpg" />
 </div>
 
 

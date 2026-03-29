@@ -1,3 +1,154 @@
+###  Публикация: 1257712   (343435) от 27.10.2018
+
+Lunatic Soul (Mariusz Duda, ex.Riverside) - Under The Fragmented Sky (2018) EP [FLAC|Lossless|image + .cue] <Atmospheric Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.He Av En
+02.Trials
+03.Sorrow
+04.Under The Fragmented Sky(   Читать дальше...   )Жанр: Atmospheric Progressive rockПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FCC66517AB02EA06FEA2209CFE4DCAC84CF9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580545   (342176) от 25.11.2012
+
+Joe Cocker - Fire It Up (2012) [FLAC|Lossless]<Classic Rock>
+
+>>След.
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_342176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire It Up (03:52)
+02. I'll Be Your Doctor (03:30)
+03. You Love Me Back (03:54)
+04. I Come In Peace (04:18)
+05. You Don't Need A Million Dollars (03:55)
+06. Eye On The Prize (04:07)
+07. Younger (04:11)
+08. You Don't Know What You're Doing To Me (03:50)
+09. The Letting Go (03:29)
+10. I'll Walk In The Sunshine Again (03:13)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258174   (341337) от 28.10.2018
+
+Abney Park - Under The Floor, Over The Wall (2016) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mister Overkill (4:24)
+ 02. Your Escape (5:04)
+ 03. Armor and Flight (3:33)
+ 04. His Imaginary World (4:27)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E523C79EAE40314A4BA9F2393F623230DC920A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578754   (341227) от 25.09.2022
+
+Cavem3n - A Prehistoric Anthology (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Christus Incendium
+02 Cococruel
+03 Diabolus Domina (44.1/24)
+04 Grinding(   Читать дальше...   )Жанр: Heavy Rock, StonerПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003F6636B502D087DCD02ACA3E20C008649B6958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578948   (341217) от 25.09.2022
+
+Squared - Strange Affairs (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Thousand Years (1:06)
+02. Stranger At Heart (4:49)
+03. Personal Matter (4:27)
+04. Darkest Fantasies (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4397C100ABB22E1AB830598F0E9910F2D952E86B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578864   (341090) от 25.09.2022
 
 Lastworld - Escape The Eclipse (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
@@ -6,7 +157,7 @@ Lastworld - Escape The Eclipse (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341090.jpg" />
+  <img src="Z:/picture/008/save_picture_341090.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ VA - Best Of British Rock (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340894.jpg" />
+  <img src="Z:/picture/008/save_picture_340894.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ Deep Purple - Extras: The Infinite B-Sides and Bonus Songs (2022) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340818.jpg" />
+  <img src="Z:/picture/008/save_picture_340818.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Mark Knopfler - Screenplaying (2013) K2HD Mastering [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340719.jpg" />
+  <img src="Z:/picture/008/save_picture_340719.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ Pink Floyd - Animals (2018 Remix) (1977) Japanese Edition, Reissue, 2022, Sony M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340659.jpg" />
+  <img src="Z:/picture/008/save_picture_340659.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ Sandy and The Wild Wombats - The Girl Can't Help It! (2015) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340440.jpg" />
+  <img src="Z:/picture/008/save_picture_340440.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ Lera Lynn - Resistor (2016) [FLAC|Lossless|tracks] <Indie Folk Rock, Post-Americ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340438.jpg" />
+  <img src="Z:/picture/008/save_picture_340438.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ Joe Cocker - Fire It Up [Premium Edition] (2012) [FLAC|Lossless]<Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340203.jpg" />
+  <img src="Z:/picture/005/save_picture_340203.jpg" />
 </div>
 
 
@@ -244,7 +395,7 @@ VA - Halloween Hits 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339978.jpg" />
+  <img src="Z:/picture/008/save_picture_339978.jpg" />
 </div>
 
 
@@ -273,7 +424,7 @@ Bryan Adams - Ultimate (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339882.jpg" />
+  <img src="Z:/picture/008/save_picture_339882.jpg" />
 </div>
 
 
@@ -302,7 +453,7 @@ Shocking Blue - Inkpot & Attila (1997) [FLAC|image+.cue]<Classic Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339730.jpg" />
+  <img src="Z:/picture/008/save_picture_339730.jpg" />
 </div>
 
 
@@ -331,7 +482,7 @@ Young Gun Silver Fox - Canyons (2020) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339006.jpg" />
+  <img src="Z:/picture/008/save_picture_339006.jpg" />
 </div>
 
 
@@ -360,7 +511,7 @@ UTO - Touch the Lock (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339005.jpg" />
+  <img src="Z:/picture/008/save_picture_339005.jpg" />
 </div>
 
 
@@ -389,7 +540,7 @@ Ed Wynne And Gre Vanderloo - Tumbling Through The Floativerse (2022) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339004.jpg" />
+  <img src="Z:/picture/008/save_picture_339004.jpg" />
 </div>
 
 
@@ -418,7 +569,7 @@ Storyteller - Corridor Of Windows (2000) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339003.jpg" />
+  <img src="Z:/picture/008/save_picture_339003.jpg" />
 </div>
 
 
@@ -447,7 +598,7 @@ My Sleeping Karma - Atma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338999.jpg" />
+  <img src="Z:/picture/008/save_picture_338999.jpg" />
 </div>
 
 
@@ -476,7 +627,7 @@ Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338886.jpg" />
+  <img src="Z:/picture/008/save_picture_338886.jpg" />
 </div>
 
 
@@ -505,7 +656,7 @@ Abney Park - AEther Shanties (2009) [FLAC|Lossless|tracks + .cue] <Industrial, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338688.jpg" />
+  <img src="Z:/picture/008/save_picture_338688.jpg" />
 </div>
 
 
@@ -534,7 +685,7 @@ Abney Park - Nonfiction (2016) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338679.jpg" />
+  <img src="Z:/picture/008/save_picture_338679.jpg" />
 </div>
 
 
@@ -563,7 +714,7 @@ The Rolling Stones - Havana Moon (2016) Live, Box Set, 2CD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338282.jpg" />
+  <img src="Z:/picture/008/save_picture_338282.jpg" />
 </div>
 
 
@@ -593,7 +744,7 @@ Joe Henry - Thrum (2017) [FLAC|Lossless|tracks + .cue] <Chamber Pop, Singer-Song
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337997.jpg" />
+  <img src="Z:/picture/008/save_picture_337997.jpg" />
 </div>
 
 
@@ -607,151 +758,6 @@ Joe Henry - Thrum (2017) [FLAC|Lossless|tracks + .cue] <Chamber Pop, Singer-Song
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:961E3E5346E116723B28A3B7FB24EA9685E12DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419799   (337698) от 29.10.2020
-
-Rick Miller - Unstuck In Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Plague (12:21)
-02. State Of Emergency (5:13)
-03. Covid Concerto (3:18)
-04. Fateful Apparitions (7:13)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42573D9D03076B76E37182AE7D3EBC16FBA99CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419715   (337681) от 29.10.2020
-
-Thin Lizzy - Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey In The Jar
- 02. Randolph's Tango
- 03. The Rocker
- 04. Little Darling(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F3CF28FA0EEA9EC9BCCC4C982612E9126BACDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579272   (336615) от 27.09.2022
-
-Band of Spice - 5 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone Insane [00:05:32]
-02. Demonized [00:04:25]
-03. My Game [00:05:27]
-04. Below the Sun [00:02:56](   Читать дальше...   )Жанр: Heavy Rock, Stoner, DoomПродолжительность: 5 CD, 03:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B5D12A71B8C81D43877C27F32A5862EAB44F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578787   (336612) от 27.09.2022
-
-Spellbook -  Magick & Mischief (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wands to the Sky [00:03:47]
-02. Black Shadow [00:03:51]
-03. Ominous Skies [00:04:44]
-04. Not Long for This World [00:08:37](   Читать дальше...   )Жанр: Heavy Rock, Doom MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C09E6CF558C021F9A9C3EF3A8A5F03E9D83899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258601   (336541) от 30.10.2018
-
-Rascal Flatts - Greatest Hits Volume 1 (2008) [FLAC|Lossless|tracks + .cue] <Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayin' For Daylight (3:38)
- 02. I'm Movin' On (3:52)
- 03. These Days (4:16)
- 04. I Melt (3:55)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1F718BE90C94B1C48C67C56C589EE6888D9B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

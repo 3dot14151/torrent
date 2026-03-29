@@ -1,3 +1,61 @@
+###  Публикация: 1073951   (340224) от 18.11.2016
+
+Hudson Mohawke - Ded Sec - Watch Dogs 2 (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shanghaied (03:54)
+02. Burning Desire (Hacker) (01:22)
+03. W4tched (Cinema) (01:07)
+04. Haum Sweet Haum (04:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9740AC1DAA03E8E5DD19FF131F961309C65F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954331   (340095) от 08.11.2015
+
+David Wise - Tengami (2014) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Awakening
+02 - The Pale Moonlight
+03 - Into the Darkness
+04 - Dreams Unfolding(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227549CB6DC2135B598EF90FAA033DCC1B68310F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953890   (340094) от 08.11.2015
 
 VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3|320 кб/с] <Soundtrack>
@@ -6,7 +64,7 @@ VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340094.jpg" />
+  <img src="Z:/picture/008/save_picture_340094.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340083.jpg" />
+  <img src="Z:/picture/008/save_picture_340083.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original M
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340075.jpg" />
+  <img src="Z:/picture/008/save_picture_340075.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339972.jpg" />
+  <img src="Z:/picture/008/save_picture_339972.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|ima
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339724.jpg" />
+  <img src="Z:/picture/008/save_picture_339724.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Sentimental Journey (2007) 5 CD Box Set [MP3|320 кб/с]<Pop,Oldies>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339602.jpg" />
+  <img src="Z:/picture/008/save_picture_339602.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339581.jpg" />
+  <img src="Z:/picture/008/save_picture_339581.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Wychazel - Arcana (2016) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338593.jpg" />
+  <img src="Z:/picture/008/save_picture_338593.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338579.jpg" />
+  <img src="Z:/picture/008/save_picture_338579.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338536.jpg" />
+  <img src="Z:/picture/008/save_picture_338536.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338521.jpg" />
+  <img src="Z:/picture/008/save_picture_338521.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338514.jpg" />
+  <img src="Z:/picture/008/save_picture_338514.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [M
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338295.jpg" />
+  <img src="Z:/picture/008/save_picture_338295.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Acoustic Heart: The Passion And Romance Of Acoustic Guitar Masters (1997) [
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338198.jpg" />
+  <img src="Z:/picture/008/save_picture_338198.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [F
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338190.jpg" />
+  <img src="Z:/picture/008/save_picture_338190.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338188.jpg" />
+  <img src="Z:/picture/008/save_picture_338188.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338081.jpg" />
+  <img src="Z:/picture/008/save_picture_338081.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337771.jpg" />
+  <img src="Z:/picture/008/save_picture_337771.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337762.jpg" />
+  <img src="Z:/picture/008/save_picture_337762.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337500.jpg" />
+  <img src="Z:/picture/008/save_picture_337500.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337011.jpg" />
+  <img src="Z:/picture/008/save_picture_337011.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335938.jpg" />
+  <img src="Z:/picture/008/save_picture_335938.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335843.jpg" />
+  <img src="Z:/picture/008/save_picture_335843.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Jim Brickman - Joy (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335712.jpg" />
+  <img src="Z:/picture/008/save_picture_335712.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Jim Brickman - Joy (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADAD3FB7DA8AB5931E43E0074C587BCD17393720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420027   (335616) от 30.10.2020
-
-Jim Brickman - Christmas Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Brickman - I'll Be Home For Christmas
-02. Winter Wonderland
-03. O Tannenbaum
-04. Snowflake(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F2DD76FA5FE2420CA2B1BBF439F1F07DCA5519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074258   (335562) от 20.11.2016
-
-Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Pop, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing's Gonna Hurt You Baby
-02. I'm a Firefighter
-03. Dreaming of You
-04. Starry EyesЖанр: Dream Pop, Indie Pop, AmbientПродолжительность: 00:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3EFFC702A4E87437EBEDB8153821334D7C90DAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

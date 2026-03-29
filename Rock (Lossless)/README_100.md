@@ -1,3 +1,149 @@
+###  Публикация: 1574044   (407550) от 03.09.2022
+
+Birth Control - Open Up (2022) [FLAC|Lossless|image + .cue] <Prog Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407550.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gamma Ray 2.0
+2. The Last Word
+3. Wrestling Mama
+4. Open Sesame(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46ED067A95CBDB7CC533BB86A15EBE1F89AAB6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413605   (407178) от 05.10.2020
+
+The Tea Party - 16 albums, 21CD (1991-2015) [FLAC|Lossless|tracks + .cue] <Prog Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свой стиль сами музыканты называют Moroccan Rock из-за обилия восточных мелодий в их вобщем-то прогрессивном блюз-роке. Любовь группы к экзотическому звучанию проявляется и в используемых ими инструментам. В записи их альбома The Edges of Twilight было задействовано более 30 различных музыкальных инструментов. А сам вокалист Джефф Мартин является гордым обладателем (   Читать дальше...   )--------------------------
+
+01. Going Down Blues (3:12)
+02. Chinese Whispers (3:42)(   Читать дальше...   )Жанр: Progressive Rock, Indie Rock, Indian and Middle Eastern, Blues Rock |Продолжительность: 19:05:37 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C5342DA504190DFF437799077A6C8F01DCD600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414132   (406829) от 06.10.2020
+
+Yusuf / Cat Stevens - Tea for the Tillerman² (2020) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Do The Children Play? (4:09)
+02. Hard Headed Woman 3:32
+03. Wild World 3:47
+04. Sad Lisa 3:58(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8192669AE7DE3C87E12DFD8F8F558DBB2466CE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414029   (406799) от 06.10.2020
+
+Roger Waters - Us + Them (2020) Live, 2CD [FLAC|Lossless|tracks + .cue] <Art Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406799.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Intro (1:42)
+02. Speak To Me (0:30)
+03. Breathe (2:48)(   Читать дальше...   )Жанр: Art Rock, Classic RockПродолжительность: CD1 - 00:58:16
+CD2 - 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570BAE72CEED600FA74A85A90C962E8CC4C14E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413882   (406731) от 06.10.2020
+
+VA - Rock Now (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406731.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:26] 01. Imagine Dragons - Believer
+[04:09] 02. Bon Jovi - Livin' On A Prayer
+[04:44] 03. Lynyrd Skynyrd - Sweet Home Alabama
+[03:20] 04. Smash Mouth - All Star(   Читать дальше...   )Жанр: RockПродолжительность: 05:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AF7EACF50544591AD1062305789B1B28EF1343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561223   (406103) от 17.10.2012
 
 VA - Top of the Pops 2 - 70`s rock (2001) 2CD[FLAC|Lossless]<Rock>
@@ -6,7 +152,7 @@ VA - Top of the Pops 2 - 70`s rock (2001) 2CD[FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406103.jpg" />
+  <img src="Z:/picture/005/save_picture_406103.jpg" />
 </div>
 
 
@@ -41,7 +187,7 @@ Chris Norman - Don't Knock the Rock (2017) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403940.jpg" />
+  <img src="Z:/picture/008/save_picture_403940.jpg" />
 </div>
 
 
@@ -70,7 +216,7 @@ VA - Guitar Rock 1976-1977 (1993) Time-Life Music [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403937.jpg" />
+  <img src="Z:/picture/008/save_picture_403937.jpg" />
 </div>
 
 
@@ -101,7 +247,7 @@ VA - Rock Classics - The Collection: The Ultimate Rock Anthems (2017) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402280.jpg" />
+  <img src="Z:/picture/008/save_picture_402280.jpg" />
 </div>
 
 
@@ -130,7 +276,7 @@ FOES - The Summit Lies Skyward (2016) [FLAC|Lossless|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398694.jpg" />
+  <img src="Z:/picture/008/save_picture_398694.jpg" />
 </div>
 
 
@@ -159,7 +305,7 @@ Chris Rea - Road Songs For Lovers (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398505.jpg" />
+  <img src="Z:/picture/008/save_picture_398505.jpg" />
 </div>
 
 
@@ -188,7 +334,7 @@ Colaars - Native (2014) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397761.jpg" />
+  <img src="Z:/picture/008/save_picture_397761.jpg" />
 </div>
 
 
@@ -217,7 +363,7 @@ Rod Stewart - Rarities (2013) 2CD [FLAC|tracks + .cue]<Rock, Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396727.jpg" />
+  <img src="Z:/picture/008/save_picture_396727.jpg" />
 </div>
 
 
@@ -246,7 +392,7 @@ Pink Floyd - Delicate Sound of Thunder (EMI CDS 7914802) (1988) [FLAC (image+.cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396004.jpg" />
+  <img src="Z:/picture/005/save_picture_396004.jpg" />
 </div>
 
 
@@ -281,7 +427,7 @@ Pride Of Lions - Immortal (2012) [FLAC|Lossless]<Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_394050.jpg" />
+  <img src="Z:/picture/005/save_picture_394050.jpg" />
 </div>
 
 
@@ -307,7 +453,7 @@ Ten Years After - 2 альбома (1971-1972) 2011-2012, Audio Fidelity [WavPac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392679.jpg" />
+  <img src="Z:/picture/005/save_picture_392679.jpg" />
 </div>
 
 
@@ -336,7 +482,7 @@ Mark Knopfler - This Is Not Enough For Me (2017) Live, Bootleg [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391081.jpg" />
+  <img src="Z:/picture/008/save_picture_391081.jpg" />
 </div>
 
 
@@ -365,7 +511,7 @@ Robert Plant - Carry Fire (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388868.jpg" />
+  <img src="Z:/picture/008/save_picture_388868.jpg" />
 </div>
 
 
@@ -394,7 +540,7 @@ Styx - Pieces Of Eight (1978) Hybrid SACD, remaster, 2017, Audio Fidelity [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388816.jpg" />
+  <img src="Z:/picture/008/save_picture_388816.jpg" />
 </div>
 
 
@@ -423,7 +569,7 @@ Belinda Carlisle - Icon (2013) [FLAC|Lossless] <Pop Rock, Ballad>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388243.jpg" />
+  <img src="Z:/picture/008/save_picture_388243.jpg" />
 </div>
 
 
@@ -452,7 +598,7 @@ Hydra - Point Break (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388042.jpg" />
+  <img src="Z:/picture/008/save_picture_388042.jpg" />
 </div>
 
 
@@ -481,7 +627,7 @@ Blind Scryer - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385788.jpg" />
+  <img src="Z:/picture/008/save_picture_385788.jpg" />
 </div>
 
 
@@ -509,7 +655,7 @@ Gone Cosmic - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385779.jpg" />
+  <img src="Z:/picture/008/save_picture_385779.jpg" />
 </div>
 
 
@@ -536,7 +682,7 @@ Leafblade - Merlin, Child of the Merrymoon (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385709.jpg" />
+  <img src="Z:/picture/008/save_picture_385709.jpg" />
 </div>
 
 
@@ -565,7 +711,7 @@ Yacobs - Beautiful (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385625.jpg" />
+  <img src="Z:/picture/008/save_picture_385625.jpg" />
 </div>
 
 
@@ -594,7 +740,7 @@ Simon & Garfunkel - The Concert In Central Park (Japan SICP 1540) (1982) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_385583.jpg" />
+  <img src="Z:/picture/005/save_picture_385583.jpg" />
 </div>
 
 
@@ -614,147 +760,6 @@ Simon & Garfunkel - The Concert In Central Park (Japan SICP 1540) (1982) [FLAC|L
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414527   (385502) от 08.10.2020
-
-The Doors - Morrison Hotel (1970) 50th Anniversary Deluxe Edition, Rhino/Elektra, 2020 [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen of the Highway (Take 1)Жанр: RockПродолжительность: 2 CD, 01:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415E3DD856027982CAFAC129C8544BC162812E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174566   (385426) от 15.10.2017
-
-Robin Beck - Love Is Coming (2017) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island
-02. On The Bright Side
-03. In These Eyes
-04. Love Is Coming(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE104E4653FFC02E04A23377AACC3B56A41F039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414551   (385382) от 08.10.2020
-
-The Royal Philharmonic Orchestra - Plays Hits Of Pink Floyd (1994) [WavPack|Lossless|image + .cue] <Rock, Modern Classical>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевский филармонический оркестр (англ. Royal Philharmonic Orchestra) — Британский симфонический оркестр. Иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).01. Shine On You Crazy Diamond (09:43)
-02. Money (05:05)
-03. Us and Them (06:16)
-04. Hey You (04:32)(   Читать дальше...   )Жанр: Rock, Modern ClassicalПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2117CA7A50E5CF9C13E7482DE7C5009CE3AB665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252972   (385251) от 08.10.2018
-
-Pink Floyd - Meddle: The High Resolution Remasters (1971) Remastered, 2018, The Archives Records,  4CD Long Box, Limited Edition, Bootleg [FLAC|Lossless|tracks] <Psychedelic Rock, Progressive Ro ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes (Cleveland 1971) (28:24)
-02. Echoes (Hollywood Bowl 1972) (25:30)
-03. Echoes (Earls Court 1973) (26:02)Жанр: Psychedelic Rock, Progressive RockПродолжительность: 04:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B6A35642FC5B7AE6128D6090A41476D4582EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067695   (385115) от 30.10.2016
-
-Stan Meissner - Dangerous Games (1984) [APE|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Your Love
-02. Hide The Night Away
-03. Can't Let Go
-04. Once Over(   Читать дальше...   )Жанр: AORПродолжительность: 00:56.46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2735BDA4CE56F67767817641BFD37C7AD595D6C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

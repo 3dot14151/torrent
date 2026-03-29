@@ -6,7 +6,7 @@ Michael Reimann - Eine entspannende Reise (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810134.jpg" />
+  <img src="Z:/picture/008/save_picture_810134.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Myristica - Waiting for Yesterday (2014) [FLAC|Lossless|tracks] <New Age, Ambien
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810040.jpg" />
+  <img src="Z:/picture/008/save_picture_810040.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dr. Jeffrey Thompson - Ambient Music For Sleep (2004) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807999.jpg" />
+  <img src="Z:/picture/008/save_picture_807999.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ John Tesh - Tour De France-The Early Years (1990) [FLAC|Lossless|tracks + .cue]<
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806312.jpg" />
+  <img src="Z:/picture/008/save_picture_806312.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805994.jpg" />
+  <img src="Z:/picture/008/save_picture_805994.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805741.jpg" />
+  <img src="Z:/picture/008/save_picture_805741.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Leo Rojas - Spirit Of The Hawk (2012) [FLAC|Lossless|tracks + .cue] <Panflute, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805670.jpg" />
+  <img src="Z:/picture/008/save_picture_805670.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Tim Wheater - Whalesong (1991) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805616.jpg" />
+  <img src="Z:/picture/008/save_picture_805616.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802713.jpg" />
+  <img src="Z:/picture/008/save_picture_802713.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802711.jpg" />
+  <img src="Z:/picture/008/save_picture_802711.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Padma Previ - Goddess Chants (2008) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801773.jpg" />
+  <img src="Z:/picture/008/save_picture_801773.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801720.jpg" />
+  <img src="Z:/picture/008/save_picture_801720.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799631.jpg" />
+  <img src="Z:/picture/008/save_picture_799631.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799396.jpg" />
+  <img src="Z:/picture/008/save_picture_799396.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799220.jpg" />
+  <img src="Z:/picture/008/save_picture_799220.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Carlos Garo - Entrance To The Parallel Universe (2015) [FLAC|Lossless|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796981.jpg" />
+  <img src="Z:/picture/008/save_picture_796981.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electron
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795447.jpg" />
+  <img src="Z:/picture/008/save_picture_795447.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (19
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793557.jpg" />
+  <img src="Z:/picture/008/save_picture_793557.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793428.jpg" />
+  <img src="Z:/picture/008/save_picture_793428.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [FLAC|Lossless|WEB
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793425.jpg" />
+  <img src="Z:/picture/008/save_picture_793425.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792778.jpg" />
+  <img src="Z:/picture/008/save_picture_792778.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Mod
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792250.jpg" />
+  <img src="Z:/picture/008/save_picture_792250.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791120.jpg" />
+  <img src="Z:/picture/008/save_picture_791120.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Medita
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791117.jpg" />
+  <img src="Z:/picture/008/save_picture_791117.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791096.jpg" />
+  <img src="Z:/picture/008/save_picture_791096.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790970.jpg" />
+  <img src="Z:/picture/008/save_picture_790970.jpg" />
 </div>
 
 

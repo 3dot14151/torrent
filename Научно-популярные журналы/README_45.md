@@ -1,3 +1,55 @@
+###  Публикация: 1685763   (127060) от 19.12.2023
+
+Журнал | Вопросы кибербезопасности №5 (57) (2023) [PDF][Ru, En]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127060.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вопросы кибербезопасности» - это научный, периодический, информационно-методический журнал с базовой специализацией в области информационной безопасности. На страницах журнала печатаются статьи российских и иностранных ученых в области информационной безопасности и информационного противоборства, в первую очередь материал по кибербезопасности, безопасности приложений, (   Читать дальше...   )Жанр: КибербезопасностьЯзык: Русский, английскийИздательство: АО «НПО «Эшелон»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72617D295430DD1096010C5E7EAE22398E45D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685962   (126918) от 20.12.2023
+
+Журнал | Квант №9 (сентябрь 2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126918.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналИздательство: Российская академия наук (РАН)Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33381B3854D44C6CDF144978985D66791C0AF9E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686190   (126789) от 21.12.2023
 
 Журнал | Вопросы кибербезопасности №6 (58) (2023) [PDF][Ru, En]
@@ -6,7 +58,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126789.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126764.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126493.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126464.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125871.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125860.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125743.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125217.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125193.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125179.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125065.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125036.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124361.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123528.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123432.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123143.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122948.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122349.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121498.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121352.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121311.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120834.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120667.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120115.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4291E9C79E66A22DDF681F4410578F2BCDB594C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695637   (120109) от 30.01.2024
-
-Журнал | Наука из первых рук №1(96) (2023) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120109.jpg" />
-</div>
-
-
-###  Подробнее
-
-«НАУКА из первых рук» – научно-популярный иллюстрированный журнал широкого профиля, выходит 6 раз в год. Выпускается с 2004 года в Новосибирском Академгородке – одном из крупнейших мировых научных центров. Девизом журнала стали слова Леонардо да Винчи: «Естественное желание хороших людей – добывать знания», поэтому читательская аудитория практически не имеет ограничений, (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: ООО "ИНФОЛИО"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5A9FC08B410F25806D659AF5CA7F71735C1884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696110   (119834) от 01.02.2024
-
-Журнал | Машины и Механизмы №2 (221) (2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119834.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Машины и Механизмы" - издание для всех, кто интересуется устройством современного мира. Журнал не ограничивается обзорами передовых технологий и последних изобретений. В сферу интересов «ММ» входят вопросы развития общества, новейшие социальные и даже геополитические тенденции. «ММ» отличается от прочих профильных изданий глубиной подачи материала, так (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: Фонд научных исследований “XXI век”Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3078A42C0BE12FC40FB1A4C8DB0EF12077D72CFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

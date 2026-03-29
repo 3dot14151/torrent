@@ -1,3 +1,134 @@
+###  Публикация: 1159448   (482214) от 21.08.2017
+
+Nice Clipboard - a cloud synced clipboard manager 1.5.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nice Clipboard - это менеджер истории буфера обмена, который всегда ждет вас под значком меню на вашем Mac или на главном экране вашего iPhone. Он синхронизируется через iCloud между компьютерами Mac и iOS и построен с использованием новейших технологий Apple, чтобы быть легким и сверхбыстрым. Эти функции делают ваш буфер обмена гораздо более полезным инструментом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.08.2017Разработчик: Nice AppsПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27571C7CFB0B6C5106B6A1217A5852040780D3C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244386   (482164) от 01.09.2018
+
+TinyAlarm 1.9.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482164.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinyAlarm — простой и удобный таймер, располагающийся в менюбаре. Просто укажите время, когда должен сработать сигнал и все… Два клика — сигнал задан.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2018Разработчик: Plum Amazing, LLCПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5367E16279CE5AF5B400B04AE939D63C52DFF26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244344   (482158) от 01.09.2018
+
+iRamDisk 3.6.12 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cамая функциональная программа для создание RAM-диска из свободного объема оперативной памяти. Поддерживает создание и управление более чем одним диском, автоматическое выполнением команд, автоматическое монтирование, скрытную работу, защиту дисков.Тип издания: macOS SoftwareРелиз состоялся: 29.07.2018Разработчик: Michael ParrotПоддерживаемая ОС: macOS 10.6.6 +Язык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8414AF1C96B2565BD5667E0F3DDAC1B6FBDA385F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244158   (482083) от 01.09.2018
+
+Document Writer Pro 1.6.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Document Writer - это красивый, легкий в использовании текстовый редактор, который разработан, чтобы сделать написание более удобным и эффективным. Программа Document Writer быстрая и лаконичная. Быстрый старт, счетчик слов, возможность экспорта во все распространенные форматы: .pdf, .rtf, .doc, .txt и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2018Разработчик: Xing LiaoПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0E3A8B27442FDD80D34F041516ED387DB38AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566538   (482075) от 29.07.2022
+
+Disk Drill Enterprise 4.7.382 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill Enterprise - самое популярное приложение для восстановления данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
+После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2022Разработчик: © 2022 508 Software, LLCПоддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97030B54DFF2ABD4AF2D3F2ACE7C1413CE5D5571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244295   (482068) от 01.09.2018
 
 TunesKit iPhone Data Recovery 1.0.0 [Multi]
@@ -6,7 +137,7 @@ TunesKit iPhone Data Recovery 1.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482068.jpg" />
+  <img src="Z:/picture/008/save_picture_482068.jpg" />
 </div>
 
 
@@ -34,7 +165,7 @@ New Paint X 1.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482018.jpg" />
+  <img src="Z:/picture/008/save_picture_482018.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ Trim Enabler Pro 4.0.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481853.jpg" />
+  <img src="Z:/picture/008/save_picture_481853.jpg" />
 </div>
 
 
@@ -87,7 +218,7 @@ Network Kit X 7.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481480.jpg" />
+  <img src="Z:/picture/008/save_picture_481480.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ CodeKit 2.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481392.jpg" />
+  <img src="Z:/picture/008/save_picture_481392.jpg" />
 </div>
 
 
@@ -140,7 +271,7 @@ Movist 2.7.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480365.jpg" />
+  <img src="Z:/picture/008/save_picture_480365.jpg" />
 </div>
 
 
@@ -167,7 +298,7 @@ Rumpus PRO 8.1.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480174.jpg" />
+  <img src="Z:/picture/008/save_picture_480174.jpg" />
 </div>
 
 
@@ -194,7 +325,7 @@ Chronicle 8 8.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480160.jpg" />
+  <img src="Z:/picture/008/save_picture_480160.jpg" />
 </div>
 
 
@@ -222,7 +353,7 @@ Social Media Lab - Templates 1.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480043.jpg" />
+  <img src="Z:/picture/008/save_picture_480043.jpg" />
 </div>
 
 
@@ -249,7 +380,7 @@ SimpleMind 1.20.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479819.jpg" />
+  <img src="Z:/picture/008/save_picture_479819.jpg" />
 </div>
 
 
@@ -277,7 +408,7 @@ Current for Facebook 1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479497.jpg" />
+  <img src="Z:/picture/008/save_picture_479497.jpg" />
 </div>
 
 
@@ -303,7 +434,7 @@ SQL Dynamite 2.1.4.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479237.jpg" />
+  <img src="Z:/picture/008/save_picture_479237.jpg" />
 </div>
 
 
@@ -329,7 +460,7 @@ Xcode 6.0.1 (6A317) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479204.jpg" />
+  <img src="Z:/picture/008/save_picture_479204.jpg" />
 </div>
 
 
@@ -357,7 +488,7 @@ MKV2MP4 1.4.15 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477234.jpg" />
+  <img src="Z:/picture/008/save_picture_477234.jpg" />
 </div>
 
 
@@ -383,7 +514,7 @@ CCleaner Pro 1.14.451 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476928.jpg" />
+  <img src="Z:/picture/008/save_picture_476928.jpg" />
 </div>
 
 
@@ -409,7 +540,7 @@ Textbundle Editor 1.2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476635.jpg" />
+  <img src="Z:/picture/008/save_picture_476635.jpg" />
 </div>
 
 
@@ -435,7 +566,7 @@ Auto Highlight 4.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476512.jpg" />
+  <img src="Z:/picture/008/save_picture_476512.jpg" />
 </div>
 
 
@@ -461,7 +592,7 @@ WidsMob ImageConvert - JPG/PNG 3.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476505.jpg" />
+  <img src="Z:/picture/008/save_picture_476505.jpg" />
 </div>
 
 
@@ -487,7 +618,7 @@ Stats 2.7.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476502.jpg" />
+  <img src="Z:/picture/008/save_picture_476502.jpg" />
 </div>
 
 
@@ -513,7 +644,7 @@ WidsMob Panorama 4.25 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476496.jpg" />
+  <img src="Z:/picture/008/save_picture_476496.jpg" />
 </div>
 
 
@@ -540,7 +671,7 @@ Digital Clock 3D 2.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476319.jpg" />
+  <img src="Z:/picture/008/save_picture_476319.jpg" />
 </div>
 
 
@@ -551,139 +682,6 @@ Digital Clock 3D 2.1.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A810B8678200D6806E7E0C546C971F897FFB563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245020   (475543) от 04.09.2018
-
-SEO Checker 2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475543.jpg" />
-</div>
-
-
-###  Подробнее
-
-SEO Checker - эффективное приложение, которое предлагает инструменты SEO, которые помогут вам проанализировать ваши веб-сайты, все что вам нужно для повышения рейтинга и ускорения ваших веб-сайтов.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Global Web SRLПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80B4BCCC164F29E44A183F6ADBA83C69AB25D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057362   (475332) от 28.09.2016
-
-Diagrammix 2.13 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент для для построения любых видов диаграмм с минимальными услилиями с вашей стороны. Если вы студент, менеджер или руководитель, то с этим инструментом вы можете составить диаграмму любой сложности легко и просто. Такой инструмент пригодится для иллюстрирования отчетов и при подготовке презентаций. Он поможет вам схематично выразить свои мысли, обнаружить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2016Разработчик: Deep IT ProПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FE4804359B3AD0CF99D5B65298E70376393DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057187   (475331) от 28.09.2016
-
-Cornerstone 3.0.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cornerstone — приложение по управлению версиями, построенное на Subversion.
-Управление версиями — одна из важнейших частей жизни любого разработчика. Об этом говорит даже число созданных для этого программ. Cornerstone относится к числу тех программ, чья функциональность настолько продумана даже в мелочах, что ее использование доставляет ни с чем не сравнимое удовольствие. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 сентября 2016Разработчик: Zennaware GmbHПоддерживаемая ОС: OS X 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEB82322161FE6A00FB1DA78303ADC1378D24F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057582   (475011) от 28.09.2016
-
-Net Monitor 4.9.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуализация сетевого трафика, сетевая активность, создание отчетов по истории и расчета трафика с течением времени. При первом запуске Net Monitor начинается мониторинг сети, которая в настоящее время активна, но вы можете легко переключаться на другие доступные сети с помощью  меню строки состояния. В главном окне Net Monitor можно визуализировать сведения о сети, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2016Разработчик: Guy MeyerПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DB966E6A986538FF5C333D45D992114C20BC81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406365   (474624) от 03.09.2020
-
-ABBYY Lingvo European 1.11.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте перевод незнакомого слова, значения устойчивых выражений, примеры употребления слов в контексте с помощью словаря ABBYY Lingvo Европейская для Mac. Это отличное приложение для тех, кто учит иностранный язык или сталкивается с переводом. Откройте мир с Lingvo!
-
-В приложение включены 112 словарей для 7 языков (русский, английский, французский, испанский, немецкий, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.08.2020Разработчик: ABBYYПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A473CC488D3F8681777F7C981CDEBB8B0F7010
 ```
 
 https://mybot314.ru/tekegram_catalog/

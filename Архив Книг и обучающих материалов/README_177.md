@@ -1,3 +1,29 @@
+###  Публикация: 585651   (302312) от 06.12.2012
+
+Книжная серия | Мои первые книжки (196 книг) [1962-1992] [PDF, DjVu, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_302312.jpg" />
+</div>
+
+
+###  Подробнее
+
+В комплект вошли книги разных авторов, но каждая из них - своеобразный вклад в мировоззрение маленького читателя. Все книги замечательно иллюстрированы, что делает их еще более привлекательными для ребенка. Детские книги способствуют образованию ребенка. Ребенок учится читать, а, заодно с техническими навыками чтения, приобщается к вечным ценностям.Формат: PDF, DjVu, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AB0B0CA17C81986D8B1ED660CEC01F619C6ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 267224   (302266) от 07.12.2010
 
 Вячеслав Тулупов | Русь Новгородская (2009) [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302266.jpg" />
+  <img src="Z:/picture/008/save_picture_302266.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301546.jpg" />
+  <img src="Z:/picture/008/save_picture_301546.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301534.jpg" />
+  <img src="Z:/picture/008/save_picture_301534.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301530.jpg" />
+  <img src="Z:/picture/008/save_picture_301530.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Mario Brajdich | Mastering 3D Modeling in Maya Part 1 (2019) PCRec
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301522.jpg" />
+  <img src="Z:/picture/008/save_picture_301522.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301451.jpg" />
+  <img src="Z:/picture/008/save_picture_301451.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301403.jpg" />
+  <img src="Z:/picture/008/save_picture_301403.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301393.jpg" />
+  <img src="Z:/picture/008/save_picture_301393.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301389.jpg" />
+  <img src="Z:/picture/008/save_picture_301389.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301385.jpg" />
+  <img src="Z:/picture/008/save_picture_301385.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301315.jpg" />
+  <img src="Z:/picture/008/save_picture_301315.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301203.jpg" />
+  <img src="Z:/picture/008/save_picture_301203.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301130.jpg" />
+  <img src="Z:/picture/008/save_picture_301130.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301106.jpg" />
+  <img src="Z:/picture/008/save_picture_301106.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301038.jpg" />
+  <img src="Z:/picture/008/save_picture_301038.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300661.jpg" />
+  <img src="Z:/picture/008/save_picture_300661.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300331.jpg" />
+  <img src="Z:/picture/008/save_picture_300331.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300309.jpg" />
+  <img src="Z:/picture/008/save_picture_300309.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300278.jpg" />
+  <img src="Z:/picture/008/save_picture_300278.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300173.jpg" />
+  <img src="Z:/picture/008/save_picture_300173.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300123.jpg" />
+  <img src="Z:/picture/008/save_picture_300123.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299964.jpg" />
+  <img src="Z:/picture/008/save_picture_299964.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299905.jpg" />
+  <img src="Z:/picture/008/save_picture_299905.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299626.jpg" />
+  <img src="Z:/picture/008/save_picture_299626.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299112.jpg" />
+  <img src="Z:/picture/008/save_picture_299112.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0A7E13027F7C02E6A8D46D3AC1E2420743EB35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586350   (299102) от 08.12.2012
-
-Журнал | Даша. Рецепты на любой вкус № 1 [2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299102.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Даша. Рецепты на любой вкус» — ежемесячный кулинарный журнал. Традиционные блюда и эффектные кулинарные идеи на основе самых знакомых и доступных продуктов. Меню для праздничного застолья и полноценный семейный обед. Уютная домашняя выпечка и нарядные кондитерские шедевры. Блюда на скорую руку и аппетитные изыски.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53F53B2F6DC3BD2E73384D89D68D15D9DA0A58A
 ```
 
 https://mybot314.ru/tekegram_catalog/

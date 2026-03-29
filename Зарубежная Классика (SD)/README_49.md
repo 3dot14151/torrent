@@ -1,3 +1,81 @@
+###  Публикация: 1223488   (659538) от 16.05.2018
+
+Обнажённая виолончель / Il merlo maschio (1971) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виолончелист Никколо Вивальди играет в городском оркестре Вероны на знаменитой Арене. Увы, но в оркестре он не первая, и даже не вторая виолончель. Но это не главная его печаль. Дело в том, что никто не запоминает его лица и имени — даже консьерж в доме, где он живёт с Костанцей, красавицей женой, которую он тайком сфотографировал дарёным «Поляроидом» в обнаженном (   Читать дальше...   )Производство: Италия / Clesi CinematograficaЖанр: КомедияРежиссер: Паскуале Феста КампанилеАктеры: Ландо Будзанка, Лаура Антонелли, Ферруччо Де Череза, Эльза Ваззолер, Джино Кавальери, Лучиано Бьянкьярди, Адольфо Беллетти, Гиги Бонфанти, Бруно Бошетти, Лино ТоффолоПеревод: Одноголосый закадровый (ССК+)Субтитры: ОтсутствуютПродолжительность: 01:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343237B8EB89CDA775919F077C81BFC4D8E6CE10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135474   (658907) от 03.06.2017
+
+Монти Уолш / Monte Walsh (1970) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658907.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мере приближения нового века стареющий ковбой старается придерживаться тех традиций, которые сделали его легендой. В то время как его тихий городок превращается в опустевшее место, как его друзья и любимые приходят и уходят, самыми сложными и загадочными для Монти Уолша навсегда останутся человеческое сердце и человеческая душа.Производство: США / Cinema Center FilmsЖанр: ВестернРежиссер: Уильям А. ФрейкерАктеры: Ли Марвин, Жанна Моро, Джек Пэланс, Митчелл Райан, Джим Дэвис, Г.Д. Спрэдлин, Джон Хадкинс, Рэймонд Гут, Джон МакКи, Майкл КонрадПеревод: Авторский (С.Кузнецов)Субтитры: Русские английскиеПродолжительность: 01:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681CBAEBC63F561A0783DA2C9C97745A3D2A7102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135215   (658789) от 03.06.2017
+
+Неисправимый / L'incorrigible (1975) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор выходит из тюрьмы, где отсидел три года и сразу же берется за старое. Он продает чужие квартиры, яхты, и даже истребители «Мираж» африканским странам.Производство: Франция / Cerito Films, Les Films Ariane, Mondex FilmsЖанр: КомедияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Женевьев Бюжо, Жюльен Гиомар, Шарль Жерар, Даниэль Секкальди, Капюсин, Андреа Ферреоль, Мишель Бон, Альбер Симоно, Паскаль РобертсПеревод: Многоголосый, двуголосый закадровыйСубтитры: РусскиеПродолжительность: 01:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FD88A9D502567B0F9BFD7D438796965CBC3941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136375   (657604) от 04.06.2017
 
 Воздушные приключения / Those Magnificent Men in Their Flying Machines or How I Flew from London to Paris in 25 hours 11 minutes (1965) HDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657604.jpg" />
+  <img src="Z:/picture/008/save_picture_657604.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657153.jpg" />
+  <img src="Z:/picture/008/save_picture_657153.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657064.jpg" />
+  <img src="Z:/picture/008/save_picture_657064.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656545.jpg" />
+  <img src="Z:/picture/008/save_picture_656545.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656519.jpg" />
+  <img src="Z:/picture/008/save_picture_656519.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656255.jpg" />
+  <img src="Z:/picture/008/save_picture_656255.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655787.jpg" />
+  <img src="Z:/picture/008/save_picture_655787.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655653.jpg" />
+  <img src="Z:/picture/008/save_picture_655653.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655134.jpg" />
+  <img src="Z:/picture/008/save_picture_655134.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654402.jpg" />
+  <img src="Z:/picture/008/save_picture_654402.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654167.jpg" />
+  <img src="Z:/picture/005/save_picture_654167.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654125.jpg" />
+  <img src="Z:/picture/008/save_picture_654125.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653933.jpg" />
+  <img src="Z:/picture/008/save_picture_653933.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653677.jpg" />
+  <img src="Z:/picture/008/save_picture_653677.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653314.jpg" />
+  <img src="Z:/picture/008/save_picture_653314.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653154.jpg" />
+  <img src="Z:/picture/008/save_picture_653154.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653095.jpg" />
+  <img src="Z:/picture/008/save_picture_653095.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653061.jpg" />
+  <img src="Z:/picture/008/save_picture_653061.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652801.jpg" />
+  <img src="Z:/picture/008/save_picture_652801.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652318.jpg" />
+  <img src="Z:/picture/008/save_picture_652318.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651482.jpg" />
+  <img src="Z:/picture/008/save_picture_651482.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651377.jpg" />
+  <img src="Z:/picture/008/save_picture_651377.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651278.jpg" />
+  <img src="Z:/picture/008/save_picture_651278.jpg" />
 </div>
 
 
@@ -600,85 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2B6CEB00CB143149F7AEF8F4F4D2E96DD7214EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029338   (651253) от 04.07.2016
-
-Троянская война / La guerra di Troia (1961) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651253.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 лет минуло с того скорбного дня, когда Парис, герой Трои, похитил Елену Прекрасную, жену Менелая, царя Спарты. Поклявшись отомстить, цари всех греческих городов, смелые сыны этой солнцеобильной земли, осадили город Трою. За его высокими, неприступными стенами Парис и держал свою ценную добычу — Елену Прекрасную. Силы Трои были на исходе — Гектор, сын царя Приама (   Читать дальше...   )Производство: Италия, Франция, Югославия / CICC, Europa Cinematografica, Les Films Modernes (I)Жанр: Драма, Приключения, ВоенныйРежиссер: Джорджио ФеррониАктеры: Стив Ривз, Джон Дрю Бэрримор, Жюльет Майниель, Эди Вессель, Лидия Альфонси, Уорнер Бентивенья, Лучана Анджолилло, Артуро ДоминичиПеревод: Многоголосый закадровый, профессиональный (DVD Магия)Продолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460E349F8177BC0C8E620EA8CB793A7BB1EBC9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902205   (651099) от 05.06.2015
-
-Тише... тише, милая Шарлотта / Hush...Hush, Sweet Charlotte (1964) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шарлотта Холлис — немолодая затворница, которую мучают ужасные воспоминания и страшные галлюцинации. Она живёт в луизианской глуши, в старом особняке, где тридцать семь лет тому назад был убит и обезглавлен её жених, и в убийстве многие подозревали именно её. Теперь же поместье собираются снести (прокладывается новая трасса), и Шарлотта просит кузину Мириам, живущую (   Читать дальше...   )Производство: СШАЖанр: Триллер, детектив, мистикаРежиссер: Роберт ОлдричАктеры: Бетт Дэвис, Оливия Де Хэвиллэнд, Джозеф Коттен, Агнес Мурхед, Сесил Келлауэй, Виктор Буоно, Мэри Астор, Уэсли Эдди, Уильям Кэмпбелл, Брюс Дерн, Фрэнк Фергюсон, Джордж Кеннеди, Дэйв Уиллок, Мишель Пети, Джон Меджна и др.Перевод: Профессиональный многоголосый закадровый - Петербург 5 каналФормат: AVIПродолжительность: 02:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C64FD15DF4C4B0A95319E671C6D7A10F520BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345092   (650945) от 02.06.2011
-
-В джазе только девушки / Some Like It Hot (1959) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация рассказа Роберта Торена и Майкла Логана.
-Чикаго, 1929 год. Двое джазовых музыкантов, саксофонист Джо (Тони Кёртис) и контрабасист Джерри (Джек Леммон), оказываются ненужными свидетелями для банды чикагских мафиози во главе с Коломбо (Джордж Рафт) по прозвищу «Белые Гетры». Чтобы избежать гибели от рук гангстеров, они пытаются устроиться в гастролирующий (   Читать дальше...   )Производство: США / MGM, The Mirisch Corporation, Ashton ProductionsЖанр: комедия, мелодрама, приключения, музыкаРежиссер: Билли УайлдерАктеры: Мэрилин Монро, Тони Кертис, Джек Леммон, Джордж Рафт, Пэт О’Брайен, Джо Э. Браун, Нехемия Персофф, Джоан Шоули, Билли Грэй, Джордж Э. СтоунПеревод: Многоголосый профессиональный (многоголосый закадровый (с Blu-ray) / дублированный (советский, к/с «им. Максима Горького») с вставками дубляжа (ОРТ, «Первый канал») в отдельные фрагменты, вырезанные при кинопрокате в СССР - отдельно)Субтитры: нетПродолжительность: 02:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873F3504779D35A59EBB0140297A732B34CFE3AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

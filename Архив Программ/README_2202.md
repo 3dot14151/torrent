@@ -1,3 +1,291 @@
+###  Публикация: 1746573   (45036) от 31.08.2024
+
+Ocenaudio 3.14.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04BAD92053BD80AC16C6CC973007B83F48A2F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746563   (45031) от 31.08.2024
+
+PDFsam Basic 5.2.6 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45031.jpg" />
+</div>
+
+
+###  Подробнее
+
+PdfSAM - бесплатная и простая в использовании утилита, с помощью которой можно делить и объединять PDF-файлы, а также производить множество других полезных операций с PDF документами.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18849619F325991B3623C5DBC966681177006C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746568   (45030) от 31.08.2024
+
+Draw.io 24.7.8 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам доступно бесплатное программное обеспечение под названием Draw.io - это отличный инструмент для создания диаграмм и лучшей организации вашей работы. Если вы студент и вам нужно сделать диаграмму для иллюстрации презентации или задания, или вы менеджер проекта и вам нужно управлять своей командой, данный софт практически на сто процентов способен удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442A4DC41883360CB2E614274166B1680D89E165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746403   (45029) от 31.08.2024
+
+WinTools.net Premium 24.9.1 Classic / Professional / Premium RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45029.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3ADDF5830249A377922B78777D78FE08FA4D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746570   (45026) от 31.08.2024
+
+Calibre 7.17.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671DD295EB85641957CD1C84D867523A2DA93D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746564   (45025) от 31.08.2024
+
+UltraSearch Professional 4.4.1.1015 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45025.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraSearch Professional находит файлы и папки на локальных дисках NTFS и представляет результаты поиска за считанные секунды. Программа не работает с индексом, хранящимся на жестком диске, но достигает высокой скорости благодаря работе напрямую с главной файловой таблицей (MFT) разделов NTFS. Может идентифицировать даже жесткие ссылки в NTFS. Просто введите имя (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFB01597F7FF551E76575D302D69A5619681C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746415   (45024) от 31.08.2024
+
+MediaHuman YouTube to MP3 Converter 3.9.9.95 (3008) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19717C0C8F6C82732A35C13922F2D9836A663DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746590   (45019) от 31.08.2024
+
+HomeBank 5.8.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45019.jpg" />
+</div>
+
+
+###  Подробнее
+
+HomeBank - это инструмент, который был разработан с целью помочь управлять домашним бюджетом, чтобы быть в курсе ваших месячных и годовых расходов.
+Пользуясь различными, очень простыми функциями, вы можете вносить все свои доходы и расходы, которые вы можете представить в виде различных графиков.
+HomeBank можно настраивать полностью под себя, чтобы отслеживать приход (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B251982BB0A4701A11CB8933ECCD68746EE0F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746413   (45018) от 31.08.2024
+
+YT Downloader 9.10.11 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45018.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D57CF58B669877A2F5DB7D99B6BF34B8B179C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746572   (45005) от 01.09.2024
+
+JetBrains PyCharm Professional 2024.2.1 Repack by Sitego [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45005.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD40A58E7CDEB1DE7380AB5813C0E1D1C27689C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746613   (44980) от 01.09.2024
+
+Office Tab Enterprise 15.00 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Tab Enterprise новая версия небольшой, но очень полезной утилиты. Принцип работы Office Tab относительно прост, но от этого не менее эффективен – окна открытых документов отображаются в интерфейсе офисных приложений, как вкладки открытых страниц в современных браузерах. Утилита Office Tab устраняет один из немногих недостатков пакета Microsoft Office – отсутствие (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E0629E6B82B1290F00082503E5831CF673331A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746689   (44976) от 01.09.2024
 
 Jetbrains IntelliJ IDEA Ultimate 2024.2.1 Repack by Sitego [En]
@@ -6,7 +294,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44976.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ XnView MP 1.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44968.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ JetBrains PhpStorm 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44961.jpg" />
 </div>
 
 
@@ -85,7 +373,7 @@ By Click Downloader Premium 2.4.13 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44960.jpg" />
 </div>
 
 
@@ -111,7 +399,7 @@ Office Tab Enterprise 15.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44959.jpg" />
 </div>
 
 
@@ -137,7 +425,7 @@ By Click Downloader Premium 2.4.13 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44958.jpg" />
 </div>
 
 
@@ -163,7 +451,7 @@ CareUEyes 2.4.4.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44951.jpg" />
 </div>
 
 
@@ -190,7 +478,7 @@ PotPlayer 240827 (1.7.22318) + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44950.jpg" />
 </div>
 
 
@@ -216,7 +504,7 @@ Turbo Studio 24.8.12 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44945.jpg" />
 </div>
 
 
@@ -242,7 +530,7 @@ Bulk Image Downloader 6.49.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44930.jpg" />
 </div>
 
 
@@ -268,7 +556,7 @@ K-Lite Codec Pack Update 18.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44929.jpg" />
 </div>
 
 
@@ -294,7 +582,7 @@ PotPlayer 240827 (1.7.22318) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44925.jpg" />
 </div>
 
 
@@ -320,7 +608,7 @@ Advanced Renamer 4.01 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44922.jpg" />
 </div>
 
 
@@ -347,7 +635,7 @@ UltraSearch Professional 4.4.1.1015 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44917.jpg" />
 </div>
 
 
@@ -374,7 +662,7 @@ Auslogics Driver Updater 2.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44909.jpg" />
 </div>
 
 
@@ -385,294 +673,6 @@ Auslogics Driver Updater – программа представляющая с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D9C31C8F3B8F1DE24C866AFB759D738BFBB93F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746911   (44895) от 02.09.2024
-
-Adobe Photoshop Lightroom Classic 2024 13.5.1.1 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от уровня ваших пользовательских навыков владения фоторедакторами Adobe Photoshop Lightroom Classic включает все необходимые инструменты для редактирования фотографий на ПК. Lightroom Classic предоставляет простые, но мощные инструменты и расширенные функции для создания невероятных фотографий. Упорядочивайте фотографии на компьютере и делитесь ими любым (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819EC42176B869DB842AF7B2CCBDA54077B8F155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746944   (44876) от 02.09.2024
-
-IObit Smart Defrag Pro 10.0.0.399 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9602A1C3231DD9CB00838CC4E1D2A7181B4A658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746872   (44870) от 02.09.2024
-
-Bandicam 7.1.4.2458 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam — это компактная программа записи экрана для Windows, которая может записывать все, что происходит на экране ПК, в формате высококачественного видео. Также можно выполнять запись определенной части экрана или игр, использующих графические технологии DirectX/OpenGL/Vulkan.
-Bandicam поможет вам сделать запись игры с высоким коэффициентом сжатия, сохраняя при (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B75025132898B9B054948777C451D57D5F6AEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746797   (44868) от 02.09.2024
-
-Topaz Video AI 5.3.1 (x64) + All Models Portable by FC Portables [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0820AFBDC6CC24953E634F6C2E80C522DE2E285E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746805   (44866) от 02.09.2024
-
-Topaz Photo AI 3.2.0 RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B83BA9866FCA670637551B80E4296AEADFA9E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746815   (44865) от 02.09.2024
-
-Topaz Photo AI 3.2.0 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93022216A8FB9C4BC5CFD4FBB11EFFD66EA799AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746914   (44862) от 02.09.2024
-
-Media Player Classic Home Cinema (MPC-HC) 2.3.5.0 + Portable (unofficial) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F6267643EDAB9C61301EC9F542E864CFE15C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746952   (44857) от 02.09.2024
-
-DVDFab UniFab 2.0.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44857.jpg" />
-</div>
-
-
-###  Подробнее
-
-UniFab (Repack & Portable) - этот комплексный медиа-инструмент от DVDFab не только конвертирует аудио/видео, но и автоматически AI-улучшит качество видео до HDR10/Dolby Vision и звука до EAC3 5.1,/DTS 7.1, так-же может сжимать и редактировать видео с фильтрами, более 1000 видеоформатов для воспроизведения на любом устройстве без потери качества.
-Программа состоит (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95274B7DFE6AC95C2A88B1CE9B48D4C434DC406B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746867   (44852) от 02.09.2024
-
-Auslogics Driver Updater 2.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Driver Updater – программа представляющая собой очень простой, удобный и в тоже время эффективный инструмент для обновления драйверов операционной системы Windows. Она просканирует ваш компьютер и после сканирования Вашего компьютера на присутствие драйверов ко всем устройствам, она составит список устройств которые требуют установки драйверов и предложит (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195529E5E5BF2AD7F772CFDE8237EE16591E504A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746957   (44847) от 02.09.2024
-
-Google Chrome 128.0.6613.120 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C651FF07F0C25402ACD86E0D7494456B48991A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746915   (44846) от 02.09.2024
-
-Firefox Browser 130.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736F75696B4BCA4B4DF15FB2EB41C3D37AC2DED6
 ```
 
 https://mybot314.ru/tekegram_catalog/

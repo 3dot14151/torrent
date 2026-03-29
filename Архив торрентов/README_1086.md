@@ -6,7 +6,7 @@ JetBrains ReSharper Ultimate 2018.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799349.jpg" />
+  <img src="Z:/picture/008/save_picture_799349.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ AOMEI Backupper Technician Plus 6.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799345.jpg" />
+  <img src="Z:/picture/008/save_picture_799345.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DaisyDisk 4.21.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799339.jpg" />
+  <img src="Z:/picture/008/save_picture_799339.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799334.jpg" />
+  <img src="Z:/picture/008/save_picture_799334.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Notepad++ 7.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799332.jpg" />
+  <img src="Z:/picture/008/save_picture_799332.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799330.jpg" />
+  <img src="Z:/picture/008/save_picture_799330.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ ABViewer Enterprise 14.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799324.jpg" />
+  <img src="Z:/picture/008/save_picture_799324.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ DisplayFusion Pro 9.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799320.jpg" />
+  <img src="Z:/picture/008/save_picture_799320.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ iZotope - RX 9 Audio Editor Advanced 9.1.0 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799296.jpg" />
+  <img src="Z:/picture/008/save_picture_799296.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ qBittorrent 4.3.9 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799295.jpg" />
+  <img src="Z:/picture/008/save_picture_799295.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ RS Recovery Software 2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799284.jpg" />
+  <img src="Z:/picture/008/save_picture_799284.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Uninstall Tool RePack (&Portable) by D!akov 3.5.7 build 5611 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799277.jpg" />
+  <img src="Z:/picture/008/save_picture_799277.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Ori Uplift - Uplifting Only, Episode 216 (2017) [MP3|192 Kbps] <Trance, Upliftin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799258.jpg" />
+  <img src="Z:/picture/008/save_picture_799258.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Leaf 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799257.jpg" />
+  <img src="Z:/picture/008/save_picture_799257.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ iFinance 4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799253.jpg" />
+  <img src="Z:/picture/008/save_picture_799253.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Lingon X 4.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799249.jpg" />
+  <img src="Z:/picture/008/save_picture_799249.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Elian West - Uplifting Trance Collection Vol 6 (2017) [MP3|320 Kbps] <Uplifting 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799247.jpg" />
+  <img src="Z:/picture/008/save_picture_799247.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ SteerMouse 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799246.jpg" />
+  <img src="Z:/picture/008/save_picture_799246.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Submission Recordings Presents Miami 2017 (Mixed by INDI & Atragun) (2017) 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799242.jpg" />
+  <img src="Z:/picture/008/save_picture_799242.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ PhotoStack (was Instastack) 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799241.jpg" />
+  <img src="Z:/picture/008/save_picture_799241.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Downie 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799240.jpg" />
+  <img src="Z:/picture/008/save_picture_799240.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 6 - Martinsville. Гонка (20
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799235.jpg" />
+  <img src="Z:/picture/008/save_picture_799235.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ ScreenFloat - More Useful Screenshots 1.5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799233.jpg" />
+  <img src="Z:/picture/008/save_picture_799233.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Sadle - Organo-Genesis (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799224.jpg" />
+  <img src="Z:/picture/008/save_picture_799224.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ CloudTV 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799221.jpg" />
+  <img src="Z:/picture/008/save_picture_799221.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799213.jpg" />
+  <img src="Z:/picture/008/save_picture_799213.jpg" />
 </div>
 
 

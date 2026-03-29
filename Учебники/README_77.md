@@ -1,3 +1,56 @@
+###  Публикация: 1082914   (275698) от 14.12.2016
+
+В.А. Матвиенко | Основы теории цепей (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы теории линейных электрических цепей в установившемся и переходном режимах, а также основы анализа нелинейных резистивных цепей.
+Учебное  пособие  предназначено  для  студентов,  обучающихся  по  направлению  подготовки  27.03.04  –  «Управление в технических системах» и может быть использовано студентами  других  направлений,  изучающих  теорию  электрических (   Читать дальше...   )Жанр: Электротехника, радиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC0923641204379DA9584B54E573021DD5E89CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188495   (274349) от 02.12.2017
+
+В.А. Охорзин | Прикладная математика в системе Mathcad (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие состоит из трех разделов: «Численные методы», «Моделирование систем», «Оптимальное управление». Цель книги - представить сведения об основных численных алгоритмах, применяемых в моделировании и оптимизации, а также помочь в приобретении практических навыков в решении таких задач. Программы системы MATHCAD позволят студентам выполнять расчеты с помощью (   Читать дальше...   )Жанр: Математика, компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A000DF2B7A43E7A56CFEE97F3BBBB5F1ADCF7A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188750   (273096) от 03.12.2017
 
 И.Г. Семакин, А.П. Шестаков | Основы алгоритмизации и программирования (2012) [DJVU]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273096.jpg" />
+  <img src="Z:/picture/008/save_picture_273096.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272954.jpg" />
+  <img src="Z:/picture/008/save_picture_272954.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271964.jpg" />
+  <img src="Z:/picture/008/save_picture_271964.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271958.jpg" />
+  <img src="Z:/picture/008/save_picture_271958.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271728.jpg" />
+  <img src="Z:/picture/008/save_picture_271728.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271430.jpg" />
+  <img src="Z:/picture/008/save_picture_271430.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270750.jpg" />
+  <img src="Z:/picture/008/save_picture_270750.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269697.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269494.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269409.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269170.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269168.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267869.jpg" />
+  <img src="Z:/picture/008/save_picture_267869.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267667.jpg" />
+  <img src="Z:/picture/008/save_picture_267667.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266671.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_265852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_265852.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265015.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265006.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264418.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263956.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263514.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263222.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263068.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263043.jpg" />
 </div>
 
 
@@ -624,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C05D4E994FD893E628FD40DC98AD4E5A6154FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192084   (263035) от 17.12.2017
-
-В.Е. Карпов, К.А. Коньков | Основы операционных систем (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263035.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе описаны фундаментальные принципы проектирования и реализации операционных систем. Курс базируется на семестровом курсе "Введение в операционные системы", читаемом авторами в МФТИ и может рассматриваться как учебник для студентов, специализирующихся в области информатики. Курс включает теоретические главы, а также обширный иллюстрационный материал, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EA0C7E1C0DDDEE1F363758AD85D0AD4AAF95C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193799   (261920) от 22.12.2017
-
-И.А. Дьяков | Микропроцессорные системы. Архитектура микроконтроллеров семейства MCS-51 (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлена схемотехника однокристальных микроЭВМ, рассмотрены вопросы программирования на языке Асcемблер.
-Предназначено для студентов всех форм обучения направлений 230100.62 – Информатика и вычислительная техника, 010400.62 – Прикладная математика и информатика, 230104.65 – Системы автоматизированного проектирования.
-С 80-х годов 20 века в микропроцессорной технике (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D559BA62FE17758AB8532ED0B3F2108CC3F205BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

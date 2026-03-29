@@ -1,3 +1,111 @@
+###  Публикация: 1511589   (236116) от 21.11.2021
+
+Dato 3.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2021Разработчик: © 2021 Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142C5E43F62C372742715FEEE393A1D5BE5FC9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457681   (236106) от 26.03.2021
+
+ExpanDrive 7 v7.7.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
+Эта утилита позволяет монтировать удалённые хранилища информации (FTP, WebDAV, Dropbox, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2021Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED8B4FAAE3387652A43933DA6E574A67FAEFFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641896   (236102) от 24.06.2023
+
+PhotoSweeper X 4.8.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236102.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoSweeper — отличный способ поиска дубликатов изображений
+Проблема очистки компьютера остро стоит у многих пользователей. При «обычной» эксплуатации жесткий диск забивается ненужными файлами не очень быстро, но у тех, кто активно работает с определенными типами файлов, проблема с появлением дубликатов файлов весьма актуальна. Наиболее острую необходимость в приложениях (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24.06.2023Разработчик: © 2023 Overmacs TeamПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9F519CED3BE0801DD82FFE8BE1CE95709CE2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511500   (236100) от 21.11.2021
+
+Exposure Software Blow Up 3 v3.1.4.393 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
+Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2021Разработчик: © 2021 Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84FAF1F6878DA624A3C789A1BBB4BD83F54942E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511577   (236068) от 21.11.2021
 
 Bootstrap Studio 5.8.6 [En]
@@ -6,7 +114,7 @@ Bootstrap Studio 5.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236068.jpg" />
+  <img src="Z:/picture/005/save_picture_236068.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ GroupsPro 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236057.jpg" />
+  <img src="Z:/picture/005/save_picture_236057.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ Ghost Buster Pro 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236056.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Color Wheel 6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236053.jpg" />
+  <img src="Z:/picture/005/save_picture_236053.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ TextMate 2 v2.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236050.jpg" />
+  <img src="Z:/picture/005/save_picture_236050.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ AutoCrypt 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236049.jpg" />
+  <img src="Z:/picture/005/save_picture_236049.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ DirEqual 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236036.jpg" />
+  <img src="Z:/picture/005/save_picture_236036.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ QuickLens 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236031.jpg" />
+  <img src="Z:/picture/005/save_picture_236031.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Screen Wonders 1.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236020.jpg" />
+  <img src="Z:/picture/005/save_picture_236020.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ Exposure Software Snap Art 4 v4.1.3.386 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236015.jpg" />
+  <img src="Z:/picture/005/save_picture_236015.jpg" />
 </div>
 
 
@@ -273,7 +381,7 @@ Cisdem PDF Converter OCR 8.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236008.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ AnyGo 5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235996.jpg" />
+  <img src="Z:/picture/005/save_picture_235996.jpg" />
 </div>
 
 
@@ -326,7 +434,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235989.jpg" />
+  <img src="Z:/picture/005/save_picture_235989.jpg" />
 </div>
 
 
@@ -353,7 +461,7 @@ Wondershare Recoverit for Mac 12.0.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235978.jpg" />
 </div>
 
 
@@ -380,7 +488,7 @@ DEVONthink Pro 3 Office/Server 3.9.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235918.jpg" />
 </div>
 
 
@@ -406,7 +514,7 @@ The Unarchiver - Unzip RAR ZIP 3.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235898.jpg" />
+  <img src="Z:/picture/005/save_picture_235898.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ Author 6.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235841.jpg" />
 </div>
 
 
@@ -459,7 +567,7 @@ MarsEdit 4 v4.4.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235834.jpg" />
 </div>
 
 
@@ -485,7 +593,7 @@ Downcast 2.9.63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235825.jpg" />
 </div>
 
 
@@ -512,7 +620,7 @@ Filmage Screen-Screen Recorder 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235823.jpg" />
 </div>
 
 
@@ -538,7 +646,7 @@ WonderPen 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235809.jpg" />
 </div>
 
 
@@ -564,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235801.jpg" />
 </div>
 
 
@@ -575,113 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F7D4B3F0698BB5D0BDE557BAB66721AD5FDD474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512377   (235795) от 24.11.2021
-
-Bartender 4 v4.1.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3E773E527B193C792E0D9245026D6F034A288D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512285   (235783) от 24.11.2021
-
-Cookie 6.6.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
-Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2021Разработчик: © 2021 SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA829A8FE779D43C6DB1BE5CAE5DFEE0DFB3A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458171   (235776) от 28.03.2021
-
-LilyView 1.5 [Rus/En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235776.jpg" />
-</div>
-
-
-###  Подробнее
-
-LilyView — это лёгкий, поддерживающий мульти-тач жесты просмотрщик изображений, которого вам так не хватало раньше.
-При загрузке какого-нибудь графического файла LilyView отображает его по центру экрана. Примечательно, что программа самостоятельно отслеживает, есть ли другие изображения в той же папке, где была открыта текущая картинка. Если в папке имеется другая (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26.03.2021Разработчик: Software Ambience Corp.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0683C863E644EE98C007401BB8679EC5B9E5551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640909   (235775) от 20.06.2023
-
-One Switch 1.30 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235775.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Switch - это крошечное приложение, разработанное для повышения вашей эффективности благодаря быстрому доступу к нескольким важным коммутаторам. Его можно открыть в строке меню, и он позволяет переключать определенные функции системы всего парой кликов.Тип издания: macOS SoftwareРелиз состоялся: 19.06.2023Разработчик: © 2023 FireballПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F9B04753422AA197443DFC3EAB5D3B6DE55F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1648063   (231163) от 21.07.2023
+
+Graywolf - Graywolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles N' Miles To Go (03:57)
+02. We'll Bring You Down (03:07)
+03. The Winner (03:06)
+04. Hell Is Waiting (03:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5539B6D7E08900F64F2FF6F2339A3975BA0BB39D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648355   (230987) от 23.07.2023
+
+Greta Van Fleet - Starcatcher (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fate Of The Faithful [00:04:46]
+02. Waited All Your Life [00:04:26]
+03. The Falling Sky [00:03:38]
+04. Sacred The Thread [00:05:21](   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C792E055C52FB09E835889550A415A426A4C67E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648378   (230866) от 24.07.2023
 
 Ravenchild - Caves Of Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
@@ -6,7 +64,7 @@ Ravenchild - Caves Of Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230866.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Revolution Saints - Eagle Flight (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230832.jpg" />
+  <img src="Z:/picture/004/save_picture_230832.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Legba - Oscuro (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-rock, blues>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230768.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Michael Schenker Group - The Unforgiven (1998) 1999, Unofficial Release [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229846.jpg" />
+  <img src="Z:/picture/005/save_picture_229846.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Molly Hatchet - Southern Rock Masters (2008) [FLAC|Lossless|tracks + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229628.jpg" />
+  <img src="Z:/picture/004/save_picture_229628.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Tony Mitchell - Hot Endless Summer Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229428.jpg" />
+  <img src="Z:/picture/004/save_picture_229428.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sainted Sinners - Taste It (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229374.jpg" />
+  <img src="Z:/picture/004/save_picture_229374.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Khymera - Master Of Illusions (2020) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229277.jpg" />
+  <img src="Z:/picture/004/save_picture_229277.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Black Veil Brides - The Phantom Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229260.jpg" />
+  <img src="Z:/picture/004/save_picture_229260.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Jaded Heart - Heart Attack (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229070.jpg" />
+  <img src="Z:/picture/004/save_picture_229070.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Scorpions - Blackout (1982) 2018, Remastered, Reissue [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229039.jpg" />
+  <img src="Z:/picture/004/save_picture_229039.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Wildness - Resurrection (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228911.jpg" />
+  <img src="Z:/picture/004/save_picture_228911.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ PistonFist - Redline (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228741.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Raider - Runaway (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228045.jpg" />
+  <img src="Z:/picture/005/save_picture_228045.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ James Rivera's Metal Wave - New Wave Gone Metal (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227932.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Hartmann - Get Over It (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227865.jpg" />
+  <img src="Z:/picture/005/save_picture_227865.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Domain - Before The Storm (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227718.jpg" />
+  <img src="Z:/picture/005/save_picture_227718.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Red Baron Band - Last Chance (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Prog Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227708.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Voltage Arc - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227700.jpg" />
+  <img src="Z:/picture/005/save_picture_227700.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Art Nation - Inception (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227679.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ The Dead Daisies - Radiance (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226842.jpg" />
+  <img src="Z:/picture/005/save_picture_226842.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Intelligent Music Project VII - Unconditioned (2022) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226684.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Skid Row - The Gang's All Here (2022) [FLAC|Lossless|image + .cue] <Hard Rock, G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226671.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Victory - 12 albums, 13 CD (1985-2021) [FLAC | Lossless | image + .cue | tracks 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226619.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Victory - 12 albums, 13 CD (1985-2021) [FLAC | Lossless | image + .cue | tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AC43649F303275185133592B8F161205B6721EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294715   (226493) от 27.11.2021
-
-Guns N' Roses - Greatest Hits (2010) 2CD [APE|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Jungle (4:30)
-02. Sweet Child O' Mine (5:54)
-03. Paradise City (6:47)
-04. Patience (5:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF47E1A95C25DC6516B2CDB7D3DD852F78A17A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341983   (225990) от 01.12.2019
-
-Gudars Skymning - Dansa Tillbaks Till Din Grav (2008) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giftas 1 & 2 (2:16)
-02. Allting Flyter (2:53)
-03. Ljusare Tider (4:41)
-04. Klippan (5:51)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Stoner RockПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8C0FD8597865332D539652A0AEB800F21C9065
 ```
 
 https://mybot314.ru/tekegram_catalog/

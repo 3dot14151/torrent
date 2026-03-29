@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570627.jpg" />
+  <img src="Z:/picture/008/save_picture_570627.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569789.jpg" />
+  <img src="Z:/picture/008/save_picture_569789.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Борьба за выживание / BBC: The Trials of Life (1990) 4 х 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569729.jpg" />
+  <img src="Z:/picture/008/save_picture_569729.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Древний Египет: Великое открытие / BBC: Egypt (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_569555.jpg" />
+  <img src="Z:/picture/005/save_picture_569555.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Планеты / BBC: Planets (1999)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567815.jpg" />
+  <img src="Z:/picture/005/save_picture_567815.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC: Мир природы. Маршруты песочника / Natural World.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565756.jpg" />
+  <img src="Z:/picture/008/save_picture_565756.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Моцарт в Лондоне / Mozar in London (Lucy Worsley: Mozart's Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565404.jpg" />
+  <img src="Z:/picture/008/save_picture_565404.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563637.jpg" />
+  <img src="Z:/picture/008/save_picture_563637.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Вся правда о тренировках / The Truth About Exercise (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561917.jpg" />
+  <img src="Z:/picture/008/save_picture_561917.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: Живой мир. Мадагаскар, лемуры и шпионы / Mad
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561725.jpg" />
+  <img src="Z:/picture/008/save_picture_561725.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561283.jpg" />
+  <img src="Z:/picture/008/save_picture_561283.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Мир природы. Из жизни крабов / The Natural World. Cl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560253.jpg" />
+  <img src="Z:/picture/008/save_picture_560253.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC: Космическая Одиссея. Путешествие к други
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558531.jpg" />
+  <img src="Z:/picture/005/save_picture_558531.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC: Как устроена природа / BBC. How Nature Works (2012) BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558517.jpg" />
+  <img src="Z:/picture/008/save_picture_558517.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Чудеса животного мира / Wonder of Animals (2014) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558499.jpg" />
+  <img src="Z:/picture/008/save_picture_558499.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BBC. Длинные тени Первой мировой войны / The Long S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557471.jpg" />
+  <img src="Z:/picture/008/save_picture_557471.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC. Может ли питание насекомыми спасти мир? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557283.jpg" />
+  <img src="Z:/picture/008/save_picture_557283.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557062.jpg" />
+  <img src="Z:/picture/008/save_picture_557062.jpg" />
 </div>
 
 
@@ -468,13 +468,13 @@ https://mybot314.ru/tekegram_catalog/
 ---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305439   (556952) от 30.05.2019
 
-﻿BBC: Размер имеет значение / Size Matters (2017) DVB (серии 1-2 из 2)
+BBC: Размер имеет значение / Size Matters (2017) DVB (серии 1-2 из 2)
 
 >>Зарубежные TV-бренды
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556952.jpg" />
+  <img src="Z:/picture/008/save_picture_556952.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BBC: Атом / BBC: Atom (2007) HDTVRip (Сезон 1, эпизод 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556546.jpg" />
+  <img src="Z:/picture/008/save_picture_556546.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554705.jpg" />
+  <img src="Z:/picture/008/save_picture_554705.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553914.jpg" />
+  <img src="Z:/picture/008/save_picture_553914.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ BBC: Horizon. Океаны Солнечной системы / Oceans of the Sol
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551294.jpg" />
+  <img src="Z:/picture/008/save_picture_551294.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BBC.Империя царей: Россия при Романовых с Люс�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550744.jpg" />
+  <img src="Z:/picture/008/save_picture_550744.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550288.jpg" />
+  <img src="Z:/picture/008/save_picture_550288.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549890.jpg" />
+  <img src="Z:/picture/008/save_picture_549890.jpg" />
 </div>
 
 

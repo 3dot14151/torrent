@@ -6,7 +6,7 @@ LibreOffice 4.4.2 Stable Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807085.jpg" />
+  <img src="Z:/picture/008/save_picture_807085.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Novicorp WinToFlash Professional 1.4.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807036.jpg" />
+  <img src="Z:/picture/008/save_picture_807036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807017.jpg" />
+  <img src="Z:/picture/008/save_picture_807017.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Care 365 Pro 4.58.436 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806964.jpg" />
+  <img src="Z:/picture/008/save_picture_806964.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Novicorp WinToFlash Professional 1.6.0000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806954.jpg" />
+  <img src="Z:/picture/008/save_picture_806954.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SAM CoDeC & DeCoDeR Pack 2015 5.81 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806940.jpg" />
+  <img src="Z:/picture/008/save_picture_806940.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Baidu Antivirus 2015 5.4.3.118812 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806927.jpg" />
+  <img src="Z:/picture/008/save_picture_806927.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Zero Assumption Recovery (ZAR) v9 build 32 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806860.jpg" />
+  <img src="Z:/picture/008/save_picture_806860.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ DP Animation Maker 3.3.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806838.jpg" />
+  <img src="Z:/picture/008/save_picture_806838.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.90.4200 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806837.jpg" />
+  <img src="Z:/picture/008/save_picture_806837.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wise Care 365 Pro 4.58.436 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806833.jpg" />
+  <img src="Z:/picture/008/save_picture_806833.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.90.4200 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806828.jpg" />
+  <img src="Z:/picture/008/save_picture_806828.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AdwCleaner 6.045 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806827.jpg" />
+  <img src="Z:/picture/008/save_picture_806827.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WindowsPlayer 3.5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806825.jpg" />
+  <img src="Z:/picture/008/save_picture_806825.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Avast Internet Security 17.3.2290 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806823.jpg" />
+  <img src="Z:/picture/008/save_picture_806823.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skype 7.3.0.101 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806799.jpg" />
+  <img src="Z:/picture/008/save_picture_806799.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Free Download Manager 3.9.5 build 1530 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806791.jpg" />
+  <img src="Z:/picture/008/save_picture_806791.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806787.jpg" />
+  <img src="Z:/picture/008/save_picture_806787.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.90.4200 Final + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806735.jpg" />
+  <img src="Z:/picture/008/save_picture_806735.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Avast Free Antivirus 17.3.2290 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806734.jpg" />
+  <img src="Z:/picture/008/save_picture_806734.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Auslogics Driver Updater 1.5.0.0 DC 02.04.2015 RePack (& Portable) by D!akov [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806687.jpg" />
+  <img src="Z:/picture/008/save_picture_806687.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Kaspersky Rescue Disk 10.0.20.6 Build 07.05.2010 + USB Tools [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806660.jpg" />
+  <img src="Z:/picture/008/save_picture_806660.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Futuremark 3DMark 2.3.3663 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806653.jpg" />
+  <img src="Z:/picture/008/save_picture_806653.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ WinNTSetup 3.8.7.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806644.jpg" />
+  <img src="Z:/picture/008/save_picture_806644.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Vit Registry Fix Pro 12.6.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806606.jpg" />
+  <img src="Z:/picture/008/save_picture_806606.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ FileZilla 3.56.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806429.jpg" />
+  <img src="Z:/picture/008/save_picture_806429.jpg" />
 </div>
 
 

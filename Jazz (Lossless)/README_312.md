@@ -1,3 +1,119 @@
+###  Публикация: 1704146   (114477) от 03.03.2024
+
+Stephanie Haynes With The Cedar Walton Trio - Here's That Rainy Day (1988) Trend [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen to You [3:06]
+02. Darn That Dream [4:15]
+03. Here's That Rainy Day [5:56]
+04. Deep in a Dream [4:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDA24FCD02D589B5FED740C7102B7632618B64A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704141   (114465) от 03.03.2024
+
+Wynton Marsalis - My Funny Valentine: Live At Bubba's (1980) 1998, Pulse [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Eyes [9:15]
+02. Bitter Dose [10:45]
+03. Jodi [6:24]
+04. My Funny Valentine [9:11](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D1EC9AC3F7723E93E7DA1F98896DE22DBE20C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704149   (114460) от 03.03.2024
+
+Ellis Marsalis - An Open Letter To Thelonious (2008) ELM Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crepuscule with Nellie [4:22]
+02. Jackie-ing [7:19]
+03. Epistrophy [6:19]
+04. Monk's Mood [3:33](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83867E246E9FFA6977B28283306868B26D0658C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704153   (114456) от 03.03.2024
+
+Branford Marsalis - Trio Jeepy (1989) CBS [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Housed from Edward [9:29]
+02. The Nearness of You [10:34]
+03. Three Little Words [5:16]
+04. Makin' Whoopee [0:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAD686945DCB1588351502E4A6A1F1C4A12B80F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704489   (114354) от 04.03.2024
 
 VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -6,7 +122,7 @@ VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114354.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114333.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114332.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114324.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114308.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114300.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Wynton Marsalis - Wynton Marsalis (1982) CBS [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114290.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Charles Williams - Trees And Grass And Things (1971) 2017, Solid Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114288.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Cedar Walton - Composer (1996) Astor Place [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114286.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Cedar Walton Trio - Plays Billy Strayhorn (1974, 1988) 2009, Jazz Ball Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114109.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dave Brubeck - Trio Brubeck (1993) MusicMasters Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114106.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Stephane Grappelli Trio - I Got The World On A String (1996) 1998, West Wind [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114103.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Lionel Hampton - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114101.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Wynton Marsalis - Hot House Flowers (1984) CBS [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114100.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ V.A. - Chill Out Cafe Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114028.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Modern Urban Jazz Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113988.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Smooth Jazz Essence (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113981.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Mark Maxwell, Dr. SaxLove - Lofi Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113980.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113966.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Classy Hotel - Jazz & Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113965.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Dario Margeli - Smooth Jazz Electric Guitar (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113962.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113961.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E6ECDB8BFB33C349CC954D24406650EF925BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705065   (113948) от 07.03.2024
-
-Cedar Walton Trio - Ironclad (1989) 1995, Monarch Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Band Intro [0:16]
-02. Bremond's Blues [4:49]
-03. My Old Flame [9:15]
-04. N.P.S. [8:33](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66C07256E3CFB6D3E22F2E86F44EF452EADC6EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705077   (113947) от 07.03.2024
-
-Lionel Hampton - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chord-A-Re-Bop [2:48]
-02. Limehouse Blues [2:57]
-03. Cobb's Idea [3:08]
-04. Air Mail Special - Part 1 [3:17](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EDA2BFA2E9D5F33237CC62ECBB9ACA91DE2EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705073   (113946) от 07.03.2024
-
-Barry Harris - Live at Maybeck Recital Hall, Vol. 12 (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could Happen to You [8:37]
-02. All God's Chillun Got Rhythm [4:38]
-03. I'll Keep Loving You [6:36]
-04. She [4:07](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73AE882CA8D710FD277DBA786F99517FC025A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705075   (113945) от 07.03.2024
-
-Branford Marsalis Quartet - Crazy People Music (1990) CBS [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spartacus [8:37]
-02. The Dark Knight [12:50]
-03. Wolverine [10:40]
-04. Mr. Steepee [6:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B263C7E1BA30ED371238296693502A25D588F4F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

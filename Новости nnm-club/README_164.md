@@ -1,3 +1,160 @@
+###  Публикация: 934063   (479091) от 19.09.2015
+
+Пёс (2015) SATRip (сезон 1, серии 1-12 из 20) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс – алкоголик. Когда-то лучший сыщик в городе, Макс потерял все – работу, друзей, жену. У него остался единственный друг – Пес. После серии погонь, драк и перестрелок, Пес и Макс раскрыли тайну загадочного убийства. Макс с Псом снова стали детективами. Теперь каждый день начинается с того, что Пес и Макс пытаются выяснить, кто совершил преступление... И выяснить (   Читать дальше...   )Производство: Украина, PRO-TVЖанр: детективРежиссер: Николай Каптан, Игорь ЗабараАктеры: Андрей Саминин, Никита Панфилов, Михаил Жонин, Ольга Олексий, Денис Роднянский, Светлана Зельбет, Ольга Морозова, Тарас Мельничук и др.Продолжительность: ~ 00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DBABC81826BD97655267DF06CA693D0523D76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938742   (479087) от 19.09.2015
+
+WPI x86-x64 by OVGorskiy® 09.2015 1DVD [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет программ с "тихой" установкой, помещенных в оболочку установщика программ Windows Post-Install Wizard (WPI), программы разделены на категории и весь процесс установки и регистрации проходит полностью в автоматическом режиме. Вам стоит только выбрать необходимые программы и запустить установку. Все программы в сборке, имеют краткое описание. Большинство (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91684587333CAFABE65ED1D1CBB37B3705550EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054826   (478609) от 26.09.2016
+
+Capture One Pro 9.3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 сентября 2016Разработчик: Phase OneПоддерживаемая ОС: OS X 10.10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса программы зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F930D87538AE20F8464988AACF3FBA4750859E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056780   (478591) от 26.09.2016
+
+Syndicate (2012) [Ru/En] (1.0.0.1) Repack R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Syndicate - возвращение культовой классической игры 1993 года. События этого уникального шпионского боевика разворачиваются в недалеком будущем, где понятия "бизнес" и "война" стали неразделимы. 2069 год. Политики больше не имеют власти: мир разделен на зоны влияния мега-корпорациями: Синдикатами.Тип издания: RepackРазработчик: Starbreeze StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3DCF1556A6123B86C4FBCE80131EA4AA5EED07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383942   (478037) от 08.09.2011
+
+Call of Juarez: The Cartel / Call of Juarez: Картель [Multi9/+] (RePack) 2011 | R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все фанаты Дикого Запада, ликуйте! Выходит в свет новая игра "Call of Juarez: The Cartel", которая продолжает традиции серии. Мы будем играть все тем же ковбоем, но в современных условиях. Действие игры происходит в альтернативной реальности. Именно это позволило разработчикам перенести место действия в современный мир, сохранив колорит игры и характерные черты серии. Кроме старых знакомых нам повстречаются новые герои, которые выполняют свою миссию в новом игровом мире. Что касается графики, то разработчики не скрывают своего восхищения - новая игра нацелена на современные компьютеры с новыми графическими возможностями. Вам предстоит вновь окунуться в хитросплетение событий и тайных интриг, выиграть множество дуэлей и спасти прекрасную леди, которой давно отдали свое сердце. Одним словом, жизнь у современного ковбоя вовсе не легче, чем у предшественников, но намного разнообразнее!Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Итальянский, Французский, Немецкий, Испанский, Польский, Чешский, Голландский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58346D7880A7C610883D75A92A8EAC77958FC1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546844   (477810) от 13.09.2012
+
+Прометей / Prometheus (2012) [H.264] DVDRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477810.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках сакрального знания группа ученых отправляется в самые темные и неизведанные чертоги вселенной. Именно там, в отдаленных мирах, находясь на пределе своих умственных и физических возможностей, им предстоит вступить в безжалостную схватку за будущее всего человечества…Жанр: Фантастика, Триллер, ПриключенияРежиссер: Ридли СкоттПродюсер: Тони Скотт, Дэвид Гайлер, Уолтер ХиллАктеры: Нуми Рапас, Майкл Фассбендер, Шарлиз Терон, Идрис Эльба, Гай Пирс, Логан Маршалл-Грин, Шон Харрис, Рейф Сполл, Иман Эллиотт, Бенедикт Вонг ...Перевод: ДублированныйПродолжительность: 02:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45BBD20E40100357C5BBCCEA758E94722C1462B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522842   (477806) от 13.09.2012
 
 Dear Esther / Дорогая Эстер [Ru/En] (RePack/1.0u17) 2012 l R.G. Механики
@@ -6,7 +163,7 @@ Dear Esther / Дорогая Эстер [Ru/En] (RePack/1.0u17) 2012 l R.G. Ме
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477806.jpg" />
+  <img src="Z:/picture/008/save_picture_477806.jpg" />
 </div>
 
 
@@ -36,7 +193,7 @@ Prototype 2 [Ru/En] (RePack) 2012 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477772.jpg" />
+  <img src="Z:/picture/008/save_picture_477772.jpg" />
 </div>
 
 
@@ -63,7 +220,7 @@ MAGIX Vegas Pro 16.0 Build 261 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477635.jpg" />
+  <img src="Z:/picture/008/save_picture_477635.jpg" />
 </div>
 
 
@@ -89,7 +246,7 @@ Adguard Premium 6.3.1399.4073 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477634.jpg" />
+  <img src="Z:/picture/008/save_picture_477634.jpg" />
 </div>
 
 
@@ -115,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477104.jpg" />
+  <img src="Z:/picture/008/save_picture_477104.jpg" />
 </div>
 
 
@@ -141,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477102.jpg" />
+  <img src="Z:/picture/008/save_picture_477102.jpg" />
 </div>
 
 
@@ -167,7 +324,7 @@ Win 7 PE x86 compact by Xemom1 (18.09.15) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476965.jpg" />
+  <img src="Z:/picture/008/save_picture_476965.jpg" />
 </div>
 
 
@@ -193,7 +350,7 @@ Katawa Shoujo / Disability Girls/ Калечные девы (2012) Ru,En,Fr,Es,J
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476945.jpg" />
+  <img src="Z:/picture/008/save_picture_476945.jpg" />
 </div>
 
 
@@ -219,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476667.jpg" />
+  <img src="Z:/picture/008/save_picture_476667.jpg" />
 </div>
 
 
@@ -245,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_476541.jpg" />
+  <img src="Z:/picture/005/save_picture_476541.jpg" />
 </div>
 
 
@@ -271,7 +428,7 @@ Special [K] Utility for Sierra 1.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476508.jpg" />
+  <img src="Z:/picture/008/save_picture_476508.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ Acronis True Image 20.0.5554 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476493.jpg" />
+  <img src="Z:/picture/008/save_picture_476493.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0.3/upd3/dlc) Repack =nem
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476489.jpg" />
+  <img src="Z:/picture/008/save_picture_476489.jpg" />
 </div>
 
 
@@ -349,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475967.jpg" />
+  <img src="Z:/picture/008/save_picture_475967.jpg" />
 </div>
 
 
@@ -375,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475874.jpg" />
+  <img src="Z:/picture/008/save_picture_475874.jpg" />
 </div>
 
 
@@ -401,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475711.jpg" />
+  <img src="Z:/picture/008/save_picture_475711.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_475514.jpg" />
+  <img src="Z:/picture/005/save_picture_475514.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ Windows 10 HSL/Pro 1803 x64 by kuloymin v14.1 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475431.jpg" />
+  <img src="Z:/picture/008/save_picture_475431.jpg" />
 </div>
 
 
@@ -482,7 +639,7 @@ Mass Effect 2 (2010) [Ru/En] (1.2/dlc) Repack xatab [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475421.jpg" />
+  <img src="Z:/picture/008/save_picture_475421.jpg" />
 </div>
 
 
@@ -508,7 +665,7 @@ Trend Micro Titanium Maximum Security 2013 v6.0 rus
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475406.jpg" />
+  <img src="Z:/picture/008/save_picture_475406.jpg" />
 </div>
 
 
@@ -519,170 +676,6 @@ Trend Micro Titanium Maximum Security — комплексное, простое
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160163   (475393) от 24.08.2017
-
-Kaspersky Free Antivirus 17.0.0.611.0.1532.0 (d) Repack by LcHNextGen [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антивирус Kaspersky Free (ранее Kaspersky 365) - бесплатный антивирус и веб-защита в режиме реального времени с облачными технологиями.
-Решение включает все необходимые компоненты для обеспечения базовой защиты вашего компьютера, важных данных и онлайн-активности в Интернете от самых современных угроз.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20C140604A79D737C502A9533CF93B0BCBFDEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823551   (474842) от 20.09.2014
-
-Алиса - Цирк (2014) [MP3|320 кб/с]<Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цирк
-02. Кайф и истерика
-03. Ток шок рок
-04. Такие дела, хозяин(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640BDA9C689B2B4EEDE42889DD2A16821862B286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319787   (474785) от 16.08.2019
-
-Код Красный / Red Joan (2018) BDRemux [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальная история русской шпионки, которая предотвратила Третью мировую войну. Британская разведка долгие годы гонялась за ней, ее имя стало легендой, но о ее подвиге мы узнали только сейчас, когда был снят гриф секретности.Производство: Великобритания / Trademark FilmsЖанр: Драма, мелодрама, биографияРежиссер: Тревор НаннАктеры: Джуди Денч, Софи Куксон, Стивен Кэмпбелл Мур, Том Хьюз, Фредди Гаминара, Лоуренс Спэллман, Тереза Србова, Бен Майлз, Робин Соанс, Кевин ФуллерПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF5D381E6F8B7904482FE135E644EA62510FE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319929   (474783) от 16.08.2019
-
-Microsoft Office for Mac Standard 2019 16.28.0 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote сочетающие в себе знакомый интерфейс Office и уникальные возможности Mac, которые успели вам полюбиться.Тип издания: macOS SoftwareРелиз состоялся: 13 августа 2019Разработчик: MicrosoftПоддерживаемая ОС: macOS 10.12 и новееЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E05AEEC4DCF79E1190AC8FBAB85963115E05F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939546   (474726) от 21.09.2015
-
-Microsoft Office 2016 Professional Plus Install v3.0 by Ratiborus [Multi/Ru] (онлайн-установка)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7DFBE6B7BE22156EEFCEB66FF9439991B4E6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939148   (474721) от 21.09.2015
-
-Video Repair Utility 1.9.0.0 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная утилита может восстанавливать и исправлять поврежденные видео файлы (MOV, MP4, 3GP, M4V), которые не проигрываются Вашим медиаплеером.
-
-В данном случае восстановление подразумевает, что неповрежденные части видео/аудио могут быть восстановлены.
-(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52201EEDCB07F3EA209CBC9410ECC777DE54AF9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

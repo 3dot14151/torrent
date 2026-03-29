@@ -1,3 +1,107 @@
+###  Публикация: 1824541   (128855) от 15.10.2025
+
+Снова ярость / Furioza Again / Inside Furioza (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина-полицейский угрожает бывшему парню тюремным сроком, если тот не будет шпионить за бандой хулиганов.Производство: Польша / Netlix FilmЖанр: драмаРежиссер: Циприан Т. ОленцкиАктеры: Матеуш Даменцки, Дэвид МастерсонПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские (18+), Английские (forced, full, SDH)Продолжительность: 02:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F0D3A9E144C455772C9DFBED2E3DEC8E7F2CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684353   (127912) от 15.12.2023
+
+Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p] [EN / RU, UKR, EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Морган очень разноплановый: преданный муж, любящий отец, успешный продавец автомобилей. А еще он бывший наемный убийца. Когда его настигает прошлое, он вынужден взять ничего не подозревающую семью в уникальное путешествие.Производство: США / Apple Original Films, Skydance MediaЖанр: боевик, комедияРежиссер: Саймон Селлан ДжонсАктеры: Мишель Монахэн, Марк Уолберг, Мэгги Кью, Киран Хайндс, Зои Маргарет Коллетти, Джонатан Койн, Фелиция Пирсон, Саид Тагмауи, Аниса Ниэлл Джонсон, Майлз ДолеакПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Украинские, Английские (Forced, Full, SDH), multisubsПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A83802AA81A0809081A0CD28CE6EBD8F6039B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684389   (127849) от 15.12.2023
+
+Крупный улов / Finestkind (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата оказываются втянуты в сделку с преступным синдикатом Бостона.Производство: США / 101 Studios, Bosque Ranch ProductionsЖанр: триллер, драма, криминалРежиссер: Брайан ХелгелендАктеры: Бен Фостер, Тоби Уоллес, Дженна Ортега, Томми Ли Джонс, Тим Дейли, Клейн Кроуфорд, Лолита Давидович, Исмаэль Крус Кордова, Аарон Стэнфорд, Меган ЛитерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 02:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FF1CAC1F145596BC634F62563C921D35991AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685678   (127128) от 19.12.2023
+
+Немая ярость / Silent Night (2023) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127128.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе бандитской разборки случайная пуля лишает счастливую семью маленького сына, а его отца — голоса. Спустя год усиленной подготовки папа мальчика становится кошмаром для врагов в любой перестрелке, погоне или рукопашной. В годовщину трагедии он намерен разыграть безостановочную симфонию возмездия всем, кто встанет у него на пути. Теперь его действия скажут всё (   Читать дальше...   )Производство: США, Мексика / A Better Tomorrow Films, Capstone Studios, Corazón FilmsЖанр: боевикРежиссер: Джон ВуАктеры: Юэль Киннаман, Кид Кади, Арольд Торрес, Каталина Сандино Морено, Ёко Хамамура, Valeria Santaella, Винни О’Брайэн, Acoyani Chacon, Alejandro Monteros, Анджелес ВуПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6AEAA0DC5234F1583B9E0AC001135882D27ACEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686052   (126791) от 21.12.2023
 
 Маэстро / Maestro (2023) WEB-DLRip [H.264/1080p] [EN / RU, UKR, EN and other Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126791.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126777.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126668.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126666.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126527.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124393.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124254.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123982.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123950.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123335.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123327.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122569.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122428.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122213.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122183.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122061.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121902.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121339.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120876.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120804.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120685.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120184.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:393D6529BBA1FB73464E203EADACD8C2A5058DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695739   (120154) от 30.01.2024
-
-Опавшие листья / Kuolleet lehdet / Fallen Leaves (2023) BDRip [H.265/1080p] [10-bit] [FIN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120154.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух одиноких людей, которые случайно встречаются в ночном Хельсинки. Они пытаются найти первую и последнюю любовь в своей жизни.Производство: Финляндия, Германия / Arte G.E.I.E., BufoЖанр: драма, комедияРежиссер: Аки КаурисмякиАктеры: Альма Пёвсти, Юсси Ватанен, Алина Томникова, Мартти Суосало, Янне Хюютияйнен, Сакари Куосманен, Мария Хайсканен, Нуппу Койву, Шерван Хаджи, Паула ОйноненПеревод: ОтсутствуетЯзык озвучки: ФинскийСубтитры: русские, английскиеПродолжительность: 01:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E60A974093F087ED4D25F8654EE23ECAE20A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696580   (119498) от 03.02.2024
-
-Радикальный / Radical (2023) WEB-DL [H.264/1080p] [SPA / RU, EN, SPA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119498.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приграничном мексиканском городе, посреди коррупции и разрухи, учитель применяет радикально новый метод раскрытия потенциала своих учеников.Производство: Мексика / 3Pas Studios, EPIC Magazine, Pantelion FilmsЖанр: драмаРежиссер: Кристофер ЗаллаАктеры: Эухенио Дербес, Дэниэл Хаддад, Jennifer Trejo, Mia Fernanda Solis, Danilo Guardiola, Хильберто Барраса, Victor Estrada, Manuel Márquez, Christian González, Xochiquetzal MartínezПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: русские, английские, испанскиеПродолжительность: 02:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76274F3D52BFDA59BE51014045252CF3B035B3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697553   (118873) от 07.02.2024
-
-Международная космическая станция / I.S.S. (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда между США и Россией начинается война, обе стороны связываются со своими космонавтами на борту МКС и ставят им цель взять станцию под контроль любыми средствами.Производство: США / Liddell Entertainment, Fantasy Creations FXЖанр: триллер, драмаРежиссер: Габриэла КаупертуэйтАктеры: Ариана Дебоуз, Крис Мессина, Джон Галлахер мл., Мария Машкова, Коста Ронин, Пилу АсбекПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (forced, SDH)Продолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9430212B630EA3E79F9A19E416210E46E1D85BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697558   (118847) от 07.02.2024
-
-Американское чтиво / American Fiction (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известного писателя и профессора литературы Телониуса «Монка» Эллисона критикуют за то, что его работы «недостаточно чёрные». В попытке завоевать внимание аудитории он пишет анонимный роман, вобравший в себя все стереотипы о темнокожем населении США. Книга моментально становится сенсацией, и теперь Монку придётся лично мириться с масштабными последствиями.Производство: США / 3 Arts Entertainment, Media Rights Capital, Metro-Goldwyn-Mayer (MGM)Жанр: драма, комедияРежиссер: Корд ДжефферсонАктеры: Джеффри Райт, Трэйси Эллис Росс, Исса Рэй, Стерлинг К. Браун, Джон Ортис, Эрика Александр, Лесли Аггамс, Адам Броди, Кит Дэвид, Окьерете ОнаодованПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072A0E98C8BB9D39EE2759CA26E824EA6F913B20
 ```
 
 https://mybot314.ru/tekegram_catalog/

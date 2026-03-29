@@ -1,3 +1,148 @@
+###  Публикация: 1642023   (210578) от 25.06.2023
+
+VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Ellison - Loaded Gun Tonight
+02. Scott Ellison - Shakin With the Blues
+03. Paul Mark and the Van Dorens - Don't Get Me Started
+04. Scott Ellison - These Blues Got a Hold on Me(   Читать дальше...   )Жанр: Rock. Ballads, BluesПродолжительность: 02:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA1DE759C21B3414C3E3EDF6E6D39D52BF993C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641020   (210564) от 25.06.2023
+
+MyTones - Ultimate Queen Tones (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Pressure (Tribute in the Style of Queen) [00:29]
+02. Crazy Little Thing Called Love (Tribute in the Style of Queen) [00:29]
+03. We Will Rock You (Tribute in the Style of Queen) [00:29]
+04. Somebody to Love (Tribute in the Style of Queen) [00:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C0E05E5C197550E5FB5E74708921E8DBD6D787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641841   (210443) от 26.06.2023
+
+VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaun Murphy - It Won't Stop Raining
+02. Deb Ryder - Bad Bad Dream
+03. Blue Touch - Trouble
+04. Connie Lush - Crying Won't Help You(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F03DB2E33644A9B4FA77E2E1A3CDEDE334B4D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604562   (210056) от 14.01.2023
+
+VA - 90s Ballads (2023) [MP3|320 Kbps] <Alternative, Ballad, Soft Rock, Vocal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_210056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Ordinary World
+02. Seal - Kiss from a Rose
+03. a-ha - Crying in the Rain
+04. En Vogue - Giving Him Something He Can Feel(   Читать дальше...   )Жанр: Alternative, Ballad, Soft Rock, VocalПродолжительность: 01:56:04 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FBAD48B502460965D2D98D380F800C62B1DCEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603972   (209794) от 17.01.2023
+
+VA - We Will Rock You (2022) [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209794.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lou Reed - I'm Waiting For The Man [04:44]
+002. The Beatles - Happiness Is A Warm Gun [02:44]
+003. Led Zeppelin - Immigrant Song [02:26]
+004. Queen - We Will Rock You [02:02](   Читать дальше...   )Жанр: Classic RockПродолжительность: 08:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AA515E374E1BB33AC1441D453AEDA8CAF38955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645907   (209168) от 12.07.2023
 
 Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <Rock>
@@ -6,7 +151,7 @@ Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209168.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Dire Straits & Mark Knopfler - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208282.jpg" />
+  <img src="Z:/picture/005/save_picture_208282.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207225.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Русский Рок 3 (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207117.jpg" />
+  <img src="Z:/picture/005/save_picture_207117.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Nickelback - Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206251.jpg" />
+  <img src="Z:/picture/005/save_picture_206251.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Сектор газа. Народный трибьют 1 часть (2022) 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204846.jpg" />
+  <img src="Z:/picture/004/save_picture_204846.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Compilation Part 29 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204555.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Compilation Part 28 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204552.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Compilation Female Assorted part 30 (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204551.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204487.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204393.jpg" />
+  <img src="Z:/picture/004/save_picture_204393.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204243.jpg" />
+  <img src="Z:/picture/004/save_picture_204243.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ VA - Compilation  Blues Rock Part 31 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203472.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ VA - Rock Hits 150 v2 (2023) [MP3|320 Kbps] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202500.jpg" />
+  <img src="Z:/picture/004/save_picture_202500.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Ronnie James Dio - Voice Of Rock - Compilation (1960-2011) [MP3|320 Kbps] <Heavy
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202382.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ VA - Rock Covers (2023) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199869.jpg" />
+  <img src="Z:/picture/005/save_picture_199869.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ VA - Rock Ballads (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199526.jpg" />
+  <img src="Z:/picture/005/save_picture_199526.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ VA - Rock & Blues part 18 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198570.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ VA - Rock & Blues part 19 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198431.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ VA - Rock & Blues part 20 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198427.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ VA - Rock & Ballads Part 21 Compilation (2023) [MP3|320 Kbps] <Rock Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198204.jpg" />
 </div>
 
 
@@ -597,151 +742,6 @@ VA - Rock & Ballads Part 21 Compilation (2023) [MP3|320 Kbps] <Rock Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64AFE0AE5F8466EC8530E398B8D930BC22C7125B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634248   (198192) от 21.05.2023
-
-Helloween - Collection (2023) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Helloween люблю с юности. Почти все альбомы сильные. Крутой вокал. До появления интернета, я понятия не имел, что начиная с 94 года, музыканты сменили вокалиста. Настолько голоса похожи, что если не знаешь, то и не поймёшь, что это другой поёт. К концу 90х, группа не поддалась на веяние ядовитой моды и не ушла в сторону скучной, примитивной альтернативы. Команда (   Читать дальше...   )001. Initiation
-002. I'm Alive
-003. A Little Time
-004. Twilight Of The Gods(   Читать дальше...   )Жанр: MetalПродолжительность: 14:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6050E387A42540695A93DE83E8B880FF98A65284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647115   (195643) от 17.07.2023
-
-VA - Modern Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Verve - Bitter Sweet Symphony (6:00)
-02. The 1975 - Somebody Else (5:47)
-03. Cage The Elephant - Cigarette Daydreams (5:27)
-04. The 1975 - About You (5:26)(   Читать дальше...   )Жанр: RockПродолжительность: 04:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7430C186182E820B7AA5266F0653166054671738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651408   (194719) от 06.08.2023
-
-ДДТ (DDT) - This Is ДДТ (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это всё (7:54)
-02. Метель (7:32)
-03. Пасха (6:02)
-04. Расстреляли рассветами (5:53)(   Читать дальше...   )Жанр: RockПродолжительность: 03:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C184CF5D2E8F7E3B50668239090D1CCDB4EB36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414928   (193465) от 30.08.2023
-
-Deep Purple - Machine Head (1972) Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Hard Rock>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Highway Star (06:07)
-02-Maybe I'm A Leo (04:53)
-03-Pictures Of Home (05:05)
-04-Never Before (04:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755B919261509F40BFF06B108B6159983156CEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586951   (193228) от 29.10.2022
-
-VA - Rock & Blues Part 9 (2022) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragan Krle Jovanovic - Under My Bed
-02. Sonny Black and the Dukes - Blues Walkin' By My Side
-03. Jovan Lole Savic -  I Have This Life
-04. Daniel Castro - I'll Play the Blues for You(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AED8C347EF59387E7C16B8218241C88F6283411
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,234 @@
+###  Публикация: 1794133   (67374) от 27.04.2025
+
+William Wallace Band - Worn Thin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walter Trout - Blues Is Still Alive (5:29)
+02.  Wild Man (3:40)
+03.  Don't Play With Fire (3:04)
+04.  Gypsy Woman (3:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5246B85CD77E5F15D513F39D0EA473D6162EA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794131   (67373) от 27.04.2025
+
+Will Wilde - Blues Is Still Alive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walter Trout - Blues Is Still Alive (5:29)
+02.  Wild Man (3:40)
+03.  Don't Play With Fire (3:04)
+04.  Gypsy Woman (3:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCE3ADB4B5439F93C5C4037C1A28DF450E10BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794040   (67369) от 27.04.2025
+
+Sean Chambers - LIVE FROM DARYL'S HOUSE CLUB (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cobra (Live) (3:36)
+02.  I Need Your Loving (Live) (3:39)
+03.  Red Hot Mama (Live) (3:41)
+04.  Louise (Live) (5:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B9F62C9527C7983A8467B2E28C0C44CB004575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794042   (67365) от 27.04.2025
+
+Shinyribs - Leaving Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country, Blues, Americana>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Leaving Time (3:56)
+02.  Cry Yer Way (4:35)
+03.  Shitty Music (3:28)
+04.  Drinkin' Night (3:17)(   Читать дальше...   )Жанр: Country, Blues, AmericanaПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA078CD1E1FA7D076782FB05182B70BEEC46420B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794262   (67343) от 28.04.2025
+
+Billy Idol - Dream Into It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Into It (5:05)
+02. 77 (feat. Avril Lavigne) (2:54)
+03. Too Much Fun (3:20)
+04. John Wayne (feat. Alison Mosshart) (4:16)(   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFB20A01FF0FEEC60DE99DCBB657A728DAB8E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794370   (67325) от 28.04.2025
+
+Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67325.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fighting The World (03:46)
+A2. Blow Your Speakers (03:36)
+A3. Carry On (04:09)
+A4. Violence And Bloodshed (03:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A223F401AF040E32B97808020136468DD5BF5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794222   (67317) от 28.04.2025
+
+Gene Pitney - 24 Hours From Tulsa. Greatest Hits Series Vol.1 (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67317.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Twenty Four Hours From Tulsa
+A2 It Hurts To Be In Love
+A3 Half Heaven - Half Heartache
+A4 Billy You're A Friend(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6458A3354B9683E31997B122D8EB67AED552C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794240   (67288) от 28.04.2025
+
+Soulfallen - Studio Albums (3 releases) (2007-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulfallen - дарк-метал-группа из Ювяскюля, Финляндия, образованная в 2003 году.2007 - World Expiration
+2009 - Grave New World
+2012 - The Promise Of HellЖанр: Melodic Death/Black MetalПродолжительность: 02:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F771B2211ABDFA39961E6B142498D60800B29073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794588   (67277) от 29.04.2025
 
 The Double Vision - Demons Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +237,7 @@ The Double Vision - Demons Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67277.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Dream Theater - Parasomnia (2025) [WavPack|24/96|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67272.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Blue Cheer - Junk - Blue Cheer - Junk (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67270.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Redemption - The Hard Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67258.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67257.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67249.jpg" />
 </div>
 
 
@@ -180,7 +411,7 @@ Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumeria
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67242.jpg" />
 </div>
 
 
@@ -209,7 +440,7 @@ Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67239.jpg" />
 </div>
 
 
@@ -238,7 +469,7 @@ Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67233.jpg" />
 </div>
 
 
@@ -267,7 +498,7 @@ The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67232.jpg" />
 </div>
 
 
@@ -296,7 +527,7 @@ Wednesday 13 - Mid Death Crisis (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67208.jpg" />
 </div>
 
 
@@ -325,7 +556,7 @@ VA - He, Kleine Linda (1977) Compilation, Russian Labels [FLAC 2.0|96/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67205.jpg" />
 </div>
 
 
@@ -354,7 +585,7 @@ Ladislav Staidl Orchestra - Music Therapy (1979) Compilation, Repress 1981 [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67199.jpg" />
 </div>
 
 
@@ -383,7 +614,7 @@ Soulfly - Dark Ages (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67195.jpg" />
 </div>
 
 
@@ -412,7 +643,7 @@ The Defaced - Studio Albums (4 releases) (2001-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67194.jpg" />
 </div>
 
 
@@ -441,7 +672,7 @@ Ghost Brigade - Studio Albums (4 releases) (2007-2014) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67172.jpg" />
 </div>
 
 
@@ -470,7 +701,7 @@ All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67140.jpg" />
 </div>
 
 
@@ -499,7 +730,7 @@ Ancient Wisdom - For Snow Covered the Northland (1996) Released, 2022, Peacevill
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67112.jpg" />
 </div>
 
 
@@ -513,238 +744,6 @@ A4. Through Rivers of the Eternal Blackness (05:45)(   Читать дальше
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E874CBFBFE98CEC1D763DD6E19606CC20AEFB379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795109   (67110) от 03.05.2025
-
-Circle Of Chaos - Studio Albums (4 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circle Of Chaos - метал-группа из Стокгольма, Швеция, основана в 2008 году.2010 - Black Oblivion
-2012 - Twoheaded Serpent (EP)
-2014 - Crossing the Line
-2022 - Forlorn ReignЖанр: Melodic Death MetalПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FA22AFDCBA7604BBF09A7274585E5B3178449F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795280   (67091) от 04.05.2025
-
-Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67091.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. 72 Seasons (07:44)
-A2. Shadows Follow (06:11)
-A3. Screaming Suicide (05:30)
-B1. Sleepwalk My Life Away (06:55)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A02C3C5CAD8F6E0A1B172F0D850B27646EC733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795331   (67089) от 04.05.2025
-
-Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Souldrainer - метал-группа из Остерсунда, Швеция, основана в 1999 году.2007 - Reborn
-2011 - Heavens gate
-2014 - Architect
-2022 - DepartureЖанр: Melodic Death MetalПродолжительность: 03:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760D7F93ED04DF444399E2ACCC0E9560CCE2F032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795297   (67080) от 04.05.2025
-
-Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Handshake With Hell
-02 - Deceivers, Deceivers
-03 - In The Eye Of The Storm
-04 - The Watcher(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4462BA1B631DF2D8E68FCFE6C155D06431F4DFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795420   (67077) от 04.05.2025
-
-Christopher Cross - Christopher Cross (1979) Expanded Edition, 2025, Warner Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Say You’ll Be Mine (2019 Remaster)
-02 – I Really Don’t Know Anymore (2019 Remaster)
-03 – Spinning (2019 Remaster)
-04 – Never Be the Same (2019 Remaster)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2734FBF22D41CFBA6779378FA0CA98EC4EE724E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795502   (67060) от 05.05.2025
-
-Tom Wax - The Future Is Now (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Techno, Hard Trance, House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tom Wax; Kevin Dukes - The Future Is Now [00:01:46]
-02 - Tom Wax - A Freak Like Me [00:05:28] (FLAC 24/44.1)
-03 - Tom Wax - Followers, Likes & Plays [00:03:18]
-04 - Tom Wax - Afraid of the Dark [00:06:13](   Читать дальше...   )Жанр: Techno, Hard Trance, HouseПродолжительность: 01:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC2A2EBAC17608C892E214073340527EE13D164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795573   (67049) от 05.05.2025
-
-Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67049.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Illusive Golden Age (05:50)
-A2. The Living Vault (06:10)
-B1. Carrion Tide (05:04)
-B2. Mater dolorosa (06:54)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D630BFAD5104F13A26E08EC4358F0DCEB58F6AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795552   (67048) от 05.05.2025
-
-Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67048.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Beatus (04:05)
-A2. ...Ever Know Peace Again (03:35)
-A3. Cosmic Migration (05:56)
-A4. Nocebo (05:22)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19E8C4B783D9087F942D866A93BBF0DF7C8B740
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709681.jpg" />
+  <img src="Z:/picture/008/save_picture_709681.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709496.jpg" />
+  <img src="Z:/picture/008/save_picture_709496.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708329.jpg" />
+  <img src="Z:/picture/008/save_picture_708329.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707437.jpg" />
+  <img src="Z:/picture/005/save_picture_707437.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703548.jpg" />
+  <img src="Z:/picture/008/save_picture_703548.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703406.jpg" />
+  <img src="Z:/picture/008/save_picture_703406.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702984.jpg" />
+  <img src="Z:/picture/005/save_picture_702984.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702668.jpg" />
+  <img src="Z:/picture/008/save_picture_702668.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702237.jpg" />
+  <img src="Z:/picture/005/save_picture_702237.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701526.jpg" />
+  <img src="Z:/picture/005/save_picture_701526.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701443.jpg" />
+  <img src="Z:/picture/008/save_picture_701443.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701217.jpg" />
+  <img src="Z:/picture/008/save_picture_701217.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700705.jpg" />
+  <img src="Z:/picture/008/save_picture_700705.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700689.jpg" />
+  <img src="Z:/picture/008/save_picture_700689.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700353.jpg" />
+  <img src="Z:/picture/008/save_picture_700353.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699434.jpg" />
+  <img src="Z:/picture/008/save_picture_699434.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698661.jpg" />
+  <img src="Z:/picture/008/save_picture_698661.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698656.jpg" />
+  <img src="Z:/picture/008/save_picture_698656.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698483.jpg" />
+  <img src="Z:/picture/008/save_picture_698483.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_698081.jpg" />
+  <img src="Z:/picture/005/save_picture_698081.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696091.jpg" />
+  <img src="Z:/picture/008/save_picture_696091.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695618.jpg" />
+  <img src="Z:/picture/008/save_picture_695618.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695609.jpg" />
+  <img src="Z:/picture/008/save_picture_695609.jpg" />
 </div>
 
 
@@ -598,6 +598,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211783   (694896) от 20.06.2010
+
+Отряд Кочубея (Вторые) (2009) SATRip (сезон 1, серии 1-8 из 8)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Август 1941 года. Немецкие войска в трехстах километрах от Москвы. На одном из маршрутов следования первых лиц государства сотрудники Четвертого управления НКВД обезвреживают группу немецких диверсантов, целью которой являлось физическое устранение Сталина. В момент задержания группы, диверсанты применяют неизвестное оружие «панцеркнакке», по силе действия схожее (   Читать дальше...   )Производство: РоссияЖанр: Военный, Боевик, ДрамаРежиссер: Александр ДаругаАктеры: Алексей Воробьев, Анатолий Пашинин, Владимир Стеклов, Игорь Лагутин, Дмитрий Муляр, Юрий Ваксман, Кирилл Гребенщиков, Владимир Зайцев, Александр Робак, Сергей Удовик, Михаил Асанкин и др.Продолжительность: 8 серий по 45 мин
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 211587   (694422) от 20.06.2010
 
 Во все тяжкие / Полный 3 сезон Серии 1-13 (13) / Breaking Bad [2010 г., WEB-DL 720p][Кубик в Кубе, ProjektorShow]
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694422.jpg" />
+  <img src="Z:/picture/008/save_picture_694422.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694394.jpg" />
+  <img src="Z:/picture/008/save_picture_694394.jpg" />
 </div>
 
 
@@ -640,32 +666,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Знаменитый нью-йоркский писатель Ричард "Рики" Касл получает личное разрешение от мэра города участвовать в расследованиях убойного отдела, чтобы черпать вдохновение для своих книг из работы детективов и реальной полицейской хроники.
 Касл пытается доказать надменному детективу Кейт Беккет, что в расследовании убийств его блестящий ум и умение думать как (   Читать дальше...   )Жанр: Детектив, Комедия, ДрамаАктеры: Натан Филлион, Стана Катик, Джон Уэртас, Шимус Девер, Сьюзэн Салливан, Молли С. Куинн, Тамала Джонс, Рубен Сантьяго-Хадсон, Пенни Джонсон, Ари Гросс и др.Перевод: Многоголосый закадровый, профессиональныйОзвучка: Студия "Kravec"Субтитры: Английский (отдельными файлами)Продолжительность: 24x~43:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333467   (694224) от 07.05.2011
-
-Морской патруль / Sea patrol (Сезон 1 полный (13)) (2007) HDTVRip
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их много, они разные, но они - команда. Команда, каждый член которой, не задумываясь, бросится на помощь товарищу - а ситуаций, когда это действительно необходимо, хоть отбавляй. Само собой, не обходится и без недоразумений - не все легко притираются друг к другу. Но задачи, которые им приходится решать каждый день - от незаконной рыбной ловли до торговли наркотиками (   Читать дальше...   )Производство: АвстралияЖанр: Драма, боевикРежиссер: Йен Бэрри, Джофф Беннетт, Крис Мартин-Джонс и др.Перевод: Профессиональный многоголосый закадровый - Universal Россия отПродолжительность: ~ 44:00 мин серия
 
 ## Скачать торент
 ```bash

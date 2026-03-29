@@ -1,3 +1,55 @@
+###  Публикация: 694583   (546231) от 29.08.2013
+
+Зайцы Засранцы / Нашествие Кроликов / Rabbids Invasion (2013) WEB-DL [H.264/720p-LQ] (1 сезон, серии 1-1 из 26) (VO-production) (Обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационный сериал про безбашенных зайцев по мотивам компьютерной игры Rabbids Go Home и других от компании Ubisoft.Жанр: Комедия, Компьютерная анимацияРежиссер: Fabien Ouvrard, Stéphane Mitt, Franz KirchnerПерсонажи: КроликиПеревод: Многоголосый закадровый (VO-production)Продолжительность: ~00:21:13 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BF6C5831643808F32B70FB5CCC05740E6E3780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310685   (543602) от 28.06.2019
+
+Ши-Ра и непобедимые принцессы / She-Ra and the Princesses of Power (2019) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-7 из 7) [MVO] NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в далёкой вселенной, на планете Этерия. 16-ти летняя сирота Адора является одним из лучших солдат орды, возглавляемой тираном Хордаком. Благодаря своему таланту, Адора выступала главным кандидатом на пост капитана сил Орды. Её заданием стало уничтожение повстанцев «великого восстания» во главе с «принцессами». Во время исполнения миссии, Адора (   Читать дальше...   )Производство: США, DreamWorks Animation Television, Mattel CreationsЖанр: Фантастика, фэнтези, боевик, приключения, семейныйПеревод: Многоголосый закадровый, любительский (NewStation)Субтитры: Русские (сообщество VOL-SUB), английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD037C273AF4D2575C8C9EE9108A44F5B7B2308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310687   (543521) от 28.06.2019
 
 Ши-Ра и непобедимые принцессы / She-Ra and the Princesses of Power (2019) WEBRip (сезон 2, серии 1-7 из 7) [MVO] NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543521.jpg" />
+  <img src="Z:/picture/008/save_picture_543521.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543410.jpg" />
+  <img src="Z:/picture/008/save_picture_543410.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542084.jpg" />
+  <img src="Z:/picture/008/save_picture_542084.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541953.jpg" />
+  <img src="Z:/picture/008/save_picture_541953.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540633.jpg" />
+  <img src="Z:/picture/008/save_picture_540633.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539055.jpg" />
+  <img src="Z:/picture/008/save_picture_539055.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537960.jpg" />
+  <img src="Z:/picture/008/save_picture_537960.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537366.jpg" />
+  <img src="Z:/picture/008/save_picture_537366.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537221.jpg" />
+  <img src="Z:/picture/008/save_picture_537221.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535752.jpg" />
+  <img src="Z:/picture/008/save_picture_535752.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535736.jpg" />
+  <img src="Z:/picture/008/save_picture_535736.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535324.jpg" />
+  <img src="Z:/picture/008/save_picture_535324.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533315.jpg" />
+  <img src="Z:/picture/008/save_picture_533315.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530151.jpg" />
+  <img src="Z:/picture/008/save_picture_530151.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529382.jpg" />
+  <img src="Z:/picture/008/save_picture_529382.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524915.jpg" />
+  <img src="Z:/picture/008/save_picture_524915.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522639.jpg" />
+  <img src="Z:/picture/008/save_picture_522639.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521053.jpg" />
+  <img src="Z:/picture/008/save_picture_521053.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520269.jpg" />
+  <img src="Z:/picture/008/save_picture_520269.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519943.jpg" />
+  <img src="Z:/picture/008/save_picture_519943.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518813.jpg" />
+  <img src="Z:/picture/008/save_picture_518813.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516538.jpg" />
+  <img src="Z:/picture/008/save_picture_516538.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516499.jpg" />
+  <img src="Z:/picture/008/save_picture_516499.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516489.jpg" />
+  <img src="Z:/picture/008/save_picture_516489.jpg" />
 </div>
 
 
@@ -629,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6201AB670C5A1D197152141B463FC4609F3FC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535171   (516480) от 16.08.2012
-
-Как Стремянка и Макаронина... / Jak Štaflík a Špagetka... (1969-1971) DVDRip (Сезон 1, серий 13 из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые и динамичные мультики о двух неразлучных друзьях - Стремянки и Макаронине. Неутомимые приятели постоянно затевают веселые и забавные игры, а их соседка - ворона старается помешать им. Но проказы вороны-непоседы не остаются безнаказанными.
-
-Черно-белый.Жанр: Детский, Рисованная анимацияРежиссер: Вацлав БедричПеревод: Без слов / НемойПродолжительность: 13 x ~00:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108518309916746B150BB391BB316F1D84E99F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384787   (515426) от 04.07.2022
-
-Планета монстров / War Planets: Shadow Raiders (1998-1999) DVD5 (Сезон 1-2, серии 26 из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планета Монстров — миф, страшная сказка для детей. Так считали до тех пор, пока злые и кровожадные ракопауки полностью не уничтожили планету Тек. Смертельная угроза нависла над миром. Опустошение и разрушения, истребление и гибель ждут Костяную, Ледяную, Огненную и Каменную планеты, если их народы не объединятся. Отважный рудокоп Грейвхарт берётся сплотить враждующих (   Читать дальше...   )Производство: Канада, A Mainframe ProductionЖанр: 3D Анимация, фантастика, боевикРежиссер: Оуэн Хёрли, Джордж Самильски, Джеймс Тэйлор и др.Актеры: Пол Добсон, Гари Чок, Мэтт Хилл, Энука Окума и др.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 26 x ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA8D0D854C8AF2B56405078FA26740D300DF71B
 ```
 
 https://mybot314.ru/tekegram_catalog/

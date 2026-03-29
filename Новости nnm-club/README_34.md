@@ -1,3 +1,110 @@
+###  Публикация: 983618   (939435) от 08.02.2016
+
+Сергей Сараханов | Основы фотографии (2015) CamRip [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальный курс по фотографии, от Сергея Сараханова
+пройдя который вы сможете смело шагнуть в профессиональную сферу!Жанр: ФотографияПродолжительность: 09:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1C6A18FA8DAFC24AF4320F6EBAF7498FE409E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984145   (939428) от 08.02.2016
+
+Хватай и беги / Freaks of Nature (2015) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о группе учеников старших классов, атакованных зомби. Пока ничего необычного. Однако в то время как школьники спасаются бегством, зомби подвергаются нападению вампиров. Все становится еще веселее, когда на Землю высаживаются инопланетяне. Теперь школьникам придется объединиться с зомби и вампирами, чтобы остановить вторжение на нашу планету.Производство: США | Columbia Pictures, Sony Pictures Entertainment (SPE)Жанр: Ужасы, КомедияРежиссер: Робби ПикерингАктеры: Николас Браун, Маккензи Дэвис, Джош Фэйдем, Дэнис Лири, Эд Вествик, Ванесса Энн Хадженс, Кигэн-Майкл Ки, Боб Оденкёрк, Джоан Кьюсак, Крис ЗилкаПеревод: Многоголосый закадровый, профессиональный (iTunes)Продолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4F678C8DE65CD0CCA5012402260E89CC061D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591026   (939358) от 08.03.2013
+
+Sleeping Dogs - Limited Edition + 21 DLC [Ru/En/Multi7] (Repack/2.1) 2012 | R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Гонконг, город, в котором дрожащий свет неоновых огней тесно переплетается с повседневной жизнью, город, чьи экзотические места и бурлящие улицы скрывают одну из самых могущественных и опасных криминальных организаций во всем мире — Триад.
+
+В этой игре с открытым миром вам предстоит примерить на себя роль Вей Шена, полицейского под прикрытием, который пытается разрушить банды Триад изнутри. Докажите свою значимость на пути к верхушкам этой организации, приняв участие в жестоких криминальных операциях, и не дайте преступникам раскрыть себя. Разрываясь между верностью к полицейскому значку и бандитским кодексом чести, вам придется поставить на кон всё и не запутаться в размытых границах между правдой, преданностью и справедливостью.(   Читать дальше...   )Тип издания: RepackРазработчик: United Front GamesЖанр: Action, Open worldЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, Итальянский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Итальянский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D48342E87D314C9728D78A579377B4F3F169B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363642   (939176) от 01.03.2020
+
+Ростех передал заказчику первый серийный Ми-38
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый серийный Ми-38 с салоном повышенной комфортности передан заказчику — компании «Газпромбанк Лизинг». Эксплуатантом машины, произведенной на Казанском вертолетном заводе, станет компания Русские вертолетные системы (РВС).Передача первого вертолета Ми-38 — важный этап, подтверждающий готовность КВЗ к серийным поставкам машин данного типа как для коммерческих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363679   (939138) от 01.03.2020
 
 Учёные открыли способ охлаждения компьютеров светом
@@ -6,7 +113,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939138.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939099.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939092.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938084.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ hack_me (2017) [Ru/En] (1.3.2) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938080.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Race Driver GRID (2008) [Ru/En] (1.3.0.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938079.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937935.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ Painkiller Anthology (2004-2012) [Ru/En] (1.64/1.084/1.044/1.05f/1.0/20140415.39
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937931.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937924.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937923.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ To The Moon [Ru/En/Multi7] (L) 2011 | PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937795.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ God of War: Ascension [PS3] [EUR] [RUSSOUND] [4.31 CFW] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937787.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937784.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937757.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937653.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937635.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ S.T.A.L.K.E.R. Trilogy / S.T.A.L.K.E.R. Трилогия (2007-2009) [Ru/Multi] 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937618.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ GoodbyeDPI.0.1.6. Launcher-3.4 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937552.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936782.jpg" />
 </div>
 
 
@@ -507,7 +614,7 @@ The Bat! 4.2.42 Pro [Multi/rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936621.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936591.jpg" />
 </div>
 
 
@@ -559,7 +666,7 @@ Need for Speed Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936572.jpg" />
 </div>
 
 
@@ -570,112 +677,6 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD44BBAAA10DF875801C0AD336E49D323CD4B5FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984777   (936357) от 10.02.2016
-
-Stop SMS Uni Boot х86 (3in1) v.6.02.10 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stop SMS Uni Boot - Загрузочные образы CD & USB , основанные на Windows 7\8.1\10 PE x86. Сборки имееют достаточное количество программ для работы с разделами HDD, восстановления системы, создания настроенного образа системы и для решения других проблем. Включают в состав комплекс восстановления системы после блокировки SMS баннером.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E36C27AB42D22619F540E523CBBB92AD6612D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984767   (936353) от 10.02.2016
-
-Война / Krigen (2015) DVDRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Командир роты Клаус М. Педерсен и его люди размещены в афганской провинции. Тем временем в Дании жена Клауса Мария пытается вести обычную жизнь, когда ее муж на войне, а ее троим детям не хватает отца. Во время очередной миссии солдаты попадают в тяжелую перестрелку, и чтобы спасти своих людей, Клаус принимает решение, которое имеет серьезные последствия для него (   Читать дальше...   )Производство: Дания, AZ Celtic Films, Nordisk Film ProductionЖанр: Драма, ВоенныйРежиссер: Тобиас ЛиндхольмАктеры: Йохан Филип Асбек, Тува Новотны, Сёрен Маллинг, Дар Салим, Шарлотте МункПеревод: Одноголосый закадровый, любительский (Павел Морозов aka PashaUp)Субтитры: ОтсутствуютПродолжительность: 01:50:12Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970F873BFB56FA57A070DB2E8E399CF8D21BF36D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799311   (936350) от 10.02.2016
-
-Книжная серия | Магия фэнтези [606 книг. Обновляемая] (2004-2016) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия открыта в 2004 году и с тех пор завоевала немалую популярность. В ней издаются романы (и очень редко сборники повестей и рассказов) современных отечественных писателей. Кроме собственно жанра фэнтези ограничений на произведения практически нет. В серии можно встретить, как «героику», так и фэнтези с философским уклоном, бывает и мистическое фэнтези, и ироническое (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECC77394A0640F836EFECCDBF6522AA3EEC0EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606778   (936094) от 10.03.2013
-
-DmC: Devil May Cry + 6 DLC [PS3] [PAL] [Ru/En] [Repack] 2013 | R.G. Inferno
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936094.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы знали, что заносчивый полудемон Данте — гроза демонов всех мастей — не всегда был белокурым красавцем в алом плаще? В DmC Devil May Cry — пятой главе прославленной экшен-серии — вы сможете увидеть, с чего начался путь героя. И пускай пока Данте лишь ершистый подросток, он уже очень лихо орудует легендарным мечом Rebellion и парой пистолетов. А значит, вас ждут стильные битвы, полчища противников и харизматичный, неповторимо самоуверенный герой.
-
-За разработку DmC Devil May Cry отвечает британская команда Ninja Theory — создатели Enslaved и Heavenly Sword. Смена разработчика не прошла для мира Devil May Cry незамечено — игра стала более реалистичной, мрачной и кинематографичной. (   Читать дальше...   )Тип издания: RepackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

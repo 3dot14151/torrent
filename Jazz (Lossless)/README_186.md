@@ -1,3 +1,119 @@
+###  Публикация: 1410835   (431982) от 23.09.2020
+
+Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fump [5:21]
+02. Lover [5:10]
+03. Like Someone in Love [8:27]
+04. Gallery Groove [4:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DB3AE148C39FCBF3C4C8AF0020B7A6E46F4BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410875   (431979) от 23.09.2020
+
+New York Jazz Quartet - Blues For Sarka (1978) 1998, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [15:29]
+02. Rodney Round Robin [5:45]
+03. I'll Tell You Tonite [7:15]
+04. Blues For Sarka [7:11](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC2F96B1AA6C6B606A47FFDA1496E8B5EFF1BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410841   (431933) от 23.09.2020
+
+Nat King Cole - Spotlight on Nat King Cole (1944 - 1960) 1995, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Funny that Way [3:04]
+02. Sunday, Monday or Always [2:21]
+03. Crazy She Calls Me [2:36]
+04. Spring Is Here [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6744B37D9FCED6664CA5340861D7E044D19EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410842   (431931) от 23.09.2020
+
+Louis Armstrong - Highlights from His Decca Years (1924 - 1958) 1994, 2CD, GRP [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431931.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Wild Man Blues [3:06]
+02. Weary Blues [2:48]
+03. Georgia Bo Bo [3:06](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F558B3DE88F10B62FEF638571DE2C38D06A8480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410887   (431926) от 23.09.2020
 
 Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
@@ -6,7 +122,7 @@ Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431926.jpg" />
+  <img src="Z:/picture/008/save_picture_431926.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431909.jpg" />
+  <img src="Z:/picture/008/save_picture_431909.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431908.jpg" />
+  <img src="Z:/picture/008/save_picture_431908.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jaco Pastorius, Kenwood Dennard, Hiram Bullock - PDB (1989) Live / DIW Records /
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431869.jpg" />
+  <img src="Z:/picture/005/save_picture_431869.jpg" />
 </div>
 
 
@@ -124,7 +240,7 @@ The Australian Jazz Quintet - At The Varsity Drag (1956) /2014, Solid Records/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431865.jpg" />
+  <img src="Z:/picture/008/save_picture_431865.jpg" />
 </div>
 
 
@@ -153,7 +269,7 @@ Omar Sosa - A New Life (Solo Piano) (2003) [FLAC|image+.cue]<Afro-Cuban Jazz, La
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431861.jpg" />
+  <img src="Z:/picture/008/save_picture_431861.jpg" />
 </div>
 
 
@@ -182,7 +298,7 @@ Omara Portuondo - Magia Negra The Beginning (2014) [FLAC|tracks|WEB-DL]<Vocal, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431850.jpg" />
+  <img src="Z:/picture/008/save_picture_431850.jpg" />
 </div>
 
 
@@ -211,7 +327,7 @@ Omar Sosa - Eggun (2013) [FLAC|Lossless]<World Fusion, Contemporary Jazz, Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431848.jpg" />
+  <img src="Z:/picture/008/save_picture_431848.jpg" />
 </div>
 
 
@@ -240,7 +356,7 @@ Angelo Debarre, Serge Camps, Frank Anastasio - Gypsy Guitars (1989) Hot Club Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431844.jpg" />
+  <img src="Z:/picture/008/save_picture_431844.jpg" />
 </div>
 
 
@@ -269,7 +385,7 @@ VA - Explorations Into Dancefloor Jazz Vol. 1-3 (1994-95) [FLAC|Lossless]<Acid J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431795.jpg" />
+  <img src="Z:/picture/005/save_picture_431795.jpg" />
 </div>
 
 
@@ -303,7 +419,7 @@ Al Jarreau - Tomorrow Today (1999) Verve Music [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431775.jpg" />
+  <img src="Z:/picture/008/save_picture_431775.jpg" />
 </div>
 
 
@@ -332,7 +448,7 @@ Omar Hakim - Rhythm Deep (1989) [FLAC|tracks+cue]<Smooth Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431745.jpg" />
+  <img src="Z:/picture/008/save_picture_431745.jpg" />
 </div>
 
 
@@ -361,7 +477,7 @@ Dave Douglas Quintet - Be Still (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431709.jpg" />
+  <img src="Z:/picture/005/save_picture_431709.jpg" />
 </div>
 
 
@@ -395,7 +511,7 @@ Bill Evans - 3 Essential Albums (1959 - 1963) 3CD, Universal, 2017 [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431693.jpg" />
+  <img src="Z:/picture/008/save_picture_431693.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ Jaco Pastorius - Smoke On The Water, Live In Rome, 1986 (2007) [WavPack|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431587.jpg" />
+  <img src="Z:/picture/005/save_picture_431587.jpg" />
 </div>
 
 
@@ -456,7 +572,7 @@ Karrin Allyson - 9 альбомов (1995-2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431579.jpg" />
+  <img src="Z:/picture/005/save_picture_431579.jpg" />
 </div>
 
 
@@ -491,7 +607,7 @@ Van Morrison - Born To Sing: No Plan B (2012) [FLAC|Lossless]<Jazz, Blues, Pop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431513.jpg" />
+  <img src="Z:/picture/005/save_picture_431513.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Blue Note Trip - Volumes 1-7 (2003-2008) [FLAC/WavPack|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431413.jpg" />
+  <img src="Z:/picture/008/save_picture_431413.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ The Count Basie Orchestra - Basically Basie (1937 - 1945) 4CD, 2005, JSP Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431390.jpg" />
+  <img src="Z:/picture/008/save_picture_431390.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ The Johnny Smith - Foursome, Vol. 2 (1957) 2017, Warner [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430889.jpg" />
+  <img src="Z:/picture/008/save_picture_430889.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ The Johnny Smith - Foursome (1957) 2017, Warner [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430888.jpg" />
+  <img src="Z:/picture/008/save_picture_430888.jpg" />
 </div>
 
 
@@ -642,7 +758,7 @@ Johnny Smith - Moonlight In Vermont (1953) 2016, Warner [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430798.jpg" />
+  <img src="Z:/picture/008/save_picture_430798.jpg" />
 </div>
 
 
@@ -656,122 +772,6 @@ Johnny Smith - Moonlight In Vermont (1953) 2016, Warner [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:047B489D53EB92B8420ECCD50FCB9AC0343B4115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063983   (430369) от 18.10.2016
-
-Janet Klein & Her Parlor Boys - Put A Flavor To Love (2002) Coeur De Jeanette Productions[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Put A Flavor To Love [04:26]
- 02.Troubled Waters [04:23]
- 03.If I Could Be With You One Hour Tonight [03:00]
- 04.My Bundle Of Love [02:44](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9771905342D03747FDF00B33BC58F10A91809440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064142   (430347) от 18.10.2016
-
-Burton, Corea, Metheny, Haynes, Holland - Like Minds (1998) [WavPack|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Question And Answer (6:23)
-02. Elucidation (5:21)
-03. Windows (6:17)
-04. Futures (10:41)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41471CD56C872B3B89BD3764EB5B351A10D5DFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411134   (429994) от 24.09.2020
-
-Bob Brookmeyer - Mosaic Select 9 (1954 - 1958) 2004, 3CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429994.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Liberty Belle [2:49]
-02. Have You Met Miss Jones [3:34]
-03. Isn't It Romantic [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 03:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4F24572EBB07EA696282D332C3F6629ACF7CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411136   (429975) от 24.09.2020
-
-Wynton Marsalis & Arturo Sandoval - Los Elefantes (1999) in-akustik [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Giants Talking to Dizz [1:45]
-02. Tunisias Blues [7:16]
-03. Wheel Within a Wheel [6:35]
-04. Los Elefantes [6:53](   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94483B43E6ED08A1BA95136D8BCCD4ADC975DACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

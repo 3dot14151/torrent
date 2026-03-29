@@ -6,7 +6,7 @@ Game of Thrones (RePack/1.0) [En/Ru] 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660933.jpg" />
+  <img src="Z:/picture/008/save_picture_660933.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Vessel (RePack/1.11) [Multi5/+] 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660927.jpg" />
+  <img src="Z:/picture/008/save_picture_660927.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Quantum Conundrum (RePack) [En] 2012 | R.G. Recoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660380.jpg" />
+  <img src="Z:/picture/008/save_picture_660380.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Quantum Conundrum (P) [Multi6\-] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660317.jpg" />
+  <img src="Z:/picture/008/save_picture_660317.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.0) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659796.jpg" />
+  <img src="Z:/picture/008/save_picture_659796.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.0) [En] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659792.jpg" />
+  <img src="Z:/picture/008/save_picture_659792.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack) [Ru/En] 2012 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659788.jpg" />
+  <img src="Z:/picture/008/save_picture_659788.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658596.jpg" />
+  <img src="Z:/picture/008/save_picture_658596.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ DiRT Коллекция [Ru/En] (RePack) 2007-2011 | shidow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657782.jpg" />
+  <img src="Z:/picture/008/save_picture_657782.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657420.jpg" />
+  <img src="Z:/picture/008/save_picture_657420.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Flower, Sun and Rain [PS3 / PS2 Classics] (2001) [PS3] [NTSC-J] 3.55 [Unofficial
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657357.jpg" />
+  <img src="Z:/picture/008/save_picture_657357.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2204008/dlc) Repack dixen18
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655864.jpg" />
+  <img src="Z:/picture/008/save_picture_655864.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ The Binding of Isaac: The Wrath of the Lamb [En] (Rip/1.3) 2012 | Theta
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655258.jpg" />
+  <img src="Z:/picture/008/save_picture_655258.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Salvation Prophecy [En] (P) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655164.jpg" />
+  <img src="Z:/picture/008/save_picture_655164.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655160.jpg" />
+  <img src="Z:/picture/008/save_picture_655160.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ World of Tanks Mods (2015) [Ru] (19.1) Mod Jove [Сборка модов от Jo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655117.jpg" />
+  <img src="Z:/picture/008/save_picture_655117.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ World of Tanks (2010) [Ru] (0.9.8) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655104.jpg" />
+  <img src="Z:/picture/008/save_picture_655104.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ World of Tanks Mods (2015) [Ru] (19.2) Mod Jove [Extended] [Сборка мод�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655092.jpg" />
+  <img src="Z:/picture/008/save_picture_655092.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Quantum Conundrum (RePack/1.0dc120625) [En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654587.jpg" />
+  <img src="Z:/picture/008/save_picture_654587.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/En] (1.0.4) Repack by xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654049.jpg" />
+  <img src="Z:/picture/008/save_picture_654049.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653726.jpg" />
+  <img src="Z:/picture/008/save_picture_653726.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Spec Ops: The Line (RePack) [En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653724.jpg" />
+  <img src="Z:/picture/008/save_picture_653724.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kingdoms of Amalur: Reckoning (RePack/1.0.0.2) [Ru] 2012 l Ininale
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653533.jpg" />
+  <img src="Z:/picture/008/save_picture_653533.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Spec Ops: The Line (Rip) [Ru/En] 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653368.jpg" />
+  <img src="Z:/picture/008/save_picture_653368.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Krater: Collector's Edition [En] (RePack/1.0.4/DLC) 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653364.jpg" />
+  <img src="Z:/picture/008/save_picture_653364.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653231.jpg" />
+  <img src="Z:/picture/008/save_picture_653231.jpg" />
 </div>
 
 

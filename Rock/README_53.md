@@ -1,3 +1,32 @@
+###  Публикация: 829927   (475061) от 21.09.2015
+
+Pink Floyd - Greatest Songs (1995) Bootleg [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One of These Days  [5:42]
+02. Another Brick in the Wall  [3:45]
+03. Money  [6:24]
+04. Shine on You Crazy Diamond  [13:29](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC2E63551B1A58229E1F0F9F8EB26AF749CA920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160487   (473919) от 25.08.2017
 
 VA - American Road Trip (2017) [MP3|~241-291Kbps] <Rock>
@@ -6,7 +35,7 @@ VA - American Road Trip (2017) [MP3|~241-291Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473919.jpg" />
+  <img src="Z:/picture/008/save_picture_473919.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Stage - Stage (2003) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473294.jpg" />
+  <img src="Z:/picture/008/save_picture_473294.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Killer Deal - First One's Free (2020) [MP3|320 Kbps] <Blues Rock, Psychedelic Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473070.jpg" />
+  <img src="Z:/picture/008/save_picture_473070.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Faro - Luminance (2020) [MP3|320 Kbps] <Alternative Rock, Progressive Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473069.jpg" />
+  <img src="Z:/picture/008/save_picture_473069.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Van Der Graaf Generator - Do Not Disturb (2016) [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473043.jpg" />
+  <img src="Z:/picture/008/save_picture_473043.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Simon Collins - Becoming Human (2020) [MP3|320 Kbps] <Progressive Rock, Melodic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472938.jpg" />
+  <img src="Z:/picture/008/save_picture_472938.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Pianoбой - The Best Of (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472937.jpg" />
+  <img src="Z:/picture/008/save_picture_472937.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rosie Valland - Partir Avant (2015) [MP3|320 кб/с]<Pop Rock, Indie-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471626.jpg" />
+  <img src="Z:/picture/008/save_picture_471626.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Eric Clapton - Live in San Diego (with Special Guest JJ Cale) (2016) Live [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470829.jpg" />
+  <img src="Z:/picture/008/save_picture_470829.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Beatles - Golden Beatles (2002) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470744.jpg" />
+  <img src="Z:/picture/008/save_picture_470744.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ VA - Kuschelrock Vol.32 (2018) [MP3|320 Kbps] <Pop, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469695.jpg" />
+  <img src="Z:/picture/008/save_picture_469695.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ VA - Rock Legends (2017) [MP3|320 Kbps] <Blues, Gospel, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469562.jpg" />
+  <img src="Z:/picture/008/save_picture_469562.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ INXS, Michael Hutchence - Discography (1980..2005) [MP3|320 kbps]<Pop-Rock & Sof
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468634.jpg" />
+  <img src="Z:/picture/008/save_picture_468634.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468518.jpg" />
+  <img src="Z:/picture/008/save_picture_468518.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ Hidria Spacefolk - Astronautica (2012) [MP3|~240 kbps] <Psychedelic Rock,Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467602.jpg" />
+  <img src="Z:/picture/008/save_picture_467602.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Deo - Deo (1982) [MP3|320 Kbps] <Electronic, Rock, New Wave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467267.jpg" />
+  <img src="Z:/picture/008/save_picture_467267.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Eyal Raz - A Story Under The Blanket (2016) [MP3|320 Kbps] <Progressive Rock, Fe
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466444.jpg" />
+  <img src="Z:/picture/008/save_picture_466444.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Stairway to Heaven - Brain Damage Tribute to Pink Floyd (2012) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466390.jpg" />
+  <img src="Z:/picture/008/save_picture_466390.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ The Pete Best - The Pete Best Combo - Beyong The Beatles 1964-66 (1996) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466372.jpg" />
+  <img src="Z:/picture/008/save_picture_466372.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ Tale - Riverman (1994) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465390.jpg" />
+  <img src="Z:/picture/008/save_picture_465390.jpg" />
 </div>
 
 
@@ -603,7 +632,7 @@ Marquette - Into the Wild (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464120.jpg" />
+  <img src="Z:/picture/008/save_picture_464120.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ Tito & Tarantula - Live at Rockpalast 2008 & 1998 (2017) [MP3|320 Kbps] <Blues R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463488.jpg" />
+  <img src="Z:/picture/008/save_picture_463488.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ Colombo-Harris - Astrolympix (1980) LP [MP3|320 Kbps] <Space Rock, Pop Rock, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462748.jpg" />
+  <img src="Z:/picture/008/save_picture_462748.jpg" />
 </div>
 
 
@@ -690,7 +719,7 @@ Van Morrison - Keep Me Singing (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461834.jpg" />
+  <img src="Z:/picture/008/save_picture_461834.jpg" />
 </div>
 
 
@@ -719,7 +748,7 @@ Ashra - 4 Albums (1976-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461206.jpg" />
+  <img src="Z:/picture/008/save_picture_461206.jpg" />
 </div>
 
 
@@ -734,32 +763,6 @@ Ashra - немецкая группа, представляющая Берлин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E4F46D4BC323FE15155829C39145BEADE0E51F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407861   (460239) от 10.09.2020
-
-Psychlona - Mojo Rising / Venus Skytrip (2018-2020) 2CD [MP3|320 Kbps] <Psychedelic, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Psychedelic, Stoner RockПродолжительность: 01:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4877B48DDFAE0B586B5E081DC06B0D22B4EBCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

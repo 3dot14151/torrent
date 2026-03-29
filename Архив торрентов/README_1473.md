@@ -6,7 +6,7 @@ PhotoLine 22.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718872.jpg" />
+  <img src="Z:/picture/008/save_picture_718872.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Topaz DeNoise AI 2.2.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718869.jpg" />
+  <img src="Z:/picture/008/save_picture_718869.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera 70.0.3728.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718858.jpg" />
+  <img src="Z:/picture/008/save_picture_718858.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ USDownloader 1.3.5.9 Portable (29.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718832.jpg" />
+  <img src="Z:/picture/008/save_picture_718832.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Disbelief - The Symbol of Death (2017) [MP3|320 Kbps] <Death, Thrash, Sludge Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718823.jpg" />
+  <img src="Z:/picture/008/save_picture_718823.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ScanMyReg 3.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718819.jpg" />
+  <img src="Z:/picture/008/save_picture_718819.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ SRWare Iron 72.0.3750.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718807.jpg" />
+  <img src="Z:/picture/008/save_picture_718807.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Mailbird Pro 2.5.34.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718804.jpg" />
+  <img src="Z:/picture/008/save_picture_718804.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Minecraft - Pocket Edition 0.11.0 Build 7 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718783.jpg" />
+  <img src="Z:/picture/008/save_picture_718783.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Telestream Wirecast Pro 6.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718777.jpg" />
+  <img src="Z:/picture/008/save_picture_718777.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Microsoft Office 2010 Professional Plus 14.0.7147.5001 SP2 RePack by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718773.jpg" />
+  <img src="Z:/picture/008/save_picture_718773.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ WinToUSB Technician 5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718760.jpg" />
+  <img src="Z:/picture/008/save_picture_718760.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Everything 1.4.1.988 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718757.jpg" />
+  <img src="Z:/picture/008/save_picture_718757.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Coming soon 3 v3.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718741.jpg" />
+  <img src="Z:/picture/008/save_picture_718741.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Paint.NET 4.2.13 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718729.jpg" />
+  <img src="Z:/picture/008/save_picture_718729.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ TinkerTool System 7 v7.85 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718728.jpg" />
+  <img src="Z:/picture/008/save_picture_718728.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ HitPaw Watermark Remover 1.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718725.jpg" />
+  <img src="Z:/picture/008/save_picture_718725.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Leaf - RSS News Reader 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718708.jpg" />
+  <img src="Z:/picture/008/save_picture_718708.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718707.jpg" />
+  <img src="Z:/picture/008/save_picture_718707.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Trance Desires (2017) [MP3|320 Kbps] <Trance, Progressive, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718697.jpg" />
+  <img src="Z:/picture/008/save_picture_718697.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Heavenly Voices: Best Of Vocal Trance Classics (2017) [MP3|320 Kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718693.jpg" />
+  <img src="Z:/picture/008/save_picture_718693.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Vocal Trance Hits 2017-02 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718692.jpg" />
+  <img src="Z:/picture/008/save_picture_718692.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ eM Client Pro 7.2.34731.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718682.jpg" />
+  <img src="Z:/picture/008/save_picture_718682.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Privacy Eraser Free 5.20.2 Build 4161 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718667.jpg" />
+  <img src="Z:/picture/008/save_picture_718667.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ IObit Driver Booster Pro 9.2.0.177 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718664.jpg" />
+  <img src="Z:/picture/008/save_picture_718664.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Get Backup Pro 3 v3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718663.jpg" />
+  <img src="Z:/picture/008/save_picture_718663.jpg" />
 </div>
 
 

@@ -1,3 +1,114 @@
+###  Публикация: 1301719   (583133) от 13.05.2019
+
+Gemini 2: The Duplicate Finder 2.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь, это Gemini 2: умная программа для поиска дубликатов на Mac. Она находит дубликаты и похожие файлы и удаляет их. Gemini 2 находит дубликаты с хирургической точностью.
+
+Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65604283E8080F90DD8883DADDCC5576CF5BD87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041691   (582529) от 09.08.2016
+
+Permute 2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute: Универсальный конвертер видео, аудио и изображений
+Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 августа 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C4EF9B521F2862A89EA70757CE98329AF4D770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041537   (582466) от 09.08.2016
+
+iA Writer 3.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582466.jpg" />
+</div>
+
+
+###  Подробнее
+
+iA Writer — фон, шрифт и курсор
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 августа 2016Разработчик: Information Architects Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97F741EEF2841EEF1E1664B674375AFD9235CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041540   (582462) от 09.08.2016
+
+Paws for Trello 1.2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paws for Trello красивый Trello клиент для Mac.
+Trello уже полон полезных ярлыков и опций. В том числе сочетания клавиш, drag & drop и многое другое.
+
+- Красивый минимальный интерфейс, который позволяет Вам оставаться продуктивным.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 августа 2016Разработчик: Milosz FalinskiПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60A3F5085E3F82229F1BE8E46C1EBF63E4E0AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041545   (582460) от 09.08.2016
 
 Playr 2.2 [Multi]
@@ -6,7 +117,7 @@ Playr 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582460.jpg" />
+  <img src="Z:/picture/008/save_picture_582460.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ Renamer 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582393.jpg" />
+  <img src="Z:/picture/008/save_picture_582393.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ Affinity Photo Beta 1.7.0 (123) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582310.jpg" />
+  <img src="Z:/picture/008/save_picture_582310.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ Postico 1.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582255.jpg" />
+  <img src="Z:/picture/008/save_picture_582255.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ MarginNote 3 v3.3.1008 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582248.jpg" />
+  <img src="Z:/picture/008/save_picture_582248.jpg" />
 </div>
 
 
@@ -144,7 +255,7 @@ Allegorithmic Substance Designer 2019.1.0 (2273) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582160.jpg" />
+  <img src="Z:/picture/008/save_picture_582160.jpg" />
 </div>
 
 
@@ -170,7 +281,7 @@ SimpleMind Pro 1.23.2 Full Edition [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582092.jpg" />
+  <img src="Z:/picture/008/save_picture_582092.jpg" />
 </div>
 
 
@@ -198,7 +309,7 @@ LRTimelapse Pro 5 v5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581910.jpg" />
+  <img src="Z:/picture/008/save_picture_581910.jpg" />
 </div>
 
 
@@ -226,7 +337,7 @@ goPanel 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581567.jpg" />
+  <img src="Z:/picture/008/save_picture_581567.jpg" />
 </div>
 
 
@@ -255,7 +366,7 @@ Textual 5 v.5.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581522.jpg" />
+  <img src="Z:/picture/008/save_picture_581522.jpg" />
 </div>
 
 
@@ -284,7 +395,7 @@ Downcast 2.9.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581503.jpg" />
+  <img src="Z:/picture/008/save_picture_581503.jpg" />
 </div>
 
 
@@ -313,7 +424,7 @@ iShowU Studio 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581435.jpg" />
+  <img src="Z:/picture/008/save_picture_581435.jpg" />
 </div>
 
 
@@ -341,7 +452,7 @@ Navicat Premium 11.2.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581432.jpg" />
+  <img src="Z:/picture/008/save_picture_581432.jpg" />
 </div>
 
 
@@ -369,7 +480,7 @@ Yate 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581303.jpg" />
+  <img src="Z:/picture/008/save_picture_581303.jpg" />
 </div>
 
 
@@ -398,7 +509,7 @@ One Chat - All In One Messenger 4.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581244.jpg" />
+  <img src="Z:/picture/008/save_picture_581244.jpg" />
 </div>
 
 
@@ -424,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581221.jpg" />
+  <img src="Z:/picture/008/save_picture_581221.jpg" />
 </div>
 
 
@@ -450,7 +561,7 @@ Elmedia Player Pro 7.3 (1805) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581139.jpg" />
+  <img src="Z:/picture/008/save_picture_581139.jpg" />
 </div>
 
 
@@ -478,7 +589,7 @@ Pixelmator Pro 2.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580930.jpg" />
+  <img src="Z:/picture/008/save_picture_580930.jpg" />
 </div>
 
 
@@ -505,7 +616,7 @@ Boom 2 v1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580911.jpg" />
+  <img src="Z:/picture/008/save_picture_580911.jpg" />
 </div>
 
 
@@ -532,7 +643,7 @@ Movist 1.3.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580903.jpg" />
+  <img src="Z:/picture/008/save_picture_580903.jpg" />
 </div>
 
 
@@ -560,7 +671,7 @@ Network Radar 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580640.jpg" />
+  <img src="Z:/picture/008/save_picture_580640.jpg" />
 </div>
 
 
@@ -588,7 +699,7 @@ Dropshare 4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580590.jpg" />
+  <img src="Z:/picture/008/save_picture_580590.jpg" />
 </div>
 
 
@@ -601,119 +712,6 @@ Dropshare - приложение строки меню для Drag&Drop загр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:384616E1848EE68AF86151E95EFAB3B8DB2E1D95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042157   (580580) от 11.08.2016
-
-PhotoMill X (aka Reformator) 1.3.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580580.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoMill X  – групповая обработка фотографий
-PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать ватермарку с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
-
-Удалите (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 августа 2016Разработчик: Gwinno Software IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E127032ED209A892AEBAAE9AF82FE5A6D4F496A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041695   (580520) от 11.08.2016
-
-Contexts 2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Contexts - это радикально быстрее и проще переключение окон.  Contexts очень простое в использовании приложение, которое обеспечивает быстрый доступ к окну из панели в стиле Dock. Утилита работает с несколькими мониторами, показывает счетчики на значках, имеет ярлыки для переупорядочивания групп и окон и др.
-
-Приложение Contexts предоставляет 4 различных способа переключения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 августа 2016Разработчик: Usman KhalidПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CF30589B17BF84DFC10F7D47E9965ACD947EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042007   (580393) от 11.08.2016
-
-1Password 6.3.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580393.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
-
-Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 августа 2016Разработчик: AgileBits Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD49CC2C7A4FC3E2803274EAF7A0E490FE72291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302559   (580366) от 16.05.2019
-
-Deckset 2.0 v2.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поистине если человеку лень что-либо делать, он готов сделать все что угодно, чтобы не делать то, что ему не хочется делать. Яркий пример — программа Deckset, которая позволяет создавать симпатичные презентации… на основе простого текста.
-
-Если вы знакомы с языком разметки Markdown, то суть работы в Deckset вам будет понятна. То есть вы просто составляете текстовое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.05.2019Разработчик: Unsigned Integer UGПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65ABE3617B3A80FA0E7B0331DA6F9BF3AA7E8F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

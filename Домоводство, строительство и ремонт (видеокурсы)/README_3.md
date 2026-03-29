@@ -1,3 +1,56 @@
+###  Публикация: 521165   (628653) от 10.07.2012
+
+Александр Цой | Мастер класс. Суши и роллы [2010] IPTVRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шеф повар ресторана "Храм Дракона" Александр Цой готовит блюда японский кухни.
+Легкий суп, суши и роллы.Жанр: Документальный, кулинария, мастер-класс, обучающее видеоПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4521631619F869A5F3003177894CE547674E5EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523648   (614376) от 17.07.2012
+
+Владимир Козин | Все об отоплении дома (2011) SATRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_614376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель видеокурса помочь тем, кто давно задумался сделать систему отопления в доме, на даче, в квартире, гараже. Но не знает с чего начать.Жанр: обучающее видеоПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 205239   (574276) от 11.07.2011
 
 Николай Рабушко | Обрезка плодовых деревьев [2009] VHSRip
@@ -6,7 +59,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_574276.jpg" />
+  <img src="Z:/picture/005/save_picture_574276.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556333.jpg" />
+  <img src="Z:/picture/008/save_picture_556333.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540325.jpg" />
+  <img src="Z:/picture/008/save_picture_540325.jpg" />
 </div>
 
 
@@ -91,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528644.jpg" />
+  <img src="Z:/picture/008/save_picture_528644.jpg" />
 </div>
 
 
@@ -120,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507820.jpg" />
+  <img src="Z:/picture/008/save_picture_507820.jpg" />
 </div>
 
 
@@ -149,7 +202,7 @@ Archicad-Master | Проектирование и визуализация в Sk
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506878.jpg" />
+  <img src="Z:/picture/008/save_picture_506878.jpg" />
 </div>
 
 
@@ -178,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495341.jpg" />
+  <img src="Z:/picture/008/save_picture_495341.jpg" />
 </div>
 
 
@@ -204,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494717.jpg" />
+  <img src="Z:/picture/008/save_picture_494717.jpg" />
 </div>
 
 
@@ -232,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488710.jpg" />
+  <img src="Z:/picture/008/save_picture_488710.jpg" />
 </div>
 
 
@@ -258,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487897.jpg" />
+  <img src="Z:/picture/008/save_picture_487897.jpg" />
 </div>
 
 
@@ -284,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471827.jpg" />
+  <img src="Z:/picture/008/save_picture_471827.jpg" />
 </div>
 
 
@@ -312,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471809.jpg" />
+  <img src="Z:/picture/008/save_picture_471809.jpg" />
 </div>
 
 
@@ -341,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470729.jpg" />
+  <img src="Z:/picture/008/save_picture_470729.jpg" />
 </div>
 
 
@@ -368,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470709.jpg" />
+  <img src="Z:/picture/008/save_picture_470709.jpg" />
 </div>
 
 
@@ -395,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468312.jpg" />
+  <img src="Z:/picture/008/save_picture_468312.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466141.jpg" />
+  <img src="Z:/picture/008/save_picture_466141.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459716.jpg" />
+  <img src="Z:/picture/008/save_picture_459716.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450568.jpg" />
+  <img src="Z:/picture/008/save_picture_450568.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418899.jpg" />
+  <img src="Z:/picture/008/save_picture_418899.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416822.jpg" />
+  <img src="Z:/picture/008/save_picture_416822.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ Rick Arnold | Строим сарай с Риком Арнольдом / Build a
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393675.jpg" />
+  <img src="Z:/picture/008/save_picture_393675.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ Eltray.com | Зануление и заземление [2011] PCRec
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377980.jpg" />
+  <img src="Z:/picture/008/save_picture_377980.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377031.jpg" />
+  <img src="Z:/picture/008/save_picture_377031.jpg" />
 </div>
 
 
@@ -635,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376875.jpg" />
+  <img src="Z:/picture/008/save_picture_376875.jpg" />
 </div>
 
 
@@ -649,60 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B5C41AA82F14C2C6A6CDF393A1D90D580FD55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415992   (371309) от 14.10.2020
-
-Udemy | Создание и дизайн современного дома в Blender 2.80 / Create & Design a Modern 3D House in Blender 2.80 (2020) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите узнать, как создавать потрясающие фотореалистичные 3D-архитектурные рендеры в Blender? Вы хотите иметь возможность в цифровом виде воссоздать свой собственный дом в Blender? К концу этого курса вы сделаете красивый современный 3D дом. Первый раздел этого курса будет посвящен моделированию нашего современного дома. В течение следующих двух разделов мы будем (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 04:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449EEEDE794447BDC5BAE4D367234C3370B2157B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416553   (366932) от 16.10.2020
-
-Никита Ивановский | Коммерческая визуализация. Baker Street – реализация реального экстерьерного проекта с использованием 3D Max, V-ray и Photoshop (2014) PCRec
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот мой Новогодний подарок - новый видеокурс, после которого вы просто не сможете не работать с экстерьером на профессиональном уровне, зарабатывая при этом хорошие деньги!!!
-
-Вплоть до сегодняшнего вечера я работал над РЕАЛЬНЫМ проектом - визуализацией жилого комплекса.  Работа была долгой, со множеством правок и изменений, однако несколько часов назад я его СДАЛ!))) (   Читать дальше...   )Жанр: Обучающее видеоЯзык озвучки: РусскийПродолжительность: 19:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DB2F492D061EA26CB3C19EC196DC71C7E9FD61
 ```
 
 https://mybot314.ru/tekegram_catalog/

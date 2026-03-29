@@ -1,3 +1,83 @@
+###  Публикация: 1303285   (572892) от 21.05.2019
+
+20 лет Советской власти. Статистический сборник [Цифровой материал для пропагандистов] (1937) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572892.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Экономическую основу СССР составляют социалистическая система хозяйства и социалистическая собственность на орудия и средства производства, утвердившиеся в результате ликвидации капиталистической системы хозяйства, отмены частной собственности на орудия и средства производства и уничтожения эксплуатации человека человеком».
+
+Конституция СССР, статья 4.Жанр: История, политология, правоведение, экономика, социология, культурология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EF35D2B176A78672851B7DCB5FB5F020BBF266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303682   (570814) от 22.05.2019
+
+Алексей Беляков | Алла Пугачева. Жизнь и удивительные приключения великой певицы (2019) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_570814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из книги вы узнаете, как мама гоняла маленькую Пугачеву мокрым полотенцем, чтобы та занималась сольфеджио; как Алла случайно попала на «Золотого Орфея», для которого быстро нашла старую песню «Арлекино»; как расколотила стекла в новеньких «Жигулях» мужа-режиссера; как ей помогал генерал КГБ; как хотела уехать из СССР после скандала в гостинице «Прибалтийская»; как (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4677DE766111524272F910176304D2A4BF6227F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302751   (570337) от 22.05.2019
+
+Сергей Бубновский, Игорь Прокопенко | Что скрывают врачи? Главные секреты женского здоровья и красоты (2019) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_570337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индустрия красоты в XXI веке сделала невообразимый скачок. Сложнейшие косметологические процедуры стали обыденностью, а новые способы омоложения, поддержания идеальной фигуры, ухода за лицом и телом появляются чуть ли не каждый день. Но почему так мало людей задумываются о последствиях подобных вмешательств? Ведь любые изменения в организме и теле оставляют свой (   Читать дальше...   )Жанр: Медицина и здоровье, Косметология, ПублицистикаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA00D993BECB37217C0AD0EDBF554DF533556386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043903   (570228) от 17.08.2016
 
 Бернд Бруннер | Искусство лежать. Руководство по горизонтальному образу жизни (2016) [EPUB, FB2, MOBI]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570228.jpg" />
+  <img src="Z:/picture/008/save_picture_570228.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569882.jpg" />
+  <img src="Z:/picture/008/save_picture_569882.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569419.jpg" />
+  <img src="Z:/picture/008/save_picture_569419.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569413.jpg" />
+  <img src="Z:/picture/008/save_picture_569413.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564598.jpg" />
+  <img src="Z:/picture/008/save_picture_564598.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564489.jpg" />
+  <img src="Z:/picture/008/save_picture_564489.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564426.jpg" />
+  <img src="Z:/picture/008/save_picture_564426.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563968.jpg" />
+  <img src="Z:/picture/008/save_picture_563968.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563715.jpg" />
+  <img src="Z:/picture/008/save_picture_563715.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563612.jpg" />
+  <img src="Z:/picture/008/save_picture_563612.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563600.jpg" />
+  <img src="Z:/picture/008/save_picture_563600.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562975.jpg" />
+  <img src="Z:/picture/008/save_picture_562975.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562835.jpg" />
+  <img src="Z:/picture/008/save_picture_562835.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562081.jpg" />
+  <img src="Z:/picture/008/save_picture_562081.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561543.jpg" />
+  <img src="Z:/picture/008/save_picture_561543.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560262.jpg" />
+  <img src="Z:/picture/008/save_picture_560262.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560257.jpg" />
+  <img src="Z:/picture/008/save_picture_560257.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559845.jpg" />
+  <img src="Z:/picture/008/save_picture_559845.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558283.jpg" />
+  <img src="Z:/picture/008/save_picture_558283.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558097.jpg" />
+  <img src="Z:/picture/008/save_picture_558097.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557929.jpg" />
+  <img src="Z:/picture/008/save_picture_557929.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557400.jpg" />
+  <img src="Z:/picture/008/save_picture_557400.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557349.jpg" />
+  <img src="Z:/picture/008/save_picture_557349.jpg" />
 </div>
 
 
@@ -600,86 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:961F7AFB841AF2A4A6C6A98254CC11AAF1B6F741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924817   (557223) от 04.08.2015
-
-Джон Перкинс | Исповедь экономического убийцы (2005) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Дж. Перкинса — первый в мире автобиографический рассказ о жизни, подготовке и методах деятельности особой сверхзасекреченной группы «экономических убийц» — профессионалов высочайшего уровня, призванных работать с высшими политическими и экономическими лидерами интересующих США стран мира. В книге–исповеди, ставшей в США и Европе бестселлером, Дж. Перкинс раскрывает (   Читать дальше...   )Жанр: История, Политика, ЭкономикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD0D2BC81C11875B66AFFBC38EABD397EE9B7ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153654   (557013) от 28.07.2017
-
-Н. Черникова | Император Всероссийский Николай II Александрович (2015) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудно найти в истории России другую личность с настолько неоднозначной трактовкой характера и действий, как Николай II.
-С одной стороны – тот самый добрый царь, о котором мечтали все поколения народа. С другой – народное же прозвище "Николай Кровавый". Одни вменяли ему в вину чрезвычайную мягкость и нерешительность в делах. Другие шёпотом сетовали – как (   Читать дальше...   )Жанр: История, Биографии и мемуарыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E86A48E141582D03D991AB55A6E51BE3FAB7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153650   (556740) от 28.07.2017
-
-А. Колпакиди, Г. Потапов | Николай II. Святой или кровавый? (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556740.jpg" />
-</div>
-
-
-###  Подробнее
-
-О Николае II изданы сотни книг, тысячи статей, сняты десятки художественных и документальных фильмов. В большинстве из них повествуется о семейной идиллии и трагической гибели последнего самодержца, при котором экономика России процветала и росла самыми быстрыми темпами в мире.
-Такой книги, как эта, ещё не было ни в наше, ни в советское время. В ней рассказывается (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B4DA03A2F4AEBDB2FBE889F1D09D68A40615B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

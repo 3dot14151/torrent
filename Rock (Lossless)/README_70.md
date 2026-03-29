@@ -1,3 +1,154 @@
+###  Публикация: 1036143   (621001) от 20.07.2016
+
+Tim Montana and The Shrednecks - Tim Montana and The Shrednecks (2016) feat. Billy F. Gibbons of ZZ Top [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_621001.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fifty Fifty (feat. Billy F Gibbons)
+2. Gravel Road
+3. Low Class
+4. Weed and Whiskey (feat. Billy F Gibbons)(   Читать дальше...   )Жанр: Southern Rock, Country RockПродолжительность: 0:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65576BB943477F7C25BF8A367BEBC60A687E4E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522819   (620549) от 14.07.2012
+
+VA - Rock Ballads - The Most Beautiful Classic Rock Songs (2004) [FLAC|Lossless]<Alternative Rock, Pop Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_620549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jeff Healey Band - While My Guitar Gently Weeps
+02. David Bowie - Starman
+03. Chad Kroeger Feat. Josey Scott - Hero
+04. Santana - Samba Pa Ti
+05. Bryan Ferry and Roxy Music - Jealous Guy
+06. Phil Collins - Another Day in Paradise
+07. The Corrs - Only When I Sleep
+08. Roxette - It Must Have Been Love
+09. Marillion - Kayleigh
+10. Toto - Africa(   Читать дальше...   )Жанр: Rock Ballads |Продолжительность: 01:15:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910808   (620119) от 21.06.2015
+
+VA - Heart Rock vol.1 (1989) 2CD[FLAC|tracks + .cue]<Soft Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince And The Revolution - Purple Rain [4:07]
+02. Enya - Orinoco Flow [3:46]
+03. Chris Rea - Josephine [4:27]
+04. John Farnham - Youre The Voice [5:04](   Читать дальше...   )Жанр: Soft Rock, PopПродолжительность: 02:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8368B7946299C2E5411C4D91834FBD2BF2977D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145658   (619988) от 26.06.2017
+
+Heart - Magazine (1978) Reissue, 1995, Gema Special Markets [FLAC|Lossless|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartless
+02. Devil Delight
+03. Just The Wine
+04. Without You(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6284903243C23ED63B2B5F55FBD1B76EE7BFD6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145726   (619821) от 26.06.2017
+
+The Brian Jonestown Massacre - Don't Get Lost (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Minds Now Close (8:16)
+02. Melodys Actual Echo Chamber (3:50)
+03. Resist Much Obey Little (4:03)
+04. Charmed I'm Sure , (3:00)(   Читать дальше...   )Жанр: Indie Rock, PsychedelicПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C162081A6BD7AFEAFF68E3006C47781B29A7475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036572   (619089) от 21.07.2016
 
 Roy Orbison - Anthology (2013) 3CD [FLAC|Lossless|image + .cue] <Classic Rock, Rock & Roll, Pop>
@@ -6,7 +157,7 @@ Roy Orbison - Anthology (2013) 3CD [FLAC|Lossless|image + .cue] <Classic Rock, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619089.jpg" />
+  <img src="Z:/picture/008/save_picture_619089.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ Status Quo - The Very Best (1994) Unofficial Release [APE|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618979.jpg" />
+  <img src="Z:/picture/008/save_picture_618979.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ Suzi Quatro - Back To The... Spotlight (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618304.jpg" />
+  <img src="Z:/picture/008/save_picture_618304.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Zingale - Peace (1977) 2015, Belle Antique [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618230.jpg" />
+  <img src="Z:/picture/008/save_picture_618230.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ Visitors - 2 Albums (1977-1981) [FLAC|Lossless|image + .cue] <Eclectic Prog, Spa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617286.jpg" />
+  <img src="Z:/picture/008/save_picture_617286.jpg" />
 </div>
 
 
@@ -150,7 +301,7 @@ Planestrider - A Light Through The Dim (2022) [FLAC|Lossless|WEB-DL|tracks] <Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616721.jpg" />
+  <img src="Z:/picture/008/save_picture_616721.jpg" />
 </div>
 
 
@@ -179,7 +330,7 @@ The Light In The Ocean - The Pseudo - Scientific Study of Oceanic Neo - Cryptid 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616717.jpg" />
+  <img src="Z:/picture/008/save_picture_616717.jpg" />
 </div>
 
 
@@ -208,7 +359,7 @@ Houston - III (2017) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616705.jpg" />
+  <img src="Z:/picture/008/save_picture_616705.jpg" />
 </div>
 
 
@@ -237,7 +388,7 @@ The Light In The Ocean - Deep Reef Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616699.jpg" />
+  <img src="Z:/picture/008/save_picture_616699.jpg" />
 </div>
 
 
@@ -266,7 +417,7 @@ Darkher - The Buried Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Oc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616673.jpg" />
+  <img src="Z:/picture/008/save_picture_616673.jpg" />
 </div>
 
 
@@ -295,7 +446,7 @@ Colosseum - Restoration (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616664.jpg" />
+  <img src="Z:/picture/008/save_picture_616664.jpg" />
 </div>
 
 
@@ -324,7 +475,7 @@ The Marlboro Men - It Ain't a Hunting Party Till Something Gets Broken (2022) [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616537.jpg" />
+  <img src="Z:/picture/008/save_picture_616537.jpg" />
 </div>
 
 
@@ -353,7 +504,7 @@ Billy Joel - 50 Years of the Piano Man (1973) Remaster, 2022, Columbia Records [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616393.jpg" />
+  <img src="Z:/picture/008/save_picture_616393.jpg" />
 </div>
 
 
@@ -382,7 +533,7 @@ Elton John - Reg Strikes Back (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616205.jpg" />
+  <img src="Z:/picture/008/save_picture_616205.jpg" />
 </div>
 
 
@@ -411,7 +562,7 @@ The Beatles - Хрестоматия (1958-1996) Unofficial Box-Set, 24CD /2003,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616001.jpg" />
+  <img src="Z:/picture/008/save_picture_616001.jpg" />
 </div>
 
 
@@ -441,7 +592,7 @@ Clepsydra - More Grains Of Sand (1994) [FLAC|Lossless|image + .cue]<Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615711.jpg" />
+  <img src="Z:/picture/008/save_picture_615711.jpg" />
 </div>
 
 
@@ -470,7 +621,7 @@ Jethro Tull - A Passion Play (An Extended Performance) (2014) 2CD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615586.jpg" />
+  <img src="Z:/picture/008/save_picture_615586.jpg" />
 </div>
 
 
@@ -499,7 +650,7 @@ Secret - The End Of The Road (2014) Japanese Edition [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615001.jpg" />
+  <img src="Z:/picture/008/save_picture_615001.jpg" />
 </div>
 
 
@@ -528,7 +679,7 @@ Dead End Space - Cosmic Comedian (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614902.jpg" />
+  <img src="Z:/picture/008/save_picture_614902.jpg" />
 </div>
 
 
@@ -557,7 +708,7 @@ Neil Young And Crazy Horse - Americana (2012) [FLAC|Lossless]<Rock /Country / We
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_614741.jpg" />
+  <img src="Z:/picture/005/save_picture_614741.jpg" />
 </div>
 
 
@@ -592,7 +743,7 @@ District 97 - In Vaults (2015) [FLAC|tracks+.cue]<Progressive Rock, Crossover Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614587.jpg" />
+  <img src="Z:/picture/008/save_picture_614587.jpg" />
 </div>
 
 
@@ -606,151 +757,6 @@ District 97 - In Vaults (2015) [FLAC|tracks+.cue]<Progressive Rock, Crossover Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B6BA10614140B0BA042F0F993D0C0A73962719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037330   (613860) от 24.07.2016
-
-VA - Real Raw Rockabilly (2015) 2CD [FLAC|Lossless|image + .cue] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vince Taylor & His Playboys - Brand New Cadillac (2:37)
-02. Johnny Burnette - Honey Hush (2:01)
-03. Gene Vincent - Race With The Devil (2:03)
-04. Johnny Carroll & His Hot Rocks - Hot Rock (2:17)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 01:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6FD3C3048F668BE04CFDC410D14A6BDFBA2464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295788   (613578) от 16.04.2019
-
-Bruit Noir - II / III (2019) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M1
-02. Les Succès
-03. M2
-04. Paris(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F84EE0B2192B6A2BED0727FC2CFB8438F3A8C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295422   (613459) от 16.04.2019
-
-Rod Stewart - A Spanner In The Works (1995) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Windy Town
-02. The Downtown Lights
-03. Leave Virginia Alone
-04. Sweetheart Like You(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB42761796E49BA3BF5FBA58633B5F600B1CF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296305   (613308) от 16.04.2019
-
-Pink Floyd - The Division Bell (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cluster One (5:57)
-02. What Do You Want From Me (4:24)
-03. Poles Apart (7:02)
-04. Marooned (5:31)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05225DF79EE422DB793F460A5396F85D2F99BC77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146521   (612962) от 30.06.2017
-
-Innerspace - The Village (2012) [FLAC|Lossless|image + .cue]<Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Land of Hope
-03. Wild Flower
-04. Mister Mayor(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984119136E3E8C53D951A14C562EED99AAFC1B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1478986   (1009894) от 21.06.2021
+
+Лука / Luca (2021) WEB-DLRip [H.264] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незабываемые каникулы, в которых есть место и домашней пасте, и мороженому, и бесконечным поездкам на мопеде мальчик по имени Лука проводит в красивом приморском городке, расположенном на итальянской Ривьере. Ни одно приключение Луки не обходится без участия его нового лучшего друга, и беззаботность отдыха омрачает только лишь тот факт, что на самом деле в облике (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, семейный, приключения, комедия, фэнтезиРежиссер: Энрико КасаросаАктеры: Джейкоб Тремблей, Джек Дилан Грейзер, Саша Барон Коэн, Майя Рудольф, Джакомо Джианниотти, Джим Гэффиган, Сэнди Мартин, Эмма Берман, Франческа Фанти, Джино Д АкампоПеревод: Любительский многоголосый (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (full), Английские (SDH)Продолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7207710E0874004EEDE3C9F23B0C93B0FE32092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482497   (1007453) от 09.07.2021
+
+Истоки анимации.  Дад сбегает из дома / Dud Leaves Home (1919) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снова Дад-мечтатель. Что необходимо для того, чтобы ухаживать за девушкой? Правильно - денежки. Во всяком случае в Америке точно. Вот и у Дада эта проблема.Производство: СШАЖанр: Анимация, короткометражный, немое кино.Режиссер: Уоллес А. КарлсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380E9C58386FD8B7C9341505CC8C032FD105848F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482844   (1007213) от 10.07.2021
+
+Босс-молокосос 2 / The Boss Baby: Family Business (2021) WEB-DLRip [DVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение семейной мультипликационной комедии 2017 года о высокоинтеллектуальных младенцах – сотрудниках небесной корпорации по «производству и выпуску» детей. Умники в пеленках, лишенные детства, снова внедряются в обычные семьи.Производство: США / DreamWorks AnimationЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Том МакГратАктеры: Алек Болдуин, Джеймс Марсден, Эми Седарис, Ариана Гринблатт, Джефф Голдблюм, Ева Лонгория, Джеймс МакГрат, Джимми Киммел, Лиза Кудроу, Рафаэль АлехандроПеревод: Двухголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: Русские (full) - отдельноПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8F59E72182FB9455E56CEFAAAAF49E87DFF78F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483261   (1007015) от 12.07.2021
 
 Истоки анимации. Первый цирк / The First Circus (1921) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007015.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007004.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006944.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005057.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003740.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003408.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003305.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003261.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002782.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999893.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999254.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998830.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998519.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996977.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996581.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996407.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996366.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996351.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996017.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995999.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995752.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995481.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995434.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A3331A9AE130361A8C57FA31A520CD6D9A50C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605730   (995422) от 20.01.2013
-
-История игрушек: Большой побег / Toy Story 3 (2010) [H.264] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энди почти 18 лет, ему остаётся 3 дня до отправки в колледж, в то время как его игрушки, в том числе Вуди и Базз Лайтер, гадают о своём будущем.  Куда забросит их судьба? На чердак, на свалку или, может быть, в детский сад «Солнышко»?  События развиваются в самом неожиданном направлении, и приключения полюбившихся героев продолжаются!Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Ли Анкрич / Lee UnkrichАктеры: Том Хэнкс / (Tom Hanks), Тим Аллен / (Tim Allen), Джоан Кьюсак / (Joan Cusack), Нед Битти / (Ned Beatty), Дон Риклз / (Don Rickles), Майкл Китон / (Michael Keaton), Уоллес Шоун / (Wallace Shawn), Джон Ратценбергер / (John Ratzenberger)
->>Создатели фильма<<Перевод: Дублированный, АвторскийСубтитры: Русские, Украинские, Английские, Русские, Украинские, Английские, АнглийскиеПродолжительность: 01:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C40403A6AE0BEC18051C607A44F5FFD2C4C918C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605647   (995376) от 20.01.2013
-
-Тэд Джонс и Затерянный город  / Las aventuras de Tadeo Jones (2012) [H.264] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тэд — обычный чикагский строитель, страстно мечтающий о невероятных открытиях и опасных приключениях. Однажды его по ошибке принимают за известного археолога и отправляют в Перу на поиски сокровищ инков. Радости Тэда не было предела, но, похоже, она оказалась преждевременной…Производство: Испания, Ikiru Films S.L., Lightbox Entertainment, Telecinco Cinema, Telefónica ProduccionesЖанр: Мультфильм, приключения, семейныйРежиссер: Энрике ГатоПерсонажи: Оскар Барберан, Меритксель Ане, Карлес Канут, Фиона Глэскотт, Адам Джеймс, Мишель Хеннер, Мигель Анхель Дженнер, Энрикета Линарес, Мак МакДональд, Брюс Маккиннон...Перевод: Дублированный (лицензия)Язык субтитров: РусскиеПродолжительность: 1:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51B9E3E145C80984CF79C5C389D0D12790D9354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606648   (995024) от 21.01.2013
-
-Тэд Джонс и Затерянный город 3D / Las aventuras de Tadeo Jones (2012) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тэд — обычный чикагский строитель, страстно мечтающий о невероятных открытиях и опасных приключениях. Однажды его по ошибке принимают за известного археолога и отправляют в Перу на поиски сокровищ инков. Радости Тэда не было предела, но, похоже, она оказалась преждевременной…Производство: Telecinco Cinema / Lightbox EntertainmentЖанр: Мультфильм, приключения, семейныйРежиссер: Энрике ГатоАктеры: Оскар Барберан, Меритксель Ане, Мак МакДональд, Фиона Глэскотт, Карлес Канут, Адам Джеймс, Мишель Хеннер, Мигель Анхель Дженнер, Энрикета Линарес, Брюс МаккиннонПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0412A61A56380A9B2CA6F0C5ACB344EE9D4CB79C
 ```
 
 https://mybot314.ru/tekegram_catalog/

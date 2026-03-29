@@ -6,7 +6,7 @@ PicturesToExe Deluxe 9.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868123.jpg" />
+  <img src="Z:/picture/008/save_picture_868123.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Chill Top 50 - Armada Music (2017) [FLAC|Lossless|tracks] <Downtempo, Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868115.jpg" />
+  <img src="Z:/picture/008/save_picture_868115.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ xrecode II Build 1.0.0.230 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868083.jpg" />
+  <img src="Z:/picture/008/save_picture_868083.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868077.jpg" />
+  <img src="Z:/picture/008/save_picture_868077.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868076.jpg" />
+  <img src="Z:/picture/008/save_picture_868076.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Rainmeter 3.3.1 Build 2602 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868072.jpg" />
+  <img src="Z:/picture/008/save_picture_868072.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sony Xperia Companion 2.14.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868031.jpg" />
+  <img src="Z:/picture/008/save_picture_868031.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ GeoGebra 6.0.665.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868030.jpg" />
+  <img src="Z:/picture/008/save_picture_868030.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Telegram Desktop 3.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868029.jpg" />
+  <img src="Z:/picture/008/save_picture_868029.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Pixelmator Pro 2.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868028.jpg" />
+  <img src="Z:/picture/008/save_picture_868028.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ FreeFileSync 11.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868025.jpg" />
+  <img src="Z:/picture/008/save_picture_868025.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rainlendar Lite 2.17 Build 169 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868016.jpg" />
+  <img src="Z:/picture/008/save_picture_868016.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Freeplane 1.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868015.jpg" />
+  <img src="Z:/picture/008/save_picture_868015.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PDF Reader Pro Edition 2.8.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868013.jpg" />
+  <img src="Z:/picture/008/save_picture_868013.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868002.jpg" />
+  <img src="Z:/picture/008/save_picture_868002.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ BurnAware Professional 10.1 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868001.jpg" />
+  <img src="Z:/picture/008/save_picture_868001.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867999.jpg" />
+  <img src="Z:/picture/008/save_picture_867999.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Punto Switcher 4.3.5 Build 1815 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867993.jpg" />
+  <img src="Z:/picture/008/save_picture_867993.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867992.jpg" />
+  <img src="Z:/picture/008/save_picture_867992.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867978.jpg" />
+  <img src="Z:/picture/008/save_picture_867978.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867968.jpg" />
+  <img src="Z:/picture/008/save_picture_867968.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867961.jpg" />
+  <img src="Z:/picture/008/save_picture_867961.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Adobe Prelude CC 2015.3 4.3.0 (19) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867958.jpg" />
+  <img src="Z:/picture/008/save_picture_867958.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867954.jpg" />
+  <img src="Z:/picture/008/save_picture_867954.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867942.jpg" />
+  <img src="Z:/picture/008/save_picture_867942.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Far Manager  3.0.5888 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867873.jpg" />
+  <img src="Z:/picture/008/save_picture_867873.jpg" />
 </div>
 
 

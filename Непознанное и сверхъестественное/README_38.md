@@ -1,3 +1,55 @@
+###  Публикация: 969218   (148079) от 26.12.2015
+
+Битва экстрасенсов. Сезон №16. Выпуск №15. Финал (2015) SATRip
+
+>>След.
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148079.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 сентября на ТНТ стартует 16-й сезон «Битвы экстрасенсов». В этом году среди желающих попасть на 16-й сезон «Битвы экстрасенсов» необычных людей было больше, чем когда-либо. Уже сейчас понятно: 16-я «Битва» будет ну очень запоминающейся! Их создатели пока держат в строжайшем секрете. Съемки уже идут, и экстрасенсы не должны узнать заранее, что для них готовят. (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930EC7654C7D444DC9D6A0055825C04A68769C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435055   (147831) от 26.12.2020
+
+Битва экстрасенсов (26.12.2020) WEB-DL [H.264/720p-LQ] (сезон 21, выпуск 14)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147831.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ТНТ стартует 21-й сезон «Битвы экстрасенсов» – проекта, который навсегда изменил представление людей об экстрасенсорике и человеческих возможностях. Из-за пандемии в этом году кастинг в 21-й сезон «Битвы экстрасенсов» впервые был полностью дистанционный. Его можно было пройти по видеосвязи – не выходя из дома, из любой точки мира, из любой деревни или села, везде, (   Читать дальше...   )Производство: ТНТЖанр: ТВ-шоуЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F069EF777F696DCBE1FD613FAD4B547D9C1EBBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413336   (146916) от 26.12.2020
 
 Битва экстрасенсов (2020) SATRip (сезон 21, выпуски 1-14 из 14)
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146916.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146820.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146184.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146013.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145302.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143020.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142308.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141465.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140503.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140168.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138182.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138062.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137906.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137589.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132983.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132949.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132586.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132477.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129986.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129520.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129488.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129481.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127442.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127258.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D846E057CECD2E7CFD6B4A1F4BF4E76C00833D9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686711   (126499) от 23.12.2023
-
-Экстрасенсы. Битва сильнейших (23.12.2023) WEBRip [H.264/1080p] (сезон 1, выпуск 29)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126499.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом шоу ТНТ «Экстрасенсы. Битва сильнейших» за право стать лучшим сражаются самые яркие участники легендарной «Битвы экстрасенсов». Самые сильные победители и финалисты «Битвы» приняли вызов продюсеров и согласились еще раз доказать свои способности.
-«Экстрасенсы. Битва сильнейших» – это турнир, в котором лучшие из лучших показывают свою силу и эзотерические (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833D00207044E4A04C7C53999CB95D84B3712C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686931   (125759) от 25.12.2023
-
-Искатели. Меч-кладенец. Между былью и вымыслом (2023) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оружие грозное и непобедимое, от одного вида которого противник бежал врассыпную. Согласно легендам и преданиям, послужной список у этого волшебного клинка выглядит более чем внушительно: в 1149 году он помог князю Андрею Боголюбскому одержать победу в бою, чуть позже князь Пётр, верный супруг Февронии, именно мечом-кладенцом зарубил коварного Змея, им же сокрушал (   Читать дальше...   )Производство: Россия, телеканал «КУЛЬТУРА»Жанр: документальный, телепередача, журналистское расследованиеЯзык озвучки: РусскийПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0ACF55FA993C4B1368B934E377ED86F5C0D6CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

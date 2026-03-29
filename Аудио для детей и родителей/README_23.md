@@ -1,3 +1,82 @@
+###  Публикация: 1506506   (800174) от 31.10.2021
+
+Анна Овчинникова | Территория F. Принц, нищий и планета Везуха (2021) [MP3, Дмитрий Филимонов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Роберта по прозвищу «скиолитовый король» – могущественный человек: он мультимиллиардер, владелец собственного космического города и стоит у руля целой промышленной империи по добыче энергетических кристаллов-скиолитов. Но десятилетний Роберт – обычный мальчик, и в голове у него то же, что и у других мальчишек: приключения, тайны и преодоление опасностей. У него (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 08:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673000E71E8775A28AE850C74B0B002064FA6156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506531   (800099) от 31.10.2021
+
+Сергей Пефтеев | Территория F. В плену у Жадности (2021) [MP3, Дмитрий Филимонов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Пефтеев – молодой разноплановый писатель-фантаст. Он решил попробовать себя и в детской литературе и преуспел, попав с повестью «В плену у Жадности» в финал конкурса «Территория F». Представляем эту повесть в аудиоформате.
+Денису Арханову всего четырнадцать, но он уже добился многого. Мальчик – вундеркинд. После сдачи экстерном всех школьных экзаменов его (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 04:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52ED2AEA46615E7C6C3AFAE7E802A98319F4075E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273401   (799837) от 02.01.2019
+
+Дмитрий Емец | Космический пират Крокс-2. Сердце пирата (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крылатый ежик с планеты Синего Кефира способен выполнить любое желание своего хозяина! К счастью, Андрею, его другу – роботу Баюну и девочке Лависсе удалось опередить космического пирата Крокса, забрать ежика к себе и бежать от пирата с помощью пространственного перемещателя. Но не так просто вырваться с Неизвестной планеты, на которую попадают верные друзья. На (   Читать дальше...   )Жанр: фантастика, детская литератураПродолжительность: 07:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36855D52B46683688A52EAD0F63F4B0258F7E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273404   (799836) от 02.01.2019
 
 Дмитрий Емец | Космический пират Крокс-3. Возвращение космического пирата (Гладиатор забытых созвездий)  (2018) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799836.jpg" />
+  <img src="Z:/picture/008/save_picture_799836.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799833.jpg" />
+  <img src="Z:/picture/008/save_picture_799833.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799772.jpg" />
+  <img src="Z:/picture/008/save_picture_799772.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798482.jpg" />
+  <img src="Z:/picture/008/save_picture_798482.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ DeAgostini Disney | Волшебные сказки Disney (2020) [MP3, DeAgosti
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797965.jpg" />
+  <img src="Z:/picture/008/save_picture_797965.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797791.jpg" />
+  <img src="Z:/picture/008/save_picture_797791.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ VA - Jazz For Kids - Sing, Clap, Wiggle, And Shake (2004) [MP3|320 Kbps]<Джа�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797198.jpg" />
+  <img src="Z:/picture/008/save_picture_797198.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797104.jpg" />
+  <img src="Z:/picture/008/save_picture_797104.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796586.jpg" />
+  <img src="Z:/picture/008/save_picture_796586.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795669.jpg" />
+  <img src="Z:/picture/008/save_picture_795669.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795274.jpg" />
+  <img src="Z:/picture/008/save_picture_795274.jpg" />
 </div>
 
 
@@ -301,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795240.jpg" />
+  <img src="Z:/picture/008/save_picture_795240.jpg" />
 </div>
 
 
@@ -327,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794732.jpg" />
+  <img src="Z:/picture/008/save_picture_794732.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794321.jpg" />
+  <img src="Z:/picture/008/save_picture_794321.jpg" />
 </div>
 
 
@@ -379,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794012.jpg" />
+  <img src="Z:/picture/008/save_picture_794012.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793679.jpg" />
+  <img src="Z:/picture/008/save_picture_793679.jpg" />
 </div>
 
 
@@ -434,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793626.jpg" />
+  <img src="Z:/picture/008/save_picture_793626.jpg" />
 </div>
 
 
@@ -460,7 +539,7 @@ VA - The Mozart Effect - Music for Moms & Moms-to-be (2000) [MP3|320 Kbps]<Де�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793354.jpg" />
+  <img src="Z:/picture/008/save_picture_793354.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793163.jpg" />
+  <img src="Z:/picture/008/save_picture_793163.jpg" />
 </div>
 
 
@@ -517,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793151.jpg" />
+  <img src="Z:/picture/008/save_picture_793151.jpg" />
 </div>
 
 
@@ -543,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792971.jpg" />
+  <img src="Z:/picture/008/save_picture_792971.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792946.jpg" />
+  <img src="Z:/picture/008/save_picture_792946.jpg" />
 </div>
 
 
@@ -595,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792937.jpg" />
+  <img src="Z:/picture/008/save_picture_792937.jpg" />
 </div>
 
 
@@ -606,88 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B92DBA911AFDAAC991151EFC9BE7601D22E093E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509876   (792931) от 14.11.2021
-
-Эми Тимберлейк | Скунс и Барсук (2021) [MP3, Игорь Князев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могут ли две противоположности стать настоящими друзьями?
-Барсук живёт в большом доме из красного кирпича. У него Важная Камнеработа и ни минуты свободного времени. А ещё он не любит беспорядок и непрошенных гостей. Но в какой-то момент его жизнь совершенно меняется. Ведь в дверь его дома из красного кирпича постучал Скунс. Вместе с ним начали появляться и другие (   Читать дальше...   )Жанр: Детская прозаПеревод: с англ. Анна Дивавина, Екатерина ЮнгерПродолжительность: 03:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAF9AF7B302C855F87EB663E1D212D372DA557B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387144   (792642) от 31.05.2020
-
-Дмитрий Воскресенский - Сырная луна (2011) [MP3|256 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792642.jpg" />
-</div>
-
-
-###  Подробнее
-
-1+/-10. Сырная луна
-2+/-11. Винни-пух
-3+/-12. День рождения носорожика
-4+/-13. Удивительные гномики(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601BC7707AF942C1BC83903B7211C395DF516167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387064   (792575) от 31.05.2020
-
-Наталья Широкова | Волшебные сказки о детях-героях (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли 30 сказок, в основе которых лежат реальные истории подвигов и добрых поступков современных детей. Своими примерами они доказывают: героем можно стать без магии и суперспособностей, если быть неравнодушным. Книгу выпустила команда проекта «Подвиги обычных людей».Жанр: детские рассказы, сказкиПродолжительность: 03:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0598BFED8CB80166CB7CF7C1849F348AEEEA9EDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

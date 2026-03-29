@@ -1,3 +1,139 @@
+###  Публикация: 1041356   (582167) от 09.08.2016
+
+Нетология | Работа со сложными клиентами (2016) WEB-DL
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рост продаж и развитие бизнеса во многом зависят от клиентов. Но далеко не все из них легко идут на контакт, соглашаются с предложенными решениями и аргументированно высказывают критику. «Может ли сложный клиент стать лояльным к компании?» — вопрос, которым задаются многие менеджеры.
+
+Этот курс о работе со сложными клиентами ориентирован на аккаунт-менеджеров и руководителей (   Читать дальше...   )Жанр: Бизнес, продажи, менеджментПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE2FC268D69D1AD04CC5A6A623E2F91B90F6D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041344   (582135) от 09.08.2016
+
+Федор Васильев | Прибыльный интернет магазин на Joomla + Joomlakassa (2016) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите продавать через интернет, вам нужен интернет-магазин? Но заказать у студии очень дорого! Создайте интернет-магазин своими руками. Движок Joomla лучшая платформа для создания интернет-магазинов. Русский компонент интернет-магазина «Joomlakassa» Компонент создан российскими разработчиками, он полностью на русском языке. Прост в использовании, имеет интуитивный (   Читать дальше...   )Производство: РоссияЖанр: Веб-разработка, Frontend, Joomla 3Продолжительность: 10:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CCAED497C074F611A30332AB46ADE36AB71BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041353   (581179) от 10.08.2016
+
+Тимур Батыршинов | Java-профессионал за 60 дней (2014) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеокурс по изучению Java пошагово на видеопримерах научит вас программировать профессионально за 2 месяца. Даже самые скептически настроенные новички, начинают чувствовать себя уверенно при изучении Java по данной методике.
+
+Видеокурс содержит информацию, которую профессионалы часто скрывают или уделяют ей мало внимания, заостряя внимание на второстепенные и прикладные (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 15:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8568DCC5BEC871A59E6E26ED383330227C951870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919963   (580759) от 21.07.2015
+
+Udemy.com | Infinite Skills | Написание безопасного PHP-кода. Уроки о защите. | Writing Secure PHP Code - PHP Security Tutorial (2014) PCRec [H.264/720p] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это обучающее видео о безопасности в PHP-программировании, которое расскажет вам о защите веб-сайтов и о том, какие превентивные меры вы можете принять. Этот курс предназначен для пользователей, которые уже имеют практические знания PHP и MySQL.
+Вы начнете с изучения наиболее распространенных форм атак и рассказе о том, какие последствия могут случиться, если ваш (   Читать дальше...   )Жанр: Программирование, PHP, Web-защитаПродолжительность: 05:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598FC984774841961C14843B049F391E32FD33FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919999   (580684) от 21.07.2015
+
+Geekbrains | YII2 framework. Профессиональная разработка на веб (2015) PCRec [H.264/720p]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс рассчитан на тех, кто уже работал с PHP хотя бы на базовом уровне и знаком с ООП. В курсе будем работать с версией Advanced.
+После прохождения курса Вы получите полное представление о фреймворке и его возможностях.Жанр: Вэб-программированиеПродолжительность: 13:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440338730DCD196623F787536682427866EFDD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042028   (580148) от 11.08.2016
 
 ProfiT | JavaScript с самого начала (2016) WEBRip
@@ -6,7 +142,7 @@ ProfiT | JavaScript с самого начала (2016) WEBRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580148.jpg" />
+  <img src="Z:/picture/008/save_picture_580148.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580138.jpg" />
+  <img src="Z:/picture/008/save_picture_580138.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ Oleg Lav | Создание образа системы — Acronis True Image (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579797.jpg" />
+  <img src="Z:/picture/008/save_picture_579797.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ Udemy.com | Hacking School & IT Security Academy | Практический вз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579694.jpg" />
+  <img src="Z:/picture/008/save_picture_579694.jpg" />
 </div>
 
 
@@ -111,7 +247,7 @@ Oleg Lav | Создание UEFI флешки на основе WINPE с Acronis
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578622.jpg" />
+  <img src="Z:/picture/008/save_picture_578622.jpg" />
 </div>
 
 
@@ -137,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578265.jpg" />
+  <img src="Z:/picture/008/save_picture_578265.jpg" />
 </div>
 
 
@@ -163,7 +299,7 @@ Thinknetica | Ruby on Rails c нуля (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577687.jpg" />
+  <img src="Z:/picture/008/save_picture_577687.jpg" />
 </div>
 
 
@@ -192,7 +328,7 @@ Oleg Lav | Восстановление системы при загрузке �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576985.jpg" />
+  <img src="Z:/picture/008/save_picture_576985.jpg" />
 </div>
 
 
@@ -218,7 +354,7 @@ Oleg Lav | RollBack Rx — Машина Времени для вашего ко�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576902.jpg" />
+  <img src="Z:/picture/008/save_picture_576902.jpg" />
 </div>
 
 
@@ -244,7 +380,7 @@ JavaBegin | iOS и Swift (2017-2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575638.jpg" />
+  <img src="Z:/picture/008/save_picture_575638.jpg" />
 </div>
 
 
@@ -270,7 +406,7 @@ Geekbrains | Профессия SMM менеджер (2018) PCRec [H.264/720p-LQ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575620.jpg" />
+  <img src="Z:/picture/008/save_picture_575620.jpg" />
 </div>
 
 
@@ -298,7 +434,7 @@ wpa.at.ua | Проверь свою WI-FI сеть на устойчивость
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574101.jpg" />
+  <img src="Z:/picture/008/save_picture_574101.jpg" />
 </div>
 
 
@@ -327,7 +463,7 @@ JavaBegin | Android (2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574075.jpg" />
+  <img src="Z:/picture/008/save_picture_574075.jpg" />
 </div>
 
 
@@ -353,7 +489,7 @@ prog.kiev.ua | Java профессионал (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573973.jpg" />
+  <img src="Z:/picture/008/save_picture_573973.jpg" />
 </div>
 
 
@@ -382,7 +518,7 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573864.jpg" />
+  <img src="Z:/picture/008/save_picture_573864.jpg" />
 </div>
 
 
@@ -408,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573263.jpg" />
+  <img src="Z:/picture/008/save_picture_573263.jpg" />
 </div>
 
 
@@ -434,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573235.jpg" />
+  <img src="Z:/picture/008/save_picture_573235.jpg" />
 </div>
 
 
@@ -461,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571889.jpg" />
+  <img src="Z:/picture/008/save_picture_571889.jpg" />
 </div>
 
 
@@ -490,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571884.jpg" />
+  <img src="Z:/picture/008/save_picture_571884.jpg" />
 </div>
 
 
@@ -519,7 +655,7 @@ Udemy, YouRa Allakhverdov | Python разработка - с нуля до пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571706.jpg" />
+  <img src="Z:/picture/008/save_picture_571706.jpg" />
 </div>
 
 
@@ -547,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570014.jpg" />
+  <img src="Z:/picture/008/save_picture_570014.jpg" />
 </div>
 
 
@@ -559,139 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A0294CF9FDFF4CF4BC842C45C964FC37ABF3E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151031   (570012) от 20.07.2017
-
-Foxford | Язык C++ (2016-2017) PCRec [H.264/1080p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык программирования C был разработан в начале 1970-х годов как язык системного программирования для операционной системы Unix. В 1990-х годах на его основе был создан язык программирования С++, поддерживающий концепции объектно-ориентированного и обобщённого программирования. В начале курса мы будем изучать темы, общие для языков С и C++ — синтаксис языка, стандартные (   Читать дальше...   )Производство: Россия / ФоксфордЖанр: Программирование, C++Продолжительность: ~02:00:00 урок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518462645333D0D04E53E0FB3F885493E1A583B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555018   (569917) от 03.06.2022
-
-Udemy, Stephen Ulibarri | Unreal Engine 5 C++ Multiplayer Shooter (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте все о многопользовательской игре на движке Unreal Engine в этом полном курсе на C++. С нуля мы создадим полноценную многопользовательскую игру-шутер, способную создавать и присоединяться к игровым сессиям и соединять множество игроков через Интернет. Мы создадим свой собственный плагин, который можно добавить в любой проект Unreal Engine, чтобы легко превратить (   Читать дальше...   )Производство: UdemyЖанр: Unreal Engine, C++Язык озвучки: АнглийскийПродолжительность: 51:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0E99849DEDB10FF57C487A4DC0B48F2DED9437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555295   (569904) от 03.06.2022
-
-Udemy, Наиль Алишев | Spring - Полный курс. Boot, Hibernate, Security, REST. (2022) WEB-DL [RU]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spring Framework - очень востребованный и популярный инструмент, который используется для бэкенд разработки в компаниях по всему миру. Spring - самый популярный Java фреймворк и в большинстве вакансий для Java разработчиков будет значится именно эта технология. Популярность Spring обусловлена большой имеющейся кодовой базой, огромным количеством библиотек, развитым (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 26:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E982486AC731C1B6681D5D9FA9967C4B90E50B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812910   (568469) от 15.08.2014
-
-Profileschool | Маски. Практика применения (2014) [PCRec]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568469.jpg" />
-</div>
-
-
-###  Подробнее
-
-В это занятие вошли лучшие материалы из предыдущих мастер классов «Masks. Работа с масками.» и «Masks 2.0. Практика применения.» Мы кратко поговорим о том, что такое маска, а потом перейдем к самому интересному — как сделать качественную маску максимально быстро с минимальными затратами ручного труда. Обсудим как в каналах изображения найти заготовку для маски, как (   Читать дальше...   )Жанр: Фото, маскиПродолжительность: 04:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9203838C102D47052015B61C15D2C47AC6649B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555635   (568457) от 04.06.2022
-
-Студия Миши Рудрастых, Миша Рудрастых | Курс по созданию плагина для WooCommerce (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568457.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы не только научитесь создавать плагины для WordPress, но и сделаете это на примере плагина-расширения для WooCommerce, глубоко изучив особенности этого движка для интернет-магазинов.
-
-Программа курса:
-Основы разработки плагина для WooCommerce(   Читать дальше...   )Производство: Студия Миши РудрастыхЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68A5C3E9E64D2F7B549C297BA46FF3054E43469
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,195 @@
+###  Публикация: 1587281   (192951) от 30.10.2022
+
+Формула 1. Сезон 2022. Этап 20. Гран-при Мексики. Квалификация (29.10.2022) IPTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192951.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 октября 2022, суббота. 23:00 МСК
+Гран-при Мексики. Квалификация. Этап 20
+Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Setanta SportsЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD2F1679A1FEBC86D994BD246FB730F5E601103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587385   (192912) от 30.10.2022
+
+Футбол. Чемпионат Франции. Лига 1. 2022-2023. 13-й тур. ПСЖ - Труа (29.10.2022) IPTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192912.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 октября 2022, суббота. 18:00 МСК
+Стадион: Парк де Пренс (Париж, Франция), вместимость: 48713
+Чемпионат Франции 2022-2023. 13-й тур. ПСЖ — Труа
+Главный судья: Эрик Ваттеллье (Франция)Телекомпания: Setanta Sports 1 HDЖанр: Спорт. ФутболЯзык озвучки: РусскийСубтитры: отсутствуют
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB141EDF9448AE3C13EE74DB6FFDD584CC9E784F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587392   (192847) от 30.10.2022
+
+Бокс. Василий Ломаченко - Джемейн Ортис / Vasiliy Lomachenko vs Jamaine Ortiz (29.10.2022) WEBRip [H.264/1080i] [POL]
+
+>>Спорт и активный отдых
+>>Бокс
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Ломаченко (16-2, 11 КО) vs Джемейн Ортис (16-0-1, 8 КО)
+Бой за титул чемпиона Северной Америки по версии NABF в лёгком весе (до 61,2 кг)Телекомпания: Polsat sportЖанр: Спорт, БоксЯзык озвучки: ПольскийСубтитры: отсутствуют
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2159658B45609ADCFD4FB484341A8A891F544F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587401   (192838) от 30.10.2022
+
+Смешанные единоборства. UFC Fight Night 213: Келвин Кэттер - Арнольд Аллен / UFC Fight Night 213: Kattar vs. Allen. Full Event (29.10.2022) WEB-DLRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192838.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 октября в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC Fight Night 213. В главном бою вечера пятый номер рейтинга полулёгкой весовой категории Келвин Кэттер встретился с шестым в списке лучших бойцов дивизиона Арнольдом Алленом. В прелимах выступили Роман Долидзе и Андрей Орловский. Грузинский боец столкнулся с Филиппом Хоузом, а (   Читать дальше...   )Телекомпания: UFC Fight Pass.Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 05:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FD0AF48A5AE3B578C529D9C7BFFB538E6FFAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657514   (192726) от 03.09.2023
+
+MotoGP. Этап 11. Гран-при Каталонии. Гонка (03.09.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192726.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 сентября 2023, воскресенье. 15:25 МСК. Этап 11 Барселона. Гран-при Каталонии. Гонка (24 круга)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93907274FDAF0820DDF4C5015A8A31191F1E0413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587579   (192725) от 31.10.2022
+
+Хоккей. НХЛ 2022-2023. Миннесота Уайлд - Чикаго Блэкхоукс (30.10.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192725.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 октября 2022, понедельник. 02:00 МСК. Стадион: Юнайтед-центр (Чикаго, США), 14 149 зрителей (63% при вместимости 22 428)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада)Телекомпания: NBCSCHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D25F7A90A7BA92EB1110C59448D33AD43B145EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587570   (192653) от 31.10.2022
+
+Формула 1. Сезон 2022. Этап 20. Гран-при Мехико. Гонка (30.10.2022) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 20. Арена: Автодром имени братьев Родригес (Мехико, Мексика)
+Гонка. 30 октября 2022, воскресенье.
+
+Попов в начале трансляции квалификации специально уточнил, что это именно Гран-при Мехико.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Русский (Вячеслав Кобржицкий), Украинский (Максим Подзигун), Грузинский, Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Субтитры: отсутствуютПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0F21964FFABD76CCE12872E26DEAAE45DC4947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587576   (192647) от 31.10.2022
 
 Формула 1. Сезон 2022. Этап 20. Гран-при Мексики. Гонка (30.10.2022) WEB-DL [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +198,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192647.jpg" />
+  <img src="Z:/picture/004/save_picture_192647.jpg" />
 </div>
 
 
@@ -32,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192602.jpg" />
 </div>
 
 
@@ -58,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192593.jpg" />
+  <img src="Z:/picture/004/save_picture_192593.jpg" />
 </div>
 
 
@@ -84,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192409.jpg" />
+  <img src="Z:/picture/004/save_picture_192409.jpg" />
 </div>
 
 
@@ -111,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192373.jpg" />
 </div>
 
 
@@ -137,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192174.jpg" />
 </div>
 
 
@@ -164,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192160.jpg" />
 </div>
 
 
@@ -193,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192153.jpg" />
 </div>
 
 
@@ -222,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192144.jpg" />
 </div>
 
 
@@ -251,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192135.jpg" />
 </div>
 
 
@@ -277,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192111.jpg" />
 </div>
 
 
@@ -304,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192105.jpg" />
 </div>
 
 
@@ -331,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192094.jpg" />
 </div>
 
 
@@ -358,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192026.jpg" />
 </div>
 
 
@@ -384,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191986.jpg" />
 </div>
 
 
@@ -410,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191861.jpg" />
 </div>
 
 
@@ -437,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191852.jpg" />
 </div>
 
 
@@ -466,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191850.jpg" />
 </div>
 
 
@@ -495,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191847.jpg" />
 </div>
 
 
@@ -509,192 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5741FAFA2E89E9537F3C606443B2803FE7F617E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588209   (191844) от 03.11.2022
-
-Футбол. Лига Чемпионов Online 2022/2023. Групповой этап. Тур 6. Обзор матчей (02.11.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол.Лига Чемпионов Online 2022/2023. Групповой этап. Тур 6. Обзор матчей (02.11.2022)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE24475514EDD7B57219C00FA572C16457EDEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588367   (191667) от 04.11.2022
-
-Хоккей. НХЛ 2022-2023. Сиэтл Кракен - Миннесота Уайлд (03.11.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191667.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 ноября 2022, пятница. 03:00 МСК. Стадион: Эксел Энерджи-центр (Сент-Пол, США), 17 221 зритель (89% при вместимости 19 326)
-Главный судья: Кевин Поллок (Кинкардин, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада)Телекомпания: BSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56408AFACF18BF6F86F9E7AD3ABC657B135C5336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588371   (191666) от 04.11.2022
-
-Хоккей. НХЛ 2022-2023. Вашингтон Кэпиталз - Детройт Ред Уингз (03.11.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191666.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 ноября 2022, пятница. 02:00 МСК. Стадион: Литтл Сизарс-арена (Детройт, США), 18 527 зрителей (93% при вместимости 20 000)
-Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: BSDETЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991FDA508A077C5256857EDD1737E80D6F5AEA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588700   (191415) от 05.11.2022
-
-MotoGP. Этап 20. Гран-при Валенсии. Квалификация (05.11.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191415.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 ноября 2022, суббота. 16:10 МСК. Этап 20, Испания. Гран-при Валенсии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588828   (191150) от 06.11.2022
-
-Хоккей. НХЛ 2022-2023. Сиэтл Кракен - Питтсбург Пингвинз (05.11.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191150.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 ноября 2022, воскресенье. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 302 зрителя (98% при вместимости 18 673)
-Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Конор О'Доннелл (Гамильтон, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2219C0F5A5153C4314B19A5528AB7AEE79B9B420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588825   (191148) от 06.11.2022
-
-Хоккей. НХЛ 2022-2023. Аризона Койотс - Вашингтон Кэпиталз (05.11.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191148.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 ноября 2022, воскресенье. 02:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Джон Макисаак (Труро, Канада); Главный судья: Франсис Шаррон (Оттава, Канада)Телекомпания: NBCSWAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F05F341E4E7AAF7B24544BFF55502493F4696A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588777   (191065) от 06.11.2022
-
-Бокс. Дмитрий Бивол — Хильберто Рамирес / Dmitry Bivol vs. Gilberto Ramirez (05.11.2022) WEB-DL [H.264/720p] [GER]
-
->>Спорт и активный отдых
->>Бокс
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191065.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 ноября в Абу-Даби (Объединённые Арабские Эмираты) пройдёт боксёрский вечер, организованный промоутерской компанией Matchroom Boxing. В главном поединке спортивного мероприятия чемпион мира по версии WBA в полутяжёлом весе (до 79,4 кг) непобеждённый россиянин Дмитрий Бивол (20-0, 11 KO) проведёт обязательную защиту титула с 31-летним представителем Мексики, также (   Читать дальше...   )Телекомпания: DAZNЖанр: Спорт, БоксЯзык озвучки: НемецкийСубтитры: отсутствуют
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E6F5BDB859B7C708ADE3860D9B7685601A9090
 ```
 
 https://mybot314.ru/tekegram_catalog/

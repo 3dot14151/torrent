@@ -1,3 +1,32 @@
+###  Публикация: 1543607   (629248) от 11.04.2022
+
+NeoSpace - Flying to the Stars (2022) [MP3|320 Kbps] <Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Departure (6:45)
+02. Flying to the Stars (6:18)
+03. Virtu or Fama (5:24)
+04. Collision Course (5:46)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F78D669E092F89F24C1322A292F19277D6EF2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294438   (628109) от 08.04.2019
 
 Toyah - Desire (серия "Другие восьмидесятые") (1987) Reissue, Remastered, 2015, Vertical Species [MP3|320 Kbps] <Avant-Pop, New Wave, Synthpop>
@@ -6,7 +35,7 @@ Toyah - Desire (серия "Другие восьмидесятые") (1987) Rei
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628109.jpg" />
+  <img src="Z:/picture/008/save_picture_628109.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ November Group - November Group (серия "Другие восьмидесят
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624105.jpg" />
+  <img src="Z:/picture/008/save_picture_624105.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Synthwave Vol. 2 (2015) [MP3|320 Kbps] <Synthpop, Syntwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623985.jpg" />
+  <img src="Z:/picture/008/save_picture_623985.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Synthwave Cafe: NightDrive (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Dr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617296.jpg" />
+  <img src="Z:/picture/008/save_picture_617296.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Waveshaper - Exploration 84 (2015) [MP3|320 кб/с]<80's Retrowave, Synthwave, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615857.jpg" />
+  <img src="Z:/picture/008/save_picture_615857.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ DeFilm - 2 Albums (1985, 1987) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613785.jpg" />
+  <img src="Z:/picture/008/save_picture_613785.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ WineSmoke - DreamPop (2021) [MP3|320 Kbps] <Synthpop, Electropop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613021.jpg" />
+  <img src="Z:/picture/008/save_picture_613021.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Synthwave, Vol. 3 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610248.jpg" />
+  <img src="Z:/picture/008/save_picture_610248.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Synthwave, Vol. 4 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610226.jpg" />
+  <img src="Z:/picture/008/save_picture_610226.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ ScAnDroid Experiment's - Neosynthetic (2022) авторская раздача [
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607994.jpg" />
+  <img src="Z:/picture/008/save_picture_607994.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Stardance - Stars Challenge (2017) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600047.jpg" />
+  <img src="Z:/picture/008/save_picture_600047.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Defiant Machines - Disruption Of The Calm (2015) [MP3|320 Kbps] <Electronic, Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597800.jpg" />
+  <img src="Z:/picture/008/save_picture_597800.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Ganymede - Space and Time (2003) [MP3|320 Kbps] <Spacesynth, Italo-Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594993.jpg" />
+  <img src="Z:/picture/008/save_picture_594993.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Xuji Sunset - Outrunner (2022) [MP3|320 Kbps] <Synthwave, Dreamwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594988.jpg" />
+  <img src="Z:/picture/008/save_picture_594988.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Isidor - Portals & Dimensions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594865.jpg" />
+  <img src="Z:/picture/008/save_picture_594865.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Starlight - Faraway From Earth (2006) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594003.jpg" />
+  <img src="Z:/picture/008/save_picture_594003.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Synth Pop Hits (2020) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591208.jpg" />
+  <img src="Z:/picture/008/save_picture_591208.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Berlin - 11 Albums, 5 Compilations (1980-2020) [MP3|320 кб/с] <New Wave, Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590582.jpg" />
+  <img src="Z:/picture/008/save_picture_590582.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Angelo Taylor - Alone in the Universe (2006) [MP3|320 Kbps] <Synthpop, Space, Am
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588556.jpg" />
+  <img src="Z:/picture/008/save_picture_588556.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Angelo Taylor - The Best of Angelo 2008 (2008) [MP3|320 Kbps] <Synthpop, Space, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588554.jpg" />
+  <img src="Z:/picture/008/save_picture_588554.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Aural Haze - The Wanderer (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Sci-Fi>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588553.jpg" />
+  <img src="Z:/picture/008/save_picture_588553.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ The Midnight - Endless Summer (2016) [MP3|320 Kbps] <Electronic, Synthpop, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584383.jpg" />
+  <img src="Z:/picture/008/save_picture_584383.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Tears For Fears - 7 Album (1983-2006) [MP3|320 Kbps] <Electronic, Synthpop, Pop 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584331.jpg" />
+  <img src="Z:/picture/008/save_picture_584331.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Talk Talk - 7 Albums (1982-1998) [MP3|320 Kbps] <Synthpop, New Wave, PopRock, Am
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581349.jpg" />
+  <img src="Z:/picture/008/save_picture_581349.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580458.jpg" />
+  <img src="Z:/picture/008/save_picture_580458.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A1D044395DE80D5D7C712430D2CFDDD5C91CD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921745   (573594) от 26.07.2015
-
-Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб/с]<Electronic, Ambient, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquistador (JMJ Rmx) (3:50)
- 02. Glory (Radio Mix) (2:54)
- 03. Glory (Steve Angello Remix) (5:53)
- 04. Zero Gravity (Above And Beyond Remix) (7:20)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-popПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709FB2A72E409198C078D98D1718ADA9170E7195
 ```
 
 https://mybot314.ru/tekegram_catalog/

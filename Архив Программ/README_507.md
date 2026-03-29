@@ -6,7 +6,7 @@ YTD Video Downloader PRO 5.9.3 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788135.jpg" />
+  <img src="Z:/picture/008/save_picture_788135.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CoolUtils Total Audio Converter 5.3.0.160 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788129.jpg" />
+  <img src="Z:/picture/008/save_picture_788129.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Uninstaller Pro 8.3.0.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788114.jpg" />
+  <img src="Z:/picture/008/save_picture_788114.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Google Chrome 64.0.3282.140 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788097.jpg" />
+  <img src="Z:/picture/008/save_picture_788097.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maxthon Browser 5.1.6.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788086.jpg" />
+  <img src="Z:/picture/008/save_picture_788086.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PrivaZer 3.0.40 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788082.jpg" />
+  <img src="Z:/picture/008/save_picture_788082.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ashampoo Photo Optimizer 7.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788066.jpg" />
+  <img src="Z:/picture/008/save_picture_788066.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Google Chrome 64.0.3282.140 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788057.jpg" />
+  <img src="Z:/picture/008/save_picture_788057.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Zoom Player MAX 14.1 Build 1410 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788047.jpg" />
+  <img src="Z:/picture/008/save_picture_788047.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NetLimiter 4.0.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788038.jpg" />
+  <img src="Z:/picture/008/save_picture_788038.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ K-Lite Codec Pack 14.6.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788034.jpg" />
+  <img src="Z:/picture/008/save_picture_788034.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Auslogics BoostSpeed 10.0.22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788031.jpg" />
+  <img src="Z:/picture/008/save_picture_788031.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Auslogics BoostSpeed 10.0.22.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788024.jpg" />
+  <img src="Z:/picture/008/save_picture_788024.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VirtualBox 6.0.2 Build 128162 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788020.jpg" />
+  <img src="Z:/picture/008/save_picture_788020.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Auslogics Driver Updater 1.11.0.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788003.jpg" />
+  <img src="Z:/picture/008/save_picture_788003.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787996.jpg" />
+  <img src="Z:/picture/008/save_picture_787996.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FurMark 1.20.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787991.jpg" />
+  <img src="Z:/picture/008/save_picture_787991.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ O&O Defrag Professional / Server 22.1 Build 2521 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787980.jpg" />
+  <img src="Z:/picture/008/save_picture_787980.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ IObit Driver Booster Pro 6.2.1.234 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787978.jpg" />
+  <img src="Z:/picture/008/save_picture_787978.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Blackmagic Design Fusion Studio 9.0.2 Build 15 + Edit Connection Repack TeamVR [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787961.jpg" />
+  <img src="Z:/picture/008/save_picture_787961.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Nvidia DriverPack v.417.71 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787943.jpg" />
+  <img src="Z:/picture/008/save_picture_787943.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ O&O Defrag Professional 22.1 Build 2521 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787942.jpg" />
+  <img src="Z:/picture/008/save_picture_787942.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Win 10 Tweaker 4.0 Portable by XpucT [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787915.jpg" />
+  <img src="Z:/picture/008/save_picture_787915.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Kerish Doctor 2019 4.70 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787882.jpg" />
+  <img src="Z:/picture/008/save_picture_787882.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ uTorrent 3.5.5 Build 44994 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787879.jpg" />
+  <img src="Z:/picture/008/save_picture_787879.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Dism++ 10.1.1000.80B Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787869.jpg" />
+  <img src="Z:/picture/008/save_picture_787869.jpg" />
 </div>
 
 

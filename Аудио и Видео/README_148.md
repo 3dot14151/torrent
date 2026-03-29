@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613165.jpg" />
+  <img src="Z:/picture/008/save_picture_613165.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613157.jpg" />
+  <img src="Z:/picture/008/save_picture_613157.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613155.jpg" />
+  <img src="Z:/picture/008/save_picture_613155.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613016.jpg" />
+  <img src="Z:/picture/008/save_picture_613016.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612750.jpg" />
+  <img src="Z:/picture/008/save_picture_612750.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612718.jpg" />
+  <img src="Z:/picture/008/save_picture_612718.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612260.jpg" />
+  <img src="Z:/picture/008/save_picture_612260.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612173.jpg" />
+  <img src="Z:/picture/008/save_picture_612173.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612169.jpg" />
+  <img src="Z:/picture/008/save_picture_612169.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612023.jpg" />
+  <img src="Z:/picture/008/save_picture_612023.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611946.jpg" />
+  <img src="Z:/picture/008/save_picture_611946.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611749.jpg" />
+  <img src="Z:/picture/008/save_picture_611749.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611747.jpg" />
+  <img src="Z:/picture/008/save_picture_611747.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611641.jpg" />
+  <img src="Z:/picture/008/save_picture_611641.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611104.jpg" />
+  <img src="Z:/picture/008/save_picture_611104.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611086.jpg" />
+  <img src="Z:/picture/008/save_picture_611086.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610434.jpg" />
+  <img src="Z:/picture/008/save_picture_610434.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610137.jpg" />
+  <img src="Z:/picture/008/save_picture_610137.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609926.jpg" />
+  <img src="Z:/picture/008/save_picture_609926.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - Beluga Lounge, Vol. 4 (2013) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609755.jpg" />
+  <img src="Z:/picture/008/save_picture_609755.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Beluga Lounge, Vol. 2 (2012) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609753.jpg" />
+  <img src="Z:/picture/008/save_picture_609753.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Beluga Lounge, Vol. 3 (2013) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609752.jpg" />
+  <img src="Z:/picture/008/save_picture_609752.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - We Chill del Mar, Vol. 2 (2014) [AAC|~325 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609741.jpg" />
+  <img src="Z:/picture/008/save_picture_609741.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Chillout Room Session #2 (2012) [AAC|~293 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609739.jpg" />
+  <img src="Z:/picture/008/save_picture_609739.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Cigar Lounge, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609634.jpg" />
+  <img src="Z:/picture/008/save_picture_609634.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ VA - Beluga Lounge, Vol. 1 (2011) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609633.jpg" />
+  <img src="Z:/picture/008/save_picture_609633.jpg" />
 </div>
 
 

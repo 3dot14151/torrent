@@ -1,3 +1,81 @@
+###  Публикация: 1297765   (603049) от 24.04.2019
+
+Андрей Курпатов | Скажи депрессии: НЕТ! Универсальные правила (2019) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как врачи и обещали, XXI век уже стал веком депрессии. Многие сейчас жалуются на раздражительность, ощущение нехватки сил, отсутствие перспектив, прокрастинацию, но, к сожалению, даже не догадываются, что это симптомы депрессии. А чтобы врага победить, его нужно знать в лицо! Как узнать, что ты или твои близкие страдают депрессией? Как победить депрессию и вернуться (   Читать дальше...   )Жанр: Социальная психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C04EA8BB05EE853CBCA3136A95C45C5C2E79EC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148860   (602877) от 08.07.2017
+
+Уильям Роберт Миллер, Стивен Роллник | Мотивационное консультирование. Как помочь людям измениться (2017) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602877.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Большинство людей, которые хотят измениться, испытывают двойственность по отношению к перемене. Они видят причины измениться и причины не меняться. Они одновременно хотят измениться и не хотят этого. Такова человеческая природа. Мотивационное консультирование – психологический метод, который формирует у человека желание изменить что-то в своей жизни. (   Читать дальше...   )Жанр: Классики психологииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2282ECBBE06CBA95D48175245A2A328486651B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297853   (602603) от 25.04.2019
+
+Андрей Курпатов | Исправь своё детство. Универсальные правила (2019) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все наши психологические проблемы и комплексы родом из детства. Отношения с родителями стали нашим первым опытом взаимодействия с миром, и кому-то с этим повезло, а кому-то нет. К сожалению, если что-то в этом опыте пошло не так, последствия этой ошибки могут преследовать нас всю жизнь. Как исправить своё детство, и рассказывает эта книга. Вы никогда не задумывались (   Читать дальше...   )Жанр: Социальная психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EE6A5F7F4E073268BC52997170503F33376527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298070   (602109) от 26.04.2019
 
 Вадим Демчог | Феномен игры (2019) [PDF, EPUB, FB2, RTF]
@@ -6,7 +84,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602109.jpg" />
+  <img src="Z:/picture/008/save_picture_602109.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601747.jpg" />
+  <img src="Z:/picture/008/save_picture_601747.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601746.jpg" />
+  <img src="Z:/picture/008/save_picture_601746.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601685.jpg" />
+  <img src="Z:/picture/008/save_picture_601685.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601548.jpg" />
+  <img src="Z:/picture/008/save_picture_601548.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601547.jpg" />
+  <img src="Z:/picture/008/save_picture_601547.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601294.jpg" />
+  <img src="Z:/picture/008/save_picture_601294.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601148.jpg" />
+  <img src="Z:/picture/008/save_picture_601148.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601070.jpg" />
+  <img src="Z:/picture/008/save_picture_601070.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600936.jpg" />
+  <img src="Z:/picture/008/save_picture_600936.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600928.jpg" />
+  <img src="Z:/picture/008/save_picture_600928.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600918.jpg" />
+  <img src="Z:/picture/008/save_picture_600918.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599419.jpg" />
+  <img src="Z:/picture/008/save_picture_599419.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599333.jpg" />
+  <img src="Z:/picture/008/save_picture_599333.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599327.jpg" />
+  <img src="Z:/picture/008/save_picture_599327.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599075.jpg" />
+  <img src="Z:/picture/008/save_picture_599075.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599073.jpg" />
+  <img src="Z:/picture/008/save_picture_599073.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599063.jpg" />
+  <img src="Z:/picture/008/save_picture_599063.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598911.jpg" />
+  <img src="Z:/picture/008/save_picture_598911.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596307.jpg" />
+  <img src="Z:/picture/008/save_picture_596307.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596238.jpg" />
+  <img src="Z:/picture/008/save_picture_596238.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595488.jpg" />
+  <img src="Z:/picture/008/save_picture_595488.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594881.jpg" />
+  <img src="Z:/picture/008/save_picture_594881.jpg" />
 </div>
 
 
@@ -603,88 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389EE2095E1B6B66FDFE39EAA7D8162003019A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232836   (594760) от 27.06.2018
-
-Джейн Макгонигал | SuperBetter (2018) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам понять те силы (способности), которыми вы уже обладаете. Она покажет вам, что использовать эти силы так же просто, как и играть в "СуперЛучше".
-Однако эта книга не об играх - по крайней мере, не совсем о них. Она о том, как научиться проявлять игровое мышление в условиях чрезвычайного стресса и личных проблем.
-
-Проявлять игровое мышление (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B53AD2CE3F96C126FB08CF487A2B44EA1C95A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039730   (594270) от 02.08.2016
-
-Питер Дэниелс | Собрание сочинений [7 книг] (2016) [FB2, PDF, DOCX]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание произведений успешного предпринимателя и благотворителя Питера Дэниелса. Своими книгами он мотивирует на развитие и делится знаниями, которые могут улучшить вашу жизни. В данном релизе 7 книг , в трёх наиболее универсальных форматах.Жанр: Психология, Бизнес, РиторикаФормат: FB2, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92549FF7B35B882D502C7CFFCBCACA8F296DD7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914575   (594245) от 04.07.2015
-
-Владимир Тарасов | Технология жизни. Книга для героев (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое издание книги Владимира Тарасова, ставшей классикой деловой литературы. «Книга для героев» стала настольной книгой многих успешных российских предпринимателей, а некоторые российские компании сделали ее своим корпоративным кодексом.
-«Книга для героев» предлагает целостную и эффективную систему управленческих навыков и жизненных ценностей, философию жизни, соединяющую (   Читать дальше...   )Жанр: Личностный ростФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720B73BB69F857E534FB9DAA7D1A725823A7B28D
 ```
 
 https://mybot314.ru/tekegram_catalog/

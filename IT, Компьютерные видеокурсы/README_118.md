@@ -1,3 +1,143 @@
+###  Публикация: 1810248   (9473) от 03.08.2025
+
+Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продвинутый курс по внутреннему устройству Git. Осваиваем лучшие практики и экспертные приемы, а не элементарные команды. Ведет бывший разработчик EPAM.
+
+Подходит для программистов любого уровня, стека и языка
+(   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810607   (9298) от 05.08.2025
+
+Специалист, Сергей Прощаев | Apache Kafka для разработчиков (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apache Kafka представляет собой ведущий брокер сообщений, широко используемый в современных разработческих стэках. Владение Apache Kafka позволяет Java-разработчикам выстраивать системы для обработки потоковых данных, такие как системы очередей, стриминговую обработку и обмен данными между компонентами приложений.
+
+Курс предоставит необходимые знания и умения для (   Читать дальше...   )Производство: СпециалистЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 12:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FB0E864088007D66FD57B66452EF74B5E79564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812350   (7809) от 15.08.2025
+
+Антон Агафонов | Нейросети для сетевиков 3.0 (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс создан для тех, кто хочет:
+Понимать, как работают нейросети, даже если вы никогда с ними не сталкивались.
+Увеличивать доход, при этом тратя меньше времени и сил. Нейросети берут на себя часть работы.
+Создавать тексты, фотографии и видео за считанные секунды, без помощи копирайтеров и дизайнеров.(   Читать дальше...   )Жанр: видеокурс, обучающий курс, бизнес, маркетинг, менеджмент, нейросетиЯзык озвучки: русскийПродолжительность: 07:01:22Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7485F4A80A939B3137EA5E145592B2F312772B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812382   (7802) от 15.08.2025
+
+Alexander Semenko | Вся необходимая база по Assembler (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программирование на языке ассемблера дает исключительный опыт, но часто вызывает затруднения. В этом видеокурсе используются примеры для демонстрации действительно работающих программ. Эти примеры помогут вам начать. Однако единственный способ научиться чему-либо в программировании - это сделать программу самому. Вы должны совершать свои собственные ошибки чтобы (   Читать дальше...   )Производство: Alexander SemenkoЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 18:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812321   (7775) от 15.08.2025
+
+Computer Science Center | Программирование на Rust (2019) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс знакомит слушателей с языком программирования Rust.
+Для курса необходимо уметь программировать на любом другом языке, например Python. Особенно хорошо курс сочетается с курсом по C++.
+Цель курса не просто научить программировать на Rust, а сделать акцент на его особенностях и отличиях от более традиционных языков, и увидеть знакомые задачи с другого ракурса.Производство: Computer Science CenterЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 21:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55028F53E02D26723AFE83F3EF26220AB5A5F0BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812598   (7750) от 15.08.2025
 
 Дмитрий Агарков | Нейроворонки Blueprint. Тариф Gold (2025) WEB-DL [AD] [RU]
@@ -6,7 +146,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7750.jpg" />
 </div>
 
 
@@ -35,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7559.jpg" />
 </div>
 
 
@@ -64,7 +204,7 @@ StasPiter | Программирование на Delphi в Rad Studio (2015) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7541.jpg" />
 </div>
 
 
@@ -90,7 +230,7 @@ Udemy, Artsiom Rusau | Тестировщик с нуля 2024. Web/Mobile, Post
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7399.jpg" />
 </div>
 
 
@@ -118,7 +258,7 @@ Rush Academy, Евгений Милованцев, Игорь Бурдуков |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6185.jpg" />
 </div>
 
 
@@ -144,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5890.jpg" />
 </div>
 
 
@@ -172,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5731.jpg" />
 </div>
 
 
@@ -198,7 +338,7 @@ Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5436.jpg" />
 </div>
 
 
@@ -226,7 +366,7 @@ Purpleschool, Антон Ларичев | Nuxt - fullstack Vue фреймвор�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5426.jpg" />
 </div>
 
 
@@ -254,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5262.jpg" />
 </div>
 
 
@@ -280,7 +420,7 @@ Purpleschool, Антон Ларичев | Vue.js 3, Vue Router и Pinia (2025) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4713.jpg" />
 </div>
 
 
@@ -306,7 +446,7 @@ Infostart, Владимир Лушников | Новое в 1С: Докумен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4619.jpg" />
 </div>
 
 
@@ -335,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4194.jpg" />
 </div>
 
 
@@ -361,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3662.jpg" />
 </div>
 
 
@@ -390,7 +530,7 @@ Udemy, YouAccel Training | Learn to Host Multiple Domains on one Virtual Server 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3373.jpg" />
 </div>
 
 
@@ -417,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2878.jpg" />
 </div>
 
 
@@ -443,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2844.jpg" />
 </div>
 
 
@@ -472,7 +612,7 @@ Stepik, Даниил Беликов | Первая работа в IT. Стра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2827.jpg" />
 </div>
 
 
@@ -498,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2716.jpg" />
 </div>
 
 
@@ -524,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1760.jpg" />
 </div>
 
 
@@ -551,7 +691,7 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1207.jpg" />
 </div>
 
 
@@ -562,64 +702,6 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662883   (1083) от 25.09.2025
-
-Rebrain, Александр Марченко, Артемий Дубовой | Grafana онлайн-практикум (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grafana была создана 7 лет назад для визуализации данных из различных источников: систем мониторинга, реляционных баз данных, аналитических баз и других.
-
-- Сейчас этот инструмент используют более 300 тысяч пользователей в день для визуализации и мониторинга состояния инфраструктуры, а также аналитики технических атак и бизнес-аналитики.
-- Интересно, что использование (   Читать дальше...   )Производство: RebrainЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 01:04:03Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E33B706632DE70D5F371D19CAC889D5818EC6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819857   (619) от 27.09.2025
-
-Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2025) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Welcome to the most comprehensive Node.js course on the internet!
-
-In this course, we're going to do a deep dive into Node.js itself without cluttering our minds with other tools and NPM packages and truly master this powerful technology.
-(   Читать дальше...   )Производство: udemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 77:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3138BDD91A73EB02920B7F341CF7A90190FA99
 ```
 
 https://mybot314.ru/tekegram_catalog/

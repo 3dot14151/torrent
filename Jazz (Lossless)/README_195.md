@@ -1,3 +1,119 @@
+###  Публикация: 1169142   (404116) от 26.09.2017
+
+Al Hirt - At The Mardi Gras (1962) 2000, RCA Victor [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Announcement & Bourbon Street Parade [03:33]
+02. Basin Street Blues [03:28]
+03. Perdido [02:39]
+04. Show Me the Way to Go Home [03:18](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4707B7106D782271D25306E0371B6B1F54EC251F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169155   (404115) от 26.09.2017
+
+Al Hirt - The Sound of Christmas (1965) 2013, Relayer Records [FLAC|Lossless|tracks + .cue] <Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nutty Jingle Bells [02:14]
+02. Medley: I Saw Mommy Kissing Santa Claus/Here Comes Santa Claus (Right Down Santa Claus Lane) [02:18]
+03. Rudolph The Red-Nosed Reindeer [02:12]
+04. Sleigh Ride [02:13](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7F74783DA3A09BD54DD3B5DA8C27B7FBC05AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169162   (404113) от 26.09.2017
+
+The Ted Rosenthal Trio - Rosenthology (1996) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Walked In [04:40]
+02. Snowscape [05:32]
+03. Slippin' And Slidin' [04:51]
+04. Will You Still Be Mine [05:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917ADDAB2281C67F1D723CCCCAE8450BFA0FDBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169148   (404112) от 26.09.2017
+
+Al Hirt - All Time Greatest Hits (1960-e) 1989, RCA [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bourbon Street Parade [03:34]
+02. I Can't Get Started [02:46]
+03. Stranger in Paradise (from 'Kismet') [02:46]
+04. Java [01:59](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE77730B8AC3B8C8178DCEF1604FB437275231F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169129   (404108) от 26.09.2017
 
 Tito Puente - Top Percussion & Dance Mania (1958) 1993, Bear Family Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
@@ -6,7 +122,7 @@ Tito Puente - Top Percussion & Dance Mania (1958) 1993, Bear Family Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404108.jpg" />
+  <img src="Z:/picture/008/save_picture_404108.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Princess Velasco - 2 альбома (2010-2011) [FLAC|Lossless]<Ballads, Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403841.jpg" />
+  <img src="Z:/picture/008/save_picture_403841.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Don Ewell - Free 'n Easy! (1957) 2000, Good Time Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403217.jpg" />
+  <img src="Z:/picture/008/save_picture_403217.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ Stephane Grappelli - 1935-1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403195.jpg" />
+  <img src="Z:/picture/008/save_picture_403195.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ The Latin Stars Orchestra - Romantico (2007) 2CD [FLAC|Lossless]<Jazz, Instrumen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_403004.jpg" />
+  <img src="Z:/picture/005/save_picture_403004.jpg" />
 </div>
 
 
@@ -154,7 +270,7 @@ V.A. - Venus Jazz Bar - Relaxin' Cocktail Jazz Time (2CD) (2012) [APE|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402932.jpg" />
+  <img src="Z:/picture/005/save_picture_402932.jpg" />
 </div>
 
 
@@ -189,7 +305,7 @@ Lee Ritenour - Rhythm Sessions (2012) [FLAC|Lossless]<Fusion, Smooth Jazz, Guita
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402852.jpg" />
+  <img src="Z:/picture/005/save_picture_402852.jpg" />
 </div>
 
 
@@ -224,7 +340,7 @@ VA - Audiophile Female Voices (2005) [FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402749.jpg" />
+  <img src="Z:/picture/005/save_picture_402749.jpg" />
 </div>
 
 
@@ -259,7 +375,7 @@ XXIth Century Infinity Jazz Ensemble - Digging In Archives (2009) JAZZO Sophia [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401624.jpg" />
+  <img src="Z:/picture/008/save_picture_401624.jpg" />
 </div>
 
 
@@ -288,7 +404,7 @@ Machito & His Afro-Cuban Orchestra - Vacation At The Concord (1959) 2004, Verve 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401598.jpg" />
+  <img src="Z:/picture/008/save_picture_401598.jpg" />
 </div>
 
 
@@ -317,7 +433,7 @@ Cy Coleman - It Started with a Dream (2002) [APE|Lossless]<Vocal Jazz, Piano Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401281.jpg" />
+  <img src="Z:/picture/008/save_picture_401281.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Custo - Cold Jazz (2008) [APE|Lossless]<Nu Jazz, Lounge, Ambient>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401279.jpg" />
+  <img src="Z:/picture/008/save_picture_401279.jpg" />
 </div>
 
 
@@ -387,7 +503,7 @@ Mr. Chop - Switched On (2011) [FLAC|Lossless]<Funk, Acid Jazz, Electronic, Instr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401189.jpg" />
+  <img src="Z:/picture/008/save_picture_401189.jpg" />
 </div>
 
 
@@ -422,7 +538,7 @@ Big Bad Voodoo Daddy - Live (2004) [FLAC|Lossless]<Swing Revival>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400759.jpg" />
+  <img src="Z:/picture/008/save_picture_400759.jpg" />
 </div>
 
 
@@ -451,7 +567,7 @@ Leni Stern - Words (1995) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400666.jpg" />
+  <img src="Z:/picture/008/save_picture_400666.jpg" />
 </div>
 
 
@@ -480,7 +596,7 @@ V.A. - Vintage Lounge (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Nu Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399999.jpg" />
+  <img src="Z:/picture/008/save_picture_399999.jpg" />
 </div>
 
 
@@ -515,7 +631,7 @@ Lin Halliday - Airegin (2000) Delmark [FLAC|Lossless|image + .cue] <Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399821.jpg" />
+  <img src="Z:/picture/008/save_picture_399821.jpg" />
 </div>
 
 
@@ -544,7 +660,7 @@ Maria Emig Trio - Introducing (2016) Gateway Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399803.jpg" />
+  <img src="Z:/picture/008/save_picture_399803.jpg" />
 </div>
 
 
@@ -573,7 +689,7 @@ Johnny Hodges & Wild Bill Davis - Joe's Blues (1965) 2007, Lone Hill Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399737.jpg" />
+  <img src="Z:/picture/008/save_picture_399737.jpg" />
 </div>
 
 
@@ -602,7 +718,7 @@ Buddy Rich & Maynard Ferguson - Two Big Bands Play Selections From West Side Sto
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399733.jpg" />
+  <img src="Z:/picture/008/save_picture_399733.jpg" />
 </div>
 
 
@@ -631,7 +747,7 @@ Steve Marcus - Smile (1993) Red Baron [FLAC|Lossless|image + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399623.jpg" />
+  <img src="Z:/picture/008/save_picture_399623.jpg" />
 </div>
 
 
@@ -660,7 +776,7 @@ Sam Levine - Smooth Sax Romance (2011) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399430.jpg" />
+  <img src="Z:/picture/008/save_picture_399430.jpg" />
 </div>
 
 
@@ -671,134 +787,6 @@ Sam Levine - Smooth Sax Romance (2011) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170851   (398742) от 02.10.2017
-
-The Gary Burton Quartet - Duster (1967) 2014, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballet [04:59]
-02. Sweet Rain [04:27]
-03. Portsmouth Figurations [03:08]
-04. General Mojo's Well Laid Plan [05:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9653F67BB800799A8CE4ABEEEFFEF6A716D053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566650   (398243) от 28.10.2012
-
-Courtney Pine - Journey to the Urge Within (1986) [APE|Lossless]<Post-Bop, Saxophone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Interpret
- 02. I Believe
- 03. Peace
- 04. Dolores
- 05. As We Would Say
- 06. Children Of The Ghetto
- 07. When, Where, How And Why
- 08. C.G.C.
- 09. Seen
- 10. Sunday SongЖанр: Post-Bop, Saxophone JazzПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566595   (398195) от 28.10.2012
-
-Cpt Kirk - Starship Cadillac (2010) [APE|Lossless]<Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleek
-02. Pickled Pigs Feet
-03. Paramedic
-04. Temperance
-05. Drop The Chalupa
-06. Starship Cadilla
-07. Chase The Blues Away
-08. DISGRUNTLED CONSUMATE MONKEY intro
-09. Disgruntled Consumate Monkey
-10. Just In Case(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170878   (397803) от 03.10.2017
-
-Woody Herman - Blowin' Up a Storm (1958) 1994, Drive Archive [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woodchopper's Ball [04:31]
-02. Northwest Passage [03:02]
-03. I Cover the Waterfront [03:21]
-04. Prelude a la Cha-Cha [04:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B4447C57A7968FE27B6B8C574BD336C818714B
 ```
 
 https://mybot314.ru/tekegram_catalog/

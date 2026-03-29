@@ -1,3 +1,29 @@
+###  Публикация: 1054218   (492054) от 20.09.2016
+
+Газета | Мой друг компьютер №18 (245) (сентябрь 2016) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492054.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мой друг компьютер» - издание для обычных пользователей компьютера расскажет, как выбрать компьютерную технику, установить и настроить разные программы, модернизировать компьютер с минимальными финансовыми затратами, защитить от вирусов и не стать жертвой хакеров.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CA27C6782553086CC7985379FAE14A3EBF243D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158380   (491539) от 16.08.2017
 
 Газета | Мой друг компьютер №16 (269) (август 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491539.jpg" />
+  <img src="Z:/picture/008/save_picture_491539.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489352.jpg" />
+  <img src="Z:/picture/008/save_picture_489352.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488485.jpg" />
+  <img src="Z:/picture/008/save_picture_488485.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485256.jpg" />
+  <img src="Z:/picture/008/save_picture_485256.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484963.jpg" />
+  <img src="Z:/picture/008/save_picture_484963.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484251.jpg" />
+  <img src="Z:/picture/008/save_picture_484251.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483949.jpg" />
+  <img src="Z:/picture/008/save_picture_483949.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483343.jpg" />
+  <img src="Z:/picture/008/save_picture_483343.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482829.jpg" />
+  <img src="Z:/picture/008/save_picture_482829.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481812.jpg" />
+  <img src="Z:/picture/008/save_picture_481812.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481751.jpg" />
+  <img src="Z:/picture/008/save_picture_481751.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481708.jpg" />
+  <img src="Z:/picture/008/save_picture_481708.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481148.jpg" />
+  <img src="Z:/picture/008/save_picture_481148.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480345.jpg" />
+  <img src="Z:/picture/008/save_picture_480345.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478843.jpg" />
+  <img src="Z:/picture/008/save_picture_478843.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478039.jpg" />
+  <img src="Z:/picture/008/save_picture_478039.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477905.jpg" />
+  <img src="Z:/picture/008/save_picture_477905.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476905.jpg" />
+  <img src="Z:/picture/008/save_picture_476905.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476720.jpg" />
+  <img src="Z:/picture/008/save_picture_476720.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475949.jpg" />
+  <img src="Z:/picture/008/save_picture_475949.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475839.jpg" />
+  <img src="Z:/picture/008/save_picture_475839.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473327.jpg" />
+  <img src="Z:/picture/008/save_picture_473327.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472149.jpg" />
+  <img src="Z:/picture/008/save_picture_472149.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472027.jpg" />
+  <img src="Z:/picture/008/save_picture_472027.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472011.jpg" />
+  <img src="Z:/picture/008/save_picture_472011.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20A13EA9A00D5781237CF44BD9DDC097460C66D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547996   (471944) от 16.09.2012
-
-Журнал | Photoshop User - Октябрь [2012] [EN] [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photoshop User официальный журнал NAPP. Он публикуется 10 раз в год (плюс бонусные выпуски). Photoshop User широко известен, как наиболее надежный ресурс по Adobe Photoshop и Lightroom с уроками, советами и информацией "как сделать" для графических дизайнеров, фотографов и всего мира цифрового искусства.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98262FC017A349771A98DD4AAECEE3BE54678934
 ```
 
 https://mybot314.ru/tekegram_catalog/

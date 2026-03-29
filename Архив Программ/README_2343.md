@@ -1,3 +1,290 @@
+###  Публикация: 1811473   (2576) от 16.09.2025
+
+MInstAll v.10.08.2025 By Andreyonohov (Unpacked) [Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами обновленный 10 Августа 2025 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1163AF9ECD86E4C3014B831D630A8CF47BC53D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818373   (2508) от 16.09.2025
+
+Opera One 122.0.5643.24 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5879640DFBF62AC4D338E5E0EF58E692D2DE5C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818451   (2479) от 16.09.2025
+
+Microsoft Visual Studio 2022 Enterprise 17.14.15 (Offline Cache) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода. Благодаря поддержке различных функций и языков в Visual Studio вы можете начать с написания первой программы (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0E5C8F282578E80E07E6B200B9D148230B3E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818463   (2422) от 17.09.2025
+
+IObit Driver Booster Pro 13.0.0.138 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5FBCF132726E5762C2EAE54514CC74A3699A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818493   (2375) от 17.09.2025
+
+Internet Download Manager 6.42 Build 43 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1C2F550A6954C9402A712B160179820F9FA19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818543   (2357) от 17.09.2025
+
+Any Video Downloader Pro 9.5.5 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B53E303C994958D2E4F71EB0ECAC6FEF944D77B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818462   (2353) от 17.09.2025
+
+Media Player Classic Home Cinema (MPC-HC) 2.5.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EF8C81B19E166206F01697979D199AA3BAEEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818461   (2344) от 17.09.2025
+
+Internet Download Manager 6.42 Build 43 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B664DD38E3EEE9666D0FED4DB426241219D068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818560   (2334) от 17.09.2025
+
+MassTube Ultra 21.0.2.164 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2334.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B54B5BD62E2594A7E111AC32102F549FBA82A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818578   (2304) от 17.09.2025
+
+InnoExtractor Ultra 11.1.0.152 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2304.jpg" />
+</div>
+
+
+###  Подробнее
+
+InnoExtractor - это мощное приложение, которое поможет вам распаковать инсталляторы Inno Setup, используя технологию InnoUnp.
+С помощью InnoExtractor вы можете изучить внутреннюю структуру и содержимое программы установки, а также извлечь их в локальную папку или на портативные устройства без необходимости запуска программы установки.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B2660951E56FD54FA2DEDFC12EC79332D2F74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818681   (2224) от 18.09.2025
+
+Google Chrome 140.0.7339.186 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0D26D6CCC0E91F5E9960CDA46FE2ACBBB6293D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818514   (2210) от 18.09.2025
 
 IObit Driver Booster Pro 13.0.0.138 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +293,7 @@ IObit Driver Booster Pro 13.0.0.138 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2210.jpg" />
 </div>
 
 
@@ -32,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2199.jpg" />
 </div>
 
 
@@ -58,7 +345,7 @@ Internet Download Manager 6.42 Build 43 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2186.jpg" />
 </div>
 
 
@@ -84,7 +371,7 @@ YT Downloader 9.17.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2179.jpg" />
 </div>
 
 
@@ -110,7 +397,7 @@ Vivaldi 7.6.3797.52 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2170.jpg" />
 </div>
 
 
@@ -136,7 +423,7 @@ Opera One 122.0.5643.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2068.jpg" />
 </div>
 
 
@@ -162,7 +449,7 @@ MassTube Ultra 21.0.2.164 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2048.jpg" />
 </div>
 
 
@@ -188,7 +475,7 @@ YT Downloader 9.17.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2047.jpg" />
 </div>
 
 
@@ -214,7 +501,7 @@ Chromium 140.0.7339.186 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2039.jpg" />
 </div>
 
 
@@ -240,7 +527,7 @@ Internet Download Manager 6.42 Build 45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2032.jpg" />
 </div>
 
 
@@ -266,7 +553,7 @@ Internet Download Manager 6.42 Build 45 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2031.jpg" />
 </div>
 
 
@@ -292,7 +579,7 @@ Internet Download Manager 6.42 Build 45 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1921.jpg" />
 </div>
 
 
@@ -318,7 +605,7 @@ Flyoobe 1.21.411 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1889.jpg" />
 </div>
 
 
@@ -345,7 +632,7 @@ Serif Affinity Photo 2.6.3.3322 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1880.jpg" />
 </div>
 
 
@@ -371,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1858.jpg" />
 </div>
 
 
@@ -382,292 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9845510116886A912E37F00EF122A6EA42769706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819184   (1692) от 21.09.2025
-
-Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 16.09.2025) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D0F210B37257D350B0A57F4950066CBBE05A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819250   (1678) от 21.09.2025
-
-Display Driver Uninstaller 18.1.3.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB2C4677BA051BF90BD71D1A7460460499F29CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819235   (1653) от 21.09.2025
-
-YT Downloader 9.17.3 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1653.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB7ECA433E29E23368186D369F727CAB99FD02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819187   (1652) от 21.09.2025
-
-VueScan Pro 9.8.47.01 RePack (& Portable) by elchupacabra (DC 15.09.2025) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1652.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8168BAA6A559BCF53D1DF897F12EBDEA63106CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819185   (1641) от 21.09.2025
-
-Serif Affinity Publisher 2.6.3.3322 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Publisher - программное обеспечение нового поколения для профессиональных редакционно-издательских работ. Это невероятно плавное, интуитивно понятное приложение позволяет комбинировать изображения, графику и текст для создания прекрасных, готовых к публикации макетов для журналов, книг, брошюр, плакатов, отчетов, бланков и других документов.Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5726C7181343E105FE00374F6560F1E684204F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819190   (1639) от 21.09.2025
-
-ExamDiff Pro 16.0.1.8 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1639.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DA05E142B9BF445A62D144DC57738A195C1EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819189   (1631) от 21.09.2025
-
-Serif Affinity Designer 2.6.3.3322 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Все функции, инструменты, панели и параметры этого приложения, которое создавалось с нуля на протяжении более пяти лет, разработаны с учетом потребностей специалистов творческих профессий. В результате непрерывных инноваций и совершенствования (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFB45FA7B34B24F9285E821817B2F699D103EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819367   (1528) от 22.09.2025
-
-Topaz Gigapixel 1.0.1 [Multi]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Gigapixel – это ведущий в отрасли, ИИ-усилитель изображения, который максимизирует и уровень детализации и точность к оригиналу. Это не просто создание новых пикселей, это создание правильных. Таким образом, ваши изображения будут больше и четче, не теряя деталей, с которых вы начинали.Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F89727F7D8101B27912607131A7E3171387CBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819488   (1489) от 22.09.2025
-
-Imagine 2.2.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюерам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F22A557C095B3EDE7D42976F2F2E41699CA7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819492   (1435) от 22.09.2025
-
-Vivaldi 7.6.3797.55 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0E2A17CE17ABBC2BDFB6B9CE5F9C726A62BD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819709   (1197) от 24.09.2025
-
-MassTube Ultra 21.0.2.166 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1197.jpg" />
-</div>
-
-
-###  Подробнее
-
-MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF0836772CF84FCE04A6494AA1C7065CF23F09B
 ```
 
 https://mybot314.ru/tekegram_catalog/

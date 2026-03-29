@@ -6,7 +6,7 @@ Hyperkey 0.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417251.jpg" />
+  <img src="Z:/picture/008/save_picture_417251.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Contexts 3.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417118.jpg" />
+  <img src="Z:/picture/008/save_picture_417118.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Forecast Bar 2.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417041.jpg" />
+  <img src="Z:/picture/008/save_picture_417041.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ StatusDuck 0.82 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416855.jpg" />
+  <img src="Z:/picture/008/save_picture_416855.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ FruitJuice - Active Battery Health and Monitoring 2.5.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416682.jpg" />
+  <img src="Z:/picture/008/save_picture_416682.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ WinZip Mac Pro 10 v.10.6.6200 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416493.jpg" />
+  <img src="Z:/picture/008/save_picture_416493.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Toast Titanium 15.1 (4486) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416005.jpg" />
+  <img src="Z:/picture/008/save_picture_416005.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415600.jpg" />
+  <img src="Z:/picture/008/save_picture_415600.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ QuickLinks 2.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414915.jpg" />
+  <img src="Z:/picture/008/save_picture_414915.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Dark Mode Switch 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414911.jpg" />
+  <img src="Z:/picture/008/save_picture_414911.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Wake on Lan for Mac 1.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414780.jpg" />
+  <img src="Z:/picture/008/save_picture_414780.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ One Switch 1.26.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414757.jpg" />
+  <img src="Z:/picture/008/save_picture_414757.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Cool Menu 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414644.jpg" />
+  <img src="Z:/picture/008/save_picture_414644.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Boring Old Menu Bar 1.23 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414634.jpg" />
+  <img src="Z:/picture/008/save_picture_414634.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ KeyKey — Typing Practice 2.9.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414422.jpg" />
+  <img src="Z:/picture/008/save_picture_414422.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ OS X Server 3.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413955.jpg" />
+  <img src="Z:/picture/008/save_picture_413955.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ AnyTrans v6.0.1 (20170920)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412598.jpg" />
+  <img src="Z:/picture/008/save_picture_412598.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Animated Wallpapers 1.0.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412528.jpg" />
+  <img src="Z:/picture/008/save_picture_412528.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Cisdem Data Recovery 13.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412385.jpg" />
+  <img src="Z:/picture/008/save_picture_412385.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Desktop Curtain 3.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411167.jpg" />
+  <img src="Z:/picture/008/save_picture_411167.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Theine 3.4.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410412.jpg" />
+  <img src="Z:/picture/008/save_picture_410412.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ App Uninstaller 6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409087.jpg" />
+  <img src="Z:/picture/008/save_picture_409087.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Deliveries: a package tracker 3.0.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408850.jpg" />
+  <img src="Z:/picture/008/save_picture_408850.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ NetWorker - Network Info App 5.1.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408063.jpg" />
+  <img src="Z:/picture/008/save_picture_408063.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ uBar 4.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402353.jpg" />
+  <img src="Z:/picture/008/save_picture_402353.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ WinZip 6.0.35.47 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402292.jpg" />
+  <img src="Z:/picture/008/save_picture_402292.jpg" />
 </div>
 
 

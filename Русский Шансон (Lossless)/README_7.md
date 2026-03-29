@@ -6,7 +6,7 @@ VA - Шансон в пути (2006) [FLAC|Lossless|image + .cue] <Chanson>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752188.jpg" />
+  <img src="Z:/picture/008/save_picture_752188.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751745.jpg" />
+  <img src="Z:/picture/008/save_picture_751745.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751222.jpg" />
+  <img src="Z:/picture/008/save_picture_751222.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750261.jpg" />
+  <img src="Z:/picture/008/save_picture_750261.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750013.jpg" />
+  <img src="Z:/picture/005/save_picture_750013.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Русская душа (1998) [FLAC|Lossless|image + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749928.jpg" />
+  <img src="Z:/picture/008/save_picture_749928.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749319.jpg" />
+  <img src="Z:/picture/008/save_picture_749319.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748643.jpg" />
+  <img src="Z:/picture/008/save_picture_748643.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748457.jpg" />
+  <img src="Z:/picture/008/save_picture_748457.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Шансон года: часть 1 - 2 (2003) [FLAC|Lossless|tracks + .cue
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745435.jpg" />
+  <img src="Z:/picture/008/save_picture_745435.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745033.jpg" />
+  <img src="Z:/picture/008/save_picture_745033.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743811.jpg" />
+  <img src="Z:/picture/008/save_picture_743811.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743460.jpg" />
+  <img src="Z:/picture/008/save_picture_743460.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742197.jpg" />
+  <img src="Z:/picture/008/save_picture_742197.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742076.jpg" />
+  <img src="Z:/picture/008/save_picture_742076.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741645.jpg" />
+  <img src="Z:/picture/008/save_picture_741645.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Не печалься, любимая... (2006) [FLAC|Lossless|image + .cue
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740982.jpg" />
+  <img src="Z:/picture/008/save_picture_740982.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739675.jpg" />
+  <img src="Z:/picture/008/save_picture_739675.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737812.jpg" />
+  <img src="Z:/picture/008/save_picture_737812.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Сборная блатная команда шансона (2001) [FLAC|Lo
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735855.jpg" />
+  <img src="Z:/picture/008/save_picture_735855.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734409.jpg" />
+  <img src="Z:/picture/008/save_picture_734409.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733169.jpg" />
+  <img src="Z:/picture/008/save_picture_733169.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731878.jpg" />
+  <img src="Z:/picture/008/save_picture_731878.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731527.jpg" />
+  <img src="Z:/picture/008/save_picture_731527.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731043.jpg" />
+  <img src="Z:/picture/008/save_picture_731043.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730691.jpg" />
+  <img src="Z:/picture/008/save_picture_730691.jpg" />
 </div>
 
 

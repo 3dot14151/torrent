@@ -6,7 +6,7 @@ Driver Easy Pro 5.6.15.34863 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764288.jpg" />
+  <img src="Z:/picture/008/save_picture_764288.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinNTSetup 4.2.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764287.jpg" />
+  <img src="Z:/picture/008/save_picture_764287.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TrustViewer 2.2.1.3651 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764282.jpg" />
+  <img src="Z:/picture/008/save_picture_764282.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Video Editor Plus 20.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764278.jpg" />
+  <img src="Z:/picture/008/save_picture_764278.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Honeyview 5.46 Build 6040 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764268.jpg" />
+  <img src="Z:/picture/008/save_picture_764268.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ foobar2000 1.6.9 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764261.jpg" />
+  <img src="Z:/picture/008/save_picture_764261.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Viber 6.7.1.3 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764246.jpg" />
+  <img src="Z:/picture/008/save_picture_764246.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ CLO Enterprise 3.0.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764242.jpg" />
+  <img src="Z:/picture/008/save_picture_764242.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Daum PotPlayer 1.7.1916 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764237.jpg" />
+  <img src="Z:/picture/008/save_picture_764237.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Google Chrome 58.0.3029.81 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764236.jpg" />
+  <img src="Z:/picture/008/save_picture_764236.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Techsmith Snagit 13.1.2 Build 7933 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764235.jpg" />
+  <img src="Z:/picture/008/save_picture_764235.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ TeamViewer 15.7.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764211.jpg" />
+  <img src="Z:/picture/008/save_picture_764211.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ System Ninja 3.1.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764153.jpg" />
+  <img src="Z:/picture/008/save_picture_764153.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ SRWare Iron TOR Browser 71.0.3700.0 Rev2 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764135.jpg" />
+  <img src="Z:/picture/008/save_picture_764135.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Windows Login Unlocker 1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764123.jpg" />
+  <img src="Z:/picture/008/save_picture_764123.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764118.jpg" />
+  <img src="Z:/picture/008/save_picture_764118.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ HitmanPro 3.8.26.322 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764113.jpg" />
+  <img src="Z:/picture/008/save_picture_764113.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ McAfee Endpoint Security 10.7.0.1260.12 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764100.jpg" />
+  <img src="Z:/picture/008/save_picture_764100.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mozilla Firefox 53.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764095.jpg" />
+  <img src="Z:/picture/008/save_picture_764095.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Daum PotPlayer 1.7.1916 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764091.jpg" />
+  <img src="Z:/picture/008/save_picture_764091.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Malwarebytes AdwCleaner 7.2.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764043.jpg" />
+  <img src="Z:/picture/008/save_picture_764043.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Windows 11 (v21h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764025.jpg" />
+  <img src="Z:/picture/008/save_picture_764025.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Windows 11 21Н2 (build 22000.376) (20in1) by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764013.jpg" />
+  <img src="Z:/picture/008/save_picture_764013.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.01.03 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764008.jpg" />
+  <img src="Z:/picture/008/save_picture_764008.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Pale Moon 27.8.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763979.jpg" />
+  <img src="Z:/picture/008/save_picture_763979.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Vivaldi 1.14.1077.60 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763977.jpg" />
+  <img src="Z:/picture/008/save_picture_763977.jpg" />
 </div>
 
 

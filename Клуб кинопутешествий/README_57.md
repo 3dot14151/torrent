@@ -1,3 +1,56 @@
+###  Публикация: 1194702   (153871) от 26.12.2017
+
+Орел и решка. Звёзды (2017.12.25) WEB-DL [H.264/720p-LQ] (Будапешт. Венгрия)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орёл и Решка. Звёзды – это спецпроект от всеми вами любимого тревел-шоу Орёл и Решка. Катерина Варнава, Михаил Башкатов, Анфиса Чехова, Виктор Васильев, Светлана Лобода и Александр Ревва – именно эти звезды звёды шоу-бизнеса будут отчаянно бороться за золотую карту с нашими опытными ведущими Колей Сергой, Машей Иваковой, Жанной Бадоевой и Аланом Бадоевым! Всего вас (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E3B41EAFF2F10DD900F236E9F267276DB10509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968666   (153460) от 24.12.2015
+
+В поисках рая. Израиль. Часть 2. (24.12.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Влюбленная пара отправляется в романтическое путешествие по всему миру. В каждой стране они оценят местные особенности повседневной жизни: работу, жилье, шопинг, кухню и отдых. Они выяснят, где есть идеальные условия для влюбленной пары и узнают, можно ли стать своим в чужой стране. Они проверят, действительно ли хорошо там, где нас нет? Влюбленных ждут (   Читать дальше...   )Телекомпания: Пятница!Жанр: ТелепередачаПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C73A683856ABE961ED7AEA3823B52CC449AE595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086442   (153064) от 24.12.2016
 
 Проводник (2016.12.23) SATRip (Сочи)
@@ -6,7 +59,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153064.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151237.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150713.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150526.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150518.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150167.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150115.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149913.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148501.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147546.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144796.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143411.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142964.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141618.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140443.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138842.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138407.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138293.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138246.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138158.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135254.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133129.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133042.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132698.jpg" />
 </div>
 
 
@@ -616,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D34DA8A711BE15B6DC37961E7F5CF4D759E1AB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681518   (132677) от 03.12.2023
-
-Корсика. Сокровища острова / Corsica. The Treasures of An Island (2018) HDTVRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корсика четвёртый по величине остров в Средиземном море. Это один из 18 регионов Франции, тем не менее Корсика имеет особый статус - Территориальная общность Корсика. Более известен уютными прибрежными городами с их неповторимым обликом, густыми лесами и скалистыми вершинами, самой высокой из которых является Монте-Чинто. Почти половину острова занимает парк, где (   Читать дальше...   )Производство: EU, TENЖанр: документальный, история, путешествияРежиссер: Бернар ГуэрриниПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF1CC4B1E654F85BC9F7DA62E3D7C16F3DEAA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681535   (132662) от 03.12.2023
-
-RTG. Взгляд с высоты. Природа горного Алтая (2023) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132662.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Золотые горы» – именно так, по одной из версий, переводится название Алтай. Гигантская горная система раскинулась на две тысячи километров. Это целый мир заснеженных вершин, живописных долин и голубых озер.Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйРежиссер: Александр ЕфимовЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA56D292E9C54E203FB75113999D191A2145FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

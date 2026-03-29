@@ -1,3 +1,55 @@
+###  Публикация: 1356860   (976458) от 01.02.2020
+
+В.Ш. Берикашвили | Основы радиоэлектроники: системы передачи информации (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиотехнические системы - быстро растущая область знаний. Постоянно расширяется сфера их применения на практике, а вместе с тем и их сложность. В предлагаемом пособии рассматриваются основные типы радиотехнических систем, дается их классификация по используемым частотам (длинам волн), типу модуляции, назначению, методам обработки информации, функциональным особенностям. (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBADC62CB5523F43A625CCB80372E46475A19EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356982   (976391) от 01.02.2020
+
+В.В. Бирюков, Е.Г. Порсев | Тяговый электрический привод (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976391.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем учебном пособии описаны назначение, структура и основные элементы тягового электропривода, механической и электрической частей тягового электропривода, дана классификация преобразователей и источников энергии, представлены структурные схемы тяговых электроприводов, а также принципы управления режимами работы тяговых электродвигателей. Особое внимание (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDE88C828C4C7ACB34B4B18C751CA079E29E134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357144   (975536) от 02.02.2020
 
 В.М. Малышев, А.Б. Никитин | Устройства формирования и генерирования сигналов. Автоматизированное моделирование СВЧ-устройств (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975536.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975468.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975371.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975179.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974531.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974525.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974478.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974408.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974217.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974213.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972997.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972418.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968714.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968711.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968638.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968533.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968454.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967228.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967083.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967014.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966008.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965951.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965063.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964474.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:041115B618EE6954AF079EC1A1A8A5B7C9315000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359472   (964175) от 12.02.2020
-
-В.Ю. Шишмарёв | Технические измерения и приборы (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964175.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике излагаются основы теории измерений, методы измерений, метрологические показатели измерений и средств измерений, терминология и классификация методов и средств измерений.
-Подробно рассмотрены типовые схемы измерительных приборов с подразделением по измеряемым величинам, описаны средства отображения и регистрации результатов измерений. Рассмотрена процедура (   Читать дальше...   )Жанр: ИзмеренияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98729DD156DE51421DF0C97CE05ADB764FBF75E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359462   (964171) от 12.02.2020
-
-А.Г. Щепетов, Ю.Н. Дьяченко | Преобразование измерительных сигналов. Учебник и практикум (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964171.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время приборостроение является важной отраслью промышленности, от успешного развития которой зависит способность страны к инновациям, внедрению новых приборов, установок, систем и технологий, необходимых для повышения производительности труда, создания комфортных и безопасных условий жизни людей, освоения окружающей среды, обеспечения экологической безопасности (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE420D6C5EFEB01B3475F58E31524CF56DEE3D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

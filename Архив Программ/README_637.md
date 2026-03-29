@@ -6,7 +6,7 @@ VueMinder Ultimate 2019.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729822.jpg" />
+  <img src="Z:/picture/008/save_picture_729822.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GiliSoft Video Editor 11.2.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729814.jpg" />
+  <img src="Z:/picture/008/save_picture_729814.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe components Flash Player 32.0.0.142 + AIR 32.0.0.89 + Shockwave Player 12.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729813.jpg" />
+  <img src="Z:/picture/008/save_picture_729813.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Uninstaller Free 11.3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729799.jpg" />
+  <img src="Z:/picture/008/save_picture_729799.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Waterfox Current G4.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729793.jpg" />
+  <img src="Z:/picture/008/save_picture_729793.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Bootstrap Studio 5.9.2 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729791.jpg" />
+  <img src="Z:/picture/008/save_picture_729791.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Insofta 3D Text Commander 4.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729762.jpg" />
+  <img src="Z:/picture/008/save_picture_729762.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Media Player Codec Pack 4.4.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729746.jpg" />
+  <img src="Z:/picture/008/save_picture_729746.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tipard Video Converter Ultimate 9.0.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729741.jpg" />
+  <img src="Z:/picture/008/save_picture_729741.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wise Registry Cleaner 9.18.592 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729733.jpg" />
+  <img src="Z:/picture/008/save_picture_729733.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BELOFF [dp] 2019.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729709.jpg" />
+  <img src="Z:/picture/008/save_picture_729709.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Daum PotPlayer 1.7.17508 (fix 19.02.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729707.jpg" />
+  <img src="Z:/picture/008/save_picture_729707.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Movavi Video Editor Plus 15.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729692.jpg" />
+  <img src="Z:/picture/008/save_picture_729692.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Product Key Explorer 4.2.9.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729686.jpg" />
+  <img src="Z:/picture/008/save_picture_729686.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft .NET 6.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729676.jpg" />
+  <img src="Z:/picture/008/save_picture_729676.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Sandboxie 5.55.10 / Sandboxie Plus 1.0.10 RePack by Umbrella Corporation [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729672.jpg" />
+  <img src="Z:/picture/008/save_picture_729672.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ K-Lite Codec Pack Update 12.1.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729646.jpg" />
+  <img src="Z:/picture/008/save_picture_729646.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ PIDKey 2.1.0 build 1000 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729645.jpg" />
+  <img src="Z:/picture/008/save_picture_729645.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ MediaMonkey Gold 4.1.12.1798 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729643.jpg" />
+  <img src="Z:/picture/008/save_picture_729643.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ NetWorx 5.5.4 DC 01.06.2016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729637.jpg" />
+  <img src="Z:/picture/008/save_picture_729637.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Light Alloy 4.10.0 Build 2945 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729628.jpg" />
+  <img src="Z:/picture/008/save_picture_729628.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ SamDrivers 19.2 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729572.jpg" />
+  <img src="Z:/picture/008/save_picture_729572.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Movavi Video Converter 19.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729570.jpg" />
+  <img src="Z:/picture/008/save_picture_729570.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ UnHackMe 13.40.2022.0208 RePack by Umbrella Corporation [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729560.jpg" />
+  <img src="Z:/picture/008/save_picture_729560.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Freemake Video Converter 4.1.9.13 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729528.jpg" />
+  <img src="Z:/picture/008/save_picture_729528.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Album Player 2.108 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729527.jpg" />
+  <img src="Z:/picture/008/save_picture_729527.jpg" />
 </div>
 
 

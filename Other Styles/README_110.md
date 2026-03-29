@@ -1,3 +1,66 @@
+###  Публикация: 827417   (448971) от 02.10.2014
+
+VA - В ритме танца. Медленный танец (2010) 3CD [FLAC|Lossless]<Instrumental, Easy Listening, Pop , Retro , Vocal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нравится ли вам танцевать под самые романтические мелодии на свете или вы предпочитаете наслаждаться любимыми песнями в спокойной обстановке , эта музыкальная коллекции Ридерз Дайджест во всех случаях придётся вам по вкусу и оправдает все ваши ожидания. Великие песни не устаревают… Эта музыка способна не только освежить ваши нежные воспоминания , но и создать настроение (   Читать дальше...   )CD1: Незабываемое
+CD2: Только Чувства
+CD3: Следующий Танец за МнойЖанр: Instrumental, Easy Listening, Pop , Retro , VocalПродолжительность: 03:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34AA3F4C5BA189776BE86C94B4C1173C9A70400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550703   (448753) от 26.09.2012
+
+VA - Back To Nature (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Sounds of nature>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448753.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:14) 01. Holei
+(4:59) 02. Moon river
+(4:42) 03. Amazing Grace
+(4:53) 04. Giving Thanks
+(5:14) 05. Mesa Verde
+(4:48) 06. Home on the Range
+(4:33) 07. Round the Cape
+(4:28) 08. Loch Lomond
+(5:43) 09. Reflection
+(5:19) 10. Mokihana Lullaby(   Читать дальше...   )Жанр: New age, Instrumental, Relax, Sounds of natureПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E7EC4C508F8206EBB8240C7A77AE4A8346728A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 145393   (448586) от 14.08.2022
 
 Александр Зацепин - Тайна третьей планеты (1981) [MP3|320 kb/s]<Soundtrack>
@@ -6,7 +69,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448586.jpg" />
+  <img src="Z:/picture/008/save_picture_448586.jpg" />
 </div>
 
 
@@ -35,7 +98,7 @@ Leo Rojas - Flying Heart (2012) [FLAC|Lossless|image + .cue] <New age, Instrumen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448585.jpg" />
+  <img src="Z:/picture/008/save_picture_448585.jpg" />
 </div>
 
 
@@ -64,7 +127,7 @@ Rajendra Teredesai & BlueMonk - Samsara (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448491.jpg" />
+  <img src="Z:/picture/008/save_picture_448491.jpg" />
 </div>
 
 
@@ -93,7 +156,7 @@ Vangelis Katsoulis - If Not Now When (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448144.jpg" />
+  <img src="Z:/picture/008/save_picture_448144.jpg" />
 </div>
 
 
@@ -122,7 +185,7 @@ Edward Shearmur - K-PAX / Планета Ка-Пэкс (2001) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448049.jpg" />
+  <img src="Z:/picture/008/save_picture_448049.jpg" />
 </div>
 
 
@@ -157,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447914.jpg" />
+  <img src="Z:/picture/008/save_picture_447914.jpg" />
 </div>
 
 
@@ -191,7 +254,7 @@ Cybertribe & Deuter & Kamal - Yoga & Pilates by the Sea (2008) [MP3|320 kbps]<Re
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447771.jpg" />
+  <img src="Z:/picture/005/save_picture_447771.jpg" />
 </div>
 
 
@@ -225,7 +288,7 @@ The Corrs - 3 альбома - 5CD (2001-2007) [FLAC|Lossless]<Pop rock, Celtic,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447728.jpg" />
+  <img src="Z:/picture/005/save_picture_447728.jpg" />
 </div>
 
 
@@ -260,7 +323,7 @@ VA - Музыка из т/с «Два Антона» (2009-2010) [MP3|128 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447469.jpg" />
+  <img src="Z:/picture/008/save_picture_447469.jpg" />
 </div>
 
 
@@ -289,7 +352,7 @@ Guy Sweens - Universal Language (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447333.jpg" />
+  <img src="Z:/picture/008/save_picture_447333.jpg" />
 </div>
 
 
@@ -318,7 +381,7 @@ Enigma - The Cross Of Changes (1993) [OGG|485 Kbps] <Ambient, New Age, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447088.jpg" />
+  <img src="Z:/picture/008/save_picture_447088.jpg" />
 </div>
 
 
@@ -347,7 +410,7 @@ James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446680.jpg" />
+  <img src="Z:/picture/008/save_picture_446680.jpg" />
 </div>
 
 
@@ -377,7 +440,7 @@ VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446618.jpg" />
+  <img src="Z:/picture/008/save_picture_446618.jpg" />
 </div>
 
 
@@ -406,7 +469,7 @@ Acoustic Ocean - Blue Moon Rising (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446500.jpg" />
+  <img src="Z:/picture/008/save_picture_446500.jpg" />
 </div>
 
 
@@ -435,7 +498,7 @@ Jon Richards - Earthlight (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446430.jpg" />
+  <img src="Z:/picture/008/save_picture_446430.jpg" />
 </div>
 
 
@@ -464,7 +527,7 @@ Amethyste - Alien Moon (2016) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446420.jpg" />
+  <img src="Z:/picture/008/save_picture_446420.jpg" />
 </div>
 
 
@@ -493,7 +556,7 @@ Susie Suh - The Bakman Tapes (2010) [MP3|320 кб/с]<Pop-Folk, Acoustic, Downte
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445063.jpg" />
+  <img src="Z:/picture/008/save_picture_445063.jpg" />
 </div>
 
 
@@ -522,7 +585,7 @@ Nile Rodgers & VA - Путешествие в Америку / Coming to America
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444871.jpg" />
+  <img src="Z:/picture/008/save_picture_444871.jpg" />
 </div>
 
 
@@ -551,7 +614,7 @@ Taylor Davis - Taylor Davis (2015) [MP3|320 кб/с]<Instrumental, Neo-Classical
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444762.jpg" />
+  <img src="Z:/picture/008/save_picture_444762.jpg" />
 </div>
 
 
@@ -580,7 +643,7 @@ Paul Cardall - Peaceful Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444570.jpg" />
+  <img src="Z:/picture/008/save_picture_444570.jpg" />
 </div>
 
 
@@ -609,7 +672,7 @@ Geoff Hall - Understanding the Signs (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444452.jpg" />
+  <img src="Z:/picture/008/save_picture_444452.jpg" />
 </div>
 
 
@@ -638,7 +701,7 @@ Ennio Morricone - Le Meilleur de Ennio Morricone (2017) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443674.jpg" />
+  <img src="Z:/picture/008/save_picture_443674.jpg" />
 </div>
 
 
@@ -667,7 +730,7 @@ Sergey Eybog - Бесконечное Лето (Original Game Soundtrack) (2013)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442854.jpg" />
+  <img src="Z:/picture/008/save_picture_442854.jpg" />
 </div>
 
 
@@ -696,7 +759,7 @@ Pawel Mareyn - Habitable Zone (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442411.jpg" />
+  <img src="Z:/picture/008/save_picture_442411.jpg" />
 </div>
 
 
@@ -710,64 +773,6 @@ Pawel Mareyn - Habitable Zone (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385D748543A3FF76D6D88610578837B43D0D8287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322405   (442396) от 01.09.2019
-
-VA - Underworld Collection 1-5 / Другой мир 1-5 (2003-2016) [MP3|128-320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442396.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Renholdër - Now I Know (0:59)
-2. Renholdër - Down In The Lab (1:48)
-3. Renholdër - Death Dealer's Descent (0:57)
-4. David Bowie - Bring Me the Disco King (Renholdër Remix) (6:08)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619513E3A0EDA1BD8E935C578F849755B7BAB008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322247   (442215) от 01.09.2019
-
-VA - Friday the 13th / Пятница 13-е (2009) [MP3|192 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Ranger - Sister Christian
-02. Bumblebeez - Freak Your Loneliness
-03. Classic - Get Em Up
-04. Living Things - Post Millennium Extinction Blues(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D35822575E6625DA1DD887CDD8A250F06A40600
 ```
 
 https://mybot314.ru/tekegram_catalog/

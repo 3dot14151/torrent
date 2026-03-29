@@ -1,3 +1,113 @@
+###  Публикация: 1343478   (218501) от 06.12.2019
+
+7Б - Художник отмечал… (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218501.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Художник отмечал…Жанр: RockПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0049C114CE62EB18DA723BD5FBBD4185386613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343444   (218464) от 06.12.2019
+
+Сплин - Тайком (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218464.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ТайкомЖанр: RockПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12672C16ABAE55ADC4A0A5E383CBB8C78D0EF7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966735   (218413) от 18.12.2015
+
+Курара - Архиверсии (2015) [MP3|320 кб/с] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа приготовила новогодний подарок – сборник ремиксов и версий на песни из прошлогоднего альбома группы «Архимед», который и получил название «АРХИВЕРСИИ».01. Барокамера (J-Kom Remix)
+02. Локомотив (Барто Rmx)
+03. Так оно и будет (ННТКЗ30 Remix)
+04. Байконур (АлоэВера Версия)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0524C960F1727CB3C8E092600CE1B30FB7C0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586126   (218362) от 25.10.2022
+
+Plirom - Путь в вальгаллу (2022) [MP3|320 Kbps] <MetalCore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Уже не здесь [00:02:10]
+02 - Город солнца [00:03:06]
+03 - Путь в Вальгаллу [00:04:36]
+04 - Город плача [00:03:30](   Читать дальше...   )Жанр: MetalCoreПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C67B3131988E16C6B3A875085E4636E5CEAD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586089   (218317) от 25.10.2022
 
 Несогласие - 3 Albums (2016-2022) [MP3|320 Kbps] <Progressive Rock>
@@ -6,7 +116,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218317.jpg" />
+  <img src="Z:/picture/005/save_picture_218317.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ The Пауки - Шторм идёт (2021) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217743.jpg" />
 </div>
 
 
@@ -64,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217649.jpg" />
 </div>
 
 
@@ -93,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217576.jpg" />
 </div>
 
 
@@ -122,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217508.jpg" />
+  <img src="Z:/picture/005/save_picture_217508.jpg" />
 </div>
 
 
@@ -151,7 +261,7 @@ The Hatters - Golden Hits (2021) [MP3|320 Kbps] <Rock, Ska>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217471.jpg" />
+  <img src="Z:/picture/005/save_picture_217471.jpg" />
 </div>
 
 
@@ -180,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217340.jpg" />
+  <img src="Z:/picture/005/save_picture_217340.jpg" />
 </div>
 
 
@@ -209,7 +319,7 @@ GRUNGE BEAT 666 667 - 3 Albums (2021-2022) [MP3|320 Kbps] <Grunge>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217234.jpg" />
+  <img src="Z:/picture/005/save_picture_217234.jpg" />
 </div>
 
 
@@ -238,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217224.jpg" />
+  <img src="Z:/picture/005/save_picture_217224.jpg" />
 </div>
 
 
@@ -267,7 +377,7 @@ Travel To Eternity - Атлас Времён (2022) [MP3|320 Kbps] <Melodic Deat
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217208.jpg" />
+  <img src="Z:/picture/005/save_picture_217208.jpg" />
 </div>
 
 
@@ -296,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217126.jpg" />
+  <img src="Z:/picture/005/save_picture_217126.jpg" />
 </div>
 
 
@@ -325,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217106.jpg" />
+  <img src="Z:/picture/005/save_picture_217106.jpg" />
 </div>
 
 
@@ -354,7 +464,7 @@ Magnus Grimm - Страшно, Да? (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217090.jpg" />
+  <img src="Z:/picture/005/save_picture_217090.jpg" />
 </div>
 
 
@@ -383,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217029.jpg" />
+  <img src="Z:/picture/005/save_picture_217029.jpg" />
 </div>
 
 
@@ -412,7 +522,7 @@ Rotten Toten - Ужин у вдовы (2019) [MP3|320 Kbps] <Rock, Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216717.jpg" />
 </div>
 
 
@@ -443,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216060.jpg" />
 </div>
 
 
@@ -469,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215903.jpg" />
 </div>
 
 
@@ -498,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215844.jpg" />
 </div>
 
 
@@ -527,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214053.jpg" />
+  <img src="Z:/picture/005/save_picture_214053.jpg" />
 </div>
 
 
@@ -556,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213931.jpg" />
+  <img src="Z:/picture/005/save_picture_213931.jpg" />
 </div>
 
 
@@ -585,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213586.jpg" />
+  <img src="Z:/picture/005/save_picture_213586.jpg" />
 </div>
 
 
@@ -614,7 +724,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213503.jpg" />
 </div>
 
 
@@ -628,121 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8546C477905C37834FA0CA09DC6B3F988685E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832345   (213502) от 30.10.2025
-
-ЗакЛинания - Лирика (2020) [MP3|320 Kbps] <Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Здравствуй, мама смерть 2:59
-02 - Жизнь 3:23
-03 - Эта осень 3:55
-04 - Когда ты закроешь глаза рукой 3:19(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400DB8238398B48C88F966F7C29DCAC4677DF0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832101   (213447) от 29.10.2025
-
-Магнитная Аномалия - 4 Albums (2008-2025) [MP3|320 Kbps] <Alternative-Rock, Indie, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Магнитная Аномалия (2008) 13 Капель яда
-Магнитная Аномалия (2021) Я больше не ем животных
-Магнитная Аномалия (2024) Изумрудный концерт (Live)(   Читать дальше...   )Жанр: Alternative-Rock, Indie, GrungeПродолжительность: 4 CD, 02:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB547D6B51EC6889A011D12D7AF5FD407EA07F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624378   (213362) от 14.06.2022
-
-VA - Mastersland.com - Украдено Из Студии 1 и 2 + 10 лет в сети (2008-2011) [MP3|320 kbps] <Heavy Metal, Power Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213362.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008 - Украдено Из Студии
-2010 - Украдено Из Студии 2
-2011 - Украдено Из Студии 3 - 10 Лет В СетиЖанр: Heavy Metal, Power Metal, Death MetalПродолжительность: 03:29:39 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D7FCDE14E295D86BCFA97EF4947A90F3CE91C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365627   (212353) от 20.07.2022
-
-Мария-Режина - 6 Relised (2013-2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Золотой Капрал [00:04:59]
-02 - Королева Песков [00:03:22]
-03 - Распад [00:04:57]
-04 - Голем [00:05:10](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 6CD, 04:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA9E02AAC280809B1CB5315456067EB989AA4D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

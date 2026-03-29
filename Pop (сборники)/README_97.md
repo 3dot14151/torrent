@@ -1,3 +1,177 @@
+###  Публикация: 1180179   (342350) от 03.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 003 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кар-Мэн - Эй, Ухнем! ( 1990 )
+02. Мальчиш-Плохиш - Девочка ( 1990 )
+03. Добрынин Александр - Розовые Розы ( 1991 )
+04. Великолепный Гога - Всё Зря ( 1990 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680803BBCC1C78F2C4AB3C149F88249E64039C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180160   (342247) от 03.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 002 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Био - Техноромантики ( 1993 )
+02. Фабрика - Я От Неё Без Ума ( 1990 )
+03. Вика - Розовый Букет ( 1990 )
+04. Белоусов Женя - Дуня-Дуняша ( 1993 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3249E7B68E7290115B8EF2A64D9A9A4C3E87DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180441   (342211) от 03.11.2017
+
+VA - ЕвроХит Топ 40 Europa Plus 03.11.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz feat. James Blunt - OK
+02. J Balvin Ft Willy William - Mi Gente
+03. Zayn Malik feat. Sia - Dusk Till Dawn
+04. AJR - Week(   Читать дальше...   )Жанр: PopПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65926C7E165B266BF42AEA60E93B6193EF827CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180153   (342067) от 03.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 001 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мираж - Звезды Нас Ждут ( 1987 )
+02. Ласковый Май - Озорная Девчонка ( 1990 )
+03. Мона Лиза - Наши Бабы Лучше Аббы! ( 1994 )
+04. Кристина - С Января До Января ( 1990 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6484F3F4B3925F2471D9E531D3874A2B074E3096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073918   (340908) от 18.11.2016
+
+VA - Осенняя позитивная сотка. Выпуск 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340908.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Usher - Make U A Believer 4:07
+002.Градусы - Вали Гуляй 3:48
+003.Ellie Goulding - Devotion 3:47
+004.Ruslan Nigmatullin - Москва Не Город А Целый Мир 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE80720ACBB3B2873E1A7D439BA11CC1E3C22764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073932   (340746) от 18.11.2016
+
+VA - Горячие осенние новинки. Русская версия (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Oleynik - Остановись 3:20
+002.Не.Kurili Feat. Mansarda - Оскал 5:31
+003.Alex 67 - Сумасшедшая 3:18
+004.Иракли & Leonid Rudenko - Мужчина Не Танцует 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0512F1E0B5901D35B80732C6B31C13D875835F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073935   (340740) от 18.11.2016
 
 VA - Горячие Осенние Новинки 50х50 (2016) [MP3|256 Kbps] <Pop>
@@ -6,7 +180,7 @@ VA - Горячие Осенние Новинки 50х50 (2016) [MP3|256 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340740.jpg" />
+  <img src="Z:/picture/008/save_picture_340740.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Мега хитовая осень на Europa Plus - 9 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340739.jpg" />
+  <img src="Z:/picture/008/save_picture_340739.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Громкие новинки месяца Vol.15 (2018) [MP3|320 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340497.jpg" />
+  <img src="Z:/picture/008/save_picture_340497.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Осторожно!!! Лавина хитов (2016) [MP3|256~320 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340366.jpg" />
+  <img src="Z:/picture/008/save_picture_340366.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Feuerwerk der Schlagerhits (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340107.jpg" />
+  <img src="Z:/picture/008/save_picture_340107.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 004 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340028.jpg" />
+  <img src="Z:/picture/008/save_picture_340028.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 008 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340027.jpg" />
+  <img src="Z:/picture/008/save_picture_340027.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 007 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340021.jpg" />
+  <img src="Z:/picture/008/save_picture_340021.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 006 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340017.jpg" />
+  <img src="Z:/picture/008/save_picture_340017.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 005 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339892.jpg" />
+  <img src="Z:/picture/008/save_picture_339892.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 009 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339887.jpg" />
+  <img src="Z:/picture/008/save_picture_339887.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - Русская Дискотека. Волшебный Фонарь (2015) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339607.jpg" />
+  <img src="Z:/picture/008/save_picture_339607.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ VA - German Top 100 Single Charts 18.11. (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338750.jpg" />
+  <img src="Z:/picture/008/save_picture_338750.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - Бомба года от Хит FM (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338289.jpg" />
+  <img src="Z:/picture/008/save_picture_338289.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Pop Sampler Chart: November Hits Collection (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337763.jpg" />
+  <img src="Z:/picture/008/save_picture_337763.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - Only Best Hits. Зажигательная дискотека (2015) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337029.jpg" />
+  <img src="Z:/picture/008/save_picture_337029.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - German Top 100 Single Charts 11.10.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336721.jpg" />
+  <img src="Z:/picture/008/save_picture_336721.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Shazam Хит-парад Russia Top 100 Сентябрь (2019) [MP3|320 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336365.jpg" />
+  <img src="Z:/picture/008/save_picture_336365.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ VA - Музыкальный Заряд 5 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336222.jpg" />
+  <img src="Z:/picture/008/save_picture_336222.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 013 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335585.jpg" />
+  <img src="Z:/picture/008/save_picture_335585.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 013 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BAB37DD24DC2221A815FF500ABB1719F7D086B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181146   (335477) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 010 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шоколад-Виктория - Алло, Алёнка ( 1989 )
-02. Восьмой День - Прощай ( Первый Снег ) ( 1991 )
-03. Николаев Игорь - Малиновое Вино ( 1994 )
-04. Электроклуб - Ягодный Сезон ( 1987 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FBB3A51CD537F5D5737B62803172C3E3B9D3CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181148   (335474) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 011 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шторм Анна - Франция ( Далекая Страна ) ( 1994 )
-02. Картышев Владимир - Ночь После Трудного Дня ( 1991 )
-03. Рок-Сентябрь и DDT - Танцует Робот ( 1983  )
-04. Кристина Corp. - Снег На Розах ( 2005 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DF7DDA4B9B68D7713814CC885154B5486C670F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181287   (335468) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 014 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маленький Принц - Прощай ( 1989 )
-02. Журавлёва Марина - Белая Черёмуха ( 1991 )
-03. Ласковый Май ( Юрий Шатунов ) - Седая Ночь ( 1989 )
-04. Жуков Рома - Слепой Рассвет ( 1991 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B9CAA9942E9B38AFEE6E0ED0D42DC2EEA9859C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181150   (335463) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 012 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хромов Олег - Первый Дождь ( 1991 )
-02. Финиш - Розовые Рожи ( 1990 )
-03. Ночной Вояж - Джулия ( 1989 )
-04. Лукьянов Александр - Падает Снег ( 1989 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD2713F8720863E3E239801A9FC26FF2307C691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181308   (335456) от 06.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 015 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антонов Юрий - Не Забывай ( 1980 )
-02. Сладкий Сон ( Сергей Васюта ) - На Белом Покрывале Января ( 2012 )
-03. Чекалин Сергей - Журавли И Синицы ( 1989 )
-04. Верасы - Малиновки Заслыша Голосок ( 1981 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3B674A474280DD8ED45A4E09B8CF5E9F2FA36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181369   (335373) от 06.11.2017
-
-VA - Lian Ross Projects (2009) 2CD [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lian Ross - Say You'll Never (6:36)
-02. Gina T. - Tokyo By Night (3:41)
-03. New Baccara - Fantasy Boy (Extended Version) (6:56)
-04. Patty Ryan - You're My Love My Life (4:25)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1B0A8E9AE2D7330A50A2995943D92BDEEF5306
 ```
 
 https://mybot314.ru/tekegram_catalog/

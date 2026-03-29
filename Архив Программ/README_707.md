@@ -1,3 +1,55 @@
+###  Публикация: 1133673   (693037) от 13.05.2017
+
+Light Alloy 4.10.1 Build 3251 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Light Alloy - компактный мультимедийный плеер. Поддерживает все распространённые мультимедийные форматы. Основная особенность - простота использования и в то же время многообразие настроек. Проигрыватель оптимизирован для быстрого запуска и минимальной загрузки системы. Быстро перематывает видео, умеет загружать субтитры, может сворачиваться в трей, умеет регулировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFEBEF8CEFFB7F089AEE2A23976178DF5F682F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221578   (692996) от 25.04.2018
+
+Opera 52.0.2871.97 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB0518DCCB653D73AE3AA4D8EBFA52E0E4FC8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221572   (692995) от 25.04.2018
 
 360 Security Browser 9.1.0.418 Portable by Cento8 [Ru/En]
@@ -6,7 +58,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692995.jpg" />
+  <img src="Z:/picture/008/save_picture_692995.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ YouTube By Click Premium 2.2.83 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692979.jpg" />
+  <img src="Z:/picture/008/save_picture_692979.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Any Video Converter Ultimate 6.1.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692947.jpg" />
+  <img src="Z:/picture/008/save_picture_692947.jpg" />
 </div>
 
 
@@ -76,6 +128,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221693   (692895) от 25.04.2018
+
+PDF-XChange Editor Plus 7.0.325.1 RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692895.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-XChange Editor - программа для просмотра, редактирования и изменения PDF документов. У вас теперь есть более легкий, быстрый и многофункциональный аналог программе Adobe Reader. Программа обладает всеми возможностями для просмотра PDF документов. С помощью PDF-XChange Editor можно смотреть и печатать PDF документы, экспортировать из них текст и графику, создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770D1C19AC4992F5D370B0C1D40CD87FFCE077A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221656   (692890) от 25.04.2018
 
 R-Studio 8.7 Build 170955 Network Edition [Multi/Ru]
@@ -84,7 +162,7 @@ R-Studio 8.7 Build 170955 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692890.jpg" />
+  <img src="Z:/picture/008/save_picture_692890.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692878.jpg" />
+  <img src="Z:/picture/008/save_picture_692878.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ CoolUtils PDF Combine 5.1.85 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692872.jpg" />
+  <img src="Z:/picture/008/save_picture_692872.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Wise Care 365 Pro 4.21.406 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692860.jpg" />
+  <img src="Z:/picture/008/save_picture_692860.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692858.jpg" />
+  <img src="Z:/picture/008/save_picture_692858.jpg" />
 </div>
 
 
@@ -206,6 +284,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133822   (692857) от 13.05.2017
+
+Aurora Blu-ray Media Player 2.18.15.2362 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aurora Blu-ray Media Player — великолепный и один из лучших мультимедиа проигрывателей для Windows, который может воспроизводить диски Blu-ray, ISO образы файлов Blu-ray, стандартные Blu-ray папки, DVD, VCD, CD и многие другие популярные видео форматы. Позволяет просматривать фильмы (в т.ч. с субтитрами), изображения, музыку с высоким качеством и разрешением. Поддерживает (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB99CBC661BAAF578E4934D54916DA625C565F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133438   (692855) от 13.05.2017
 
 Error Lookup 2.3 + Portable [Multi/Ru]
@@ -214,7 +318,7 @@ Error Lookup 2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692855.jpg" />
+  <img src="Z:/picture/008/save_picture_692855.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ FastStone Capture 8.5 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692848.jpg" />
+  <img src="Z:/picture/008/save_picture_692848.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ PDF-XChange Editor Plus 6.0.322.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692844.jpg" />
+  <img src="Z:/picture/008/save_picture_692844.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Adobe components: Flash Player 25.0.0.171 + AIR 25.0.0.134 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692838.jpg" />
+  <img src="Z:/picture/008/save_picture_692838.jpg" />
 </div>
 
 
@@ -310,6 +414,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221611   (692791) от 25.04.2018
+
+AOMEI Partition Assistant Technician 7.0 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692791.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150FFB7E7F4C0B1DC5CAC149666A896B6C80EB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221592   (692782) от 25.04.2018
 
 WinZip Pro 22.5 Build 13114 Final RePack by D!akov [Ru/En]
@@ -318,7 +448,7 @@ WinZip Pro 22.5 Build 13114 Final RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692782.jpg" />
+  <img src="Z:/picture/008/save_picture_692782.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ R-Studio 8.7 Build 170955 Network Edition RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692781.jpg" />
+  <img src="Z:/picture/008/save_picture_692781.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ FlipBuilder Flip PDF 4.3.25 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692772.jpg" />
+  <img src="Z:/picture/008/save_picture_692772.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ CoolUtils Total HTML Converter 5.1.106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692764.jpg" />
+  <img src="Z:/picture/008/save_picture_692764.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Wise Care 365 Pro 4.21.406 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692761.jpg" />
+  <img src="Z:/picture/008/save_picture_692761.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ CCleaner 5.19.5633 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692753.jpg" />
+  <img src="Z:/picture/008/save_picture_692753.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ SolveigMM Video Splitter 6.1.1705.12 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692752.jpg" />
+  <img src="Z:/picture/008/save_picture_692752.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ O&O Defrag Professional / Server 20.5 Build 603 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692739.jpg" />
+  <img src="Z:/picture/008/save_picture_692739.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Windows Firewall Control 4.8.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692689.jpg" />
+  <img src="Z:/picture/008/save_picture_692689.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB40FBBAAD4F632C1ABAADB981CC38CAF13EEDE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028232   (692681) от 21.06.2016
-
-Shadow Defender 1.4.0.635 RePack by D!akov [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Defender – программа, аналогичная программе ShadowUser, позволяющей поставить систему в режим тени - Shadow mode, при котором невозможны ни удаление важной информации, ни атака вирусов. Данная утилита также обеспечивает защиту компьютера и конфиденциальности информации, предотвращает нежелательные и злонамеренные изменения в вашем компьютере, позволяет загружаться (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C850530E3F7D57F2F3173E5078BDEC5597393897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027994   (692678) от 21.06.2016
-
-CoolUtils Total Audio Converter 5.2.0.148 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF90956F6A33235DEAD432A21DAB10CD57235CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028131   (692676) от 21.06.2016
-
-TSR Watermark Image Software Pro 3.5.6.1 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для нанесения так называемых "водяных знаков" на фото и иные изображения. Программа позволяет использовать в качестве такого знака как текст, так и графику. Водяной знак может быть настроен - пользователь волен выбрать цвет, уровень прозрачности, расположение и его размер (в процентах). Поддерживается программой изменения размера итогового изображения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A4B0AFE24478BB58CAF13CBC1A542509DB8433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028099   (692675) от 21.06.2016
-
-AnyMP4 PDF Converter Ultimate 3.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692675.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 PDF Converter - это мощная программа, которая поможет вам конвертировать PDF файлы в Word, Excel, текстовые файлы, изображения (JPEG, PNG, GIF, BMP, PCX, TGA, TIFF), в формат электронных книг (ePub) и формат HTML. Программа поддерживает режимы пакетного и частичного преобразования, имеет приятный и понятный интерфейс.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54EE863F3789A66D6B1153E9BA80B667A6C2C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028239   (692671) от 21.06.2016
-
-CoolUtils Total Audio Converter 5.2.0.148 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCD8403AABCF1CCED20A00D95FEBF51B048CE23
 ```
 
 https://mybot314.ru/tekegram_catalog/

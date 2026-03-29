@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889332.jpg" />
+  <img src="Z:/picture/005/save_picture_889332.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mirror for Samsung TV 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889325.jpg" />
+  <img src="Z:/picture/005/save_picture_889325.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Metrik - Life/Thrills (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889322.jpg" />
+  <img src="Z:/picture/005/save_picture_889322.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889298.jpg" />
+  <img src="Z:/picture/005/save_picture_889298.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Adobe Acrobat Reader DC 2015.010.20060 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889285.jpg" />
+  <img src="Z:/picture/005/save_picture_889285.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Sou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889275.jpg" />
+  <img src="Z:/picture/005/save_picture_889275.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Nero Burning ROM 2016 17.0.8000 Portable by PortableWares (07.03.2016) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889261.jpg" />
+  <img src="Z:/picture/005/save_picture_889261.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Icon Slate 4.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889229.jpg" />
+  <img src="Z:/picture/005/save_picture_889229.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Adults Games (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889228.jpg" />
+  <img src="Z:/picture/005/save_picture_889228.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Mirror for LG TV 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889227.jpg" />
+  <img src="Z:/picture/005/save_picture_889227.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889212.jpg" />
+  <img src="Z:/picture/005/save_picture_889212.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ NCH WavePad Masters Edition 13.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889208.jpg" />
+  <img src="Z:/picture/005/save_picture_889208.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Parted Magic 5.10 [i386] (1 x miniCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889190.jpg" />
+  <img src="Z:/picture/005/save_picture_889190.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Graphic Inspector 2 v2.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889182.jpg" />
+  <img src="Z:/picture/005/save_picture_889182.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ EroRu 1.0.35 + Full Models 1.0.35 [x86]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889154.jpg" />
+  <img src="Z:/picture/005/save_picture_889154.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889127.jpg" />
+  <img src="Z:/picture/005/save_picture_889127.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Adobe Acrobat XI Pro 11.0.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889114.jpg" />
+  <img src="Z:/picture/005/save_picture_889114.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889078.jpg" />
+  <img src="Z:/picture/005/save_picture_889078.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ YT Downloader 7.7.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889071.jpg" />
+  <img src="Z:/picture/005/save_picture_889071.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Taxman – Synthetic Visions (2014) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889067.jpg" />
+  <img src="Z:/picture/005/save_picture_889067.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889065.jpg" />
+  <img src="Z:/picture/005/save_picture_889065.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889064.jpg" />
+  <img src="Z:/picture/005/save_picture_889064.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Glary Utilities Pro 5.173.0.201 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889063.jpg" />
+  <img src="Z:/picture/005/save_picture_889063.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Wise Care 365 Pro 4.55.430 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889058.jpg" />
+  <img src="Z:/picture/005/save_picture_889058.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ PrivaZer 4.0.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889057.jpg" />
+  <img src="Z:/picture/005/save_picture_889057.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ PatterNodes 2 v2.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889040.jpg" />
+  <img src="Z:/picture/005/save_picture_889040.jpg" />
 </div>
 
 

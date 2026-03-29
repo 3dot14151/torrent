@@ -1,3 +1,57 @@
+###  Публикация: 1359679   (964186) от 12.02.2020
+
+Приключение в Большом каньоне 3D: Река в опасности / Grand Canyon Adventure: River at Risk (2008) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающий документальный фильм, который рассказывает зрителю об угрозе, нависшей над одним из главных пейзажных символов Америки. Вы увидите великую реку Колорадо, которая напомнит нам о самой гнетущей современной проблеме окружающей среды – нарастающая нехватка пресной воды во всем мире. Присоединитесь к адвокатам, занимающимся защитой окружающей среды, - Роберту (   Читать дальше...   )Производство: США, MacGillivray Freeman Films, TevaЖанр: Документальный, природа, путешествияРежиссер: Грег МакГилвриПеревод: Двуголосый закадровый, профессиональныйСубтитры: Английские, французские (полные, форсированные), итальянские (полные, форсированные), испанские (полные, форсированные), чешские (полные, форсированные), датские, финские, греческие, венгерские, норвежские, польские, португальские (полные, форсированные), русские (полные, форсированные), шведские, турецкие.Продолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3FB97262D155CFF14FD2187B35F5849FA6B924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747380   (962774) от 19.01.2014
+
+Россия от края до края. Большой Кавказ (2014.01.19) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличительная особенность Большого Кавказа - многообразие ландшафтов Это тысячелетние ледники и горные ущелья, альпийские луга и бескрайние степи, пески Сарыкума - самой большой песчаной дюны Евразии.
+Первобытные леса начинаются в нескольких десятках километров от знаменитых черноморских курортов.
+Биологи считают Кавказ одним из самых богатых по разнообразию видов (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ДокументальныйПродолжительность: ~ 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B02FA013A5CE63CD170BEB1CCA0CA9608F9183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747381   (962536) от 19.01.2014
 
 Россия от края до края. Большой кавказ (2014.01.19) HDTV [H.264/1080i-LQ]
@@ -6,7 +60,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962536.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960735.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958539.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958093.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956096.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956006.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955976.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ IMAX: Вулканы в морских глубинах / IMAX: Volcanoes of the
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955337.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955093.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954889.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954887.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954780.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954388.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ NGW: Просторы Америки / America's Wild Spaces (2018) HDTV [H.264/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950909.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950302.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948831.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947434.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947345.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947336.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947316.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947313.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945413.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944854.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944724.jpg" />
 </div>
 
 
@@ -617,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A1777A21CCDA4C4C1497F332370FA90079B0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090964   (944426) от 08.01.2017
-
-Орел и решка. Кругосветка (2017.01.07) SATRip (сезон 12: Новый год, часть 2)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944426.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E118B31AA3109F638E528348B90CBC300BB888CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859948   (941375) от 16.01.2015
-
-Музей художественного стекла в Санкт-Петербурге (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шедевры, рожденные в пламени. Мастера-стеклодувы из хрупкого материала изготавливают самые различные предметы. Стекло гнут, режут, выдувают, используя, как и в старину, те же технологии и инструменты. Узнать секреты мастерства и полюбоваться коллекцией разнообразных изделий можно в музее художественного стекла, который расположен на Елагином острове в Санкт-Петербурге. (   Читать дальше...   )Телекомпания: Россия, RTG HDЖанр: ДокументальныйПродолжительность: 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CF1434C1D44DEED939F149DDD3E1FEF60E57A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

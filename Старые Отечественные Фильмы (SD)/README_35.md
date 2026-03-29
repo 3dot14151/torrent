@@ -1,3 +1,56 @@
+###  Публикация: 471848   (606170) от 20.04.2019
+
+Адрес вашего дома (1972) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_606170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Великой Отечественной войны ветеран Панас Петрович Байда потерял сына. Прошло много лет, Панас Петрович смирился с утратой, спрятав горе глубоко в сердце. Но однажды до него доносится весть о детях, спасенных солдатами из военного состава.
+Всех мальчиков, кто не помнил своих имен, нарекли Иванами Бессмертными. Они живы до сих пор, но судьба разбросала их (   Читать дальше...   )Производство: СССРЖанр: драмаРежиссер: Евгений ХринюкАктеры: Николай Крючков, Лесь Сердюк, Александр Январев, Валерий Носик, Сосо Лагидзе, Леонид Бакштаев, Александр Мовчан, Лилия Гриценко, Ээве Киви, Тамара СовчиСубтитры: ОтсутствуютПродолжительность: 01:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C328E12037285222CA402225D980512CA62905E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038293   (604921) от 29.07.2016
+
+Долина предков (1989) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти обезлюдел большой аил высоко в горах Киргизстана. Болит за него душа не только у трёх стариков, оберегающих пустые дома, но и у молодого парня, демобилизованного солдата. И почему бы не вернуться людям в такие замечательные места, где жизнь чище и здоровее, чем в городах ?Производство: СССР, КиргизфильмЖанр: ДрамаПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA8971F68ADA7C637C538B9C6A959E1657C86EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038224   (604905) от 29.07.2016
 
 Матрос сошел на берег (1957) SATRip [H.264]
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604905.jpg" />
+  <img src="Z:/picture/008/save_picture_604905.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604762.jpg" />
+  <img src="Z:/picture/008/save_picture_604762.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604758.jpg" />
+  <img src="Z:/picture/008/save_picture_604758.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603553.jpg" />
+  <img src="Z:/picture/008/save_picture_603553.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602826.jpg" />
+  <img src="Z:/picture/008/save_picture_602826.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602434.jpg" />
+  <img src="Z:/picture/008/save_picture_602434.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602275.jpg" />
+  <img src="Z:/picture/008/save_picture_602275.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602271.jpg" />
+  <img src="Z:/picture/008/save_picture_602271.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600971.jpg" />
+  <img src="Z:/picture/008/save_picture_600971.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600811.jpg" />
+  <img src="Z:/picture/008/save_picture_600811.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599995.jpg" />
+  <img src="Z:/picture/008/save_picture_599995.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_599348.jpg" />
+  <img src="Z:/picture/005/save_picture_599348.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599141.jpg" />
+  <img src="Z:/picture/008/save_picture_599141.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598649.jpg" />
+  <img src="Z:/picture/008/save_picture_598649.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598457.jpg" />
+  <img src="Z:/picture/008/save_picture_598457.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596047.jpg" />
+  <img src="Z:/picture/008/save_picture_596047.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595644.jpg" />
+  <img src="Z:/picture/005/save_picture_595644.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594783.jpg" />
+  <img src="Z:/picture/008/save_picture_594783.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594779.jpg" />
+  <img src="Z:/picture/008/save_picture_594779.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593766.jpg" />
+  <img src="Z:/picture/008/save_picture_593766.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593765.jpg" />
+  <img src="Z:/picture/008/save_picture_593765.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593725.jpg" />
+  <img src="Z:/picture/008/save_picture_593725.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592948.jpg" />
+  <img src="Z:/picture/008/save_picture_592948.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592911.jpg" />
+  <img src="Z:/picture/008/save_picture_592911.jpg" />
 </div>
 
 
@@ -618,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5753CBD5D1618CED23329F8783D6F3979928338F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287991   (592558) от 09.05.2022
-
-Письма к живым (1964) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прообраз героини - Герой Советского Союза Вера Хоружая, коммунистка-подпольщица.
-После окончания второй мировой войны в камере казненной фашистами партизанки Вероники Корчевской находят письма - итог ее героической жизни...Производство: СССР / БеларусьфильмЖанр: ДрамаРежиссер: Валентин ВиноградовАктеры: Светлана Макарова, Астрида Кайриша, Валентин Никулин, Павел Махотин, Валентина Кибардина, Григорий Гай, Николай Прокопович, Стефания Станюта, Лена Гутник, Бронюс БабкаускасСубтитры: ОтсутствуютПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982A79B85AE5C117DD0B0D33FD072F57421CD514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915537   (592257) от 05.07.2015
-
-Мисс миллионерша (1988) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592257.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале «перестройки» городские власти готовятся к очередному мероприятию в духе застойных времен. Режиссеру с достаточно «ершистым» характером поручают снять материал о рождении миллионного жителя. Но когда он находит героиню сюжета, «позитивного» материала не получается, так как эта семья для рекламы счастливой жизни никак не подходит…Производство: СССР / ЛенфильмЖанр: КомедияРежиссер: Александр РогожкинАктеры: Николай Караченцов, Татьяна Михалевкина, Юрий Дубровин, Елена Мельникова, Наталья Назарова, Оксана Мысина, Никита Михайловский, Владимир Тягичев, Александр Новиков, Виктор Бычков, Сергей ПрохановПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13767AF59485747AEFAA68E1C2B4CF3733F29C42
 ```
 
 https://mybot314.ru/tekegram_catalog/

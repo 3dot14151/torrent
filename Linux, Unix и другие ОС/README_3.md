@@ -1,3 +1,57 @@
+###  Публикация: 979246   (960879) от 25.01.2016
+
+Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Debian с радостью сообщает о третьем обновлении своего стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются при необходимости.
+
+Заметьте, что это (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE1FDC84A1E0D9D965738306F02A4EC30F90B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979249   (960763) от 25.01.2016
+
+KNOPPIX 7.6.1 [x32, x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клаус Кноппер (Klaus Knopper) представил корректирующий выпуск KNOPPIX 7.6.1, исторически одного из первых дистрибутивов, поддерживающих работу в Live-режиме. Дистрибутив построен на основе оригинального набора загрузочных скриптов и включает в себя пакеты, импортированные из Debian Jessie, со вставками из веток Debian "testing" и "unstable". (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E224D31AD4458DF35CD075D3443F7D8AB8B764A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979213   (959529) от 26.01.2016
 
 Debian GNU/Linux 8.3.0 Jessie [amd64] 3xDVD, 2x update DVD, 1x netinstCD
@@ -6,7 +60,7 @@ Debian GNU/Linux 8.3.0 Jessie [amd64] 3xDVD, 2x update DVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959529.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ ROSA Desktop Fresh (KDE + Plasma) R7 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959496.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ SolusOS 1.3 (Debian + Gnome) [x86, amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958520.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ BackBox Linux 4.5 [Анализ безопасности, хакинг] [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958189.jpg" />
 </div>
 
 
@@ -119,7 +173,7 @@ Tor Browser 2.3.25-4 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957534.jpg" />
 </div>
 
 
@@ -145,7 +199,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957104.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ Window Maker Live  0.95.7-2 (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957090.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ Debian GNU/Linux 6.0.7 [amd64, x86-64] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956510.jpg" />
 </div>
 
 
@@ -227,7 +281,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955689.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ Tor Browser 5.5 [анонимный доступ в сети] [х86, x64] (bundl
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955673.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ Debian GNU/kFreeBSD 6.0.7 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955286.jpg" />
 </div>
 
 
@@ -311,7 +365,7 @@ Debian GNU/Linux 6.0.7 [i386] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954954.jpg" />
 </div>
 
 
@@ -339,7 +393,7 @@ Edubuntu 14.04 Alpha II (Ubuntu для школ и вузов) [i386, amd64] 2xD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954300.jpg" />
 </div>
 
 
@@ -367,7 +421,7 @@ Linux Mint 17.1 Rebecca KDE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952821.jpg" />
 </div>
 
 
@@ -395,7 +449,7 @@ Parted Magic 2020.02.23 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947646.jpg" />
 </div>
 
 
@@ -421,7 +475,7 @@ Red Hat Enterprise Linux 6.4 [i386] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946976.jpg" />
 </div>
 
 
@@ -449,7 +503,7 @@ Red Hat Enterprise Linux 6.4 [x86-64] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946883.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ Slackware 14.2 Beta2 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945011.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944870.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ MKVToolNix v6.1.0 ('Old Devil') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942695.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ SystemRescueCD 6.1.0 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939177.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ CentOS 6.4 [i386] (2xDVD+2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937999.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ CentOS 6.4 [x86-64] (2xDVD+2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937858.jpg" />
 </div>
 
 
@@ -641,7 +695,7 @@ Dynamic A-D Ports for Applications [Авторский релиз] 1.0 [x86, x64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932177.jpg" />
 </div>
 
 
@@ -654,59 +708,6 @@ Dynamic A-D Ports for Applications - addon for gufw - ufw (DAD Ports for App); L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2689B0F37340DF5793ECE1D419003DE211AF64C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093981   (932114) от 16.01.2017
-
-Debian GNU/Linux 8.7.0 Jessie [x86-64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Debian выпустили седьмое корректирующее обновление для стабильного дистрибутива Debian 8 (Jessie). Релиз 8.7 в основном исправляет проблемы с безопасностью, а также вносит некоторые коррективы в работу. Выпуск включает 87 обновлений с устранением проблем со стабильностью и 86 обновлений с устранением уязвимостей. Из изменений в Debian 8.7 можно отметить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A266A1298277124ED88EF3F03524BCAD0195F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365035   (931647) от 06.03.2020
-
-Ubuntu*Pack 18.04 (февраль 2020) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CF0FE5E5A9B0B03FAC37C4BBC3B8BA86D4A166
 ```
 
 https://mybot314.ru/tekegram_catalog/

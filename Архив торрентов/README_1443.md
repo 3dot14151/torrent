@@ -6,7 +6,7 @@ Karunesh - Greatest Hits (Music For Body, Heart & Soul) (2008) 2 CD [MP3|320 к�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726480.jpg" />
+  <img src="Z:/picture/008/save_picture_726480.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Soft4Boost Update Checker 6.7.5.345 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726468.jpg" />
+  <img src="Z:/picture/008/save_picture_726468.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - WTII Records 2013 FREE Sampler (2013) [MP3|320 Kbps] <Synth Pop, EBM, Dark 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726461.jpg" />
+  <img src="Z:/picture/008/save_picture_726461.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - Sunshine Live Vol.60 (2017) [MP3|320 Kbps] <Trance, House, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726460.jpg" />
+  <img src="Z:/picture/008/save_picture_726460.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ John Digweed - Transitions 657-660 (2017) [MP3|320 Kbps] <Progressive House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726455.jpg" />
+  <img src="Z:/picture/008/save_picture_726455.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ K-Lite Codec Pack Update 13.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726451.jpg" />
+  <img src="Z:/picture/008/save_picture_726451.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ VA - WTII Records 2014 Free Digital Sampler (2014) [MP3|320 Kbps] <Synth Pop, EB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726448.jpg" />
+  <img src="Z:/picture/008/save_picture_726448.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Sumatra PDF 3.4.14270 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726444.jpg" />
+  <img src="Z:/picture/008/save_picture_726444.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Wondershare Repairit 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726442.jpg" />
+  <img src="Z:/picture/008/save_picture_726442.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p-LQ] [MVO]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726438.jpg" />
+  <img src="Z:/picture/008/save_picture_726438.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Tenorshare UltData - Mac 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726414.jpg" />
+  <img src="Z:/picture/008/save_picture_726414.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Streamlabs OBS 1.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726405.jpg" />
+  <img src="Z:/picture/008/save_picture_726405.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Agressor Bunx - Colony (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726404.jpg" />
+  <img src="Z:/picture/008/save_picture_726404.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p] [MVO]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726403.jpg" />
+  <img src="Z:/picture/008/save_picture_726403.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Brave Browser 0.60.45 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726398.jpg" />
+  <img src="Z:/picture/008/save_picture_726398.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ SSDReporter 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726395.jpg" />
+  <img src="Z:/picture/008/save_picture_726395.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Active PKiller 1.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726380.jpg" />
+  <img src="Z:/picture/008/save_picture_726380.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726379.jpg" />
+  <img src="Z:/picture/008/save_picture_726379.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726375.jpg" />
+  <img src="Z:/picture/008/save_picture_726375.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Xojo IDE RAD 17.1.1.36749 (2017r1.1) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726359.jpg" />
+  <img src="Z:/picture/008/save_picture_726359.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ LibreOffice 5.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726358.jpg" />
+  <img src="Z:/picture/008/save_picture_726358.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ WiFi Wireless Signal Strength Explorer 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726353.jpg" />
+  <img src="Z:/picture/008/save_picture_726353.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Tattoo my Photo Pro Patched 2.64 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726349.jpg" />
+  <img src="Z:/picture/008/save_picture_726349.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ GPU Caps Viewer 1.34.3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726348.jpg" />
+  <img src="Z:/picture/008/save_picture_726348.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Icecream Screen Recorder Pro 4.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726347.jpg" />
+  <img src="Z:/picture/008/save_picture_726347.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ ZD Soft Screen Recorder 10.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726345.jpg" />
+  <img src="Z:/picture/008/save_picture_726345.jpg" />
 </div>
 
 

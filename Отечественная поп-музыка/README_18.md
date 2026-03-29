@@ -1,3 +1,119 @@
+###  Публикация: 1573246   (414770) от 30.08.2022
+
+FIZICA - Доппельгангер (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Доппельгангер (Intro)
+3. Бизнес-класс (Intro)
+4. Бизнес-класс(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424106AA7759937776F04158A6334B176448AAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325597   (412422) от 15.09.2019
+
+Ирина Аллегрова - Неизданное…2019 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412422.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жизнь-игра
+2. Ария Сильвы
+3. Книга жизни
+4. Нас друг для друга создал Бог(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80AC9F163C784899FF9119E4B686B0F0A99A09A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948651   (411380) от 20.10.2015
+
+Вячеслав Малежик -  Ночь в Сан-Франциско (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ловлю полёт твоих шагов
+02. Мадам
+03. Украденное счастье
+04. Не любила(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEB3F5FD2D31E4673B00520F68FD410F8A22F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413037   (411324) от 02.10.2020
+
+Монеточка - Декоративно-прикладное искусство (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411324.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Крошка
+2. Папина любовница
+3. Ириски и риски
+4. Лёд(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D008A7454D365AC5622DD16C3A4A0DB93F2D7BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169016   (404778) от 25.09.2017
 
 Леонид Агутин - Дискография (1994-2016) [MP3|320 Kbps] <Pop, Latin Pop, Romantic Pop Rock>
@@ -6,7 +122,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404778.jpg" />
+  <img src="Z:/picture/008/save_picture_404778.jpg" />
 </div>
 
 
@@ -37,7 +153,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404052.jpg" />
+  <img src="Z:/picture/008/save_picture_404052.jpg" />
 </div>
 
 
@@ -66,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403945.jpg" />
+  <img src="Z:/picture/008/save_picture_403945.jpg" />
 </div>
 
 
@@ -95,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401916.jpg" />
+  <img src="Z:/picture/008/save_picture_401916.jpg" />
 </div>
 
 
@@ -130,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399413.jpg" />
+  <img src="Z:/picture/008/save_picture_399413.jpg" />
 </div>
 
 
@@ -159,7 +275,7 @@ Alena Apina (Алёна Апина) - Коллекция (2016-2017) [MP3|320 Kb
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398563.jpg" />
+  <img src="Z:/picture/008/save_picture_398563.jpg" />
 </div>
 
 
@@ -188,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392518.jpg" />
+  <img src="Z:/picture/008/save_picture_392518.jpg" />
 </div>
 
 
@@ -217,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391222.jpg" />
+  <img src="Z:/picture/008/save_picture_391222.jpg" />
 </div>
 
 
@@ -246,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_388899.jpg" />
+  <img src="Z:/picture/005/save_picture_388899.jpg" />
 </div>
 
 
@@ -272,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388808.jpg" />
+  <img src="Z:/picture/008/save_picture_388808.jpg" />
 </div>
 
 
@@ -301,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386620.jpg" />
+  <img src="Z:/picture/008/save_picture_386620.jpg" />
 </div>
 
 
@@ -330,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385098.jpg" />
+  <img src="Z:/picture/008/save_picture_385098.jpg" />
 </div>
 
 
@@ -359,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384971.jpg" />
+  <img src="Z:/picture/008/save_picture_384971.jpg" />
 </div>
 
 
@@ -388,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380859.jpg" />
+  <img src="Z:/picture/008/save_picture_380859.jpg" />
 </div>
 
 
@@ -423,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380857.jpg" />
+  <img src="Z:/picture/008/save_picture_380857.jpg" />
 </div>
 
 
@@ -449,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_380258.jpg" />
+  <img src="Z:/picture/005/save_picture_380258.jpg" />
 </div>
 
 
@@ -475,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380135.jpg" />
+  <img src="Z:/picture/008/save_picture_380135.jpg" />
 </div>
 
 
@@ -504,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378188.jpg" />
+  <img src="Z:/picture/008/save_picture_378188.jpg" />
 </div>
 
 
@@ -535,7 +651,7 @@ Iowa - Import (2016) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377812.jpg" />
+  <img src="Z:/picture/008/save_picture_377812.jpg" />
 </div>
 
 
@@ -564,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377168.jpg" />
+  <img src="Z:/picture/008/save_picture_377168.jpg" />
 </div>
 
 
@@ -593,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375567.jpg" />
+  <img src="Z:/picture/008/save_picture_375567.jpg" />
 </div>
 
 
@@ -622,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374336.jpg" />
+  <img src="Z:/picture/008/save_picture_374336.jpg" />
 </div>
 
 
@@ -636,128 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A254D2427866491171ECE8D57A0AE1D0455973D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176327   (371648) от 21.10.2017
-
-Варвара Визбор - Многоголосье (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371648.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ниже ноля (Полная версия)
-2. Слушать себя
-3. Бродит дождик
-4. Во всём виновата погода(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859536D6D079E4F3BD02DF1FD506E9BF8B97243D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070091   (370997) от 05.11.2016
-
-Serebro - Сила трёх (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мало тебя
-02. Kiss
-03. Mimimi
-04. Перепутала(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C89DE9F854AAD3695DBA7BFFBAD33CD9ABEDFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327828   (369775) от 27.09.2019
-
-Zivert - Vinyl #1 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369775.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Безболезненно
-2. Beverly Hills
-3. Двусмысленно (feat. M'Dee)
-4. Fly(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71ACB5CF43D8533B880F894B9748AB87C81E7217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575538   (368066) от 15.11.2012
-
-Антон Лирник и группа LirnikBand - Платиновый альбом (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Детство
-02. Света
-03. Текила
-04. Жигули
-05. Марина
-06. Зимняя
-07. Козацкая
-08. Любовь
-09. Между 1 и 2
-10. Рок-н-ролл(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FBAA7B9B4D0C9D54FA9DE65895F374D579F132
 ```
 
 https://mybot314.ru/tekegram_catalog/

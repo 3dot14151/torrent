@@ -1,3 +1,119 @@
+###  Публикация: 1767088   (101213) от 21.12.2024
+
+VA - My PlayList (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ltg Long Travel Groove - Easy Grasp (3:12)
+02.  Ltg Long Travel Groove - Radio Funk (3:34)
+03.  DJ Mister Funk - Freak Low (3:20)
+04.  Ltg Long Travel Groove - MoonLight (4:14)(   Читать дальше...   )Жанр: Jazz, Funk, R&BПродолжительность: 01:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBF2B366DF1B734EA779E6D835813B8600DFCDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767085   (101212) от 21.12.2024
+
+VA - Jalapeno Funk, Vol. 15 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Skeewiff - These Boots Are Made for Walking (3:16)
+02.  Lumi HD - What Would You Do? (4:34)
+03.  Skunkadelic - My Own Way (3:05)
+04.  Skeewiff - The Cat (3:09)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD815A6D28FA60DC0310E92F5DE075ABF4DF6EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767081   (101211) от 21.12.2024
+
+VA - House Disco Funk Vol 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, House>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Angeldeejay - Exploration (4:45)
+02.  House Clan - Camon Night (3:18)
+03.  House Clan - Cosmic Line (3:17)
+04.  House Clan - Deeper Disco (4:06)(   Читать дальше...   )Жанр: Jazz, Funk, HouseПродолжительность: 02:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B74313F0439AA23E458AB01E1D636005B0E5C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767079   (101197) от 21.12.2024
+
+VA - Broken Beat Nu Funk, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vito Lalinga (Vi Mode inc project) - Excellence (3:36)
+02.  Funky Destination - Bombshell (Extended) (5:14)
+03.  Funky Destination - God's Children (Extended) (5:12)
+04.  Funk Windows - Blues Fantasy (3:21)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FE1BEB8BA5C53697B514390F707063AEC7471E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767083   (101196) от 21.12.2024
 
 VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
@@ -6,7 +122,7 @@ VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101196.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101195.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - NYC Jazz Bar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101174.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Calm Late Night Jazz Music (Instrumental Jazz Sax Piano Guitar) (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101172.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Jazz Vocalists (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101166.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101153.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101150.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Funky For A Sunny Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101148.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Pomante - Frames (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101146.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Mal Waldron - One Entrance, Many Exits (1982) 2003, Quicksilver [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101131.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Bill Harris - Holiday Improvisations (1998) Daddy Jazz Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100888.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Dave Koz & Friends - Christmas Ballads: 25th Anniversary Collection (2022) Just 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100886.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Teddy Horangic & Frank Lacy - This Christmas With Night Is Alive (2023) Night Is
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100677.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Rosemary Clooney - Irving Berlin's White Christmas (1954) 2014, Real Gone Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100676.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100664.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Art Blakey - In This Korner (1978) 1992, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100609.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100554.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100547.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Soulmate Project - Vinyl Flavour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100544.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Breeze - Just Another Day (Breeze) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100543.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Cinematic Funky Grooves Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100535.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ StudioTan - StudioTan (2012) [FLAC|Lossless]<Fusion, Jazz-Funk, Chillout>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100474.jpg" />
+  <img src="Z:/picture/005/save_picture_100474.jpg" />
 </div>
 
 
@@ -631,143 +747,6 @@ StudioTan - StudioTan (2012) [FLAC|Lossless]<Fusion, Jazz-Funk, Chillout>
 08. Gino
 09. Time 2 go home
 10. You and me(   Читать дальше...   )2012Жанр: Fusion, Jazz-Funk, ChilloutПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486030   (100206) от 22.04.2012
-
-Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hole in the Map (5:21)
-02. Off the Grid Girl (6:13)
-03. Where is Everybody (4:58)
-04. The Usual Suspects (4:17)
-05. Five (4:13)
-06. Sweet Miriam (3:49)
-07. Out There (4:43)
-08. Get a Room (4:29)
-09. Cowbirds (7:01)
-10. I Took Your Hand (Fellini's Waltz) (3:31)(   Читать дальше...   )2012Жанр: Vocal JazzПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484951   (100036) от 19.04.2012
-
-Серия "Giants of Jazz - Immortal Concerts" / Kid Ory and The Creole Jazz Band - Echoes From New Orleans (1956/1996) [APE|Lossless]<Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, T ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Me Blues (T.Delaney) (3:51)
-02. Careless Love (traditional) (5:33)
-03. High Society (P.Sleeve) (4:07)
-04. Oh, Didn't He Ramble (W.C.Handy) (4:57)
-05. Eh, La Bas (K.Ory) (6:01)
-06. Toot, Toot, Tootsie! (T.Fiorito - E.Erdman - G.Kahn) (6:37)
-07. Maryland, My Maryland (tradirional) (2:44)
-08. Bugle Call Rag (W.C.Sweatman) (3:18)
-09. 1919 Rag (traditional) (5:32)
-10. Down Home Rag (W.C.Sweatman) (3:23)(   Читать дальше...   )1956 / 1996Жанр: Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, Trombone JazzПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483055   (99799) от 16.04.2012
-
-Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flamenco Sketches 16:04
-02. Freddie Freeloader 9:33
-03. Blue in Green 8:08
-04. So What 7:45
-05. All Blues 6:53
-06. Nardis 9:05
-07. Serpent's Tooth 3:382012Жанр: Latin Jazz, Piano JazzПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483061   (99769) от 16.04.2012
-
-Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Organized Memories (7:32)
-02. The Deduced (5:21)
-03. Lilah (5:30)
-04. Bombs (6:19)
-05. Remember (3:11)
-06. Blue In Green (Miles Davis - Bill Evans) (3:31)
-07. Rockstar Wannabe (Nir Naaman) (5:06)
-08. Temporary Feelings (7:46)
-09. Tarantula (6:01)
-10. War Poem (1:54)(   Читать дальше...   )2011Жанр: Jazz-Rock, Contemporary JazzПродолжительность: 00:57:03
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,81 @@
+###  Публикация: 1380619   (832939) от 03.05.2020
+
+Сила племени / Survive the Tribe (2014) WEB-DL [H.264/1080p] (сезон 1, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи лет племена борются за свое выживание на самых суровых землях в мире. Его зовут Хэйзен Одел и он - инструктор по выживанию и гид по дикой природе. Он хочет обучаться у лучших, поэтому путешествует по самым отдаленным уголками земного шара, чтобы бросить вызов сложнейшим испытаниям. Чтобы преодолеть их, он должен научиться выживать в природе, используя лишь (   Читать дальше...   )Производство: Великобритания, Icon Films, National GeographicЖанр: Документальный, путешествия, экстримРежиссер: Алекс Паркинсон, Джордж Пальеро, Адриан Макфарлейн, Стивен ШирманПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6 x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FBFF35108B918FD09914BE2ABADC34D902DFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658187   (832293) от 09.04.2016
+
+NG. Загадки Библии. Воины-тамплиеры / The Secret Bible. Knights Templar (2007) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тамплиерами (храмовниками) назывались члены католического духовно-рыцарского ордена, основанного в Иерусалиме в 1118 году. Таинственные и могущественные воины-крестоносцы навсегда вошли в историю и стали легендой. По законам, установленным после завоевания Иерусалима, в течение 200 лет тамплиеры владели огромными землями в Европе, от Шотландии и до самой Азии. Однако (   Читать дальше...   )Жанр: Документальный, исторический, научно-познавательныйисторияПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:48:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502091   (831732) от 12.10.2021
+
+NG. Грядет шторм / Gathering Storm (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот глобальный сериал, представляющий собой уникальный обзор самых жестоких штормов планеты, снят на основе свидетельств людей, которые работают в море в основных ураганных центрах планеты. Наблюдение за ураганами ведется здесь с помощью сотен кинокамер, установленных на кораблях и нефтяных платформах в соответствии с соглашениями о доступе, заключенными на длительный (   Читать дальше...   )Производство: США, KEO Films, National GeographicЖанр: Документальный, научно-популярный, метеорология, катастрофыПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C0E5017422EE0D76430E8EBCB6D1150E034F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251713   (831120) от 04.05.2020
 
 NG. Линии Наска: Погребенные секреты. Древние тайны / Nasca Lines. Ancient Secrets (2018) DVB
@@ -6,7 +84,7 @@ NG. Линии Наска: Погребенные секреты. Древние
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831120.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG. Игры разума / Brain Games (2013) HDTVRip [H.264/720p] [Сезон 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830197.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Nat Geo Wild: В опасных водах Австралии. Обед для �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829879.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ NG: Следующее мегацунами / The Next Mega Tsunami (2014) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829795.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Nat Geo Wild: Маленькие убийцы / Little Killers (2015) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829779.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ NG: Секретное оружие Гитлера / Hitler's Secrets Weapon (19
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829565.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ NG. Инстинкт выживания / Primal Survivor (2017) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829185.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ NG: Секунды до катастрофы (45 эпизодов) / Seconds fro
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829101.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ NG: Панорама 360° Объект всемирного наследия / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827896.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ NG: Пропавшая колония Колумба / Columbus's cursed colony 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824018.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822187.jpg" />
+  <img src="Z:/picture/008/save_picture_822187.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819260.jpg" />
+  <img src="Z:/picture/008/save_picture_819260.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819162.jpg" />
+  <img src="Z:/picture/008/save_picture_819162.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818561.jpg" />
+  <img src="Z:/picture/008/save_picture_818561.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817592.jpg" />
+  <img src="Z:/picture/008/save_picture_817592.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817132.jpg" />
+  <img src="Z:/picture/008/save_picture_817132.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ NGW: Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817090.jpg" />
+  <img src="Z:/picture/008/save_picture_817090.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815852.jpg" />
+  <img src="Z:/picture/008/save_picture_815852.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815280.jpg" />
+  <img src="Z:/picture/008/save_picture_815280.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813451.jpg" />
+  <img src="Z:/picture/008/save_picture_813451.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813311.jpg" />
+  <img src="Z:/picture/008/save_picture_813311.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813102.jpg" />
+  <img src="Z:/picture/008/save_picture_813102.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811534.jpg" />
+  <img src="Z:/picture/008/save_picture_811534.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4534747B9CAA53235B134F7264E92296970F2746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008580   (811462) от 20.04.2016
-
-Расследования авиакатастроф / Air Crash Investigation (2016) HDTV [H.264/1080i-LQ] (Cезон 15, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалуй, найдется не так много людей, которые при посадке на борт авиалайнера не испытывали бы чувство страха. Большинство пассажиров каждый раз задается вопросом: а приземлимся ли мы вообще? Во время полета чутко реагируют на каждый толчок, крен и вибрацию – не случилось ли чего? В каждом странном попутчике мерещится террорист. Но приземлившись целыми и невредимыми, (   Читать дальше...   )Телекомпания: Канада, Cineflix Productions, Galaxie Productions, NF Inc.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00 (одна серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C091AEAF7140859A4DC2D347448C3B245BCBDA32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008783   (811184) от 20.04.2016
-
-Расследования авиакатастроф / Mayday / Air Crash Investigation (2016) DVB (сезон 15, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о наиболее громких и загадочных катастрофах в истории гражданской авиации.Телекомпания: National GeographicЖанр: ДокументальныйРежиссер: Тим ВолочатюкПеревод: Профессиональный одноголосый закадровый - студия «Велес»Формат: MPGПродолжительность: ~00:44:00 каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EEAAE6CD2463F6A48BB8B41A25BA322E4A2811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197985   (809842) от 10.01.2018
-
-NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глэйд - это райское место среди иссохших равнин национального парка Руаха в Танзании. Вода здесь не переводится круглый год. Это природное изобилие рождает странные отношения львиного прайда и стаи бабуинов, которые вопреки всем законам природы живут в гармонии. Но однажды перемирию в Глэйде приходит конец...Производство: Великобритания, Австрия, Terra Mater Factual Studios, Doclights, NDR Naturfilm, ARTE France, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Оуэн ПрюммПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3 х ~ 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E14B7C64F895AF876AE40D003A631B40EC5AA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

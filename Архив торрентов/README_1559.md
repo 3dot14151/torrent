@@ -6,7 +6,7 @@ Google Chrome 84.0.4147.125 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697705.jpg" />
+  <img src="Z:/picture/008/save_picture_697705.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nox App Player 3.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697699.jpg" />
+  <img src="Z:/picture/008/save_picture_697699.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.06) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697697.jpg" />
+  <img src="Z:/picture/008/save_picture_697697.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697695.jpg" />
+  <img src="Z:/picture/008/save_picture_697695.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kaspersky Internet Security 2016 16.0.1.445 (c) MR1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697684.jpg" />
+  <img src="Z:/picture/008/save_picture_697684.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Filmage Editor 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697680.jpg" />
+  <img src="Z:/picture/008/save_picture_697680.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Keep It 1.11.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697679.jpg" />
+  <img src="Z:/picture/008/save_picture_697679.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CheckBook Pro 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697678.jpg" />
+  <img src="Z:/picture/008/save_picture_697678.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Music Tag Editor Pro 6.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697677.jpg" />
+  <img src="Z:/picture/008/save_picture_697677.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FigrCollage 3.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697676.jpg" />
+  <img src="Z:/picture/008/save_picture_697676.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ WonderPen 2.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697675.jpg" />
+  <img src="Z:/picture/008/save_picture_697675.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Batteries 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697674.jpg" />
+  <img src="Z:/picture/008/save_picture_697674.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Vinegar 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697673.jpg" />
+  <img src="Z:/picture/008/save_picture_697673.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ A Better Finder Rename 11 v11.44 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697672.jpg" />
+  <img src="Z:/picture/008/save_picture_697672.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ dBpoweramp Music Converter 17.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697670.jpg" />
+  <img src="Z:/picture/008/save_picture_697670.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Infuse PRO 7 v7.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697668.jpg" />
+  <img src="Z:/picture/008/save_picture_697668.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ TurboMosaic Pro 3.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697666.jpg" />
+  <img src="Z:/picture/008/save_picture_697666.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Aiseesoft Mac Video Converter Ultimate 10.2.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697658.jpg" />
+  <img src="Z:/picture/008/save_picture_697658.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MediaHuman Youtube Downloader 3.9.9.13 (0903) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697642.jpg" />
+  <img src="Z:/picture/008/save_picture_697642.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Affinity Photo Beta 1.7.0 (112) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697636.jpg" />
+  <img src="Z:/picture/008/save_picture_697636.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ PDF Reader Pro Edition 2.7.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697586.jpg" />
+  <img src="Z:/picture/008/save_picture_697586.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Telegram Desktop 2.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697585.jpg" />
+  <img src="Z:/picture/008/save_picture_697585.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Wondershare UniConverter 12.0.3.5 Repack by elchupacabra 64-bit [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697578.jpg" />
+  <img src="Z:/picture/008/save_picture_697578.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Allegorithmic Substance Painter 2020.2.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697575.jpg" />
+  <img src="Z:/picture/008/save_picture_697575.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Galactic Civilizations III (2015) [En] (1.8/dlc) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697566.jpg" />
+  <img src="Z:/picture/008/save_picture_697566.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697563.jpg" />
+  <img src="Z:/picture/008/save_picture_697563.jpg" />
 </div>
 
 

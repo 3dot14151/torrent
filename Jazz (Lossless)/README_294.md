@@ -1,3 +1,119 @@
+###  Публикация: 1678868   (142616) от 23.11.2023
+
+McCoy Tyner - Time For Tyner (1968) 2006, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. African Village [12:12]
+02. Little Madimba [8:37]
+03. May Street [5:23]
+04. I Didn't Know What Time It Was [7:11](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077A675E0EE720F8C5FE0C76E39CFB9D007C4B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195607   (142481) от 29.12.2017
+
+Ray Charles - Mister Genius (1948 - 1960) 3CD, 2011, Le Chant du Monde [FLAC|Lossless|image + .cue] <Soul-Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142481.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Mister Blues Genius:
+01. Confession Blues [02:30]
+02. Rockin' Chair Blues [02:50]
+03. How Long Blues [02:36](   Читать дальше...   )Жанр: Soul-Jazz, Vocal JazzПродолжительность: 03:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F277B4E765143D761066C27B920591EA2427EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520444   (142205) от 28.12.2021
+
+Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's A Wonderful World [3:11]
+02. 720 In The Books [2:48]
+03. Busy As A Bee [2:51]
+04. So Far, So Good [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF625380E4A345DB0A649A79668E10D6FA792789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435695   (142189) от 29.12.2020
+
+James Moody - The Complete Argo Collection (1957 - 1964) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142189.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Last Train from Overbrook [3:07]
+02. Don't Worry About Me [2:34]
+03. Why Don't You [2:26](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 04:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9903BE6F697E36E7522B30BA547CEEE5D98FEAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520438   (142113) от 28.12.2021
 
 The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -6,7 +122,7 @@ The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142113.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142080.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Michael Feinstein - The Sinatra Project, Vol. II: The Good Life (2011) Concord J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142065.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Papik - Cocktail Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141726.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Claude Hopkins - 1937 - 1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141550.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Frank Wright - Unity (1974) 2006, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141544.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (1956) 2CD, 1995, Blue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141499.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141361.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141354.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141344.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Gilberto Gil - Refavela (1977) 1994, Warner Music[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141251.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ J.R. Monterose - The Message (1959) 1997, Venus Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140965.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ George Shearing - Walkin' (1995) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140895.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140881.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Ella Fitzgerald - Les Jazz RTL: La voix du swing (2012) 2CD [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140786.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Phil Woods, Tommy Flanagan, Red Mitchell - Three For All (1981) 1989, Enja Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140624.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Jazz Brunch Easy Chilly Atmosphere Instrumentals (2023) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140439.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Michael Feinstein - An Intimate Holiday with Michael Feinstein (2001) 2СD, Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140143.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Barbara Cook & Michael Feinstein - Cheek To Cheek (2011) DuckHole Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140134.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Michael Feinstein & Maynard Ferguson - Big City Rhythms (1999) Concord Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140126.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Instrumental Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140111.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Fusion Jazz Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140036.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Fusion Jazz Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72A1138EEDD9E4D69FEED2BBA5EEB50A534CB45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678933   (139999) от 24.11.2023
-
-VA - Jazz Funk Instrumentals Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Smoke Orchestra - Rice And Ribs (3:08)
-02. Fusion Funk Foundation - Come On In (Instrumental Funk) (5:07)
-03. Black & Brown - Delight (Re-Edit) (4:35)
-04. David Florio - Lost Numbers (5:21)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92375D5B780648BF04EC88D1DB45E72D766F3B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436054   (139862) от 30.12.2020
-
-Harry Allen & Mike Renzi - Rhode Island Is Famous For You (2019) GAC Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhode Island Is Famous For You [4:48]
-02. Ev'rything I Love [5:33]
-03. Swingin' Down The Lane [6:12]
-04. The Last Dance [3:17](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220447764E7DA552297801446BF1E0C6E6832340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436031   (139838) от 30.12.2020
-
-Dizzy Gillespie - Concert of the Century: A Tribute to Charlie Parker (1980) 2016, Justin Time [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue 'n' Boogie (10:59)
-02. If I Should Lose You (5:56)
-03. Darben the Redd Foxx (5:48)
-04. Time on My Hands (8:16)(   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC544A491FD37D6D28C54563F15751030463BCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273023   (139819) от 30.12.2018
-
-Clifford Jordan - These Are My Roots: Clifford Jordan Plays Leadbelly (1965) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dick's Holler [4:53]
-02. Silver City Bound [2:42]
-03. Take This Hammer [4:19]
-04. Black Betty [2:59](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D088A5918D21A66EFE7EC7309AE99A7EC902005A
 ```
 
 https://mybot314.ru/tekegram_catalog/

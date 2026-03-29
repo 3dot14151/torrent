@@ -6,7 +6,7 @@ CorelDRAW Graphics Suite 2018 20.0.0.633 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744348.jpg" />
+  <img src="Z:/picture/008/save_picture_744348.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.23 Build 11 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744318.jpg" />
+  <img src="Z:/picture/008/save_picture_744318.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visio Professional 2013 SP1 15.0.4711.1000 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744314.jpg" />
+  <img src="Z:/picture/008/save_picture_744314.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744312.jpg" />
+  <img src="Z:/picture/008/save_picture_744312.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ EASEUS Partition Master 10.5 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744310.jpg" />
+  <img src="Z:/picture/008/save_picture_744310.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Slimjet 27.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744081.jpg" />
+  <img src="Z:/picture/008/save_picture_744081.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PrivaZer 4.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744070.jpg" />
+  <img src="Z:/picture/008/save_picture_744070.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Edge 84.0.522.40 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744017.jpg" />
+  <img src="Z:/picture/008/save_picture_744017.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ WhatsApp 2.2029.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743972.jpg" />
+  <img src="Z:/picture/008/save_picture_743972.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MEGAsync 4.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743971.jpg" />
+  <img src="Z:/picture/008/save_picture_743971.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Java SE Development Kit 14.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743963.jpg" />
+  <img src="Z:/picture/008/save_picture_743963.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Calibre 4.21.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743960.jpg" />
+  <img src="Z:/picture/008/save_picture_743960.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sidebar Diagnostics 3.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743900.jpg" />
+  <img src="Z:/picture/008/save_picture_743900.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mozilla Firefox 47.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743883.jpg" />
+  <img src="Z:/picture/008/save_picture_743883.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743878.jpg" />
+  <img src="Z:/picture/008/save_picture_743878.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Free Studio 6.6.16.525 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743869.jpg" />
+  <img src="Z:/picture/008/save_picture_743869.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743808.jpg" />
+  <img src="Z:/picture/008/save_picture_743808.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Avira Scout 2016.05.03.00487b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743801.jpg" />
+  <img src="Z:/picture/008/save_picture_743801.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The KMPlayer 4.2.2.42 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743779.jpg" />
+  <img src="Z:/picture/008/save_picture_743779.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Windows 10 Pro VL x64 v.2004.19041.388 2in1 July 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743776.jpg" />
+  <img src="Z:/picture/008/save_picture_743776.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Photo Supreme 4.3.3.1949 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743747.jpg" />
+  <img src="Z:/picture/008/save_picture_743747.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Mozilla Firefox Quantum ESR 60.5.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743744.jpg" />
+  <img src="Z:/picture/008/save_picture_743744.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Mozilla Firefox Quantum 65.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743742.jpg" />
+  <img src="Z:/picture/008/save_picture_743742.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ CoolUtils Total Image Converter 7.1.128 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743692.jpg" />
+  <img src="Z:/picture/008/save_picture_743692.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ EASEUS Partition Master 14.5 Unlimited Edition RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743682.jpg" />
+  <img src="Z:/picture/008/save_picture_743682.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Windows 7 Home - Ultimate (x86/x64) UpdPack7R2 by ProDarks (20.7.15)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743651.jpg" />
+  <img src="Z:/picture/008/save_picture_743651.jpg" />
 </div>
 
 

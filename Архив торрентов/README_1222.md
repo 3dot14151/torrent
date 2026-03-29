@@ -6,7 +6,7 @@ DesktopOK 4.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777265.jpg" />
+  <img src="Z:/picture/008/save_picture_777265.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777264.jpg" />
+  <img src="Z:/picture/008/save_picture_777264.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777258.jpg" />
+  <img src="Z:/picture/008/save_picture_777258.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - A State Of Trance 2016 (Mixed by Armin Van Buuren) (2016) [MP3|320 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777257.jpg" />
+  <img src="Z:/picture/008/save_picture_777257.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777256.jpg" />
+  <img src="Z:/picture/008/save_picture_777256.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777249.jpg" />
+  <img src="Z:/picture/008/save_picture_777249.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ NetWorx 5.5.3 DC 04.05.2016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777248.jpg" />
+  <img src="Z:/picture/008/save_picture_777248.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Privatus 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777243.jpg" />
+  <img src="Z:/picture/008/save_picture_777243.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Love & Relax: Temptation (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777237.jpg" />
+  <img src="Z:/picture/008/save_picture_777237.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777229.jpg" />
+  <img src="Z:/picture/008/save_picture_777229.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PrivaZer 3.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777227.jpg" />
+  <img src="Z:/picture/008/save_picture_777227.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ iExplorer 3.9.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777226.jpg" />
+  <img src="Z:/picture/008/save_picture_777226.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ XYplorer 16.70 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777217.jpg" />
+  <img src="Z:/picture/008/save_picture_777217.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Screenpresso Pro 1.6.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777216.jpg" />
+  <img src="Z:/picture/008/save_picture_777216.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Vivaldi 1.14.1077.55 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777197.jpg" />
+  <img src="Z:/picture/008/save_picture_777197.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Text Filter 1.7.0 Build 987 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777189.jpg" />
+  <img src="Z:/picture/008/save_picture_777189.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Wondershare Filmora 7.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777187.jpg" />
+  <img src="Z:/picture/008/save_picture_777187.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ AMD Radeon Software Crimson Edition 16.5.1 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777185.jpg" />
+  <img src="Z:/picture/008/save_picture_777185.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777180.jpg" />
+  <img src="Z:/picture/008/save_picture_777180.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777174.jpg" />
+  <img src="Z:/picture/008/save_picture_777174.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777168.jpg" />
+  <img src="Z:/picture/008/save_picture_777168.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Viber 8.4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777164.jpg" />
+  <img src="Z:/picture/008/save_picture_777164.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Comodo Dragon 63.0.3239.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777160.jpg" />
+  <img src="Z:/picture/008/save_picture_777160.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ K-Lite Codec Pack Update 14.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777158.jpg" />
+  <img src="Z:/picture/008/save_picture_777158.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Punto Switcher 4.4.1 Build 320 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777157.jpg" />
+  <img src="Z:/picture/008/save_picture_777157.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ WiFiSpoof 3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777152.jpg" />
+  <img src="Z:/picture/008/save_picture_777152.jpg" />
 </div>
 
 

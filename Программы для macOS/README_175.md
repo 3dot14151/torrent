@@ -1,3 +1,135 @@
+###  Публикация: 1695872   (120092) от 30.01.2024
+
+Amadeus Pro 2.8.13 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2024 HairerSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7418BC1932232CD294FB46A569C104F75B9CEBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695668   (120087) от 30.01.2024
+
+Folder Hub for Mac 1.8.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folder Hub — это инструмент повышения производительности для Mac, используемый для быстрого получения файлов в рабочем каталоге без открытия папок слой за слоем.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2024Разработчик: © 2024 Lessimore TeamПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E72B4B655F296431F6AEAF5F8D8B0EA64ED38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695839   (120086) от 30.01.2024
+
+AudFree Spotify Music Converter for Mac 2.11.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо продуманный музыкальный конвертер Spotify для загрузки более 70 миллионов песен, плейлистов, альбомов, подкастов из Spotify в MP3, FLAC, WAV, AAC для прослушивания в автономном режиме на всех устройствах и плеерах.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2024 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456C63B2445BDE116C0685F828D7DE5AC734BBA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696056   (120055) от 31.01.2024
+
+ABBYY FineReader PDF for Mac 15.2.14 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120055.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABBYY FineReader Pro для Mac – программа для распознавания текста, которая переводит изображения документов и любые типы PDF-файлов в электронные редактируемые форматы. Программа определяет и точно восстанавливает логическую структуру документа в его электронной копии, позволяя забыть о перепечатывании текстов.
+ABBYY FineReader Pro для Mac распознает документы на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2024Разработчик: © 2024 ABBYY Production LLC. OCR app.Поддерживаемая ОС: macOS X 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE36058C71B31E0E78E9526C995E98AD2CBEEB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695879   (120028) от 31.01.2024
+
+Imagenomic Professional Plugin Suite For Adobe Photoshop 2024 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект плагинов от компании Imagenomic
+Portraiture - незаменимый фильтр, который превратит ваше фото в гламурный снимок, позволит избежать трудоемкой процедуры попиксельного ретуширования снимка с целью удаления дефектов изображения. Благодаря реализованной в приложении технологии интеллектуального сглаживания, фотолюбители смогут бесследно удалять дефекты, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: январь 2024Разработчик: © 2024 ImagenomicПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1EC7F4917198EEDA7EC838C361217CBC9E40B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696033   (120016) от 31.01.2024
 
 Bartender 5 v.5.0.50 beta [En]
@@ -6,7 +138,7 @@ Bartender 5 v.5.0.50 beta [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120016.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.11.1.17  [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119997.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ coconutBattery 3 Plus for Mac 3.9.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119988.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119973.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ Cycling'74 Max 8.6.0 + RNBO U2B [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119961.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ Imagenomic Noiseware for PS (Mac) 6.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119953.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ CopyQueue Evaluation for Mac 3.1E [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119916.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ iStat Menus 6 v.6.73 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119891.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ SwitchResX 4.13.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119802.jpg" />
 </div>
 
 
@@ -245,7 +377,7 @@ OmniFocus Pro 4.0.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119793.jpg" />
 </div>
 
 
@@ -272,7 +404,7 @@ My PaintBrush Pro 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119790.jpg" />
 </div>
 
 
@@ -298,7 +430,7 @@ LuLu 2.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119656.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ AnyMP4 Audio Converter for Mac 8.2.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119616.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ HitPaw Photo AI for Mac 3.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119533.jpg" />
 </div>
 
 
@@ -377,7 +509,7 @@ HitPaw Watermark Remover for Mac 2.4.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119514.jpg" />
 </div>
 
 
@@ -403,7 +535,7 @@ dBpoweramp Music Converter 2024-02-01 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119504.jpg" />
 </div>
 
 
@@ -429,7 +561,7 @@ PowerPhotos 2.5.6 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119446.jpg" />
 </div>
 
 
@@ -455,7 +587,7 @@ XMind Pro 2024 24.03 beta [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119154.jpg" />
 </div>
 
 
@@ -481,7 +613,7 @@ Tipard DVD Creator for Mac 3.2.50 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119101.jpg" />
 </div>
 
 
@@ -509,7 +641,7 @@ iToolab UnlockGo (Android) for Mac 7.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118663.jpg" />
 </div>
 
 
@@ -536,7 +668,7 @@ JetBrains DataGrip for Mac 2023.3.4 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118653.jpg" />
 </div>
 
 
@@ -547,139 +679,6 @@ JetBrains DataGrip – новейшее программное обеспече�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B875152CC6D8F985E695112C7C9B5BCAE1A678D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698363   (118642) от 08.02.2024
-
-FonesGo Android Unlocker for Mac 7.6.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обойдите проверку аккаунта Google за считанные минуты. Купили или унаследовали подержанный телефон Android, не зная пароля учетной записи Google? Выполнили сброс настроек старого устройства Android, но забыли учетные данные Google? Не волнуйся; FonesGo Android Unlocker — лучший инструмент для обхода FRP, который может легко разблокировать FRP с некоторых популярных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2024 FonesGoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDAB683A5CC3D046315B251B6954F70E372C18B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698356   (118641) от 08.02.2024
-
-FonesGo iPhone Unlocker for Mac 6.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый надежный инструмент для снятия блокировки активации iCloud. Вы приобрели подержанный iPhone/iPad/iPod Touch, и после сброса настроек устройство заблокировано в iCloud? FonesGo iPhone Unlocker — лучший инструмент для обхода блокировки активации iCloud / iPhone, заблокированного для владельца без пароля или предыдущего владельца.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2024 FonesGoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D4DB385057F916FA62E1FD85E3DCBF61B09E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698170   (118631) от 08.02.2024
-
-iToolab UnlockGo 6.0.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118631.jpg" />
-</div>
-
-
-###  Подробнее
-
-iToolab UnlockGo это - Универсальный инструмент для снятия блокировки iPhone
-• Удаление различных блокировок на iPhone / iPad за считанные минуты
-• Разблокировать 4-значный / 6-значный код доступа, Touch ID и Face ID
-• Снять блокировку активации iCloud без пароля(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2024 iToolabПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C0602092DB0974FBDA07974B2B33E431EFA558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698232   (118601) от 08.02.2024
-
-RocketSim for Xcode Simulator on Mac 12.6.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118601.jpg" />
-</div>
-
-
-###  Подробнее
-
-RocketSim — это мощное программное обеспечение, разработанное для системы macOS. Оно направлено на оптимизацию и улучшение рабочего процесса разработки и тестирования приложений для iOS. Это программное обеспечение имеет функцию записи и воспроизведения операций на экране симулятора, а также может легко создавать и управлять различными сценариями испытаний, что позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2024 SwiftLeeПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8DB0E68FA7F1719627BB8A8266BD08952552EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698112   (118594) от 08.02.2024
-
-4K Tokkit Pro 2.6.0 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один простой способ скачать все с TikTok. 4K Tokkit - это идеальное приложение для массовой загрузки контента TikTok. Сохраняйте задачи TikTok, подписи, целые аккаунты, хэштеги и отдельные видео в высоком качестве. Смотрите TikToks офлайн, просматривайте ленту TikTok без рекламы, делайте репосты клипов в другие социальные сети.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2024Разработчик: © 2024 Open Media OOOПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB3DD5C49301D5E3C9F5C1D1E33C96A47CC3723
 ```
 
 https://mybot314.ru/tekegram_catalog/

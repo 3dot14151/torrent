@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1861662   (1062914) от 
+
+Любовь Кубарева - Это всё любовь (2026) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мой самый лучший мужчина [00:03:54]
+02 - Мой рыцарь [00:03:53]
+03 - Моя святая любовь [00:03:51]
+04 - Укради меня [00:04:00](   Читать дальше...   )Жанр: PopПродолжительность: 00:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45C7E6488B6D2480C0BC270C4E9947C0A35D5FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861785   (1062863) от 
+
+VA - Трудный возраст. Трибьют МакSим (2026) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062863.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дора/ТРАВМА - Трудный возраст
+2. NANSI & SIDOROV - Сантиметры дыханья
+3. Lida - Нежность
+4. Абрикоса - Лолита(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A6A1C73B348C09A4576B1235F9C93F5E43B960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860645   (1062031) от 
+
+БИС - Хиты (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Катя [00:03:50]
+02. Кораблики [00:03:28]
+03. Твой или ничей [00:03:22]
+04. DJ [00:03:15](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AB512D6659690CE256027E151DBE2C80F1C60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858807   (1060916) от 14.03.2026
 
 Дмитрий Прянов - Я и ты (2026) [MP3|320 Kbps] <Pop>
@@ -7,7 +94,7 @@ https://t.me/izofen
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060916.jpg" />
+  <img src="Z:/picture/005/save_picture_1060916.jpg" />
 </div>
 
 
@@ -36,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060915.jpg" />
+  <img src="Z:/picture/005/save_picture_1060915.jpg" />
 </div>
 
 
@@ -65,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060913.jpg" />
+  <img src="Z:/picture/005/save_picture_1060913.jpg" />
 </div>
 
 
@@ -94,7 +181,7 @@ VA - Аркадиас - 100 лучших песен (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060912.jpg" />
+  <img src="Z:/picture/005/save_picture_1060912.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060846.jpg" />
+  <img src="Z:/picture/005/save_picture_1060846.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060099.jpg" />
+  <img src="Z:/picture/009/save_picture_1060099.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059686.jpg" />
+  <img src="Z:/picture/005/save_picture_1059686.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058750.jpg" />
+  <img src="Z:/picture/005/save_picture_1058750.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057913.jpg" />
+  <img src="Z:/picture/005/save_picture_1057913.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057912.jpg" />
+  <img src="Z:/picture/005/save_picture_1057912.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056968.jpg" />
+  <img src="Z:/picture/005/save_picture_1056968.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ VA - ДЖЕМ Дискотека 85/98 (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051941.jpg" />
+  <img src="Z:/picture/005/save_picture_1051941.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050319.jpg" />
+  <img src="Z:/picture/005/save_picture_1050319.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048218.jpg" />
+  <img src="Z:/picture/008/save_picture_1048218.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047934.jpg" />
+  <img src="Z:/picture/008/save_picture_1047934.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046202.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045485.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ VA - Старые песни о главном 2 (1996) [MP3|320 Kbps] <Рор>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043897.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ VA - А у нас во дворе... (2005) [MP3|320 Kbps] <Рор>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043793.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043511.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042503.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041126.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038474.jpg" />
 </div>
 
 
@@ -653,90 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC604F682FE371B4D98B55F8B05FEE4A97E741C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615392   (1037773) от 25.02.2023
-
-VA - Romantic Collection: Лирика (1999) [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Несчастный Случай-Генералы Песчаных Карьеров
-02 - Алсу-Зимний Сон
-03 - Моисеев Борис-Глухонемая Любовь
-04 - Пугачёва Алла-Не Отрекаются Любя(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB0C143EC757E40B39B97A2EF3C92EC56F5CFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444879   (1034181) от 03.02.2021
-
-Mia Boyka & Би-2 - Последний герой (2021) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034181.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Последний геройЖанр: PopПродолжительность: 00:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49063675623F1718690EB0FD4B03C94B41559416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619640   (1032786) от 17.03.2023
-
-Инфинити - Inti 2 (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032786.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не плачь девчонка
-2. До свидания, дорогой
-3. Обманщик
-4. Приятного аппетита(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FADEF14DCB27ACC944EA67EF4DE581311A0A792
 ```
 
 https://mybot314.ru/tekegram_catalog/

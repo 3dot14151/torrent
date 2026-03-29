@@ -1,3 +1,57 @@
+###  Публикация: 913054   (608591) от 27.06.2015
+
+Григорий Остер | Веселые учебники [4] (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_608591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Феномен Остера в современной российской культуре и детской литературе не имеет себе равных. За исключением Успенского, его статус трудно сравнить со статусом какого-либо другого современного детского писателя. Его "Вредные советы" распродаются фантастическими тиражами, его мультфильмы стали классикой при жизни автора, его авторитет в теле- и радиопрограммах (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D72E02D4AB3C6DC9B12694022AE803529399DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038782   (604955) от 29.07.2016
+
+Анатолий Томилин | Тайны запаха и вкуса (2011) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о том, как люди учились использовать естественные ароматы и создавать искусственные; раскрывает некоторые тайны кулинарных "обманов"; показывает, как криминалисты расследуют преступления с помощью запахов. Она об удивительном и по-прежнему загадочном мире запахов и вкусов.
+
+Для детей среднего и старшего школьного возраста.Жанр: Образовательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEAFF67E96EC7709E03750E38E560ECDAE79DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913524   (604709) от 29.06.2015
 
 Л.С. Атанасян и др. | Геометрия. Учебник для 7-9 классов [+CD] (2014) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604709.jpg" />
+  <img src="Z:/picture/008/save_picture_604709.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604683.jpg" />
+  <img src="Z:/picture/008/save_picture_604683.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604221.jpg" />
+  <img src="Z:/picture/008/save_picture_604221.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603665.jpg" />
+  <img src="Z:/picture/008/save_picture_603665.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603416.jpg" />
+  <img src="Z:/picture/008/save_picture_603416.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603409.jpg" />
+  <img src="Z:/picture/008/save_picture_603409.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602931.jpg" />
+  <img src="Z:/picture/008/save_picture_602931.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602922.jpg" />
+  <img src="Z:/picture/008/save_picture_602922.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602921.jpg" />
+  <img src="Z:/picture/008/save_picture_602921.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602622.jpg" />
+  <img src="Z:/picture/008/save_picture_602622.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602620.jpg" />
+  <img src="Z:/picture/008/save_picture_602620.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602605.jpg" />
+  <img src="Z:/picture/008/save_picture_602605.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602237.jpg" />
+  <img src="Z:/picture/008/save_picture_602237.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602106.jpg" />
+  <img src="Z:/picture/008/save_picture_602106.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602095.jpg" />
+  <img src="Z:/picture/008/save_picture_602095.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601861.jpg" />
+  <img src="Z:/picture/008/save_picture_601861.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601724.jpg" />
+  <img src="Z:/picture/008/save_picture_601724.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601702.jpg" />
+  <img src="Z:/picture/008/save_picture_601702.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601696.jpg" />
+  <img src="Z:/picture/008/save_picture_601696.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601613.jpg" />
+  <img src="Z:/picture/008/save_picture_601613.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601286.jpg" />
+  <img src="Z:/picture/008/save_picture_601286.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601284.jpg" />
+  <img src="Z:/picture/008/save_picture_601284.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600761.jpg" />
+  <img src="Z:/picture/008/save_picture_600761.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600740.jpg" />
+  <img src="Z:/picture/008/save_picture_600740.jpg" />
 </div>
 
 
@@ -621,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67CCF1212D9E718B72222D57CB420FB71A9CCF2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299407   (599899) от 01.05.2019
-
-Г.И. Блинов | Методика изучения пунктуационных правил (1972) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599899.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии даны сведения о функциях знаков препинания, о видах и построении правил пунктуации, раскрывается методика изучения этих правил в школе.Жанр: методическое пособие, русский язык, пунктуацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607513D986EBD9C06DAF59C3806010E9FFF90D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299253   (599586) от 01.05.2019
-
-Н.К. Андрианов, А.Д. Марленский | Астрономические наблюдения в школе (1987) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599586.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены основные сведения о телескопах и приемах их испытаний. Даны методические рекомендации, как наблюдать различные небесные тела и как затем использовать материалы наблюдений на уроках. Рассмотрены простейшие математические методы обработки данных наблюдений.Жанр: Астрономия, учебное пособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41573B25E752DF442B3528C58E85F8962904423
 ```
 
 https://mybot314.ru/tekegram_catalog/

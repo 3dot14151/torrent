@@ -1,3 +1,90 @@
+###  Публикация: 1060832   (245358) от 08.10.2016
+
+Panopticon - Roads To The North (2014) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Echoes Of A Dissonant Evensong 09:35
+02. Where Mountains Pierce the Sky 12:42
+03. The Long Road Part 1: One Last Fire... 05:56
+04. The Long Road Part 2: Capricious Miles 07:53(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk MetalПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442E3B2E8AFFF6F3B714A5D0AB2CA36862F780D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512634   (245344) от 25.11.2021
+
+Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set You Free
+02. Destroy & Conquer
+03. You Made Me Want To Live
+04. Forever And A Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593F4F9AA874B2B9A75C485ED31BDFC101CC0A43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060800   (245336) от 08.10.2016
+
+Ninja - Invincible (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invincible
+02. Phoenix
+03. Wet Dreams
+04. Hard As Steel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB37900D8CE9A56D7342BCB756CC2B1AE2B61A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063255   (245237) от 16.10.2016
 
 After All - Mercury Rising (2003) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +93,7 @@ After All - Mercury Rising (2003) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245237.jpg" />
+  <img src="Z:/picture/004/save_picture_245237.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Oliva - Raise the Curtain (2013) Limited Edition Digipak [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245185.jpg" />
+  <img src="Z:/picture/004/save_picture_245185.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Darkhold - Tales from Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245177.jpg" />
+  <img src="Z:/picture/004/save_picture_245177.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ WolloW - Tales of WolloW - Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245126.jpg" />
+  <img src="Z:/picture/004/save_picture_245126.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ WICCA - Bloodrush (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245089.jpg" />
+  <img src="Z:/picture/004/save_picture_245089.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Leatherwolf - Kill The Hunted (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245046.jpg" />
+  <img src="Z:/picture/004/save_picture_245046.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Parasite - Parasite (1984) Mini-Album, Reissue, 2018, No Remorse [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245041.jpg" />
+  <img src="Z:/picture/004/save_picture_245041.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Amon Amarth - Тhе Рursuit Оf Vikings (2018) Live [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245011.jpg" />
+  <img src="Z:/picture/004/save_picture_245011.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Attick Demons - 5 Studio Albums (2000-2020) 5xCD [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244999.jpg" />
+  <img src="Z:/picture/004/save_picture_244999.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Royal Hunt - Dystopia - Part II (2022) [FLAC|Lossless|image + .cue] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244944.jpg" />
+  <img src="Z:/picture/004/save_picture_244944.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Burning Witches - The Dark Tower (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244937.jpg" />
+  <img src="Z:/picture/004/save_picture_244937.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Anette Olzon - Strong (2021) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244933.jpg" />
+  <img src="Z:/picture/004/save_picture_244933.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Verberis - Adumbration of the Veiled Logos (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244909.jpg" />
+  <img src="Z:/picture/004/save_picture_244909.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Avulsed - Stabwound Orgasm (1999) [FLAC|Lossless|image + .cue] <Brutal Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244905.jpg" />
+  <img src="Z:/picture/004/save_picture_244905.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Children Of The Reptile - Heavy Is The Head (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244877.jpg" />
+  <img src="Z:/picture/004/save_picture_244877.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Testament - The Very Best Of (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244874.jpg" />
+  <img src="Z:/picture/004/save_picture_244874.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Penumbra - Eden (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244861.jpg" />
+  <img src="Z:/picture/004/save_picture_244861.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Ashen Horde - Nine Plagues (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244822.jpg" />
+  <img src="Z:/picture/004/save_picture_244822.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Ashen Horde - Fallen Cathedrals (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244811.jpg" />
+  <img src="Z:/picture/004/save_picture_244811.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Adrian Benegas - Arcanum: El Mantra Secreto De Los Espíritus (2023) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244805.jpg" />
+  <img src="Z:/picture/004/save_picture_244805.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Anzillu - Ex Nihilo (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244803.jpg" />
+  <img src="Z:/picture/004/save_picture_244803.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Ashen - Ritual of Ash (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244792.jpg" />
+  <img src="Z:/picture/004/save_picture_244792.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Ashen Horde - Antimony (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244781.jpg" />
+  <img src="Z:/picture/004/save_picture_244781.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Ashen Horde - Antimony (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C657E934B5C3303FADD183525D2FBD4CEA09D2B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609757   (244751) от 04.02.2023
-
-Pantheon - Empire In Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244751.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Head on a Stick 04:58
-2. Man-Infestation 04:40
-3. Penetration of Maggots 04:19
-4. Absence of Light 04:55(   Читать дальше...   )Жанр: Black, Death, Thrash MetalПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F9FBCC194B2DB68261E5C4AF0CADD622822908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452122   (244748) от 05.03.2021
-
-Disturbed - The Lost Children (2011) Compilation [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell (4:15)
-02. A Welcome Burden (3:32)
-03. This Moment (3:06)
-04. Old Friend (3:35)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C963F1FAA03B37A5DD53ABE1AA4A0AED158EF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609698   (244745) от 04.02.2023
-
-Sanguisugabogg - Homicidal Ecstasy (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Brutal Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Market Vasectomy [00:02:56]
-02. Face Ripped Off (feat. Aaron Heard) [00:02:53]
-03. Pissed [00:03:18]
-04. Testicular Rot [00:04:24](   Читать дальше...   )Жанр: Death Metal, Brutal DeathПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CBD9D05BF77F1981046B0D0D2E9E128EEFB672
 ```
 
 https://mybot314.ru/tekegram_catalog/

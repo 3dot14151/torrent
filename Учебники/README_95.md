@@ -1,3 +1,56 @@
+###  Публикация: 1587931   (192030) от 02.11.2022
+
+О.И. Яковлев и др. | Распространение радиоволн (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192030.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены закономерности распространения сантиметровых, дециметровых и метровых радиоволн при космической и наземной связи. Дан анализ распространения коротких, средних и длинных радиоволн с учетом влияния земной поверхности и ионосферы. Рассмотрены закономерности отражения и рассеяния волн при радиолокации природных поверхностей и прохождение волн через сильно (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37581B00457C18E5F629ED00B6EEF8476CC936C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587901   (191984) от 02.11.2022
+
+А.И. Кострикин | Введение в алгебру [в 3-х томах] (2000 - 2004) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трехтомный объединенный курс абстрактной и линейной алгебры, ставший классическим учебником для ВУЗ-ов. Дает хорошее представление о самой алгебре и о её современном состоянии. Рассматриваются некоторые приложения к реальным задачам (например, экономическим).
+Изложение ведется с повторениями предыдущего материала в более общей манере, что способствует лучшему пониманию (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B72CB4A2A314C193205DA51280DBE8226484E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658192   (191582) от 07.09.2023
 
 В. С. Пантюшин | Лабораторные работы по электротехнике (1977) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191582.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191553.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191551.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191536.jpg" />
+  <img src="Z:/picture/004/save_picture_191536.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Donald Knuth и др. | Concrete Mathematics: A Foundation for Computer Science 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191230.jpg" />
+  <img src="Z:/picture/004/save_picture_191230.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191022.jpg" />
+  <img src="Z:/picture/004/save_picture_191022.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190919.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190398.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190327.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190322.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190310.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190289.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190221.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189946.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189656.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189349.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189321.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189303.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189277.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189087.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189032.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188825.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188632.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188196.jpg" />
 </div>
 
 
@@ -625,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A584ED05E8708B38F96580B27A8DF138852E9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662586   (187698) от 18.09.2023
-
-Г.А.Бендриков и др. | Задачи по физике для поступающих в вузы (1987) [6 издание] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержит задачи в рамках вступительных экзаменов по физике из числа предлагавшихся в течение ряда лет на различных факультетах Московского государственного университета. К каждой теме даны краткие указания, касающиеся общей методики решения задач, и основные формулы, используемые при решении. Подробные решения приведены для методически наиболее важных задач. В новом (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57BF58625CDF79730C6BEB9B0F17AF7F36DB724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662543   (187696) от 18.09.2023
-
-Ф.Е. Евдокимов | Теоретические основы электротехники (1981) [5 издание] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187696.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены электрическое и магнитное поля, электрические линейные и нелинейные цепи постоянного и переменного токов, магнитные цепи; излагаются основные методы их расчета; даны примеры расчетов и задачи для закрепления теоретических знаний.
-Предназначается для учащихся энергетических, электротехнических и радиотехнических техникумов.Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE5F735228965E6474ED6DC9B95B54E5F0440D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

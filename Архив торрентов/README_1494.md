@@ -6,7 +6,7 @@ Inboard 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713481.jpg" />
+  <img src="Z:/picture/008/save_picture_713481.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713472.jpg" />
+  <img src="Z:/picture/008/save_picture_713472.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713462.jpg" />
+  <img src="Z:/picture/008/save_picture_713462.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_713455.jpg" />
+  <img src="Z:/picture/005/save_picture_713455.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713442.jpg" />
+  <img src="Z:/picture/008/save_picture_713442.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Run-Command 2.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713417.jpg" />
+  <img src="Z:/picture/008/save_picture_713417.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ OfficeSuite Pro + PDF v.8.7.5295 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713403.jpg" />
+  <img src="Z:/picture/008/save_picture_713403.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Fakear - All Glows (2018) [MP3|320 Kbps] <Electronic, Experimental, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713386.jpg" />
+  <img src="Z:/picture/008/save_picture_713386.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Reg Organizer 8.10 Final RePack (& Portable) by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713371.jpg" />
+  <img src="Z:/picture/008/save_picture_713371.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Elmedia Player Pro 7.13 (build 2220)  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713368.jpg" />
+  <img src="Z:/picture/008/save_picture_713368.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Slimjet 27.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713354.jpg" />
+  <img src="Z:/picture/008/save_picture_713354.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Adobe components: Flash Player 29.0.0.140 + AIR 29.0.0.112 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713349.jpg" />
+  <img src="Z:/picture/008/save_picture_713349.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ FastStone Capture 8.2 Final RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713340.jpg" />
+  <img src="Z:/picture/008/save_picture_713340.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Reg Organizer 7.11 Final RePack (& Portable) by elchupacabra [Ru/En] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713337.jpg" />
+  <img src="Z:/picture/008/save_picture_713337.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Soft Organizer 4.02 Final RePacK by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713328.jpg" />
+  <img src="Z:/picture/008/save_picture_713328.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VideoProc (former MacX Video Converter Pro) 3.8 (build 2020080601) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713318.jpg" />
+  <img src="Z:/picture/008/save_picture_713318.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ MyLanViewer 4.18.8 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713314.jpg" />
+  <img src="Z:/picture/008/save_picture_713314.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713299.jpg" />
+  <img src="Z:/picture/008/save_picture_713299.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Marlowe (L'Orange & Solemn Brigham) - Marlowe 2 (2020) [FLAC|Lossless|Web-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713298.jpg" />
+  <img src="Z:/picture/008/save_picture_713298.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ FastStone Capture 8.2 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713295.jpg" />
+  <img src="Z:/picture/008/save_picture_713295.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_713291.jpg" />
+  <img src="Z:/picture/005/save_picture_713291.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ BattleToads end Comix Zone 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713277.jpg" />
+  <img src="Z:/picture/008/save_picture_713277.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713266.jpg" />
+  <img src="Z:/picture/008/save_picture_713266.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Weather Services PRO FULL v4.3 [Ru/En] - погодное приложение �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713259.jpg" />
+  <img src="Z:/picture/008/save_picture_713259.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713255.jpg" />
+  <img src="Z:/picture/008/save_picture_713255.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Adobe Flash Player 18.0.0.107 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713240.jpg" />
+  <img src="Z:/picture/008/save_picture_713240.jpg" />
 </div>
 
 

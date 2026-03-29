@@ -1,3 +1,122 @@
+###  Публикация: 1169277   (404005) от 26.09.2017
+
+Ногу свело! - Ватрушки (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ВатрушкиЖанр: RockПродолжительность: 00:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042B0ACEDA0ED199477447A5E0D15102ED012E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562690   (402593) от 23.10.2012
+
+Ленинград - Рыба +Bonus (2012) [MP3|320 kbps]<SKA, Rock>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_402593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Москва
+02. Мы за
+03. Вода
+04. Рыба
+05. Мой 87ой
+06. Непросто
+07. Жёлуди
+08. Бах
+09. Юлия
+10. Бомбила(   Читать дальше...   )Жанр: SKA, RockПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169896   (401546) от 29.09.2017
+
+Василий К. & Roll Romance - Камень в небо (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. По следам старика
+2. У людей
+3. Когда я стану героем
+4. Время(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0BE6FB7F1F37EFCD0B393A63DF5022CF3B0C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170006   (401313) от 29.09.2017
+
+Король и шут - Будь Как Дома, Путник...! (1996) Vinyl-rip, Remastered, 2017, Шумный Рекордс [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винил «Будь, как дома, путник!» подарит поклонникам «КиШ» бесценную возможность услышать классические записи, и, спустя двадцать четыре года, оценить их оригинальное звучание. Может быть, даже прочувствовать их заново. И, разумеется, вспомнить, что такое True Russian Punk. Чтобы больше не забывать. Одиннадцать песен, одиннадцать сказок, записанные много лет назад (   Читать дальше...   )1. Мотоцикл
+2. Два Друга
+3. Сапоги
+4. Лесник(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BD3968AC682301E26442CCE2206BA9F51A8770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566801   (397822) от 28.10.2012
 
 Ольга Арефьева и Ковчег - Хвоин (2012) [MP3|320 kbps] <Rock>
@@ -6,7 +125,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397822.jpg" />
+  <img src="Z:/picture/008/save_picture_397822.jpg" />
 </div>
 
 
@@ -35,7 +154,7 @@ Dolphin - Существо (Часть 1) (2011) [MP3|320 kbps]<Alternative, Rap
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394228.jpg" />
+  <img src="Z:/picture/008/save_picture_394228.jpg" />
 </div>
 
 
@@ -67,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393012.jpg" />
+  <img src="Z:/picture/005/save_picture_393012.jpg" />
 </div>
 
 
@@ -102,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392033.jpg" />
+  <img src="Z:/picture/008/save_picture_392033.jpg" />
 </div>
 
 
@@ -131,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_391871.jpg" />
+  <img src="Z:/picture/005/save_picture_391871.jpg" />
 </div>
 
 
@@ -166,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390612.jpg" />
+  <img src="Z:/picture/008/save_picture_390612.jpg" />
 </div>
 
 
@@ -195,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389807.jpg" />
+  <img src="Z:/picture/005/save_picture_389807.jpg" />
 </div>
 
 
@@ -229,7 +348,7 @@ Fail Emotions - Speed of Light EP (2012) [MP3|320 кб/с]<Post-hardcore \ Tranc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389283.jpg" />
+  <img src="Z:/picture/008/save_picture_389283.jpg" />
 </div>
 
 
@@ -260,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388798.jpg" />
+  <img src="Z:/picture/008/save_picture_388798.jpg" />
 </div>
 
 
@@ -289,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388775.jpg" />
+  <img src="Z:/picture/008/save_picture_388775.jpg" />
 </div>
 
 
@@ -315,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388721.jpg" />
+  <img src="Z:/picture/008/save_picture_388721.jpg" />
 </div>
 
 
@@ -344,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388023.jpg" />
+  <img src="Z:/picture/008/save_picture_388023.jpg" />
 </div>
 
 
@@ -373,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387219.jpg" />
+  <img src="Z:/picture/008/save_picture_387219.jpg" />
 </div>
 
 
@@ -405,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385701.jpg" />
+  <img src="Z:/picture/008/save_picture_385701.jpg" />
 </div>
 
 
@@ -433,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385453.jpg" />
+  <img src="Z:/picture/008/save_picture_385453.jpg" />
 </div>
 
 
@@ -462,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385127.jpg" />
+  <img src="Z:/picture/008/save_picture_385127.jpg" />
 </div>
 
 
@@ -491,7 +610,7 @@ Otto Dix - Левиафан (2017) [MP3|320 Kbps] <Darkwave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385068.jpg" />
+  <img src="Z:/picture/008/save_picture_385068.jpg" />
 </div>
 
 
@@ -520,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384980.jpg" />
+  <img src="Z:/picture/008/save_picture_384980.jpg" />
 </div>
 
 
@@ -549,7 +668,7 @@ Lumen - Тёмные ночи. Бэтмен. Металл. (2019) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384975.jpg" />
+  <img src="Z:/picture/008/save_picture_384975.jpg" />
 </div>
 
 
@@ -578,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383171.jpg" />
+  <img src="Z:/picture/008/save_picture_383171.jpg" />
 </div>
 
 
@@ -604,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382815.jpg" />
+  <img src="Z:/picture/008/save_picture_382815.jpg" />
 </div>
 
 
@@ -633,7 +752,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382798.jpg" />
+  <img src="Z:/picture/008/save_picture_382798.jpg" />
 </div>
 
 
@@ -647,122 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E8D78FA21E0D38E63EDE786BDF5342DA334FAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068005   (382656) от 31.10.2016
-
-Марсу Нужны Любовники - Дети плохой погоды (2016) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cкользим
-02. Место
-03. Дальневосток
-04. Космонавты(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0E8A6345F1B5CBEEDB60E32720D75AF40AC984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253666   (381692) от 10.10.2018
-
-Пионерлагерь Пыльная Радуга - Мало (2018) [MP3|320 Kbps] <Indie Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Конь
-2. Бхзрд
-3. Король червей
-4. Использованная песня(   Читать дальше...   )Жанр: Indie Rock, GrungeПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3685C17EB6F26D3E5751745987CB493AAEDDB442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253649   (381379) от 10.10.2018
-
-Разные люди, Ч.Ч., Декабрь & The Чиж & Co - Чернецкому - 50! (2018) 2CD, Live [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разные Люди - Песня взрослого человека
-02. Разные Люди - Становись!
-03. Разные Люди - Пятнадцать ножевых
-04. Разные Люди - Чернец(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CD324DC20B1BA59074BCD094B23899F6FB2429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949111   (379466) от 22.10.2015
-
-Операция Пластилин - Маяк (2015) [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379466.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В задумке должен был получиться жесткий панк-рок с прямыми текстами и простыми гитарными риффами, в итоге же имеем огромное количество электронщины, скрипок и даже одну медленную композицию».01. Гиганты
-02. Маяк
-03. Я На Качелях
-04. Танцевать!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA11021D27E224A4BD325E170D539D6BB1930C83
 ```
 
 https://mybot314.ru/tekegram_catalog/

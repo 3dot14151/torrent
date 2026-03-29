@@ -1,3 +1,174 @@
+###  Публикация: 682289   (630135) от 23.07.2013
+
+Europa Plus Live - Европа плюс (2013) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_630135.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 июля 2013 г. в «Лужниках» состоялся крупнейший внеэфирный проект Европы Плюс — главный open-air этого лета Europa Plus LIVE 2013. Лучшая музыка сезона, популярные российские и западные исполнители, самые горячие хиты с верхних строчек ЕвроХит ТОП 40 и сумасшедший фан от Бригады У. Зрителями этого невероятного по масштабу шоу стали несколько сотен тысяч человек!01. Movetown - Here comes the Sun
+02. Movetown - Round N Round
+03. 4ivesta Family - Тук-Тук
+04. 4ivesta Family - Вместе мы(   Читать дальше...   )Жанр: КонцертПродолжительность: 04:54:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034255   (630053) от 15.07.2016
+
+Doro - Strong and Proud - 30 Years of Rock and Metal (2016) 2хDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_630053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая королева метала Доро Пеш отпраздновала 30-летие сценической деятельности в рамках мирового тура 2013/2014 года, в ходе которого состоялось три специальных юбилейных концерта, первый из которых прошел на крупнейшем металлическом фестивале Wacken Open Air перед аудиторией в 85.000 человек.
+После этого певица провела еще два аншлаговых шоу в родном городе Дюссельдорфе,где (   Читать дальше...   )Disc 1:
+30 Years Anniversary Show - Wacken Open Air '2013
+
+01.Wacken Anthem (We Are The Metalheads)(   Читать дальше...   )Производство: Nuclear Blast RecordsЖанр: Heavy MetalРежиссер: Ronald MatthesАктеры: Doro & VAПеревод: ОтсутствуетПродолжительность: 03:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EA5BD837DCEAAF5F3803EF7D4AD8EDA2193E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682869   (629995) от 23.07.2013
+
+Сборник клипов - VA - Various Music part. 44 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629995.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2 Chainz, Wiz Khalifa - We Own It (Fast & Furious) 1080p (2:37)
+2. AK Babe - We Don't CareЖанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF2926975F5E8188E470F7D477943713E5F9D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034797   (629931) от 15.07.2016
+
+Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Tropical Summer 2016" - фирменный видеомикс от голландского ви-джея Philizz. Устройтесь поудобнее, расслабьтесь и наслаждайтесь!
+Видеомикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, и все больше и больше приобретает популярность. (   Читать дальше...   )Twenty One Pilots - Stressed Out (Tomsize Remix)
+Alan Walker - Sing Me To Sleep
+Sigala ft. Imani & DJ Fresh - Say You Do
+Eagles - Hotel California (Diezeo Remix)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2193692E50F1AAC08C3ECF11D55B478A3E76FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294313   (629883) от 07.04.2019
+
+Квартирник НТВ у Маргулиса. Горан Брегович (06.04.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629883.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к ведущему Евгению Маргулису пришел популярный европейский композитор и музыкант Горан Брегович. Самый известный балканский исполнитель и автор музыки к кинофильмам Эмира Кустурицы поделился со слушателями не только своей этнической музыкой, но и интересными воспоминаниями из жизни и творчества.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853D9B6C41E12A74C1DF5198B8219E7C33BC7605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293943   (629620) от 07.04.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью переделал выпущенный ранее сборник (растянул картинку с SD до HD) Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
+01. Guns N' Roses - You Could Be Mine
+02. Kingdom Come - Should I
+03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7533F9DA9DAFEE7D3FD30FBD35B3EBC8607FC26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144182   (629352) от 21.06.2017
 
 Александр Пушкин - Метель / Александр Пушкин - Заметіль (2005) TVRip
@@ -6,7 +177,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629352.jpg" />
+  <img src="Z:/picture/008/save_picture_629352.jpg" />
 </div>
 
 
@@ -32,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629229.jpg" />
+  <img src="Z:/picture/008/save_picture_629229.jpg" />
 </div>
 
 
@@ -59,7 +230,7 @@ Chicane - Saltwater (2000) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628610.jpg" />
+  <img src="Z:/picture/008/save_picture_628610.jpg" />
 </div>
 
 
@@ -85,7 +256,7 @@ David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628542.jpg" />
+  <img src="Z:/picture/008/save_picture_628542.jpg" />
 </div>
 
 
@@ -111,7 +282,7 @@ David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628538.jpg" />
+  <img src="Z:/picture/008/save_picture_628538.jpg" />
 </div>
 
 
@@ -137,7 +308,7 @@ Shakespear's Sister - Best Of (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628512.jpg" />
+  <img src="Z:/picture/008/save_picture_628512.jpg" />
 </div>
 
 
@@ -166,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628296.jpg" />
+  <img src="Z:/picture/008/save_picture_628296.jpg" />
 </div>
 
 
@@ -195,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627956.jpg" />
+  <img src="Z:/picture/008/save_picture_627956.jpg" />
 </div>
 
 
@@ -221,7 +392,7 @@ TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626553.jpg" />
+  <img src="Z:/picture/008/save_picture_626553.jpg" />
 </div>
 
 
@@ -247,7 +418,7 @@ Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626153.jpg" />
+  <img src="Z:/picture/008/save_picture_626153.jpg" />
 </div>
 
 
@@ -273,7 +444,7 @@ William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626007.jpg" />
+  <img src="Z:/picture/008/save_picture_626007.jpg" />
 </div>
 
 
@@ -299,7 +470,7 @@ Slash Featuring Myles Kennedy and The Conspirators - Live At The Roxy  (2014) BD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625682.jpg" />
+  <img src="Z:/picture/008/save_picture_625682.jpg" />
 </div>
 
 
@@ -328,7 +499,7 @@ Slipknot - Rock am Ring (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625426.jpg" />
+  <img src="Z:/picture/008/save_picture_625426.jpg" />
 </div>
 
 
@@ -354,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_624971.jpg" />
+  <img src="Z:/picture/005/save_picture_624971.jpg" />
 </div>
 
 
@@ -380,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624673.jpg" />
+  <img src="Z:/picture/008/save_picture_624673.jpg" />
 </div>
 
 
@@ -406,7 +577,7 @@ Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624633.jpg" />
+  <img src="Z:/picture/008/save_picture_624633.jpg" />
 </div>
 
 
@@ -432,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624491.jpg" />
+  <img src="Z:/picture/008/save_picture_624491.jpg" />
 </div>
 
 
@@ -458,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624409.jpg" />
+  <img src="Z:/picture/008/save_picture_624409.jpg" />
 </div>
 
 
@@ -484,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624405.jpg" />
+  <img src="Z:/picture/008/save_picture_624405.jpg" />
 </div>
 
 
@@ -510,7 +681,7 @@ Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624359.jpg" />
+  <img src="Z:/picture/008/save_picture_624359.jpg" />
 </div>
 
 
@@ -521,166 +692,6 @@ Swedish House Mafia - Miami 2 Ibiza ft. Tinie TempahЖанр: DanceРежисс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E3F729D37ED0005C33A5BD00D5C0CDF7879D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682117   (624088) от 26.07.2013
-
-Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin Van Buuren Ft. Sharon Den Adel HD - In And Out Of LoveЖанр: DanceПеревод: ОтсутствуетПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3505C2DD6D60DC7787EE61FCB9D2D8BB5E5A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145208   (623635) от 24.06.2017
-
-Алые паруса 2017. Выпускной бал в Санкт-Петербурге (2017.06.23) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трансляция праздника выпускников "Алые паруса" на Пятом канале - грандиозный проект, ставший традиционным для Телеканала. Пятый канал в который раз покажет стране одно из самых ярких европейских шоу в прямом эфире.Телекомпания: 5Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D2BFD89827D3058C186FF51006EE414DE6307D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683113   (623550) от 26.07.2013
-
-Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт в токийском Ниппон Будокане 26 апреля 2004 года. Релиз Eagle Rock в Blu-ray формате 18 октября 2011 года.01. As I Am
- 02. This Dying Soul
- 03. Beyond This Life
- 04. Hollow Years(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC92EB7CE351BE40D17A92731813C7C7FED2D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145209   (623513) от 24.06.2017
-
-Алые паруса 2017. Выпускной бал в Санкт-Петербурге (2017.06.23) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трансляция праздника выпускников "Алые паруса" на Пятом канале - грандиозный проект, ставший традиционным для Телеканала. Пятый канал в который раз покажет стране одно из самых ярких европейских шоу в прямом эфире.Телекомпания: 5Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BF8AF980A3FC57856CAA3B7D1E2500760E527A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683131   (623461) от 26.07.2013
-
-Rihanna - Good Girl Gone Bad Live (2008) Blu-Ray [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R'n'B, PopСубтитры: Английские, Французские, Немецкие, Португальские, ИспанскиеПродолжительность: 01:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97990EBBC331AD48051D31789C1360EAC85941E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908861   (623423) от 19.06.2015
-
-Битлз - Первый визит в США / The Beatles - The first US visit (2004) HDTVRip [H.264/720p-LQ] [hand made colored]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623423.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом документально-игровом фильме запечатлен первый приезд Битлз в США. Это была ознакомительная поездка, ни о каких американских турне еще не было речи. Битлз побывали в Нью-Йорке, Вашингтоне и Майми, где приняли участие в трех телевизионных шоу Эда Салливана. Именно после этих выступлений Америка, как до этого и Европа, заразилась битломанией. .
-Фильм братьев (   Читать дальше...   )Производство: СШАЖанр: Музыкальный, МьюзиклРежиссер: Кати Доферти /Kathy Dougherty/, Сюзан Фромке /Susan Fromke/, Альберт Мэйзлес /Albert Maysles/Актеры: The Beatles, Браен Эпстайн, Ральф Ренник, Эд Салливан, Уолтер КронкайтПеревод: Одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB4DC9F0F1B7A8A78903435FE4C07D86C7632F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

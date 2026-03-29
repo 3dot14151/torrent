@@ -1,3 +1,160 @@
+###  Публикация: 1771966   (31425) от 10.01.2025
+
+Марк Цукерберг  обещает восстановить свободу слова
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основатель и владелец Meta Platforms (признана экстремистской и запрещена в РФ) Марк Цукерберг заявил, что корпорация откажется от фактчекинга в соцсетях Facebook и Instagram ради "восстановления свободы слова"."Мы возвращаемся к корням и сконцентрируем внимание на сокращении ошибок, упрощении нашей политики и восстановлении свободы выражения на наших (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771380   (31332) от 11.01.2025
+
+Ёлки 11 (2024) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьбы многих людей из разных уголков страны переплетутся самым неожиданным образом, чтобы поздравить одинокую учительницу Валентину Михайловну. Всем им предстоит осознать нечто важное и сделать правильный выбор, чтобы вступить в Новый год с новыми надеждами.Производство: Россия, Bazelevs CompanyЖанр: комедияРежиссер: Александр Карпиловский, Александр Котт, Сергей ТрофимовАктеры: Дмитрий Нагиев, Рузиль Минекаев, Бурак Озчивит, Кристина Бабушкина, Антон Васильев, Ирина Пегова, Виктор Хориняк, Андрей Рожков, Валентина Мазунина, Михаил ТрухинСубтитры: отсутствуютПродолжительность: 01:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC813B3F6661C1F43C56468084E4B924CC4295FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771659   (31329) от 11.01.2025
+
+Течение / Straume / Flow (2024) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Происходит глобальное наводнение, и черный кот вынужден искать убежище в лодке вместе с другими животными.Производство: Латвия, Бельгия, Франция / Arte France Cinéma, Dream Well Studio, Sacrebleu ProductionsЖанр: мультфильм, приключения, фантастика, семейныйРежиссер: Гинтс ЗильбалодисПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: Английские (SDH)Продолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A0B83A2FDC6CABF5EC8BB07180C5818E00E016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769599   (31120) от 13.01.2025
+
+Игра в кальмара / Ojingeo geim / Squid Game (2024) WEB-DL [H.264/1080p] (сезон 2, серии 1-7 из 7) Red Head Sound, LostFilm, HDRezka, TVShows, LE-Production
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31120.jpg" />
+</div>
+
+
+###  Подробнее
+
+456 человек, большинство из которых испытывают серьёзные финансовые проблемы, принимают приглашение на участие в таинственном турнире по детским играм. Быстро выясняется, что это турнир на выживание. После того, как из соревнования выбывает игрок, размер приза увеличивается на 100 млн вон, то есть победитель турнира получит 45,6 млрд вон (на момент создания сериала (   Читать дальше...   )Производство: Корея Южная / Siren PicturesЖанр: Триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Дублированный (Red Head Sound), Многоголосый (LostFilm, HDRezka Studio, TVShows, LE-Production)Язык озвучки: Русский, корейский, английскийСубтитры: Русские (Forced, Full), корейские (Full, SDH), английские (Forced, Full, SDH), французские, испанские, немецкие, итальянскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535A3813A25993EFA17F9C5371F8D338F63CD1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772891   (31093) от 13.01.2025
+
+Очередное достижение: 3000 релизов от gatherone
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 3000 релизов от gatheroneУважаемые одноклубники !Сожалеем о небольшом запоздании с поздравлением (в разгаре Новогодние праздники). Но лучше поздно, чем никогда.
+Накануне релизёр создал 3000-ю презентацию.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768752   (31017) от 14.01.2025
+
+Гладиатор 2 / Gladiator II (2024) WEBRip [H.265/2160p] [4K, SDR, 8-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31017.jpg" />
+</div>
+
+
+###  Подробнее
+
+200 год нашей эры. Армия Римской империи под командованием генерала Марка Акация штурмует Нумидию — последнее свободное государство в Северной Африке. В битве с захватчиками у воина Ханно погибает супруга-лучница, а сам он попадает в плен. Вместе с другими пленникам его готовятся продать в рабство, но благодаря физической выносливости и боевым навыкам его замечает (   Читать дальше...   )Производство: Великобритания, США / Paramount Pictures, Scott Free Productions, Red Wagon FilmsЖанр: боевик, драма, приключенияРежиссер: Ридли СкоттАктеры: Пол Мескал, Педро Паскаль, Конни Нильсен, Дензел Вашингтон, Джозеф Куинн, Фред Хекинджер, Дерек Джекоби, Рори Макканн, Мэй Каламави, Питер МенсаПеревод: Дублированный (SC Produb, Flarrow Films, Red Head Sound), Многоголосый (LostFilm, TVShows, HDrezka)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95B970DF68424DE6DC0A66123F066D87EA37F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773022   (31016) от 14.01.2025
 
 Звёзды в Сибири (2024) WEBRip [H.264/1080p]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31016.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30923.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5371 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30915.jpg" />
 </div>
 
 
@@ -87,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30909.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2894 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30807.jpg" />
 </div>
 
 
@@ -142,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30706.jpg" />
 </div>
 
 
@@ -169,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30704.jpg" />
 </div>
 
 
@@ -195,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30691.jpg" />
 </div>
 
 
@@ -221,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30613.jpg" />
 </div>
 
 
@@ -248,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30582.jpg" />
 </div>
 
 
@@ -274,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30403.jpg" />
 </div>
 
 
@@ -300,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30281.jpg" />
 </div>
 
 
@@ -326,7 +483,7 @@ Kaspersky Free 21.20.8.505 Repack by LcHNextGen (23.01.2025) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30081.jpg" />
 </div>
 
 
@@ -352,7 +509,7 @@ The Invincible (2023) [Ru/Multi] (1.6.1) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29968.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29866.jpg" />
 </div>
 
 
@@ -404,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29858.jpg" />
 </div>
 
 
@@ -430,7 +587,7 @@ Wondershare Filmora 14.3.2.11147 (x64) Portable by 7997 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29771.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29760.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29759.jpg" />
 </div>
 
 
@@ -511,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29750.jpg" />
 </div>
 
 
@@ -522,164 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693645   (29657) от 27.01.2025
-
-Военная приемка (2024) WEBRip [H.264/1080p] (часть 9, выпуски 401-450 из 450)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29657.jpg" />
-</div>
-
-
-###  Подробнее
-
-В суперсовременном телевизионном шоу известный журналист Алексей Егоров на практике испытает самые современные виды отечественной военной техники. Вместе с ним мы побываем на секретных заводах, посетим закрытые полигоны, станем участниками самых рискованных экспериментов на суше, море и в воздухе.Производство: Россия / "ТРК "ЗВЕЗДА"Жанр: телепередача, техника, вооружениеРежиссер: Иван ЧигвинцевПродолжительность: ~00:38:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A17669065D6D3EA9A4FCBD9565EDCEF2532D1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775404   (29553) от 28.01.2025
-
-Launcher for zapret 1.6 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
-Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
-На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4898275991B5969A46E420A062FE2B4269F4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763400   (29549) от 28.01.2025
-
-Агентство / The Agency (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) HDRezka
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайный агент ЦРУ, известный как Марсианин, получает приказ бросить работу под прикрытием и вернуться в Лондон. Однако вскоре в его жизнь врывается возлюбленная, которую ему пришлось оставить. Карьера, тайна личности и миссия оперативника оказываются под угрозой из-за любви.Производство: США, Франция / 101 Studios, Federation Entertainment, MTV Entertainment Studios, Smokehouse Pictures, The Originals ProductionsЖанр: триллер, драмаРежиссер: Зетна Фуэнтес, Филип Мартин, Джо РайтАктеры: Майкл Фассбендер, Джеффри Райт, Ричард Гир, Кэтрин Уотерстон, Джон Магаро, Джоди Тёрнер-Смит, Джулия Весткотт-Хаттон, Кертис Льюм, Марчин ЗаречныПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD15D1BAA824E52A41DB0CC2162A66EE2173068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776083   (29246) от 31.01.2025
-
-Дуров объяснил, почему США проигрывают Китаю в гонке ИИ-технологий
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прогресс Китая, быстро догоняющего США в области искусственного интеллекта, возник «не на пустом месте» и обусловлен превосходством китайской системы среднего образования над западной. Такое мнение выразил основатель Telegram Павел Дуров.Бизнесмен поделился своими мыслями, рассуждая об успехе чат-бота китайской компании DeepSeek, который называют более дешевым и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776086   (29055) от 01.02.2025
-
-Президентская хотелка: Дональд Трамп попросил Илона Маска поскорее вернуть домой «застрявших» на МКС астронавтов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дональд Трамп попросил Илона Маска ускорить возвращение на Землю застрявших на МКС астронавтов, которые с лета не могут прилететь домой. Об этом написал в своем аккаунте в соцсети Х Илон Маск.«Мы это сделаем», — отметил предприниматель.Пока неясно, как это весьма странное пожелание отразится на текущих планах NASA.По планам пребывание астронавтов Starliner на МКС (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821174   (29035) от 03.10.2025
-
-Бар «Один звонок» (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следователь Андрей Морозов занимается поисками пропавшего сына своей жены, которая лежит в коме. Все улики ведут к таинственному бару «Один звонок», который то исчезает, то появляется в разных местах, оставляя за собой тела убитых. Заведением управляет бармен, не просто миксующий коктейли и отпускающий циничные реплики, но и помогающий посетителям позвонить умершим. (   Читать дальше...   )Производство: Россия | «DK Entertainment»Жанр: Триллер, детектив, фэнтези, мистикаРежиссер: Сергей ФилатовАктеры: Кай Алекс Гетц, Данила Козловский, Александр Ильин, Полина Ауг, Оксана Акиньшина, Серафима Гощанская, Иван Макаревич, Марина Ворожищева, Олег Рязанцев, Артём Осипов и др.Субтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309007AD8F2EB0290882E1764A7875C8A0965559
 ```
 
 https://mybot314.ru/tekegram_catalog/

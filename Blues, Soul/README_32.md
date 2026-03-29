@@ -1,3 +1,32 @@
+###  Публикация: 958367   (324002) от 21.11.2015
+
+Dave Fields - All In (2014) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_324002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changes in My Life (04:06)
+02. Voodoo Eyes (04:18)
+03. Lets Go Downtown (04:28)
+04. Dragon Fly (04:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591A99DA42FAF5FBF8A656CD2971738DA3EB5B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958842   (321848) от 22.11.2015
 
 Leslie West - Soundcheck (2015) [MP3|320 кб/с]<Heavy Blues Rock>
@@ -6,7 +35,7 @@ Leslie West - Soundcheck (2015) [MP3|320 кб/с]<Heavy Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321848.jpg" />
+  <img src="Z:/picture/008/save_picture_321848.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Sexy Slow Jamz (2022) [MP3|320 Kbps] <R&B, Jazz, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320738.jpg" />
+  <img src="Z:/picture/008/save_picture_320738.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Joe Bonamassa - Black Rock (2010) [MP3|320 kbps]<Blues / Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320327.jpg" />
+  <img src="Z:/picture/008/save_picture_320327.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mighty Mo Rodgers - The Virus (2018) [MP3|320 Kbps] <Blues, Gospel>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319056.jpg" />
+  <img src="Z:/picture/008/save_picture_319056.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Gary Moore - Blues and Beyond (2017) 2CD[MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318971.jpg" />
+  <img src="Z:/picture/008/save_picture_318971.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Mindi Abair & The Boneshakers - All I Got For Christmas Is The Blues (2018) [MP3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318952.jpg" />
+  <img src="Z:/picture/008/save_picture_318952.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Too Mutz Blues Band - Collection (2017-2018) 2CD [MP3|320 Kbps] <Blues, Blues Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318937.jpg" />
+  <img src="Z:/picture/008/save_picture_318937.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Crazy Hambones - Beautiful (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318494.jpg" />
+  <img src="Z:/picture/008/save_picture_318494.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Original Blues Brothers Band - The Last Shade of Blue Before Black (2017) [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317054.jpg" />
+  <img src="Z:/picture/008/save_picture_317054.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Jo Hell - Rockin' Land (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316353.jpg" />
+  <img src="Z:/picture/008/save_picture_316353.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Miss Emily - Live At The Isabel (2020) [MP3|320 Kbps] <Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315425.jpg" />
+  <img src="Z:/picture/008/save_picture_315425.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ BluezzControl - Traveler in Time (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314996.jpg" />
+  <img src="Z:/picture/008/save_picture_314996.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Morry Sochat & The Special 20s - Dig In (2015) [MP3|320 кб/с]<Rockabilly Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314968.jpg" />
+  <img src="Z:/picture/008/save_picture_314968.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Christine Parri - Simmer (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312686.jpg" />
+  <img src="Z:/picture/008/save_picture_312686.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Blue Room - Everything But The Blues (2005) [MP3|320 Kbps] <Jump Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312059.jpg" />
+  <img src="Z:/picture/008/save_picture_312059.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Susan Santos - No U Turn (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308573.jpg" />
+  <img src="Z:/picture/008/save_picture_308573.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Bitch And The Bluesmen - Hands All Dirty (2015) [MP3|320 кб/с]<Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307886.jpg" />
+  <img src="Z:/picture/008/save_picture_307886.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Buck 69 - No Medicine Like The Blues (2013) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307465.jpg" />
+  <img src="Z:/picture/008/save_picture_307465.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Misty Blues - Weed 'Em & Reap (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304280.jpg" />
+  <img src="Z:/picture/008/save_picture_304280.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Hound Dog Taylor - Hound Dog Taylor And The Houserockers (1971) ) Reissue, 1990,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302835.jpg" />
+  <img src="Z:/picture/008/save_picture_302835.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Van Morrison - Three Chords And The Truth (2019) [MP3|320 Kbps] <Blues, Blues Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301359.jpg" />
+  <img src="Z:/picture/008/save_picture_301359.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Ellen McIlwaine - Women In (E)motion (1998) Live [MP3|320 Kbps] <Blues Rock, Reg
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300527.jpg" />
+  <img src="Z:/picture/008/save_picture_300527.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Grainne Duffy - Grainne Duffy Live (2015) Live[MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300521.jpg" />
+  <img src="Z:/picture/008/save_picture_300521.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Joanne Shaw Taylor - Wild (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300316.jpg" />
+  <img src="Z:/picture/008/save_picture_300316.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Robin Barrett & Coyote Kings - Howl (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298807.jpg" />
+  <img src="Z:/picture/008/save_picture_298807.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Robin Barrett & Coyote Kings - Howl (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB481FA3F052472B52E53FEAEEB98CD5CDEFEFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262283   (296780) от 14.11.2018
-
-VA - Blues - A 30 Track Collection (2017) 2CD [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Bee's Freedom - Memphis Moon
-02. Preston Shannon - Rollin' and Tumblin'
-03. The Sideshow Tragedy - Number One
-04. Wink Burcham - Lawnmower Man's Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47832717EF3B2547F20D6E6B4D27AB748682EA84
 ```
 
 https://mybot314.ru/tekegram_catalog/

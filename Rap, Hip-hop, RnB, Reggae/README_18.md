@@ -6,7 +6,7 @@ Iration - Iration (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Reggae Rock>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599798.jpg" />
+  <img src="Z:/picture/008/save_picture_599798.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Desiigner - New English (2016) [MP3|320 Kbps] <Trap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595821.jpg" />
+  <img src="Z:/picture/008/save_picture_595821.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dub Pistols - Return of the Pistoleros (2015) [FLAC|Lossless|tracks] <Reggae, Du
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595820.jpg" />
+  <img src="Z:/picture/008/save_picture_595820.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594344.jpg" />
+  <img src="Z:/picture/008/save_picture_594344.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592194.jpg" />
+  <img src="Z:/picture/008/save_picture_592194.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Guf - О’пять (2022) [FLAC|Lossless|WEB|tracks] <Rap>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591188.jpg" />
+  <img src="Z:/picture/008/save_picture_591188.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590625.jpg" />
+  <img src="Z:/picture/008/save_picture_590625.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Gazgolder - Баста + (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589814.jpg" />
+  <img src="Z:/picture/008/save_picture_589814.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Jelly Roll - Addiction Kills (2017) Bad Apple, Inc. [FLAC|Lossless|WEB-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585262.jpg" />
+  <img src="Z:/picture/008/save_picture_585262.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Jelly Roll - Crosses and Crossroads (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rap
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585257.jpg" />
+  <img src="Z:/picture/008/save_picture_585257.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570203.jpg" />
+  <img src="Z:/picture/008/save_picture_570203.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Rigos - Водитель Катафалка (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569283.jpg" />
+  <img src="Z:/picture/008/save_picture_569283.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566858.jpg" />
+  <img src="Z:/picture/008/save_picture_566858.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Damian "Jr. Gong" Marley - Stony Hill (2017) [MP3|320 Kbps] <Reggae, Ska, Dub>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566855.jpg" />
+  <img src="Z:/picture/008/save_picture_566855.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Laid Back - Healing Feeling (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Reggae
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563423.jpg" />
+  <img src="Z:/picture/008/save_picture_563423.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562713.jpg" />
+  <img src="Z:/picture/008/save_picture_562713.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Johnyboy - Вне времени (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562148.jpg" />
+  <img src="Z:/picture/008/save_picture_562148.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561324.jpg" />
+  <img src="Z:/picture/008/save_picture_561324.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Krec - Head (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557322.jpg" />
+  <img src="Z:/picture/008/save_picture_557322.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557298.jpg" />
+  <img src="Z:/picture/008/save_picture_557298.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Chillhop Essentials - Summer (2019) [FLAC|Lossless|Web-DL|tracks] <ChillHop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554167.jpg" />
+  <img src="Z:/picture/008/save_picture_554167.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ MiyaGi & Эндшпиль - Hajime, Pt. 3 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553764.jpg" />
+  <img src="Z:/picture/008/save_picture_553764.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552843.jpg" />
+  <img src="Z:/picture/008/save_picture_552843.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Krec - Комиксы (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549450.jpg" />
+  <img src="Z:/picture/008/save_picture_549450.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547093.jpg" />
+  <img src="Z:/picture/008/save_picture_547093.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Miyagi - Buster Keaton (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545926.jpg" />
+  <img src="Z:/picture/008/save_picture_545926.jpg" />
 </div>
 
 

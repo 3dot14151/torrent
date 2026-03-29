@@ -1,3 +1,81 @@
+###  Публикация: 788464   (734526) от 21.05.2014
+
+The Typing Of The Dead: Overkill (2013) [Ru/En] (1.0u1) Repack Audioslave
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сумасшедший боевик, объединивший ужасы и черный юмор легендарной серии House of the Dead с уникальной игровой механикой! Округ Байу подвергся нашествию зомби. На протяжении девяти глав вам предстоит без устали расправляться с живыми мертвецами, спасая своих друзей и разгадывая причину этой ужасной напасти. Однако вместо привычного оружия вам придется положиться на… клавиатуру, собственную реакцию и быстроту пальцев.(   Читать дальше...   )Тип издания: RePackРазработчик: Modern DreamЖанр: Arcade (Virt.shooting) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский / РусскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B4E89C7BFB9E8F46557DD6F0143C6E53EB353E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399051   (734140) от 29.07.2020
+
+Cubers: Arena (2020) [Ru/Multi] (9043596) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руби, Круши, Призывай и Скачи!! Пробей себе дорогу к свободе и славе в слэшере с управлением с помощью двух манипуляторов. Выбирай из более 100 уникальных видов оружия и навыков, чтобы пережить атаки врагов. Победи всех и займи верхнюю строчку в рейтинге. Cubers: Arena — захватывающий слэшер с управлением с помощью двух манипуляторов. Играй за Боллера, стань победителем (   Читать дальше...   )Тип издания: LicenseРазработчик: Tomasz Dziobek (TomiGames)Жанр: Action, RPGЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDEAEBD8A73F4C1E892BF45F2A134A0312C758E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399276   (733684) от 30.07.2020
+
+On The Verge II (2020) [Ru/En] (1.5) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_733684.jpg" />
+</div>
+
+
+###  Подробнее
+
+On The Verge II представляет вам историю конфликта простого парня и русского маньяка, обладающего преимущественными способностями. После поражения в городе Черсск, когда маньяк был расстрелян патрулём полиции, он был удостоен второго шанса, который подарила ему судьба как утешительный приз. На этот раз он сделает всё в своих силах, чтобы покончить с вами раз и навсегда. (   Читать дальше...   )Тип издания: RepackРазработчик: 229ProductionЖанр: Action, 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A4DFF76DC6B13BC0F42E9B91442B0C5BC619D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399477   (733266) от 31.07.2020
 
 Hellpoint (2020) [Ru/Multi] (0.284) Repack Other s
@@ -6,7 +84,7 @@ Hellpoint (2020) [Ru/Multi] (0.284) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733266.jpg" />
+  <img src="Z:/picture/005/save_picture_733266.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2491/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733263.jpg" />
+  <img src="Z:/picture/005/save_picture_733263.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.09/dlc) Repack Other s [Ultimate Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732588.jpg" />
+  <img src="Z:/picture/008/save_picture_732588.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Battlefield 1942 + Battlefield 1942: Secret Weapons of WWII + Battlefield 2 Powe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732354.jpg" />
+  <img src="Z:/picture/008/save_picture_732354.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730326.jpg" />
+  <img src="Z:/picture/008/save_picture_730326.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Dead Island: Riptide - Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730222.jpg" />
+  <img src="Z:/picture/008/save_picture_730222.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729221.jpg" />
+  <img src="Z:/picture/008/save_picture_729221.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.1464/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729204.jpg" />
+  <img src="Z:/picture/008/save_picture_729204.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728009.jpg" />
+  <img src="Z:/picture/008/save_picture_728009.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724726.jpg" />
+  <img src="Z:/picture/008/save_picture_724726.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17495) Repack YelloSOFT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723808.jpg" />
+  <img src="Z:/picture/008/save_picture_723808.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721942.jpg" />
+  <img src="Z:/picture/008/save_picture_721942.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721931.jpg" />
+  <img src="Z:/picture/008/save_picture_721931.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Dead Island: Riptide (2016) [Ru/Multi] (1.0) Repack YelloSOFT [Definitive Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721491.jpg" />
+  <img src="Z:/picture/008/save_picture_721491.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720897.jpg" />
+  <img src="Z:/picture/008/save_picture_720897.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719992.jpg" />
+  <img src="Z:/picture/008/save_picture_719992.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719984.jpg" />
+  <img src="Z:/picture/008/save_picture_719984.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Hellbound (2020) [En] (1.0.1) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718522.jpg" />
+  <img src="Z:/picture/008/save_picture_718522.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.3) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718469.jpg" />
+  <img src="Z:/picture/008/save_picture_718469.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Enemy Front (2014) [Ru/En] (3.4.4.6290/upd4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717878.jpg" />
+  <img src="Z:/picture/008/save_picture_717878.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Hellpoint (2020) [Ru/Multi] (1.01) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716460.jpg" />
+  <img src="Z:/picture/008/save_picture_716460.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Relicta (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716457.jpg" />
+  <img src="Z:/picture/008/save_picture_716457.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Fear of Clowns (2017) [En] (1.01) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715859.jpg" />
+  <img src="Z:/picture/008/save_picture_715859.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Fear of Clowns (2017) [En] (1.01) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EA86D8C7D5ACC0B13265285FEBF2E114E910DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219333   (714964) от 13.04.2018
-
-SINISTRY SILINIUM (2018) [Ru/En] (1.04) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714964.jpg" />
-</div>
-
-
-###  Подробнее
-
-SINISTRY SILINIUM - это психологический хоррор с элементами экшена, стелса и головоломки. Вас ожидает интригующая история главного героя, попавшего в небольшой городок, где, в следствие экспериментов со звуковыми волнами, всё население в той или иной степени лишилось рассудка и превратилось в подобие разношерстных обитателей психиатрических лечебниц.Тип издания: LicenseРазработчик: IgrodelskyЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049C16BF66D0DB2CFAA6925AD6F026E8638BC063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286140   (714621) от 01.03.2019
-
-CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) License PLAZA [Episode 1-3]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714621.jpg" />
-</div>
-
-
-###  Подробнее
-
-За два года до нападения на полицейский участок в городе произошла страшная трагедия, повлёкшая за собой закрытие парка развлечений. Одни считают, что это несчастный случай, другие - что это хорошо спланированный акт устрашения. Листовки о без вести пропавших людях заполнили улицы городов.Тип издания: LicenseРазработчик: Walnut LLCЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B351BF2EA7C8DCDB44B18CEA75A273537D3651A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286186   (714359) от 01.03.2019
-
-CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) Repack Other s [Episode 1-3]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714359.jpg" />
-</div>
-
-
-###  Подробнее
-
-За два года до нападения на полицейский участок в городе произошла страшная трагедия, повлёкшая за собой закрытие парка развлечений. Одни считают, что это несчастный случай, другие - что это хорошо спланированный акт устрашения.Тип издания: RepackРазработчик: Walnut LLCЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5709E7F5BDF2D825758B1F85B5E2C127B8451A52
 ```
 
 https://mybot314.ru/tekegram_catalog/

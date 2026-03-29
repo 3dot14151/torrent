@@ -1,3 +1,135 @@
+###  Публикация: 1349833   (1004032) от 03.01.2020
+
+Джим Хаттон | Меркьюри и я. Богемская рапсодия, любовь и котики (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фредди Меркьюри — культовый артист, чьи невероятные сценические образы и неповторимая манера выступления до сих восхищают слушателей по всему миру. Но каким он был вне ослепительного света софитов? В 1983 году судьба случайно сводит Фредди Меркьюри с Джимом Хаттоном в одном из лондонских баров. С этого момента начинается удивительная история любви простого ирландского (   Читать дальше...   )Жанр: Биографии деятелей культуры и искусства, Музыкальные коллективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF73CF601DD069279A6FAAE107EB070FA5393009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487375   (1003595) от 05.08.2021
+
+О. Ю. Климов | Пергамское царство: проблемы политической истории и государственного устройства (2010) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассматривается политическая история Пергамского царства, образовавшегося в Малой Азии после походов Александра Македонского и развивавшегося в III-II вв. до н. э. до завоевания его Римом. Большое внимание уделено исследованию важнейших политических институтов, состояния армии и флота, характеристике налоговой, финансовой, религиозной политики династии (   Читать дальше...   )Жанр: История, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9E4635A6C6935A658E90C8EED8B12B9E3DCD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350164   (1003444) от 05.01.2020
+
+Э. Лависс, А. Рамбо (ред.) | История XIX века [в 8 томах] (1938-1939) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта наиболее полная, последовательно изложенная история XIX века, изданная в 8 томах, принесла известность своим авторам.
+
+«История XIX века», впервые опубликованная на русском языке в 1906 году, составляет последнюю часть из двенадцатитомной «Всеобщей истории с IV столетия до нашего времени» (1893-1901). Общий план этого большого издания был выработан редакторами, (   Читать дальше...   )Жанр: История, науковедение, политология, социология, экономика, культурология, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C675182A3ED91FB6851DC93038287F61FB26BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487546   (1003381) от 06.08.2021
+
+В.Т. Тормозов и др. | Белое движение и национальный вопрос в России (2009) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография предназначена для историков, преподавателей вузов и других учебных заведений, студентов и аспирантов, изучающих отечественную историю, для всех, кто интересуется историей России. Цель разработки монографии ознакомить читателей с одним из ключевых направлений внутренней политики Белого движения – его деятельностью в национальной сфере, на примере Сибири, (   Читать дальше...   )Жанр: Историография, история белого движенияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F08601C3FD2A2BF1A2211E7A59205BF0BD1F71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839222   (1003362) от 27.11.2025
+
+Лана Паршина,  Селим Бенсаад | Тайны семьи Сталина. Исповедь последнего из Джугашвили (2022) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читателям представляется уникальная возможность заглянуть в частную жизнь Сталина, пролистать его семейный альбом. Откровенные истории без политической цензуры из первых уст. Один из соавторов, Селим Бенсаад, – прямой правнук Сталина, последний урожденный Джугашвили. Как вышло, что он стал гражданином Алжира? Какое скандальное завещание оставила его мать, дочь Якова (   Читать дальше...   )Жанр: Биография, мемуары, историяИздательство: ИД Комсомольская правдаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3E9AC9082AA035E04D3194E75D01A48DF83F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350530   (1003292) от 06.01.2020
 
 М. Г. Центнершвер | Очерки по истории химии [научно-популярные лекции] (1927) [PDF]
@@ -6,7 +138,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003292.jpg" />
 </div>
 
 
@@ -34,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002943.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002745.jpg" />
 </div>
 
 
@@ -88,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001013.jpg" />
 </div>
 
 
@@ -114,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000992.jpg" />
 </div>
 
 
@@ -141,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000846.jpg" />
 </div>
 
 
@@ -168,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995038.jpg" />
 </div>
 
 
@@ -196,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994001.jpg" />
 </div>
 
 
@@ -224,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993277.jpg" />
 </div>
 
 
@@ -250,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993002.jpg" />
 </div>
 
 
@@ -276,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992572.jpg" />
 </div>
 
 
@@ -302,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991788.jpg" />
 </div>
 
 
@@ -329,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991142.jpg" />
 </div>
 
 
@@ -356,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991113.jpg" />
 </div>
 
 
@@ -382,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990885.jpg" />
 </div>
 
 
@@ -408,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988932.jpg" />
 </div>
 
 
@@ -434,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988929.jpg" />
 </div>
 
 
@@ -460,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988661.jpg" />
 </div>
 
 
@@ -487,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988636.jpg" />
 </div>
 
 
@@ -514,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988631.jpg" />
 </div>
 
 
@@ -540,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988056.jpg" />
 </div>
 
 
@@ -551,138 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA0088A5E1AD111791A53B8C82278EAC25EAB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971247   (987588) от 02.01.2016
-
-Мария Павлова | Илья Фрэз (1985) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена творчеству народного артиста РСФСР, лауреата Государственной премии СССР Ильи Фрэза, известного мастера детского кино.
-
-Фильмы "Первоклассница", "Я купил папу", "Чудак из пятого "Б", "Я вас любил…", "Вам и не снилось…", "Карантин" и другие принесли ему широкую популярность у зрителей (   Читать дальше...   )Жанр: Биографии и Мемуары, КиноФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC92923C8AA67733AC6309326CED67FD233E4C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971234   (987584) от 02.01.2016
-
-Виктор Кожемяко | Виктор Розов. Свидетель века (2013) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Сергеевич Розов – имя легендарное в отечественной культуре, особенно для старшего поколения. Пьесы «Вечно живые», «Её друзья», «В поисках радости», «Гнездо глухаря», снятые по его произведениям фильмы «Летят журавли», «Шумный день», «С вечера до полудня», «В добрый час» – это знаменательные вехи нашей литературы, театра и кино. Спектакли по пьесам В. Розова (   Читать дальше...   )Жанр: Биографии и Мемуары, Кино, ТеатрФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3B4A09EF080F39325AE4794E7AF0F7CE5EEDD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971396   (987583) от 02.01.2016
-
-А. М. Курносов, Б. А. Розентретер | Лев Дмитриевич Шевяков (1973) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987583.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о жизни и деятельности видного советского ученого, горного инженера Льва Дмитриевича Шевякова, одного из основоположников важного раздела горной науки - теории проектирования угольных шахт. Авторы анализируют основные труды ученого, его научно-организационную работу в учреждениях Академии наук СССР, в научно-исследовательских институтах и в (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DAB1497FB6B916E894081275F996533B11AE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971227   (987475) от 02.01.2016
-
-Валерий Золотухин | Секрет Высоцкого [с фотографиями] (2013) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Высоцкий и Валерий Золотухин – несомненно, самые яркие и самобытные дарования из созвездия «Таганки» 60–70-х годов. Они были звездами, которые светили своим, а не отраженным светом. Они были друзьями. Высоцкий ценил Золотухина не только как коллегу-актера, но и как талантливого писателя. «Володя сказал сегодня: «Когда я умру, Валерий напишет обо мне книгу…» (   Читать дальше...   )Жанр: Биографии и Мемуары, Кино, ТеатрФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC7A8C705E255687367B80F74A8BF6C8D895826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971253   (987232) от 02.01.2016
-
-Андрей Фурсов (сост.) | De Aenigmate. О Тайне (2015) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник научных трудов является логическим продолжением сборника "De Conspiratione / О Заговоре". В работах, представленных в сборнике, анализируется ряд таинственных и загадочных проблем древности, средневековья и современного мира; при этом выясняется, что современные проблемы уходят вглубь веков, а древность неожиданно прорастает в наши дни.Жанр: Историография, Политология, КонспирологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496333B44DF4C4C1BF8713C94D07036F220A32FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

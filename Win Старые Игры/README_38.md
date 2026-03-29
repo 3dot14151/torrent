@@ -1,3 +1,55 @@
+###  Публикация: 1748885   (43819) от 12.09.2024
+
+Xenonauts: XNT - Into Darkness (2017) [En] (6.0) Repack/Mod AndyFox
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот мод предназначен для игроков, желающих более быстрый темп игры и больше действий, отображает захватывающую и разнообразную среду. Мод реализует инновационные элементы и механику, тем самым изменяя игровой опыт. Игрок должен мудро выбирать, предпочитает ли он сосредоточиться на экономике, превосходстве в воздухе или дополнительными наземными боевыми инструментами. (   Читать дальше...   )Тип издания: Repack/ModЖанр: Strategy, Turn-based, Sci-fiЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9545B9688130F12ED98578A208157D74BC74E622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615071   (43741) от 13.09.2024
+
+Spyro the Dragon (1998) [Ru/Multi] (2.0) Repack Ma2012ks
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spyro the Dragon - первая игра от Insomniac Games о драконе Спайро начавшая серию Spyro the Dragon. Злой волшебник Гнасти Гнорк (Gnasty Gnorc) заколдовал королевство драконов. Вся надежда на маленького Спайро. Он призван освободить своих сородичей и смежные миры от гнёта тёмных сил, а также спасти все украденные яйца драконов.Тип издания: RepackРазработчик: Insomniac GamesЖанр: Платформер, Аркада, 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36542CF52D358C5B2C29F8B250993DBD30190A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749190   (43723) от 13.09.2024
 
 Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
@@ -6,7 +58,7 @@ Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43723.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Xenonauts: On The Edge / Ксенонавты: на грани (2015) [Ru] (4.0)
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43677.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Spyro 2: Ripto’s Rage! (1999) [Ru] (2.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43641.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43613.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Bully (2008) [Ru/En] (1.2) Repack R.G. Catalyst [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43590.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ FlatOut: Ultimate Carnage (2008) [Ru/Multi] (1.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43489.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Overlord: Raising Hell (2007) [Ru] (1.4/dlc) Repack ArchangeL
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43299.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Far Cry: BMS Russian Weapons Pak (2023) [Ru] (1.1) Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42467.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42116.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Aliens vs Predator Антология [Ru/En] (RePack) 1999-2002 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41029.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ UberSoldier / Восточный фронт: Неизвестная война (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40816.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38165.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38164.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38163.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38160.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38157.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38142.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38064.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38057.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Descent II (1996) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38056.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38043.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38034.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Turok 2: Seeds of Evil (1998) [Ru/En] (1.4) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38031.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Oni (2001) [Ru] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38030.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Oni – напряженный боевик в стиле аниме. Агент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F1F1E025A3A34D2E62C10E31203A49337F530F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699499   (38029) от 07.11.2024
-
-Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, в котором время не имеет значения, а зло не имеет границ. Путешественник во времени по имени Турок оказывается в диких землях, разрываемых войной. Злой властитель, известный как Устроитель, с помощью древнего артефакта хроноцептера собирается порвать саму ткань времени и править вселенной. Хроноцептер был расколот на куски тысячи лет назад, чтобы никогда не (   Читать дальше...   )Тип издания: RepackРазработчик: Iguana EntertainmentЖанр: FPSЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECEFB7C97720878E1BC7C72ABD5290B44FA3565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177682   (38028) от 07.11.2024
-
-Exhumed (1996) [En] (1.0) Repack 1nomok
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит в конце XX века в окрестностях древнего египетского города Карнак. Город захвачен неизвестными силами. На разведку в долину Карнак отправлена специальная группа солдат. По пути туда вертолёт с главным героем сбивают, герой едва спасается. Под руководством духа Короля Рамзеса, мумия которого была извлечена из гробницы злыми созданиями, герой (   Читать дальше...   )Тип издания: RepackРазработчик: Lobotomy SoftwareЖанр: Шутеры, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED464DA6D76EE249A40875F2906D86E9D0D18928
 ```
 
 https://mybot314.ru/tekegram_catalog/

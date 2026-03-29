@@ -6,7 +6,7 @@
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282288.jpg" />
+  <img src="Z:/picture/008/save_picture_282288.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264725.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262185.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215541.jpg" />
+  <img src="Z:/picture/005/save_picture_215541.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146282.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144079.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132941.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75141.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72917.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28318.jpg" />
 </div>
 
 

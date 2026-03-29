@@ -1,3 +1,119 @@
+###  Публикация: 1037061   (615743) от 23.07.2016
+
+Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smiles for Serious People (7:36)
+02. Cyclone (2:12)
+03. Child's Mood (7:51)
+04. Crystal Rain (4:58)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9160254CD2FC1BF6BC3A6F75AAB2516170828A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037045   (615742) от 23.07.2016
+
+Carla Cook - Dem Bones (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The More I See You (4:53)
+02. Like A Lover (6:42)
+03. Oh Gee (4:13)
+04. Dem Bones (6:55)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4590F1E3B3C0071BF6D3B7BFF0BC3CB38B40CA01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230255   (615709) от 12.06.2018
+
+Chet Baker And Crew (1956, 1959) 2CD, 2018, Jazz Images [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615709.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tabu [5:40]
+02. Halema [3:54]
+03. To Mickey's Memory [5:16](   Читать дальше...   )Жанр: CoolПродолжительность: 01:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59FB2A5D6644720611BDE54B0B15264D6218456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036936   (615675) от 23.07.2016
+
+Laurindo Almeida - Guitar From Ipanema (1964) Japan Edition, 2011, Capitol / EMI [FLAC|Lossless|image + .cue] <Jazz, World Fusion, Brazilian Traditions>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl from Ipanema    02:20
+02. Manha de Carnaval    03:10
+03. Sarah's Samba    02:08
+04. Winter Moon    02:59(   Читать дальше...   )Жанр: Jazz, World Fusion, Brazilian TraditionsПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0117801AF2CADFE1EE31A442AC35B9DA825A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037063   (615668) от 23.07.2016
 
 Melanie De Biasio - Blackened Cities (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Contemporary Jazz>
@@ -6,7 +122,7 @@ Melanie De Biasio - Blackened Cities (2016) [FLAC|Lossless|image + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615668.jpg" />
+  <img src="Z:/picture/008/save_picture_615668.jpg" />
 </div>
 
 
@@ -32,7 +148,7 @@ Bob Leaper Big Band - Big Band, Beatle Songs (2005) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615408.jpg" />
+  <img src="Z:/picture/005/save_picture_615408.jpg" />
 </div>
 
 
@@ -67,7 +183,7 @@ Branford Marsalis Quartet - The Secret Between The Shadow And The Soul (2019) Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615240.jpg" />
+  <img src="Z:/picture/008/save_picture_615240.jpg" />
 </div>
 
 
@@ -96,7 +212,7 @@ VA - Smooth Jazz Dinner Party (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615142.jpg" />
+  <img src="Z:/picture/008/save_picture_615142.jpg" />
 </div>
 
 
@@ -125,7 +241,7 @@ Milt Jackson - Mostly Duke (1982) 1998, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614773.jpg" />
+  <img src="Z:/picture/008/save_picture_614773.jpg" />
 </div>
 
 
@@ -154,7 +270,7 @@ Members Of The Duke Ellington Orchestra - A Tribute To Duke Ellington (1997) Gre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614772.jpg" />
+  <img src="Z:/picture/008/save_picture_614772.jpg" />
 </div>
 
 
@@ -183,7 +299,7 @@ Apollo Saxophone Orchestra - Perpetual Motion (2012) Nimbus [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614771.jpg" />
+  <img src="Z:/picture/008/save_picture_614771.jpg" />
 </div>
 
 
@@ -212,7 +328,7 @@ Stanley Turrentine - Six Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614770.jpg" />
+  <img src="Z:/picture/008/save_picture_614770.jpg" />
 </div>
 
 
@@ -241,7 +357,7 @@ Art Blakey And The Jazz Messengers - Roots & Herbs (1961) /2014, Universal/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614500.jpg" />
+  <img src="Z:/picture/008/save_picture_614500.jpg" />
 </div>
 
 
@@ -270,7 +386,7 @@ McCoy Tyner - Suddenly (1991) 2001, Past Perfect [APE|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614114.jpg" />
+  <img src="Z:/picture/008/save_picture_614114.jpg" />
 </div>
 
 
@@ -299,7 +415,7 @@ Michael Franks - The Music In My Head (2018) [FLAC|Lossless|image + .cue] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614057.jpg" />
+  <img src="Z:/picture/008/save_picture_614057.jpg" />
 </div>
 
 
@@ -328,7 +444,7 @@ George Adams & Don Pullen - Melodic Excursions (1982) Remaster, 2015, Solid Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614039.jpg" />
+  <img src="Z:/picture/008/save_picture_614039.jpg" />
 </div>
 
 
@@ -357,7 +473,7 @@ The Modern Jazz Disciples - Right Down Front (1960) Remaster, 2013, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613985.jpg" />
+  <img src="Z:/picture/008/save_picture_613985.jpg" />
 </div>
 
 
@@ -386,7 +502,7 @@ Eddie Harris - People Get Funny… (1987) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613984.jpg" />
+  <img src="Z:/picture/008/save_picture_613984.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ Sadao Watanabe - Sadao Watanabe (1972) Remaster, 2014, Sony Music[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613982.jpg" />
+  <img src="Z:/picture/008/save_picture_613982.jpg" />
 </div>
 
 
@@ -444,7 +560,7 @@ Nicki Parrott - Yesterday Once More: The Carpenters Song Book (2016) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613866.jpg" />
+  <img src="Z:/picture/008/save_picture_613866.jpg" />
 </div>
 
 
@@ -473,7 +589,7 @@ Kid Ory - Ory's Creole Trombone (1930-e - 1950-e) 1998, Giant Of Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613582.jpg" />
+  <img src="Z:/picture/008/save_picture_613582.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ Lester Young - Portrait: 24 Carat Gold Edition (1936 - 1952) 10CD, 2001, Past Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613286.jpg" />
+  <img src="Z:/picture/008/save_picture_613286.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ Ben Perowsky, Frank Perowsky, Sam Yahel - Bop On Pop (2002) JazzKey Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613085.jpg" />
+  <img src="Z:/picture/008/save_picture_613085.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ The Red Garland Trio - Rojo (1958) 1993, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613081.jpg" />
+  <img src="Z:/picture/008/save_picture_613081.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ Billy Mitchell - This Is Billy Mitchell (1962) 2003, Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613080.jpg" />
+  <img src="Z:/picture/008/save_picture_613080.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Dianne Reeves - Palo Alto Sessions 1981-1985 (1996) Blue Note [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613078.jpg" />
+  <img src="Z:/picture/008/save_picture_613078.jpg" />
 </div>
 
 
@@ -632,122 +748,6 @@ Dianne Reeves - Palo Alto Sessions 1981-1985 (1996) Blue Note [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1B438CDEA25A212761B767DCFBA4335AAF2387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545345   (612897) от 20.04.2022
-
-Howard Rumsey's Lighthouse All-Stars - Volume 6 (1954, 1955) Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who's Sleepy [3:10]
-02. Isn't It Romantic [3:17]
-03. Mad at the World [3:30]
-04. East of the Sun [4:05](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6643ED0F5400A702F8C73B461B44DFC38BB9EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912300   (612895) от 25.06.2015
-
-Pee Wee Russell Sextet - Complete Live At Bovi's Town Tavern (1964) /2011, Gambit Records/[FLAC|tracks+.cue]<Jazz, New Orleans Jazz, Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Announcement [00:26]
-02. Oh Baby [04:18]
-03. Keepin' Out Of Mischief Now [04:02]
-04. Sugar [03:54](   Читать дальше...   )Жанр: Jazz, New Orleans Jazz, Dixieland, SwingПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E6522F17C522BBA71B4C07A8469933708FEC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912305   (612893) от 25.06.2015
-
-Lonnie Smith - Drives (1970) /2009, EMI Music/[FLAC|tracks+.cue]<Jazz, Jazz Fusion, Post-Bop, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twenty Five Miles [05:42]
-02. Spinning Wheel [07:36]
-03. Seven Steps To Heaven [05:50]
-04. Psychedelic Pi [06:32](   Читать дальше...   )Жанр: Jazz, Jazz Fusion, Post-Bop, Hammond OrganПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D815056C295C002F2F0E8DA948FDE17FDC93FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912338   (612812) от 25.06.2015
-
-Illinois Jacquet - The King! (1968) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Haunting Melody [05:21]
-02. I Wish I Knew How It Would Feel To Be Free [06:41]
-03. How High the Moon [05:35]
-04. The King [03:29](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE85354555968941DB3492217CCC502C5EF6F420
 ```
 
 https://mybot314.ru/tekegram_catalog/

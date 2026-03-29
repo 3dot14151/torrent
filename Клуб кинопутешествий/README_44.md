@@ -1,3 +1,56 @@
+###  Публикация: 958348   (324873) от 20.11.2015
+
+Верю - не верю. Уганда (20.11.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_324873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любители путешествий, Андрей Бедняков зовет вас в увлекательный тур по невероятным странам! В места, где раньше никто и никогда не был. В уголки планеты, которые хранят вековые тайны. По городам, о которых вы нигде больше не узнаете. Бородатый ведущий с прекрасной эрудицией проведет эксклюзивную экскурсию по местам вашей мечты. О каждом из них он расскажет пять интересных (   Читать дальше...   )В этом выпуске: Уганда. За время колониального правления, почти ничего не изменилось в сознании жителей. Это страна, в которой мало кто знает, что такое удобства и горячая вода в кране. Здесь бананы как картошка, а шаманы вместо докторов. Андрей Бедняков отправился в эту экзотическую страну, чтобы узнать самые интересные факты о ней.Телекомпания: Пятница!Жанр: Телепередача, ДокументальныйПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F86956460A8DCB6763C7C611782D3B302E6CE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958815   (321854) от 22.11.2015
+
+Руссо туристо. Выпуск 11. Стамбул (2015.11.22) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что нашего человека без труда можно вычислить за границей?
+Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинСубтитры: ОтсутствуютПродолжительность: 00:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E909BA4A39C7DCD7892021DAF4C4FF3D7A957B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181902   (321793) от 08.11.2017
 
 Орел и решка. Перезагрузка (2017.11.07) WEB-DL [H.264/720p-LQ] (сезон 14: Ибица. Испания)
@@ -6,7 +59,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321793.jpg" />
+  <img src="Z:/picture/008/save_picture_321793.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321700.jpg" />
+  <img src="Z:/picture/008/save_picture_321700.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321509.jpg" />
+  <img src="Z:/picture/008/save_picture_321509.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321388.jpg" />
+  <img src="Z:/picture/008/save_picture_321388.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321386.jpg" />
+  <img src="Z:/picture/008/save_picture_321386.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319369.jpg" />
+  <img src="Z:/picture/008/save_picture_319369.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319319.jpg" />
+  <img src="Z:/picture/008/save_picture_319319.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318774.jpg" />
+  <img src="Z:/picture/008/save_picture_318774.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318613.jpg" />
+  <img src="Z:/picture/008/save_picture_318613.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317390.jpg" />
+  <img src="Z:/picture/008/save_picture_317390.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317388.jpg" />
+  <img src="Z:/picture/008/save_picture_317388.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317386.jpg" />
+  <img src="Z:/picture/008/save_picture_317386.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317311.jpg" />
+  <img src="Z:/picture/008/save_picture_317311.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317310.jpg" />
+  <img src="Z:/picture/008/save_picture_317310.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317308.jpg" />
+  <img src="Z:/picture/008/save_picture_317308.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315977.jpg" />
+  <img src="Z:/picture/008/save_picture_315977.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314511.jpg" />
+  <img src="Z:/picture/008/save_picture_314511.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314348.jpg" />
+  <img src="Z:/picture/008/save_picture_314348.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313980.jpg" />
+  <img src="Z:/picture/008/save_picture_313980.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313974.jpg" />
+  <img src="Z:/picture/008/save_picture_313974.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312631.jpg" />
+  <img src="Z:/picture/008/save_picture_312631.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312478.jpg" />
+  <img src="Z:/picture/008/save_picture_312478.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312468.jpg" />
+  <img src="Z:/picture/008/save_picture_312468.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312345.jpg" />
+  <img src="Z:/picture/008/save_picture_312345.jpg" />
 </div>
 
 
@@ -617,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B885601BEFD24045B5454D9F01D1096D43EFFDF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183087   (312340) от 12.11.2017
-
-Орел и решка. Рай и ад-2 (2017.11.12) WEB-DL [H.264/1080p-LQ] (сезон 15: Фортелеза. Бразилия)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда проекта продолжит свои "райско-адские" путешествия по миру, но во второй части "Рая и ада" зрителей ждут изменения.
-Во-первых, немного поменяется концепция: теперь прекрасное и ужасное будут искать в каждом исследуемом городе. Во-вторых, в 15-м сезоне вместо ушедшей в отпуск Леси Никитюк путешествовать с Региной Тодоренко будет новый ведущий. (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36293CF50812017EF85FCB2413C1DF83278B54A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422459   (310616) от 08.11.2020
-
-Отражение гор. Алтай (2016) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горный Алтай – уникальный заповедник с необыкновенной природой и живописными пейзажами. Однако жизнь там не так проста, как кажется. В качестве заработка местные жители выбирают легкий, но опасный путь – браконьерство. Чтобы справиться с этой проблемой, Фонд WWF Россия и Citi Foundation создали программу «Устойчивое жизнеобеспечение населения на Алтае». Задача проекта (   Читать дальше...   )Производство: Россия, Украина, Великобритания, WWF, Citi Foundation, MAGIC PRODUCTION, Event Horisont, Светлые ИсторииЖанр: Документальный, познавательный, путешествияРежиссер: Александра МарченкоЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589E9263BCB94C64716F83BE9DF6013C70D72583
 ```
 
 https://mybot314.ru/tekegram_catalog/

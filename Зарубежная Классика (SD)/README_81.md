@@ -1,3 +1,83 @@
+###  Публикация: 568284   (394628) от 31.10.2012
+
+Смерть среди айсбергов / Orca, the Killer Whale (1977) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_394628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Нолан никогда не задумывался о том, какой непоправимый вред он наносит живой природе. Он просто отлично выполнял свою работу. Он делал то, что у него получалось лучше всего, — он убивал. Выходил в море и убивал китов. Однажды он вытащил из воды самку-китиху. Она погибла, а вместе с ней погиб и ее не успевший родиться детеныш.
+Трагедия произошла на глазах кита-самца. А «орки» однолюбы по своей природе, также как и лебеди, также как и многие живые существа…С этой минуты кит начал мстить людям. Людям, близких Нолану, но к капитану Нолану у кита был свой особый счет. Когда от рыбацкого поселка мало что осталось, обоим — и Нолану, и киту, — стало ясно: они должны сойтись в поединке, который для кого-то из них окажется последним…Жанр: Ужасы, Триллер, ПриключенияРежиссер: Майкл АндерсонПродюсер: Лучиано Винчензони, Дино Де ЛаурентисАктеры: Ричард Харрис, Шарлотта Рэмплинг, Уилл Сэмпсон, Бо Дерек, Кинен Уинн, Роберт Кэрредин, Скотт Уолкер, Питер Хутен, Уэйн Хэффли, Винсент ДжентилеПеревод: ДублированныйПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C232B591D65F3925092B9B7E5967FC7A1D3940EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021456   (394594) от 06.10.2017
+
+Это не я, это – он! / C'est pas moi, c'est lui (1979) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_394594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий клерк в один прекрасный день получает заманчивое предложение — поработать в Тунисе. Отправляясь туда вместе с новым знакомым, итальянским актером, он и не подозревает, какие приключения ждут его в этом путешествии…Производство: ФранцияЖанр: Комедия, приключенияРежиссер: Пьер РишарАктеры: Пьер Ришар, Альдо Маччоне, Валери Мересс, Даниэль Минадзоли, Анетт Пувр, Жерар Эрнандес, Франка Валери, Анри Гарсен, Рауф Бен Амор, Франк-Оливье Бонне, Филипп Бриго, Марсель Гассук, Клер Маньен, Луи Наварре, Мари-Кристина Дешайе, Жаклин Ноэль, Бубуль, Нуреддин Касбауи, Абдельлатиф Хамруни, Жак Монне, Мишель МюллерПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B24756566B19040BFDCC152DC9C6615E250705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169945   (393822) от 07.10.2017
+
+Любовь под дождем / Un amour de pluie (1973) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_393822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курорт — это место, где расцветают романы. И не важно, что окружает праздных отдыхающих: пустыня или парк, озеро или море, солнце или дождь — у желания вкусить прелести влюбленности не бывает неинтересных ландшафтов или плохой погоды.
+Вот и две парижанки, молодая мать Элизабет и ее «взрослая» дочь Сесиль приезжают на престижный курорт в поисках уединения, а находят (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ)/ Lira Films, Terra Filmkunst, Torino Roma Attivita Cinematografiche, TraeЖанр: Драма, МелодрамаРежиссер: Жан-Клод БриалиАктеры: Роми Шнайдер, Нино Кастельнуово, Сюзанн Флон, Мехди Эль Глауи, Бенедикт Бучер, Жан-Клод Бриали, Филипп Кастелли, Луи Наварр, Пьер Мира, Альбер МишельПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879B966B9E7E6C17FDE13FC7E42FED128A82C5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170179   (391771) от 09.10.2017
 
 Большая стирка / La grande lessive (!) (1968) DVDRip [H.264]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391771.jpg" />
+  <img src="Z:/picture/008/save_picture_391771.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390892.jpg" />
+  <img src="Z:/picture/008/save_picture_390892.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390646.jpg" />
+  <img src="Z:/picture/008/save_picture_390646.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390419.jpg" />
+  <img src="Z:/picture/008/save_picture_390419.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390231.jpg" />
+  <img src="Z:/picture/008/save_picture_390231.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389633.jpg" />
+  <img src="Z:/picture/008/save_picture_389633.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389347.jpg" />
+  <img src="Z:/picture/008/save_picture_389347.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389343.jpg" />
+  <img src="Z:/picture/008/save_picture_389343.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387112.jpg" />
+  <img src="Z:/picture/008/save_picture_387112.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387074.jpg" />
+  <img src="Z:/picture/008/save_picture_387074.jpg" />
 </div>
 
 
@@ -272,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386792.jpg" />
+  <img src="Z:/picture/008/save_picture_386792.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386484.jpg" />
+  <img src="Z:/picture/008/save_picture_386484.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385605.jpg" />
+  <img src="Z:/picture/008/save_picture_385605.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385163.jpg" />
+  <img src="Z:/picture/008/save_picture_385163.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385091.jpg" />
+  <img src="Z:/picture/008/save_picture_385091.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384341.jpg" />
+  <img src="Z:/picture/008/save_picture_384341.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383924.jpg" />
+  <img src="Z:/picture/008/save_picture_383924.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383586.jpg" />
+  <img src="Z:/picture/008/save_picture_383586.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383022.jpg" />
+  <img src="Z:/picture/008/save_picture_383022.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382795.jpg" />
+  <img src="Z:/picture/008/save_picture_382795.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382683.jpg" />
+  <img src="Z:/picture/008/save_picture_382683.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382586.jpg" />
+  <img src="Z:/picture/008/save_picture_382586.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382208.jpg" />
+  <img src="Z:/picture/008/save_picture_382208.jpg" />
 </div>
 
 
@@ -598,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FA999A0852120CB728905FBCDE0A331691D5357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719627   (381782) от 07.11.2013
-
-Быть или не быть / To Be or Not to Be (1942) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Польше до и во время немецкой оккупации. В одном театре Варшавы работают муж и жена - Йосиф и Мария Тура. Ставят антинацистскую пьесу, но ее запрещают, и приходится играть «Гамлета». Чрезвычайно тщеславный и ранимый Йосиф Тура играет самого принца датского, один из зрителей, молодой и красивый летчик, встает и уходит из зала в самый ответственный (   Читать дальше...   )Производство: США, Romaine Film CorporationЖанр: Комедия, Военный, ДрамаРежиссер: Эрнст ЛюбичАктеры: Кэрол Ломбард, Джек Бенни, Роберт Стэк, Феликс Брессарт, Лайонел Этуилл, Стэнли Риджес, Сиг Руман, Том Дуган, Чарльз Хэлтон, Джордж ЛиннПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 01:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B01EDF018E3CBE53B4C2318DA2724FB7F7F899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574861   (381543) от 07.09.2022
-
-После комендантского часа / Lewat Djam Malam / After the Curfew (1954) BDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Озвучивая страдания нации, борющейся за свою национальную идентичность, картина Усмара Исмаила следует за разочарованным бывшем борце за свободу, который не может приспособиться к гражданской жизни после революции, давшей Индонезии независимость от Нидерландов. Пропитанный мрачной атмосферой и психологическим напряжением, фильм, как молния, поразил национальный кинематограф, (   Читать дальше...   )Производство: Индонезия, PERFINIЖанр: драмаРежиссер: Ушмар ИсмаилАктеры: A.N. Alcaff, Далия, Netty Herawati, Бамбанг Эрманто, Р.Д. ИзмаилПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английскиеПродолжительность: 01:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682757BA7F633BA18CD3F1CBD83EB56EDAC6F492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172341   (380929) от 17.10.2017
-
-Твонки / The Twonky (1953) TVRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380929.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доме профессора философии, после отъезда его жены, появляется странный телевизор, который мало того ходит, но еще начинает наводить свои порядки.Производство: США, Arch Oboler ProductionsЖанр: Фантастика, КомедияРежиссер: Арч ОболерАктеры: Ганс Конрид, Илэйн Мори, Уильям Х. Линн, Эдвин Макс, Глория Блонделл, Эвелин Бересфорд, Норман Филд, Элис Бэкес, Трилби Конрид, Джо ХоторнПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD4BADB3D48D2790A1DDB4331643813BA496E4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

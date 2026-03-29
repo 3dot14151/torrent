@@ -1,3 +1,175 @@
+###  Публикация: 1224030   (665937) от 10.05.2018
+
+Чиж & Co - 20 лет (2014) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия концерта группы Чиж & Co, посвященного 20-летию команды, состоявшегося 15 ноября 2014 года в зале «Крокус Сити Холл».Оригинальный состав коллектива был усилен музыкантами брасс-оркестра «Фаворит»,благодаря чему часть песен прозвучала в необычной аранжировке.01.Ноосhiе coochie man
+02.Такие дела
+03.Есть!
+04.Блюз на сваях(   Читать дальше...   )Производство: REN-TVЖанр: МузыкаРежиссер: REN-TVАктеры: Чиж & Co , брасс-оркестр «Фаворит»Перевод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4412F80216DF621570D963E05A795A609B6BFEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224573   (664793) от 11.05.2018
+
+Аквариум - Live on TV (1986, 1990) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пара ранних выступлений группы "Аквариум" на госТВ.Программа "Музыкальный ринг" - вышла в эфир 17.01.1987г.Фильм-концерт, снятый режиссером Константином Эрнстом - выпущен ВПТО "Видеофильм" в 1990 году."Аквариум" там представлен в своем, по мнению ценителей творчества БГ и группы, лучшем составе.
+
+Музыкальный ринг (1986)01.Поезд в огне
+02.Мир, как мы его знали
+03.Молодые львы
+04.В полный рост(   Читать дальше...   )Производство: ГРМП-Ленинград ;ВПТО "Видеофильм"Жанр: рокРежиссер: Владимир Максимов ; Константин ЭрнстАктеры: АквариумПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:13:34 + 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6248EE85CFB877A4A07547B47AFA5AEC824BB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138206   (664095) от 29.05.2017
+
+ONUKA и НАОНИ (06.04.2017) WEB-DL [H.264/1080p-LQ] [UKR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две музыкальные вселенные, ONUKA и Национальный академический оркестр народных инструментов (НАОНИ) под управлением дирижера Виктора Гуцало, встретились на одной сцене.
+Концерт представляет собой уникальное музыкальное действо, не имеющее аналогов. Неповторимые электронные композиции, чувственный женский вокал и феерия эмоций. В творчестве группы в изобилии представлены (   Читать дальше...   )Жанр: Электроника, Фолк, КонцертПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24325E4412E903A18ADABFDB156A4380481F6F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137650   (662031) от 31.05.2017
+
+Группа Мегаполис - Концерт в Москве (2017) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_662031.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мегаполис» — советская и российская рок-группа, основанная в Москве в 1987 году. День рождения группы – по-видимому, 27 мая(сегодня им 30 лет), именно тогда был издан дебютный альбом «Утро». Первое выступление «Мегаполиса» состоялось в июне 1987 года на фестивале Московской рок-лаборатории в ДК Горбунова.Многие песни группы написаны на стихи известных поэтов: Иосифа (   Читать дальше...   )1.Там
+2.Я весна
+3.Семь пар нечистых
+4.Супертанго(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E447F9379D78DB1C2F3E2C182A905B7C2BE43390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138176   (661920) от 31.05.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 1) (2017) WEB-DLRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Первая часть посвящена музыке в стиле Rock Ballads, Reggae и R&B. Композиции именно этих стилей составляют данный сборник. Садитесь поудобней, расслабьтесь и наслаждайтесь спокойной и приятной музыкой 90-х!
+- Разбивка по трекам отсутствует.Celine Dion – Because You Loved Me
+Destiny’s Child – No, No, No Part 1
+Sinead O’Connor – Nothing Compares 2 U
+R. Kelly – I Believe I Can Fly(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6374237F159D68D63705EA5820FA8B297E8A6C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225037   (661771) от 14.05.2018
+
+Квартирник на НТВ у Маргулиса. 25/17 (05.12.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661771.jpg" />
+</div>
+
+
+###  Подробнее
+
+«25/17» — российская музыкальная группа, основанная омскими музыкантами Андреем Позднуховым («Бледным») и Антоном Завьяловым («Ант»). Лидеры группы поделились малоизвестными фактами о своих прежних профессиях. Например, Андрей Позднухов успешно строил педагогическую карьеру. Его уроки изобразительного искусства славились безукоризненной дисциплиной. Также известные (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD094DFF5C61CA32B12D8D414A07ABD73A90D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513390   (661421) от 21.06.2012
 
 Bon Jovi: Live at Madison Square Garden (2009) BDRip
@@ -6,7 +178,7 @@ Bon Jovi: Live at Madison Square Garden (2009) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_661421.jpg" />
+  <img src="Z:/picture/005/save_picture_661421.jpg" />
 </div>
 
 
@@ -36,7 +208,7 @@ Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660496.jpg" />
+  <img src="Z:/picture/008/save_picture_660496.jpg" />
 </div>
 
 
@@ -62,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660453.jpg" />
+  <img src="Z:/picture/008/save_picture_660453.jpg" />
 </div>
 
 
@@ -88,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660184.jpg" />
+  <img src="Z:/picture/008/save_picture_660184.jpg" />
 </div>
 
 
@@ -116,7 +288,7 @@ Royal Hunt - 2016 (25 Anniversary) (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660000.jpg" />
+  <img src="Z:/picture/008/save_picture_660000.jpg" />
 </div>
 
 
@@ -144,7 +316,7 @@ Ken Hensley: Blood On The Highway, Albert Hall (2007) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658693.jpg" />
+  <img src="Z:/picture/005/save_picture_658693.jpg" />
 </div>
 
 
@@ -179,7 +351,7 @@ Lightning In a Bottle - A One Night History of the Blues (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658266.jpg" />
+  <img src="Z:/picture/008/save_picture_658266.jpg" />
 </div>
 
 
@@ -209,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657969.jpg" />
+  <img src="Z:/picture/008/save_picture_657969.jpg" />
 </div>
 
 
@@ -235,7 +407,7 @@ VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657478.jpg" />
+  <img src="Z:/picture/008/save_picture_657478.jpg" />
 </div>
 
 
@@ -264,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657423.jpg" />
+  <img src="Z:/picture/008/save_picture_657423.jpg" />
 </div>
 
 
@@ -292,7 +464,7 @@ UK - Curtain Call (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656684.jpg" />
+  <img src="Z:/picture/008/save_picture_656684.jpg" />
 </div>
 
 
@@ -321,7 +493,7 @@ DVJ Bazuka - Summer Love (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656622.jpg" />
+  <img src="Z:/picture/008/save_picture_656622.jpg" />
 </div>
 
 
@@ -347,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655763.jpg" />
+  <img src="Z:/picture/008/save_picture_655763.jpg" />
 </div>
 
 
@@ -373,7 +545,7 @@ UK - Curtain Call (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655737.jpg" />
+  <img src="Z:/picture/008/save_picture_655737.jpg" />
 </div>
 
 
@@ -402,7 +574,7 @@ Rammstein - Paris (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655608.jpg" />
+  <img src="Z:/picture/008/save_picture_655608.jpg" />
 </div>
 
 
@@ -428,7 +600,7 @@ Rammstein - Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654486.jpg" />
+  <img src="Z:/picture/008/save_picture_654486.jpg" />
 </div>
 
 
@@ -454,7 +626,7 @@ Metallica: Orion Music Festival 2012: The Black Album (2012) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654225.jpg" />
+  <img src="Z:/picture/005/save_picture_654225.jpg" />
 </div>
 
 
@@ -489,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653593.jpg" />
+  <img src="Z:/picture/008/save_picture_653593.jpg" />
 </div>
 
 
@@ -515,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653223.jpg" />
+  <img src="Z:/picture/008/save_picture_653223.jpg" />
 </div>
 
 
@@ -544,7 +716,7 @@ Rammstein - Paris (2017) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651957.jpg" />
+  <img src="Z:/picture/008/save_picture_651957.jpg" />
 </div>
 
 
@@ -558,171 +730,6 @@ Rammstein - Paris (2017) BDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DBB1BB9EC16C043ED59652D7E47F54989A03C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677239   (651227) от 12.07.2013
-
-Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapРежиссер: Guf и др.Актеры: Guf и др.Продолжительность: общая  02:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B6C42339D5316DC8CF84BF535FE1735CCBA86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903050   (651205) от 05.06.2015
-
-The Police: Certifiable - Live in Buenos Aires (2008) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Certifiable записан во время двух концертов на стадионе River Plate Stadium в Буэнос-Айресе в декабре 2007 г., которые состоялись в рамках триумфального тура воссоединенных The Police, посвященного 30-летию группы. Тур проходил по всем континентам кроме Африки с мая 2007 по август 2008. Финальное шоу состоялось 7 августа на знаменитой площадке Madison Square (   Читать дальше...   )Производство: США, A&MЖанр: RockПродолжительность: 01:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CDF9B0C68BF0B7343106FACCBCFE1E96A6A5B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031258   (651129) от 04.07.2016
-
-Легенды Ретро FM полная версия (2015) HDTV [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная версия международного музыкального фестиваля "Легенды Ретро FM-2015"! Зрители увидят потрясающее шоу, собравшее аншлаг в "Олимпийском".01. Наталья Гулькина - Дискотека
-02. Наталья Гулькина - Айвенго
-03. Лайма Вайкуле - Я вышла на Пикадилли
-04. Лайма Вайкуле - Листья Желтые(   Читать дальше...   )Производство: РоссияЖанр: PopРежиссер: 1 каналАктеры: Наталья Гулькина, Ricchi e Poveri, Лайма Вайкуле, Boney M, Виктор Салтыков, C.C.Catch, Евгений Осин и др.Продолжительность: 03:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14457C1DEBAFE155E162E39A9CAF0ABB6B2ACC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031248   (651128) от 04.07.2016
-
-Легенды Ретро FM полная версия (2015) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная версия международного музыкального фестиваля "Легенды Ретро FM-2015"! Зрители увидят потрясающее шоу, собравшее аншлаг в "Олимпийском".01. Наталья Гулькина - Дискотека
-02. Наталья Гулькина - Айвенго
-03. Лайма Вайкуле - Я вышла на Пикадилли
-04. Лайма Вайкуле - Листья Желтые(   Читать дальше...   )Производство: РоссияЖанр: PopРежиссер: 1 каналАктеры: Наталья Гулькина, Ricchi e Poveri, Лайма Вайкуле, Boney M, Виктор Салтыков, C.C.Catch, Евгений Осин и др.Перевод: не требуетсяПродолжительность: 03:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92EF0C382DE10A13D679A83A33AE2A94E05D8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903332   (651102) от 05.06.2015
-
-Muse - BBC Radio 1's Big Weekend (2015) HDTVRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись выступления на музыкальном фестивале BBC Radio 1 в Норвиче 23 мая 2015 г.Производство: Earlham Park, Norwich, EnglandЖанр: Alternative RockПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1370C927F391C027F51795458DB951DC3A6C4B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031224   (650914) от 04.07.2016
-
-David Gilmour - Live in Wroclaw (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись телетрансляции выступления Дэвида Гилмора в польском Вроцлаве 25.06.2016гSet 1:
-01. 5 A.M. (with orchestra)
-02. Rattle That Lock (with orchestra)
-03. Faces of Stone (with orchestra)(   Читать дальше...   )Производство: TVP2Жанр: Progressive Rock / Psychedelic Rock / Art RockРежиссер: TVP2Актеры: David GilmourПеревод: ОтсутствуетПродолжительность: 02:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3945EE37D1E772227911F46F6CB73DB215001B
 ```
 
 https://mybot314.ru/tekegram_catalog/

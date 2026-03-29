@@ -1,3 +1,83 @@
+###  Публикация: 1625460   (237857) от 09.04.2023
+
+Протоиерей Александр Шаргунов | Великая Тайна Причащения (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя протоиерея Александра Шаргунова хорошо известно православному читателю. Это, пожалуй, один из лучших проповедников нашего времени. В книге собраны проповеди, посвящённые главному Таинству Церкви - Святому Причащению.
+
+Все мы, православные христиане, со страхом Божиим и верой приступаем к Чаше со Святыми Дарами. Но бывает, что с годами мы начинаем относиться к (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5827F0DD33F2A75AB5061F7ED16C1CD9737B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639972   (237852) от 15.06.2023
+
+Символик | О Ленине, Сталине и «православных коммунистах» (2016) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237852.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время в России среди некоторых патриотов стало распространяться мнение, что православие и коммунизм – это фактически одно и то же. КПРФ провозглашает себя носителем христианских ценностей, а Иисуса Христа, Сына Божия, называет первым в истории коммунистом. Так ли это на самом деле? Как православный человек должен относиться к коммунизму? Можно ли поставить (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D967022557AAC53A99E37D7AEF60E0504B8EFEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625457   (237850) от 09.04.2023
+
+Сатисъ | Канонник в различных нуждах (2010) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник канонов – второе, исправленное и дополненное издание – предлагается для келейного (домашнего) употребления. Каноны, вошедшие в него, – о самых насущных духовных и житейских нуждах. Да услышит Всеблагий Господь наши молитвы.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090E1A909FC72BB0C4DC870CACB6D0C687371A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626160   (237757) от 13.04.2023
 
 Благовест | Преподобный Максим Грек. Избранные творения (2014) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237757.jpg" />
+  <img src="Z:/picture/004/save_picture_237757.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237729.jpg" />
+  <img src="Z:/picture/004/save_picture_237729.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237546.jpg" />
+  <img src="Z:/picture/004/save_picture_237546.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237443.jpg" />
+  <img src="Z:/picture/005/save_picture_237443.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237437.jpg" />
+  <img src="Z:/picture/005/save_picture_237437.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237371.jpg" />
+  <img src="Z:/picture/005/save_picture_237371.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ Cвятой праведный Иоанн Кронштадтский | О Кре
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237363.jpg" />
+  <img src="Z:/picture/005/save_picture_237363.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237309.jpg" />
+  <img src="Z:/picture/005/save_picture_237309.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237186.jpg" />
+  <img src="Z:/picture/005/save_picture_237186.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237129.jpg" />
+  <img src="Z:/picture/005/save_picture_237129.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236986.jpg" />
+  <img src="Z:/picture/005/save_picture_236986.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236870.jpg" />
+  <img src="Z:/picture/005/save_picture_236870.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236860.jpg" />
+  <img src="Z:/picture/005/save_picture_236860.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236664.jpg" />
+  <img src="Z:/picture/005/save_picture_236664.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236549.jpg" />
+  <img src="Z:/picture/005/save_picture_236549.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236366.jpg" />
+  <img src="Z:/picture/005/save_picture_236366.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236259.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236240.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236211.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236177.jpg" />
+  <img src="Z:/picture/004/save_picture_236177.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236027.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235977.jpg" />
+  <img src="Z:/picture/005/save_picture_235977.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235968.jpg" />
+  <img src="Z:/picture/005/save_picture_235968.jpg" />
 </div>
 
 
@@ -599,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4AE7D01EAAF75591E7BC80ADF5561AC13340E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641051   (235822) от 20.06.2023
-
-Священник Геннадий Емельянов | Помоги нам Господи веру обрести (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как современный человек подходит к своей духовной жизни? Да чаще всего, как к наперёд заданной программе, где заведомо всё ясно и понятно, нет места для недоумений и сомнений. Если написано в книге как и что нужно делать, то о чём же ещё думать?
-
-А вот в церкви так не происходит. Бывает ошибается священник, не тот возглас даст или хор дважды пропоёт одну песню канона, (   Читать дальше...   )Жанр: РелигияИздательство: Благовещение. Санкт-ПетербургФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D8284C2BBF6F9BC3DCD67015165AA00FFC4563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615203   (235774) от 25.02.2023
-
-Людмила Чуткова | Плакида: Житие и страдания святого великомученика Евстафия Плакиды, его супруги и чад (2011) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба святого великомученика Евстафия удивительным образом повторяет судьбу другого праведника – ветхозаветного Иова. Потерявший все, что так дорого каждому человеку: дом, имущество, любимую семью, святой Евстафий сохранил свою веру, и его упование на Бога не было посрамлено. Его житие лишний раз свидетельствует нам об истинности слов Христа, сказанных Им Своим (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DC9F7E4893A61C2ECC582B12AF707CDBA54A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615199   (235761) от 25.02.2023
-
-Монах Лазарь (Афанасьев) | Торжествующий дух (2011) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альманах посвящен жизни и духовным подвигам святых мучеников за Христа – членов царствовавшего в Российской Империи Дома Романовых. Это Государь-страстотерпец Император Николай II и его Семья – Царица Александра Феодоровна, дочери Ольга, Мария, Татиана и Анастасия и Цесаревич Алексий Николаевич (которому посвящен обширный документальный материал). Затем – Великий (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C452DD2723C3F14DFBF85FDFF7B3A63CDA045576
 ```
 
 https://mybot314.ru/tekegram_catalog/

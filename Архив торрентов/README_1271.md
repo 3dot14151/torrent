@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768143.jpg" />
+  <img src="Z:/picture/008/save_picture_768143.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768142.jpg" />
+  <img src="Z:/picture/008/save_picture_768142.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768141.jpg" />
+  <img src="Z:/picture/008/save_picture_768141.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768140.jpg" />
+  <img src="Z:/picture/008/save_picture_768140.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768139.jpg" />
+  <img src="Z:/picture/008/save_picture_768139.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768138.jpg" />
+  <img src="Z:/picture/008/save_picture_768138.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_768137.jpg" />
+  <img src="Z:/picture/005/save_picture_768137.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768136.jpg" />
+  <img src="Z:/picture/008/save_picture_768136.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768134.jpg" />
+  <img src="Z:/picture/008/save_picture_768134.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768133.jpg" />
+  <img src="Z:/picture/008/save_picture_768133.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ File Cabinet Pro 3.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768132.jpg" />
+  <img src="Z:/picture/008/save_picture_768132.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Heavy Lifting Bodybuilding (2018) [MP3|320 Kbps] <Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768128.jpg" />
+  <img src="Z:/picture/008/save_picture_768128.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cimaware OfficeFIX Professional 6.123 Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768123.jpg" />
+  <img src="Z:/picture/008/save_picture_768123.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Trance Hits Top 20: 2017-04 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768118.jpg" />
+  <img src="Z:/picture/008/save_picture_768118.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Meteor Trance Vol.3 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768116.jpg" />
+  <img src="Z:/picture/008/save_picture_768116.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Doo - Get Things Done 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768112.jpg" />
+  <img src="Z:/picture/008/save_picture_768112.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ DropDMG 3.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768104.jpg" />
+  <img src="Z:/picture/008/save_picture_768104.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Deliver Express 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768102.jpg" />
+  <img src="Z:/picture/008/save_picture_768102.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ KCNcrew Pack 04-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768098.jpg" />
+  <img src="Z:/picture/008/save_picture_768098.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Snoop Dogg - Snoop Dogg Presents Bible of Love (2018) [MP3|320 Kbps] <Hip-Hop, R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768097.jpg" />
+  <img src="Z:/picture/008/save_picture_768097.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Paul Oakenfold: DJ Box April (2017) [MP3|320 Kbps] <Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768092.jpg" />
+  <img src="Z:/picture/008/save_picture_768092.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ WiFi Explorer Pro 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768089.jpg" />
+  <img src="Z:/picture/008/save_picture_768089.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Air Explorer Pro 2.2.0 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768087.jpg" />
+  <img src="Z:/picture/008/save_picture_768087.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Room Arranger 9.5.3.610 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768084.jpg" />
+  <img src="Z:/picture/008/save_picture_768084.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Fly and Candy v1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768080.jpg" />
+  <img src="Z:/picture/008/save_picture_768080.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Adobe components: Flash Player 29.0.0.113 + AIR 29.0.0.112 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768074.jpg" />
+  <img src="Z:/picture/008/save_picture_768074.jpg" />
 </div>
 
 

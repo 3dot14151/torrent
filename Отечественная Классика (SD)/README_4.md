@@ -1,3 +1,29 @@
+###  Публикация: 247293   (989781) от 29.01.2013
+
+Д`Артаньян и три мушкетера (1979) DVDRip
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо друзей-мушкетеров спасают честь королевы Франции, вступают в единоборство со всесильным кардиналом Ришелье и коварной Миледи, а главное — наслаждаются жизнью.Производство: СССРЖанр: мюзикл, приключения, историяРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Михаил Боярский, Вениамин Смехов, Валентин Смирнитский,Игорь Старыгин, Ирина Алферова, Маргарита Терехова, Лев Дуров, Александр Трофимов, Владимир Балон, Елена Цыплакова, Борис Клюев, Юрий Дубровин, Леонид Каневский, Юрий Шерстнев, Евгений Данчевский, Виктор Павловский, Владимир ДолинскийСубтитры: ОтсутствуютПродолжительность: 01:25:22 + 01:32:12 + 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26371AF45E9218322ED29EE76F2C23C985B108E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610812   (989177) от 30.01.2013
 
 Щорс (полная версия) (1939) [H.264] DVDRip
@@ -6,7 +32,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989177.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987931.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987748.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987717.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987648.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987060.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986832.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986332.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986331.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986312.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985318.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984013.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983242.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983100.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981941.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980764.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980656.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980584.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979644.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979641.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979588.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978834.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978812.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977719.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977285.jpg" />
 </div>
 
 
@@ -660,33 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:827585DA782936F2A34D7A962B35DE7CD1CED870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438229   (976488) от 18.01.2012
-
-Допрос (1979) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976488.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пьесе Р. Ибрагимбекова "Допрос, или Момент истины".
-Герой Александра Калягина ведет дело, начальника нигде не зарегистрированного галантерейного цеха - типичного теневика. Следователю ясно, что за спиной преступника стоят другие люди, но фактов нет, и тот упорно молчит, всю вину беря на себя. Распутывая очередное рутинное дело, герой Александра Калягина (   Читать дальше...   )Производство: Киностудия "Азербайджанфильм", им. Дж. ДжабарлыЖанр: Криминальная драмаРежиссер: Рустам Мамед Ибрагимбеков, Расим ОджаговАктеры: Александр Калягин, Гасан Мамедов, Расим Балаев, Евгений Лебедев, Тофик Мирзоев, Гасан Турабов, Елена СмирноваПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A4B9D72EA22D49BB1841454690E597E1D1F014
 ```
 
 https://mybot314.ru/tekegram_catalog/

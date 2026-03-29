@@ -1,3 +1,135 @@
+###  Публикация: 1349127   (138834) от 30.12.2019
+
+MonsterLessons | React Hooks - Пишем Реальный Проект с Нуля (2019) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы создадим клон сайта Medium используя React и React hooks. Этот курс полностью сфокусирован на быстром и глубоком погружении в создание реального приложения с Реакт и хуками. Мы начнем с нуля и шаг за шагом дойдем до законченного приложения. Мы глубоко разберемся как структурировать приложение, создавать переиспользуемые и понятные хуки и компоненты (   Читать дальше...   )Производство: Александр КочергинЖанр: Программирование, ReactПродолжительность: 07:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEECF73B4DCE647308913BB94DC1ECE3CDF97B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349129   (138645) от 30.12.2019
+
+Udemy| Создание административной панели на React.js + PHP (2019) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс направлен на практическое изучение того, как создать административную панель для статических сайтов в виде web приложения. Вы получите весь материал для работы и мы вместе будем создавать реальный fullstack (frontend + backend) проект шаг за шагом. Как итог курса - у вас будет готовый продукт, который можно использовать в своей работе, предлагать заказчикам (   Читать дальше...   )Производство: UdemyЖанр: Программирование, React.js, PHPПродолжительность: 08:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1249BB4F73B2E93F4115091E7187DB4D7CBAA4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349103   (138617) от 30.12.2019
+
+Сергей Черненко | Python для SEO специалиста (2018-2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс Python для SEO специалиста - это курс программирования с практическим уклоном на решение SEO задач. Курс включает базовые и продвинутые темы. На данный курс можно записаться как снуля так и имея базовые знания в программировании, но вам обязательно нужно быть сеошником. После прохождения курса вы сможете реализовать любую свою идею самостоятельно: написать парсер, (   Читать дальше...   )Жанр: Программирование, SEO, PythonПродолжительность: 75:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A1099047DC9FFA3CF39CFD8E516EE7C8F1620D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349088   (138589) от 30.12.2019
+
+HTML Academy | Профессиональный онлайн-курс JavaScript [Уровень 3] (ноябрь 2019) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138589.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы научитесь делать настоящие проекты, такие же по уровню сложности, как в индустрии. И будете делать их правильно, чтобы после обучения выдавать результат высокого уровня, за который компании готовы платить.Производство: Игорь Алексеенко, Александр СушкоЖанр: Программирование, JavaScript, ReactПродолжительность: 18:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B164914F1B2AB471C99CBC800EA111A0CADFA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679422   (137581) от 25.11.2023
+
+Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Объединение технологий с некоторыми нишевыми областями — верный способ выделиться из толпы!
+Если вы имеете опыт работы с ГИС и думаете, что сможете добиться успеха в своей карьере, изучив веб-разработку ГИС, этот курс для вас.
+Не волнуйтесь, даже если вы не имеете опыта работы с CS: я рассмотрел все: от базовых HTML-страниц до создания полноценного отраслевого стандартного (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6181E9E083FE05E96E3F2A2272D51726144471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679377   (137470) от 25.11.2023
 
 Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (2023) WEB-DL [EN]
@@ -6,7 +138,7 @@ Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137470.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ Udemy, Bhrugen Patel | Full Stack React Bootcamp with .NET API [2023] [10 Projec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137317.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ Podlodka | Podlodka Techlead Crew #1-5 (2021-2023) WEB-DL [RU] [Обновляе
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137247.jpg" />
 </div>
 
 
@@ -88,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137210.jpg" />
 </div>
 
 
@@ -116,7 +248,7 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137207.jpg" />
 </div>
 
 
@@ -142,7 +274,7 @@ Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137202.jpg" />
 </div>
 
 
@@ -168,7 +300,7 @@ Udemy, Daniel Gakwaya | The C++20 Masterclass : From Fundamentals to Advanced (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137106.jpg" />
 </div>
 
 
@@ -194,7 +326,7 @@ Udemy, Irek Mirgaleev | Test-Driven Development Masterclass with Angular (2019) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137077.jpg" />
 </div>
 
 
@@ -221,7 +353,7 @@ Skillbox, Валентин Пановский и др. | Профессия Data
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136560.jpg" />
 </div>
 
 
@@ -250,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136026.jpg" />
 </div>
 
 
@@ -278,7 +410,7 @@ Udemy, The Table Of Bosses, Cornell Literacy | ChatGPT Python Alchemy: Elevate Y
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135054.jpg" />
 </div>
 
 
@@ -305,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133357.jpg" />
 </div>
 
 
@@ -331,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133240.jpg" />
 </div>
 
 
@@ -360,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133225.jpg" />
 </div>
 
 
@@ -389,7 +521,7 @@ Skillbox, Арсений Батыров и др. | Профессия Инжен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132157.jpg" />
 </div>
 
 
@@ -417,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131915.jpg" />
 </div>
 
 
@@ -445,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131912.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ AmigosCode, Nelson Djalo | Functional Programming & Java Streams (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131353.jpg" />
 </div>
 
 
@@ -502,7 +634,7 @@ Udemy, Raj Chhabria | ChatGPT for Data Science and Machine Learning (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131275.jpg" />
 </div>
 
 
@@ -528,7 +660,7 @@ OTUS, Евгений Аристов, Виталий Попов, Владимир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131232.jpg" />
 </div>
 
 
@@ -554,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131229.jpg" />
 </div>
 
 
@@ -568,143 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC36FE6E92005229FB970F5E6D89B166E7364AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682823   (130975) от 08.12.2023
-
-AmigosCode, Nelson Djalo | Mastering Kubernetes (2023) WEB-DL [AD] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, друзья 🙋🏽‍♂️​
-Готовы погрузиться в мир Kubernetes, ведущего механизма оркестровки контейнеров с открытым исходным кодом? Добро пожаловать на комплексный курс Kubernetes. Kubernetes, или K8s, произвел революцию в способах развертывания, масштабирования и управления приложениями, сделав его обязательным инструментом (   Читать дальше...   )Производство: AmigosCodeЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:32:20Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683088   (130599) от 09.12.2023
-
-Cutcode, Данил Щуцкий | Интернет-магазин на Laravel - продвинутый курс по изучению Laravel! (2023) WEB-DL [RU]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продвинутые методики применения Laravel на примере интернет-магазина. Научитесь мощным инструментам разработки Laravel на флагманском курсе от CutCode. Best practice backend разработки на примере интернет-магазина на Laravel. Научитесь работать профессионально, применяя все возможности лучшего PHP фреймворка.
-Для кого этот курс?
-✅Уже несколько лет изучаете (   Читать дальше...   )Производство: CutCodeЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 21:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E76A76CCE1535A2D25DF35210AA3CB3E6FD789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524788   (130504) от 18.01.2022
-
-Udemy, Jonathan Elliott | Blue Team Boot Camp: Defending Against Hackers (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы заинтересованы в том, чтобы стать профессионалом в области кибербезопасности? К сожалению, рынок перенасыщен курсами и текстами, посвященными тому, как стать пентестером, членом Read Team и этичным хакером. Понимание этого побудило автора создать всеобъемлющий курс, направленный на прямо противоположное. Оборонительная кибербезопасность так же востребована, как (   Читать дальше...   )Производство: UdemyЖанр: Компьютерные курсыЯзык озвучки: АнглийскийПродолжительность: 09:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16190D6B662A302F4D0299F7DE2BF4BF51DAF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491000   (130081) от 02.05.2012
-
-Специалист | Курс 10215 Внедрение и управление виртуализацией серверов Microsoft [2011] PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виртуализация – технология, которая позволяет запустить несколько виртуальных машин на физическом сервере и тем самым упрощает управление серверами и значительно улучшает использование серверных ресурсов, скорость работы и надежность сети. Это достигается путем консолидации множества приложений на небольшом количестве корпоративных серверов.
-
-Курс позволяет приобрести знания и практические навыки решения задач внедрения и сопровождения виртуализации серверов с использованием технологий Microsoft. Курс детально описывает технологии развертывания и управления решениями Hyper-V и сервисами Удаленного Рабочего Стола (Remote Desktop) на базе серверной операционной системы Windows Server 2008 R2. Курс также подробно знакомит с вопросами сопровождения инфраструктуры виртуализованных серверов с помощью таких продуктов линейки System Center, как System Center Virtual Machine Manager (VMM) 2008, System Center Virtual Machine Manager 2008 R2, System Center Operations Manager 2007 R2, System Center Data Protection Manager (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 21:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240C9CB4B7225637A25CE5AAC39D6503C0B8CCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824360   (128921) от 14.10.2025
-
-1С Учебный центр №1, Сергей Мордвин | Подготовка к сдаче экзамена 1С:Специалист-консультант по внедрению прикладного решения "1С:Управление нашей фирмой" (2021) WEBRip [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель курса – обеспечить быструю и успешную подготовку специалистов к сдаче экзамена 1С:Специалист-консультант по внедрению прикладного решения «1С:Управление нашей фирмой». А также подготовить специалистов к оказанию услуг по автоматизации управленческого учета с использованием программы «1С:Управление нашей фирмой 8» в компаниях малого бизнеса.
-
-Курс рекомендуется: (   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6AD25932DDB231E0D0751E26EEA24541C972FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

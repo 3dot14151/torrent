@@ -1,3 +1,235 @@
+###  Публикация: 1093475   (934018) от 15.01.2017
+
+Glenn Kaiser Band - Blacktop (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Blacktop  (04:21) 
+02|  Useless Man  (04:45) 
+03|  Save Me From Myself  (03:52) 
+04|  Voice in the Wind  (04:53) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A205F0CE12CCDF406E7256DD851585F424B517ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093559   (933959) от 15.01.2017
+
+Simon Kinny-Lewis - Behind the Blue Mask (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues / Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alone 04:08
+02 Blues In My Heart 05:04
+03 My Only Love 04:34
+04 Whispers 03:58(   Читать дальше...   )Жанр: Blues / Blues-RockПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68A649A18EE550483C632AD2A375493046C9041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093732   (932542) от 16.01.2017
+
+Glenn Kaiser Band - Carolina Moon (2001) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Torch  (03:52) 
+02|  Out Cold  (05:11) 
+03|  Mercy  (05:41) 
+04|  Carolina Moon  (04:41) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F78BA155A7E07C34D58EA824D537E0BB51740F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986195   (932475) от 13.02.2016
+
+Snowy White - Live At Rockpalast (2014) 2CD + DVD [FLAC|Lossless|image + .cue]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking For Somebody
+02. Welcome To The Blues
+03. American Dream
+04. That Ain't Right(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7365F142F2821566B6D6AE01C7E64DBEC814CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093746   (932426) от 16.01.2017
+
+Glenn Kaiser - Spontaneous Combustion (1994) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Everybody Understands the Blues  (03:15) 
+02|  Trouble  (04:24) 
+03|  Through the Night  (04:46) 
+04|  Queen Bee  (06:14) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7991FA95A2F314ADC1A262FD569C17F0AA3AD94A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093814   (932256) от 16.01.2017
+
+Wily Bo Walker - The Wily Bo Walker Story (2016) 2CD WEB [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Storm Warning (feat. E D Brayshaw) 06:46
+02 Walking with the Devil (Voodoo Mix) - (feat. Graham Hine) 04:00
+03 I Want To Know (NY Funk Mix) 04:15
+04 Walk in Chinese Footsteps (Free Tibet Mix) 04:19(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5B0F3E455137A54CBA2A209FEB9CAE1C6DAFD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094309   (930972) от 17.01.2017
+
+Mitch Kashmar - West Coast Toast (2016) [FLAC|Lossless|image + .cue] <Harmonica Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East Of 82nd Street (03:05)
+02. Too Many Cooks (03:32)
+03. Young Girl (04:49)
+04. The Petroleum Blues (04:47)(   Читать дальше...   )Жанр: Harmonica BluesПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B138567281DA5E76EB97D09CA202C3CA5E75CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094035   (930956) от 17.01.2017
+
+Blindstone - Freedom's Calling (2008) [FLAC|Lossless|image + .cue] <Heavy Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Freedom's Calling  (03:15) 
+02|  Can't Be With You  (03:48) 
+03|  Fear   (03:54) 
+04|  Good Time   (04:55) (   Читать дальше...   )Жанр: Heavy Blues RockПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E7E74F19ED7D3B92B9FD309A76AA6521714629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094078   (930924) от 17.01.2017
 
 Eliana Cargnelutti - Electric Woman (2015) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Blues Rock>
@@ -6,7 +238,7 @@ Eliana Cargnelutti - Electric Woman (2015) [FLAC|Lossless|image + .cue] <Modern 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930924.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Hunter & The Dirty Jacks - Mixed Company & The Midnight Hokum (2015) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929392.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Brad Wilson - Power Blues Guitar (2016) Live [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929388.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Toni Braxton And Babyface - Love Marraige And Divorce (2014) /Scene/ [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928141.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Mark Cook - Take Me Back Home (Styles 2 Collection) (2014) [FLAC|Lossless|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927879.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Rossington - Take It On Faith (2016) [FLAC|Lossless|image + .cue] <Blues, Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927873.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Simon Kinny - Lewis (2015-2016) 2CD [FLAC|WEB-DL|Lossless|image + .cue] <Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927806.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ The Aynsley Dunbar Retaliation - To Mum From Aynsley And The Boys / Remains To B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927803.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Neal Black, Nico Wayne Toussaint, Fred Chapellier - B.T.C Blues Review - Live An
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927695.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Mojo Radio - 2 albums (2011-2013) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927039.jpg" />
 </div>
 
 
@@ -297,7 +529,7 @@ Thorbjorn Risager & Emil Balsgaard - Taking The Good With The Bad (2021) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925282.jpg" />
 </div>
 
 
@@ -326,7 +558,7 @@ Alastair Greene - Through The Rain (2011) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924564.jpg" />
 </div>
 
 
@@ -355,7 +587,7 @@ Skinny Blue - Skinny Blue (2017) [FLAC|WEB-DL|Lossless|tracks + .cue] <Blues, Al
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924555.jpg" />
 </div>
 
 
@@ -384,7 +616,7 @@ Mark Cook - An Evening With The Blues (2000) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924553.jpg" />
 </div>
 
 
@@ -413,7 +645,7 @@ Ronnie Baker Brooks - Times Have Changed (2017) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924540.jpg" />
 </div>
 
 
@@ -442,7 +674,7 @@ Natalie Cole - Dangerous (1985) [FLAC|Lossless|image + .cue] <Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924467.jpg" />
 </div>
 
 
@@ -471,7 +703,7 @@ Roomful of Blues - Hook, Line and Sinker (2011) [FLAC|Lossless]<Blues, Swing rev
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923715.jpg" />
 </div>
 
 
@@ -506,7 +738,7 @@ Mark Cook - Stop The Madness!! (2007) [FLAC|Lossless|image + .cue] <Blues Rock, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922814.jpg" />
 </div>
 
 
@@ -520,235 +752,6 @@ Mark Cook - Stop The Madness!! (2007) [FLAC|Lossless|image + .cue] <Blues Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4B648E47926C9E3B8B5FAE3DF9005D802A70CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632333   (921584) от 19.03.2013
-
-Sena Ehrhardt - All In (2013) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues-RockПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096068   (921097) от 23.01.2017
-
-8 Ball Aitken - 8 Ball Aitken (2016)  [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 She's Going To Mexico I'm Going To Jail (03:38)
-02 Seven Bucks An Hour In A Chicken Suit (04:03)
-03 Shut The Front Door (02:39)
-04 Girl In A Million (03:40)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C43A4700125A131641B00A6BDD8A5C98C5301E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095752   (921095) от 23.01.2017
-
-Jeff Gates Band - 3CD (2011 - 2013)[APE, FLAC|Lossless|WEB-DL|image + .cue, tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классифицировать музыку Jeff Gates довольно трудно, это как выбрать один цвет, чтобы описать всю красоту гор. Джефф написал и исполнил много мелодий, которые находятся в диапазоне от старого доброго блюза до hair band rock в стиле 80-х. Его два последних компакт-диска, "You Make Me "(2011) и "Colorblind Blues" (2012), это смесь фанки блюза с поп-роком. (   Читать дальше...   )Список альбомов:
-2011 - You Make Me (CD)
-2012 - Colorblind Blues (CD)
-2013 - Secession (WEB)Тип издания: 2CD + WEBЖанр: Blues, Blues-RockПродолжительность: 02:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2C7FAE41866FF649E803B1DEFA918EC2541A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096129   (921084) от 23.01.2017
-
-Jeff Michaels - 2CD (2015-2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Heavy Funky Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2015 - Electric Texas (WEB)
-2016 - Texas Quake (WEB)Жанр: Blues, Heavy Funky BluesПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEFBE6A60DF7B8F8DBFE0A253D9D5A028605538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096076   (921075) от 23.01.2017
-
-Doug Prescott Band - Blues in the Key of Sea (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Americana>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Blues in the Key of Sea (03:37)
-02 99- Won't Do (02:53)
-03 Purple Heart in a Crown Vic (03:49)
-04 A Little O Dat (03:34)(   Читать дальше...   )Жанр: Blues, AmericanaПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65906CE5A0325107D5BDCE8C17F977115787E837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096272   (921066) от 23.01.2017
-
-The Lachy Doley Group - Conviction (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Betcha I'll Getcha (02:42)
-02 Conviction (05:31)
-03 Make It Up (04:38)
-04 Back In Black (04:48)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F485A496E9509BA130740A11250F175CC4F8ABE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096258   (921055) от 23.01.2017
-
-The Fabulous Thunderbirds - Strong Like That (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начинали как исполнители классического ритм-энд-блюза, но привлечь внимание смогли лишь после того, как включили в репертуар композиции в стиле «новой волны».
-Fabulous Thunderbirds добились контракта на запись альбома, но, как оказалось, это был всего лишь ловкий ход: пластинка «Girls Go Wild» выполнена в духе традиционной мелодики поп-музыки 60-х с заметным влиянием (   Читать дальше...   )01. (I Know) I'm Losing You (04:25)
-02. Don't Burn Me (03:51)
-03. You're Gonna Miss Me (04:16)
-04. Drowning On Dry Land (03:44)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733414C6147F1EAD69ECD1213B003DF902E334B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096262   (921041) от 23.01.2017
-
-Karen Lovely - Ten Miles of Bad Road (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Female Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Low Road (03:28)
-02 Company Graveyard (04:06)
-03 A Better Place (04:33)
-04 Ignorance (It Ain't Bliss) (04:07)(   Читать дальше...   )Жанр: Blues, Female BluesПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D4F657310B9ED6221DE02AA924C407372FB2BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

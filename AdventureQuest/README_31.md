@@ -1,3 +1,81 @@
+###  Публикация: 1293420   (636985) от 03.04.2019
+
+House of Evil (2017) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636985.jpg" />
+</div>
+
+
+###  Подробнее
+
+House of Evil — survival horror с видом от первого лица, в котором вы можете проверить свои нервы на прочность. События происходят в особняке, который существует в действительности. Главный герой - обычный обыватель, его жена - экзорцист, после необычного телефонного разговора главный герой не может дозвониться супруге и решает отправиться на ее поиски, судьба приведет (   Читать дальше...   )Тип издания: RepackРазработчик: Trokhin ViktorЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E95CE9F9C7C206EBD33693550DB70FB698EDB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293351   (636901) от 03.04.2019
+
+Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636901.jpg" />
+</div>
+
+
+###  Подробнее
+
+1910 год. Кажется, что время в залитом робким весенним солнцем сонном портовом поселении Иллсмут в Новой Англии остановилось. Но в тихом омуте черти водятся... Обманчивое спокойствие этой деревушки скрывает ужасную тайну. События прошлого не утратили своего влияния на настоящее. Связано ли возвращение кометы Галлея с Великими Древними, ввергавшими когда-то страну (   Читать дальше...   )Тип издания: LicenseРазработчик: Infogrames Europe SAЖанр: Приключение, Квест, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0AB3157D88B434CDB7C656D322B482F04BABC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542439   (636662) от 07.04.2022
+
+Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый писатель Себастьян Хашер пропал вместе со всей своей семьей. Встревожившись, его редактор отправил помощника в дом писателя на поиски, но тот так и не вернулся. Эти исчезновения запускают цепочку событий, раскрывающих нечто ужасное: причиной всему оказывается безымянное тёмное существо, известное как Присутствие.Тип издания: LicenseРазработчик: Protocol GamesЖанр: Adventure, Survival HorrorЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C204C573B5AE0E51B2A5C9897097E1B10DC480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033715   (635694) от 12.07.2016
 
 Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
@@ -6,7 +84,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635694.jpg" />
+  <img src="Z:/picture/008/save_picture_635694.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635551.jpg" />
+  <img src="Z:/picture/008/save_picture_635551.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [Ru/En] (RePack)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634513.jpg" />
+  <img src="Z:/picture/008/save_picture_634513.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ J.U.L.I.A. - Among The Stars (2014) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632839.jpg" />
+  <img src="Z:/picture/008/save_picture_632839.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631389.jpg" />
+  <img src="Z:/picture/008/save_picture_631389.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631379.jpg" />
+  <img src="Z:/picture/008/save_picture_631379.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Afterparty (2020) [Ru/Multi] (1.4.26f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630948.jpg" />
+  <img src="Z:/picture/008/save_picture_630948.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629627.jpg" />
+  <img src="Z:/picture/008/save_picture_629627.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Tunnels of Despair (2018) [Ru/En] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629563.jpg" />
+  <img src="Z:/picture/008/save_picture_629563.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Beholder 2 (2018) [Ru/En/Ch] (Upd20190129) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629343.jpg" />
+  <img src="Z:/picture/008/save_picture_629343.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629309.jpg" />
+  <img src="Z:/picture/008/save_picture_629309.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5.1805151406/dlc) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629303.jpg" />
+  <img src="Z:/picture/008/save_picture_629303.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626250.jpg" />
+  <img src="Z:/picture/008/save_picture_626250.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Oxenfree (2016) [Ru/En] (2.1.0f26) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626085.jpg" />
+  <img src="Z:/picture/008/save_picture_626085.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Ridge (2016) [Ru/Multi] (1.0 u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625908.jpg" />
+  <img src="Z:/picture/008/save_picture_625908.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Ridge (2016) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625905.jpg" />
+  <img src="Z:/picture/008/save_picture_625905.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Night in the Woods (2017) [En] (5.6.2.23522822) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625862.jpg" />
+  <img src="Z:/picture/008/save_picture_625862.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625571.jpg" />
+  <img src="Z:/picture/008/save_picture_625571.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625432.jpg" />
+  <img src="Z:/picture/008/save_picture_625432.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Sylvio (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623085.jpg" />
+  <img src="Z:/picture/008/save_picture_623085.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ Detective Gallo (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622611.jpg" />
+  <img src="Z:/picture/008/save_picture_622611.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ Finding Paradise (2017) [Ru/Multi] (1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622277.jpg" />
+  <img src="Z:/picture/008/save_picture_622277.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621850.jpg" />
+  <img src="Z:/picture/008/save_picture_621850.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ Dance of Death: Du Lac & Fey - это приключенческая истор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:969821AA261B991743A937A336F043C4909A7AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295251   (621849) от 11.04.2019
-
-Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место действия этой классической приключенческой серии происходит в зале заседаний. Уже более 6,7 миллиона копий продано по всему миру, и теперь эта игра может появиться и у вас. Испытайте острые ощущения, защищая клиентов в зале заседаний. Участвуйте в увлекательных делах, раскрывайте тайны, стоящие за каждым из них, и собственноручно докопайтесь до истины!Тип издания: LicenseРазработчик: CAPCOMЖанр: Adventure, Quest, NovellaЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2134FF807504386237EAA9EE110687E25A736FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036369   (620579) от 20.07.2016
-
-The Assembly (2016) [En/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивная история для взрослой аудитории от первого лица. The Assembly - это масштабная игра, разработанная специально для виртуальной реальности. Играйте за двух персонажей и раскройте секреты таинственной организации, делая сложный моральный выбор, полагаясь на противоположные точки зрения.Тип издания: LicenseРазработчик: nDreamsЖанр: Action, 3DЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2F5BE5B1DEEA8D228CC74A3A8426D177DC1DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036374   (620416) от 20.07.2016
-
-The Assembly (2016) [Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивная история для взрослой аудитории от первого лица. The Assembly — это масштабная игра, разработанная специально для виртуальной реальности. Играйте за двух персонажей и раскройте секреты таинственной организации, делая сложный моральный выбор, полагаясь на противоположные точки зрения. Столкнитесь с испытаниями, исследуйте секретный бункер Assembly и принимайте (   Читать дальше...   )Тип издания: RepackРазработчик: nDreamsЖанр: Adventure (Survival horror), 3D, 1st Person, IndieЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B2F06C24F4B020FCA0C2BDD41935D58F4FE55A
 ```
 
 https://mybot314.ru/tekegram_catalog/

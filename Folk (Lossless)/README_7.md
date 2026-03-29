@@ -6,7 +6,7 @@ Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556132.jpg" />
+  <img src="Z:/picture/008/save_picture_556132.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Spencer Lewis - Riffs on a Broad Reach (2019) [FLAC|Lossless|tracks + .cue] <Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555681.jpg" />
+  <img src="Z:/picture/008/save_picture_555681.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Over the Rhine - Love & Revelation (2019) [FLAC|Lossless|tracks + .cue] <Folk Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555476.jpg" />
+  <img src="Z:/picture/008/save_picture_555476.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, I
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555220.jpg" />
+  <img src="Z:/picture/008/save_picture_555220.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Unto Ashes - Burials Foretold (2012) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554900.jpg" />
+  <img src="Z:/picture/008/save_picture_554900.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Unto Ashes - Pretty Haunted Things (2019) [FLAC|Lossless|WEB-DL|tracks] <Neofolk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554885.jpg" />
+  <img src="Z:/picture/008/save_picture_554885.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Calexico & Iron & Wine - Years to Burn (2019) [FLAC|Lossless|WEB-DL|tracks] <Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553723.jpg" />
+  <img src="Z:/picture/008/save_picture_553723.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jeff Scroggins & Colorado - Over the Line (2019) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553528.jpg" />
+  <img src="Z:/picture/008/save_picture_553528.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Gloria Estefan - Mi Tierra (1993) [FLAC|Lossless|image + .cue] <Latin, Folk, Wor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552905.jpg" />
+  <img src="Z:/picture/008/save_picture_552905.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Liz Longley - Weightless (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550094.jpg" />
+  <img src="Z:/picture/008/save_picture_550094.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Ame
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550029.jpg" />
+  <img src="Z:/picture/008/save_picture_550029.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|t
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547844.jpg" />
+  <img src="Z:/picture/008/save_picture_547844.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543764.jpg" />
+  <img src="Z:/picture/008/save_picture_543764.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Astor Piazzolla - Edicion Critica (2005) 7CD [FLAC|Lossless]<Latihin, Tango>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541830.jpg" />
+  <img src="Z:/picture/008/save_picture_541830.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539969.jpg" />
+  <img src="Z:/picture/008/save_picture_539969.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Erin Durant - Islands (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538126.jpg" />
+  <img src="Z:/picture/008/save_picture_538126.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Henningsens - World's on Fire (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538085.jpg" />
+  <img src="Z:/picture/008/save_picture_538085.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Coun
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535186.jpg" />
+  <img src="Z:/picture/008/save_picture_535186.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Blackmore’s Night - A Knight In York (2012) [WavPack|Lossless]<Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532403.jpg" />
+  <img src="Z:/picture/008/save_picture_532403.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524220.jpg" />
+  <img src="Z:/picture/008/save_picture_524220.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513188.jpg" />
+  <img src="Z:/picture/008/save_picture_513188.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512509.jpg" />
+  <img src="Z:/picture/008/save_picture_512509.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504400.jpg" />
+  <img src="Z:/picture/008/save_picture_504400.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504061.jpg" />
+  <img src="Z:/picture/008/save_picture_504061.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490886.jpg" />
+  <img src="Z:/picture/008/save_picture_490886.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487020.jpg" />
+  <img src="Z:/picture/008/save_picture_487020.jpg" />
 </div>
 
 

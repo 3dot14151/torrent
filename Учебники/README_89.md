@@ -1,3 +1,57 @@
+###  Публикация: 1650927   (207140) от 04.08.2023
+
+Т.А. Андреева | Программирование на языке Pascal (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебный курс, направленный на практическое изучение языка Pascal и основ алгоритмики. Изложение материала ориентировано на активное практическое изучение языка Pascal и приемов создания эффективных алгоритмов. В качестве примеров излагаются широко используемые алгоритмы сортировок, обработки графов, т.п.
+Для начинающих программировать на языке Pascal полезными будут (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24671B5B73396890FB1D1BE105853FDB7F388A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651236   (207081) от 05.08.2023
+
+О.Р. Лапонина | Криптографические основы безопасности (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предполагает изучение методологических и алгоритмических основ и стандартов криптографической защиты информации. Значительное внимание уделяется изучению широко используемых криптографических алгоритмов симметричного и асимметричного шифрования, а также криптографических хэш-функций.
+В частности рассмотрены основные алгоритмы симметричного шифрования: DES, AES, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A9A517CD04CF1AFFAFBC6803AA79862C4E510A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651219   (207066) от 05.08.2023
 
 НОУ "Интуит" | Технологии туннелирования (2-е изд.) (2016) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207066.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207015.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206916.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206892.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206867.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206842.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206726.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206698.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206697.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206689.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206679.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206672.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206606.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206447.jpg" />
+  <img src="Z:/picture/005/save_picture_206447.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206383.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206382.jpg" />
+  <img src="Z:/picture/005/save_picture_206382.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206348.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206341.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206203.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206133.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206122.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206076.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206001.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205845.jpg" />
 </div>
 
 
@@ -631,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F18345FB8D61A3AED2986E79BF466EED7242728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581777   (205226) от 07.10.2022
-
-К. Граталу | Исторический атлас мира (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всемирная история глазами человека XXI века в уникальном атласе французского историка Кристиан Граталу. В атласе представлены более 300 карт из картографической коллекции французского журнала «L’Histoire», где за каждой стоит целая библиотека знаний. Начиная с появления Homo sapiens и заканчивая новейшей историей человечества, в атласе отражена полная картина истории (   Читать дальше...   )Жанр: Всемирная историяПеревод: В. ЛипкаЯзык: РусскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1190CE15B83BF2CFE80CBAE4343E69805C90DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586060   (204813) от 25.10.2022
-
-Г.М. Фихтенгольц | Курс дифференциального и интегрального исчисления [3 книги] (1969) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальный учебник по математическому анализу, выдержавший множество изданий и переведенный на ряд иностранных языков, отличается, с одной стороны, систематичностью и строгостью изложения, а с другой - простым языком, подробными пояснениями и многочисленными примерами, иллюстрирующими теорию. предназначен для студентов университетов, педагогических и технических (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773AA6987EA08CD4CB212C15184DD4DD50204759
 ```
 
 https://mybot314.ru/tekegram_catalog/

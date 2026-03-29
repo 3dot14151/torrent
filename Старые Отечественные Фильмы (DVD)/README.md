@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861534   (1062427) от 
+
+Страховой агент (1985) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ об одном дне из жизни страхового агента Виссариона Булкина. В жизни каждого из нас случаются дни, которые переворачивают всю нашу дальнейшую жизнь. Вот и для героя ленты однажды наступил такой день…Производство: СССР, Мосфильм (по заказу Гостелерадио СССР)Жанр: КомедияРежиссер: Александр МайоровАктеры: Александр Абдулов, Ирина Малышева, Семен Фарада, Галина Соколова, Владимир Белоусов, Марьяна Полтева, Гела Гегечкори, Алика Смехова, Валерий ЛеонтьевСубтитры: отсутствуютПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2A3B5AB21E3F8ECE666C2A97EDEFF9161E00C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855632   (1058211) от 25.02.2026
 
 Пропавшая грамота / Пропала грамота (1972) DVD9 [Реставрация]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058211.jpg" />
+  <img src="Z:/picture/005/save_picture_1058211.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056786.jpg" />
+  <img src="Z:/picture/005/save_picture_1056786.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050361.jpg" />
+  <img src="Z:/picture/005/save_picture_1050361.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049568.jpg" />
+  <img src="Z:/picture/005/save_picture_1049568.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049332.jpg" />
+  <img src="Z:/picture/008/save_picture_1049332.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047071.jpg" />
+  <img src="Z:/picture/005/save_picture_1047071.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027276.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020558.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019067.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000146.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973597.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968424.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953510.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942834.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931261.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_926370.jpg" />
+  <img src="Z:/picture/009/save_picture_926370.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911644.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904812.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897293.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893198.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892460.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881859.jpg" />
+  <img src="Z:/picture/005/save_picture_881859.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858271.jpg" />
+  <img src="Z:/picture/008/save_picture_858271.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858248.jpg" />
+  <img src="Z:/picture/008/save_picture_858248.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852070.jpg" />
+  <img src="Z:/picture/008/save_picture_852070.jpg" />
 </div>
 
 
@@ -649,34 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 места назначения, они встречают неизвестную инопланетную цивилизацию, от которой узнают, что Земле грозит
 серьёзная опасность – так называемая "стеклянная болезнь". Инопланетяне пытаются спасти человечество, создав вокруг
 планеты энергетический барьер (а именно "Петлю Ориона"). (   Читать дальше...   )Жанр: ФантастикаРежиссер: Василий ЛевинАктеры: Гиви Тохадзе, Геннадий Шкуратов, Анатолий Азо, Виталий Дорошенко, Анатолий Матешко, Леонид Бакштаев,  Людмила Смородина, Лиа Элиава, Елена КокалевскаяПродолжительность: 01:20:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311329   (823972) от 19.03.2017
-
-Слушать в отсеках (1985) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героико-приключенческий фильм по одноименной повести Владимира Тюрина.
-Идут учения военно-морского флота. Командир подводной лодки Логинов и командир большого противолодочного корабля Золотницкий становятся условными противниками. Чувствуя ответственность за свои экипажи, командиры демонстрируют высокое мастерство, порядочность и дружескую взаимовыручку.
-Во время (   Читать дальше...   )Производство: СССРЖанр: приключенияРежиссер: Николай ЗасеевАктеры: Борис Щербаков, Игорь Старыгин, Кирилл Лавров, Георгий Мартынюк, Виталий Коняев, Степан Старчиков, Александр Костылев, Сергей Попович, Анатолий Переверзев, Игорь Черницкий, Вилорий Пащенко, Игорь СлободскойСубтитры: отсутствуютПродолжительность: 01:06:41 + 01:03:26
 
 ## Скачать торент
 ```bash

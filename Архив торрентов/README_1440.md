@@ -6,7 +6,7 @@ PowerISO 6.6 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727018.jpg" />
+  <img src="Z:/picture/008/save_picture_727018.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726991.jpg" />
+  <img src="Z:/picture/008/save_picture_726991.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726990.jpg" />
+  <img src="Z:/picture/008/save_picture_726990.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726989.jpg" />
+  <img src="Z:/picture/008/save_picture_726989.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726950.jpg" />
+  <img src="Z:/picture/008/save_picture_726950.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Icecream Ebook Reader PRO 4.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726944.jpg" />
+  <img src="Z:/picture/008/save_picture_726944.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726942.jpg" />
+  <img src="Z:/picture/008/save_picture_726942.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726941.jpg" />
+  <img src="Z:/picture/008/save_picture_726941.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_726899.jpg" />
+  <img src="Z:/picture/005/save_picture_726899.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Windows 10 Enterprise S Technical Preview 10.0.14352 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726892.jpg" />
+  <img src="Z:/picture/008/save_picture_726892.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Dreamweaver CC 2015.3 (7888) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726891.jpg" />
+  <img src="Z:/picture/008/save_picture_726891.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kimi ni Todoke / Kimi ni Todoke: From Me to You / Дотянуться до те
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_726862.jpg" />
+  <img src="Z:/picture/005/save_picture_726862.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nebo7 - 3 альбома + Неизданное (2009-2013) [MP3|32-320 kbps]<Ly
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_726772.jpg" />
+  <img src="Z:/picture/005/save_picture_726772.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726737.jpg" />
+  <img src="Z:/picture/008/save_picture_726737.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Who's Afraid Of 138?! Top 15 2016-06 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726736.jpg" />
+  <img src="Z:/picture/008/save_picture_726736.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726735.jpg" />
+  <img src="Z:/picture/008/save_picture_726735.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726734.jpg" />
+  <img src="Z:/picture/008/save_picture_726734.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - A World Of Trance Vol. 1 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726727.jpg" />
+  <img src="Z:/picture/008/save_picture_726727.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726721.jpg" />
+  <img src="Z:/picture/008/save_picture_726721.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Soft City Lounge, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726719.jpg" />
+  <img src="Z:/picture/008/save_picture_726719.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Soft City Lounge, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726717.jpg" />
+  <img src="Z:/picture/008/save_picture_726717.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Sab Kuch Milegator - Kauas Aikain Taa (2016) [MP3|320 кб/с] <Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726715.jpg" />
+  <img src="Z:/picture/008/save_picture_726715.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726714.jpg" />
+  <img src="Z:/picture/008/save_picture_726714.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Machine Code - Projection (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726708.jpg" />
+  <img src="Z:/picture/008/save_picture_726708.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726706.jpg" />
+  <img src="Z:/picture/008/save_picture_726706.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Optiv & Btk & Mc Fokus - Authentic Part One (2016) [MP3|320 кб/с] <Drum & Bas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726704.jpg" />
+  <img src="Z:/picture/008/save_picture_726704.jpg" />
 </div>
 
 

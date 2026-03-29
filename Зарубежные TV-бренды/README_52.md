@@ -1,3 +1,109 @@
+###  Публикация: 1227274   (648361) от 25.05.2018
+
+History Channel: Американская книга тайн / America's Book of Secrets (2013) HDTVRip (2 сезон: 9 серий из 12) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая часть американской истории тщательно задокументирована и доступна широкой публике. Но у Америки есть свои тайны, которые не разгаданы до сих пор. Некоторые люди верят в существование особой книги. Книги, в которой записаны самые тщательно охраняемые секреты Соединенных Штатов Америки. Книги, о самом существовании которой знают только немногие. Но если такая (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 9 x ~ 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3DDA7223098E615457967539A4D20F1FE26610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707898   (647270) от 06.07.2016
+
+Загадка кода Да Винчи / Beyond The Da Vinci Code (2005) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этой тайне 2000 лет... Она опровергает известную легенду о Святом граале. Какие события легли в основу романа "Код Да Винчи" и скандальной версии отношений Иисуса и Марии Магдалины? Ключи к разгадке зашифрованы в шедеврах Леонардо Да Винчи, среди роз, вырезанных на сводах шотландской часовни, и в застывших изваяниях средневековых рыцарей. Одна из парижских (   Читать дальше...   )Жанр: Документальный, история, тайныПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 01:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE3834723D4C1FBA05870F8EB9674119A2C0A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905934   (647014) от 07.06.2015
+
+BBC: Магия грибов (Тайная жизнь грибов) / The Magic of Mushrooms (2014) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из всего живого на Земле есть нечто загадочное, а также и жизненно необходимое для нашего существования... Он стремительно размножается, большая часть его жизни проходит под землёй и только под конец своего жизненного цикла он показывается на поверхности. Это - гриб.
+Многие люди считают грибы съедобными и они известны нам по народным сказкам но это далеко от истины. (   Читать дальше...   )Телекомпания: BBCЖанр: Документальный, научно-познавательныйРежиссер: Russell LevenПеревод: Одноголосый закадровый, профессиональный, компания Видеофильм ТВПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9BEE8E591F8DC9D090AF50EF9261483E23F5F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517612   (646874) от 01.07.2012
+
+NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как наш мозг создает иллюзию непрерывной реальности, в которой мы с вами существуем? Эти интересные эксперименты дают возможность заглянуть во внутренние механизмы, обеспечивающие работу мозга, а самые выдающиеся исследователи в этой области объяснят зрителям, как и почему работают эти механизмы. Мы получим возможность увидеть самые современные лаборатории, оснащенные по последнему слову техники, и познакомиться с удивительными людьми, которых природа наделила необычными способностями мозга.
+Список серий:Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182008BF939A49D32B32D948E57974B065FCBCAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517799   (646872) от 01.07.2012
 
 DV: Невероятное вокруг нас. Спутник указывает путь [5 из 28] / Totally Phenomenal. Satellites show the Way (2012) SATRip
@@ -6,7 +112,7 @@ DV: Невероятное вокруг нас. Спутник указывае�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646872.jpg" />
+  <img src="Z:/picture/008/save_picture_646872.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ DV: Невероятное вокруг нас. Вторжение вирусо�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646862.jpg" />
+  <img src="Z:/picture/008/save_picture_646862.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ BBC. Заснеженный птенец или История одного пи
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646631.jpg" />
+  <img src="Z:/picture/008/save_picture_646631.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ NG. Следствие по делам хищников / Predator CSI (2007) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646437.jpg" />
+  <img src="Z:/picture/008/save_picture_646437.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645566.jpg" />
+  <img src="Z:/picture/005/save_picture_645566.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645536.jpg" />
+  <img src="Z:/picture/008/save_picture_645536.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645526.jpg" />
+  <img src="Z:/picture/008/save_picture_645526.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Animal Planet: Cинее царство (Лазурная страна). Лам�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645376.jpg" />
+  <img src="Z:/picture/008/save_picture_645376.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ BBC: Viasat History. Бразды правления. Балет на лошад
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644709.jpg" />
+  <img src="Z:/picture/008/save_picture_644709.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644609.jpg" />
+  <img src="Z:/picture/008/save_picture_644609.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643683.jpg" />
+  <img src="Z:/picture/008/save_picture_643683.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643670.jpg" />
+  <img src="Z:/picture/008/save_picture_643670.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ BBC: Солнечные бури: угроза планете Земля? / Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643462.jpg" />
+  <img src="Z:/picture/005/save_picture_643462.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ Discovery: Утраченный символ. Секреты тайного бр
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643455.jpg" />
+  <img src="Z:/picture/005/save_picture_643455.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ Discovery. Вселенная Ultra HD / Space's Deepest Secrets (2016) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643358.jpg" />
+  <img src="Z:/picture/008/save_picture_643358.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ History Channel.  History: Эволюция. Битва за жизнь /  Evolv
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643266.jpg" />
+  <img src="Z:/picture/005/save_picture_643266.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643031.jpg" />
+  <img src="Z:/picture/008/save_picture_643031.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ NG. Фри-соло / Free Solo (2018) HDTV [H.264/1080i-LQ] [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642693.jpg" />
+  <img src="Z:/picture/008/save_picture_642693.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641914.jpg" />
+  <img src="Z:/picture/008/save_picture_641914.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641908.jpg" />
+  <img src="Z:/picture/008/save_picture_641908.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641904.jpg" />
+  <img src="Z:/picture/008/save_picture_641904.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ NG. Тайны истории. Человек в железной маске / M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641652.jpg" />
+  <img src="Z:/picture/008/save_picture_641652.jpg" />
 </div>
 
 
@@ -564,110 +670,6 @@ NG. Тайны истории. Человек в железной маске / M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11589A41A0BA5BE1FECA72F357CD6E4B1363E096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844364   (641596) от 09.07.2016
-
-NG. Тайны истории. Леонардо да Винчи / Mystery Files. Leonardo Da Vinci (2009) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не позволяйте этой загадке помешать Вам уснуть, может быть, она ни когда не будет разгадана, а вопросы останутся без ответов. National Geographic Channel берется за величайшие неразгаданные тайны мира, пытаясь узнать, что стоит за легендами, которые веками вдохновляли, интриговали и ставили в тупик человечество!В этом выпуске: Он один из самых известных гениев всех времен, образец универсального человека, художник и изобретатель чьи идеи опередили свое время. Танк, скафандр, вертолет. Однако некоторые мало известные факты говорят о том, что открытия Леонардо были далеко не такими революционными как принято считать. Правда ли, что Леонардо, эта суперзвезда ренессанса, всего лишь шел в ногу (   Читать дальше...   )Жанр: Документальный, история, загадкиПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CC02385BC442FB6D89C4A5745AD592E0C53682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227920   (641069) от 29.05.2018
-
-NGW: Скала леопардов / The Leopard Rocks (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леопарды, обитающие в удаленном от людей, малоизвестном регионе Раджастхан, порой демонстрируют примеры удивительного поведения. Мать по кличке Ниилам защищает своих троих детенышей от бродячих взрослых самцов.Производство: Австрия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Харальд ПокисерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C409F6AF8E2FEED583E706F009872FC5EF3572F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293069   (641033) от 01.04.2019
-
-BBC. Горы - жизнь над облаками / Mountains: Life Above The Clouds (2017) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высоко над облаками лежат затерянные миры - неизведанные, неумолимые и совершенно непредсказуемые. Но в этих гигантских горных цепях планеты существует жизнь. Вопреки всему некоторые замечательные животные и удивительные люди нашли свое пристанище в самых высоких горах Земли. Знаменитая серия из 3 частей из Отдела естественной истории Би-би-си, раскрывающая необыкновенных (   Читать дальше...   )Производство: Великобритания, A BBC Studios production for BBC and PBSЖанр: Документальный, природа, флора, фаунаРежиссер: Алекс ЛанчестерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77D0487A40A7E54B6309715BF842035E3E66756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227946   (640934) от 29.05.2018
-
-NGW: Дикие земли Европы / Europe's Great Wilderness (2015) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европа - небольшой по сравнению с другими континент, но его природа очень разнообразна. Например, перепад температур в разных частях Европы составляет более 80 градусов.Производство: Великобритания, Off the Fence for Blue Ant Media and National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Эллисон БинПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3х~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586E8DAB6033A5AE541D1D338427D50903A02F37
 ```
 
 https://mybot314.ru/tekegram_catalog/

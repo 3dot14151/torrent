@@ -1,3 +1,109 @@
+###  Публикация: 1493731   (884034) от 10.09.2021
+
+Госорганы стали чаще обращаться к «Яндексу» с целью раскрытия личных данных пользователей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884034.jpg" />
+</div>
+
+
+###  Подробнее
+
+За период с января по июнь этого года государственные органы направили «Яндексу» 19 650 запросов, касающихся раскрытия данных пользователей. Об этом компания отчиталась на своём официальном сайте.Число запросов в первом полугодии выросло на 27,8 % по сравнению с аналогичным периодом прошлого года, когда «Яндекс» получил 15 376 запросов. Темпы роста числа обращений (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444822   (883569) от 10.09.2021
+
+The Medium (2021) [Ru/Multi] (1.0.184) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883569.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Medium – психологический хоррор с видом от третьего лица. Игра, в которой представлены фирменная двойная реальность и оригинальный саундтрек совместной работы Аркадиуша Рейковского и Акиры Ямаоки. Разгадайте мрачную тайну, раскрыть которую под силу лишь медиуму. Исследуйте реальный мир и мир духов одновременно. Используйте свои возможности ясновидения, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober TeamЖанр: Adventure (Horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18044DC28197B1E2AC42F346681683579F70B5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021679   (883564) от 10.09.2021
+
+Проповедник / Пастырь / Preacher (2016) WEB-DL [H.264/720p] (сезон 1, серии 1-10 из 10) Кубик в Кубе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Священник Джесси Кастер по воле случая стал носителем внутри своего естества странного существа по имени Генезис. Это дитя совокупления ангела и демона представляет собой одновременно чистый идеал и квинтэссенцию света, но также сгусток абсолютного зла. Генезис — единственное существо во Вселенной, которое может встать вровень с Богом, если того пожелает, а его носитель (   Читать дальше...   )Производство: США / AMC Studios, Sony Pictures Television, DC EntertainmentЖанр: ужасы, фэнтези, драма, детектив, приключенияРежиссер: Майкл Словис, Эван Голдберг, Сет РогенАктеры: Доминик Купер, Джозеф Гилган, Рут Негга, Люси Гриффитс, У. Эрл Браун, Том Брук, Анатол Юсеф, Йен Коллетти, Дерек Уилсон, Джеки Эрл Хейли и др.Перевод: Двуголосый профессиональный - Кубик в КубеЯзык озвучки: Русский, английскийСубтитры: русские, английские
+
+ВНИМАНИЕ! Присутствует ненормативная лексика!Продолжительность: ~00:49:00 серия (01:04:48 первая серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF46A3FDD7A12773620A2DEBF9FA6852317FD87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185736   (883264) от 24.03.2010
+
+Ария - 31 Альбом (1985 - 2009) [FLAC|Lossless]<Heavy Metal>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ария - советская и российская группа, играющая в жанре хэви-метал, музыка которой выдержана в стиле групп новой волны британского хэви-метала.Жанр: Heavy MetalПродолжительность: 31:36:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372766   (883139) от 04.04.2020
 
 EZ CD Audio Converter 9.1.1.1 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +112,7 @@ EZ CD Audio Converter 9.1.1.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883139.jpg" />
+  <img src="Z:/picture/005/save_picture_883139.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Boku no Hero Academia (2019) | My Hero Academia Season 4 | Моя геройск
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883042.jpg" />
+  <img src="Z:/picture/005/save_picture_883042.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Windows 10 1909 (18363.753) x64 Home + Pro + Enterprise (3in1) by Brux v.03.2020
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883038.jpg" />
+  <img src="Z:/picture/005/save_picture_883038.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883009.jpg" />
+  <img src="Z:/picture/005/save_picture_883009.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882990.jpg" />
+  <img src="Z:/picture/005/save_picture_882990.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882886.jpg" />
+  <img src="Z:/picture/005/save_picture_882886.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882685.jpg" />
+  <img src="Z:/picture/005/save_picture_882685.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ South Park: The Stick of Truth [XBOX360] [RUS] [PAL] [LT+1.9] (XGD2 / 16537) (20
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882673.jpg" />
+  <img src="Z:/picture/005/save_picture_882673.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Highlights School | Цветокоррекция и тонирование в Ph
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882194.jpg" />
+  <img src="Z:/picture/005/save_picture_882194.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ Highlights School | Секреты творческой фотографии (20
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882193.jpg" />
+  <img src="Z:/picture/005/save_picture_882193.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ Bleach / Блич (2004, TV, 366 + 2 OVA + 4 Movies) DVDRip/HDTVRip/BDRip 480/72
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882190.jpg" />
+  <img src="Z:/picture/005/save_picture_882190.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881338.jpg" />
+  <img src="Z:/picture/005/save_picture_881338.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ MInstAll v.02.04.2020 By Andreyonohov & Leha342 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881322.jpg" />
+  <img src="Z:/picture/005/save_picture_881322.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881296.jpg" />
+  <img src="Z:/picture/005/save_picture_881296.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_880690.jpg" />
+  <img src="Z:/picture/009/save_picture_880690.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880675.jpg" />
+  <img src="Z:/picture/005/save_picture_880675.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880671.jpg" />
+  <img src="Z:/picture/005/save_picture_880671.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880585.jpg" />
+  <img src="Z:/picture/008/save_picture_880585.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880499.jpg" />
+  <img src="Z:/picture/005/save_picture_880499.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ Manjaro Linux 16.02(03) (Arch + LXQt, Cinnamon) [i386, x86-64] 3xDVD, 1xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880301.jpg" />
+  <img src="Z:/picture/005/save_picture_880301.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ Abelssoft SSD Fresh Plus 2021 10.05 Portable by zeka.k [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880266.jpg" />
+  <img src="Z:/picture/005/save_picture_880266.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ Pinnacle Studio Ultimate 19.1.3 + Bonus Content [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880265.jpg" />
+  <img src="Z:/picture/005/save_picture_880265.jpg" />
 </div>
 
 
@@ -574,110 +680,6 @@ Pinnacle Studio Ultimate 19.1.3 + Bonus Content [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FDE1FD564A2D9754517A8BA4492DE53DE3A026E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996189   (880262) от 13.03.2016
-
-Труп Анны Фритц / El cadaver de Anna Fritz (2015) BDRip [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна Фритц, известная испанская актриса, найдена мёртвой в гостиничном номере. Она была одной из самых желанных женщин и неожиданный уход обернулся горем для поклонников её красоты. Тело Анны хранится в морге, в котором работает Пау. Пьяные друзья подговаривают парня пробраться в морг и, увидев обнажённый труп Анны, решили с ней поиграть. Во время их занятия Анна (   Читать дальше...   )Производство: ИспанияЖанр: Триллер, драмаРежиссер: Гектор ЭрнандесАктеры: Дэниэл Азер, Альберт Карбо, Белен Фабра, Монтсеррат Миральес, Генри Моралес, Альба Рибас, Бернат Саумелл, Кристиан ВаленсиаПеревод: Авторский одноголосый (Андрей Дольский)Субтитры: ОтсутствуютПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE43864C40330C40F97E7AE638035828BB50F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996082   (880258) от 13.03.2016
-
-На гребне волны / Point Break (2015) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джонни — молодой агент ФБР, специализирующийся на работе под прикрытием. Он не раз выходил из самых сложных ситуаций, всегда доделывая свою работу до конца. Его очередным заданием становится проникновение в банду воров. Однако эти люди не обычные грабители: их главным отличием от остальных является увлечение экстремальными видами спорта. Свои умения они используют (   Читать дальше...   )Производство: США, Германия, Китай, Alcon Entertainment, DMG Entertainment, Ehman Productions, Studio Babelsberg, Warner Bros. PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Эриксон КорАктеры: Люк Брейси, Эдгар Рамирес, Тереза Палмер, Макс Тириот, Рэй Уинстон, Тобиас Зантельман, Джеймс ЛеГрос, Делрой Линдо, Боджесси Кристофер, Клеменс ШикПеревод: Дублированный (Blu-ray CEE)Продолжительность: 01:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AE667615FBF06B1EE25B274C8A6017BB1AA262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842482   (880253) от 13.03.2016
-
-Never Alone (2014) [Ru/Multi] (1.7.0/dlc) SteamRip  Let'sPlay
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о Кунууксаюка. История о бесконечной метели, грозившей гибелью нашему народу. История об опасном путешествии на ледяном краю мира. История об отваге и истинной дружбе. Сыграй в мою историю. Ты — девочка, и ты — песец, ты идешь по опасным землям и смотришь в лицо ледяному ужасу. Ты встретишь фантастических созданий и увидишь затерянные деревни. Тебе откроются (   Читать дальше...   )Тип издания: SteamRipРазработчик: Upper One Games, E-Line MediaЖанр: Action / Arcade (Platform)Язык озвучки: -//-Язык субтитров: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Корейский, Японский, Бразильский (Португальский)Язык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Корейский, Японский, Бразильский (Португальский)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3F5B16F1945E27B0A61D463E864E4C51295A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020428   (880242) от 12.09.2021
-
-Проповедник / Пастырь / Preacher (2016) WEB-DL [H.264/720p] (сезон 1, серии 1-10 из 10) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проповедник Джесси Кастер по воле случая стал носителем внутри своего естества странного существа по имени Генезис. Это дитя совокупления ангела и демона представляет собой одновременно чистый идеал и квинтэссенцию света, но также сгусток абсолютного зла. Генезис — единственное существо во Вселенной, которое может встать вровень с Богом, если того пожелает, а его (   Читать дальше...   )Производство: США / AMC Studios, Sony Pictures Television, DC EntertainmentЖанр: ужасы, фэнтези, драма, детектив, приключенияРежиссер: Майкл Словис, Эван Голдберг, Сет РогенАктеры: Доминик Купер, Джозеф Гилган, Рут Негга, Люси Гриффитс, У. Эрл Браун, Том Брук, Анатол Юсеф, Йен Коллетти, Дерек Уилсон, Джеки Эрл Хейли и др.Перевод: Профессиональный закадровый - LostFilmЯзык озвучки: Русский, английскийСубтитры: русские, английскиеПродолжительность: ~ 00:49:00 серия (01:04:48 первая серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDF89E17A75506D88D6F15B2B99D8B4BB776FF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ QownNotes 20.4.2 Build 5509 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876608.jpg" />
+  <img src="Z:/picture/005/save_picture_876608.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OCCT 5.5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876605.jpg" />
+  <img src="Z:/picture/005/save_picture_876605.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox Quantum ESR 68.7.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876599.jpg" />
+  <img src="Z:/picture/005/save_picture_876599.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Thunderbird 68.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876595.jpg" />
+  <img src="Z:/picture/005/save_picture_876595.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 81.0.4044.92 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876589.jpg" />
+  <img src="Z:/picture/005/save_picture_876589.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Privacy Eraser Free 4.21.3 Build 2271 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876548.jpg" />
+  <img src="Z:/picture/005/save_picture_876548.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Google Chrome 81.0.4044.92 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876495.jpg" />
+  <img src="Z:/picture/005/save_picture_876495.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Bat! Professional 9.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876493.jpg" />
+  <img src="Z:/picture/008/save_picture_876493.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Opera 67.0.3575.137 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876491.jpg" />
+  <img src="Z:/picture/005/save_picture_876491.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ MetaProducts Offline Explorer Enterprise 7.7.4648 SR 2 RePack (& Portable) by Tr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876490.jpg" />
+  <img src="Z:/picture/005/save_picture_876490.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ OBS Studio 25.0.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876488.jpg" />
+  <img src="Z:/picture/005/save_picture_876488.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ YouTube By Click Premium 2.2.126 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876485.jpg" />
+  <img src="Z:/picture/005/save_picture_876485.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ OBS Studio 25.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876432.jpg" />
+  <img src="Z:/picture/005/save_picture_876432.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PortableApps.com Platform 16.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876431.jpg" />
+  <img src="Z:/picture/005/save_picture_876431.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ AIDA64 Extreme / Engineer / Business Edition / Network Audit 6.25.5400 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876422.jpg" />
+  <img src="Z:/picture/005/save_picture_876422.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Cent Browser 4.2.9.152 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876421.jpg" />
+  <img src="Z:/picture/005/save_picture_876421.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ The Bat! Professional Edition 7.4.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876409.jpg" />
+  <img src="Z:/picture/005/save_picture_876409.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ PrivaZer 3.0.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876404.jpg" />
+  <img src="Z:/picture/005/save_picture_876404.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Wondershare Filmora 9.4.1.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876360.jpg" />
+  <img src="Z:/picture/005/save_picture_876360.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Bandicam 4.5.8.1673 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876302.jpg" />
+  <img src="Z:/picture/005/save_picture_876302.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Total Commander 9.51 Extended 20.4 Full / Lite RePack (& Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876297.jpg" />
+  <img src="Z:/picture/005/save_picture_876297.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ FastStone Image Viewer 6.1 RePack (& Portable) by KpoJIuK (16.02.2017) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876273.jpg" />
+  <img src="Z:/picture/005/save_picture_876273.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AIDA64 Extreme/Engineer/Business Edition/Network Audit 6.25.5400 RePack (&Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876246.jpg" />
+  <img src="Z:/picture/005/save_picture_876246.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ USB Safely Remove 5.5.1.1250 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876228.jpg" />
+  <img src="Z:/picture/005/save_picture_876228.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Bat! Professional 7.4.12 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876225.jpg" />
+  <img src="Z:/picture/005/save_picture_876225.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Zentimo xStorage Manager 1.10.1.1259 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876207.jpg" />
+  <img src="Z:/picture/005/save_picture_876207.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PIDKey Lite 1.64.4 b18 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820970.jpg" />
+  <img src="Z:/picture/008/save_picture_820970.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ O&O Defrag Professional / Server 25.1 Build 7305 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820959.jpg" />
+  <img src="Z:/picture/008/save_picture_820959.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Movavi Video Converter 22.0.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820955.jpg" />
+  <img src="Z:/picture/008/save_picture_820955.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stardock Start10 1.10 RePack by Tyran [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820893.jpg" />
+  <img src="Z:/picture/008/save_picture_820893.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Slimjet 26.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820889.jpg" />
+  <img src="Z:/picture/008/save_picture_820889.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ JRiver Media Center 26.0.73 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820886.jpg" />
+  <img src="Z:/picture/008/save_picture_820886.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BestReminder v2020.05.09.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820881.jpg" />
+  <img src="Z:/picture/008/save_picture_820881.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Xilisoft Blu Ray Ripper 5.2.12 build 0323 [Multilanguage+Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820844.jpg" />
+  <img src="Z:/picture/008/save_picture_820844.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820828.jpg" />
+  <img src="Z:/picture/008/save_picture_820828.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Movavi Screen Recorder 22.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820826.jpg" />
+  <img src="Z:/picture/008/save_picture_820826.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ KMSoffline 2.3.3 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820813.jpg" />
+  <img src="Z:/picture/008/save_picture_820813.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tipard Video Converter Ultimate 9.2.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820800.jpg" />
+  <img src="Z:/picture/008/save_picture_820800.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Adguard Премиум 6.0.224.1092 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820786.jpg" />
+  <img src="Z:/picture/008/save_picture_820786.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Viber 6.0.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820785.jpg" />
+  <img src="Z:/picture/008/save_picture_820785.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ DriverPack Solution 16.4 Full + Драйвер-Паки 16.04.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820782.jpg" />
+  <img src="Z:/picture/008/save_picture_820782.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Corel VideoStudio Ultimate X9 19.2.0.4 SP2 + StandardContent + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820774.jpg" />
+  <img src="Z:/picture/008/save_picture_820774.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Q-Dir 8.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820769.jpg" />
+  <img src="Z:/picture/008/save_picture_820769.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Extreme Picture Finder 3.49.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820767.jpg" />
+  <img src="Z:/picture/008/save_picture_820767.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Insofta 3D Text Commander 5.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820765.jpg" />
+  <img src="Z:/picture/008/save_picture_820765.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Freemake Video Converter 4.1.11.25 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820764.jpg" />
+  <img src="Z:/picture/008/save_picture_820764.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Universal USB Installer 2.0.0.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820700.jpg" />
+  <img src="Z:/picture/008/save_picture_820700.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Movavi Video Editor Plus 22.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820696.jpg" />
+  <img src="Z:/picture/008/save_picture_820696.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Office 2013-2021 C2R Install + Lite 7.3.5 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820692.jpg" />
+  <img src="Z:/picture/008/save_picture_820692.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ KMSAuto Lite 1.6.1 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820686.jpg" />
+  <img src="Z:/picture/008/save_picture_820686.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Coolmuster PDF Creator Pro 2.1.19 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820672.jpg" />
+  <img src="Z:/picture/008/save_picture_820672.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Hetman Office Recovery 2.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820670.jpg" />
+  <img src="Z:/picture/008/save_picture_820670.jpg" />
 </div>
 
 

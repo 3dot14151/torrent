@@ -1,22 +1,22 @@
-###  Публикация: 1123449   (786231) от 08.04.2017
+###  Публикация: 1202507   (787475) от 03.02.2018
 
-Киллер поневоле / Un petit boulot (Odd Job) (2016) WEB-DLRip [H.264/720p-LQ] [AVO]
+Игорь Непипенко | Typescript (2018) PCRec [H.264]
 
->>3
->>След.
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786231.jpg" />
+  <img src="Z:/picture/008/save_picture_787475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жак готов на всё, чтобы заработать денег. Даже на предложение местного авторитета убить его неверную жену. Но есть две проблемы: Жак едва ли умеет управляться с оружием, а его новая девушка работает в полиции, где вовсю ищут неумелого киллера.Производство: Франция, Бельгия / Gaumont, Scope Pictures, Paddock FilmsЖанр: Комедия, КриминалРежиссер: Паскаль ШомельАктеры: Ромен Дюрис, Мишель Блан, Алис Белаиди, Гюстав Керверн, Алекс Лутс, Шарли Дюпон, Филипп Гран’Анри, Томас Мастин, Кароль ТревоПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: Французские (форсированные)Продолжительность: 01:39:53
+TypeScript увеличивает эффективность и надёжность JavaScript-разработки добавлением строгой типизации. Он взят за основу в некоторых современных фреймворках, таких как AngularJS 2.0 и Ionic Framework 2.0. В этом курсе мы с вами шаг за шагом пройдем от знакомства с основными идеями до реального использования TypeScript, на практике посмотрим как решать типичные проблемы. (   Читать дальше...   )Производство: javascript.ruЖанр: программированиеПродолжительность: 08:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84DD6C54AA00C947BFB9F708365EF4F60EA16ED2
+magnet:?xt=urn:btih:6B7E06550E677F30C435EBE06227232DE3A29ABA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083656   (786230) от 08.04.2017
+###  Публикация: 1202282   (787474) от 03.02.2018
 
-Землетрясение (2016) WEB-DL [H.264/1080p-LQ]
+Digital Tutors | Motion-графика в After Effects (2017) PCRec
 
->>3
->>4
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786230.jpg" />
+  <img src="Z:/picture/008/save_picture_787474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-7 декабря 1988 года в Армении произошло землетрясение, охватившее почти половину территории республики. Были разрушены города Спитак, Ленинакан, Кировакан, Степанаван и ещё более 300 населённых пунктов. 25 тысяч человек погибли, 19 тысяч стали инвалидами, больше полумиллиона остались без крыши над головой.На фоне природной катастрофы разворачивается история двух (   Читать дальше...   )Производство: Россия, Армения, Марс Медиа ЭнтертейнментЖанр: ДрамаРежиссер: Сарик АндреасянАктеры: Константин Лавроненко, Мария Миронова мл., Виктор Степанян, Татев Овакимян, Михаил Погосян, Грант Тохатян, Даниил Изотов, Микаэль Джанибекян, Сос Джанибекян, Арсен ГригорянПеревод: Не требуется (Русский, iTunes)Субтитры: ОтсутствуютПродолжительность: 01:40:03
+Motion-графика - визуальное оформление для видео, телевидения и кино, созданное преимущественно при помощи компьютерных технологий. Если вы только собираетесь стать моушн-дизайнером или уже немного знакомы с After Effects, но пока находитесь в самом начале своего творческого пути, то этот курс предназначен специально для вас.
+
+В процессе обучения вы узнаете все необходимое (   Читать дальше...   )Жанр: After EffectsПродолжительность: 06:49:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1844D122C57D508358B9EE3483B274BF463A7C8
+magnet:?xt=urn:btih:308B7B02A2576DD3953E4A64654EA87378F33F55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +52,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122772   (786229) от 08.04.2017
+###  Публикация: 1512150   (787473) от 24.11.2021
 
-SuperАлиби / Alibi.com (2017) WEB-DL [H.264/1080p-LQ]
+Родня (2021) WEBRip [H.264/1080p] (выпуск 6)
 
->>3
->>4
+>>Документалистика и Телепередачи
+>>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786229.jpg" />
+  <img src="Z:/picture/008/save_picture_787473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нужно алиби, чтобы втайне от супруги спокойно отдохнуть с друзьями на футболе? Вам поможет агентство по созданию алиби. Нужна отмазка в школе? Обращайтесь! Решили отдохнуть от семьи в выходные? Мы на связи! Этот стартап Грега и его команды уже получил оглушительный успех… Но когда он встречает Фло, девушку своей мечты, которая презирает всех лгунов и изменщиков, (   Читать дальше...   )Производство: Франция / Canal+, Cine, CN5 ProductionsЖанр: КомедияРежиссер: Филипп ЛашоАктеры: Филипп Лашо, Элоди Фонтан, Жюльен Аррути, Тарек Будали, Дидье Бурдон, Натали Бай, Науэлл Мадани, Меди Садун, Венсан Дезанья, Элис ДюфурПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:41
+Документальный онлайн-проект о забытых героях России.
+Герои проекта — военные и медики, профессоры и рабочие, педагоги и строители, музыканты и поэты — простые люди, сыгравшие важную роль в жизни страны, но по какой-то причине незаслуженно забытые. «Родня» — это живой рассказ о людях, их судьбах и поступках, которые и создали наш мир, нашу историю и нашу современность.Телекомпания: НТВЖанр: Документальный, История, БиографияСубтитры: ОтсутствуютПродолжительность: 00:25:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEBC2983AF011D2A9A39AA36ECDF568EE4B25567
+magnet:?xt=urn:btih:F0DF4B3F0113518653732E6D9E0707683E0442AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115138   (786228) от 08.04.2017
+###  Публикация: 1512193   (787472) от 24.11.2021
 
-Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [16.03.2017] [RU]
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''F''. Тур 5. Вильярреал (Испания) - Манчестер Юнайтед (Англия) (23.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>3
->>23
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786228.jpg" />
+  <img src="Z:/picture/008/save_picture_787472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборки основаны на официальных образах Microsoft:
-ru_windows_10_enterprise_2016_ltsb_x86_dvd_9058173
-ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
-Установлены все важные и рекомендуемые обновления на момент создания сборки:(   Читать дальше...   )Язык интерфейса: Русский
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''F''. Вильярреал (Испания) - Манчестер Юнайтед (Англия) (23.11.2021)
+СУДЬЯ Брых Феликс (Мюнхен, Германия)
+Судья на линии 1: Борш Марк (Германия)
+Судья на линии 2: Лупп Штефан (Германия)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BA25A7831503AEEEF94E04A156AD2FB208C24D1
+magnet:?xt=urn:btih:20E5AB6B861804724BC97379E1A5EC4F4D10DE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,634 +108,596 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 868076   (786227) от 08.04.2017
+###  Публикация: 1512295   (787471) от 24.11.2021
 
-Дем Михайлов | Цикл «Мир Вальдиры» [12 книг] (2012-2017) [FB2]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир Вальдиры. Огромный мир, наполненный приключениями и древними тайнами, чудовищами, жаждущими твоей смерти. И ты в нем. Мир, в котором каждый может добиться исполнения своих самых заветных желаний и стать кем угодно — удачливым в делах торговцем, мудрым отшельником, отважным воином или же боевым магом, которому подвластны разрушительные стихии. Но не следует ожидать, (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81902B7EFBD6BD64338FF73E8AFCA50EE57BFAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123727   (786226) от 09.04.2017
-
-Futility - Futility (2009) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...Failed (07:23)
-02. Saline Oasis (07:48)
-03. My Sickness (07:24)
-04. Fallen (08:13)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A33C6D09FCD6672FDE0AC0ED027D1EC23C3DBEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123729   (786225) от 09.04.2017
-
-Herodias - Antevorta (2012) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La sangre de Salome (05:43)
-02. Antevorta (10:04)
-03. An Exit (07:26)
-04. Mala gente (10:24)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DF420CE15C9D72CF99BAA3F197460D789E4952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123730   (786224) от 09.04.2017
-
-Lachrimatory - Anamnesic Voices Phenomena (2006) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regression (12:14)
-02. Beyond the Immensity (09:38)
-03. Impure Heart (10:39)
-04. Carnal Abyss (09:13)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8BF0D5DED21D3D10B7A49868DEE528EDDF5C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123875   (786223) от 09.04.2017
-
-Anita O'Day - Anita O'Day's Finest Hour (1954 - 1962) 2000, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Honeysuckle Rose [03:16]
- 02.Little Girl Blue [03:04]
- 03.Let Me Off Uptown [03:23]
- 04.An Occasional Man [02:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE269B03FBD47DAD2EF0CC3863C950EBCDE6D78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123749   (786222) от 09.04.2017
-
-Negative Voice - Infinite Dissonance (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dissonance (07:17)
-2. Grey Pools Heaven (05:21)
-3. Idealistic (06:28)
-4. Insane Blossoming (05:42)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B19DBC5D1E5D61C8260EBB12AC63FEB9A1488AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123873   (786221) от 09.04.2017
-
-Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Was Afraid You'd Never Call Me [06:56]
- 02.I Concentrate On You [14:07]
- 03.Time [09:48]
- 04.High Voltage At Rudy's [09:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DCC720FF029BD171648B507E808B8FF93300CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123468   (786220) от 09.04.2017
-
-VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Denoise - Principessa (Ronski Speed Remix)  6:33
-02.  Empirian - Waves (Original Mix)  5:49
-03.  Artra & Holland - Freyja (Extended Mix)  6:38
-04.  Sam Laxton - Bliss (Extended Mix)  6:09(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 01:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB8CD703158A7A26AFFC4D921EF89B920DA7712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124069   (786219) от 09.04.2017
-
-VA - Nothing But... Trance Anthems Vol.8 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mike Sanders & Beatsole - Trigger (Extended Mix)  7:26
-02.  First Sight & Fright Nite - Warp Velocity (Extended Mix)  6:47
-03.  Stoneface & Terminal - Tale In Verse (Extended Mix)  7:28
-04.  Nakhiya - Sunset Over Giza (Original Mix)  7:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8931D215EBD2693ACEC51A14938EB05BCE631AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123545   (786218) от 09.04.2017
-
-VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Фаган Сафаров - Сарай-Караван 3:00
-002. Лена Максимова - Слышишь Отошел 3:39
-003. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41
-004. Юлианна Караулова - Больше Никогда 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348F129E9D045255ED2FCCCCCB45F0DE54F9A968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123936   (786217) от 09.04.2017
-
-Iris Dee Jay - Love Shines Through (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Shines Through (Radio Edit) 03:37
-02. Love Shines Through (Full Vocal Mix) 06:55
-03. Love Shines Through (Beatless Reprise) 03:16
-04. Love Shines Through (Emran Badalov's Tech Remix) 04:38(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAE1CB4FE4FAC1FF8885C5057BDAF804A9756DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123735   (786216) от 09.04.2017
-
-Dаmnаtiоns Dау - А Wоrld Аwаkеns (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Witness  (04:45) 
-02. Dissecting the Soul  (04:46) 
-03. Colours of Darkness  (04:58) 
-04. I Pray  (05:42) (   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2273EE5641B3FCC230B64A5A45D23815DDC7D54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123573   (786215) от 09.04.2017
-
-VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Часть № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786215.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sasha Dith & Russian Mc - Тобой Простужен 2:59
-002. Charli Xcx & Kyary Pamyu Pamyu - Crazy Crazy 3:46
-003. Тимур Спб - Лучшая Подруга 3:27
-004. Катя Гордон - Нет Стыда 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C780F6646A4E7AE7F839A758DA721698AFC22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123544   (786214) от 09.04.2017
-
-VA - Драйвовый весенний музон (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юлианна Караулова - Ты Мой 3:05
-002. Зара - Без Многоточий 3:36
-003. Пицца - Лети 3:39
-004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE4123F256C881E4113A18CA8C5E844EEDE8EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123552   (786213) от 09.04.2017
-
-VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786213.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Оля Полякова - Цветочек Аленький 3:23
-002. Константин Легостаев - Не Матерись 3:04
-003. Миля - Выбирай Любовь 3:55
-004. Егор Диких - Маэстро 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FD8831B12A7E6608663337A78D900B16FFF7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123722   (786212) от 09.04.2017
-
-Devon Allman's Honeytribe - Space Age Blues (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Could Get Dangerous  (04:14) 
-02. Space Age Blues  (05:16) 
-03. Salvation  (04:41) 
-04. Sir Duke  (03:47) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A90D9A04195C8503B8C7578B32F6C8565C0A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123731   (786211) от 09.04.2017
-
-Lachrimatory - Transient (2011) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seclusion (12:14)
-02. Lachrimatory (11:29)
-03. Twilight (08:11)
-04. Clarity (08:26)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BEF065BF1869FE01DF6BC86849ED64FF084DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123754   (786210) от 09.04.2017
-
-Negative Voice - Cold Redrafted (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786210.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Limitation (05:23)
-2. City of Decaying Gaze (05:41)
-3. Nightmare Everlasting (05:44)
-4. Instant (06:09)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3087FCB39770CDC5597912AE9A14525BDD892FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123993   (786209) от 09.04.2017
-
-Devon Allman - Turquoise (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Left Home  (04:05) 
-02. Don't Set Me Free  (03:40) 
-03. Time Machine  (03:39) 
-04. Stop Draggin My Heart Around  (04:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAEBF3B87F48F5C428A4D0007144D232AB6445F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123948   (786208) от 09.04.2017
-
-VA - Ori Uplift - Uplifting Only 217 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Avenger - Orca (New World Intro Mix Remaster)
-2. Syntouch & Blue Moon - Fields of Florette (Phil Dinner Remix)
-3. PRE-RELEASE PICK: Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
-4. The Enturance & Exouler - Inspiration(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86CBC122C313D3F56967C5ACB20B66492E09874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124047   (786207) от 09.04.2017
-
-Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Song for Elizabeth (04:10)
-02 Do You Love Me? (04:34)
-03 The Other Side of the World (04:33)
-04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123768   (786206) от 09.04.2017
-
-VA - Deep House For Lady (2017) [MP3|320 Kbps] <Deep House>
+VA - Beatport Electro House: Sound Pack #370 (2021) [MP3|320 Kbps] <Electro, House, Club>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786206.jpg" />
+  <img src="Z:/picture/008/save_picture_787471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Paul Lossa - The Blaze
-002. Ambassadeurs - Looking At You (Moods Remix)
-003. ENNE - Fear
-004. Francois Devois - Another Light Out (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:08:27
+001. The Detroit Experiment - Think Twice
+002. Yves Murasca & Rosario - Time
+003. Marcelo Pm - Strangers
+004. Gerardo Moro - District(   Читать дальше...   )Жанр: Electro, House, ClubПродолжительность: 10:06:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6950B4CFCF88EA078A1B903463FA799C1AE65648
+magnet:?xt=urn:btih:B307CD60892564395280CF1863029F2AE1C35FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512272   (787470) от 24.11.2021
+
+Ложные улики / Gui ma zhi duo xing / All the Wrong Clues (1981) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Йохо узнаёт, что из тюрьмы вышел мафиози А Капоне, которого он в своё время отправил за решетку. Разумеется, теперь Капоне мечтает поквитаться с обидчиком, но, в то же время, у него много и других дел – например, выкинуть из бизнеса морально устаревшие «четыре семьи», ранее руководившие криминальными делишками в городе, а также кинуть на большие (   Читать дальше...   )Производство: Гонконг, Cinema City & Films Co.Жанр: комедия, криминалРежиссер: Харк ЦуйАктеры: Джордж Лам, Тедди Робин, Карл Мака, Kee-chan Tang, Вэй Йиу, Jo-see Wong, Кики Чен, Чи Уинг Чан, Ким Ван Чан, Ying-Hao ChengПеревод: авторский (Андрей Дольский)Субтитры: английскиеПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB0287A60E9EFC1A1985E55A96771275713B335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512330   (787469) от 24.11.2021
+
+VA - Synthwave Dream (Vol.03) (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787469.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Karlo Wanny - Among Us
+002. Shock Therapy - You Were The Moon
+003. Koreless - White Picket Fence
+004. Quiqui - Everything About You(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7460E2D405625CD6595733C64529051BFA0852D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512363   (787468) от 24.11.2021
+
+VA - Chill Electronic: Casa Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787468.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Important - Except
+002. Sonic Art - Orbital Journey
+003. Rey&Kjavik - Zula
+004. 808 Lounge - Changes(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 08:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2BDD60C7E68B25C4BB28D08B590145B2357523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512356   (787467) от 24.11.2021
+
+VA - Techno Frozen (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787467.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Q-Green - Bubbles
+002. Hardchemist - Red Dragon
+003. Bearface - Live For Life
+004. Alex Tb - Cyberpunk(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E17AF71B01BC9F66F24B1D282BE8B732831DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512157   (787466) от 24.11.2021
+
+Родня (2021) WEBRip [H.264/1080p] (выпуск 7)
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный онлайн-проект о забытых героях России.
+Герои проекта — военные и медики, профессоры и рабочие, педагоги и строители, музыканты и поэты — простые люди, сыгравшие важную роль в жизни страны, но по какой-то причине незаслуженно забытые. «Родня» — это живой рассказ о людях, их судьбах и поступках, которые и создали наш мир, нашу историю и нашу современность.Телекомпания: НТВЖанр: Документальный, История, БиографияСубтитры: ОтсутствуютПродолжительность: 00:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5C6014ACA1E1FD6477953DCA9C30F6D7CB9672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512284   (787465) от 24.11.2021
+
+VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Divas Of Color - One More Time
+002. Quantum Divas - All Be Free
+003. Allovers & Masaki Morii - Addicted
+004. Nto X Monolink - Beyond Control(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28BDBDF477348CB571D715709FFBB187E046D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512298   (787464) от 24.11.2021
+
+VA - Beatport Tech House: Sound Pack #372 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787464.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joseph Diaz - Funky Guitar
+002. Qlank - Badd
+003. Filter B - Tales From The Inside
+004. Joel Carry - Strong Enough(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13236CB64ADE3E4F2F73E39FC1F87D141E2FD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512194   (787463) от 24.11.2021
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 5. Обзор матчей (23.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 5. Обзор матчей (23.11.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E1FCBDF5E1401DDD1328B8F12F8B3EA2F28FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512218   (787462) от 24.11.2021
+
+Родня (2021) WEBRip [H.264/1080p] (выпуск 8)
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный онлайн-проект о забытых героях России.
+Герои проекта — военные и медики, профессоры и рабочие, педагоги и строители, музыканты и поэты — простые люди, сыгравшие важную роль в жизни страны, но по какой-то причине незаслуженно забытые. «Родня» — это живой рассказ о людях, их судьбах и поступках, которые и создали наш мир, нашу историю и нашу современность.Телекомпания: НТВЖанр: Документальный, История, БиографияСубтитры: ОтсутствуютПродолжительность: 00:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555B4DEC00BE542978C7D47B1454E10CD26AB576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512289   (787461) от 24.11.2021
+
+Родня (2021) WEBRip [H.264/1080p] (выпуск 9)
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный онлайн-проект о забытых героях России.
+Герои проекта — военные и медики, профессоры и рабочие, педагоги и строители, музыканты и поэты — простые люди, сыгравшие важную роль в жизни страны, но по какой-то причине незаслуженно забытые. «Родня» — это живой рассказ о людях, их судьбах и поступках, которые и создали наш мир, нашу историю и нашу современность.Телекомпания: НТВЖанр: Документальный, История, БиографияСубтитры: ОтсутствуютПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60466B8CA31E3271BC2B873A2D81BE8B8590479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512331   (787460) от 24.11.2021
+
+Within Temptation - Enter & The Dance (1997-1998) Reissue, Compilation, 2014, Nuclear Blast Entertainment [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enter
+01. Restless (6:10)
+02. Enter (7:16)
+03. Pearls Of Light (5:16)(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6022AD35C32A39CF4C4B8A2EC66B1290A8328AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512195   (787459) от 24.11.2021
+
+Футбол. Лига Чемпионов Online 2021/2022. Групповой этап. Тур 5. Обзор матчей (23.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов Online 2021/2022. Групповой этап. Тур 5. Обзор матчей (23.11.2021)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14463318CBFA68CC17956D80FB42FEB7638FFF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276630   (787458) от 17.01.2019
+
+VNC Connect Enterprise 6.4.0 [Multi/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой, безопасный удаленный доступ и поддержка. VNC Connect - это программное обеспечение для обмена экранами, которое позволяет вам подключаться к удаленному компьютеру в любой точке мира, просматривать экран в режиме реального времени и управлять им, как если бы он находился перед вами.Язык интерфейса: Английский, немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BA2274F7004041B7A60B44F2E282F900B8263F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276760   (787457) от 17.01.2019
+
+Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) License PLAZA [Deluxe Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет, 1930 год. Стертая из памяти человечества и погребенная в безыменной гробниц ведьма-царица Сетеки вновь вернулась с того света. Лишь один отряд отважных героев сможет остановить ее страшную армию мумий: Странная Бригада! Исследуйте руины, решайте головоломки и ищите заветные сокровища, пробиваясь через толпы нежити в лихих сражениях от третьего лица!Тип издания: LicenseРазработчик: RebellionЖанр: Adventure (Horror), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9513CFD5772D49D8EF0F58E22ED5756EFF717037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276612   (787456) от 17.01.2019
+
+Пансион / Boarding School (2018) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787456.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Джэйкоб страдает от повторяющегося ночного кошмара, что выводит его мать из себя. Когда умирает его еврейская бабушка, о которой он никогда не слышал, парень узнает ужасные подробности её жизни во время Второй мировой войны. Разбирая вещи покойной, Джэйкоб надевает бабушкино платье, за что отчим отправляет его в закрытую школу для проблемных детей. На месте (   Читать дальше...   )Производство: США / Farcaster Films, Gigantic Pictures, Maven PicturesЖанр: УжасыРежиссер: Боаз ЯкинАктеры: Люк Праель, Стерлинг Джеринс, Уилл Пэттон, Коби Джордж, Кадин Джордж, Николас Оливери, Саманта Мэтис, Роберт Джон Бёрк, Надя Александр, Люси УолтерсПеревод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: АнглийскиеПродолжительность: 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E243603843EEEA33D9FE6B7475BB027D91FD2237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 121940   (787455) от 17.01.2019
+
+Два капитана 2 (1993) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 20 века. Безрассудство фанатиков толкает человечество к пропасти. В России начинается революция. Сумасшедший доктор Фаркус вызывает оргазм неживой материи.
+Активизируются белые марокканские карлики. На небе появляется второе Солнце. В этой непростой обстановке капитаны самоотверженно противостоят силам хаоса, удерживая космический баланс истории.Производство: Россия, ГерманияЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Сергей ДебижевАктеры: Сергей Курехин, Борис Гребенщиков, Элеонора Мовилло, Тимур Новиков, Сергей Бугаев, Дмитрий Месхиев, Михаил Файнштейн-Васильев, Андрей Романов, Сергей ЛосевПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5EAAF6C6D0CC689CBDCDDAD7381AE9341D9D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276660   (787454) от 17.01.2019
+
+Хантер Киллер / Hunter Killer (2018) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская атомная подлодка «Хантер Киллер» вместе с подразделением военно-морских сил США вступает в крайне рискованную боевую авантюру по спасению мира от катастрофы. Когда время на исходе и каждая минута на счету, элитной команде придется совершить невозможное, чтобы предотвратить конфликт мирового масштаба.Производство: СШАЖанр: Боевик, триллерРежиссер: Донован МаршАктеры: Джерард Батлер, Гари Олдман, Коммон, Зейн Холц, Микаэл Нюквист, Тоби Стивенс, Линда Карделлини, Этан Бейрд, Джейкоб Скипио, Демпси БовеллПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26162E7BF13021CB687D5C513745FAF45FED5FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276634   (787453) от 17.01.2019
+
+Человек-паук: Вдали от дома / Spider-Man: Far From Home (2019) WEBRip [H.264/1080p] [Трейлер] [EN]
+
+>>Остальное
+>>Трейлеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер Паркер вместе с друзьями отправляется на летние каникулы в Европу. Однако отдохнуть приятелям вряд ли удастся — Питеру придется согласиться помочь Нику Фьюри раскрыть тайну существ, вызывающих стихийные бедствия и разрушения по всему континенту.Производство: США / Sony Pictures Releasing, Columbia Pictures Corporation, Marvel Studios Inc.Жанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд, Зендея, Джейк Джилленхол, Коби Смолдерс, Сэмюэл Л. Джексон, Мариса Томей, Джон Фавро, Майкл Китон, Энгаури Райс, Мартин СтаррПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6E34093901217AD152E57B7E9B6B6AC4AC4291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276656   (787452) от 17.01.2019
+
+Хантер Киллер / Hunter Killer (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская атомная подлодка «Хантер Киллер» вместе с подразделением военно-морских сил США вступает в крайне рискованную боевую авантюру по спасению мира от катастрофы. Когда время на исходе и каждая минута на счету, элитной команде придется совершить невозможное, чтобы предотвратить конфликт мирового масштаба.Производство: СШАЖанр: Боевик, триллерРежиссер: Донован МаршАктеры: Джерард Батлер, Гари Олдман, Коммон, Зейн Холц, Микаэл Нюквист, Тоби Стивенс, Линда Карделлини, Этан Бейрд, Джейкоб Скипио, Демпси БовеллПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F16F902866ADC50FEFF6CB4C690276BB72DFC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276805   (787451) от 17.01.2019
+
+The Awesome Adventures of Captain Spirit / Life Is Strange 2 (2018) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787451.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Awesome Adventures of Captain Spirit – это самостоятельная игра из вселенной Life is Strange. Вы в детстве мечтали стать супергероем? Тогда познакомьтесь с 9-летним фантазёром Крисом, улетающим из скучной реальности в фантастические миры в образе Капитана Призрака! Новая история в мире Life is Strange. Играйте за Криса и его альтер-эго, супергероя Капитана Призрака!Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D317C4016969A24AECBE1BA670F349E42151CA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244228   (787450) от 17.01.2019
+
+Космос: Территория смерти / Dead Space: Downfall (2008) [1080p] HDTV <Ru/En>
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический горно-исследовательский корабль «Ишимура» натыкается на загадочный чужеродный обелиск. Но исследование и смещение обелиска высвобождает инопланетный разум, действующий, как паразит, который долгое время был погребён на заброшенной отдаленной планете. Группа горняков и члены космического экипажа вынуждены вступить в отчаянную борьбу за выживание с монстром, (   Читать дальше...   )Производство: Film Roman, Electronic Arts / СШАЖанр: Рисованая анимация, survival horrorРежиссер: Чак ПаттонПеревод: Двухголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75010305C6A2014298BA84F1B333E51B68972EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

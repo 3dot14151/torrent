@@ -6,7 +6,7 @@ VMware Workstation 11.1.0 Build 2496824 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885525.jpg" />
+  <img src="Z:/picture/005/save_picture_885525.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat XI Pro 11.0.15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885520.jpg" />
+  <img src="Z:/picture/005/save_picture_885520.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nero Burning ROM & Nero Express 2016 17.0.8000 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885506.jpg" />
+  <img src="Z:/picture/005/save_picture_885506.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.9926 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885487.jpg" />
+  <img src="Z:/picture/005/save_picture_885487.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Argent Client 10.0.3.15 Light Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885457.jpg" />
+  <img src="Z:/picture/005/save_picture_885457.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Uninstall Tool 3.5.2 Build 5557 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885442.jpg" />
+  <img src="Z:/picture/005/save_picture_885442.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ uTorrent 3.5.5 Build 46090 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885440.jpg" />
+  <img src="Z:/picture/005/save_picture_885440.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MediaHuman YouTube Downloader 3.9.8.8 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885435.jpg" />
+  <img src="Z:/picture/005/save_picture_885435.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mozilla Firefox Quantum ESR 68.6.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885422.jpg" />
+  <img src="Z:/picture/005/save_picture_885422.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SlimBrowser 12.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885386.jpg" />
+  <img src="Z:/picture/005/save_picture_885386.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Firefox Browser 74.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885373.jpg" />
+  <img src="Z:/picture/005/save_picture_885373.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bandizip 7.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885351.jpg" />
+  <img src="Z:/picture/005/save_picture_885351.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FileMenu Tools 7.2 Full RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885342.jpg" />
+  <img src="Z:/picture/005/save_picture_885342.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ESET NOD32 Internet Security 14.2.24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885332.jpg" />
+  <img src="Z:/picture/005/save_picture_885332.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Complete Internet Repair 5.2.3.4060 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885302.jpg" />
+  <img src="Z:/picture/005/save_picture_885302.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ReviverSoft Driver Reviver 5.33.3.2 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885287.jpg" />
+  <img src="Z:/picture/005/save_picture_885287.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Wonderfox HD Video Converter Factory Pro 18.9 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885279.jpg" />
+  <img src="Z:/picture/005/save_picture_885279.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ GiliSoft Video Editor 8.0.0 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885249.jpg" />
+  <img src="Z:/picture/005/save_picture_885249.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Techsmith Snagit 13.1.0 Build 7494 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885246.jpg" />
+  <img src="Z:/picture/005/save_picture_885246.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Aml Maple 4.32 Build 650 + Portable GOTD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885235.jpg" />
+  <img src="Z:/picture/005/save_picture_885235.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Google Chrome 80.0.3987.163 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885208.jpg" />
+  <img src="Z:/picture/005/save_picture_885208.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ EF Commander 20.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885202.jpg" />
+  <img src="Z:/picture/005/save_picture_885202.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Avast Clear 20.2.5130.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885186.jpg" />
+  <img src="Z:/picture/005/save_picture_885186.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Google Chrome 80.0.3987.163 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885184.jpg" />
+  <img src="Z:/picture/005/save_picture_885184.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Icecream Screen Recorder PRO 6.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885177.jpg" />
+  <img src="Z:/picture/005/save_picture_885177.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ GridinSoft Anti-Malware 3.0.77 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885127.jpg" />
+  <img src="Z:/picture/005/save_picture_885127.jpg" />
 </div>
 
 

@@ -1,3 +1,141 @@
+###  Публикация: 1347771   (148840) от 24.12.2019
+
+Curio Professional 13.1.1.4 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощных приложений для создания слайдов, презентаций и просто визуального оформления какой-то информации на OS X, на самом деле, не так много.
+
+Стандартный Keynote от Apple уступает по функциональности более продвинутому PowerPoint, но не все хотят пользоваться приложением Microsoft (хотя после недавнего апдейта iWork число таких пользователей подросло). Есть дорогущий, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Zengobi, Inc.Поддерживаемая ОС: macOS 10.13 High SierraЯзык интерфейса: Английский, немецкий, испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE1E7C8AA4F432BD94FA46D15B9D7BB638639CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347676   (148830) от 24.12.2019
+
+mirethMusic 4.4.3 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя простой способ копировать, конвертировать, записывать и воспроизводить MP3, WAV, незащищенные WMA, AAC, M4A, M4B, MP2, Ogg Vorbis, AIFF и midi на Mac OS. mirethMusic прост в использовании и включает в себя все функции, которые вам нужны, от конвертера, CD Ripper, CD Burner, Player, ID3 Tag Editor. Преобразование большинства форматов - MP3, WMA, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2019Разработчик: Mireth Technology CorporationПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B168845711D1313471A931BE514A997EA53DE327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519469   (148573) от 24.12.2021
+
+Tweak and Tuneup 4.2.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tweak and Tuneup представляет собой набор мощных инструментов для повышения производительности вашего Mac. Эти инструменты включены в одно приложение и являются исключительными для обслуживания и повышения производительности.
+Вы не должны чистить вручную, чтобы сэкономить место на диске.Тип издания: macOS SoftwareРелиз состоялся: 24.12.2021Разработчик: © 2021 Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0EDFF4037B725DC1C5006F5DDBE99DBA83AA26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087097   (148528) от 26.12.2016
+
+Yummy FTP Watcher 2.2.12 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yummy FTP Watcher  - Эта программа позволит в автоматическом режиме загружать и скачивать файлы по FTP, а так же синхронизировать Мак с любым колличеством FTP/S + SFTP + WebDAV/S серверами. А так же следить за изменениями в выбранных каталогах.
+
+Yummy FTP Watcher гарантирует высокую надежность и скорость работы, а так же предоставляет пользователям такие полезные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2016Разработчик: Yummy SoftwareПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921998667943CF96D3B2FFF3CB54380422820209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086937   (148463) от 26.12.2016
+
+Expressions 1.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Expressions это приложение, чтобы играть с регулярными выражениями. Легко и красиво.
+Полностью минималистичный, не отвлекающим пользовательский интерфейс. Темный и светлый режим. Шаблоны подсветки синтаксиса. Прекрасный просмотр на весь экран.
+
+Expressions поддерживает переключение между группами шаблонов, нажав Cmd + сдвиг {и Cmd + Shift +}. Копирование модели можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2016Разработчик: ApptoriumПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C48E6022254B3F6B892AE2B46FA0CFD6F96525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347706   (148430) от 24.12.2019
 
 ConceptDraw Office 6.0 [En]
@@ -6,7 +144,7 @@ ConceptDraw Office 6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148430.jpg" />
 </div>
 
 
@@ -32,7 +170,7 @@ TunePat Apple Music Converter 1.4.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148417.jpg" />
 </div>
 
 
@@ -58,7 +196,7 @@ IZotope Iris 2 2.02.455 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148406.jpg" />
 </div>
 
 
@@ -86,7 +224,7 @@ Letter Templates for Pages 4.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148379.jpg" />
 </div>
 
 
@@ -115,7 +253,7 @@ Movavi Screen Recorder Studio 10.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148365.jpg" />
 </div>
 
 
@@ -141,7 +279,7 @@ PDF Office Max: Acrobat Expert 7.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148192.jpg" />
 </div>
 
 
@@ -167,7 +305,7 @@ ACDSee Photo Studio 8 v8.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148125.jpg" />
 </div>
 
 
@@ -194,7 +332,7 @@ Isotropix Clarisse iFX 4.0 SP14 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148070.jpg" />
 </div>
 
 
@@ -220,7 +358,7 @@ Deliver Express 2.7.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148003.jpg" />
 </div>
 
 
@@ -246,7 +384,7 @@ Currency Assistant 3.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147879.jpg" />
 </div>
 
 
@@ -273,7 +411,7 @@ FoneLab Location Changer for Mac 1.0.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147875.jpg" />
 </div>
 
 
@@ -300,7 +438,7 @@ Affinity Publisher 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147807.jpg" />
 </div>
 
 
@@ -327,7 +465,7 @@ JixiPix Rip Studio Pro 1.1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147753.jpg" />
 </div>
 
 
@@ -353,7 +491,7 @@ Affinity Designer 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147708.jpg" />
 </div>
 
 
@@ -380,7 +518,7 @@ Balsamiq Mockups For Desktop 3.5.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147697.jpg" />
 </div>
 
 
@@ -407,7 +545,7 @@ Affinity Photo 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147656.jpg" />
 </div>
 
 
@@ -433,7 +571,7 @@ FoneLab iPhone Password Manager for Mac 1.0.16 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147650.jpg" />
 </div>
 
 
@@ -460,7 +598,7 @@ Spotless 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147625.jpg" />
 </div>
 
 
@@ -488,7 +626,7 @@ Wolf 2 - Responsive Designer Pro 2.30.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147622.jpg" />
 </div>
 
 
@@ -514,7 +652,7 @@ Coherence Pro 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147608.jpg" />
 </div>
 
 
@@ -540,7 +678,7 @@ Mac FoneLab for iOS 10.2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147549.jpg" />
 </div>
 
 
@@ -551,138 +689,6 @@ Mac FoneLab for iOS 10.2.30 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E85506F6A7FB4C42D3ECE2165A085DAAEF75FBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678080   (147535) от 20.11.2023
-
-Mirror for Samsung TV 3.8.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Samsung
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Samsung. Никаких проводов и дополнительных аппаратных средств не требуется!
-Приложение работает на любой модели Смарт-ТВ Samsung с 2012 и позже.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 AirBeamTV BVПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D34C46EB53D441A7EEF05340C2D2AADD6AA570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678172   (147518) от 20.11.2023
-
-Energiza Pro for Mac 1.3.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147518.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Energiza вы можете увеличить срок службы батареи, взяв под контроль зарядку. Аккумуляторы MacBook быстро изнашиваются при полной зарядке в течение длительного времени. Это происходит естественным образом при использовании MacBook в качестве замены настольного компьютера и при постоянном подключении к сети. С Energiza Pro вы можете ограничить зарядку зоной комфорта (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2023Разработчик: © 2023 Dr. Jan LinxweilerПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCE55CDA3F427D42ADD3152615A4BEA34C0FC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678239   (147513) от 20.11.2023
-
-Mac FoneLab FoneEraser for iOS 1.0.20 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147513.jpg" />
-</div>
-
-
-###  Подробнее
-
-FoneEraser для iOS — лучший «очиститель» данных iOS, который может легко и полностью стереть все содержимое и настройки на iPhone, iPad или iPod. Если вы хотите продать свой старый iPhone или подарить его кому-то другому, вы можете использовать это программное обеспечение, чтобы очистить все данные и настройки iOS от восстановления.Тип издания: macOS SoftwareРелиз состоялся: 14.11.2023Разработчик: © 2023 FoneLab StudioПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C42B64C92C1BF5C353A440CC3E2E6826070FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678044   (147497) от 20.11.2023
-
-Mirror for LG TV 3.8.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров LG. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ LG. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ LG с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). Поэтому данное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6CFB882063FA2D9C47F74A88661680A58BDD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678195   (147490) от 20.11.2023
-
-Tipard Blu-ray Player for Mac 6.2.60 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard Blu-Ray Player отличный видеоплеер для воспроизведения Blu-Ray-видео и различных видеофайлов . Программа понимает разные типы Blu-Ray, папки, ISO-образы дисков, Full-HD 1080P-видео и другие популярные аудио и видео форматы, включая MP4, M4V, MOV, FLV, WMV, AVI, MKV и т.д. Плеер сочетает в себе мощные функции воспроизведения и отличное качество картинки. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2023Разработчик: © 2023 Tipard StudioПоддерживаемая ОС: macOS X 10.9 или вышеЯзык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28817013B5446E9AE66F446371502DB338803C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

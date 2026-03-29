@@ -6,7 +6,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798337.jpg" />
+  <img src="Z:/picture/008/save_picture_798337.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797674.jpg" />
+  <img src="Z:/picture/008/save_picture_797674.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794980.jpg" />
+  <img src="Z:/picture/008/save_picture_794980.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794934.jpg" />
+  <img src="Z:/picture/008/save_picture_794934.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794931.jpg" />
+  <img src="Z:/picture/008/save_picture_794931.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794926.jpg" />
+  <img src="Z:/picture/008/save_picture_794926.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794866.jpg" />
+  <img src="Z:/picture/008/save_picture_794866.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794686.jpg" />
+  <img src="Z:/picture/008/save_picture_794686.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794665.jpg" />
+  <img src="Z:/picture/008/save_picture_794665.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794654.jpg" />
+  <img src="Z:/picture/008/save_picture_794654.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794650.jpg" />
+  <img src="Z:/picture/008/save_picture_794650.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794046.jpg" />
+  <img src="Z:/picture/008/save_picture_794046.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793996.jpg" />
+  <img src="Z:/picture/008/save_picture_793996.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793992.jpg" />
+  <img src="Z:/picture/008/save_picture_793992.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793991.jpg" />
+  <img src="Z:/picture/008/save_picture_793991.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793932.jpg" />
+  <img src="Z:/picture/008/save_picture_793932.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793698.jpg" />
+  <img src="Z:/picture/008/save_picture_793698.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793693.jpg" />
+  <img src="Z:/picture/008/save_picture_793693.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792462.jpg" />
+  <img src="Z:/picture/008/save_picture_792462.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792395.jpg" />
+  <img src="Z:/picture/008/save_picture_792395.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792385.jpg" />
+  <img src="Z:/picture/008/save_picture_792385.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792382.jpg" />
+  <img src="Z:/picture/008/save_picture_792382.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792358.jpg" />
+  <img src="Z:/picture/008/save_picture_792358.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792313.jpg" />
+  <img src="Z:/picture/008/save_picture_792313.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792134.jpg" />
+  <img src="Z:/picture/008/save_picture_792134.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791878.jpg" />
+  <img src="Z:/picture/008/save_picture_791878.jpg" />
 </div>
 
 

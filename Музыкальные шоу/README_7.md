@@ -1,3 +1,29 @@
+###  Публикация: 1010043   (805356) от 23.04.2016
+
+Танцы. Битва сезонов (2016.04.23) SATRip (Выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_805356.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта в 19:30 на телеканале ТНТ стартует новое шоу – «ТАНЦЫ. Битва сезонов». Лучшие участники двух сезонов самого масштабного танцевального проекта страны встретятся лицом к лицу на одной сцене. Мы все так давно этого ждали! Борьба развернется за приз в 3 000 000 рублей и звание – «Лучший из лучших танцоров страны». Наставники шоу Егор Дружинин и Мигель сформируют (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8736B8444C261E4383E9201433C2B01179D7A74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010704   (802255) от 25.04.2016
 
 Танцы. Битва сезонов (2016.04.23) WEB-DLRip [H.264/720p-LQ] (Выпуск 5)
@@ -6,7 +32,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802255.jpg" />
+  <img src="Z:/picture/008/save_picture_802255.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801888.jpg" />
+  <img src="Z:/picture/008/save_picture_801888.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801242.jpg" />
+  <img src="Z:/picture/008/save_picture_801242.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801236.jpg" />
+  <img src="Z:/picture/008/save_picture_801236.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801232.jpg" />
+  <img src="Z:/picture/008/save_picture_801232.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800568.jpg" />
+  <img src="Z:/picture/008/save_picture_800568.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800558.jpg" />
+  <img src="Z:/picture/008/save_picture_800558.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800008.jpg" />
+  <img src="Z:/picture/008/save_picture_800008.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800005.jpg" />
+  <img src="Z:/picture/008/save_picture_800005.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799736.jpg" />
+  <img src="Z:/picture/008/save_picture_799736.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799456.jpg" />
+  <img src="Z:/picture/008/save_picture_799456.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799317.jpg" />
+  <img src="Z:/picture/008/save_picture_799317.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798620.jpg" />
+  <img src="Z:/picture/008/save_picture_798620.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798116.jpg" />
+  <img src="Z:/picture/008/save_picture_798116.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797974.jpg" />
+  <img src="Z:/picture/008/save_picture_797974.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797959.jpg" />
+  <img src="Z:/picture/008/save_picture_797959.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797954.jpg" />
+  <img src="Z:/picture/008/save_picture_797954.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_797397.jpg" />
+  <img src="Z:/picture/005/save_picture_797397.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797324.jpg" />
+  <img src="Z:/picture/008/save_picture_797324.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794577.jpg" />
+  <img src="Z:/picture/008/save_picture_794577.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794485.jpg" />
+  <img src="Z:/picture/008/save_picture_794485.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794452.jpg" />
+  <img src="Z:/picture/008/save_picture_794452.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794285.jpg" />
+  <img src="Z:/picture/008/save_picture_794285.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793921.jpg" />
+  <img src="Z:/picture/008/save_picture_793921.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793451.jpg" />
+  <img src="Z:/picture/008/save_picture_793451.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78B368C4B07622ED231CAB129CCF04525100279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012608   (793448) от 01.05.2016
-
-Голос. Дети. На самой высокой ноте (2016.05.01) SATRip (сезон 3)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой артист – не значит взрослый. Это сезон за сезоном доказывает грандиозный и популярный вокальный проект «Голос. Дети».Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0496F69F2C39330585018441851F9B33DC248D
 ```
 
 https://mybot314.ru/tekegram_catalog/

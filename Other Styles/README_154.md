@@ -1,3 +1,61 @@
+###  Публикация: 170420   (198046) от 22.05.2023
+
+Ry Cooder - Crossroads (1986) [FLAC|Lossless|image + .cue] <Blues, OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_198046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossroads (4:25)
+02. Down In Mississippi (4:26)
+03. Cotton Needs Pickin' (2:59)
+04. Viola Lee Blues (3:12)(   Читать дальше...   )Жанр: Blues, OSTПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03E39E0473545B7358EB2D7FF74A96CD8F50D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079610   (197688) от 30.05.2023
+
+Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|WEB-DL|tracks|image] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_197688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygène, Pt. 1 (7:39)
+02. Oxygène, Pt. 2 (7:47)
+03. Oxygène, Pt. 3 (3:15)
+04. Oxygène, Pt. 4 (4:06)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9608D0F67DA7502765692DAE71D60862A3057976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637015   (197641) от 02.06.2023
 
 VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
@@ -6,7 +64,7 @@ VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197641.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Atomic Heart, Vol.2 (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197632.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197027.jpg" />
+  <img src="Z:/picture/004/save_picture_197027.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194852.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Мурка•Блатные и уличные песни (2000) [MP3|320 Kb
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194563.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WE
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193920.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193913.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Ins
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193752.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Francis Goya - Douce France, Vol.1-2 (2022) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193639.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Ins
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193262.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192928.jpg" />
+  <img src="Z:/picture/004/save_picture_192928.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192680.jpg" />
+  <img src="Z:/picture/004/save_picture_192680.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Meldis - Цветок омелы (2010) [FLAC|Lossless|image + .cue] <Folk, Celt
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192676.jpg" />
+  <img src="Z:/picture/004/save_picture_192676.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Sinoia Caves - Beyond The Black Rainbow (2014) [FLAC|Lossless|tracks + .cue] <So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192608.jpg" />
+  <img src="Z:/picture/004/save_picture_192608.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Hans Zimmer, Lebo M, Elton John - Король Лев / The Lion King (2017-2019
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192137.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Nature's Magic The Voyage of the Whale (1996) [FLAC|Lossless|image + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192009.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ The Monks of Sherab Ling Monastery - Sacred Tibetan Chant (2003) [FLAC|Lossless|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191601.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ Anuvida & Nik Tyndall - 3CD (1995-2005) [FLAC|Lossless|tracks +.cue] <New Age, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191532.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Atomic Heart, Vol. 3 (Original Game Soundtrack) (2023) [FLAC 24/48|Lossless
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191432.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ VA - Knockin' on Heaven's Door (1997) [FLAC|Lossless|image + .cue] <Soundtrack, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191063.jpg" />
+  <img src="Z:/picture/004/save_picture_191063.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191061.jpg" />
+  <img src="Z:/picture/004/save_picture_191061.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191048.jpg" />
+  <img src="Z:/picture/004/save_picture_191048.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190893.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ Laibach - Iron Sky: The Coming Race (The Original Soundtrack) (2023) [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190524.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ Laibach - Iron Sky: The Coming Race (The Original Soundtrack) (2023) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18DBD59FADC28A70FF0ADF8C44372DAE9B16004B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658533   (190357) от 10.09.2023
-
-Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2CD, Remastered, 2016, Polydor [MP3|320 Kbps] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Around (Northern Lights Club Mix) [00:10:28]
-02. Age Of Loneliness (Enigmatic Club Mix) [00:06:15]
-03. Push The Limits (ATB Remix) [00:07:51]
-04. Gravity Of Love (Judgement Day Club Mix) [00:05:59](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAFBCC78E106DE596BC1FDB673259766EC611ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659767   (189242) от 13.09.2023
-
-Stephen Parsons & Francis Haines - Считанные секунды / Split Second (1992) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Split Second Theme
-02. Chasing Stone
-03. Shes's Really Something (performed by Playground)
-04. "I'm Back"(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB12A986E4123935F1BBC153447518555762324E
 ```
 
 https://mybot314.ru/tekegram_catalog/

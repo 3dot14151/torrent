@@ -1,3 +1,134 @@
+###  Публикация: 1469084   (1016758) от 10.05.2021
+
+Подшивка журналов | Костёр  [50 журналов] (2016-2020) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал основан при издательстве «Детская литература» в 1936 году. Выходил с июля 1936 по 1946 гг., затем после десятилетнего перерыва выпуск был возобновлен в июле 1956. В разное время «Костёр» являлся органом ЦК ВЛКСМ; ЦК ВЛКСМ и Союза писателей СССР.
+В нём печатались С. Я. Маршак, К. И. Чуковский, О. Ф. Берггольц, Ю. П. Герман, Е. Л. Шварц, Л. В. Успенский, К. (   Читать дальше...   )Жанр: Детский журнал, периодикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF57C71D3C4C6FF84CE9EEFFFBDD690F80EAE420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469050   (1016728) от 10.05.2021
+
+Дж. Р. Воллис | Джонс и Руби в Пустынных землях. Тайна Чёрного амулета. Книга 2 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонс больше не борется с монстрами в Пустынных землях – он спас своих родителей из плена жуткой ведьмы и стал самым обыкновенным мальчиком. Руби тоже постепенно начала забывать свою прежнюю жизнь. Мир волшебства, который открыл ей Джонс, нравится ей куда больше, чем скучные будни в школе. Казалось бы, оба получили то, чего хотели. Но перемены – это всегда нелегко! (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Мария Чомахидзе-ДоронинаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50D23854AB1C7D22EE6CC4A3D88667B36634CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258475   (1016651) от 10.05.2021
+
+Е. М. Косинова | Моя первая книга знаний обо всем на свете. Упражнения для развития речи (2006) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга не только знакомит ребенка с миром, который его окружает: с растениями и животными, временами года, предметами быта, транспортом, профессиями, но и незаметно, от страницы к странице, формирует словарный запас, необходимый для успешного обучения в школе, учит правильно и красиво говорить. Уже через несколько занятий вы заметите, что вашему малышу стало легче (   Читать дальше...   )Жанр: Обучение. РазвитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5164505D39772FE0645DB56452C68A48F2A6C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332592   (1016634) от 10.05.2021
+
+В.С. Володина  | Альбом по развитию речи (2006) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом по развитию речи предназначен для занятий с детьми 3-6 лет. Он поможет понять, правильно ли говорит ваш ребенок: достаточен ли запас слов, которые он употребляет, правильно ли он  связывает их между собой и произносит, как разбирается в окружающем.Жанр: ЛогопедияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A966B9F8F928C6BC99A7AADDA4D373BC8BD7D712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469333   (1016595) от 11.05.2021
+
+Лилия Салтыкова | Почемучкины книжки. Почему зеркало отражает? (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человека всегда притягивали необычные свойства зеркал. Автор и художник книги "Почему зеркало отражает?", популяризатор науки Л.Салтыкова, расскажет тебе, какими были первые зеркала, и как зеркало приобрело современный вид, как возникает отражение и почему зеркало является прапрадедушкой лазера. А ещё ты поймёшь, что такое полупрозрачное зеркало и как человек (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04063B4BCDA9DB5B87EC49D2E27A689CEB931F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741754   (1016588) от 11.05.2021
 
 М. Свентицкая | Кошка и белка (1928) [DJVU]
@@ -6,7 +137,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016588.jpg" />
 </div>
 
 
@@ -34,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016585.jpg" />
 </div>
 
 
@@ -61,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016513.jpg" />
 </div>
 
 
@@ -87,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016445.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016431.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016428.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016315.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016300.jpg" />
 </div>
 
 
@@ -217,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016292.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016279.jpg" />
 </div>
 
 
@@ -271,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016148.jpg" />
 </div>
 
 
@@ -297,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016127.jpg" />
 </div>
 
 
@@ -325,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016125.jpg" />
 </div>
 
 
@@ -351,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016114.jpg" />
 </div>
 
 
@@ -377,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015971.jpg" />
 </div>
 
 
@@ -403,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015945.jpg" />
 </div>
 
 
@@ -432,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015893.jpg" />
 </div>
 
 
@@ -458,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015881.jpg" />
 </div>
 
 
@@ -484,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015821.jpg" />
 </div>
 
 
@@ -510,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015786.jpg" />
 </div>
 
 
@@ -538,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015785.jpg" />
 </div>
 
 
@@ -550,136 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B87A40C05BD569D3B5F890AA07672747DF810BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470441   (1015783) от 16.05.2021
-
-Юрий Ильинский | Опаленная юность (1960) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть для детей младшего и среднего школьного возрастаЖанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C97E850006D3742F94DAF033B79B131DC697CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470424   (1015752) от 16.05.2021
-
-Л. Кондрашова (ред.) | Золотая радуга. Красная Шапочка и другие сказки (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015752.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли сказки "Красная шапочка", "Дикие лебеди", "Алиса в Стране чудес", которые будут интересны и мальчикам, и девочкам. Книги серии "Золотая радуга" практически незаменимы для малышей, которые недавно начали читать.Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E233433A21A43DF38908DF7222436446ACBB2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486930   (1015694) от 16.05.2021
-
-Н.Н. Рымарь | Как нарисовать собаку (2007) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015694.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается об анатомическом строении собаки и о том, как рисовать ее в движении.Жанр: Живопись, рисованиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A494C8C3440ED56FCE80F8995543462AEE5A3B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738641   (1015640) от 17.05.2021
-
-А. Перегудов | Казенник (1928) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BDEE6063A67620AF56605FAFC9D68572BAEF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640403   (1015593) от 17.05.2021
-
-Росс Кэмпбелл, Пэт Лайкс | Как понять своего ребенка (2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам найти путь к решению проблем, возникающих в каждой семье, где растут дети. Вы узнаете, что безусловная любовь, внимание к эмоциональным потребностям ребенка, стремление лучше узнать его, уважение к нему могут помочь правильно сформировать личность вашего ребенка.Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE5A70D49F46CCB7A714E2B0C6AD7BFF70D6D5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

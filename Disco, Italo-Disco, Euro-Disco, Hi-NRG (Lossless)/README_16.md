@@ -6,7 +6,7 @@ Mirko Hirsch - Power Of Desire (2015) [FLAC|Lossless|tracks + .cue] <Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491996.jpg" />
+  <img src="Z:/picture/008/save_picture_491996.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Santa Esmeralda - The Best (1993) [FLAC|tracks+.cue]<Disco, Latin>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485714.jpg" />
+  <img src="Z:/picture/008/save_picture_485714.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cerrone 3 - Supernature (1977) Reissue, 2016, OTP [FLAC|Lossless|image + .cue] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485655.jpg" />
+  <img src="Z:/picture/008/save_picture_485655.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ryan Paris - Ryan Sings the 80s… and More, Episode 1 (2020) [FLAC|Lossless|WEB
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485179.jpg" />
+  <img src="Z:/picture/008/save_picture_485179.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sandra - Maybe Tonight (CD Single) (2012) [FLAC (tracks+cue)|Lossless]<Pop, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482509.jpg" />
+  <img src="Z:/picture/008/save_picture_482509.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dschinghis Khan - Golden Disco Hits (2001) Compilation, Unofficial [APE|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479835.jpg" />
+  <img src="Z:/picture/008/save_picture_479835.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Radiorama - The 2nd Album [30th Anniversary Edition] (1987) Reissue, 2016, Analo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474878.jpg" />
+  <img src="Z:/picture/008/save_picture_474878.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sabrina - Golden Disco Hits (2003) [APE|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474011.jpg" />
+  <img src="Z:/picture/008/save_picture_474011.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Toto Cutugno - L'Italiano (1983) [FLAC|Lossless|image + .cue] <Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473862.jpg" />
+  <img src="Z:/picture/008/save_picture_473862.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Boney M - Let It All Be Music-The Party Album (2009) 2CD [FLAC|Lossless|image + 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473746.jpg" />
+  <img src="Z:/picture/008/save_picture_473746.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Arabesque - Deluxe (Twin Best) - Japan (1998) 2CD[FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473718.jpg" />
+  <img src="Z:/picture/008/save_picture_473718.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Linda Jo Rizzo - Magic Moments: My 35th Anniversary (2020) Single Collection [FL
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472768.jpg" />
+  <img src="Z:/picture/008/save_picture_472768.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Hustle! Reggae Disco: Kingston-London-New York (2002) 2017, Reissue [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469886.jpg" />
+  <img src="Z:/picture/008/save_picture_469886.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - DJ Empire presents: A Tribute To Giorgio Moroder (2000) Compilation [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469658.jpg" />
+  <img src="Z:/picture/008/save_picture_469658.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Samantha vs. Sabrina - Call Me (2010) EP, Enhanced [APE|Lossless|image + .cue] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467373.jpg" />
+  <img src="Z:/picture/008/save_picture_467373.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [FLAC|Lossless]<Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466578.jpg" />
+  <img src="Z:/picture/008/save_picture_466578.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Village People - The Best Of (1998) [FLAC|Lossless]<Pop, Disco, Retro>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464368.jpg" />
+  <img src="Z:/picture/008/save_picture_464368.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Mike Mareen - The Best Of (2002) [FLAC|image+.cue]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455450.jpg" />
+  <img src="Z:/picture/008/save_picture_455450.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ C.C. Catch - Back Seat Of Your Cadillac (1994) [FLAC|Lossless|tracks + .cue] <Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453350.jpg" />
+  <img src="Z:/picture/008/save_picture_453350.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Lime - The Greatest Hits (Remixed) (2007) [FLAC|Lossless|tracks + .cue] <Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448231.jpg" />
+  <img src="Z:/picture/008/save_picture_448231.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Silent Circle - Chapter 80ies Unreleased (2018) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444136.jpg" />
+  <img src="Z:/picture/008/save_picture_444136.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cerrone - Afro (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441591.jpg" />
+  <img src="Z:/picture/008/save_picture_441591.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Michael Fortunati - The Best Of Disco Covers (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433874.jpg" />
+  <img src="Z:/picture/008/save_picture_433874.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Genghis Khan (Dschinghis Khan) - Genghis Khan (1979) Japanese Edition /1995, Vic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431439.jpg" />
+  <img src="Z:/picture/008/save_picture_431439.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Savage - Only You (30th Anniversary Remix) (2014) [FLAC|image+.cue]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431247.jpg" />
+  <img src="Z:/picture/008/save_picture_431247.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ VA - Best of New Generation Maxi Disco Vol. 1 (2020) [FLAC|Lossless|WEB-DL|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422835.jpg" />
+  <img src="Z:/picture/008/save_picture_422835.jpg" />
 </div>
 
 

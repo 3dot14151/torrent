@@ -1,3 +1,110 @@
+###  Публикация: 840339   (576633) от 24.07.2015
+
+Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + Battle out of hell]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_576633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты - Painkiller. Твоя работа - зачищать местность от всякой нежити. Твоя цель - найти и уничтожить три демонических артефакта, питающих своей энергией сотни порождений тьмы... Бей всё это неупокоенное отродье, пока на твоём пути не останется ни одного, затем пройди по их дымящимся телам к артефактам и уничтожь их - раз и навсегда!
+
+Тебе придётся делать эту неблагодарную (   Читать дальше...   )Тип издания: RepackРазработчик: People Can FlyЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943D98E267E15A23CD52DEAB68A3E5B54D7920B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 223648   (575817) от 02.08.2010
+
+The Hunt / Черная метка [Ru] (RePack) 2008 | R.G. Packers
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра создана по мотивам произведения Андрея Дашкова «Черная Метка». Место действия – альтернативная реальность, Россия, Москва, недалекое будущее.
+Главный герой игры – человек, получивший «черную метку» и ставший объектом жестокого телешоу. Основная задача главного героя – выжить любым способом. Он напуган, безоружен, ему нужно бежать и искать способ защитить себя, (   Читать дальше...   )Тип издания: RePackРазработчик: Orion GamesЖанр: Action (Shooter) / 3D / 1st Person / StealthЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150984   (575523) от 17.07.2017
+
+Titanfall 2 (2016) [Ru/En] (2.0.6.1) Repack Other s [Digital Deluxe Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со времени битвы при Деметре Ополчение значительно разрослось и перехватило инициативу, основав опорный пункт на планете Гармония. Организованные и вооруженные новейшим оружием, его войска представляют свободные народы Фронтира, настроенные против IMC. В Titanfall™ 2, эпическом продолжении задавшей новые каноны жанра игры, ваши лучшие друзья — это большие пушки.Тип издания: RepackРазработчик: Respawn EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C1FCBAA523B50CCE81AF2663FE4B6F29EB5828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528381   (572027) от 28.07.2012
+
+7554 [Ru/En] (RePack/1.0.0.1) 2011 l Audioslave
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шутер от первого лица, в названии которого скрыты число, месяц и год - 7 мая 1954 года. Это время Первой Индокитайской войны и день победы над французскими войсками. Игра похожа на Call of Duty по концепции и в целом впечатления схожи, если вы любитель пострелять то эта игра для вас.(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17C9B79C9DDAACAA308649C865671134CBFABD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303781   (570498) от 22.05.2019
 
 INVITATION (2019) [En/Ko] (1.0/upd3) License PLAZA
@@ -6,7 +113,7 @@ INVITATION (2019) [En/Ko] (1.0/upd3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570498.jpg" />
+  <img src="Z:/picture/008/save_picture_570498.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Carrier Command: Gaea Mission (2012) [Ru/Multi] (1.6.0011) RePack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569139.jpg" />
+  <img src="Z:/picture/008/save_picture_569139.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Blood Feed (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568338.jpg" />
+  <img src="Z:/picture/008/save_picture_568338.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568337.jpg" />
+  <img src="Z:/picture/008/save_picture_568337.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ Enemy Front (2014) [Ru/Multi] (3.4.4.6290 Upd4/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567795.jpg" />
+  <img src="Z:/picture/008/save_picture_567795.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ Aliens versus Predator Classic 2000 (2000) [En] (20160330) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566424.jpg" />
+  <img src="Z:/picture/008/save_picture_566424.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ Nether: Resurrected (2014) [Ru/En] (2016 April) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564563.jpg" />
+  <img src="Z:/picture/008/save_picture_564563.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ Painkiller: Resurrection / Painkiller: Воскрешение (2010) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564161.jpg" />
+  <img src="Z:/picture/008/save_picture_564161.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ Far Cry 2: The Fortune’s Pack [Ru] (RePack/1.3) 2008 l UltraISO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562173.jpg" />
+  <img src="Z:/picture/008/save_picture_562173.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0.4/dlc) License GOG [The Collection]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559335.jpg" />
+  <img src="Z:/picture/008/save_picture_559335.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ Evolve (2015) [Ru/En] (1.0) RePack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558520.jpg" />
+  <img src="Z:/picture/008/save_picture_558520.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Conclusion (2016) [Ru/En] (1.0.2) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557490.jpg" />
+  <img src="Z:/picture/008/save_picture_557490.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557269.jpg" />
+  <img src="Z:/picture/008/save_picture_557269.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.0 Build 8904334) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556854.jpg" />
+  <img src="Z:/picture/008/save_picture_556854.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ SUPERHOT (2016) [Ru/Multi] (13.07.18) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556483.jpg" />
+  <img src="Z:/picture/008/save_picture_556483.jpg" />
 </div>
 
 
@@ -402,7 +509,7 @@ The Signal From Tölva (2017) [En] (1.0.65) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556480.jpg" />
+  <img src="Z:/picture/008/save_picture_556480.jpg" />
 </div>
 
 
@@ -428,7 +535,7 @@ Void Bastards (2019) [Ru/Multi] (v1.0) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555989.jpg" />
+  <img src="Z:/picture/008/save_picture_555989.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ Day: 40 (2019) [Multi] (1.0/upd6) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554538.jpg" />
+  <img src="Z:/picture/008/save_picture_554538.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ ZOMBI (2015) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554363.jpg" />
+  <img src="Z:/picture/008/save_picture_554363.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack Dok2 [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553378.jpg" />
+  <img src="Z:/picture/008/save_picture_553378.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552682.jpg" />
+  <img src="Z:/picture/008/save_picture_552682.jpg" />
 </div>
 
 
@@ -558,7 +665,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551705.jpg" />
+  <img src="Z:/picture/008/save_picture_551705.jpg" />
 </div>
 
 
@@ -569,111 +676,6 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABD5A488D57156CA0C229729DDC62298469B3841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136519   (551702) от 18.06.2019
-
-Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на новый Дикий Запад.
-Этот шутер переносит беззаконие Дикого Запада в наши дни. Вы отправляетесь в кровавое путешествие из Лос-Анджелеса в Хуарес — Мексику окутает запутанный сюжет с интересными персонажами и самыми разнообразными вариантами игрового процесса. Почувствуйте беззаконие современного Дикого Запада, выслеживая картель Мендозы в мире, (   Читать дальше...   )Тип издания: RipРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B5D17F2AF0188ECD301BF68591B7B43F530720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309219   (551701) от 18.06.2019
-
-S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [Ru/Multi] (1.6.02) Steam-Rip ORiGiNS
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продавшаяся тиражом более 2 миллионов копий серия S.T.A.L.K.E.R. возвращается. S.T.A.L.K.E.R.: Call of Pripyat вновь расскажет ПК игрокам о трагическом взрыве реактора Чернобыльской АЭС в 1986 году. Вокруг станции образовалась "Зона" - ужасно загрязненное радиацией место окруженное со всех сторон вооруженными силами Украины. Но это всё равно не останавливает (   Читать дальше...   )Тип издания: Steam-RipРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Украинский, Английский, Немецкий и другиеЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E97005B1160D0A0AF607954C613D1B970CFB5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043670   (549795) от 29.08.2016
-
-Phantaruk (2016) [Ru/Multi] (1.4.1) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой игры приходит в себя на опустевшем корабле Purity02, принадлежащем корпорации H+, занимающееся исследованиями возможности избавления человечества от несовершенного биологического тельца. Разумеется, все пошло наперекосяк, а кораблик превратился из исследовательского судна в смертельную ловушку для героя игры.Тип издания: LicenseРазработчик: PolyslashЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, НемецкийЯзык интерфейса: Русский, Английский, Польский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A79D6F69175DC8DB20914B3C973B179B5807409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238355   (546915) от 29.07.2018
-
-Before Nightfall (2018) [Ru/En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546915.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой игре Вас ждёт испытание на время, скорость и расчетливость. Бросьте вызов смертельному холоду. Продержитесь в зимнем, ветреном лесу: согревайтесь, поддерживайте костёр, бродите по лесу в поисках дров, что-бы успеть накопить их достаточное количество до наступления ночи. Каждый раз дрова будут спавниться в случайном месте в случайном количестве. Если это испытание (   Читать дальше...   )Тип издания: LicenseРазработчик: Pickle DrugsЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5677B404BA0661783D30F3C5F34CDD56F77530
 ```
 
 https://mybot314.ru/tekegram_catalog/

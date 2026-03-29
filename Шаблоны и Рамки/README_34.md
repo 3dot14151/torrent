@@ -1,3 +1,29 @@
+###  Публикация: 1796549   (66688) от 19.05.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Kitchen Shelf & Frame - 96805 [PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор для создания макетов кухонных полок с дополнениями.Формат: PNG, PSDРазрешение файлов: 5000 x 5000 - 6000 x 6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C85CCEA531715A77A537960C0390887C4A2CDC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805253   (65475) от 05.07.2025
 
 Шаблоны - Creative Market - Cookies Box Packaging Mockup Set - 6985417 [PSD]
@@ -6,7 +32,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65475.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65314.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65202.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65049.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64845.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64740.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64661.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64046.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52237.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52101.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32069.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31875.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31726.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30626.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30256.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30228.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30020.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29708.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29609.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29421.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25856.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25517.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25495.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25415.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23986.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B9B8DF0BD9786D846C25F1DF88D67A943A08E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786768   (23825) от 22.03.2025
-
-Шаблоны - Christmas Collage - Greeting Card Templates for Photoshop [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неплохой набор новогодних поздравительных открыток, чтобы порадовать родных и близких вам людей.Формат: PSDРазрешение файлов: Разное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42E0239ECB4A8D17092EA5A7DB1D14A474F47EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

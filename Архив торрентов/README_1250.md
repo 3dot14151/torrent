@@ -6,7 +6,7 @@ ESET NOD32 Antivirus 9.0.377.0 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772403.jpg" />
+  <img src="Z:/picture/008/save_picture_772403.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lights Out Asia - Discography 5 Albums (2003-2012) [MP3|320 kbps]<  IDM, Post Ro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772393.jpg" />
+  <img src="Z:/picture/008/save_picture_772393.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Icecream PDF Converter PRO 2.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772360.jpg" />
+  <img src="Z:/picture/008/save_picture_772360.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Gemini 2: The Duplicate Finder 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772354.jpg" />
+  <img src="Z:/picture/008/save_picture_772354.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772352.jpg" />
+  <img src="Z:/picture/008/save_picture_772352.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Adobe Flash Player 21.0.0.242 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772345.jpg" />
+  <img src="Z:/picture/008/save_picture_772345.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772306.jpg" />
+  <img src="Z:/picture/008/save_picture_772306.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772301.jpg" />
+  <img src="Z:/picture/008/save_picture_772301.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Driver Easy Professional 5.0.5.5083 RePack (& Portable) by Manshet [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772297.jpg" />
+  <img src="Z:/picture/008/save_picture_772297.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Adobe Acrobat XI (v11.0.16) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772296.jpg" />
+  <img src="Z:/picture/008/save_picture_772296.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Adobe Acrobat Professional DC (v15.16) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772291.jpg" />
+  <img src="Z:/picture/008/save_picture_772291.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Mirillis Splash 2.0.4.0 Premium RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772288.jpg" />
+  <img src="Z:/picture/008/save_picture_772288.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ R-Studio 8.0 Build 164541 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772230.jpg" />
+  <img src="Z:/picture/008/save_picture_772230.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772225.jpg" />
+  <img src="Z:/picture/008/save_picture_772225.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772222.jpg" />
+  <img src="Z:/picture/008/save_picture_772222.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772177.jpg" />
+  <img src="Z:/picture/008/save_picture_772177.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772120.jpg" />
+  <img src="Z:/picture/008/save_picture_772120.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772119.jpg" />
+  <img src="Z:/picture/008/save_picture_772119.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772118.jpg" />
+  <img src="Z:/picture/008/save_picture_772118.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772117.jpg" />
+  <img src="Z:/picture/008/save_picture_772117.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772116.jpg" />
+  <img src="Z:/picture/008/save_picture_772116.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772114.jpg" />
+  <img src="Z:/picture/008/save_picture_772114.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772113.jpg" />
+  <img src="Z:/picture/008/save_picture_772113.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Utrecht Series Vol.XXI (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772112.jpg" />
+  <img src="Z:/picture/008/save_picture_772112.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Cookie 5.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772110.jpg" />
+  <img src="Z:/picture/008/save_picture_772110.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ PDFpenPro 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772109.jpg" />
+  <img src="Z:/picture/008/save_picture_772109.jpg" />
 </div>
 
 

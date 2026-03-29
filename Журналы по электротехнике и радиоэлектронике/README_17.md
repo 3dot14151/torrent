@@ -1,3 +1,107 @@
+###  Публикация: 700424   (483276) от 15.09.2013
+
+Журнал | Everyday Practical Electronics №3 (март 2013) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everyday Practical Electronics - популярный английский журнал по электронике и схемотехнике. Для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA06CBE43156B55D211D1E304AFA498B40CCF87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545975   (482641) от 11.09.2012
+
+Журнал | Радиоаматор №9 [сентябрь 2012] [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоаматор - это увлекательный путеводитель в мир радио для тех, кто ради увлечения либо по роду своей профессиональной деятельности работает в эфире, занимается разработкой и ремонтом разнообразных радиоэлектронных устройств. Основные разделы журнала: аудио, видео, электроника, компьютер, КВ и УКВ радиосвязь, современные телекоммуникации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D2329F0D26F239203B8E8F63F1CFF5582F3EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700639   (481318) от 16.09.2013
+
+Журнал | Everyday Practical Electronics №1 (январь 2013) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everyday Practical Electronics - популярный английский журнал по электронике и схемотехнике. Для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5549E74DC478F0735526D431C49DFD01393BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700663   (481313) от 16.09.2013
+
+Журнал | Everyday Practical Electronics №10 (октябрь 2013) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский журнал по электронике для радиолюбителей. В каждом номере публикуются конструкции для повторения различного уровня сложности с описанием, схемами, печатными платами и прошивками для микроконтроллеров.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422A2D866155C7508055E54438B427FBED8F8D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 700608   (481305) от 16.09.2013
 
 Журнал | Everyday Practical Electronics №2 (февраль 2013) [PDF] [En]
@@ -6,7 +110,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481305.jpg" />
+  <img src="Z:/picture/008/save_picture_481305.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480419.jpg" />
+  <img src="Z:/picture/008/save_picture_480419.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480366.jpg" />
+  <img src="Z:/picture/008/save_picture_480366.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480271.jpg" />
+  <img src="Z:/picture/008/save_picture_480271.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478902.jpg" />
+  <img src="Z:/picture/008/save_picture_478902.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478740.jpg" />
+  <img src="Z:/picture/008/save_picture_478740.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477602.jpg" />
+  <img src="Z:/picture/008/save_picture_477602.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473028.jpg" />
+  <img src="Z:/picture/008/save_picture_473028.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472572.jpg" />
+  <img src="Z:/picture/008/save_picture_472572.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472570.jpg" />
+  <img src="Z:/picture/008/save_picture_472570.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472476.jpg" />
+  <img src="Z:/picture/008/save_picture_472476.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472472.jpg" />
+  <img src="Z:/picture/008/save_picture_472472.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472464.jpg" />
+  <img src="Z:/picture/008/save_picture_472464.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472460.jpg" />
+  <img src="Z:/picture/008/save_picture_472460.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472459.jpg" />
+  <img src="Z:/picture/008/save_picture_472459.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472004.jpg" />
+  <img src="Z:/picture/008/save_picture_472004.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471912.jpg" />
+  <img src="Z:/picture/008/save_picture_471912.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471128.jpg" />
+  <img src="Z:/picture/008/save_picture_471128.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470124.jpg" />
+  <img src="Z:/picture/008/save_picture_470124.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470120.jpg" />
+  <img src="Z:/picture/008/save_picture_470120.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470117.jpg" />
+  <img src="Z:/picture/008/save_picture_470117.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470112.jpg" />
+  <img src="Z:/picture/008/save_picture_470112.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Everyday Practical Electronics - популярный английский жу�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53BDCA36F5EB2E6B220B75EB1C0E4A414DA7900C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702273   (469996) от 21.09.2013
-
-Журнал | Everyday Practical Electronics №1 (январь 2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everyday Practical Electronics - популярный английский журнал по электронике и схемотехнике. Для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платамиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE00B0484B3986344CBE7492D8E25D57AEA0C8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938721   (469142) от 24.09.2015
-
-Подшивка журналов | ТелеAudioVision [3 журнала] (2015) [PDF] [En, Ru]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крупнейший в мире спутниковый журнал. Наилучший международный источник информации о спутниковом телевидении и интернете. До 2013 года журнал выходил под названием ТелеСателлайт.Жанр: ТелевидениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A320C559852630C308967220BB8BE052117C28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939434   (466281) от 25.09.2015
-
-Журнал | Радио №8 (август 2015) [DJVU]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466281.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видио и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003419F2256BA6B40E3AEF287650D80C2303C7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937201   (466044) от 25.09.2015
-
-Журнал | Радио №9 (сентябрь 2015) [DJVU]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466044.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видио и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174161CB623A3365D1040467A7F9551346BA0AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1065151   (421627) от 22.10.2016
+
+Руссо туристо (2016.10.22) SATRip (Рим)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_421627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что нашего человека без труда можно вычислить за границей?
+Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинПродолжительность: 00:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1491A56339856F6A24ED23266CEECB47C620020B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572510   (421211) от 27.08.2022
+
+Взгляд с высоты. Золотой век Ярославля (2022) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_421211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ярославль знаком каждому россиянину намного больше, чем кажется на первый взгляд. Изображение города нанесено на 1000-рублевую купюру. Город располагается на берегу Верхней Волги в месте, где в неё впадает небольшая река Которосль. Ярославль неофициально называют столицей Золотого кольца России. А вот о том, что Ярославль одно время был еще и фактической столицей (   Читать дальше...   )Производство: Россия, RTG TVЖанр: документальный, познавательный, путешествияРежиссер: Сергей ЕрмоленкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F65338A434966104F1A1FF40E9BFA4CAE49B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065702   (419107) от 23.10.2016
 
 Орел и решка. Шопинг (2016.10.23) SATRip (cезон 5: Макао)
@@ -6,7 +59,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419107.jpg" />
+  <img src="Z:/picture/008/save_picture_419107.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419106.jpg" />
+  <img src="Z:/picture/008/save_picture_419106.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418920.jpg" />
+  <img src="Z:/picture/008/save_picture_418920.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417983.jpg" />
+  <img src="Z:/picture/008/save_picture_417983.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417747.jpg" />
+  <img src="Z:/picture/008/save_picture_417747.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416869.jpg" />
+  <img src="Z:/picture/008/save_picture_416869.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415982.jpg" />
+  <img src="Z:/picture/008/save_picture_415982.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415602.jpg" />
+  <img src="Z:/picture/008/save_picture_415602.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415171.jpg" />
+  <img src="Z:/picture/008/save_picture_415171.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413876.jpg" />
+  <img src="Z:/picture/008/save_picture_413876.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413813.jpg" />
+  <img src="Z:/picture/008/save_picture_413813.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411571.jpg" />
+  <img src="Z:/picture/008/save_picture_411571.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409664.jpg" />
+  <img src="Z:/picture/008/save_picture_409664.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409462.jpg" />
+  <img src="Z:/picture/008/save_picture_409462.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408858.jpg" />
+  <img src="Z:/picture/008/save_picture_408858.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408792.jpg" />
+  <img src="Z:/picture/008/save_picture_408792.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408784.jpg" />
+  <img src="Z:/picture/008/save_picture_408784.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408583.jpg" />
+  <img src="Z:/picture/008/save_picture_408583.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408090.jpg" />
+  <img src="Z:/picture/008/save_picture_408090.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408081.jpg" />
+  <img src="Z:/picture/008/save_picture_408081.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405050.jpg" />
+  <img src="Z:/picture/008/save_picture_405050.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405044.jpg" />
+  <img src="Z:/picture/008/save_picture_405044.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405004.jpg" />
+  <img src="Z:/picture/008/save_picture_405004.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404991.jpg" />
+  <img src="Z:/picture/008/save_picture_404991.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1540DC70D921A2117BE137FF172B69B98A6BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169308   (403109) от 27.09.2017
-
-Орел и решка. Перезагрузка (2017.09.26) WEB-DL [H.264/720p-LQ] (сезон 14: Пекин. Китай)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD7C543502D755276A260AF054821724B0AD676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169307   (403065) от 27.09.2017
-
-Орел и решка. Перезагрузка (2017.09.26) WEB-DLRip (сезон 14: Пекин. Китай)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B8C854CCAAB1B5078CC56783A431D644AB4260
 ```
 
 https://mybot314.ru/tekegram_catalog/

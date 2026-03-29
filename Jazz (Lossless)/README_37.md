@@ -1,3 +1,125 @@
+###  Публикация: 1096558   (919199) от 24.01.2017
+
+Benny Green - Kaleidoscope (1997) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kaleidoscope (take 1) [08:46]
+ 02.Thursday's Lullaby [06:57]
+ 03.The Sexy Mexy [05:31]
+ 04.Patience [05:44](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E775A6DE51B5D34B8B04E6ADD347F876529AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367155   (919198) от 14.03.2020
+
+Martial Solal - The Complete Vogue Recordings, Vol.2, 1956 (1998) Vogue [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris je t'aime d'amour [3:02]
+02. Tout bleu [3:00]
+03. Sadi's Sad [2:25]
+04. Love Walked In [3:07](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 01:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE6BEAC3F02B5271CFACC955D661B57216A9CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988522   (919102) от 21.02.2016
+
+Duke Ellington - Live In Europe: Guest Star Ella Fitzgerald (1967) 1994, Musica Jazz[FLAC|Lossless|tracks + .cue] <Big Band, Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Take The ''A'' Train [00:43]
+ 02.Johnny Come Lately [04:09]
+ 03.Swamp Goo [05:17]
+ 04.Up Jump [03:20](   Читать дальше...   )Жанр: Big Band, Swing, Vocal JazzПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C291481893BEF65C29C62FBB516284C1F974950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289507   (918754) от 31.01.2011
+
+Danilo Rea Trio - Romantica (2004) [FLAC|Lossless]<Modern Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reginella (5:40)
+02. Munastero 'E Santa Chiara (4:39)
+03. Tu Si' 'Na Cosa Grande (5:24)
+04. Core 'Ngrato (Catari Catari) (4:05)
+05. Santa Lucia (5:05)
+06. Che Cosa C'e (6:06)
+07. Torna A Surriento (6:24)
+08. Parlami D'amore Mariu (4:25)
+09. Metti Una Sera A Cena (5:27)
+10. Resta Cu'mme (5:59)(   Читать дальше...)Жанр: Modern Jazz, PianoПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096851   (917799) от 25.01.2017
 
 Dave Brubeck - This Is Jazz (1953 - 1964) 1996, Legacy[FLAC|Lossless|image + .cue] <Cool>
@@ -6,7 +128,7 @@ Dave Brubeck - This Is Jazz (1953 - 1964) 1996, Legacy[FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917799.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ Carlos “Patato” Valdes - Ritmo y Candela II: African Crossroads (1996) Round
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917794.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ Eurosib International Jazz Orchestra - School Copybook (1996) Ermatell Records[A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917786.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ Ada Montellanico - Abbey's Road (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917781.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ David Koven - Samba Maria (1998) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917592.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ V.A. - Smooth Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917488.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ Arturo Sandoval, Chick Corea, Poncho Sanchez, Pete Escovedo - Jam Miami: A Celeb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917423.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ Wolfgang Dauner Quintet - The Oimels (1969) 2007, MPS[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917391.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ Dennis Rollins' Velocity Trio - Symbiosis (2015) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917376.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ Karasol - In Your Wild Garden (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917368.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ Charles Mingus - Pithecanthropus Erectus (1956) 2007, Warner Music[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917349.jpg" />
 </div>
 
 
@@ -325,7 +447,7 @@ Cam Buma Project - The Calling (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917344.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ J.A.M - Just Another Mind (2010) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917248.jpg" />
 </div>
 
 
@@ -389,7 +511,7 @@ Roma Trio - Ciao Ciao Bambina (2008) [FLAC|Lossless]<Instrumental Jazz, Post-bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917171.jpg" />
 </div>
 
 
@@ -424,7 +546,7 @@ Becca Stevens Band - Perfect Animal (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917162.jpg" />
 </div>
 
 
@@ -453,7 +575,7 @@ Dorantes & Renaud Garcia-Fons - Paseo A Dos (2015) [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917131.jpg" />
 </div>
 
 
@@ -482,7 +604,7 @@ Sambada - Tropicale (1997) [FLAC|Lossless|tracks + .cue] <Acid Jazz, Trip Hop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917123.jpg" />
 </div>
 
 
@@ -511,7 +633,7 @@ VA - Pink Floyd in Jazz: A Jazz Tribute to Pink Floyd (2021) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917018.jpg" />
 </div>
 
 
@@ -540,7 +662,7 @@ Kenny G - Brazilian Nights [Deluxe Edition] (2015) [FLAC|Lossless|WEB-DL]<Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916943.jpg" />
 </div>
 
 
@@ -569,7 +691,7 @@ Drawing Hands - March (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916069.jpg" />
 </div>
 
 
@@ -598,7 +720,7 @@ Maynard Ferguson - A Message From Newport (1958) 1989, Roulette[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916064.jpg" />
 </div>
 
 
@@ -627,7 +749,7 @@ Gerry Mulligan - Jeru (1962) 2016, Sony Music[FLAC|Lossless|image + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916062.jpg" />
 </div>
 
 
@@ -641,122 +763,6 @@ Gerry Mulligan - Jeru (1962) 2016, Sony Music[FLAC|Lossless|image + .cue] <Cool,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:558B43D2344A1D3A18D291D013DFBC4EE52F06D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097141   (916046) от 26.01.2017
-
-Reggie Lucas - Survival Themes (1975) Remaster, 2015, Universal[FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slewfoot [03:08]
- 02.Tender Years [04:33]
- 03.The Barefoot Song [09:45]
- 04.Survival Themes [23:13]Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E32620C671ACF56AF3F396B8C404D57D03C38DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989679   (915896) от 23.02.2016
-
-Irakere - Jazzcuba: volumen 5 (1970) 2007, Rhino[FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Adagio Para Clarinete [04:44]
- 02.Chekere Que Son [06:51]
- 03.38 y medio [05:14]
- 04.En Nosotros [04:24](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2958AD7FE3CF1BA9569E4A166D294F8E1CD161C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989749   (915890) от 23.02.2016
-
-Matthieu Bore - Naked Song (2015) Bonsan Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lonely At The Top [02:58]
- 02.Allegreto [00:30]
- 03.I'm Putting All My Eggs In One Basket [03:08]
- 04.Police On My Back [02:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F26B8B8B17EF34E6BBC5CF30C14FB4632C1A9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989746   (915885) от 23.02.2016
-
-Jimmy Smith - Rockin' The Boat (1963) 1994, Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When My Dreamboat Comes Home [07:32]
- 02.Pork Chop [07:41]
- 03.Matilda, Matilda! [03:03]
- 04.Can Heat [05:28](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4088D98BB4D84A3DA8D293F0C3EEB5FB9D8382A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 229078   (971490) от 15.01.2016
+
+Пришло время любить / Lude Godine (1978-1992) VHSRip, DVDRip (1-10 части)
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сват Милан уговаривает свата Жику жениться, описывая всевозможные прелести будущей семейной жизни. Для этого он подает брачные объявления в газеты, предлагая кандидаткам присылать видеокассеты с записью своего "портфолио". Но вот сам Жика не горит желанием что-либо менять в своей размеренной жизни...Жанр: КомедияРежиссер: Зоран Чалич/Zoran aliПеревод: Любительский (одноголосый)Формат: AVIПродолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC4126F8037720BC444A43B860F2484C84C2438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357996   (970557) от 06.02.2020
+
+Опасная жалость / La Pitie dangereuse (1979) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа С. Цвейга.
+Весна 1914 года. Жизнь в гарнизонном городке неподалеку от Вены скучна и однообразна. Для лейтенанта кавалерии Антона Гофмиллера, человека со скромным достатком, приглашение в замок господина Кешфальвы, самого богатого человека в округе, становится нежданным подарком судьбы. На приеме молодой красавец-офицер знакомится с племянницей (   Читать дальше...   )Производство: Франция / Antenne-2 (A2)Жанр: ДрамаРежиссер: Эдуар МолинароАктеры: Матье Карьер, Мари-Элен Брейя, Жан Десайи, Сильвия РайзПеревод: Многоголосый закадровый (MVO)Язык озвучки: РусскийСубтитры: нетПродолжительность: 03:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E357FEC69F97C9B791F85FC49A935D03D20D02A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356724   (970459) от 06.02.2020
+
+Быть верным Йелю / Hold 'Em Yale (1928) WEBRip [H.264] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатый аргентинец, устав от легкомысленности своего сына и желая, чтобы тот остепенился, посылает его учиться в Йельский университет. Там молодой человек находит успех на футбольном поле в студенческой команде и любовь дочери профессора. Но ему приходится постоянно опасаться полицейского детектива, убежденного, что он - разыскиваемый преступник….Производство: США / DeMille Pictures CorporationЖанр: КомедияРежиссер: Эдвард Х. ГриффитАктеры: Род Ла Рок, Джинетт Лофф, Хью Аллан, Джозеф Которн, Том Кеннеди, Джерри Мэнди, Лоуренс Грант, Оскар Смит, Боб Перри, Скотт СитонПеревод: Отсутствует (немое кино)Субтитры: Русские (nigelliri) отдельным файломПродолжительность: 01:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC94437BB693DAB305246EC601226508B69D2FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 10768   (970240) от 13.02.2013
 
 Блеф / Bluff storia di truffe e di imbroglioni /The Con Artists  [1976] DVDRip
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970240.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969396.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969261.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968707.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968627.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968014.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967757.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967679.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967660.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967166.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967070.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966485.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966336.jpg" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965363.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965036.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964937.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964393.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964341.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963941.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963648.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963410.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962603.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962157.jpg" />
 </div>
 
 
@@ -600,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A0A99C0E77D823926C7D84A06F00DF3F3A267D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749160   (962151) от 24.01.2016
-
-Макбет / Macbeth (1948) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киноверсия, основанная на истории реального Макбета — короля Шотландии, представляется режиссером как архетипичная история об опасности чрезмерной жажды власти и измене друзьям.Производство: СШАЖанр: ДрамаРежиссер: Орсон УэллсАктеры: Орсон Уэллс, Жанетт Нолан, Дэн О’Херлихи, Родди МакДауэлл, Эдгар Барье, Алан Напье, Эрскин Сэнфорд, Джон Диркес, Кин Кертис, Пегги УэбберПеревод: Многоголосый закадровыйПродолжительность: 01:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4806864E3B48DF3EB1F9CC9F15F1BE1201370454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971950   (961919) от 24.01.2016
-
-Картуш / Cartouche (1962) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завоевав любовь прекрасной цыганки Венеры парижский разбойник 18-го века Доминик взял себе кличку «Картуш» и стал настоящим французским Робин Гудом.
-Одинаково владея шпагой и языком, Картуш во главе организованной им банды «весельчаков» потрошит кошельки аристократов и раздает добычу беднякам, каждый раз ловко оставляя в дураках своего заклятого врага — начальника (   Читать дальше...   )Производство: Франция, Италия / Filmsonor S.A., Les Films Ariane, Mondex Films, Vides CinematograficaЖанр: Боевик, Драма, Комедия, ПриключенияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Клаудия Кардинале, Джесс Хан, Марсель Далио, Жан Рошфор, Филипп Лемэр, Ноэль Роквер, Одиль Версуа, Жак Шарон, Люсьен РэмбурПеревод: Дублированный, многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394580BAE66884DC769E71B525CB683CD7E5F05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747768   (961106) от 20.01.2014
-
-Нападение на «Королеву» / Assault on a Queen (1966) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голубоглазая белокурая итальянка Роза со своим напарником-любовником Виктором Росситером ищут затонувшие корабли в надежде разбогатеть. Они нанимают бывшего военного моряка Марка Бритейна и его помощника темнокожего Линка в качестве водолазов. Но вместо сокровищ Марк обнаруживает затонувшую подводную лодку. Третий член компании, бывший немецкий подводник Эрик предлагает (   Читать дальше...   )Жанр: боевик, триллер, драма, криминал, приключенияРежиссер: Джек ДонохьюАктеры: Фрэнк Синатра, Вирна Лизи, Энтони Франчоза, Ричард Конте, Альф Челлин, Эррол Джон, Мюррэй Мэтисон, Реджинальд Денни, Джон Варбертон, Лестер МэтьюзПеревод: Двуголосый закадровыйПродолжительность: 01:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47A2348DD99AA49AB0ECE1B4E34E192470E7353
 ```
 
 https://mybot314.ru/tekegram_catalog/

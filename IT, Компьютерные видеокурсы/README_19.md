@@ -1,3 +1,142 @@
+###  Публикация: 1463415   (1020449) от 18.04.2021
+
+Udemy, Justin Seymour | Journey Into Javascript  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы новичок в программировании или имеете некоторый опыт работы с HTML и CSS, изучение Javascript - отличный выбор для начала обучения программированию.
+Javascript поддерживает 95% веб-сайтов в Интернете и является языком программирования, с которым большинство разработчиков программного обеспечения так или иначе столкнутся в своей карьере.
+Я собрал этот курс (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 26:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BABC5AB9352B8A6D1981157736DAD5BE15197C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463447   (1020446) от 18.04.2021
+
+Udemy, Dr. Mostafa Saad Ibrahim | Mastering 4 critical SKILLS using C++ 17  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс охватывает современный синтаксис C ++ от базового до продвинутого. Новички в C ++ многому научатся!
+Курс поможет вам овладеть 4 самыми важными навыками для программиста.
+Навыки программирования
+Навыки решения проблем: редко охватываются другими курсами(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 28:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D8997E27D6E52EAAA2467B460FA36C159CE31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463428   (1020435) от 18.04.2021
+
+Kevin Powell | Flexbox Simplified (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flexbox - замечательный инструмент, который открывает мир адаптивных макетов, но может быть трудно точно предсказать, что произойдет, когда мы его используем, и он полон иногда сбивающих с толку параметров свойств и значений.
+Возьмите под свой контроль flexbox.По мере того, как мы будем работать с flexbox, вы получите:
+Приведение вещей в действие. Реальные примеры (   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389B0276A87A86C59B139922A0D1D1D75160776E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463343   (1020415) от 18.04.2021
+
+Golang Lambda, Gourav Kumar | Golang + Lambda Masterclass: Build Microservices, Event-Driven Applications  (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс научит вас всему, что необходимо для создания готовых к работе микросервисов Golang + Lambda, REST API и бессерверных приложений, управляемых событиями, в облаке AWS на профессиональном уровне. Важно: курс находится в раннем доступе, что означает, что новый контент добавляется регулярно.Производство: Golang LambdaЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 01:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA18E3EA8854584BD20B2EAEF8026C9D2ED4ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463453   (1020403) от 18.04.2021
+
+Udemy, Musa Arda | Python Hands-On 40 Hours, 210 Exercises, 5 Projects, 2 Exams  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический курс Python охватывает Python от новичка до уровня эксперта.
+Мы начнем с абсолютного нуля, «Hello World!», И закончим ООП (объектно-ориентированное программирование).
+Этот курс представляет собой углубленное введение в Python продолжительностью 40 часов, включая теорию и практику.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 41:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1EAC6AA3CA3ED2B876F861513FE982FEBC44C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463772   (1020242) от 19.04.2021
 
 Egghead | Course collections (2020-2021) PCRec [En]
@@ -6,7 +145,7 @@ Egghead | Course collections (2020-2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020242.jpg" />
 </div>
 
 
@@ -34,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020206.jpg" />
 </div>
 
 
@@ -61,7 +200,7 @@ OTUS, Андрей Смирнов  | Flutter Mobile Developer [Части 1-3 и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020193.jpg" />
 </div>
 
 
@@ -90,7 +229,7 @@ Yassin Marco | Deep Web - The complete Introduction to the hidden web (2020) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020092.jpg" />
 </div>
 
 
@@ -116,7 +255,7 @@ IAmTimCorey, Tim Corey | Course collection podcast (2020-2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020049.jpg" />
 </div>
 
 
@@ -145,7 +284,7 @@ Laracasts | Course collection (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019911.jpg" />
 </div>
 
 
@@ -172,7 +311,7 @@ ITVDN, Андрей Губаренко | Spring Security (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019889.jpg" />
 </div>
 
 
@@ -199,7 +338,7 @@ ITVDN, Евгений Кушвид  | Ruby on Rails (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019883.jpg" />
 </div>
 
 
@@ -225,7 +364,7 @@ ITVDN, Лазорык Михаил | Django Базовый (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019877.jpg" />
 </div>
 
 
@@ -252,7 +391,7 @@ ITVDN, Анна Маргина | Основы использования Git (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019870.jpg" />
 </div>
 
 
@@ -279,7 +418,7 @@ ITDVN, Цыганков Никита | ASP.NET Core Web API. Практичес�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019867.jpg" />
 </div>
 
 
@@ -306,7 +445,7 @@ ITVDN, Владислав Шевченко | UX/UI Design мобильных п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019866.jpg" />
 </div>
 
 
@@ -333,7 +472,7 @@ Udemy, Lev Gorfel | Java - учимся на практике (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019864.jpg" />
 </div>
 
 
@@ -359,7 +498,7 @@ Stepik, Глеб Кушедов и др. | Flask с нуля на практик
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019859.jpg" />
 </div>
 
 
@@ -386,7 +525,7 @@ ITVDN, Дмитрий Охрименко | JavaScript Стартовый (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019853.jpg" />
 </div>
 
 
@@ -412,7 +551,7 @@ Skillbox, Илья Мещеряков | SQL для анализа данных (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019845.jpg" />
 </div>
 
 
@@ -441,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019684.jpg" />
 </div>
 
 
@@ -470,7 +609,7 @@ Frontend30, Ryan Yu | Master 30 Front-end Skills (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019593.jpg" />
 </div>
 
 
@@ -499,7 +638,7 @@ Laracasts, Andre Madarang | Laravel Authentication (Breeze, Jetstream, Fortify) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019591.jpg" />
 </div>
 
 
@@ -525,7 +664,7 @@ CodingWithMitch, Mitch Tabian | Подборка курсов CodingWithMitch (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019589.jpg" />
 </div>
 
 
@@ -554,7 +693,7 @@ Rachel Andrew | Подборка курсов по вёрстке (2021) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019580.jpg" />
 </div>
 
 
@@ -568,146 +707,6 @@ Rachel Andrew - CSS Grid(   Читать дальше...   )Жанр: Прогр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F6EBC55A510DC09E24F181C16068C0A29DFD8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464729   (1019544) от 23.04.2021
-
-OTUS, Егор Матешук | Экосистема Hadoop, Spark, Hive (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Углубленный курс по самым мощным инструментам обработки больших данных. Курс рассчитан на Data инженеров, желающих глубже изучить Spark, Hadoop, Hive.
-На курсе вы изучите следующие основные темы:
-Hadoop (основные компоненты, дистрибутивы вендоров)
-Архитектура HDFS(   Читать дальше...   )Производство: OTUSЖанр: Hadoop, Spark, HiveПродолжительность: 38:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D097D45CEFC4859E96A723F8E0D84A516387A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465120   (1019416) от 24.04.2021
-
-Udemy, Joseph Delgadillo и др. | The Complete Full-Stack JavaScript Course!  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите освоить JavaScript и начать работу в качестве полнофункционального веб-разработчика, вам понравится этот курс! Изучите разработку полнофункционального JavaScript, работая над проектами кодирования с использованием ReactJS, NodeJS, LoopbackJS, Redux, Material-UI и программирования сокетов.
-В этом курсе мы будем работать над следующими тремя проектами (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 24:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404C2D7C4532C8A5535C2CC40E7C6E322B2B1DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465138   (1019222) от 25.04.2021
-
-Podlodka.io | Podlodka Frontend Crew, сезон #1 (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две недели интенсивной практики с экспертами из топовых компаний: сессии в Zoom, сообщество в Slack и атмосфера ламповой конференции.
-Неделя «Оптимизация перформанса»
-Учимся искать узкие места и делать свои web-проекты быстрыми за счет оптимизации архитектуры, кода, сборки, анимаций и UX.
-Доклад: Батон хлеба в 4к или как работать с изображениями в вебе / Илья Куликов (   Читать дальше...   )Производство: Podlodka.ioЖанр: ПрограммированиеПродолжительность: 18:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403AA44DF54DDDF9567484F55222A361E0F5FD76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465196   (1019177) от 25.04.2021
-
-ITVDN, Александр Шевчук | C# 8.0 Стартовый (2021) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие друзья! Курс «C# Стартовый. Процедурное программирование» ориентирован в первую очередь на тех, кто никогда не программировал или имеет к программированию косвенное отношение.
-Для прохождения этого курса, вам не потребуется никакой предварительной подготовки. Всё, что от вас потребуется – это просто быть уверенными пользователями персонального компьютера. (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 28:49:52.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F19BD24F7B7BDDEE6EE87E4BB2CBD6216E3288C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465540   (1019074) от 26.04.2021
-
-Udemy, John s Curry | GraphQL Mastery: Getting started with and mastering GraphQL (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте все, что вам нужно, чтобы стать профессиональным разработчиком GraphQL. Предварительный опыт работы с GraphQL не требуется. В этом курсе GraphQL мы изучим основы и будем использовать React.js в интерфейсе для создания полнофункционального веб-приложения.
-Предварительные требования:
-По крайней мере, иметь базовое понимание JavaScript. Желательно иметь опыт (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 14:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BD8AD3F6513E54CDFD287D81A2C78AC8AAE31F
 ```
 
 https://mybot314.ru/tekegram_catalog/

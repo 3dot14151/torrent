@@ -1,3 +1,81 @@
+###  Публикация: 965812   (224098) от 15.12.2015
+
+Александр Дугин | Философия войны (2004) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_224098.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге известного российского философа, политолога и публициста А.Г.Дугина «Философия войны» рассказывается о феномене боя, ненависти, силового столкновения регулярных и партизанских частей, о происхождении и становлении воинской касты с древнейших времен до наших дней. Анализ изначальных мифов человеческой цивилизации соседствуете проектами ультрасовременной модернизации (   Читать дальше...   )Жанр: Философия, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4557980643F5983691B4AF139C2934490202AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425050   (223797) от 19.11.2020
+
+Л. М. Гатовский | О роли политических факторов в войне (1944) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война есть продолжение политики иными средствами, — говорил Ленин. Это значит, что цели, характер и методы войны определяются внутренней и внешней политикой, строем государств ведущих войну. Это значит также, что и результаты войны зависят от прочности политической и экономической системы каждой воюющей страны, от политико-морального состояния её армии и тыла. В (   Читать дальше...   )Жанр: История, экономика, политология, социология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352868027D778249CF5E36287FCDA3E708CE2F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342608   (223713) от 02.12.2019
+
+Юджин Сернан, Дональд Дэвис | Последний человек на Луне (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юджин Сернан – один из пионеров программы «Аполлон», второй американский астронавт, вышедший в открытый космос, и последний человек, оставивший след на поверхности Луны. Книга Сернана – правдивый рассказ от первого лица о мужестве и смелости людей, о радости побед и о трудном пути к мечте.Жанр: Биографии и мемуары, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE145B3BABE0CBBB83CAD96DA906792B87ADAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268990   (223462) от 13.12.2018
 
 Г. Аптекер | Лауреаты империализма: Монополистический капитал переписывает историю Америки (1955) [DJVU]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223462.jpg" />
+  <img src="Z:/picture/005/save_picture_223462.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223027.jpg" />
+  <img src="Z:/picture/005/save_picture_223027.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222457.jpg" />
+  <img src="Z:/picture/005/save_picture_222457.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222193.jpg" />
+  <img src="Z:/picture/005/save_picture_222193.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221663.jpg" />
+  <img src="Z:/picture/005/save_picture_221663.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220660.jpg" />
+  <img src="Z:/picture/005/save_picture_220660.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220017.jpg" />
+  <img src="Z:/picture/005/save_picture_220017.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220010.jpg" />
+  <img src="Z:/picture/005/save_picture_220010.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219916.jpg" />
+  <img src="Z:/picture/005/save_picture_219916.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219805.jpg" />
+  <img src="Z:/picture/005/save_picture_219805.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219770.jpg" />
+  <img src="Z:/picture/005/save_picture_219770.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219734.jpg" />
+  <img src="Z:/picture/005/save_picture_219734.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219255.jpg" />
+  <img src="Z:/picture/005/save_picture_219255.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218511.jpg" />
+  <img src="Z:/picture/005/save_picture_218511.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218346.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218223.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218209.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218165.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218019.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217902.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217858.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217661.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217618.jpg" />
 </div>
 
 
@@ -599,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:777A706EED3966969D529AFFFE06890FBE24EF19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514337   (217255) от 03.12.2021
-
-Георгий Бурков | Дневники, размышления, сюжеты (2020) [FB2, PDF, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Георгий Бурков не писал мемуары. Он вообще выпадает из общего контекста. Только наедине со своей совестью перед листом чистой бумаги, которому доверяет свои сокровенные мысли. О стране, народе, театре и о жизни, где ему судьба преподносила встречу с интересными людьми. Дневники, в своём роде, пророческие, с болью в сердце обо всём, что так было дорого ему. И вот (   Читать дальше...   )Жанр: Биография. ПублицистикаФормат: FB2, PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2919A0472F9B094F80533A410A6F84D37BDF6F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966840   (216659) от 19.12.2015
-
-Сергей Михайлович | Параллельные общества (2011) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нужно отказаться от садистского высокомерия, свойственного интеллектуалам и признать: если кого-то устраивает капитализм, рынок, корпорации, тотальный спектакль, люди имеют на все это полное право. В конце концов, люди все это называют другими, не столь обидными именами и принимают. А несогласные не имеют права всю эту прелесть у людей насильственно отнимать: все (   Читать дальше...   )Жанр: Общество, СоциологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95CF05D58E29064EF85407FB34067F6B11C4D7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967062   (216054) от 19.12.2015
-
-Дэвид Рокфеллер | Клуб банкиров (2013) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Рокфеллер - один из крупнейших политических и финансовых деятелей XX века, известный американский банкир, глава дома Рокфеллеров. Внук нефтяного магната и первого в истории миллиардера Джона Д.Рокфеллера, основателя Стандарт Ойл.
-Рокфеллер известен как один из первых и наиболее влиятельных идеологов глобализации и неоконсерватизма, основатель знаменитого Бильдербергского (   Читать дальше...   )Жанр: Биография, мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B128760875468B20A043193B3F0AE7DD38CB518
 ```
 
 https://mybot314.ru/tekegram_catalog/

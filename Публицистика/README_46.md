@@ -1,3 +1,88 @@
+###  Публикация: 1558618   (529981) от 21.06.2022
+
+Никлас Брендборг | Загадка нестареющей медузы. Секреты природы и достижения науки, которые помогут приблизиться к вечной жизни (2022) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы хотим прожить «до ста лет». Но на нашей планете есть существа и организмы, для которых век – лишь начало жизни.
+
+Много ли зависит от генов, можно ли скорректировать их влияние питанием или образом жизни? За несколько сотен лет наблюдений и экспериментов накопилось много данных, которые помогут переосмыслить понятие возраста.
+(   Читать дальше...   )Жанр: Публицистика, здоровьеПеревод: Алена ЮченковаФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1801DEF0DF74BBE66020E405D469FADE5CD1264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558364   (529891) от 21.06.2022
+
+Андрей Шмалько | Военный дневник (2022) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогой читатель!
+Дневниковые записи, сделанные автором в осажденном Харькове, публикуются с минимальной редактурой, исправлены лишь опечатки. Комментировать содержание ни к чему, текст говорит сам за себя. Автор не жалеет ни о чем из написанного и не собирается отказываться ни от единого слова. Все это было.
+Многие из читателей уже обиделись, иным это лишь предстоит, (   Читать дальше...   )Жанр: Военная история. ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A56D5E5F4E38D3476D3D1B1255687381CBD7F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558594   (529886) от 21.06.2022
+
+Джек Д. Швагер | Таинственные маги рынка. Лучшие трейдеры, о которые вы никогда не слышали (2022) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Д. Швагер – признанный отраслевой эксперт по фьючерсам и хедж-фондам, а также автор культовой серии ・・Маги рынка・・. В своей новой книге он взял интервью у многих легендарных трейдеров, аналитиков, маркетмейкеров и управляющих фондами.
+
+В книге вы найдете полезную информацию, которая поможет начинающим трейдерам найти свою стратегию (   Читать дальше...   )Жанр: 9785907534759Перевод: П. ВласовФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901DA5C211B458A0E1AB1B15A8B2A80A092B0ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927135   (529454) от 12.08.2015
 
 Ха Джун Чхан | 23 тайны. То, что вам не расскажут про капитализм (2014) [FB2]
@@ -6,7 +91,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529454.jpg" />
+  <img src="Z:/picture/008/save_picture_529454.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528743.jpg" />
+  <img src="Z:/picture/008/save_picture_528743.jpg" />
 </div>
 
 
@@ -61,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528678.jpg" />
+  <img src="Z:/picture/008/save_picture_528678.jpg" />
 </div>
 
 
@@ -90,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528677.jpg" />
+  <img src="Z:/picture/008/save_picture_528677.jpg" />
 </div>
 
 
@@ -118,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528656.jpg" />
+  <img src="Z:/picture/008/save_picture_528656.jpg" />
 </div>
 
 
@@ -146,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528645.jpg" />
+  <img src="Z:/picture/008/save_picture_528645.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528545.jpg" />
+  <img src="Z:/picture/008/save_picture_528545.jpg" />
 </div>
 
 
@@ -201,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528490.jpg" />
+  <img src="Z:/picture/008/save_picture_528490.jpg" />
 </div>
 
 
@@ -229,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528407.jpg" />
+  <img src="Z:/picture/008/save_picture_528407.jpg" />
 </div>
 
 
@@ -255,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528284.jpg" />
+  <img src="Z:/picture/008/save_picture_528284.jpg" />
 </div>
 
 
@@ -281,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528233.jpg" />
+  <img src="Z:/picture/008/save_picture_528233.jpg" />
 </div>
 
 
@@ -307,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528179.jpg" />
+  <img src="Z:/picture/008/save_picture_528179.jpg" />
 </div>
 
 
@@ -333,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526405.jpg" />
+  <img src="Z:/picture/008/save_picture_526405.jpg" />
 </div>
 
 
@@ -359,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526381.jpg" />
+  <img src="Z:/picture/008/save_picture_526381.jpg" />
 </div>
 
 
@@ -386,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525834.jpg" />
+  <img src="Z:/picture/008/save_picture_525834.jpg" />
 </div>
 
 
@@ -412,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525465.jpg" />
+  <img src="Z:/picture/008/save_picture_525465.jpg" />
 </div>
 
 
@@ -438,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525217.jpg" />
+  <img src="Z:/picture/008/save_picture_525217.jpg" />
 </div>
 
 
@@ -466,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525183.jpg" />
+  <img src="Z:/picture/008/save_picture_525183.jpg" />
 </div>
 
 
@@ -492,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525178.jpg" />
+  <img src="Z:/picture/008/save_picture_525178.jpg" />
 </div>
 
 
@@ -518,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524576.jpg" />
+  <img src="Z:/picture/008/save_picture_524576.jpg" />
 </div>
 
 
@@ -544,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524571.jpg" />
+  <img src="Z:/picture/008/save_picture_524571.jpg" />
 </div>
 
 
@@ -573,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524181.jpg" />
+  <img src="Z:/picture/008/save_picture_524181.jpg" />
 </div>
 
 
@@ -599,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524065.jpg" />
+  <img src="Z:/picture/008/save_picture_524065.jpg" />
 </div>
 
 
@@ -612,84 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E608337A7FD27D668077F13AA2F2EF2FAD25CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760551   (523979) от 14.08.2015
-
-Курт Зонтхаймер | Как нацизм пришел к власти (2009) [DJVU] [UKR]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это книга о немецком опыте истории от конца Первой мировой войны до прихода к власти нацистов. Интерес человечества к событиям тех лет объяснять вряд ли надо – нацистская идеология, а затем практика воплощения идей национал-фашизма стоили человечеству десятков и десятков миллионов людей, убитых, уничтоженных, погибших от голода и болезней. Шаг за шагом автор описывает (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79596DFC88100AE2F486BE7619E6E2D91C4D306A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240779   (523661) от 13.08.2018
-
-Михаил Бродский | Сабанеев мост (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частная история. Один из самых ярких и правдивых рассказов о взлете и крушении советской империи. Уникальный взгляд на сложную и спорную эпоху глазами ее рядового жителя, а не ученого историка. Биография, способная дать фору любому самому художественному роману. В семилетнем возрасте он видел, как родную Одессу оккупируют немецкие войска. Так началась взрослая жизнь, (   Читать дальше...   )Жанр: Биографии и мемуары, Историческая литература, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AD98FC6F2222075FE3C302EDC38605D2E83A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239454   (523532) от 13.08.2018
-
-Дэниел Эллсберг | Машина Судного дня. Откровения разработчика плана ядерной войны (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэниел Эллсберг рассказывает об опасности и безрассудстве ядерной политики, которую США проводят уже более 70 лет. Он впервые раскрывает детали американской ядерной программы 1960-х гг., которая предполагала превентивный удар по СССР. Вы узнаете все о хаосе в среде военного командования США: от ситуации на самых удаленных авиабазах в тихоокеанском регионе, где право (   Читать дальше...   )Жанр: Военное дело/спецслужбы, Зарубежная публицистика, ПолитологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6292C15E92964198CA7058618AC19CD3DFC34E39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1341699   (229107) от 29.11.2019
+
+Paw 3.1.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый продвинутый инструмент API для Mac
+Paw является полнофункциональным HTTP-клиентом, который позволяет тестировать API.
+Здесь вы можете с лёгкостью формировать запросы (начиная от HTTP-заголовков, заканчивая телом POST и данными авторизации), тут же проверять их на наличие ошибок (например, отсутствие необходимых полей OAuth или неверный Content-Type), затем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Paw Inc.Поддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1147BADF9A539DEFB01C21253E7A9BCF2901C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341753   (229068) от 29.11.2019
+
+PDF to EPUB Converter 6.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертируйте PDF в EPUB с высокой скоростью. Конвертер PDF в EPUB будет сначала анализировать данные PDF, выявлять абзацы и организовывать их в EPUB. Даже если PDF-файл содержит несколько столбцов, приложение также может правильно преобразовать содержимое.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB45E7D7D1A6ED962D1F82237B7CD4971D478E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341686   (229010) от 29.11.2019
+
+Allegorithmic Substance Designer 2019.2.3 (build 2683) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Substance Designer - мощная программа, которая предназначена для создания, редактирования и обработки сложных текстур. Программа позволяет микшировать и манипулировать битмапами, векторными изображениями и процедурными элементами. Текстуры созданные с помощью Substance Designer являются динамическими, то есть их можно свободно модифицировать на любом этапе создания. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2019Разработчик: AllegorithmicПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417A076E328F0F95226538E2FC45FF91A12BF433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649946   (228773) от 29.07.2023
+
+Omni Toolbox 1.4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Toolbox - это обширный набор инструментов для создания графических отчетов об оборудовании iPhone, проверки аккумулятора iPhone, загрузки видеороликов TikTok, создания рингтонов и исправления общих сбоев программного обеспечения iOS.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26503DBFE9DFD01687522DE8E5F4F9365BD588D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649698   (228748) от 29.07.2023
 
 Default Folder X 6.0 b1 Pre-Release [En]
@@ -6,7 +112,7 @@ Default Folder X 6.0 b1 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228748.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Photo Mechanic 6 v6.0 build 3954 (158b808) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228692.jpg" />
+  <img src="Z:/picture/005/save_picture_228692.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Nik Complete 2 Collection by DxO 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228618.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ This War of Mine: Final Cut (2014) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228536.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ ProFind 1.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228242.jpg" />
+  <img src="Z:/picture/005/save_picture_228242.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Cookie 6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228233.jpg" />
+  <img src="Z:/picture/005/save_picture_228233.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ Drop - Color Picker 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228225.jpg" />
+  <img src="Z:/picture/005/save_picture_228225.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ Postico 1.5.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228213.jpg" />
+  <img src="Z:/picture/005/save_picture_228213.jpg" />
 </div>
 
 
@@ -224,7 +330,7 @@ EverWeb (Standalone) 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228195.jpg" />
+  <img src="Z:/picture/005/save_picture_228195.jpg" />
 </div>
 
 
@@ -252,7 +358,7 @@ Doxillion Plus 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228184.jpg" />
+  <img src="Z:/picture/005/save_picture_228184.jpg" />
 </div>
 
 
@@ -281,7 +387,7 @@ AirServer 6.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228170.jpg" />
+  <img src="Z:/picture/005/save_picture_228170.jpg" />
 </div>
 
 
@@ -307,7 +413,7 @@ beaTunes 5 v5.2.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228164.jpg" />
+  <img src="Z:/picture/005/save_picture_228164.jpg" />
 </div>
 
 
@@ -335,7 +441,7 @@ Ink2Go 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228152.jpg" />
+  <img src="Z:/picture/005/save_picture_228152.jpg" />
 </div>
 
 
@@ -362,7 +468,7 @@ Dropshare 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228098.jpg" />
+  <img src="Z:/picture/005/save_picture_228098.jpg" />
 </div>
 
 
@@ -390,7 +496,7 @@ Persecond 1.5[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228066.jpg" />
+  <img src="Z:/picture/005/save_picture_228066.jpg" />
 </div>
 
 
@@ -416,7 +522,7 @@ SoundSource 5.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228043.jpg" />
+  <img src="Z:/picture/005/save_picture_228043.jpg" />
 </div>
 
 
@@ -444,7 +550,7 @@ Movist Pro 2.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227989.jpg" />
+  <img src="Z:/picture/005/save_picture_227989.jpg" />
 </div>
 
 
@@ -472,7 +578,7 @@ SyncBird Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227960.jpg" />
 </div>
 
 
@@ -498,7 +604,7 @@ Scrivener 3 v3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227950.jpg" />
+  <img src="Z:/picture/005/save_picture_227950.jpg" />
 </div>
 
 
@@ -525,7 +631,7 @@ Keka 1.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227901.jpg" />
+  <img src="Z:/picture/005/save_picture_227901.jpg" />
 </div>
 
 
@@ -552,7 +658,7 @@ ON1 Effects 2021 v15.0.1.9783 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227891.jpg" />
+  <img src="Z:/picture/005/save_picture_227891.jpg" />
 </div>
 
 
@@ -578,7 +684,7 @@ WiFi Explorer 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227881.jpg" />
+  <img src="Z:/picture/005/save_picture_227881.jpg" />
 </div>
 
 
@@ -591,110 +697,6 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3826E9043ED704F7930EF3ADB9D91436A8D63A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424555   (227872) от 17.11.2020
-
-Cinemagraph Pro 2.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinemagraph Pro от студии Fixel – приложение, при помощи которого мастер из любого короткого видео, снятого на камеру смартфона, сделает очередной хит для YouTube. Также программа работает с сериями фотографий, позволяя создавать «видеоколлажи» из набора фотографий. Программа Cinemagraph Pro, поможет Вам разнообразить свои фотографии с помощью эффекта «движения». (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: Flixel Photos Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4E1793ED481BCBFE11D0BC69641568DDDD79F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342000   (227699) от 30.11.2019
-
-GarageSale 8 v8.0.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: iwascoding GmbHПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E90AE8D90BA045344C00227A4482319952DB524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268135   (227682) от 10.12.2018
-
-Translate Tab 2.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так уж сложилось, что потребность переводить возникает у многих и часто. Это может быть как несколько слов, так и какая нибудь статейка с зарубежного сайта по интересующей тематике. И скорее всего сегодняшний пользователь выберет переводчик Google Translate, как наиболее удобный сервис онлайн перевода. Неудобность лишь в том, что в браузере, в который нужно все время (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2018Разработчик: Alex IzvekovПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7181855E01135B44D890640730CA9BAB1970E1AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341871   (227670) от 30.11.2019
-
-Audirvana 3.5.27 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3180556C4931D14B810E687D31AEB71801891DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

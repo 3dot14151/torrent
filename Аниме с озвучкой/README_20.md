@@ -1,3 +1,30 @@
+###  Публикация: 1392874   (768832) от 28.06.2020
+
+Sora no Otoshimono: Forte | Утраченное Небесами: Сильнейшая [TV-2] [2010, TV, 12 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постепенно Томоки Сакурай привыкает к жизни с двумя ангелоидами, Икар и Нимфой, однако он по-прежнему видит странные сны и, в конце концов, просит своих друзей помочь ему разобраться с этим.
+Нимфа призывает устройство, позволяющее людям (но не ангелоидам) проникать в чужие сны. Хотя поначалу устройство не срабатывает, впоследствии они всё же попадают в сон Томоки, (   Читать дальше...   )Производство: AIC, ЯпонияЖанр: Комедия, Романтика, ЭттиРежиссер: Сайто ХисасиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6BF10895545F9ED95445CE26C788714C2FB56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392853   (768831) от 28.06.2020
 
 Sora no Otoshimono | Утраченное Небесами [TV-1] [2009, TV, 13 ep + 1 OVA] BDRip 1080p raw+rus
@@ -6,7 +33,7 @@ Sora no Otoshimono | Утраченное Небесами [TV-1] [2009, TV, 13 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768831.jpg" />
+  <img src="Z:/picture/008/save_picture_768831.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767149.jpg" />
+  <img src="Z:/picture/008/save_picture_767149.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767148.jpg" />
+  <img src="Z:/picture/008/save_picture_767148.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Suisei no Gargantia | Гаргантия на Зелёной Планете [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766649.jpg" />
+  <img src="Z:/picture/008/save_picture_766649.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Ore no Imouto 2 | Ну не Может Моя Сестрёнка Быть Так
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766647.jpg" />
+  <img src="Z:/picture/008/save_picture_766647.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Toradora! | Торадора! [2008, TV, 25 ep + OVA + 4 sp] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765885.jpg" />
+  <img src="Z:/picture/008/save_picture_765885.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Kobayashi-san Chi no Maidragon | Miss Kobayashi's Dragon Maid | Кобаяси �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765851.jpg" />
+  <img src="Z:/picture/008/save_picture_765851.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Hataraku Saibou | Клетки за Работой! [TV-1] [2018, TV, 14 ep + 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765092.jpg" />
+  <img src="Z:/picture/008/save_picture_765092.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ Deadman Wonderland | Страна Чудес Смертников [2011, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765091.jpg" />
+  <img src="Z:/picture/008/save_picture_765091.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ High School Fleet | HaiFuri | Морская Академия [2016, TV, 12 ep +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764191.jpg" />
+  <img src="Z:/picture/008/save_picture_764191.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Lie Huo Jiao Chou | Drowning Sorrows in Raging Fire | Топить печаль 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764114.jpg" />
+  <img src="Z:/picture/008/save_picture_764114.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763848.jpg" />
+  <img src="Z:/picture/008/save_picture_763848.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763846.jpg" />
+  <img src="Z:/picture/008/save_picture_763846.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ Brave Witches | Храбрые Ведьмы [2016, TV, 12 ep + OVA] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763392.jpg" />
+  <img src="Z:/picture/008/save_picture_763392.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ Beastars | Выдающиеся звери [ТВ-1] [2019, TV, 12 эп.] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759782.jpg" />
+  <img src="Z:/picture/008/save_picture_759782.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ Youjuu Toshi | Wicked City | Город чудищ [1987, Movie] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759737.jpg" />
+  <img src="Z:/picture/008/save_picture_759737.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758055.jpg" />
+  <img src="Z:/picture/008/save_picture_758055.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ Freezing / Заморозка [2011, TV, 12 из 12 серий] SDTV 720p raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755556.jpg" />
+  <img src="Z:/picture/005/save_picture_755556.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ Hugtto! Pretty Cure | Хорошенькое лекарство: Объятия 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755081.jpg" />
+  <img src="Z:/picture/008/save_picture_755081.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ Gakkou Gurashi! / School-Live! / Школьная жизнь! [2015, TV, 12] HDT
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753198.jpg" />
+  <img src="Z:/picture/008/save_picture_753198.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ Saijaku Muhai no Bahamut / Undefeated Bahamut Chronicle / Хроники неп�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751171.jpg" />
+  <img src="Z:/picture/008/save_picture_751171.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ Junketsu no Maria / Maria the Virgin Witch / Непорочная Мария [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751046.jpg" />
+  <img src="Z:/picture/008/save_picture_751046.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751028.jpg" />
+  <img src="Z:/picture/008/save_picture_751028.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ Omoide no Marnie / When Marnie Was There / Воспоминания о Марн�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749127.jpg" />
+  <img src="Z:/picture/008/save_picture_749127.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ Strike the Blood: Kieta Seisou Hen | Удар Крови: Потерянное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_748023.jpg" />
+  <img src="Z:/picture/005/save_picture_748023.jpg" />
 </div>
 
 
@@ -648,32 +675,6 @@ Strike the Blood: Kieta Seisou Hen | Удар Крови: Потерянное �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C50EF060DAAED277CCC7B6203670AAC221F68E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266426   (747688) от 10.02.2019
-
-Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Моя единственная любовь — младшая сестрёнка, хоть она и не сестрёнка [2018, TV, 10 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судзука Нагами – младшая сестра Ю Нагами. Она умная и красивая девятиклассница, её даже избрали главой ученического совета. Написанный ей роман о любви девушки к своему старшему брату получает литературную премию. Однако Судзука не хочет, чтобы кто-то знал о её увлечениях, поэтому она уговаривает своего брата выдать себя за молодого писателя под псевдонимом Тикай (   Читать дальше...   )Жанр: комедия, романтика, эттиРежиссер: Фурукава ХироюкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 10 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B73E998782EDF88369AFB499D75FF5E726F74F
 ```
 
 https://mybot314.ru/tekegram_catalog/

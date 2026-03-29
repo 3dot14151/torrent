@@ -1,3 +1,29 @@
+###  Публикация: 1054271   (492210) от 20.09.2016
+
+Военная приемка. Роботы. Войны без смерти. (18.09.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492210.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске зрители увидят то, чего раньше им никто и никогда не показывал из-за режима строгой секретности - стрельбу ударных боевых роботов российской армии! Мы проверим, насколько меткие их системы наведения - и будем стрелять даже на ходу! И вы сами увидите, насколько серьезные повреждения подобные роботы способны нанести вражеской технике. Кроме того, мы (   Читать дальше...   )Телекомпания: ЗвездаЖанр: Телепередача, ДокументальныйПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A46A4B825F822E01D74A9F50DFEB2DC0F47E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937398   (489555) от 14.09.2015
 
 Военная приемка. Армата – терра инкогнита (2015) SATRip
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489555.jpg" />
+  <img src="Z:/picture/008/save_picture_489555.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485415.jpg" />
+  <img src="Z:/picture/008/save_picture_485415.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483924.jpg" />
+  <img src="Z:/picture/008/save_picture_483924.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479919.jpg" />
+  <img src="Z:/picture/008/save_picture_479919.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475276.jpg" />
+  <img src="Z:/picture/008/save_picture_475276.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470457.jpg" />
+  <img src="Z:/picture/008/save_picture_470457.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469567.jpg" />
+  <img src="Z:/picture/008/save_picture_469567.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465976.jpg" />
+  <img src="Z:/picture/008/save_picture_465976.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459884.jpg" />
+  <img src="Z:/picture/008/save_picture_459884.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459095.jpg" />
+  <img src="Z:/picture/008/save_picture_459095.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454762.jpg" />
+  <img src="Z:/picture/008/save_picture_454762.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450914.jpg" />
+  <img src="Z:/picture/008/save_picture_450914.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450485.jpg" />
+  <img src="Z:/picture/008/save_picture_450485.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449555.jpg" />
+  <img src="Z:/picture/008/save_picture_449555.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449269.jpg" />
+  <img src="Z:/picture/008/save_picture_449269.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448626.jpg" />
+  <img src="Z:/picture/008/save_picture_448626.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447024.jpg" />
+  <img src="Z:/picture/008/save_picture_447024.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444916.jpg" />
+  <img src="Z:/picture/008/save_picture_444916.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438932.jpg" />
+  <img src="Z:/picture/008/save_picture_438932.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ BBC. Самое странное оружие мира / Top Secret Weapons Reve
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434772.jpg" />
+  <img src="Z:/picture/008/save_picture_434772.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433109.jpg" />
+  <img src="Z:/picture/008/save_picture_433109.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429339.jpg" />
+  <img src="Z:/picture/008/save_picture_429339.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427323.jpg" />
+  <img src="Z:/picture/008/save_picture_427323.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427150.jpg" />
+  <img src="Z:/picture/008/save_picture_427150.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426280.jpg" />
+  <img src="Z:/picture/008/save_picture_426280.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9137935A6C6AC7421B16D561150E8B7471C06D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064622   (425673) от 20.10.2016
-
-Военная приемка. Ка-52. Бросок «Аллигатора» (16.10.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой этого выпуска - российский ударно-разведывательный вертолет Ка-52 «Аллигатор». Его часто называют «летающим танком спецназа» и сравнивают со знаменитым американским «Апачем», причём совсем не в пользу последнего. Мощное вооружение: 24 управляемые ракеты «земля-воздух», 80 неуправляемых ракет, ракеты «воздух-воздух», авиабомбы общим весом до двух тонн (   Читать дальше...   )Телекомпания: ЗвездаЖанр: Телепередача, ДокументальныйПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D624B60EFD2E91D0D4F75409CF14B51268E49863
 ```
 
 https://mybot314.ru/tekegram_catalog/

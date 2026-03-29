@@ -1,3 +1,235 @@
+###  Публикация: 1810032   (64545) от 02.08.2025
+
+Reneé Rapp - BITE ME (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Leave Me Alone (02:22)
+ 02 - Mad (02:55)
+ 03 - Why Is She Still Here_ (02:30)
+ 04 - Sometimes (03:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ED9BD24F43AB9B3B117C0EB3B35E1E3DBD3A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441160   (64325) от 25.01.2012
+
+John Lennon - Lennon Legend: The Very Best Of John Lennon (1997) [DTS 5.1|Tracks]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (3:55)
+02. Instant Karma! (3:35)
+03. Mother (5:39)
+04. Jealous Guy (4:15)
+05. Power to the People (3:46)
+06. Cold Turkey (5:03)
+07. Love (3:22)
+08. Mind Games (4:13)
+09. Whatever Gets You Thru the Night (3:35)
+10. #9 Dream (4:48)(   Читать дальше...   )1997Жанр: RockПродолжительность: 1:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE8CBCCB87A94D7E52E5C7E138694F5B01CCC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821495   (64022) от 02.10.2025
+
+Judas Priest ft. Ozzy Osbourne - War Pigs (Charity Version) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.War Pigs (Charity Version)(8:05)Жанр: Heavy MetalПродолжительность: 00:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE58831542A181453F19A3C1FAC7E4BD8B3E68AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821499   (64018) от 02.10.2025
+
+Megadeth - Tipping Point (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tipping Point(4:29)Жанр: Thrash MetalПродолжительность: 00:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F193F13089037BBAF5192F6CC846E24ED34393EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821514   (64012) от 02.10.2025
+
+Hooded Menace - Lachrymose Monuments Of Obscuration (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death-Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twilight Passages(1:04)
+02. Pale Masquerade(7:50)
+03. Portrait Without a Face(7:15)
+04. Daughters of Lingering Pain(7:25)(   Читать дальше...   )Жанр: Death-Doom MetalПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E92139AC58E5DCF1619DC943AE108E46FFDE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821546   (63986) от 02.10.2025
+
+Orbit Culture - Death Above Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death-Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inferna(6:43)
+02. Bloodhound(5:03)
+03. Inside the Waves(4:38)
+04. The Tales of War(5:09)(   Читать дальше...   )Жанр: Melodic Death-Groove MetalПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63903A0D4B8431D6D7AC058733FA1DFF47B89623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821665   (63877) от 03.10.2025
+
+VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63877.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 K. Gott, L. Staidl Se Svym Orchestrem - Divkam
+A2 M. Vobornikova A Sbor L. Panka, Tanecni Orchestr Cs. Rozhlasu - Rada Silne Muze Mam
+A3 W. Matuska A O. Blechova, Studiovy Orchestr Mojmir Balling - Kdo Ma Rad
+A4 H. Zagorova, K. Vagner Se Svym Orchestrem - Kdyz Pisne Lzou(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B13E718F16DDE7C1C74DFA46CCFC99FDA4D753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763031   (63850) от 03.10.2025
+
+Bloodred Hourglass (BRHG) - Studio Albums (7 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal; Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodred Hourglass - мелодик-дэт/трэш-метал группа из г. Миккели, Финляндия.2012 - Lifebound
+2015 - Where The Oceans Burn
+2017 - Heal
+2019 - GodsendЖанр: Melodic Death/Thrash Metal; MetalcoreПродолжительность: 05:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2098A30025A295504E35B673077EC1A650370101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705179   (63711) от 07.03.2024
 
 Billy Joel - Piano Man. 50th Anniversary Deluxe Edition (1973) Japanese Edition, SACD, Reissue, Remastered, 2024, Sony Records Int'l [DSD 2.0, DST 5.0 1bit/2822,4kHz |SACD-R] <Folk Rock, Post Ro ...
@@ -6,7 +238,7 @@ Billy Joel - Piano Man. 50th Anniversary Deluxe Edition (1973) Japanese Edition,
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63711.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63706.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Alice Cooper - Billion Dollar Babies (50th Anniversary Deluxe Edition) (1973) Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63705.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63701.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63690.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ AC/DC - Who Made Who (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63580.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ AC/DC - Blow Up Your Video (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63579.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ AC/DC - Rock or Bust (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63528.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63496.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63484.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63483.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Slade - Slayed? (Слейд. Убитый?) (1972) 1993 [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63391.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63388.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Amaranthe - Studio Albums (7 releases) (2011-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63237.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Toto Cutugno - Тото Кутуньо (1985) [FLAC 24/96|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63201.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63184.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63180.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 24/192|Lossless|tracks] <Classic Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63173.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ The Shocking Blue - Golden Hits (1991) [FLAC 24/192|Lossless|tracks] <Classic Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67C3F7DE59797203D595855C2402E1F08BB0979A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706042   (63162) от 12.03.2024
-
-The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таинственное путешествие, Желтая субмарина) (1967, 1969) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебное таинственное путешествие.
-Сторона 1.
-01 - Волшебное таинственное путешествие. (Джон Леннон - Пол МакКартни)
-02 - Дурак на холме. ( Джон Леннон - Пол МакКартни)(   Читать дальше...   )Жанр: Classic Rock, SoundtrackПродолжительность: 00:36:35, 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C5536862A076106547220FC45BFBE996D92805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706308   (63159) от 12.03.2024
-
-VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63159.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона.
-01. Кружатся диски (5.18) Д. Тухманов — И. Кохановский
-Валерий Леонтьев
-02. Эти летние дожди (4.10) М. Минков — С. Кирсанов(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBC25FE439715ECCCBDF461F3A7B6D610E0486A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648172   (63055) от 13.03.2024
-
-Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Rock, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Label Society — сольный проект гитариста Закка Уайлда, известного по своей работе с Оззи Осборном.1999 - Sonic Brew
-2000 - Stronger Than Death
-2002 - 1919 Eternal
-2003 - The Blessed Hellride(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Southern Rock, Groove MetalПродолжительность: 17:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AB29AD4F19B22344E0F74F15607E0927936591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706802   (62971) от 14.03.2024
-
-VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62971.jpg" />
-</div>
-
-
-###  Подробнее
-
-I сторона
-1. Так не должно быть (Л. Дербенев)
-М. Боярский и О. Зарубина
-Вокальный ансамбль(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB6A01139B3F3A95C8EEA49DB337232782F839C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707639   (62639) от 17.03.2024
-
-Кино - Это не любовь (1985) Remake, 2024, Цой В.Р. (наследники) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это не любовь (Remake 2024)
-02. Весна (Remake 2024)
-03. Уходи (Remake 2024)
-04. Город (Remake 2024)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1EC5E658F6EFE161F84174AF4430B40B2655D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707009   (62557) от 18.03.2024
-
-Deep Forest - Studio Albums & Projects (23 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <new-age, ambient, world, ethnic electronica>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Forest - французский дуэт, состоящий из музыкантов Мишеля Санчеса (Michel Sanchez) и Эрика Муке (Eric Mouquet). Создают музыку в стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Их звучание было описано как «этно-интроспективная музыка в стиле эмбиент».1992 - 1994 - World Mix
-1995 - Boheme
-1997 - Comparsa
-2000 - PacifiqueЖанр: new-age, ambient, world, ethnic electronicaПродолжительность: 19:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C84CFE37FF6FE826B47CF17136733BA9C0525F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707684   (62534) от 18.03.2024
-
-Бездна Анального Угнетения (Б.А.У.) - Министерство Несчастья (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Alternative Metal, Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. айти [00:03:25]
-02. Зумер [00:03:32]
-03. Ты, походу, забыл [00:05:36]
-04. Дядюшка Сяо [00:03:33](   Читать дальше...   )Жанр: Thrash Metal, Alternative Metal, PunkПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F335D71E9B981589493AA331655347A31A8F869F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707635   (62437) от 19.03.2024
-
-Electric Light Orchestra (ELO) - Time (1981) [FLAC 24/192|Lossless|tracks] <Synth-pop, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62437.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Prologue 1:16
-A2 Twilight 3:42
-A3 Yours Truly, 2095 3:11
-A4 Ticket To The Moon 4:07(   Читать дальше...   )Жанр: Synth-pop, Symphonic RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B95B1511F533879E0DBEC3D5D6A86035D3C1E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

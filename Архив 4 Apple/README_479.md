@@ -1,3 +1,112 @@
+###  Публикация: 1084490   (271451) от 18.12.2016
+
+Swinsian 1.12.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swinsian - Альтернативный музыкальный проигрыватель для Mac OS X.
+Swinsian демонстрирует простой, но вместе с тем очень приятный интерфейс. Здесь мы видим привычные нам элементы управления, родную кнопку для раскрытия окошка на весь рабочий стол, привычные кнопки для сворачивания и разворачивания проигрывателя. Мы можем импортировать медиатеку iTunes, либо же некую (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2016Разработчик: SwinsianПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0BF34829458DE3F2BAC6ED5D283AC7753B3997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084297   (271447) от 18.12.2016
+
+Together 3.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Together - Программа для хранения и организации файлов.
+Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
+
+Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 декабря 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1080C728A9E425390B5ECC06B7A623F488A5AF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336169   (271427) от 13.11.2019
+
+Bartender 3.1.12 Beta (fixed) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 ноября 2019Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA5DDC3B23A973D0716E69C07A5E21E7735E0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084449   (271373) от 18.12.2016
+
+SMARTReporter 3.1.12 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271373.jpg" />
+</div>
+
+
+###  Подробнее
+
+SMARTReporter – утилита для диагностики состояния жестких дисков ATA и SATA интерфейсов и уведомления в случае дефектов. Программа опрашивает S.M.A.R.T. и подает сигналы о возможных неисправностях еще до их возникновения. Утилита выполняет другой контроль на "ошибки ввода / вывода" или "деградацию" R.A.I.D. Текущее состояние Ваших жестких дисков (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 декабря 2016Разработчик: Albert MayerПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F721666B33802B21271468709EA0C6677C6099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084485   (271368) от 18.12.2016
 
 Mountain Duck 1.6.3.5079 [En]
@@ -6,7 +115,7 @@ Mountain Duck 1.6.3.5079 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271368.jpg" />
+  <img src="Z:/picture/008/save_picture_271368.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ Waltr 2 v2.6.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271347.jpg" />
+  <img src="Z:/picture/008/save_picture_271347.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ UninstallPKG 1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271272.jpg" />
+  <img src="Z:/picture/008/save_picture_271272.jpg" />
 </div>
 
 
@@ -89,7 +198,7 @@ iExplorer 4.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271268.jpg" />
+  <img src="Z:/picture/008/save_picture_271268.jpg" />
 </div>
 
 
@@ -117,7 +226,7 @@ Mate Translate (мгновенный переводчик) 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271215.jpg" />
+  <img src="Z:/picture/008/save_picture_271215.jpg" />
 </div>
 
 
@@ -145,7 +254,7 @@ BetterZip 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271201.jpg" />
+  <img src="Z:/picture/008/save_picture_271201.jpg" />
 </div>
 
 
@@ -174,7 +283,7 @@ Microsoft Office Standard 2019 v16.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271105.jpg" />
+  <img src="Z:/picture/008/save_picture_271105.jpg" />
 </div>
 
 
@@ -202,7 +311,7 @@ Display Maestro 2 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271047.jpg" />
+  <img src="Z:/picture/008/save_picture_271047.jpg" />
 </div>
 
 
@@ -230,7 +339,7 @@ Quiver: The Programmer's Notebook 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271008.jpg" />
+  <img src="Z:/picture/008/save_picture_271008.jpg" />
 </div>
 
 
@@ -259,7 +368,7 @@ Contacts Journal CRM 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270996.jpg" />
+  <img src="Z:/picture/008/save_picture_270996.jpg" />
 </div>
 
 
@@ -287,7 +396,7 @@ File Cabinet Pro 7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270684.jpg" />
+  <img src="Z:/picture/008/save_picture_270684.jpg" />
 </div>
 
 
@@ -313,7 +422,7 @@ Grids for Instagram 5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270666.jpg" />
+  <img src="Z:/picture/008/save_picture_270666.jpg" />
 </div>
 
 
@@ -339,7 +448,7 @@ Adguard 2.2.2.652 nightly (CL - 1.5.113) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270630.jpg" />
+  <img src="Z:/picture/008/save_picture_270630.jpg" />
 </div>
 
 
@@ -365,7 +474,7 @@ NoteBurner Spotify Music Converter 1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270606.jpg" />
+  <img src="Z:/picture/008/save_picture_270606.jpg" />
 </div>
 
 
@@ -391,7 +500,7 @@ ACDSee Photo Studio 5.3.1401 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270552.jpg" />
+  <img src="Z:/picture/008/save_picture_270552.jpg" />
 </div>
 
 
@@ -419,7 +528,7 @@ Translate Tab 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270517.jpg" />
+  <img src="Z:/picture/008/save_picture_270517.jpg" />
 </div>
 
 
@@ -445,7 +554,7 @@ iCash 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270346.jpg" />
+  <img src="Z:/picture/008/save_picture_270346.jpg" />
 </div>
 
 
@@ -471,7 +580,7 @@ Untitled Goose Game (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270311.jpg" />
+  <img src="Z:/picture/008/save_picture_270311.jpg" />
 </div>
 
 
@@ -499,7 +608,7 @@ iMazing 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270186.jpg" />
+  <img src="Z:/picture/008/save_picture_270186.jpg" />
 </div>
 
 
@@ -526,7 +635,7 @@ Dash 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269891.jpg" />
 </div>
 
 
@@ -552,7 +661,7 @@ EdgeView 2 v2.831 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269886.jpg" />
 </div>
 
 
@@ -578,7 +687,7 @@ Affinity Publisher Beta 1.8.0.502 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269880.jpg" />
 </div>
 
 
@@ -590,113 +699,6 @@ Affinity Publisher Beta 1.8.0.502 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E84AB6C3E38E3538533367B8B90BAC1C4C8ED6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338206   (269877) от 15.11.2019
-
-Valentina Studio Pro 9.6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2019Разработчик: Paradigma SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94FA1C81652B6428D109B4F9A4C83E3B54DF9EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338434   (269790) от 15.11.2019
-
-Adobe Zii 2020 - Universal Patcher v5.0.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1993CD95AEEBCFFB10050CA2F74BAB9AF7CA9687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338427   (269711) от 15.11.2019
-
-Carbon Copy Cloner 5 v5.1.14 (build 5863) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2019Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3229C9AC50D133364DC62BF70B0A89CD6AB46173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338368   (269691) от 15.11.2019
-
-Adobe Bridge 2020 10.0.0.124 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2253A1D646B606A5F86DB5BE875B1AAA6BCFD816
 ```
 
 https://mybot314.ru/tekegram_catalog/

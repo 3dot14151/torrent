@@ -6,7 +6,7 @@ CCleaner 5.18.5607 DC 01.06.2016 Free | Professional | Business | Technician Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728067.jpg" />
+  <img src="Z:/picture/008/save_picture_728067.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Pro DC 2015.016.20045 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728065.jpg" />
+  <img src="Z:/picture/008/save_picture_728065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KMS Tools Portable 01.06.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728019.jpg" />
+  <img src="Z:/picture/008/save_picture_728019.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kinza Browser 5.3.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727845.jpg" />
+  <img src="Z:/picture/008/save_picture_727845.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vivaldi 2.3.1440.48 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727839.jpg" />
+  <img src="Z:/picture/008/save_picture_727839.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FBackup 9.5.510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727822.jpg" />
+  <img src="Z:/picture/008/save_picture_727822.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mozilla Firefox Quantum ESR 60.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727751.jpg" />
+  <img src="Z:/picture/008/save_picture_727751.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wise Registry Cleaner Pro 10.1.5.676 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727750.jpg" />
+  <img src="Z:/picture/008/save_picture_727750.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727744.jpg" />
+  <img src="Z:/picture/008/save_picture_727744.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sumatra PDF Pre-release + Portable 3.4.14268 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727739.jpg" />
+  <img src="Z:/picture/008/save_picture_727739.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FileZilla 3.58.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727736.jpg" />
+  <img src="Z:/picture/008/save_picture_727736.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Google Chrome 72.0.3626.119 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727657.jpg" />
+  <img src="Z:/picture/008/save_picture_727657.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Google Chrome 72.0.3626.119 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727650.jpg" />
+  <img src="Z:/picture/008/save_picture_727650.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Auslogics Disk Defrag Free 8.0.23.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727646.jpg" />
+  <img src="Z:/picture/008/save_picture_727646.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BurnAware Professional 3.2.0 RePack by Diablik94 [Rus/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727609.jpg" />
+  <img src="Z:/picture/005/save_picture_727609.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727592.jpg" />
+  <img src="Z:/picture/008/save_picture_727592.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ CSIBridge 2016 Advanced with Rating 18.1.1 Build 1228 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727588.jpg" />
+  <img src="Z:/picture/008/save_picture_727588.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ ScrollNavigator 5.2.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727586.jpg" />
+  <img src="Z:/picture/008/save_picture_727586.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727540.jpg" />
+  <img src="Z:/picture/008/save_picture_727540.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Auslogics File Recovery 8.0.23.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727539.jpg" />
+  <img src="Z:/picture/008/save_picture_727539.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ TechSmith Snagit 2019.1.1 Build 2860 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727538.jpg" />
+  <img src="Z:/picture/008/save_picture_727538.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ IObit Uninstaller Pro 11.3.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727527.jpg" />
+  <img src="Z:/picture/008/save_picture_727527.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Process Lasso Pro 9.0.0.304 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727428.jpg" />
+  <img src="Z:/picture/008/save_picture_727428.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Active PKiller 1.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727425.jpg" />
+  <img src="Z:/picture/008/save_picture_727425.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NVIDIA GeForce Desktop 419.17 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727421.jpg" />
+  <img src="Z:/picture/008/save_picture_727421.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ WinRAR 5.70 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727411.jpg" />
+  <img src="Z:/picture/008/save_picture_727411.jpg" />
 </div>
 
 

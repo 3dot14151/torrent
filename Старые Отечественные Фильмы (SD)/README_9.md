@@ -1,3 +1,55 @@
+###  Публикация: 976100   (966568) от 20.01.2016
+
+Верьте мне, люди (1964) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966568.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа Юрия Германа "Один год". Попав в водоворот трагических случайностей, вор-рецидивист Алексей Лапин (роль Кирилла Лаврова) бежит из лагеря за месяц до освобождения. Но, даже находясь в розыске, он не теряет веру в людей. Приехав в Ленинград, Алексей влюбляется в дочь рабочего Нину, у которого снимает комнату, - и решает начать честную жизнь... (   Читать дальше...   )Производство: СССР, Киностудия им. М.ГорькогоЖанр: ДрамаРежиссер: Владимир Беренштейн, Илья Гурин, Леонид ЛуковАктеры: Кирилл Лавров, Владимир Самойлов, Ирина Бунина, Станислав Чекан, Всеволод Кузнецов, Сергей Плотников, Валентина Беляева, Евгений Евстигнеев, Николай Парфенов, Иван Рыжов, Катя Салимжанова, Владимир Атлантов, Аркадий Трусов, Александр Орлов, Оксана ЛевинсонПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F8F9FD9B5F830FBC6DAB609A9F0D6D75C2E902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619228   (966185) от 17.02.2013
+
+Крепость (1978) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идёт последний год Второй Мировой войны. Подразделению десантников под командованием подполковника Калитина поручено проведение секретного спецзадания по освобождению европейских учёных, удерживаемых в непреступной крепости на острове в Адриатическом море.Жанр: боевик, драма, военныйРежиссер: Василе ПаскаруФормат: AVI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B87F37C7B75FCD155655ED96DE5B0E575B361F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977658   (965680) от 21.01.2016
 
 Такая она, игра (1976) SATRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965680.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965676.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965607.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_965192.jpg" />
+  <img src="Z:/picture/005/save_picture_965192.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965080.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_965021.jpg" />
+  <img src="Z:/picture/005/save_picture_965021.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964019.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963864.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962954.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962739.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961710.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961234.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961223.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960846.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960525.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959866.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959697.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959694.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959679.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959657.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958798.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958750.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958469.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958409.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C99C0D409A2B65A95F50B70535025C286676925B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748442   (957379) от 23.01.2014
-
-Смерть на взлете (1982) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский учёный Игорь Александрович Крымов работает в секретном институте и занимается исследованиями, направленными на создание экспериментальных видов бронированной стали. И тут в жизни Крымова появляется девушка Нора, представившаяся ему этнографом из Прибалтики, которая на самом деле является агентом Джильберт, работающей на западные спецслужбы.Жанр: ДетективРежиссер: Хасан БакаевАктеры: Юрий Демич, Нелли Пшенная, Борис Гусаков, Александр Дик, Константин Желдин, Николай Кочегаров, Николай Мерзликин, Анатолий Ромашин, Евгения Сабельникова, Леонид Сатановский, Виктор Фокин, Сергей ЯковлевПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C64F6B754F28120124B0491ECC959D4D758368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748490   (957363) от 23.01.2014
-
-Смерть на взлете (1982) DVBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский учёный Игорь Александрович Крымов работает в секретном институте и занимается исследованиями, направленными на создание экспериментальных видов бронированной стали. И тут в жизни Крымова появляется девушка Нора, представившаяся ему этнографом из Прибалтики, которая на самом деле является агентом Джильберт, работающей на западные спецслужбы.Жанр: ДетективРежиссер: Хасан БакаевАктеры: Юрий Демич, Нелли Пшенная, Борис Гусаков, Александр Дик, Константин Желдин, Николай Кочегаров, Николай Мерзликин, Анатолий Ромашин, Евгения Сабельникова, Леонид Сатановский, Виктор Фокин, Сергей ЯковлевПродолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94727E2F91ED6E2D58DB3A1EF854E54BD87DFB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

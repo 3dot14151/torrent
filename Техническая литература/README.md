@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061648.jpg" />
+  <img src="Z:/picture/005/save_picture_1061648.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061302.jpg" />
+  <img src="Z:/picture/005/save_picture_1061302.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060901.jpg" />
+  <img src="Z:/picture/005/save_picture_1060901.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060742.jpg" />
+  <img src="Z:/picture/005/save_picture_1060742.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060741.jpg" />
+  <img src="Z:/picture/005/save_picture_1060741.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059465.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058262.jpg" />
+  <img src="Z:/picture/005/save_picture_1058262.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058146.jpg" />
+  <img src="Z:/picture/005/save_picture_1058146.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058145.jpg" />
+  <img src="Z:/picture/005/save_picture_1058145.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058038.jpg" />
+  <img src="Z:/picture/005/save_picture_1058038.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058037.jpg" />
+  <img src="Z:/picture/005/save_picture_1058037.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057282.jpg" />
+  <img src="Z:/picture/005/save_picture_1057282.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056732.jpg" />
+  <img src="Z:/picture/005/save_picture_1056732.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Stephen Corda | Introduction to Aerospace Engineering with a Flight Test Perspec
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055688.jpg" />
+  <img src="Z:/picture/005/save_picture_1055688.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to U
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054618.jpg" />
+  <img src="Z:/picture/005/save_picture_1054618.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autono
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054469.jpg" />
+  <img src="Z:/picture/005/save_picture_1054469.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Ap
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054145.jpg" />
+  <img src="Z:/picture/005/save_picture_1054145.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054080.jpg" />
+  <img src="Z:/picture/005/save_picture_1054080.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engine
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053441.jpg" />
+  <img src="Z:/picture/005/save_picture_1053441.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052673.jpg" />
+  <img src="Z:/picture/005/save_picture_1052673.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052658.jpg" />
+  <img src="Z:/picture/005/save_picture_1052658.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052651.jpg" />
+  <img src="Z:/picture/005/save_picture_1052651.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052020.jpg" />
+  <img src="Z:/picture/005/save_picture_1052020.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051781.jpg" />
+  <img src="Z:/picture/005/save_picture_1051781.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051494.jpg" />
+  <img src="Z:/picture/005/save_picture_1051494.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048725.jpg" />
+  <img src="Z:/picture/008/save_picture_1048725.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1333789   (301458) от 26.10.2019
+
+Road To Ruin - Road To Ruin (2007) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only One (3:53)
+02. Pale Rider (5:12)
+03. Face Of An Angel (4:28)
+04. Pleasure And Pain (5:10)(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33897002548AF517A1406FDC720E5F9A55A92273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961237   (301326) от 01.12.2015
+
+Reece (ex.Accept) - Universal Language (2009) [FLAC|image+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before A Die 4:42
+02. All The Way 4:40
+03. Flying Too Close To The Flame 3:50
+04. Fantasy Man 3:30(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632960661E6079E0C575F85BFCD710A907DE3110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961138   (300932) от 01.12.2015
 
 AC/DC - Highway To Hell (1979) Japanese Edition, 1989, Atlantic [FLAC|image + .cue]<Hard Rock>
@@ -6,7 +64,7 @@ AC/DC - Highway To Hell (1979) Japanese Edition, 1989, Atlantic [FLAC|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300932.jpg" />
+  <img src="Z:/picture/008/save_picture_300932.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Hartmann - Home (2007) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299127.jpg" />
+  <img src="Z:/picture/008/save_picture_299127.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Bangalore Choir - Metaphor (2012) [FLAC|image+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299082.jpg" />
+  <img src="Z:/picture/008/save_picture_299082.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Blacktop Mojo - Under the Sun (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298945.jpg" />
+  <img src="Z:/picture/008/save_picture_298945.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Def Leppard - Def Leppard (2015) Japanese Edition [FLAC|image + .cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298719.jpg" />
+  <img src="Z:/picture/008/save_picture_298719.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Phil Campbell And The Bastard Sons - The Age Of Absurdity (2018) 2xCD, Jараn 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298070.jpg" />
+  <img src="Z:/picture/008/save_picture_298070.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ AC/DC - 29 albums, 4 Box sets, 122 CD (1974-2020) [FLAC|Lossless|image + .cue | 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297048.jpg" />
+  <img src="Z:/picture/008/save_picture_297048.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Airbourne - Boneshaker (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296814.jpg" />
+  <img src="Z:/picture/008/save_picture_296814.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Black Stone Cherry - The Human Condition (2020) [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295667.jpg" />
+  <img src="Z:/picture/008/save_picture_295667.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Michael Sweet - Ten (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293370.jpg" />
+  <img src="Z:/picture/008/save_picture_293370.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Uriah Heep - Salisbury (1970) 2CD, Remastered, 2016, Sanctuary Records [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291896.jpg" />
+  <img src="Z:/picture/008/save_picture_291896.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ AC/DC - The Razors Edge (1990) 2003, Epic [FLAC|tracks+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290617.jpg" />
+  <img src="Z:/picture/008/save_picture_290617.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287437.jpg" />
+  <img src="Z:/picture/008/save_picture_287437.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Scorpions - Best (1999) [FLAC|tracks+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286893.jpg" />
+  <img src="Z:/picture/008/save_picture_286893.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Snakes In Paradise - Step Into The Light (2018) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286459.jpg" />
+  <img src="Z:/picture/008/save_picture_286459.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Nordic Union - Second Coming (2018) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286318.jpg" />
+  <img src="Z:/picture/008/save_picture_286318.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ The Brew - 7 Albums (2008 - 2018) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286273.jpg" />
+  <img src="Z:/picture/008/save_picture_286273.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Revolution Saints - Light In The Dark (2017) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285862.jpg" />
+  <img src="Z:/picture/008/save_picture_285862.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Quatermass / Quatermass II - 2 альбома, 3CD (1970-1997) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285656.jpg" />
+  <img src="Z:/picture/008/save_picture_285656.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279998.jpg" />
+  <img src="Z:/picture/008/save_picture_279998.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Ten - Illuminati (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279472.jpg" />
+  <img src="Z:/picture/008/save_picture_279472.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Eclipse - Paradigm (2019) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279154.jpg" />
+  <img src="Z:/picture/008/save_picture_279154.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Niva - Atmospherical (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277367.jpg" />
+  <img src="Z:/picture/008/save_picture_277367.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ UFO - The Best Of The Rest (1988) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274795.jpg" />
+  <img src="Z:/picture/008/save_picture_274795.jpg" />
 </div>
 
 
@@ -686,66 +744,6 @@ UFO - The Best Of The Rest (1988) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A75417F974B50772B9F0CF34D6707A8CA20C076A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188462   (274718) от 02.12.2017
-
-McAuley Schenker Group - Save Yourself (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Yourself  (06:16) 
-02. Bad Boys  (04:05) 
-03. Anytime  (05:45) 
-04. Get Down To Bizness  (04:23) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC0A7D3A47FB8CCE4227D2118F7C86602D7A7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274019   (273490) от 23.12.2010
-
-Rainbow - 10 SHM-CD (Japanese Press 2008)[Limited Release] (1975-1986/2008) [FLAC|Lossless]<Hard Rock / Heavy Metal / AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Difficult To Cure    11:18
-02. Stone Cold    04:28
-03. Power    04:28
-04. Man On The Silver Mountain    08:19
-05. Long Live Rock 'N' Roll    07:11
-06. Weiss Heim    05:12Жанр: Hard Rock / Heavy Metal / AORПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Call of Duty: Modern Warfare 2 (2009) [Xbox360] [PAL] 8498 [FreeBoot] [License] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887380.jpg" />
+  <img src="Z:/picture/005/save_picture_887380.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JUJU (2014) [PS3] [USA] 3.41 [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886477.jpg" />
+  <img src="Z:/picture/005/save_picture_886477.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Forza Horizon 2: Fast & Furious (2015) [Xbox360] [RegionFree] 16537 [FreeBoot] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885519.jpg" />
+  <img src="Z:/picture/005/save_picture_885519.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ The Legend of Zelda: Phantom Hourglass (2007) [NDS] [USA] [Unofficial] [dpad] [R
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885128.jpg" />
+  <img src="Z:/picture/005/save_picture_885128.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Legend of Zelda: Spirit Tracks (2009) [NDS] [USA] [Unofficial] [dpad] [Ru]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885118.jpg" />
+  <img src="Z:/picture/005/save_picture_885118.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Lord of the Rings: Conquest (2009) [Xbox360] [RegionFree] 8955 [FreeBoot] [L
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883892.jpg" />
+  <img src="Z:/picture/005/save_picture_883892.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Heavy Fire: Afghanistan (2011) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883889.jpg" />
+  <img src="Z:/picture/005/save_picture_883889.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора (2010) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880434.jpg" />
+  <img src="Z:/picture/005/save_picture_880434.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Saints Row 2 (2008) [PS3] [EUR] 2.20 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880289.jpg" />
+  <img src="Z:/picture/005/save_picture_880289.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Retro Game Challenge 2 (2009) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879508.jpg" />
+  <img src="Z:/picture/005/save_picture_879508.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Soma Bringer (2009) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876168.jpg" />
+  <img src="Z:/picture/005/save_picture_876168.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Darksiders 2 (2012) [Xbox360] [RegionFree] 14719 [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874761.jpg" />
+  <img src="Z:/picture/005/save_picture_874761.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Just Dance Kids 2 (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874037.jpg" />
+  <img src="Z:/picture/008/save_picture_874037.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Jump Ultimate Stars (2006) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872737.jpg" />
+  <img src="Z:/picture/008/save_picture_872737.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Dance! It's Your Stage (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Lic
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872208.jpg" />
+  <img src="Z:/picture/008/save_picture_872208.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872196.jpg" />
+  <img src="Z:/picture/008/save_picture_872196.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Dragon Quest Swords: The Masked Queen and the Tower of Mirrors [Wii] [PAL] [Mult
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872195.jpg" />
+  <img src="Z:/picture/008/save_picture_872195.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Syberia (2015) [PS3] [EUR] 4.50 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871110.jpg" />
+  <img src="Z:/picture/008/save_picture_871110.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Grease Dance (2011) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870427.jpg" />
+  <img src="Z:/picture/008/save_picture_870427.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PS3Lock 0.7 RU Edition (2016) [PS3] [Unofficial/Repack] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869550.jpg" />
+  <img src="Z:/picture/008/save_picture_869550.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Chibi-Robo: Clean Sweep! (2009) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869391.jpg" />
+  <img src="Z:/picture/008/save_picture_869391.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ HALO3: ODST [XBOX360] [En] [Region Free] (2009)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868872.jpg" />
+  <img src="Z:/picture/008/save_picture_868872.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Winter Blast: 9 Snow & Ice Games [Wii] [NTSC] [ENG] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867927.jpg" />
+  <img src="Z:/picture/008/save_picture_867927.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Fight Night Champion (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867722.jpg" />
+  <img src="Z:/picture/008/save_picture_867722.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Madden NFL 16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867607.jpg" />
+  <img src="Z:/picture/008/save_picture_867607.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Fight Night Champion (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Repac
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867589.jpg" />
+  <img src="Z:/picture/008/save_picture_867589.jpg" />
 </div>
 
 

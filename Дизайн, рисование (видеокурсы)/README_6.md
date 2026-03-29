@@ -1,3 +1,30 @@
+###  Публикация: 1446000   (1033171) от 07.02.2021
+
+Дарья Сорокина | Графический дизайн Баухауса (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выйдя во многом из немецкого Веркбунда, графический дизайн Баухауcа вобрал в себя множество других художественных явлений из разных течений. Его особенность заключается в способности собрать разное и представить так, что появляется особый, характерный визуальный язык, максимально точно отображающий неугомонный дух ревущих двадцатых.
+Этот интенсив является второй, (   Читать дальше...   )Жанр: Графический дизайнПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F9D6DC30CDC43E59100DAA721C593CA97534E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446052   (1033110) от 07.02.2021
 
 WDI Design School | Распродажа всех видеоуроков школы Веб-дизайна W.D.I. (2019) PCRec
@@ -6,7 +33,7 @@ WDI Design School | Распродажа всех видеоуроков шко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033110.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ David Lesperance | Environment Sculpting (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032979.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Daniel Thiger | Substance Fundamentals Tutorial Part 1-5 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032924.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Kurt Williams | Creating an Alpha Pack in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032923.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Vincent Dérozier | Mosaic Creation Techniques with Substance Designer (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032897.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ David Lesperance | Environment Creation Techniques (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032895.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Daniel Thiger | Creating Roof Tiles in Substance Designer (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032888.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ Pablo Munoz Gomez | Booleans In ZBrush 4R8 (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032870.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032854.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Daniel Danielsson | The Process of Motion (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032668.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ Mehdi Salehi | Houdini Snow System Simulations (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032518.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Spencer Lueders | Introduction to FX using Houdini (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032478.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Tyler Bay | Houdini For the New Artist I (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032457.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Broadcast Design School, Юрий Довганюк | Broadcast Design School + P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032378.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Rohan Dalvi | Floating islands of Houdini 1-3 Parts (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032241.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032198.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032177.jpg" />
 </div>
 
 
@@ -462,7 +489,7 @@ Rohan Dalvi | Gears of Houdini (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032066.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ Ruben Mayor | Houdini PyroFx in Film Production (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032053.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032030.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ Rohan Dalvi | Hard surface modeling in Houdini (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032016.jpg" />
 </div>
 
 
@@ -572,7 +599,7 @@ Marc Brunet | Simple Female Figure (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031977.jpg" />
 </div>
 
 
@@ -598,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031957.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ Rohan Dalvi | User interfaces and motion graphics part 2 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031823.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ Rohan Dalvi | User interfaces and motion graphics part 3 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031816.jpg" />
 </div>
 
 
@@ -663,33 +690,6 @@ Rohan Dalvi | User interfaces and motion graphics part 3 (2014) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFD6F917B70D7F43A8D88824CDFB174EE3168133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447481   (1031774) от 13.02.2021
-
-Rohan Dalvi | User interfaces and motion graphics part 1 (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель данного урока - провести вас через процесс создания анимации motion-графики, показанной в промо-ролике.
-Идея курса состоит в том, чтобы создать множество элементов пользовательского интерфейса и графических элементов, используя SOP-ы (surface-операторы), частицы и CHOP-ы (channel-операторы). Также будут рассмотрены настройки материалов, рендеринг и финальный (   Читать дальше...   )Производство: Rohan DalviЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F650174A17A16F79B9CEB887C2B69682E900476
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Glary Utilities Pro 5.24.0.43 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715037.jpg" />
+  <img src="Z:/picture/008/save_picture_715037.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715016.jpg" />
+  <img src="Z:/picture/008/save_picture_715016.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CoolUtils Total PDF Converter 6.1.0.232 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715009.jpg" />
+  <img src="Z:/picture/008/save_picture_715009.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714999.jpg" />
+  <img src="Z:/picture/008/save_picture_714999.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft Office 2007 SP3 Standard 12.0.6785.5000 (2018.04) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714971.jpg" />
+  <img src="Z:/picture/008/save_picture_714971.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CleanMyMac 3.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714970.jpg" />
+  <img src="Z:/picture/008/save_picture_714970.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ AkelPad 4.9.3 + Plugins (х86/х64) RePack + Portable by San_dr (25.04.15) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714943.jpg" />
+  <img src="Z:/picture/008/save_picture_714943.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Reg Organizer 7.11 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714940.jpg" />
+  <img src="Z:/picture/008/save_picture_714940.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Start Menu X 5.43 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714939.jpg" />
+  <img src="Z:/picture/008/save_picture_714939.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Elea - The Remixes (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Dow
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714935.jpg" />
+  <img src="Z:/picture/008/save_picture_714935.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ CoolUtils Total Audio Converter 5.3.0.199 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714929.jpg" />
+  <img src="Z:/picture/008/save_picture_714929.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ World of Tanks Mods (2015) [Ru] (18.4) Mod Jove [Сборка модов от Jo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714928.jpg" />
+  <img src="Z:/picture/008/save_picture_714928.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mp3tag 2.94 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714920.jpg" />
+  <img src="Z:/picture/008/save_picture_714920.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714914.jpg" />
+  <img src="Z:/picture/008/save_picture_714914.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714909.jpg" />
+  <img src="Z:/picture/008/save_picture_714909.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ SQL Dynamite 2.1.3.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714908.jpg" />
+  <img src="Z:/picture/008/save_picture_714908.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_714904.jpg" />
+  <img src="Z:/picture/005/save_picture_714904.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714903.jpg" />
+  <img src="Z:/picture/008/save_picture_714903.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_714892.jpg" />
+  <img src="Z:/picture/005/save_picture_714892.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DiskDigger 1.31.53.3041 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714876.jpg" />
+  <img src="Z:/picture/008/save_picture_714876.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Tarma InstallMate 9.95.0.7518 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714874.jpg" />
+  <img src="Z:/picture/008/save_picture_714874.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Topaz Sharpen AI 2.1.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714872.jpg" />
+  <img src="Z:/picture/008/save_picture_714872.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ LogViewPlus 2.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714822.jpg" />
+  <img src="Z:/picture/008/save_picture_714822.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Google Chrome 42.0.2311.135 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714821.jpg" />
+  <img src="Z:/picture/008/save_picture_714821.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Google Chrome 42.0.2311.135 Enterprise (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714811.jpg" />
+  <img src="Z:/picture/008/save_picture_714811.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714809.jpg" />
+  <img src="Z:/picture/008/save_picture_714809.jpg" />
 </div>
 
 

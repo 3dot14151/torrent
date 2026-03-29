@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807605.jpg" />
+  <img src="Z:/picture/008/save_picture_807605.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807604.jpg" />
+  <img src="Z:/picture/008/save_picture_807604.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807595.jpg" />
+  <img src="Z:/picture/008/save_picture_807595.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807592.jpg" />
+  <img src="Z:/picture/008/save_picture_807592.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807586.jpg" />
+  <img src="Z:/picture/008/save_picture_807586.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Google Chrome 50.0.2661.87 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807585.jpg" />
+  <img src="Z:/picture/008/save_picture_807585.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ACDSee Pro 9.2 Build 524 (x86) Lite RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807582.jpg" />
+  <img src="Z:/picture/008/save_picture_807582.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ PDF-XChange Viewer Pro 2.5.317.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807579.jpg" />
+  <img src="Z:/picture/008/save_picture_807579.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807578.jpg" />
+  <img src="Z:/picture/008/save_picture_807578.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ AIMP 4.60 Build 2180 (17.05.2020) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807563.jpg" />
+  <img src="Z:/picture/008/save_picture_807563.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Tails 0.18 [анонимный доступ в сети] [i386] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807540.jpg" />
+  <img src="Z:/picture/008/save_picture_807540.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Batch It Ultra 3.9896 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807518.jpg" />
+  <img src="Z:/picture/008/save_picture_807518.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Entrails - Obliteration (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807496.jpg" />
+  <img src="Z:/picture/008/save_picture_807496.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Paste 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807492.jpg" />
+  <img src="Z:/picture/008/save_picture_807492.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ RapidWeaver 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807483.jpg" />
+  <img src="Z:/picture/008/save_picture_807483.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Bigasoft Video Downloader Pro 3.14.1.6285 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807480.jpg" />
+  <img src="Z:/picture/008/save_picture_807480.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ One Chat - All in one Messenger 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807479.jpg" />
+  <img src="Z:/picture/008/save_picture_807479.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807476.jpg" />
+  <img src="Z:/picture/008/save_picture_807476.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807474.jpg" />
+  <img src="Z:/picture/008/save_picture_807474.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Uninstall Tool 3.4.5 Build 5432 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807465.jpg" />
+  <img src="Z:/picture/008/save_picture_807465.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ CyberLink PowerDVD Ultra 20.0.1519.62 RePack by Lisabon [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807432.jpg" />
+  <img src="Z:/picture/008/save_picture_807432.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Namo WebEditor 9.0.0 RETAIL [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807377.jpg" />
+  <img src="Z:/picture/008/save_picture_807377.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807355.jpg" />
+  <img src="Z:/picture/008/save_picture_807355.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Folx Pro 5.2.13682 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807349.jpg" />
+  <img src="Z:/picture/008/save_picture_807349.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ In'R'Voice - Metadreams Pt. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807347.jpg" />
+  <img src="Z:/picture/008/save_picture_807347.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Chris Duarte Group - Texas Sugar / Strat Magik (1994) [APE|Lossless|image + .cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807343.jpg" />
+  <img src="Z:/picture/008/save_picture_807343.jpg" />
 </div>
 
 

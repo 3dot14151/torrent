@@ -1,3 +1,119 @@
+###  Публикация: 978450   (963643) от 23.01.2016
+
+Anna Farrow - Days & Moods (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travelling Melody
+02. Happy Fool
+03. Feeling Good
+04. Time Warp(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31AA0B1827275D129FF1CA37D73D5F1FE1AAD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978401   (963630) от 23.01.2016
+
+Al Jawala - Hypnophonic (2016) [FLAC|Lossless|WEB-DL|tracks] <World Fusion, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Wake up
+02 Al Bint El Chalabia
+03 Road to Eldorado
+04 Voodoo Rag(   Читать дальше...   )Жанр: World Fusion, Jazz-PopПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2FF7524BA4530188BE4E1C068D04CBE63DE005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978387   (963628) от 23.01.2016
+
+Konstantin Klashtorni - Groove Jazz N Chill #4 (2015) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamcatcher (5:19)
+ 02. Whispers (4:53)
+ 03. Drops In The Ocean (4:11)
+ 04. Beyond Me (5:26)(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 00:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EADE349BC501E2477C320744410584D90ED8ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359848   (963328) от 13.02.2020
+
+Trio Transition (1998) DIW [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear A Rhapsody [8:13]
+02. Shades of Angola [8:37]
+03. Up Jumped Spring [9:48]
+04. No Sidestepping [6:07](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9685AF54396A7FAFAD4AD3D0D898BE81BC2DF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978674   (962626) от 24.01.2016
 
 Actis Dato Quartet - World Tour (2009) Actisdato[FLAC|tracks+.cue] <Avant-Garde Jazz, Free Improvisation>
@@ -6,7 +122,7 @@ Actis Dato Quartet - World Tour (2009) Actisdato[FLAC|tracks+.cue] <Avant-Garde 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962626.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Eumir Deodato - First Cuckoo (1975) 2006, Universal[FLAC|tracks+.cue] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962614.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Doris Day - Sentimental Journey (1950-e) 4CD, 2006, Proper Records[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962517.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Duke Ellington & Count Basie - First Time! Count Meets Duke (2001) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962440.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Konstantin Klashtorni - Love Suggestions/Guitar Night (2014) [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962418.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Konstantin Klashtorni - Kool & Klean (Volume V) (2014) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962413.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Konstantin Klashtorni - Love Suggestions: Piano Night (2013) [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962411.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Alfa Mist - Nocturne (2015) [FLAC|Lossless|WEB-DL|tracks] <Indie, Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962155.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Thelonious Monk - The Complete Albums Collection 1954-57 (2015) 5CD, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961927.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ One For All - What's Going On? (2007) Venus Records[FLAC|image+.cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961242.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Earl Bostic - The Earl Bostic Story (1950-e) 4CD, 2006, Proper Records[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960951.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Peggy Lee - Miss Wonderful (1930-1940-e) 4CD, 2006, Proper Records[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959870.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Ted Curson - Pop Wine 1971 (2013) Futura Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959480.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Paul Hardcastle - Hardcastle VII (2013) [FLAC|Lossless]<Nu Jazz, Lounge, Chillou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959014.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Richard Elliot - Lip Service (2014) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958981.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Joe Henderson And Kikuchi, Hino - In Concert (1971) Remaster, 2015, Unversal[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958587.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Dave McKenna - A Handful Of Stars (1993) Concord[FLAC|tracks+.cue] <Mainstream J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958584.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ John Coltrane - Out Of This World (1956-1963) 3CD, 2014, Le Chant Du Monde[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958575.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Marilyn Scott - Every Time We Say Goodbye (2008) Venus Records[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958514.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Teddy Charles And His Sextet - Salute To Hamp (1958) Remaster, 2014, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957471.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Clark Terry - Clark Terry 1955 (1997) [FLAC|tracks+.cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957469.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Dave McKenna - My Friend The Piano (1986) 1990, Concord[FLAC|tracks+.cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957465.jpg" />
 </div>
 
 
@@ -628,119 +744,6 @@ Dave McKenna - My Friend The Piano (1986) 1990, Concord[FLAC|tracks+.cue] <Mains
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1934DF5B9D4E98086778FD3A1CBEE7AD4D5977C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980170   (957439) от 28.01.2016
-
-Giovanni Guidi Trio - 2 Albums - City Of Broken Dreams / This Is The Day (2013 / 2015) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trilly (05:19)
- 02. Carried Away (06:07)
- 03. Game Of Silence (07:27)
- 04. The Cobweb (03:14)(   Читать дальше...   )Жанр: Contemporary Jazz |Продолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5B2F4B9885DA6F410A265816BF46AD8B26F885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980097   (957355) от 28.01.2016
-
-Northern Lite vs. The White Noize - Wooden Playground (2014) [FLAC|Lossless|image + .cue] <Acoustic, Easy Listening, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Even When [3:40]
- 02. Begging You [3:49]
- 03. In Japan [6:43]
- 04. Enemy [3:25](   Читать дальше...   )Жанр: Acoustic, Easy Listening, JazzПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB77901035B1B98B27A3F3B3BD231D7EC72B09BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623126   (956739) от 25.02.2013
-
-Matt Bianco - Hideaway (2012) [FLAC|Lossless]<Smooth Jazz, Bossanova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Smooth Jazz, BossanovaПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980578   (956052) от 29.01.2016
-
-Kenny G - The Very Best Of (1994) limited Edition [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever in Love
-02. Waiting for You
-03. By the Time This Night is Over
-04. Jasmine Flower(   Читать дальше...   )Жанр: JazzПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68136AE8AF79386F318D79B3144359CE1117562D
 ```
 
 https://mybot314.ru/tekegram_catalog/

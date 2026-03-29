@@ -1,3 +1,173 @@
+###  Публикация: 1748052   (44178) от 08.09.2024
+
+Квартирник у Маргулиса. Drummatix (07.09.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Drummatix — сценическое имя Екатерины Бардыш, исполнительницы хип-хопа, битмейкера и актрисы. Псевдоним объединяет две ее страсти: музыку и театральное искусство. Исполнительница популярна как на хип-хоп, так и на альтернативной сцене, потому что её песни — гремучая смесь из фастфлоу с налетом хардкора и этно. Кроме того, артистка много экспериментирует: Екатерина (   Читать дальше...   )00:00:05 Тайлаган
+00:05:19 Успокой
+00:11:23 Темным по Белому
+00:17:41 Временно(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Хип-хоп, этно ("симбиоз" фолк-вокала и хип-хопа)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481DD81CB9FEDB027CF94824C48C4CEFDE7FD816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 307909   (43535) от 15.09.2024
+
+Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник концертных выступлений, рекламных роликов и видеоклипов известной британской группы «Manfred Mann's Earth Band».01. Blinded By The Light (Top Of The Pops, BBC TV UK - 1976)
+02. Joybringer (Hits A Go-Go, Swiss TV - 1973)
+03. Don't Kill It Carol (Promo Video - 1979)
+04. Brothers And Sisters Of Africa (Tour Cartoon - 1983)(   Читать дальше...   )Жанр: Rock, Jazz-Rock, Pop-Rock, British Invasion, Prog-Rock, Art RockПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEE1B41FFFF741D81F9C0A698A45C2E517D7262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163517   (43505) от 15.09.2024
+
+B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот DVD представляет собой запись живого концерта в «Black EntertainmentTelevisionStudio» в Вашингтоне.01. Two I Shoot Blues
+02. Let The Good Times Roll
+03. I'll Survive
+04. Bad Case Of Love(   Читать дальше...   )Жанр: Jazz, Муз.видеоРежиссер: Bet On JazzУчастники: Би Би Кинг & CoПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3ABEB30C8CA170545A43AD7EB6DE16297464841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749681   (43457) от 15.09.2024
+
+Квартирник у Маргулиса. Юбилей Александра Реввы (14.09.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александру Ревве — 50! Певец, актер, продюсер, актер озвучки и шоумен устроил юбилейный концерт на сцене «Квартирника». Ревва давно вышел за рамки своего юмористического амплуа: его герой-мачо Артур Пирожков, придуманный 15 лет назад, стал не просто самостоятельным артистом00:00:05 Запутался
+00:07:45 Красивая песня
+00:14:10 Плачь, детка!
+00:19:00 Летим со мной(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: PopСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FC6CE7AB380F55D5D700093BC596D42E8588EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440040   (43438) от 16.09.2024
+
+Замок в ущелье Гина / Санкт-Петербург, 5 канал (1998) VHSRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телепостановка по мотивам западноевропейских сказок.Жанр: сказка, спектакльРежиссер: Валерий ОбогреловПродолжительность: 00:50:57
+
+Качество видео: какое есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EBA0F90C23D668992624EAFCB8A7183FC81CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439066   (43437) от 16.09.2024
+
+Солярис (1968) DVDRip [H.265] [10-bit] (2 серии из 2)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три человека на планете Солярис оказываются в предельной, нечеловеческой ситуации. Окруженные своими «гостями», они должны решать, что делать. Для доктора Сарториуса главное — долг перед наукой, истиной, которая выше жалости и морали. Снаут гнется под тяжестью обрушившихся на него проблем — научных и нравственных.Производство: СССР, Центральное ТелевидениеЖанр: Телеспектакль, фантастика, драмаРежиссер: Борис Ниренбург, Лия ИшимбаеваАктеры: Владимир Этуш, Василий Лановой, Анатолий Кацынский, Антонина Пилюс, Виктор Зозулин, Вячеслав ДугинСубтитры: ОтсутствуютПродолжительность: 02:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEED6C01CB51ADD70429E3C7116562B64C1A2B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749928   (43341) от 16.09.2024
 
 МузЛофт-подкаст / МузLoft. Оксана Почепа (Акула) (2024) WEBRip [H.264/1080p]
@@ -6,7 +176,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43341.jpg" />
 </div>
 
 
@@ -33,7 +203,7 @@ ABBA - Super Troupers (Ultimate Edition) (2004) [2xDVD5, DVD9]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43212.jpg" />
 </div>
 
 
@@ -62,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43190.jpg" />
 </div>
 
 
@@ -88,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42988.jpg" />
 </div>
 
 
@@ -114,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42959.jpg" />
 </div>
 
 
@@ -140,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42947.jpg" />
 </div>
 
 
@@ -167,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42865.jpg" />
 </div>
 
 
@@ -196,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42710.jpg" />
 </div>
 
 
@@ -225,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42356.jpg" />
 </div>
 
 
@@ -252,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42338.jpg" />
 </div>
 
 
@@ -278,7 +448,7 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42145.jpg" />
 </div>
 
 
@@ -307,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42075.jpg" />
 </div>
 
 
@@ -333,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42047.jpg" />
 </div>
 
 
@@ -362,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42031.jpg" />
 </div>
 
 
@@ -389,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41987.jpg" />
 </div>
 
 
@@ -418,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41956.jpg" />
 </div>
 
 
@@ -445,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41947.jpg" />
 </div>
 
 
@@ -471,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41937.jpg" />
 </div>
 
 
@@ -499,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41936.jpg" />
 </div>
 
 
@@ -525,7 +695,7 @@ Linkin Park: From Zero (Live Stream) (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41479.jpg" />
 </div>
 
 
@@ -536,169 +706,6 @@ Linkin Park: From Zero (Live Stream) (2024) WEBRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D7EFE2301C685A220BF0E19A265A894B1E193A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336202   (41400) от 05.10.2024
-
-Одолжите тенора! (2017) WEBRip [H.264/1080p-LQ] МДТ им. Пушкина
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьеса Кена Людвига «Одолжите тенора!» — это классическая комедия положений, действие которой разворачивается в Америке 30-х годов. Молодого певца Макса никто не воспринимает всерьёз: ни любимая девушка, ни её отец – продюсер. Все словно околдованы знаменитым тенором Тито Мерелли. И вот стараниями папы-продюсера Мерелли приезжает на гастроли вместе со своей женой (   Читать дальше...   )Производство: Россия | Театр имени А.С. ПушкинаЖанр: комедия, спектакльРежиссер: Евгений ПисаревАктеры: Александр Арсентьев, Сергей Лазарев, Вера Воронкова, Александр Матросов, Анна Бегунова, Ирина Бякова, Екатерина Клочкова, Игорь ХрипуновСубтитры: отсутствуютПродолжительность: 02:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0121733F747E1130709F5693D82812E6DC5F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335773   (41399) от 05.10.2024
-
-Девичник Club (2014) WEBRip [H.264/1080p-LQ] МДТ им. Пушкина
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия спектакля Московского Драматического Театра им. А.С. Пушкина, "Девичник Club".
-После почти одновременной смерти мужей, три верные вдовы создают собственный клуб, заседания которого традиционно проходят на кладбище у могил их благоверных. Проходит немало лет, но один раз в месяц они продолжают ходить на кладбище. Правда, с годами эти посиделки (   Читать дальше...   )Производство: Россия | Кинокомпания "ВИРГОС"Жанр: комедия, спектакльРежиссер: Надежда АракчееваАктеры: Вера Алентова, Мария Аронова, Лариса Голубкина, Борис Дьяченко, Екатерина СибиряковаСубтитры: отсутствуютПродолжительность: 02:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F474E00B18F35C1019B5F87B7B8BDE795CAA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753688   (41260) от 06.10.2024
-
-Квартирник у Маргулиса. Тайм-Аут. Мотологический Новый год (05.10.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41260.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — ансамбль мотологической музыки «Тайм-Аут». Рок-группа была основана в 1987 году басистом Александром Минаевым и гитаристом Павлом Молчановым.
-Несгибаемые адепты гротескного рока, создатели абсурдистских эпосов, среди музыки 90-х они выделялись не только бесшабашностью и по-панковски отвязной концертной энергетикой, но и наличием собственной (   Читать дальше...   )00:00:08  Жизнь без бабла
-00:06:45  Ночь-луна
-00:13:21  Я люблю кататься
-00:21:10  Осень(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: рокСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037D62DC32EFBC417762910ED79230DB2504FF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753676   (41243) от 06.10.2024
-
-Sting - Radio 2 in the Park (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41243.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 сентября 2024 гоад в Мур Парк, Престон, выступил Стинг. Это выступление, закончило его тур "STING 3.0". Стинг выступает вместе с давним коллегой и гитаристом Домиником Миллером и динамичным барабанщиком Крисом Маасом из Mumford & Sons fame. Стинг исполняет подборку из своей дискографии. В концерте звучат песни как из сольной карьеры Стина, так и неожиданные (   Читать дальше...   )Производство: США / ВВСЖанр: концерт, рок, попРежиссер: Надя Данн, Майкл ГрейАктеры: Стинг, Доминик Миллер, Крис МаасПеревод: Не требуетсяЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D6CB20D9692BAEDA123E5C5A3900E58B88E42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754014   (41066) от 08.10.2024
-
-The Offspring - Hurricane Festival (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фестиваль HURRICANE - это ежегодный музыкальный фестиваль, который проводится в Шисселе, небольшом городке в Нижней Саксонии, Германия. Фестиваль имеет богатую историю и проводится с 1997 года. Этот фестиваль собирает звездный состав участников, среди которых были такие хедлайнеры, как Foo Fighters, Mumford & Sons и Arctic Monkeys. Фестиваль проходит в Айхенринге, (   Читать дальше...   )Производство: Германия / FKP Scorpio Konzertproduktionen GmbHЖанр: концерт, рокАктеры: Декстер Холланд, Кевин «Нудлз» Вассерман, Тодд Морс, Брэндон Перцборн, Джона НимойПеревод: Не требуетсяЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121D1578B769911F59205C4633ADBD8DE66CB8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713334   (40898) от 09.10.2024
-
-Rammstein: Paris (2017) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40898.jpg" />
-</div>
-
-
-###  Подробнее
-
-With 22 songs from the band’s whole repertoire, the resulting film isn’t just the most spectacular concert film to date about the band that is currently the most successful German rock band – it’s a masterpiece of music cinema! A total tapestry of ever-changing images awaits the viewer.
-
-Åkerlund is notorious for his radical, pioneering videos, which are ablaze (   Читать дальше...   )Производство: Universal MusicЖанр: IndustrialАктеры: Flake Lorenz, Till Lindemann, Christoph SchneiderПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF17F2FCAC9837DB4970763598A75FFFC0302EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

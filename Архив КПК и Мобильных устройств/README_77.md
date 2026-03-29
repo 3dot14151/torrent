@@ -1,3 +1,30 @@
+###  Публикация: 653866   (362285) от 25.10.2017
+
+VPlayer 3.2.6 [RU]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362285.jpg" />
+</div>
+
+
+###  Подробнее
+
+VPlayer - очередной видеопроигрыватель на Android. Этот функциональный плеер способен воспроизводить самые популярные видео файлы. Поддерживает форматы: MOV, AVI, FLV, MKV, 3GP, WMV, 3G2, ASF, TP, TS, MTP, M2T, MP4, M4VРазработчик: Xuan Yi XiaПоддерживаемая ОС: Android 2.3+Субтитры: - (Advanced) SubStation Alpha (.ssa/.ass), SAMI (.smi), SubViewer (.sub), Subrip (.srt), MicroDVD (.sub), MPL2 (.txt)
+ - MKV subtitle extraction supportedЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1DA3C3F49E76669EE1DFACA7A3E94C3D71AF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577080   (361102) от 18.11.2012
 
 [Blackberry 9800][1024х600] Патруль / End of Watch (2012) DVDRip
@@ -6,7 +33,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_361102.jpg" />
+  <img src="Z:/picture/005/save_picture_361102.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361087.jpg" />
+  <img src="Z:/picture/008/save_picture_361087.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Power Clean 2.9.0.12 [Ru/Multi] - Чистильщик
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360677.jpg" />
+  <img src="Z:/picture/008/save_picture_360677.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Tank Fury (Online) v1.00 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360422.jpg" />
+  <img src="Z:/picture/005/save_picture_360422.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Hugo Retro Mania v1.0.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360194.jpg" />
+  <img src="Z:/picture/005/save_picture_360194.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360076.jpg" />
+  <img src="Z:/picture/005/save_picture_360076.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Dead Effect 2 v2151027.1540 + Mod Money [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360025.jpg" />
+  <img src="Z:/picture/008/save_picture_360025.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Ultimate Rotation Control 4.6.2 (2012) <Ru/En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_359787.jpg" />
+  <img src="Z:/picture/005/save_picture_359787.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_359599.jpg" />
+  <img src="Z:/picture/005/save_picture_359599.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ vpnify - Безлимитный VPN 2.0.0-rc18 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359117.jpg" />
+  <img src="Z:/picture/008/save_picture_359117.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ Paranormal Escape / Паранормальный побег V1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358096.jpg" />
+  <img src="Z:/picture/008/save_picture_358096.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ Lifeline V1.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357945.jpg" />
+  <img src="Z:/picture/008/save_picture_357945.jpg" />
 </div>
 
 
@@ -318,7 +345,7 @@ WhatsFish HD 1.2.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357884.jpg" />
+  <img src="Z:/picture/005/save_picture_357884.jpg" />
 </div>
 
 
@@ -344,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357709.jpg" />
+  <img src="Z:/picture/008/save_picture_357709.jpg" />
 </div>
 
 
@@ -370,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357706.jpg" />
+  <img src="Z:/picture/008/save_picture_357706.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357128.jpg" />
+  <img src="Z:/picture/008/save_picture_357128.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ OfficeSuite Premium (PDF & HD) Mod v8.8.6139 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356712.jpg" />
+  <img src="Z:/picture/008/save_picture_356712.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ Stick Stunt Biker 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_356187.jpg" />
+  <img src="Z:/picture/005/save_picture_356187.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ Doodle Bowling 1.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_356175.jpg" />
+  <img src="Z:/picture/005/save_picture_356175.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ Subway Zombies 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_355869.jpg" />
+  <img src="Z:/picture/005/save_picture_355869.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ LibriVox Аудиокниги Pro v9.0.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355818.jpg" />
+  <img src="Z:/picture/008/save_picture_355818.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ Ice Age Village / Ледниковый период: Деревушка v3.4.2c 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355331.jpg" />
+  <img src="Z:/picture/008/save_picture_355331.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ MIUI 6 - Launcher Theme v86.0[En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355113.jpg" />
+  <img src="Z:/picture/008/save_picture_355113.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355109.jpg" />
+  <img src="Z:/picture/008/save_picture_355109.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ Ice Age Village / Ледниковый Период: Приключения v1.8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355098.jpg" />
+  <img src="Z:/picture/008/save_picture_355098.jpg" />
 </div>
 
 
@@ -645,32 +672,6 @@ Ice Age Village / Ледниковый Период: Приключения v1.8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE560913482BA247DB6357A57660064A3C4765DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952471   (355097) от 01.11.2015
-
-Веселая ферма 3: Ледниковая Эра v1.0 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холода давно закончились, однако на Северном полюсе лютый мороз и холод круглый год. Но нам не стоит унывать, так как у нас есть игра Веселая ферма 3: Ледниковая Эра на андроид. Как и все предыдущие фермы, которые выпустила компания, эта очень похожа на оригинальную игру, но на PC она имела название «Весёлая ферма 3. Ледниковый период». В этой игре мы помогаем девушке (   Читать дальше...   )Тип издания: Лицензия (Full с маркета, ломать не требуется)Релиз состоялся: 12 мая 2015 г.Разработчик: Alawar Entertainment, Inc.Поддерживаемая ОС: Android 4.0+Жанр: Аркады / КазуальныеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1284E37281D50CC7CA31785C5013B52DD5C60535
 ```
 
 https://mybot314.ru/tekegram_catalog/

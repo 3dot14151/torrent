@@ -1,3 +1,111 @@
+###  Публикация: 1118182   (810565) от 26.03.2017
+
+Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_810565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Великобритания / Allison Shearmur Productions, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Диего Луна, Алан Тьюдик, Донни Йен, Вэнь Цзян, Бен Мендельсон, Форест Уитакер, Риз Ахмед, Мадс Миккельсен, Джимми СмитсПеревод: Дублированный (iTunes)Субтитры: Русские (форс., стилизованные, хардсаб), Русские, Английские (полные)Продолжительность: 02:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0EC4ED77C33F176627EF2142AD06A8197E1F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937486   (810553) от 26.03.2017
+
+Книжная серия | Межавторский цикл «Пограничье» [9 книг. Обновляемая] (2013-2017) [FB2, EPUB]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_810553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Центрум. Центральный мир вселенной, окруженный лепестками других миров, среди которых и наша Земля.
+
+Когда-то Центрум был велик и силен, но катастрофа отбросила его в прошлое.
+(   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B760FC840B5D534B16457C8E988FB206ADBEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864224   (810488) от 01.04.2015
+
+Черные паруса / Black Sails (2015) HDTVRip [H.264/720p-LQ] (Сезон 2, серии 1-10 из 10) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_810488.jpg" />
+</div>
+
+
+###  Подробнее
+
+1715 год. Золотой век — вершина пиратства в Карибском море. Остров бывшей британской колонии Нью-Провиденс является территорией беззакония, контролируемый самыми известными пиратскими капитанами в истории. Самым грозным из них является капитан Флинт.Но британский флот возвращается в эти воды, угрожая уничтожить Флинта и его команду. Движимый глубокими, сложными, (   Читать дальше...   )Производство: США, ЮАРЖанр: Драма, приключенияРежиссер: Нил Маршалл, Сэм Миллер, Т.Дж. СкоттАктеры: Тоби Стивенс, Ханна Нью, Люк Арнольд, Зэк Макгоун, Тоби Шмитц, Клара Пэджет, Марк Райан, Хаким Кае-Казим, Дилан Скьюс, Шон Майкл и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmОзвучка / Автор перевода: Студия «LostFilm»
+ВНИМАНИЕ! В сериале присутствуют сцены сексуального характера и ненормативная лексика!Продолжительность: ~ 00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D68FBF1442218047787161C7D4B7E862F4D67A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504249   (809473) от 24.10.2021
+
+Петровы в гриппе (2021) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петровы — самая обычная семья. Он — автослесарь, она — библиотекарь, у них есть сын, но вместе они не живут. Казалось бы, ничего особенного. Но повседневная реальность взрывается в тот момент, когда семья заболевает гриппом, и жизнь наполняется безумием, фантастикой и сюрреализмом.Производство: Россия, Франция, Швейцария, Германия, Фонд «Кинопрайм», Bord Cadre Films, CharadesЖанр: драма, фантастикаРежиссер: Кирилл СеребренниковАктеры: Семён Серзин, Чулпан Хаматова, Юлия Пересильд, Юрий Колокольников, Юра Борисов, Иван Дорн, Александр Ильин мл., Сергей Дрейден, Тимофей Трибунцев, Владислав СемилетковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B712E26627AE63CB1F9A1FC21079D722556271F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503342   (809471) от 24.10.2021
 
 KMS Tools Portable by Ratiborus 18.10.2021 [Multi/Ru]
@@ -6,7 +114,7 @@ KMS Tools Portable by Ratiborus 18.10.2021 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809471.jpg" />
+  <img src="Z:/picture/008/save_picture_809471.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809470.jpg" />
+  <img src="Z:/picture/008/save_picture_809470.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679) Repack =nemos= [Warmastered Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809397.jpg" />
+  <img src="Z:/picture/008/save_picture_809397.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ HTML Academy | Интенсивный онлайн-курс «Базовый HTM
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809394.jpg" />
+  <img src="Z:/picture/008/save_picture_809394.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809391.jpg" />
+  <img src="Z:/picture/008/save_picture_809391.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ Cимуляторы офисных звуков с чавкающими колл
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_809248.jpg" />
+  <img src="Z:/picture/005/save_picture_809248.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ Windows 10 Pro 1909 b18363.836 x64 ru by SanLex (edition 2020-05-15) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809234.jpg" />
+  <img src="Z:/picture/008/save_picture_809234.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809232.jpg" />
+  <img src="Z:/picture/008/save_picture_809232.jpg" />
 </div>
 
 
@@ -215,7 +323,7 @@ Uninstall Tool 3.4.5 Build 5430 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809221.jpg" />
+  <img src="Z:/picture/008/save_picture_809221.jpg" />
 </div>
 
 
@@ -241,7 +349,7 @@ UC Browser 5.6.11651.1013 Portable by Sitego [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809216.jpg" />
+  <img src="Z:/picture/008/save_picture_809216.jpg" />
 </div>
 
 
@@ -267,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_808980.jpg" />
+  <img src="Z:/picture/005/save_picture_808980.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ WinPE 10 Sergei Strelec (x86/x64) 2016.04.21 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808972.jpg" />
+  <img src="Z:/picture/008/save_picture_808972.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ Nero 2016 Platinum 17.0.04500 Retail + ContentPack [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808969.jpg" />
+  <img src="Z:/picture/008/save_picture_808969.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808887.jpg" />
+  <img src="Z:/picture/008/save_picture_808887.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ Jetbrains PhpStorm 2017.1 Build #PS-171.3780.104 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808548.jpg" />
+  <img src="Z:/picture/008/save_picture_808548.jpg" />
 </div>
 
 
@@ -400,7 +508,7 @@ Geekbrains | PHP. Уровень 1 Основы веб-разработки (201
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808475.jpg" />
+  <img src="Z:/picture/008/save_picture_808475.jpg" />
 </div>
 
 
@@ -426,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807883.jpg" />
+  <img src="Z:/picture/008/save_picture_807883.jpg" />
 </div>
 
 
@@ -455,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807667.jpg" />
+  <img src="Z:/picture/008/save_picture_807667.jpg" />
 </div>
 
 
@@ -481,7 +589,7 @@ Skype 8.13.0.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807634.jpg" />
+  <img src="Z:/picture/008/save_picture_807634.jpg" />
 </div>
 
 
@@ -507,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807614.jpg" />
+  <img src="Z:/picture/008/save_picture_807614.jpg" />
 </div>
 
 
@@ -533,7 +641,7 @@ BioShock Remastered Dilogy (2016) [Ru] (1.0.122872/1.0.122864) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807611.jpg" />
+  <img src="Z:/picture/008/save_picture_807611.jpg" />
 </div>
 
 
@@ -559,7 +667,7 @@ Uninstall Tool 3.4.5 Build 5432 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807299.jpg" />
+  <img src="Z:/picture/008/save_picture_807299.jpg" />
 </div>
 
 
@@ -570,113 +678,6 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2467B2D9BAB7F68FDA7710FE8ECBB909DB513635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009569   (807191) от 22.04.2016
-
-Opera Developer 38.0.2205.0 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera developer обновляется несколько раз в неделю и позволяет узнать, какие особенности и функции появятся в новых продуктах.
-Будьте осторожны! Ранние версии предназначены для разработчиков, создателей расширений и пользователей, которые хотят как можно скорее оценить новый продукт.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F58BA677C8D4344130AEAD37051159C3480605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009366   (807032) от 22.04.2016
-
-Замена термопасты на жидкий металл
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_807032.jpg" />
-</div>
-
-
-###  Подробнее
-
-CoolLaboratory Liquid ProЗдравствуйте, дорогие мои читатели!
-Сегодня я расскажу вам о применении жидкого металла CoolLaboratoryLiquid Pro в качестве термоинтерфейса на примере своего основного ПК.
-Как вам уже известно, что я сделал выравнивание со шлифованием,- Mirror glassy mod(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009202   (807014) от 22.04.2016
-
-Сын Саула / Saul fia (2015) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аушвиц, 1944 год. Саул Аусландер — еврейский пленный и член зондеркоманды. Его работа — сопровождать в недолгий путь узников, которые прибывают в лагерь беспрестанно. Потом — зачищать следы их присутствия и ждать новых. Среди тысяч людей, проходящих через газовую камеру, один выживает на считанные минуты. Саул узнает в нем своего сына и решает во что бы то ни стало (   Читать дальше...   )Производство: ВенгрияЖанр: Триллер, Драма, ВоенныйРежиссер: Ласло НемешАктеры: Геза Рёриг, Левенте Молнар, Урс Рехн, Тодд Шармон, Ежи Валцак, Шандор Жотер, Марцин Чарнецки, Левенте ОрбанПеревод: Двуголосый закадровыйПродолжительность: 01:46:55Реклама: Присутствуют вставки голосовой и текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB930070E9F94DD5620F69E7EFEE51B1F1090D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119547   (806652) от 28.03.2017
-
-Mozilla Firefox 52.0.2 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5E446852E01D25366BBA431171EF56719C5561
 ```
 
 https://mybot314.ru/tekegram_catalog/

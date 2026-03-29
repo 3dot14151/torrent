@@ -1,3 +1,160 @@
+###  Публикация: 631181   (677619) от 07.07.2013
+
+Злые птички / Angry Birds Toons (2013) SATRip (1 сезон, серий 16 из 52)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мульсериал студии Rovio о мегапопулярных Злых птичках. Почему эти существа настолько злые, а Свиней называют Королевскими? Ответим на все вопросы!)Жанр: Компьютерная анимация, комедия, приключенияРежиссер: Ким ХельминенПеревод: Без слов / НемойПродолжительность: 16 x ~ 00:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3416C7BB484EDE90FFA150637D3EED95C2AA1232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223211   (676870) от 03.05.2018
+
+Facebook начал ранжировать СМИ по рейтингу достоверности
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_676870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основатель Facebook Марк Цукерберг заявил, что социальная сеть начала ранжировать СМИ по рейтингу достоверности, пишет BuzzFeed.Цукерберг встретился с группой руководителей средств массовой информации после выступления на ежегодной конференции разработчиков F8. Во встрече приняли участие представители BuzzFeed News, New York Times, CNN, Wall Street Journal, NBC, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223268   (676742) от 03.05.2018
+
+Kaspersky Internet Security 2019 19.0.0.1088 (Technical Release) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Internet Security 2019 - комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ. Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB73C4969D0CA90C41E1571243DE24082483EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223046   (676737) от 03.05.2018
+
+Драка в блоке 99 / Brawl in Cell Block 99 (2017) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший боксер и наркодилер Брэдли Томас пытался завязать с преступным прошлым, но оно затащило его обратно. Он с подельниками попался с поличным и отправился в тюрьму на 7 лет. И всё это так не вовремя, жена беременна долгожданной дочкой, а тут ещё на свиданку заявляется непонятный тип и, шантажируя нерожденным ребенком, велит Брэдли убить заключённого в блоке 99 (   Читать дальше...   )Производство: США / Assemble Media, Caliber Media Company, Cinestate, Realmbuilders Productio, XYZ FilmsЖанр: Боевик, триллер, криминалРежиссер: С. Крэйг ЗалерАктеры: Винс Вон, Дженнифер Карпентер, Том Гайри, Дон Джонсон, Марк Блукас, Удо Кир, Мустафа Жакир, Гено Седжерс, Роб Морган, Фред МеламедПеревод: Дублированный, авторский (Дохалов)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 02:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13665FFE6D0D368A3DADA0D064D0D542AF0C361D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849621   (676630) от 17.05.2015
+
+Посредник / The Middleman (2008) WEB-DLRip (сезон 1, серии 1-8 из 12) (ViruseProject) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художница и убеждённая пацифистка Венди Ватсон занимает важную должность в захватывающе интересном мире временных подработок - отвечает на звонки в научно-исследовательской лаборатории. Точнее, отвечала, пока на неё не напал результат вышедшего из-под контроля генетического эксперимента.
+Тут бы и сказочке конец, не разбирайся девушка в комиксах и видеоиграх, которые (   Читать дальше...   )Производство: СШАЖанр: фантастика, драма, комедия, пародияРежиссер: Джеримайя С. Чечик, Майкл Цинберг, Гай НорманАктеры: Мэтт Кислар, Грабь награбленное, Натали Моралес, Бритт Морган, Мэри Пэт Глисон, Джэйк Смоллетт, Брендан П. Хайнс, Дрю Тайлер Белл, Шон Дэвис, Элэйн Хендрикс, Марк Шеппард, Марк Дакаскос и др.Перевод: Многоголосый закадровый, профессиональный - ViruseProjectОзвучка: Елена Емельянова, Марина Видякина, Алексей Кизуб, Дмитрий Иванов, Алекс ВиккеПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC7899188499A8E12FDEF5FED5E3E260402EE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 898837   (676621) от 17.05.2015
+
+Autodesk AutoCAD Architecture 2016 7.8.44.0 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676621.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD Architecture — это версия AutoCAD, созданная специально для проектирования строительных объектов. Инструменты архитектурного черчения позволяют более эффективно проектировать и создавать документацию в привычной программной среде AutoCAD. Рост производительности труда в AutoCAD Architecture по сравнению с традиционными САПР наблюдается уже с первой минуты, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CEC81C97C564FB0899D6C237BC3EFDC393BD5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135385   (676164) от 21.05.2017
 
 Босс-молокосос / The Boss Baby (2017) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676164.jpg" />
+  <img src="Z:/picture/008/save_picture_676164.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_675979.jpg" />
+  <img src="Z:/picture/005/save_picture_675979.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ AMD подтвердила, что её процессоры не подверж
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675844.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675826.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675739.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ Linux Mint 18 Sarah (Mate, Cinnamon) [32bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675705.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675617.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675613.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675482.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674927.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ Space Engineers Deluxe Edition (2013) [Ru/Multi] (01.186.5) License [Steam Early
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674911.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674850.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ NVIDIA GeForce Desktop 352.86 WHQL + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674671.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ Adobe Photoshop CC 2014.2.2 (20141204.r.310) Registered & Unattended RePack by a
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674546.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674539.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674206.jpg" />
+  <img src="Z:/picture/008/save_picture_674206.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674037.jpg" />
+  <img src="Z:/picture/008/save_picture_674037.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_673798.jpg" />
+  <img src="Z:/picture/005/save_picture_673798.jpg" />
 </div>
 
 
@@ -481,7 +638,7 @@ Final Cut Pro X 10.4.6 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673709.jpg" />
+  <img src="Z:/picture/008/save_picture_673709.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673705.jpg" />
+  <img src="Z:/picture/008/save_picture_673705.jpg" />
 </div>
 
 
@@ -520,170 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3534932FB5347F5984CE61DA83864851853FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290992   (673690) от 22.03.2019
-
-Ловушка времени / Time Trap (2017) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа студентов отправляются в пещеры Техаса, чтобы найти своего любимого преподавателя по археологии, пропавшего без вести некоторое время назад. Ребята уверены, что он нуждается в помощи, а раз спасатели не смогут оперативно выполнить эту работу, то у них не остается выбора. Студенты готовы рисковать собственными жизнями ради спасения своего преподавателя. Кроме (   Читать дальше...   )Производство: США | Filmsmith Productions, Pad Thai Pictures, Rising Phoenix CastingЖанр: Фантастика, боевик, приключенияРежиссер: Mark Dennis, Бен ФостерАктеры: Эндрю Уилсон, Кэссиди Гиффорд, Брианна Хоуи, Рейли МакКлендон, Оливия Драгусевич, Макс Райт, Ганс Марреро, Рич Скидмор, Крис Старджон, Гопал БидариПеревод: Дублированный (iTunes), Многоголосый закадровый (HDRezka Studio)Субтитры: Pусские (Forced), английские (Full)Продолжительность: 01:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C4F671190792E2D676B9C4004BDF7ECE10915E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337559   (673601) от 16.05.2011
-
-В субботу (2011) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673601.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 апреля 1986-го года — первый день после аварии на Чернобыльской АЭС. Суббота «незнания». Суббота, когда жизнь нельзя отменить, когда девушки надевают выходные туфли на каблуках — потому что суббота — выходной день. События фильма разворачиваются в первые 24 часа с момента аварии. Главный герой картины становится невольным свидетелем катастрофы. Случайно он узнает (   Читать дальше...   )Производство: Россия, Германия, Украина / Кинокомпания «Нон-стоп продакшн»Жанр: ДрамаРежиссер: Александр МиндадзеАктеры: Антон Шагин, Светлана Смирнова-Марцинкевич, Станислав Рядинский, Вячеслав Петкун, Сергей Громов, Алексей Демидов, Василий ГузовПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5078F6A04236B3BEFCE8A921F6A95074E08C93D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023995   (673519) от 30.06.2016
-
-Hearts of Iron IV (2016) [Ru/Multi] (1.1.0.5d33/dlc) Repack =nemos= [Field Marshal Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hearts of Iron IV позволяет игрокам встать во главе Второй мировой войны, управляя любой из участвующих в конфликте страной. Можно выбрать супердержаву и постараться повести ее к тотальному завоеванию мира, или сыграть за небольшое государство, пытающееся выжить в смутные времена. Глубина стратегии Hearts of Iron IV в том, что для достижения победы нужно не только (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF4F005B981CF219DCEF9DF268906DE699AC4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030329   (673517) от 30.06.2016
-
-SpeedFan 4.52 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673517.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpeedFan - утилита для контроля материнской платы - температура, напряжения, скорости вентиляторов, а также за температурой жестких дисков (если они поддерживают эту функцию). Крайне положительная черта SpeedFan, выделяющая эту программу среди аналогичных - умение изменять скорость вращения вентиляторов, в том числе в зависимости от температуры внутри системного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89ADAA7C26F78C0DB3423C43778FFC27F9C60E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018219   (673516) от 30.06.2016
-
-Игра престолов / Game of Thrones (2016) HDTVRip (сезон 6, серии 1-10 из 10) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестой сезон популярного американского фэнтези-телесериала, созданного по мотивам цикла романов Джорджа Мартина.Производство: США /  Home Box Office (HBO), Television 360, Grok! StudioЖанр: фэнтези, драма, приключенияРежиссер: Алан Тейлор, Дэвид Наттер, Алекс ГрейвзАктеры: Питер Динклэйдж, Лина Хиди, Эмилия Кларк, Кит Харингтон, Николай Костер-Вальдау, Мэйси Уильямс, Софи Тернер, Айзек Хемпстед-Райт, Шон Бин, Чарльз Дэнс и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют заставка и логотип LostFilm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E35C9B8BB1117D745EE5CB2EE62DDAEE93315F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214977   (673142) от 01.07.2010
-
-QIP Infium 2.0.9036 Final (Grey Pack) v1.2 + Portable [русский + английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_673142.jpg" />
-</div>
-
-
-###  Подробнее
-
-QIP Infium 2.0.9036 Final (Grey Pack) v1.2 + PortableГод выпуска: 2010
-Версия ядра: 2.0.9036 Final
-Версия сборки: 1.2
-Разработчики: Ильгам Зюлькорнеев,
-Сергей Галездинов (основной разработчик)
-Автор сборки: Grey
-Сайт сборки
-Форум сборки
-Группа ВКонтакте(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

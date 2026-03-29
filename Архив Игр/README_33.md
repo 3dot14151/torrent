@@ -6,7 +6,7 @@ Race On [Ru/En] (RePack) 2009 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597354.jpg" />
+  <img src="Z:/picture/005/save_picture_597354.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CheMax 12.3 [Ru] / 13.5 [En] / CheMax FC 3.1 [Ru/Multi]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597232.jpg" />
+  <img src="Z:/picture/005/save_picture_597232.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597202.jpg" />
+  <img src="Z:/picture/008/save_picture_597202.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Shank - Дилогия (RePack/1.03/1.0dc120305) [Ru/En] 2010-2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597069.jpg" />
+  <img src="Z:/picture/008/save_picture_597069.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.3) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596875.jpg" />
+  <img src="Z:/picture/008/save_picture_596875.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Jagged Alliance: Back in Action / Jagged Alliance: Снова в деле + 6 DL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596711.jpg" />
+  <img src="Z:/picture/008/save_picture_596711.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Wolfenstein (RePack/1.2) [Ru/En] 2009 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596706.jpg" />
+  <img src="Z:/picture/008/save_picture_596706.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Universe Sandbox (2015) [Ru/Multi] (30.0.1) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595870.jpg" />
+  <img src="Z:/picture/008/save_picture_595870.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Warlock: Master of the Arcane [Ru] (RePack/1.2.1.42) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595345.jpg" />
+  <img src="Z:/picture/008/save_picture_595345.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595332.jpg" />
+  <img src="Z:/picture/008/save_picture_595332.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Deadly Premonition (2013) [Ru/En] (1.01b) Repack Audioslave [Director's Cut]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595243.jpg" />
+  <img src="Z:/picture/008/save_picture_595243.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.6) License CODEX [Patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593751.jpg" />
+  <img src="Z:/picture/008/save_picture_593751.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ City Car Driving (2016) [Ru] (1.5.8) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593426.jpg" />
+  <img src="Z:/picture/008/save_picture_593426.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Green Hell (2018) [Ru/En] (0.5.5) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593071.jpg" />
+  <img src="Z:/picture/008/save_picture_593071.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Youropa (2018) [Ru/Multi] (22925) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592820.jpg" />
+  <img src="Z:/picture/008/save_picture_592820.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ The Forest (2014) [Ru/En] (0.19C) Repack xGhost [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592186.jpg" />
+  <img src="Z:/picture/008/save_picture_592186.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ The Forest (2014) [En] (0.19с) Repack Crisis2010 [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591721.jpg" />
+  <img src="Z:/picture/008/save_picture_591721.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.1.1b/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591702.jpg" />
+  <img src="Z:/picture/008/save_picture_591702.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Zombie Army Trilogy (2015) [Ru/En] (1.6.5.01) Repack R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590275.jpg" />
+  <img src="Z:/picture/008/save_picture_590275.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Reborn Online (2013) [Ru/En] (2015.07.02) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590274.jpg" />
+  <img src="Z:/picture/008/save_picture_590274.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.7) Repack D!akov
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589021.jpg" />
+  <img src="Z:/picture/008/save_picture_589021.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ukiyo no Shishi (2015) [PS3] [JPN] 4.65 [License] [Jp]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588544.jpg" />
+  <img src="Z:/picture/008/save_picture_588544.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Book of Demons (2016) [En] (0.71.10232+) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588097.jpg" />
+  <img src="Z:/picture/008/save_picture_588097.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ SpaceEngine (2016) [Ru/Multi] (0.9.8.0) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588000.jpg" />
+  <img src="Z:/picture/008/save_picture_588000.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ World of Tanks (2010) [Ru] (0.9.9) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587609.jpg" />
+  <img src="Z:/picture/008/save_picture_587609.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587599.jpg" />
+  <img src="Z:/picture/008/save_picture_587599.jpg" />
 </div>
 
 

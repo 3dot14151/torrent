@@ -6,7 +6,7 @@
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606985.jpg" />
+  <img src="Z:/picture/008/save_picture_606985.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605396.jpg" />
+  <img src="Z:/picture/008/save_picture_605396.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Turbo: Super Stunt Squad (2013) [PS3] [USA] 4.40 [Cobra ODE / E3 ODE PRO ISO] [U
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604706.jpg" />
+  <img src="Z:/picture/008/save_picture_604706.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Blood Drive (2010) [PS3] [PAL/NTSC] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficia
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604621.jpg" />
+  <img src="Z:/picture/008/save_picture_604621.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Tekken Hybrid (2012) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604598.jpg" />
+  <img src="Z:/picture/008/save_picture_604598.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Cars 3: Driven to Win (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602811.jpg" />
+  <img src="Z:/picture/008/save_picture_602811.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Skylanders: Spyro's Adventure (2013) [WiiU] [JAP] 5.5.1 [WUP Installer] [License
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602346.jpg" />
+  <img src="Z:/picture/008/save_picture_602346.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Organ Trail: Complete Edition (2016) [PS4] [USA] 5.05 [HEN] [License / 1.04] [En
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601974.jpg" />
+  <img src="Z:/picture/008/save_picture_601974.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Arcana Heart 3: LOVE MAX!!!!! (2014) [PS3] [USA] 4.60 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600923.jpg" />
+  <img src="Z:/picture/008/save_picture_600923.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Beowulf: The Game (2007) [PS3] [EUR] 1.94 [Cobra ODE / E3 ODE PRO ISO] [Unoffici
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599074.jpg" />
+  <img src="Z:/picture/008/save_picture_599074.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598791.jpg" />
+  <img src="Z:/picture/008/save_picture_598791.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Brave [Wii] [PAL] [Multi 5] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598723.jpg" />
+  <img src="Z:/picture/008/save_picture_598723.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598716.jpg" />
+  <img src="Z:/picture/008/save_picture_598716.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598709.jpg" />
+  <img src="Z:/picture/008/save_picture_598709.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Ben 10 Omniverse 2 (2013) [PS3] [USA] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597539.jpg" />
+  <img src="Z:/picture/008/save_picture_597539.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Earth Defense Force 2025 (2013) [PS3] [USA] 4.50 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597439.jpg" />
+  <img src="Z:/picture/008/save_picture_597439.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Prototype (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597329.jpg" />
+  <img src="Z:/picture/008/save_picture_597329.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Ride (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595761.jpg" />
+  <img src="Z:/picture/008/save_picture_595761.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595349.jpg" />
+  <img src="Z:/picture/008/save_picture_595349.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Just Dance 2019 Mod (2019) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594605.jpg" />
+  <img src="Z:/picture/008/save_picture_594605.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The Club (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594250.jpg" />
+  <img src="Z:/picture/008/save_picture_594250.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Sushi Striker: The Way of Sushido (2018) [3DS] [EUR] 11.7 [CIA] [Unofficial] [En
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593596.jpg" />
+  <img src="Z:/picture/008/save_picture_593596.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Tomb Raider: Underworld (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592185.jpg" />
+  <img src="Z:/picture/008/save_picture_592185.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mafia III: Definitive Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.12 / DL
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591948.jpg" />
+  <img src="Z:/picture/008/save_picture_591948.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Anarchy Reigns (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591726.jpg" />
+  <img src="Z:/picture/008/save_picture_591726.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Cabela's Adventure Camp (2011) [PS3][PS MOVE][EUR] 3.72 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591723.jpg" />
+  <img src="Z:/picture/008/save_picture_591723.jpg" />
 </div>
 
 

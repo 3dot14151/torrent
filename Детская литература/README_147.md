@@ -1,3 +1,29 @@
+###  Публикация: 729970   (307312) от 03.12.2013
+
+В. Дитякин | Леонардо да Винчи (1959) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307312.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о замечательной жизни гениального итальянского художника и ученого Леонардо да Винчи (1452 — 1519). Леонардо да Винчи жил и творил в эпоху итальянского Возрождения, о которой Фридрих Энгельс писал: «Это был величайший прогрессивный переворот из всех пережитых до того времени человечеством, эпоха, которая нуждалась в титанах и которая породила титанов по силе мысли, страсти и характеру, по многосторонности и учености». Таким титаном эпохи Возрождения и был Леонардо да Винчи. Он вошел в историю человечества не только как художник и ученый, но и как инженер, строитель, писатель и архитектор. Юный читатель с интересом прочитает эту книгу о гениальном художнике и ученом Леонардо да Винчи.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA21FED7265CFE2B26BD17A10808BA69BBABD24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 729279   (307305) от 03.12.2013
 
 Л. Яковлев | Мальчик с пальчик (1997) [PDF]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307305.jpg" />
+  <img src="Z:/picture/008/save_picture_307305.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307303.jpg" />
+  <img src="Z:/picture/008/save_picture_307303.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307209.jpg" />
+  <img src="Z:/picture/008/save_picture_307209.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307144.jpg" />
+  <img src="Z:/picture/008/save_picture_307144.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307127.jpg" />
+  <img src="Z:/picture/008/save_picture_307127.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307124.jpg" />
+  <img src="Z:/picture/008/save_picture_307124.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306886.jpg" />
+  <img src="Z:/picture/008/save_picture_306886.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306885.jpg" />
+  <img src="Z:/picture/008/save_picture_306885.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306786.jpg" />
+  <img src="Z:/picture/008/save_picture_306786.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306686.jpg" />
+  <img src="Z:/picture/008/save_picture_306686.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306681.jpg" />
+  <img src="Z:/picture/008/save_picture_306681.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306483.jpg" />
+  <img src="Z:/picture/008/save_picture_306483.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306481.jpg" />
+  <img src="Z:/picture/008/save_picture_306481.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306378.jpg" />
+  <img src="Z:/picture/008/save_picture_306378.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305654.jpg" />
+  <img src="Z:/picture/008/save_picture_305654.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305626.jpg" />
+  <img src="Z:/picture/008/save_picture_305626.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305625.jpg" />
+  <img src="Z:/picture/008/save_picture_305625.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305622.jpg" />
+  <img src="Z:/picture/008/save_picture_305622.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305621.jpg" />
+  <img src="Z:/picture/008/save_picture_305621.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305567.jpg" />
+  <img src="Z:/picture/008/save_picture_305567.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305093.jpg" />
+  <img src="Z:/picture/008/save_picture_305093.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305028.jpg" />
+  <img src="Z:/picture/008/save_picture_305028.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305014.jpg" />
+  <img src="Z:/picture/008/save_picture_305014.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304983.jpg" />
+  <img src="Z:/picture/008/save_picture_304983.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304867.jpg" />
+  <img src="Z:/picture/008/save_picture_304867.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A41C1E1B9ABDADF514D6956CE36CD458F44F3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730124   (304866) от 04.12.2013
-
-Михаил Демиденко | Приключения Альберта Козлова (1971) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автобиографический роман о военном детстве.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B57B59FE753FCD2CBD9BCDF61864274BBB8AE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

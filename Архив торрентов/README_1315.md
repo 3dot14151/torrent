@@ -6,7 +6,7 @@ KVLT - KLVLT (2013) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758227.jpg" />
+  <img src="Z:/picture/008/save_picture_758227.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Autism - ((Vibro)) (2002) Segment [FLAC|Lossless|tracks+.cue] <IDM, Abstract, Mi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758226.jpg" />
+  <img src="Z:/picture/005/save_picture_758226.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Hermann & Kleine - Our Noise (2002) Morr Music [FLAC|Lossless|tracks+.cue] <IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758224.jpg" />
+  <img src="Z:/picture/008/save_picture_758224.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Autism - Empty Kingdoms (1995 - 2007) (2007) Segment [FLAC|Lossless|tracks+.cue]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758223.jpg" />
+  <img src="Z:/picture/008/save_picture_758223.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Coil performed by VA - …It Just Is (In Memoriam: Jhonn Balance) (2005) Fulldoz
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758219.jpg" />
+  <img src="Z:/picture/008/save_picture_758219.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Certain Creatures - Nasadiya Sukta (2018) Mysteries Of The Deep [FLAC|Lossless|W
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758214.jpg" />
+  <img src="Z:/picture/008/save_picture_758214.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Vulva - Birdwatch (1996) Rephlex [FLAC|Lossless|tracks+.cue] <Techno, IDM, Acid>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758213.jpg" />
+  <img src="Z:/picture/008/save_picture_758213.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758206.jpg" />
+  <img src="Z:/picture/008/save_picture_758206.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758204.jpg" />
+  <img src="Z:/picture/008/save_picture_758204.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ USB Oblivion 1.11.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758198.jpg" />
+  <img src="Z:/picture/008/save_picture_758198.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ WinHex 19.7 х86 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758185.jpg" />
+  <img src="Z:/picture/008/save_picture_758185.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Boris FX Continuum 12.0.0 Plug-ins for Adobe RePack by PooShock 12.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758174.jpg" />
+  <img src="Z:/picture/008/save_picture_758174.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ John Tejada - The Matrix Of Us (2000) deFocus [FLAC|Lossless|tracks+.cue] <Leftf
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758110.jpg" />
+  <img src="Z:/picture/008/save_picture_758110.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Certain Creatures - Interpretations Vol I - Nasadiya Sukta (2018) Mysteries Of T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758109.jpg" />
+  <img src="Z:/picture/008/save_picture_758109.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758104.jpg" />
+  <img src="Z:/picture/008/save_picture_758104.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758102.jpg" />
+  <img src="Z:/picture/008/save_picture_758102.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758099.jpg" />
+  <img src="Z:/picture/008/save_picture_758099.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758083.jpg" />
+  <img src="Z:/picture/005/save_picture_758083.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ ACDSee Photo Studio Ultimate 2019 12.1 Build 1656 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758082.jpg" />
+  <img src="Z:/picture/008/save_picture_758082.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758077.jpg" />
+  <img src="Z:/picture/005/save_picture_758077.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ nVIDIA GeForce ION Driver (for Notebooks) 267.76 WHQL [Многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758029.jpg" />
+  <img src="Z:/picture/005/save_picture_758029.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758017.jpg" />
+  <img src="Z:/picture/008/save_picture_758017.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2021122301) License GOG [Digital De
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757997.jpg" />
+  <img src="Z:/picture/008/save_picture_757997.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757959.jpg" />
+  <img src="Z:/picture/008/save_picture_757959.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757958.jpg" />
+  <img src="Z:/picture/008/save_picture_757958.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757956.jpg" />
+  <img src="Z:/picture/008/save_picture_757956.jpg" />
 </div>
 
 

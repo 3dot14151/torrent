@@ -6,7 +6,7 @@ Anti-Porn 24.1.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793079.jpg" />
+  <img src="Z:/picture/008/save_picture_793079.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wondershare Video Converter Ultimate 9.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793077.jpg" />
+  <img src="Z:/picture/008/save_picture_793077.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793071.jpg" />
+  <img src="Z:/picture/008/save_picture_793071.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Secure Eraser Pro 5.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792918.jpg" />
+  <img src="Z:/picture/008/save_picture_792918.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PicturesToExe Deluxe 9.0.15 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792874.jpg" />
+  <img src="Z:/picture/008/save_picture_792874.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BurnAware Professional / Premium 14.9 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792836.jpg" />
+  <img src="Z:/picture/008/save_picture_792836.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Slimjet 32.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792835.jpg" />
+  <img src="Z:/picture/008/save_picture_792835.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792818.jpg" />
+  <img src="Z:/picture/008/save_picture_792818.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Balabolka 2.15.0.805 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792785.jpg" />
+  <img src="Z:/picture/008/save_picture_792785.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ ActivePresenter Professional Edition 7.0.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792784.jpg" />
+  <img src="Z:/picture/008/save_picture_792784.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Aiseesoft Video Converter Ultimate 9.2.36 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792780.jpg" />
+  <img src="Z:/picture/008/save_picture_792780.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Text Filter 1.7.0 Build 832 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792773.jpg" />
+  <img src="Z:/picture/008/save_picture_792773.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ WonderFox HD Video Converter Factory Pro 24.3 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792758.jpg" />
+  <img src="Z:/picture/008/save_picture_792758.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792757.jpg" />
+  <img src="Z:/picture/008/save_picture_792757.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ApowerREC 1.5.1.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792756.jpg" />
+  <img src="Z:/picture/008/save_picture_792756.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Notepad++ 8.1.9.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792754.jpg" />
+  <img src="Z:/picture/008/save_picture_792754.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ IObit Smart Defrag Pro 7.2.0.91 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792751.jpg" />
+  <img src="Z:/picture/008/save_picture_792751.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sidify Music Converter 2.4.1 RePack (& portable) by elchupacabra (для Spotify
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792731.jpg" />
+  <img src="Z:/picture/008/save_picture_792731.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ BleachBit 4.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792720.jpg" />
+  <img src="Z:/picture/008/save_picture_792720.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mozilla Firefox ESR 52.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792707.jpg" />
+  <img src="Z:/picture/008/save_picture_792707.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ KMS Tools Portable 01.01.2019 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792702.jpg" />
+  <img src="Z:/picture/008/save_picture_792702.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Opera 50.0.2762.67 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792678.jpg" />
+  <img src="Z:/picture/008/save_picture_792678.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Mozilla Firefox Quantum 58.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792675.jpg" />
+  <img src="Z:/picture/008/save_picture_792675.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Alcohol 120% 2.0.3.10121 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792667.jpg" />
+  <img src="Z:/picture/008/save_picture_792667.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.8 Build 6302 Stable RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792624.jpg" />
+  <img src="Z:/picture/008/save_picture_792624.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ BELOFF [dp] 2021.11.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792621.jpg" />
+  <img src="Z:/picture/008/save_picture_792621.jpg" />
 </div>
 
 

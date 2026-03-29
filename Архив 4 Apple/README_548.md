@@ -1,3 +1,109 @@
+###  Публикация: 1650615   (225939) от 02.08.2023
+
+QLab 5.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225939.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2023 Figure 53, LLC.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFD4AF1B6D084C6021C36068E4DDC5EE3C48283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342390   (225938) от 01.12.2019
+
+Wondershare Recoverit 8 v8.3.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749CE825AC94815A415E943836AFEEF7B7BBD355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513437   (225937) от 28.11.2021
+
+PhotosBlender 2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225937.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotosBlender - это приложение для комбинирования фотографий по горизонтали или вертикали с использованием градиентного смешивания на стыках. Если результат не такой, как вы ожидали, дважды проверьте, совпадают ли размер и разрешение изображений.
+PhotosBlender «обрежет» результат, чтобы он соответствовал ширине или высоте самой маленькой фотографии. Если вы хотите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2021Разработчик: © 2020 Limit Point LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964B9CA5D8131F00C4D083ED5A2B13AC744AD66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513376   (225929) от 28.11.2021
+
+VideoProc Converter 4.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225929.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoProc - новая усовершенствованная версия прежнего MacX HD Video Converter, теперь более мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA13E42A56CF85932DED04074FD1104835EB30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650620   (225924) от 02.08.2023
 
 Amadeus Pro 2.8.13 [Multi]
@@ -6,7 +112,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225924.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ WonderPen 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225919.jpg" />
+  <img src="Z:/picture/005/save_picture_225919.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Valentina Studio Pro 11.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225903.jpg" />
+  <img src="Z:/picture/005/save_picture_225903.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ NetWorker Pro 7.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225887.jpg" />
+  <img src="Z:/picture/005/save_picture_225887.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ BetterSnapTool 1.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225862.jpg" />
+  <img src="Z:/picture/005/save_picture_225862.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Tipard Mac Video Converter Ultimate 10.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225849.jpg" />
+  <img src="Z:/picture/005/save_picture_225849.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ VisualDiffer 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225840.jpg" />
+  <img src="Z:/picture/005/save_picture_225840.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ AirRadar 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225839.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ Deponia  [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225822.jpg" />
+  <img src="Z:/picture/005/save_picture_225822.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ PCalc  4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225812.jpg" />
+  <img src="Z:/picture/005/save_picture_225812.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ TechTool Pro 6.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225808.jpg" />
+  <img src="Z:/picture/005/save_picture_225808.jpg" />
 </div>
 
 
@@ -304,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225773.jpg" />
+  <img src="Z:/picture/005/save_picture_225773.jpg" />
 </div>
 
 
@@ -330,7 +436,7 @@ VideoProc Converter 4K 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225745.jpg" />
+  <img src="Z:/picture/005/save_picture_225745.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ Typora 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225731.jpg" />
+  <img src="Z:/picture/005/save_picture_225731.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ Pixelmator Pro 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225711.jpg" />
+  <img src="Z:/picture/005/save_picture_225711.jpg" />
 </div>
 
 
@@ -410,7 +516,7 @@ Wondershare UniConverter 13.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225704.jpg" />
+  <img src="Z:/picture/005/save_picture_225704.jpg" />
 </div>
 
 
@@ -437,7 +543,7 @@ iA Writer 5.6.16  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225695.jpg" />
+  <img src="Z:/picture/005/save_picture_225695.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ Capture One 22 Pro Beta 3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225684.jpg" />
+  <img src="Z:/picture/005/save_picture_225684.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ TG Pro (Temperature Gauge Pro) 2.63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225660.jpg" />
+  <img src="Z:/picture/005/save_picture_225660.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ Photos Exif Editor 2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225654.jpg" />
+  <img src="Z:/picture/005/save_picture_225654.jpg" />
 </div>
 
 
@@ -546,7 +652,7 @@ Serial Box 12.2019 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225630.jpg" />
+  <img src="Z:/picture/005/save_picture_225630.jpg" />
 </div>
 
 
@@ -575,7 +681,7 @@ El Capitan Cache Cleaner 10.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225606.jpg" />
+  <img src="Z:/picture/005/save_picture_225606.jpg" />
 </div>
 
 
@@ -587,113 +693,6 @@ El Capitan Cache Cleaner - комплексный инструмент для о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4C7BC1E42689817747C521F57E7C9407E7A102C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342126   (225544) от 01.12.2019
-
-PhotoBulk: watermark in batch 2.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225544.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoBulk 2 это кардинальное обновление одной из лучших программ для пакетной обработки фотографий, которая позволяет устанавливать множество водяных знаков (как текстовых так и графических), оптимизировать, переименовывать, конвертировать и изменять размер сотен и тысяч фотографий в один клик.
-
-У новой версии полностью переработанный интерфейс, который стал еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.09.2019Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Испанский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFAE2D988A81BE98DE3BFF423574D05606F4A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513420   (225524) от 28.11.2021
-
-Bartender 4 v4.1.21 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF78E6BCE05124906D2A5E48C6B5AD51994E494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650481   (225519) от 02.08.2023
-
-4K Video Downloader Pro for Mac 4.26.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.07.2023Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A853D3548C23C677F0564AAEAF98FF0EB87F384C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513389   (225507) от 28.11.2021
-
-Wondershare PDFelement Pro 8.5.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225507.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: © 2021 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3787211C85EC9E538C744C424FB5C211190242DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 886386   (668808) от 25.05.2017
+
+Re-Kan! / Ре-Кан! [2015, TV, 13] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хибики Амами, темноволосая красавица из старинного рода синтоистских священников, перевелась в новую старшую школу. С такой внешностью и манерами быть бы ей очередной «принцессой», если бы не странные репризы, что регулярно выдает новенькая – то с пустым местом заговорит, то по улице вприсядку пойдет. Хибики даже не таилась перед новыми знакомыми, а сразу честно (   Читать дальше...   )Производство: Япония, Pierrot Plus / ぴえろプラスЖанр: комедия, мистикаРежиссер: Кудо МасасиСубтитры: Надписи, отключаемые (Вшитые) | RusПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE095596FEE240AB34D9530A594906FBD2FC7EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007077   (668690) от 25.05.2017
 
 Netoge no Yome wa Onnanoko ja Nai to Omotta? / А ты думал, что девушки не бывают в Сети? [2016, TV, 12] HDTV 720p rus
@@ -6,7 +32,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? / А ты думал, что дев
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668690.jpg" />
+  <img src="Z:/picture/008/save_picture_668690.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gake no ue no Ponyo / Рыбка Поньо на утесе [2008] BDRip 720p ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665542.jpg" />
+  <img src="Z:/picture/008/save_picture_665542.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Ao no Exorcist: Kyoto Fujouou Hen / Синий Экзорцист: Нечест�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660799.jpg" />
+  <img src="Z:/picture/008/save_picture_660799.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Mitsuboshi Colors / Трехцветные звездочки [2018, TV, 12 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658498.jpg" />
+  <img src="Z:/picture/008/save_picture_658498.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Slow Start / Медленный старт [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658456.jpg" />
+  <img src="Z:/picture/008/save_picture_658456.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Ansatsu Kyoushitsu: Second Season / Assassination Classroom: Second Season / К�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652943.jpg" />
+  <img src="Z:/picture/008/save_picture_652943.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Garo: Guren no Tsuki / Garo: Crimson Moon / Гаро: Кровавая луна 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651030.jpg" />
+  <img src="Z:/picture/008/save_picture_651030.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Rescue Me! / Возьми меня! [2013, OVA, 1ep] BDrip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649313.jpg" />
+  <img src="Z:/picture/008/save_picture_649313.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Hai-Furi / Haifuri / High School Fleet / Морская школа [2016, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649002.jpg" />
+  <img src="Z:/picture/008/save_picture_649002.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Kiznaiver / Кизнайвер [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647079.jpg" />
+  <img src="Z:/picture/008/save_picture_647079.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Koutetsujou no Kabaneri / Kabaneri of the Iron Fortress / Кабанери из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647077.jpg" />
+  <img src="Z:/picture/008/save_picture_647077.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Sword Art Online: Alicization / Мастера меча онлайн: Алиси
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640484.jpg" />
+  <img src="Z:/picture/008/save_picture_640484.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Seisen Cerberus / Шестой Цербер [2016, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639352.jpg" />
+  <img src="Z:/picture/008/save_picture_639352.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Hunter x Hunter / Охотник х Охотник [TV-2] [2011, TV, 1-136 из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630165.jpg" />
+  <img src="Z:/picture/008/save_picture_630165.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ VIPER'S CREED / Змеиное кредо [2009, TV, 12] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629798.jpg" />
+  <img src="Z:/picture/008/save_picture_629798.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629312.jpg" />
+  <img src="Z:/picture/008/save_picture_629312.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628898.jpg" />
+  <img src="Z:/picture/008/save_picture_628898.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627322.jpg" />
+  <img src="Z:/picture/008/save_picture_627322.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ High School DxD Hero | Демоны старшей школы 4 [2018, TV, 13] H
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627321.jpg" />
+  <img src="Z:/picture/008/save_picture_627321.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi / Мастерска
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626200.jpg" />
+  <img src="Z:/picture/008/save_picture_626200.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Kurogane no Linebarrels / Linebarrels of Iron / Стальные Лайнбар�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625900.jpg" />
+  <img src="Z:/picture/008/save_picture_625900.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Shinsekai Yori / From the New World / Из Нового Мира [2012, TV, 25 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621452.jpg" />
+  <img src="Z:/picture/005/save_picture_621452.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Busou Shoujo Machiavellianism / Armed Girl's Machiavellism / Тирания во
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621224.jpg" />
+  <img src="Z:/picture/008/save_picture_621224.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records / Акашийские хрон�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621222.jpg" />
+  <img src="Z:/picture/008/save_picture_621222.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Yakusoku no Neverland / The Promised Neverland / Обещанный Неверл
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619926.jpg" />
+  <img src="Z:/picture/008/save_picture_619926.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Yakusoku no Neverland / The Promised Neverland / Обещанный Неверл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B35C90B5699E248FE00CCE5A8495864D8DCA596C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136412   (617568) от 27.06.2017
-
-Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Масамунэ Изуми оказался в весьма непростой ситуации. Ему всего 15 лет, а на него уже свалилось столько жизненных тягот: нужно ходить в школу, делать уроки, содержать дом, да ещё и ухаживать за своей младшей сестрой Сагири Изуми. И всё это без помощи родителей! Проблема в том, что Масамунэ не видел лица своей сестры с того самого момента, как она переехала (   Читать дальше...   )Жанр: Комедия, Драма, РомантикаРежиссер: Такэсита РёхэйПеревод: N.O. & ElViSЯзык озвучки: Японский и РусскийСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025616A83C0D94BB8A195E40AD0613FAA2908084
 ```
 
 https://mybot314.ru/tekegram_catalog/

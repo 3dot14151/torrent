@@ -6,7 +6,7 @@ BBC: Происхождение человека [3 серии] / Origins of Us 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757566.jpg" />
+  <img src="Z:/picture/008/save_picture_757566.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757007.jpg" />
+  <img src="Z:/picture/008/save_picture_757007.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756708.jpg" />
+  <img src="Z:/picture/008/save_picture_756708.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756693.jpg" />
+  <img src="Z:/picture/008/save_picture_756693.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BBC. Horizon: Путешествия во времени (2003) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755951.jpg" />
+  <img src="Z:/picture/008/save_picture_755951.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755936.jpg" />
+  <img src="Z:/picture/008/save_picture_755936.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ BBC: Грязные города. Средневековый Лондон [ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755835.jpg" />
+  <img src="Z:/picture/008/save_picture_755835.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755285.jpg" />
+  <img src="Z:/picture/008/save_picture_755285.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754816.jpg" />
+  <img src="Z:/picture/008/save_picture_754816.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754814.jpg" />
+  <img src="Z:/picture/008/save_picture_754814.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC: Погружение на Галапагосах (Подводный мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754309.jpg" />
+  <img src="Z:/picture/008/save_picture_754309.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BBC. Мир природы. Лобо. Волк, который изменил А
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754216.jpg" />
+  <img src="Z:/picture/008/save_picture_754216.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ BBC: Корень всех зол? [2 серии] / The Root of All Evil? (2006)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754035.jpg" />
+  <img src="Z:/picture/008/save_picture_754035.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ BBC: Как устроена Земля [2 из 2] / Earth Machine (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754031.jpg" />
+  <img src="Z:/picture/008/save_picture_754031.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ BBC: Всё, что мы знаем о Вселенной, неверно? / BBC
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753967.jpg" />
+  <img src="Z:/picture/008/save_picture_753967.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ BBC. Самые умные животные / Super Smart Animals (2012) SATRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753902.jpg" />
+  <img src="Z:/picture/008/save_picture_753902.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753659.jpg" />
+  <img src="Z:/picture/008/save_picture_753659.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753656.jpg" />
+  <img src="Z:/picture/008/save_picture_753656.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753646.jpg" />
+  <img src="Z:/picture/008/save_picture_753646.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753562.jpg" />
+  <img src="Z:/picture/008/save_picture_753562.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BBC. Как устроены шикарные отели. Marina Bay Sands (Си
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753561.jpg" />
+  <img src="Z:/picture/008/save_picture_753561.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753553.jpg" />
+  <img src="Z:/picture/008/save_picture_753553.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753551.jpg" />
+  <img src="Z:/picture/008/save_picture_753551.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753539.jpg" />
+  <img src="Z:/picture/008/save_picture_753539.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752640.jpg" />
+  <img src="Z:/picture/008/save_picture_752640.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ BBC: Вырастая во Вселенной [5 из 5] / Growing Up in the Uni
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752288.jpg" />
+  <img src="Z:/picture/005/save_picture_752288.jpg" />
 </div>
 
 

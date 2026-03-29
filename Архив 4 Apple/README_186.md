@@ -6,7 +6,7 @@ zGallery – Image Viewer 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797507.jpg" />
+  <img src="Z:/picture/008/save_picture_797507.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Pro Audio Converter 1.9.1 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797461.jpg" />
+  <img src="Z:/picture/008/save_picture_797461.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ FonePaw iPhone Data Recovery 6.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797455.jpg" />
+  <img src="Z:/picture/008/save_picture_797455.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ OmniFocus Pro 3 v3.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797454.jpg" />
+  <img src="Z:/picture/008/save_picture_797454.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Geekbench 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797439.jpg" />
+  <img src="Z:/picture/008/save_picture_797439.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797438.jpg" />
+  <img src="Z:/picture/008/save_picture_797438.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Audirvana Plus 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797379.jpg" />
+  <img src="Z:/picture/008/save_picture_797379.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Capture One Pro 11 v11.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797319.jpg" />
+  <img src="Z:/picture/008/save_picture_797319.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Waltr 2 v2.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797318.jpg" />
+  <img src="Z:/picture/008/save_picture_797318.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ iTools Pro 1.7.7.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797303.jpg" />
+  <img src="Z:/picture/008/save_picture_797303.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ BlogTouch for Blogger 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797038.jpg" />
+  <img src="Z:/picture/008/save_picture_797038.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Cookie 5.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797035.jpg" />
+  <img src="Z:/picture/008/save_picture_797035.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ RightFont 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797030.jpg" />
+  <img src="Z:/picture/008/save_picture_797030.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ iMazing 1.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797002.jpg" />
+  <img src="Z:/picture/008/save_picture_797002.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Navicat Premium 12.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796964.jpg" />
+  <img src="Z:/picture/008/save_picture_796964.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ SmartAlbums 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796937.jpg" />
+  <img src="Z:/picture/008/save_picture_796937.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Cookie 6.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796929.jpg" />
+  <img src="Z:/picture/008/save_picture_796929.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tap Forms Organizer 5 v5.3.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796926.jpg" />
+  <img src="Z:/picture/008/save_picture_796926.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ MovieSherlock 6.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796923.jpg" />
+  <img src="Z:/picture/008/save_picture_796923.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ System Toolkit 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796922.jpg" />
+  <img src="Z:/picture/008/save_picture_796922.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ A Better Finder Attributes 7 v7.17 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796921.jpg" />
+  <img src="Z:/picture/008/save_picture_796921.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Stats 2.6.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796920.jpg" />
+  <img src="Z:/picture/008/save_picture_796920.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Nova 8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796918.jpg" />
+  <img src="Z:/picture/008/save_picture_796918.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ ExactScan Pro 21.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796915.jpg" />
+  <img src="Z:/picture/008/save_picture_796915.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796900.jpg" />
+  <img src="Z:/picture/008/save_picture_796900.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Tower 7 v7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796873.jpg" />
+  <img src="Z:/picture/008/save_picture_796873.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768455.jpg" />
+  <img src="Z:/picture/008/save_picture_768455.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768448.jpg" />
+  <img src="Z:/picture/008/save_picture_768448.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768446.jpg" />
+  <img src="Z:/picture/008/save_picture_768446.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768439.jpg" />
+  <img src="Z:/picture/008/save_picture_768439.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AnyTrans for iOS 8.7.0.20200623 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768437.jpg" />
+  <img src="Z:/picture/008/save_picture_768437.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768436.jpg" />
+  <img src="Z:/picture/008/save_picture_768436.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PrivaZer 4.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768432.jpg" />
+  <img src="Z:/picture/008/save_picture_768432.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Things 3 v3.12.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768431.jpg" />
+  <img src="Z:/picture/008/save_picture_768431.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Glary Utilities Pro 5.145.0.171 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768430.jpg" />
+  <img src="Z:/picture/008/save_picture_768430.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Firefox Browser ESR 78.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768426.jpg" />
+  <img src="Z:/picture/008/save_picture_768426.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Any Video Converter Professional 7.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768421.jpg" />
+  <img src="Z:/picture/008/save_picture_768421.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Master PDF Editor 5.3.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768405.jpg" />
+  <img src="Z:/picture/008/save_picture_768405.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768397.jpg" />
+  <img src="Z:/picture/008/save_picture_768397.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ubuntu 17.04 Zesty Zapus [i386] DVD, CD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768393.jpg" />
+  <img src="Z:/picture/008/save_picture_768393.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768388.jpg" />
+  <img src="Z:/picture/008/save_picture_768388.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768385.jpg" />
+  <img src="Z:/picture/008/save_picture_768385.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768383.jpg" />
+  <img src="Z:/picture/008/save_picture_768383.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768382.jpg" />
+  <img src="Z:/picture/008/save_picture_768382.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FireAlpaca 2.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768371.jpg" />
+  <img src="Z:/picture/008/save_picture_768371.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Firefox Browser 78.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768367.jpg" />
+  <img src="Z:/picture/008/save_picture_768367.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VueScan Pro 9.6.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768352.jpg" />
+  <img src="Z:/picture/008/save_picture_768352.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768346.jpg" />
+  <img src="Z:/picture/008/save_picture_768346.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ TagScanner 6.0.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768345.jpg" />
+  <img src="Z:/picture/008/save_picture_768345.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768343.jpg" />
+  <img src="Z:/picture/008/save_picture_768343.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Glarysoft Malware Hunter PRO 1.105.0.695 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768329.jpg" />
+  <img src="Z:/picture/008/save_picture_768329.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ IObit Driver Booster Pro 7.5.0.753 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768327.jpg" />
+  <img src="Z:/picture/008/save_picture_768327.jpg" />
 </div>
 
 

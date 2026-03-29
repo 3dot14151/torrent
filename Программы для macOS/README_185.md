@@ -1,3 +1,136 @@
+###  Публикация: 1708765   (112948) от 22.03.2024
+
+Screen Wonders 2.2.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
+Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2024Разработчик: © 2022-2024 3PlanesoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8224F261D68B3339F1ACD4D8D3DD3BE31C301887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708961   (112941) от 22.03.2024
+
+RAW Power 3.4.20 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2016-20213 Gentlemen Coders, LLC1Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C351F6974D1AE4A1F0A5BDAB369DCAFDE3C0C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708775   (112916) от 22.03.2024
+
+Codepoint for Mac 1.16 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
+Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2024Разработчик: © 2022–2024 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8893BD265CA27760A0E47B98A5D02218002ECF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710427   (112768) от 26.03.2024
+
+WiFiSpoof 3.9.5 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112768.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F748D34D5217B4E47593953BA68EF41EAD146834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710123   (112767) от 26.03.2024
+
+System Dashboard Pro 1.10.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112767.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Dashboard Pro — это современная интерпретация системной панели, предлагающая больше информации, чем когда-либо. Приложение было полностью переработано и оптимизировано для новейших операционных систем.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2024Разработчик: © 2024 Sascha SimonПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8D3F1C70F0D468149E1B0A6ED1867BB471770D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710398   (112766) от 26.03.2024
 
 Sync Folders Pro 4.7.0 [Multi/Ru]
@@ -6,7 +139,7 @@ Sync Folders Pro 4.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112766.jpg" />
 </div>
 
 
@@ -33,7 +166,7 @@ Permute 3 v.3.11.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112758.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ AirMail Pro 5 v.5.7.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112757.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ NCH Express Invoice Plus 11.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112755.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ Wing Pro 10 for Mac 10.0.3.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112753.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ DataGraph for Mac 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112752.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ Hides 5.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112751.jpg" />
 </div>
 
 
@@ -190,7 +323,7 @@ Aiseesoft Mac Screen Recorder 2.2.26 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112750.jpg" />
 </div>
 
 
@@ -216,7 +349,7 @@ SponsorBlock for YouTube 5.5.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112749.jpg" />
 </div>
 
 
@@ -242,7 +375,7 @@ Syncovery for Mac 10.13.1 ARM/iNTEL [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112741.jpg" />
 </div>
 
 
@@ -268,7 +401,7 @@ USBclean 3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112737.jpg" />
 </div>
 
 
@@ -294,7 +427,7 @@ Multitrack Editor: Beat Mixer 1.0.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112736.jpg" />
 </div>
 
 
@@ -321,7 +454,7 @@ myTracks 4.3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112734.jpg" />
 </div>
 
 
@@ -349,7 +482,7 @@ GoodTask 7.7.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112732.jpg" />
 </div>
 
 
@@ -376,7 +509,7 @@ MouseBoost pro for Mac 3.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112731.jpg" />
 </div>
 
 
@@ -402,7 +535,7 @@ Privatus 7.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112727.jpg" />
 </div>
 
 
@@ -428,7 +561,7 @@ Application Wizard 4.6 U2B [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112726.jpg" />
 </div>
 
 
@@ -456,7 +589,7 @@ Invisible 2.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112723.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ Fission 2.8.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112722.jpg" />
 </div>
 
 
@@ -509,7 +642,7 @@ eMail Address Extractor 4.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112721.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ PowerPhotos 2.5.7 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112720.jpg" />
 </div>
 
 
@@ -547,137 +680,6 @@ PowerPhotos - позволяет разбить ваши изображения 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC8B966076A6E42C08A08CD750F701E3D8C67314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710094   (112717) от 26.03.2024
-
-DVD-Cloner 2024 for Mac v.11.10.741 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112717.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD-Cloner - это небольшая утилита, при помощи которой вы сможете создать полностью идентичную копию вашего DVD-диска (например, с фильмом), в том числе и диска с защитой, и записать ее на другой диск. Программа проста в обращении, не требует тонкой настройки, поддерживает работу с большинством DVD-RW устройств и позволяет создавать копии фильмов с качеством, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2002-2024 OpenCloner™ Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57CE98AB6FCA89A71243286F37AD7554A2723D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710125   (112705) от 26.03.2024
-
-ColorWell 7.4.3 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112705.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре macOS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезная утилита в любом наборе инструментов хорошего веб-дизайнера и ее можно легко настроить для работы на панели инструментов или открыть при помощи глобальной горячей клавиши.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E15A7655E8AEA821E43CF6B167A1957F452E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710425   (112701) от 26.03.2024
-
-Xliff Editor 2.9.16 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4432C16668BB061AB4DC1C3D8CFD8FCE2F587CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710474   (112695) от 27.03.2024
-
-AltTab for Mac 6.67.0 U2B [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение AltTab дает возможность пользоваться функцией «alt-tab» от Windows на Mac.Тип издания: macOS SoftwareРелиз состоялся: 27.03.2024Разработчик: © 2024 lwouisПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5C0C2BD7E8E50FB48E3AC5367A3538E373DA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710721   (112678) от 27.03.2024
-
-OmniReader Pro for Mac 2.9.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112678.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2024Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50282DE079DC3AF5C4D1F6D4CF523355F9BCF54
 ```
 
 https://mybot314.ru/tekegram_catalog/

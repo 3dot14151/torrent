@@ -1,3 +1,56 @@
+###  Публикация: 142734   (840817) от 06.10.2021
+
+Большая перемена (1972) DVDRip (серии 1-4 из 4)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нестор Северов проваливается на экзамене в аспирантуру и идет работать учителем в вечернюю школу. Он становится классным руководителем 9-го «A» — «удивительного, прекрасного, сумасшедшего» класса. Поначалу далекий от мирской суеты, Нестор Петрович начинает жить заботами своих взрослых учеников…Производство: СССР / Гостелерадио СССР, МосфильмЖанр: мелодрама, комедияРежиссер: Алексей КореневАктеры: Евгений Леонов, Михаил Кононов, Ролан Быков, Александр Збруев, Светлана Крючкова, Юрий Кузьменков, Светлана Богунова, Наталья Гвоздикова, Савелий Крамаров, Виктор ПроскуринПродолжительность: 04:18:15  (01:03:10 + 01:07:36 + 01:03:56 + 01:03:33)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0156C3E824EC8D793BB2A4F733F3C7D971C0AEC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309409   (838828) от 17.03.2011
+
+Война и мир (1965-1967) 4xDVD5 (серии 1-4 из 4)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский художественный фильм 1965—1967 годов, киноэпопея в четырёх частях, экранизация одноимённого романа Льва Толстого, одна из самых высокобюджетных картин в истории кинематографа. Фильм стал известен благодаря масштабным батальным сценам и применению новаторской панорамной съёмки полей сражений.
+Одна из самых масштабных работ в творчестве Сергея Бондарчука (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Драма, мелодрама, военный, историяРежиссер: Сергей БондарчукАктеры: Сергей Бондарчук, Людмила Савельева, Вячеслав Тихонов, Олег Табаков, Борис Захава, Анатолий Кторов, Анастасия Вертинская, Антонина Шуранова, Виктор Станицын, Ирина СкобцеваПродолжительность: 06:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B16832842376E2C4E710173B58069F7ED8FFB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378214   (830945) от 04.05.2020
 
 Место встречи изменить нельзя (1979) HDTVRip [H.264/720p-LQ] (серии 1-5 из 5)
@@ -6,7 +59,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830945.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826670.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818924.jpg" />
+  <img src="Z:/picture/008/save_picture_818924.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816167.jpg" />
+  <img src="Z:/picture/008/save_picture_816167.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813199.jpg" />
+  <img src="Z:/picture/008/save_picture_813199.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811612.jpg" />
+  <img src="Z:/picture/008/save_picture_811612.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809834.jpg" />
+  <img src="Z:/picture/008/save_picture_809834.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809721.jpg" />
+  <img src="Z:/picture/008/save_picture_809721.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805962.jpg" />
+  <img src="Z:/picture/008/save_picture_805962.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800220.jpg" />
+  <img src="Z:/picture/008/save_picture_800220.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799708.jpg" />
+  <img src="Z:/picture/008/save_picture_799708.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787278.jpg" />
+  <img src="Z:/picture/008/save_picture_787278.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784825.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781765.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781761.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776629.jpg" />
+  <img src="Z:/picture/008/save_picture_776629.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768256.jpg" />
+  <img src="Z:/picture/008/save_picture_768256.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764297.jpg" />
+  <img src="Z:/picture/008/save_picture_764297.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764108.jpg" />
+  <img src="Z:/picture/008/save_picture_764108.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763905.jpg" />
+  <img src="Z:/picture/008/save_picture_763905.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763501.jpg" />
+  <img src="Z:/picture/008/save_picture_763501.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759997.jpg" />
+  <img src="Z:/picture/008/save_picture_759997.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751231.jpg" />
+  <img src="Z:/picture/008/save_picture_751231.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750969.jpg" />
+  <img src="Z:/picture/008/save_picture_750969.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F6D0CFDA8BCF4AA7BA6781FF60E4BDD90D0CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378027   (745971) от 11.02.2019
-
-Огненные дороги (1977) SATRip (17 серий из 17)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745971.jpg" />
-</div>
-
-
-###  Подробнее
-
-О жизни и деятельности узбекского писателя, композитора, музыканта, просветителя и революционера Хамзы Хаким-заде. Хаким-заде Ниязи - узбекский поэт, философ, драматург и общественный деятель. Хамза - человек, влюбленный в жизнь, все помыслы которого направлены к тому, чтобы сделать свой край еще прекрасней, а жизнь людей богаче и содержательней. Его поэзия - это (   Читать дальше...   )Производство: СССР, УзбекфильмЖанр: ДрамаРежиссер: Шухрат АббасовАктеры: Ульмас Алиходжаев,Галина Федотова,Юрий Дубровин,Виталий Леонов,Сергей Яковлев,Юрий Гусев,Тамара Шакирова,Данута Столярская.Субтитры: ОтсутствуютПродолжительность: 17х ~ 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B38E6597DECBCCFE1799A4F7088B57F5CB63E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784601   (739504) от 09.05.2014
-
-Долгая дорога в дюнах (1980) DVDRip [H.264] (1-7 серий из 7)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Латвии и охватывает период с 1939г. до наших дней. События, происходившие в стране, по-разному повлияли на судьбы героев. Но всех их вела по жизни любовь — разбрасывала и собирала, заставляла жестоко страдать и делала самыми счастливыми в мире… История любви Артура, сына рыбака, и Марты Озолс, которые пронесли свое чувство через все трудности (   Читать дальше...   )Жанр: МелодрамаРежиссер: Алоиз БренчАктеры: Лилита Озолиня, Юозас Киселюс, Ромуалдас Раманаускас, Эдуард Павулс, Карлис Тренцис, Лидия Фреймане, Ааре Лаанеметс, Харий Лиепиньш, Улдис Думпис, Улдис Ваздикс и др.Продолжительность: 7 серий по ~01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9151D436D285C76937F9D1E8FBA09CA517AC53B
 ```
 
 https://mybot314.ru/tekegram_catalog/

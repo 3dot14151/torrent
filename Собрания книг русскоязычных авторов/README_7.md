@@ -1,3 +1,57 @@
+###  Публикация: 782844   (748244) от 02.05.2014
+
+Роберт Рождественский | Собрание сочинений (1950 - 1994) [RTF]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Рождественский вошёл в литературу вместе с группой талантливых сверстников, среди которых выделялись Евгений Евтушенко, Белла Ахмадулина, Андрей Вознесенский, Владимир Цыбин. Молодая поэзия 1950-х начинала с броских манифестов, стремясь как можно скорее утвердиться в сознании читателей. Ей помогла эстрада: сам стих молодых лет не мог существовать без звучания. (   Читать дальше...   )Жанр: ПоэзияФормат: RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1CEB664166D9F85D1EFFEDB71CAE4E0552AB48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404429   (747621) от 13.01.2022
+
+Андрей Белянин | Собрание сочинений [101 книга] (1997-2022) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Белянин – популярный российский писатель-фантаст, поэт, обладатель премий «Звездный мост», «Фантаст года», «Аэлита» и медали имени Н. В. Гоголя. Родился 24 января 1967 года в Астрахани. Отец — рабочий, мать — медицинский работник. После восьмилетней школы поступил в Астраханское художественное училище имени Власова на живописно-педагогическое отделение.
+
+В (   Читать дальше...   )Жанр: Детективное фэнтези, Городское фэнтези, Героическое фэнтези, Русское фэнтези, Юмористическое фэнтези, Сказки, Книги про вампиров, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028C114D0699329A5C7C86C085334967CD4BC3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343163   (747616) от 13.01.2022
 
 Ник Перумов | Собрание сочинений [86 книг] (1995-2022) [FB2]
@@ -6,7 +60,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747616.jpg" />
+  <img src="Z:/picture/008/save_picture_747616.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747590.jpg" />
+  <img src="Z:/picture/008/save_picture_747590.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746021.jpg" />
+  <img src="Z:/picture/008/save_picture_746021.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741873.jpg" />
+  <img src="Z:/picture/008/save_picture_741873.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740305.jpg" />
+  <img src="Z:/picture/008/save_picture_740305.jpg" />
 </div>
 
 
@@ -145,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738610.jpg" />
+  <img src="Z:/picture/008/save_picture_738610.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738606.jpg" />
+  <img src="Z:/picture/008/save_picture_738606.jpg" />
 </div>
 
 
@@ -201,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737667.jpg" />
+  <img src="Z:/picture/008/save_picture_737667.jpg" />
 </div>
 
 
@@ -227,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736492.jpg" />
+  <img src="Z:/picture/008/save_picture_736492.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736082.jpg" />
+  <img src="Z:/picture/008/save_picture_736082.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735274.jpg" />
+  <img src="Z:/picture/008/save_picture_735274.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733477.jpg" />
+  <img src="Z:/picture/005/save_picture_733477.jpg" />
 </div>
 
 
@@ -337,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733472.jpg" />
+  <img src="Z:/picture/005/save_picture_733472.jpg" />
 </div>
 
 
@@ -365,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732829.jpg" />
+  <img src="Z:/picture/008/save_picture_732829.jpg" />
 </div>
 
 
@@ -391,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732822.jpg" />
+  <img src="Z:/picture/008/save_picture_732822.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732440.jpg" />
+  <img src="Z:/picture/008/save_picture_732440.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732390.jpg" />
+  <img src="Z:/picture/008/save_picture_732390.jpg" />
 </div>
 
 
@@ -471,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730232.jpg" />
+  <img src="Z:/picture/008/save_picture_730232.jpg" />
 </div>
 
 
@@ -501,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729427.jpg" />
+  <img src="Z:/picture/008/save_picture_729427.jpg" />
 </div>
 
 
@@ -527,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729220.jpg" />
+  <img src="Z:/picture/008/save_picture_729220.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725466.jpg" />
+  <img src="Z:/picture/008/save_picture_725466.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725242.jpg" />
+  <img src="Z:/picture/008/save_picture_725242.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717246.jpg" />
+  <img src="Z:/picture/008/save_picture_717246.jpg" />
 </div>
 
 
@@ -636,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717233.jpg" />
+  <img src="Z:/picture/008/save_picture_717233.jpg" />
 </div>
 
 
@@ -648,60 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6C30818942649615C09EA099500D611BE3B7D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399975   (716708) от 06.08.2020
-
-Оро Призывающий | Собрание сочинений [19 книг] (2019-2020) [FB2, RTF]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716708.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Наши - там!.. Стоп, а где это - там?" В ином времени. Века спустя, где от нашего настоящего - лишь ветхие остатки технологий, где литрпг и гайды по играм считаются древними свитками, а все войны идут по законам Голливуда. Вот среди этого и пробуждаешься ты — человек из прошлого — Главный Босс, враг всего человечества и просто отличный парень.Жанр: Боевая фантастика, Боевое фэнтези, ПопаданствоФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EE5E83B1E23C5C491B9B139EBB38A570836290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495796   (716168) от 18.02.2022
-
-Марина и Сергей Дяченко | Собрание сочинений [67 книг] (1998-2022) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марина и Сергей Дяченко – супруги, работающие совместно над созданием книг на русском и украинском языках. Авторы пишут фантастику, фэнтези, нередко совмещают несколько жанров в одном произведении.
-
-Супруги Марина Юрьевна Дяченко-Ширшова и Сергей Сергеевич Дяченко долгое время жили в Киеве и Москве, а в 2013 году пара перебралась в Лос-Анджелес.Жанр: Героическая фантастика, Научная фантастика, Социальная фантастика, Мистика, Городское фэнтези, Книги про волшебников, Фэнтези про драконовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B2FAE86B80EFC3067D371E90617CB5354AD11C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1213750   (767402) от 18.03.2018
+
+July - The Second of July (1968) Remastered, 1999, Expertise Records [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Missed It All
+02. My Clown
+03. Dandelion Seeds
+04. Stamping Machine(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B145BF3B40F2EF0F7A4CA2C2378103786FCEFB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213892   (767343) от 18.03.2018
 
 Без Билета - Маяк (2018) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767343.jpg" />
+  <img src="Z:/picture/008/save_picture_767343.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Axe - Living On The Edge (1980) Unofficial Reissue, 1997, Axepertise Entertainme
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766811.jpg" />
+  <img src="Z:/picture/008/save_picture_766811.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lost Gravity - How To Make A Giant (2018) Priston Records [MP3|320 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766589.jpg" />
+  <img src="Z:/picture/008/save_picture_766589.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Trapt - Shadow Work (2020) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766369.jpg" />
+  <img src="Z:/picture/008/save_picture_766369.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Apocalypse - Apocalypse (1969) Remastered, 2003, Longhair [MP3|320 Kbps] <Heavy 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766124.jpg" />
+  <img src="Z:/picture/008/save_picture_766124.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Saris - Beyond the Rainbow (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765471.jpg" />
+  <img src="Z:/picture/008/save_picture_765471.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765425.jpg" />
+  <img src="Z:/picture/008/save_picture_765425.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Paul Weller - On Sunset (Deluxe) (2020) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764695.jpg" />
+  <img src="Z:/picture/008/save_picture_764695.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Killers - Run For Cover (2020) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764582.jpg" />
+  <img src="Z:/picture/008/save_picture_764582.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Inkubus Sukkubus - Belladonna & Aconite (1993) Reissue, Remastered, 2011, Resurr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764549.jpg" />
+  <img src="Z:/picture/008/save_picture_764549.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Metallica - Helping Hands... Live & Acoustic at The Masonic (2019) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764305.jpg" />
+  <img src="Z:/picture/008/save_picture_764305.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Wolfhounds - Electric Music (2020) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763755.jpg" />
+  <img src="Z:/picture/008/save_picture_763755.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Cevilain - On Death & Dying (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763747.jpg" />
+  <img src="Z:/picture/008/save_picture_763747.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Republica - Republica (2020) 3 x CD [MP3|320 Kbps] <Alt.Rock, Techno>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763743.jpg" />
+  <img src="Z:/picture/008/save_picture_763743.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Cloud Nothings - The Black Hole Understands (2020) [MP3|320 Kbps] <Indie Rock, L
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762303.jpg" />
+  <img src="Z:/picture/008/save_picture_762303.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ J.T. Wilde - Enjoy the Show (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760616.jpg" />
+  <img src="Z:/picture/008/save_picture_760616.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Fire Tiger - All The Time (2020) [MP3|320 Kbps] <Rock, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760609.jpg" />
+  <img src="Z:/picture/008/save_picture_760609.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Black Light Animals - Playboys Of The Western World (2020) [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760520.jpg" />
+  <img src="Z:/picture/008/save_picture_760520.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Greatest Ever Soft Rock (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760392.jpg" />
+  <img src="Z:/picture/008/save_picture_760392.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Rocket Dogz - Bad Blood (2018) [MP3|320 Kbps] <Psychobilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759990.jpg" />
+  <img src="Z:/picture/008/save_picture_759990.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Auri - Auri (2018) [MP3|320 Kbps] <Folk Rock, Celtic, Female Vocal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759838.jpg" />
+  <img src="Z:/picture/008/save_picture_759838.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Daevid Allen -  Les Genies du Rock - Banana Moon (1993) [MP3|320 кб/с] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759278.jpg" />
+  <img src="Z:/picture/008/save_picture_759278.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Fungus Hill - Cosmic Construction on Proxima B (2018) [MP3|320 Kbps] <Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758215.jpg" />
+  <img src="Z:/picture/008/save_picture_758215.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Monster Magnet - Mindfucker (2018) [MP3|320 Kbps] <Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757954.jpg" />
+  <img src="Z:/picture/008/save_picture_757954.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Bob Dylan - Fallen Angels (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757461.jpg" />
+  <img src="Z:/picture/008/save_picture_757461.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Bob Dylan - Fallen Angels (2016) [MP3|320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A334DB2837883C8EF971C98B32DCD4288E6D77F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395188   (757268) от 09.07.2020
-
-Brennen Sloan - Brennen Sloan (2020) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can t Stop Me (03:36)
- 02. You on My Mind (03:47)
- 03. Where the People Don t Go (04:10)
- 04. Not My Friends (03:03)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261CD7A743AF21DEB64D156801923660CA48007F
 ```
 
 https://mybot314.ru/tekegram_catalog/

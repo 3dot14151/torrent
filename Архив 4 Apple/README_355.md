@@ -1,3 +1,107 @@
+###  Публикация: 1565310   (494987) от 23.07.2022
+
+System Dashboard 4.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494987.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Dashboard показывает использование процессора, памяти, сети и диска в небольшом и «легком» окне. Так же отображает все важные характеристики вашей системы на одной странице.Тип издания: macOS SoftwareРелиз состоялся: 23.07.2022Разработчик: © 2018-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E424238F27CF257241585846B8098BAC5DB995F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565418   (494899) от 23.07.2022
+
+AnyMP4 Mac Blu-ray Player 6.3.38 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная программа для просмотра Blu-ray дисков и их образов (ISO). Так же с ее помощью можно смотреть 1080p HD и AVCHD видео. Поддержка просмотра Full HD форматов: MP4, FLV, MTS, M2TS, TS, MKV, WMV, TRP, MXF, MOV, MPEG, RMVB и других, а также многоканального аудио. AnyMP4 Mac Blu-ray Player обладает как высокой скоростью так и качеством результата, а также приятным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2022Разработчик: © 2021 AnyMP4 StudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED1C234B13DCA21E908BAB4E642CE2795AEA1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565410   (494790) от 23.07.2022
+
+Sweet Home 3D 7.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sweet Home 3D это приложение для дизайна интерьера, которое поможет вам нарисовать планировку дома, расставить мебель и посмотреть результат в 3D. Приложение Sweet Home 3D предназначено для тех, кто хочет быстро спроектировать новый дом или сделать редизайн старого.Тип издания: macOS SoftwareРелиз состоялся: 14.07.2022Разработчик: © 2005-2021 Emmanuel PUYBARET / eTeksПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B7D0CB7AC5D307AA7BB2D164EA199DEBD8305C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565308   (494788) от 23.07.2022
+
+Wondershare PDFelement Pro OCR 9.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494788.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74887ACE16027020539A2A74D37EA07AEED48475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565345   (494779) от 23.07.2022
 
 Keyboard Maestro 10 v10.1.1 [En]
@@ -6,7 +110,7 @@ Keyboard Maestro 10 v10.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494779.jpg" />
+  <img src="Z:/picture/008/save_picture_494779.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ DjVu Reader Pro 2.6.6 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494775.jpg" />
+  <img src="Z:/picture/008/save_picture_494775.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ Wondershare Filmora Х 11.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494554.jpg" />
+  <img src="Z:/picture/008/save_picture_494554.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Vallum 1.2 & Murus 1.4.3b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494405.jpg" />
+  <img src="Z:/picture/008/save_picture_494405.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ KeyCue 8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494334.jpg" />
+  <img src="Z:/picture/008/save_picture_494334.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ SimpleMind 1.14.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494325.jpg" />
+  <img src="Z:/picture/008/save_picture_494325.jpg" />
 </div>
 
 
@@ -170,7 +274,7 @@ Tropico 6 v4.20.2 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494284.jpg" />
+  <img src="Z:/picture/008/save_picture_494284.jpg" />
 </div>
 
 
@@ -199,7 +303,7 @@ GraphicConverter 10.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494223.jpg" />
+  <img src="Z:/picture/008/save_picture_494223.jpg" />
 </div>
 
 
@@ -225,7 +329,7 @@ Screens 4.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494127.jpg" />
+  <img src="Z:/picture/008/save_picture_494127.jpg" />
 </div>
 
 
@@ -254,7 +358,7 @@ Lyn 1.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494123.jpg" />
+  <img src="Z:/picture/008/save_picture_494123.jpg" />
 </div>
 
 
@@ -280,7 +384,7 @@ iMazing 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494081.jpg" />
+  <img src="Z:/picture/008/save_picture_494081.jpg" />
 </div>
 
 
@@ -307,7 +411,7 @@ NetWorker - Advanced Network Information App 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493837.jpg" />
+  <img src="Z:/picture/008/save_picture_493837.jpg" />
 </div>
 
 
@@ -335,7 +439,7 @@ Canary Mail 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493713.jpg" />
+  <img src="Z:/picture/008/save_picture_493713.jpg" />
 </div>
 
 
@@ -364,7 +468,7 @@ iWatermark Pro 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493695.jpg" />
+  <img src="Z:/picture/008/save_picture_493695.jpg" />
 </div>
 
 
@@ -391,7 +495,7 @@ CleanMyMac X 4.0.0b3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493677.jpg" />
+  <img src="Z:/picture/008/save_picture_493677.jpg" />
 </div>
 
 
@@ -420,7 +524,7 @@ iSkysoft iMedia Converter Deluxe 10.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493558.jpg" />
+  <img src="Z:/picture/008/save_picture_493558.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ WiFi Scanner 2.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493398.jpg" />
+  <img src="Z:/picture/008/save_picture_493398.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492939.jpg" />
+  <img src="Z:/picture/008/save_picture_492939.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Stats 2.7.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492681.jpg" />
+  <img src="Z:/picture/008/save_picture_492681.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ SyncBird Pro 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492678.jpg" />
+  <img src="Z:/picture/008/save_picture_492678.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Tipard Screen Capture 1.1.18 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492676.jpg" />
+  <img src="Z:/picture/008/save_picture_492676.jpg" />
 </div>
 
 
@@ -578,7 +682,7 @@ Things 3 v3.15.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492599.jpg" />
+  <img src="Z:/picture/008/save_picture_492599.jpg" />
 </div>
 
 
@@ -590,117 +694,6 @@ Things — приятный и простой ежедневник. Это ид�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67B38828384B0C5849F5696CC94AB1EA879010FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565543   (492459) от 24.07.2022
-
-WidsMob Viewer Pro 2.18 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть ли способ просмотреть все изображения в одной папке на Mac? Как просмотреть несколько фотографий с быстрой скоростью? Как выбрать и экспортировать нужные фотографии? Для того чтобы иметь приятный опыт работы с фотографиями, WidsMob Viewer может быть решением, которое необходимо принять во внимание.Тип издания: macOS SoftwareРелиз состоялся: 23.07.2022Разработчик: © 2022 WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Арабский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF5B338508360F064F4817DEB09492AFD130A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565734   (492457) от 24.07.2022
-
-Omni Recover 3 v3.3.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
-Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189A2C61BFF13ED98B6E26AE994720BC2B294B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565733   (492436) от 24.07.2022
-
-Fix My iPhone 2.2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fix My iPhone — это инструмент для восстановления системы iOS. Устраняет все известные неисправности на  вашем iPhone:
-• Зависший на логотипе Apple
-• Черный / зависший экран
-• Ошибки обновления / восстановления iTunes и более 50+ сбоев обновления iOS 15(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854A79A88D7C6886D35C20252F3B0BDF47BA6D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054357   (492369) от 20.09.2016
-
-X Lossless Decoder 20160920 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492369.jpg" />
-</div>
-
-
-###  Подробнее
-
-X Lossless Decoder - Lossless аудио декодер для  OS X
-X Lossless Decoder (XLD) для Mac OS X позволяет декодировать, конвертировать и воспроизводить аудиоданные в различных lossless-форматах. Файлы поддерживаемых форматов во время декодирования могут быть разбиты на отдельные треки на основе информации в файлах cue sheet.
-
-Результат может быть сохранен в файлах: WAVE, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 сентября 2016Разработчик: TmkkПоддерживаемая ОС: Mac OS X 10.4 +Язык интерфейса: Русский, Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60E58EDA8A16D196E0DF779CF31B4A5CDD89B34
 ```
 
 https://mybot314.ru/tekegram_catalog/

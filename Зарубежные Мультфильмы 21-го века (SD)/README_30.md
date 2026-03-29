@@ -1,3 +1,107 @@
+###  Публикация: 818052   (542728) от 02.09.2014
+
+Симпсоны в кино / The Simpsons Movie (2007) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542728.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Гомер сбросил отходы в водохранилище, Спрингфилд объявили карантинной зоной и накрыли гигантским стеклянным колпаком, а местные жители ополчились на Симпсонов, за то что их отрезали от остального мира…Производство: США / 20th Century FoxЖанр: Комедия, Приключения, МультфильмРежиссер: Дэвид СилверманАктеры: Дэн Кастелланета, Джули Кавнер, Нэнси Картрайт, Ярдли Смит, Гарри Ширер, Хэнк Азария, Марсия Уоллес, Билли Джо Армстронг, Тре Кул, Майк Дирнт, Тресс МакНилл, Памела Хейден, Джо Мантенья, Альберт Брукс, Русси Тейлор, Карл Видерготт, Мэгги Росвэлл, Том Хэнкс, Фил РозентальПеревод: Профессиональный (полное дублирование)Продолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65CE25F24F2B81E2C1DD6BA8A5733D0435363C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924546   (542663) от 05.08.2015
+
+Махни крылом / Gus - Petit oiseau, grand voyage / Yellowbird (2014) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год, все птицы улетают на юг. Должна улететь и стая нашего юного героя Чижика, но в последний момент перед перелетом на вожака стаи Дариуса нападает злой кот. Только Дариус знает дорогу на юг, и он успевает передать секрет Чижику, который теперь должен стать вожаком стаи. У Чижика нет опыта таких дальних перелетов, и тем более, опыта лидерства в стае, но ему (   Читать дальше...   )Производство: Франция, Compagnie Cinmatographique, La, Haut et Court, Panache ProductionsЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Кристиан Де ВитаАктеры: Сет Грин, Иветт Николь Браун, Джим Рэш, Дакота Фаннинг, Артур Дюпон, Сара Форестье, Бруно Саломон, Пьер Ришар, Изабель Рено, Натали БутфоПеревод: Дублированный (Лицензия R5)Язык субтитров: АнглийскийПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D3E4769F6AD522F931E3F3FAC92E4F7A547913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925460   (540998) от 06.08.2015
+
+Пчёлка Майя / Maya The Bee – Movie (2014) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная пчелка доросла до большого экрана.Производство: Австралия, Германия / Buzz Studios, Fish Blowing Bubbles, Flying Bark ProductionsЖанр: мультфильм, фэнтези, приключенияРежиссер: Алекс СтадерманнПерсонажи: Коко Джек Гиллис , Нина Шаттон , Коди Смит-МакФи , Ноа Тейлор , Мириам Маргулис , Ричард Роксбург , Джеки Уивер , Джастин Кларк , Энди МакФи , Косма Шива Хаген , Нина Хаген , Константин фон ЯщероффПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1428F2B7A646BA8115BE04C5080FF14FD176175F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925491   (540828) от 06.08.2015
+
+Скуби-Ду и KISS: Тайна рок-н-ролла / Scooby-Doo! And Kiss: Rock and Roll Mystery (2015) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения дога по имени Скуби-Ду и его друзей детективов продолжаются. Им предстоит раскрыть новую тайну. Главные герои побывают в мире рока, так как на этот раз одними из персонажей мультфильма станут участники легендарной группы Kiss.Производство: США / Warner Bros. AnimationЖанр: мультфильм, семейныйРежиссер: Спайк Брандт, Тони ЧервонеПерсонажи: Тони Червоне, Минди Кон, Грэй Гриффин, Мэттью Лиллард, Док МакГи, Джейсон Мьюз, Дариус Ракер, Джин Симмонс, Эрик Сингер, Пол СтэнлиПеревод: Профессиональный (многоголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47AFF145CBD12A342CDCD054BB8398D94167944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923716   (540528) от 06.08.2015
 
 Холодное торжество / Frozen Fever (2015) HDRip [Звук с TS]
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540528.jpg" />
+  <img src="Z:/picture/008/save_picture_540528.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540039.jpg" />
+  <img src="Z:/picture/008/save_picture_540039.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539720.jpg" />
+  <img src="Z:/picture/008/save_picture_539720.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264]
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539535.jpg" />
+  <img src="Z:/picture/008/save_picture_539535.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538569.jpg" />
+  <img src="Z:/picture/008/save_picture_538569.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538333.jpg" />
+  <img src="Z:/picture/008/save_picture_538333.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537783.jpg" />
+  <img src="Z:/picture/008/save_picture_537783.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536716.jpg" />
+  <img src="Z:/picture/008/save_picture_536716.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536706.jpg" />
+  <img src="Z:/picture/008/save_picture_536706.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536563.jpg" />
+  <img src="Z:/picture/008/save_picture_536563.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536015.jpg" />
+  <img src="Z:/picture/008/save_picture_536015.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535952.jpg" />
+  <img src="Z:/picture/008/save_picture_535952.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535577.jpg" />
+  <img src="Z:/picture/008/save_picture_535577.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535441.jpg" />
+  <img src="Z:/picture/008/save_picture_535441.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534990.jpg" />
+  <img src="Z:/picture/008/save_picture_534990.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534003.jpg" />
+  <img src="Z:/picture/008/save_picture_534003.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532415.jpg" />
+  <img src="Z:/picture/008/save_picture_532415.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532309.jpg" />
+  <img src="Z:/picture/008/save_picture_532309.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531518.jpg" />
+  <img src="Z:/picture/008/save_picture_531518.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530139.jpg" />
+  <img src="Z:/picture/008/save_picture_530139.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529444.jpg" />
+  <img src="Z:/picture/008/save_picture_529444.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528988.jpg" />
+  <img src="Z:/picture/008/save_picture_528988.jpg" />
 </div>
 
 
@@ -567,112 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:567663CF6CF72622F99DABF1ED8648A185B5727E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052269   (528004) от 14.09.2016
-
-Эрми и друзья: Поучительные истории о страхах / Hermie & Friends (2002) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вебстер - страшный паук. "Большой и страшный! С кучей ног! Паук лохматый, гнался за нами! Его надо прогнать", - такие крики раздались на уютной и мирной полянке, когда грозный паук-паучище Вебстер появился там однажды утром. Как же обитателям полянки и их гостю победить страх, и кто поможет им в этом?
-Страшная гонка. Гусеничный ползофон! Величайшая гонка (   Читать дальше...   )Производство: Ирландия, США, Dean River ProductionsЖанр: СказкаРежиссер: Деметра ГионисПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C042771A7C9F9FD9F250F703D8ABF50EFF798D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927017   (524804) от 13.08.2015
-
-Безграничный Бэтмен: Хаос / Batman Unlimited: Monster Mayhem (2015) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из Бэтмена, Найтвинга, Киборга и Зеленой Стрелы противостоит Соломону Гранди, Глиноликому, Страшиле и Серебряной Банши. Возглавит шайку негодяев, конечно же, ДжокерПроизводство: США | DC Comics, DC Entertainment, Warner Bros. AnimationЖанр: мультфильм, боевик, приключенияРежиссер: Батч ЛукичПеревод: Многоголосый закадровый, профессиональный (iTunes)Продолжительность: 01:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497C911DA44B7DA54001C967CF75C3861E7C37D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927712   (523815) от 14.08.2015
-
-Луни Тюнз: Кролик в бегах / Looney Tunes: Rabbit Run (2015) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет мультфильма начинается в центральной Мексике. В штабе петуха Фоггорна Леггорна черепаха Сесил наблюдает за объектом – редчайшим цветком флоро оккульто, который расцветает раз в 200 лет и служит величайшим в мире оружием. Леггорн собирается провести спецоперацию по захвату магического цветка, но в самый ответственный момент кто-то похищает растениеПроизводство: США |  Warner Bros. AnimationЖанр: мультфильмРежиссер: Джефф СьергейПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F21368B8B94B08686BFC296D823B38A32A6F18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313636   (522117) от 11.07.2019
-
-Теркель в беде / Terkel I Knibe (2004) DVDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой мультика — обыкновенный подросток Теркель, с брекетами на зубах и своими заморочками в голове, он воспитывается в довольно странной семье — его мама не достает сигарету изо рта, а папа — все время читает газету и произносит только слово «Нет!», а младшая сестра Фиона — очень нервная и склонная к травматизму девочка.
-Сюжет развивается на фоне отношений (   Читать дальше...   )Производство: ДанияЖанр: Для взрослых, мюзикл, триллер, драма, мелодрама, комедия, детектив, чёрный юмор.Режиссер: Крестен Вестбьерг Андерсен, Торбьорн Кристофферсен, Стефан ФьелдмаркПеревод: Профессиональный многоголосый, авторский одноголосый.Субтитры: НетПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EAC86C6C386DBF8223D3D067EBE767C75876A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

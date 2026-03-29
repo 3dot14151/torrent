@@ -1,3 +1,30 @@
+###  Публикация: 1018520   (755431) от 20.05.2016
+
+Проекты - VideoHive - Unforgettable Story - Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий, позитивный, забавный проект для фото-видео слайдшоу.
+Вы можете изменить цвет сцены, длительность сцены, заменить текст, вставить фото или видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2125B5B27DE2170ED4D895163749598BADDAF543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018446   (755332) от 20.05.2016
 
 Проекты - VideoHive - Wonderful Memories Slide Show [AEP]
@@ -6,7 +33,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755332.jpg" />
+  <img src="Z:/picture/008/save_picture_755332.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753798.jpg" />
+  <img src="Z:/picture/008/save_picture_753798.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753791.jpg" />
+  <img src="Z:/picture/008/save_picture_753791.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753713.jpg" />
+  <img src="Z:/picture/008/save_picture_753713.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753707.jpg" />
+  <img src="Z:/picture/008/save_picture_753707.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753622.jpg" />
+  <img src="Z:/picture/008/save_picture_753622.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753121.jpg" />
+  <img src="Z:/picture/008/save_picture_753121.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752631.jpg" />
+  <img src="Z:/picture/005/save_picture_752631.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752532.jpg" />
+  <img src="Z:/picture/008/save_picture_752532.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ VideoHive - Photo Collage Gallery - 6884637 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752145.jpg" />
+  <img src="Z:/picture/008/save_picture_752145.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ VideoHive - Wonderful Slide - 6843272 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752144.jpg" />
+  <img src="Z:/picture/008/save_picture_752144.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751875.jpg" />
+  <img src="Z:/picture/008/save_picture_751875.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751751.jpg" />
+  <img src="Z:/picture/008/save_picture_751751.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750826.jpg" />
+  <img src="Z:/picture/008/save_picture_750826.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750825.jpg" />
+  <img src="Z:/picture/008/save_picture_750825.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750633.jpg" />
+  <img src="Z:/picture/008/save_picture_750633.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750082.jpg" />
+  <img src="Z:/picture/008/save_picture_750082.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749764.jpg" />
+  <img src="Z:/picture/008/save_picture_749764.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749594.jpg" />
+  <img src="Z:/picture/005/save_picture_749594.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749537.jpg" />
+  <img src="Z:/picture/008/save_picture_749537.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749533.jpg" />
+  <img src="Z:/picture/008/save_picture_749533.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749095.jpg" />
+  <img src="Z:/picture/008/save_picture_749095.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748103.jpg" />
+  <img src="Z:/picture/008/save_picture_748103.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748102.jpg" />
+  <img src="Z:/picture/008/save_picture_748102.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748051.jpg" />
+  <img src="Z:/picture/008/save_picture_748051.jpg" />
 </div>
 
 
@@ -650,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB556F14E6C22DDD5FCB8F9BD2B4801808AAA2A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282096   (747954) от 10.02.2019
-
-Проекты - VideoHive - Luxury Dimond - 20234883 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luxury Dimond - роскошная и элегантная, легко настраиваемая, с модульной структурой фото-видео галерея. Идеально подходит для номинаций, свадебного фильма, слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD6FB3135CCF42163340C2C0147FEEF3E662FCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

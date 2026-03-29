@@ -1,3 +1,61 @@
+###  Публикация: 1025289   (712195) от 11.06.2016
+
+VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Pussy Lounge 2016 (Continuous Mix By Darkraver & Ruthless) [01:18:21]
+02. Various Artists - Pussy Lounge 2016 (Continuous Mix By Paul Elstak & The Viper) [01:16:35]
+03. Geck-O - Sorry Not Sorry [3:16]
+04. Pat B & Nowaxx & Potato - Pressure [3:32](   Читать дальше...   )Жанр: HardstyleПродолжительность: 06:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025073   (712193) от 11.06.2016
+
+VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember Nothing - Summer of Love - Singled Out Mix
+02. Ms. Jones and the Fireflies - 5am - Lana in the Video Sadness Cut
+03. Deep Sound Employees - Follow - Beach Cafe Mix
+04. Heartless Surfer Crew - Skip the Beat - Olly Got a Heart Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070172B23E009D54986B08ED4B2897CEB74DE86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025180   (712135) от 11.06.2016
 
 VA - Pacific Magic Sound Music For Relaxation (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Pacific Magic Sound Music For Relaxation (2016) [MP3|320 кб/с] <Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712135.jpg" />
+  <img src="Z:/picture/008/save_picture_712135.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Music Emotions Of The Earth (2018) [MP3|320 Kbps] <Harmonic, Euphoric, Upli
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711976.jpg" />
+  <img src="Z:/picture/008/save_picture_711976.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Record Super Chart 648 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711180.jpg" />
+  <img src="Z:/picture/008/save_picture_711180.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - DJ Exotic DnB: Heartbeat Mix (2022) [MP3|320 Kbps] <Drum And Bass, Jungle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710936.jpg" />
+  <img src="Z:/picture/008/save_picture_710936.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Future House 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <Funky, Future 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710192.jpg" />
+  <img src="Z:/picture/008/save_picture_710192.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Tropical House Crystal Weather (2016) [MP3|249-320 кб/с] <Funky, Future 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710186.jpg" />
+  <img src="Z:/picture/008/save_picture_710186.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Elite Lounge Mix (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710183.jpg" />
+  <img src="Z:/picture/008/save_picture_710183.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - X-Pollination: Tech House Dance Project (2016) [MP3|320 кб/с] <Techno, T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710113.jpg" />
+  <img src="Z:/picture/008/save_picture_710113.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Red Lips House: Soulful Female Vocal House Trax from Deep 2 Progressive (20
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710112.jpg" />
+  <img src="Z:/picture/008/save_picture_710112.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Daybreak Sessions 2016 By Tomorrowland (2016) [MP3|320 кб/с] <House, Tec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710108.jpg" />
+  <img src="Z:/picture/008/save_picture_710108.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Deep House Ladies Night (2018) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710050.jpg" />
+  <img src="Z:/picture/008/save_picture_710050.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Sweet Mix 2018 Play Now (2018) [MP3|320 Kbps] <Trap, Future Bass, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710044.jpg" />
+  <img src="Z:/picture/008/save_picture_710044.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Bass Killer 6 (2016) [MP3|320 кб/с] <Dubstep, Drum and Bass, Electro Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709931.jpg" />
+  <img src="Z:/picture/008/save_picture_709931.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Summer Magic Morning: Chillout Party (2020) [MP3|320 Kbps] <Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709395.jpg" />
+  <img src="Z:/picture/008/save_picture_709395.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Deep House Background Sound (2020) [MP3|320 Kbps] <Deep House, Electro, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709284.jpg" />
+  <img src="Z:/picture/008/save_picture_709284.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Beatport Trance  Pack (05.05.) (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709018.jpg" />
+  <img src="Z:/picture/008/save_picture_709018.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Private Lounge – Spring Session Vol.2 (2017) [MP3|320 Kbps] <Lounge, Deep
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708896.jpg" />
+  <img src="Z:/picture/008/save_picture_708896.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Dance Shape Workout Hits (2017) [MP3|320 Kbps] <Moombahton, Trap, Twerk, Bi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708892.jpg" />
+  <img src="Z:/picture/008/save_picture_708892.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Workout Mix vol.8 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708786.jpg" />
+  <img src="Z:/picture/008/save_picture_708786.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Synthetic (2017) [MP3|320 Kbps] <Synth Pop, Dark Electro, EBM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708784.jpg" />
+  <img src="Z:/picture/008/save_picture_708784.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Громче чем Бомба. Жаркий Уикенд. (Sound Clinic - 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708783.jpg" />
+  <img src="Z:/picture/008/save_picture_708783.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Kontor Festival Sounds 2016.02 - The Opening Season (2016) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708199.jpg" />
+  <img src="Z:/picture/008/save_picture_708199.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Lowrider Bass (2018) [MP3|320 Kbps] <Drum And Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708172.jpg" />
+  <img src="Z:/picture/008/save_picture_708172.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Club Dance Ambience vol.143 (2018) [MP3|320 Kbps] <Club House, Vocal House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708161.jpg" />
+  <img src="Z:/picture/008/save_picture_708161.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Club Dance Ambience vol.143 (2018) [MP3|320 Kbps] <Club House, Vocal House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A53B5C5E8CD1CE5A2F861E01896754EF2034B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026049   (708131) от 13.06.2016
-
-VA - Coffee Break: Sensational Chillout Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonoric Academy - Under Dress - Water Mix
-02. Interior Beats - Green Blink - Nigh O' Phonic Mix
-03. Ther Contact Project - Your Temptations - Red Flowers Mix
-04. Makina Jane - 2 Much - Rain Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020DC69295D7F0260E0BE4B05445E64D229AE954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025965   (708129) от 13.06.2016
-
-VA - Club Music Times Planet (2016) [MP3|253-320 кб/с] <Hands Up, Dancecore, Funky, Progressive, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Jump Feat. Gretha Ellis And The Bleach - Sikania (J-Art Mix) 02:52
-02. After Sunrise - Under The Sun 07:18
-03. Illusion - Together (Extended) 04:02
-04. Heath Liquid - Party People (Clubmix) 05:26(   Читать дальше...   )Жанр: Hands Up, Dancecore, Funky, Progressive, HouseПродолжительность: 08:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DC084764F65BECEB7ECC0A32B99FC6FF8A21F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861348   (1062701) от 
+
+Долина цветов / Valley of Flowers (2006) DVD9 [Director's Cut] [JPN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062701.jpg" />
+</div>
+
+
+###  Подробнее
+
+По самым высоким горным перевалам Гималаев странствует бесстрашный Джалан и его верные друзья, зарабатывающие на жизнь, грабя бесчисленные караваны. Но с загадочным появлением красавицы Ушны все меняется. Она не желает покидать Джалана и безошибочно ведет банду разбойников к новым добычам и указывает им новые неизвестные тропы, по которым идут богатые караваны, получая (   Читать дальше...   )Производство: Индия, Франция, Япония, Германия / Eurimages, Elzévir Films, DiaphanaЖанр: драма, приключения, фэнтези, романтикаРежиссер: Пан НалинАктеры: Милинд Соман, Милен Джампаной, Насируддин Шах, Джампа Калсанг, Анил Ядав, Migmar Tashi, Таши Дхондуп, Nawang Tharchin, Urgyen Tsering, SkalsangПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Английские (hardsub)Продолжительность: 02:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A39F99EB857EA00F32C79A532204A0201D1D0EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841313   (1047875) от 10.12.2025
 
 Один плюс одна / Un + Une / Un plus une (2015) BDRip [H.264] [FR / RU Sub]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047875.jpg" />
+  <img src="Z:/picture/008/save_picture_1047875.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043217.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041701.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033639.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031770.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031469.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029694.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026874.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024528.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013931.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012365.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012324.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011264.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005881.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264] [EN / RU, EN Su
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004212.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [EN / RU, EN Sub]
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004192.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004184.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996014.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990138.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989729.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989139.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988907.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985562.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984220.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982997.jpg" />
 </div>
 
 
@@ -649,34 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C055BCC695AFBFF5B08E30B2D8E01245D89D439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973356   (980042) от 08.01.2016
-
-Эйзенштейн в Гуанахуато / Eisenstein in Guanajuato (2015) DVDRip [H.264] [EN / IT Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980042.jpg" />
-</div>
-
-
-###  Подробнее
-
-В октябре 1931 года маститый кинорежиссёр Сергей Эйзенштейн, которому на тот момент тридцать три года, всё ещё девственник, путешествует по Мексике, работая над фильмом «Да здравствует Мексика!» (Que viva México), финансируемым частным образом американскими сторонниками коммунистов во главе с писателем Эптоном Синклером.
-
-Эйзенштейн намерен провести несколько (   Читать дальше...   )Производство: Нидерланды, Мексика, Финляндия, Бельгия, Франция, Yleisradio (YLE), Vrijzinnig Protestantse Radio Omroep (VPRO), ZDF/Arte, Fu Works, Mollywood, Edith Film Oy, Potemkino, Submarine, Paloma Negra FilmsЖанр: Комедия, МелодрамаРежиссер: Питер ГринуэйАктеры: Элмер Бэк, Луис Алберти, Майя Сапата, Лиза Оуэн, Стелио Саванте, Якоб Ёрман, Алан дель Кастильо, Райно РантаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: ИтальянскийПродолжительность: 01:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0C75864F108A1A5D49A6E34B2B3161DD548E41
 ```
 
 https://mybot314.ru/tekegram_catalog/

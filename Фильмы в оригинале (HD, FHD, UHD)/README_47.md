@@ -1,3 +1,107 @@
+###  Публикация: 1185575   (290628) от 22.11.2017
+
+Сделано в Америке / American Made (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был самым юным пилотом Боинга 747 в США, а уже через несколько лет стал одним из богатейших людей в Америке. Его стиль жизни был столь же экстремальным, как и его бизнес. Закрытые приемы, роскошные блондинки, крутые тачки и рисковые сделки. Он обладал талантом делать деньги из воздуха.Производство: США, Universal Pictures, Cross Creek Pictures, Imagine EntertainmentЖанр: Боевик, Биография, КомедияРежиссер: Даг ЛайманАктеры: Том Круз, Донал Глисон, Сара Райт, Джесси Племонс, Калеб Лэндри Джонс, Лола Кёрк, Джейма Мейс, Алехандро Эдда, Бенито Мартинес, Э. Роджер МитчеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Forced)Продолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598311426DD7CFACF2F7F5550E3F647E3EEB8AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263097   (289402) от 18.11.2018
+
+Маленькая Италия / Little Italy  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители Лео, как и родители Никки, приехали в Канаду из Италии и открыли здесь свою пиццерию. Между двумя ресторанами и двумя семьями устанавливается ожесточенная конкуренция. Тем временем между Лео и Никки, вопреки всему, завязывается роман.Производство: Канада, США / Firsttake EntertainmentЖанр: мелодрама, комедияРежиссер: Дональд ПитриАктеры: Хейден Кристенсен, Эмма Робертс, Алисса Милано, Дэнни Айелло, Андреа Мартин, Джейн Сеймур, Гэри Басараба, Адам Феррара, Васант Саранга, Линда Кэш, Амрит КаурПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3A5FC9CC5772D6F7A8E6B06DC1AA81C14A475F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263119   (289399) от 18.11.2018
+
+Мара. Пожиратель снов / Mara  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт Фуллер приписана к расследованию убийства мужчины, которого, как считает полиция, задушила во сне собственная жена. В качестве свидетеля проходит восьмилетняя дочь убитого, Софи. Все дальше углубляясь в это дело, Кейт узнает о существовании древнего демона, убивающего своих жертв во сне. Она испытывает те же чудовищные симптомы и кошмары, поэтому сон становится (   Читать дальше...   )Производство: Великобритания, США / Moon River Studios, Grodnik /Aloe Productions, Aloe Entertainment, A Brighter Headache, Digital Ignition Entertainment, Mann Made Films, Room 101, Synchronicity EntertainmentЖанр: ужасы, триллер, криминалРежиссер: Клайв ТонгАктеры: Ольга Куриленко, Крэйг Конуэй, Хавьер Ботет, Рози Феллнер, Лэнс Э. Николс, Маккензи Имсэнд, Тед Джонсон, Митч Икинс, Мелисса Болона, Маркус В. Уэзерсби, Дэнди Баррет, Ребекка АдамсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95FB4C3F3BDD70494A8ECC6231B71FC947890B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963205   (288725) от 07.12.2015
+
+Молли Мун и волшебная книга гипноза / Molly Moon and the Incredible Book of Hypnotism  (2015) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молли Мун - сирота. Она живет в Хардвикском приюте, где властвует ужасная мисс Гадкинс. Злобная старуха всячески унижает и притесняет девочку, старшие ребята дразнят ее, учителя ругают за несобранность - в общем, жизнь маленькой Молли сложно назвать счастливой. Но однажды в руки Молли Мун попадает таинственная старинная книга по гипнозу, и жизнь девочки в одночасье (   Читать дальше...   )Производство: Великобритания, Amber Entertainment, Lipsync ProductionsЖанр: семейныйРежиссер: Кристофер Н. РоулиАктеры: Рэффи Кэссиди, Эмили Уотсон, Доминик Монахэн, Джоан Коллинз, Селия Имри, Энн-Мэри Дафф, Сэди Фрост, Бен Миллер, Лесли Мэнвилл, Гари Кемп, Омид Джалили, Шонн ГрегориПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFEE3CE198B402949F51634FE0B3AD2DE6C50CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080508   (288281) от 07.12.2016
 
 Бриджит Джонс 3 / Bridget Jones's Baby  (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288281.jpg" />
+  <img src="Z:/picture/008/save_picture_288281.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288120.jpg" />
+  <img src="Z:/picture/008/save_picture_288120.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287636.jpg" />
+  <img src="Z:/picture/008/save_picture_287636.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287626.jpg" />
+  <img src="Z:/picture/008/save_picture_287626.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287368.jpg" />
+  <img src="Z:/picture/008/save_picture_287368.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287182.jpg" />
+  <img src="Z:/picture/008/save_picture_287182.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286960.jpg" />
+  <img src="Z:/picture/008/save_picture_286960.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286264.jpg" />
+  <img src="Z:/picture/008/save_picture_286264.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286112.jpg" />
+  <img src="Z:/picture/008/save_picture_286112.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285934.jpg" />
+  <img src="Z:/picture/008/save_picture_285934.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285581.jpg" />
+  <img src="Z:/picture/008/save_picture_285581.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285324.jpg" />
+  <img src="Z:/picture/008/save_picture_285324.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285209.jpg" />
+  <img src="Z:/picture/008/save_picture_285209.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285120.jpg" />
+  <img src="Z:/picture/008/save_picture_285120.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284443.jpg" />
+  <img src="Z:/picture/008/save_picture_284443.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) WEB-D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283573.jpg" />
+  <img src="Z:/picture/008/save_picture_283573.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283488.jpg" />
+  <img src="Z:/picture/008/save_picture_283488.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283370.jpg" />
+  <img src="Z:/picture/008/save_picture_283370.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280263.jpg" />
+  <img src="Z:/picture/008/save_picture_280263.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277503.jpg" />
+  <img src="Z:/picture/008/save_picture_277503.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277242.jpg" />
+  <img src="Z:/picture/008/save_picture_277242.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277126.jpg" />
+  <img src="Z:/picture/008/save_picture_277126.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF99D02F2683259F541195900B4DE286E170DB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336876   (277048) от 08.11.2019
-
-Она убивала в экстазе / Sie totete in Ekstase / She killed in Ecstasy (1971) BDRemux [H.264/1080p] [GER / EN Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой доктор Джонсон проводил эксперименты с человеческими эмбрионами, за что был осужден и лишен практики комиссией, состоящей из четырех авторитетных коллег — трех мужчин и женщины. Не в силах перенести этот удар судьбы, Джонсон наложил на себя руки. Его безутешная вдова задумала страшную месть: она соблазнила и убила членов той злополучной комиссии одного за (   Читать дальше...   )Производство: Германия (ФРГ), Испания / Tele-Cine Film- und FernsehproduktionЖанр: ужасыРежиссер: Хесус ФранкоАктеры: Соледад Миранда, Фред Уильямс, Пауль Мюллер, Говард Вернон, Ева Стрёмберг, Хорст Тапперт, Бени Кардосо, Хесус Франко, Рудольф Херцог, Карл Хайнц МаннхенПеревод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: Английские (.pgs)Продолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776F5C3547C9A262C1C356F4B8CB716F7B5E7CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187914   (276761) от 30.11.2017
-
-Вечеринка / The Party (2017) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дома у Билла и Джэнет собираются старые друзья — посидеть, выпить вина, поделиться новостями, тем более, что в жизни всех участников встречи происходит что-то интересное. Вечер удался бы на славу, но тут Билл сделал такое заявление, что настроение у всех резко испортилось. Теперь старые друзья уже готовы вцепиться друг другу в глотку, как в переносном, так и во вполне (   Читать дальше...   )Производство: Великобритания, Adventure Pictures, Oxwich MediaЖанр: Комедия, ДрамаРежиссер: Салли ПоттерАктеры: Патришия Кларксон, Бруно Ганц, Черри Джонс, Эмили Мортимер, Киллиан Мёрфи, Кристин Скотт Томас, Тимоти СполлПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F016098BA4B6C7F68574266CAB7C3979D0DA0934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187662   (276751) от 30.11.2017
-
-Иностранец / The Foreigner (2017) WEBRip [H.264/1080p-LQ] [EN / EN, CH Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший спецагент, ветеран вьетнамской войны Цюань давно сложил оружие и завел мирную жизнь. Но после того, как в теракте прямо на глазах погибает его дочь-подросток, видя, что власти не спешат разыскивать преступников, Цюань сам начинает поиск убийцы. Он пойдет на все, чтобы совершить праведное возмездие…Производство: Великобритания, Китай, США / STX Entertainment, Sparkle Roll Media, Wanda Media Co.Жанр: Боевик, Криминал, Драма, ТриллерРежиссер: Мартин КэмпбеллАктеры: Кэти Льюнг, Джеки Чан, Руфус Джонс, Марк Тэнди, John Cronin, Каолан Бирн, Donna Bernard, Аарон Монахэн, Niall McNamee, Пирс БроснанПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, китайские (вшитые, неотключаемые)Продолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5583CED68F45CAC991F396695BF6B0A7E9B9953D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187866   (276704) от 30.11.2017
-
-Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США / Twentieth Century Fox, Marv Films, Shangri-La EntertainmentЖанр: Боевик, Приключения, КомедияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Отдельным файлом)Продолжительность: 02:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F35874EF3BD485991F6F724EBA18431D4F2A42
 ```
 
 https://mybot314.ru/tekegram_catalog/

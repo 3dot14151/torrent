@@ -1,3 +1,61 @@
+###  Публикация: 1745042   (105170) от 24.08.2024
+
+Михаил Иноземцев - 1/4 века с поэтами (2024) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Колесо любви [00:04:20]
+02 - Пятый лепесток сирени [00:03:37]
+03 - Поздняя любовь [00:04:00]
+04 - Аллея опять в цвету [00:03:45](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2978B87B45223EEDF23A679DBC5835DB883CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745693   (105028) от 27.08.2024
+
+Андрей В. Евсеев - Тонкий контур (2024) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Романсеро [00:03:15]
+02 - Путь [00:02:35]
+03 - Дальтоник [00:03:52]
+04 - Возвращение [00:04:16](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5047E6F5AD4F101FCEE812FA4349A8577FCA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745051   (105026) от 27.08.2024
 
 Лидия Чинарева - Жду тебя дома (2024) [MP3|320 Kbps] <Shanson, Авторская песня>
@@ -6,7 +64,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105026.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105018.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104838.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Здорово, бандиты! (Ништяк,браток!) (1999) [MP3|32
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104830.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104792.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103826.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103372.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103368.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103367.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103353.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103343.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103342.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103340.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103099.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101488.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101430.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101170.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100697.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85701.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79261.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71969.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71967.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71958.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71176.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CE2DCF3CC6E70530B77992A45CF79B918D34CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776545   (71159) от 02.02.2025
-
-Константин Жиляков - Ништяк Браток. Лучшее под гитару 2 (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бригада [00:03:51]
-02 - Ништяк браток [00:02:49]
-03 - Блатной король [00:03:35]
-04 - Блатной король-2 [00:03:20](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01DE2970BDE35A8B1B78F5D38B90B7E5FDFAF9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778673   (70788) от 10.02.2025
-
-Ефрем Амирамов - Вся жизнь куда-то катится (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белый аист
-02. Молодая
-03. Соловей и ворона
-04. Неслучайная песня(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC33E4FCEB4B46D157704AFE6FA58BEA6653E6E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

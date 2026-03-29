@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875177.jpg" />
+  <img src="Z:/picture/005/save_picture_875177.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875176.jpg" />
+  <img src="Z:/picture/005/save_picture_875176.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875175.jpg" />
+  <img src="Z:/picture/005/save_picture_875175.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - FG Top 10 February (2017) [MP3|320 Kbps] <Trance,Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875171.jpg" />
+  <img src="Z:/picture/005/save_picture_875171.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Who's Afraid Of 138?! Top 15 2017-02 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875170.jpg" />
+  <img src="Z:/picture/005/save_picture_875170.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875169.jpg" />
+  <img src="Z:/picture/005/save_picture_875169.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875167.jpg" />
+  <img src="Z:/picture/008/save_picture_875167.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875154.jpg" />
+  <img src="Z:/picture/005/save_picture_875154.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ WPS Office 10.1.0.5507 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875152.jpg" />
+  <img src="Z:/picture/005/save_picture_875152.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875141.jpg" />
+  <img src="Z:/picture/005/save_picture_875141.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ UnHackMe 7.97 Build 497 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875134.jpg" />
+  <img src="Z:/picture/008/save_picture_875134.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ RapidWeaver 8 v8.6.1 (build 20831) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875103.jpg" />
+  <img src="Z:/picture/005/save_picture_875103.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ PullTube 1.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875100.jpg" />
+  <img src="Z:/picture/005/save_picture_875100.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ URL Manager Pro 5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875099.jpg" />
+  <img src="Z:/picture/005/save_picture_875099.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Artstudio Pro 2.3.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875097.jpg" />
+  <img src="Z:/picture/005/save_picture_875097.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ PullTube 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875096.jpg" />
+  <img src="Z:/picture/005/save_picture_875096.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ goPanel 2 v2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875095.jpg" />
+  <img src="Z:/picture/005/save_picture_875095.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ A Better Finder Rename 11 v11.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875092.jpg" />
+  <img src="Z:/picture/005/save_picture_875092.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875091.jpg" />
+  <img src="Z:/picture/005/save_picture_875091.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NoteBurner iTunes DRM Audio Converter 2.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875090.jpg" />
+  <img src="Z:/picture/005/save_picture_875090.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875083.jpg" />
+  <img src="Z:/picture/005/save_picture_875083.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Unforgettable Melodies (1991)2CD [FLAC|Lossless|image + .cue] <Instrumental
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875082.jpg" />
+  <img src="Z:/picture/005/save_picture_875082.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875079.jpg" />
+  <img src="Z:/picture/005/save_picture_875079.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AnyTrans 5.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875078.jpg" />
+  <img src="Z:/picture/005/save_picture_875078.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Greenosophy Chapter II (Compiled by Mizoo) (2017) [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875077.jpg" />
+  <img src="Z:/picture/005/save_picture_875077.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Pastebot 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875060.jpg" />
+  <img src="Z:/picture/005/save_picture_875060.jpg" />
 </div>
 
 

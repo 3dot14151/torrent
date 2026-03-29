@@ -1,3 +1,112 @@
+###  Публикация: 1250023   (428612) от 26.09.2018
+
+ScreenFlow 8.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428612.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenFlow  - создаем свои скринкасты
+Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его свежекупленном маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
+
+Простая, но крайне мощная программа для захвата и записи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2877F1A16130A6C08E8ECAF91BA348205A14CF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166097   (428516) от 15.09.2017
+
+Bartender 3 Beta v.3.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1975AA1AAAE8872C6AC2D1F74538F4A3F00AB7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064370   (428384) от 19.10.2016
+
+Layouts for Keynote 3.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Layouts for Keynote представляет собой набор из 79 тем, созданных для уникальных слайд-шоу с помощью команды разработчиков Jumsoft.  Каждая тема содержит, по меньшей мере, 20 мастер-слайдов, охватывающих все, начиная от основных макетов до сложных диаграмм и иллюстраций. Все фото слайды имеют медиа-заполнители  и большинство элементов визуализации можно легко редактировать. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 октября 2016Разработчик: JumsoftПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D982C058C53562616BD8AE68E5B78793D47A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250043   (428225) от 26.09.2018
+
+VMware Fusion Pro 11.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428225.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Fusion: удобная и мощная виртуальная машина для Mac
+С помощью решения VMware Fusion пользователи Mac могут запускать ОС Windows и сотни других операционных систем одновременно с приложениями Mac без перезагрузки. Решение Fusion сочетает в себе удобство работы для домашних пользователей и широкие возможности для ИТ-специалистов, разработчиков и организаций. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: VMware, Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D73C23CA267A9A0C1B15F52CCB7385632EF6E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064234   (428213) от 19.10.2016
 
 Boinx mimoLive 2.6 [En]
@@ -6,7 +115,7 @@ Boinx mimoLive 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428213.jpg" />
+  <img src="Z:/picture/008/save_picture_428213.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ Tower 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428210.jpg" />
+  <img src="Z:/picture/008/save_picture_428210.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ ExactScan Pro 16.10.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428209.jpg" />
+  <img src="Z:/picture/008/save_picture_428209.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ NoteBurner iTunes DRM Audio Converter 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428177.jpg" />
+  <img src="Z:/picture/008/save_picture_428177.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ KeyFlow Pro 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428060.jpg" />
+  <img src="Z:/picture/008/save_picture_428060.jpg" />
 </div>
 
 
@@ -141,7 +250,7 @@ Polarr Photo Editor 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428055.jpg" />
+  <img src="Z:/picture/008/save_picture_428055.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ Coda 2.5.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427908.jpg" />
+  <img src="Z:/picture/008/save_picture_427908.jpg" />
 </div>
 
 
@@ -197,7 +306,7 @@ iMazing 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427763.jpg" />
+  <img src="Z:/picture/008/save_picture_427763.jpg" />
 </div>
 
 
@@ -224,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427644.jpg" />
+  <img src="Z:/picture/008/save_picture_427644.jpg" />
 </div>
 
 
@@ -250,7 +359,7 @@ PhoneClean Pro 4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427499.jpg" />
+  <img src="Z:/picture/008/save_picture_427499.jpg" />
 </div>
 
 
@@ -277,7 +386,7 @@ Remote Desktop Manager Enterprise 2020.2.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427346.jpg" />
+  <img src="Z:/picture/008/save_picture_427346.jpg" />
 </div>
 
 
@@ -303,7 +412,7 @@ BlueHarvest 6.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427302.jpg" />
+  <img src="Z:/picture/008/save_picture_427302.jpg" />
 </div>
 
 
@@ -332,7 +441,7 @@ Unibox 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427254.jpg" />
+  <img src="Z:/picture/008/save_picture_427254.jpg" />
 </div>
 
 
@@ -359,7 +468,7 @@ Bartender 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427251.jpg" />
+  <img src="Z:/picture/008/save_picture_427251.jpg" />
 </div>
 
 
@@ -386,7 +495,7 @@ Downcast 2.9.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427199.jpg" />
+  <img src="Z:/picture/008/save_picture_427199.jpg" />
 </div>
 
 
@@ -414,7 +523,7 @@ Temp Monitor 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427192.jpg" />
+  <img src="Z:/picture/008/save_picture_427192.jpg" />
 </div>
 
 
@@ -440,7 +549,7 @@ SnippetsLab 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427188.jpg" />
+  <img src="Z:/picture/008/save_picture_427188.jpg" />
 </div>
 
 
@@ -466,7 +575,7 @@ PDFelement Express 0.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427184.jpg" />
+  <img src="Z:/picture/008/save_picture_427184.jpg" />
 </div>
 
 
@@ -492,7 +601,7 @@ SQLPro Studio 1.0.302 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427182.jpg" />
+  <img src="Z:/picture/008/save_picture_427182.jpg" />
 </div>
 
 
@@ -518,7 +627,7 @@ Butler 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427115.jpg" />
+  <img src="Z:/picture/008/save_picture_427115.jpg" />
 </div>
 
 
@@ -544,7 +653,7 @@ Pixellu SmartAlbums 2 v2.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426985.jpg" />
+  <img src="Z:/picture/008/save_picture_426985.jpg" />
 </div>
 
 
@@ -570,7 +679,7 @@ Espresso 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426977.jpg" />
+  <img src="Z:/picture/008/save_picture_426977.jpg" />
 </div>
 
 
@@ -581,118 +690,6 @@ Espresso - программа для веб-разработчиков и веб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:547FA36D5EF9105FCEF783011103693B2C370772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250148   (426976) от 27.09.2018
-
-Folx Downloader Pro 5 v5.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426976.jpg" />
-</div>
-
-
-###  Подробнее
-
-FOLX 5 - Менеджер загрузок для Мас
-
-Folx- бесплатный менеджер загрузок с удобным интерфейсом в стиле Mac OS. Менеджер загрузок предлагает удобную систему управления загрузок, гибкие настройки и т.д
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2018Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BCB7C4409319FAC056D578A9BC82CC36BFB569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166343   (426917) от 16.09.2017
-
-ChronoSync 4.8.0 & ChronoAgent 1.6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426917.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChronoSync  - синхронизируем файлы и папки
-ChronoSync представляет собой приложение для Mac, который может использоваться для синхронизации или резервного копирования файлов и папок. Позволяет сделать резервное копирование всей системы  также, создав загрузочную резервную копию.
-
-С ChronoSync можно синхронизировать или делать резервные копировании для большинства  устройств (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2017Разработчик: Econ Technologies, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D65C7FB158A1FBA2BC0CFC593AA658312A3F584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250108   (426883) от 27.09.2018
-
-TechSmith Snagit 2018.2.3  (90457)[En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426883.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2018Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0317A8EB1BEBB55905A7FEBB7AEB52E96F4727B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250170   (426875) от 27.09.2018
-
-Rhinoceros 5 v5.5.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
-
-Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2018Разработчик: Robert McNeel & Associates (McNeel)Поддерживаемая ОС: macOS 10.8.5 +Язык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733CC207E1780E95DDA76F2B98570948160AFBAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

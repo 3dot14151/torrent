@@ -1,3 +1,110 @@
+###  Публикация: 1430125   (175061) от 08.12.2020
+
+Adobe XD 35.1.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39451DE5217A10D91FB48C98C29C90FAA47DDD2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429970   (175053) от 08.12.2020
+
+Exposure X6 Bundle v6.0.2.124 [EN]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Exposure Software, LLCПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86486A58928B26A3AF2950F21DEE6462F562B438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429950   (174993) от 08.12.2020
+
+Disk Drill Enterprise 4.1.206 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill Enterprise - самое популярное приложение для восстановлени данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
+
+После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: CleverFilesПоддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AE1956E4EFDABDBB64C28E996249812DAF4175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667929   (174983) от 10.10.2023
+
+Final Cut Pro X 10.6.10 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2023Разработчик: © 2011-2023 Apple Inc.Поддерживаемая ОС: macOS 13.4 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4AADB5500CB30692575E1B6164E48D1F262F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668082   (174976) от 10.10.2023
 
 CleanMyMac X 4.14.3 [Multi]
@@ -6,7 +113,7 @@ CleanMyMac X 4.14.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174976.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Adobe Bridge 2021 11.0 incl. ARC13.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174953.jpg" />
+  <img src="Z:/picture/004/save_picture_174953.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Capture One 21 Pro 14.0.0.275 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174901.jpg" />
+  <img src="Z:/picture/004/save_picture_174901.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Keep It 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174841.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ OmniGraffle Pro 7 v7.18.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174838.jpg" />
+  <img src="Z:/picture/004/save_picture_174838.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Dato 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174832.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ File List Export 2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174828.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ SpamSieve 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174826.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ OmniFocus Pro 3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174823.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ Fork 2.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174814.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ Mimestream 1.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174806.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Adobe InDesign 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174793.jpg" />
+  <img src="Z:/picture/004/save_picture_174793.jpg" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174786.jpg" />
 </div>
 
 
@@ -349,7 +456,7 @@ RightFont 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174784.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ Scrivener 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174780.jpg" />
 </div>
 
 
@@ -403,7 +510,7 @@ Dynamic Wallpaper Engine 16.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174752.jpg" />
 </div>
 
 
@@ -429,7 +536,7 @@ Adobe Illustrator 2021 v25.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174731.jpg" />
+  <img src="Z:/picture/004/save_picture_174731.jpg" />
 </div>
 
 
@@ -455,7 +562,7 @@ ForkLift 4 v.4.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174685.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ Live Home 3D Pro Edition 4.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174653.jpg" />
 </div>
 
 
@@ -508,7 +615,7 @@ Hazel 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174641.jpg" />
+  <img src="Z:/picture/004/save_picture_174641.jpg" />
 </div>
 
 
@@ -534,7 +641,7 @@ MarsEdit 4 v4.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174599.jpg" />
+  <img src="Z:/picture/004/save_picture_174599.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ Xliff Editor 2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174596.jpg" />
+  <img src="Z:/picture/004/save_picture_174596.jpg" />
 </div>
 
 
@@ -573,115 +680,6 @@ Xliff Editor- предоставляет простой способ редак�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9274BAC9F7E204C647A82576C9A8EE2DD7E4E2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430202   (174594) от 09.12.2020
-
-Smultron 12.2.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smultron - простой и удобный редактор
-Smultron - простой и элегантный текстовый редактор, с которым можно легко создавать и редактировать любые неформатированные тексты.
-
-По словам разработчика, при создании редактора ставилась задача снабдить программу богатой функциональностью и обеспечить удобство ее использования как для опытных пользователей, так и для новичков. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8E65F231E8C9102EFDDF1E409736AD4CA4F4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430168   (174590) от 09.12.2020
-
-AYBO 1.17.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174590.jpg" />
-</div>
-
-
-###  Подробнее
-
-С AYBO вы можете выполнять любые расчеты, конвертировать единицы измерения, конвертировать валюту, проверять погоду, устанавливать таймеры, строить графики, решать простые уравнения. Вы даже можете создавать свои собственные команды.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Sergiy LavrykПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E039EBBD5799A7321C1AAF9A0B8C0EE8179AC264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430176   (174587) от 09.12.2020
-
-Receipts 1.9.11b2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент управления счетами, который может определять сумму, записанную в каждом счете-фактуре, и автоматически упорядочивать записи по поставщику или категории
-
-Receipts призван помочь вам эффективно управлять и упорядочивать входящие счета: вы импортируете документы, и утилита попытается автоматически определить сумму, преобразовать ее в ссылочную валюту и отсортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Dirk HoltwickПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C28356E2A172DB2B60C1D3DD2C71F9378FE9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430283   (174584) от 09.12.2020
-
-Path Finder 10.0b12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: CocoatechПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81287DC4717FE5DBF0C365DE5A8E0BAC875F891D
 ```
 
 https://mybot314.ru/tekegram_catalog/

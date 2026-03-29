@@ -6,7 +6,7 @@ VideoProc (former MacX Video Converter Pro) 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856174.jpg" />
+  <img src="Z:/picture/008/save_picture_856174.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VideoProc Converter 4K 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856172.jpg" />
+  <img src="Z:/picture/008/save_picture_856172.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wondershare UniConverter 13.1.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856166.jpg" />
+  <img src="Z:/picture/008/save_picture_856166.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Paw (HTTP & REST Client) 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856163.jpg" />
+  <img src="Z:/picture/008/save_picture_856163.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856085.jpg" />
+  <img src="Z:/picture/008/save_picture_856085.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ HDCleaner 2.009 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856052.jpg" />
+  <img src="Z:/picture/008/save_picture_856052.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Opera 79.0.4143.66 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856050.jpg" />
+  <img src="Z:/picture/008/save_picture_856050.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ ScreenToGif 2.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856043.jpg" />
+  <img src="Z:/picture/008/save_picture_856043.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Comodo Dragon 92.0.4515.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856038.jpg" />
+  <img src="Z:/picture/008/save_picture_856038.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856001.jpg" />
+  <img src="Z:/picture/008/save_picture_856001.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ One Piece Film Z / Ван-Пис: Фильм двенадцатый [2012, MV] H
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855988.jpg" />
+  <img src="Z:/picture/008/save_picture_855988.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855952.jpg" />
+  <img src="Z:/picture/008/save_picture_855952.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855950.jpg" />
+  <img src="Z:/picture/008/save_picture_855950.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855949.jpg" />
+  <img src="Z:/picture/008/save_picture_855949.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855946.jpg" />
+  <img src="Z:/picture/008/save_picture_855946.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855945.jpg" />
+  <img src="Z:/picture/008/save_picture_855945.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855944.jpg" />
+  <img src="Z:/picture/008/save_picture_855944.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855941.jpg" />
+  <img src="Z:/picture/008/save_picture_855941.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855939.jpg" />
+  <img src="Z:/picture/008/save_picture_855939.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855929.jpg" />
+  <img src="Z:/picture/008/save_picture_855929.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VueScan Pro 9.7.66 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855920.jpg" />
+  <img src="Z:/picture/008/save_picture_855920.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855909.jpg" />
+  <img src="Z:/picture/008/save_picture_855909.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Notepad++ 8.1.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855903.jpg" />
+  <img src="Z:/picture/008/save_picture_855903.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Video Thumbnails Maker Platinum 15.3.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855901.jpg" />
+  <img src="Z:/picture/008/save_picture_855901.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855822.jpg" />
+  <img src="Z:/picture/008/save_picture_855822.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Mo'jardo - La Cultura (2014) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855819.jpg" />
+  <img src="Z:/picture/008/save_picture_855819.jpg" />
 </div>
 
 

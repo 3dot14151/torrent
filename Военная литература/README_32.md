@@ -1,3 +1,29 @@
+###  Публикация: 928652   (521700) от 17.08.2015
+
+Андрей Харук | "Кондоры" Люфтваффе. Дальний бомбардировщик и разведчик Fw 200 "Condor" (2015) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521700.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Бич Атлантики" ("Scourge of the Atlantic") - так окрестил "Фокке-Вульф" Fw 200 "Condor" Уинстон Черчилль.  Созданный как пассажирский авиалайнер и ставший не только личным самолетом Гитлера и Геринга, но и "визитной карточкой" Люфтганзы на международных авиалиниях, с началом Второй Мировой войны "Кондор" (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4093B3E0E722EA094A2FFDFC2EC3C2B89D294700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534204   (521523) от 12.08.2012
 
 И.И.Богдан (ред.) | Зенитный пушечно ракетный комплекс «Тунгуска» [1991] [DJVU]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521523.jpg" />
+  <img src="Z:/picture/008/save_picture_521523.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521047.jpg" />
+  <img src="Z:/picture/008/save_picture_521047.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520245.jpg" />
+  <img src="Z:/picture/008/save_picture_520245.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520016.jpg" />
+  <img src="Z:/picture/008/save_picture_520016.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517746.jpg" />
+  <img src="Z:/picture/008/save_picture_517746.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517698.jpg" />
+  <img src="Z:/picture/008/save_picture_517698.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517475.jpg" />
+  <img src="Z:/picture/008/save_picture_517475.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514582.jpg" />
+  <img src="Z:/picture/008/save_picture_514582.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514580.jpg" />
+  <img src="Z:/picture/008/save_picture_514580.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Conway Maritime Press | Подборка военно-морской литер�
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514304.jpg" />
+  <img src="Z:/picture/008/save_picture_514304.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513478.jpg" />
+  <img src="Z:/picture/008/save_picture_513478.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513310.jpg" />
+  <img src="Z:/picture/008/save_picture_513310.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510329.jpg" />
+  <img src="Z:/picture/008/save_picture_510329.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509363.jpg" />
+  <img src="Z:/picture/008/save_picture_509363.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509283.jpg" />
+  <img src="Z:/picture/008/save_picture_509283.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509270.jpg" />
+  <img src="Z:/picture/008/save_picture_509270.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506071.jpg" />
+  <img src="Z:/picture/008/save_picture_506071.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501248.jpg" />
+  <img src="Z:/picture/008/save_picture_501248.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500219.jpg" />
+  <img src="Z:/picture/008/save_picture_500219.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497218.jpg" />
+  <img src="Z:/picture/008/save_picture_497218.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495780.jpg" />
+  <img src="Z:/picture/008/save_picture_495780.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495722.jpg" />
+  <img src="Z:/picture/008/save_picture_495722.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495043.jpg" />
+  <img src="Z:/picture/008/save_picture_495043.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493700.jpg" />
+  <img src="Z:/picture/008/save_picture_493700.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492952.jpg" />
+  <img src="Z:/picture/008/save_picture_492952.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2779D71173CD640DD84EA94D4B9E68E4F3ECAEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936370   (492261) от 13.09.2015
-
-Борис Алмазов | Петербург – столица русской гвардии. История гвардейских подразделений. Структура войск. Боевые действия. Выдающиеся личности (2015) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петербург – уникальный город. Большая часть событий за три века имперской истории проходила здесь! Здесь служили, отсюда отправлялись на войну, сюда возвращались победители. Здесь покоятся на забытых кладбищах или изваяны в бронзе герои минувших времен. В Северной столице тысячи уникальных памятных мест, сотни имен на карте города и, кроме того, целые районы и кварталы, (   Читать дальше...   )Жанр: История, Биографии и Мемуары, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B7880A5E1BBCC6E5B2A58E7134669D7A5CBA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

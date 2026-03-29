@@ -1,3 +1,61 @@
+###  Публикация: 1012808   (778396) от 02.05.2016
+
+VA - Energy Dreamstate Melodic (2016) [MP3|320 кб/с] <Trance, Melodic, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fisical Project -  After Falling (Original Mix)  7:26
+02. Paul Shields -  Emerald (Original Mix)  6:16
+03. Lostly -  Heading Back  6:05
+04. KAYA -  Dervish Dream (Oriental Mix)  6:24(   Читать дальше...   )Жанр: Trance, Melodic, HarmonicПродолжительность: 02:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5D256135D9EB48C5C0B4478D9DD00EF4E46257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012965   (778384) от 02.05.2016
+
+VA - Sunset Lounge Music - Sexual Buddha Lounge Chill Songs Relaxation (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe du Soleil - Sunset Lounge (Sensuality) [04:14]
+02. Lounge Safari Buddha Chillout do Mar Cafe - Bollywood, India Style (Guitar) [05:07]
+03. Light On - Ambient (Electronic Music) [04:43]
+04. Indigo Zen Garden - Beach Party (Deep) [03:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D01D00B8469DB6EE8A652941E487EAE851A35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211077   (778237) от 05.03.2018
 
 VA - Empire Records - Progressive Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Empire Records - Progressive Lounge (2018) [MP3|320 Kbps] <Downtempo, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778237.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Empire Records - Deep Disco 7 (2018) [MP3|320 Kbps] <Disco, Nu Disco, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778204.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Empire Records - Blue Line Trance 2 (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777896.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Empire Records - Magic House 3 (2018) [MP3|320 Kbps] <House, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777874.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Pulsed Future House Sounds (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777681.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - True Trance Sounds High Shades (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777678.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Rave Mix (2016) [MP3|320 кб/с] <House, Electro House, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777674.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - LUXEmusic Топ Апрель (2016) [MP3|320 кб/с] <Club House, Dance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777670.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Workout Hits Shade (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777668.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - 100 Ultimate Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777665.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - TOP 100 Club Tracks (April) (2016) [MP3|160-320 кб/с] <Club House, Vocal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777663.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Workout Motivation Mix (2016) [MP3|320 кб/с] <House, Electro House, Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777647.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - TOP 100 Deep House (April) (2016) [MP3|24-320 кб/с] <House, Indie Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777624.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Techno Sound [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Techno, Tech House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777568.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Club Dance Ambience vol.67 (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777413.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Festival Anthems Club EDM (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777344.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Straight Up Ear Candy Vol. 2 (2016) [MP3|320 кб/с] <Electro House >
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777343.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Top Club Music World Hits Vol.75 (2016) [MP3|320 кб/с] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777315.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Hed Kandi - 169 Best House Tracks In The Past 15 Years (2017) [Compiled by 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777156.jpg" />
+  <img src="Z:/picture/008/save_picture_777156.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Girls like Summer Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776969.jpg" />
+  <img src="Z:/picture/008/save_picture_776969.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Trance Eve Volume 68 (2014) [MP3|320 кб/с] <Vocal Trance, Uplifting Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776966.jpg" />
+  <img src="Z:/picture/008/save_picture_776966.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Relaxing Sunset Lounge Ibiza (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776965.jpg" />
+  <img src="Z:/picture/008/save_picture_776965.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Melodies Of Emotions Saturn (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776959.jpg" />
+  <img src="Z:/picture/008/save_picture_776959.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Trance Desire Volume 68 (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776954.jpg" />
+  <img src="Z:/picture/008/save_picture_776954.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Trance Desire Volume 68 (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97BDB3F15EF651A6699DAEEA8FC9ADB51F1E0916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013627   (776951) от 06.05.2016
-
-VA - Spring Break Beach Party (2016) [MP3|320 кб/с] <Progressive House,Techno, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funtom Cruisers - Boarding (Original Mix)
-02. Dj Rohan - Bring The Bass Back (Original Mix)
-03. Inquisitive - Rave Slam (Original Mix)
-04. D.J. Mash Up - Summertime Sadness (Remix)(   Читать дальше...   )Жанр: Progressive House,Techno, HouseПродолжительность: 06:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282FBD98DCF4CA6E191DEBCFCD7C5978A009EE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013937   (776950) от 06.05.2016
-
-VA - Rain Hugs: Relax Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776950.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Area Code 51 - Hook City
-002. Lan Sub - 7 Years - Acoustic Guitar
-003. Coffee Machine - I've Got You
-004. W. Dekay - Charming Night(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B30713040B1733D5A5F6F02C30AF30B0C5C5CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

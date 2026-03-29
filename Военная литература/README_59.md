@@ -1,3 +1,30 @@
+###  Публикация: 1798005   (17760) от 19.05.2025
+
+В.И. Соловьёв, П.Н. Квасов, С.А. Абрамов | Содержание автомобильной техники в парках воинских частей Вооружённых Сил РФ (2024) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17760.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены основные положения по устройству парка воинской части, основных его элементов, предназначенных для содержания и технического обслуживания автомобильной техники. Раскрыт порядок организации внутренней службы в парке и использования военной автомобильной техники.
+Учебное пособие предназначено для студентов военных учебных центров, обучающихся (   Читать дальше...   )Жанр: учебное пособиеИздательство: МАДИФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B411A1800CE0EB0595B219C5C864909C811CB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799903   (16096) от 31.05.2025
 
 В.В. Бурьян, С.А. Кузенков, Т.А Темирханов и др. | Горная подготовка (2022) [PDF]
@@ -6,7 +33,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16096.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15873.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14327.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14225.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13824.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13174.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13006.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10498.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10149.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9417.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9336.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8706.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7520.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7160.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6619.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6491.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5585.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4175.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4159.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1732.jpg" />
 </div>
 
 

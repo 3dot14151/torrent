@@ -1,3 +1,119 @@
+###  Публикация: 986109   (932644) от 13.02.2016
+
+Dave McKenna & Hal Overton - Dual Piano Jazz (1960) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Keepin' Out Of Mischief [04:43]
+ 02.Monk's Mood [04:22]
+ 03.Dizzy Atmosphere [04:17]
+ 04.Baubles, Bangles And Beads [05:15](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591AFC6EE451D8612CB8A07C375AFDE7A045672C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986113   (932632) от 13.02.2016
+
+Tete Montoliu - Blues For Myself (1977) Remaster, 2015, DiscMedi Blau[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues for Corien [05:15]
+ 02.You've Changed [07:36]
+ 03.It Could Happen to You [06:12]
+ 04.Blues for Myself [06:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3B6F3C2A45CA074241FB9F4D03A167F5F2207E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986055   (932589) от 13.02.2016
+
+Datura - Datura (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Jazz-Pop, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil's Tune
+02. One Sorry Boy
+03. Restless Heart
+04. Two Guns(   Читать дальше...   )Жанр: Vocal Jazz, Jazz-Pop, BluesПродолжительность: 00:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D62B15F5D2522DF3A878E4466E91CB83AB02BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093864   (932545) от 16.01.2017
+
+Dusko Goykovich - Bebop City (1995) Enja[FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sunrise In St. Petersburg [07:42]
+ 02.In The Sign Of Libra [07:02]
+ 03.Bebop City [07:08]
+ 04.Lament [06:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7935C3A07EF68EE13CAD320057CA040D3144922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093866   (932544) от 16.01.2017
 
 George Cables Trio - Cables' Fables (1991) 1995, SteepleChase[APE|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -6,7 +122,7 @@ George Cables Trio - Cables' Fables (1991) 1995, SteepleChase[APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932544.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Louis Armstrong - La Vie En Rose (1930-1950) 1995, Success[APE|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932372.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Charlie Barnet - Classic Jazz Archive 1939 - 1945 (2004) 2CD, Membran Music [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932341.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Fourplay - Energy (2008) [FLAC|Lossless]<Smooth-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932187.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ Ella Fitzgerald & Count Basie - On The Sunny Side Of The Street (1984) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932071.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ Jason Parker Quartet - Homegrown (2014) [FLAC|Lossless|WEB-DL|tracks] <Hard Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931083.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Victor Feldman - Rio Nights (1977/1987) TBA Records[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931078.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Rene Thomas - Hommage A… Rene Thomas (1974) Remaster, 2015, Solid Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931057.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Gene Krupa - Quadromania: Drummin' Man (1938-1949) 4CD, 2005, Membran Music Ltd.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931056.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Anne Quillier 6tet - Daybreak (2016) [FLAC|Lossless|tracks + .cue] <Contemporary
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931049.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ John Coltrane - A Love Supreme (1964) 2008, Verve[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931041.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Baptiste Herbin - Interferences (2016) [FLAC|Lossless|WEB-DL|tracks] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931038.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Laura Ellis - Broken, Lovely (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931006.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Earl Klugh - Crazy For You (1995) Blue Note[FLAC|Lossless|tracks + .cue] <Jazz S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930990.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Jorge Pardo & Chano Dominguez - 10 de Paco (1995) Nuevos Medios[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930987.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Enrico Pieranunzi, Andre Ceccarelli, Diego Imbert - Menage A Trois (2016) Bonsai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930943.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Miles Davis - Sketches Of Spain / And The Modern Jazz Giants (1954, 1956, 1959) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_930930.jpg" />
+  <img src="Z:/picture/008/save_picture_930930.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Hiromi Uehara - Spark (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Progressive 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930843.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Karen Souza - Essentials II (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930737.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Jack McDuff with Jimmy Forrest - Tough 'Duff (1960) 1995, Prestige[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929456.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Tiziana Ghiglioni - Sings Gaslini (1995) Soul Note[FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929455.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Modern Jazz Quartet - Modern Jazz Archive (1951, 1952) 2CD, 2004, Membran Music[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929394.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ CD1 - Bluesology:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A60C59C850F16A9EB33E26EBFD80251809F97865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094621   (929390) от 18.01.2017
-
-Alfredo Rodriguez - Tocororo (2016) Mack Avenue[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chan Chan [02:10]
- 02.Yemaya [03:43]
- 03.Raices (Roots) [04:29]
- 04.Gitanerias [03:59](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Cuban JazzПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7775956C9958CBC2377C6BA3380CC8D79B3B682C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094574   (929389) от 18.01.2017
-
-John Pizzarelli - Dear Mr. Cole (1995) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Style Is Coming Back In Style (2:45)
-02. What Can I Say After I Say I'm Sorry (2:26)
-03. Little Girl (2:55)
-04. You Must Be Blind (3:42)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB1EE9AEFBDA921EB92F5162D1FC6FD528816AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365633   (929148) от 08.03.2020
-
-Lambert, Hendricks & Ross - Four Classic Albums 1957 - 1959 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929148.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Everyday [5:21]
-02. It's Sand, Man! [2:30]
-03. Two For The Blues [2:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA2632913106621E581D375E23A07B21D3AF681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862695   (929133) от 24.01.2015
-
-Archie Shepp - Ballads for Trane (1984) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Eyes [06:43]
-02. You Don't Know What Love Is [05:45]
-03. Wise One [07:05]
-04. Where Arf You? [06:22](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9699A192EC0CAEAA21D4DB477BBBEAC66464ACEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

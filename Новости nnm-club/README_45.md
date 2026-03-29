@@ -1,3 +1,111 @@
+###  Публикация: 1350718   (901137) от 24.03.2020
+
+Murenase! Seton Gakuen / Seton Academy: Join the Pack! / Объединяйся! Академия Сэтон [2020, TV, 12] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901137.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «Академии Сэтон» учатся в основном животные, пусть разумные, говорящие и ходящие на двух ногах, но во многом верные своим животным привычкам. Дзин Мадзама, один из двух учеников-людей в своём классе, с детства не испытывает особой симпатии к животным. Единственная его отрада в школе — одноклассница Хитоми Хино, такой же человек, как и он. Возможно, так бы и продолжилась (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA94AA8C0CC20F3B8BDBD27E68D40E541B54DC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292523   (900937) от 10.02.2011
+
+Gary Moore - 42 Albums (1973-2009) [MP3|320 kbps]<Rock, Blues>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Уильям Гэри Мур (англ. Robert William Gary Moore; 4 апреля 1952, Белфаст, Северная Ирландия — 6 февраля 2011, Эстепона, Испания) — ирландский гитарист, певец, автор песен. Внёс заметный вклад в развитие блюз-рока. С четырнадцати лет играл на стандартных гитарах, то есть для правшей, несмотря на то, что от рождения Гэри — левша.
+Музыкальная карьера Гэри Мура (   Читать дальше...   )Список альбомов:
+1973 - Grinding Stone
+1978 - Back on the streets
+1980 - G-Force (Castle Communications 1990)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 53:59:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100278   (900761) от 03.02.2017
+
+Total Commander 9.0a Freemen 17.1 Repack by notn [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69C0C8033809E0972398469A6F485ADBABA90D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099683   (900715) от 03.02.2017
+
+Американские провайдеры похоронили антипиратскую систему «шести ударов»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-провайдеры США объявили о завершении работы системы предупреждения о нарушении авторских прав Copyright Alert System (CAS)В 2011 году Американская ассоциация кинокомпаний (MPAA) и Американская ассоциация звукозаписывающих компаний (RIAA) объединились с несколькими крупными провайдерами США, запустив систему предупреждений авторских прав CAS. Система должна (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100039   (900695) от 03.02.2017
 
 28 панфиловцев (2016) BDRip [H.265/1080p]
@@ -6,7 +114,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_900695.jpg" />
+  <img src="Z:/picture/008/save_picture_900695.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ TechSmith Camtasia Studio 9.0.3 Build 1627 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900676.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900577.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Resident Evil 4 (2014) [Ru] (1.0.6) Portable PortGamPC [Ultimate HD Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900266.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899434.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899330.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899042.jpg" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898935.jpg" />
 </div>
 
 
@@ -216,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898737.jpg" />
 </div>
 
 
@@ -242,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898728.jpg" />
 </div>
 
 
@@ -268,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898723.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ Parallels Desktop for Mac Business Edition 12.1.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898711.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898705.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898697.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ Yosemite OS X 10.10.1 for Gigabyte G41MT-S2P & Video NVidia GT220
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898680.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898670.jpg" />
 </div>
 
 
@@ -428,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898571.jpg" />
 </div>
 
 
@@ -454,7 +562,7 @@ Gekijouban Kara no Kyoukai: The Garden of Sinners / Граница пустот�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898499.jpg" />
 </div>
 
 
@@ -480,7 +588,7 @@ Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu / Не люб
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897960.jpg" />
 </div>
 
 
@@ -506,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897934.jpg" />
 </div>
 
 
@@ -533,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897846.jpg" />
 </div>
 
 
@@ -561,7 +669,7 @@ Alien Skin Software Master Bundle collection 2011 (32/64 bit) [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897348.jpg" />
 </div>
 
 
@@ -572,112 +680,6 @@ Alien Skin Software Master Bundle collection 2011 - cборник из всех 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868254   (897105) от 11.02.2015
-
-Kali Linux 1.1.0 (ex. BackTrack) (Аудит безопасности, хакинг) [i386, amd64] 2xDVD + 2хCD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897105.jpg" />
-</div>
-
-
-###  Подробнее
-
-После двух лет разработки представлен выпуск дистрибутива Kali Linux 1.1.0, продолжающего развитие проекта BackTrack Linux и предназначенного для проведения тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-Kali включает одну из самых полных подборок инструментов для специалистов в области компьютерной безопасности: от средств для тестирования web-приложений и проникновения в беспроводные сети, до программ для считывания (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C267B98D467B70FF189FCFECA413ADB11721DDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822008   (897089) от 11.02.2015
-
-Dilogy Sacred 2-3 [PS3] [EUR/USA] [Multi5] [2.60, 4.55] [5 DLC] [Cobra ODE / E3 ODE PRO ISO] (2011-2013)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sacred 3 — beat' em up, действие которого разворачивается в фэнтезийном мире. Сюжет рассказывает о том, как Серафимы, стражи легендарного Сердца Анкарии, веками поддерживавшие порядок мироздания, начали забывать о своих связях с людьми. Воспользовавшись этим, Лорд Зейн, правитель империи Пепла, заключил союз с демонами и открыл портал в царство тьмы. Общий враг заставил (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Deep SilverЖанр: Beat 'em up / Action (Slasher)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4B794828E1A7B6128FEC9E5C8AF9512722768E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687864   (897064) от 11.02.2015
-
-The Cat Lady / Кошатница (2012) [Ru/Multi] (1.5) RePack Let'sPlay
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сьюзен Эшворт, одинокая женщина 40 лет… устала жить. Она больше не видит ни в чём смысла и единственное, чего она сейчас хочет — это просто перестать существовать. «Спасибо за ничего» — завершает она предсмертную записку и принимает огромную дозу снотворного. Чувствуя долгожданные покой и умиротворение, миссис Эшворт безболезненно умирает. Кажущееся бесконечным поле (   Читать дальше...   )Тип издания: RePackРазработчик: Harvester GamesЖанр: Adventure / Survival horror / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Финский, Венгерский, Бразильский (Португальский)Язык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Финский, Венгерский, Бразильский (Португальский)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488F6F3AEEBA84C66A94E05F824199CD7D1D49C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100934   (897001) от 05.02.2017
-
-Resident Evil / Biohazard HD Remaster (2015) [Ru] (1.0) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти. Боеприпасов (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F5529B38CF286E551407C787260D9415467460
 ```
 
 https://mybot314.ru/tekegram_catalog/

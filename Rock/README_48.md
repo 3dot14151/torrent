@@ -1,3 +1,32 @@
+###  Публикация: 928880   (521752) от 17.08.2015
+
+Eric Clapton - Eric Clapton & Friends (2014) [MP3|320 кб/с]<Classic rock, Blues, Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton - You Can't Judge a Book by It's Cover (2:54)
+02. Eric Clapton - Let It Rock (2:15)
+03. Eric Clapton - Putty in Your Hands (2:18)
+04. Eric Clapton - Little Red Rooster (3:36)(   Читать дальше...   )Жанр: Classic rock, Blues, GuitarПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172420F2B9837357C1756BD8B3B5FE3512535254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533824   (521681) от 12.08.2012
 
 Show Me A Dinosaur - Evolvent EP (2011) [MP3|320 кб/с]<post-rock, instrumental, post-metal>
@@ -6,7 +35,7 @@ Show Me A Dinosaur - Evolvent EP (2011) [MP3|320 кб/с]<post-rock, instrumenta
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521681.jpg" />
+  <img src="Z:/picture/008/save_picture_521681.jpg" />
 </div>
 
 
@@ -37,7 +66,7 @@ Gendos (Gen Dos / Gennady Chamzyryn) - Bay-Tayga (2007) [MP3|320 кб/с]<Ethnic
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521680.jpg" />
+  <img src="Z:/picture/008/save_picture_521680.jpg" />
 </div>
 
 
@@ -72,7 +101,7 @@ Seedy Jeezus - The Hollow Earth (Double Live) (2022) [MP3|320 Kbps] <Heavy Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520878.jpg" />
+  <img src="Z:/picture/008/save_picture_520878.jpg" />
 </div>
 
 
@@ -101,7 +130,7 @@ Fox - 3 Albums (1975-1977) LP [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520131.jpg" />
+  <img src="Z:/picture/008/save_picture_520131.jpg" />
 </div>
 
 
@@ -130,7 +159,7 @@ Status Quo - Down Down & Dirty At Wacken (2018) (Live)  [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520050.jpg" />
+  <img src="Z:/picture/008/save_picture_520050.jpg" />
 </div>
 
 
@@ -159,7 +188,7 @@ Tokyo Rose - New American Saint (2005) [MP3|320 кб/с]<Pop Punk, Alternative R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519593.jpg" />
+  <img src="Z:/picture/008/save_picture_519593.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ Rare Earth - Get Ready (1969) [MP3|320 кб/с]<Rock, Funk Rock, Blues, Acid Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519586.jpg" />
+  <img src="Z:/picture/008/save_picture_519586.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ Eric Clapton - Eric Clapton & Friends - The Album (2015) [MP3|320 кб/с]<Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519441.jpg" />
+  <img src="Z:/picture/008/save_picture_519441.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ Ideal Zero - In Perfect Darkness (2014) [MP3|320 кб/с]<Alternative Rock , Hea
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518508.jpg" />
+  <img src="Z:/picture/008/save_picture_518508.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Lobate Scarp - You Have It All (2022) [MP3|320 Kbps] <Progressive Rock, Crossove
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517803.jpg" />
+  <img src="Z:/picture/008/save_picture_517803.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Porcupine Tree - Closure / Continuation (2022) 2CD, Limited Edition [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517715.jpg" />
+  <img src="Z:/picture/008/save_picture_517715.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ Imagine Dragons - Mercury - Acts 1 & 2 (2022) [MP3|320 Kbps] <Indie Rock, Electr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517591.jpg" />
+  <img src="Z:/picture/008/save_picture_517591.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ The Surfaris - The Hurley Sessions (2015) [OGG| 444-537 кб/с]<Surf Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517398.jpg" />
+  <img src="Z:/picture/008/save_picture_517398.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ Nightstalker - Dead Rock Commandos (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517168.jpg" />
+  <img src="Z:/picture/008/save_picture_517168.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516311.jpg" />
+  <img src="Z:/picture/008/save_picture_516311.jpg" />
 </div>
 
 
@@ -455,7 +484,7 @@ Peddle Train - Natural Disaster (2018) [MP3|320 Kbps] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516237.jpg" />
+  <img src="Z:/picture/008/save_picture_516237.jpg" />
 </div>
 
 
@@ -484,7 +513,7 @@ Michaelangelo - One Voice Many (1971) Reissue, 2007, Fallout [MP3|320 Kbps] <Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516190.jpg" />
+  <img src="Z:/picture/008/save_picture_516190.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ Rod Stewart - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516139.jpg" />
+  <img src="Z:/picture/008/save_picture_516139.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ PRINCE - ANTHOLOGY: 1995-2010 EXPLICIT (2018) [MP3|320 Kbps] <Rock, Funk, Soul, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516119.jpg" />
+  <img src="Z:/picture/008/save_picture_516119.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ The First International Sex Opera Band - Anita (1969) [MP3|320 кб/с]<Space Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515508.jpg" />
+  <img src="Z:/picture/008/save_picture_515508.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Ashes Remain - Last Day Breathing (2007) [MP3|320 кб/с]<Alt.Rock , Modern Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514086.jpg" />
+  <img src="Z:/picture/008/save_picture_514086.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Styx - Gold (2006) 2CD [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512928.jpg" />
+  <img src="Z:/picture/008/save_picture_512928.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Ellison Effect - Atmospheric Metal (2022) [MP3|320 Kbps] <Atmospheric Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512595.jpg" />
+  <img src="Z:/picture/008/save_picture_512595.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Phish - Lawn Boy (1990) [MP3|320 кб/с]<Progressive rock, Jazz-Rock, Fusion, A
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512534.jpg" />
+  <img src="Z:/picture/008/save_picture_512534.jpg" />
 </div>
 
 
@@ -719,7 +748,7 @@ Bente Smaavik - 1979-2011 (2012) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512462.jpg" />
+  <img src="Z:/picture/008/save_picture_512462.jpg" />
 </div>
 
 
@@ -739,35 +768,6 @@ Bente Smaavik - 1979-2011 (2012) [MP3|320 кб/с]<Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:762FE5DEFD38396E2E1366BC0B4BBBD3EFE4E6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561774   (512455) от 07.07.2022
-
-VA - Rock Playlist (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foals - 2am (3:44)
-02. Royal Blood - Honeybrains (3:06)
-03. Biffy Clyro - Mountains (3:20)
-04. Staind - It's Been Awhile (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 03:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E52FB9BC595329A63035026A51BE54BAE66A61
 ```
 
 https://mybot314.ru/tekegram_catalog/

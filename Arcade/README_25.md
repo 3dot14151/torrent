@@ -1,3 +1,29 @@
+###  Публикация: 1316077   (508619) от 23.07.2019
+
+Swords & Souls: Neverseen (2019) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправившись в морское путешествие на парусном корабле, будьте готовы потерпеть катастрофу, потерять корабль и оказаться на необитаемом острове. Именно здесь вам предстоит заново строить свою мирную жизнь. В игре Swords & Souls: Neverseen ваш герой оказывается на острове, который на первых порах кажется абсолютно необитаемым. К сожалению, первое впечатление оказывается (   Читать дальше...   )Тип издания: RepackРазработчик: SoulGame StudioЖанр: Adventure, Action, RPG, Arcade, CasualЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AFE6052E7A9CC7B51B0E36702A5D273ED1B732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932870   (507823) от 30.08.2015
 
 Aaru's Awakening (2015) [Ru/Multi] (2.0) Repack R.G. Механики
@@ -6,7 +32,7 @@ Aaru's Awakening (2015) [Ru/Multi] (2.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507823.jpg" />
+  <img src="Z:/picture/008/save_picture_507823.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ One Piece: Pirate Warriors 3 (2015) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507734.jpg" />
+  <img src="Z:/picture/008/save_picture_507734.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Fantasy Strike (2019) [Multi] (1.17545) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506718.jpg" />
+  <img src="Z:/picture/008/save_picture_506718.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Expendables 2 Videogame [Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504203.jpg" />
+  <img src="Z:/picture/008/save_picture_504203.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ LOST ORBIT: Terminal Velocity (2019) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503120.jpg" />
+  <img src="Z:/picture/008/save_picture_503120.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Tinertia (2015) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503008.jpg" />
+  <img src="Z:/picture/008/save_picture_503008.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ LOST ORBIT: Terminal Velocity (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502117.jpg" />
+  <img src="Z:/picture/008/save_picture_502117.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Lumini (2015) [Ru/Multi] License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501933.jpg" />
+  <img src="Z:/picture/008/save_picture_501933.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Onikira - Demon Killer (2015) [En] (1.730) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498225.jpg" />
+  <img src="Z:/picture/008/save_picture_498225.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Hamilton's Great Adventure (2011) [En/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497088.jpg" />
+  <img src="Z:/picture/008/save_picture_497088.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Gatling Gears [En] (RePack) 2011 | DyNaMiTe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494809.jpg" />
+  <img src="Z:/picture/008/save_picture_494809.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Street Fighter V (2016) [Ru/Multi] (4.070/dlc) License CODEX [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494307.jpg" />
+  <img src="Z:/picture/008/save_picture_494307.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Spiritfarer (2020) [Ru/Multi] (35357) License GOG [Farewell Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494280.jpg" />
+  <img src="Z:/picture/008/save_picture_494280.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Street Fighter V (2019) [Ru/Multi] (4.070/dlc) Repack xatab [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490374.jpg" />
+  <img src="Z:/picture/008/save_picture_490374.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Pankapu (2016) [Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487481.jpg" />
+  <img src="Z:/picture/008/save_picture_487481.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Toy Odyssey: The Lost and Found (2016) [En/Ch] (20160920) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487467.jpg" />
+  <img src="Z:/picture/008/save_picture_487467.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Absolute Drift (2015) [En] (1.0 upd2) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485304.jpg" />
+  <img src="Z:/picture/008/save_picture_485304.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Sundered (2017) [Ru/Multi] (1.0.20170817) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483725.jpg" />
+  <img src="Z:/picture/008/save_picture_483725.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Sundered (2017) [Ru/Multi] (1.0.20170817) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483646.jpg" />
+  <img src="Z:/picture/008/save_picture_483646.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Hero of the Kingdom III (2018) [Ru/Multi] (1.00) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483573.jpg" />
+  <img src="Z:/picture/008/save_picture_483573.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Hatred (2015) [Ru/Multi] (1.6) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483180.jpg" />
+  <img src="Z:/picture/008/save_picture_483180.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Monster Boy and the Cursed Kingdom (2019) [Ru/Multi] (1.0_rc4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478723.jpg" />
+  <img src="Z:/picture/008/save_picture_478723.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.14) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478720.jpg" />
+  <img src="Z:/picture/008/save_picture_478720.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ The Galactic Junkers (2022) [Multi] (1.0.1.0) License FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478323.jpg" />
+  <img src="Z:/picture/008/save_picture_478323.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Super ComboMan (2017) [Ru/Multi] (1.04) License PLAZA [Smash Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477846.jpg" />
+  <img src="Z:/picture/008/save_picture_477846.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Super ComboMan (2017) [Ru/Multi] (1.04) License PLAZA [Smash Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34C56F27659BF16ECA8C0D82B85CA6261354B5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160198   (477686) от 23.08.2017
-
-The Escapists 2 (2017) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая тюремная песочница! Рискните всем, чтобы сбежать из самых строгих тюрем мира. Исследуйте самые большие многоэтажные тюрьмы с крышами, вентиляцией и подземными туннелями. Вам придется жить по законам тюрьмы, появляться на перекличках, работать и соблюдать строгий распорядок, и в то же время вы будете претворять свои мечты о свободе в жизнь!Тип издания: LicenseРазработчик: Team17 Digital, Mouldy Toof StudiosЖанр: Arcade, Action, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B00D4A056DC7541A9004042ADAD104BF6026122
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723714.jpg" />
+  <img src="Z:/picture/008/save_picture_723714.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723664.jpg" />
+  <img src="Z:/picture/008/save_picture_723664.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723655.jpg" />
+  <img src="Z:/picture/008/save_picture_723655.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SAP2000 Ultimate 18.1.1 Build 1228 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723632.jpg" />
+  <img src="Z:/picture/008/save_picture_723632.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723624.jpg" />
+  <img src="Z:/picture/008/save_picture_723624.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Core Temp 1.0 RC9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723621.jpg" />
+  <img src="Z:/picture/008/save_picture_723621.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Winstep Xtreme 16.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723614.jpg" />
+  <img src="Z:/picture/008/save_picture_723614.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Empusae & Marc T. - Deugden Van Angst En Het Kwaad (2015) [FLAC|Lossless|WEB-DL]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723573.jpg" />
+  <img src="Z:/picture/008/save_picture_723573.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Trold - 3 альбома (2003 - 2013) [FLAC|Lossless]<Psy Trance, Goa>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723549.jpg" />
+  <img src="Z:/picture/005/save_picture_723549.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723526.jpg" />
+  <img src="Z:/picture/008/save_picture_723526.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723510.jpg" />
+  <img src="Z:/picture/008/save_picture_723510.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723509.jpg" />
+  <img src="Z:/picture/008/save_picture_723509.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ oCam Screen Recorder 107.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723507.jpg" />
+  <img src="Z:/picture/008/save_picture_723507.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ XMedia Recode 3.2.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723501.jpg" />
+  <img src="Z:/picture/008/save_picture_723501.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ SynWrite 6.17.2045 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723495.jpg" />
+  <img src="Z:/picture/008/save_picture_723495.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Vivaldi 1.0.161.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723494.jpg" />
+  <img src="Z:/picture/008/save_picture_723494.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723486.jpg" />
+  <img src="Z:/picture/008/save_picture_723486.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ MOBILedit! Enterprise Rus/Portable 8.5.0.19787 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723447.jpg" />
+  <img src="Z:/picture/008/save_picture_723447.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723441.jpg" />
+  <img src="Z:/picture/008/save_picture_723441.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Hideman VPN 4.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723437.jpg" />
+  <img src="Z:/picture/008/save_picture_723437.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723436.jpg" />
+  <img src="Z:/picture/008/save_picture_723436.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723430.jpg" />
+  <img src="Z:/picture/008/save_picture_723430.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wise Auto Shutdown 1.45.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723424.jpg" />
+  <img src="Z:/picture/008/save_picture_723424.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VLC Media Player 2.2.4 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723336.jpg" />
+  <img src="Z:/picture/008/save_picture_723336.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ DVDFab 9.1.9.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723326.jpg" />
+  <img src="Z:/picture/008/save_picture_723326.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723324.jpg" />
+  <img src="Z:/picture/008/save_picture_723324.jpg" />
 </div>
 
 

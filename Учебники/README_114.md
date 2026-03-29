@@ -1,3 +1,56 @@
+###  Публикация: 1697489   (118961) от 06.02.2024
+
+С. Н. Хробостов | Эксплуатация машинно-тракторного парка (1973) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118961.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены теоретические основы и обобщен передовой опыт рационального комплектования и использования машинно-тракторных агрегатов. Второе издание написано в соответствии с программой по дисциплине «Эксплуатация  машинно-тракторного парка» и с учетом замечаний и пожеланий преподавателей техникумов по первому изданию.  Значительно обновлен справочный материал. (   Читать дальше...   )Жанр: УчебникИздательство: КолосФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C694A964BDBEDF1BC369E0388B1C0477B335003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697475   (118959) от 06.02.2024
+
+Т. Я. Бровкина, В. П. Ненашев | Однолетние цветочные культуры открытого грунта (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118959.jpg" />
+</div>
+
+
+###  Подробнее
+
+В  пособии рассмотрены наиболее распространенные цветочные культуры, отно­сящиеся к группе однолетников. Дана подробная классификация, особенности морфоло­гического строения растений, рекомендуемые для юга РФ сорта и гибриды однолетних цветочных культур, сроки цветения и особенности выращивания растений в открытом грунте.
+Пособие может быть использовано в качестве (   Читать дальше...   )Жанр: Учебное пособиеИздательство: КраснодарФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43B59823708F9D1CC835887A01608C77C6D0A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697479   (118954) от 06.02.2024
 
 В. В. Коломейченко | Растениеводство (2007) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118954.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118828.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118827.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118814.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118788.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118783.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118778.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118753.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118743.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118477.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118430.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118144.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118137.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118134.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118131.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118128.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118121.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118117.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117866.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117830.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117694.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117445.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117429.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117252.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A0F926D84D32E22BA9DD52C06E957652DD14936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700163   (117242) от 16.02.2024
-
-Ю.В. Буртаев, П.В. Овсянников | Теоретические основы электротехники (1984) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные свойства линейных в нелинейных электрических цепей, электромагнитные процессы в них в установившемся и переходном режимах и методы их анализа и расчета, дано описание электрического и магнитного нолей.
-Кинга предназначена для учащихся техникумов электротехнических специальностей.Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE9875B304F1372A610051480E7A89E45F36DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700672   (117081) от 17.02.2024
-
-Ю.Ф. Опадчий, О.П. Глудкин, А.И. Гуров | Аналоговая и цифровая электроника (1996) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматривается элементная база устройств полупроводниковой электроники, диоды, транзисторы, тиристоры, приборы с зарядовой связью: приведена классификация, вольт-амперные и частотные характеристики, основные схемы включения и особенности применения конкретных приборов в различных режимах работы. Излагаются принципы построения типовых аналоговых, импульсных и цифровых (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Радио и связьФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA8E5A5634B5716DEEE113185D37EA7685812BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

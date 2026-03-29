@@ -1,3 +1,56 @@
+###  Публикация: 488117   (90803) от 26.04.2012
+
+Гость (1939) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бдительность — наше оружие. Молодой ненецкий охотник разоблачает проникшего на территорию СССР диверсанта. Последний поначалу выдает себя за врача, сбившегося с пути, а затем берет охотника в заложники…Производство: СССР, ЛенфильмЖанр: Приключения, детективРежиссер: Адольф Минкин, Герберт РаппапортАктеры: Иван Кузнецов, Юлия Цай, Петр Аржанов, Николай Васильев, Зула Нахашкиев, Валентина Телегина, Василий МеркурьевПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F4630A5E1E2F6A091C2B781957067735989BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487621   (90436) от 24.04.2012
+
+Старые друзья (2 серии) (1977) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90436.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе Леонида Малюгина.
+О ленинградских школьниках, окончивших школу в 1941 году. Придя на день рождения к бывшей однокласснице, они веселятся, поют, читают стихи, признаются ей в любви и пьют за то, чтобы каждый год в этот день встречаться. А на следующий день началась война, отодвинув надолго, а для кого-то – навсегда - планы, мечты, надежды…Жанр: Фильм-спектакль, драмаРежиссер: Александр БелинскийАктеры: Евгения Уралова, Наталия Данилова, Леонид Кудряшов, Михаил Долгинин, Сергей Межов, Александр Шевелев, Наталья Леонова, Елена Никитина, Елена Драпеко, Андрей Толубеев, Марина ЛевтоваПродолжительность: 01:06:36 + 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96315E82E75C6A02222E2D23DCC73A76D0D885C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486725   (90376) от 24.04.2012
 
 Король гор и другие (1969) VHSRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90376.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90032.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89988.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89868.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89823.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89667.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89630.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89623.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89558.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89396.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89380.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89301.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89046.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89030.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88623.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88587.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86690.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86599.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86514.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86494.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86118.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85942.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85350.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85349.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474505   (84895) от 28.03.2012
-
-Эксперимент (1970) IPTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная комедия о педагогическом эксперименте, который удался благодаря доброте и душевной щедрости его участников...Жанр: Мюзикл, комедияРежиссер: Евгений РадомысленскийАктеры: Людмила Гурченко, Вячеслав Езепов, Наталья Гурзо, Татьяна Шмыга, Наталья Фатеева, Лев Круглый, Григорий Шпигель, Евгения Ханаева, Андрей ПетровПродолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617C7F97AD4EAC76228B3669354DDB3B1249B14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473580   (84752) от 27.03.2012
-
-Городской романс (1970) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлый и щемящий фильм «Городской романс» - простая и лирическая история любви. Неторопливый сюжет, красивая музыка. Огромный город, где на извилистых перекрестках улиц встречаются он и она. Ему – тридцать лет. Он врач-рентгенолог. Она – совсем юная студентка, будущий педагог. Любовь оказывается слишком хрупкой для совместной жизни. Работа,нервы, суета, бытовая неустроенность... Почувствовав надлом, она уходит сразу. Он не пытается ее вернуть. Пройдет время, и на одной из улиц они встретятся вновь. Видимо, должно было пройти время, для того, чтобы Маша и Женя поняли, что жить друг без друга не смогут: ведь их любовь настоящая…Жанр: Драма, МелодрамаАктеры: Мария Соломина, Евгений Киндинов, Зиновий Гердт, Геннадий Сайфулин, Леонид Дьячков, Светлана Харитонова, А. Цофнас, Ирина Короткова, Ольга Сошникова, Аня Степанова-Молодова, Нина Корниенко, Александр Пашутин, Антонина Пилюс, Марчелла Чеботаренко, Антонина Дмитриева.Перевод: ОригинальныйПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0B6A3B4F88688ACD3E6E59CD92BC98E694DBC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

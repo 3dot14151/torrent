@@ -1,3 +1,82 @@
+###  Публикация: 1618671   (200284) от 06.04.2023
+
+Звуки музыки / The Sound of Music (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в австрийском Зальцбурге накануне Второй мировой войны. Молодая девушка по имени Мария, оставшись сиротой, находит приют в женском монастыре и готовится стать монахиней. Однако в силу своего жизнелюбия ей это удается с трудом, и настоятельница монастыря понимает, что такой путь — не для ее юной послушницы.
+Марии предлагают место гувернантки (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Robert Wise ProductionsЖанр: Мюзикл, Драма, Мелодрама, Семейный, БиографияРежиссер: Роберт УайзАктеры: Джули Эндрюс, Кристофер Пламмер, Чармиан Карр, Николас Хэммонд, Хезер Мензес, Дуан Чейз, Дебби Тёрнер, Ким Карат, Анджела Картрайт, Ричард ХейднПеревод: Дублированный, многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (Songs, Full), английскиеПродолжительность: 02:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90B92FBA88955DD126BAD3651F7D0A28707CED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619081   (200263) от 07.04.2023
+
+Молодой Уинстон / Young Winston (1972) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по книге Уинстона Черчилля «Мои молодые годы: преданное служение». Юные годы Черчилля предстают в воспоминаниях Черчилля старого: детство, школа-интернат, родители, авантюры в Индии и Судане, участие в качестве военного корреспондента в Англо-бурской войне, избрание в парламент.Производство: Великобритания / Open Road Films (II)Жанр: драма, военный, биографияРежиссер: Ричард АттенбороАктеры: Саймон Уорд, Питер Селлиер, Рональд Хайнс, Дино Шафик, Джон Миллз, Энн Бэнкрофт, Расселл Льюис, Пэт Хейвуд, Роберт Шоу, Лоуренс НэйсмитПеревод: Многоголосый профессиональный (5 канал СПб)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 02:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E258E1144AB6BDD2E71394EF948A7B7AE59D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619028   (200134) от 10.04.2023
+
+Дорога в Гонконг / The Road to Hong Kong (1962) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарри Тёрнер и Честер Бэбкок — неудачливые актёры водевиля, постоянно находящиеся в поисках заработка. Судьба сталкивает их с Дианой — агентом секретной правительственной организации «3-й Эшелон», а потом со злодеями, которые хотят отправить на Луну ракету с оборудованием, которое поможет им покорить Землю.Производство: Великобритания / Melnor FilmsЖанр: мюзикл, фантастика, комедияРежиссер: Норман ПанамаАктеры: Бинг Кросби, Боб Хоуп, Джоан Коллинз, Роберт Морли, Уолтер Готелл, Феликс Эйлмер, Алан Гиффорд, Мишель Мок, Катя Дуглас, Роджер ДельгадоПеревод: Двуголосый профессиональный (НТВ+)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A49F378D137F8A37776F2887D1CA91F300855B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619413   (200090) от 11.04.2023
 
 Афина / Athena (1954) BDRip [H.264] [AVO]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200090.jpg" />
+  <img src="Z:/picture/005/save_picture_200090.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199989.jpg" />
+  <img src="Z:/picture/005/save_picture_199989.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199603.jpg" />
+  <img src="Z:/picture/005/save_picture_199603.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199554.jpg" />
+  <img src="Z:/picture/005/save_picture_199554.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199419.jpg" />
+  <img src="Z:/picture/005/save_picture_199419.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199348.jpg" />
+  <img src="Z:/picture/005/save_picture_199348.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199250.jpg" />
+  <img src="Z:/picture/005/save_picture_199250.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199245.jpg" />
+  <img src="Z:/picture/005/save_picture_199245.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198928.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198923.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198901.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198857.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198575.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198556.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198254.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198118.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_198034.jpg" />
+  <img src="Z:/picture/004/save_picture_198034.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197730.jpg" />
+  <img src="Z:/picture/004/save_picture_197730.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197281.jpg" />
+  <img src="Z:/picture/004/save_picture_197281.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196907.jpg" />
+  <img src="Z:/picture/004/save_picture_196907.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196480.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196431.jpg" />
+  <img src="Z:/picture/004/save_picture_196431.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196140.jpg" />
 </div>
 
 
@@ -592,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA9B57BF6269FF6A23AD89627E33421DD0B5804A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643989   (196132) от 06.07.2023
-
-Человек, которого никогда не было / The Man Who Never Was (1956) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это подлинная история об одной из операций Британской разведки. 1943. Союзники готовят вторжение в Сицилию и пытаются создать дезинформацию, что целью вторжения является Греция. Решение просто, но изобретательно: тело человека, умершего естественной смертью, оставляют на побережье Испании, переодев в форму летчика британских ВВС, с необходимым пакетом «секретных» (   Читать дальше...   )Производство: Великобритания / Sumar ProductionsЖанр: драма, военныйРежиссер: Роналд НимАктеры: Клифтон Уэбб, Глория Грэм, Роберт Флеминг, Жозефин Гриффин, Стивен Бойд, Лоуренс Нэйсмит, Джеффри Кин, Мултри Келсалл, Сирил Кьюсак, Андре МореллПеревод: Двуголосый профессиональный (5 канала СПб)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A70318040E5B6C6B48C9FFA35B73B186986686A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520958   (195949) от 08.07.2023
-
-Дед Мороз – отморозок / Le pere Noel est une ordure (1982) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такое впечатление, что все сумасшедшие со всей Франции решили встретить Новый Год вместе. Пьер и Тереза — не вполне вменяемые операторы парижского телефона доверия. Жозетта — городская дурочка с окраины. Ее нечистый на руку дружок Феликс, подрабатывающий Дедом Морозом на улицах. А также — все, кто мимо проходил, проезжал, пробегал. Праздничек получился — мама не (   Читать дальше...   )Производство: Франция /  Trinacra FilmsЖанр: КомедияРежиссер: Жан-Мари ПуарэАктеры: Анемон, Жозиан Баласко, Мари-Анн Шазель, Кристиан Клавье, Жерар Жюньо, Тьерри Лермитт, Бруно Муано, Мартен Ламотт, Жак Франсуа, Клер Маньен, Мишель Блан, Жаннетта Батти, Пьер Бело, Мишель БоннеПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C528FE63117FCA5DF027FDC53DDC3FAB33D3A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242867   (195941) от 08.07.2023
-
-Дед Мороз — отморозок / Le pere Noel est une ordure (1982) BDRip [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такое впечатление, что все сумасшедшие со всей Франции решили встретить Новый Год вместе. Пьер и Тереза — не вполне вменяемые операторы парижского телефона доверия. Жозетта — городская дурочка с окраины. Ее нечистый на руку дружок Феликс, подрабатывающий Дедом Морозом на улицах. А также — все, кто мимо проходил, проезжал, пробегал. Праздничек получился — мама не (   Читать дальше...   )Производство: Франция / Trinacra FilmsЖанр: комедияРежиссер: Жан-Мари ПуареАктеры: Анемон, Жозиан Баласко, Мари-Анн Шазель, Кристиан Клавье, Жерар Жюньо, Тьерри Лермитт, Бруно Муано, Мартен Ламотт, Жак Франсуа, Мишель БланПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB4C15688EBB2CB646C9D0FDDA8EA54A9FA8C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

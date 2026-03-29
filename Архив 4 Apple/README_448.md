@@ -1,3 +1,115 @@
+###  Публикация: 1076435   (314311) от 25.11.2016
+
+Yummy FTP Pro 1.11.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yummy FTP - “вкусный клиент” для ФТП
+Один из лучших фтп клиентов для Mac OS X со “вкусным” названием Yummy FTP. Придется по вкусу многим. И на самом деле, программа замечательна, удобна и полна “вкусностей”. Вполне достаточно взглянуть на список наиболее интересных:
+	•	возможность подключаться по FTP, FTPS и SFTP
+	•	ftp-ярлыки — загружайте файлы простым перетаскиванием (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 ноября 2016Разработчик: Yummy SoftwareПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2916790BE6BD312665D4DF213D531D0894AAF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332463   (314271) от 20.10.2019
+
+iMac Cleaner 2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314271.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMac Cleaner позволяет вам безопасно сканировать и очищать всю систему Mac, удалять ненужные файлы и дубликаты файлов, уменьшать размер библиотеки iPhoto, удалять ненужные приложения, уничтожать файлы, управлять элементами автозагрузки, извлекать архивы RAR, сохранять Winmail.dat и т. д.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Elimisoft Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A833AE2C9748BBF2CEFB3557B8E2EC3D7FEFA52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959742   (314260) от 25.11.2015
+
+Audirvana Plus 2.2.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями.
+Преобразование частоты дискретизации происходит при помощи Sound Forge iZotope 64-Bit SRC. Если в кратце — это гибридный низкочастотный фильтр, который обеспечивает полное сохранение качества при переводе цифрового звука из одной частоты дискретизации в другую.
+
+Особенности и преимущества:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 ноября 2015Разработчик: AudirvanaПоддерживаемая ОС: Mac OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FD226FE47D581AD2E5763E5528EB7F697E30AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076265   (314226) от 25.11.2016
+
+iFlicks 2 v2.4.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как добавить и смотреть фильмы в iTunes, iPhone или iPad? Используйте iFlicks 2! Добавьте метаданные к фильмам и сериалам и ваша медиатека будет выглядеть просто шикарно. Управление вашей видео коллекцией еще никогда не было такой удобной.
+
+iFlicks — это метаданные к сериалам и фильмам. При помощью добавления метаданных iFlicks поможет сделать вашу iTunes библиотеку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2016Разработчик: Jendrik BertramПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0364A1983B76A40072C9414B352EA90C84A5D55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076426   (314212) от 25.11.2016
 
 Network Radar 2.1.2 [En]
@@ -6,7 +118,7 @@ Network Radar 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314212.jpg" />
+  <img src="Z:/picture/008/save_picture_314212.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ Pixelmator 3.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314023.jpg" />
+  <img src="Z:/picture/008/save_picture_314023.jpg" />
 </div>
 
 
@@ -60,7 +172,7 @@ Carbon Copy Cloner 5 v5.1.13 (5846) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314010.jpg" />
+  <img src="Z:/picture/008/save_picture_314010.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ Gemini 2: The Duplicate Finder 2.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313890.jpg" />
+  <img src="Z:/picture/008/save_picture_313890.jpg" />
 </div>
 
 
@@ -117,7 +229,7 @@ Commander One Pro Pack 1.6 (2157) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313537.jpg" />
+  <img src="Z:/picture/008/save_picture_313537.jpg" />
 </div>
 
 
@@ -146,7 +258,7 @@ Affinity Designer 1.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313523.jpg" />
+  <img src="Z:/picture/008/save_picture_313523.jpg" />
 </div>
 
 
@@ -175,7 +287,7 @@ Boom 3D 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313516.jpg" />
+  <img src="Z:/picture/008/save_picture_313516.jpg" />
 </div>
 
 
@@ -201,7 +313,7 @@ DaVinci Resolve Studio 16 v16.1.0.055 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313499.jpg" />
+  <img src="Z:/picture/008/save_picture_313499.jpg" />
 </div>
 
 
@@ -230,7 +342,7 @@ Adobe Illustrator CC2019 v23.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313465.jpg" />
+  <img src="Z:/picture/008/save_picture_313465.jpg" />
 </div>
 
 
@@ -258,7 +370,7 @@ MediaHuman Youtube Downloader 3.9.9.48 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313399.jpg" />
+  <img src="Z:/picture/008/save_picture_313399.jpg" />
 </div>
 
 
@@ -287,7 +399,7 @@ PhotoScape X Pro 4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313280.jpg" />
+  <img src="Z:/picture/008/save_picture_313280.jpg" />
 </div>
 
 
@@ -315,7 +427,7 @@ Artlantis 2020.2 v9.0.2.23527 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313271.jpg" />
+  <img src="Z:/picture/008/save_picture_313271.jpg" />
 </div>
 
 
@@ -341,7 +453,7 @@ Adguard 2.5.1.914 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312840.jpg" />
+  <img src="Z:/picture/008/save_picture_312840.jpg" />
 </div>
 
 
@@ -367,7 +479,7 @@ AnyTrans 6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312699.jpg" />
+  <img src="Z:/picture/008/save_picture_312699.jpg" />
 </div>
 
 
@@ -394,7 +506,7 @@ ChronoSync 4.8.3 & ChronoAgent 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312692.jpg" />
+  <img src="Z:/picture/008/save_picture_312692.jpg" />
 </div>
 
 
@@ -423,7 +535,7 @@ Tri-BACKUP Pro 8.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312691.jpg" />
+  <img src="Z:/picture/008/save_picture_312691.jpg" />
 </div>
 
 
@@ -450,7 +562,7 @@ Tap Forms Organizer 5.2.3 (1727) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312685.jpg" />
+  <img src="Z:/picture/008/save_picture_312685.jpg" />
 </div>
 
 
@@ -478,7 +590,7 @@ Serial Box 12-2013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312366.jpg" />
+  <img src="Z:/picture/008/save_picture_312366.jpg" />
 </div>
 
 
@@ -506,7 +618,7 @@ Shapes 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312342.jpg" />
+  <img src="Z:/picture/008/save_picture_312342.jpg" />
 </div>
 
 
@@ -534,7 +646,7 @@ ExactScan Pro 17.10.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312333.jpg" />
+  <img src="Z:/picture/008/save_picture_312333.jpg" />
 </div>
 
 
@@ -560,7 +672,7 @@ iSubtitle 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312318.jpg" />
+  <img src="Z:/picture/008/save_picture_312318.jpg" />
 </div>
 
 
@@ -587,7 +699,7 @@ MacX Video Converter Pro 5.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312265.jpg" />
+  <img src="Z:/picture/008/save_picture_312265.jpg" />
 </div>
 
 
@@ -598,116 +710,6 @@ MacX Video Converter Pro — видео конвертер все в одном,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6FB5730E7E574EA50E73A85AB035154B6C07FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959956   (312254) от 26.11.2015
-
-Disk Drill Entreprise 2.4.435 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill Pro. Универсальная утилита для восстановления данных
-Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: Mac OS X softwareРелиз состоялся: 10 ноября 2015Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Польский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB3091A0C0759BB952088E31E5ADEE6E452E89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183152   (312202) от 12.11.2017
-
-Disk Diet - Clean your drive 5.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Diet - Очистите жесткий диск
-Освободите место на любом диске с помощью одного щелчка мыши.
-С более чем 5000 высшими международными оценками и поддержкой мирового уровня, это необходимый инструмент для каждого пользователя Mac
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 ноября 2017Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332397AE82F88DE4329B6A262F62FCD1A02AE48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260319   (312174) от 07.11.2018
-
-DropDMG 3.5.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
-Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66266F5D0AF6AC9D39D4E7FC31530EBA4BA9E594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183169   (312078) от 12.11.2017
-
-Sublime Text 3 (3154) Dev [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6303A4CDF338BAAF9B85A126BD32058EADB8094F
 ```
 
 https://mybot314.ru/tekegram_catalog/

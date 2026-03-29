@@ -1,3 +1,32 @@
+###  Публикация: 1571896   (427216) от 24.08.2022
+
+Artstation, Aleksandr Kirilenko | Bringing Life To Clothes In ZBrush (2020) HDRip [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уроки по лепке одежды в Zbrush.
+
+Вы изучите:
+Советы и приемы в ZBrush, чтобы ваша одежда выглядела живой и поношенной(   Читать дальше...   )Производство: ArtstationЖанр: 3D графикаЯзык озвучки: АнглийскийПродолжительность: 07:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D7900F1908D494062A4BBDD3B964D7252D86AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559613   (427215) от 24.08.2022
 
 Schoolism, Nathan Fowkes | Environment Design (2015) PCRec [RU]
@@ -6,7 +35,7 @@ Schoolism, Nathan Fowkes | Environment Design (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427215.jpg" />
+  <img src="Z:/picture/008/save_picture_427215.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ M-Art, Ольга Адамовна | Графический медиа и моу
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427214.jpg" />
+  <img src="Z:/picture/008/save_picture_427214.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ SideFX, Moeen Sayed | Magic Market - L-Systems (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425509.jpg" />
+  <img src="Z:/picture/008/save_picture_425509.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ SideFX, Alejandro Perez | Intoduction to Creature Fur (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425501.jpg" />
+  <img src="Z:/picture/008/save_picture_425501.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ SideFX, Chetal Gazdar | Procedural chess pawn (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425410.jpg" />
+  <img src="Z:/picture/008/save_picture_425410.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ SideFX, Tyler Bay | Artist Quick Tips (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425400.jpg" />
+  <img src="Z:/picture/008/save_picture_425400.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422413.jpg" />
+  <img src="Z:/picture/008/save_picture_422413.jpg" />
 </div>
 
 
@@ -193,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418016.jpg" />
+  <img src="Z:/picture/008/save_picture_418016.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ Gumroad, Pierrick Picaut | Багровый Ронин: Создание пер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417645.jpg" />
+  <img src="Z:/picture/008/save_picture_417645.jpg" />
 </div>
 
 
@@ -245,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417638.jpg" />
+  <img src="Z:/picture/008/save_picture_417638.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Artstation Masterclasses, Mathew O | Render and Presentation Techniques (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416496.jpg" />
+  <img src="Z:/picture/008/save_picture_416496.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ The Gnomon Workshop, Justin Holt | Painting Realistic Skin in Mari 2.0 (2013) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412213.jpg" />
+  <img src="Z:/picture/008/save_picture_412213.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Sabatovsky, Влад Сабатовский | After Effects от новичка 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411749.jpg" />
+  <img src="Z:/picture/008/save_picture_411749.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Lynda.com | Learning Cinema 4D R20 (2018) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410651.jpg" />
+  <img src="Z:/picture/008/save_picture_410651.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410644.jpg" />
+  <img src="Z:/picture/008/save_picture_410644.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн Sci-Fi меха в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409322.jpg" />
+  <img src="Z:/picture/008/save_picture_409322.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Lynda, Joel Bradley | Substance B2M (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408736.jpg" />
+  <img src="Z:/picture/008/save_picture_408736.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Lynda, Joel Bradley | Substance Designer Essential Training Updated (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408582.jpg" />
+  <img src="Z:/picture/008/save_picture_408582.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ Digital Tutors, Dan Cox | Designing a Modular Structure for Games in 3ds Max (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408577.jpg" />
+  <img src="Z:/picture/008/save_picture_408577.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ Lynda, Aaron F. Ross | 3ds Max Advanced Materials (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408573.jpg" />
+  <img src="Z:/picture/008/save_picture_408573.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ Gumroad, Tim Bergholz | Ultimate Weapon Tutorial – Complete Edition (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408292.jpg" />
+  <img src="Z:/picture/008/save_picture_408292.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Pluralsight | Моделирование штурмовой винтовки в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407959.jpg" />
+  <img src="Z:/picture/008/save_picture_407959.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407840.jpg" />
+  <img src="Z:/picture/008/save_picture_407840.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407577.jpg" />
+  <img src="Z:/picture/008/save_picture_407577.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Udemy, Nexttut, Nikolay Naydenov | Female Character Creation in Zbrush (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407227.jpg" />
+  <img src="Z:/picture/008/save_picture_407227.jpg" />
 </div>
 
 
@@ -661,34 +690,6 @@ Udemy, Nexttut, Nikolay Naydenov | Female Character Creation in Zbrush (2019) PC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50F64599C3D1437AF875186174EAA3C02FABA479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413720   (406979) от 05.10.2020
-
-ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma и многое другое / Complete Web & Mobile Designer in 2020: UI/UX, Figma + more (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте дизайнером в 2020 году! Это единственный учебный курс по дизайну, который вам нужен, чтобы изучить и освоить веб- и мобильный дизайн, UI и UX, а также HTML и CSS.
-Создавайте красиво оформленные веб- и мобильные проекты для своих клиентов, используя современные инструменты, используемые ведущими компаниями в 2020 году.
-Мгновенный доступ к более чем 100 активам (   Читать дальше...   )Производство: zerotomastery.ioЖанр: Веб дизайнЯзык озвучки: АнглийскийПродолжительность: 23:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD8EC413F9C6871E8874ACA54DC81341BE2B499
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797112.jpg" />
+  <img src="Z:/picture/008/save_picture_797112.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The KMPlayer 4.2.2.40 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797110.jpg" />
+  <img src="Z:/picture/008/save_picture_797110.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Media Encoder 2020 14.2.0.45 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797098.jpg" />
+  <img src="Z:/picture/008/save_picture_797098.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Audition 2020 13.0.6.38 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797089.jpg" />
+  <img src="Z:/picture/008/save_picture_797089.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TagScanner 6.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797018.jpg" />
+  <img src="Z:/picture/008/save_picture_797018.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ HyperSnap 8.16.02 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796991.jpg" />
+  <img src="Z:/picture/008/save_picture_796991.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Coolmuster iOS Assistant 2.0.133 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796968.jpg" />
+  <img src="Z:/picture/008/save_picture_796968.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ XMedia Recode 3.3.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796962.jpg" />
+  <img src="Z:/picture/008/save_picture_796962.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Cyberfox 46.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796959.jpg" />
+  <img src="Z:/picture/008/save_picture_796959.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Avast Clear 11.2.2738.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796938.jpg" />
+  <img src="Z:/picture/008/save_picture_796938.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ XnViewMP 0.89 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796914.jpg" />
+  <img src="Z:/picture/008/save_picture_796914.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AMD Radeon Software Adrenalin Edition 18.1.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796896.jpg" />
+  <img src="Z:/picture/008/save_picture_796896.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Internet Download Manager 6.25 Build 16 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796885.jpg" />
+  <img src="Z:/picture/008/save_picture_796885.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796883.jpg" />
+  <img src="Z:/picture/008/save_picture_796883.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BurnAware Free 14.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796856.jpg" />
+  <img src="Z:/picture/008/save_picture_796856.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Cyberfox 46.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796854.jpg" />
+  <img src="Z:/picture/008/save_picture_796854.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mozilla Firefox ESR 45.1.0 Portable by Sitego [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796851.jpg" />
+  <img src="Z:/picture/008/save_picture_796851.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Format Factory 3.9.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796850.jpg" />
+  <img src="Z:/picture/008/save_picture_796850.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ AIMP 4.02 Build 1713 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796843.jpg" />
+  <img src="Z:/picture/008/save_picture_796843.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Coolmuster Data Recovery 2.1.15 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796822.jpg" />
+  <img src="Z:/picture/008/save_picture_796822.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ CyberLink PhotoDirector Ultra 9.0.2504.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796816.jpg" />
+  <img src="Z:/picture/008/save_picture_796816.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ GeoGebra 6.0.674.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796813.jpg" />
+  <img src="Z:/picture/008/save_picture_796813.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Slimjet 32.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796809.jpg" />
+  <img src="Z:/picture/008/save_picture_796809.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ PrivaZer 4.0.34 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796808.jpg" />
+  <img src="Z:/picture/008/save_picture_796808.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ScreenToGif 2.34.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796807.jpg" />
+  <img src="Z:/picture/008/save_picture_796807.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Pale Moon 29.4.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796801.jpg" />
+  <img src="Z:/picture/008/save_picture_796801.jpg" />
 </div>
 
 

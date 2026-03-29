@@ -1,3 +1,88 @@
+###  Публикация: 1402471   (701728) от 14.08.2020
+
+Юрий Кудинов (клоун Плюх) - Музыкальные развивайки с Плюхом. Песенки-задачки. Музыкальная арифметика. (2014) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_701728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-02. Фантики
+03+/-04. Сон
+05+/-06. Конфеты
+07+/-08. В школу(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3994D2412B65D3423104FCDF3D9004CF65C51D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402472   (701726) от 14.08.2020
+
+Юрий Кудинов (клоун Плюх) - Музыкальные развивайки с Плюхом. Пословицы и поговорки в песенках. (2014) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_701726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-15. Клоун Плюх - Как аукнется, так и откликнется
+02+/-16. Клоун Плюх, Маша Барабанщикова - Мели, Емеля, твоя неделя
+03+/-17. Клоун Плюх - Не родись красивой, а родись счастливой
+04+/-18. Клоун Плюх - Поспешишь - людей насмешишь(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51881AD2A91DFC6BB1396FE0B597B97F6ABD2513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132388   (700832) от 09.05.2017
+
+Алексей Тверской | Потерянное детство (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты гоняешь мяч во дворе, режешься в стрелялки на компьютере, смотришь фильмы про супергероев, спокойно спишь в теплой постельке и даже не подозреваешь, как это жить в военное время в страхе и голоде.
+Это истории о жизни ребят, которые становились сиротами в блокадном Ленинграде, попадали в концлагерь, голодали, выживали, защищали своих матерей и сестёр и рано взрослели. (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 01:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3A99A50F654C24339BC8A575608F324794BDC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402604   (700066) от 15.08.2020
 
 Анатолий Алексин | Покойник оживает и начинает действовать (2017) [MP3]
@@ -6,7 +91,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700066.jpg" />
+  <img src="Z:/picture/008/save_picture_700066.jpg" />
 </div>
 
 
@@ -32,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700065.jpg" />
+  <img src="Z:/picture/008/save_picture_700065.jpg" />
 </div>
 
 
@@ -61,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700063.jpg" />
+  <img src="Z:/picture/008/save_picture_700063.jpg" />
 </div>
 
 
@@ -87,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700059.jpg" />
+  <img src="Z:/picture/008/save_picture_700059.jpg" />
 </div>
 
 
@@ -113,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700051.jpg" />
+  <img src="Z:/picture/008/save_picture_700051.jpg" />
 </div>
 
 
@@ -139,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699944.jpg" />
+  <img src="Z:/picture/008/save_picture_699944.jpg" />
 </div>
 
 
@@ -165,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699943.jpg" />
+  <img src="Z:/picture/008/save_picture_699943.jpg" />
 </div>
 
 
@@ -191,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699938.jpg" />
+  <img src="Z:/picture/008/save_picture_699938.jpg" />
 </div>
 
 
@@ -217,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699929.jpg" />
+  <img src="Z:/picture/008/save_picture_699929.jpg" />
 </div>
 
 
@@ -243,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699815.jpg" />
+  <img src="Z:/picture/008/save_picture_699815.jpg" />
 </div>
 
 
@@ -272,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699712.jpg" />
+  <img src="Z:/picture/008/save_picture_699712.jpg" />
 </div>
 
 
@@ -301,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696048.jpg" />
+  <img src="Z:/picture/008/save_picture_696048.jpg" />
 </div>
 
 
@@ -327,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696047.jpg" />
+  <img src="Z:/picture/008/save_picture_696047.jpg" />
 </div>
 
 
@@ -353,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696043.jpg" />
+  <img src="Z:/picture/008/save_picture_696043.jpg" />
 </div>
 
 
@@ -382,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696040.jpg" />
+  <img src="Z:/picture/008/save_picture_696040.jpg" />
 </div>
 
 
@@ -408,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695955.jpg" />
+  <img src="Z:/picture/008/save_picture_695955.jpg" />
 </div>
 
 
@@ -436,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695939.jpg" />
+  <img src="Z:/picture/008/save_picture_695939.jpg" />
 </div>
 
 
@@ -465,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695938.jpg" />
+  <img src="Z:/picture/008/save_picture_695938.jpg" />
 </div>
 
 
@@ -491,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695838.jpg" />
+  <img src="Z:/picture/008/save_picture_695838.jpg" />
 </div>
 
 
@@ -520,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695836.jpg" />
+  <img src="Z:/picture/008/save_picture_695836.jpg" />
 </div>
 
 
@@ -549,7 +634,7 @@ VA - Музыка для детей. Тилимилитрямдия (2010) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695377.jpg" />
+  <img src="Z:/picture/008/save_picture_695377.jpg" />
 </div>
 
 
@@ -578,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694412.jpg" />
+  <img src="Z:/picture/008/save_picture_694412.jpg" />
 </div>
 
 
@@ -604,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694403.jpg" />
+  <img src="Z:/picture/008/save_picture_694403.jpg" />
 </div>
 
 
@@ -615,87 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943025A854434425DE2329FFAEEFB2E746AA0A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403196   (694275) от 18.08.2020
-
-Андрей Жвалевский, Евгения Пастернак | Я хочу в школу! (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлая, живая, немного наивная книга «Я хочу в школу!» адресована всем любителям школьных приключений. В городе N создали удивительное учебное заведение, где нет обычных классов, а есть разновозрастные группы учеников, подобранные по психологической совместимости. Вместо уроков – увлекательные проекты, вместо физкультуры – занятия с лучшими хореографами или походы (   Читать дальше...   )Жанр: Книги для подростковПродолжительность: 07:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF333D2D617E162B4A85534821520584A278A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403192   (694267) от 18.08.2020
-
-Владимир Алеников | Пантелей, Пугало и отличница Перышкина (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694267.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вас ждет несколько необыкновенных, даже сказочных, историй! Некоторые из них – про Чучело-Мяучело, про Пантелея и Пугало – знакомы многим по замечательным мультфильмам, с остальными читатель встретится впервые! Для младшего школьного возраста.Жанр: Детская литература/ПриключенияПродолжительность: 03:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DB042174014E6F217B8B56EC26577F72B0E8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403181   (694261) от 18.08.2020
-
-Группа Маэстро - Котоёжик. Песни Сергея Светлова (2020) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Котоёжик
-02. Когда вырасту
-03. Ленивая песенка
-04. Принцесса(   Читать дальше...   )Жанр: Детские песниПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34119C31494750C627F66C75F1C0C0EE720E61FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

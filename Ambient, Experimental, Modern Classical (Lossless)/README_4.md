@@ -1,3 +1,32 @@
+###  Публикация: 991505   (905912) от 28.02.2016
+
+Moby - Hotel : Ambient (2014) Reissue [FLAC|Lossless|tracks + .cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May 04 Two (08:11)
+ 02. The Come Down (05:18)
+ 03. Overlands (06:49)
+ 04. Live Forever (07:16)(   Читать дальше...   )Жанр: Ambient |Продолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5D53F75BDCD3C54B43FED7A63DD158C03CE16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987142   (905160) от 28.08.2021
 
 Soap&Skin - Discography 20 Releases (2008-2020) [PIAS] Recordings [FLAC|Lossless|tracks+.cue, tracks] <Leftfield, Modern Classical, IDM, Downtempo, Experimental>
@@ -6,7 +35,7 @@ Soap&Skin - Discography 20 Releases (2008-2020) [PIAS] Recordings [FLAC|Lossless
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905160.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Glåsbird (Glasbird) - Discography 8 Releases (2018-2021) Whitelabrecs [FLAC|Los
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905159.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Joey Fehrenbach - Mellowdrama (2006) [FLAC|Lossless|tracks + .cue] <Ambient, Dow
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897631.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Giulio Aldinucci - Shards Of Distant Times (2020) Karlrecords [FLAC|Lossless|WEB
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895237.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Space Afrika - Discography 7 Releases (2014-2021) Where To Now?, Sferic [FLAC|Lo
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890838.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Trigg & Gusset - Discography 5 Releases (2013-2021) Preserved Sound [FLAC|Lossle
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888729.jpg" />
+  <img src="Z:/picture/005/save_picture_888729.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ Flowers for Bodysnatchers - Alive with Scars (2019) Cryo Chamber [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888426.jpg" />
+  <img src="Z:/picture/005/save_picture_888426.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Anugama - Shamanic Dream II (2000) [FLAC|Lossless|tracks + .cue] <New Age,Medita
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887575.jpg" />
+  <img src="Z:/picture/005/save_picture_887575.jpg" />
 </div>
 
 
@@ -231,7 +260,7 @@ Dan Abrams (Shuttle358, Fenton, Dabrams) - Discography 12 Releases (1999-2021) 1
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884132.jpg" />
+  <img src="Z:/picture/005/save_picture_884132.jpg" />
 </div>
 
 
@@ -260,7 +289,7 @@ Gabriel Le Mar - Shared Fictions (Beatless Mixes) (2020) Le Mar Production [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883990.jpg" />
+  <img src="Z:/picture/005/save_picture_883990.jpg" />
 </div>
 
 
@@ -289,7 +318,7 @@ Gabriel Le Mar - Shared Fictions (2020) Le Mar Production [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883856.jpg" />
+  <img src="Z:/picture/005/save_picture_883856.jpg" />
 </div>
 
 
@@ -318,7 +347,7 @@ Arktapes - Space Versions 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub T
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882200.jpg" />
+  <img src="Z:/picture/005/save_picture_882200.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ Lee Anthony Norris - Discography 4 Releases (2013-2020) Unknown Tone Records, ..
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881814.jpg" />
+  <img src="Z:/picture/005/save_picture_881814.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ Lichtmond - The Journey (2016) [FLAC|Lossless|image + .cue] <Ambient, Electronic
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881688.jpg" />
+  <img src="Z:/picture/005/save_picture_881688.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ Strie (Olga Wojciechowska, Strïe, Strië) - Discography 18 Releases (2010-2020)
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881601.jpg" />
+  <img src="Z:/picture/005/save_picture_881601.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ Lauge - Pusterum (2015) [FLAC|Lossless|WEB-DL]<Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879593.jpg" />
+  <img src="Z:/picture/005/save_picture_879593.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ Robert Rich - Echo Of Small Things (2005) Soundscape [FLAC|Lossless|tracks+.cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874713.jpg" />
+  <img src="Z:/picture/005/save_picture_874713.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ The Gnome - Pleasant Sounds For Unpleasant Times (2020) Ant-Zen [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871193.jpg" />
+  <img src="Z:/picture/008/save_picture_871193.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Plesiada - Discography 4 Releases (2013-2020) Miandres Records [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861927.jpg" />
+  <img src="Z:/picture/008/save_picture_861927.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ ForstWölfin - You Will Find Me In The Forest (2016) [FLAC|Lossless|WEB-DL|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857569.jpg" />
+  <img src="Z:/picture/008/save_picture_857569.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846521.jpg" />
+  <img src="Z:/picture/008/save_picture_846521.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 4
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846143.jpg" />
+  <img src="Z:/picture/008/save_picture_846143.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC 2.0|44.1/24|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839200.jpg" />
+  <img src="Z:/picture/008/save_picture_839200.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ Juta Takahashi - Collection 7 Releases (2007-2019) Lunisolar Records [FLAC|Lossl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837701.jpg" />
+  <img src="Z:/picture/008/save_picture_837701.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ Massimo Magrini (Bad Sector, Olhon) - Discography 46 Releases (1995-2019) [FLAC|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830769.jpg" />
 </div>
 
 
@@ -705,35 +734,6 @@ Massimo Magrini (Bad Sector, Olhon) - Discography 46 Releases (1995-2019) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:766AC707973B107A45459E06EBD4D76A3E82C50B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502464   (828234) от 14.10.2021
-
-MLO - Oumuamua (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MLO - Wimborne (9:19)
-02. MLO - Shadows Of Life And Thought (6:31)
-03. MLO - Ebb And Flow (3:24)
-04. MLO - On Dreams (3:19)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6774869FCDC377DCC3B7EA885A8471CDF1D275D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

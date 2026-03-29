@@ -1,3 +1,93 @@
+###  Публикация: 1273092   (138692) от 30.12.2018
+
+Сборник клипов - Philizz "Video Yearmix" (2018) WEB-DLRip [H.264/1080p-LQ] [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Video Yearmix 2018" - фирменный видеомикс от голландского ви-джея Philizz. Почти два часа музыки, 235 музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Добро пожаловать в мир лучшей танцевальной музыки 2018 года!
+- Разбивка по трекам отсутствует.PART 1
+Avril Lavigne – Head Above Water
+Camila Cabello – Never Be The Same
+David Guetta ft. Anne-Marie – Don’t Leave Me Alone(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтключаемыеПродолжительность: 01:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141D4D6BA891CB60EF72AC6D31BC0874E574CEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970371   (138069) от 31.12.2015
+
+VA - Зимний марафон № 216: Новогодний Фейерверк (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (29.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
+P/S: Добавлены новинки с Новогодними клипами.01. Akcent ft. Sandra N - Amor Gitana (Official Video) (00:03:02)
+02. Ariana Grande - Focus (Live AMA 2015) (Official Video) (00:03:35)
+03. Diana Gloster - Buona Sera (Official Video) (00:03:10)
+04. Дуэт Свои и Прохор Шаляпин - Зима (Новогодний клип!) (00:03:46)(   Читать дальше...   )Жанр: Pop, Dance, Latino, ReggaetonПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349121   (137734) от 31.12.2019
+
+Сборник клипов - Philizz "Video Yearmix" (2019) WEB-DLRip [H.264/1080p-LQ] [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Video Yearmix 2019" - фирменный видеомикс от голландского ви-джея Philizz. Два часа музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Мир лучшей танцевальной музыки 2019 года ждёт Вас! Приятного просмотра!
+- Разбивка по трекам отсутствует.Lil Nas X ft. Billy Ray Cyrus – Old Town Road
+Halsey – Without Me
+Why Don’t We – Big Plans
+Ellie Goulding ft. Juice WRLD – Hate Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтсутствуютПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F18FB8E31B7B5E76099D9689E74783FC9CBAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088344   (137594) от 31.12.2016
 
 Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
@@ -6,7 +96,7 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137594.jpg" />
 </div>
 
 
@@ -35,7 +125,7 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137540.jpg" />
 </div>
 
 
@@ -64,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137461.jpg" />
 </div>
 
 
@@ -93,7 +183,7 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137434.jpg" />
 </div>
 
 
@@ -121,7 +211,7 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135403.jpg" />
 </div>
 
 
@@ -147,7 +237,7 @@ Plies - Hunna (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135370.jpg" />
 </div>
 
 
@@ -173,7 +263,7 @@ The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135193.jpg" />
 </div>
 
 
@@ -199,7 +289,7 @@ Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134361.jpg" />
 </div>
 
 
@@ -225,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132550.jpg" />
 </div>
 
 
@@ -251,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131902.jpg" />
 </div>
 
 
@@ -277,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131426.jpg" />
 </div>
 
 
@@ -306,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131364.jpg" />
 </div>
 
 
@@ -335,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131338.jpg" />
 </div>
 
 
@@ -363,7 +453,7 @@ SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131325.jpg" />
 </div>
 
 
@@ -389,7 +479,7 @@ Progressive Rock - Rock Legends (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130968.jpg" />
 </div>
 
 
@@ -424,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130751.jpg" />
 </div>
 
 
@@ -450,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126163.jpg" />
 </div>
 
 
@@ -480,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117747.jpg" />
 </div>
 
 
@@ -509,7 +599,7 @@ Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116952.jpg" />
 </div>
 
 
@@ -535,7 +625,7 @@ Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114690.jpg" />
 </div>
 
 
@@ -561,7 +651,7 @@ Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-L
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112227.jpg" />
 </div>
 
 
@@ -587,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110936.jpg" />
 </div>
 
 
@@ -613,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110779.jpg" />
 </div>
 
 
@@ -627,87 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722042   (109798) от 10.05.2024
-
-Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не хочу ничего уже больше писать,
-Ведь песни мои как пророчества.
-На прогулку ведёт пятилапого пса
-Наше - Ваше высочество.(   Читать дальше...   )Жанр: RapПродолжительность: 00:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731572   (107668) от 21.06.2024
-
-Семин, DESSAR, Штерк - НЕО (2024) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD243919078A9965DB97853F78B6FA134308199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732053   (107541) от 23.06.2024
-
-Юрий Шатунов — «Грёзы» (2019) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Шатунов - Грезы. Official VideoЖанр: PopПродолжительность: 00:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B961F77B04B8559EB5440B62051D94F14AEDFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

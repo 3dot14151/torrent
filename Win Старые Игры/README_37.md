@@ -1,3 +1,55 @@
+###  Публикация: 1730502   (53135) от 16.06.2024
+
+Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freedom Force vs. the Third Reich – изометрическое ролевое приключение, наполненное юмором практически доверху и повторяющее стилистику золотого века для супергеройских комиксов в мельчащих деталях, создавая иллюзию того, что всё вокруг – ожившие страницы журнала. Вторая часть серии Силы Свободы. Сюжет стартует сразу после временного парадокса, вызванного Блицкригом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C82D9029B3C5FAA7E2D1D26456770DD8EBBCAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730482   (53117) от 16.06.2024
+
+Freedom Force (2002) [En] (1.3) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ролевая стратегическая игра - Freedom Force - стала комически смешным олицетворением команды супергероев, которые будут защищать базу Патриот Сити. Бороться мы будем непосредственно с мутантами, чудовищами и всякими прочими угрозами. Вся игра построена на визуализации старых комиксов, которые в более-менее современной графике выглядят достаточно смешно. Первые сюжетные (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational GamesЖанр: Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819EE5EB1E247D3DEC3246B5056CD35646D15DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730290   (52480) от 22.06.2024
 
 The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
@@ -6,7 +58,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52480.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Robbo Millennium (2000) [Pl] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51799.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Manhunt (2004) [Ru] (1.1) Repack R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49669.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49388.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ FlatOut (2005) [Ru/Multi] (1.01) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49232.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Street Racing Syndicate (2005) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48305.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48109.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48033.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Flatout (2005) [Ru/Multi] (1.01) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47972.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ realMyst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47872.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Deer Avenger 4: The Redneck Strikes Back / Месть Оленя 4 (2001) [Ru/En
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47563.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ STAR WARS: Battlefront (2015) [Ru/Multi] (1.0.7.64833) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47305.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47273.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46758.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46428.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Nancy Drew: Danger on Deception Island / Нэнси Дрю. Туманы ост�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46311.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46227.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Far Cry: Far Cry Irina Go 2 (2022) [Ru/En] (1.0) Repack/Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45008.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый во�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44964.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последни
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44956.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Action SuperCross (1997) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44952.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Spyro: Enter the Dragonfly (2002) [Ru/Multi] (1.2) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44261.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Xenonauts: Arms Race / Ксенонавты: гонка вооружений (20
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44241.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Xenonauts Soviet Edition (2015) [Ru/En] (0.35.1) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44138.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Xenonauts Soviet Edition (2015) [Ru/En] (0.35.1) Repack/Mod AndyFox
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8925B6AC3080519C0E3B1F1EC6F018BAC4893AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748885   (43819) от 12.09.2024
-
-Xenonauts: XNT - Into Darkness (2017) [En] (6.0) Repack/Mod AndyFox
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мод предназначен для игроков, желающих более быстрый темп игры и больше действий, отображает захватывающую и разнообразную среду. Мод реализует инновационные элементы и механику, тем самым изменяя игровой опыт. Игрок должен мудро выбирать, предпочитает ли он сосредоточиться на экономике, превосходстве в воздухе или дополнительными наземными боевыми инструментами. (   Читать дальше...   )Тип издания: Repack/ModЖанр: Strategy, Turn-based, Sci-fiЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9545B9688130F12ED98578A208157D74BC74E622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615071   (43741) от 13.09.2024
-
-Spyro the Dragon (1998) [Ru/Multi] (2.0) Repack Ma2012ks
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spyro the Dragon - первая игра от Insomniac Games о драконе Спайро начавшая серию Spyro the Dragon. Злой волшебник Гнасти Гнорк (Gnasty Gnorc) заколдовал королевство драконов. Вся надежда на маленького Спайро. Он призван освободить своих сородичей и смежные миры от гнёта тёмных сил, а также спасти все украденные яйца драконов.Тип издания: RepackРазработчик: Insomniac GamesЖанр: Платформер, Аркада, 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36542CF52D358C5B2C29F8B250993DBD30190A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

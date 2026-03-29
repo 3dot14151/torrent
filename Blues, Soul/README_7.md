@@ -1,3 +1,32 @@
+###  Публикация: 1012109   (795459) от 29.04.2016
+
+George Thorogood & The Destroyers - Greatest Hits: 30 Years of Rock (2004) [MP3|320 кб/с] <Rock, Blues Rock, Country Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madison Blues (04:29)
+02. One Bourbon, One Scotch, One Beer (08:27)
+03. Move It On Over (04:19)
+04. Who Do You Love? (04:26)(   Читать дальше...   )Жанр: Rock, Blues Rock, Country RockПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5ABA8D160515FE84259C8B0D58717BD8DEDD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509343   (794882) от 12.11.2021
 
 Eric Clapton - The Lady In The Balcony Lockdown Sessions (Live) (2021) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -6,7 +35,7 @@ Eric Clapton - The Lady In The Balcony Lockdown Sessions (Live) (2021) [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794882.jpg" />
+  <img src="Z:/picture/008/save_picture_794882.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Marco Bartoccioni - Eyes (Nashville Sessions) (2015) [MP3|320 кб/с] <Blues, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794801.jpg" />
+  <img src="Z:/picture/008/save_picture_794801.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lilly Martin - Minetta (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792871.jpg" />
+  <img src="Z:/picture/008/save_picture_792871.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Devil's Disciples - The Devil Plays Guitar (2006) [MP3|256 Kbps] <Instrumental B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792824.jpg" />
+  <img src="Z:/picture/008/save_picture_792824.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Kenne Cramer - All Day Long (2017) [MP3|320 Kbps] <Blues, Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792267.jpg" />
+  <img src="Z:/picture/008/save_picture_792267.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Moondog Howlers - Misbehavin' (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792248.jpg" />
+  <img src="Z:/picture/008/save_picture_792248.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Tramp - Put A Record On (1974) Remastered, 2007, Air Mail Archive,  Spark Record
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792097.jpg" />
+  <img src="Z:/picture/008/save_picture_792097.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - The Devil's Music Rock and Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791219.jpg" />
+  <img src="Z:/picture/008/save_picture_791219.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Nathan Beretta - Where I Belong (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791094.jpg" />
+  <img src="Z:/picture/008/save_picture_791094.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ John Hammond - Southern Fried (1969) Reissue, 2002, Water [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791021.jpg" />
+  <img src="Z:/picture/008/save_picture_791021.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Trish Kerr - Clover (2018) [MP3|320 Kbps] <Blues Rock, Jazz Rock, Female Vocal>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790983.jpg" />
+  <img src="Z:/picture/008/save_picture_790983.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Beth Hart / Бет Харт - Screamin' For My Supper (1999) Atlantic, Lava, 143
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790526.jpg" />
+  <img src="Z:/picture/008/save_picture_790526.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Beth Hart / Бет Харт - Live At Paradiso (2005) Universal, 987 146-5, Euro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790507.jpg" />
+  <img src="Z:/picture/008/save_picture_790507.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Beth Hart / Бет Харт - 37 Days (2007) Universal Music Group, UMD 174 235 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790495.jpg" />
+  <img src="Z:/picture/008/save_picture_790495.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Beth Hart / Бет Харт - Leave the Light On (2003) Koch Records, KOC-CD-824
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790468.jpg" />
+  <img src="Z:/picture/008/save_picture_790468.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Muddy Waters Tribute Band - Live at Rockpalast (Live, 1996 Loreley Festival) (20
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790453.jpg" />
+  <img src="Z:/picture/008/save_picture_790453.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Beth Hart & Joe Bonamassa - Don't Explain (2011) J&R Adventures, PRAR931391, US 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790452.jpg" />
+  <img src="Z:/picture/008/save_picture_790452.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Devon Coyote - The Wind (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786143.jpg" />
+  <img src="Z:/picture/008/save_picture_786143.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ John Dummer Blues Band - Cabal (1969) Reissue, 2003, Sunrise Records [MP3|320 Kb
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785433.jpg" />
+  <img src="Z:/picture/008/save_picture_785433.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Blindstone - Manifesto (2003) 2008, Grooveyard Records [MP3|320 Kbps] <Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784984.jpg" />
+  <img src="Z:/picture/008/save_picture_784984.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Blindstone - Freedom's Calling (2008) Grooveyard Records, GYR043 [MP3|320 Kbps] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784982.jpg" />
+  <img src="Z:/picture/008/save_picture_784982.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Blindstone - Rise Above (2010) Grooveyard Records [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784980.jpg" />
+  <img src="Z:/picture/008/save_picture_784980.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Peter Karp & Mick Taylor - The Turning Point (2004) BackBender Records [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784960.jpg" />
+  <img src="Z:/picture/008/save_picture_784960.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Peter Karp & Sue Foley - He Said She Said (2010) Blind Pig Records [MP3|320 Kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784936.jpg" />
+  <img src="Z:/picture/008/save_picture_784936.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Record
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784395.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Big Boy Bloater британский блюзовый гитарист, певц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204658   (784393) от 07.02.2018
-
-Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Bear Cat 4:12
-02. Every Path Has Its Puddle 3:08
-03. Pall Bearer's Song 2:58
-04. Bring Her Back To Me 2:47(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC0A4B5693E93F6578CB879BDA44BCE8BF920DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

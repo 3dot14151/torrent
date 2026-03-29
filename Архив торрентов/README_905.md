@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841033.jpg" />
+  <img src="Z:/picture/008/save_picture_841033.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841032.jpg" />
+  <img src="Z:/picture/008/save_picture_841032.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841030.jpg" />
+  <img src="Z:/picture/008/save_picture_841030.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841029.jpg" />
+  <img src="Z:/picture/008/save_picture_841029.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cybertribe - Discography - 6 аlbums (1998 - 2004) [MP3|320 kbps]<Ambient, Triba
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841027.jpg" />
+  <img src="Z:/picture/008/save_picture_841027.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ UltraEdit 17.00.0.1025 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841025.jpg" />
+  <img src="Z:/picture/008/save_picture_841025.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841024.jpg" />
+  <img src="Z:/picture/008/save_picture_841024.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841016.jpg" />
+  <img src="Z:/picture/008/save_picture_841016.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kali Linux 1.0.3 (ex. BackTrack) Аудит безопасности, хакин
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841004.jpg" />
+  <img src="Z:/picture/008/save_picture_841004.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Notepad++ 7.3.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841002.jpg" />
+  <img src="Z:/picture/008/save_picture_841002.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841000.jpg" />
+  <img src="Z:/picture/008/save_picture_841000.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CyberLink PhotoDirector 8 Ultra 8.0.2303.4 (x64) RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840989.jpg" />
+  <img src="Z:/picture/008/save_picture_840989.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Extreme Picture Finder 3.49.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840981.jpg" />
+  <img src="Z:/picture/008/save_picture_840981.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Keka 1.1.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840979.jpg" />
+  <img src="Z:/picture/008/save_picture_840979.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ FileZilla 3.48.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840978.jpg" />
+  <img src="Z:/picture/008/save_picture_840978.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ ON1 Photo RAW 2020.1 v14.1.0.8943 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840975.jpg" />
+  <img src="Z:/picture/008/save_picture_840975.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ForkLift 3.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840973.jpg" />
+  <img src="Z:/picture/008/save_picture_840973.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Glary Utilities Pro 5.141.0.167 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840970.jpg" />
+  <img src="Z:/picture/008/save_picture_840970.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Movavi Slideshow Maker 6 v6.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840967.jpg" />
+  <img src="Z:/picture/008/save_picture_840967.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Google Chrome 81.0.4044.129 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840963.jpg" />
+  <img src="Z:/picture/008/save_picture_840963.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ MemTest86 9.3 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840962.jpg" />
+  <img src="Z:/picture/008/save_picture_840962.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840958.jpg" />
+  <img src="Z:/picture/008/save_picture_840958.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VueScan Pro 9.7.67 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840957.jpg" />
+  <img src="Z:/picture/008/save_picture_840957.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ MyPhoneExplorer 1.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840956.jpg" />
+  <img src="Z:/picture/008/save_picture_840956.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840927.jpg" />
+  <img src="Z:/picture/008/save_picture_840927.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840920.jpg" />
+  <img src="Z:/picture/008/save_picture_840920.jpg" />
 </div>
 
 

@@ -1,3 +1,236 @@
+###  Публикация: 1627632   (254994) от 20.04.2023
+
+Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		Беспокойный Пульс = Restless Beat	4:10
+A2		Печаль = Sadness	4:20
+A3		Испанский Мотив = Spanish Theme	3:40
+A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628322   (254888) от 23.04.2023
+
+Раймондc Паулс - Мой Путь (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Smooth Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254888.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Увеселитель - The Entertainer (S. Joplin)
+А2 Как Велика Твоя Любовь - How Deep Is Your Love (В., M., R. Gibb)
+АЗ Здравствуй! - Salut! (C. Pallavicini)
+А4 Мой Путь - My Way (P. Anka)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 30:4:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628677   (254852) от 24.04.2023
+
+Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy In The Night (Barking At Airplanes) 3:39
+02. One Kiss 3:32
+03. Begging For Favors (Learning How Things Work) 4:53
+04. He Makes The Sun Rise (Orpheus) 4:30(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628877   (254819) от 25.04.2023
+
+Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254819.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Glory! Glory! 4:50
+A2 Call Me No. 1 3:57
+A3 Rubber Ball (Space Kitchen) 3:38
+A4 Show Some Emotion 3:48(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2CDF3AB7551983EC057E40159B7AD5EC014802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629672   (254741) от 27.04.2023
+
+Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254741.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Into The Blue (4:08)
+A2. Million Miles (3:28)
+A3. I Was Gonna Cancel (3:32)
+B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629685   (254728) от 27.04.2023
+
+Зодиак - Музыка во Вселенной (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254728.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Таинственная галактика (4:45)
+A2. Лазерная иллюминация (4:11)
+A3. Серебряная мечта (3:33)
+A4. Фотофиниш (4:34)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629965   (254717) от 28.04.2023
+
+Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254717.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Getaway
+2 Dark Necessities
+3 We Turn Red
+4 The Longest Wave(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630475   (254673) от 30.04.2023
+
+Демонстрационные диски DTS 5.1 CD-Audio ##14-16 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue] <Pop, Rock, Electronic...>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот и еще три сборничка поспели...
+При подготовке релиза использовал материал, собранный ув.Диск 14
+
+01. Alan Parsons - A Valid Path
+02. Beatles - Back In The USSR(   Читать дальше...   )Продолжительность: 01:03:08+00:56:01+00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2D2E6595F46B32844882A9FCDF8C2E68B204AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632297   (254485) от 09.05.2023
 
 Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1/24|image+.cue|SACD] <Jazz>
@@ -6,7 +239,7 @@ Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1/24|image+.cu
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254485.jpg" />
+  <img src="Z:/picture/005/save_picture_254485.jpg" />
 </div>
 
 
@@ -35,7 +268,7 @@ VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254164.jpg" />
+  <img src="Z:/picture/005/save_picture_254164.jpg" />
 </div>
 
 
@@ -64,7 +297,7 @@ Rod McKuen - Love's Been Good To Me (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254151.jpg" />
+  <img src="Z:/picture/005/save_picture_254151.jpg" />
 </div>
 
 
@@ -93,7 +326,7 @@ Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254150.jpg" />
+  <img src="Z:/picture/005/save_picture_254150.jpg" />
 </div>
 
 
@@ -122,7 +355,7 @@ Roberto Delgado & His Orchestra - South America In Super Stereo (1970) Series: P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254149.jpg" />
+  <img src="Z:/picture/005/save_picture_254149.jpg" />
 </div>
 
 
@@ -151,7 +384,7 @@ Herb Alpert - Rise (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul-Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253082.jpg" />
+  <img src="Z:/picture/005/save_picture_253082.jpg" />
 </div>
 
 
@@ -180,7 +413,7 @@ The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253061.jpg" />
+  <img src="Z:/picture/005/save_picture_253061.jpg" />
 </div>
 
 
@@ -210,7 +443,7 @@ Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252509.jpg" />
+  <img src="Z:/picture/005/save_picture_252509.jpg" />
 </div>
 
 
@@ -238,7 +471,7 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251202.jpg" />
 </div>
 
 
@@ -267,7 +500,7 @@ Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250468.jpg" />
+  <img src="Z:/picture/004/save_picture_250468.jpg" />
 </div>
 
 
@@ -296,7 +529,7 @@ Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250260.jpg" />
+  <img src="Z:/picture/004/save_picture_250260.jpg" />
 </div>
 
 
@@ -325,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250117.jpg" />
+  <img src="Z:/picture/004/save_picture_250117.jpg" />
 </div>
 
 
@@ -354,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250027.jpg" />
+  <img src="Z:/picture/004/save_picture_250027.jpg" />
 </div>
 
 
@@ -383,7 +616,7 @@ Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249886.jpg" />
+  <img src="Z:/picture/004/save_picture_249886.jpg" />
 </div>
 
 
@@ -412,7 +645,7 @@ Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249796.jpg" />
+  <img src="Z:/picture/004/save_picture_249796.jpg" />
 </div>
 
 
@@ -440,7 +673,7 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Rec
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249634.jpg" />
+  <img src="Z:/picture/004/save_picture_249634.jpg" />
 </div>
 
 
@@ -469,7 +702,7 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249436.jpg" />
+  <img src="Z:/picture/004/save_picture_249436.jpg" />
 </div>
 
 
@@ -498,7 +731,7 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245973.jpg" />
+  <img src="Z:/picture/004/save_picture_245973.jpg" />
 </div>
 
 
@@ -512,235 +745,6 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620919   (245804) от 22.03.2023
-
-Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 01. 06. 1924 [00:04:09]
-02 - Glück Auf! [00:06:33]
-03 - Moralna Zaslomba [00:05:09]
-04 - Smrt In Pogin [00:06:08](   Читать дальше...   )Жанр: Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2895E481C4B41BCAFB20D46CD884D8332EDAEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620006   (245766) от 20.03.2023
-
-Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iron Mask — пауэр-метал группа, основанная в 2002 году бельгийским гитаристом Душаном Петросси.2002 - Revenge Is My Name
-2005 - Hordes of The Brave
-2009 - Shadow Of The Red Baron
-2011 - Black As DeathЖанр: Power MetalПродолжительность: 07:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623839   (245564) от 03.04.2023
-
-Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Funk / Soul, PopПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620710   (245485) от 21.03.2023
-
-Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245485.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Не Променяй Съдбата Ми • Don't Change My Luck • Не меняй мою судьбу
-A2 Изморен От Чакане • Tired Of Waiting • Уставшая от ожидания
-A3 Самоубийство • Suicide
-A4 Ийви • Evie(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE96EE67321586B880F149F2CEE24276EF85A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540582   (245259) от 30.03.2022
-
-Демонстрационный диск DTS 5.1 CD-Audio #9 (2022) [DTS 5.1 CD-DA| 44.1/16|image+.cue|DVD-Audio] <Pop, Classic, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KRAFTWERK - Elektro kardiogramm
-02. BRYAN FERRY - Windswept
-03. GILLIAN WEIR - Pierre Petit: concerto for organ
-04. BILLIE MYERS - Kiss the Rain(   Читать дальше...   )Продолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E95577421439156E4685A6BA4DA0467C0E5498A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624222   (245188) от 05.04.2023
-
-The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245188.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hold On To Your Dreams (Rock Version) 4:16
-A2 Love Can Change It All 3:40
-A3 Time Will Tell 3:47
-A4 What Do You Live For 4:06(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631112   (245169) от 04.05.2023
-
-Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Classical, Romantic, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-Concerto no.2 in B minor
-Composed By – Giovanni Bottesini
-01. 1 I. Allegro moderato(   Читать дальше...   )Жанр: Classical, Romantic, BaroqueПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621149   (245044) от 23.03.2023
-
-VA («Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель) - Не Задирай Носа (1972) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245044.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 «Червоны гитары» - Не Задирай Носа
-(С. Краевский – М. Гашинский)
-A2 Марыля Родович - Баллада О Поезде
-(А. Зелинский - А. Осецка)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

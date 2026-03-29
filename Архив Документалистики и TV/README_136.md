@@ -1,3 +1,177 @@
+###  Публикация: 509122   (677479) от 11.06.2012
+
+Футбол. Чемпионат Европы 2012. 1-й тур. Группа С. Ирландия - Хорватия (2012) HDTVRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677479.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 июня 2012 года, воскресенье. 22:45 мск
+ Группа C. 1-й тур
+ Познань (Польша). Стадион Мейски.
+ Главный судья: Бьорн Куйперс (Олдензал, Нидерланды)Жанр: СпортПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149B4C4A604E37F516DCDF29A18EFEF21375D387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508926   (677471) от 11.06.2012
+
+Футбол. Чемпионат Европы 2012. 1-й тур. Группа C. Испания - Италия (2012) HDTVRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677471.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 июня 2012 года, воскресенье. 20:00 мск
+ Группа C. 1-й тур
+ Гданськ (Польша). Стадион PGE Арена Гданськ.
+ Главный судья: Виктор Кошшои (Татабанья, Венгрия)Жанр: СпортПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BD1F77139DDF2C6CCE8DFDFD241AB236CCD07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135708   (677436) от 21.05.2017
+
+Хоккей. Чемпионат мира 2017. Предварительный раунд. Группа B. 7-й тур. Франция – Словения (15.05.2017) WEB-DL
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677436.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 мая 2017, понедельник. 21:15 МСК
+81-й Чемпионат мира по хоккею с шайбой 2017. Предварительный раунд
+Группа B. 7-й тур
+Франция – Словения(   Читать дальше...   )Телекомпания: Матч! ИграЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275221265D05732FFDDF5003041E288DE1155BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135949   (677434) от 21.05.2017
+
+Баскетбол. НБА 2016-2017. Восток. 1/4 Финала. 5-й матч. Вашингтон Уизардс – Атланта Хоукс (26.04.2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677434.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 апреля 2017, четверг. 01:00 МСК
+НБА 2016-2017. Восточная конференция. Плей-офф. Первый раунд
+1/4 Финала. 5-й матч
+Вашингтон Уизардс – Атланта Хоукс(   Читать дальше...   )Телекомпания: TNTЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A548A5575BB00DB17E12B56B57FA88B68996F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135743   (677432) от 21.05.2017
+
+Хоккей. Чемпионат мира 2017. Предварительный раунд. Группа B. 7-й тур. Канада – Финляндия (16.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677432.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 мая 2017, вторник. 21:15 МСК
+81-й Чемпионат мира по хоккею с шайбой 2017. Предварительный раунд
+Группа B. 7-й тур
+Канада – Финляндия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4323B2E31715B7C25685B1CAB3CA552AB3881D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135716   (677431) от 21.05.2017
+
+Хоккей. Чемпионат мира 2017. Предварительный раунд. Группа B. 7-й тур. Беларусь – Норвегия (16.05.2017) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677431.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 мая 2017, вторник. 13:15 МСК
+81-й Чемпионат мира по хоккею с шайбой 2017. Предварительный раунд
+Группа B. 7-й тур
+Беларусь – Норвегия(   Читать дальше...   )Телекомпания: Матч! ИграЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF5F3BEF506151C0F5DF805A049B58FD52887D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135951   (677429) от 21.05.2017
 
 Баскетбол. НБА 2016-2017. Восток. 1/4 Финала. 5-й матч. Бостон Селтикс – Чикаго Буллз (26.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +180,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677429.jpg" />
+  <img src="Z:/picture/008/save_picture_677429.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677426.jpg" />
+  <img src="Z:/picture/008/save_picture_677426.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677421.jpg" />
+  <img src="Z:/picture/008/save_picture_677421.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677418.jpg" />
+  <img src="Z:/picture/008/save_picture_677418.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677414.jpg" />
+  <img src="Z:/picture/008/save_picture_677414.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677396.jpg" />
+  <img src="Z:/picture/008/save_picture_677396.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677300.jpg" />
+  <img src="Z:/picture/008/save_picture_677300.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677125.jpg" />
+  <img src="Z:/picture/008/save_picture_677125.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676909.jpg" />
+  <img src="Z:/picture/008/save_picture_676909.jpg" />
 </div>
 
 
@@ -264,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676846.jpg" />
+  <img src="Z:/picture/008/save_picture_676846.jpg" />
 </div>
 
 
@@ -293,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676396.jpg" />
+  <img src="Z:/picture/008/save_picture_676396.jpg" />
 </div>
 
 
@@ -319,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676351.jpg" />
+  <img src="Z:/picture/008/save_picture_676351.jpg" />
 </div>
 
 
@@ -346,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675457.jpg" />
 </div>
 
 
@@ -373,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675299.jpg" />
 </div>
 
 
@@ -402,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675069.jpg" />
 </div>
 
 
@@ -431,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674910.jpg" />
 </div>
 
 
@@ -460,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674829.jpg" />
 </div>
 
 
@@ -488,7 +662,7 @@ Moto GP. Сезон 2017. HJC Helmets Grand Prix de France. Этап 5. Гонк
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674764.jpg" />
 </div>
 
 
@@ -514,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674592.jpg" />
 </div>
 
 
@@ -543,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674138.jpg" />
+  <img src="Z:/picture/008/save_picture_674138.jpg" />
 </div>
 
 
@@ -556,180 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:007E165FD95EA7CFEA74DC287DBF9207DA425EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223631   (673479) от 05.05.2018
-
-Хоккей. Чемпионат мира 2018. Группа B. США — Канада (04.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673479.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 мая 2018 года, пятница. 17:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-Группа B. 1-й Тур
-США — Канада(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F9578FD727442B95C874E29D75CA051610A6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223624   (673477) от 05.05.2018
-
-Хоккей. Чемпионат мира 2018. Группа A. Россия — Франция (04.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673477.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 мая 2018 года, пятница. 17:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-Группа A. 1-й Тур
-Россия — Франция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1A770E5802EE9325AEDCAFA5D883AD1D349FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223498   (673475) от 05.05.2018
-
-Хоккей. Чемпионат мира 2018. Группа A. Швеция — Беларусь (04.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673475.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 мая 2018 года, пятница. 21:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-Группа A.
-Швеция — Беларусь(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC782EF3BE0C2E0AD7E63F7B5E708C77F3EA534B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223581   (673469) от 05.05.2018
-
-Хоккей. Юниорский Чемпионат мира 2018. Финал. Финляндия U18 — США U18 (29.04.2018) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673469.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 апреля 2018 года, воскресенье. 17:30 МСК
-20-й Чемпионат мира по хоккею с шайбой среди юниорских команд 2018 года
-Финал
-Финляндия U18 — США U18(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6667C68517A70CED7CEE6B9D633B3AB864787352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223497   (673461) от 05.05.2018
-
-Хоккей. Чемпионат мира 2018. Группа B. США — Канада (04.05.2018) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673461.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 мая 2018 года, пятница. 17:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-Группа B
-США — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00793D83F5307D744CB6AE777087527CA542B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223495   (673421) от 05.05.2018
-
-Хоккей. Чемпионат мира 2018. Группа A. Россия — Франция (04.05.2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673421.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 мая 2018 года, пятница. 17:15 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-Группа A.
-Россия — Франция(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 01:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152E34A8FBB22B8EB1E7AA9DBEDBE17DEF988AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

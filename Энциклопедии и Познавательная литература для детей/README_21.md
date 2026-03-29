@@ -1,3 +1,58 @@
+###  Публикация: 913855   (601136) от 30.06.2015
+
+Галина Шалаев и др. | Кто есть кто во всемирной истории (2010) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое «греческий огонь»? Могут ли гуси принести спасение городу? Чем знамениты «рукописи Мертвого моря»? Откуда пришли в Америку индейцы? Существовал ли на самом деле король Артур? Что такое детские крестовые походы? Может ли дневник маленькой девочки стать историческим документом? Ответы на эти и другие вопросы вы найдете в нашей книге. Каждый почемучка с удовольствием (   Читать дальше...   )Жанр: Книги для детей, Энциклопедии, ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC16FA59C2E27A0EAF89CBD3AD9F7A824D3D5C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299023   (600759) от 30.04.2019
+
+Ю.Каспарова | Энциклопедия дошкольника. Животные (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматривайте иллюстрации, читайте тексты и узнавайте новое о больших кошках, ловких обезьянах, умных слонах, трудолюбивых насекомых и многих других животных!
+В книге вы найдёте:
+- замечательные крупные иллюстрации, подготовленные специально для восприятия малышей;
+- короткие и понятные тексты к каждой иллюстрации;(   Читать дальше...   )Жанр: ЭнциклопедияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089DAF92DD92E67DC481BF33CEF79FA6110233FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914106   (600169) от 01.07.2015
 
 П. К. Федоренко | Сколько стоит золотой, или История денег (2005) [DJVU]
@@ -6,7 +61,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600169.jpg" />
+  <img src="Z:/picture/008/save_picture_600169.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598169.jpg" />
+  <img src="Z:/picture/008/save_picture_598169.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597836.jpg" />
+  <img src="Z:/picture/008/save_picture_597836.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597403.jpg" />
+  <img src="Z:/picture/008/save_picture_597403.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597257.jpg" />
+  <img src="Z:/picture/008/save_picture_597257.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595975.jpg" />
+  <img src="Z:/picture/008/save_picture_595975.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595908.jpg" />
+  <img src="Z:/picture/008/save_picture_595908.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595899.jpg" />
+  <img src="Z:/picture/008/save_picture_595899.jpg" />
 </div>
 
 
@@ -214,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595818.jpg" />
+  <img src="Z:/picture/008/save_picture_595818.jpg" />
 </div>
 
 
@@ -240,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595605.jpg" />
+  <img src="Z:/picture/008/save_picture_595605.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594363.jpg" />
+  <img src="Z:/picture/008/save_picture_594363.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594351.jpg" />
+  <img src="Z:/picture/008/save_picture_594351.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594277.jpg" />
+  <img src="Z:/picture/008/save_picture_594277.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592922.jpg" />
+  <img src="Z:/picture/008/save_picture_592922.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592797.jpg" />
+  <img src="Z:/picture/008/save_picture_592797.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586182.jpg" />
+  <img src="Z:/picture/008/save_picture_586182.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586115.jpg" />
+  <img src="Z:/picture/008/save_picture_586115.jpg" />
 </div>
 
 
@@ -452,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585344.jpg" />
+  <img src="Z:/picture/008/save_picture_585344.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582692.jpg" />
+  <img src="Z:/picture/008/save_picture_582692.jpg" />
 </div>
 
 
@@ -506,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578944.jpg" />
+  <img src="Z:/picture/008/save_picture_578944.jpg" />
 </div>
 
 
@@ -532,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568605.jpg" />
+  <img src="Z:/picture/008/save_picture_568605.jpg" />
 </div>
 
 
@@ -558,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565755.jpg" />
+  <img src="Z:/picture/008/save_picture_565755.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564888.jpg" />
+  <img src="Z:/picture/008/save_picture_564888.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564884.jpg" />
+  <img src="Z:/picture/008/save_picture_564884.jpg" />
 </div>
 
 
@@ -624,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C5A14B3D3E32E640D4266392C6A6F9D9782B5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234890   (564064) от 09.07.2018
-
-И.С. Пешкин | История стального шарика (1958) [DJVU, PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга адресована юношам и девушкам, перед которыми стоит задача выбора профессии, выбора жизненного пути. Автор знакомит читателя с одним из передовых предприятий Москвы — Первым государственным подшипниковым заводом.
-В книге рассказывается история рождения завода-гиганта, показывается труд современных рабочих — повелителей систем автоматически действующих машин. (   Читать дальше...   )Жанр: научно-популярнаяФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DD673DFECDF06EB9327F26DC64903D02D2F2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691239   (560256) от 20.08.2013
-
-Т. Жабская | Любознательным ребятам 100 секретов о зверятах [2009] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560256.jpg" />
-</div>
-
-
-###  Подробнее
-
-О разных животных — больших и маленьких — от слона и жирафа до ежа и каракатицы; о тех, которые вымерли давным-давно, и тех, кого мы привыкли считать домашними любимцами; о привычках и размерах, окраске и любимой еде — обо всем этом расскажет книга. Прочитав ее, маленькие почемучки научатся отличать африканского слона от индийского, узнают, действительно ли дикобраз стреляет иглами и о многих других интересностях.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172E47F7F9C4A93231B617E898230F90EDF6003A
 ```
 
 https://mybot314.ru/tekegram_catalog/

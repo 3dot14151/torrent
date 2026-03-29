@@ -1,3 +1,185 @@
+###  Публикация: 1745416   (45574) от 26.08.2024
+
+Adobe Bridge 2024 14.1.2.300 (x64) Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B78A83EABAA21FC143C96B4A5D3D29C0940DB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747190   (44612) от 04.09.2024
+
+Photo Supreme 2024.2.2.6636 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821FE6593C30E31AF24421796BE524FBDC6077CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779541   (27712) от 13.02.2025
+
+Exif Pilot 6.27.2 + Batchplugin [En]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exif Pilot - EXIF редактор используется для просмотра EXIF, EXIF GPS, IPTC и XMP данных, редактирования, создания EXIF, EXIF GPS и IPTC данных. Импорт/экспорт из/в XML, MS Excel формат, текстовый файл. Exif Pilot поддерживает следующие форматы: JPEG, TIFF, PNG, DNG, NEF, PEF, CRW, JP2 - читает, редактирует и создает метаданные. RAW изображения, включая CR2, MRW, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760C28743B989361E2282C263189B39E07E6FC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796823   (18563) от 12.05.2025
+
+IrfanView 4.72 + Plugins [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18563.jpg" />
+</div>
+
+
+###  Подробнее
+
+IrfanView - компактная и в то же время мощная программа для просмотра и конвертации графических файлов с продвинутыми возможностями, поддерживающая множество форматов графики, есть опции редактирования. Кроме работы с графическими файлами, IrfanView понимает многие аудио и видеоформаты; вдобавок, возможности программы можно значительно расширить за счет плагинов, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FB473115A16FCCD51EF33BC6DF21EF0857CE35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806706   (11560) от 14.07.2025
+
+XnView Shell Extension 4.2.0  + Standalone  [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вы не хотите устанавливать на свой компьютер громоздких программ по работе с графическими файлами, из-за того, что Вам нужны только некоторые их функции, то утилита XnView Shell Extension может Вам в этом помочь. На что же способна XnView Shell Extension? Она встраивается в контекстное меню Проводника и позволяет просматривать в нем превью изображений или сразу (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6743B0E2557FC33E5EEA8EAB8C0BB2635BD1C7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808526   (10367) от 25.07.2025
+
+Photo Supreme 2025.3.0.7956 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F3557F60715F186E1E83E9B6B066CF5E82E560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810056   (9563) от 02.08.2025
+
+FastStone Image Viewer 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9563.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Image Viewer - просмотровщик, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. При установке WEBP кодека поддерживает и этот формат. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902CB9AD2BB01CF3D7548F661C761D97091FF75E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810017   (9542) от 02.08.2025
 
 FastStone Image Viewer 8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +188,7 @@ FastStone Image Viewer 8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9542.jpg" />
 </div>
 
 
@@ -32,7 +214,7 @@ FastStone Photo Resizer 4.4 + Portable [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7753.jpg" />
 </div>
 
 
@@ -58,7 +240,7 @@ XnView Classic 2.52.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5412.jpg" />
 </div>
 
 
@@ -84,7 +266,7 @@ FastStone Image Viewer 8.1 Corporate + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2703.jpg" />
 </div>
 
 
@@ -110,7 +292,7 @@ Adobe Bridge 2025 15.1.2.737 RePack by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2668.jpg" />
 </div>
 
 
@@ -136,7 +318,7 @@ Imagine 2.2.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1166.jpg" />
 </div>
 
 
@@ -162,7 +344,7 @@ XnView MP 1.9.4 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65.jpg" />
 </div>
 
 

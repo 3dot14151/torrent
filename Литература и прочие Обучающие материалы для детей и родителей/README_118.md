@@ -1,3 +1,135 @@
+###  Публикация: 1196220   (825690) от 01.01.2018
+
+Л.С.Пономарёва | Удивительная математика для почемучек 5-го года жизни [2] (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издания представляют собой тетради-раскраски, задания которых направлены на формирование математических представлений у дошкольников 5-го года жизни. Тетради подготовлены в соответствии с тематическим планированием и планами-конспектами издания Л. С. Пономарёвой «Удивительная математика. Предматематическое развитие почемучек 5-го года жизни». Адресуются дошкольникам (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6C6504371FACD1AADB2B94F8535F09DA4A59B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115145   (825668) от 18.03.2017
+
+Ф. Конрад, Лу Тайли | Java для детей: учебник по программированию NetBeans 8 [8-е издание] (2015) [PDF, EPUB, AZW3] [En]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Java for Kids - это учебник по программированию, состоящий из более чем 400 страниц, на которых в простых и понятных терминах показано, как создавать приложение на Java. Наше учебное пособие по Java для детей уже более 10 лет успешно используется в школах по всему миру!
+
+С этой книги вы узнаете о проектировании, объектно-ориентированном программировании, консольных (   Читать дальше...   )Жанр: Программирование на JavaФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC30DF32A9EB82561DDEF5FCEEF97EBD4D44E714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006711   (825486) от 13.04.2016
+
+А. Шаров | Приключения Ёженьки, или Сказка о нарисованных человечках (1989) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A41EB6784E515E0BC643DAD06D6BB8E67779CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502892   (825264) от 16.10.2021
+
+Клэр Харкап | Хэтти Браун и фальшивые слоны. Книга 2 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды Хэтти Браун открыла холодильник, не ожидая найти в нём что-нибудь новенькое, и увидела… слона. Крохотного слона из другого мира. Это её друг Виктор, и он снова забрал девочку в свой причудливый мир. Но там Хэтти встретила ещё одного слона, который сказал, что это он – настоящий Виктор. А потом появились ещё и ещё слоны и каждый твердил, что он Виктор. Хэтти (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: М.А. СклярФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A0CC76108654446020BAF0E9E59174F53B1A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502889   (825257) от 16.10.2021
+
+Стивен Батлер | Отель «Проходите мимо». Секрет дедушки-призрака. Книга 3 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абрахам Банистер, основатель отеля «Проходите мимо», всегда был кумиром Фрэнки. Мальчик обожает своего прапрапрадедушку, ведь тот был большим любителем приключений. Но Фрэнки и представить не мог, что однажды призрак Абрахама решит заявиться в отель! Он готов раскрыть удивительные секреты, которые хранятся в этих стенах. Однако что-то Фрэнки настораживает в этом (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: О.П. БурмаковаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE7FC9A92F2776694A28B26716663F1F822120F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502876   (825254) от 16.10.2021
 
 Хендрик Ламбертус | Волшебные книги спешат на помощь! Сбежавшая книга. Книга 2 (2021) [FB2, EPUB, MOBI]
@@ -6,7 +138,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825254.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825152.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825138.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825080.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825041.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824999.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ Hinkler Books | 365 научных экспериментов (2010) [PDF]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824991.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824973.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824595.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824593.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824580.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824353.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824297.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823303.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823283.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823218.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823115.jpg" />
 </div>
 
 
@@ -453,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823063.jpg" />
 </div>
 
 
@@ -479,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823028.jpg" />
 </div>
 
 
@@ -505,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823026.jpg" />
 </div>
 
 
@@ -531,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823025.jpg" />
 </div>
 
 
@@ -545,140 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87D825EB73016828AF1D5DCA19F4D39687DD581D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007263   (823021) от 14.04.2016
-
-Ф.Ф. Лысенко, С.Ю. Кулабухов (ред.) | Математика. 9 класс. 40 тренировочных вариантов (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие включает: 40 авторских учебно-тренировочных тестов, составленных по проекту спецификации ОГЭ-2016 по математике, сборник, содержащий около 700 задач, которые иллюстрируют основные идеи контрольно-измерительных материалов по математике прошлых лет, краткий теоретический справочник.
- Книга будет полезна выпускникам 9-х классов, а также учителям, осуществляющим (   Читать дальше...   )Жанр: Образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA75BE92E06254C1EE77C68E0BB3217AC8067D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007322   (823016) от 14.04.2016
-
-Татьяна Трофименко | Английский без проблем (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задумывались вы, что неплохо бы знать английский? Вы несколько раз начинали, но бросали, так и не добившись практически никакого результата? Как правило, неудача в изучении языка связана с психологическими причинами. В этом самоучителе вы получите не просто информацию и задания, а состояние уверенного в своих силах человека, для которого нет преград и который смело (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BED12F63FA152973A3B46A74983383B1399901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007233   (823013) от 14.04.2016
-
-И.В. Ященко (ред.) | ОГЭ-2016. Математика, 9 класс. 20 тренировочных вариантов (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию выпускников 9 классов общеобразовательных организаций предлагается новое учебное пособие для подготовки к основному государственному экзамену (ОГЭ) по математике, которое содержит 20 типовых вариантов экзаменационных работ.
-Пособие предназначено для того, чтобы помочь учителю организовать подготовку девятиклассников к экзамену по математике. В него включены (   Читать дальше...   )Жанр: Образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1564EC9CDA5C30FADB404E4BD43C03BBD1BD21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654554   (822954) от 11.05.2013
-
-Крессида Коуэлл | Как приручить дракона [5 книг] (2004-2011) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга стоит особняком в серии приключений Иккинга. К тому же на этот раз перед нами мемуары не Иккинга, а его дракончика Беззубика.
-
-Беззубик был непослушным дракончиком Иккинга Кровожадного Карасика Третьего, известного Героя-Викинга, заклинателя драконов и виртуозного фехтовальщика на мечах. В этой книге Беззубик делится своими воспоминаниями о том времени, (   Читать дальше...   )Жанр: Повести-сказкиПеревод: Е. Токарева, Е. АльбоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73996D50215BB18350702F7290526A16E20624DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007330   (822831) от 14.04.2016
-
-Сергей Матвеев | Полный курс английского языка для лентяев (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите выучить английский язык, но слишком ленивы, чтобы приступить? Тогда это пособие – как раз то, что вам нужно. Лень знаниям не помеха! – авторитетно заявляет автор и предлагает в одной книге все, что может понадобиться для овладения базовыми знаниями и дальнейшего самостоятельного совершенствования английского. Оригинальная авторская методика, нескучная подача (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDAAC3DC5AA38602D4BA1B316C036034D3EBDE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

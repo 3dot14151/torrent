@@ -1,3 +1,29 @@
+###  Публикация: 1449273   (1029967) от 21.02.2021
+
+Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 5 (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс "Расширенные игровые механики в Unity" поможет пользователям перейти на новый уровень владения Unity. В этом курсе инструктор Алан Торн рассматривает множество мощных функций Unity 5, от инструментов отладки и контроля версий до двухмерных спрайтов и пользовательских интерфейсов. Узнайте, как быстро начать писать полезные скрипты и функции для создания (   Читать дальше...   )Производство: 3DMotiveЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54F2256B19E26AC2AD24C3A3BDACA9C5BD51DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622480   (1029962) от 29.03.2023
 
 Елена Барышкина | Коммерческое портфолио: Шаг вперед в Adobe Illustrator (2022) WEB-DL [RU]
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029962.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Joshua Kinney | Indie Game Development Pipeline Volume 3 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029944.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 4 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029935.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Andreas Glad | Houdini VFX for Games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029900.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 1 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029895.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Adam Swaab | Houdini Procedural Foundations (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029878.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029551.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Tim Cgi | Abstract Visuals - Houdini and Redshift (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029475.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029422.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Jeremy Huxley | Vegetation & Plants for Games (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029151.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028888.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028885.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028868.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 5 (2016) PCRec [Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028860.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ Lu Dongjun | Glass Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028855.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ Lu Dongjun | Stone Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028852.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ Lu Dongjun | Fish & Portrait Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028843.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028821.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Raf Grassetti | Female Anatomy Tutorial (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028778.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Pawel Grochola | Destruction in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028489.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Shawn Lipowski | VEX in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028476.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Spencer Lueders | Fluids FX Using Houdini(2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028467.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Anthony Eftekhari | Matte Painting (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028455.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Steven Knipping | Applied Houdini Particles I (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028329.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ Michael Hampton | Analytical Figure Drawing 2 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028321.jpg" />
 </div>
 
 
@@ -670,33 +696,6 @@ Michael Hampton | Analytical Figure Drawing 2 (2011) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E3AA337C90270F700C5BEE5C490DEF41C4AA25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451421   (1028307) от 02.03.2021
-
-Michael Hampton | Analytical Figure Drawing 1 (2011) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028307.jpg" />
-</div>
-
-
-###  Подробнее
-
-В процессе того, как студенты будут развивать набор базовых навыков, в этом курсе будет сделан акцент на понимании и применении этих основ к человеческой фигуре. В этом курсе также подчеркиваются процессуально ориентированный подход и анализ формы фигуры, ее конструкции и перспективы.
-Этот курс подразумевает глубокое изучение фигуры и анатомии, а также не упускает (   Читать дальше...   )Производство: CGMA 2D AcademyЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 09:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA078F916313DFB9379473EA9C273047E89EE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

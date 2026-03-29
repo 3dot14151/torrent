@@ -1,3 +1,87 @@
+###  Публикация: 1615392   (1037773) от 25.02.2023
+
+VA - Romantic Collection: Лирика (1999) [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Несчастный Случай-Генералы Песчаных Карьеров
+02 - Алсу-Зимний Сон
+03 - Моисеев Борис-Глухонемая Любовь
+04 - Пугачёва Алла-Не Отрекаются Любя(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB0C143EC757E40B39B97A2EF3C92EC56F5CFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444879   (1034181) от 03.02.2021
+
+Mia Boyka & Би-2 - Последний герой (2021) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034181.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Последний геройЖанр: PopПродолжительность: 00:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49063675623F1718690EB0FD4B03C94B41559416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619640   (1032786) от 17.03.2023
+
+Инфинити - Inti 2 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032786.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не плачь девчонка
+2. До свидания, дорогой
+3. Обманщик
+4. Приятного аппетита(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FADEF14DCB27ACC944EA67EF4DE581311A0A792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448586   (1030694) от 18.02.2021
 
 Стас Костюшкин - Лакшери (2021) [MP3|320 Kbps] <Pop>
@@ -6,7 +90,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030694.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Soprano Турецкого - 10 (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030454.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ Lida - Музло из гаражей (2021) [MP3|320 Kbps] <Pop, Hip-Hop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029718.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028158.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027669.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026919.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ VA - Я - голос ваш (2021) Трибьют Анны Ахматовой [M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026918.jpg" />
 </div>
 
 
@@ -209,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026763.jpg" />
 </div>
 
 
@@ -238,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026379.jpg" />
 </div>
 
 
@@ -267,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025608.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025606.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025318.jpg" />
 </div>
 
 
@@ -354,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025314.jpg" />
 </div>
 
 
@@ -383,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024628.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024588.jpg" />
 </div>
 
 
@@ -441,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023096.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021925.jpg" />
 </div>
 
 
@@ -499,7 +583,7 @@ SEVENROSE - 4 альбома (2020) [MP3|~245 Kbps (V0)] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021297.jpg" />
 </div>
 
 
@@ -528,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021186.jpg" />
 </div>
 
 
@@ -557,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021178.jpg" />
 </div>
 
 
@@ -586,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019629.jpg" />
 </div>
 
 
@@ -615,7 +699,7 @@ Chlovechig - Песенки о птичках (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019328.jpg" />
 </div>
 
 
@@ -644,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018431.jpg" />
 </div>
 
 
@@ -658,93 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46ADB37BE1EA3A360D764E014E307871C5A2B61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455042   (1017179) от 07.05.2021
-
-VA - Маска. Выпуск 1-12 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017179.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Заяц - Белая ночь
-2. Крокодил - Uptown Funk
-3. лама - Ave Maria
-4. Крокодил - Вдвоём(   Читать дальше...   )Жанр: PopПродолжительность: 05:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F259C4F10FBA049B6D848FDABBF91C7CC98395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468896   (1016925) от 09.05.2021
-
-Los Havtanos - Иди ко мне (2020) [MP3|320 Kbps] <Latino, Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Los Havtanos - музыкальная группа, совместный авторский проект Евгения Хавтана, лидера группы «Браво», московской певицы Яны Блиндер и профессиональных кубинских музыкантов — исполняет авторскую музыку в стиле латино.1. Интро
-2. Иди ко мне
-3. Города
-4. Чудесная страна(   Читать дальше...   )Жанр: Latino, PopПродолжительность: 00:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66FBAB7908F44743CEA812A3158CA871DD0DE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469768   (1016084) от 14.05.2021
-
-Елена Темникова - TEMNIKOVA 5 PARIS (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016084.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Влетим
-2. Paris
-3. Зачем
-4. По кольцу(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E35250C8EB269A0A18B15A53B6FE790CEDC0A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

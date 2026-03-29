@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377459.jpg" />
+  <img src="Z:/picture/008/save_picture_377459.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377150.jpg" />
+  <img src="Z:/picture/008/save_picture_377150.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Onur Cinar | Android Apps with Eclipse [2012] [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375345.jpg" />
+  <img src="Z:/picture/008/save_picture_375345.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373700.jpg" />
+  <img src="Z:/picture/008/save_picture_373700.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ UpSkill Learning | Программирование NodeMCU с использо�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373698.jpg" />
+  <img src="Z:/picture/008/save_picture_373698.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373690.jpg" />
+  <img src="Z:/picture/008/save_picture_373690.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371870.jpg" />
+  <img src="Z:/picture/008/save_picture_371870.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Peter Verhas / Питер Верхас | Java Projects / Проекты на Jav
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369989.jpg" />
+  <img src="Z:/picture/008/save_picture_369989.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368971.jpg" />
+  <img src="Z:/picture/008/save_picture_368971.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367677.jpg" />
+  <img src="Z:/picture/008/save_picture_367677.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367046.jpg" />
+  <img src="Z:/picture/008/save_picture_367046.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Lee Vaughan | Real-World Python: A Hacker's Guide to Solving Problems with Code 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366856.jpg" />
+  <img src="Z:/picture/008/save_picture_366856.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365651.jpg" />
+  <img src="Z:/picture/008/save_picture_365651.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Chris Smith | Programming F# 3.0, 2nd Edition [2012 October] [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365443.jpg" />
+  <img src="Z:/picture/008/save_picture_365443.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364976.jpg" />
+  <img src="Z:/picture/008/save_picture_364976.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363282.jpg" />
+  <img src="Z:/picture/008/save_picture_363282.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Shelley Powers / Шейли Пауерс | JavaScript Cookbook [2010] [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362724.jpg" />
+  <img src="Z:/picture/008/save_picture_362724.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362562.jpg" />
+  <img src="Z:/picture/008/save_picture_362562.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362559.jpg" />
+  <img src="Z:/picture/008/save_picture_362559.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359993.jpg" />
+  <img src="Z:/picture/008/save_picture_359993.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355636.jpg" />
+  <img src="Z:/picture/008/save_picture_355636.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355230.jpg" />
+  <img src="Z:/picture/008/save_picture_355230.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355056.jpg" />
+  <img src="Z:/picture/008/save_picture_355056.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ David Griffiths, Dawn Griffiths | Head First C | Первое знакомств
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354632.jpg" />
+  <img src="Z:/picture/008/save_picture_354632.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352855.jpg" />
+  <img src="Z:/picture/008/save_picture_352855.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351753.jpg" />
+  <img src="Z:/picture/008/save_picture_351753.jpg" />
 </div>
 
 

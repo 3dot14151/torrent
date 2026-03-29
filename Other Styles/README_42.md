@@ -6,7 +6,7 @@ Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоров�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800500.jpg" />
+  <img src="Z:/picture/008/save_picture_800500.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800498.jpg" />
+  <img src="Z:/picture/008/save_picture_800498.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800494.jpg" />
+  <img src="Z:/picture/008/save_picture_800494.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800483.jpg" />
+  <img src="Z:/picture/008/save_picture_800483.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоров�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800463.jpg" />
+  <img src="Z:/picture/008/save_picture_800463.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cliff Carpenter - 6 альбомов (1972-1983) LP-Rip [MP3|320 Kbps] <Pop, Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800439.jpg" />
+  <img src="Z:/picture/008/save_picture_800439.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800425.jpg" />
+  <img src="Z:/picture/008/save_picture_800425.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800424.jpg" />
+  <img src="Z:/picture/008/save_picture_800424.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800348.jpg" />
+  <img src="Z:/picture/008/save_picture_800348.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Systems In Blue - Symphony In Blue: The Very Best Of (2011) 2CD [MP3|320 Kbps] <
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800327.jpg" />
+  <img src="Z:/picture/008/save_picture_800327.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mark Mancina, VA - Moana / Моана (Оригинальный саундтре
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800324.jpg" />
+  <img src="Z:/picture/008/save_picture_800324.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800026.jpg" />
+  <img src="Z:/picture/008/save_picture_800026.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800022.jpg" />
+  <img src="Z:/picture/008/save_picture_800022.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799631.jpg" />
+  <img src="Z:/picture/008/save_picture_799631.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ G.E.N.E. [Полная дискография] [1991-2000] [MP3|160 CBR] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799510.jpg" />
+  <img src="Z:/picture/005/save_picture_799510.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799396.jpg" />
+  <img src="Z:/picture/008/save_picture_799396.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799394.jpg" />
+  <img src="Z:/picture/008/save_picture_799394.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799220.jpg" />
+  <img src="Z:/picture/008/save_picture_799220.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [FLAC|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799197.jpg" />
+  <img src="Z:/picture/008/save_picture_799197.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799196.jpg" />
+  <img src="Z:/picture/008/save_picture_799196.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799183.jpg" />
+  <img src="Z:/picture/008/save_picture_799183.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799118.jpg" />
+  <img src="Z:/picture/008/save_picture_799118.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798852.jpg" />
+  <img src="Z:/picture/008/save_picture_798852.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798844.jpg" />
+  <img src="Z:/picture/008/save_picture_798844.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean W
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798824.jpg" />
+  <img src="Z:/picture/008/save_picture_798824.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798814.jpg" />
+  <img src="Z:/picture/008/save_picture_798814.jpg" />
 </div>
 
 

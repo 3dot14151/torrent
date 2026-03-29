@@ -1,3 +1,109 @@
+###  Публикация: 1345852   (960279) от 15.02.2020
+
+macOS INSTALLERS (WIN/BDU & MAC/DU) - ACTUALLY BUILDS (LITE VERSION) [MULTI/RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчик: Apple Inc.Язык интерфейса: русский + английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4EEEA64E4C5783D57FCAF0793B417978AB9BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979360   (959603) от 26.01.2016
+
+Начаты работы по созданию чипа-имплантата, способного преобразовать сигналы всех нейронов мозга в двоичный код
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представители Управления перспективных исследовательских программ Пентагона DARPA объявили о начале новой программы, нацеленной на создание чипа-имплантата, способного стать высокоэффективным "мостом" между человеческим мозгом и цифровыми электронными устройствами. Технологии, разработанные в рамках программы Neural Engineering System Design (NESD), позволят (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979061   (959537) от 26.01.2016
+
+Найдено новое простое число с рекордным количеством цифр, которое составляет 22.3 миллиона знаков
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые-математики из университета Центрального Миссури (University of Central Missouri), возглавляемые профессором математики и информатики Кертисом Купером (Curtis Cooper), рассчитали очередное простое число, количество знаков в котором столь велико, что для его распечатки потребуется приблизительно 6 тысяч стандартных листов бумаги. Это новое число является 49-м известным числом ряда простых чисел Мерсенна и четвертым, рассчитанным учеными из этого университета.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979534   (959371) от 26.01.2016
+
+Wifislax 4.10.1 [Аудит безопасности, хакинг] [x86, х64] 1xDVD [ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз Wifislax – специализированного Slackware-based Live CD с комплектом инструментов для проверки безопасности компьютерных сетей. Главной особенностью Wifislax является интеграция в ядро Linux значительного количества неофициальных сетевых драйверов – тем самым «из коробки» обеспечивается поддержка многих проводных и беспроводных сетевых карт.
+
+За время разработки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22648C5E7C8F6F2D7292E39B366F4FB8B3A9565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979229   (959370) от 26.01.2016
 
 Макбет / Macbeth (2015) HDRip [H.264] [Line]
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959370.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Topaz Video Enhance AI 1.0.2 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959074.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959072.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ F-Secure Freedome VPN 2.32.6293 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958954.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ WPI БлагоТворитель
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958766.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ NVIDIA Forceware GeForce Release 263.14 WHQL (Драйвер для видеок
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_958654.jpg" />
+  <img src="Z:/picture/009/save_picture_958654.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ Uninstall Tool 2.9.7 build 5118 RePack by Captain Evidence + Portable [Eng+Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958632.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958438.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ NVIDIA GeForce Desktop 361.75 WHQL + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958120.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ ESET Endpoint Security | Antivirus 6.3.2016.1 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958076.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ LEGO Marvel’s Avengers (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958067.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ XMind 7 Pro 3.6.1.201512240104 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958064.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957758.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ SAMSUNG PC Share Manager 4.2 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957164.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956916.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ Adobe Premiere Pro CC 2015.2 9.2.0 (41) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956802.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956687.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ Adobe Bridge 2020 10.0.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956613.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956592.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ Tomb Raider [XBOX360] [PAL/NTSC-U] [En] [LT+1.9] (XGD2/15574) (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956326.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ Dead Space 3 Special Limited Edition [Ru/En] (Lossless RePack/1.0) 2013 l R.G. C
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956324.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ Smokie (Ансамбль "Смоуки") (1977) [FLAC 2.0|192/24|traсks|Vinyl-R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955599.jpg" />
 </div>
 
 
@@ -576,110 +682,6 @@ Smokie (Ансамбль "Смоуки") (1977) [FLAC 2.0|192/24|traсks|Vinyl-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C250154FE52FB99AFE657CEC5BA763C39F564A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980378   (955593) от 29.01.2016
-
-Ad-Aware Free Antivirus+ 11.10.767.8917 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ad-Aware Free Antivirus+ - бесплатный антивирус, использующий технологии Bitdefender, легендарный антишпион Ad-Aware и веб-защиту для обнаружения и блокировки всех видов вредоносных программ и онлайн-угроз. Бесплатный антивирус в реальном времени следит за активными процессами, изменением реестра, сетевой активностью, загрузками и посещаемыми веб-сайтами.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EA703756F4A73950B3883BC816E305B94F30E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980542   (955464) от 29.01.2016
-
-XSplit Broadcaster 2.7.1512.2130 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955464.jpg" />
-</div>
-
-
-###  Подробнее
-
-XSplit Broadcaster - Программа для организации онлайн трансляций. Используется в основном для захвата игр на экране, перекодировку и мгновенную отправку в интернет вещательные сервисы, такие как justin.tv (twitch.tv), own3d.tv, им подобные, а также запись прямо к себе на компьютер.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BC1EF18E79F25955632B11533B4AE47E58D788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980191   (955457) от 29.01.2016
-
-Resident Evil Zero HD: Remaster / Resident Evil 0 HD: Remaster (2016) [PS3] [JAP] 4.76 [Repack] [Ru] | Russian Studio Video 7
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil Zero HD Remaster является переизданием вышедшей ранее на GameCube и Wii игры Resident Evil Zero. Сюжет рассказывает о событиях, произошедших еще до Resident Evil, а главными героями выступают Ребекка Чемберс и Билли Коэн. Игровой процесс позволяет в любое время сменять персонажа, находящегося под вашим непосредственным контролем.Тип издания: RepackРазработчик: CAPCOM CO., LTD.Жанр: ХоррорЯзык озвучки: Английский, ЯпонскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78912ABC074F0891318542D3836EC2EE1E2CA73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980059   (955451) от 29.01.2016
-
-Грешник (2014) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Владу было 5 лет, его мать убили, и в ее смерти всю последующие годы он винит отца. На 20-ую годовщину трагедии юноша решает расставить точки над «i» и собрать всех родственников. В процессе поиска и встреч с ними Влад выясняет факты, которые меняют все…Производство: РоссияЖанр: ДрамаРежиссер: Дмитрий КонстантиновАктеры: Андрей Смоляков, Евгений Антропов, Любовь Новикова (II), Дмитрий Куличков, Дарья Урсуляк, Дмитрий Мухамадеев, Мария Болонкина, Владимир Капустин, Владимир Виноградов, Иван Дремач, Александр ГородискийПеревод: Не требуется (язык русский)Субтитры: ОтсутствуютПродолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28532F030CF32A4E62FD517731AE474BD41FFFC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

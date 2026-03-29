@@ -1,3 +1,61 @@
+###  Публикация: 1200177   (796952) от 19.01.2018
+
+VA - Best of Tigerskin \ Dub Taylor (2017) [MP3|192-320 Kbps] <Deep House, Tech House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerskin - Carlos Thoughts [7:39]
+02. Tigerskin - Voodoo [7:38]
+03. Tigerskin - The Nite People [4:58]
+04. Ronald Christoph feat. Idvet - Say You Want Me Now (Tigerskin remix) [7:57](   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 05:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DAE3ED01A9300558ED7368B1C6323F668497E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200155   (796901) от 19.01.2018
+
+VA - Лучшие клубные новинки Vol.9 (2018) [MP3|320 Kbps] <House, Electro House, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase, Stash & Spider - Inspiration (Breaks Mix) 6:54
+02. Abe Kor & SIIK - Mor (Original Mix) 3:52
+03. Adaptiv & Max Fail - Right Here 2:43
+04. Aelyn - Water & Fire (Original Mix) 4:06(   Читать дальше...   )Жанр: House, Electro House, Vocal TranceПродолжительность: 21:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985D7B112E93F98F5F06E0A81BBD973051A17319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011592   (796447) от 28.04.2016
 
 VA - Trance Desire Vol. 67 (2016) [MP3|320 кб/с] <Trance>
@@ -6,7 +64,7 @@ VA - Trance Desire Vol. 67 (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796447.jpg" />
+  <img src="Z:/picture/008/save_picture_796447.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796443.jpg" />
+  <img src="Z:/picture/008/save_picture_796443.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796442.jpg" />
+  <img src="Z:/picture/008/save_picture_796442.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Fun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796440.jpg" />
+  <img src="Z:/picture/008/save_picture_796440.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796434.jpg" />
+  <img src="Z:/picture/008/save_picture_796434.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Official UK Top 40 Singles Chart 19.01.2018 [MP3|320 Kbps] <Electropop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796425.jpg" />
+  <img src="Z:/picture/008/save_picture_796425.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Record Super Chart #520 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796384.jpg" />
+  <img src="Z:/picture/008/save_picture_796384.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Hardstyle Dance: Fitness Energetic Sounds (2021) [MP3|320 Kbps] <Hard Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796245.jpg" />
+  <img src="Z:/picture/008/save_picture_796245.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Techno Beats: Electronic Mixtape (2021) [MP3|320 Kbps] <Techno, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796237.jpg" />
+  <img src="Z:/picture/008/save_picture_796237.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - The Mushroom Substances (2021) [MP3|320 Kbps] <Psychedelic, GOA Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796227.jpg" />
+  <img src="Z:/picture/008/save_picture_796227.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Beatport Electro House: Sound Pack #363 (2021) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796129.jpg" />
+  <img src="Z:/picture/008/save_picture_796129.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Psychedelic Trance: Sound Pack #92 (2020) [MP3|320 Kbps] <Psy, Goa
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796058.jpg" />
+  <img src="Z:/picture/008/save_picture_796058.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Synthpop Ultimix (2020) [MP3|320 Kbps] <Synthpop, Electropop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795976.jpg" />
+  <img src="Z:/picture/008/save_picture_795976.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Beatport Club House: Electro Sound Pack #93 (2020) [MP3|320 Kbps] <Club, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795880.jpg" />
+  <img src="Z:/picture/008/save_picture_795880.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Empire Records - Lounge 10 (2018) [MP3|320 Kbps] <Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795713.jpg" />
+  <img src="Z:/picture/008/save_picture_795713.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Empire Records: Chill Out 15 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795703.jpg" />
+  <img src="Z:/picture/008/save_picture_795703.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Future Trance Energy 004 April TOP (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795688.jpg" />
+  <img src="Z:/picture/008/save_picture_795688.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Modern Lounge Lyric (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795683.jpg" />
+  <img src="Z:/picture/008/save_picture_795683.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Neon Adrenaline Trance (2016) [MP3|320 кб/с] <Trance, Progressive Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795680.jpg" />
+  <img src="Z:/picture/008/save_picture_795680.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Massive Groove EDM Kits (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795635.jpg" />
+  <img src="Z:/picture/008/save_picture_795635.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Universe Trance Uplifting Mix April (2016) [MP3|320 кб/с] <Trance, Uplif
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795629.jpg" />
+  <img src="Z:/picture/008/save_picture_795629.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Daydreamer The Trance Party (2016) [MP3|320 кб/с] <Trance, Melodic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795627.jpg" />
+  <img src="Z:/picture/008/save_picture_795627.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Dancify Dance & Club Music (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795626.jpg" />
+  <img src="Z:/picture/008/save_picture_795626.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Ibiza 2015. Massive Energy Flux. Vol.2 (2015) [MP3|249-320 кб/с] <Techno
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795625.jpg" />
+  <img src="Z:/picture/008/save_picture_795625.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Ibiza 2015. Massive Energy Flux. Vol.2 (2015) [MP3|249-320 кб/с] <Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A8B5DF1EF3038ABB52973F8AE49DF11B7E84E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200532   (795594) от 21.01.2018
-
-VA - Music For Your Car Vol.6 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kylie Minogue  -  Dancing  2:59
-02.  Tujamo & Sidney Samson  -  Riverside (Extended Mix)  3:54
-03.  Rudimental feat Jess Glynne vs. Macklemore & Dan Caplen  -  These Days  3:31
-04.  Tritonal & SJ  -  Calabasas  3:44(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87419A93528808F9682E8FDE65F40724F7C1EC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011764   (795575) от 29.04.2016
-
-VA - Ibiza 2015. Massive Energy Flux. Vol.1 (2015) [MP3|256-320 кб/с] <Techno-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cari Lekebusch - Forsta Uppdraget (intro)  00:43
-02. Tilliander - Cold As Ice (enter version)  03:25
-03. Catz N Dogz - Keep On (feat. Green Velvet)  03:10
-04. Mr. V - Jus Dance (Dario D’attis remix)  07:51(   Читать дальше...   )Жанр: Techno-House, Techno, HouseПродолжительность: 05:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25A151B94D3C40F99E74B17528FB345CE636C0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

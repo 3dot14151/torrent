@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1862153   (1062962) от 
+
+SystemRescue v13.00 [x64]
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062962.jpg" />
+</div>
+
+
+###  Подробнее
+
+SystemRescue — это набор инструментов для восстановления системы Linux, доступный в виде загрузочного носителя для администрирования или восстановления вашей системы и данных после сбоя. Он призван обеспечить простой способ выполнения административных задач на вашем компьютере, таких как создание и редактирование разделов жесткого диска. Он включает в себя множество (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5876369CBEE6B42782862DBD290779C914D5AC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860426   (1061977) от 
+
+Parted Magic 2026.03.20 [x64]
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parted Magic - это комплексное решение для управления жесткими дисками. PartedMagic предлагает все необходимые инструменты для решения этой задачи. С помощью редактора разделов вы можете изменять размер, копировать и перемещать разделы. Вы можете увеличивать или уменьшать размер диска C:. Освобождать место для новых операционных систем. Восстанавливать данные с потерянных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2611602ADEE2A1C17CBF55FFCA9C8911D9413EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848805   (1053458) от 21.01.2026
 
 openmediavault 8.0.4 [amd64]
@@ -7,7 +59,7 @@ openmediavault 8.0.4 [amd64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053458.jpg" />
+  <img src="Z:/picture/005/save_picture_1053458.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ TrueNAS Community 25.10.1 - Goldeye [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053293.jpg" />
+  <img src="Z:/picture/005/save_picture_1053293.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Cisco Modelling Lab 2.9.1 [x86_64] 1xDVD+.OVA
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049113.jpg" />
+  <img src="Z:/picture/008/save_picture_1049113.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Mikrotik Router OS 7.20.6 [x86] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049082.jpg" />
+  <img src="Z:/picture/008/save_picture_1049082.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ unRAID OS Pro 6.11.5 [x64] ZIP образ для USB Flash Driver
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043303.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036928.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ SystemRescueCD 8.0.2 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020552.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ FreeNAS 11.3-U5 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018149.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ XigmaNAS 12.2.0.4.8311 [x64] 1xCD+4xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017634.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ Parted Magic 2019.12.24 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003128.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ XigmaNAS-x64-LiveCD-12.1.0.4.7091 1xCD 12.1.0.4.7091 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992990.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ Parted Magic 2016.01.06 [i686, amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970299.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963943.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Parted Magic 2020.02.23 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947646.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944870.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ SystemRescueCD 6.1.0 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939177.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Parted Magic 2016-03-02 [x86, x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889086.jpg" />
+  <img src="Z:/picture/005/save_picture_889086.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Parted Magic 2017.09.05 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805906.jpg" />
+  <img src="Z:/picture/008/save_picture_805906.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ Parted Magic 2018.01.08 [i686_amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794532.jpg" />
+  <img src="Z:/picture/008/save_picture_794532.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Parted Magic 2016-04-26 [x86, x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793264.jpg" />
+  <img src="Z:/picture/008/save_picture_793264.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Parted Magic 2019.01.03 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790875.jpg" />
+  <img src="Z:/picture/008/save_picture_790875.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ NAS4Free build 11.1.0.4.5127 amd64 1xCD 3xIMG BUILD 11.1.0.4.5127 [amd64 (64-bit
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778904.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ SystemRescueCD 6.1.6 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764364.jpg" />
+  <img src="Z:/picture/008/save_picture_764364.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764354.jpg" />
+  <img src="Z:/picture/008/save_picture_764354.jpg" />
 </div>
 
 
@@ -630,59 +682,6 @@ OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A314CEE7A5E73E3723B3D7F4C8C71855E835C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394300   (764277) от 04.07.2020
-
-OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Openmediavault это сетевое хранилище следующего поколения (NAS), решение основанное на Debian Linux. Он содержит службы, такие как SSH, (S) FTP, SMB / CIFS, Rsync, BitTorrent клиент и многое другое. Благодаря модульной конструкции он может быть расширен с помощью плагинов.
-OpenMediaVault в первую очередь предназначен для использования в домашних условиях или небольших (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9B4520BBBD44BEA7F7EC0633547FD6E155D239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394413   (764212) от 04.07.2020
-
-pfSense Community Edition 2.4.5p1 [amd64] 1xCD, 3xIMG
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764212.jpg" />
-</div>
-
-
-###  Подробнее
-
-pfSense - компактный дистрибутив для создания межсетевых экранов и сетевых шлюзов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7EBC1FDD9236F09EA2BA94D052C9D0BDF068D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

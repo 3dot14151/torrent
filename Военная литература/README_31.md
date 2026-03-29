@@ -1,3 +1,29 @@
+###  Публикация: 1051933   (530681) от 12.09.2016
+
+Алексей Исаев и др. | Танковый удар [Советские танки в боях, 1942–1943] (2007) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник посвящен действиям советских танковых войск на переломном этапе Великой Отечественной войны — с осени 1942-го по лето 1943 года, от наступления под Сталинградом до Курской битвы. Именно тогда наши танковые и механизированные корпуса впервые продемонстрировали искусство глубокой операции, умение не только прорывать оборону противника и громить его тылы, (   Читать дальше...   )Жанр: История, Военная техника и вооружениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45055FDE7D4FAC0B16DE3774C6554213E6C5E74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927399   (528634) от 13.08.2015
 
 Антон Первушин | Дрезденская бойня. Возмездие или преступление? (2015) [FB2]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528634.jpg" />
+  <img src="Z:/picture/008/save_picture_528634.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528582.jpg" />
+  <img src="Z:/picture/008/save_picture_528582.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528403.jpg" />
+  <img src="Z:/picture/008/save_picture_528403.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527596.jpg" />
+  <img src="Z:/picture/008/save_picture_527596.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527171.jpg" />
+  <img src="Z:/picture/008/save_picture_527171.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526952.jpg" />
+  <img src="Z:/picture/008/save_picture_526952.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526951.jpg" />
+  <img src="Z:/picture/008/save_picture_526951.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526622.jpg" />
+  <img src="Z:/picture/008/save_picture_526622.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526369.jpg" />
+  <img src="Z:/picture/008/save_picture_526369.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526344.jpg" />
+  <img src="Z:/picture/008/save_picture_526344.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526340.jpg" />
+  <img src="Z:/picture/008/save_picture_526340.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525997.jpg" />
+  <img src="Z:/picture/008/save_picture_525997.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525893.jpg" />
+  <img src="Z:/picture/008/save_picture_525893.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524709.jpg" />
+  <img src="Z:/picture/008/save_picture_524709.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524663.jpg" />
+  <img src="Z:/picture/008/save_picture_524663.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524655.jpg" />
+  <img src="Z:/picture/008/save_picture_524655.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524649.jpg" />
+  <img src="Z:/picture/008/save_picture_524649.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524647.jpg" />
+  <img src="Z:/picture/008/save_picture_524647.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524646.jpg" />
+  <img src="Z:/picture/008/save_picture_524646.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524604.jpg" />
+  <img src="Z:/picture/008/save_picture_524604.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524404.jpg" />
+  <img src="Z:/picture/008/save_picture_524404.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523937.jpg" />
+  <img src="Z:/picture/008/save_picture_523937.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523347.jpg" />
+  <img src="Z:/picture/008/save_picture_523347.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522493.jpg" />
+  <img src="Z:/picture/008/save_picture_522493.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522179.jpg" />
+  <img src="Z:/picture/008/save_picture_522179.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2553FB93B7BC4A9811EC688315AC1E3C231C72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928652   (521700) от 17.08.2015
-
-Андрей Харук | "Кондоры" Люфтваффе. Дальний бомбардировщик и разведчик Fw 200 "Condor" (2015) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521700.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Бич Атлантики" ("Scourge of the Atlantic") - так окрестил "Фокке-Вульф" Fw 200 "Condor" Уинстон Черчилль.  Созданный как пассажирский авиалайнер и ставший не только личным самолетом Гитлера и Геринга, но и "визитной карточкой" Люфтганзы на международных авиалиниях, с началом Второй Мировой войны "Кондор" (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4093B3E0E722EA094A2FFDFC2EC3C2B89D294700
 ```
 
 https://mybot314.ru/tekegram_catalog/

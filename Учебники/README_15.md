@@ -1,3 +1,56 @@
+###  Публикация: 1363587   (942396) от 28.02.2020
+
+Ю.А. Леньков, А.С. Барукин | Проектирование электрических станций (2017) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942396.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены вопросы проектирования электрической части тепловых электростанций, вопросы выбора структурных схем, методика технико-экономических расчетов с учетом надежности, выбор коммутационных аппаратов и проводников, выбор схем распределительных устройств и схем собственных нужд.
+Учебное пособие предназначено для студентов электроэнергетических (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57DD9040B8E47B5264C8947929CE75BCDB668B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363494   (942393) от 28.02.2020
+
+В.С. Савоськин | Электроснабжение. Электроснабжение промышленных предприятий (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942393.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии приведены основные исходные данные для создания системы электроснабжения городов, промышленных предприятий и объектов сельского хозяйства: электрические нагрузки, типовые схемы систем, выбор трансформаторов и коммутационной аппаратуры высокого и низкого напряжений, сечений проводов и жил кабелей, местоположений питающих подстанций, вопросы компенсации реактивной (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549FDF149152F47D16C6D0CF338D42F7701A7CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983762   (942115) от 07.02.2016
 
 Я. Туровский | Техническая электродинамика (1974) [DJVU]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942115.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941008.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939273.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938844.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938735.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938603.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937807.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937765.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937230.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937229.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937144.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936262.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935386.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933756.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933752.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933725.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933626.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933549.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933407.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933321.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933253.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932059.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931634.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_931273.jpg" />
+  <img src="Z:/picture/009/save_picture_931273.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D32C8E3E9E03402AE5FD55BFB9E82031DF8C94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986091   (930739) от 14.02.2016
-
-П.П. Мельников | Компьютерные технологии в экономике (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются компьютерные технологии вычислений в среде табличного процессора MS Excel, применяемые для решения систем эконометрических и нелинейных уравнений, исследования функций, решения задач условной оптимизации, дифференциального и интегрального исчисления, статистического анализа, анализа табличных данных, финансовых расчетов. Также рассматриваются технологии (   Читать дальше...   )Жанр: ЭкономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D760E3BF7E9BA9B5CEF48553E39A40D719A41383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986046   (930706) от 14.02.2016
-
-Н.Я. Яхьяев, А.В. Кораблин | Основы теории надежности и диагностика (2009) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы теории надежности и диагностики применительно к наиболее емкой составляющей системы человек — автомобиль — дорога — среда. Представлены основные сведения о качестве и надежности автомобиля как технической системы. Даны основные термины и определения, приведены показатели надежности сложных и расчлененных систем и методы их расчета. Уделено внимание (   Читать дальше...   )Жанр: ТранспортФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADB8932D1427046B7F10F3F243D5E53325E45B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

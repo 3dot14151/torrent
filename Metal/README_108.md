@@ -6,7 +6,7 @@ Guttural Engorgement - The Slow Decay Of Infested Flesh [Digi-Pack Limited Editi
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131018.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ General Surgery - A Collection of Depravation (2012) [MP3|320 кб/с]<Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131011.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Battle Beast - Circus Of Doom (2022) [MP3|320 Kbps] <Melodic Heavy Metal, Female
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130466.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Hideous Divinity - Obeisance Rising (2012) [MP3|320 кб/с]<Brutal Technical De
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129143.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Therion - Leviathan III (2023) [MP3|320 Kbps] <Symphonic Rock, Operatic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127618.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Dusk - Epoka (2018) [MP3|320 Kbps] <Industrial Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127059.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Dusk - Dissolve into Ash (2023) [MP3|320 Kbps] <Doom Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127055.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) [MP3|320 Kbps] <Neue deutsch
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125009.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Todd Grubbs - Inside Your Brain (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124783.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Crucifer - Hell Is for the Hopeful (2024) [MP3|320 Kbps] <Thrash Metal, Hard Roc
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123644.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Andrew W. Boss - Strength (2024) [MP3|320 Kbps] <Rap-Metal, Alt.Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123620.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ These Days & Those Days - Eminent Pleasurment – Fucked Into Sextasy (2024) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122931.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Elegý - Graveflowers (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122751.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Cartesian Ghost - Lux Arcana (2023) [MP3|320 Kbps] <Heavy Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121702.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Royal Hunt - 31 Releases (1992-2022) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121365.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Emerald Table - Book of illusion's fragments (2023) [MP3|320 Kbps] <Gothic, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120952.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Byron - Chapter II: The Lotus Covenant (2024) [MP3|320 Kbps] <classic melodic me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120800.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [MP3|320 Kbps] <Nu-Metal, Industr
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120785.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Any Given Day - Limitless (2024) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120766.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Second Shooter - Fury Made Flesh (2024) [MP3|320 Kbps] <Groove Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120670.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Indignatio - Principium (2023) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120251.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Nekonomicon - Choose Your Fighter! (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119440.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Black Tears of the Fallen - Mirroring (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119335.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Oromet - Oromet (2023) [MP3|320 Kbps] <Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119314.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Shaytan - Chapter One (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118922.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Sacrify Souls - The New Begin (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118912.jpg" />
 </div>
 
 

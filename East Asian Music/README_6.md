@@ -6,7 +6,7 @@ UVERworld - 7 albums + 16 singles (2005-2011) [FLAC|Lossless]<JRock, Pop Rock>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621198.jpg" />
+  <img src="Z:/picture/005/save_picture_621198.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Iron Attack! - Space Galaxy (2016) /Doujin/ [FLAC|Lossless|tracks + .cue] <Progr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618522.jpg" />
+  <img src="Z:/picture/008/save_picture_618522.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ BugLug - Shin Jinsei (2017) [MP3|320 Kbps] <J-Rock, Visual Kei>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617193.jpg" />
+  <img src="Z:/picture/008/save_picture_617193.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Konomi Suzuki - Дискография, 4 альбома + 13 синглов (20
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617182.jpg" />
+  <img src="Z:/picture/008/save_picture_617182.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Hou Chang Qing - Xiao Ao Cang Hai (2006) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617116.jpg" />
+  <img src="Z:/picture/008/save_picture_617116.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Zen Spa (2011) [MP3|320 кб/с]<New age, Meditative, Lounge>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616994.jpg" />
+  <img src="Z:/picture/008/save_picture_616994.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ma Chang-sheng - Mi Jing Tian Yin (2015) [MP3|320 кб/с]<New Age>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615726.jpg" />
+  <img src="Z:/picture/008/save_picture_615726.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ supercell - 4 альбома + 12 синглов (2008-2015) [FLAC|tracks] <J-Po
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613924.jpg" />
+  <img src="Z:/picture/008/save_picture_613924.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ eufonius — kalyteryz (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612298.jpg" />
+  <img src="Z:/picture/008/save_picture_612298.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ LiSA — LANDSPACE (2013) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612292.jpg" />
+  <img src="Z:/picture/008/save_picture_612292.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Hanazawa Kana — Blue Avenue (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612219.jpg" />
+  <img src="Z:/picture/008/save_picture_612219.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Hanazawa Kana — 25 (2014) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612218.jpg" />
+  <img src="Z:/picture/008/save_picture_612218.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ LiSA — Launcher (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612216.jpg" />
+  <img src="Z:/picture/008/save_picture_612216.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Dexcore - -18- (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore, J-Roc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611402.jpg" />
+  <img src="Z:/picture/008/save_picture_611402.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ JORMUNGAND - 3 альбома (2014-2017) KanColle Vocal /Doujin/ [FLAC|Lossless
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609187.jpg" />
+  <img src="Z:/picture/008/save_picture_609187.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ ALiCE'S EMOTiON - 49 альбомов (2005-2017) Touhou Vocal, Vocaloid /Doujin
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608975.jpg" />
+  <img src="Z:/picture/008/save_picture_608975.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ A-One | A1 - 36 альбомов (2008-2017) Touhou Vocal, KanColle /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608970.jpg" />
+  <img src="Z:/picture/008/save_picture_608970.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604429.jpg" />
+  <img src="Z:/picture/008/save_picture_604429.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604288.jpg" />
+  <img src="Z:/picture/008/save_picture_604288.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternati
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604213.jpg" />
+  <img src="Z:/picture/008/save_picture_604213.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ The GazettE  - Дискография (9 альбомов, 6 мини-альбо
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604100.jpg" />
+  <img src="Z:/picture/008/save_picture_604100.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Logic System (Hideki Matsutake) - Orient Express (1982) CD, Album, 1983, Express
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602233.jpg" />
+  <img src="Z:/picture/008/save_picture_602233.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Flavor of Classical Chinese Music - Passion Of Guzheng (2009) [FLAC|Lossless]<Et
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_598537.jpg" />
+  <img src="Z:/picture/005/save_picture_598537.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Nocturnal Bloodlust - Argos (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Dea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596271.jpg" />
+  <img src="Z:/picture/008/save_picture_596271.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ The Hi-Fi Of Chinese - Coffee Parlor 1 (2CD) (2011) [FLAC|Lossless]<Pop-Folk>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583865.jpg" />
+  <img src="Z:/picture/008/save_picture_583865.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Mitch Murder - Selection 5 (2018) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583137.jpg" />
+  <img src="Z:/picture/008/save_picture_583137.jpg" />
 </div>
 
 

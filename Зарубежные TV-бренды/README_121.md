@@ -1,3 +1,107 @@
+###  Публикация: 1306670   (63636) от 08.03.2024
+
+Animal Planet: Живой или вымерший. Флоридский черный волк / Extinct or Alive (2018) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что если вымершие животные на самом деле не вымерли? Биолог Форрест Галланте путешествует по земному шару и, вооружившись новейшими технологиями, ищет виды, которые мир уже прекратил искать. Поиски доказательств и свидетельств, благодаря которым, возможно, удастся выследить и вернуть к жизни животных, ошибочно считающихся исчезнувшими, приводят энтузиаста Форреста (   Читать дальше...   )Производство: США, Hot Snakes Media, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Форрест ГалантеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A6358BBE9EA3657CB77B68C0C64519C7E72B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285254   (63623) от 08.03.2024
+
+Animal Planet: Дом для рептилий. Агамы Дикого Запада / Scaled (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA182805136EF494AF1435A853934855843E27DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255827   (63621) от 08.03.2024
+
+Animal Planet. Природа Ближнего Востока / Wildest Middle East (2015) HDTV [H.264/1080i-LQ] (сезон 1, эпизоды 5 из 5)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63621.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Ближнем Востоке исключительные природные условия и переменчивый климат стали причиной появления совершенно уникальных типов животных. На первый взгляд животный мир Ближнего Востока может показаться немногочисленным – однако это обманчивое впечатление можно легко развеять, если внимательнее присмотреться к его обитателям. От жарких пустынь до заснеженных горных (   Читать дальше...   )Производство: США, Великобритания, Канада, Off The Fence, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс ХеммингПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 5 x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD876F564DD4185464A3D736476E5FE5479D0708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279820   (63614) от 08.03.2024
+
+Animal Planet: Дом для рептилий. Дино-террариум / Scaled (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5870C21B7E82B0E1119B30E391268B484AF17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232903   (63608) от 08.03.2024
 
 Animal Planet. Собаковедение: Новые истории / DOGS 101 New Tricks (2016) SATRip (Серии 12 из 12)
@@ -6,7 +110,7 @@ Animal Planet. Собаковедение: Новые истории / DOGS 101 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63608.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ BBC Horizon. Какой длины верёвка? / How long is a piece of stri
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63564.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63556.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Animal Planet: То, что не видно вооруженным глазом 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63552.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ BBC horizon. Как видеоигры влияют на нашу жизнь? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63544.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ BBC. Horizon. Как перестать тревожиться и стать с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63541.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63534.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ BBC. Вена - столица империи / Vienna: Empire, Dynasty and Drea
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63470.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ BBC. Экспедиция в Бирму / Expedition Burma (2011) BDRemux [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63452.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ BBC. Эттенборо и морской дракон / Attenborough and the Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63449.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ BBC: 80 Лучших садов мира / Around the World in 80 Gardens (2008)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63436.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ BBC: 80 Чудес света (Вокруг света за 80 сокровищ�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63364.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ BBC. Шедевры мировой архитектуры / Adventures in Archit
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63337.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ BBC: Великий рифт. Дикое сердце Африки / Great Rift:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63225.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63137.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ BBC: Атлантида была здесь (Свидетельства Атла
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63105.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ BBC: Вивисекция. Как устроены насекомые / Insect D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63051.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ BBC: Horizon. В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62995.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ BBC. Секс и чувственность: искусство модерн / S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62941.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62933.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ BBC: Всемирная история живописи / Sister Wendy's Story o
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62922.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ NG. Последствия: Нулевое население / Aftermath: Popul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62919.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ NG. Последствия: Нулевое население / Aftermath: Popul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DADA7411EE71E78AD2D667124835B48D4BDE7AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393082   (62891) от 15.03.2024
-
-BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and back (2019) DVBRip [H.264] (фильмы 1-2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62891.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 дней, 3 часа, 18 минут и 35 секунд. Это общая продолжительность космической миссии «Аполлон-11». Миссии, которая позволила человечеству ступить на поверхность Луны и тем самым полностью изменить взгляд на наше место во Вселенной. Но каково было на самом деле тем трём мужчинам в высокотехнологичной «консервной банке»? Что они чувствовали и обсуждали на протяжении (   Читать дальше...   )Производство: США, British Broadcasting Corporation (BBC)Жанр: Документальный, научно-популярный, космосРежиссер: Энтони ФилипсонУчастники: Филипп Ральф, Патрик Кеннеди, Джек Тарлтон, Руфус РайтПеревод: Одноголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BFBE7F163C1FBBDF51C4B451BC86BB0C53676C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419338   (62816) от 16.03.2024
-
-BBC: Доминик Монаган и дикие существа / Wild Things with Dominic Monaghan (2012) SATRip (Сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед ними трепещут самые мужественные сердца. Они неустрашимы и безжалостны. Против них бессильно оружие. Их боятся люди и звери, и только отважный Доминик Монаган решился бросить им вызов и встретиться с ними лицом к лицу. В программе «Доминик Монаган и самые дикие существа» популярный киноактер отправляется в путешествие, чтобы рассказать о самых крупных, опасных (   Читать дальше...   )Производство: Великобритания, Канада, BBC America, A Cream and Wildfire TV ProductionsЖанр: Документальный, природа, флора, фаунаРежиссер: Брэд Бру, Пол КилбэкУчастники: Доминик МонаганПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 8 х ~ 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EF442ED815B3366B8F82B323FEF98DDA9243D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130536   (62809) от 16.03.2024
-
-BBC: Гении современного мира / Genius Of The Modern World (2016) HDTVRip [H.264/720p-LQ] (Серии 1-3 из 3) (Обновляемая)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62809.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 век - эпоха бурных потрясений, время перемен в промышленности, науке и политике. Но самое главное - в мировоззрении. Это была пора смелых и рискованных идей, ознаменовавших возникновение нового мира. У его истоков стояли великие умы: Карл Маркс, Фридрих Ницше и Зигмунд Фрейд. Они жили в эпоху, когда рушились старые реалии, низвергались существующие режимы, а наука (   Читать дальше...   )Производство: Великобритания, ВВС Open University Partnership, Religion & Ethics Production SalfordЖанр: Документальный, история, исследованияРежиссер: Роб ГоулингУчастники: Историк Бетани ХьюзПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: английскиеПродолжительность: ~00:58:38 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CC6C244C27DAB600A79EE13756D86FB4FAB662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256107   (62789) от 16.03.2024
-
-BBC: Гении древнего мира / Genius Ancient World (2015) WEB-DL [H.264/1080p-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времен зарождения цивилизации человечество подчинялось силам природы и прихотям богов. Но две с половиной тысячи лет назад человечество пережило глубокую трансформацию. Нам открылись новые возможности, когда разум взял верх над религией и суевериями. По всему миру произошли сдвиги, возникло амбициозное видение безграничных возможностей человека. Это движение возглавили (   Читать дальше...   )Производство: Великобритания, BBC Open University Production Centre, BBC Religion & Ethics Production SalfordЖанр: Документальный, история, исследованияРежиссер: Роб КоулингУчастники: Беттани ХьюзПеревод: Одноголосый закадровый, профессиональный (SDI-Media)Субтитры: АнглийскиеПродолжительность: 3 x ~00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3149C3ABBFD4A7BFEDED188FFBADCC2B418BA625
 ```
 
 https://mybot314.ru/tekegram_catalog/

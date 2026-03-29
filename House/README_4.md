@@ -1,3 +1,120 @@
+###  Публикация: 617300   (969884) от 14.02.2013
+
+VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offshore (Hayley Parsons & Future Disciple Remix) - Futuristic Polar Bears
+02. Sweet Dreams (Timo Juuti & Hector 87 Remix) - Avicii
+03. Rock That Beat (Original Mix) - Duher
+04. Armada (Luke Tolosan & Max Tiger Dirty Remix) - Luke Tolosan
+05. Bingo (Frankox Remix)Жанр: HouseПродолжительность: 03:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652E1FE58740E3BB8B707B5BFAAE85A5BD2DA474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358787   (967423) от 09.02.2020
+
+VA - House Chill Hop for Lovers (The Best Erotic Sound For Dance Floors) (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967423.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lo Greco Bros, Flow Bop - And Feel Is Good
+2. Blue Tusk - Voices Love
+3. Modus - Saturday (The Good Maurice In The Deep)
+4. Soulstance, The Modern African Spirit - Lovers In The Dark feat. The Modern African Spirit(   Читать дальше...   )Жанр: HouseПродолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EA42A845003DED8EE57B0B2FE13365EE9C1471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358450   (967309) от 09.02.2020
+
+VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967309.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Candy Winterfeld - Tonestar 4:01
+2. Brian Chesnik - Butch 4:01
+3. Bouks - Lifeform 4:01
+4. Bollen - Tiptop 4:01(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 06:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1EDED43A70B0108172D4F522FBD9E4097A90C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359418   (964354) от 12.02.2020
+
+VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Бойко Presents Sound Shocking - Глубоко (Club Mix) [08:09]
+02. Агент Смит - Я И Ты [05:40]
+03. Брюки - Под Зонтом [05:14]
+04. Пименов - Rockstar (Original Dub) [06:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013185456265A11E59B2D616F26228AD73EA6A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359423   (963282) от 13.02.2020
 
 VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
@@ -6,7 +123,7 @@ VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963282.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ VA - Битва Dj - Dj Denis Binokl & Dj Arseniy (2008) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963281.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ VA - Housemission II - Do You Remember (Mixed by DJ Ярик) (2004) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963280.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ VA - Body (Mixed by Dj Zezick) (2005) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963279.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963277.jpg" />
 </div>
 
 
@@ -151,7 +268,7 @@ VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963276.jpg" />
 </div>
 
 
@@ -180,7 +297,7 @@ VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_961419.jpg" />
+  <img src="Z:/picture/009/save_picture_961419.jpg" />
 </div>
 
 
@@ -215,7 +332,7 @@ R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960933.jpg" />
 </div>
 
 
@@ -244,7 +361,7 @@ VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959468.jpg" />
 </div>
 
 
@@ -273,7 +390,7 @@ VA - Welcome 2017  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955165.jpg" />
 </div>
 
 
@@ -302,7 +419,7 @@ VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955163.jpg" />
 </div>
 
 
@@ -331,7 +448,7 @@ VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955152.jpg" />
 </div>
 
 
@@ -360,7 +477,7 @@ VA - Syndicated Soul, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954005.jpg" />
 </div>
 
 
@@ -389,7 +506,7 @@ VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953885.jpg" />
 </div>
 
 
@@ -418,7 +535,7 @@ VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951462.jpg" />
 </div>
 
 
@@ -447,7 +564,7 @@ VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950996.jpg" />
 </div>
 
 
@@ -476,7 +593,7 @@ VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950760.jpg" />
 </div>
 
 
@@ -505,7 +622,7 @@ VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950712.jpg" />
 </div>
 
 
@@ -534,7 +651,7 @@ VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950700.jpg" />
 </div>
 
 
@@ -563,7 +680,7 @@ VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950358.jpg" />
 </div>
 
 
@@ -589,7 +706,7 @@ VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947690.jpg" />
 </div>
 
 
@@ -618,7 +735,7 @@ VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947600.jpg" />
 </div>
 
 
@@ -632,116 +749,6 @@ VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B27C2C0CA350B1586E49D5FD852A7ADE10EFEE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090520   (947535) от 06.01.2017
-
-VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Submantra - I Know (From P60 the Headloop Remix) 5:46
-02.  DJ Umbi - Sonidos (Instrumental Mix) 7:39
-03.  Anthony Mea - Datto (DJ Umbi Remix) 6:13
-04.  Portofino-Sunrise - Morning Breeze 6:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDEC58571CB0EE20E47FADDA6D499213C946E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982858   (946710) от 04.02.2016
-
-Eric Prydz - Opus (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liam
-02. Black Dyce
-03. Collider
-04. Som Sas(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8DFD73EEB51D99924A7ECD8B02A414795035AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362753   (946631) от 25.02.2020
-
-VA - OPTICA (Mixed by Dj Бинокль) (2004) [MP3|320 Kbps] <House, Spanish Tribal, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946631.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Unknown Artist - Untitled (01:09:49)Жанр: House, Spanish Tribal, Progressive HouseПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F09EBAD88BAA62656849464DA237B29CD6B97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362793   (946581) от 25.02.2020
-
-DJ Woofer - Deep & Sexy Vol.02 (2005) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946581.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Untitled (01:07:57)Жанр: House, Deep HouseПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7946CC3F6B18B7F8CA1F0C1823B4FB0EC78326E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 495408   (251429) от 12.05.2012
+
+Газета | За рулем - Регион. Москва №09 (256) [май/2012] [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета "За рулем - Регион" — популярная газета об автомобилях и автомобилестроении, для разных регионов. Газета является неоспоримым лидером среди аналогичных периодических изданий. На её страницах автолюбители всегда найдут массу информации из автомобильного и около автомобильного мира ибо именно такую цель, помноженную на высокий профессионализм и преданность аудитории, ставит перед собой коллектив проекта.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE7BE9C068B65AFD40DE28CEFF4A95B18968564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618990   (249603) от 17.03.2023
 
 Авторевю №1-2 (2023) [PDF]
@@ -6,7 +32,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249603.jpg" />
+  <img src="Z:/picture/004/save_picture_249603.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248295.jpg" />
+  <img src="Z:/picture/004/save_picture_248295.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246394.jpg" />
+  <img src="Z:/picture/004/save_picture_246394.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242446.jpg" />
+  <img src="Z:/picture/005/save_picture_242446.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242167.jpg" />
+  <img src="Z:/picture/004/save_picture_242167.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241773.jpg" />
+  <img src="Z:/picture/004/save_picture_241773.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240953.jpg" />
+  <img src="Z:/picture/004/save_picture_240953.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239191.jpg" />
+  <img src="Z:/picture/004/save_picture_239191.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239174.jpg" />
+  <img src="Z:/picture/004/save_picture_239174.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239148.jpg" />
+  <img src="Z:/picture/004/save_picture_239148.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239046.jpg" />
+  <img src="Z:/picture/004/save_picture_239046.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238502.jpg" />
+  <img src="Z:/picture/005/save_picture_238502.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238494.jpg" />
+  <img src="Z:/picture/005/save_picture_238494.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238487.jpg" />
+  <img src="Z:/picture/005/save_picture_238487.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238474.jpg" />
+  <img src="Z:/picture/005/save_picture_238474.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238463.jpg" />
+  <img src="Z:/picture/005/save_picture_238463.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238454.jpg" />
+  <img src="Z:/picture/005/save_picture_238454.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238445.jpg" />
+  <img src="Z:/picture/005/save_picture_238445.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238435.jpg" />
+  <img src="Z:/picture/005/save_picture_238435.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238427.jpg" />
+  <img src="Z:/picture/005/save_picture_238427.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238419.jpg" />
+  <img src="Z:/picture/005/save_picture_238419.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238413.jpg" />
+  <img src="Z:/picture/005/save_picture_238413.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238400.jpg" />
+  <img src="Z:/picture/005/save_picture_238400.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238391.jpg" />
+  <img src="Z:/picture/005/save_picture_238391.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238373.jpg" />
+  <img src="Z:/picture/005/save_picture_238373.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ AUTO ZEITUNG - современный универсал в сегменте а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27AF94C55F3744F7B7372197663288D33CB1B8FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490563   (238370) от 21.08.2021
-
-Журнал | Auto Classic [Deutsch] №5 (август-сентябрь 2021) [PDF] [De]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о классических автомобилях возвращает вас к самым интересным автомобилям из прошлого. А увлекательная фотография ставит вас на место водителя.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6B4D52E1BF765BCE1FE3F9C04F0533C0454061
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 986124   (932622) от 13.02.2016
+
+Процесс. Удержится ли Порошенко у власти? (13.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отразится ли украинский политический кризис на судьбе Петра Порошенко? Чем закончится конфликт между президентом, правительством и парламентом? Поддержит ли население страны своего президента, или ему придется уповать только на помощь Запада? Рискует ли Порошенко повторить судьбу Януковича? Николай Петров считает, что Порошенко будет президентом Украины еще долго, (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF39A66224B44BCEB79CE276F84DDF9BE75A56AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285652   (932509) от 23.01.2011
 
 Ешь и худей. Выпуск №26 (22.01.2011) SATRip
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932509.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932493.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930849.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930158.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927801.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924469.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924417.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924189.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922807.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922803.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921094.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921088.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921011.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920954.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920590.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918760.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918666.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912594.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912117.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912013.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909934.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908085.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908060.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907188.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907087.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5129502DDD66620F6204C918ED8D414C236E8AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989303   (905991) от 28.02.2016
-
-Ревизорро-шоу (2016.02.17) SATRip (выпуск 2)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три сезона Лена Летучая проверяла отели и рестораны по всей стране. Не ради себя, а во имя высоких стандартов сервиса. Многие не прошли проверку. Есть те, кто не согласен с приговором "Ревизорро". Те, кто считает, что их наказали несправедливо. Теперь у владельцев заведений есть шанс защитить свою честь и бизнес! Прийти в студию и высказать свои претензии (   Читать дальше...   )Телекомпания: ПятницаЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3021A18D1C19C6AAFA3DF3F12C244B21F6EAF155
 ```
 
 https://mybot314.ru/tekegram_catalog/

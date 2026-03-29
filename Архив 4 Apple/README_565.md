@@ -1,3 +1,107 @@
+###  Публикация: 1640563   (211172) от 18.06.2023
+
+Mac FoneLab iOS Unlocker 1.0.38 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для людей, которые забыли код доступа iPhone, могут потерять контроль над вашим iPhone, iPad или iPod touch, вам понадобится FoneLab iOS Unlocker, чтобы удалить 4-значный код доступа, 6-значный код доступа, Touch ID или Face ID проверенным простым способом с наивысшим успехом. оценивайте эффективно. Внимание: удаление пароля iPhone приведет к удалению всех данных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.06.2023Разработчик: © 2023 FoneLab StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A6DC738734F0D6148DCAE5B60F7457D72FB9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640600   (211148) от 18.06.2023
+
+DRmare Music Converter for Spotify 2.9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальный загрузчик музыки Spotify для сохранения любых песен и плейлистов Spotify в автономном режиме и преобразования Spotify Ogg Vorbis в универсальные MP3, AAC, WAV, FLAC и т. д. без потерь для воспроизведения на любом популярном устройстве и MP3-плеере. С подпиской Spotify Premium вы можете загружать любые Песни Spotify для воспроизведения на компьютерах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2023Разработчик: © 2022 DRmare.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B9198AF6F4ACE612254959BCE7A1C86F92CCA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640987   (211042) от 20.06.2023
+
+macOS 14 Sonoma Beta 1 (Installer) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211042.jpg" />
+</div>
+
+
+###  Подробнее
+
+С macOS Sonoma работать и играть на Mac стало еще проще. Поднимите свое присутствие на видеозвонках. Получите доступ к информации совершенно новыми способами. Повысьте производительность в играх. И откройте для себя еще больше способов персонализировать свой Mac.Тип издания: InstallerРелиз состоялся: 05.06.2023Разработчик: © 2020 Apple, Inc.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD552FDEBBB59C91814D745DBA83EB192C7D241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641032   (211004) от 20.06.2023
+
+Sketch 97.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch - это инструмент для векторного дизайна для Mac с акцентом на дизайн экрана. Он используется главным образом дизайнерами экрана, которые создают веб-сайты, значки и пользовательские интерфейсы для настольных и мобильных устройств. Мощные и простые в использовании инструменты Sketch для начинающих и профессионалов отрасли позволяют дизайнерам сосредоточиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.06.2023Разработчик: © 2023 Sketch B.V.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DDE7E21C406DFDC11D0E0024652F2E4222383D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640947   (210962) от 20.06.2023
 
 Aiseesoft Mac FoneTrans 9.2.6 [En]
@@ -6,7 +110,7 @@ Aiseesoft Mac FoneTrans 9.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210962.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Audio Hijack 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210909.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ iStat Menus 6 v.6.70 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210835.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Duplicate Photos Fixer Pro 4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210829.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ Luminar Neo 1.11.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210778.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ Mimestream 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210751.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ Downie 4.6.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210744.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ Native Instruments Komplete Kontrol 2.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210743.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210728.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Native Instruments Kontakt 7 v.7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210722.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ Slidepad 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210658.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ System Dashboard Pro 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210653.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ PhotoMill X 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210651.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ OnlySwitch 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210649.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ Pixelmator Pro 3.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210594.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ iNet Network Scanner 2.9.81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210399.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ Path Finder 2156 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210370.jpg" />
 </div>
 
 
@@ -460,7 +564,7 @@ Keka 1.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210354.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ TechSmith Camtasia 2023 Studio 2023.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210352.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ Wondershare UniConverter for Mac 14.2.17 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210344.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210317.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ PDF Reader Pro Edition 2.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210312.jpg" />
 </div>
 
 
@@ -576,111 +680,6 @@ PDF Reader Pro - это приложение для редактирования
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D723DBFFD75C9628A7E6591EB2B50C334150BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642722   (210283) от 28.06.2023
-
-Wolfram Mathematica 13.3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210283.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении трёх десятилетий система Mathematica определяет передовой край технических вычислений и обеспечивает основную среду для проведения расчётов для миллионов изобретателей, педагогов, студентов и других пользователей по всему миру.Тип издания: macOS SoftwareРелиз состоялся: 11.04.2023Разработчик: © 2022 WolframПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A95A12C867B58476460E4254F5DD86F414D8580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642820   (210184) от 29.06.2023
-
-iStat Menus 6 v.6.71 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210184.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.06.2023Разработчик: © 2022 Bjango Pty LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AF678CE77A3942B45D5A9148F7B135B1F3C8FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572927   (209487) от 29.08.2022
-
-Adobe Substance 3D Painter 8.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209487.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Substance 3D Painter есть инструменты, необходимые для текстурирования ваших 3D-ресурсов, от расширенных кистей до интеллектуальных материалов, которые автоматически адаптируются к вашей модели. Вдохните жизнь в свое искусство.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2022Разработчик: © 2014-2021 AdobeПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADCACD0599100A63E6AE05F26E640B887E15F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573316   (209300) от 31.08.2022
-
-Luminar Neo 1.3.0 U2B [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2022Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D787224296F2065BBD2C0D04627ADE8E2336D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

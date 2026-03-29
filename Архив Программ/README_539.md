@@ -6,7 +6,7 @@ Movavi Video Suite 17.3.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XMedia Recode 3.3.1.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777319.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BurnAware Professional 9.1 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777317.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BurnAware Professional 9.1 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777310.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Care 365 Pro 4.16.402 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777298.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wise Care 365 Pro 4.16.402 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777294.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Maxthon Cloud Browser 4.9.3.200 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777287.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DesktopOK 4.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777265.jpg" />
+  <img src="Z:/picture/008/save_picture_777265.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777249.jpg" />
+  <img src="Z:/picture/008/save_picture_777249.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NetWorx 5.5.3 DC 04.05.2016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777248.jpg" />
+  <img src="Z:/picture/008/save_picture_777248.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777229.jpg" />
+  <img src="Z:/picture/008/save_picture_777229.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ PrivaZer 3.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777227.jpg" />
+  <img src="Z:/picture/008/save_picture_777227.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ XYplorer 16.70 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777217.jpg" />
+  <img src="Z:/picture/008/save_picture_777217.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Screenpresso Pro 1.6.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777216.jpg" />
+  <img src="Z:/picture/008/save_picture_777216.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Vivaldi 1.14.1077.55 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777197.jpg" />
+  <img src="Z:/picture/008/save_picture_777197.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Text Filter 1.7.0 Build 987 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777189.jpg" />
+  <img src="Z:/picture/008/save_picture_777189.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ AMD Radeon Software Crimson Edition 16.5.1 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777185.jpg" />
+  <img src="Z:/picture/008/save_picture_777185.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Viber 8.4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777164.jpg" />
+  <img src="Z:/picture/008/save_picture_777164.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Comodo Dragon 63.0.3239.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777160.jpg" />
+  <img src="Z:/picture/008/save_picture_777160.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ K-Lite Codec Pack Update 14.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777158.jpg" />
+  <img src="Z:/picture/008/save_picture_777158.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Punto Switcher 4.4.1 Build 320 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777157.jpg" />
+  <img src="Z:/picture/008/save_picture_777157.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ ORPALIS PDF Reducer Professional 3.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777144.jpg" />
+  <img src="Z:/picture/008/save_picture_777144.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ TeamViewer 11.0.59131 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777136.jpg" />
+  <img src="Z:/picture/008/save_picture_777136.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Opera 51.0.2830.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777123.jpg" />
+  <img src="Z:/picture/008/save_picture_777123.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Icaros 3.0.3 Beta 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777119.jpg" />
+  <img src="Z:/picture/008/save_picture_777119.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Auslogics BoostSpeed 10.0.6.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777108.jpg" />
+  <img src="Z:/picture/008/save_picture_777108.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839404.jpg" />
+  <img src="Z:/picture/008/save_picture_839404.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HyperDock 1.7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839401.jpg" />
+  <img src="Z:/picture/008/save_picture_839401.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839392.jpg" />
+  <img src="Z:/picture/008/save_picture_839392.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839391.jpg" />
+  <img src="Z:/picture/008/save_picture_839391.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839380.jpg" />
+  <img src="Z:/picture/008/save_picture_839380.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Lady Kim - Left Alone (2004) [FLAC|Lossless]<Jazz, Jazz Vocals>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839379.jpg" />
+  <img src="Z:/picture/008/save_picture_839379.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ VA - Dance: Made In Italy (2011) [MP3|320 kbps]<Euro Dance/Italo Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839375.jpg" />
+  <img src="Z:/picture/008/save_picture_839375.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839374.jpg" />
+  <img src="Z:/picture/008/save_picture_839374.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839373.jpg" />
+  <img src="Z:/picture/008/save_picture_839373.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839372.jpg" />
+  <img src="Z:/picture/008/save_picture_839372.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Michael Monroe - Sensory Overdrive (2011) [MP3|320 kbps]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839371.jpg" />
+  <img src="Z:/picture/008/save_picture_839371.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Kidz CD 1,2,3,4 +Portable [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839370.jpg" />
+  <img src="Z:/picture/008/save_picture_839370.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Light Image Resizer 4.0.4.4 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839368.jpg" />
+  <img src="Z:/picture/008/save_picture_839368.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Rae & Christian - Discography (1998-2002) [MP3|320 kbps]<Electronic, Trip Hop, A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839364.jpg" />
+  <img src="Z:/picture/008/save_picture_839364.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839362.jpg" />
+  <img src="Z:/picture/008/save_picture_839362.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839361.jpg" />
+  <img src="Z:/picture/008/save_picture_839361.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839359.jpg" />
+  <img src="Z:/picture/008/save_picture_839359.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Tor Browser Bundle 10.5.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839358.jpg" />
+  <img src="Z:/picture/008/save_picture_839358.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ DxO PhotoLab Elite 5.0.0 build 4639 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839353.jpg" />
+  <img src="Z:/picture/008/save_picture_839353.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Auslogics BoostSpeed 12.2.0.0 (DC 04.10.2021) RePack (& Portable) by KpoJIuK [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839348.jpg" />
+  <img src="Z:/picture/008/save_picture_839348.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Macsome iTunes Converter 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839339.jpg" />
+  <img src="Z:/picture/008/save_picture_839339.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ ActivePresenter Pro Edition 8.0.6 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839334.jpg" />
+  <img src="Z:/picture/008/save_picture_839334.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ CPU-Z 1.92.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839330.jpg" />
+  <img src="Z:/picture/008/save_picture_839330.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Movavi Photo Editor 6.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839321.jpg" />
+  <img src="Z:/picture/008/save_picture_839321.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839312.jpg" />
+  <img src="Z:/picture/008/save_picture_839312.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839310.jpg" />
+  <img src="Z:/picture/008/save_picture_839310.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1790875   (21742) от 11.04.2025
+
+Фоны - Pattern Universe - Creative Fabrica - Pastel Ombre Glitter Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21742.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 бесшовных узоров в пастельном стиле омбре с блестками (сгенерированы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702E7474F1D5F275CCA6E78CF443844EF024F9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790862   (21741) от 11.04.2025
+
+Текстуры - Artnoy - Creative Fabrica - Digital Paper Glitter Unicorn Texture [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстура с блестками на цифровой бумаге.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489B08A943466AEF44E2C57003216102F2809649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790871   (21734) от 11.04.2025
+
+Фоны - Pattern Universe - Creative Fabrica - Blue Winter Snowflakes Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21734.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 бесшовных узоров со снежинками в виде цифровой бумаги.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431CA1BADB6695494185660ED69B8D2934489E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790872   (21730) от 11.04.2025
 
 Текстуры - Pattern Universe - Creative Fabrica - Abstract Metal Texture Digital Papers [JPG]
@@ -6,7 +84,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21730.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21729.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21726.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21422.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21324.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21323.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21322.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21320.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21318.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21313.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21312.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21309.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21261.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21258.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21256.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21242.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21234.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21230.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21222.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21204.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21012.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20787.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20592.jpg" />
 </div>
 
 
@@ -590,86 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B57B957B2A76D4F226DE3024D56FCA0D10D12FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793167   (20581) от 22.04.2025
-
-Фоны - Behance - Luxury Polygon Backgrounds - 193679017 [AI, EPS10, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные абстрактные геометрические фоны в векторе и растре.
-Материал раздаётся с официальной документацией.Формат: AI, EPS10, JPGРазрешение файлов: 5000 × 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEAD9A56979BEDBCEACAACA32F75EB371C47A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793179   (20483) от 23.04.2025
-
-Текстуры - themefire pro - Behance - Winter Snowflakes Frame Textures - 188769903 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры со снежинками. Сгенерировано ИИ.
-Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 5000 × 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312730C4C4A274CC8C42C1D50A1DD0AEB982F469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793178   (20470) от 23.04.2025
-
-Фоны - M graphiics - Behance - GOLD & BLACK ABSTRACT HD BACKGROUNDS - 175505851 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные чёрно-золотые абстрактные фоны. Сгенерировано ИИ.Формат: PSDРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC7A0677687B49F5CA3C7B7D88A6D1B4800F58E
 ```
 
 https://mybot314.ru/tekegram_catalog/

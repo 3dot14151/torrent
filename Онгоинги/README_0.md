@@ -1,3 +1,83 @@
+###  Публикация: 1847002   (1051753) от 23.01.2026
+
+Enen no Shouboutai San no Shou (2026) | Fire Force (2026) | Пламенная бригада пожарных [ТВ-3, часть 2] [2026, TV, 1 их 12 эп.] WEBRip 720р raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Токио объят пламенем. Всё дело в феномене самовозгорания, которым страдают жители. Справиться со взбунтовавшимся огнём по силам лишь членам Пламенных отрядов, в чьи ряды так спешит вступить Синра. В униформе Восьмого отряда, ловко манипулируя своими дьявольскими ступнями, наш герой не позволит городу обратиться в пепел! Вот только призраки прошлого и тайна, сокрытая (   Читать дальше...   )Производство: David ProductionЖанр: приключенияРежиссер: Minamikawa TatsumaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C368B9D4956288549783A3486709FA462DB34C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847004   (1051752) от 22.01.2026
+
+Douse, Koishite Shimaunda. 2 | Anyway, I`m Falling in Love with You. (2026) | В любом случае я влюблюсь в тебя [ТВ-2] [2026, TV, 1 их 12] WEBRip 720р raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051752.jpg" />
+</div>
+
+
+###  Подробнее
+
+В качестве главной героини — начинающая мангака, которую окружает гарем из друзей детства, но она сохнет по крутому старшаку.
+
+Второй сезон истории.Производство: Typhoon GraphicsЖанр: романтикаРежиссер: Yamamoto Jun`ichiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E9AE41175D86515A727BA024635E9C3934D860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847008   (1051749) от 22.01.2026
+
+Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen | Jujutsu Kaisen: The Culling Game Part 1 | Магическая битва [ТВ-3] [2026, TV, 2 из 12] WEBRip 720р raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051749.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где проклятые духи питаются ничего не подозревающими людьми, фрагменты легендарного и внушающего страх демона Сукуны Рёмена были утеряны и разбросаны повсюду. Если какой-либо демон съест части тела Сукуны, обретенная им сила может уничтожить мир, каким мы его знаем. К счастью, существует таинственная школа дзюдзюцу-магов, призванная защитить хрупкое существование (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Goshozono ShoutaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1AD31C88F459DCD2EF27F2B0B9A30EA9E2DB69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846726   (1051692) от 23.01.2026
 
 Eris no Seihai / The Holy Grail of Eris / Святой Грааль Эрис [2026, TV, 1 из ?] WEBRip 720p raw
@@ -6,7 +86,7 @@ Eris no Seihai / The Holy Grail of Eris / Святой Грааль Эрис [20
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051692.jpg" />
+  <img src="Z:/picture/005/save_picture_1051692.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Toumei Otoko to Ningen Onna: Sonouchi Fuufu ni Naru Futari / The Invisible Man a
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051689.jpg" />
+  <img src="Z:/picture/005/save_picture_1051689.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na to Yuusha Party o Tsuihou Sareta node, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051684.jpg" />
+  <img src="Z:/picture/005/save_picture_1051684.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ Champignon no Majo / Champignon Witch / Грибная ведьма [2026, TV, 2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051677.jpg" />
+  <img src="Z:/picture/005/save_picture_1051677.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Shibou Yuugi de Meshi o Kuu. | Playing Death Games to Put Food on the Table | С
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051670.jpg" />
+  <img src="Z:/picture/005/save_picture_1051670.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ Shibou Yuugi de Meshi o Kuu. / Playing Death Games to Put Food on the Table / И
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051535.jpg" />
+  <img src="Z:/picture/005/save_picture_1051535.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ Arne no Jikenbo | The Case Book of Arne | Дело Арне [2026, TV, 1 из 12
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051355.jpg" />
+  <img src="Z:/picture/005/save_picture_1051355.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ Okiraku Ryoushu no Tanoshii Ryouchi Bouei |  Весёлая защита вла�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051337.jpg" />
+  <img src="Z:/picture/005/save_picture_1051337.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051322.jpg" />
+  <img src="Z:/picture/005/save_picture_1051322.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ Isekai no Sata wa Shachiku Shidai | Isekai Office Worker: The Other World's Book
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051315.jpg" />
+  <img src="Z:/picture/005/save_picture_1051315.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ Maou no Musume wa Yasashi Sugiru!! / The Daughter of the Demon Lord is Too Kind!
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051311.jpg" />
+  <img src="Z:/picture/005/save_picture_1051311.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ Mayonaka Heart Tune / Tune In to the Midnight Heart / Полуночный мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051308.jpg" />
+  <img src="Z:/picture/005/save_picture_1051308.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ Yuusha Party ni Kawaii Ko ga Ita no de, Kokuhaku Shite Mita. / There Was a Cute 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051307.jpg" />
+  <img src="Z:/picture/005/save_picture_1051307.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ Vigilante: Boku no Hero Academia Illegals 2 | Моя геройская акад
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051177.jpg" />
+  <img src="Z:/picture/005/save_picture_1051177.jpg" />
 </div>
 
 
@@ -372,7 +452,7 @@ Kirei ni Shite Moraemasu ka. / Wash It All Away / Можете постират�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051134.jpg" />
+  <img src="Z:/picture/005/save_picture_1051134.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ Osananajimi to wa Lovecome ni Naranai / You Can't Be In a Rom-Com with Your Chil
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051131.jpg" />
+  <img src="Z:/picture/005/save_picture_1051131.jpg" />
 </div>
 
 
@@ -424,7 +504,7 @@ Golden Kamuy Saishuushou | Golden Kamuy Final Season | Золотое божес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051129.jpg" />
+  <img src="Z:/picture/005/save_picture_1051129.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku / Sentenced to Be a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051058.jpg" />
+  <img src="Z:/picture/005/save_picture_1051058.jpg" />
 </div>
 
 
@@ -479,7 +559,7 @@ Majutsushi Kunon wa Miete Iru | Kunon the Sorcerer Can See Through | Волше�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051045.jpg" />
+  <img src="Z:/picture/005/save_picture_1051045.jpg" />
 </div>
 
 
@@ -505,7 +585,7 @@ Hanazakari no Kimitachi e | Hana-Kimi | Для тебя во всём цвету
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051041.jpg" />
+  <img src="Z:/picture/005/save_picture_1051041.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ Ikoku Nikki | Дневник другой страны [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051035.jpg" />
+  <img src="Z:/picture/005/save_picture_1051035.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnat
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051026.jpg" />
+  <img src="Z:/picture/005/save_picture_1051026.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051016.jpg" />
+  <img src="Z:/picture/005/save_picture_1051016.jpg" />
 </div>
 
 
@@ -597,86 +677,6 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FAB8D1CD76DA71705A7BEE43F55149827C88BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845707   (1051001) от 18.01.2026
-
-Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический корабль, затерянный в бескрайних просторах Вселенной, сталкивается с непостижимой угрозой. Его экипаж становится целью Гносии — чужеродной сущности, обладающей совершенной способностью к мимикрии. Это существо безупречно копирует внешность, повадки и воспоминания любого человека, незаметно встраиваясь в социальную структуру замкнутого коллектива.
-Единственная (   Читать дальше...   )Производство: Domerica / ドメリカЖанр: приключенияРежиссер: Итикава КадзуяПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: Русские (внешние)Продолжительность: 24 эп. по ~26-27 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765CB8922F5E9B7900B087E6B778EE2F5D630200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845486   (1050836) от 22.01.2026
-
-Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [2026, TV, 1 из 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассница Утагэ Киносита живёт мыслями о любимом айдоле. Кажется, только вчера Тамон Фукухара проходил прослушивания, и вот два года спустя он звезда популярной айдол-группы F/ACЕ, оккупировавшей все экраны страны.
-Однажды Утагэ, которая подрабатывает уборкой квартир, пришлось выйти на замену заболевшего коллеги. По иронии судьбы, её новым клиентом оказался (   Читать дальше...   )Производство: студия J.C. StaffЖанр: комедия, романтикаРежиссер: Нагаока ТикаПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184E52B6F278E7E3E599765FD68EAE78FD9AD310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845575   (1050826) от 23.01.2026
-
-MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон МФ ПризракПроизводство: студия Felix FilmЖанр: спортРежиссер: Нака ТосихитоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F733D94407CE98AB8B0373EC164684E54743E874
 ```
 
 https://mybot314.ru/tekegram_catalog/

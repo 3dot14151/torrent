@@ -6,7 +6,7 @@ PullTube 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861260.jpg" />
+  <img src="Z:/picture/008/save_picture_861260.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBEdit 11.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861078.jpg" />
+  <img src="Z:/picture/008/save_picture_861078.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JustBroadcaster YTEd 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860986.jpg" />
+  <img src="Z:/picture/008/save_picture_860986.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pikka - Color Picker 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860849.jpg" />
+  <img src="Z:/picture/008/save_picture_860849.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ FSNotes 4 v4.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860706.jpg" />
+  <img src="Z:/picture/008/save_picture_860706.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Transfer 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860704.jpg" />
+  <img src="Z:/picture/008/save_picture_860704.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PDF Search 8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860700.jpg" />
+  <img src="Z:/picture/008/save_picture_860700.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ RAW Power 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860618.jpg" />
+  <img src="Z:/picture/008/save_picture_860618.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ File Multi Tool 6 v6.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860617.jpg" />
+  <img src="Z:/picture/008/save_picture_860617.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ GoodNotes 5.4.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860612.jpg" />
+  <img src="Z:/picture/008/save_picture_860612.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Dark Reader for Safari 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860498.jpg" />
+  <img src="Z:/picture/008/save_picture_860498.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Split Screen 3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860448.jpg" />
+  <img src="Z:/picture/008/save_picture_860448.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Downie 4.0.8 (Build 4092) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860372.jpg" />
+  <img src="Z:/picture/008/save_picture_860372.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Wondershare PDFelement Pro 7.6.1.3037 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860269.jpg" />
+  <img src="Z:/picture/008/save_picture_860269.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ iMazing 2.11.5 (Build 13649) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860138.jpg" />
+  <img src="Z:/picture/008/save_picture_860138.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Tales from the Borderlands: Episode One — Zer0 Sum (2014) [En/Ru] [OS X Native
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859448.jpg" />
+  <img src="Z:/picture/008/save_picture_859448.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Cookie 5.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859213.jpg" />
+  <img src="Z:/picture/008/save_picture_859213.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Grids for Instagram 6.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859028.jpg" />
+  <img src="Z:/picture/008/save_picture_859028.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Movist Pro 2.2.17 (build 141) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858918.jpg" />
+  <img src="Z:/picture/008/save_picture_858918.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Archiver 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858901.jpg" />
+  <img src="Z:/picture/008/save_picture_858901.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VueScan Pro 9.5.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858898.jpg" />
+  <img src="Z:/picture/008/save_picture_858898.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adguard 2.4.6.766 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858807.jpg" />
+  <img src="Z:/picture/008/save_picture_858807.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Marked 2 v2.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858188.jpg" />
+  <img src="Z:/picture/008/save_picture_858188.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Sync Folders Pro 4.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858187.jpg" />
+  <img src="Z:/picture/008/save_picture_858187.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Keep It 1.11.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858186.jpg" />
+  <img src="Z:/picture/008/save_picture_858186.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Boxy SVG 3  v3.63.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858184.jpg" />
+  <img src="Z:/picture/008/save_picture_858184.jpg" />
 </div>
 
 

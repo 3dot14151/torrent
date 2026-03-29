@@ -1,3 +1,61 @@
+###  Публикация: 1453761   (1026776) от 12.03.2021
+
+Starmen - By The Grace Of Rock 'n' Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shining Star
+02. By The Grace Of Rock‘n’roll
+03. Kairi
+04. Black Thunder White Lightning(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A54DD5F14F1E9F8B814E4E92754A255EDBA760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453815   (1026764) от 12.03.2021
+
+Thunder - All The Right Noises (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last One Out Turn Off The Lights
+02. Destruction
+03. The Smoking Gun
+04. Going To Sin City(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE7D81908F0E91277D9552BF173453099DCB48A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453973   (1026611) от 13.03.2021
 
 Sunstorm - Afterlife (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +64,7 @@ Sunstorm - Afterlife (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026611.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Starmen - Welcome To My World (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026450.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Starmen - Kiss The Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026446.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Def Leppard - Let There Be Drums (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026407.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ KinStrife - Fools And Monsters (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026266.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Danger Zone - Don't Count On Heroes (2019) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026264.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Ricky Warwick - When Life Was Hard and Fast (2021) 2xCD [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026263.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Nasty Ratz - First Bite (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026261.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Michael Bormann's Jaded Hard - Feels Like Yesterday (2019) [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026253.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Black Diamonds - Once Upon A Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026147.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Rated X - Rated X (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026016.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Issa - Run With The Pack (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025818.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Issa - Crossfire (2015) Japan Edition [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025815.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Butterfly - Doorways of Time (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025678.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Krokus - Headhunter / Alive And Screamin' (1999) Unofficial Release [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025482.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Warrant - Cherry Pie (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025294.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Def Leppard - The Two Arm Years (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024915.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Adrian Smith, Ritchie Kotzen - Smith-Kotzen (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024420.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Mother Road - II (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024416.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ The Quill - Earthrise (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024195.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Wolfmother - 4 Albums (2005 - 2016) 8 CD [FLAC|Lossless|tracks + .cue|image+.cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023938.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Band Of Spice - Economic Dancers (2015) [FLAC|Lossless|image + .cue] <Stoner Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023877.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Band Of Spice - By The Corner Of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023866.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Whitesnake - The Rock Album (2020) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023807.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Whitesnake - The Rock Album (2020) Japanese Edition [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266643FEFB044F2615AC244A3156D20EB81EC33F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458834   (1023628) от 30.03.2021
-
-OzzyCash - OzzyCash (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not So Easy Street
-02. Back To My Roots
-03. 'Round Here
-04. Sucker(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661E485EF326E0BF97E97569AFC79E523BE8E02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458936   (1023521) от 31.03.2021
-
-Thunder - All The Right Noises (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last One Out Turn Off The Lights (4:15)
-02. Destruction (5:02)
-03. The Smoking Gun (4:49)
-04. Going To Sin City (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20C9C3979DD0B7BBF2C8AB3A615DF5E6884C1CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

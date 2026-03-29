@@ -6,7 +6,7 @@ Vivaldi 3.1.1929.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734278.jpg" />
+  <img src="Z:/picture/008/save_picture_734278.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MassTube Plus 14.0.0.400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734271.jpg" />
+  <img src="Z:/picture/008/save_picture_734271.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Viber 13.5.0.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734269.jpg" />
+  <img src="Z:/picture/008/save_picture_734269.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YTD Video Downloader PRO 5.9.18.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734265.jpg" />
+  <img src="Z:/picture/008/save_picture_734265.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Firefox Browser 79.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734260.jpg" />
+  <img src="Z:/picture/008/save_picture_734260.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Movavi Video Converter 20 Premium 20.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734237.jpg" />
+  <img src="Z:/picture/008/save_picture_734237.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sublime Merge 1.1.1.6 Build 2027 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734233.jpg" />
+  <img src="Z:/picture/008/save_picture_734233.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Wise Registry Cleaner Pro 10.3.1.690 (DC 22.07.2020) RePack (& portable) by elch
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734232.jpg" />
+  <img src="Z:/picture/008/save_picture_734232.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Auslogics BoostSpeed Pro 11.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734228.jpg" />
+  <img src="Z:/picture/008/save_picture_734228.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Edge 84.0.522.48 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734224.jpg" />
+  <img src="Z:/picture/008/save_picture_734224.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734191.jpg" />
+  <img src="Z:/picture/008/save_picture_734191.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Google Earth Pro 7.3.3.7786 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734186.jpg" />
+  <img src="Z:/picture/008/save_picture_734186.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Google Earth Pro 7.3.3.7786 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734151.jpg" />
+  <img src="Z:/picture/008/save_picture_734151.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AnyDesk 6.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734145.jpg" />
+  <img src="Z:/picture/008/save_picture_734145.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ableton - Live Suite 10.1.17 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734144.jpg" />
+  <img src="Z:/picture/008/save_picture_734144.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CleanMyMac X 4.6.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734139.jpg" />
+  <img src="Z:/picture/008/save_picture_734139.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Tenpouibun Ayakashiayashi / Ghost Slayers Ayashi / Странная истори
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734136.jpg" />
+  <img src="Z:/picture/008/save_picture_734136.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Hard Disk Sentinel PRO 5.61.11463 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734118.jpg" />
+  <img src="Z:/picture/008/save_picture_734118.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Kodi 18.8 Leia [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734113.jpg" />
+  <img src="Z:/picture/005/save_picture_734113.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734108.jpg" />
+  <img src="Z:/picture/008/save_picture_734108.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Uninstall Tool 3.5.10 Build 5670 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734107.jpg" />
+  <img src="Z:/picture/008/save_picture_734107.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Total Commander 9.51 Extended 20.7 Full / Lite RePack (& Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734099.jpg" />
+  <img src="Z:/picture/008/save_picture_734099.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734054.jpg" />
+  <img src="Z:/picture/008/save_picture_734054.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Google Nik Software Complete Collection 1.2.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734052.jpg" />
+  <img src="Z:/picture/008/save_picture_734052.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2012) [Ru/En] S
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734044.jpg" />
+  <img src="Z:/picture/008/save_picture_734044.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734033.jpg" />
+  <img src="Z:/picture/008/save_picture_734033.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 682059   (628542) от 24.07.2013
+
+David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628542.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Vendetta Vs Keith Thomspon - Break 4 Love (Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540E96509B2F2D119C002E2EDD1E2E54A9902447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682051   (628538) от 24.07.2013
+
+David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628538.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Vendetta - Love To Love You Baby (Official Clip)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21EF568739269F4CD7EADF2F80FD93F7CBE38785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034983   (628296) от 16.07.2016
+
+Сборник - Bollywood Summermix (2016) BDRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летний сборник клипов из индийских фильмов01. Bajirao Mastani (Priyanka Chopra)
+02. Bahubali (Tamanna Bhatia)
+03. Krishnam Vande Jagadgurum
+04. Arinthum Ariyamalum (Sameksha)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан, Каджол, Варун Дхаван, Крити Санон и др.Перевод: ОтсутствуетПродолжительность: 00:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D91D6C26AC779C7E69FE52A5D62A9D9B3EE37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682205   (626553) от 25.07.2013
 
 TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
@@ -6,7 +87,7 @@ TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626553.jpg" />
+  <img src="Z:/picture/008/save_picture_626553.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626153.jpg" />
+  <img src="Z:/picture/008/save_picture_626153.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626007.jpg" />
+  <img src="Z:/picture/008/save_picture_626007.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624673.jpg" />
+  <img src="Z:/picture/008/save_picture_624673.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624633.jpg" />
+  <img src="Z:/picture/008/save_picture_624633.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624409.jpg" />
+  <img src="Z:/picture/008/save_picture_624409.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624405.jpg" />
+  <img src="Z:/picture/008/save_picture_624405.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624359.jpg" />
+  <img src="Z:/picture/008/save_picture_624359.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624088.jpg" />
+  <img src="Z:/picture/008/save_picture_624088.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620979.jpg" />
+  <img src="Z:/picture/008/save_picture_620979.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620697.jpg" />
+  <img src="Z:/picture/008/save_picture_620697.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620260.jpg" />
+  <img src="Z:/picture/008/save_picture_620260.jpg" />
 </div>
 
 
@@ -318,7 +399,7 @@ Gia. Lights Out (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619227.jpg" />
+  <img src="Z:/picture/008/save_picture_619227.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616473.jpg" />
+  <img src="Z:/picture/008/save_picture_616473.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ Girls' Generation (SNSD) - Music video collection. Part 1 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616151.jpg" />
+  <img src="Z:/picture/008/save_picture_616151.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614320.jpg" />
+  <img src="Z:/picture/008/save_picture_614320.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609434.jpg" />
+  <img src="Z:/picture/008/save_picture_609434.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607502.jpg" />
+  <img src="Z:/picture/008/save_picture_607502.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603798.jpg" />
+  <img src="Z:/picture/008/save_picture_603798.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602399.jpg" />
+  <img src="Z:/picture/008/save_picture_602399.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601321.jpg" />
+  <img src="Z:/picture/008/save_picture_601321.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600129.jpg" />
+  <img src="Z:/picture/008/save_picture_600129.jpg" />
 </div>
 
 
@@ -598,7 +679,7 @@ VA - Летний марафон № 175 / Видеоклипы (Turbo Диск�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599965.jpg" />
+  <img src="Z:/picture/008/save_picture_599965.jpg" />
 </div>
 
 
@@ -612,91 +693,6 @@ VA - Летний марафон № 175 / Видеоклипы (Turbo Диск�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:689A9EB0A5DD59B94A9F3DA55C234B529E1BAE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038600   (597094) от 31.07.2016
-
-Сборник клипов - Philizz "I covered the 80s" (season 1, episode 1-5) (2016) WEB-DLRip [H.264/720-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "I covered the 80s" - фирменный видеомикс от голландского ви-джея Philizz, составленный из небольших фрагментов клипов.
-Ваши любимые композиции 80-х годов - в современной обработке.
-- Разбивка по трекам отсутствует.Episode 1:
-Modern Talking - You're My Heart, You're My Soul '98
-Rickrollerz - Never Gonna Give You Up
-Alyssa Reid ft. Jump Smokers - Alone Again(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: от 00:26:12 до 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AD374E008576E08C2BFE220E1458938578EACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548829   (596035) от 04.05.2022
-
-Владимир Пресняков – Странная (2020) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596035.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кадре, в главной роли появляется необычная девушка, она выглядит неординарно, а сыграла ее Соня Александрова. Именно она вызвала большой интерес к данному клипу. Многие оценили игру модели, клип получился яркий, необычный, данная новинка достойна внимания. Так же отметили, что девушка отлично меняет свои образы, необычно танцует, что добавляет клипу особую изюминку. (   Читать дальше...   )Производство: Velvet MusicЖанр: PopРежиссер: Виталий НиколаевПродолжительность: 00:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B736FC8CA127F78096D00F95C53892A41723491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038778   (595606) от 01.08.2016
-
-The Sweet – Action (The Ultimate Story) (2015) DVDReMux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну что сказать про Свит? Для моего поколения они тоже одни из символов времени. Некоторые их треки (Co-Co, например) даже появлялись на пластинках Мелодии. Но, конечно, наиболее сильное впечатление на меня произвел их альбом Fanny Adams, который я услышал году этак в 75-ом. AC-DC - сила! :mrgreen:
-
-Одним словом, перед вами одна из моих ностальгических раздач, которая (   Читать дальше...   )Жанр: Hard rock, Glam rockПродолжительность: 00:58:44 (Music Videos) + 00:58:57 (On TV)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B373167992AB8C8796BD867D44C83D870FF52B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

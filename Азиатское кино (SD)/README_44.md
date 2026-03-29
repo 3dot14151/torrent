@@ -1,3 +1,29 @@
+###  Публикация: 733510   (287179) от 12.12.2013
+
+Восточные кондоры / Eastern condors / Dung fong tuk ying (1987) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда американцы покидали Вьетнам, был оставлен секретный запас ракет и стратегического оружия, который не обнаружила вьетнамская армия. В 1976 году полковник армии США Лам получает задание уничтожить склад, прежде чем ракеты попадут в руки врага. Он набирает команду из китайских и вьетнамских заключенных. Всем, кто уцелеет, обещана свобода. После десантирования (   Читать дальше...   )Производство: ГонконгЖанр: Боевик, Драма, ВоенныйРежиссер: Саммо Хунг Кам-БоАктеры: Саммо Хунг Кам-Бо, Юэнь Бяо, Джойс Годензи, Лунг Чан, Квок Кеунг, Чеун-Лам, Кар Лок, Чм Ян, Чинг-Инг, Лан Гуанг, Анджело Мао, Джеймс Тиен, Ван Юэн, Юэнь Ву-Пинг, Лэм Чинг-Инг, Дик Вэй, Кори ЮэнПеревод: Одноголосый закадровый (Александр Кашкин)Продолжительность: 01:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B3469D9DEFEACD1AFA645583FB4254C1F8A0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186547   (286199) от 25.11.2017
 
 Воспоминания о завтра / Ashita no kioku (2006) DVDRip [MVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286199.jpg" />
+  <img src="Z:/picture/008/save_picture_286199.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286026.jpg" />
+  <img src="Z:/picture/008/save_picture_286026.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285850.jpg" />
+  <img src="Z:/picture/008/save_picture_285850.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285539.jpg" />
+  <img src="Z:/picture/008/save_picture_285539.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285444.jpg" />
+  <img src="Z:/picture/008/save_picture_285444.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283852.jpg" />
+  <img src="Z:/picture/008/save_picture_283852.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283388.jpg" />
+  <img src="Z:/picture/008/save_picture_283388.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281946.jpg" />
+  <img src="Z:/picture/008/save_picture_281946.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281791.jpg" />
+  <img src="Z:/picture/008/save_picture_281791.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280336.jpg" />
+  <img src="Z:/picture/008/save_picture_280336.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278479.jpg" />
+  <img src="Z:/picture/008/save_picture_278479.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278278.jpg" />
+  <img src="Z:/picture/008/save_picture_278278.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277571.jpg" />
+  <img src="Z:/picture/008/save_picture_277571.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277074.jpg" />
+  <img src="Z:/picture/008/save_picture_277074.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277071.jpg" />
+  <img src="Z:/picture/008/save_picture_277071.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276863.jpg" />
+  <img src="Z:/picture/008/save_picture_276863.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275100.jpg" />
+  <img src="Z:/picture/008/save_picture_275100.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274360.jpg" />
+  <img src="Z:/picture/008/save_picture_274360.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274221.jpg" />
+  <img src="Z:/picture/008/save_picture_274221.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273349.jpg" />
+  <img src="Z:/picture/008/save_picture_273349.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273342.jpg" />
+  <img src="Z:/picture/008/save_picture_273342.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273260.jpg" />
+  <img src="Z:/picture/008/save_picture_273260.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271277.jpg" />
+  <img src="Z:/picture/008/save_picture_271277.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270894.jpg" />
+  <img src="Z:/picture/008/save_picture_270894.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269975.jpg" />
 </div>
 
 
@@ -647,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556582C1C8FE251E783F7BF5E67A14CC72DD06D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266627   (269913) от 02.12.2018
-
-Плоды страсти / Les fruits de la passion (1981) DVDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гонконг 1920. Молодая британская девушка попадает в азиатский бордель. Подвергаясь сексуальному насилию, фетишизму со стороны клиентов, она обнаруживает много новых чувственных желаний в мире запретного секса...
-Фильм основан на романе Доминик Ори "История О", который рассказывает о женщине, по желанию своего возлюбленного превращенной во всеобщую рабыню (   Читать дальше...   )Производство: Франция, Япония / Argos Films, Jinriki Hikoki ShaЖанр: ДрамаРежиссер: Сюдзи ТэраямаАктеры: Изабель Илье, Клаус Кински, Ариель Домбаль, Питер, Кэйко Нийтака, Саёко Ямагути, Хитоми Такахаси, Миюки Оно, Юка Камэбути, Кэнити НакамураПеревод: Авторский (одноголосый, закадровый), Любительский (одноголосый, закадровый)Субтитры: Русские (DUNA)Продолжительность: 01:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F73B42ED080C16BF6A0DD592FFE2E23CEBFF977
 ```
 
 https://mybot314.ru/tekegram_catalog/

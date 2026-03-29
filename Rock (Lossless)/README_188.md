@@ -1,3 +1,147 @@
+###  Публикация: 1224399   (48638) от 28.07.2024
+
+Rush - 22 Studio Albums, 12 Live, 9 Compilation (1974 - 2015) 116 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Progressive Rock, Hard Rock>
+
+>>След.
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rush - канадская рок-группа, состоящая из Geddy Lee (бас, вокал, клавишные), Alex Lifeson (гитары) и Neil Peart (ударные, перкуссия, лирика). Основанная в 1968 году, группа прошла несколько конфигураций, пока не достигла своего самого длинного и популярного состава, когда Peart заменил оригинального барабанщика John Rutsey в июле 1974 года. Работая в различных жанрах, (   Читать дальше...   )1974 - Rush
+1975 - Fly By Night
+1975 - Caress Of SteelЖанр: Progressive Rock, Hard RockПродолжительность: 104:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6EED78AC5879BE2373315A1FD2212FA5F6105F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739758   (48500) от 29.07.2024
+
+Bon Jovi - Forever (2024) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legendary (04:05)
+02. We Made It Look Easy (03:15)
+03. Living Proof (03:39)
+04. Waves (03:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17249D4F06B69B6C0EBA87A9915DBD83F2745CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739881   (48383) от 30.07.2024
+
+VA - Yesterday's Top Hits: Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fish & Chips - Brown Sugar (3:46)
+02. The Heads Of The Family - Bad Moon Rising (2:13)
+03. Three Sides Now - Love the One You're With (3:27)
+04. Fish & Chips - American Woman (3:23)(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897996C3561835CAAD0A380ADC8B3CC0D65D099C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741344   (47650) от 06.08.2024
+
+Seven Steps To The Green Door - The?Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation
+02. Africa
+03. Hearing Voices
+04. Alpha & Omega IV(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6171CE5CF75C132F1BF69C67B0D52B862B181921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742693   (47025) от 12.08.2024
+
+Bill Wyman - Drive My Car (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл Уайман (Rolling Stones) выпустил свой девятый сольный альбом "Drive My Car" 9-го августа. "Drive My Car", представляющий собой мастерскую смесь его уникального англо-американского ритм-энд-блюза, является первым альбомом Уаймена с 2015 года, который будет доступен в цифровом формате, на CD и виниловых пластинках.01. Thunder On The Mountain (Bob Dylan)
+02. Drive My Car (Bill Wyman)
+03. Bad News (Bill Wyman)
+04. Storm Warning (Hans Theessink)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DA9B161785D1DF286686FCAFD6EAA53D051B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742854   (46933) от 13.08.2024
 
 Mark Knopfler - Unplugged (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +150,7 @@ Mark Knopfler - Unplugged (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46933.jpg" />
 </div>
 
 
@@ -35,7 +179,7 @@ Jane Getter Premonition - Division World (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46499.jpg" />
 </div>
 
 
@@ -64,7 +208,7 @@ Hereafter - All Is As It Should Be (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46184.jpg" />
 </div>
 
 
@@ -93,7 +237,7 @@ EchoVerse - Whispers Between Worlds (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46180.jpg" />
 </div>
 
 
@@ -122,7 +266,7 @@ ZZ Top - Fandango! (1975) Reissue, Remastered, 2006, Warner Bros. Records [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46104.jpg" />
 </div>
 
 
@@ -151,7 +295,7 @@ VA - Breakup Rock, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46074.jpg" />
 </div>
 
 
@@ -180,7 +324,7 @@ Saga - The Works (1991) 2CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46069.jpg" />
 </div>
 
 
@@ -209,7 +353,7 @@ VA - Funk Rock_Sexy Groovy Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Funk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46068.jpg" />
 </div>
 
 
@@ -238,7 +382,7 @@ VA - Classic Rock - Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45876.jpg" />
 </div>
 
 
@@ -267,7 +411,7 @@ Mono Inc. - Symphonic Live - The Second Chapter (2024) [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45554.jpg" />
 </div>
 
 
@@ -296,7 +440,7 @@ Nick Cave & The Bad Seeds - Wild God (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45268.jpg" />
 </div>
 
 
@@ -325,7 +469,7 @@ Linda Gail Lewis - Rockabilly Queen (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockab
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45230.jpg" />
 </div>
 
 
@@ -354,7 +498,7 @@ Joe Walsh - 17 Albums (1972 - 2012) 26 CD [FLAC|Lossless|tracks + .cue|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44900.jpg" />
 </div>
 
 
@@ -383,7 +527,7 @@ David Gilmour - Luck and Strange (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44420.jpg" />
 </div>
 
 
@@ -412,7 +556,7 @@ Bon Jovi - Forever (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44185.jpg" />
 </div>
 
 
@@ -441,7 +585,7 @@ David Gilmour - Luck And Strange (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43918.jpg" />
 </div>
 
 
@@ -470,7 +614,7 @@ In Extremo - Wolkenschieber (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43763.jpg" />
 </div>
 
 
@@ -499,7 +643,7 @@ Find Me - Nightbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43760.jpg" />
 </div>
 
 
@@ -528,7 +672,7 @@ Robert Plant - Manic Nirvana (1990) [FLAC|Lossless|image + .cue] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43376.jpg" />
 </div>
 
 
@@ -557,7 +701,7 @@ Different Image Project - Embers of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42624.jpg" />
 </div>
 
 
@@ -586,7 +730,7 @@ Blues Pills - Birthday (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42508.jpg" />
 </div>
 
 
@@ -600,152 +744,6 @@ Blues Pills - Birthday (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17051CE0258E667802A3B108DE71FBCC87C6BD89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751729   (42303) от 26.09.2024
-
-Richie Kotzen - Nomad (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheap Shots (3:24)
-02. These Doors (4:23)
-03. Insomnia (4:47)
-04. Nomad (6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFFF42E638C3BABCD61FD0035ECF7F4B96DECD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752787   (41706) от 02.10.2024
-
-VA - 100 Greatest Rock Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41706.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Led Zeppelin - Immigrant Song (2:26)
-002. Red Hot Chili Peppers - Can’t Stop (4:29)
-003. Matchbox Twenty - Push (3:58)
-004. Van Halen - Jump (2015 Remaster) (4:01)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30DB9DC1DEC12E5B8EFC9925846D025AA65460E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753263   (41473) от 04.10.2024
-
-Eric Clapton - Meanwhile (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pompous Fool (4:45)
-02. Heart of a Child (7:04)
-03. Moon River (5:06)
-04. Sam Hall (5:27)(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6D137B2244B0DD54F6ECFB940CED760E8758C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806667   (41027) от 09.10.2024
-
-Robert Plant - 19 альбомов (1982 - 2021) 35 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Rock>
-
->>След.
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот вокалист является одной из ключевых фигур в истории рок-музыки.
-Авторской вершиной Планта считается песня "Stairway To Heaven" из альбома Led Zeppelin IV — композиция с загадочным текстом, насыщенным мистическими и экзистенциальными намеками и образами. (Многие, впрочем, считают лучшими два других его текста: "Kashmir" и "Achilles Last (   Читать дальше...   )Список альбомов:
-1982 Pictures At Eleven
-1983 The Principle Of Moments
-1984 The Honeydrippers Volume OneЖанр: RockПродолжительность: 32:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB55B11E0496D6E4C59D716DB78028AB88F4C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821280   (40949) от 01.10.2025
-
-Robert Plant With Suzi Dian - Saving Grace (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_40949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chevrolet(2:38)
-02. As I Roved Out(6:10)
-03. It's A Beautiful Day Today(3:41)
-04. Soul Of A Man(4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E696B9AA0F1FDBA229957150789B4D6BBBB4B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

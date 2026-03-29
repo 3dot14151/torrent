@@ -1,3 +1,29 @@
+###  Публикация: 546563   (473966) от 15.09.2012
+
+[mp4 640x360] Контакт / Связь / Touch (Весь 1-й сезон) (2012) WEB-DLRip (LostFilm)
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он потерял любимую жену, и остался один воспитывать своего сына - аутиста. Все свое время он тратит на то, чтобы понять особое мышление своего сына и наладить с ним контакт, но до сих пор его попытки не приносили должного успеха, его ребенок оставался таким же молчаливым и замкнутым. Но в один момент Мартин понимает что его сын обладает особым даром гения - он предвидит события будущего, точки в которых действия одного человека могут подействовать на жизни других. Но выражает он свои видения в цифрах, расшифровать которые и предстоит его отцу, помешав тем самым случиться трагедии.Жанр: Детектив, ДрамаРежиссер: Стивен Уильямс, Френсис ЛоуренсАктеры: Кифер Сазерленд, Гугу Мбата-Роу, Дэвид Мазоуз, Дэнни Гловер, Роксана Бруссо, Мэй Мията, Сатоми Окуно, Дейдри Генри, Титус Уэлливер, Девид де Латур, Карен Шенас-Дэвид и др.Перевод: Многоголосый закадровый (Продолжительность: 12 X~45 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939304   (473467) от 22.09.2015
 
 Поиск в книгах 1.4 [Ru/En]
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473467.jpg" />
+  <img src="Z:/picture/008/save_picture_473467.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Muffin Icon Pack 1.2.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472797.jpg" />
+  <img src="Z:/picture/008/save_picture_472797.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Tapet Wallpapers 8.058.006 Mod by GhostRider [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472229.jpg" />
+  <img src="Z:/picture/008/save_picture_472229.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ InShot - Фото и видеоредактор 1.846.1366 Mod by Rajat [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472103.jpg" />
+  <img src="Z:/picture/008/save_picture_472103.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471625.jpg" />
+  <img src="Z:/picture/008/save_picture_471625.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ SHAREit - Connect & Transfer v4.5.38_ww Ad-Free / v3.0.48_iRhinMod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471404.jpg" />
+  <img src="Z:/picture/008/save_picture_471404.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471302.jpg" />
+  <img src="Z:/picture/008/save_picture_471302.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471080.jpg" />
+  <img src="Z:/picture/008/save_picture_471080.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Today Weather - Прогноз погоды 2.0.1-3.190722 Mod by KirIif' [Ru/Mu
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470058.jpg" />
+  <img src="Z:/picture/008/save_picture_470058.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468667.jpg" />
+  <img src="Z:/picture/008/save_picture_468667.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468577.jpg" />
+  <img src="Z:/picture/008/save_picture_468577.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468014.jpg" />
+  <img src="Z:/picture/008/save_picture_468014.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ AirScreen Pro - Трансляция экрана 2.2.2 Mod by otadoya [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468011.jpg" />
+  <img src="Z:/picture/008/save_picture_468011.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467987.jpg" />
+  <img src="Z:/picture/008/save_picture_467987.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ PhotoRoom v3.8.2 Mod by ZackModz, youarefinished, russiankuma [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467696.jpg" />
+  <img src="Z:/picture/008/save_picture_467696.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466182.jpg" />
+  <img src="Z:/picture/008/save_picture_466182.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Moviebase Premium 3.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466008.jpg" />
+  <img src="Z:/picture/008/save_picture_466008.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Picture Manager Premium 4.71.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465920.jpg" />
+  <img src="Z:/picture/008/save_picture_465920.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Photo Sherlock Pro 1.81 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465911.jpg" />
+  <img src="Z:/picture/008/save_picture_465911.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465737.jpg" />
+  <img src="Z:/picture/008/save_picture_465737.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ XFolder File Manager 1.4.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463811.jpg" />
+  <img src="Z:/picture/008/save_picture_463811.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Easy Notes - Заметки и блокнот 1.1.34.0727 Mod by Apps Store [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463810.jpg" />
+  <img src="Z:/picture/008/save_picture_463810.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463728.jpg" />
+  <img src="Z:/picture/008/save_picture_463728.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462789.jpg" />
+  <img src="Z:/picture/008/save_picture_462789.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462236.jpg" />
+  <img src="Z:/picture/008/save_picture_462236.jpg" />
 </div>
 
 
@@ -650,34 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC8621CA2135013429C63DE77DB4BAC5D7977FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549714   (462024) от 20.09.2012
-
-[Программа](Android 2.3+) Sony Ericsson Home  - v.2.0.A.0.22 - мобильный лаунчер
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sony Ericsson Home  красивый и быстрый мобильный лаунчер, любезно предоставленный из нового Sony Ericsson Xperia active!
-
-Рабочий стол схож с тем, что был в предыдущих моделях, но все же есть некоторые отличия. На главном экране , по углам , помещаются полезные приложения для их быстрого запуска . В меню можно напрямую удалить приложение с помощью кнопки в правом нижнем углу. Простой, удобный и ничего лишнего.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

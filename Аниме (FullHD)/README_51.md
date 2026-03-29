@@ -1,3 +1,161 @@
+###  Публикация: 595114   (131210) от 30.12.2012
+
+Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кота после долгого отсутствия вернулся в приокеанский город, в котором живёт его двоюродная сестра и подруга детства Юка. Кота собирается учиться в местном колледже. И Юка, с ранних лет неравнодушная к нему, естественно, поступает туда же. Её семья предоставила парню жильё в здании бывшей небольшой гостиницы, при условии, что тот будет за ней присматривать и прибирать комнаты. Когда вечером пара прогуливалась по пляжу, из воды им навстречу вышла нагая девушка с огненными волосами и маленькими рожками, которая (   Читать дальше...   )Жанр: драма, фантастика, ужасы, эттиРежиссер: Камбэ МаморуПродолжительность: 00:25 x14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F86118D495E52E6824D84AE87B8DB9F2DEE3971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345040   (130986) от 08.12.2023
+
+Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [1995, TV, 29 из 29] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потеряв Основу, мир Цефира погружается в хаос. Миры, расположенные неподалёку, преследуя каждый свою цель, стремятся захватить разрушающийся мир, а неведомая сила, средоточие зла, используя момент, собирается вообще уничтожить вселенную. И лишь легендарные Рыцари-маги могут восстановить былое равновесие.Производство: TMS / トムス・エンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Хирано ТосикиПеревод: Жанна ТачёваЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 29 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345039   (130971) от 08.12.2023
+
+Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV, 20 из 20] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три восьмиклассницы – Хикару, Юми и Фу – были на экскурсии в Токийской телебашне. Неожиданно странная сила захватила девочек и увлекла их в загадочный мир. Там их встретил таинственный учитель Клеф, который наспех объяснил пришелицам, что те перенеслись на Сефиро по воле принцессы Эмералд. Принцесса – душа этого мира, его правительница и магическая заступница – оказалась (   Читать дальше...   )Производство: TMS / トムス・エンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Хирано ТосикиПеревод: Станислав ФроловЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 20 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824110   (128582) от 14.10.2025
+
+Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять столетий назад владыка тьмы Вельтоль правил Бессмертным королевством, но пал от руки героя. Теперь ему пришло время вернуться к жизни. Год 2099, цивилизация достигла небывалого технологического развития, и Вельтоль оказывается в футуристическом городе с небоскрёбами и неоновыми вывесками. Владыка тьмы может быть пережитком прошлого, но это не значит, что ему (   Читать дальше...   )Производство: Студия J.C. Staff, ЯпонияЖанр: приключения, фэнтезиРежиссер: Кай ХасакоПеревод: CrunchyRoll, Anilibria, SanaeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B868C0EE9C6AFA99DFE7EE209A14F5BF753226DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683631   (128451) от 11.12.2023
+
+Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассница Тамахи обеспокоена появлением у неё слуховых галлюцинаций и звона в ушах. В один из летних дней, когда девушка вместе со своими друзьями возвращалась из школы домой, она заметила какое-то движение у многоквартирного дома. Ребята подбежали к месту предполагаемого падения, однако никого там не нашли. Шокированной Тамахи показалось, что она услышала (   Читать дальше...   )Производство: ЯпонияЖанр: фэнтези, ужасы, детективРежиссер: Саку СакамотоПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 47 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F92C25B03F5DE6E73C429C95A59C82442C416A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823580   (125844) от 11.10.2025
+
+Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спасатели: Семь душ Рюдзиммару [2020, Web, 9 из 9] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125844.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гора Сукай в опасности, и Ватару снова здесь, чтобы спасти ее. Однако Рюджинмару был разбит на куски во время битвы с таинственным врагом «Добазудар»!
+Ватару впал в отчаяние, но внезапно он услышал голос Рюджинмару. Рюджинмару все еще жив! Затем Ватару видит видение горы Сокай, перевёрнутой вверх ногами.
+Это место называется «гора Мусокай», «мечта дракона» и находится (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фэнтезиРежиссер: Кодзина ХиросиПеревод: hokuto_sanЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 9 эп. по 20 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B370A0694117ED97DCACBF42667B4E202E53532E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823578   (125843) от 11.10.2025
 
 Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спасатели 3 [1997, TV, 51 из 51] BDRip 1080p HEVC 10-bit raw
@@ -6,7 +164,7 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125843.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125842.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125841.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125840.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125839.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125592.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ Tokyo Revengers: Tenjiku Hen | Tokyo Revengers: Tenjiku Arc | Токийские
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125115.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ Pokemon Concierge | Покемон: Консьерж [2023, TV, 4 эп.] WEB-DL 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125080.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123944.jpg" />
 </div>
 
 
@@ -242,7 +400,7 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123939.jpg" />
 </div>
 
 
@@ -268,7 +426,7 @@ Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123166.jpg" />
 </div>
 
 
@@ -294,7 +452,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Minai | Rascal Does Not Dream of 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123146.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ Shuumatsu no Walkure II | Record of Ragnarok II | Повесть о конце �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117819.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! | Мой «комплекс бр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117280.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Leve
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115914.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115913.jpg" />
 </div>
 
 
@@ -426,7 +584,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115912.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ Princess Principal: Crown Handler | Принцесса-шпионка: Укро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115901.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115895.jpg" />
 </div>
 
 
@@ -504,7 +662,7 @@ Tondemo Skill de Isekai Hourou Meshi | Campfire Cooking in Another World with My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115885.jpg" />
 </div>
 
 
@@ -515,165 +673,6 @@ Tondemo Skill de Isekai Hourou Meshi | Campfire Cooking in Another World with My
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ED51F5884B33C7C45C28A21497DE58B49B42902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702419   (115881) от 24.02.2024
-
-Gekijouban Psycho-Pass: Providence | Психопаспорт: Провидение [2023, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение трилогии фильмов "Психопаспорт 3: Первый инспектор".
-
-Дeйcтвиe opигинaльнoгo cepиaлa paзвopaчивaeтcя в нeдaлёкoм бyдyщeм, гдe cyщecтвyeт тexнoлoгия, пoзвoляющaя мoмeнтaльнo измepить и oцeнить личнocть и cocтoяниe paccyдкa чeлoвeкa (пoчти кaк cтpaницa в coцceти, тoлькo eщё быcтpee). Bcю пoлyчeннyю тaким oбpaзoм инфopмaцию зaпиcывaют и oбpaбaтывaют, (   Читать дальше...   )Производство: студия Production I.G / プロダクション・アイジーЖанр: приключенияРежиссер: Сиотани НаоёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D202496F435F8F47B90E5DD220C520741467C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459185   (115639) от 26.02.2024
-
-Horimiya | Хоримия [2021, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115639.jpg" />
-</div>
-
-
-###  Подробнее
-
-У старшеклассницы Кёко Хори, похоже, есть всё, что только можно пожелать, ведь она умница, красавица и любимица всего класса. Однако даже у идеальных на первый взгляд людей бывают секреты, и один такой есть у Хори: девушка страшно боится, что её одноклассники прознают о том, что вне стен школы она превращается в настоящую домохозяйку, на которую вечно пропадающие (   Читать дальше...   )Производство: Студия CloverWorksЖанр: комедия, романтикаРежиссер: Исихама МасасиПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DB178814B7EA41100FD974A89C81ED3D4D1DF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702754   (115576) от 26.02.2024
-
-Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito | Путешествие аристократа [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток Кадзуя Сиина погиб, спасая двух маленьких девочек от преступника, и переродился в мире меча и магии. Настоящая мечта! Хотя он помнит свою жизнь на Земле, теперь он Каин фон Силфорд, третий сын маркграфа. На свой пятый день рождения он проходит посвящение, знакомство с богами, которые благословляют его. Вот только благословения оказываются слишком сильными: (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Накамура НориюкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66250C4DDFFBB3E692025A0AA5DC6678FAE44B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702899   (115561) от 26.02.2024
-
-Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even at Level 1 | С особым навыком я имба даже на первом уровне [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уставший от невыносимой работы Рёта однажды просыпается в незнакомом подземелье. Он оказался в удивительном мире, где всё что угодно выпадает из монстров. Благодаря помощи незнакомки Эмили он узнаёт свои характеристики — они крайне низки, а его уровень ограничен первым. Решив было, что в новом мире его тоже ждут только лишения, он замечает свой рейтинг добычи ранга (   Читать дальше...   )Производство: студия Maho FilmЖанр: комедия, фэнтезиРежиссер: Янасэ ЮдзиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0262933C0B58CF987D73569B2266266D8F0BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702902   (115557) от 26.02.2024
-
-Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непризнанный школой владыка демонов [ТВ-2] [2023, TV, 12 из 24 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды могущественный Король Демонов Тирании Анос Вольдигод пожертвовал собой во имя установления мира между расами, решив переродиться через пару тысяч лет. И его план удался: реальность, в которой он очнулся, действительно стала куда более мирной. Правда, и её жители, не обременённые постоянными войнами, стали куда слабее и забыли многие простейшие заклинания, (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, фэнтезиРежиссер: Онума СинПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F292A244DDB5B244752F8987DB3BF898AE95AF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702747   (115552) от 26.02.2024
-
-Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades | Семь главенствующих мечей [2023, TV, 15 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115552.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Академию магии Кимберли пришла весна, а вместе с ней и партия новых учеников. Среди них через ворота престижной школы проходит один юноша в чёрном плаще, с белым посохом и мечом на поясе. Героя зовут Оливер, и ему придётся заручиться поддержкой девушки-самурая Нанао, чтобы пережить грядущие опасности в обманчивой и коварной академии.
-© crunchyrollПроизводство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Мацунэ МасатоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 15 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C45DF20C3B076B425129C2ACAAF6F24BBBFF397
 ```
 
 https://mybot314.ru/tekegram_catalog/

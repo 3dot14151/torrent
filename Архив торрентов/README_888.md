@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845103.jpg" />
+  <img src="Z:/picture/008/save_picture_845103.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845074.jpg" />
+  <img src="Z:/picture/008/save_picture_845074.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845057.jpg" />
+  <img src="Z:/picture/008/save_picture_845057.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ USDownloader 1.3.5.9 Portable (07.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845055.jpg" />
+  <img src="Z:/picture/008/save_picture_845055.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845054.jpg" />
+  <img src="Z:/picture/008/save_picture_845054.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845053.jpg" />
+  <img src="Z:/picture/008/save_picture_845053.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Allavsoft Video Downloader Converter 3.14.0.6275 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845051.jpg" />
+  <img src="Z:/picture/008/save_picture_845051.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Taxman - Scanners (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845050.jpg" />
+  <img src="Z:/picture/008/save_picture_845050.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Novaspace - Supernova (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845049.jpg" />
+  <img src="Z:/picture/008/save_picture_845049.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ The Upbeats - De-Evolution (2017) (Digital Album) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845047.jpg" />
+  <img src="Z:/picture/008/save_picture_845047.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845043.jpg" />
+  <img src="Z:/picture/008/save_picture_845043.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Hammock - Everything and Nothing (Delux) (2016) [FLAC|Lossless|WEB-DL|24Bit|trac
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845027.jpg" />
+  <img src="Z:/picture/008/save_picture_845027.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845026.jpg" />
+  <img src="Z:/picture/008/save_picture_845026.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ WinTools.net Premium 16.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845024.jpg" />
+  <img src="Z:/picture/008/save_picture_845024.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Roadmap Planner - Technology for planning business and life 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845018.jpg" />
+  <img src="Z:/picture/008/save_picture_845018.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Pig And Dan - Modular Baptism (2016) [MP3|320 кб/с] <Tech House, Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845008.jpg" />
+  <img src="Z:/picture/008/save_picture_845008.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Icecream Image Resizer 1.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844962.jpg" />
+  <img src="Z:/picture/008/save_picture_844962.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844961.jpg" />
+  <img src="Z:/picture/008/save_picture_844961.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Forsage: Running Speed Up (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844958.jpg" />
+  <img src="Z:/picture/008/save_picture_844958.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ ATMSSPHERO - VCVBTRVP VII (2015) [MP3|320 Kbps] <Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844957.jpg" />
+  <img src="Z:/picture/008/save_picture_844957.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Soft4Boost Document Converter 4.8.1.511 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844955.jpg" />
+  <img src="Z:/picture/008/save_picture_844955.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844952.jpg" />
+  <img src="Z:/picture/008/save_picture_844952.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844949.jpg" />
+  <img src="Z:/picture/008/save_picture_844949.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Advanced Renamer 3.75 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844947.jpg" />
+  <img src="Z:/picture/008/save_picture_844947.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844945.jpg" />
+  <img src="Z:/picture/008/save_picture_844945.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844941.jpg" />
+  <img src="Z:/picture/008/save_picture_844941.jpg" />
 </div>
 
 

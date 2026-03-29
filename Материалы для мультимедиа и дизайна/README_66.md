@@ -1,3 +1,411 @@
+###  Публикация: 1370042   (899936) от 25.03.2020
+
+Стили - Creative Market - 80s Text Effects Vol.1 - 3896626 [PSD, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простые и ретро-текстовые эффекты 1980-х годов »Этот графический ресурс дает вам быструю и простую возможность применить к вашему тексту высококачественный классический стили / ретро / футуристический / классический стиль 80-х годов. Вы можете использовать его на простой текст, формы и векторный логотип. Вам просто нужно заменить их в смарт-объекте вашего стиля. (   Читать дальше...   )Формат: PSD, ASLРазрешение файлов: 2000×1500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E0485E64EC17E975181369FDD0A73DE501476D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370015   (899881) от 25.03.2020
+
+Шаблоны - GraphicRiver - Landscape Book Mockup / Hardcover - 25692386 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макет альбома-книги с твердым переплетом.Формат: PSDРазрешение файлов: 3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E0B17417513B883EB81FAE6F8E813C890F3D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370036   (899857) от 25.03.2020
+
+Стили - GraphicRiver - Bright 3D Text Effect Mockup - 26011933 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркие 3D текстовые эффекты для ваших проектов!
+Этот графический ресурс дает вам быструю и простую возможность применить яркие цветные 3D-эффекты к вашему тексту или форме. Вы можете использовать его на текстах, фигурах или векторных логотипах. Вам просто нужно заменить их в смарт-объект вашего текстового макета.Формат: PSDРазрешение файлов: 4000x2750
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E3F6295D68B0BB747BD04DFB91676DA92FBDAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637573   (899346) от 31.03.2013
+
+Digital Juice - Print Design Elements (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Print Design Elements  - Библиотека элементов дизайна, состоящая из  многослойных Photoshop файлов высокого разрешения!
+Каждый набор имеет свой собственный комплекс сложных форм и текстурированных стилей. Эти забавные, красочные элементы помогут Вам решить абсолютно любые творческие задачи. Крутите, вертите, отключайте любой слой, анимируйте каждый слой (   Читать дальше...   )Разрешение файлов: - 5000x5000 300 dpi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100756   (899173) от 04.02.2017
+
+Векторный клипарт - Children Anniversary Labels [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте красивую поздравительную этикетку, открытку или просто картинку к Дню Рождения ребенка, близких друзей, родных или знакомых.Формат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D796A31149A588ECE5B1F8FB31E466DECF7E0CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100785   (899149) от 04.02.2017
+
+Векторный клипарт - Cartoon Dinosaurs Set 1-3 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлые забавные малыши - первоклассники будут от этого в восторге.Формат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E663E3613DF7F42E52988D28BC40BCCC5489FF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100535   (899035) от 04.02.2017
+
+Экшены - GraphicRiver - Gif Valentine Animated Snow Globe Action [ATN, ABR, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gif Valentine Animated Snow Globe - с помощью данного экшена, создайте идеальную анимированную картину, День Святого Валентина. Превратите вашу статическую фотографию в потрясающий эпизод со снежными и цветовыми эффектами, или добавьте анимацию и выберете направление падения снега.Формат: ATN, ABR, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9B4432E4B77B7C8F16B09FFF84742194CFA444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493105   (899001) от 01.09.2021
+
+Векторный клипарт - Trash Cans and Cleaning Utenstils [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+мусорные баки и чистящие средства
+5 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4C092679532FE8B4AB99DD9CDACCFA2F308C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493091   (898999) от 01.09.2021
+
+Векторный клипарт - Vector Animal Collection #9 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+животные
+25 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DDAF02C98130EC00B88BFD7D1A141237FCF0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493094   (898998) от 01.09.2021
+
+Векторный клипарт - Vector Animal Collection #10 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+животные
+25 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F034DF481830557A3C4AB97E1E276735DDEDD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493096   (898994) от 01.09.2021
+
+Векторный клипарт - Vector Animal Collection #12 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+животные
+25 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8D00156504C8F7B1D5F536167ADB8C1C366151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493117   (898926) от 01.09.2021
+
+Векторный клипарт - Seamless Floral Borders 54 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Узоры
+3 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680231D4F679AD8AA006EA28F0BE48C0DE89F0A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493138   (898870) от 01.09.2021
+
+Векторный клипарт - Various Isometric Buildings 26 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Различные изометрические здания
+3 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99955A07C5AD19CCD26BEA973D4E8E9DFDB877D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493139   (898867) от 01.09.2021
+
+Векторный клипарт - Various Isometric Buildings 27 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Различные изометрические здания
+3 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE72ECF5A3397C6223FF3D6387662B56DDBDAC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493082   (898860) от 01.09.2021
+
+Векторный клипарт - Vintage Calligraphic Dividers 35 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+узоры
+3 AI +PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1C1C43E564F03CF0C827EB1F8A353327962A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493125   (898847) от 01.09.2021
 
 Векторный клипарт - Seamless Floral Borders 57 [AI]
@@ -6,7 +414,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898847.jpg" />
 </div>
 
 
@@ -34,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898845.jpg" />
 </div>
 
 
@@ -60,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898787.jpg" />
 </div>
 
 
@@ -88,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898770.jpg" />
 </div>
 
 
@@ -116,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898759.jpg" />
 </div>
 
 
@@ -144,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898635.jpg" />
 </div>
 
 
@@ -172,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898568.jpg" />
 </div>
 
 
@@ -198,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898565.jpg" />
 </div>
 
 
@@ -224,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898494.jpg" />
 </div>
 
 
@@ -250,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898477.jpg" />
 </div>
 
 
@@ -277,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898261.jpg" />
 </div>
 
 
@@ -288,408 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E08A0B2BB99B74B62F487F58D0838698CD6914FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370090   (898249) от 26.03.2020
-
-3D модели - Cubebrush - HQ Residential House [FBX, UNITYPACKAGE]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898249.jpg" />
-</div>
-
-
-###  Подробнее
-
-HQ Residential House - это полностью интерактивный дом в американском стиле с возможностью ходить внутри, открывать двери, окна, шкафы и включать / выключать свет. Все эти функции доступны в версии пакета Unity.Формат: FBX, UNITYPACKAGE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6EC8FA92E545AFAB84690AEF14A1F0747859DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100950   (897704) от 05.02.2017
-
-Векторный клипарт - Wild animal and pet listening to music on headphones [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья наши меньшие тоже любят время от времени слушать музыку в наушниках.Формат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB5023F3226BB3D7B0B25A931022E6A84C8F965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761145   (897617) от 27.02.2014
-
-Векторный клипарт - Религиозные символы / World Religious Symbols [EPS,SVG]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Символы различных религий, их ответвлений и течений
-
-извиняюсь за косяк с надписями на превью, система слетела,вот на нюшке сижу, голой  :eek7: , без всех прог  :puppydogeyes: , скоро переставлю на Win 7 и все будет ОКФормат: EPS,SVG и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF1B370C92B9EBD0EAE4D1359114756BB4B6379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101010   (897464) от 05.02.2017
-
-Векторный клипарт - Эскиз иллюстрации домашних питомцев [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зарисовки карандашом любимых домашних питомцев: щенят, попугая и пони.Формат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63126EBA8F0CAE74B4096CE012B74F37DC575B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100911   (897457) от 05.02.2017
-
-Шрифты - GraphicRiver - Lower Ladle Font - 4265367 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это современный геометрический декоративный шрифт. Он является наиболее подходящим для заголовков всех размеров, идеально подходит для логотипов, плакатов и листовок.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2277E737EC75F04461F6BCD869EA4E4A270929F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100828   (897419) от 05.02.2017
-
-Векторный клипарт - Wild animal illustration from coffee splatter and splash [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый и эффектный пакет иллюстраций животных из кофе с всплесками и брызгами.Формат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2126D18AEA63B64A38D7EB7B8F1920E4241B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100920   (897370) от 05.02.2017
-
-Шрифты - Creative Market - Bootleggers font - 1178503 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897370.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Самогонщики" интересный шрифт в винтажном стиле. Он сделан из сильных прямых с мелкими и точными акцентами линий. Он имеет широкий спектр поддержки языков, в том числе Западной Европы, Славянские языки и т.д.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4297DC7BFA2BCF82B0F2D3764897F3854472F1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100536   (897336) от 05.02.2017
-
-Best Service - Chris Hein Solo Strings Complete v1.0 [En]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chris Hein Solo Strings Complete - Полная коллекция струнных инструментов,таких как : Solo Violin - Скрипка, Solo Viola - Альт, Solo Cello - Виолончель и Solo ContraBass - Контрабас . Каждый инструмент содержит свыше 10 000 семплов ,имеет 38 артикуляций , 4 типа легато и 8 динамических слоевЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924DC95CC670C19E58FAB18228415D19937E1EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100924   (897279) от 05.02.2017
-
-Экшены - GraphicRiver - Glossy Plastic Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glossy Plastic - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953EAD748F5CC707B59991FAA4ED099F6A562DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100914   (897269) от 05.02.2017
-
-Экшены - GraphicRiver - Mixed Graphics Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mixed Graphics - экшен для Вашего творчества.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB01DB6C0E6A1AD980B342C600D3C3C9BCBF9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091756   (897256) от 05.02.2017
-
-Шрифты - Astakhov Gzhel-2 / Астахов Гжель-2 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Количество / Штук: 2
-Разработчик: D. Astakhov
-
-Поддержка кириллицы: Есть (Русская, Украинская, Белорусская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C268D1C2CCACF19131C08CAB2B99F85EA0FDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493168   (897237) от 02.09.2021
-
-Векторный клипарт - Ripe fruit and berries in splash of milk or yogurt [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Спелые фрукты и ягоды в брызгах молока
-9 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64297E41383AA06B6C8C5FE8C197A5D2D25BC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493169   (897232) от 02.09.2021
-
-Векторный клипарт - Ornate Vintage Frames 59 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Изысканные старинные рамки
-3 AI +PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969A4049D05CF57E2A958B68E6105A5330ACDE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100907   (897218) от 05.02.2017
-
-Векторный клипарт - Хищные птицы - скопы, орлы, ястребы [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы вольные птицы; пора, брат, пора!
-Туда, где за тучей белеет гора,
-Туда, где синеют морские края,
-Туда, где гуляем лишь ветер... да я!..(   Читать дальше...   )Формат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22D2D2DF6D0E642EFA451F18E282D8A2FC6AD1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100962   (897190) от 05.02.2017
-
-Экшены - GraphicRiver - Gif Animated Ephemera Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gif Animated Ephemera - завораживающие вздымающиеся облака красочного дыма из вашего изображения. Сохраните как статическое изображение или анимированного GIF. Используйте изображения с разрешением 72 пикс./дюйм или больше и в диапазоне от 2000-4000 пикс.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813E5169963149E260CC910AA74DABC01C078EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

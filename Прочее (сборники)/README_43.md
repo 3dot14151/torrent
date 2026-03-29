@@ -1,3 +1,177 @@
+###  Публикация: 1199489   (800799) от 16.01.2018
+
+VA - Зайцев.Нет: Январь (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kenn Colt F & Nari & Milan  -  Come Back To Me  2:43
+02.  Didrick & Adam Young  -  Ready To Fly  3:10
+03.  SEREBRO  -  Новый год!  4:02
+04.  Enrique Iglesias & Bad Bunny  -  El Bano  3:48(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6AA6D7653A7179BAB610138ECFF10F06826D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385026   (800345) от 23.05.2020
+
+VA - The Official UK Top 40 Singles Chart 22.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaBaby Feat Roddy Ricch - ROCKSTAR
+02. Doja Cat - Say So
+03. Drake - Toosie Slide
+04. S1mba Feat DTG - Rover(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255D7A2170DE5B69757AEE7462051E5D5F8EBC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384839   (800287) от 23.05.2020
+
+VA - Summer Hits Rewind (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800287.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Major Laze - Lean On (feat. MØ & DJ Snake) (2:56)
+2. Avicii - Wake Me Up (4:07)
+3. Justin Timberlake - CAN'T STOP THE FEELING! (Original Song from DreamWorks Animation's "TROLLS") (3:56)
+4. Daft Punk - Get Lucky (Radio Edit) (4:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2582C88F3F3C884FB3C89B6DCC25340E2575E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384935   (800286) от 23.05.2020
+
+VA - Music News vol.6 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmet Kilic - Forever (04:08)
+ 02. Amber Van Day - Kids In The Corner (VIP Remix) (02:27)
+ 03. Ardian Bujupi - Modela (02:34)
+ 04. Daasha - Вспышками (02:59)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF67798AB16D7A8725803800109001347041B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385001   (800271) от 23.05.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 22.05.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doja Cat - Say So 3:58
+02. The Weeknd - Blinding Lights 3:22
+03. SAINt JHN - Roses (Imanbek Remix) 2:56
+04. Little Big - UNO 2:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89685F36F1E6F59919AF536E349F5F76E12FA122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121343   (800239) от 02.04.2017
+
+VA - Русское Радио - Лучшие Хиты Март (2017) [MP3|320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Френды и Саша Спилберг - Буду всегда с тобой  4:11
+02.  Денис Майданов - Что оставит ветер  4:17
+03.  Мот и Ани Лорак - Сопрано  3:30
+04.  Родион Газманов - Парами  3:29(   Читать дальше...   )Жанр: ПопПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C711450288E4F172B00933EC54715D75317C825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384992   (800206) от 23.05.2020
 
 VA - 100 Greatest Male Voices (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
@@ -6,7 +180,7 @@ VA - 100 Greatest Male Voices (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800206.jpg" />
+  <img src="Z:/picture/008/save_picture_800206.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Music News vol.5 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800199.jpg" />
+  <img src="Z:/picture/008/save_picture_800199.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Radio Monte Carlo (2018) [MP3|320 Kbps] <Electronic, House, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800149.jpg" />
+  <img src="Z:/picture/008/save_picture_800149.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - 100 Greatest Female Voices (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800129.jpg" />
+  <img src="Z:/picture/008/save_picture_800129.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.59
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799952.jpg" />
+  <img src="Z:/picture/008/save_picture_799952.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Дискотека 80-90-2000 По-Новому (Зарубежный Вы�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799950.jpg" />
+  <img src="Z:/picture/008/save_picture_799950.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Дискотека 2020 Dance Club Vol.200 от NNNB [MP3|320 Kbps] <Pop, D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799799.jpg" />
+  <img src="Z:/picture/005/save_picture_799799.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Spring Party European EDM (2017) [MP3|320 Kbps] <Electro, Dance, Club House
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799667.jpg" />
+  <img src="Z:/picture/008/save_picture_799667.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Italo Disco Hits Vol.12 (2017) [MP3|320 Kbps] <Disco, Italo-Disco, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799623.jpg" />
+  <img src="Z:/picture/008/save_picture_799623.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799399.jpg" />
+  <img src="Z:/picture/008/save_picture_799399.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799370.jpg" />
+  <img src="Z:/picture/008/save_picture_799370.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - ЕвроХит Топ 40 Europa Plus Итоги Года 2018 [MP3|320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799361.jpg" />
+  <img src="Z:/picture/008/save_picture_799361.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ VA - Ремейки и каверы NNM 3 (2021) [MP3|320 Kbps] <Pop, Dance, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799294.jpg" />
+  <img src="Z:/picture/008/save_picture_799294.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - Beatport Trance  Pack (04.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799256.jpg" />
+  <img src="Z:/picture/008/save_picture_799256.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Хитовая Автодискотека 50х50 (2017) [MP3|320 Kbps] <Hou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799171.jpg" />
+  <img src="Z:/picture/008/save_picture_799171.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - Halloween Party (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799129.jpg" />
+  <img src="Z:/picture/008/save_picture_799129.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - Halloween Songs (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799128.jpg" />
+  <img src="Z:/picture/008/save_picture_799128.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Жирные Хиты Осени Remix NNM (2021) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798949.jpg" />
+  <img src="Z:/picture/008/save_picture_798949.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ VA - Свежаки Осени Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798391.jpg" />
+  <img src="Z:/picture/008/save_picture_798391.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Октябрь) (2021) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798390.jpg" />
+  <img src="Z:/picture/008/save_picture_798390.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Октябрь) (2021) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13D8948C012546E6FAFA08F1431112BD43DE8E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385374   (797865) от 24.05.2020
-
-VA - Music News vol.7 (2020) [MP3|320 Kbps] <Rock, Pop, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3D - Can We Have (02:24)
- 02. 7раса -  Любовь сбивающая с ног (03:41)
- 03. 7раса -  Масло (03:37)
- 04. 7раса -  Обезьяньи куплеты (03:45)(   Читать дальше...   )Жанр: Rock, Pop, SoulПродолжительность: 03:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13208BFE3C7DB33FBADD03A5EA187D50EA7EA092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385286   (797769) от 24.05.2020
-
-VA - Slow Rock Songs 70s 80s 90s (2020) [MP3|320 Kbps] <Pop, Rock, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad English - When I See You Smile
-02. Extreme - More Than Words
-03. Mr. Big - To Be With You
-04. 4 Non Blondes - What's Up?(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 03:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C424836DF44B3F0E19C10EA15DCA7B3B4BA86BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385375   (797686) от 24.05.2020
-
-VA - не Громкие новинки недели 68 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797686.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. BrainStorm - Ночная Смена (3:31)
-2. Captown - Последний День (3:25)
-3. Daasha - Вспышками (2:58)
-4. Danial - Девочки (4:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA98D17310DDCDB32CC325BD22AC218AB8D1858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009825   (797591) от 26.04.2016
-
-Дід J Панас - Розслабся - не парся! ( Megamix) (2016) [MP3|320 кб/с] <Dance Pop, Pop Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797591.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Інтро Дід Панас
-2.	Софiя Ротару - Одна Калина - 10A or 5A
-3.	Танок На Майдані Конго - Viva, Україна (We Will Rock You) - 4A or 7B
-4.	Ot Vinta - Шабелина - 8A(   Читать дальше...   )Жанр: Dance Pop, Pop RockПродолжительность: 00:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DEEB14B95A67CA994D5FA25B95E01074681004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199846   (797490) от 18.01.2018
-
-VA - Cosmotronica & Space Disco Vol.6 (2018) [MP3|320 Kbps] <Synthwave, Ambient, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Earmake  -  In Your Dreams  3:15
-02.  Liquid Crystal  -  Floating With Treasures  5:04
-03.  York & DreamMan  -  Moonrise On The Beach (Vokoss Ambient Trance Symphony)  6:46
-04.  Playme  -  The Silver Tree (Bart Panco Remix)  4:58(   Читать дальше...   )Жанр: Synthwave, Outrun, Retrowave, Chillout, Ambient, HouseПродолжительность: 05:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD166D2BFFA7F74D3C79840001A30349F45367A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199843   (797239) от 18.01.2018
-
-VA - Дискотека 2018 Dance Club Vol.173 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Synth Pop, Dance и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01.  Pade  -  The Olive (In The Air Tonight) (Original Mix)  3:26
-02.  Blasterjaxx & Olly James  -  Phoenix  3:47
-03.  A-Mase & Sharliz  -  Зима в сердце (Deep Radio Mix)  3:52(   Читать дальше...   )Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 16:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEA4ED4E747ABBEECECB39948906A2AC4FDF16A
 ```
 
 https://mybot314.ru/tekegram_catalog/

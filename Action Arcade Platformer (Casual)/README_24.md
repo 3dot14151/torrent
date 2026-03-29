@@ -1,3 +1,55 @@
+###  Публикация: 1750861   (42735) от 22.09.2024
+
+Gimmick! 2 (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gimmick! 2 - это платформер, рассказывающий о приключениях Юметаро, зеленого йокая, который отправляется в новый поход, полный испытаний, врагов и спрятанных сокровищ. Адвенчура основана на физике, в ней геймеры могут решать головоломки, обманывать врагов и экспериментировать с уникальными способностями Юметаро. Звезда Юметаро - ключ к его успеху. Эту мощную звезду (   Читать дальше...   )Тип издания: SceneРазработчик: Bitwave GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E01A68D9C3FA632CDF85A93E8751F99CD2DF8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750892   (42731) от 22.09.2024
+
+Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы очнулись в криокапсуле и поняли, что попали в будущее. Вы не знаете, кто вы. Известно лишь три факта: у вас есть кибернетическая нога, мяч и противники! Освойте новое оружие, исследуйте странный подземный мир и попытайтесь сбежать от этого постапокалиптического безумия. Footgun: Underground предлагает уникальное испытание! У вас не будет пистолетов, мечей или (   Читать дальше...   )Тип издания: LicenseРазработчик: Turtle Knight GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2676646518CFD1A89CC9214CE68AEB8D90F2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751269   (42557) от 24.09.2024
 
 Grapple Dogs: Cosmic Canines (2024) [Multi] (1.0.2) Scene Tenoke
@@ -6,7 +58,7 @@ Grapple Dogs: Cosmic Canines (2024) [Multi] (1.0.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42557.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Iron Meat (2024) [Ru/Multi] (1.0.2) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42142.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tribal Hunter (2022) [Ru/Multi] (1.0.2.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41957.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Gravity Circuit (2023) [Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41653.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Steredenn: Binary Stars (2015) [Ru/Multi] (2.7.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41639.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41091.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40934.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cash Cow DX (2024) [En] (1.1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40564.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40506.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40417.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40412.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.10/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40314.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Waveform (2012) [Multi] (1.0/dlc) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40111.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Slave Zero X (2024) [Ru/Multi] (1.05/dlc) License GOG [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39444.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ The Great Rebellion (2024) [Multi] (1.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39219.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack FitGirl [Complet
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38309.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38295.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Speedollama (2024) [Ru/Multi] (1.4.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37781.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ CATO: Buttered Cat (2024) [Ru/Multi] (1.1.528) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37690.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37532.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.512/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37496.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Funko Fusion (2024) [Ru/Multi] (1.2.10.143142/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36415.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Karate Survivor (2024) [Ru/Multi] (1.0.2.239/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36264.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (1029101748) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35401.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ METAL SLUG - классический экшен-шутер, сохраняющ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:063576A9533107D6CE569617D763C499276248AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731752   (35054) от 06.12.2024
-
-METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (Reika Update) Scene SKIDROW
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35054.jpg" />
-</div>
-
-
-###  Подробнее
-
-METAL SLUG - классический экшен-шутер, сохраняющий свою детализированную пиксельную 2D-графику, но теперь в жанре «защита башни» с простейшим управлением! Помогите знакомым персонажам развиться и соберите мощную колоду. Используйте всевозможные стратегии, чтобы поразить базы противника! Игра включает в себя режим истории «ANOTHER STORY», созданный для фанатов истории (   Читать дальше...   )Тип издания: SceneРазработчик: SNK CORPORATIONЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0687CACC457D215D38A4C16A7E60A43F80F8247C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764244   (35029) от 06.12.2024
-
-Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наполненная смешными элементами, стремительным действием, разнообразными улучшениями и оружием, и огромной дозой юмора, Speedollama обещает развлечь игроков всех возрастов. Визуальный стиль игры выполнен в пиксель-арт, чтобы передать ретро-аркадную эстетику, напоминающую игры конца 80-х и начала 90-х годов. Вдохновленная классическими играми, такими как Metal Slug (   Читать дальше...   )Тип издания: RepackРазработчик: Chaosmonger StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5CD001FA7CE007DB90643E743BB12B2B1756F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

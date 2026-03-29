@@ -1,3 +1,111 @@
+###  Публикация: 1252934   (387912) от 07.10.2018
+
+Fantastical 2 v2.5.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantastical 2 - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного гоступа к приложению iCal, что несомненно удобно в процессе ежедневной работы. Основным отличием от аналогичных программ такого типа, является возможность добавления события на естественном (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2018Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEF732CDED1DEF375875B5AF2DCC9CCE07D624C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067604   (387833) от 29.10.2016
+
+Privatus 5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privatus  - автоматизированная защита конфиденциальности
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 октября 2016Разработчик: SweetP Productions.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF4A08A7DD3C65878F0B9537E4B5AFF14DD4345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252935   (387589) от 07.10.2018
+
+Permute 2 v2.5.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 03.10.2018Разработчик: Krystof VasaПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBEB9D41F169D376BE04A837DEAB0B7C9278AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326065   (387561) от 19.09.2019
+
+Yate 5 v5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.09.2019Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5ED66F5BC1415DC3B6C5BAFCBE5C2A905A699C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326219   (387560) от 19.09.2019
 
 EverWeb 3.0.2 [En]
@@ -6,7 +114,7 @@ EverWeb 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387560.jpg" />
+  <img src="Z:/picture/008/save_picture_387560.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ GlueMotion 1.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387559.jpg" />
+  <img src="Z:/picture/008/save_picture_387559.jpg" />
 </div>
 
 
@@ -62,7 +170,7 @@ Sync Checker 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387558.jpg" />
+  <img src="Z:/picture/008/save_picture_387558.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ Translatium 9 v9.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387557.jpg" />
+  <img src="Z:/picture/008/save_picture_387557.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Tap Forms Organizer 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387535.jpg" />
+  <img src="Z:/picture/008/save_picture_387535.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ Sidify Apple Music Converter 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387525.jpg" />
+  <img src="Z:/picture/008/save_picture_387525.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ Elmedia Player Pro 6.13 (1435) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387471.jpg" />
+  <img src="Z:/picture/008/save_picture_387471.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Twitterrific 5 v5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387449.jpg" />
+  <img src="Z:/picture/008/save_picture_387449.jpg" />
 </div>
 
 
@@ -225,7 +333,7 @@ WebToLayers 1.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387447.jpg" />
+  <img src="Z:/picture/008/save_picture_387447.jpg" />
 </div>
 
 
@@ -251,7 +359,7 @@ Grids for Instagram 5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387445.jpg" />
+  <img src="Z:/picture/008/save_picture_387445.jpg" />
 </div>
 
 
@@ -278,7 +386,7 @@ SnapMotion 4.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387443.jpg" />
+  <img src="Z:/picture/008/save_picture_387443.jpg" />
 </div>
 
 
@@ -307,7 +415,7 @@ MetaImage 1.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387441.jpg" />
+  <img src="Z:/picture/008/save_picture_387441.jpg" />
 </div>
 
 
@@ -335,7 +443,7 @@ RightFont 5 v5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387437.jpg" />
+  <img src="Z:/picture/008/save_picture_387437.jpg" />
 </div>
 
 
@@ -362,7 +470,7 @@ Bumpr 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387429.jpg" />
+  <img src="Z:/picture/008/save_picture_387429.jpg" />
 </div>
 
 
@@ -389,7 +497,7 @@ ExactScan Pro 19.9.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387427.jpg" />
+  <img src="Z:/picture/008/save_picture_387427.jpg" />
 </div>
 
 
@@ -415,7 +523,7 @@ Synalyze It! Pro 1.23.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387425.jpg" />
+  <img src="Z:/picture/008/save_picture_387425.jpg" />
 </div>
 
 
@@ -444,7 +552,7 @@ iFinance 4 v 4.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387423.jpg" />
+  <img src="Z:/picture/008/save_picture_387423.jpg" />
 </div>
 
 
@@ -470,7 +578,7 @@ Postbox 7 v7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387422.jpg" />
+  <img src="Z:/picture/008/save_picture_387422.jpg" />
 </div>
 
 
@@ -496,7 +604,7 @@ SQLEditor 3 v3.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387419.jpg" />
+  <img src="Z:/picture/008/save_picture_387419.jpg" />
 </div>
 
 
@@ -522,7 +630,7 @@ AnyTrans 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387361.jpg" />
+  <img src="Z:/picture/008/save_picture_387361.jpg" />
 </div>
 
 
@@ -549,7 +657,7 @@ KCNcrew Pack 09-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387314.jpg" />
+  <img src="Z:/picture/008/save_picture_387314.jpg" />
 </div>
 
 
@@ -575,7 +683,7 @@ Allegorithmic Substance Painter 2019.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387307.jpg" />
+  <img src="Z:/picture/008/save_picture_387307.jpg" />
 </div>
 
 
@@ -586,110 +694,6 @@ Substance Painter - совершенно новое решение для 3D-р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2975EAB3DE0DBB62FB62AE30EB203C3044F40D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326132   (387302) от 19.09.2019
-
-Movavi PDF Editor 2.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для редактирования PDF на Mac сложно подобрать подходящую программу: онлайн-сервисы не стоит использовать для обработки конфиденциальной информации, бесплатные приложения часто «глючат» и не содержат нужных функций, а платный редактор PDF для Mac может стоить, как крыло самолета. Поэтому было создано функциональное приложение, которое позволит редактировать PDF на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2019Разработчик: MovaviПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721043C9694E17173B3196C8E2ACDC02C4526DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326262   (387173) от 19.09.2019
-
-Paintstorm Studio 2.42 (build 170919) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paintstorm Studio – незаменимый инструмент для художников, созданный не только для простых скетчей, но и для работ любой сложности, жанра и техники. Paintstorm Studio полностью раскрывает все возможности Apple Pencil и выводит вас на по-настоящему новый уровень рисования. Создание шедевров искусства цифровой живописи еще никогда не было настолько мобильно и доступно. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2019Разработчик: paintstormstudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50D5AA427B0A794EE03DC07639D90FED330EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067539   (387122) от 29.10.2016
-
-SteerMouse 5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387122.jpg" />
-</div>
-
-
-###  Подробнее
-
-SteerMouse — продвинутый драйвер для USB и Bluetooth мышек, позволяющий присваивать их кнопкам дополнительные функции. Обладатели Mighty Mouse, а также манипуляторов от сторонних изготовителей могут увеличить производительность работы, используя новые возможности мышки: переключение приложений, нажатие горячих клавиш, быстрое наведение курсора на кнопки и многие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2016Разработчик: plentycomПоддерживаемая ОС: OS X 10.6  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83FACF56A4A5731D6CF01E866A69757E92AB05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174248   (386948) от 14.10.2017
-
-Movavi Slideshow Maker 3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу на русском языке. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2017Разработчик: MovaviПоддерживаемая ОС: OS X 10.6.0 или более новаяЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC148E25EBB905F71C78F0ADC793EF73205E718
 ```
 
 https://mybot314.ru/tekegram_catalog/

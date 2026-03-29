@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659264.jpg" />
+  <img src="Z:/picture/008/save_picture_659264.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658495.jpg" />
+  <img src="Z:/picture/008/save_picture_658495.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657841.jpg" />
+  <img src="Z:/picture/008/save_picture_657841.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656492.jpg" />
+  <img src="Z:/picture/008/save_picture_656492.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655447.jpg" />
+  <img src="Z:/picture/008/save_picture_655447.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655441.jpg" />
+  <img src="Z:/picture/008/save_picture_655441.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652402.jpg" />
+  <img src="Z:/picture/008/save_picture_652402.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652266.jpg" />
+  <img src="Z:/picture/008/save_picture_652266.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652252.jpg" />
+  <img src="Z:/picture/008/save_picture_652252.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651357.jpg" />
+  <img src="Z:/picture/008/save_picture_651357.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650131.jpg" />
+  <img src="Z:/picture/008/save_picture_650131.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648402.jpg" />
+  <img src="Z:/picture/008/save_picture_648402.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648264.jpg" />
+  <img src="Z:/picture/008/save_picture_648264.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647441.jpg" />
+  <img src="Z:/picture/008/save_picture_647441.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647317.jpg" />
+  <img src="Z:/picture/008/save_picture_647317.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647214.jpg" />
+  <img src="Z:/picture/008/save_picture_647214.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647070.jpg" />
+  <img src="Z:/picture/008/save_picture_647070.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646491.jpg" />
+  <img src="Z:/picture/008/save_picture_646491.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646480.jpg" />
+  <img src="Z:/picture/008/save_picture_646480.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645131.jpg" />
+  <img src="Z:/picture/008/save_picture_645131.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645124.jpg" />
+  <img src="Z:/picture/008/save_picture_645124.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645117.jpg" />
+  <img src="Z:/picture/008/save_picture_645117.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644651.jpg" />
+  <img src="Z:/picture/008/save_picture_644651.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642804.jpg" />
+  <img src="Z:/picture/008/save_picture_642804.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640893.jpg" />
+  <img src="Z:/picture/008/save_picture_640893.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640882.jpg" />
+  <img src="Z:/picture/008/save_picture_640882.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1630647   (199084) от 01.05.2023
+
+Загадочный сигнал из космоса / Mystery Signal from Space (2018) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высоко в горах Западной Вирджинии располагается обсерватория Грин-Бэнк, оснащенная самым большим в мире подвижным радиотелескопом. Не так давно Грин-Бэнк приняла серию таинственных радиосигналов из космоса. Что это: странный природный феномен или послание от инопланетной цивилизации?Производство: США, CuriosityStreamЖанр: документальный, научно-популярный, космосРежиссер: Майкл МавретикПеревод: двхголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3305241B327F609867DF0CA4F169B25282D1F072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630639   (199074) от 01.05.2023
+
+Множественные миры в квантовой механике / The Many Worlds of Quantum Mechanics (2019) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теория о возможности существования параллельных реальностей — или множественной Вселенной — появилась совсем недавно, хотя вы наверняка читали о подобном в комиксах или научно-фантастических книгах. В этом фильме мы расскажем, как зарождалась эта теория, и как она связана с квантовой механикой и философией.Производство: США, Rockhound ProductionЖанр: документальный, начуно-популярныйРежиссер: Стивен УилкинсонПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1F804892E33218FD1DFCD8FF34860D69D910BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631250   (198955) от 04.05.2023
+
+Как люди (яЧеловек) / iHuman (2019) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Мир будущего
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллект - это способность понимать. Мы передали свое знание машинам, искусственный интеллект быстро развивается и некоторые боятся, что это породит много непредвиденных проблем: мы с ним не сладим. Успех в создании искусственного интеллекта будет величайшим событием в истории человечества, к несчастью, возможно, и последним. Алгоритмы искусственного разума уже (   Читать дальше...   )Производство: Норвегия, Дания, Франция, UpNorth Film, Think-Film Impact Production, Made in Copenhagen, ARTE, ZDFЖанр: документальный, исследованияРежиссер: Тонье Хессен ШейПеревод: одноголосый профессиональный (перевод Марии Никоновой)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C15DB953026C97EEAA567C2CE58E35C3E9ED365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631018   (198933) от 03.05.2023
+
+Космический секрет / The Cosmic Secret (2019) WEB-DLRip [H.264/1080p] [VO]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198933.jpg" />
+</div>
+
+
+###  Подробнее
+
+С незапамятных времён человечество смотрело на звёзды в поисках ответов, чтобы открыть наше происхождение. Мы толковали пророчества в надежде предопределить наше будущее. Кто мы такие? Почему мы здесь и какова наша судьба? Автор бестселлеров и известный исследователь Дэвид Уилкок объединяет обширную базу знаний, чтобы представить альтернативную человеческую историю, (   Читать дальше...   )Производство: США, SBA entertainmentЖанр: документальный, научно-популярныйРежиссер: Кори Гуд, Роджер РичардсПеревод: одноголосый любительский (Перевод: Антон Б.)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D495CD71D41EE208EECB53CBF641706588BB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631903   (198828) от 07.05.2023
 
 Мифологические существа / Criaturas Legendarias (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 6) (обновляемая)
@@ -6,7 +110,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198828.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198560.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198239.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197884.jpg" />
+  <img src="Z:/picture/004/save_picture_197884.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197876.jpg" />
+  <img src="Z:/picture/004/save_picture_197876.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197810.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197462.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197360.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197323.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197310.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197293.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197268.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG. Первый император: секреты китайской гроб�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197249.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197212.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197099.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196856.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ NG. Акула против тунца / Shark vs Tuna (2018) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196715.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Discovery. Канализационные водолазы / Sewer Divers / (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196625.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ NG. Затонувшая субмарина фашистов / Nazi Sunken Sub (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196531.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ BBC: Тайны Бермудского треугольника / The Bermuda Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196491.jpg" />
+  <img src="Z:/picture/004/save_picture_196491.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ NG. Арабские Эмираты с высоты птичьего полёт�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196410.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196167.jpg" />
+  <img src="Z:/picture/004/save_picture_196167.jpg" />
 </div>
 
 
@@ -563,111 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:036D112902ADEB5E3B46704984371EFE6560763A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646049   (195856) от 12.07.2023
-
-Неизведанное: Роботы-убийцы / Unknown: Killer Robots (2023) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что происходит, когда машина принимает решения о жизни и смерти? Этот документальный фильм рассказывает об опасностях, связанных с военным применением искусственного интеллекта.Производство: США, Netflix, Story SyndicateЖанр: документальный, военные технологииРежиссер: Джесси СуитУчастники: Джон Бардин, Мала Чаппл, Дэн Коган, Лиз Гарбус,Перевод: многоголосый профессиональный (HDRezka Studio)Язык озвучки: русскийСубтитры: русские (forced, HDRezka, full), английскиеПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8601A048F3B6F64A9D88B01C095F6FDC85924DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408915   (195674) от 16.07.2023
-
-Биосфера. Законы жизни (Смерть) (2018) WEBRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему одни задерживаются в этой жизни дольше других... и зачем природа придумала смерть? Ответив на эти вопросы, мы выведем шестой закон биосферы. Наша планета населена огромным количеством живых организмов. Только животных за всю историю Земли насчитывается около 2 миллиардов видов. А сколько на ней обитало и обитает сейчас растений, водорослей, грибов, лишайников, (   Читать дальше...   )Производство: Россия, ООО "ЕМГ"Жанр: Документальный, познавательный, научно-популярныйРежиссер: Алексей ЧукаревУчастники: Андрей ШестаковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4C70CBE7EC348138EBF0C35E1C89885384BE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537582   (195477) от 18.07.2023
-
-PBS: Американский опыт: Осуждение Роберта Оппенгеймера / The American Experience: The Trials of J. Robert Oppenheimer (2009) HDTVRip [Сезон 21: эпизод 1]
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский опыт (The American Experience), документальный сериал, освещающий наиболее интересные события американской истории.
-Биография Роберта Оппенгеймера – одной из ключевых и неоднозначных фигур в американской науке ХХ столетия. Номинант Оскара, актер Дэвид Стрэтэйрн («Доброй ночи и удачи», «Ультиматум Борна») исполняет роль Роберта Оппенгейма. В фильм также (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Дэвид ГрубинУчастники: Дэвид СтретхернПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: АнглийскийПродолжительность: 01:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCABE69F65ACD66BE0D3A665676CFC0514D970AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646094   (195322) от 24.07.2023
-
-NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2023) WEB-DLRip [H.264/720p-LQ] (сезон 23, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реконструкция реальных воздушных катастроф, интервью с авиационными специалистами и очевидцами происшествий.Производство: Канада, Cineflix Productions, Galaxie Productions, NF Inc.Жанр: документальный, история, катастрофыРежиссер: Тим Волочатюк, Mark Mainguy, Джордж Д’АматоУчастники: Джонатан Арис, Стивен Богерт, Джон Кокс, Джон Дж. Нэнс, Грегори Файт, Robert Benzon, Ron Schleede, Bob Macintosh, Tom Haueter, David Learmount и др.Перевод: Двухголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: каждая серия ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AB66CE2B3ECB9C4772FB68069636637B029659
 ```
 
 https://mybot314.ru/tekegram_catalog/

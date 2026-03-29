@@ -1,3 +1,57 @@
+###  Публикация: 486088   (89825) от 21.04.2012
+
+Военный дневник 1940-1943 / War Diary 1940-1943 (1985) DVDRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редчайшая военная кинохроника, охватывающая происходящие события на всех основных фронтах в 1940-1943 годах, снятая кинооператорами Франции, Германии, Италии, Японии, Англии, СССР и США.Жанр: ДокументальныйПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747336C8D34CFD62B1DDB68EEE23BE68869A5951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474459   (85087) от 29.03.2012
+
+Провал Канариса (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм - об истории противостояния разведок двух сверхдержав периода Второй мировой войны: СССР и Германии. О том, как военной разведке Германии удалось подготовить вторжение в СССР и обеспечить быстрый прорыв гитлеровских войскам. Абвер, который успешно готовил диверсантов и занимался разведкой, не смог выяснить главного - военно-оборонный потенциал Советского Союза.
+Но почему же стратегия блицкрига потерпела серьезное поражение? Для нацистских главарей сопротивление советского народа и Красной Армии оказалось шоком. А Гитлер обвинил в провале разведку. Например, совершенно неожиданным и для фашистского командования и Абвера стало контрнаступление советских войск под Сталинградом 19 ноября 1942 года. Абвер не смог выяснить, что получаемые руководством важнейшие сведения - дезинформация советского агента Макса. В результате недоработки ведомства Канариса - полный разгром армии генерала Паулюса.
+Абвер не смог выявить множества резидентов, работавших против фашистского руководства. Не принесли успеха и операции (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Алексей ШамраевФормат: AVIПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB7D6F15BE603FC3E42476110429EFB5A835795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776473   (71279) от 01.02.2025
 
 Ночь и туман / Nuit et brouillard / Night and Fog (1956) BDRip [H.264/720p] [VO] [Criterion Collection]
@@ -6,7 +60,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71279.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71120.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ History Channel. Нацисты на наркотиках: Гитлер и бл�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59094.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57862.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57039.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56907.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55145.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54111.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52493.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52453.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45850.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44333.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41811.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38551.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38433.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ NG: Война генералов. Битва за Курск / Generals at War.
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36847.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35560.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35500.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33532.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30492.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30462.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29638.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29637.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29619.jpg" />
 </div>
 
 
@@ -624,61 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0465FD0F39B033707401DA9F60CE723592AE777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775724   (29003) от 01.02.2025
-
-Ночь и туман / Nuit et brouillard / Night and Fog (1956) BDRemux [H.264/1080p] [VO] [Criterion Collection]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-эссе о фашистских концлагерях. Документальный фильм, посвящённый гитлеровским лагерям уничтожения.
-«”Ночь и туман” по сценарию Ж. Кейроля, музыка Г. Эйслера, — выдающийся документ о преступлениях фашизма, документ совести, тревоги, документ пробуждения ответственности за то, чтобы это больше не повторилось…» (К. Долгов. Память и забвение. // Ален Рене — М.: (   Читать дальше...   )Телекомпания: Франция / Argos FilmЖанр: документальный, военный, историяРежиссер: Ален РенеУчастники: Мишель Буке, Рейнхард Гейдрих, Юлиус ШтрейхерПеревод: Одноголосый закадровый (Bezkartuza)Язык озвучки: Русский, ФранцузскийСубтитры: Русские (full), английскиеПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954606426DFAB13DCB71959C9D9687A410624EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776375   (28911) от 02.02.2025
-
-Вторая мировая война — день за днём (2005) DVDRip [H.264] (серии 1-96 из 96)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28911.jpg" />
-</div>
-
-
-###  Подробнее
-
-60-летию Великой Победы посвящен цикл телевизионных публицистических фильмов «Вторая мировая. День за днем». Фильм рассказывает о временном промежутке 1 сентября 1939 — 2 сентября 1945. Каждая из 96 серий фильма – один месяц II-ой мировой войны.
-В фильме использована уникальная хроника военных лет, в том числе, из личного архива Сталина.
-Некоторые документальные (   Читать дальше...   )Производство: Россия, ООО студия "Надежда"Жанр: документальный, военный, история, хроникаРежиссер: Галина Ясногородская, Ольга Адрианова, Михаил МихеевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 96 серий ~ по 26 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B4503CB4BBB766284FF66B551706880D907A69
 ```
 
 https://mybot314.ru/tekegram_catalog/

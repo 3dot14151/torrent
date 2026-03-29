@@ -1,3 +1,114 @@
+###  Публикация: 1180280   (340137) от 04.11.2017
+
+Gestimer 1.1.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gestimer. Создавайте быстрые напоминания на OS X простым перетаскиванием курсора
+Вы постоянно проверяете время, потому что вы не хотите забыть, чтобы выйти из дома через 10 минут, чтобы забрать детей в 4 вечера или выключить плиту через 3 минуты? С Gestimer вы можете создавать такие краткосрочные напоминания быстро и легко.
+
+Gestimer красивое приложение для вашего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 ноября 2017Разработчик: Tuan Anh NguyenПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B9AA60E0B3E9BA763783CC57C1A4C46E4082F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419547   (340132) от 28.10.2020
+
+Xliff Editor 2.8.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff!
+
+Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский? Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC910B0404A7D97108E7C47988A748E0F53BF2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419544   (340131) от 28.10.2020
+
+Middle 1.5.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0B86FCB8450954CDCFEBE759CD720453ECDB47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419444   (340129) от 28.10.2020
+
+Posterino 3 v3.8.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
+
+Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CF7709D30CD881D25DD4D2A8F0790D2B7588A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419449   (340123) от 28.10.2020
 
 VideoDuke 1.13 [En]
@@ -6,7 +117,7 @@ VideoDuke 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340123.jpg" />
+  <img src="Z:/picture/008/save_picture_340123.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340121.jpg" />
+  <img src="Z:/picture/008/save_picture_340121.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ URL Manager Pro 5.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340120.jpg" />
+  <img src="Z:/picture/008/save_picture_340120.jpg" />
 </div>
 
 
@@ -89,7 +200,7 @@ Elmedia Player Pro 7.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339989.jpg" />
+  <img src="Z:/picture/008/save_picture_339989.jpg" />
 </div>
 
 
@@ -117,7 +228,7 @@ Exposure X6 v6.0.1.100 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339985.jpg" />
+  <img src="Z:/picture/008/save_picture_339985.jpg" />
 </div>
 
 
@@ -143,7 +254,7 @@ Airy 3.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339984.jpg" />
+  <img src="Z:/picture/008/save_picture_339984.jpg" />
 </div>
 
 
@@ -172,7 +283,7 @@ Magnet 2.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339977.jpg" />
+  <img src="Z:/picture/008/save_picture_339977.jpg" />
 </div>
 
 
@@ -198,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339885.jpg" />
+  <img src="Z:/picture/008/save_picture_339885.jpg" />
 </div>
 
 
@@ -226,7 +337,7 @@ iMazing 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339884.jpg" />
+  <img src="Z:/picture/008/save_picture_339884.jpg" />
 </div>
 
 
@@ -253,7 +364,7 @@ Audirvana Plus 3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339874.jpg" />
+  <img src="Z:/picture/008/save_picture_339874.jpg" />
 </div>
 
 
@@ -280,7 +391,7 @@ Blocs 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339873.jpg" />
+  <img src="Z:/picture/008/save_picture_339873.jpg" />
 </div>
 
 
@@ -309,7 +420,7 @@ Folx Pro 5 v5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339718.jpg" />
+  <img src="Z:/picture/008/save_picture_339718.jpg" />
 </div>
 
 
@@ -338,7 +449,7 @@ Privatus 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339020.jpg" />
+  <img src="Z:/picture/008/save_picture_339020.jpg" />
 </div>
 
 
@@ -365,7 +476,7 @@ SnippetsLab 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338817.jpg" />
+  <img src="Z:/picture/008/save_picture_338817.jpg" />
 </div>
 
 
@@ -391,7 +502,7 @@ SuperDuper! 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338693.jpg" />
+  <img src="Z:/picture/008/save_picture_338693.jpg" />
 </div>
 
 
@@ -417,7 +528,7 @@ News Explorer 1.8.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338684.jpg" />
+  <img src="Z:/picture/008/save_picture_338684.jpg" />
 </div>
 
 
@@ -446,7 +557,7 @@ DEVONthink Pro Office 2.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338682.jpg" />
+  <img src="Z:/picture/008/save_picture_338682.jpg" />
 </div>
 
 
@@ -472,7 +583,7 @@ Liquivid Video Improve 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338675.jpg" />
+  <img src="Z:/picture/008/save_picture_338675.jpg" />
 </div>
 
 
@@ -500,7 +611,7 @@ aText 2.30.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338669.jpg" />
+  <img src="Z:/picture/008/save_picture_338669.jpg" />
 </div>
 
 
@@ -526,7 +637,7 @@ SubsMarine 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338668.jpg" />
+  <img src="Z:/picture/008/save_picture_338668.jpg" />
 </div>
 
 
@@ -555,7 +666,7 @@ AnyMP4 PDF Converter for Mac 3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338666.jpg" />
+  <img src="Z:/picture/008/save_picture_338666.jpg" />
 </div>
 
 
@@ -581,7 +692,7 @@ iThoughtsX 5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338534.jpg" />
+  <img src="Z:/picture/008/save_picture_338534.jpg" />
 </div>
 
 
@@ -592,116 +703,6 @@ iThoughtsX – программа, позволяющая визуализиро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:572B539C7037CE36B9A557A7101F2827ED2F5EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330237   (338331) от 11.10.2019
-
-iStat Menus 6 v6.40 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338331.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2019Разработчик: Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B868A60F76FBD8BDF15A97C80D903372D0871C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074413   (338100) от 19.11.2016
-
-Luminar 1.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2016Разработчик: Macphun SoftwareПоддерживаемая ОС: OS X 10.10.5 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A761B48DC70C4A9DEAC30B85611AEF5523B46872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074337   (337976) от 19.11.2016
-
-Airmail 3.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
-
-По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2016Разработчик: Bloop S.R.LПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:910AC5DB442742F0C4E250165921A8F71105E55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419766   (337916) от 29.10.2020
-
-PatterNodes 2 v2.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337916.jpg" />
-</div>
-
-
-###  Подробнее
-
-PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
-Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2020Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804FF97CFE73ED23692C015CA0D593E2E4BF2BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

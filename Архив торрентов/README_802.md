@@ -6,7 +6,7 @@ Downie 4 v4.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868263.jpg" />
+  <img src="Z:/picture/008/save_picture_868263.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Disk Space Analyzer Pro 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868261.jpg" />
+  <img src="Z:/picture/008/save_picture_868261.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Live Home 3D Pro Edition 4.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868256.jpg" />
+  <img src="Z:/picture/008/save_picture_868256.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ iToolab FixGo 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868255.jpg" />
+  <img src="Z:/picture/008/save_picture_868255.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ TG Pro (Temperature Gauge Pro) 2.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868251.jpg" />
+  <img src="Z:/picture/008/save_picture_868251.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Duplicate File Finder Pro 6.14.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868250.jpg" />
+  <img src="Z:/picture/008/save_picture_868250.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868248.jpg" />
+  <img src="Z:/picture/008/save_picture_868248.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Soft Organizer 6.06 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868238.jpg" />
+  <img src="Z:/picture/008/save_picture_868238.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868235.jpg" />
+  <img src="Z:/picture/008/save_picture_868235.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ BurnAware Professional 10.1 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868232.jpg" />
+  <img src="Z:/picture/008/save_picture_868232.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Blank And Secure 4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868224.jpg" />
+  <img src="Z:/picture/008/save_picture_868224.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Run-Command 2.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868220.jpg" />
+  <img src="Z:/picture/008/save_picture_868220.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868212.jpg" />
+  <img src="Z:/picture/008/save_picture_868212.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Bill Wyman's Rhythm Kings - Double Bill (2000) 2 CD [FLAC|Lossless]<Rock, Rhythm
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868209.jpg" />
+  <img src="Z:/picture/008/save_picture_868209.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ ProcessKO 3.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868207.jpg" />
+  <img src="Z:/picture/008/save_picture_868207.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Aoki Takamasa - Fractalized (2010) [MP3|~176 kbps]<Experimental / IDM / Glitch>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868161.jpg" />
+  <img src="Z:/picture/008/save_picture_868161.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Brian Setzer Orchestra - The Dirty Boogie (1998) [APE|Lossless]<Jazz, Jazz S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868156.jpg" />
+  <img src="Z:/picture/008/save_picture_868156.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ App Cleaner & Uninstaller Pro 7.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868147.jpg" />
+  <img src="Z:/picture/008/save_picture_868147.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Carbon Copy Cloner 6 v6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868144.jpg" />
+  <img src="Z:/picture/008/save_picture_868144.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Tidabie Tidal Music Converter 1.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868143.jpg" />
+  <img src="Z:/picture/008/save_picture_868143.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MacCleaner 2 PRO 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868138.jpg" />
+  <img src="Z:/picture/008/save_picture_868138.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Chromium 93.0.4577.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868133.jpg" />
+  <img src="Z:/picture/008/save_picture_868133.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ IP Scanner Pro 3.56 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868130.jpg" />
+  <img src="Z:/picture/008/save_picture_868130.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868128.jpg" />
+  <img src="Z:/picture/008/save_picture_868128.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ WinUtilities Professional Edition 14.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868125.jpg" />
+  <img src="Z:/picture/008/save_picture_868125.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868124.jpg" />
+  <img src="Z:/picture/008/save_picture_868124.jpg" />
 </div>
 
 

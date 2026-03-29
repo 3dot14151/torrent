@@ -6,7 +6,7 @@ Microsoft Office 2007 Enterprise SP3 12.0.6718.5000 RePack by D!akov (22.04.2015
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741411.jpg" />
+  <img src="Z:/picture/008/save_picture_741411.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Smart Defrag Pro 6.5.5.119 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741284.jpg" />
+  <img src="Z:/picture/008/save_picture_741284.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Unreal Commander 3.57 build 1470 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741262.jpg" />
+  <img src="Z:/picture/008/save_picture_741262.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741257.jpg" />
+  <img src="Z:/picture/008/save_picture_741257.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC2020-07-17) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741248.jpg" />
+  <img src="Z:/picture/008/save_picture_741248.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v3.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741197.jpg" />
+  <img src="Z:/picture/008/save_picture_741197.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BurnAware Professional 12.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741156.jpg" />
+  <img src="Z:/picture/008/save_picture_741156.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Screen Translator 3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741108.jpg" />
+  <img src="Z:/picture/008/save_picture_741108.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Privacy Eraser Free 4.47.2 Build 2778 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741057.jpg" />
+  <img src="Z:/picture/008/save_picture_741057.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Vivaldi 2.3.1440.48 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741053.jpg" />
+  <img src="Z:/picture/008/save_picture_741053.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WinUtilities Professional Edition 15.47 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741047.jpg" />
+  <img src="Z:/picture/008/save_picture_741047.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PicturesToExe Deluxe 9.0.9 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740999.jpg" />
+  <img src="Z:/picture/008/save_picture_740999.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Advanced Installer 15.7 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740972.jpg" />
+  <img src="Z:/picture/008/save_picture_740972.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Dashcam Viewer 3.1.9 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740969.jpg" />
+  <img src="Z:/picture/008/save_picture_740969.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Twinkstar 4.11.2000.1901 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740968.jpg" />
+  <img src="Z:/picture/008/save_picture_740968.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Sonible smart:EQ2 1.1.1 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740967.jpg" />
+  <img src="Z:/picture/008/save_picture_740967.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ BurnAware Professional 12.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740964.jpg" />
+  <img src="Z:/picture/008/save_picture_740964.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Norton 360 22.16.4.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740962.jpg" />
+  <img src="Z:/picture/008/save_picture_740962.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Norton AntiVirus 22.16.4.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740958.jpg" />
+  <img src="Z:/picture/008/save_picture_740958.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ KLS Backup 2017 Professional 9.1.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740940.jpg" />
+  <img src="Z:/picture/008/save_picture_740940.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ K-Lite Codec Pack Update 14.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740938.jpg" />
+  <img src="Z:/picture/008/save_picture_740938.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Allavsoft Video Downloader Converter 3.14.3.6318 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740918.jpg" />
+  <img src="Z:/picture/008/save_picture_740918.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ USDownloader 1.3.5.9 Portable (20.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740904.jpg" />
+  <img src="Z:/picture/008/save_picture_740904.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Display Driver Uninstaller 18.0.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740872.jpg" />
+  <img src="Z:/picture/008/save_picture_740872.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Norton Security 22.16.4.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740862.jpg" />
+  <img src="Z:/picture/008/save_picture_740862.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740856.jpg" />
+  <img src="Z:/picture/008/save_picture_740856.jpg" />
 </div>
 
 

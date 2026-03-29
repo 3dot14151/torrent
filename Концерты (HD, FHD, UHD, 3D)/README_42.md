@@ -1,3 +1,81 @@
+###  Публикация: 1701966   (116060) от 23.02.2024
+
+Руки Вверх! Лужники на Бис! (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые хиты на главном стадионе страны: видеоверсия концерта на БСА «Лужники» 22 июля 2023 года собравшего рекордные 75 000 зрителей.Жанр: концерт, музыкаРежиссер: Роман БутовскийПродолжительность: 01:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E801E4D52877DED495BB896519BC0C403F996E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701988   (116056) от 23.02.2024
+
+«Крематорий» в Горбушке. 39 лет (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крематорию – 39 лет! концерт состоялся 10 декабря 2022 года в московском ДК им. Горбунова.Жанр: концерт, музыкаПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D1E4A05367E3B9EF8ABB9778209F3C1D28AE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703707   (114879) от 01.03.2024
+
+Дельфин. Прощай оружие (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию видеохронику одного из самых ярких музыкальных событий 2023 года — концерта Дельфина. Грандиозное шоу проходило в московском VK Stadium. Музыкант представил поклонникам свой новый альбом «Прощай оружие», который получил свое название в честь одноименного романа американского писателя Эрнеста Хемингуэя. Дельфину удалось органично объединить (   Читать дальше...   )Производство: Россия / SETUPЖанр: концерт, музыкаРежиссер: Анна КозловаАктеры: ДельфинПродолжительность: 01:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705466   (113895) от 08.03.2024
 
 Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +84,7 @@ Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113895.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Lovebites: Daughters Of The Dawn (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112180.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111874.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111732.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111628.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111348.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111049.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110670.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110088.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109120.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ Lovebites: Knockin' At Heaven's Gate (2023) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108060.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107960.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107816.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107813.jpg" />
 </div>
 
 
@@ -386,7 +464,7 @@ Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107125.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ Scooter - Live in Hamburg (2010) BDRip [H.265/2160p] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106390.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105592.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105260.jpg" />
 </div>
 
 
@@ -498,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103873.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103842.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103377.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Dream Theater - Live at Budokan (2004/2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102245.jpg" />
+  <img src="Z:/picture/005/save_picture_102245.jpg" />
 </div>
 
 
@@ -614,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94645.jpg" />
 </div>
 
 
@@ -628,96 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F89A0B80B0146B7934899240D6F57F108A3A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822137   (94506) от 05.10.2025
-
-Праздничный концерт ко Дню учителя (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет телеверсию большого концерта, посвященного Дню учителя. Со сцены прозвучали самые любимые песни и самые теплые пожелания педагогам.Телекомпания: Россия | «Первый канал»Жанр: Поп, эстрадаУчастники: Юрий Антонов, Лариса Долина, Полина Гагарина, Shaman, Стас Михайлов, Александр Иванов, Стас Пьеха, Александр Панайотов, Дмитрий Колдун, Денис Майданов, Александра Воробьева, Дмитрий Маликов, «Домисолька», «Тодес», «Непоседы» и др.Продолжительность: 01:34:59 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC801CC8F5E9A376456B00AA5D8C4DF26D4DA32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489047   (91070) от 27.04.2012
-
-Pretenders - Loose in L.A. (2003/2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блю-рей издание концерта01. Lie to Me
-02. Time
-03. Message of Love
-04. My Baby
-05. Talk of the Town
-06. You Know Who Your Friends Are
-07. Time the Avenger
-08. The Homecoming
-09. Up the Neck
-10. Fools Must Die(   Читать дальше...   )Жанр: RockПродюсер: Geoff KempinАктеры: Chrissie Hynde, Adam Seymour, Martin Chambers, Andy Hobson, Zeben JamesonПеревод: Отсутствует, оригиналПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485490   (89736) от 20.04.2012
-
-Григорий Лепс: Научись летать Live (2011) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89736.jpg" />
-</div>
-
-
-###  Подробнее
-
-23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
-02. Клуб одиноких сердец подполковника Пеппера
-03. Зима
-04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

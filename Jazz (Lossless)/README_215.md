@@ -1,3 +1,119 @@
+###  Публикация: 1074617   (323718) от 21.11.2016
+
+Paul Shapiro - It's in the Twilight (2006) [FLAC|Lossless|image + .cue] <Klezmer Jazz, Classic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Rolls Away the Darkness
+02. Children of Abraham
+03. The Sun Keeps Coming Up
+04. Lecha Dodi Twilight(   Читать дальше...   )Жанр: Klezmer Jazz, Classic JazzПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FFB2455D1A2F149236DB2B19F5A235E74FD5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074630   (323599) от 21.11.2016
+
+Paul Taylor - Prime Time (2011) [APE|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Push To Start (3:50)
+02. Moment Of Truth (4:32)
+03. Don't Wanna Let You Go (4:23)
+04. Cant Nobody (3:53)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E97CBD1148B57831E8658189E4A29618BAB36B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582350   (323590) от 09.10.2022
+
+Sonny Stitt - 12! (1972) 1999, 32 Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 12! [5:03]
+02. I Got It Bad [4:18]
+03. I Never Knew [6:43]
+04. Our Delight [5:31](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D0321A87A05E7E1BC3EC456B6C21DD6F65A6FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259188   (323405) от 02.11.2018
+
+Patti Austin - For Ella (2002) Playboy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Close for Comfort [3:59]
+02. Honeysuckle Rose [4:14]
+03. You'll Have to Swing It (Mr. Paganini) [4:23]
+04. Our Love Is Here to Stay [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADA9263BC773079169F551133C9B30F395D62F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331583   (322947) от 16.10.2019
 
 Elmo Hope - Five Classic Albums 1953 - 1961  (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Elmo Hope - Five Classic Albums 1953 - 1961  (2017) 2CD, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322947.jpg" />
+  <img src="Z:/picture/008/save_picture_322947.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bob Brookmeyer - One More: Music Of Thad Jones (2004) 2005, IPO Recordings [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322333.jpg" />
+  <img src="Z:/picture/008/save_picture_322333.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Geoffrey Keezer - Wildcrafted: Live At The Dakota (2005) MaxJazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322329.jpg" />
+  <img src="Z:/picture/008/save_picture_322329.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Art Blakey & The Jazz Messengers - Just Coolin' (1959) 2020, Blue Note [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322324.jpg" />
+  <img src="Z:/picture/008/save_picture_322324.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jan Aldridge-Clark - Moving Forward (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322218.jpg" />
+  <img src="Z:/picture/008/save_picture_322218.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bing Crosby & The London Symphony Orchestra - Bing at Christmas (2019) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322210.jpg" />
+  <img src="Z:/picture/008/save_picture_322210.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Rene Thomas & Bobby Jaspar - Thomas & Jaspar Quintet (1961) 2006, BMG [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322116.jpg" />
+  <img src="Z:/picture/008/save_picture_322116.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Late Night Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322110.jpg" />
+  <img src="Z:/picture/008/save_picture_322110.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322033.jpg" />
+  <img src="Z:/picture/008/save_picture_322033.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Urbie Green - The Fox (1976) 2013, King Records[FLAC|tracks+.cue]<Jazz Funk, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321974.jpg" />
+  <img src="Z:/picture/008/save_picture_321974.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Nikolay Gromin & Alexey Kuznetsov (Николай Громин и Алексей
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321652.jpg" />
+  <img src="Z:/picture/008/save_picture_321652.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Christian Sands - Reach (2017) Mack Avenue Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321592.jpg" />
+  <img src="Z:/picture/008/save_picture_321592.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sahib Shihab - Complete Sextets Sessions 1956-1957 (2008) 2CD, Fresh Sound Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321527.jpg" />
+  <img src="Z:/picture/008/save_picture_321527.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Acker Bilk & His Paramount Jazz Band - Mr Acker Bilk's Lansdowne Folio (1960, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321518.jpg" />
+  <img src="Z:/picture/008/save_picture_321518.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Hank Jones & Tyree Glenn - Quintet / Sextet (1957-1961) 2CD, 2004, Lone Hill Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321420.jpg" />
+  <img src="Z:/picture/008/save_picture_321420.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Ira Sullivan - Horizons (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321417.jpg" />
+  <img src="Z:/picture/008/save_picture_321417.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Kirk Lightsey Quartet - First Affairs (1986) Remaster, 2015, Solid Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321416.jpg" />
+  <img src="Z:/picture/008/save_picture_321416.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Herb Ellis & Ray Brown - After You've Gone (1975) 1990, Concord[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321414.jpg" />
+  <img src="Z:/picture/008/save_picture_321414.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Tsuyoshi Yamamoto Trio - Summertime (1976) Remaster, 2014, Sony Music[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321168.jpg" />
+  <img src="Z:/picture/008/save_picture_321168.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ John McLaughlin And Mahavishnu - Adventures In Radioland (1993) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320980.jpg" />
+  <img src="Z:/picture/008/save_picture_320980.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Flip Phillips & Scott Hamilton - A Sound Investment (1987) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319809.jpg" />
+  <img src="Z:/picture/008/save_picture_319809.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Chick Corea - 3 Essential Albums (1986, 1991,1995) 2016, 3CD, Universal [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319807.jpg" />
+  <img src="Z:/picture/008/save_picture_319807.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ CD1 - The Chick Corea Elektric Band:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A7EDA1A6AB7AC3219FCEF98BB4C0A3A8467B5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959068   (319483) от 23.11.2015
-
-Don Wilkerson - Preach Brother! (1962) 2015, Universal[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jeanie-Weenie [05:01]
- 02.Homesick Blues [06:39]
- 03.Dem Tambourines [05:38]
- 04.Camp Meetin' [04:44](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC746802C3FE7EB377D5D219AAF07AE859291993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182154   (319435) от 09.11.2017
-
-Rob Van Bavel Trio - Almost Blue (2005) Munich Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone in Love [04:32]
-02. Moon and Sand [04:52]
-03. All the Things You Are [04:24]
-04. Almost Blue [05:50](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83B4C476F1552D1E8EC47FAE429C1738930E20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182148   (319432) от 09.11.2017
-
-Duke Ellington - ...And His Mother Called Him Bill (1967) 2016, Sony Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snibor [04:16]
-02. Boo-Dah  [03:29]
-03. Blood Count  [04:19]
-04. U.M.M.G [03:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A940D9525929E440CCBD85BF09D275E5D2C887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259727   (319175) от 04.11.2018
-
-VA - Re-Bop: The Savoy Remixes (2006) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Garage House>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Modern Jazz Quartet - Movin' Nicely (Eclipse Remix) (03:41)
-02. Duke Jordan - Night in Tunisia (DJ Jazzy Jeff Remix) (06:01)
-03. Charlie Parker - Moose the Mooche (feat. Miles Davis) (Quantic Remix) (03:18)
-04. Curtis Fuller - Minor Vamp (Basement Boys Remix) (06:30)(   Читать дальше...   )Жанр: Contemporary Jazz, Garage HouseПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2A50EAAA7A84FD393CEBD38E09CEC97502347C
 ```
 
 https://mybot314.ru/tekegram_catalog/

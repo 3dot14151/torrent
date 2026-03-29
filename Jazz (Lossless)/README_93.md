@@ -1,3 +1,119 @@
+###  Публикация: 1283105   (741236) от 15.02.2019
+
+Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Walked Bud [4:43]
+02. All in Love Is Fair [4:45]
+03. Lovesick Blues [3:28]
+04. Try Again [4:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF3207FC35ED1729CCC985C790DACCA9644D00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283104   (741235) от 15.02.2019
+
+Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming Home [4:21]
+02. Burst in with the Dawn [4:37]
+03. Come in from the Rain [4:17]
+04. I Won't Last a Day Without You [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FFC001B63295E86070BC89895FB2AF0906E78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283107   (741234) от 15.02.2019
+
+Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Jackle [12:25]
+02. Melody for Melonae [10:52]
+03. Jossa Bossa [9:20]
+04. Little Melonae [14:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7867BFE4A501FB163FF89AAD045EE90DE7052C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282876   (741233) от 15.02.2019
+
+Count Basie - Portrait (1930-e) 2002, Rainbowcd.com [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basie Blues [3:08]
+02. Mutton Leg [3:22]
+03. It's Sand, Man [3:08]
+04. Wild Bill's Boogie [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE6D57A8C553DB95B93BEEEF0122DF65624A8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283170   (741231) от 15.02.2019
 
 Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Dark Jazz>
@@ -6,7 +122,7 @@ Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Da
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741231.jpg" />
+  <img src="Z:/picture/008/save_picture_741231.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Tony Bennett - As Time Goes By: Great American Songbook Classics (1950-e) 2013, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741229.jpg" />
+  <img src="Z:/picture/008/save_picture_741229.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Nels Cline & Vinny Golia - The Entire Time (2004) Nine Winds [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741204.jpg" />
+  <img src="Z:/picture/008/save_picture_741204.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ben Webster - My Romance (1965) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741161.jpg" />
+  <img src="Z:/picture/008/save_picture_741161.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ John Patton - Boogaloo (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741084.jpg" />
+  <img src="Z:/picture/008/save_picture_741084.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Dinah Washington - The Definitive Dinah Washington (2002) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741081.jpg" />
+  <img src="Z:/picture/008/save_picture_741081.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Charlie Rouse - Yeah! (1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741080.jpg" />
+  <img src="Z:/picture/008/save_picture_741080.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ New Cool Collective & Mark Reilly - The Things You Love (2016) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741079.jpg" />
+  <img src="Z:/picture/008/save_picture_741079.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Louis Armstrong - What A Wonderful World (1962 - 1965) 1989, Jazz Hour [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741065.jpg" />
+  <img src="Z:/picture/008/save_picture_741065.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Daniel Freedman - Imagine That (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740995.jpg" />
+  <img src="Z:/picture/008/save_picture_740995.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dexter Gordon - Come Rain Or Come Shine (1967) 1989, Jazz Hour [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740966.jpg" />
+  <img src="Z:/picture/008/save_picture_740966.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Frank Sinatra & Tommy Dorsey - Falling In Love With Frank Sinatra & Tommy Dorsey
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740804.jpg" />
+  <img src="Z:/picture/008/save_picture_740804.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Nat King Cole - The Quintessence, Vol.1: Los Angeles - Chicago - Hollywood - New
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740465.jpg" />
+  <img src="Z:/picture/008/save_picture_740465.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Bill Evans - The Complete Interplay Sessions (1957 - 1962) 2014, 2CD, Essential 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740464.jpg" />
+  <img src="Z:/picture/008/save_picture_740464.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Papik & Alfredo Bochicchio - Cocktail Guitar (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740417.jpg" />
+  <img src="Z:/picture/008/save_picture_740417.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Trombone Shorty - Trombone Shorty Meets Lionel Ferbos (2002) 2005, Wise and Bark
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740390.jpg" />
+  <img src="Z:/picture/008/save_picture_740390.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Mina Agossi - Carrousel (2004) Cristal Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740389.jpg" />
+  <img src="Z:/picture/008/save_picture_740389.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Joe Holiday - Mambo Jazz (1951 - 1954) 1991, Original Jazz Classics [APE|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740324.jpg" />
+  <img src="Z:/picture/008/save_picture_740324.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Duke Ellington - The Great Concerts: London & New York 1963-1964 (2009) 2CD, Nim
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740247.jpg" />
+  <img src="Z:/picture/008/save_picture_740247.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Cal Tjader - Four Classic Albums (1955 - 1959) 2018, 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739910.jpg" />
+  <img src="Z:/picture/008/save_picture_739910.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Nat King Cole - The Quintessence, Vol.2: New York - Hollywood (1944 - 1946) 1998
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739900.jpg" />
+  <img src="Z:/picture/008/save_picture_739900.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Paul Bley - Four Classic Albums (1954 - 1961) 2CD, 2016, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739846.jpg" />
+  <img src="Z:/picture/008/save_picture_739846.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9331210DEC4A974B85F1210F120D80B31BB8504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283500   (739844) от 17.02.2019
-
-Acker Bilk - The Love Album (1989) Pickwick Music [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall In Love [5:02]
-02. A Groovy Kind of Love [3:25]
-03. Velvet Nights [4:05]
-04. Could've Been [3:34](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D564ADBB972F22B653C9FEF73DDADAAD1D4234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283499   (739842) от 17.02.2019
-
-Mr. Acker Bilk - Gold (1993) San Juan [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger on the Shore [2:50]
-02. I Want to Know What Love Is [4:04]
-03. I Just Called to Say I Love You [4:22]
-04. Hello [4:14](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FB2B2E513A3B0CA836DD7B84133AD1AC11A1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283502   (739837) от 17.02.2019
-
-Acker Bilk - The Greatest Hits of Acker Bilk (1990) 2CD [FLAC|Lossless|tracks + .cue] <Easy Listening, Traditional Jazz, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739837.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Stranger On The Shore [3:20]
-02. Sailing [3:18]
-03. Bridge Over Troubled Waters [4:35](   Читать дальше...   )Жанр: Easy Listening, Traditional Jazz, DixielandПродолжительность: 02:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0FEA16B41D0A9AFA0BA8E7D9AC722DF6E2D6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283445   (739780) от 17.02.2019
-
-Detour Doom Project - Detour Doom (2016) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coney Island (5:32)
-02. Bay City Doom Jazz (5:22)
-03. Slow Doubt in Empty Room (6:42)
-04. Detour Doom (5:28)(   Читать дальше...   )Производство: Aquarellist - aquarel 33-16Жанр: Dark Jazz, Doom Jazz, Jazz Noir, Experimental, Future JazzПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BFB2DAB5F59F5E4EDB7096A571D028D8A5BA61
 ```
 
 https://mybot314.ru/tekegram_catalog/

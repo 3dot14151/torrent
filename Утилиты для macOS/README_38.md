@@ -6,7 +6,7 @@ Later - Create Quick Reminders With Presets 1.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240949.jpg" />
+  <img src="Z:/picture/004/save_picture_240949.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ShredIt X 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240552.jpg" />
+  <img src="Z:/picture/004/save_picture_240552.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ TinkerTool System 6 v6.98 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240182.jpg" />
+  <img src="Z:/picture/004/save_picture_240182.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Semulov 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240010.jpg" />
+  <img src="Z:/picture/004/save_picture_240010.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ WebScraper 4.15.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239890.jpg" />
+  <img src="Z:/picture/004/save_picture_239890.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239746.jpg" />
+  <img src="Z:/picture/004/save_picture_239746.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Clipsy: Clipboard Manager 2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239741.jpg" />
+  <img src="Z:/picture/004/save_picture_239741.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ DeskCover 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239679.jpg" />
+  <img src="Z:/picture/004/save_picture_239679.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ MaxSnap 1.74 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239651.jpg" />
+  <img src="Z:/picture/004/save_picture_239651.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Netler 2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239588.jpg" />
+  <img src="Z:/picture/004/save_picture_239588.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ BarLinks: Menu Bar Bookmarks 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239489.jpg" />
+  <img src="Z:/picture/004/save_picture_239489.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ iStat Menu 6 v6.7 (1217) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239263.jpg" />
+  <img src="Z:/picture/005/save_picture_239263.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Days - Countdown for Menu Bar 1.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239060.jpg" />
+  <img src="Z:/picture/005/save_picture_239060.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Paletro for Mac 1.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239032.jpg" />
+  <img src="Z:/picture/005/save_picture_239032.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Capture All 2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239021.jpg" />
+  <img src="Z:/picture/005/save_picture_239021.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ FoneDog Data Recovery for Mac 1.3.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238992.jpg" />
+  <img src="Z:/picture/005/save_picture_238992.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Battery Charging Alert 3.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238800.jpg" />
+  <img src="Z:/picture/005/save_picture_238800.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ rcmd • App Switcher 2.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238753.jpg" />
+  <img src="Z:/picture/005/save_picture_238753.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ ToothFairy 2.7.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238745.jpg" />
+  <img src="Z:/picture/005/save_picture_238745.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Apeaksoft Data Recovery for Mac 1.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238615.jpg" />
+  <img src="Z:/picture/005/save_picture_238615.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Clone Fighter 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238523.jpg" />
+  <img src="Z:/picture/005/save_picture_238523.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Word Count Icon 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238434.jpg" />
+  <img src="Z:/picture/005/save_picture_238434.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ desktopCinema 3.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238426.jpg" />
+  <img src="Z:/picture/005/save_picture_238426.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ ScreenLog 2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238406.jpg" />
+  <img src="Z:/picture/005/save_picture_238406.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ CVS 2.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238392.jpg" />
+  <img src="Z:/picture/005/save_picture_238392.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ WiFi Explorer 3.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237853.jpg" />
+  <img src="Z:/picture/004/save_picture_237853.jpg" />
 </div>
 
 

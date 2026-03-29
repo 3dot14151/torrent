@@ -1,3 +1,32 @@
+###  Публикация: 1585856   (219559) от 24.10.2022
+
+VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melanie Mueller Joerg Draeger - Fuer eine Nacht
+02. Celina Mars - Heut Nacht
+03. Nancy Franck - Korken knallen
+04. Marry - Wir feiern den DJ(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6F905FEAA2FD136699B1E7D444722768AD4243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585869   (219551) от 24.10.2022
 
 VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -6,7 +35,7 @@ VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219551.jpg" />
+  <img src="Z:/picture/005/save_picture_219551.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlage
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219533.jpg" />
+  <img src="Z:/picture/005/save_picture_219533.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219523.jpg" />
+  <img src="Z:/picture/005/save_picture_219523.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219514.jpg" />
+  <img src="Z:/picture/005/save_picture_219514.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219484.jpg" />
+  <img src="Z:/picture/005/save_picture_219484.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Karneval am Ballermann 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219458.jpg" />
+  <img src="Z:/picture/005/save_picture_219458.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Ballermann Party Hits Megamix 2022.2 (2022) [MP3|320 Kbps] <Pop, Dance, Sch
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219440.jpg" />
+  <img src="Z:/picture/005/save_picture_219440.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Ballermann 6 Balneario Pras.: Die Party Hits (2022) [MP3|320 Kbps] <Pop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219433.jpg" />
+  <img src="Z:/picture/005/save_picture_219433.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Ballermann Opening Party Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219364.jpg" />
+  <img src="Z:/picture/005/save_picture_219364.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Best of 2019 - Frühlingshits (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218738.jpg" />
+  <img src="Z:/picture/005/save_picture_218738.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Megahits 2020 - Die Erste (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218420.jpg" />
+  <img src="Z:/picture/005/save_picture_218420.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Bravo Hits Zima 2020 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218401.jpg" />
+  <img src="Z:/picture/005/save_picture_218401.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Various - Pure... 80s (2012) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218105.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Modern Talking - Maxi And Singles Collection (2019) Dieter Bohlen Edition, 3CD [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217713.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Peggy March - The Very Best Of Little Peggy March (1997) The Essential Singles C
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217685.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Taylor Swift - Midnights (2022) 3am Edition [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217672.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Soraya Arnelas - Universe In Me (2013) [MP3|320 Kbps] <Europop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216708.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Party Nacht 2024 (2023) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216691.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ VA - Superstars In Concert (1986-87-88 The Prince's Trust Concerts) (1996) 3CDSe
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216402.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ VA - Winter Party 2016 (2015) [MP3|320 кб/с] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216368.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Blue System - Maxi & Singles Collection (2019) Dieter Bohlen Edition, 3CD [MP3|3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216144.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ VA - Now That's What I Call Merry Christmas (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216050.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ VA - NRJ Christmas Hits (2018) [MP3|320 Kbps] <Pop, Electropop, Hip Hop, Reggae>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215880.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Alan Walker - Different World (2018) Japanese Edition [MP3|320 Kbps] <Electronic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215220.jpg" />
+  <img src="Z:/picture/005/save_picture_215220.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ VA - Love Pop Songs (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214794.jpg" />
+  <img src="Z:/picture/005/save_picture_214794.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ VA - Love Pop Songs (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:202D621927FC6F330B5650D7A72F147C2949A9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426347   (214465) от 24.11.2020
-
-VA - Best Christmas Songs (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - It's the Most Wonderful Time of the Year (02:45)
- 02. Sia - Santa's Coming for Us (03:25)
- 03. Kelly Clarkson - Christmas Eve (03:01)
- 04. Why Don't We - Kiss You This Christmas (02:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F5F399A7827D40DA2E889BD8FC0BB7DBE6296C
 ```
 
 https://mybot314.ru/tekegram_catalog/

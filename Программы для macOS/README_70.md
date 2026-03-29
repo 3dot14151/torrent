@@ -1,3 +1,136 @@
+###  Публикация: 1030789   (671963) от 01.07.2016
+
+MPV 0.18 (git-c57304a) [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671963.jpg" />
+</div>
+
+
+###  Подробнее
+
+MPV — мультимедийный кроссплатформенный плеер, основанный на mplayer и mplayer2. Поддерживает обширный набор видеоформатов, аудио- и видеокодеков и форматов субтитров. Присутствует поддержка аппаратного ускорения. По энергопотреблению сравним с QuickTime.Тип издания: OS X SoftwareРелиз состоялся: 24.06.2016Разработчик: mpv.ioПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCC535C25A8150C0E212E2F4A98ED8D22082A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136875   (671141) от 24.05.2017
+
+Code Collector Pro 1.7.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_671141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Code Collector Pro - самый простой и быстрый способ управлять коллекцией фрагментов.
+Большая библиотека фрагментов кода может быть сложной в управлении, поэтому Code Collector Pro предоставляет мощные инструменты для организации фрагментов кода. Собирайте фрагменты кода в группы или используйте Code Collector Pro для смарт-групп. Добавьте теги фрагментов кода, чтобы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Solutions, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46D50B05EFA8DCDDACC8109F42D9E344FF71E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536952   (671059) от 14.03.2022
+
+TiltShift 1.0.3 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_671059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Tilt Shift позволяет добавить к фото и видео уникальный эффект миниатюры.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2022Разработчик: © EnvySoftПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882245564345AA727C0631C699776DE6193AFF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537103   (670875) от 14.03.2022
+
+SQLPro for MySQL 2022.15 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670875.jpg" />
+</div>
+
+
+###  Подробнее
+
+MySQL Database Client - простой и мощный менеджер MySQL для Mac OS X
+MySQL клиент базы данных является легким клиентом MySQL, что позволяет осуществить быстрый и простой доступ к Oracle MySQL серверам, в том числе размещенные в Amazon RDS. Это SQL Client только для MySQL и не будет работать с другими серверами баз данных, таких как MSSQL или PostgresSQL.Тип издания: macOS X SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2022 Hankinsoft Development, Inc.Поддерживаемая ОС: macOS X 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE933E80C7C144DD66D04FCE940A54DE55B22686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833805   (670828) от 20.05.2015
+
+TinkerTool System 4.11 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670828.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System 4 -  утилита для управления скрытыми настройками операционной системы Mac OS X.
+Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 мая 2015Разработчик: TinkerToolSys4Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C7D9E2C08B3DD80C298C61CF030E471370EFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136864   (670626) от 24.05.2017
 
 PreSonus Studio One Professional 3 v3.5.0 [En]
@@ -6,7 +139,7 @@ PreSonus Studio One Professional 3 v3.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670626.jpg" />
+  <img src="Z:/picture/008/save_picture_670626.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ DoYourData Super Eraser for Mac 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670498.jpg" />
+  <img src="Z:/picture/008/save_picture_670498.jpg" />
 </div>
 
 
@@ -60,7 +193,7 @@ Timelime 1.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670248.jpg" />
+  <img src="Z:/picture/008/save_picture_670248.jpg" />
 </div>
 
 
@@ -88,7 +221,7 @@ Bokeh - Focus with Background Blur Photo Effects 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670078.jpg" />
+  <img src="Z:/picture/008/save_picture_670078.jpg" />
 </div>
 
 
@@ -116,7 +249,7 @@ App Pier 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669397.jpg" />
+  <img src="Z:/picture/008/save_picture_669397.jpg" />
 </div>
 
 
@@ -144,7 +277,7 @@ Email Archiver Enterprise 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669295.jpg" />
+  <img src="Z:/picture/008/save_picture_669295.jpg" />
 </div>
 
 
@@ -172,7 +305,7 @@ Orion PDF Author 2.98 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669293.jpg" />
+  <img src="Z:/picture/008/save_picture_669293.jpg" />
 </div>
 
 
@@ -200,7 +333,7 @@ iThoughtsX 2.26 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669280.jpg" />
+  <img src="Z:/picture/008/save_picture_669280.jpg" />
 </div>
 
 
@@ -226,7 +359,7 @@ Glyphs 2.0.1 (727) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669199.jpg" />
+  <img src="Z:/picture/008/save_picture_669199.jpg" />
 </div>
 
 
@@ -253,7 +386,7 @@ DEVONthink Pro Office/Server 3 v3.8.2 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669174.jpg" />
+  <img src="Z:/picture/008/save_picture_669174.jpg" />
 </div>
 
 
@@ -279,7 +412,7 @@ Apple MainStage 3.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669093.jpg" />
+  <img src="Z:/picture/008/save_picture_669093.jpg" />
 </div>
 
 
@@ -307,7 +440,7 @@ ColoFolXS 2.1.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667900.jpg" />
+  <img src="Z:/picture/008/save_picture_667900.jpg" />
 </div>
 
 
@@ -336,7 +469,7 @@ Textcraft 1.0.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667896.jpg" />
+  <img src="Z:/picture/008/save_picture_667896.jpg" />
 </div>
 
 
@@ -363,7 +496,7 @@ Photo Batch 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667870.jpg" />
+  <img src="Z:/picture/008/save_picture_667870.jpg" />
 </div>
 
 
@@ -391,7 +524,7 @@ Circular Studio 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667818.jpg" />
+  <img src="Z:/picture/008/save_picture_667818.jpg" />
 </div>
 
 
@@ -418,7 +551,7 @@ Records v1.5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667815.jpg" />
+  <img src="Z:/picture/008/save_picture_667815.jpg" />
 </div>
 
 
@@ -446,7 +579,7 @@ DiskWarrior (Standalone) 5.1 + Bootable 5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667054.jpg" />
+  <img src="Z:/picture/008/save_picture_667054.jpg" />
 </div>
 
 
@@ -474,7 +607,7 @@ Mic Drop 1.4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666817.jpg" />
+  <img src="Z:/picture/008/save_picture_666817.jpg" />
 </div>
 
 
@@ -500,7 +633,7 @@ Apps On Sale 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666779.jpg" />
+  <img src="Z:/picture/008/save_picture_666779.jpg" />
 </div>
 
 
@@ -529,7 +662,7 @@ SimBooster Premiun 2 2.9.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666777.jpg" />
+  <img src="Z:/picture/008/save_picture_666777.jpg" />
 </div>
 
 
@@ -557,7 +690,7 @@ KCNcrew Pack 03-15-22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666761.jpg" />
+  <img src="Z:/picture/008/save_picture_666761.jpg" />
 </div>
 
 
@@ -568,142 +701,6 @@ KCNcrew Pack - это огромнейший сборник серийников
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:754E730922ACFF3834B57705C3B9D312392213FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137697   (666727) от 27.05.2017
-
-TryToMP3 4.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666727.jpg" />
-</div>
-
-
-###  Подробнее
-
-TryToMP3 - это аудиоконвертер, работающий на Mac.
-Он предназначен для преобразования различных аудиоформатов в MP3. Программное обеспечение может интеллектуально распознавать большинство аудиоформатов и быстро передавать их в MP3. Без входа и регистрации или любого подключаемого модуля вы можете наслаждаться простым, быстрым и бесплатным прослушиванием в любое время (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Gmagon.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867ACC40FAFD3B9231980139B95D260E32CE21C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137608   (666720) от 27.05.2017
-
-PDFpenPro 9.0.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666720.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFpen Pro - Программа для создания и редактирования PDF-документов. С помощью PDFpen Pro вы сможете добавлять тексты, картинки, подписи, заполнять формы, делать исправления, добавлять, удалять и изменять порядок страниц. Помимо этого вы можете создавать собственные формы и таблицы контента.
-
-Так же PDFpen Pro умеет распознавать отсканированные документы для последующего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 мая 2017Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79341BBF0A8E93657C9E35F41C29EB5EB29F5856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224371   (665833) от 10.05.2018
-
-MediaChance Dynamic Auto Painter PRO 5.21 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Auto-Painter - это большой шаг вперед в автоматической живописи. Это уникальная программа, которая позволяет превратить ваши фотографии в картины, используя имитацию техники рисования самых знаменитых художников планеты. В отличие от других аналогичных инструментов и эффектов, Dynamic Auto-Painter не изменяет саму фотографию, он просто использует изображение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2018Разработчик: MediaChanceПоддерживаемая ОС: MacOSЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1998C712AFFFE1B7F4556CA2BA4F6CD82EA07367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138049   (665642) от 28.05.2017
-
-Mocks 2.6.8 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстро создавать красивые, высококачественный макеты  iOS, iPad и iPhone  приложений с Mocks.
-Mocks поставляется с встроенной коллекции графики, изображающие IOS иконки, интерфейс управления, а также виджеты (например, кнопки, панели инструментов и текстовые поля). Перетащите эти элементы управления из палитры библиотеки слева в центральную часть холста туда, где создается (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: Todd Ditchendorf.Поддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F6212584D6894614CA3DBA19230073766F0C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138171   (665574) от 28.05.2017
-
-TableEdit Pro v1.2.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665574.jpg" />
-</div>
-
-
-###  Подробнее
-
-TableEdit - это простое, чистое и элегантное приложение для электронных таблиц, разработанное специально для OS X. TableEdit отличается минималистичным, но интуитивно понятным интерфейсом и имеет удобные функции, такие как формулы, графики и исчерпывающие варианты стилей ячейки, а также широкие возможности импорта и экспорта.
-
-TableEdit был разработан с нуля, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.05.2017Разработчик: CoreCode LimitedПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF16D0D3F854489876ADB3E6AF257F54E937201
 ```
 
 https://mybot314.ru/tekegram_catalog/

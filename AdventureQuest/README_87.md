@@ -1,3 +1,81 @@
+###  Публикация: 1751435   (42463) от 25.09.2024
+
+DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединитесь к охоте как один из агентов, в этой многопользовательской игре Co-op & PVP о ужасе и обмане. Один из вас будет одержим и затем станет призраком, а остальные должны пережить преследование! Играйте в одиночку, или с вашими приятелями агентами до 4 игроков.Тип издания: SceneРазработчик: Digital HappinessЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Индонезийский, Испанский и другиеЯзык интерфейса: Русский, Английский, Индонезийский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027F5F96AA2B782DE47924DAB20096ABBA13CFA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126109   (42176) от 28.09.2024
+
+Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episodes 1-2]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весенний Париж. Выстрелы с балкона… Ограбление… убийство… и начало нового оригинального приключения в серии Broken Sword. Завоевавшая многочисленные награды компания Revolution Software представляет вашему вниманию последний эпизод классической серии. Присоединяйтесь к неустрашимому американцу Джорджу Стоббарту и дерзкой француженке Нико Колляр в поисках пропавшей (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution Software LtdЖанр: AdventureЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D068CFF42A3D62D2736DC300E27992B0B57754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747395   (42171) от 28.09.2024
+
+The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepticon
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Призрак Фрэнка Стоуна мучает Сидар-Хиллз - город, который так и не оправился после ужасных преступлений. Группа подростков погружается в мир кровавого наследия Стоуна. Опыт этот шрамами отпечатается на их судьбах и судьбах целых семей, вплетаясь в саму материю реальности.Тип издания: SceneРазработчик: Supermassive GamesЖанр: Horror, AdventureЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5494AE54CE72FA0C6059B24FDA7DD7C2F0DFFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741932   (42152) от 28.09.2024
 
 Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
@@ -6,7 +84,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42152.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42116.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Farewell North (2024) [Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42105.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Paper Ghost Stories: Third Eye Open (2024) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42079.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.2a) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42077.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42058.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Trap for the Heir (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42023.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Resolutiion (2020) [Ru/Multi] (1.3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41962.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Murder On Space Station 52 (2024) [Multi] (1.13.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41945.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41846.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Invincible (2023) [Ru/Multi] (44.475) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41814.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41736.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41715.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ AMEDAMA (2024) [Multi] (2.0.0/2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41491.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Beyond Hanwell (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41428.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Psycho Fear (2024) [Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41397.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41393.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41309.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41291.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41241.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41218.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41208.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40877.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90AFCD3E5053246F7E579222DF1327ED89F739FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754633   (40736) от 11.10.2024
-
-Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40736.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Средневековая доставка" - это симулятор и приключенческая игра. Погрузитесь в захватывающее путешествие по миру Средних веков, полному тайн и интриг. Игра происходит в оживленном городе Торнридж, где игроки берут на себя роль Алистера, скромного курьера с тайной прошлой. Путешествуя через живописные пейзажи и взаимодействуя с разнообразными жителями города, (   Читать дальше...   )Тип издания: RepackРазработчик: Mega Game StudiosЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A1F1AD9FB44E661C29692E9E27E47988C983D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754567   (40730) от 11.10.2024
-
-The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/dlc) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия, подарившая нам Until Dawn, представляет серию не связанных между собой кинематографичных игр с разветвлённым сюжетом в жанре ужасов. Отлично подходит для коротких игровых сеансов в одиночку или с друзьями. The Devil in Me - четвёртая игра серии, завершающая первый сезон. Группа документалистов получает таинственное приглашение в современную копию «Замка убийств» (   Читать дальше...   )Тип издания: RepackРазработчик: Supermassive GamesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22A4CBF503059AADB27A859CA30EBFF5E6DDE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754618   (40723) от 11.10.2024
-
-The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симулятор выживания на обитаемом острове - The Forest - сделана в новой для того времени графике, открыв совершенно неоднозначные игровые процессы для протагониста. Мы играем за персонажа, который попал на обитаемый остров, и теперь должен выжить при любых условиях. Атакующие туземцы-каннибалы, звери, нехватка еды, воды и убежища - всё это только мелочи. Недалеко (   Читать дальше...   )Тип издания: RepackРазработчик: Endnight Games LtdЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651FF423BFE28D5A05E80DD04C9A7781EBD6C239
 ```
 
 https://mybot314.ru/tekegram_catalog/

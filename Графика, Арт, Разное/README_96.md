@@ -1,3 +1,30 @@
+###  Публикация: 549778   (460581) от 21.09.2012
+
+[Wallpapers] Neo-Paris 2084
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_460581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет обоев - Нео Париж 2084
+В комплекте 11 штук с разрешением 1920х1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE93C988F02E321C4E324B93C26D48D6A268339D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549820   (460430) от 21.09.2012
 
 Artworks by LUKYANOV [Графика]
@@ -6,7 +33,7 @@ Artworks by LUKYANOV [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460430.jpg" />
+  <img src="Z:/picture/008/save_picture_460430.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460018.jpg" />
+  <img src="Z:/picture/008/save_picture_460018.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459658.jpg" />
+  <img src="Z:/picture/008/save_picture_459658.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459547.jpg" />
+  <img src="Z:/picture/008/save_picture_459547.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459314.jpg" />
+  <img src="Z:/picture/008/save_picture_459314.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459313.jpg" />
+  <img src="Z:/picture/008/save_picture_459313.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Hd mix wallpapers (22.09.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458236.jpg" />
+  <img src="Z:/picture/008/save_picture_458236.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ Artworks by Renato Guttuso [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457790.jpg" />
+  <img src="Z:/picture/008/save_picture_457790.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457778.jpg" />
+  <img src="Z:/picture/008/save_picture_457778.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ Peter Mohrbacher — американский художник — иллюст�
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457765.jpg" />
+  <img src="Z:/picture/008/save_picture_457765.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457466.jpg" />
+  <img src="Z:/picture/008/save_picture_457466.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457220.jpg" />
+  <img src="Z:/picture/008/save_picture_457220.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457137.jpg" />
+  <img src="Z:/picture/008/save_picture_457137.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456944.jpg" />
+  <img src="Z:/picture/008/save_picture_456944.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456943.jpg" />
+  <img src="Z:/picture/008/save_picture_456943.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456927.jpg" />
+  <img src="Z:/picture/008/save_picture_456927.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456847.jpg" />
+  <img src="Z:/picture/008/save_picture_456847.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456736.jpg" />
+  <img src="Z:/picture/008/save_picture_456736.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455866.jpg" />
+  <img src="Z:/picture/008/save_picture_455866.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455859.jpg" />
+  <img src="Z:/picture/008/save_picture_455859.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455752.jpg" />
+  <img src="Z:/picture/008/save_picture_455752.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455601.jpg" />
+  <img src="Z:/picture/008/save_picture_455601.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455445.jpg" />
+  <img src="Z:/picture/008/save_picture_455445.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453562.jpg" />
+  <img src="Z:/picture/008/save_picture_453562.jpg" />
 </div>
 
 
@@ -632,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453243.jpg" />
+  <img src="Z:/picture/008/save_picture_453243.jpg" />
 </div>
 
 
@@ -643,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19EF3C2F2D2688B52D8187866B48264DA0216E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548015   (452925) от 12.08.2022
-
-Современная фотография - Русский флот. Часть 6: Сторожевые и пограничные корабли и катера [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотографии сторожевых и пограничных кораблей (катеров). Сторожевой корабль - класс боевых надводных кораблей, предназначенных для несения дозорной службы, охранения крупных кораблей, транспортов и десантных кораблей (судов) от атак подводных лодок, торпедных катеров и авиации противника на переходе морем и при стоянке на открытых рейдах.Сторожевые корабли также привлекаются (   Читать дальше...   )Формат: JPGРазрешение файлов: от 900х500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5B8462E8CE0EA2C67A6367A8EEE2F9D28A9784
 ```
 
 https://mybot314.ru/tekegram_catalog/

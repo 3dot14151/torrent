@@ -1,3 +1,148 @@
+###  Публикация: 1220138   (703984) от 19.04.2018
+
+The Cars - Heartbeat City (1984) Remastered, 2018, Expanded Edition [FLAC|Lossless|WEB-DL|tracks|24Bit] <Pop Rock, Soft Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hello Again (Remastered) (3:46)
+ 2. Looking For Love (Remastered) (3:52)
+ 3. Magic (Remastered) (3:57)
+ 4. Drive (Remastered) (3:54)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, Synth-popПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77AC7EE5924B581C41B4900F7FD67C6970B52B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132036   (703067) от 08.05.2017
+
+Cakewalk - Ishihara (2017) [FLAC|Lossless|tracks + .cue] <Progressive rock, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkeys (08:49)
+02. Shrooms (05:33)
+03. Dome (04:19)
+04. State (08:25)(   Читать дальше...   )Жанр: Progressive rock, FusionПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B4E92010BC8EAC2E746FBCCC2C6E3CCDE1D020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132167   (702829) от 08.05.2017
+
+White Reaper - The World's Best American Band (2017) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock, Power Pop, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_702829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World's Best American Band
+02. Judy French
+03. Eagle Beach
+04. Little Silver Cross(   Читать дальше...   )Жанр: Garage Rock, Power Pop, Rock'n'RollПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36ABCDBA75B70DA81FC71F68FA3043980E562C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131973   (702658) от 08.05.2017
+
+Chris Norman - The Hits! From His Smokie And Solo Years (2009) Compilation, 2CD [FLAC|Lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_702658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Battlefield (5:09)
+02. Mindnight Lady (4:11)
+03. Some Hearts Are Diamonds  (3:45)
+04. No Arms Can Ever Hold You (3:47)(   Читать дальше...   )Жанр: Pop-Rock |Продолжительность: 02:15:37 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561F985587ADD886E77E1F2E9A450C5C3B386AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026483   (702516) от 16.06.2016
+
+Blood For Blood - Outlaw Anthems (2002) [FLAC|Lossless|tracks] <Rock, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_702516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Post Card From The Edge    03:13
+02. Mother Dear    01:49
+03. Ain't Like You (wasted Youth Ii)    03:29
+04. Dead End Street    02:57(   Читать дальше...   )Жанр: Rock, HardcoreПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51ECDEB5A18E8E35321496AC37F83E5FBBEC7EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026702   (702511) от 16.06.2016
 
 Juicy Lucy - Blue Thunder (1996) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -6,7 +151,7 @@ Juicy Lucy - Blue Thunder (1996) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702511.jpg" />
+  <img src="Z:/picture/008/save_picture_702511.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Blues Rebels - Voodoo Land (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702505.jpg" />
+  <img src="Z:/picture/008/save_picture_702505.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702435.jpg" />
+  <img src="Z:/picture/008/save_picture_702435.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Bonnie Tyler - The Best Of 20 Classic Tracks (1994) Compilation [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702176.jpg" />
+  <img src="Z:/picture/008/save_picture_702176.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Styx - Paradise Theater (1980) Remaster, Hybrid SACD /2014, Audio Fidelity/ [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702140.jpg" />
+  <img src="Z:/picture/008/save_picture_702140.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Jude Cole - A View From 3rd Street (1990) [FLAC|Lossless|tracks] <Soft Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700506.jpg" />
+  <img src="Z:/picture/008/save_picture_700506.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Nemrud - 3 Albums (2010 - 2016)[FLAC|Lossless|image + .cue]<Progressive rock, Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700330.jpg" />
+  <img src="Z:/picture/008/save_picture_700330.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Pianoбой (Піанобой) - Take Off (2015) [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700323.jpg" />
+  <img src="Z:/picture/008/save_picture_700323.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700073.jpg" />
+  <img src="Z:/picture/008/save_picture_700073.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Magic Bus - The Earth Years (2020) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700057.jpg" />
+  <img src="Z:/picture/008/save_picture_700057.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Feuerschwanz - Dаs Еlftе Gеbоt (2020) 2xCD [FLAC|Lossless|image + .cue] <Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699939.jpg" />
+  <img src="Z:/picture/008/save_picture_699939.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ David Bowie - Something In The Air (Live Paris 99) Remastered, 2020, Rhino Parlo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699702.jpg" />
+  <img src="Z:/picture/008/save_picture_699702.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Various Artists - New Rock Sound Therapy (1997) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_698897.jpg" />
+  <img src="Z:/picture/005/save_picture_698897.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ The Charlie Daniels Band - Tailgate Party (1999) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697871.jpg" />
+  <img src="Z:/picture/008/save_picture_697871.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ Candlebox - Happy Pills (1998) [FLAC|Lossless|tracks + .cue] <Rock, Grunge, Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697869.jpg" />
+  <img src="Z:/picture/008/save_picture_697869.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ Big Head Todd And The Monsters - Sister Sweetly (1993) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697861.jpg" />
+  <img src="Z:/picture/008/save_picture_697861.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ Sheryl Crow - C'mon, C'mon (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697772.jpg" />
+  <img src="Z:/picture/008/save_picture_697772.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ Rick Wakeman & The English Rock Ensemble - The Red Planet (2020) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697709.jpg" />
+  <img src="Z:/picture/008/save_picture_697709.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Meredith Brooks - Blurring The Edges (1997) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697650.jpg" />
+  <img src="Z:/picture/008/save_picture_697650.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Trapt - Trapt (2002) [FLAC|Lossless|tracks + .cue] <Rock, Grunge>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697374.jpg" />
+  <img src="Z:/picture/008/save_picture_697374.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ Last Train - Weathering (2017) [FLAC|Lossless|tracks] <Blues Rock, Garage Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696941.jpg" />
+  <img src="Z:/picture/008/save_picture_696941.jpg" />
 </div>
 
 
@@ -601,153 +746,6 @@ Last Train - Weathering (2017) [FLAC|Lossless|tracks] <Blues Rock, Garage Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9522595B0EB4C549826F6EEEFE8966656D79B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132856   (696939) от 11.05.2017
-
-Planet P Project -  Pink World (1984) Remastered, 2008, Renaissance Records [FLAC|Lossless|image + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Woods 01:00
-02. To Live Forever 04:00
-03. Pink World 04:29
-04. What I See 04:40(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C4CC9B633DB0645FD86B44A0BAD72E80549538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132822   (696932) от 11.05.2017
-
-VA - Dansk Rock Historie (1965-1978) 3 Box Set - 33CD, 2010 [WavPack|Lossless|image + .cue] <Rock, Blues Rock, Progressive Rock, Psychedelic Rock, Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696932.jpg" />
-</div>
-
-
-###  Подробнее
-
-40 исторических альбомов на тридцати дисках,
-составляющих сливки золотого века датской рок-музыки 1965-1978 гг.
-Каждый бокс дополнен бонусным CD ранее неизданного материала!1. Dunhammeraften 05:25
-2. Itsi-bitsi 04:54
-3. Til Nashet 05:23
-4. Jensen 06:40(   Читать дальше...   )Жанр: Rock, Blues Rock, Progressive Rock, Psychedelic Rock, Folk-RockПродолжительность: 32:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D759BC01BCD2D2673F8C936E1855E8713F04C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132529   (696929) от 11.05.2017
-
-Manfred Mann's Earth Band -  Nightgales And Bombers (1975) Remastered, 1999, Creature Music [FLAC|Lossless|image + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirits In The Night
-02. Countdown
-03. Time Is Right
-04. Crossfade(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE01F163A61B2DC13AA740BD961F408FE9E24CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082581   (696861) от 11.05.2017
-
-Riverside - 7 Albums (2003 - 2016) [FLAC|Lossless|image + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepwalkers 7:19
-02. Rainbow Trip (2016 mix) 6:19
-03. Heavenland 5:00
-04. Return 6:50(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3357E1573BD78A417C18CD405DC1D6A8F12C48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221038   (696730) от 23.04.2018
-
-Czeslaw Niemen - Czas jak rzeka - Zlota kolekcj (2000) Compilation [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Przyjdź W Taką Noc
-2	Sen O Warszawie
-3	Wspomnienie
-4	Pod Papugami(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8456BCAC0AF7FA4311951013EA5E78E1D18F6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

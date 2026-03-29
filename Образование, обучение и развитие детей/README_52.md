@@ -1,3 +1,56 @@
+###  Публикация: 947278   (420514) от 16.10.2015
+
+Валентин Азерников | Неслучайные случайности (1972) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга об истории науки, о драме идей и их творцов. Закон плавающих тел, рентгеновские лучи, радиоактивность, строение атома, цепные реакции — вот неполный перечень открытий, которые выстрадали своей жизнью, заполненной напряженным трудом, крупнейшие ученые мира — Архимед. Резерфорд, Беккерель, Семенов.Жанр: Познавательная и справочная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5A93B92006AFB0AC7594E24C9F22978D12BB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167235   (419424) от 19.09.2017
+
+Я.И. Перельман | Фокусы и развлечения (1927) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419424.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник "Фокусы и развлечения" вошли три популярных книги Якова Исидоровича Перельмана "Числа-великаны", "Чудо нашего века", "Между делом".
+Для школьников средних классов, студентов и учащихся техникумов, для всех желающих восполнить пробелы в своем образовании.Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4553F441C58B2E3B982313CE23EE6059D808FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065569   (418447) от 23.10.2016
 
 А.В Горячев и др. | Информатика в играх и задачах. 5-й класс. Учебное пособие, контрольные работы и тесты. Изд. 2-е, испр. (2013) [PDF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418447.jpg" />
+  <img src="Z:/picture/008/save_picture_418447.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418202.jpg" />
+  <img src="Z:/picture/008/save_picture_418202.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417805.jpg" />
+  <img src="Z:/picture/008/save_picture_417805.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417804.jpg" />
+  <img src="Z:/picture/008/save_picture_417804.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417759.jpg" />
+  <img src="Z:/picture/008/save_picture_417759.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417683.jpg" />
+  <img src="Z:/picture/008/save_picture_417683.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417651.jpg" />
+  <img src="Z:/picture/008/save_picture_417651.jpg" />
 </div>
 
 
@@ -199,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417643.jpg" />
+  <img src="Z:/picture/008/save_picture_417643.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417017.jpg" />
+  <img src="Z:/picture/008/save_picture_417017.jpg" />
 </div>
 
 
@@ -254,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416188.jpg" />
+  <img src="Z:/picture/008/save_picture_416188.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416162.jpg" />
+  <img src="Z:/picture/008/save_picture_416162.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416001.jpg" />
+  <img src="Z:/picture/008/save_picture_416001.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415741.jpg" />
+  <img src="Z:/picture/008/save_picture_415741.jpg" />
 </div>
 
 
@@ -364,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415726.jpg" />
+  <img src="Z:/picture/008/save_picture_415726.jpg" />
 </div>
 
 
@@ -393,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415294.jpg" />
+  <img src="Z:/picture/008/save_picture_415294.jpg" />
 </div>
 
 
@@ -419,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415218.jpg" />
+  <img src="Z:/picture/008/save_picture_415218.jpg" />
 </div>
 
 
@@ -446,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414869.jpg" />
+  <img src="Z:/picture/008/save_picture_414869.jpg" />
 </div>
 
 
@@ -472,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414381.jpg" />
+  <img src="Z:/picture/008/save_picture_414381.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414170.jpg" />
+  <img src="Z:/picture/008/save_picture_414170.jpg" />
 </div>
 
 
@@ -525,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413322.jpg" />
+  <img src="Z:/picture/008/save_picture_413322.jpg" />
 </div>
 
 
@@ -551,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412704.jpg" />
+  <img src="Z:/picture/008/save_picture_412704.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412223.jpg" />
+  <img src="Z:/picture/008/save_picture_412223.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412076.jpg" />
+  <img src="Z:/picture/008/save_picture_412076.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412021.jpg" />
+  <img src="Z:/picture/008/save_picture_412021.jpg" />
 </div>
 
 
@@ -645,61 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E603C6A95BC02E6A5CFE15BC0E2CF99CFB944AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168083   (411812) от 22.09.2017
-
-Детгиз, Детская литература | Серия "Знай и умей" [129 книг] (1960-2004) [PDF, DJVU, FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия научно-популярных книг, которая поначалу (с 1960 года) называлась Библиотечка пионера «Знай и умей» . В 1979 году у серии сменился логотип и слова «Библиотечка пионера» исчезли из названия серии, но целевая аудитория осталась прежней - школьники «пионерского» возраста, 9 – 14 лет. Очередные изменения логотипа произошли в 1994 и 1997 годах. С 2001 года в серии (   Читать дальше...   )Жанр: Познвательная литератураФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF9395D46F1999CFD899EBA9F1BAEB528D486E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413183   (411447) от 02.10.2020
-
-Любовь Вайткене, Ксения Аниашвили, Марина Талер | Детская научная лаборатория. Лучшие опыты и эксперименты дома для детей и взрослых (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомство с этой книгой может оказаться хорошей альтернативой ежевечернему серфингу по Всемирной сети, не способствующему объединению семьи.
-
-Ведь в этом красочном издании собраны самые интересные опыты и эксперименты, которые легко повторить даже в самой мало оборудованной "домашней лаборатории".
-(   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9C4E394F004FAA168190F4E1522F15E5C819F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

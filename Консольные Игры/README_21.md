@@ -6,7 +6,7 @@ Sonic Lost World (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744613.jpg" />
+  <img src="Z:/picture/008/save_picture_744613.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ NES Remix (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744607.jpg" />
+  <img src="Z:/picture/008/save_picture_744607.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Need for Speed: Most Wanted U (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744426.jpg" />
+  <img src="Z:/picture/008/save_picture_744426.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Super Smash Bros. Brawl Project M (2015) [Wii] [USA] 4.3Е [Repack / 3.6+mf] [En
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743781.jpg" />
+  <img src="Z:/picture/008/save_picture_743781.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ F.E.A.R. 3 (2011) [PS3] [EUR] 3.60 [OFW] [DLC] [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743172.jpg" />
+  <img src="Z:/picture/008/save_picture_743172.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Super Mario Party (2018) [Switch] [EUR] 6.0.0 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743162.jpg" />
+  <img src="Z:/picture/008/save_picture_743162.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Costume Quest 2 (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743064.jpg" />
+  <img src="Z:/picture/008/save_picture_743064.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SoulCalibur Broken Destiny [PS3] [Eng/Rus] [NTSC] (2009)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742681.jpg" />
+  <img src="Z:/picture/008/save_picture_742681.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Bully: Scholarship Edition (2008) [Xbox360] [Region Free] FreeBoot [Unofficial] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739474.jpg" />
+  <img src="Z:/picture/008/save_picture_739474.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ RAGE (2011) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License / 3 DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739447.jpg" />
+  <img src="Z:/picture/008/save_picture_739447.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Tales of Graces f / Сказания Милосердия б (2012) [PS3] [EUR] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739442.jpg" />
+  <img src="Z:/picture/008/save_picture_739442.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Tales of Graces f / Сказания Милосердия б (Undub) (2012) [PS3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739436.jpg" />
+  <img src="Z:/picture/008/save_picture_739436.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Amazing Spider-Man / Новый Человек-Паук (2012) [PS3] [EUR] 4
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736958.jpg" />
+  <img src="Z:/picture/008/save_picture_736958.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ DARK SOULS II: Scholar of the First Sin (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735295.jpg" />
+  <img src="Z:/picture/008/save_picture_735295.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Mortal Kombat vs DC Universe [USA] [En] [2.50] [Cobra ODE / E3 ODE PRO ISO] (200
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735007.jpg" />
+  <img src="Z:/picture/008/save_picture_735007.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ M&M's Adventure [Wii] [English] [NTSC-U] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734578.jpg" />
+  <img src="Z:/picture/008/save_picture_734578.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ratatouille / Рататуй (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734377.jpg" />
+  <img src="Z:/picture/008/save_picture_734377.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Ice Age 4: Continental Drift - Arctic Games / Ледниковый период 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734373.jpg" />
+  <img src="Z:/picture/008/save_picture_734373.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Cars 2 / Тачки 2 (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO] [License]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734358.jpg" />
+  <img src="Z:/picture/008/save_picture_734358.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730292.jpg" />
+  <img src="Z:/picture/008/save_picture_730292.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Final Exam (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730288.jpg" />
+  <img src="Z:/picture/008/save_picture_730288.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Resident Evil: Revelations (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729303.jpg" />
+  <img src="Z:/picture/008/save_picture_729303.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ WALL-E / ВАЛЛ-И (2008) [PS3] [EUR] 2.35 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728445.jpg" />
+  <img src="Z:/picture/008/save_picture_728445.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ GoldenEye 007: Reloaded (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727291.jpg" />
+  <img src="Z:/picture/008/save_picture_727291.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ The Elder Scrolls III Morrowind GOTY (2003) [Xbox] [RegionFree] FreeBoot [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727288.jpg" />
+  <img src="Z:/picture/008/save_picture_727288.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Battle: Los Angeles (2011) [PS3] [USA] 3.55 [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726289.jpg" />
+  <img src="Z:/picture/008/save_picture_726289.jpg" />
 </div>
 
 

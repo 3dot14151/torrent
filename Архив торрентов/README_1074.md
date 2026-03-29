@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801194.jpg" />
+  <img src="Z:/picture/008/save_picture_801194.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer 3.0.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801187.jpg" />
+  <img src="Z:/picture/008/save_picture_801187.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Luminar 1.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801180.jpg" />
+  <img src="Z:/picture/008/save_picture_801180.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Geekbench 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801178.jpg" />
+  <img src="Z:/picture/008/save_picture_801178.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Rufus 2.13 (Build 1077) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801177.jpg" />
+  <img src="Z:/picture/008/save_picture_801177.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ UltraUXThemePatcher 3.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801170.jpg" />
+  <img src="Z:/picture/008/save_picture_801170.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Affinity Designer 1.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801166.jpg" />
+  <img src="Z:/picture/008/save_picture_801166.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Artstudio Pro 3.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801165.jpg" />
+  <img src="Z:/picture/008/save_picture_801165.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Lungo 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801163.jpg" />
+  <img src="Z:/picture/008/save_picture_801163.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Music Tag Editor 5.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801162.jpg" />
+  <img src="Z:/picture/008/save_picture_801162.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Things 3 v3.15.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801158.jpg" />
+  <img src="Z:/picture/008/save_picture_801158.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Exposure Software Blow Up 3 v3.1.4.391 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801156.jpg" />
+  <img src="Z:/picture/008/save_picture_801156.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Recordr Premium 2.7 [Ru] - Диктофон
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801151.jpg" />
+  <img src="Z:/picture/008/save_picture_801151.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801149.jpg" />
+  <img src="Z:/picture/008/save_picture_801149.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Styx: Shards of Darkness (2017) [Ru/Multi] (1.02/dlc) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801146.jpg" />
+  <img src="Z:/picture/008/save_picture_801146.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Trust (2012) Time Released Sound [FLAC|Lossless|tracks+.cue] <Ambient, Expe
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801144.jpg" />
+  <img src="Z:/picture/008/save_picture_801144.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801142.jpg" />
+  <img src="Z:/picture/008/save_picture_801142.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nacht Plank - Nemmit Con (2018) TXT Recordings [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801141.jpg" />
+  <img src="Z:/picture/008/save_picture_801141.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Mysterious Station The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|320 Kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801136.jpg" />
+  <img src="Z:/picture/008/save_picture_801136.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Porches - The House (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801135.jpg" />
+  <img src="Z:/picture/008/save_picture_801135.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801126.jpg" />
+  <img src="Z:/picture/008/save_picture_801126.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801125.jpg" />
+  <img src="Z:/picture/008/save_picture_801125.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Viwizard Spotify Music Converter for Mac 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801118.jpg" />
+  <img src="Z:/picture/008/save_picture_801118.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Exposure X7 Bundle v7.0.2.68 fix [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801115.jpg" />
+  <img src="Z:/picture/008/save_picture_801115.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Exposure X7 v7.0.2.119 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801106.jpg" />
+  <img src="Z:/picture/008/save_picture_801106.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801098.jpg" />
+  <img src="Z:/picture/008/save_picture_801098.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1064040   (430012) от 18.10.2016
+
+Дмитрий Емец | Таня Гроттер и исчезающий этаж (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга серии.
+Тане Гроттер сначала придётся на время вернуться в Москву к своим родственникам лопухоидам Дурневым. А после возвращения на остров Буян в школу магии Тибидохс, ей предстоит узнать всю правду о загадочном Исчезающем Этаже, снова встретиться со своим заклятым врагом злой колдуньей Чумой-дель-Торт и проверить на прочность дружбу, любовь и преданность (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 10:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB585638E01C2362D0373DED39741D5456E4AB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571764   (429660) от 23.08.2022
+
+Коллектив авторов | Профориентация (Лекторий ВШЭ) (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ребёнок, ставший жертвой буллинга, не всегда готов говорить об этом маме или педагогу, однако рассказывать об этом необходимо – только так можно разобраться с проблемой и сформировать в образовательной организации правильную атмосферу. В чём причина травли? Как говорить об этом с ребёнком? Что делать родителям и учителям? Можно ли повлиять на школьный климат?
+
+Цикл (   Читать дальше...   )Жанр: педагогика, публицистика, социологияПродолжительность: 12:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB26B086A374A1747B7FACF2DB1E834569AA1226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 394941   (425858) от 01.10.2011
+
+Владислав Крапивин | Ковёр-самолёт (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается, летать можно не только во сне. Герои сказочной повести — самые обыкновенные ребята. Однажды летом они нашли в старом чулане ковер и узнали его тайну. С этого момента перед друзьями открылись невероятные возможности. Их ждут захватывающие приключения и замечательные путешествия, в которых отважным «летчикам» предстоит совершить множество добрых и справедливых (   Читать дальше...   )Жанр: Сказочная повестьФормат: MP3Продолжительность: 05:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDFB5468C8A9EFFC978454F2090AE0E2E217371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093445   (425078) от 26.09.2020
 
 Роберт Льюис Стивенсон | Остров сокровищ. Часть 1 и 2 (2015) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425078.jpg" />
+  <img src="Z:/picture/008/save_picture_425078.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423936.jpg" />
+  <img src="Z:/picture/008/save_picture_423936.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423792.jpg" />
+  <img src="Z:/picture/008/save_picture_423792.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423323.jpg" />
+  <img src="Z:/picture/008/save_picture_423323.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423308.jpg" />
+  <img src="Z:/picture/008/save_picture_423308.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423169.jpg" />
+  <img src="Z:/picture/008/save_picture_423169.jpg" />
 </div>
 
 
@@ -169,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422492.jpg" />
+  <img src="Z:/picture/005/save_picture_422492.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421788.jpg" />
+  <img src="Z:/picture/008/save_picture_421788.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420537.jpg" />
+  <img src="Z:/picture/008/save_picture_420537.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420375.jpg" />
+  <img src="Z:/picture/008/save_picture_420375.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420372.jpg" />
+  <img src="Z:/picture/008/save_picture_420372.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420364.jpg" />
+  <img src="Z:/picture/008/save_picture_420364.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419465.jpg" />
+  <img src="Z:/picture/008/save_picture_419465.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418273.jpg" />
+  <img src="Z:/picture/008/save_picture_418273.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416898.jpg" />
+  <img src="Z:/picture/008/save_picture_416898.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416115.jpg" />
+  <img src="Z:/picture/008/save_picture_416115.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416034.jpg" />
+  <img src="Z:/picture/008/save_picture_416034.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415972.jpg" />
+  <img src="Z:/picture/008/save_picture_415972.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415497.jpg" />
+  <img src="Z:/picture/008/save_picture_415497.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414317.jpg" />
+  <img src="Z:/picture/008/save_picture_414317.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411567.jpg" />
+  <img src="Z:/picture/008/save_picture_411567.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409853.jpg" />
+  <img src="Z:/picture/008/save_picture_409853.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408355.jpg" />
+  <img src="Z:/picture/008/save_picture_408355.jpg" />
 </div>
 
 
@@ -609,85 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:288A2C308C15D562FE81458D2849683767577D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067297   (408239) от 28.10.2016
-
-Николай Кун | Подвиги Геракла (2006) [MP3, Николай Караченцов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древнегреческая культура оставила нам в наследство удивительные мифы о всемогущих богах и мудрых богинях, об опасных путешествиях и славных походах. Дошла до нас и легенда об отважном герое Древней Греции - Геракле. Чтобы искупить прежние грехи и обрести бессмертие Геракл должен совершить двенадцать подвигов.Жанр: Детская литература,МифологияИздательство: АрдисПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C1AD919EE27910AB6C1B067FD6B0C86C8C2695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387720   (406899) от 14.10.2012
-
-Андрей Усачёв | Чудеса в Дедморозовке (Аудиоспектакль) (2009) [MP3, Владимир Меньшов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение веселого аудиоспектакля «Школа снеговиков». Вас ждут новые приключения Деда Мороза и его забавных внуков – снеговиков и их друзей.
-Далеко на Севере, где-то в Архангельской или Вологодской области, есть невидимая деревня Дедморозовка. В этой деревне и проводит большую часть года Дед Мороз, его внучка Снегурочка, а также их помощники – снеговики и снеговички. (   Читать дальше...   )Жанр: СказкаВ ролях: Владимир Меньшов, Александр Пожаров, Лариса Брохман, Ольга Шорохова, Александр ПинегинИздательство: ВимбоПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816A8C33192830E1E875EA93C9E0B629490E674C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213998   (406765) от 06.10.2020
-
-Кэтрин Кволс | Радость воспитания (2013) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэтрин Кволс - семейный консультант, основатель Сообщества Детских и Семейных Отношений и Сообщества по Обучению Инструкторов Родительскому Мастерству. В своей книге "Радость воспитания" она предлагает тысячу практических методов, как переориентировать внимание ребенка с негатива на позитив. С плохого поступка - на ответственность за него, с плохого мнения (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 08:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD972C5EC98A3780683D8522752DAB9886B0D140
 ```
 
 https://mybot314.ru/tekegram_catalog/

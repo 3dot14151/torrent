@@ -6,7 +6,7 @@ VA - Steyoyoke Gems Nocturnal 10 (2021) [AAC|~330 Kbps] <Progressive House, Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138174.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Organica - Sound Tales 2 (2021) [AAC|~303 Kbps] <Deep House, Dub Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138123.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Yes - Fragile (1971) Remaster, 2015, Atlantic Records [ALAC|2.0 24/88|tracks]<Sy
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138120.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Steyoyoke Gems Solar 10 (2021) [AAC|~337 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138114.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138105.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Organica - Sound Tales 1 (2021) [AAC|~305 Kbps] <Deep House, Dub Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138090.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138045.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137940.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137857.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137806.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137787.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137711.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137683.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137584.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137539.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132938.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Shanti People - Krishna Is Love (2013) [AAC|~287 Kbps] <Folk, EDM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130352.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - White Sands (Chill Out And Electronic Collection), Vol. 1 (2022) [AAC|~323 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130348.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - In The Mood For Love (2022) [AAC|~308 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130344.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130340.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130333.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130323.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130319.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130315.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130312.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130310.jpg" />
 </div>
 
 

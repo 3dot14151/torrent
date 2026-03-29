@@ -1,3 +1,107 @@
+###  Публикация: 920595   (578916) от 23.07.2015
+
+Discovery. Катастрофа на колесах / Wheels That Fail (2014) HDTV [H.264/720p] [Серии 1-6] [Обновляемая]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этой программы съехали с катушек – когда они за рулем, это просто катастрофа! Такой подборки видео о происшествиях на колесах вы еще не видели: Discovery Channel выбрал самые смешные, самые опасные и самые захватывающие ролики, где автомобили и мотоциклы сталкиваются, переворачиваются, взрываются, падают в воду, летят под откос – и этот список можно продолжать (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAC166CC14F695B08068F9B8D7EC28E8441AEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920735   (578832) от 23.07.2015
+
+Discovery. Дорожные ковбои / Аsphalt Сowboys (2012) HDTVRip [Серии 1-2]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дальнобойщики Германии – уже своего рода водительская элита, а для тех, кто хочет почувствовать себя за рулем фуры, даже придумали компьютерный симулятор. Теперь же на работу дальнобойщиков можно посмотреть со всех ракурсов: программа Discovery Channel «Дорожные ковбои» расскажет о том, каково это – наматывать километры по автобанам, сидя в кабине немецкого грузовика. (   Читать дальше...   )Телекомпания: Германия, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704E2C95B7C6FBB09FCCF693061684ACC3C73710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554313   (578795) от 29.05.2022
+
+Египет с высоты птичьего полёта / Egypt from Above (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет... Родина одной из древнейших могучих и долговечных цивилизаций в мире. Захватывающее путешествие по воздуху позволит нам посетить самые удивительные места и покажет, как невероятные достижения древних помогли сформировать современный Египет. Обозревая грандиозный ландшафт с высоты птичьего полёта, мы узнаем, как многие поколения египтян строили уникальное (   Читать дальше...   )Производство: Великобритания, Windfall Films LTD, National GeographicЖанр: документальный, история, путешествия, культураРежиссер: Мэтт Каррингтон, Фрэнки Фазерс / Matt Currington, Frankie FathersПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 2x ~00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FF7F339E40AF7053C6B315519B6D4ACB4B222A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233748   (578058) от 01.07.2018
+
+NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDTVRip [H.264/1080i-LQ] [hand made 50 fps]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посмотрите на яростное пожирание добычи крокодилами, благодаря кадрам, снятым человеком, рискнувшим оказаться среди них в момент их трапезы.Производство: США, NHU Africa, Foster Brothers Film Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Крейг Фостер, Деймон ФостерПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FEA91A0C63F59BB2AD6C7FC397491B33378519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302907   (577995) от 18.05.2019
 
 BBC. Снежные медведи / Snow Bears (2017) DVB [H.264]
@@ -6,7 +110,7 @@ BBC. Снежные медведи / Snow Bears (2017) DVB [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577995.jpg" />
+  <img src="Z:/picture/008/save_picture_577995.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Animal Planet. Банда тигриц / Tigress Blood (2014) HDTVRip [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577948.jpg" />
+  <img src="Z:/picture/008/save_picture_577948.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577928.jpg" />
+  <img src="Z:/picture/008/save_picture_577928.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Дикая природа Индонезии / Wild Indonesia (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577867.jpg" />
+  <img src="Z:/picture/008/save_picture_577867.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: Мир природы. В поисках легенды – чёрный л
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577820.jpg" />
+  <img src="Z:/picture/005/save_picture_577820.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577400.jpg" />
+  <img src="Z:/picture/008/save_picture_577400.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC: Прогулки с динозаврами / Walking with Dinosaurs (1999) 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577303.jpg" />
+  <img src="Z:/picture/008/save_picture_577303.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2013) SATRip (1 сезо
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577238.jpg" />
+  <img src="Z:/picture/008/save_picture_577238.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTVRip [Серия 1-4
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577182.jpg" />
+  <img src="Z:/picture/008/save_picture_577182.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2014) HDTVRip (2 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577178.jpg" />
+  <img src="Z:/picture/008/save_picture_577178.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTV [H.264/720p] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577174.jpg" />
+  <img src="Z:/picture/008/save_picture_577174.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577115.jpg" />
+  <img src="Z:/picture/008/save_picture_577115.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Discovery: Безопасность границ: США (сериия 1-11 из
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576914.jpg" />
+  <img src="Z:/picture/008/save_picture_576914.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576896.jpg" />
+  <img src="Z:/picture/008/save_picture_576896.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ BBC: Мир природы: Снежный Барс / BBC: Natural World: Snow L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576761.jpg" />
+  <img src="Z:/picture/005/save_picture_576761.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ BBC: Борьба за жизнь / Fight for Life (2007) 3хDVD5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576673.jpg" />
+  <img src="Z:/picture/005/save_picture_576673.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC: Разум человека (Лабиринты мозга) / The Human Min
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576643.jpg" />
+  <img src="Z:/picture/005/save_picture_576643.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Discovery Channel: Battlefield / Поля сражений (2005) TvRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576624.jpg" />
+  <img src="Z:/picture/005/save_picture_576624.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Discovery: История изобретений, Промышленные от�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576605.jpg" />
+  <img src="Z:/picture/005/save_picture_576605.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Discovery: Доисторические хроники. Даллас / Prehistor
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576423.jpg" />
+  <img src="Z:/picture/008/save_picture_576423.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Animal Planet. Дикая Франция (10 серий из 10) / Wild France (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576220.jpg" />
+  <img src="Z:/picture/008/save_picture_576220.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576000.jpg" />
+  <img src="Z:/picture/008/save_picture_576000.jpg" />
 </div>
 
 
@@ -565,112 +669,6 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB9D9ADA24E619420801005BED63FF496313015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303120   (575995) от 19.05.2019
-
-NGW: Хищник в раю. Прибрежные убийцы / Predator in Paradise. Seaside Assassins (2019) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все живые существа вдоль побережья вынуждены выживать в этих бесконечно меняющихся ландшафтах, где суша встречается с морем, и все их существование неразрывно связано с водой.
-Безмятежные на первый взгляд пляжи - настоящая арена для схваток хищников.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Карен ГринфилдПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89879B6D2D77E4D63FA7AEED2B61FD0F111E3F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303050   (575987) от 19.05.2019
-
-NGW. Королевство обезьян: Брат против брата / Kingdom Of The Apes: Brother vs. Brother (2014) HDTV [H.264/1080i-LQ] (Сезон 1, серия 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постепенно исчезающие Африканские джунгли. Здесь раскрываются секреты деградантов, что находятся на пороге полного исчезновения. Шимпанзе и гориллы — наши ближайшие родственники в животном мире. И они обитают в до боли нам знакомых условиях. Молодые воины вынуждены идти сражаться, чтобы расширить владения своего королевства. Матери отчаянно заботятся о потомстве (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кэтрин ЙеллосПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E184AD9A0B9E89338CA6BC50036BF6DED3F8CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233971   (575910) от 02.07.2018
-
-BBC. Большое австралийское приключение (Виктория) / Coast Australia (2013) HDTV [H.264/1080i-LQ] (сезон 1, серия 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подавляющее большинство австралийцев живёт в городах, которые расположены недалеко от побережья. Британский журналист и писатель Нейл Оливер вместе с энтузиастами отправляется в путешествие вдоль берегов Австралии. Вместе они узнают много нового об истории и географии этих мест. Их ждут потрясающие пейзажи и интересные встречи с людьми. Присоединяйтесь к захватывающему (   Читать дальше...   )Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Джейн МанингПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBEC2329E47FBB1468AD666FC01AAD8DBBE8575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303122   (575860) от 19.05.2019
-
-Animal Planet: В дикие края с Эваном. Приключения Непальского слона / Evan Goes Wild (2019) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеринар Эван Энтин путешествует по миру, спасает и лечит диких зверей. Пусть он родился в Канзасе, но его любовь к братьям нашим меньшим не знает границ, и у него есть длинный список животных, которых он мечтает увидеть в их естественной среде обитания.
-Доктор Эван Энтин путешествует по миру, спасает и изучает диких животных. Основное внимание он уделяет лечению (   Читать дальше...   )Производство: США, Industrial Media, Animal PlanetЖанр: Документальный, исследование, фаунаПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49197FE9A24A64C0C7D3A9AC7570D8FED01574D
 ```
 
 https://mybot314.ru/tekegram_catalog/

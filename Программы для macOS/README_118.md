@@ -1,3 +1,139 @@
+###  Публикация: 1339274   (267054) от 18.11.2019
+
+TunesKit Audio Converter 3.2.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это полнофункциональный инструмент для преобразования звука, который позволяет конвертировать все виды аудиофайлов, включая защищенную и незащищенную музыку FairPlay DRM, аудиокниги в MP3, M4A, AAC, FLAC, WAV, M4B для прослушивания на всех устройствах.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F61390898BE3C13C0BF46D27ACE436A8E4AF266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190805   (266920) от 10.12.2017
+
+Liquid | Flow Pro 15 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Liquid один из самых быстрых и мощных способов использовать Ваш Mac.
+Liquid - интегрированные shortcuts для обычных ежедневных задач.
+Когда вы используете Liquid, команды становятся такими быстрыми, что вы начнете пролетать через вашу информацию - вы будете работать со скоростью мысли, а не со скоростью охоты за иконками. Посмотрите на неофициальном сайте, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08 декабря 2017Разработчик: Frode HeglandПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1528E9960BB4C5FB9845E6D5F9A73FCB420B1610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186964   (265687) от 11.12.2017
+
+TunesKit Apple Music Converter 2.0.5 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265687.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit Apple Music Converter - программное обеспечение позволяющее удалять DRM защиту для Apple Music. Программа позволяет разблокировать шифрование DRM Apple Music, и конвертировать защищенные Apple Music M4P в незащищенные форматы, такие как: MP3, AAC, WAV, FLAC, M4A, или M4B с сохранением ID тегов.
+
+Программа преобразует Apple Music файлы на высокой скорости (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10DE9BC52459160A7D4187C13E1FC1FAD2934B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339735   (265369) от 20.11.2019
+
+Cookie 6.0.6 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C838E3E602F0671B8BA56DA84CB8C23D3A18513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339507   (265367) от 20.11.2019
+
+Declutter 2.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Declutter является решением проблемы, с которой сталкивается каждый пользователь Mac - беспорядок на рабочем столе. Declutter позволяет создавать интеллектуальные папки с помощью правил, основанных на именах файлов и расширениях, так что Программа может автоматически перемещать файлы в соответствующие папки на рабочем столе и сохранять рабочий стол всегда чистым.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2018Разработчик: George Sargunaraj CПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FF991F9B2531BB48E08E92958464C187B328D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339688   (265341) от 20.11.2019
 
 4K Stogram 2.8.2 [Multi/Ru]
@@ -6,7 +142,7 @@
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265341.jpg" />
 </div>
 
 
@@ -34,7 +170,7 @@ Capo 3.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265311.jpg" />
 </div>
 
 
@@ -61,7 +197,7 @@ LRTimelapse Pro 5.0.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265072.jpg" />
 </div>
 
 
@@ -89,7 +225,7 @@ MonthlyCal 1.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264702.jpg" />
 </div>
 
 
@@ -115,7 +251,7 @@ Movavi Photo Manager 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264237.jpg" />
 </div>
 
 
@@ -141,7 +277,7 @@ Logic Pro X 10.3.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264064.jpg" />
 </div>
 
 
@@ -167,7 +303,7 @@ Paste 2.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263980.jpg" />
 </div>
 
 
@@ -193,7 +329,7 @@ Motion 5.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263694.jpg" />
 </div>
 
 
@@ -221,7 +357,7 @@ liquivid Exposure and Effects 1.2.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263620.jpg" />
 </div>
 
 
@@ -249,7 +385,7 @@ MKVToolNix 40.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263585.jpg" />
 </div>
 
 
@@ -275,7 +411,7 @@ Proxifier for Mac 2.26 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263547.jpg" />
 </div>
 
 
@@ -301,7 +437,7 @@ Nimble Commander 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263379.jpg" />
 </div>
 
 
@@ -327,7 +463,7 @@ iSkysoft Video Converter 6.1.0.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262922.jpg" />
 </div>
 
 
@@ -353,7 +489,7 @@ NeoOffice 2017.19 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262823.jpg" />
 </div>
 
 
@@ -381,7 +517,7 @@ SMART Utility 3.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262731.jpg" />
 </div>
 
 
@@ -408,7 +544,7 @@ Movavi Video Editor 5 Plus 5.1.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262433.jpg" />
 </div>
 
 
@@ -434,7 +570,7 @@ PhpStorm 2017.3.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_262385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262385.jpg" />
 </div>
 
 
@@ -460,7 +596,7 @@ ON1 Photo RAW 2019.7 (build 13.7.0.8098) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262333.jpg" />
 </div>
 
 
@@ -486,7 +622,7 @@ ON1 Resize 2019.7 (build 13.7.0.8098) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262318.jpg" />
 </div>
 
 
@@ -512,7 +648,7 @@ Kodak Preps 8 v8.4.0 (build 128) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262292.jpg" />
 </div>
 
 
@@ -538,7 +674,7 @@ Romanysoft SpeedTest 7.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262232.jpg" />
 </div>
 
 
@@ -550,139 +686,6 @@ Romanysoft Speed Test -  проверить скорость интернет. �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:222C621ADDBADF338BAA5200BDCDA68B60340126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193458   (262092) от 21.12.2017
-
-CalcTape Paper Tape Calculator 1.4.0 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вычислять. Комментировать. Исправлять.
-CalcTape это новый революционный вид калькулятора. С CalcTape остаются даже обширные расчеты обозримыми и структурированными. CalcTape делает арифметические операции очевидными - Вы можете создавать промежуточные результаты, исправлять или изменять все числа и действия.
-
-Даже при длинном списке вычислений, у вас из виду не потеряется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2017Разработчик: schoettler Software GmbHПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66150CEB607C12045EE66E2C7CA489D6FA1D20F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193442   (262063) от 21.12.2017
-
-Day One 2.5.5 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запечатлейте жизнь так, как вы ее проживаете. Элегантный интерфейс Day One делает ведение дневника о вашей жизни, от исключительных событий до повседневных моментов, истинным удовольствием. Day One — один из самых простых и удобных ежедневников с детально продуманным интерфейсом, который может использоваться для резервного копирования и синхронизации с iPhone/iPad.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2017Разработчик: Bloom Built, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AB7BF30543AED517FA35504FC9203A2FF8C635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193426   (262045) от 21.12.2017
-
-Complete Anatomy 2018 + Courses 3.3.0 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Complete Anatomy - подробнейший атлас анатомии человеческого тела, в который включены детальные иллюстрации, 3D-модели и описания практически всех органов и систем. Идеальный справочник для студентов медицинских ВУЗов и врачей. Студенты-медики, медицинские работники и на протяжении всей жизни будут взаимодействовать с более чем 6200 высокой разрешающей способностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: 3D4Medical.com, LLCПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F9951309E57CC3AD2E9677096A8CEFBA77D60E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194035   (261738) от 23.12.2017
-
-Disk Space Analyzer 2.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Space Analyzer (ранее Disk Inspector) - приложение просканирует жесткий диск и сформирует наглядную диаграмму использования файловой системы. Приложение предназначено тем, кто следит за использованием дискокого пространста или например, ограничен пространством SSD диска. Вы можете управлять уже отсканированными файлами, даже не дожидаясь окончания процесса сканирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2017Разработчик: NektonyПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B4A8FAA7078AF170BBB255496661D1CF4F8983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837528   (257719) от 18.11.2025
-
-4K Video Downloader + 25.4.2.0258 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2025Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS (12+)Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744A924F959952DE2BE29D339DF24FE6D7F3A1A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Dashcam Viewer 3.4.3 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740444.jpg" />
+  <img src="Z:/picture/008/save_picture_740444.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ IObit Driver Booster Pro 7.6.0.764 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740440.jpg" />
+  <img src="Z:/picture/008/save_picture_740440.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Eraser 6.2.0.2990 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740427.jpg" />
+  <img src="Z:/picture/008/save_picture_740427.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NirLauncher Package 1.23.27 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740413.jpg" />
+  <img src="Z:/picture/008/save_picture_740413.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ IObit Driver Booster Pro 7.6.0.764 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740386.jpg" />
+  <img src="Z:/picture/008/save_picture_740386.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740328.jpg" />
+  <img src="Z:/picture/008/save_picture_740328.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Master PDF Editor 5.3.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740257.jpg" />
+  <img src="Z:/picture/008/save_picture_740257.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BluffTitler Ultimate 14.1.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740206.jpg" />
+  <img src="Z:/picture/008/save_picture_740206.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Loaris Trojan Remover 3.0.78.213 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740200.jpg" />
+  <img src="Z:/picture/008/save_picture_740200.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740192.jpg" />
+  <img src="Z:/picture/008/save_picture_740192.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ GoodSync Enterprise 10.8.3.3 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740180.jpg" />
+  <img src="Z:/picture/008/save_picture_740180.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740147.jpg" />
+  <img src="Z:/picture/008/save_picture_740147.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ DUMo (Drivers Update Monitor)+ portable 2.17.2.86 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740082.jpg" />
+  <img src="Z:/picture/008/save_picture_740082.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ uTorrent 3.5.5 Build 45081 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740080.jpg" />
+  <img src="Z:/picture/008/save_picture_740080.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740076.jpg" />
+  <img src="Z:/picture/008/save_picture_740076.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Sandboxie 5.28 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740073.jpg" />
+  <img src="Z:/picture/008/save_picture_740073.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ LibreOffice 6.0.3.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740054.jpg" />
+  <img src="Z:/picture/008/save_picture_740054.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740021.jpg" />
+  <img src="Z:/picture/008/save_picture_740021.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Calibre 3.21.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740004.jpg" />
+  <img src="Z:/picture/008/save_picture_740004.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Zoner Photo Studio X 19.1804.2.61 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739999.jpg" />
+  <img src="Z:/picture/008/save_picture_739999.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Hetman FAT Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739992.jpg" />
+  <img src="Z:/picture/008/save_picture_739992.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Hetman NTFS Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739950.jpg" />
+  <img src="Z:/picture/008/save_picture_739950.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Macrium Reflect 7.1.2963 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739948.jpg" />
+  <img src="Z:/picture/008/save_picture_739948.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ TeamViewer 13.1.3629 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739919.jpg" />
+  <img src="Z:/picture/008/save_picture_739919.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ PassMark PerformanceTest 10.0 Build 1007 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739822.jpg" />
+  <img src="Z:/picture/008/save_picture_739822.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ IObit Software Updater Pro 3.2.0.1659 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739766.jpg" />
+  <img src="Z:/picture/008/save_picture_739766.jpg" />
 </div>
 
 

@@ -1,3 +1,133 @@
+###  Публикация: 1851256   (1055038) от 01.02.2026
+
+Д.З. Гордевский, А.С. Лейбин | Популярное введение в многомерную геометрию (1964) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геометрия многомерного пространства уже давно стала рабочим аппаратом в физике, механике и в самой математике. В последнее время она с успехом применяется в других науках, например, в химии. Несмотря на это, наша популярная математическая литература весьма бедна сведениями по многомерной геометрии. В предлагаемой книге делается попытка в известной мере восполнить (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство Харьковского Государственного УниверситетаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58F0C9303E096360945A28E2B1D2656886603A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850813   (1054873) от 31.01.2026
+
+José Luis Cisneros-Molina, Dũng Tráng Lê, José Seade | Handbook of Geometry and Topology of Singularities [8 книг] (2020 - 2026) [PDF] [En]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг Handbook of Geometry and Topology of Singularities от издательства Springer — это многотомное академическое издание, посвящённое теории сингулярностей (singularity theory) — важной и активно развивающейся области современной математики, где изучаются особенности «особых точек» в различных математических структурах и их связи с другими разделами наук.Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D85F49A3DF3CD34FB1D676406B149B43AAD7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851114   (1054767) от 31.01.2026
+
+M. Hazewinkel (ред.) | Handbook of Algebra [6 книг] (1996 - 2009) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алгебра в том виде, в каком мы её знаем сегодня, состоит из множества различных идей, концепций и результатов. Примерная оценка числа этих различных «элементов» составляет от 50 000 до 200 000. Многие из них получили названия, и ещё больше могли бы (и, возможно, должны) иметь «название» или удобное обозначение. В дополнение к первичной информации, это руководство (   Читать дальше...   )Жанр: МатематикаИздательство: ElsevierФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F165BA688773C5EFBB850ACBE67A866E046AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850824   (1054633) от 30.01.2026
+
+Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name Reactions. A Practical Encyclopedic Guide to Nearly 800 Transformations. 4th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Organic Syntheses Based on Name Reactions is an invaluable reference book for organic chemists in academia and industry. In continuation of Hassner and Namboothiri’s popular 3rd Edition, this new edition with full colored graphics covers nearly 800 reactions, with numerous chemo-, regio- and stereoselective reactions. A diligently prepared summary of important information (   Читать дальше...   )Жанр: Organic Chemistry, ChemistryЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A8AA739F5B384E3379C9F20C7F92F7417D624C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850623   (1054617) от 30.01.2026
+
+Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting and Control for Sustainable Electric Mobility (Lecture Notes in Electrical Engineering. 1518) (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054617.jpg" />
+</div>
+
+
+###  Подробнее
+
+The integration of microgrids with solar generation enhances energy efficiency, stability, and sustainability. Yet, managing such systems requires advanced forecasting and optimisation models. Microgrids that unite distributed sources, storage, and intelligent control enable efficient energy use even under grid constraints. Powering electric vehicle charging stations (   Читать дальше...   )Жанр: Electrical EngineeringЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850614   (1054484) от 29.01.2026
 
 Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Elements (Mini Encyclopedias) (2024) [PDF] [EN]
@@ -6,7 +136,7 @@ Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Eleme
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054484.jpg" />
+  <img src="Z:/picture/005/save_picture_1054484.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Erico Azevedo, Jose Pissolato Filho | Information Fields Theory and Applications
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054483.jpg" />
+  <img src="Z:/picture/005/save_picture_1054483.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Michael Seeds, Dana Backman, Eric Wegryn | Foundations of Astronomy. 15th Editio
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054482.jpg" />
+  <img src="Z:/picture/005/save_picture_1054482.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054292.jpg" />
+  <img src="Z:/picture/005/save_picture_1054292.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054144.jpg" />
+  <img src="Z:/picture/005/save_picture_1054144.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduc
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054143.jpg" />
+  <img src="Z:/picture/005/save_picture_1054143.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053771.jpg" />
+  <img src="Z:/picture/005/save_picture_1053771.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053551.jpg" />
+  <img src="Z:/picture/005/save_picture_1053551.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053550.jpg" />
+  <img src="Z:/picture/005/save_picture_1053550.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053549.jpg" />
+  <img src="Z:/picture/005/save_picture_1053549.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053548.jpg" />
+  <img src="Z:/picture/005/save_picture_1053548.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052469.jpg" />
+  <img src="Z:/picture/005/save_picture_1052469.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052408.jpg" />
+  <img src="Z:/picture/005/save_picture_1052408.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052354.jpg" />
+  <img src="Z:/picture/005/save_picture_1052354.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052176.jpg" />
+  <img src="Z:/picture/005/save_picture_1052176.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052173.jpg" />
+  <img src="Z:/picture/005/save_picture_1052173.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051949.jpg" />
+  <img src="Z:/picture/005/save_picture_1051949.jpg" />
 </div>
 
 
@@ -454,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051782.jpg" />
+  <img src="Z:/picture/005/save_picture_1051782.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051500.jpg" />
+  <img src="Z:/picture/005/save_picture_1051500.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051414.jpg" />
+  <img src="Z:/picture/005/save_picture_1051414.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051148.jpg" />
+  <img src="Z:/picture/005/save_picture_1051148.jpg" />
 </div>
 
 
@@ -543,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165E772E099D9D5035B2C55123328E5191C2FEF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845056   (1050505) от 29.12.2025
-
-Дж. Бендат, А. Пирсол | Применения корреляционного и спектрального анализа (1983) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050505.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известных американских специалистов рассмотрены методы анализа многомерных временных рядов, описывающих реальные процессы в различных областях техники. Наряду с традиционными методами спектрального и корреляционного анализа изложены новые подходы к решению практически важных задач. Рассмотрены особенности реализации описанных алгоритмов на ЭВМ. Для инженеров (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659A84FA71A152C1243EB04EED0687C30020BB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844021   (1049764) от 24.12.2025
-
-Р.А. Милликен, Г.Г. Гейл | Элементы физики (1931) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник Нобелевского лауреата по физике Роберта Милликена для средних школ. Книга представляет большой интерес для широкого круга читателей: преподавателей физики, школьников и студентов, любителей истории развития науки и техники. Книга снабжена большим количеством рисунков с подробным описанием применения физики в технике.Жанр: ФизикаИздательство: Государственное учебно-педагогическое издательствоФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F10C3BE2A79B69FF99F1281F4393DDA96A28689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843865   (1049674) от 23.12.2025
-
-Ф.К. Кнойбюль | Пособие для повторения физики (1981) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие-справочник, содержащее систематизированное изложение в сжатой форме основных физических закономерностей - от классической механики до физики атомного ядра и элементарных частиц, доказательство ряда важнейших формул, а также методику и примеры решения простейших задач. Объем представленного материала примерно соответствует теоретической части курса (   Читать дальше...   )Жанр: ФизикаПеревод: А.В. БерковИздательство: ЭнергоиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04FA5F15E3C227D78F300771201D8D501327C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843174   (1049253) от 19.12.2025
-
-Е.Ф. Шнюков | Минералы и мир (2008) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Академику Евгению Федоровичу Шнюкову, автору более 600 научных и научно-популярных работ (наиболее известны среди широкого круга читателей ставшие библиографической редкостью его книги "Мир минералов", "Сокровища и загадки", "Катастрофы в Черном море", "Пираты Черного моря", "Опасное Черное море" "Полезные ископаемые (   Читать дальше...   )Жанр: ГеологияИздательство: ОМГОРФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7775D1C98A1FE7CD60450934A7E8AA8A352B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842857   (1048799) от 17.12.2025
-
-Е.А. Мелвин-Хьюз | Равновесие и кинетика реакций в растворах (1975) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой фундаментальный курс химической кинетики реакций в растворах. Основные проблемы этой области науки излагаются с точки зрения статистической термодинамики, современных представлений о структуре жидкостей и растворов, с учетом последних достижений в технике эксперимента по химической кинетике. Существенно новым является введение в общий курс (   Читать дальше...   )Жанр: ХимияПеревод: М.Г. Гольдфельд, И.П. БелецкаяИздательство: ХимияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90DD686231CD3EA52A02E3BFAE118A2B89A8C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

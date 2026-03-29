@@ -1,3 +1,55 @@
+###  Публикация: 1146231   (616095) от 28.06.2017
+
+Лидия Чарская | Вакханка (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эротичеcкая повесть одной из самых популярных писательниц дореволюционной России Лидии Чарской. Этот «роман без романтики», как она сама охарактеризовала его, долгое время был под запретом цензуры. Общественность была взбудоражена столь откровенным произведением от автора детской литературы. И не случайно повесть начинается с эпиграфа из Евангелия от Иоанна: «кто (   Читать дальше...   )Жанр: Литература 20 века, Русская классика, Эротические романыПродолжительность: 03:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1268DA8AA1F53BB5A88882E90613B57E1FD7A50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036223   (615740) от 23.07.2016
+
+Ромен Гари | Пляска Чингиз-Хаима (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман "Пляска Чингиз-Хаима", написанный в 1967 г., не удостоен литературных премий, однако считается лучшим в зрелом возрасте Р. Гари. Виртуозно написанный бурлеск переводит опыт осмысления Второй мировой войны в план онтологического союза Жизни и Смерти, палача и его жертвы, высокой трагедии и площадной комедии.Жанр: Художественная прозаПродолжительность: 11:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BCE2E2A74191B37B7415855922E38BBE9E1A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036586   (615735) от 23.07.2016
 
 Михаил Арцыбашев | У последней черты (2016) [MP3]
@@ -6,7 +58,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615735.jpg" />
+  <img src="Z:/picture/008/save_picture_615735.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615733.jpg" />
+  <img src="Z:/picture/008/save_picture_615733.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615676.jpg" />
+  <img src="Z:/picture/008/save_picture_615676.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615591.jpg" />
+  <img src="Z:/picture/008/save_picture_615591.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615585.jpg" />
+  <img src="Z:/picture/008/save_picture_615585.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615583.jpg" />
+  <img src="Z:/picture/008/save_picture_615583.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615575.jpg" />
+  <img src="Z:/picture/008/save_picture_615575.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615478.jpg" />
+  <img src="Z:/picture/008/save_picture_615478.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615370.jpg" />
+  <img src="Z:/picture/008/save_picture_615370.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615071.jpg" />
+  <img src="Z:/picture/008/save_picture_615071.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613576.jpg" />
+  <img src="Z:/picture/008/save_picture_613576.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612227.jpg" />
+  <img src="Z:/picture/008/save_picture_612227.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612132.jpg" />
+  <img src="Z:/picture/008/save_picture_612132.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609729.jpg" />
+  <img src="Z:/picture/008/save_picture_609729.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608719.jpg" />
+  <img src="Z:/picture/008/save_picture_608719.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608649.jpg" />
+  <img src="Z:/picture/008/save_picture_608649.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608643.jpg" />
+  <img src="Z:/picture/008/save_picture_608643.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608003.jpg" />
+  <img src="Z:/picture/008/save_picture_608003.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606845.jpg" />
+  <img src="Z:/picture/008/save_picture_606845.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606833.jpg" />
+  <img src="Z:/picture/008/save_picture_606833.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606821.jpg" />
+  <img src="Z:/picture/008/save_picture_606821.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606745.jpg" />
+  <img src="Z:/picture/008/save_picture_606745.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606740.jpg" />
+  <img src="Z:/picture/008/save_picture_606740.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606604.jpg" />
+  <img src="Z:/picture/008/save_picture_606604.jpg" />
 </div>
 
 
@@ -629,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D61F5D5E4A143C76AEDFD70FB31EAB00D1B2CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038135   (606587) от 28.07.2016
-
-Сергей Алексеев | Игры с хищником [Авторский релиз] (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед уходом в отставку Президент выбирает преемника. Все кандидаты достойны, но не лежит к ним душа. И вот, когда уже почти не осталось времени на сомнения, истинный преемник находится. Но придя к власти, тот забывает обещания, данные человеку, который вручил ему эту власть...
-Экс-президент анализирует ситуацию. Он вспоминает деда-чудотворца, охоту за мистическими (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 09:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7032178F48653AD445EB583B53A21A4696126216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148000   (605738) от 04.07.2017
-
-Елена Боровицкая и др. | Вечер короткого рассказа (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я вообще не понимаю, почему и перед кем я должен оправдываться. Никому я ничего не должен. А я все оправдаться пытаюсь. Уже и друзей общих не осталось тут, в нашем с ней городе, — кто эмигрировал, кто переехал. Да и не знал никто, что происходит на самом деле. И как объяснить, если сам не понимаю, как же я, вроде бы незлой человек, такой сволочью себя показал…
-Я (   Читать дальше...   )Жанр: Современная русская прозаПродолжительность: 03:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBE1C5D460D5B6795A9B9631D2FD8B5E602D98E
 ```
 
 https://mybot314.ru/tekegram_catalog/

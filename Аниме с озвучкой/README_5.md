@@ -1,3 +1,30 @@
+###  Публикация: 1438575   (1024652) от 24.03.2021
+
+История о том, как мальчик из деревни возле финального подземелья перебрался в стартовый город | Tatoeba Last Dungeon [ТВ-1] [2021, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь, это Ллойд — мальчик, живущий в деревушке на окраине королевства. Он мечтает стать солдатом, да вот беда… Ллойд — самый слабый в своей деревне. И все жители наотрез отказываются помочь с этой его мечтой. Наперекор им Ллойд отправляется в столицу.
+Правда, есть одно важное «но»: так получилось, что ни мальчик, ни другие жители деревни не знают, что все (   Читать дальше...   )Производство: Япония, студия Liden FilmsЖанр: Комедия, Приключения, ФэнтезиРежиссер: МигмиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0F1353FC75B8C9C6BF571C7049FDAD1A991B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440152   (1024279) от 26.03.2021
 
 Dr. Stone: Stone Wars / Доктор Стоун [ТВ-2] [2021, TV, 11 ep] WEB-DL 1080p Rus
@@ -6,7 +33,7 @@ Dr. Stone: Stone Wars / Доктор Стоун [ТВ-2] [2021, TV, 11 ep] WEB-D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024279.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024098.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022962.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022851.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022850.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021529.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021191.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021171.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриот Мориарти [ч
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021057.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Domestic na Kanojo | Домашняя девушка [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020758.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Sankarea | Санка Рэа [2012, TV, 12 эп. + 1 SP +2 OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020591.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Btooom! | Взрыв! [2012, TV 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020434.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ Rosario to Vampire | Розарио + Вампир [TV1 + TV2] [2008, TV, 26 э�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020399.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020252.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019932.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019443.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019440.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ Ishuzoku Reviewers | Interspecies Reviewers | Межвидовые реценз�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019209.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ Enen no Shouboutai | Пламенная бригада пожарных [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019193.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ Obsolete (2020) | Устаревший (2020) [2020, Web, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018708.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018689.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018334.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017882.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017868.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017330.jpg" />
 </div>
 
 
@@ -645,32 +672,6 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | М�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1931E997E2657D70BA3F58246A3F391956014301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468319   (1017038) от 08.05.2021
-
-Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Нацумэ [ТВ-1] [2008, TV, 13 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такаси Нацумэ – духовидец. Говоря понятней, он видит то, чего не замечают обычные люди: призраков, богов и бесов. И эта способность отнюдь не делает юношу счастливым. С самого детства Нацумэ был «не такой, как все»: «рассказывал небылицы», «пугался пустого места»... Став старше, он научился ничего никому не рассказывать и не пугаться (по крайней мере, на глазах у (   Читать дальше...   )Производство: Япония, Brains BaseЖанр: Мистика, комедия, драма, сёдзё, мультсериалРежиссер: Такахиро ОмориПеревод: KainЯзык озвучки: Русский, японскийСубтитры: РусскиеПродолжительность: 13 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E71190A81290241B14D49B5D3941BD8E2605E30
 ```
 
 https://mybot314.ru/tekegram_catalog/

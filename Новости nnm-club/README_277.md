@@ -1,3 +1,162 @@
+###  Публикация: 1721532   (57044) от 10.05.2024
+
+30 фильмов о Второй мировой войне
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57044.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+В большинстве стран ее называют Второй мировой, но в нашей памяти она навсегда останется Великой Отечественной. О, этом трагическом периоде снято множество кинофильмов. Мы предлагаем взглянуть на события тех лет глазами кинематографистов разных стран и посмотреть лучшие художественные фильмы про Великую Отечественную войну, снятые за последние годы.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721825   (56947) от 11.05.2024
+
+Онегин (2024) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Онегин живет на широкую ногу: балы, приемы, театральные премьеры и прочие развлечения, которые может предложить молодому человеку столица. Но светская жизнь давно утомила его, потому известие о болезни живущего в деревне дяди, он воспринимает, как возможность сбежать от опостылевшего света. Однако, добравшись до имения, Онегин узнает о кончине родственника, (   Читать дальше...   )Производство: Россия / К.Б.А. / Кинокомпания братьев АндреасянЖанр: мелодрама, драмаРежиссер: Сарик АндреасянАктеры: Виктор Добронравов, Денис Прытков, Лиза Моряк, Таня Сабинова, Алёна Хмельницкая, Алексей Гришин, Татьяна Лютаева, Владимир Вдовиченков, Ольга Тумайкина, Александр ЯцкоПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 02:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DF801FC82F718F96FAB7B74D9C4F09FFC6F401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722075   (56929) от 11.05.2024
+
+Нас ждет огонь смертельный: 15 лучших советских фильмов о Великой Отечественной войне
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56929.jpg" />
+</div>
+
+
+###  Подробнее
+
+В праздничной подборке вспоминаем шедевр Элема Климова «Иди и смотри» (1985), а вместе с ним — другие знаковые советские фильмы о Великой Отечественной.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721801   (56828) от 12.05.2024
+
+Россия начала разработку ядерной энергоустановки для лунной станции
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Началась разработка ядерной энергетической установки для российско-китайского проекта лунной станции, сообщил РИА Новости гендиректор "Роскосмоса" Юрий Борисов.В конце апреля он объяснял, что необходимо создать компактный, надежный, долгосрочный и долговечный источник ядерной энергии на Луне. Это объясняется тем, что лунная ночь длится примерно 14 земных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722314   (56735) от 13.05.2024
+
+Министерство неджентльменских дел / The Ministry of Ungentlemanly Warfare (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 год, Великобритания. Они - лучшие из лучших. Отпетые авантюристы и первоклассные спецы, привыкшие действовать в одиночку. Но когда на кону стоит судьба всего мира, им приходится объединиться в сверхсекретное боевое подразделение и отправиться на выполнение дерзкой миссии против нацистов. Теперь их дело - война, и вести они её будут совершенно не по-джентльменски.Производство: США, Великобритания, Турция, Black Bear Pictures, Jerry Bruckheimer Films, LionsgateЖанр: боевик, драма, военный, историяРежиссер: Гай РичиАктеры: Генри Кавилл, Алан Ричсон, Рори Киннер, Генри Голдинг, Фредди Фокс, Эйса Гонсалес, Алекс Петтифер, Бабс Олусанмокун, Кэри Элвес, Хиро Файнс ТиффинПеревод: Дублированный (Мосфильм-Мастер), двуголосый профессиональный (ViruseProject, Кубик в Кубе)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1972CB620D8BB867CECF10665C675C91D6DC0B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722785   (56722) от 13.05.2024
+
+Суд оштрафовал Microsoft на $242 млн за кражу технологии при создании Cortana
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56722.jpg" />
+</div>
+
+
+###  Подробнее
+
+В минувшую пятницу в Делавэре (США) прошло завершающее заседание суда по иску IPA Technologies, которая обвинила Microsoft в нарушении своих патентов при создании голосового помощника Cortana. После разбирательства присяжные согласились с аргументацией IPA по поводу того, что используемая в Cortana технология распознавания голоса нарушает её патент на программное (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722823   (56619) от 14.05.2024
 
 Microsoft разблокировала обновления для пользователей из РФ
@@ -6,7 +165,7 @@ Microsoft разблокировала обновления для пользо�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56619.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56526.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56419.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56317.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56316.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56315.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56314.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56213.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56210.jpg" />
 </div>
 
 
@@ -241,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56187.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56184.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56179.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.1a) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56105.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56002.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56000.jpg" />
 </div>
 
 
@@ -402,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55855.jpg" />
 </div>
 
 
@@ -428,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55798.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55791.jpg" />
 </div>
 
 
@@ -481,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55790.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55693.jpg" />
 </div>
 
 
@@ -521,163 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8ECE4355572A97B220BF238C10882080308783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724642   (55674) от 23.05.2024
-
-Создан гель для восстановления костей со 100% идентичностью
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый в мире биоассемилирумый гель для регенерации, который позволяет восстановить костную ткань с идентичностью в 100% и лечить, в том числе крупные пулевые и осколочные повреждения костей, разработали специалисты Волгоградского государственного медицинского университета (ВолгГМУ). Об этом сообщил ТАСС доктор фармацевтических наук, заведующий кафедрой технологии (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724703   (55666) от 23.05.2024
-
-Microsoft представила Recall — функцию записи всех действий пользователя в Windows 11
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft представила новую функцию для Windows 11 под названием Recall. Этот инструмент отслеживает и фиксирует все действия пользователя на компьютере. Благодаря этому пользователь всегда может вернуться к выполнению задач или просмотру сайтов, с которыми взаимодействовал ранее.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724912   (55579) от 24.05.2024
-
-Золото Умальты (2024) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канун революции 1917 года, Хабаровский край, окрестности реки Умальты. Люди в шаманских масках нападают на обоз, убивают охрану и похищают 40 пудов золота. Петроградский золотопромышленник Булыгин теряет все свои сбережения и вернуть золото — его единственный шанс остаться на плаву. Он едет в Хабаровск и набирает отряд головорезов.Производство: Россия / Открытая киностудия «Лендок»Жанр: Приключения, вестерн, драмаРежиссер: Андрей БогатыревАктеры: Александр Самойленко, Артём Ткаченко, Алексей Шевченков, Софья Эрнст, Павел Деревянко, Евгений Антропов, Вольфганг Черни, Иван Купреенко, Дмитрий Хасис, Андрей БогатыревПеревод: Не требуется (Русский)Субтитры: Русские, АнглийскиеПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54035DDB7971F252440BD8DC799AA89A1C18BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724937   (55493) от 25.05.2024
-
-DDR6 может предложить скорость до 21 Гбит/с. JEDEC раскрыла подробности о новом стандарте памяти
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперативная память DDR5 пока ещё даже не стала однозначным стандартом, так как те же Core 14-го поколения поддерживают и DDR4, но организация JEDEC уже поделилась подробностями о DDR6.Итак, память LPDDR6 предложит скорости от 10 667 до 14 400 Мбит/с и пропускную способность в диапазоне от 28,5 до 38,4 Гбит/с.Что касается DDR6, тут стандарт ещё не доработан, но JEDEC (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724871   (55487) от 25.05.2024
-
-Офисные работники придумали, как с помощью Windows обмануть руководство и меньше работать
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользователи стали обманывать руководство, демонстрируя им поддельный экраны обновления системы, чтобы тратить меньше времени непосредственно на работу, находясь в офисе. Microsoft особенно часто выпускает апдейты своих ОС, так что она поневоле замешана в этой схеме. Россияне не смогут ею воспользоваться – Microsoft постоянно закрывает им доступ к апдейтам.Лень на (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725463   (55372) от 26.05.2024
-
-Падение империи / Гражданская война / Civil War (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [DVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Национальная гвардия Калифорнии и Техаса при поддержке боевой техники и авиации штурмуют столицу. Белый дом вот-вот падет. Группа журналистов пытается добраться до пылающего Вашингтона, чтобы взять последнее интервью у президента некогда Соединенных Штатов Америки. Но в стране, где царит хаос, нет ничего дороже литра бензина и ничего дешевле, чем человеческая жизнь.Производство: США, Великобритания, A24, DNA Films, IPR.VCЖанр: боевик, драмаРежиссер: Алекс ГарлендАктеры: Кирстен Данст, Вагнер Моура, Кейли Спейни, Стивен Хендерсон, Соноя Мидзуно, Ник Офферман, Джефферсон Уайт, Хуани Фелиз, Нельсон Ли, Эдмунд ДонованПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E44933375F9D5A7281BE85A7C7652FEDF913EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

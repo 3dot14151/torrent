@@ -1,3 +1,81 @@
+###  Публикация: 1727685   (54509) от 03.06.2024
+
+Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jackdraw Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assassin's Creed 4: Black Flag - стелс-экшен с видом от третьего лица в историческом сеттинге. В этой части игры, вам предстоит исследовать Карибские острова времён пиратов и Ост-Индской кампании. Ваш герой — Эдвард Кенуэй — потомок ассассинов и отчаянный пират. Большую часть игры, теперь, занимают морские сражения и путешествия на корабле, а также исследование подводного (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal, Ubisoft Annecy, Ubisoft Quebec, Ubisoft Singapore, Ubisoft Kiev, Ubisoft Romania, Ubisoft Montpellier, Ubisoft SofiaЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43D07EB35FD83FA0E446C8432A501331E82A05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727720   (54506) от 03.06.2024
+
+Harvest Hunt (2024) [Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Harvest Hunt бросает вас в суровый мир, где каждый выбор кажется авантюрой. Это смесь выживания и стратегии, игра, которая заставляет вас сжимать кулаки и бормотать себе под нос. Каждая ночь ставит перед вами новые задачи, проверяя вашу способность думать и управлять ресурсами, как опытный профессионал. Представьте себе: вы - хранитель деревни, и это звание очень (   Читать дальше...   )Тип издания: RepackРазработчик: Villainous Games StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Итальянский, НемецкийЯзык интерфейса: Английский, Французский, Итальянский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7220C4FFACB8C4E7306E8DF6B1FA4A7AA79C8714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727598   (54504) от 03.06.2024
+
+返杀 Back Fire (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Back Fire – окунитесь с головой в полноценное приключение, в котором будет много эпических видеоперестрелок! События игры вращаются вокруг воина по имени Хунъюй, который оказался в засаде наркобарона Гунтая, следовавшего по следам своего брата Хонгая на задании. Повреждения оказались достаточно серьезными, поэтому брат теперь находится на грани жизни и смерти. После (   Читать дальше...   )Тип издания: SceneРазработчик: 熬夜有光Жанр: Приключенческие игры, СимуляторыЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F336B72C449AD6434B10B8D6397F2599F3DA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727582   (54463) от 03.06.2024
 
 Echoes (2024) [Multi] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54463.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54462.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54448.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54412.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54366.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sisters: Last Day of Summer (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54208.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54076.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54067.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53994.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53870.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53863.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53859.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Lumnis (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53849.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53821.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53800.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ NUKITASHI Дилогия (2023-2024) [Multi] (1.0.1/1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53676.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Three Goblin Wobblin' (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53651.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Wild at Heart (2021) [Multi] (1.1.9.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53599.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53576.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ An English Haunting (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53559.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53534.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53479.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Enigma Quest (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53477.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Enigma Quest – отправьтесь навстречу таинственн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77E98E04BB76E478A19F57BE4ABFE377D62B5F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729978   (53469) от 13.06.2024
-
-[ECHOSTASIS] (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53469.jpg" />
-</div>
-
-
-###  Подробнее
-
-ECHOSTASIS бросает вас в глубины цифрового сознания. Здесь алгоритмы не просто курируют вашу реальность - они строят ее с нуля. Вы - администратор, хранитель данных, которому поручено пробираться по лабиринтам сознания заблудших душ, попавших в облако. Выяснить, что их туда затянуло, - ваша миссия, а ваши инструменты... ну, уникальны. Забудьте о пистолетах и гранатах. (   Читать дальше...   )Тип издания: RepackРазработчик: ENIGMA STUDIOЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BE988909D803D74E6682ACFC64A7D95795391B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729861   (53467) от 13.06.2024
-
-Outer Wilds (2019) [Ru/Multi] (1.1.15/dlc) Repack Wagner
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outer Wilds – приключенческий экшен от первого лица, основанный на популярной тематике «Дня сурка». События происходят на вымышленной планете Камелёк, которая уничтожается взрывом звезды уже через 22 минуты после начала игры. Но история на этом только начинается. Пользователь попадает в «петлю времени», которая позволяет постепенно развивать сюжет, путешествовать (   Читать дальше...   )Тип издания: RepackРазработчик: Mobius DigitalЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D925094C6A6953DC0CCE5AE68303D92CEE249E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730060   (53371) от 14.06.2024
-
-Fallen Seeds (2024) [Ru/En] (1.0.15) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fallen Seeds отправляет игроков на Ультар, планету, окутанную тайнами. Вы окажетесь в роли Эвода, специального агента, которому поручено раскрыть секреты древнего артефакта. Считается, что этот артефакт связан с Аномальной зоной - очагом галактических интриг. Приготовьтесь принимать сложные решения. Fallen Seeds затягивает вас в паутину выбора, каждый из которых (   Читать дальше...   )Тип издания: SceneРазработчик: KPDЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F2FE942FED1A436C4D7E3FDF8A6EFE445DF502
 ```
 
 https://mybot314.ru/tekegram_catalog/

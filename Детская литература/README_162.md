@@ -1,3 +1,29 @@
+###  Публикация: 1422194   (239799) от 07.11.2020
+
+Евгений Перов | Бурундучок по имени Сим. Сим и великаны. Книга 1 (2019) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239799.jpg" />
+</div>
+
+
+###  Подробнее
+
+На одном тропическом острове, там, где всегда царит лето и даже в самую ненастную погоду можно обходиться без шапки и теплых вещей, жил бурундучок по имени Сим. Жил он в саду со множеством фруктовых деревьев недалеко от моря. Домом ему служило маленькое, но уютное дупло внутри мангового дерева. Сим был самым обычным бурундуком и вел самую обычную бурундучью жизнь: (   Читать дальше...   )Жанр: Детская литература/ПриключенияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FF828E3E8006E8CFF9CFFECEACC9B7D0479330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422169   (239777) от 07.11.2020
 
 Жаклин Уэст | Коллекционеры желаний. Колодец желаний. Книга 2 (2020) [FB2, EPUB, MOBI]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239777.jpg" />
+  <img src="Z:/picture/004/save_picture_239777.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239761.jpg" />
+  <img src="Z:/picture/004/save_picture_239761.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239730.jpg" />
+  <img src="Z:/picture/004/save_picture_239730.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239721.jpg" />
+  <img src="Z:/picture/004/save_picture_239721.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239639.jpg" />
+  <img src="Z:/picture/004/save_picture_239639.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239581.jpg" />
+  <img src="Z:/picture/004/save_picture_239581.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239518.jpg" />
+  <img src="Z:/picture/004/save_picture_239518.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239491.jpg" />
+  <img src="Z:/picture/004/save_picture_239491.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239394.jpg" />
+  <img src="Z:/picture/004/save_picture_239394.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239350.jpg" />
+  <img src="Z:/picture/004/save_picture_239350.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239312.jpg" />
+  <img src="Z:/picture/004/save_picture_239312.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239308.jpg" />
+  <img src="Z:/picture/004/save_picture_239308.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239111.jpg" />
+  <img src="Z:/picture/004/save_picture_239111.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239110.jpg" />
+  <img src="Z:/picture/005/save_picture_239110.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238347.jpg" />
+  <img src="Z:/picture/004/save_picture_238347.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237530.jpg" />
+  <img src="Z:/picture/004/save_picture_237530.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237262.jpg" />
+  <img src="Z:/picture/005/save_picture_237262.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237234.jpg" />
+  <img src="Z:/picture/005/save_picture_237234.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237134.jpg" />
+  <img src="Z:/picture/005/save_picture_237134.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237094.jpg" />
+  <img src="Z:/picture/005/save_picture_237094.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237056.jpg" />
+  <img src="Z:/picture/005/save_picture_237056.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236995.jpg" />
+  <img src="Z:/picture/005/save_picture_236995.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236935.jpg" />
+  <img src="Z:/picture/005/save_picture_236935.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236914.jpg" />
+  <img src="Z:/picture/005/save_picture_236914.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236912.jpg" />
+  <img src="Z:/picture/005/save_picture_236912.jpg" />
 </div>
 
 
@@ -653,34 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474776B226078A71E8F120367B40AC12DEE846E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504765   (236899) от 24.10.2021
-
-Джен Калонита | Сказочная исправительная школа. Заколдованная библиотека. Книга 4 (2019) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртая книга в серии «Сказочная исправительная школа».
-Джен Калонита – автор бестселлеров New York Times. И она знает о сказках, старых и новых, всё!
-После того как Румпельштильцхен покинул Сказочную исправительную школу, многие выдохнули с облегчением. Но только не Джилли! Ведь к главному преступнику Чароландии примкнула её любимая сестра Анна. Чтобы вернуть (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А.Б. ВасильеваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B303956B8A5E69D84BE98880CEB206D1B06F22
 ```
 
 https://mybot314.ru/tekegram_catalog/

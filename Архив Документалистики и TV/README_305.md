@@ -1,3 +1,176 @@
+###  Публикация: 1056385   (245860) от 25.09.2016
+
+Хоккей. КХЛ 2016-2017. Йокерит - ЦСКА (23.09.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245860.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 сентября 2016, пятница. 18:30 МСК
+
+Стадион: Хартвалл-Арена (Хельсинки, Финляндия) , 10 244 зрителя (76 % при вместимости 13 464)
+Главный судья: Алексей Белов (Ярославль, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Александр Бойков, Дмитрий Фёдоров)Продолжительность: 02:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCE719F0CFF85FE24243A3A4C68FDEE3CEE428D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056440   (245850) от 25.09.2016
+
+Футбол. Чемпионат Испании 2016-2017. 6-й тур. Спортинг Хихон - Барселона (24.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [RU/EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245850.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 сентября 2016, суббота. 17:15 МСК
+6-й тур
+
+Стадион: Эль-Молинон (Хихон, Испания) , 26 098 зрителей (87 % при вместимости 30 000)(   Читать дальше...   )Телекомпания: Сетанта Спорт HDЖанр: СпортЯзык озвучки: Русский / АнглийскийПродолжительность: 01:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55329C5F6F0E6136B7331CAF14D9CF9F3C3F3D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056581   (245844) от 25.09.2016
+
+Мини-футбол (Футзал). Чемпионат мира-2016. 1/8 финала. Аргентина — Украина (22.09.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245844.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 сентября 2016 года, пятница. 01:30 МСК
+Чемпионат мира-2016. Букараманга (Колумбия). Плей-офф
+1/8 финала
+(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Андрей Симонов, Аркадий Белый)Продолжительность: 02:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4588FF62786098CE2497FF792AE1FBE3C7A05FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056507   (245820) от 25.09.2016
+
+Хоккей. Кубок мира 2016. 1/2 финала. Канада - Россия (24.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] (МАТЧ ТВ)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245820.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 сентября 2016, воскресенье. 02:00 МСК
+
+Стадион: Эйр Канада-центр (Торонто, Канада) , 19 021 зритель (96 % при вместимости 19 800)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада)(   Читать дальше...   )Телекомпания: Матч ТВ HD + Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Александр Ткачев и Александр Хаванов)Продолжительность: 03:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B2583879D958994C87B9409FB09D9BCA8E4BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056425   (245776) от 25.09.2016
+
+Хоккей. Кубок мира 2016. 1/2 финала. Канада - Россия (24.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] (Первый Канал)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245776.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 сентября 2016, воскресенье. 02:00 МСК
+
+Стадион: Эйр Канада-центр (Торонто, Канада) , 19 021 зритель (96 % при вместимости 19 800)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада)(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: Русский (Евгений Кузнецов, Андрей Голованов)Продолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E274BFFC5FE599644987A709A2300815FD79B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058429   (245714) от 01.10.2016
+
+Формула 1. Гран-При Малайзии. 3-я практика (2016.10.01) HDTVRip [H.264] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245714.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 октября 2016 года.
+Этап 16. Гран-при Малайзии.
+Арена: Международный автодром Сепанг (Куала-Лумпур, Малайзия)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87868751BA3C30813A7C82744134C731F2180297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058346   (245701) от 01.10.2016
 
 Футбол. Лига Европы 2016-2017. Группа D. 2-й тур. Зенит (Россия) - АЗ Алкмар (Нидерланды) (29.09.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
@@ -6,7 +179,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245701.jpg" />
+  <img src="Z:/picture/004/save_picture_245701.jpg" />
 </div>
 
 
@@ -35,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245585.jpg" />
+  <img src="Z:/picture/004/save_picture_245585.jpg" />
 </div>
 
 
@@ -63,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245491.jpg" />
+  <img src="Z:/picture/004/save_picture_245491.jpg" />
 </div>
 
 
@@ -92,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245482.jpg" />
+  <img src="Z:/picture/004/save_picture_245482.jpg" />
 </div>
 
 
@@ -121,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245473.jpg" />
+  <img src="Z:/picture/004/save_picture_245473.jpg" />
 </div>
 
 
@@ -150,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245453.jpg" />
+  <img src="Z:/picture/004/save_picture_245453.jpg" />
 </div>
 
 
@@ -179,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245421.jpg" />
+  <img src="Z:/picture/004/save_picture_245421.jpg" />
 </div>
 
 
@@ -208,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245408.jpg" />
+  <img src="Z:/picture/004/save_picture_245408.jpg" />
 </div>
 
 
@@ -236,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245329.jpg" />
+  <img src="Z:/picture/004/save_picture_245329.jpg" />
 </div>
 
 
@@ -264,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245316.jpg" />
+  <img src="Z:/picture/004/save_picture_245316.jpg" />
 </div>
 
 
@@ -293,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245265.jpg" />
+  <img src="Z:/picture/004/save_picture_245265.jpg" />
 </div>
 
 
@@ -322,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245256.jpg" />
+  <img src="Z:/picture/004/save_picture_245256.jpg" />
 </div>
 
 
@@ -351,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245176.jpg" />
+  <img src="Z:/picture/004/save_picture_245176.jpg" />
 </div>
 
 
@@ -380,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245164.jpg" />
+  <img src="Z:/picture/004/save_picture_245164.jpg" />
 </div>
 
 
@@ -409,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245151.jpg" />
+  <img src="Z:/picture/004/save_picture_245151.jpg" />
 </div>
 
 
@@ -438,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245117.jpg" />
+  <img src="Z:/picture/004/save_picture_245117.jpg" />
 </div>
 
 
@@ -466,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245116.jpg" />
+  <img src="Z:/picture/004/save_picture_245116.jpg" />
 </div>
 
 
@@ -495,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245097.jpg" />
+  <img src="Z:/picture/004/save_picture_245097.jpg" />
 </div>
 
 
@@ -524,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245071.jpg" />
+  <img src="Z:/picture/004/save_picture_245071.jpg" />
 </div>
 
 
@@ -553,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245064.jpg" />
+  <img src="Z:/picture/004/save_picture_245064.jpg" />
 </div>
 
 
@@ -567,177 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01410063BFDC8D111862EE22A9FBCBABBA429414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266364   (245047) от 01.12.2018
-
-Фигурное катание. Гран-при 2018-2019. 6-й Этап. Internationaux de France 2018. Гренобль (Франция). Спортивные пары. Короткая программа (23.11.2018) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245047.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 2018 года, пятница. 22:30 МСК
-Турнир «Internationaux de France 2018» — 6-й заключительный Этап Гран-при по фигурному катанию сезона 2018-2019
-Спортивные пары. Короткая программа
-Арена: Патинуар Полезю (Гренобль, Франция)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71437ED25F92C710A618D2C8BF7A1812272F3208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266352   (245040) от 01.12.2018
-
-Фигурное катание. Гран-при 18-19. 6-й Этап. Internationaux de France 2018. Гренобль (Франция). Танцы на льду. Ритм-танец (23.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245040.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 2018 года, пятница. 18:55 МСК
-Турнир «Internationaux de France 2018» — 6-й заключительный Этап Гран-при по фигурному катанию сезона 2018-2019
-Танцы на льду. Ритм-танец
-Арена: Патинуар Полезю (Гренобль, Франция)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C89C315BFD77411AEAA8D96130E7081C9A32F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067547   (244913) от 29.10.2016
-
-Формула 1. Гран-При Мексики. 2-я практика (2016.10.28) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244913.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 октября 2016 года.
-Этап 19. Гран-при Мексика.
-Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E08AD4C9D17FA8D32A4091C4B2CB71ED99A4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067543   (244894) от 29.10.2016
-
-Формула 1. Гран-При Мексики. 1-я практика (2016.10.28) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244894.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 октября 2016 года.
-Этап 19. Гран-при Мексика.
-Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5064891AC9550F35843264DDBBBD2061023F69CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067723   (244860) от 29.10.2016
-
-Формула 1. Гран-При Мексики. 3-я практика (2016.10.29) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244860.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 октября 2016 года.
-Этап 19. Гран-при Мексика.
-Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4C647110AE98F6B7AE7146A633279611BB603D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069140   (244782) от 04.11.2016
-
-Футбол. Лига Чемпионов 2016-2017. Группа B. 4-й тур. Бенфика (Португалия) – Динамо К (Украина) (01.11.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 ноября 2016, вторник. 22:45 МСК
-Лига Чемпионов 2016-2017. Групповой этап
-Группа B. 4-й тур
-(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F248386608B16BCC0DE354735B050B3B4CFF05
 ```
 
 https://mybot314.ru/tekegram_catalog/

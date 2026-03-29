@@ -1,3 +1,29 @@
+###  Публикация: 548015   (452925) от 12.08.2022
+
+Современная фотография - Русский флот. Часть 6: Сторожевые и пограничные корабли и катера [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографии сторожевых и пограничных кораблей (катеров). Сторожевой корабль - класс боевых надводных кораблей, предназначенных для несения дозорной службы, охранения крупных кораблей, транспортов и десантных кораблей (судов) от атак подводных лодок, торпедных катеров и авиации противника на переходе морем и при стоянке на открытых рейдах.Сторожевые корабли также привлекаются (   Читать дальше...   )Формат: JPGРазрешение файлов: от 900х500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5B8462E8CE0EA2C67A6367A8EEE2F9D28A9784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408930   (451306) от 14.09.2020
 
 Картинки - New-Zealand-Australia [JPG]
@@ -6,7 +32,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451306.jpg" />
+  <img src="Z:/picture/008/save_picture_451306.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451146.jpg" />
+  <img src="Z:/picture/008/save_picture_451146.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Geoffroy Thoorens [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451095.jpg" />
+  <img src="Z:/picture/008/save_picture_451095.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Artworks by Digital Artists (23.09.12) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450738.jpg" />
+  <img src="Z:/picture/008/save_picture_450738.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450689.jpg" />
+  <img src="Z:/picture/008/save_picture_450689.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450507.jpg" />
+  <img src="Z:/picture/008/save_picture_450507.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Metropolitan Museum Of Art - European Paintings p.1 [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450435.jpg" />
+  <img src="Z:/picture/008/save_picture_450435.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450393.jpg" />
+  <img src="Z:/picture/008/save_picture_450393.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450392.jpg" />
+  <img src="Z:/picture/008/save_picture_450392.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450377.jpg" />
+  <img src="Z:/picture/008/save_picture_450377.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Metropolitan Museum Of Art - European Paintings p.2 [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450278.jpg" />
+  <img src="Z:/picture/008/save_picture_450278.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449287.jpg" />
+  <img src="Z:/picture/008/save_picture_449287.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448749.jpg" />
+  <img src="Z:/picture/008/save_picture_448749.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448296.jpg" />
+  <img src="Z:/picture/008/save_picture_448296.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448292.jpg" />
+  <img src="Z:/picture/008/save_picture_448292.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Digital Art (26.09.2012) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448160.jpg" />
+  <img src="Z:/picture/008/save_picture_448160.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448042.jpg" />
+  <img src="Z:/picture/008/save_picture_448042.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447818.jpg" />
+  <img src="Z:/picture/008/save_picture_447818.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447809.jpg" />
+  <img src="Z:/picture/008/save_picture_447809.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447567.jpg" />
+  <img src="Z:/picture/008/save_picture_447567.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447212.jpg" />
+  <img src="Z:/picture/008/save_picture_447212.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447206.jpg" />
+  <img src="Z:/picture/008/save_picture_447206.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447113.jpg" />
+  <img src="Z:/picture/008/save_picture_447113.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446923.jpg" />
+  <img src="Z:/picture/008/save_picture_446923.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446800.jpg" />
+  <img src="Z:/picture/008/save_picture_446800.jpg" />
 </div>
 
 
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C65B59140D1EC9813BE6F3E10138290E3C8CC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566983   (446548) от 15.08.2022
-
-Фотография - ArtStation - Mels Mneyan - DOLLY ANIME REFERENCE POSES 300+ [Accent on Legs] [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кроме фотографий, включает в себя плагин Photoshop для практики рисования эскизов, рисования жестами, сеансов рисования.
-Выберите «Папка со ссылками», «Эскизный гуру» создаст для вас пользовательские сеансы рисования, используя ваши ссылки, которые вы установили,  вы сможете выполнить некоторые ручные настройки.Формат: JPGРазрешение файлов: 4016x6016 - 6016x4016
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C48B756395E090D7CE71D3B72CFA811E181AA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

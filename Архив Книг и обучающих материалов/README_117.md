@@ -1,3 +1,29 @@
+###  Публикация: 377698   (507474) от 20.08.2011
+
+Журнал | Техника - молодежи №6 [июнь 2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_507474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Техника – молодёжи» был основан в 1933 г. и отметил в 2008 г. 75-летний юбилей. Но, несмотря на почтенный возраст, «ТМ» был и остаётся одним из ведущих научно-популярных ежемесячных изданий России – живой легендой. А легенды – не умирают!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9202C60C89D580AB575DEBDB55C3D87C5CF565F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 232540   (507448) от 02.09.2010
 
 Журнал | Мир фантастики №9 (85) [сентябрь 2010] [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507448.jpg" />
+  <img src="Z:/picture/008/save_picture_507448.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507423.jpg" />
+  <img src="Z:/picture/008/save_picture_507423.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507405.jpg" />
+  <img src="Z:/picture/008/save_picture_507405.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507266.jpg" />
+  <img src="Z:/picture/008/save_picture_507266.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507179.jpg" />
+  <img src="Z:/picture/008/save_picture_507179.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507176.jpg" />
+  <img src="Z:/picture/008/save_picture_507176.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507172.jpg" />
+  <img src="Z:/picture/008/save_picture_507172.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506697.jpg" />
+  <img src="Z:/picture/008/save_picture_506697.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506669.jpg" />
+  <img src="Z:/picture/008/save_picture_506669.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506445.jpg" />
+  <img src="Z:/picture/008/save_picture_506445.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Joe Craig | Свет в портретной съёмке [1995] VHSRip
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506416.jpg" />
+  <img src="Z:/picture/008/save_picture_506416.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506283.jpg" />
+  <img src="Z:/picture/008/save_picture_506283.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506250.jpg" />
+  <img src="Z:/picture/008/save_picture_506250.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506171.jpg" />
+  <img src="Z:/picture/008/save_picture_506171.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506148.jpg" />
+  <img src="Z:/picture/008/save_picture_506148.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505739.jpg" />
+  <img src="Z:/picture/008/save_picture_505739.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505642.jpg" />
+  <img src="Z:/picture/008/save_picture_505642.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505632.jpg" />
+  <img src="Z:/picture/008/save_picture_505632.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505421.jpg" />
+  <img src="Z:/picture/008/save_picture_505421.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505194.jpg" />
+  <img src="Z:/picture/008/save_picture_505194.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ PurpleSchool, Антон Ларичев | Microservices - паттерны и п
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505137.jpg" />
+  <img src="Z:/picture/008/save_picture_505137.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504916.jpg" />
+  <img src="Z:/picture/008/save_picture_504916.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504807.jpg" />
+  <img src="Z:/picture/008/save_picture_504807.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504797.jpg" />
+  <img src="Z:/picture/008/save_picture_504797.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504685.jpg" />
+  <img src="Z:/picture/008/save_picture_504685.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Playboy – глянцевый мужской журнал охватывает 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540384   (504669) от 28.08.2012
-
-Стивен Кинг | Способный ученик [2006] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский подросток. Днём он хороший мальчик из маленького городка, способный ученик, надежда школы. Вечерами этот способный ученик учится убивать. Что автор хотел сказать своей книгой? Может быть, хотел напомнить о зёрнышке тьмы, которое есть в душе у каждого человека. Если это зёрнышко вовремя поливать и хорошенько ухаживать за ним, рано или поздно оно прорастёт. И тогда в душе у когда-то хорошего, в общем-то, человека не останется ничего, кроме тьмы.Жанр: Остросюжетная проза
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0D60188AE13EAB4C59F1E7D4B16DDCC7CB2791
 ```
 
 https://mybot314.ru/tekegram_catalog/

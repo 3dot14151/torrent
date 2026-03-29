@@ -6,7 +6,7 @@ YouTube By Click Premium 2.2.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771747.jpg" />
+  <img src="Z:/picture/008/save_picture_771747.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771746.jpg" />
+  <img src="Z:/picture/008/save_picture_771746.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771744.jpg" />
+  <img src="Z:/picture/008/save_picture_771744.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771742.jpg" />
+  <img src="Z:/picture/008/save_picture_771742.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771738.jpg" />
+  <img src="Z:/picture/008/save_picture_771738.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771736.jpg" />
+  <img src="Z:/picture/008/save_picture_771736.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Mozilla Firefox Quantum 59.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771731.jpg" />
+  <img src="Z:/picture/008/save_picture_771731.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Vandit Records Essentials (2016.1) (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771727.jpg" />
+  <img src="Z:/picture/008/save_picture_771727.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771720.jpg" />
+  <img src="Z:/picture/008/save_picture_771720.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Initial Audio - SlowMo 1.0.3 VST, VST2, VST3 (x86/x64) RETAiL [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771716.jpg" />
+  <img src="Z:/picture/008/save_picture_771716.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Transmit 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771710.jpg" />
+  <img src="Z:/picture/008/save_picture_771710.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ NGW: Рыбалка на гигантов / Fishing for Giants (2017) HDTV 1080i
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771706.jpg" />
+  <img src="Z:/picture/008/save_picture_771706.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ FastStone Capture 8.1 Final RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771701.jpg" />
+  <img src="Z:/picture/008/save_picture_771701.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Reg Organizer 7.10 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771696.jpg" />
+  <img src="Z:/picture/008/save_picture_771696.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Alfred 4 Powerpack 4.1 (build1162) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771643.jpg" />
+  <img src="Z:/picture/008/save_picture_771643.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771619.jpg" />
+  <img src="Z:/picture/008/save_picture_771619.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771617.jpg" />
+  <img src="Z:/picture/008/save_picture_771617.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - JES:Unleash The Beat (Ultraviolet Mix) (2016) [MP3|320 кб/с] <Trance,Pro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771616.jpg" />
+  <img src="Z:/picture/008/save_picture_771616.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BookReader 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771610.jpg" />
+  <img src="Z:/picture/008/save_picture_771610.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mozilla Firefox 47.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771609.jpg" />
+  <img src="Z:/picture/008/save_picture_771609.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ SnippetsLab 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771604.jpg" />
+  <img src="Z:/picture/008/save_picture_771604.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Blocs 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771599.jpg" />
+  <img src="Z:/picture/008/save_picture_771599.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Registry Life 3.29 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771594.jpg" />
+  <img src="Z:/picture/008/save_picture_771594.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771591.jpg" />
+  <img src="Z:/picture/008/save_picture_771591.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ IObit Uninstaller Pro 8.3.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771583.jpg" />
+  <img src="Z:/picture/008/save_picture_771583.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Epic Privacy Browser 71.0.3578.98 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771580.jpg" />
+  <img src="Z:/picture/008/save_picture_771580.jpg" />
 </div>
 
 

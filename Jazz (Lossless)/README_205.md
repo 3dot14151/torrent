@@ -1,3 +1,116 @@
+###  Публикация: 951492   (363664) от 29.10.2015
+
+Nat King Cole Trio - Live at the Circle Room & More (1946/1949) /1999, Definitive Records/[FLAC|tracks+.cue]<Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Opening Theme [00:40]
+ 02.Oh, But I Do [02:58]
+ 03.I'm Thru With Love [03:11]
+ 04.'C' Jam Blues [03:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F109A2A49EA46F9EDCACDD9F81365E650B03564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328487   (363604) от 30.09.2019
+
+John Coltrane - Blue World (1960-е) 2019, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NaimaЖанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666E7198F8FF20518ECFF98054C39A1C87B035CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328576   (363553) от 30.09.2019
+
+The Steve Howe Trio - New Frontier (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiatus [02:24]
+02. Left To Chance [06:33]
+03. Fair Weather Friend [04:26]
+04. Zodiac [03:07](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3267EF818388C1D6BC9C17DB432D40046E47EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416933   (363344) от 18.10.2020
+
+Tito Puente - Master Timbalero (1994) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Arrival [5:08]
+02. Enchantment [4:46]
+03. Sakura Sakura (Cherry Blossom Nova) [5:10]
+04. Azu Ki Ki [5:13](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08472FE29A5A75955EA01D2F93A6D37E89E3330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177342   (363340) от 25.10.2017
 
 Niels-Henning Orsted Pedersen Quartet - Dancing On The Tables (1979) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -6,7 +119,7 @@ Niels-Henning Orsted Pedersen Quartet - Dancing On The Tables (1979) 1990, Steep
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363340.jpg" />
+  <img src="Z:/picture/008/save_picture_363340.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Tito Puente & India - Jazzin' (1996) RMM Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363209.jpg" />
+  <img src="Z:/picture/008/save_picture_363209.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Wynton Kelly - Kelly Blue (1959) 1986,  Riverside, Japan 1st press  [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362131.jpg" />
+  <img src="Z:/picture/008/save_picture_362131.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ John Hicks - I'll Give You Something To Remember Me By… (1987) Remaster, 2015,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362034.jpg" />
+  <img src="Z:/picture/008/save_picture_362034.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Sonny Rollins - The Cutting Edge (1974) 1990, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362028.jpg" />
+  <img src="Z:/picture/008/save_picture_362028.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Count Basie - Kansas City Limits (1937-1957) 3CD, 2011, Le Chant du Monde[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362026.jpg" />
+  <img src="Z:/picture/008/save_picture_362026.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Chuck Mangione - Classics Volume 6 (1987) 1990, A&M Records[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361945.jpg" />
+  <img src="Z:/picture/008/save_picture_361945.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ The Pete Jolly Trio And Friends - Little Bird (1963) 2007, P-Vine Non Stop [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361840.jpg" />
+  <img src="Z:/picture/008/save_picture_361840.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361772.jpg" />
+  <img src="Z:/picture/008/save_picture_361772.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361769.jpg" />
+  <img src="Z:/picture/008/save_picture_361769.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ Sonny Clark - Cool Struttin (1958) RVG Edition, 1999, Reissue, Remastered [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361663.jpg" />
+  <img src="Z:/picture/008/save_picture_361663.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ VA - Jazz Goes To Cinema (2003) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361660.jpg" />
+  <img src="Z:/picture/008/save_picture_361660.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Various Artists - SAX & SEX (1997) 4CD [FLAC|Lossless]<Instrumental, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_361572.jpg" />
+  <img src="Z:/picture/005/save_picture_361572.jpg" />
 </div>
 
 
@@ -384,7 +497,7 @@ Michael Brecker Group - The Cost Of Living (1989) 1994, Jazz Door [WavPack|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361266.jpg" />
+  <img src="Z:/picture/008/save_picture_361266.jpg" />
 </div>
 
 
@@ -413,7 +526,7 @@ Ryo Fukui - Scenery +2 (1976) 2005, Solid Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361229.jpg" />
+  <img src="Z:/picture/008/save_picture_361229.jpg" />
 </div>
 
 
@@ -442,7 +555,7 @@ Sonny Stitt & The Hank Jones Trio - The Good Life (1980) 1994, Evidence [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361178.jpg" />
+  <img src="Z:/picture/008/save_picture_361178.jpg" />
 </div>
 
 
@@ -471,7 +584,7 @@ Chris Barber's Jazz & Blues Band - Chris Barber In Switzerland 1974/75 (2004) 2C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361173.jpg" />
+  <img src="Z:/picture/008/save_picture_361173.jpg" />
 </div>
 
 
@@ -500,7 +613,7 @@ Ray Barretto & New World Spirit - Trancedance (2000) 2001, Circular Moves [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360699.jpg" />
+  <img src="Z:/picture/008/save_picture_360699.jpg" />
 </div>
 
 
@@ -529,7 +642,7 @@ Duke Ellington - Love Songs (1948 - 1962) 2001, Sony Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360693.jpg" />
+  <img src="Z:/picture/008/save_picture_360693.jpg" />
 </div>
 
 
@@ -558,7 +671,7 @@ Herbie Hancock - Riot: The Newly Discovered Takes from Blue Note Sixties Session
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360613.jpg" />
+  <img src="Z:/picture/008/save_picture_360613.jpg" />
 </div>
 
 
@@ -587,7 +700,7 @@ Allen Farnham - The Common Thread (1986 - 1994) 1995, Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360599.jpg" />
+  <img src="Z:/picture/008/save_picture_360599.jpg" />
 </div>
 
 
@@ -616,7 +729,7 @@ Paul Hardcastle - The Chill Lounge  volume 2 (2013) [FLAC|Lossless]<Chillout / L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360514.jpg" />
+  <img src="Z:/picture/008/save_picture_360514.jpg" />
 </div>
 
 
@@ -630,122 +743,6 @@ Paul Hardcastle - The Chill Lounge  volume 2 (2013) [FLAC|Lossless]<Chillout / L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82921A4D37919D42405B9E12B0F5643FB3C55D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256032   (359278) от 20.10.2018
-
-Don Byas - Complete American Small Group Recordings (1944 - 1946) 4CD, 2001, Definitive Records [APE|Lossless|image + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359278.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Riffin' and Jivin' [2:57]
-02. Free and Easy [2:52]
-03. Worried 'N Blue [3:15](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 04:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F42E94EC9137C85FEB203F287FA0520A60BF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255920   (359277) от 20.10.2018
-
-Trilok Gurtu - "Usfret" (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shobharock (7:37)
- 02. Shangri La / Usfret (13:02)
- 03. Om (7:12)
- 04. Deep Tri (7:03)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2028744CAE8415F625F48EDD10672FE1865A740D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255925   (359273) от 20.10.2018
-
-Evan Parker Electro-Acoustic Ensemble - The Eleventh Hour (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Experimental, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Play (17:29)
- 02. The Eleventh Hour, Part 1 (12:52)
- 03. The Eleventh Hour, Part 2 (9:33)
- 04. The Eleventh Hour, Part 3 (12:03)(   Читать дальше...   )Жанр: Jazz, Experimental, Free ImprovisationПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024CE657311C4D0E32B643B608AA0BE40E77856E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328911   (359267) от 02.10.2019
-
-Paul Bley - The Complete Footloose (1962 - 1963) 1987, King Record [FLAC|Lossless|tracks + .cue] <Piano Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floater [6:30]
-02. When Will the Blues Leave [6:12]
-03. Around Again [4:11]
-04. Stereophrenic [5:10](   Читать дальше...   )Жанр: Piano Jazz, Post-BopПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF18FE1804C05988D59EF03CF38DEC70E6E0E802
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Godzilla: Kaijuu Wakusei | Godzilla: Planet of the Monsters | Годзилла: 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743047.jpg" />
+  <img src="Z:/picture/008/save_picture_743047.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Avira Phantom VPN Free / Pro 2.12.8.21350 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743045.jpg" />
+  <img src="Z:/picture/008/save_picture_743045.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743029.jpg" />
+  <img src="Z:/picture/008/save_picture_743029.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Hands Off! 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742997.jpg" />
+  <img src="Z:/picture/008/save_picture_742997.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Avast! Free Antivirus 2015 10.2.2218 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742990.jpg" />
+  <img src="Z:/picture/008/save_picture_742990.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Alcohol 120% 2.0.3 Build 7612 Free Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742988.jpg" />
+  <img src="Z:/picture/008/save_picture_742988.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742987.jpg" />
+  <img src="Z:/picture/008/save_picture_742987.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe After Effects CC 2018 15.1.0.166 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742970.jpg" />
+  <img src="Z:/picture/008/save_picture_742970.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742928.jpg" />
+  <img src="Z:/picture/008/save_picture_742928.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742926.jpg" />
+  <img src="Z:/picture/008/save_picture_742926.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ R-Studio 8.0 Build 164571 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742925.jpg" />
+  <img src="Z:/picture/008/save_picture_742925.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742923.jpg" />
+  <img src="Z:/picture/008/save_picture_742923.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742920.jpg" />
+  <img src="Z:/picture/008/save_picture_742920.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742918.jpg" />
+  <img src="Z:/picture/008/save_picture_742918.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Alcohol 120% 2.0.3 Build 7612 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742907.jpg" />
+  <img src="Z:/picture/008/save_picture_742907.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Alcohol 120% 2.0.3 Build 7612 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742905.jpg" />
+  <img src="Z:/picture/008/save_picture_742905.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742867.jpg" />
+  <img src="Z:/picture/008/save_picture_742867.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Age of Wonders III:  Eternal Lords v. 1.0 (2015) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742849.jpg" />
+  <img src="Z:/picture/008/save_picture_742849.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742848.jpg" />
+  <img src="Z:/picture/008/save_picture_742848.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742845.jpg" />
+  <img src="Z:/picture/008/save_picture_742845.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742833.jpg" />
+  <img src="Z:/picture/008/save_picture_742833.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Free DWG Viewer 7.3.0.37 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742776.jpg" />
+  <img src="Z:/picture/008/save_picture_742776.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742742.jpg" />
+  <img src="Z:/picture/008/save_picture_742742.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742739.jpg" />
+  <img src="Z:/picture/008/save_picture_742739.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742738.jpg" />
+  <img src="Z:/picture/008/save_picture_742738.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742737.jpg" />
+  <img src="Z:/picture/008/save_picture_742737.jpg" />
 </div>
 
 

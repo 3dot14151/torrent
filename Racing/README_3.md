@@ -6,7 +6,7 @@ Assetto Corsa (2014) [Ru/En] (1.16.2/dlc) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792605.jpg" />
+  <img src="Z:/picture/008/save_picture_792605.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rise: Race The Future (2018) [Multi] (1.2) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791472.jpg" />
+  <img src="Z:/picture/008/save_picture_791472.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Carmageddon: Max Damage (2016) [En] (1.0.0.9902d) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788881.jpg" />
+  <img src="Z:/picture/008/save_picture_788881.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NASCAR 21: Ignition (2021) [Multi] (1.25/dlc) License CODEX [Champions Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788739.jpg" />
+  <img src="Z:/picture/008/save_picture_788739.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Carmageddon 2: Carpocalypse Now (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788511.jpg" />
+  <img src="Z:/picture/008/save_picture_788511.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786438.jpg" />
+  <img src="Z:/picture/008/save_picture_786438.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FlatOut 2 (2006) [Multi] (1.2) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786235.jpg" />
+  <img src="Z:/picture/008/save_picture_786235.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785995.jpg" />
+  <img src="Z:/picture/008/save_picture_785995.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.18/dlc) Repack ivandubskoj
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785846.jpg" />
+  <img src="Z:/picture/008/save_picture_785846.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gravel (2018) [Multi] (1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785244.jpg" />
+  <img src="Z:/picture/008/save_picture_785244.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ OVERPASS (2020) [Ru/Multi] (13935/dlc) License CODEX [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784137.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Colin McRae: DiRT [Ru] (L) 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781852.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Burnin Rubber 5 HD (2018) [En] (1.0.1) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781553.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ RIDE (2015) [Ru/Multi] (1.000/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780731.jpg" />
+  <img src="Z:/picture/008/save_picture_780731.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780468.jpg" />
+  <img src="Z:/picture/008/save_picture_780468.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.0.7.0/dlc) Repack R.G. Origami [Gold P
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777459.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364) Repack MAXSEM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776274.jpg" />
+  <img src="Z:/picture/008/save_picture_776274.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mantis Burn Racing (2016) [Ru/Multi] (20180222/dlc) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_774881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_774881.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364/dlc) Repack Other s [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774001.jpg" />
+  <img src="Z:/picture/008/save_picture_774001.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Ride 2 (2016) [Multi] (20170224/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772768.jpg" />
+  <img src="Z:/picture/008/save_picture_772768.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Project CARS (2015) [Ru/Multi] (11.0.0.0/dlc) Repack R.G. Catalyst [GOTY Edition
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769991.jpg" />
+  <img src="Z:/picture/008/save_picture_769991.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Crazy Buggy Racing (2017) [En] (1.0) License TiNYiSO
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767645.jpg" />
+  <img src="Z:/picture/008/save_picture_767645.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ FlatOut Трилогия [Ru] (RePack) 2004-2008 | R.G. Recoding
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767017.jpg" />
+  <img src="Z:/picture/008/save_picture_767017.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DiRT Rally (2015) [Ru/Multi] (1.23/dlc) SteamRip Let'sPLay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766710.jpg" />
+  <img src="Z:/picture/008/save_picture_766710.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Assetto Corsa (2014) [Ru/Multi] (1.16.2/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765822.jpg" />
+  <img src="Z:/picture/008/save_picture_765822.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Need For Speed: Shift Дилогия [Ru/En] (Lossless RePack) 2009-2011 | R.G. 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762861.jpg" />
+  <img src="Z:/picture/008/save_picture_762861.jpg" />
 </div>
 
 

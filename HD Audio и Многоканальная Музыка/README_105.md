@@ -1,3 +1,235 @@
+###  Публикация: 1705569   (113827) от 09.03.2024
+
+AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Thunderstruck"
+02. "Fire Your Guns"
+03. "Moneytalks"
+04. "The Razors Edge"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1806501DB310E439618365EECA7B6C15C330B054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705617   (113826) от 09.03.2024
+
+ВИА «Поющие сердца» - Антонина Жмакова и ансамбль «Поющие сердца» (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Прекрасный день (М. Голдсборо – рус. текст В. Харитонова)
+02. Не сегодня – завтра (В. Векштейн – В. Харитонов)
+03. Твои шаги (Е. Марней, Паллавичини, Массари – рус. текст И. Кохановского)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275F4064F1F7447CB1E61DEEA0D8FE0D4802E875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705613   (113822) от 09.03.2024
+
+ВИА «Песняры» - Песняры III (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113822.jpg" />
+</div>
+
+
+###  Подробнее
+
+I сторона
+01. Явор и калина (Ю. Семеняко — Я. Купала)
+02. Поцелуй (И. Лученок — В. Коризна)
+03. По воду шла (белорусская народная песня, обработка В. Ткаченко)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705627   (113817) от 09.03.2024
+
+The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Твои сокровенные мечты (Дж. Хейуорд) — 4:50
+Your Wildest Dreams (J. Hayward)
+02. Разговоры, разговоры (Дж. Хейуорд – Дж. Лодж) — 3:55(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705684   (113816) от 09.03.2024
+
+Dave Sereny - Come On Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Home (3:37)
+02. The Masquerade Is Over (8:34)
+03. Igor's Blues (6:36)
+04. Georgia On My Mind (4:27)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F61D68357CF2F076029C4A74EA782397C352F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705626   (113814) от 09.03.2024
+
+AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Stiff Upper Lip"
+02. "Meltdown"
+03. "House of Jazz"
+04. "Hold Me Back"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705600   (113810) от 09.03.2024
+
+Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Island Of Souls
+2. All This Time
+3. Mad About You
+4. Jeremiah Blues (Part 1)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CB59120B45A7FEC8952B954198180475562397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705687   (113799) от 09.03.2024
+
+Francis Lockwood, Johan Renard - New Surya (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sir James (3:53)
+02. Monkamania (3:23)
+03. An Easy Journey (2:55)
+04. New Surya (4:15)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54759560641A3CF79E3484FD7C15BD20A546201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705730   (113797) от 09.03.2024
 
 Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Rock, Gothic Metal>
@@ -6,7 +238,7 @@ Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113797.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Synthsoul - Cosmic Funk Chronicles (Original Mix) (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113795.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Gost - Prophecy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113789.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Electro Deluxe - NEXT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113785.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113782.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113767.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113765.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113760.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113754.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossle
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113752.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113743.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Pantheist - Kings Must Die (2024) [FLAC 24/48; 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113689.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ The Wicked Lo-Down - Out Of Line (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113687.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113674.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Bex Marshall - Fortuna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113672.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ VA - Игра в четыре руки. Песни Аркадия Укупник
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113670.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113669.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Indigo Flood - You To Me Are The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113668.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Indigo Flood - You To Me Are The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA707681C880BCA95DFA440D556E8D774B306A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706317   (113660) от 12.03.2024
-
-VA - Вот какая любовь. Песни Романа Майорова (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Вот какая любовь (М. Рябинин) — Ирина Уварова и Николай Караченцов
-02. Город (Я. Гальперин) — Ансамбль «Пламя»
-03. Твой портрет (Л. Волков) — Юрий Охочинский(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65C69B8CF1B593D0C3288F40138AF7AC02CBA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706168   (113655) от 12.03.2024
-
-VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1.
-01. Smoke On The Water'90. (Blackmore-Glover-Lord-Paice)
-Rock Aid Armenia - 4.05
-02. Run To The Hills. (Iron Maiden)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706253   (113652) от 12.03.2024
-
-The Arthouse Tomatoes - On The Vine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildflower (3:19)
-02. Gunfighter's Heart (3:02)
-03. Driving Across the Desert (2:29)
-04. Kinda Miss the Heartbreak (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223C2C785A3A43D8CD8D6E7D352907C14762CF97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706403   (113645) от 12.03.2024
-
-S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Hardcore, Speed Metal, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113645.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 March Of The S.O.D.
-A2 Sargeant D & The S.O.D.
-A3 Kill Yourself
-A4 Milano Mosh(   Читать дальше...   )Жанр: Hardcore, Speed Metal, ThrashПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F1C0DC43523F75025E56E39A7FF97DE4443737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706377   (113642) от 12.03.2024
-
-S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113642.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. March Of The S.O.D.
-A2. Sargeant D & The S.O.D.
-A3. Kill Yourself
-A4. Milano Mosh(   Читать дальше...   )Жанр: Thrash, HardcoreПродолжительность: 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F5387B593C58308B580708704B1BCF20331AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706247   (113632) от 12.03.2024
-
-Dani Bischoff - Cedars Boulevard (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Old Wheels (2:59)
-02. All Comes Easy (4:25)
-03. Out of This Train (2:51)
-04. Nothing but the Blues (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBF6BA5CDEDA43AA5692CB68F7B67D9BD7F3A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706436   (113629) от 12.03.2024
-
-Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113629.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Cromlech
-A2 Sunrise Over Locus Mortis
-A3 Soulside Journey
-A4 Accumulation Of Generalization(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2523D09A782DCF7C877C9AFF55E5B43EF46400EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706250   (113624) от 12.03.2024
-
-Ibai García - Chasing the blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don´t leave me alone tonight (4:54)
-02. A one and only soul (6:20)
-03. I still care (4:07)
-04. Never coming down (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0753716BB03DC0F3FFD1EC8FBC179B0B3C7028
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 851593   (226967) от 19.12.2014
+
+Георгий Зотов | Асмодей Pictures (2014) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Староанглийский демон Корнелий Этельвульф живет в Москве уже 500 лет. Он – полукровка, бес низшего, девятого, разряда: без надежды на карьеру. Его давняя задача – подбить на грех самого обычного священника. Качественные секс-соблазны, погром в храме и попытки подсунуть в пост ветчину ни к чему не приводят. Этельвульф в ужасе понимает, что стоит на краю гибели. В (   Читать дальше...   )Жанр: Ужасы и Мистика, Детективная фантастика, Юмористическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E21D310280FF0C6D2492814715492904EB3332D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341873   (226735) от 30.11.2019
+
+Евгений Щепетнов | День непослушания: Будем жить! (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «День непослушания».
+
+Метеориты занесли на Землю смертоносные вирусы, и почти все взрослые погибли, а те, кто не погиб, переродились в кровожадных мутантов. Погибли или превратились в мохнатых злобных мутантов и маленькие дети – те, кому не исполнилось 10 лет. Выжили и сохранили рассудок только подростки 10–15 лет. Им и пришлось создавать новый (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946910C868DA7098ED2C359C97FCF0F5ABE23E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965528   (225658) от 14.12.2015
 
 Петр Заспа | Аэронавт (2015) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225658.jpg" />
+  <img src="Z:/picture/005/save_picture_225658.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225621.jpg" />
+  <img src="Z:/picture/005/save_picture_225621.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225521.jpg" />
+  <img src="Z:/picture/005/save_picture_225521.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225297.jpg" />
+  <img src="Z:/picture/005/save_picture_225297.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225227.jpg" />
+  <img src="Z:/picture/005/save_picture_225227.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225112.jpg" />
+  <img src="Z:/picture/005/save_picture_225112.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224870.jpg" />
+  <img src="Z:/picture/005/save_picture_224870.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224792.jpg" />
+  <img src="Z:/picture/005/save_picture_224792.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224615.jpg" />
+  <img src="Z:/picture/005/save_picture_224615.jpg" />
 </div>
 
 
@@ -252,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224597.jpg" />
+  <img src="Z:/picture/005/save_picture_224597.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224199.jpg" />
 </div>
 
 
@@ -309,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224065.jpg" />
+  <img src="Z:/picture/005/save_picture_224065.jpg" />
 </div>
 
 
@@ -338,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223879.jpg" />
+  <img src="Z:/picture/005/save_picture_223879.jpg" />
 </div>
 
 
@@ -366,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223878.jpg" />
+  <img src="Z:/picture/005/save_picture_223878.jpg" />
 </div>
 
 
@@ -393,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223818.jpg" />
+  <img src="Z:/picture/005/save_picture_223818.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223652.jpg" />
+  <img src="Z:/picture/005/save_picture_223652.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223487.jpg" />
+  <img src="Z:/picture/005/save_picture_223487.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223147.jpg" />
+  <img src="Z:/picture/005/save_picture_223147.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223092.jpg" />
+  <img src="Z:/picture/005/save_picture_223092.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222875.jpg" />
+  <img src="Z:/picture/005/save_picture_222875.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222848.jpg" />
+  <img src="Z:/picture/005/save_picture_222848.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222572.jpg" />
+  <img src="Z:/picture/005/save_picture_222572.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222447.jpg" />
+  <img src="Z:/picture/005/save_picture_222447.jpg" />
 </div>
 
 
@@ -640,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222298.jpg" />
+  <img src="Z:/picture/005/save_picture_222298.jpg" />
 </div>
 
 
@@ -653,60 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76EE5BFA9E06851A25E7BAF4FA2D2B46FF12C94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269319   (221407) от 14.12.2018
-
-Кристен Сиккарелли | Боги света и тьмы (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Последний Намсара».
-
-Седой Ольн был одинок. И потому сотворил себе двух спутников. Он создал первого из небесной синевы и чистого эфира и назвал его Намсара. Для второго спутника Седой Ольн взял кровь и лунный свет и назвал Искари. Если Намсара нес смех и любовь, Искари приносила лишь разрушение и смерть. Она умоляла Седого Ольна изменить ее. (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Фэнтези про драконовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F88CDBA8C423F2CB60E5128AC7B6B10D00479F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269324   (221333) от 14.12.2018
-
-Анна Соломахина | Некромант, который попал (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты некромант, повелитель умертвий и призраков, гроза подлунных кладбищ… уноси ноги, пока жив! В нашем недружелюбном мире без магии твои силы почти равны нулю… Ох, знали недруги, знали, проклятые, куда забрасывать такого талантливого парня! И только призрак майора УВД не даст ему сгинуть в пучине новой реальности.Жанр: Книги про волшебников, Попаданцы, Юмористическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74554316F60CD389928AD71ECD8A29ADE4DD2405
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1782080   (26355) от 26.02.2025
+
+Камера 211 / Celda 211 / Prison Cell 211 (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хуан Оливера, адвокат по правам человека, прибывает в переполненную тюрьму для встречи с клиентом, но внезапно оказывается в эпицентре кровавого бунта, спланированного заключёнными как прикрытие для массового побега. Оказавшись в ловушке среди обезумевших узников, он вынужден скрывать свою личность, притворяясь одним из них.Производство: Мексика / Woo FilmsЖанр: триллер, драма, криминалРежиссер: Херардо Наранхо, Хайме РейносоАктеры: Карен Сандовал Энглер, Ana Sofia Gatica, Ernesto Meléndez, Диего Кальва, Херардо Тарасена, Эктор Хименес, Ноэ Эрнандес, Алехандро Пуэнте, Антонио Фортье, Джованна Сакариас и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F269F79D6F111A479F7739DEFEDEFFD8E188F74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782417   (26174) от 28.02.2025
 
 Волчье лето / Vargasommar / Cry Wolf (2024) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26174.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26137.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25957.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25832.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25684.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25680.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25653.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25034.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24682.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24286.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24276.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22527.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22515.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22469.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22468.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22343.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21994.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21697.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21694.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21559.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21528.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21488.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21450.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21446.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21428.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60A2220F0FEA14C7C944CD12EFA09F642A9AE91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784420   (21172) от 17.04.2025
-
-Сорвиголова: Рожденный заново / Daredevil: Born Again (2025) WEBRip (сезон 1, серии 1-9 из 9) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Днем адвокат Мэтт Мердок — обычный «белый воротничок», который защищает невиновных. А ночью он — «человек без страха», отчаянный Сорвиголова, который борется с преступностью более радикальными методами. Когда-то он потерял зрение, но обрел уникальный слух и сверхчувствительность, благодаря которым он ориентируется в пространстве даже лучше своих зрячих врагов. Его (   Читать дальше...   )Производство: США / 20th Television, Corman & Ord, Marvel StudiosЖанр: фантастика, фэнтези, боевик, триллер, драма, криминалРежиссер: Джастин Бенсон, Аарон Мурхед, Дэвид Бойд и др.Актеры: Чарли Кокс, Маргарита Левиева, Винсент Д’Онофрио, Дженнея Уолтон, Уилсон Бетел, Дебора Энн Уолл, Джон Бернтал, Руибо Цянь, Уилл Фитц, Арти Фрушан и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4852251EC83E275928FB5FA88AD03C5596B04AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1017019   (769410) от 15.05.2016
+
+КОМПАС-3D 16.1.0 MCAD 16.2.0 (x86) Portable [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769410.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Компас-3D» - система трёхмерного моделирования, ставшая стандартом для тысяч предприятий благодаря удачному сочетанию простоты освоения и легкости работы с мощными функциональными возможностями твердотельного и поверхностного моделирования. Главной особенностью продукта можно назвать использование собственного математического ядра и параметрических технологий, разработанных (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD495098F5E0AE040854116DFDCADE7945F364D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016973   (769409) от 15.05.2016
+
+Sea Dogs: To Each His Own / Корсары: Каждому свое (2012) [Ru/En] (1.4/dlc) License PROPHET
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sea Dogs: To Each His Own - самая последняя игра легендарной «пиратской» серии, рассказывающая о судьбе морского волка Шарля де Мора. Всё, что было любимо игроками осталось и было не только улучшено, но и приумножено!Тип издания: LicenseРазработчик: BlackMark StudioЖанр: Action, Add-on (Standalone, Naval), RPG, 3D, 3rd Person, Privateer, TraderЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8E575477213B1B1BF02F2F0C4DD822566C34D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392237   (769271) от 25.06.2020
+
+Adobe Premiere Pro 2020 14.3.0.38 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2020 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D6977DAB3F46BF07C2DDA4757488832086672A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298151   (769123) от 26.06.2020
+
+Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.29) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769123.jpg" />
+</div>
+
+
+###  Подробнее
+
+После разрушительной войны древних магов разрозненные осколки планеты под названием Дрифтленд удерживает лишь одно мощное заклинание. Когда враждующие фракции поняли, что их цивилизация и вся жизнь на планете — на грани разрушения, они заключили перемирие и попытались восстановить ущерб. Но было слишком поздно. Использовав всю оставшуюся магию, чтобы наложить мощное (   Читать дальше...   )Тип издания: RepackРазработчик: Star DriftersЖанр: Strategy (Real-time), Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159D80C609F07F3F2D984F4C0911889CD47FD351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212921   (768708) от 16.03.2018
 
 Adobe Photoshop CC 2018 (19.1.2)  RePack by D!akov  [Multi/Ru]
@@ -6,7 +110,7 @@ Adobe Photoshop CC 2018 (19.1.2)  RePack by D!akov  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768708.jpg" />
+  <img src="Z:/picture/008/save_picture_768708.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768699.jpg" />
+  <img src="Z:/picture/008/save_picture_768699.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768565.jpg" />
+  <img src="Z:/picture/008/save_picture_768565.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_768381.jpg" />
+  <img src="Z:/picture/005/save_picture_768381.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768376.jpg" />
+  <img src="Z:/picture/008/save_picture_768376.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Apple Final Cut Pro X 10.3.3, Motion 5.3.2 & Compressor 4.3.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768375.jpg" />
+  <img src="Z:/picture/008/save_picture_768375.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768206.jpg" />
+  <img src="Z:/picture/008/save_picture_768206.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 14.03.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767971.jpg" />
+  <img src="Z:/picture/008/save_picture_767971.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ ITVDN | Django (2018) PCRec [H.264/720p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767964.jpg" />
+  <img src="Z:/picture/008/save_picture_767964.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Adobe InDesign CC 2018 13.1.0.76 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767962.jpg" />
+  <img src="Z:/picture/008/save_picture_767962.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767806.jpg" />
+  <img src="Z:/picture/008/save_picture_767806.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767799.jpg" />
+  <img src="Z:/picture/008/save_picture_767799.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767570.jpg" />
+  <img src="Z:/picture/008/save_picture_767570.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_767383.jpg" />
+  <img src="Z:/picture/005/save_picture_767383.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ Windows 7 SP1 2in1 (x64) Elgujakviso Edition (v.25.01.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767381.jpg" />
+  <img src="Z:/picture/008/save_picture_767381.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767374.jpg" />
+  <img src="Z:/picture/008/save_picture_767374.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_767227.jpg" />
+  <img src="Z:/picture/005/save_picture_767227.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767011.jpg" />
+  <img src="Z:/picture/008/save_picture_767011.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ Symantec Endpoint Protection 14.0 MP1 Build 2349 (14.0.2349.0100) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766709.jpg" />
+  <img src="Z:/picture/008/save_picture_766709.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ Mindjet MindManager 2017 17.2.208 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766698.jpg" />
+  <img src="Z:/picture/008/save_picture_766698.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766697.jpg" />
+  <img src="Z:/picture/008/save_picture_766697.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_766694.jpg" />
+  <img src="Z:/picture/005/save_picture_766694.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266414   (766605) от 28.01.2019
-
-Блокада: Фильм 1: Лужский рубеж, Пулковский меридиан (1974) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766605.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному роману А.Чаковского. Одна из самых известных работ Михаила Ершова четырёхсерийная киноэпопея "Блокада", за которую он получил Золотую медаль имени Довженко, создавалась мастером на протяжении семи лет. Фильм посвящен мужеству и стойкости жителей Ленинграда в период с сентября 1941 года по январь 1944 года, который вошел в историю Великой (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Военный, ДрамаРежиссер: Михаил ЕршовАктеры: Юрий Соломин, Михаил Ульянов, Юозас Будрайтис, Станислав Станкевич, Владислав Стржельчик, Альберт Печников, Владимир Волчик, Алексей Преснецов, Герберт Дмитриев, Азамат Багиров, Георгий Гегечкори, Юрий Алексеев, Борис Аракелов, Сергей Харченко, Николай Федорцов, Данута Столярская, Ирина Акулова, Евгений Лебедев, Даниил Сагал, Владимир Трещалов, Николай Трофимов, (   Читать дальше...   )Продолжительность: ~ 02:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1962DAD914F89435A18A38BE1731BB26B6B4FEAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146421   (766602) от 28.01.2019
-
-Counter Strike: Source - Южная Осетия / South Osetia (2006) [Ru] (1.0) Unofficial
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сounter Strike Source: Южная Осетия — это вторая версия мода, в котором у вас будет возможность принять участие в боевых действиях, происходивших на территории Южной Осетии летом 2008 года. В моде представлено практически всё грузинское вооружение, новые карты и текстуры.Тип издания: UnofficialРазработчик: ValveЖанр: MMO Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9783F9E1F7524B6B28EDB1F470D47742D00D9E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213752   (766489) от 19.03.2018
-
-ZORIN OS 12.3 ULtimate 12.3 [X64] ISO
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zorin OS — дистрибутив Linux, основанный на Ubuntu, который направлен на то, чтобы создать интерфейс, как можно более похожий на Windows Explorer в Microsoft Windows. Это делается с целью облегчить переход с Windows в Linux-подобную операционную систему. В Zorin OS используются приложения, которые могут изменить внешний вид операционной системы так, чтобы она напоминала (   Читать дальше...   )Язык интерфейса: Мультиязычный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F2DE7BE912E8CC16B0E7948DE6C2AFAF5AC2A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126153   (765925) от 17.04.2017
-
-О любви (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петербурженка Нина — студентка, жена молодого красавца-профессора, который знает китайский язык и учения Поднебесной, похоже, лучше, чем окружающую российскую действительность. Нина убеждена, что супружеская верность и смирение и есть любовь. Но всё меняется, когда в её жизни появляется банкир Сергей.Производство: Россия, Studio 2-B-2 entertainmentЖанр: МелодрамаРежиссер: Владимир БорткоАктеры: Анна Чиповская, Алексей Чадов, Мария Миронова, Александр Лыков, Дмитрий Певцов, Светлана Хомич, Ольга Павлюкова, Клавдия БеловаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD38FE2A02D7A019FDE42856F2CCA9EE22421368
 ```
 
 https://mybot314.ru/tekegram_catalog/

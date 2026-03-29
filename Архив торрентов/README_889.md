@@ -6,7 +6,7 @@ ClickTeam Install Creator Pro 2.0.43 Portable by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844936.jpg" />
+  <img src="Z:/picture/008/save_picture_844936.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844919.jpg" />
+  <img src="Z:/picture/008/save_picture_844919.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844918.jpg" />
+  <img src="Z:/picture/008/save_picture_844918.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ICQ 10.0 build 12027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844916.jpg" />
+  <img src="Z:/picture/008/save_picture_844916.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Meek Mill - Dreams Worth More Than Money (2015) Deluxe Edition [FLAC|Lossless|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844913.jpg" />
+  <img src="Z:/picture/008/save_picture_844913.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844910.jpg" />
+  <img src="Z:/picture/008/save_picture_844910.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844906.jpg" />
+  <img src="Z:/picture/008/save_picture_844906.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Air Explorer Pro 1.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844905.jpg" />
+  <img src="Z:/picture/008/save_picture_844905.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Dream Dance Vol.79 (2016) [MP3|320 кб/с] <Trance, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844904.jpg" />
+  <img src="Z:/picture/008/save_picture_844904.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Music Tag Editor 2 v5.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844877.jpg" />
+  <img src="Z:/picture/008/save_picture_844877.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cyberfox 52.0 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844866.jpg" />
+  <img src="Z:/picture/008/save_picture_844866.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Media Player Codec Pack 4.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844862.jpg" />
+  <img src="Z:/picture/008/save_picture_844862.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Joe Cocker - Hit Collection (2000) [FLAC|Lossless|tracks  + .cue]<Rock- Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844859.jpg" />
+  <img src="Z:/picture/008/save_picture_844859.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844857.jpg" />
+  <img src="Z:/picture/008/save_picture_844857.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Depeche Mode - Where's the Revolution (Remixes) (2017) Single [FLAC|Lossless|WEB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844846.jpg" />
+  <img src="Z:/picture/008/save_picture_844846.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ K-Lite Codec Pack Update 12.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844829.jpg" />
+  <img src="Z:/picture/008/save_picture_844829.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Mirillis Action! 1.30.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844827.jpg" />
+  <img src="Z:/picture/008/save_picture_844827.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Tipard HD Video Converter 7.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844821.jpg" />
+  <img src="Z:/picture/008/save_picture_844821.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ AVG Internet Security 2016 16.61.7538 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844819.jpg" />
+  <img src="Z:/picture/008/save_picture_844819.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ AVG AntiVirus 2016 16.61.7538 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844818.jpg" />
+  <img src="Z:/picture/008/save_picture_844818.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Multi Commander 6.0 Build 2118 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844816.jpg" />
+  <img src="Z:/picture/008/save_picture_844816.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ JRiver Media Center 26.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844792.jpg" />
+  <img src="Z:/picture/008/save_picture_844792.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ ATMSSPHERO - VCVBTRVP IX (2016) [MP3|320 Kbps] <Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844765.jpg" />
+  <img src="Z:/picture/008/save_picture_844765.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_844758.jpg" />
+  <img src="Z:/picture/009/save_picture_844758.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844749.jpg" />
+  <img src="Z:/picture/008/save_picture_844749.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Hirschmann Industrial HiVision 06.0.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844738.jpg" />
+  <img src="Z:/picture/008/save_picture_844738.jpg" />
 </div>
 
 

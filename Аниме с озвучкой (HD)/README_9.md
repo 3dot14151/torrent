@@ -1,3 +1,29 @@
+###  Публикация: 1235516   (410577) от 04.10.2018
+
+Overlord III / Повелитель [ТВ-3] [2018, TV, 13 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410577.jpg" />
+</div>
+
+
+###  Подробнее
+
+2138 год. Виртуальная реальность развивается семимильными шагами, и в это же время популярная онлайн-игра «Иггдрасиль» неожиданно закрывается. Момонга, главный герой истории, решает не выходить из игры до полного отключения серверов. Но произошло невероятное: сервер не прервал подключение, игра продолжилась, а Момонга превратился в могущественного скелета-волшебника. (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Ито НаоюкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF89228A6FBB3FEBE8A93CE3C4AA3A412F1CB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147878   (410128) от 23.09.2017
 
 Keppeki Danshi! Aoyama-kun / Cleanliness Boy! Aoyama-kun / Чистюля Аояма-кун [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
@@ -6,7 +32,7 @@ Keppeki Danshi! Aoyama-kun / Cleanliness Boy! Aoyama-kun / Чистюля Аоя
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410128.jpg" />
+  <img src="Z:/picture/008/save_picture_410128.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Re:Creators / Воссоздающие [2017, TV, 22 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409966.jpg" />
+  <img src="Z:/picture/008/save_picture_409966.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Koi to Uso / Love and Lies / Любовь и ложь [2017, TV, 12] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409824.jpg" />
+  <img src="Z:/picture/008/save_picture_409824.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Isekai Shokudou / Restaurant to Another World / Ресторанчик из ин
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409822.jpg" />
+  <img src="Z:/picture/008/save_picture_409822.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405344.jpg" />
+  <img src="Z:/picture/008/save_picture_405344.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Saiyuuki Reload Blast / Saiyuki Reload Blast / Путь на запад: Взр�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402972.jpg" />
+  <img src="Z:/picture/008/save_picture_402972.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Dive!! / Дайв!! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402221.jpg" />
+  <img src="Z:/picture/008/save_picture_402221.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Knight's & Magic / Рыцари и Магия [2017, TV, 13 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401059.jpg" />
+  <img src="Z:/picture/008/save_picture_401059.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Clannad After Story / Кланнад. Продолжение истории / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400491.jpg" />
+  <img src="Z:/picture/008/save_picture_400491.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Action Heroine Cheer Fruits | Героиня поддерживает фрукт
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400110.jpg" />
+  <img src="Z:/picture/008/save_picture_400110.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Kaito x Ansa | Кайто и Анса [2017, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396342.jpg" />
+  <img src="Z:/picture/008/save_picture_396342.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Ikemen Sengoku: Toki o Kakeru ga Koi wa Hajimaranai | Красавчики из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396341.jpg" />
+  <img src="Z:/picture/008/save_picture_396341.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Jikan no Shihaisha / Chronos Ruler / Повелители Времени [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391639.jpg" />
+  <img src="Z:/picture/008/save_picture_391639.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Isekai wa Smartphone to Tomo ni / In Another World With My Smartphone / В ин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391638.jpg" />
+  <img src="Z:/picture/008/save_picture_391638.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Motto To Love-Ru: Trouble / Любовные неприятности (ТВ-2) [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391432.jpg" />
+  <img src="Z:/picture/008/save_picture_391432.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Shingeki no Bahamut: Virgin Soul / Rage of Bahamut: Virgin Soul / Ярость �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388707.jpg" />
+  <img src="Z:/picture/008/save_picture_388707.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e / Добро пожаловат�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386409.jpg" />
+  <img src="Z:/picture/008/save_picture_386409.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384660.jpg" />
+  <img src="Z:/picture/008/save_picture_384660.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Joker Game / Игра Джокера [2016, TV, 12 ep + 2 sp] WEB-DL 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381819.jpg" />
+  <img src="Z:/picture/008/save_picture_381819.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374106.jpg" />
+  <img src="Z:/picture/008/save_picture_374106.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Shokugeki no Souma: Ni no Sara / Кулинарные Поединки Сомы:
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372685.jpg" />
+  <img src="Z:/picture/008/save_picture_372685.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Gekijouban Fate/Stay Night: Unlimited Blade Works / Fate/Stay Night: Unlimited B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370715.jpg" />
+  <img src="Z:/picture/008/save_picture_370715.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Machikado Mazoku | Demon Girl Next Door | Городская демонесса 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362069.jpg" />
+  <img src="Z:/picture/008/save_picture_362069.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Grand Blue / Grand Blue Dreaming / Бескрайняя синева [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353564.jpg" />
+  <img src="Z:/picture/008/save_picture_353564.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Kizumonogatari | Истории ран [2016-2017, Movie, 3 из 3] BDrip 720p 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352708.jpg" />
+  <img src="Z:/picture/008/save_picture_352708.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Kizumonogatari | Истории ран [2016-2017, Movie, 3 из 3] BDrip 720p 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E67FD9B2E971AE8A793696E90CB179E170CF6CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072163   (351329) от 13.11.2016
-
-Monogatari Series: Second Season / Истории, сезон второй [2013, TV, 23] HDTVRip 720р rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351329.jpg" />
-</div>
-
-
-###  Подробнее
-
-То, о чем предупреждали провидцы, свершилось – Арараги-гарем окончательно сложился в серьезный женский коллектив, спаянный общей целью и высокой миссией! Второй сезон неповторимых «Историй» дает возможность лучше познакомиться с каждой из незаурядных девушек, окружающих «братца Коёми», ближе узнать их достоинства и недостатки и понять, почему одни неплохие вроде (   Читать дальше...   )Производство: ЯпонияЖанр: мистикаРежиссер: Симбо АкиюкиПеревод: AleX_MytH, DJATOM, Evafan, Reaper, Xellos SlayerЯзык субтитров: ОтсутствуютПродолжительность: 23 серии по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CA0EAEF67137C51C8C404F9593A69AD7EFDE6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

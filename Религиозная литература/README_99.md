@@ -1,3 +1,81 @@
+###  Публикация: 965313   (226055) от 14.12.2015
+
+Г. Е. Светлов | Путь богов [синто в истории Японии] (1985) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа посвящена исследованию национальной религии Японии — синто. В ней анализируются специфические особенности этой религии, позволившие правящим кругам довоенной Японии использовать ее для культивирования национализма, оправдания агрессивной политики японского империализма. Автор критически рассматривает попытки возродить былое влияние синто в современных условиях.Жанр: История, религиоведение, политология, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77535DC8A700FA8547E69A84B8F313C1CE66614F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424759   (225986) от 18.11.2020
+
+М. Вострышев | Патриарх Тихон. Божий избранник (2013) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о жизни и великом духовном и человеческом подвиге святителя Тихона, патриарха Московского и всея России. С ноября 1917 года, когда в России было восстановлено патриаршество, ему выпала непомерно тяжёлая доля возглавить угнетаемую и разрушаемую Русскую Церковь, сохранить в чистоте Православную веру. Новое издание книги дополнено подробной хроникой (   Читать дальше...   )Жанр: Православие. ИсторияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A138D43460C454CD649EF7A5E07F5D8A31F5044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759621   (225583) от 18.11.2020
+
+Прп. Иоанн Дамаскин | Полное собрание творений св. Иоанна Дамаскина. Том 1 (1913) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иоанн Дамаскин (ок. 675 — 753 (777?) гг.) (греч. Ιωαννης ο Δαμασκηνος — Иоанн из Дамаска) — преподобный святой, один из Отцов Церкви, богослов и гимнограф. Носил наследственное прозвище Мансура («победительный»). Его отец Сергий (Ибн-Серджун) служил при дворе калифа в Дамаске (   Читать дальше...   )Жанр: Религиозная литература, православиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3D0566DBB613F95C8C36C91013183CD65F56C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650512   (224959) от 03.08.2023
 
 Святитель Игнатий (Брянчанинов) | Отечник (2020) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224959.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224889.jpg" />
+  <img src="Z:/picture/005/save_picture_224889.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224845.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224828.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224424.jpg" />
+  <img src="Z:/picture/005/save_picture_224424.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224285.jpg" />
+  <img src="Z:/picture/005/save_picture_224285.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224060.jpg" />
+  <img src="Z:/picture/005/save_picture_224060.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223668.jpg" />
+  <img src="Z:/picture/005/save_picture_223668.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223239.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222839.jpg" />
+  <img src="Z:/picture/005/save_picture_222839.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222580.jpg" />
+  <img src="Z:/picture/005/save_picture_222580.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222361.jpg" />
+  <img src="Z:/picture/005/save_picture_222361.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222347.jpg" />
+  <img src="Z:/picture/005/save_picture_222347.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222239.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222171.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222160.jpg" />
+  <img src="Z:/picture/005/save_picture_222160.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222156.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221546.jpg" />
+  <img src="Z:/picture/005/save_picture_221546.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221515.jpg" />
+  <img src="Z:/picture/005/save_picture_221515.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221339.jpg" />
+  <img src="Z:/picture/005/save_picture_221339.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221197.jpg" />
+  <img src="Z:/picture/005/save_picture_221197.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221136.jpg" />
+  <img src="Z:/picture/005/save_picture_221136.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220761.jpg" />
+  <img src="Z:/picture/005/save_picture_220761.jpg" />
 </div>
 
 
@@ -604,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8E00F5C6A31F3186A3473B36F63E8625DC4CA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425576   (220746) от 21.11.2020
-
-Святитель Нектарий Эгинский | Глаголы жизни. Житие. Алфавит духовный (2017) [PDF, DJVU, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель нашей жизни состоит в том, чтобы стать совершенными и святыми, явиться чадами Бога и наследниками Царствия Небесного. Будем бдительны, чтобы ради нынешней жизни не лишиться будущей, от житейских забот и хлопот не вознерадеть о цели нашей жизни. Пост, бдение и молитва сами по себе не приносят должных духовных плодов, они не являются целью нашей жизни, а лишь (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7685025CD5D2B28C71D0289EC19FB8EDC6F86912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343035   (220259) от 05.12.2019
-
-Сибирская Благозвонница (изд.) | Тебе, Мати Бога нашего, хвалим. Богородичные сотницы (2014) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизреченна милость Господа к нам, грешным. И всё же, несмотря на великую любовь к людям, Иисус Христос — строгий Судия наших мыслей и дел. Иногда даже святые заступники не в силах умолить Его о помиловании согрешившей души. И лишь Пресвятая Богородица матерними молитвами может изменить решение Своего Божественного Сына. Она — наша Заступница, единая наша Надежда (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C29ECCB8DA4374338A01F924A0379F7D9857DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343069   (220213) от 05.12.2019
-
-Сибирская Благозвонница (изд.) | Земная жизнь Пресвятой Богородицы (2017) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220213.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Богоматерь явила всем неизреченную бездну любви Божией к людям. Благодаря Ей прекратилась наша долговечная вражда с Творцом. Благодаря Ей было устроено наше с Ним примирение, нам были дарованы мир и благодать, вместе с Ангелами ликуют люди, и мы, прежде осужденные, стали чадами Божиими. С Неё мы сорвали гроздь жизни; от Неё взяли отрасль нетления. Она стала посредницей (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828F18C7A61B394C53307A725D5329B262C9A361
 ```
 
 https://mybot314.ru/tekegram_catalog/

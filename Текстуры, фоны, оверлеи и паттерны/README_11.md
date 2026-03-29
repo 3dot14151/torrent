@@ -1,3 +1,29 @@
+###  Публикация: 1221826   (691460) от 26.04.2018
+
+Текстуры - Texturemate - Marble Counter Texture Pack 1 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_691460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры под мрамор.Формат: JPGРазрешение файлов: 3888 x 2592
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB990D39FAA84FAD332FD8B31A86A986CC356CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221722   (691456) от 26.04.2018
 
 Текстуры - Texturemate - Rough Cement 2 Free Texture Pack [JPG]
@@ -6,7 +32,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691456.jpg" />
+  <img src="Z:/picture/008/save_picture_691456.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691382.jpg" />
+  <img src="Z:/picture/008/save_picture_691382.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691381.jpg" />
+  <img src="Z:/picture/008/save_picture_691381.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691380.jpg" />
+  <img src="Z:/picture/008/save_picture_691380.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691379.jpg" />
+  <img src="Z:/picture/008/save_picture_691379.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691377.jpg" />
+  <img src="Z:/picture/008/save_picture_691377.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691370.jpg" />
+  <img src="Z:/picture/008/save_picture_691370.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691369.jpg" />
+  <img src="Z:/picture/008/save_picture_691369.jpg" />
 </div>
 
 
@@ -206,6 +232,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221737   (691367) от 26.04.2018
+
+Текстуры - Texturemate - Rusty Metal 2 Free Texture Pack [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_691367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры.Формат: JPGРазрешение файлов: 3888 x 2592
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A5C370D5ED4DFC1BA6E35B8966A957F2A278BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221823   (691268) от 26.04.2018
 
 Текстуры - Texturemate - Metal 1 Free Texture Pack [JPG]
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691268.jpg" />
+  <img src="Z:/picture/008/save_picture_691268.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691267.jpg" />
+  <img src="Z:/picture/008/save_picture_691267.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689927.jpg" />
+  <img src="Z:/picture/008/save_picture_689927.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689560.jpg" />
+  <img src="Z:/picture/008/save_picture_689560.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689551.jpg" />
+  <img src="Z:/picture/008/save_picture_689551.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689548.jpg" />
+  <img src="Z:/picture/008/save_picture_689548.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689439.jpg" />
+  <img src="Z:/picture/008/save_picture_689439.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689437.jpg" />
+  <img src="Z:/picture/008/save_picture_689437.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689436.jpg" />
+  <img src="Z:/picture/008/save_picture_689436.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689435.jpg" />
+  <img src="Z:/picture/008/save_picture_689435.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689432.jpg" />
+  <img src="Z:/picture/008/save_picture_689432.jpg" />
 </div>
 
 
@@ -498,6 +550,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221914   (689308) от 27.04.2018
+
+Текстуры - Creativetacos - 30 Free Canvas Textures Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_689308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры под холст, чёрные и белые.
+Автор: CreativetacosФормат: JPGРазрешение файлов: 6000 × 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBA1377A80DAA3F1D1CEAB9A24280A16844987E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221874   (689179) от 27.04.2018
 
 Фоны - Creativetacos - Free 12 Motion Blur 8K Backgrounds [JPG]
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689179.jpg" />
+  <img src="Z:/picture/008/save_picture_689179.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687481.jpg" />
+  <img src="Z:/picture/008/save_picture_687481.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687478.jpg" />
+  <img src="Z:/picture/008/save_picture_687478.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687370.jpg" />
+  <img src="Z:/picture/008/save_picture_687370.jpg" />
 </div>
 
 
@@ -597,86 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FAC4C9D052E0069133DF9AFE02B410AAD8BC319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222275   (687368) от 28.04.2018
-
-Текстуры - Creativetacos - 10 Free Concrete Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные бетонные текстуры.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 4299 x 3565
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF003C62BED8C0C7C8399AC2556A0B881601CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222324   (687367) от 28.04.2018
-
-Текстуры - GraphicBurger - 8 Glitter Textures Vol.2 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные блестящие текстуры с официальной документацией.Формат: JPGРазрешение файлов: 5000 x 3328
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163D853395872472AC392419447E5A31899B001C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222272   (687362) от 28.04.2018
-
-Текстуры - Creativetacos - Free Seamless Glitter Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные блестящие бесшовные текстуры.
-Автор: MedialootФормат: JPG, PATРазрешение файлов: 1024 x 1024
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A04CC90EC34F24C010C07A88C744E808DF5D774
 ```
 
 https://mybot314.ru/tekegram_catalog/

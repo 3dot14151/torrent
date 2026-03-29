@@ -1,3 +1,107 @@
+###  Публикация: 1343326   (228958) от 28.07.2023
+
+NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Uncharted (2019) HDTV [H.264/1080i-LQ] (Сезон 1, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_228958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гордон Рамзи поставил перед собой задачу погрузиться в новые культуры, блюда и запахи. От Перу и Марокко до Гавайев, Аляски и Новой Зеландии, Рамзи пробирается по лесам и долинам, погружается в океаны, карабкается по горам в своих путешествиях по миру для изучения кулинарных особенностей разных народов.Производство: Великобритания, Studio Ramsay, Disney+, National Geographic ChannelЖанр: Документальный, познавательный, путешествияРежиссер: Алистер СмитУчастники: Гордон Рамзи, Шелдон Симеон, Мишель КостеллоПеревод: Одноголосый закадровый, профессиональныйСубтитры: Английские (неотключаемые, на отличную от английской речь)Продолжительность: серии x ~00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18CAEF021E32ECCDE69955B8F9FF3958B04AA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214519   (228950) от 28.07.2023
+
+NG: Последствия: Преданные Солнцем / Aftermath: Betrayed by the sun (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_228950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше Солнце не вечно. Через миллиарды лет оно умрет - превратится в огромного красного гиганта и поглотит Землю. Что будет с землей если Солнце станет красным карликом прямо сегодня, на наших глазах, и как мы будем справляться с последствиями?Жанр: ДокументальныйПеревод: Одноголосый профессиональныйПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47BA8AE825302CFFA378D5CF5E498BEC995834D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499582   (228935) от 28.07.2023
+
+NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Uncharted (2021) HDTVRip [H.264/1080i] (Сезон 3, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_228935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших поваров мира — Гордон Рамзи — отправляется в путешествие по миру ради новых кулинарных впечатлений и идей. Зрители побывают вместе с Рамзи в Перу, Марокко, на Гавайях, в Новой Зеландии и даже посетят Аляску, чтобы насладиться местными деликатесами. Помимо еды, героя передачи интересуют и культурные ценности местных народов, а также посещение главных (   Читать дальше...   )Производство: США, Studio Ramsay, National GeographicЖанр: Документальный, путешествия, кулинарияРежиссер: Джон КроллУчастники: Гордон Рамзи, Шелдон Симеон, Мишель КостеллоПеревод: Одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D429F58B038C24C872E71D6DC31F88BE692624A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583705   (228597) от 15.10.2022
+
+Аляска и её соседи / Alaska and the Wilds Beyond (2021) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аляска, Канада, Норвегия и Арктика - одни из самых холодных и отдаленных районов на Земле. Животные, которые обитают в этих местах, прекрасно приспособлены к выживанию в таких суровых условиях. Белые медведи, касатки и тихоокеанские сельдевые акулы успешно охотятся в этих ледяных водах. Между тем вдали от моря свою добычу упорно преследуют волки, лисы и росомахи.Производство: США, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Сэмюэл ХоллПеревод: одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163868AF0B4CDF4F62AD9D63E7291EF05CBBC654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535019   (228583) от 18.12.2013
 
 BBC: Египет. Тайны, скрытые под землей / Egypt: What lies beneath (2011) SATRip [часть 1]
@@ -6,7 +110,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228583.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW. Дикая Африка: династии / Africa's Wild Side. Dynasties (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228471.jpg" />
+  <img src="Z:/picture/005/save_picture_228471.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228370.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery. Смертельный улов / Deadliest Catch (2015) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227160.jpg" />
+  <img src="Z:/picture/005/save_picture_227160.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226964.jpg" />
+  <img src="Z:/picture/005/save_picture_226964.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226088.jpg" />
+  <img src="Z:/picture/005/save_picture_226088.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226054.jpg" />
+  <img src="Z:/picture/005/save_picture_226054.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Злоключения за границей / Banged up Abroad (2020) IPTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224964.jpg" />
+  <img src="Z:/picture/005/save_picture_224964.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224939.jpg" />
+  <img src="Z:/picture/005/save_picture_224939.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NGW: Медвежья школа / Bearhood (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224819.jpg" />
+  <img src="Z:/picture/005/save_picture_224819.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NGW: Самые странные в мире: ползучие целители 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224750.jpg" />
+  <img src="Z:/picture/005/save_picture_224750.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NGW: Дикие места Африки. Рожденные выживать / A
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224721.jpg" />
+  <img src="Z:/picture/005/save_picture_224721.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезон�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224683.jpg" />
+  <img src="Z:/picture/005/save_picture_224683.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223524.jpg" />
+  <img src="Z:/picture/005/save_picture_223524.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223506.jpg" />
+  <img src="Z:/picture/005/save_picture_223506.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ BBC: Горизонт. Как построить машину времени / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223497.jpg" />
+  <img src="Z:/picture/005/save_picture_223497.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223452.jpg" />
+  <img src="Z:/picture/005/save_picture_223452.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223097.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222409.jpg" />
+  <img src="Z:/picture/005/save_picture_222409.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ BBC: Биологические часы - как они работают? / Bod
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222343.jpg" />
+  <img src="Z:/picture/005/save_picture_222343.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222022.jpg" />
+  <img src="Z:/picture/005/save_picture_222022.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221992.jpg" />
+  <img src="Z:/picture/005/save_picture_221992.jpg" />
 </div>
 
 
@@ -565,112 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00BCB881BBC717377F0AA657524AB2EA40BDE7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342872   (220981) от 04.12.2019
-
-NGW. Странная природа: сумасброды / Stranger than Nature. Unhinged (2019) HDTV [H.264/1080i] (серии 1-8)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал "Странная природа" знакомит зрителей с самыми необычными историями из реальной жизни дикой природы.Производство: США, Tigress Productions, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Карен БеландПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A76E948B2D1B26F2C3CCB58C1E40A110F361100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513845   (220854) от 01.12.2021
-
-BBC. Как устроены шикарные отели. Эм-Джи-Эм (Макао) / Amazing Hotels: Life Beyond the Lobby (2020) HDTV [H.264/1080i] (сезон 3, серия 1)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джайлс и Моника возвращаются, чтобы заглянуть за кулисы в одни из самых удивительных отелей мира, начиная с одного из новейших и самых высокотехнологичных отелей в самоуправляемом китайском городе Макао.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательныйРежиссер: Pete StantonПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50C4E709F73C3E1CC1644318D9E8F0CF1E31F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342927   (220832) от 04.12.2019
-
-NG: Осушить океан: Подводные лодки-убийцы / Drain the Oceans. Killer U-Boats (2019) HDTV [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первыми в мире малозаметными военными объектами стали подводные лодки, которые доказали в ходе Второй мировой войны величие королевских ВМС. Потопив немецкие корабли общим водоизмещением в 12 млн тонн, они практически обеспечили победу в этой войне. Сумев достойно ответить угрозе немецкого подводного флота, они изменили все правила ведения войны на море. Сериал "Осушить (   Читать дальше...   )Производство: США, Канада, Великобритания, 422 South, Battens Media, Mallinson Sadler Productions, National GeographicЖанр: Документальный, история, исследованияРежиссер: Алекс ВестПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7FA98729B8263F79BC306A6B5C190DB5E579D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587853   (220809) от 11.12.2012
-
-NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где же могла быть расположена легендарная Атлантида? Используя современные технологии и опираясь на записи Платона, учёные пытаются раскрыть одну из величайших тайн мира. Три научные экспедиции проверяют гипотезы о местоположении мифического, исчезнувшего города и получают поразительные результаты...
-
-РелизТелекомпания: Канада, Франция, National Geographic, "Atlantis LTD"Жанр: ДокументальныйРежиссер: Грэм БеллПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC2FE9C257DDB4939023EE15B58A254B23F759F
 ```
 
 https://mybot314.ru/tekegram_catalog/

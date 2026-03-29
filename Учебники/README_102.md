@@ -1,3 +1,55 @@
+###  Публикация: 1432085   (165141) от 16.12.2020
+
+Н.Н. Калиткин | Численные методы (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165141.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются основные численные методы решения широкого круга математических задач, возникающих при исследовании физических и технических проблем. Изложенные методы пригодны как для расчетов на ЭВМ, так и для «ручных» расчетов. Для каждого метода даны практические рекомендации по применению. Для лучшего понимания алгоритмов приведены примеры численных расчетов. (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE4317674B0B6AE00537C757A253E9D9703E991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432259   (165098) от 16.12.2020
+
+Н.С. Бахвалов и др. | Численные методы. Решения задач и упражнения (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал пособия соответствует программе курса «Численные методы», рекомендованной Министерством образования и науки РФ. Содержатся основные положения теории, большое количество подробно разобранных примеров, которые являются основой для компьютерного решения практических и учебных задач различного уровня сложности - от домашних упражнений до курсовых и дипломных (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16AE0DE18DF9EA7CB1C69ECF8DD3AA7D47D3236E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432261   (165006) от 16.12.2020
 
 Анатолий Шандриков | Электрорадиоэлементы и устройства функциональной электроники (2020) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165006.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164997.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164939.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164916.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164792.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164790.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164243.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164095.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163926.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163912.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163809.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163794.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163708.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Cathleen Shamieh | Electronics For Dummies / Электроника для ча�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163510.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162372.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162364.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162340.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162166.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162108.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161999.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161963.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161937.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161875.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161857.jpg" />
 </div>
 
 
@@ -622,60 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E11F030891F2663B53258AAF3CF6BD3F51048F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598601   (161246) от 21.12.2022
-
-В.Ф.Шаталов, В.М.Шейман | Опорные сигналы по физике для 6 класса (1978) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161246.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии освещены некоторые методические приемы работы по системе, разработанной учителем г. Донецка В. Ф. Шаталовым.
-В соответствии с программой по физике для VI класса дается комплект листов с опорными сигналами, часть из которых дешифрована. Кратко излагаются рекомендации для работы с этими материалами и листами взаимоконтроля.
-Предназначено для учителей физики (   Читать дальше...   )Жанр: физика, пособие для учителейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E1A3823EB906B84D03527244868E4F4A2C1FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674481   (161208) от 05.11.2023
-
-В.В. Гуров, В.О. Чуканов | Основы теории и организации ЭВМ (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161208.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены основные схемотехнические элементы ЭВМ: логические элементы, триггерные схемы, регистры, счетчики и т.д. Изложены организация и принципы работы запоминающих устройств, устройства управления, арифметико-логического устройства; их анализ проводится на примерах реализации устройств, выполняющих заданные функции. Описаны режимы адресации (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24665C978E1A406900D65AC7F4DA7475FA68D887
 ```
 
 https://mybot314.ru/tekegram_catalog/

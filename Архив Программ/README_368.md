@@ -6,7 +6,7 @@ Firefox Browser 92.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861244.jpg" />
+  <img src="Z:/picture/008/save_picture_861244.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GPU-Z 2.42.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861187.jpg" />
+  <img src="Z:/picture/008/save_picture_861187.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Calibre 5.28.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861186.jpg" />
+  <img src="Z:/picture/008/save_picture_861186.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Telegram Desktop 3.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861184.jpg" />
+  <img src="Z:/picture/008/save_picture_861184.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 94.0.4606.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861174.jpg" />
+  <img src="Z:/picture/008/save_picture_861174.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ASUS GPU Tweak II 2.3.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861173.jpg" />
+  <img src="Z:/picture/008/save_picture_861173.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861103.jpg" />
+  <img src="Z:/picture/008/save_picture_861103.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ FanControl V93 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861094.jpg" />
+  <img src="Z:/picture/008/save_picture_861094.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Office 2007 MSDN (English) [01/04/2010]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861057.jpg" />
+  <img src="Z:/picture/008/save_picture_861057.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Acronis Backup / Backup Advanced 11.5.43909 BootCD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860812.jpg" />
+  <img src="Z:/picture/008/save_picture_860812.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BurnAware Professional 9.0 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860809.jpg" />
+  <img src="Z:/picture/008/save_picture_860809.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ TagScanner 6.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860807.jpg" />
+  <img src="Z:/picture/008/save_picture_860807.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ oCam Screen Recorder 254.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860805.jpg" />
+  <img src="Z:/picture/008/save_picture_860805.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Instagiffer 1.64 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860800.jpg" />
+  <img src="Z:/picture/008/save_picture_860800.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PDF-XChange Viewer Pro 2.5 Build 317.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860799.jpg" />
+  <img src="Z:/picture/008/save_picture_860799.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ CoolUtils Total Image Converter 5.1.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860798.jpg" />
+  <img src="Z:/picture/008/save_picture_860798.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Wise Care 365 Pro 4.11.395 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860796.jpg" />
+  <img src="Z:/picture/008/save_picture_860796.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ oCam Screen Recorder 254.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860794.jpg" />
+  <img src="Z:/picture/008/save_picture_860794.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Daum PotPlayer 1.7.457 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860758.jpg" />
+  <img src="Z:/picture/008/save_picture_860758.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Daum PotPlayer 1.7.457 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860752.jpg" />
+  <img src="Z:/picture/008/save_picture_860752.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wise Care 365 Pro 4.11.395 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860724.jpg" />
+  <img src="Z:/picture/008/save_picture_860724.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ FolderSizes 8.1.128 Enterprise RePack by Kopejkin [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860722.jpg" />
+  <img src="Z:/picture/008/save_picture_860722.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Daum PotPlayer 1.6.59347 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860721.jpg" />
+  <img src="Z:/picture/008/save_picture_860721.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PrivaZer 2.48.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860717.jpg" />
+  <img src="Z:/picture/008/save_picture_860717.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PDF-XChange Viewer Pro 2.5.317.0 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860715.jpg" />
+  <img src="Z:/picture/008/save_picture_860715.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ BurnAware Professional 9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860714.jpg" />
+  <img src="Z:/picture/008/save_picture_860714.jpg" />
 </div>
 
 

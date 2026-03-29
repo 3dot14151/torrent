@@ -1,3 +1,32 @@
+###  Публикация: 951832   (355875) от 01.11.2015
+
+Fridrik Karlsson - Chillout Heaven (2006) [APE|tracks+.cue]<New Age, Chillout, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillout Heaven [9:45]
+ 02. Rest your Mind [8:37]
+ 03. Chillout Zone [10:36]
+ 04. In the Moment [10:26](   Читать дальше...   )Жанр: New Age, Chillout, RelaxationПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04C46ECCB286D9C56229842250545559C77B1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329408   (354445) от 04.10.2019
 
 David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
@@ -6,7 +35,7 @@ David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354445.jpg" />
+  <img src="Z:/picture/008/save_picture_354445.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ernest Lyons - Sleep Naturally (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354266.jpg" />
+  <img src="Z:/picture/008/save_picture_354266.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Two Steps from Hell - Illumina (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353864.jpg" />
+  <img src="Z:/picture/008/save_picture_353864.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jean Michel Jarre - Revolutions (1988) Remastered / 2015, Sony Music / [FLAC|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353431.jpg" />
+  <img src="Z:/picture/008/save_picture_353431.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Back to Earth - Secret Spaces (1998) [FLAC|Lossless|tracks + .cue] <New age, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352939.jpg" />
+  <img src="Z:/picture/008/save_picture_352939.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Mehdi - Christmas Treasures (2001) [FLAC|Lossless|tracks + .cue] <New age, Instr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352786.jpg" />
+  <img src="Z:/picture/008/save_picture_352786.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Curtis Macdonald - Breeze (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352482.jpg" />
+  <img src="Z:/picture/008/save_picture_352482.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Thomas Barquee - The Sound of Om (2003) [FLAC|Lossless|tracks + .cue] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352374.jpg" />
+  <img src="Z:/picture/008/save_picture_352374.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Michel Pepe - La purete de l'Esprit (2016) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352177.jpg" />
+  <img src="Z:/picture/008/save_picture_352177.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Jim Brickman - Hope (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352175.jpg" />
+  <img src="Z:/picture/008/save_picture_352175.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Reuel - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352131.jpg" />
+  <img src="Z:/picture/008/save_picture_352131.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349925.jpg" />
+  <img src="Z:/picture/008/save_picture_349925.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349715.jpg" />
+  <img src="Z:/picture/008/save_picture_349715.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Yarek - Noc Na Zamku (2008) [FLAC|image+.cue]<Electronic, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349558.jpg" />
+  <img src="Z:/picture/008/save_picture_349558.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349469.jpg" />
+  <img src="Z:/picture/008/save_picture_349469.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Jean Michel Jarre - Chronology (1993) Remastered / 2015, Sony Music /[FLAC|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349156.jpg" />
+  <img src="Z:/picture/008/save_picture_349156.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348057.jpg" />
+  <img src="Z:/picture/008/save_picture_348057.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344639.jpg" />
+  <img src="Z:/picture/008/save_picture_344639.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341076.jpg" />
+  <img src="Z:/picture/008/save_picture_341076.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|ima
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339724.jpg" />
+  <img src="Z:/picture/008/save_picture_339724.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339581.jpg" />
+  <img src="Z:/picture/008/save_picture_339581.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338536.jpg" />
+  <img src="Z:/picture/008/save_picture_338536.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Jim Brickman - Joy (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335712.jpg" />
+  <img src="Z:/picture/008/save_picture_335712.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Jim Brickman - Christmas Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335616.jpg" />
+  <img src="Z:/picture/008/save_picture_335616.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334984.jpg" />
+  <img src="Z:/picture/008/save_picture_334984.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331460   (332341) от 15.10.2019
-
-Louis Landon - Heartfelt Solo Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332341.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Innocence	03:02
-2. Sweet Honey	02:41
-3. Yin and Yang	04:27
-4. Sweet Sadness	04:12(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12CAD707680494587DC7392B1280020FE167F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

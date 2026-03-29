@@ -6,7 +6,7 @@ SlimBrowser 7.00 Build 144 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755921.jpg" />
+  <img src="Z:/picture/008/save_picture_755921.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Active@ File Recovery v 8.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755861.jpg" />
+  <img src="Z:/picture/005/save_picture_755861.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox 47.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755825.jpg" />
+  <img src="Z:/picture/008/save_picture_755825.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Easy Disc Burner 4.8.1.363 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755823.jpg" />
+  <img src="Z:/picture/008/save_picture_755823.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Offiсe 2010 Interactive Guide - Визуальный интеракт
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755810.jpg" />
+  <img src="Z:/picture/005/save_picture_755810.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Soft4Boost Dup File Finder 6.2.3.435 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755745.jpg" />
+  <img src="Z:/picture/008/save_picture_755745.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Soft4Boost Any Uninstaller 6.9.5.539 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755744.jpg" />
+  <img src="Z:/picture/008/save_picture_755744.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soft4Boost Secure Eraser 4.0.3.363 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755733.jpg" />
+  <img src="Z:/picture/008/save_picture_755733.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Soft4Boost Toolbar Cleaner 4.5.5.297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755732.jpg" />
+  <img src="Z:/picture/008/save_picture_755732.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755730.jpg" />
+  <img src="Z:/picture/008/save_picture_755730.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ oCam Screen Recorder 270.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755727.jpg" />
+  <img src="Z:/picture/008/save_picture_755727.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Soft4Boost Document Converter 4.4.7.335 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755682.jpg" />
+  <img src="Z:/picture/008/save_picture_755682.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Soft4Boost Any Audio Record 4.9.5.393 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755680.jpg" />
+  <img src="Z:/picture/008/save_picture_755680.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Soft4Boost AMPlayer 3.8.1.283 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755679.jpg" />
+  <img src="Z:/picture/008/save_picture_755679.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Soft4Boost Update Checker 6.7.3.333 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755674.jpg" />
+  <img src="Z:/picture/008/save_picture_755674.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ LibreOffice 5.1.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755617.jpg" />
+  <img src="Z:/picture/008/save_picture_755617.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Internet Download Manager 6.25 Build 18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755611.jpg" />
+  <img src="Z:/picture/008/save_picture_755611.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adobe Acrobat Reader DC 2015.016.20041 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755513.jpg" />
+  <img src="Z:/picture/008/save_picture_755513.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ RadioMaximus 2.27.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755487.jpg" />
+  <img src="Z:/picture/008/save_picture_755487.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Light Image Resizer 4.7.0.0 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755458.jpg" />
+  <img src="Z:/picture/008/save_picture_755458.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Soft4Boost PC Win Booster Free 9.3.5.547 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755428.jpg" />
+  <img src="Z:/picture/008/save_picture_755428.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Skype 7.24.32.104 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755419.jpg" />
+  <img src="Z:/picture/008/save_picture_755419.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Firefox Browser 78.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755413.jpg" />
+  <img src="Z:/picture/008/save_picture_755413.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC 10.07.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755408.jpg" />
+  <img src="Z:/picture/008/save_picture_755408.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Everything 1.4.1.985 Beta Nightly Builds + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755397.jpg" />
+  <img src="Z:/picture/005/save_picture_755397.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Native Instruments - Kontakt 6.3.1 STANDALONE, VSTi, AAX (Update) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755396.jpg" />
+  <img src="Z:/picture/008/save_picture_755396.jpg" />
 </div>
 
 

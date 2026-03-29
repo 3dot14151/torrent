@@ -1,3 +1,30 @@
+###  Публикация: 1565717   (212232) от 24.07.2022
+
+Pluralsight, Rob Brooks | Blueprint and C++ Integration in Unreal Engine 4 (2017) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс даст вам уверенность и стремление улучшить ваш рабочий процесс, объединив C ++ и Blueprints в UE4, невероятно универсальном игровом движке, который становится все более популярным.
+Вы, наверное, видели форумы или комментарии где-то в Интернете, где задавались вопросом, что следует использовать: Blueprints или C ++ в Unreal?. Или еще хуже, почему что-то (   Читать дальше...   )Производство: PluralsightЖанр: Unreal Engine 4, Visual Studio C++Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D09EA1B23B10C880AE78ED759E8DB28241BCBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565514   (212226) от 24.07.2022
 
 Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 1 (2019) PCRec [EN, RU]
@@ -6,7 +33,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 1 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212226.jpg" />
+  <img src="Z:/picture/005/save_picture_212226.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ ntCGi Ltd, Antony Ward | Face Rigging in Maya (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212009.jpg" />
+  <img src="Z:/picture/005/save_picture_212009.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ The VFX School, Tariq Kinani | Alien troop attack, crowds and ragdolls (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211954.jpg" />
+  <img src="Z:/picture/005/save_picture_211954.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ The VFX School, Tariq Kinani | Metal bending in Houdini (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211938.jpg" />
+  <img src="Z:/picture/005/save_picture_211938.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Artefactoschool, Любовь Титова | Реалистичные котик
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211628.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211576.jpg" />
+  <img src="Z:/picture/005/save_picture_211576.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Gumroad, Rachel | Making a Boxbot in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211534.jpg" />
+  <img src="Z:/picture/005/save_picture_211534.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ Gnomon workshop, Eric Keller | Creature modeling with zbrush and marmoset toolba
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211487.jpg" />
+  <img src="Z:/picture/005/save_picture_211487.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Udemy, Victory3D LLC | Facial Anatomy & Character Portrait for Blender Artists (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211480.jpg" />
+  <img src="Z:/picture/005/save_picture_211480.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ Udemy - Create a High Quality Asset in Blender and Substance Painter (2021) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211392.jpg" />
+  <img src="Z:/picture/005/save_picture_211392.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Udemy, Nexttut, Daniel da Costa | Realistic Character Making in Blender 3.2 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211233.jpg" />
+  <img src="Z:/picture/005/save_picture_211233.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ Filschool, Софья Филиппова | Курс по веб-дизайну �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211211.jpg" />
+  <img src="Z:/picture/005/save_picture_211211.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ Imagination, Ирина Пирогова | Fashion Иллюстрация Pro (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211091.jpg" />
+  <img src="Z:/picture/005/save_picture_211091.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ Udemy, Mitchell Nickerson | I use Blender - 3D Modeling - Stylized Tiki Mask (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210900.jpg" />
+  <img src="Z:/picture/005/save_picture_210900.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ Gumroad, Zak Boxall | REALISTIC Creature Texturing Painting Tutorial Using Mari 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210674.jpg" />
+  <img src="Z:/picture/005/save_picture_210674.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ Mackley Studios, Chris Tedin | Autodesk Maya Mythical Creature Animation (2017) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210637.jpg" />
+  <img src="Z:/picture/005/save_picture_210637.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ Skillshare, Darrin Lile | Create a Victorian Room with Blender and Substance Pai
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210628.jpg" />
+  <img src="Z:/picture/005/save_picture_210628.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ CGMA, Sean Mcewan | Procedural Modeling for Production in Houdini (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210562.jpg" />
+  <img src="Z:/picture/005/save_picture_210562.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ The Art of Aaron Blaise, Aaron Blaise | How to Draw: Drawing Human Anatomy (2016
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210295.jpg" />
+  <img src="Z:/picture/005/save_picture_210295.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ Yiihuu, wingfox, Zaoeyo | Masterclass Motion Graphic Animation in Cinema 4D (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210275.jpg" />
+  <img src="Z:/picture/005/save_picture_210275.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ Vertex Workshop, Ackeem Durrant | Character Creation For Games by Ackeem Durrant
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210230.jpg" />
+  <img src="Z:/picture/005/save_picture_210230.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ Artstation Masterclasses, The Gnomon Workshop, Brian Recktenwald | Designing a M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210191.jpg" />
+  <img src="Z:/picture/005/save_picture_210191.jpg" />
 </div>
 
 
@@ -592,7 +619,7 @@ Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210188.jpg" />
+  <img src="Z:/picture/005/save_picture_210188.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ Schoolism, Nathan Fowkes | Digital Landscape Painting Workout (2021) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209935.jpg" />
+  <img src="Z:/picture/005/save_picture_209935.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ Schoolism, Iain McCaig | Drawing Workout (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209803.jpg" />
+  <img src="Z:/picture/005/save_picture_209803.jpg" />
 </div>
 
 
@@ -658,33 +685,6 @@ Schoolism, Iain McCaig | Drawing Workout (2020) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D50271B9AEE24EDA01800FD5543FFDB063F66A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571906   (209784) от 24.08.2022
-
-Game Art Institute, Adam Skutt | Character Creation For Games with Adam Skutt (2016) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужской персонаж, героического типа, возрастом от 25 до 40. Создание бюста достойного персонажа. Персонаж должен быть выполнен в стиле реализма. Вы научитесь принимать решения, которые помогут лучше подать характер персонажа и его цель.
-Для первого проекта я займусь сбором референсов, составлю план и займусь хайполи моделирование в ZBrush и Maya.Производство: Game Art InstituteЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 45:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB9CA93B98B4D35A72234B73B414C1CD4FA4A9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

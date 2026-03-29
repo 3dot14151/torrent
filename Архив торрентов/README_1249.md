@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772737.jpg" />
+  <img src="Z:/picture/008/save_picture_772737.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772731.jpg" />
+  <img src="Z:/picture/008/save_picture_772731.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Photoshop CC 2017.1.0 (2017.03.09.r.207) Portable by punsh (with Plugins) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772728.jpg" />
+  <img src="Z:/picture/008/save_picture_772728.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YouTube Video Downloader PRO 5.6 (20160128) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772676.jpg" />
+  <img src="Z:/picture/008/save_picture_772676.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ OBLADAET - Double Tap (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772673.jpg" />
+  <img src="Z:/picture/008/save_picture_772673.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Vivaldi 1.1.453.55 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772672.jpg" />
+  <img src="Z:/picture/008/save_picture_772672.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Wise Care 365 Pro 4.17.403 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772664.jpg" />
+  <img src="Z:/picture/008/save_picture_772664.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ QTranslate 5.7.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772658.jpg" />
+  <img src="Z:/picture/008/save_picture_772658.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ FastStone Image Viewer 6.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772649.jpg" />
+  <img src="Z:/picture/008/save_picture_772649.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772640.jpg" />
+  <img src="Z:/picture/008/save_picture_772640.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ SamDrivers 19.0 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772638.jpg" />
+  <img src="Z:/picture/008/save_picture_772638.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Shimo 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772566.jpg" />
+  <img src="Z:/picture/008/save_picture_772566.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ TeamViewer 11.0.59461 Free | Corporate | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772565.jpg" />
+  <img src="Z:/picture/008/save_picture_772565.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AMD Radeon Software Crimson Edition 16.5.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772556.jpg" />
+  <img src="Z:/picture/008/save_picture_772556.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Replay Media Catcher 6.0.1.21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772554.jpg" />
+  <img src="Z:/picture/008/save_picture_772554.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ GlassWire Elite 2.2.210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772502.jpg" />
+  <img src="Z:/picture/008/save_picture_772502.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Wireless Network Watcher 2.22 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772501.jpg" />
+  <img src="Z:/picture/008/save_picture_772501.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Adobe Illustrator 2020 24.2.0.490 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772489.jpg" />
+  <img src="Z:/picture/008/save_picture_772489.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Icecream Ebook Reader PRO 3.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772478.jpg" />
+  <img src="Z:/picture/008/save_picture_772478.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ TeamViewer Free 11.0.59518 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772474.jpg" />
+  <img src="Z:/picture/008/save_picture_772474.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772469.jpg" />
+  <img src="Z:/picture/008/save_picture_772469.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Icecream Screen Recorder PRO 3.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772468.jpg" />
+  <img src="Z:/picture/008/save_picture_772468.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772435.jpg" />
+  <img src="Z:/picture/008/save_picture_772435.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Adobe Flash Player 21.0.0.242 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772414.jpg" />
+  <img src="Z:/picture/008/save_picture_772414.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ YouTube Video Downloader PRO 5.6 (20160511) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772409.jpg" />
+  <img src="Z:/picture/008/save_picture_772409.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ ESET Smart Security 9.0.377.0 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772408.jpg" />
+  <img src="Z:/picture/008/save_picture_772408.jpg" />
 </div>
 
 

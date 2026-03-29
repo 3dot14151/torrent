@@ -1,3 +1,137 @@
+###  Публикация: 990040   (911745) от 25.02.2016
+
+Кусраев А.Г., Кутателадзе С.С. | Введение в булевозначный анализ (2005) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Булевозначный анализ - один из наиболее разработанных разделов, представляющих современные нестандартные методы анализа. В монографии детально излагается техника спусков и подъемов для булевозначных моделей теории множеств, позволяющая существенно расширить объем и область применимости математических утверждений.
+Основное внимание уделено изучению булевозначных изображений (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486FE77B322C2F40FCA9B0E777DADF78D9315689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989412   (911728) от 25.02.2016
+
+Б. Г. Кузнецов | Беседы о теории относительности (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911728.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой поистине уникальной книге, изданной Академией Наук СССР и выдержавшей 3 издания, изложение постулатов теории относительности, например, об "искривлении четырёхмерного пространства", удивительным образом соседствует с изложением принципов теории эфира, где буквально "на пальцах" (на примере пловца, корабля и озера) разъясняется теоретический (   Читать дальше...   )Жанр: История, науковедение, физикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2516369FE1E6FAC157EDE754B8222D6A25E32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989824   (911717) от 25.02.2016
+
+Андрей Гришаев | Этот «цифровой» физический мир (2010) [FB2, PDF, DOCX]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трагедия многих талантливых одиночек, которые пытаются переосмыслить или даже подредактировать официальную физическую картину мира, заключается в том, что они основывают свои построения отнюдь не на экспериментальных реалиях. Талантливые одиночки читают учебники – наивно полагая, что в них изложены факты. Отнюдь: в учебниках изложены готовенькие интерпретации фактов, (   Читать дальше...   )Жанр: Физика, АльтернативаФормат: FB2, PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B752D0D39FBDFACA7EE19160AF1BAB03547FFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989846   (911713) от 25.02.2016
+
+К. В. Ивлиева, В. Н. Пенькова (ред.) | Дания. Справочная карта (1984) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Дании с административным делением (масштаб 1:750 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A988C2641FDB0F6518BD979CF8BF9B7A99095FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989980   (911365) от 25.02.2016
+
+Чарлз Дарвин | Происхождение видов (2016) [FB2, DOCX]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911365.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Происхождение видов" - основополагающий труд английского натуралиста и путешественника Чарльза Дарвина. Одним из первых он выдвинул идею об эволюции видов и обосновал ее, главным же механизмом эволюции он признал естественный отбор. В 1859 году в "Происхождении видов" он подробно изложил всю суть своей теории и доказательства, на которых он ее (   Читать дальше...   )Жанр: Биология, Эволюция, ЕстествознаниеФормат: FB2, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169A18636B18EEE1BC3A1DFFEF05118BC3B73306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990438   (909891) от 26.02.2016
 
 С.С. Кутателадзе, А.М. Рубинов | Двойственность Минковского и её приложения (1976) [DJVU]
@@ -6,7 +140,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909891.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909840.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909828.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909782.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909741.jpg" />
 </div>
 
 
@@ -138,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909586.jpg" />
 </div>
 
 
@@ -167,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909582.jpg" />
 </div>
 
 
@@ -196,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909519.jpg" />
 </div>
 
 
@@ -222,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909517.jpg" />
 </div>
 
 
@@ -248,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902520.jpg" />
 </div>
 
 
@@ -274,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902438.jpg" />
 </div>
 
 
@@ -303,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896174.jpg" />
 </div>
 
 
@@ -331,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895841.jpg" />
 </div>
 
 
@@ -357,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895819.jpg" />
 </div>
 
 
@@ -385,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895792.jpg" />
 </div>
 
 
@@ -411,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895775.jpg" />
 </div>
 
 
@@ -439,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895282.jpg" />
 </div>
 
 
@@ -468,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893966.jpg" />
 </div>
 
 
@@ -497,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893696.jpg" />
 </div>
 
 
@@ -523,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893586.jpg" />
 </div>
 
 
@@ -550,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893469.jpg" />
 </div>
 
 
@@ -563,140 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:586B593667CC3F9809D86A6920D7CF97ECD2D385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993594   (893456) от 06.03.2016
-
-М. П. Ивановский | Рождение миров [Очерк современных представлений о возникновении и развитии Солнечной системы] (1951) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космогония — наука о происхождении и развитии небесных тел — является важнейшей отраслью астрономии, так как она, соединяя в себе астрофизику (физику небесных тел) и звездную астрономию (науку о строении звездных систем), позволяет единственно правильно диалектически разрешить проблему внутреннего строения планет и звезд и найти источники звездной энергии, одновременно (   Читать дальше...   )Жанр: История, космогония, астрономия, физика, химия, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586EECE8594319ABB21027001E44DBF3BFF52E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370984   (893411) от 29.03.2020
-
-Г. Лебег | Об измерении величин (1938) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена основным вопросам преподавания элементарной математики: понятиям длины, площади, объема; рассматриваются также более общие вопросы об измеримых величинах, о производной и интеграле, причем рассуждения ведутся для пространства n измерений.
-
-Педагогические соображения автора обладают свежестью и глубиной и способны оказывать значительное воспитывающее (   Читать дальше...   )Жанр: История, науковедение, математикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5717472FC2AF49082DDD579229F3D1E65FBA4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993589   (893326) от 06.03.2016
-
-Я. И. Перельман | Занимательная геометрия (1950) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893326.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Занимательная геометрия» написана как для друзей математики, так и для тех читателей, от которых почему-либо оказались скрытыми многие привлекательные стороны математики.
-
-Еще больше эта книга предназначается для тех читателей, которые обучались (или сейчас обучаются) геометрии только у классной доски и поэтому не привыкли замечать знакомые геометрические отношения (   Читать дальше...   )Жанр: Математика, геометрия, педагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B9CBE315B866AA96B15FA7F7BC0077ACE7C0D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101880   (892318) от 08.02.2017
-
-Марк Хендерсон | Генетика. 50 идей, о которых нужно знать (2008) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генетика — молодая наука. Прошло чуть больше пятидесяти лет с тех пор, как Уотсон и Крик раскрыли «секрет жизни» — структуру молекулы ДНК, в которой записаны «инструкции» для работы клеток. Первая, неполная, версия человеческого генома была опубликована лишь в 2001 году. Однако генетика, несмотря на свою молодость, уже изменила наше понимание жизни на Земле, а генные (   Читать дальше...   )Жанр: Биологические науки, Отрасли медициныПеревод: А. ДьяконоваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01E863009FB8EFDD7EFFF9A501A78814C48CE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994125   (891241) от 07.03.2016
-
-Л. Эйлер | Введение в анализ бесконечных [2 тома] (1961) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891241.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии «Введение в анализ бесконечных» математик Леонард Эйлер смог свести результаты многих математических исследований воедино и, присоединив к ним свои многочисленные открытия, дать первые и образцовые курсы сразу двух дисциплин: собственно введения в анализ (понимая под этим изучение функций с помощью бесконечных процессов, обобщающих алгебраические) и (   Читать дальше...   )Жанр: Математика, геометрия, алгебра, педагогикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABFE0C6CB3727A0CA5DA5B32600B182E7282472
 ```
 
 https://mybot314.ru/tekegram_catalog/

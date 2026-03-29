@@ -1,3 +1,148 @@
+###  Публикация: 1649692   (227846) от 30.07.2023
+
+Fish - Clutching At Stars Live in The USA 2008 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slainth Mhath (Nearfest Live) [00:05:38]
+02. Circle Line (Nearfest Live) [00:06:36]
+03. Square Go (Nearfest Live) [00:05:10]
+04. Open Water (Nearfest Live) [00:09:46](   Читать дальше...   )Жанр: RockПродолжительность: 02:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5B0C419B15A080BD7805A9C9F81E22EC496EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649901   (227831) от 30.07.2023
+
+Gunn - Truscinski - Nace - Glass Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entrance [00:03:00]
+02. On Lamp [00:03:47]
+03. Tape [00:06:48]
+04. Venus [00:03:33](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7835601A5279195EA050FA82CC0908597C6BF056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650028   (227823) от 30.07.2023
+
+Turkish Delight - Khalil Turk & Friends Vol.2 (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One Knows Your Name (4:22)
+02. Come On (4:09)
+03. Destiny (4:46)
+04. I Am Ready (5:05)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB0239B6B88434903059A81202A400091548EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649977   (227738) от 30.07.2023
+
+Redhaze - Time 2 Ride (2023) 2 x CD [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227738.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - The Album :
+01. Angel of Mine (6:00)
+02. Everything (4:37)
+03. I Depend (4:45)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A1178247871C48D33789447816CD8308127F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650032   (227722) от 30.07.2023
+
+Ian Moss - Rivers Run Dry (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rivers Run Dry (4:49)
+02. Nullarbor Plain (3:31)
+03. State Of My Emotion (3:48)
+04. Bury Me (Backing Vocals – Kasey Chambers) (4:14)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0199343F9311E46939BA2100550EE71E11A34063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649883   (227702) от 30.07.2023
 
 The Firebirds - Dance All Night Long (2023) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly>
@@ -6,7 +151,7 @@ The Firebirds - Dance All Night Long (2023) [FLAC|Lossless|WEB-DL|tracks] <Rocka
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227702.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Richard Wright - Wet Dream Remix (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227661.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Andrew Gold - The Fraternal Order Of The All Greetings From Planet Love (1997) R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227618.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Blackbird Hill - Embers In The Dark (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227567.jpg" />
+  <img src="Z:/picture/005/save_picture_227567.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Iggy Pop - Free (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227173.jpg" />
+  <img src="Z:/picture/005/save_picture_227173.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Jimi Hendrix - Woke Up This Morning And Found Myself Dead (1986) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226995.jpg" />
+  <img src="Z:/picture/005/save_picture_226995.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Pink Floyd - Home (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226981.jpg" />
+  <img src="Z:/picture/005/save_picture_226981.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Billy Talent - Live At Festhalle Frankfurt (2023) 2 x CD [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226777.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Glass Towers - Halcyon Days (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226429.jpg" />
+  <img src="Z:/picture/005/save_picture_226429.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Hey Colossus - RRR (2011) 2CD, Expanded Edition, 2018, Riot Season Records [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226101.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Marillion - Fugazi (1984) 2CD Remastered Version 1998 [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226070.jpg" />
+  <img src="Z:/picture/005/save_picture_226070.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Marc Atkinson - For A Broken Dime (2023) [FLAC|Lossless|WEB-DL|tracks] <Acoustic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225915.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ G519 - Blue Atomic Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225906.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Jonathan Cain - Back To The Innocence (1995) Japanese Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225892.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Ekseption & Royal Philharmonic Orchestra - Ekseption 00.04 (2023) Expanded Editi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225625.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - Animals Reimagined - A Tribute to Pink Floyd (2021) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225528.jpg" />
+  <img src="Z:/picture/005/save_picture_225528.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Pink Floyd - Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225370.jpg" />
+  <img src="Z:/picture/005/save_picture_225370.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Pink Floyd - Chillout (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225316.jpg" />
+  <img src="Z:/picture/005/save_picture_225316.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Pink Floyd - Play (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225125.jpg" />
+  <img src="Z:/picture/005/save_picture_225125.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ The Small Kicks - Get American! (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224996.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Lyle Workman - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224202.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Lyle Workman - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FE9852F28EAE007C1F8801FAA3967AF2DE60F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650978   (224087) от 04.08.2023
-
-Rick Springfield - Automatic (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Pop Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exit Wound (2:41)
-02. She Walks With the Angels (3:00)
-03. Automatic (3:07)
-04. This Town (3:00)(   Читать дальше...   )Жанр: Melodic Rock, Pop Rock, RockПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D3AA32552BB25509C071A98A0272FA27DB9219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650941   (223967) от 04.08.2023
-
-Rian - Wings (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry My Wings
-02. We Ride
-03. Don't Wait For The Fire
-04. Dance The Night Away(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1855D92542DA44464439CFB1D81235BCBED620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585022   (223740) от 20.10.2022
-
-Degenerate Mind - 2 Albums (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justice [00:03:57]
-02. Never Care [00:04:09]
-03. Awakening [00:04:45]
-04. Cross the Line [00:05:43](   Читать дальше...   )Жанр: Heavy Rock, Stoner MetalПродолжительность: 2 CD, 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F1F452317777C891215D19D06455DB952F071C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585034   (223701) от 20.10.2022
-
-Privative Alpha - 21 Grams (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My 21 Grams 01:19
-02. Soldier (Too Far From Home) 06:33
-03. Outcast (Blame The Fool) 05:39
-04. Wife (Reunification) 06:19(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8192CDB01D5927AB80DDA2DAEBA9FB70EBA066FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585015   (223692) от 20.10.2022
-
-Rattlesnake Venom Trip - Dead Empire (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Empire [00:03:46]
-02. Cause You Know [00:05:33]
-03. Vicious Cycle [00:04:52]
-04. Hypnotic State [00:06:46](   Читать дальше...   )Жанр: Heavy Rock, Stoner Metal, GrungeПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4DE676265B3C6333A9323FD6F0971E9D34F3CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

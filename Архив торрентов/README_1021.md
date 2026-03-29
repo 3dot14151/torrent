@@ -6,7 +6,7 @@ Memoriam - For the Fallen (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813487.jpg" />
+  <img src="Z:/picture/008/save_picture_813487.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SiteSucker 2.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813485.jpg" />
+  <img src="Z:/picture/008/save_picture_813485.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813483.jpg" />
+  <img src="Z:/picture/008/save_picture_813483.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813481.jpg" />
+  <img src="Z:/picture/008/save_picture_813481.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Waltr 2 v2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813473.jpg" />
+  <img src="Z:/picture/008/save_picture_813473.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813472.jpg" />
+  <img src="Z:/picture/008/save_picture_813472.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Opera GX 68.0.3618.112 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813461.jpg" />
+  <img src="Z:/picture/008/save_picture_813461.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ MediaHuman YouTube Downloader 3.9.9.38 (1305) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813460.jpg" />
+  <img src="Z:/picture/008/save_picture_813460.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ HWiNFO 6.26 Build 4160 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813448.jpg" />
+  <img src="Z:/picture/008/save_picture_813448.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Easy Data Transform 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813447.jpg" />
+  <img src="Z:/picture/008/save_picture_813447.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Commander One PRO 1.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813419.jpg" />
+  <img src="Z:/picture/008/save_picture_813419.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813409.jpg" />
+  <img src="Z:/picture/008/save_picture_813409.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Pepe Deluxe 5 альбомов (1999-2012) [FLAC|Lossless]<Big Beat, Trip Hop, L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813407.jpg" />
+  <img src="Z:/picture/008/save_picture_813407.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VirtualBox 5.0.18.106667 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813404.jpg" />
+  <img src="Z:/picture/008/save_picture_813404.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Brian Eno - The Ship (2016) [MP3|320 кб/с] <Electronic, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813403.jpg" />
+  <img src="Z:/picture/008/save_picture_813403.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Fake GPS location - Hola v1.77.467 [En] - подмена вашей настоя
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813378.jpg" />
+  <img src="Z:/picture/008/save_picture_813378.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eastward (2021) [Multi] (1.0.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813377.jpg" />
+  <img src="Z:/picture/008/save_picture_813377.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813372.jpg" />
+  <img src="Z:/picture/008/save_picture_813372.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Residual (2021) [Ru/Multi] (1.1.5b) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813365.jpg" />
+  <img src="Z:/picture/008/save_picture_813365.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813359.jpg" />
+  <img src="Z:/picture/008/save_picture_813359.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813355.jpg" />
+  <img src="Z:/picture/008/save_picture_813355.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Strangeland (2021) [En] (2.4a) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813354.jpg" />
+  <img src="Z:/picture/008/save_picture_813354.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ AnyTrans 5.5.1 (20170324) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813332.jpg" />
+  <img src="Z:/picture/008/save_picture_813332.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813328.jpg" />
+  <img src="Z:/picture/008/save_picture_813328.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ MediaHuman YouTube Downloader 3.9.8.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813324.jpg" />
+  <img src="Z:/picture/008/save_picture_813324.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Easy CD-DA Extractor Ultimate v2011.0.0.0 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813319.jpg" />
+  <img src="Z:/picture/008/save_picture_813319.jpg" />
 </div>
 
 

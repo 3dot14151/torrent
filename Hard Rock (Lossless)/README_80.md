@@ -1,3 +1,61 @@
+###  Публикация: 1589564   (190059) от 10.11.2022
+
+96 Bitter Beings - Synergy Restored (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaudeville's Revenge [00:04:56]
+02. Wish Me Dead [00:04:42]
+03. Fire Skyline [00:03:22]
+04. Throw Yourself Inside [00:03:36](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F1C1A06E82A998F5F3E7A30BDD02B596920551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589712   (189762) от 11.11.2022
+
+Super Vintage - Guardians Of Tradition (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southern Ride (04:18)
+02. Indian Soul (05:52)
+03. Hero (04:44)
+04. Rolling Thunder (05:10)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EC0210F0012F991F0709874E2406240B75B2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589957   (189465) от 12.11.2022
 
 Crime - Master Of Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Crime - Master Of Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189465.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Enuff Z'Nuff - Finer Than Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189437.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Merryweather Stark Wackerman - Cosmic Affect (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189193.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Two Of A Kind - Two Of A Kind (2007) [FLAC|Lossless|image + .cue] <Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189165.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Oslo - Don't Turn Your Back (1991) Remaster, 2022, Metallic Blue Records [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189162.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Munroe's Thunder - The Black Watch (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189159.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Rook Road - Rook Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189157.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Deseret - Woodlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Sl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188884.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Dred Buffalo - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Bl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188830.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Deadeye Navigator - Retronoid (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188559.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Void Cruiser - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188558.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Pieces Of Molly - Pieces Of Molly (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188550.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Hydranaut - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Ps
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188547.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Jerky Dirt - Chirality (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188543.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Desert Dragon - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188540.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Wizards - Seven (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188535.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Mammoth WVH - Mammoth WVH (2021) Deluxe Edition, 2022, EX1 Records [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187825.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Tyburn Tree - The Site (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187590.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Kamel Toast - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187584.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Karthago - A Rock Tribute to Mate Peter (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187575.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Warlung - Vulture's Paradise (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187281.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Holz - Holz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Punk>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187276.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Sammal - Aika laulaa (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Ret
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187258.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187257.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|image + .cue] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CAF85D8F9AF35276C1B02014841C721CF03EC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591551   (187254) от 18.11.2022
-
-Amon Acid - Cosmogony (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Doom, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parallel Realm
-02. Hyperion
-03. Death on the Altar
-04. Demolition Wave(   Читать дальше...   )Жанр: Psych, Doom, StonerПродолжительность: 01:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C059A40F2FC1771AB9BD18F9AE8497E23C5C9C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591473   (187251) от 18.11.2022
-
-Doctor Doom - A Shadow Called Danger (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back To Yourself
-02. What They Are Trying To Sell
-03. Ride On
-04. Connected By The Worst(   Читать дальше...   )Жанр: Heavy RockПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28C8ABF9DAECF9DF8F8009A1CE67315A47DD5CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

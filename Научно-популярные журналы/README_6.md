@@ -1,3 +1,55 @@
+###  Публикация: 862848   (928735) от 24.01.2015
+
+Журнал | Танки Мира №41. Хетцер (2014) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928735.jpg" />
+</div>
+
+
+###  Подробнее
+
+На страницах этого издания вы найдете исчерпывающую информацию о танках разных стран и эпох. Здесь все посвящено этим мощным и непобедимым машинам: история, обзоры, малоизвестные факты и, конечно, множество иллюстраций и схем.Жанр: Танки, военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136B3F88DDF84EB4C201AA8988A8593D97F3FE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862842   (928733) от 24.01.2015
+
+Журнал | Танки Мира №39. Стальной Годзилко (2014) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928733.jpg" />
+</div>
+
+
+###  Подробнее
+
+На страницах этого издания вы найдете исчерпывающую информацию о танках разных стран и эпох. Здесь все посвящено этим мощным и непобедимым машинам: история, обзоры, малоизвестные факты и, конечно, множество иллюстраций и схем.Жанр: Танки, военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA8C0F3BF9F4FDC5A1D5C224FE9A1CD79BE7DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987314   (927679) от 16.02.2016
 
 Журнал | Оружие №1 (2016) [PDF]
@@ -6,7 +58,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927679.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927668.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927632.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925877.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921175.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920896.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919117.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917347.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915016.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912341.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912220.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905839.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904152.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903218.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901807.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901763.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901475.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_901111.jpg" />
+  <img src="Z:/picture/008/save_picture_901111.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900915.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899647.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898944.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897727.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896715.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896229.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ National Geographic - уникальный научно-популярный г�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4DCF87582EA7049FFD7CE5315264D303D7D55B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101414   (896198) от 06.02.2017
-
-Журнал | National Geographic [Россия] №11 (ноябрь 2016) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896198.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает National Geographic по-настоящему общемировым изданием.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8D17B99F87510F47A1B14A8C4B9EB192491C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101421   (896147) от 06.02.2017
-
-Журнал | National Geographic [Россия] №12 (декабрь 2016) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896147.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает National Geographic по-настоящему общемировым изданием.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429D1C78FBC13DAF52879180536640F424CCAB88
 ```
 
 https://mybot314.ru/tekegram_catalog/

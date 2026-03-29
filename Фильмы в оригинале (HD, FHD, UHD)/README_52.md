@@ -1,3 +1,108 @@
+###  Публикация: 966138   (221851) от 16.12.2015
+
+Синистер 2 / Sinister 2  (2015) BDRemux [H.264/1080p] [EN / Da, Fi, No, Sw Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиквел рассказывает о молодом шерифе, решившем продолжить расследование серии таинственных убийств, описанных в первой части фильма, из-за которых в своё время потерял жизнь друг шерифа, сержант Элиссон Освальф.
+Расследование приводит шерифа к ферме, где он знакомится с дружелюбной семьей - близнецами Заком, Диланом и их матерью Кортни. Семьей, сбежавшей от издевательств (   Читать дальше...   )Производство: США, Великобритания, Alliance Films, Blumhouse Productions, IM Global, Automatik Entertainment, Entertainment One, Tank Caterpillar, Steady AimЖанр: ужасы, триллер, детективРежиссер: Киран ФойАктеры: Джеймс Рэнсон, Шаннин Соссамон, Роберт Дэниэл Слоун, Дартаниан Слоун, Лиа Коко, Тейт Эллингтон, Джон Бизли, Лукас Джейд Зуманн, Джейден Клейн, Лайла Хейли, Кейден М. Фриц, Оливия РэйниПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: датский, финский, норвежский, шведскийПродолжительность: 01:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0069359BC10902521699F53B4C6B5EBD8D36D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965934   (221843) от 16.12.2015
+
+400 дней / 400 Days  (2015) BDRemux [H.264/1080p] [EN / Fr Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет вращается вокруг астронавтов, отправившихся на симуляторе в путешествие по направлению к далекой планете. Цель этого эксперимента состоит в том, чтобы проверить членов экипажа космического корабля на психологическую совместимость во время длительного полета.Производство: США, New Artists AllianceЖанр: фантастика, триллер, детективРежиссер: Мэтт ОстерманАктеры: Брэндон Рут, Кейти Лотц, Бен Фельдман, Дейн Кук, Томас Кэвэна, Грант Боулер, Сэлли Прессман, Фернанда Ромеро, Фрэнк Эшмор, Доминик Богарт, Марк Стегер, Люк БарнеттПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: французскийПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98ACBDC2D6764AE9500FDB7FC4A1379083DB0B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966170   (220839) от 17.12.2015
+
+Близкое расстояние / Close Range  (2015) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вызволив свою племянницу из лап могущественного картеля, Колтон Макреди вступает в беспощадный бой во имя спасения членов собственной семьи, ставших теперь мишенями для преступников. Его ферму, расположенную в провинциальной глубинке, осаждают жаждущие мести наёмники картеля, прихватившие с собой продажного местного шерифа с командой помощников, которые обеспечат (   Читать дальше...   )Производство: США, Underdogg Entertainment, Bleiberg Entertainment, Caliber Media Company, Compound B and Entropy.Жанр: боевик, криминалРежиссер: Айзек ФлорентайнАктеры: Скотт Эдкинс, Ник Чинланд, Кэйтлин Китс, Джэйк Ла Ботц, Тони Перес, Мэдисон Лоулор, Хулиен Цезарио, Джимми Чхиу, Рэй Диас, Роберт Дилл, Скотт Эванс, Энтони Л. ФернандесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D0F7FAA4B82DF32E65EC6C8DA373B34B5D67B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084318   (220695) от 18.12.2016
+
+Отрицание / Denial  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признанный писатель и историк Дэбора Е. Липштадт должна отстоять право на историческую правду, доказывающую, что Холокост был, в ответ на обвинения в клевете известного отрицателя Холокоста Дэвида Ирвинга.Производство: США, ВеликобританияЖанр: драма, биография, историяРежиссер: Мик ДжексонАктеры: Рэйчел Вайс, Эндрю Скотт, Тимоти Сполл, Том Уилкинсон, Марк Гейтисс, Харриет Уолтер, Джек Лауден, Алекс Дженнингс, Карен Писториус, Андреа Дэк, Тодд Бойс, Максимилиан БефортПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F85F7EA2DE959056653B664B74E475113DEDB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084347   (220343) от 18.12.2016
 
 В долине насилия / In a Valley of Violence  (2016) BDRip [H.264/720p] [EN / EN Sub]
@@ -6,7 +111,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220343.jpg" />
+  <img src="Z:/picture/005/save_picture_220343.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219801.jpg" />
+  <img src="Z:/picture/005/save_picture_219801.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216931.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216606.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216396.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215917.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215851.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215719.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215672.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215658.jpg" />
+  <img src="Z:/picture/005/save_picture_215658.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215104.jpg" />
+  <img src="Z:/picture/005/save_picture_215104.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214327.jpg" />
+  <img src="Z:/picture/005/save_picture_214327.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214307.jpg" />
+  <img src="Z:/picture/005/save_picture_214307.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214233.jpg" />
+  <img src="Z:/picture/005/save_picture_214233.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213965.jpg" />
+  <img src="Z:/picture/005/save_picture_213965.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213848.jpg" />
+  <img src="Z:/picture/005/save_picture_213848.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213819.jpg" />
+  <img src="Z:/picture/005/save_picture_213819.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213117.jpg" />
+  <img src="Z:/picture/005/save_picture_213117.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212766.jpg" />
+  <img src="Z:/picture/005/save_picture_212766.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212211.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211709.jpg" />
+  <img src="Z:/picture/005/save_picture_211709.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211694.jpg" />
+  <img src="Z:/picture/005/save_picture_211694.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC382CC796948F51418555314185D125209C6F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585456   (211689) от 22.10.2022
-
-Ужасающий 2 / Terrifier 2 (2022) WEB-DL [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот Хэллоуин в городке округа Майлз снова пробуждается зло: клоун Арт возвращается после воскрешения из мертвых. Чтобы остановить его, девушке с братом предстоит раскрыть секрет Арта и понять, из какого мира он пришел.Производство: США / Dark Age Cinema, Fuzz on the Lens ProductionsЖанр: ужасыРежиссер: Дэмиен ЛеонеАктеры: Дэвид Ховард Торнтон, Дженна Кэнелл, Лорен ЛаВера, Катрин Коркоран, Саманта Скаффиди, Фелисса Роуз, Кэти Магуайр, Гриффин Сантопьетро, Кэйси Хартнет, Kailey HymanПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 02:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83ECBB1A1893D560B45EBB1C21B4D13232728CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572341   (209633) от 26.08.2022
-
-Время для себя / Me Time (2022) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об отце, который впервые за много лет находит время для себя, пока его жена и дети отсутствуют. Он воссоединяется с другом для диких выходных.Производство: США / 5150 Action, Hartbeat ProductionsЖанр: комедияРежиссер: Джон ГамбургАктеры: Марк Уолберг, Кевин Харт, Луис Херардо Мендес, Реджина Холл, Джимми О. Ян, Джон Эймос, Таж Моури, Анна Мария Хорсфорд, Эндрю Сантино, Карло РотаПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские и др.Продолжительность: 01:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595823267B66C219FB1AE11D6ED7BEF001BE0139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644992   (209609) от 07.07.2023
-
-Родители в законе / The Out-Laws (2023) WEB-DL [H.264/1080p] [EN / RU, UKR, EN, Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда банк, которым управляет Оуэн, грабят за несколько дней до его свадьбы, все улики указывают в одном невероятно неудобном направлении: на его будущих родственников.Производство: США / Happy Madison ProductionsЖанр: боевик, мелодрама, комедия, криминалРежиссер: Тайлер СпинделАктеры: Адам Дивайн, Пирс Броснан, Эллен Баркин, Нина Добрев, Майкл Рукер, Пурна Джаганнатан, Ричард Кайнд, Джули Хэгерти, Блейк Андерсон, Лорен ЛапкусПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские (SDH) и др.Продолжительность: 01:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DFEABF8863DFBFFF31B710D94ED605804B3294C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572336   (209601) от 26.08.2022
-
-Самаритянин / Samaritan (2022) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209601.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 лет спустя после эпической битвы, в которой супергерой Самаритянин уничтожил суперзлодея и пропал без вести. Через два десятилетия парнишка с окраины знакомится со стариком, живущим в доме напротив. Вскоре мальчик осознает, что пожилой мужчина — тот самый пропавший супергерой, а причина его исчезновения оказывается поистине шокирующей.Производство: США / Balboa Productions, Metro-Goldwyn-Mayer (MGM)Жанр: фантастика, фэнтези, боевик, драмаРежиссер: Джулиус ЭйвериАктеры: Сильвестр Сталлоне, Джейвон Уолтон, Пилу Асбек, Даша Поланко, София Татум, Мойзес Ариас, Мартин Старр, Jared Odrick, Майкл Аарон Миллиган, Генри Дж. СандерсПеревод: отсутствуетЯзык озвучки: английскийСубтитры: Русские, украинские, английские и др.Продолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9829A98692BA60A11488171BDB2AAEE5D83AE104
 ```
 
 https://mybot314.ru/tekegram_catalog/

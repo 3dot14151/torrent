@@ -1,3 +1,134 @@
+###  Публикация: 866860   (906770) от 06.02.2015
+
+Николай Блинов | Флаг на грот-мачте (1987) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная приключенческая повесть о возникновении пионерского движения на Севере, в Архангельске. Ребята создают первый пионерский лагерь, издают рукописный журнал "Костер", активно участвуют в зарождении новой жизни.Жанр: Детская проза, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0AC4E21AF001BD9F5070B650B6799F7745AA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491957   (906749) от 27.08.2021
+
+Е. Комиссарова (отв.ред.) | Игрополис. Новые игры для развития мозга (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренируй мозг, как спортсмена, воспитывай его, как аристократа, учи – как будущего Эйнштейна. А в этом тебе поможет наш сборник игр! Нет-нет, это не скучные монотонные упражнения. Это интересные и необычные игры, которые смогут надолго увлечь не только тебя, но и твоих друзей! Играя, ты сможешь потренировать логическое и абстрактное мышление, развить фантазию, память, (   Читать дальше...   )Жанр: Игры/ГоловоломкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC00B02DA266BADCDF28CB7D5A16A6CDACEE90F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539223   (906746) от 27.08.2021
+
+Джанни Родари | Путешествие Голубой Стрелы [1958] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джанни Родари (итал. Gianni Rodari, 23 октября 1920, Оменья, Италия — 14 апреля 1980, Рим, Италия) — известный итальянский детский писатель и журналист.
+Сказочная повесть рассказывает о рождественском волшебном путешествии игрушечного поезда «Голубая Стрела» и его кукольных пассажиров. Джанни Родари пишет о детях бедняков, которые частенько остаются без подарков (   Читать дальше...   )Жанр: СказкиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD1BEF4148381B69D8B086A256A1197B8AD88D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866863   (906645) от 06.02.2015
+
+Борис Бондаренко | Залив Терпения (1988) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Бондаренко известен читателю романами «Пирамида», «По собственному желанию» и другими книгами. Герои повестей, вошедших в настоящий сборник, наши современники – физики одного из научно-исследовательских институтов Москвы, рыбаки Сахалина, жители глухой сибирской деревин, разные по возрасту и образованию. Но все повести объединены неизменным интересом автора (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7C77B081CDB5355E32B965890FD38CA6BC97FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098350   (906640) от 31.01.2017
+
+Фрэнсис Элиза Бёрнетт | Собрание сочинений в четырех томах (1993) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творчество американской детской писательницы Фрэнсис Элизы Бёрнетт (1849-1924) по праву пользовалось в дореволюционной России шиpокой известностью. В романе «Приключения маленького лорда» (издавался также под названием «Маленький лорд Фаунтлерой») писательница описывает полный драматических событий год жизни юного американца, неожиданно для всех ставшего наследником (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D28916091FD9E0BB8047D163691B41C365DD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991627   (906539) от 28.02.2016
 
 Пётр Африкантов | Деревянное копытце (2013) [FB2]
@@ -6,7 +137,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906539.jpg" />
 </div>
 
 
@@ -34,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906427.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906409.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906405.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906292.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906266.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905984.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905914.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905772.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905701.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905568.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905416.jpg" />
 </div>
 
 
@@ -323,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905320.jpg" />
 </div>
 
 
@@ -351,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905237.jpg" />
 </div>
 
 
@@ -378,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905099.jpg" />
 </div>
 
 
@@ -405,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905097.jpg" />
 </div>
 
 
@@ -431,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905055.jpg" />
 </div>
 
 
@@ -457,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905029.jpg" />
 </div>
 
 
@@ -483,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904958.jpg" />
 </div>
 
 
@@ -510,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904949.jpg" />
 </div>
 
 
@@ -536,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904915.jpg" />
 </div>
 
 
@@ -547,137 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1DEF2B2A3AE5DFEF9A960FF101D36D34AE27F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368882   (904803) от 22.03.2020
-
-И.Ю. Никитенко | Для самых любознательных. 1000 самых интересных задач и головоломок для детей и взрослых (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно сказать, что головоломки — это логические или математические задачи в занимательной форме. Решать их не только увлекательно, но и полезно: они развивают умение анализировать и систематизировать, помогают выработать терпение и внимание, стимулируют образное и логическое мышление. В этой книге представлено множество интересных задач и головоломок, сопровождаемых (   Читать дальше...   )Жанр: ГоловоломкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6296C045BB640962A44F0A220D030216DB645B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099576   (904769) от 01.02.2017
-
-Леонид Сурженко | Воспитание без воспитания. Как вырастить ребенка счастливым человеком (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904769.jpg" />
-</div>
-
-
-###  Подробнее
-
-О чем эта книга? Действительно ли можно сделать своего ребенка счастливым по книжке? Эта книга не о воспитании. Она о том, как не мешать ребенку расти, не ломать в нем то, что заложено изначально.Можно ли осчастливить по книжке – нет, нельзя. Но попытаться стоит. И об авторе. Педагог, психолог, писатель. Автор доброго десятка книг.Любит жизнь, детей, котов. Не любит (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C74C4A94D0A40A3891268E85A40A7DB3128372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099302   (904549) от 01.02.2017
-
-Г.Т. Егораева | ЕГЭ. Русский язык. 1000 заданий с ответами (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое учебное пособие предназначается выпускникам школ, гимназий и лицеев, которые готовятся к сдаче Единого государственного экзамена.Материалы пособия помогут учащимся не только обобщить и систематизировать полученные знания по всем разделам науки о языке, но и оценить свой уровень подготовки к предстоящему экзамену. Сборник содержит большое количество заданий, (   Читать дальше...   )Жанр: ЕГЭФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD920390B2A88BDC61A33929C8EF6EB521D3DE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099300   (904310) от 01.02.2017
-
-И. В. Ященко | ЕГЭ 2017. Математика. Типовые экзаменационные варианты. Профильный уровень. 36 вариантов (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выполнение заданий типовых экзаменационных вариантов предоставляет обучающимся возможность самостоятельно подготовиться к государственной итоговой аттестации, а также объективно оценить уровень своей подготовки.  Учителя могут использовать типовые экзаменационные варианты для организации контроля результатов освоения школьниками образовательных программ среднего общего (   Читать дальше...   )Жанр: ЕГЭФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED8BF82B6E892056BB48A0EABFB4A01BAE2832E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991988   (904209) от 29.02.2016
-
-Лев Померанцев | Юные конструкторы (1956) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многообразна и интересна жизнь советских пионеров и школьников. Они имеют все возможности и в школе, и дома, и в пионерских лагерях заниматься своим любимым делом. Очень много пионеров и школьников увлекаются постройкой действующих моделей.
-В Горьковской области насчитывается 19 дворцов и домов 'пионеров. Только в самом городе Горьком, кроме городского Дворца пионеров (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A9436A3D9B8829D714A0AC7D1EE9BBF99AB8BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

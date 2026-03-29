@@ -1,3 +1,55 @@
+###  Публикация: 1538895   (237784) от 03.05.2022
+
+Маска (2022) WEBRip [H.264/720p] (сезон 3, выпуск 1-12)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон телешоу «Маска»! В это раз удивлять, восхищать, путать и радовать будут 14 новых героев «Маски»: Джокер, Дракон, Козерог, Леопард, Лошадь, Малыш, Монстрик, Мухомор, Осьминог, Павлин, Пёс, Пончик, Пчела и Сфинкс. Под невероятными костюмами скрываются певцы, актеры, спортсмены, ведущие и шоумены, в копилке которых более 10 званий народных и заслуженных (   Читать дальше...   )Телекомпания: НТВ | «ВайТ Медиа»Жанр: ТВ-шоу, музыкаПродолжительность: ~02:45:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD3CFEBCDC13F938B8A789C03C3655033491D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630579   (236963) от 01.05.2023
+
+Маска (2023) WEBRip [H.264] (сезон 4, выпуск 12. Финал)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники выступают с музыкальными номерами в костюмах, которые полностью их скрывают. Голоса исполнителей искажены, но есть подсказки. Задача жюри угадать, кто прячется под маской. В начале каждого эпизода участников «Маски» делят на группы. После того как каждый из группы исполнит свою песню, зрители в студии отправляют в номинацию одного из них. В финале каждой (   Читать дальше...   )Телекомпания: НТВ | «ВайТ Медиа»Жанр: ТВ-шоу, музыкаПродолжительность: 03:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57918AFCD1DE6EC097F1AC405A8CA25F67843F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630493   (236882) от 01.05.2023
 
 Маска (2023) WEBRip [H.264/1080p] (сезон 4, выпуск 12. Финал)
@@ -6,7 +58,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236882.jpg" />
+  <img src="Z:/picture/005/save_picture_236882.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235870.jpg" />
+  <img src="Z:/picture/004/save_picture_235870.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235772.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230515.jpg" />
+  <img src="Z:/picture/005/save_picture_230515.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229988.jpg" />
+  <img src="Z:/picture/005/save_picture_229988.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229835.jpg" />
+  <img src="Z:/picture/005/save_picture_229835.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229810.jpg" />
+  <img src="Z:/picture/004/save_picture_229810.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229589.jpg" />
+  <img src="Z:/picture/004/save_picture_229589.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229500.jpg" />
+  <img src="Z:/picture/004/save_picture_229500.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229384.jpg" />
+  <img src="Z:/picture/004/save_picture_229384.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228867.jpg" />
+  <img src="Z:/picture/004/save_picture_228867.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228838.jpg" />
+  <img src="Z:/picture/004/save_picture_228838.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228810.jpg" />
+  <img src="Z:/picture/005/save_picture_228810.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228346.jpg" />
+  <img src="Z:/picture/005/save_picture_228346.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227991.jpg" />
+  <img src="Z:/picture/005/save_picture_227991.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227915.jpg" />
+  <img src="Z:/picture/005/save_picture_227915.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227783.jpg" />
+  <img src="Z:/picture/005/save_picture_227783.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227646.jpg" />
+  <img src="Z:/picture/005/save_picture_227646.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227596.jpg" />
+  <img src="Z:/picture/005/save_picture_227596.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226784.jpg" />
+  <img src="Z:/picture/005/save_picture_226784.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226644.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225500.jpg" />
+  <img src="Z:/picture/005/save_picture_225500.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224975.jpg" />
+  <img src="Z:/picture/005/save_picture_224975.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223269.jpg" />
+  <img src="Z:/picture/005/save_picture_223269.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39110215F12440DEC61F2A4AF3AF820AE3BE2F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513835   (222574) от 30.11.2021
-
-Новые Танцы (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 17)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое танцевальное шоу! Лучшие танцовщики страны снова выходят на сцену. Теперь не будет наставников и их команд, а только очные танцевальные поединки между участниками в четырёх категориях: соло, дуэты, дети и команды. Оценивать выступления участников будет Мигель совместно с двумя приглашенными гостями. Компанию неизменной ведущей Ляйсан Утяшевой составит Ульяна (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBE4DA7B8BB79EE8BDE80A884351D2C3BA1C460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084417   (220544) от 18.12.2016
-
-Танцы (2016.12.17) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 21)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220544.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E59B09A509C8BB68F35FC164DD392E2C765C56
 ```
 
 https://mybot314.ru/tekegram_catalog/

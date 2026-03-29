@@ -6,7 +6,7 @@ HITMAN 2 (2018) [Ru/Multi] (2.20/dlc) Repack xatab [Gold Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642357.jpg" />
+  <img src="Z:/picture/008/save_picture_642357.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Chronicles of Narnia: Prince Caspian [Wii] [PAL] [France] (2008)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641813.jpg" />
+  <img src="Z:/picture/008/save_picture_641813.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641311.jpg" />
+  <img src="Z:/picture/008/save_picture_641311.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hoodwink [Multi8\+] (RePack/1.0) 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640842.jpg" />
+  <img src="Z:/picture/008/save_picture_640842.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru/En] 2012 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640465.jpg" />
+  <img src="Z:/picture/008/save_picture_640465.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Northgard (2018) [Ru/Multi] (1.6.12610/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638701.jpg" />
+  <img src="Z:/picture/008/save_picture_638701.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Walking Dead: Episode 1,2 (RePack) [Ru/En] 2012 l Audioslave {обновля
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638540.jpg" />
+  <img src="Z:/picture/008/save_picture_638540.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Dead Space Дилогия [Ru/En] (RePack) 2008-2011 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638537.jpg" />
+  <img src="Z:/picture/008/save_picture_638537.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Double Dragon: Neon (2014) [En] (1.0 upd2) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637960.jpg" />
+  <img src="Z:/picture/008/save_picture_637960.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Banner Saga (2014) [Ru/Multi] (2.6.61/3dlc) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637951.jpg" />
+  <img src="Z:/picture/008/save_picture_637951.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Breach & Clear: Deadline (2015) [Ru/Multi] (1.09) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637542.jpg" />
+  <img src="Z:/picture/008/save_picture_637542.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) License PROPHET [Gold Pack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635549.jpg" />
+  <img src="Z:/picture/008/save_picture_635549.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Shank 2 (RePack/1.0dc120305) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635216.jpg" />
+  <img src="Z:/picture/008/save_picture_635216.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ E.Y.E: Divine Cybermancy [En/Fr] (Steam-Rip/1.37) 2011 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634707.jpg" />
+  <img src="Z:/picture/008/save_picture_634707.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Shank 2 [Ru] (RePack/1.0dc120305) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634618.jpg" />
+  <img src="Z:/picture/008/save_picture_634618.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (2.0) SteamRip Let'sPlay [Deluxe Ed
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634578.jpg" />
+  <img src="Z:/picture/008/save_picture_634578.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633803.jpg" />
+  <img src="Z:/picture/008/save_picture_633803.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Warparty (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633229.jpg" />
+  <img src="Z:/picture/008/save_picture_633229.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Dead Island Game of The Year Edition [Ru/En] (RePack/1.3) 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632685.jpg" />
+  <img src="Z:/picture/008/save_picture_632685.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru] 2012 l kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632669.jpg" />
+  <img src="Z:/picture/008/save_picture_632669.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Endless Space (L) [Multi3/-] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632568.jpg" />
+  <img src="Z:/picture/008/save_picture_632568.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Wargame: European Escalation + 2 DLC (Repack/12.07.02.470000075) [Ru] 2012 | R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630452.jpg" />
+  <img src="Z:/picture/008/save_picture_630452.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Banished (2014) [En] (1.0.3 b140620) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630155.jpg" />
+  <img src="Z:/picture/008/save_picture_630155.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cocoto Kart Racer 2 [Wii] [PAL] [Multi 6] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630145.jpg" />
+  <img src="Z:/picture/008/save_picture_630145.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ The Raven: Legacy of a Master Thief (Episode 1) (2013) [Multi] (1.0) License REL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629421.jpg" />
+  <img src="Z:/picture/008/save_picture_629421.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Dungeon Siege 3 [En] (L) 2011 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629175.jpg" />
+  <img src="Z:/picture/005/save_picture_629175.jpg" />
 </div>
 
 

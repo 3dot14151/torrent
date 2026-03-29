@@ -1,3 +1,32 @@
+###  Публикация: 1665586   (181084) от 01.10.2023
+
+OF3D Academy, Ander Alencar | Masterviz (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181084.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Мы считаем, что каждый профессионал, создающий реалистичные изображения, не делает этого волшебным образом.
+- За каждой потрясающей визуализацией, которую вы создаете, стоит метод.
+- Да, мы разработали этот метод.
+- Мы понимаем, что это не единственный способ добиться реализма в рендеринге,(   Читать дальше...   )Производство: OF3D AcademyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 36:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B615B6196A93BB2A8B7E451CA98803A9A8AD4950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427864   (181043) от 30.11.2020
 
 Skillbox, Евгений Тонконогий | Иллюстрация на iPad (2020) PCRec
@@ -6,7 +35,7 @@ Skillbox, Евгений Тонконогий | Иллюстрация на iPad
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181043.jpg" />
+  <img src="Z:/picture/005/save_picture_181043.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Kalyakin School, Максим Калякин | Дизайн персонажей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180693.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gumroad, FlyCat | Cyberpunk Style Girl Blender Modeling (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180687.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180660.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ CG Cookie, Chris Kuhn | Риггинг транспорта в Blender 2.6 / Rig
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180635.jpg" />
+  <img src="Z:/picture/005/save_picture_180635.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma Про-уро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180626.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ CG Cookie, Louis du Mont | Создание анимированного жут�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180617.jpg" />
+  <img src="Z:/picture/005/save_picture_180617.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ CG Cookie, Wayne Dixon | Управление камерой в Blender 2.83 и 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180616.jpg" />
+  <img src="Z:/picture/005/save_picture_180616.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180592.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ Dream&Draw, Анастасия Козлова | Клуб "Мечтай и рис
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180574.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ FlippedNormals, Emiel Sleegers | Создание научно-фантасти�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180466.jpg" />
+  <img src="Z:/picture/005/save_picture_180466.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ CG Cookie, Kent Trammell | Искусство скульптинга в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179843.jpg" />
+  <img src="Z:/picture/005/save_picture_179843.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ CG Cookie, Kent Trammell | Моделирование реалистичных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179743.jpg" />
+  <img src="Z:/picture/005/save_picture_179743.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ FlippedNormals, Chunck Trafagander | Создание тримов для игр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179607.jpg" />
+  <img src="Z:/picture/005/save_picture_179607.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ Enterclass, Татьяна Анисимова | Натюрморт с фрукт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179501.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179470.jpg" />
+  <img src="Z:/picture/005/save_picture_179470.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ Enterclass, Сергей Курбатов | Зеленый цвет в пейз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179377.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ education.iyaaar | Марафон стикеров. Тариф мужские (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179337.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ Max Twain | Workshop - Создание серии артов в нейросе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179221.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ CG Cookie, Kent Trammell | Рендеринг и финишная анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178140.jpg" />
+  <img src="Z:/picture/005/save_picture_178140.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ CG Cookie, Wayne Dixon | Учебный лагерь по анимации в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178103.jpg" />
+  <img src="Z:/picture/005/save_picture_178103.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Lynda, David Andrade | Создание законченной анимации 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178061.jpg" />
+  <img src="Z:/picture/005/save_picture_178061.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176398.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Arrimus | Arrimus Ultimate 3D Modeling Course (2022) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176384.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175781.jpg" />
 </div>
 
 
@@ -678,32 +707,6 @@ Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8985128AEA0687912DAC97346E239D9D0CB43D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429836   (175765) от 07.12.2020
-
-CG Cookie, Jonathan Lampel | Основы динамической симуляции в Blender 2.77 / Fundamentals of Dynamics in Blender 2.77 (2016) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс познакомит вас с миром динамического моделирования! Такие вещи, как дым, огонь, мягкие и твердые падающие предметы, ткань, льющиеся жидкости и многое другое - все это достигается с помощью динамического моделирования в Blender. Ключ в том, что компьютер делает большую часть работы за вас, в отличие от ручной анимации сверхсложных движений, таких как ткань, (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделирование, СимуляцияЯзык озвучки: АнглийскийПродолжительность: 02:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A7E52B3BC3220559EE21E89A002EC0DA79495D
 ```
 
 https://mybot314.ru/tekegram_catalog/

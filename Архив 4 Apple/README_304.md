@@ -1,3 +1,114 @@
+###  Публикация: 1142852   (641057) от 15.06.2017
+
+InternetSpeedTest 2.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641057.jpg" />
+</div>
+
+
+###  Подробнее
+
+«InternetSpeedTest» имеет уникальный алгоритм, который не может быть обманут PowerBoost или аналогичными инструментами повышения скорости.
+Таким образом, результаты, которые вы достигли, будут точными в соответствии со скоростью вашей системы.
+
+«InternetSpeedTest» - это однопоточный тест, в то время как большинство других (например, сеть тестирования скорости) многопоточно. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2017Разработчик: AppYogi SoftwareПоддерживаемая ОС: OS X 10.8 и вышеЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38C02D728161B3E455734E5684DC13E3A9FDB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142812   (641050) от 15.06.2017
+
+KCNcrew Pack 06-15-17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641050.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack  -  это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
+
+База серийных номеров проекта KCNcrew по состоянию на июнь 2017 года.Тип издания: OS X SoftwareРелиз состоялся: 15 июня 2017Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9277F8E26CEA5E193A37B84569DC6E45F7BE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542032   (640987) от 05.04.2022
+
+Duplicate File Finder Pro 6 v6.16.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
+Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453665FDE952D7A7FF99AAA76E873DAA7BC29972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542026   (640864) от 05.04.2022
+
+Audio Hijack 4.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458B37C10077DDB87118223925EEA1F0D03E538E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227992   (640825) от 29.05.2018
 
 Things 3.6 [Multi/Ru]
@@ -6,7 +117,7 @@ Things 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640825.jpg" />
+  <img src="Z:/picture/008/save_picture_640825.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ Wirecast Pro 7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640782.jpg" />
+  <img src="Z:/picture/008/save_picture_640782.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ Cashew 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640287.jpg" />
+  <img src="Z:/picture/008/save_picture_640287.jpg" />
 </div>
 
 
@@ -90,7 +201,7 @@ CameraBag Cinema 1.0.520 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640199.jpg" />
+  <img src="Z:/picture/008/save_picture_640199.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ Forecast Bar 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640111.jpg" />
+  <img src="Z:/picture/008/save_picture_640111.jpg" />
 </div>
 
 
@@ -146,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640106.jpg" />
+  <img src="Z:/picture/008/save_picture_640106.jpg" />
 </div>
 
 
@@ -173,7 +284,7 @@ Color Finale 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639879.jpg" />
+  <img src="Z:/picture/008/save_picture_639879.jpg" />
 </div>
 
 
@@ -199,7 +310,7 @@ BookReader 5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639867.jpg" />
+  <img src="Z:/picture/008/save_picture_639867.jpg" />
 </div>
 
 
@@ -228,7 +339,7 @@ BBEdit 11.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639470.jpg" />
+  <img src="Z:/picture/008/save_picture_639470.jpg" />
 </div>
 
 
@@ -254,7 +365,7 @@ Colibri - Native Lossless Audio 1.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639469.jpg" />
+  <img src="Z:/picture/008/save_picture_639469.jpg" />
 </div>
 
 
@@ -283,7 +394,7 @@ Vectoraster 7.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639467.jpg" />
+  <img src="Z:/picture/008/save_picture_639467.jpg" />
 </div>
 
 
@@ -311,7 +422,7 @@ Video Uploader for YouTube 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639466.jpg" />
+  <img src="Z:/picture/008/save_picture_639466.jpg" />
 </div>
 
 
@@ -340,7 +451,7 @@ Dash 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639460.jpg" />
+  <img src="Z:/picture/008/save_picture_639460.jpg" />
 </div>
 
 
@@ -367,7 +478,7 @@ Monodraw 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639344.jpg" />
+  <img src="Z:/picture/008/save_picture_639344.jpg" />
 </div>
 
 
@@ -396,7 +507,7 @@ LEGO: The Lord of the Rings v. 1.0 (2013) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639310.jpg" />
+  <img src="Z:/picture/008/save_picture_639310.jpg" />
 </div>
 
 
@@ -422,7 +533,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.5b4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639246.jpg" />
+  <img src="Z:/picture/008/save_picture_639246.jpg" />
 </div>
 
 
@@ -450,7 +561,7 @@ SQLPro for SQLite 2022.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639245.jpg" />
+  <img src="Z:/picture/008/save_picture_639245.jpg" />
 </div>
 
 
@@ -476,7 +587,7 @@ Receipts 1.9.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639242.jpg" />
+  <img src="Z:/picture/008/save_picture_639242.jpg" />
 </div>
 
 
@@ -503,7 +614,7 @@ SQLPro Studio 2022.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639241.jpg" />
+  <img src="Z:/picture/008/save_picture_639241.jpg" />
 </div>
 
 
@@ -529,7 +640,7 @@ A Better Finder Rename 11 v11.45 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639240.jpg" />
+  <img src="Z:/picture/008/save_picture_639240.jpg" />
 </div>
 
 
@@ -556,7 +667,7 @@ Mitti 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639239.jpg" />
+  <img src="Z:/picture/008/save_picture_639239.jpg" />
 </div>
 
 
@@ -583,7 +694,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639238.jpg" />
+  <img src="Z:/picture/008/save_picture_639238.jpg" />
 </div>
 
 
@@ -595,112 +706,6 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B648D3B9F90A7959D7BF6ACCD95E8A6906FCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542269   (639232) от 06.04.2022
-
-Blocs 4.5.0.b4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
-Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 BlocsAppПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68D4EE9539387AD5A0FED941245B64C0F2CF663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542412   (639229) от 06.04.2022
-
-RAW Power 3.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2021 Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E54602C55D25EB5686D11493654F897346887F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293174   (639202) от 02.04.2019
-
-Permute 3 v3.1.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DC72C500C4DCCAA1CF878A87A979C921046849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293172   (639194) от 02.04.2019
-
-Postbox v6.1.13 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, можно непосредственно в программе, а потом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2019Разработчик: Postbox, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A80A5D5C93E3CEAB75E5DE1FACC848D997439C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Creativity: Rap Playlist (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262308.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Rule Number On Dancehall Mixtape (2023) [MP3|320 Kbps] <Reggae, Dub, Danceh
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240321.jpg" />
+  <img src="Z:/picture/004/save_picture_240321.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Rap NNM (2022) Русский Выпуск [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239025.jpg" />
+  <img src="Z:/picture/004/save_picture_239025.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Divine - Compilation (2023) [MP3|320 Kbps] <Hi-NRG>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235453.jpg" />
+  <img src="Z:/picture/004/save_picture_235453.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Rap No Limit (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223870.jpg" />
+  <img src="Z:/picture/005/save_picture_223870.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Gum Rot Funk: Hip Hop Line (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221429.jpg" />
+  <img src="Z:/picture/005/save_picture_221429.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Objection: Rap France (2018) [MP3|320 Kbps] <Rap France>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216000.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - New Music Releases Week 50 of 2018 (2018) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215860.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Love And Heartbreak (2019) [MP3|320 Kbps] <R&B, Soul, Pop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214734.jpg" />
+  <img src="Z:/picture/005/save_picture_214734.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dessar - 2022 (2022) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211647.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Jamaica Reggae: Relax & Sound (2023) [MP3|320 Kbps] <Reggae, Ridim>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209444.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Rap 102 (2023) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200373.jpg" />
+  <img src="Z:/picture/005/save_picture_200373.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Reggae Christmas! (2020) [MP3|320 Kbps] <Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185195.jpg" />
+  <img src="Z:/picture/004/save_picture_185195.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - R&B: Jamaica Night (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181495.jpg" />
+  <img src="Z:/picture/005/save_picture_181495.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Trill: Rap History (2020) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180759.jpg" />
+  <img src="Z:/picture/005/save_picture_180759.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Beast Mode Hip Hop 2 (2023) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170849.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Workout 2  I Get Back In Shape (2019) [MP3|320 Kbps] <Hip-Hop, Rap, Other>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170416.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - If U Need Me: Rap Selection (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168248.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Are & Be (2021) [MP3|320 Kbps] <R&B>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167643.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Indigo Baby: Rap Theme Music (2020) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164187.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Artur (Artur Khlgatyan) - Armenian Rap (2011-2015) [MP3|320 кб/с] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158410.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Love Languages: R&B Selections (2019) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157673.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - German Top 40 DBC Deutsche Black Charts 14.12.2018 (2018) [MP3|320 Kbps] <R
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157562.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Dark Beats: French Rap (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155744.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Essentials Rap Hits Releases (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155698.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Лучшие хитовые треки в стиле Rap, Hip Hop & R'n'B �
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153851.jpg" />
 </div>
 
 

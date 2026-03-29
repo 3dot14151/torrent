@@ -1,3 +1,55 @@
+###  Публикация: 1588999   (190836) от 07.11.2022
+
+Воин природы / Nature's Warriors (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_190836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал о львах, которых неслучайно прозвали царями зверей. Сейчас грозные африканские хищники переживают не лучшие времена — более 90% их территорий пострадало из-за действий человека. Как человек влияет на места обитания и численность львов? Как они приспосабливаются к этим катастрофическим изменениям и есть ли у львов будущее?Производство: Австралия / K2, MGM TelevisionЖанр: документальный, приключения, природаРежиссер: Джулия ВилерПеревод: Многоголосый профессиональный (Greb&Creative)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69CF3FBA881B614A0DB06681A5E79DB202C7637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589002   (190794) от 07.11.2022
+
+В голубую бездну / Into the Big Blue Heart: Ocean Currents (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал про подводные течения, которые регулируют жизнь нашей планеты на протяжении миллионов лет — от разнообразия биологических видов до погодных условий. Создатели сериала рассказывают об этих невидимых артериях Земли на примере Восточно-Австралийского течения.Производство: Австралия / K2, MGM TelevisionЖанр: документальный, приключенияРежиссер: Ник РобинсонПеревод: Многоголосый профессиональный (Contentica)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2521D621784A403DBFA618DFDFB52009C8BB912C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659505   (190113) от 11.09.2023
 
 Исландия. Заповедник птиц тупиков / Islande. Le sanctuaire des macareux (2022) HDTV [H.264/1080i]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190113.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190025.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189734.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189376.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189365.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189318.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ NHK. Мир живой природы III / Nature Wonder Land III (2008) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188390.jpg" />
+  <img src="Z:/picture/005/save_picture_188390.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188170.jpg" />
+  <img src="Z:/picture/005/save_picture_188170.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186052.jpg" />
+  <img src="Z:/picture/005/save_picture_186052.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185269.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182103.jpg" />
+  <img src="Z:/picture/005/save_picture_182103.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182098.jpg" />
+  <img src="Z:/picture/005/save_picture_182098.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179119.jpg" />
+  <img src="Z:/picture/005/save_picture_179119.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177448.jpg" />
+  <img src="Z:/picture/005/save_picture_177448.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176120.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175949.jpg" />
+  <img src="Z:/picture/004/save_picture_175949.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175028.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174001.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173531.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172320.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172229.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170430.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170350.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170331.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6DA48AEE8E52EB4E399844BFC2E168A11C68F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430835   (169571) от 11.12.2020
-
-Кошки Японии / Cats of Japan (2020) WEB-DL [H.264/1080p] (Сезон 2, серии: 1-9 из 9)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необыкновенная природа Японии — это настоящее раздолье для самых разных животных, в числе которых кошки всех мастей. Пережив холода, они радостно встречают лето, полное игр, забав и новых открытий. Кто-то предпочитает уютный сад, для кого-то нет ничего лучше горного пейзажа. Озорные и осторожные, любопытные и ласковые. Они мурчат, играют, охотятся и всюду следуют (   Читать дальше...   )Производство: Япония, Leomark StudiosЖанр: Документальный, познавательный, путешествияРежиссер: Куниеси КатакураПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 9 x ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7DBA1710CCB1348E15C93C44242B2FF66C2209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515476   (169340) от 07.12.2021
-
-Тайная жизнь больших кошек / The Secret Lives Of Big Cats (2019) WEBRip [H.264/2160p] (серии 1-7 из 7)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь получасовых эпизодов наблюдения за самыми скрытными хищниками дикой природы. Присутствует много ночных съемок с тепловизором. Первая серия посвящена тиграм, а затем уже идут эпизоды про ирбисов, пум, львов, леопардов, ягуаров и гепардов.Производство: Великобритания, Ammonite Films, CuriosityStreamЖанр: документальный, природа, флора, фаунаРежиссер: Мартин ДорнПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 7x ~00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F0EC455357A433B7442D50F3B481E240B4CBC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

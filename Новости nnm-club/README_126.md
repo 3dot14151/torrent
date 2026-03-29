@@ -1,3 +1,162 @@
+###  Публикация: 908141   (623189) от 19.06.2015
+
+HaoZip 5.3.1 Build 10340 Ru-Board Edition [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623189.jpg" />
+</div>
+
+
+###  Подробнее
+
+HaoZip - бесплатный архиватор китайского производства, прекрасно подходящий в качестве замены WinRAR. Его интерфейс практически неотличим от привычного интерфейса WinRAR, и он поддерживает сжатие в форматах 7z, ZIP, TAR, а также распаковку практически всех популярных форматов сжатия. Среди них: RAR, ISO, UDF, ACE, UUE, CAB, Bzip2, ARJ, JAR, LZH, RPM, Z, LZMA, NSIS, (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3430CC01DDFA1B4382AF3F1543D37D72BBDC43A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219523   (623107) от 19.07.2010
+
+Need for Speed: Most Wanted - Technically Improved [Ru] [RePack] 2010
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_623107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам надоело обрывать тупых ботов? Надоело тягаться с детскими копами? Тогда Technically Improved специально для вас! Technically Improved это новый взгляд на Most Wanted. Игра полностью переработана. Изменено практически всё что можно, модели автомобилей, главное меню, фотофиниш, добавлена дрифтовая камера, изменено управление и конфигурация автомобилей, и еще много всякой всячины.
+
+   Ночь закончилась. Потухли фары, исчезла мерцающая подсветка разделительной линии на дорогах, перестали назойливо лезть в глаза, сияющие рекламные щиты, завлекающие огни казино и прожектора ночных клубов. Залитые солнцем улицы наводнила толпа выспавшихся полицейских. Казалось бы, ничего необычного. И лишь вечно бодрствующие гонщики-нелегалы знали, что произошло. В NFS снова наступил день. Все пути, все направления открыты для вас. В "Need for Speed: Most Wanted" гонщик свободно перемещается по городу и может легко попасть как в промышленные, так и в спальные районы. Город живет своей жизнью. Плотное уличное движение и даже (   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3DЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219731   (623101) от 19.07.2010
+
+Sacred 2 Gold: Падший Ангел + Лёд и Кровь [Ru] (L) 2010
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_623101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся Анкария раскололась надвое. Использовать энергию, чтобы стать выше бессмертных, или спасти то, что ещё не погибло, - теперь решать вам. Это диск включает в себя лучшую RPG 2008 годаТип издания: ЛицензияРазработчик: Ascaron Studio 2Жанр: RPG\ActionЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909889   (623089) от 19.06.2015
+
+Сталкер / Stalker (1979) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623089.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой ленте, снятой по мотивам повести братьев Стругацких «Пикник на обочине», действие происходит в некой запретной Зоне, где, по слухам, существует комната, где исполняются самые заветные желания.
+К этой комнате отправляются модный Писатель и авторитетный Профессор — каждый по своим причинам, о которых предпочитают не говорить. А ведет их туда Сталкер — проводник (   Читать дальше...   )Производство: СССР / МосфильмЖанр: фантастика, драма, детектив, приключенияРежиссер: Андрей ТарковскийАктеры: Александр Кайдановский, Анатолий Солоницын, Алиса Фрейндлих, Николай Гринько, Наташа Абрамова, Файме Юрно, Евгений Костин, Раймо Ренди, Сергей Яковлев, Владимир ЗаманскийЯзык субтитров: английскийПродолжительность: 02:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794F4A29693FDF30C26F218AA63C146CEF162D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910081   (623084) от 19.06.2015
+
+ProDAD Mercalli V2 Plugin 2.0.121 Tech. r79 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mercalli - интуитивный и простой инструмент для программной стабилизации видео, незаменимый при видеомонтаже. Mercalli устанавливается плагином в большинство популярных видеоредакторов, кроме этого может работать как самостоятельное приложение. Mercalli обнаруживает и различает тряску между движениями (панорамирование и увеличение снимка, случайные удары или тряску). (   Читать дальше...   )Язык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C6F401925D44D0BCB15565E3D97C22C4468F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872617   (623081) от 19.06.2015
+
+Ирина Сапронова | Мастер-класс по обработке фотографий (2014) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623081.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Занимаясь художественной фотографией, я выражаю себя, своё отношение к детству, красоте природы,  к чувствам самых близких друг другу людей.   Поэтому, готовясь к съёмке, мне очень важно решить для себя, о чём именно я хочу рассказать этой серией снимков, что чувствует  будущая мама, когда ждёт малыша,  как весело может быть летом в деревне, любовь между мамой и (   Читать дальше...   )Жанр: Обработка фото, детская фотосъёмкаПродолжительность: 02:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB35740349306505A5BD5E565F38DDFFCBC4146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910103   (623078) от 19.06.2015
 
 Multi Utilities 2015 5.1.6 by Муллин Иван [Ru/En]
@@ -6,7 +165,7 @@ Multi Utilities 2015 5.1.6 by Муллин Иван [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623078.jpg" />
+  <img src="Z:/picture/008/save_picture_623078.jpg" />
 </div>
 
 
@@ -33,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623075.jpg" />
+  <img src="Z:/picture/008/save_picture_623075.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_622443.jpg" />
+  <img src="Z:/picture/005/save_picture_622443.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ ESET NOD32 Antivirus 9.0.386.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622133.jpg" />
+  <img src="Z:/picture/008/save_picture_622133.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ Stop SMS Live & Boot v.2.7.13 [Русский и английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_622112.jpg" />
+  <img src="Z:/picture/005/save_picture_622112.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.3) [Ru] 2012 l Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622102.jpg" />
+  <img src="Z:/picture/008/save_picture_622102.jpg" />
 </div>
 
 
@@ -166,7 +325,7 @@ The Elder Scrolls V: Skyrim - Компиляция модов v5 (Mod) {1.5.26.0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622096.jpg" />
+  <img src="Z:/picture/008/save_picture_622096.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ Primo Ramdisk Ultimate Edition 5.6.0 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_622089.jpg" />
+  <img src="Z:/picture/005/save_picture_622089.jpg" />
 </div>
 
 
@@ -218,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621468.jpg" />
+  <img src="Z:/picture/008/save_picture_621468.jpg" />
 </div>
 
 
@@ -245,7 +404,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621278.jpg" />
+  <img src="Z:/picture/008/save_picture_621278.jpg" />
 </div>
 
 
@@ -271,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621271.jpg" />
+  <img src="Z:/picture/005/save_picture_621271.jpg" />
 </div>
 
 
@@ -297,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621266.jpg" />
+  <img src="Z:/picture/005/save_picture_621266.jpg" />
 </div>
 
 
@@ -323,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621035.jpg" />
+  <img src="Z:/picture/008/save_picture_621035.jpg" />
 </div>
 
 
@@ -349,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_620642.jpg" />
+  <img src="Z:/picture/005/save_picture_620642.jpg" />
 </div>
 
 
@@ -375,7 +534,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.0.1.2/reg1.02) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620501.jpg" />
+  <img src="Z:/picture/008/save_picture_620501.jpg" />
 </div>
 
 
@@ -401,7 +560,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620491.jpg" />
+  <img src="Z:/picture/008/save_picture_620491.jpg" />
 </div>
 
 
@@ -427,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_620451.jpg" />
+  <img src="Z:/picture/005/save_picture_620451.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ Parallels Desktop for Mac 9.0.24237 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620449.jpg" />
+  <img src="Z:/picture/008/save_picture_620449.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620303.jpg" />
+  <img src="Z:/picture/008/save_picture_620303.jpg" />
 </div>
 
 
@@ -506,7 +665,7 @@ Darksiders III / Darksiders 3 (2018) [Ru/Multi] (1.4/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619936.jpg" />
+  <img src="Z:/picture/008/save_picture_619936.jpg" />
 </div>
 
 
@@ -517,162 +676,6 @@ Darksiders III — долгожданная третья глава популя
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0135E43250861557A521D006E6A4DBCC39C08AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295114   (619929) от 12.04.2019
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11425.20204 (2019.04) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E90D01CDA8BDE7313A56023FA62CD65ED562B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295300   (619922) от 12.04.2019
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86) RePack by SPecialiST v19.4 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3C73773A6F90C80A009716B83E6C48629B081C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295433   (619920) от 12.04.2019
-
-S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru/Ua] (1.5.10) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный приквел культового шутера перенесет игрока в 2011 год - ровно за двенадцать месяцев до событий, развернувшихся в оригинальной игре. Группа сталкеров впервые подобралась к самому сердцу Зоны - Чернобыльской АЭС, спровоцировав катаклизм, который едва не привел к катастрофе. Грандиозный Выброс аномальной энергии изменяет Зону.Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, УкраинскийЯзык субтитров: Русский, УкраинскийЯзык интерфейса: Русский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DE0A14EC309D1CFDC283448721B07BE8C63E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295104   (619919) от 12.04.2019
-
-Клаустрофобы / Escape Room (2019) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив приглашение сыграть в квест, победитель которого получит денежное вознаграждение, шестеро прежде незнакомых между собой людей решают испытать удачу. Но вскоре становится очевидно, что их выбрали для игры не случайно, задания не такие безобидные, участникам грозит вполне реальная опасность, а ставка в игре — их собственные жизни.Производство: США, Канада / Original FilmЖанр: ТриллерРежиссер: Адам РобителАктеры: Тейлор Расселл, Логан Миллер, Джей Эллис, Тайлер Лабин, Дебора Энн, Уолл Ник, Додани, Йорик ван Вагенинген, Корнелиус Джини мл., Расселл Краус, Барт Фаш ...Перевод: Дублированный (iTunes)Субтитры: Русские (Forced, Full)Продолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C941A5200D237DBAC20C76B0622A41DB7BD9C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295427   (619916) от 12.04.2019
-
-S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [Ru/Ua] (1.6.02) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие проекта "S.T.A.L.K.E.R.: Зов Припяти" разворачивается после событий оригинальной игры - то есть после того, как Стрелок уничтожил проект "О-Сознание". Получив сведения об открытии дороги к центру Зоны, правительство решает развернуть масштабную военную операцию под кодовым названием "Фарватер" для получения контроля над ЧАЭС.Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, УкраинскийЯзык субтитров: Русский, УкраинскийЯзык интерфейса: Русский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04BFA748A1479531ADCDE43248C84DD769D9E0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910731   (619269) от 21.06.2015
-
-Adobe Photoshop CC 2015 (20150529.r.88) Portable by PortableWares (21.06.2015) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F222DFE5DFD0098923EAD0FE20F084305AB578
 ```
 
 https://mybot314.ru/tekegram_catalog/

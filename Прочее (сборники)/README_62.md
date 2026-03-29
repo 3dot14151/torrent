@@ -1,3 +1,177 @@
+###  Публикация: 1128887   (724237) от 27.04.2017
+
+VA - Singles Chart Hot 100 Billboard (05 May) (2017) [MP3|320 Kbps] <Pop, Rap, Soul, R&B, Alternative, Bro-Country, Dancehall>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Kendrick Lamar - Humble  2:58
+002.  Ed Sheeran - Shape Of You  3:54
+003.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
+004.  The Chainsmokers & Coldplay - Something Just Like This  4:08(   Читать дальше...   )Жанр: Pop, Rap, Soul, R&B, Alternative, Bro-Country, DancehallПродолжительность: 06:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B64963DBFEEAE437CFD273D4FDEBA69505B4213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129182   (724224) от 27.04.2017
+
+VA - Music for Your Car Vol.3 (2017) [MP3|320 Kbps] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724224.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abramo & DJ Lacros - U Know Y (Original Mix) 3:01
+002. Adam De Great - Pretty Sick (Original Mix) 3:19
+003. Aleo - Hospital (Original Mix) 6:41
+004. Aleo - Sex Orgazm (Original Mix) 4:26(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 07:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F77C8D08AEFD5A1401447F782C1D5CACC8DACFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129187   (724219) от 27.04.2017
+
+VA - Need For Speed Vol.5 (2017) [MP3|320 Kbps] <Dance , Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kris Mctwain - Stuck on replay (Radio Edit) 3:54
+002. Bloodhound Gang - The Bad Touch (Michele Pletto Bootleg) 3:31
+003. MKH - You can run You can hide (Alari Remix Edit) 4:05
+004. Sunbase Inc - Next to You (Radio Cut) 3:50(   Читать дальше...   )Жанр: Dance , Hands UpПродолжительность: 06:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C4C4027C3FAB4DFF6EE2CFFCFC172ED8F89D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129050   (724096) от 27.04.2017
+
+Bad Boys Blue - The Best (By Reloaded) (2017) [MP3|320 Kbps] <Eurodance, Europop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jungle In My Heart (Reloaded)  3:28
+02.  Come Back And Stay (Reloaded)  4:04
+03.  Hungry For Love (Reloaded)  4:10
+04.  Kiss You All Over, Baby (Reloaded)  4:07(   Читать дальше...   )Жанр: Eurodance, Europop, DiscoПродолжительность: 01:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5119F5FD7DEFF773C3C90CE83CBD17D8E5D7FE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128932   (723708) от 27.04.2017
+
+VA - Discoteka 2017 Dance Club. The Best and  Newest Hits  [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Feder - Blame Me (Denis First Radio Remix)
+002. Cascada - Playground
+003. Stereo Palma feat. Myra - Because The Night (Roberto Rios X Dan Sparks Remix)
+004. Sal De Sol - Happy Ending (Short Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FAB6BDC5FF242FF069106752ED8E3D5C84B112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023533   (723337) от 05.06.2016
+
+VA - Space Synth Disco 80s (2016) [MP3|320 кб/с] <Space Disco, Synth Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vanello - Planet Synth
+002. Laid Back - Elevator Boy
+003. Oblivion - Return To Home Planet
+004. Nordika - Illumination(   Читать дальше...   )Жанр: Space Disco, Synth DiscoПродолжительность: 08 :58 :03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599770FACF4DC3032BEB0DF2333C04A8E20AC782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218498   (723222) от 09.04.2018
 
 VA - Cocktail new music №31 (2018) [MP3|320 Kbps] <Pop, Dance, Club>
@@ -6,7 +180,7 @@ VA - Cocktail new music №31 (2018) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723222.jpg" />
+  <img src="Z:/picture/008/save_picture_723222.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Зайцев.нет Музыкальные новинки Апрель 2018
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723123.jpg" />
+  <img src="Z:/picture/008/save_picture_723123.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - 30(10) Новые Песни (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722483.jpg" />
+  <img src="Z:/picture/008/save_picture_722483.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Keep Original - Deep Tech Vocals & Electronica (2016) [MP3|222-320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722359.jpg" />
+  <img src="Z:/picture/008/save_picture_722359.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Песни Про Рыбалку (2017) [MP3|320 Kbps] <Поп, Шансо�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722274.jpg" />
+  <img src="Z:/picture/008/save_picture_722274.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - 100 Hits Car Songs (5СD) (2016) [MP3|320 кб/с] <Electronica, Euro House
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722137.jpg" />
+  <img src="Z:/picture/008/save_picture_722137.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - My Favourite Hits of 1982 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722055.jpg" />
+  <img src="Z:/picture/008/save_picture_722055.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Ocean Of Love: New Generation Italo Disco (2018) [MP3|320 Kbps] <Italo Disc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721509.jpg" />
+  <img src="Z:/picture/008/save_picture_721509.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Vocal Jazz Collection (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721391.jpg" />
+  <img src="Z:/picture/008/save_picture_721391.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - не Громкие новинки недели 1 (2019) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720940.jpg" />
+  <img src="Z:/picture/008/save_picture_720940.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ Terror Squad - Lean Back (2017) Remix [MP3|320 Kbps] <G-House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720905.jpg" />
+  <img src="Z:/picture/008/save_picture_720905.jpg" />
 </div>
 
 
@@ -324,7 +498,7 @@ VA - 100 Самых красивых и необычных песен (2018) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720902.jpg" />
+  <img src="Z:/picture/008/save_picture_720902.jpg" />
 </div>
 
 
@@ -353,7 +527,7 @@ VA - Eurodance Compilation (2017) [MP3|320 Kbps] <Eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720698.jpg" />
+  <img src="Z:/picture/008/save_picture_720698.jpg" />
 </div>
 
 
@@ -382,7 +556,7 @@ VA - Ultimate Dance Crazy Shakers (2016) [MP3|253-320 кб/с] <Dance, Euro, Dis
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720430.jpg" />
+  <img src="Z:/picture/008/save_picture_720430.jpg" />
 </div>
 
 
@@ -411,7 +585,7 @@ VA - Young, Fresh & Disco (2016) [MP3|320 кб/с] <Soulful House, Dance,Nu-Disc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719954.jpg" />
+  <img src="Z:/picture/008/save_picture_719954.jpg" />
 </div>
 
 
@@ -439,7 +613,7 @@ VA - Top 100 Club Tracks (May 2016) (2016) [MP3|320 кб/с] <Dance, Club, Club 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719298.jpg" />
+  <img src="Z:/picture/008/save_picture_719298.jpg" />
 </div>
 
 
@@ -468,7 +642,7 @@ VA - New Music Releases Week 8 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alte
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719053.jpg" />
+  <img src="Z:/picture/008/save_picture_719053.jpg" />
 </div>
 
 
@@ -497,7 +671,7 @@ VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718831.jpg" />
+  <img src="Z:/picture/008/save_picture_718831.jpg" />
 </div>
 
 
@@ -526,7 +700,7 @@ VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718710.jpg" />
+  <img src="Z:/picture/008/save_picture_718710.jpg" />
 </div>
 
 
@@ -555,7 +729,7 @@ VA - Disco 80 Dance Premium (2017) [MP3|320 Kbps] <Disco, Euro-Pop, Italo-Disco,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718354.jpg" />
+  <img src="Z:/picture/008/save_picture_718354.jpg" />
 </div>
 
 
@@ -569,180 +743,6 @@ VA - Disco 80 Dance Premium (2017) [MP3|320 Kbps] <Disco, Euro-Pop, Italo-Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9E11783A1E29733A74B74CBE3F1376FAE3AAEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129773   (717871) от 30.04.2017
-
-VA - Nostalgia Collection (Volume Second) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Francis Goya - Nostalgia  3:53
-002.  Liza Minelli - Cabaret  3:37
-003.  Boyz II Men - End Of The Road  5:54
-004.  SuperMax - Camillo  4:05(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 10:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143CBF4077D35A42828E80B9808BA903E8A3EF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129696   (717870) от 30.04.2017
-
-VA - Nostalgia Collection (Volume One) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Demis Roussos - From Souvenirs To Souvenirs  2:38
-002.  F.R.David - Words  3:28
-003.  Enigma - Principles Of Lust  4:13
-004.  Earth, Wind & Fire - Fantasy  3:48(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 09:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E912F2350EEED93428E62175E7ABF41CFEC12C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129954   (717868) от 30.04.2017
-
-VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск # 44) (2017) [MP3|256-320 Kbps] <Eurodance, Disco, Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bad Boys Blue - I Totally Miss You (DJ X-KZ & DJ Anatolevich Remix 2015) (Eurodance Version)  5:38
-02.  Joy - Touch By Touch   (DJ Arkadiy Gabana & DJ Alex Dolce Remix Radio)  4:07
-03.  Pulsedriver & Andrew Spencer - Тouch Мe (Topmodelz Remix)  4:38
-04.  F.R. David - Taxi (Dance Remix)  3:46(   Читать дальше...   )Жанр: Eurodance, Disco, Italo DiscoПродолжительность: 04:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B215EFE86112E2E8C335E41EBEA31506A54317F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218965   (717527) от 12.04.2018
-
-VA - For Your Disco Pleasure (2018) [MP3|320 Kbps] <Italo Disco, Pop, New Generation>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Atlanta - Romantic Break
-002. Brooklyn Guy - Cold Stuff (Original Mix)
-003. Eucariontes - Tell Me More (Original Mix)
-004. The Fans - M.A.F.I.A.(   Читать дальше...   )Жанр: Italo Disco, Pop, New GenerationПродолжительность: 10:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1590A0DE51C8D9CF71D46DF83164E0CBCC292A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219108   (717405) от 12.04.2018
-
-VA - Salsa Fiesta 2018 [MP3|256-320 Kbps] <Salsa, Bachata, Kizomba, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los 4 - Tu de Que Vas
-02. Ciclon Cubano - Echale Salsa
-03. Damian/Los Desiguales/El Principe - Eso Es Bola (Salsa Version)
-04. El Pequeno De La Salsa - Te Quiero(   Читать дальше...   )Жанр: Salsa, Bachata, Kizomba, OtherПродолжительность: 04:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFF8390FBDB78AF095553B7C757291351765EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219029   (717402) от 12.04.2018
-
-VA - 50 Big Bachata Romantica Hits (2018) [MP3|256-320 Kbps] <Bachata, Reggaeton, Kuduro, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grupo Extra - Lejos de Ti
-02. Oub LCK - Alma Desnuda
-03. Grupo Extra - Te Vas
-04. ROMY/El Chacal/Dj Conds - Sin Tus Besos(   Читать дальше...   )Жанр: Bachata, Reggaeton, Kuduro, OtherПродолжительность: 03:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551A9D88C614B2AA51DA464DC7FA31D1246010C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

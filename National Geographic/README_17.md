@@ -1,3 +1,107 @@
+###  Публикация: 844364   (641596) от 09.07.2016
+
+NG. Тайны истории. Леонардо да Винчи / Mystery Files. Leonardo Da Vinci (2009) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не позволяйте этой загадке помешать Вам уснуть, может быть, она ни когда не будет разгадана, а вопросы останутся без ответов. National Geographic Channel берется за величайшие неразгаданные тайны мира, пытаясь узнать, что стоит за легендами, которые веками вдохновляли, интриговали и ставили в тупик человечество!В этом выпуске: Он один из самых известных гениев всех времен, образец универсального человека, художник и изобретатель чьи идеи опередили свое время. Танк, скафандр, вертолет. Однако некоторые мало известные факты говорят о том, что открытия Леонардо были далеко не такими революционными как принято считать. Правда ли, что Леонардо, эта суперзвезда ренессанса, всего лишь шел в ногу (   Читать дальше...   )Жанр: Документальный, история, загадкиПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CC02385BC442FB6D89C4A5745AD592E0C53682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227920   (641069) от 29.05.2018
+
+NGW: Скала леопардов / The Leopard Rocks (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леопарды, обитающие в удаленном от людей, малоизвестном регионе Раджастхан, порой демонстрируют примеры удивительного поведения. Мать по кличке Ниилам защищает своих троих детенышей от бродячих взрослых самцов.Производство: Австрия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Харальд ПокисерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C409F6AF8E2FEED583E706F009872FC5EF3572F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227946   (640934) от 29.05.2018
+
+NGW: Дикие земли Европы / Europe's Great Wilderness (2015) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европа - небольшой по сравнению с другими континент, но его природа очень разнообразна. Например, перепад температур в разных частях Европы составляет более 80 градусов.Производство: Великобритания, Off the Fence for Blue Ant Media and National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Эллисон БинПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3х~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586E8DAB6033A5AE541D1D338427D50903A02F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293008   (640639) от 01.04.2019
+
+NG. Фри-соло / Free Solo (2018) HDTVRip [MVO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о подвиге Алекса Хоннольда — первого человека, который без какой-либо помощи поднялся на вертикальную 3000-футовую гору, известную как «Эль-Капитан», расположенную в национальном парке Йосемити.Производство: США, Itinerant Films, Little Monster Films, National GeographicЖанр: Документальный, СпортПеревод: Многоголосый закадровый, профессиональный (Велес)Субтитры: ОтсутствуютПродолжительность: 01:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF941C7A8F1F710DD12CBDDE3CB11CCD0B990F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907157   (639533) от 11.06.2015
 
 National Geographic. Смертельный бой динозавров / Dino Death Match (2015) SATRip
@@ -6,7 +110,7 @@ National Geographic. Смертельный бой динозавров / Dino D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639533.jpg" />
+  <img src="Z:/picture/008/save_picture_639533.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Тираннозавр: чемпион по выживанию / T.Rex: Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639023.jpg" />
+  <img src="Z:/picture/008/save_picture_639023.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: С точки зрения науки. Экспедиция "Виски" / N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638985.jpg" />
+  <img src="Z:/picture/008/save_picture_638985.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Африканские охотники / Africa's Hunters. (2018) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638833.jpg" />
+  <img src="Z:/picture/008/save_picture_638833.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG. В поисках правды / The Truth Behind (2011) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637433.jpg" />
+  <img src="Z:/picture/008/save_picture_637433.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Крупные рыбы Зэба: огромный сом / Monster Fish. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637380.jpg" />
+  <img src="Z:/picture/008/save_picture_637380.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637266.jpg" />
+  <img src="Z:/picture/008/save_picture_637266.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG. Фри-соло / Free Solo (2018) BDRemux [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636970.jpg" />
+  <img src="Z:/picture/008/save_picture_636970.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG: Испытайте свой мозг / Test Your Brain (Brain Games, Teste d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636693.jpg" />
+  <img src="Z:/picture/008/save_picture_636693.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NG: Нефтяное загрязнение столетия / Oil Spill of the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635371.jpg" />
+  <img src="Z:/picture/008/save_picture_635371.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NG: Осушить океан: глубокое погружение. Шторм
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635360.jpg" />
+  <img src="Z:/picture/008/save_picture_635360.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NGW: Прирождённые монстры. Тигровая змея / Natura
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634016.jpg" />
+  <img src="Z:/picture/008/save_picture_634016.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NGW: Прирождённые монстры. Бразильский паук / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633923.jpg" />
+  <img src="Z:/picture/008/save_picture_633923.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ National Geographic: Острова. Исландия / Islands. Island (2011) S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632163.jpg" />
+  <img src="Z:/picture/008/save_picture_632163.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ National Geographic: Острова. Занзибар / Islands. Zanzibar (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632158.jpg" />
+  <img src="Z:/picture/008/save_picture_632158.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ National Geographic: Острова. Куба / Islands. Cuba (2011) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632155.jpg" />
+  <img src="Z:/picture/008/save_picture_632155.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ NG. Секреты Шамбалы. В поисках священных пеще
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631724.jpg" />
+  <img src="Z:/picture/008/save_picture_631724.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ NGW: Дикая Турция / Turkey's Harsh Paradise (2015) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629964.jpg" />
+  <img src="Z:/picture/008/save_picture_629964.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ NGW: Гигантские плотоядные летучие мыши / Giant C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629959.jpg" />
+  <img src="Z:/picture/008/save_picture_629959.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ NG. Дикая Канада: У кромки льда / Wild Canada. Ice Edge (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629623.jpg" />
+  <img src="Z:/picture/008/save_picture_629623.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ NG. Тайны древности. Секретный код соборов / An
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_628420.jpg" />
+  <img src="Z:/picture/005/save_picture_628420.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NG. Войны насекомых / Insect Wars (2005) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628404.jpg" />
+  <img src="Z:/picture/008/save_picture_628404.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ NG. Войны насекомых / Insect Wars (2005) HDTVRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE0EAE82FEF6208376CAFCA36E4F5C418829F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035317   (628186) от 16.07.2016
-
-Суперсооружения Третьего рейха - 3 / Nazi Megastructures (Megastructures: Nazi Mega Weapons) - 3 (2016) HDTVRip [H.264/720p-LQ] (Сезон 3, Серии: 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628186.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стремлении к мировому господству нацисты построили некоторые из самых амбициозных и прогрессивных образцов боевой техники, а также разработали самые злодейские технологии в истории; создали продвинутые машины террора, огромные оборонительные системы и оружие массового уничтожения, чтобы завоевать континент и выиграть войну. Этот сериал о Второй Мировой войне рассказывает (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, война, историяПеревод: ДублированныйПродолжительность: 6 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8080377E22B8178BE4E576A3F7D73F25B1D766A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229371   (628077) от 05.06.2018
-
-NGW: Крупные рыбы Зэба: нашествие акул-молотов / Monster Fish. Zeb's Big Fish (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зеб Хоган направляется в тропические Багамы, чтобы отважно исследовать прибрежные воды этого архипелага, в которых обитают одни из крупнейших в мире популяций акул.Производство: Сингапур, Infocus Asia, LLC for National GeographicЖанр: Документальный, экстрим, рыбалкаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E261F253332193F0119D95978F7AC69E70AAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229377   (628065) от 05.06.2018
-
-NGW: Империя гризли / Grizzly Empire (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628065.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме запечатлена жизнь гризли, огромных медведей, чья популяция находится под угрозой вымирания.Производство: США, National Geographic StudiosЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A3D109A9582AA845088123C4865D01C1468148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229249   (627677) от 05.06.2018
-
-NG: Неизвестная планета Земля / One Strange Rock (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычайная история Земли и почему она необыкновенно наполнена жизнью в значительной части неизвестной, но суровой космической арены; астронавты рассказывают историю Земли с помощью уникальной перспективы.Производство: США, Nutopia, Protozoa PicturesЖанр: Документальный, познавательный, научно-популярныйРежиссер: Грэхэм Бут, Нат Шарман, Ник Шулингин-Иордания, Ник Стэйси, Элис Джонс, Кристофер РайлиПеревод: Одноголосый профессиональный (Велес), VO D1 (D1production)Субтитры: отсутствуютПродолжительность: серии x ~00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20FA292A747F27B71B0F115F8022829CE4E9EF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

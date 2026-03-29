@@ -1,3 +1,29 @@
+###  Публикация: 1111352   (848450) от 05.03.2017
+
+Военная приемка. Полигон Кадамовскй гарант безопасности (05.03.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848450.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске программы «Военная приёмка» мы расскажем вам о полигоне Кадамовский. Если вы думаете, что это просто поле, в котором будут стрелять по мишеням – это не так! Размах строительства – как у целого города, причем его собираются построить за рекордные сроки, работы ведутся круглосуточно. Казармы, ангары для техники, технические строения… Количество новых (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ДокументальныйРежиссер: Александр ШильниковПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84295AD99088FD8977BFEE7488411A9E1090953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499824   (846036) от 03.10.2021
 
 Военная приемка. С-70. Беспилотник «Охотник». Часть 1 (03.10.2021) WEBRip  [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846036.jpg" />
+  <img src="Z:/picture/008/save_picture_846036.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844414.jpg" />
+  <img src="Z:/picture/008/save_picture_844414.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844051.jpg" />
+  <img src="Z:/picture/008/save_picture_844051.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835089.jpg" />
+  <img src="Z:/picture/008/save_picture_835089.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834787.jpg" />
+  <img src="Z:/picture/008/save_picture_834787.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833049.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832528.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821234.jpg" />
+  <img src="Z:/picture/008/save_picture_821234.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817127.jpg" />
+  <img src="Z:/picture/008/save_picture_817127.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816768.jpg" />
+  <img src="Z:/picture/008/save_picture_816768.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814912.jpg" />
+  <img src="Z:/picture/008/save_picture_814912.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814901.jpg" />
+  <img src="Z:/picture/008/save_picture_814901.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814626.jpg" />
+  <img src="Z:/picture/008/save_picture_814626.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814575.jpg" />
+  <img src="Z:/picture/008/save_picture_814575.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813580.jpg" />
+  <img src="Z:/picture/008/save_picture_813580.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811631.jpg" />
+  <img src="Z:/picture/008/save_picture_811631.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805363.jpg" />
+  <img src="Z:/picture/008/save_picture_805363.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804097.jpg" />
+  <img src="Z:/picture/008/save_picture_804097.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803283.jpg" />
+  <img src="Z:/picture/008/save_picture_803283.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797621.jpg" />
+  <img src="Z:/picture/008/save_picture_797621.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795582.jpg" />
+  <img src="Z:/picture/008/save_picture_795582.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794797.jpg" />
+  <img src="Z:/picture/008/save_picture_794797.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793297.jpg" />
+  <img src="Z:/picture/008/save_picture_793297.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792337.jpg" />
+  <img src="Z:/picture/008/save_picture_792337.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790929.jpg" />
+  <img src="Z:/picture/008/save_picture_790929.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30F41730582F4E26E2C673E0F1B7E2F16D2F39DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202208   (790422) от 28.01.2018
-
-Военная приемка. 22160 Первый. Русский. Противопиратский. (28.01.2018) SATRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой этого выпуска – патрульный корвет проекта 22160. Первый в истории российского ВМФ корабль, который был создан для борьбы с пиратами. Это значит, что впервые на флоте появляется корабль, специально разработанный под задачи боевых водолазов и морской пехоты. «Военная приемка» покажет вам эксклюзивные кадры строительства нового корвета и примет участие (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ДокументальныйРежиссер: Александр ШильниковПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395907E488C3C15C788F75ED4F02AE31E038020B
 ```
 
 https://mybot314.ru/tekegram_catalog/

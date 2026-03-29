@@ -1,3 +1,29 @@
+###  Публикация: 1785466   (24514) от 16.03.2025
+
+Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершенно новая игра в серии! Самая безумная в мире курица возвращается на гоночную трассу! Безумные персонажи, крутые трассы и карты и сумасшедшие предметы ждут вас в глобальной сетевой борьбе за первое место! Запрыгивайте в карт и отправляйтесь на самые быстрые куриные гонки в истории. Эта абсолютная соревновательная игра предлагает совершенно новый гоночный опыт (   Читать дальше...   )Тип издания: RepackРазработчик: Korion InteractiveЖанр: Экшены, ГонкиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9593AC88C6A86E9F55B23B051407979A82A2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785682   (24353) от 17.03.2025
 
 Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
@@ -6,7 +32,7 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24353.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24304.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24302.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24210.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23993.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23916.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23899.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23792.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.3.21) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23760.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ The LEGO NINJAGO Movie Video Game (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23749.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Wonder Ball (2024) [Ru/Multi] (1.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23724.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Lumencraft (2022) [Ru/Multi] (9257) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23699.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1092002) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23626.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23563.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Zombieville USA 3D (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23468.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23346.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23146.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23041.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22963.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Which Way Up: Galaxy Games (2025) [Ru/Multi] (1.0.0+e1d15/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22802.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Tekken 8 (2024) [Ru/Multi] (2.00.01/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22757.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22667.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22622.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22540.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ My Friend Pedro (2019) [Ru/Multi] (1.03) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22513.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A86EA61E4F29FDCD8799C367DEF86DE848A855C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789527   (22499) от 04.04.2025
-
-Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения в Paleo Pines переносят геймеров на территорию острова, что населен милыми динозаврами. Пользователи будут управлять протагонистом, передвигаясь по красочным локациям мира, взаимодействуя с доисторическими животными. Получится создать собственную ферму, чтобы выращивать и развивать там своих ездовых ящеров. На динозавриках выйдет кататься верхом, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Italic PigЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF670C5CEF241742043CD2534F83F51AEBC5E67
 ```
 
 https://mybot314.ru/tekegram_catalog/

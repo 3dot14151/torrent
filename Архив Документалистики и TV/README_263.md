@@ -1,3 +1,159 @@
+###  Публикация: 406420   (366518) от 05.11.2011
+
+Замбези: Источник жизни / The Zambezi: Source Of Life (2010) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замбези - четвертая по протяженности река в Африке, ее длина составляет более 2650 км. И для животных, и для людей она является источником жизниЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9578D3A950480F8C4FDCC967BCB5E28B0D7C91EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576404   (366456) от 16.11.2012
+
+В поисках племен охотников.  Охота ради выживания / Man Hunt. Kill To Survive. Серия №2 (Охота в Калахари) (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Племя намал, обитающее на острове Танна, просит у вулкана удачи перед охотой на кабанов, которые служат им как пищей, так и "деньгами".Жанр: ДокументальныйПродюсер: Nicola HammondПеревод: Профессиональный (одноголосый, закадровый)Продолжительность: ~ 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE29047FEEDA745C6B34345A2160A91A8E5E3DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576304   (366436) от 16.11.2012
+
+NG:В поисках племен охотников.  Охота ради выживания / Man Hunt. Kill To Survive. Серия №1 (Острозубые кочевники) (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Племя намал, обитающее на острове Танна, просит у вулкана удачи перед охотой на кабанов, которые служат им как пищей, так и "деньгами".Жанр: ДокументальныйПродюсер: Nicola HammondПеревод: Профессиональный (одноголосый, закадровый)Продолжительность: ~ 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9599407BD80625296A9DC6F61E994AF3C6903CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950649   (366343) от 28.10.2015
+
+Футбол. Чемпионат Италии 2015-16. Серия А. 9 тур. Фиорентина - Рома (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Италии 2015-16. Серия А. 9 тур. Фиорентина - Рома.Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:55:34 + 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37394286F29BD1C60DD9EA3E94FA22E9060595D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950646   (366341) от 28.10.2015
+
+Футбол. Чемпионат Испании 2015-16. Liga BBVA. 9 тур. Барселона - Эйбар (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Испании 2015-16. Liga BBVA. 9 тур. Барселона - Эйбар.Телекомпания: НТВ+ Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:52:19 + 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9152EE19F4EEFF573AB3C2BDE6910B82A87EA86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950651   (366339) от 28.10.2015
+
+Футбол. Чемпионат Франции 2015-2016. Ligue 1. 11 тур. Лилль – Олимпик Марсель (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Франции 2015-2016. Ligue 1. 11 тур. Лилль – Олимпик Марсель.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:48:49 + 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB93CCF0C9BB3BD2D4D5F64F8DA26AC4DC99DFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950632   (366198) от 28.10.2015
 
 Футбол. Чемпионат России 2015-2016. РФПЛ. 13 тур. Терек - ЦСКА (2015) IPTV [AVC/576p]
@@ -6,7 +162,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366198.jpg" />
+  <img src="Z:/picture/008/save_picture_366198.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366197.jpg" />
+  <img src="Z:/picture/008/save_picture_366197.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366196.jpg" />
+  <img src="Z:/picture/008/save_picture_366196.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366194.jpg" />
+  <img src="Z:/picture/008/save_picture_366194.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366184.jpg" />
+  <img src="Z:/picture/008/save_picture_366184.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366032.jpg" />
+  <img src="Z:/picture/008/save_picture_366032.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365998.jpg" />
+  <img src="Z:/picture/008/save_picture_365998.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365990.jpg" />
+  <img src="Z:/picture/008/save_picture_365990.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365847.jpg" />
+  <img src="Z:/picture/008/save_picture_365847.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365811.jpg" />
+  <img src="Z:/picture/008/save_picture_365811.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ MotoGP. Этап 17/18. Гран-При Малайзии. Гонка (2015) HDTV
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365501.jpg" />
+  <img src="Z:/picture/008/save_picture_365501.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ NHL 2017-2018. Regular Season. On The Fly 10.10.2017 (11.10.2017) HDTVRip [H.264
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365484.jpg" />
+  <img src="Z:/picture/008/save_picture_365484.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365178.jpg" />
+  <img src="Z:/picture/008/save_picture_365178.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364760.jpg" />
+  <img src="Z:/picture/008/save_picture_364760.jpg" />
 </div>
 
 
@@ -378,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364759.jpg" />
+  <img src="Z:/picture/008/save_picture_364759.jpg" />
 </div>
 
 
@@ -406,7 +562,7 @@ DV: (BBC) История математики / The Story of Maths (2008) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364699.jpg" />
+  <img src="Z:/picture/008/save_picture_364699.jpg" />
 </div>
 
 
@@ -432,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364585.jpg" />
+  <img src="Z:/picture/008/save_picture_364585.jpg" />
 </div>
 
 
@@ -458,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364087.jpg" />
+  <img src="Z:/picture/008/save_picture_364087.jpg" />
 </div>
 
 
@@ -484,7 +640,7 @@ NG:В поисках племен охотников.  Охота ради вы�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363936.jpg" />
+  <img src="Z:/picture/008/save_picture_363936.jpg" />
 </div>
 
 
@@ -510,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363898.jpg" />
+  <img src="Z:/picture/008/save_picture_363898.jpg" />
 </div>
 
 
@@ -521,162 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B11161F47B06305A294022C39E336A2FCC6E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951202   (363897) от 29.10.2015
-
-Обзор. Чемпионат России 2015-16. 13 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата России 2015-2016 года.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9529252B6B8D151F166A90C58D580E5A928D63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951193   (363896) от 29.10.2015
-
-Обзор. Чемпионат Германии 2015-16. 10 тур. Обзор тура. (2015) HDTV [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата Германии 2015-2016 года.Телекомпания: Eurosport 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFAA61F8A9A0CC276AD50C2E8338754F679A7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951186   (363895) от 29.10.2015
-
-Обзор. Чемпионат Италии 2015-16. 9 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата Италии 2015-2016 годаТелекомпания: НТВ+ Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF9FFC6ADDCCCB05160928E90A819AB5B219465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951214   (363892) от 29.10.2015
-
-Обзор. Чемпионат Англии 2015-16. 10 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата Англии 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF23A056F7ABBD34A3D91105C22DE8F96629F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951211   (363890) от 29.10.2015
-
-90 минут плюс. Итоги 13 тура. (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363890.jpg" />
-</div>
-
-
-###  Подробнее
-
-90 минут лучшая аналитическая программа о российском футболе. В течение полутора-двух-трёх часов рассказывается о самых интересных и актуальных вопросах нашего футбола. Каждую неделю Георгий Черданцев приглашает к себе в студию гостей, где обсуждает с ними самые заметные явления в футболе, произошедшие за неделю.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAD15968FF299B4EDE4E335BFB9AD78D53299F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951219   (363888) от 29.10.2015
-
-Обзор. Чемпионат Испании 2015-16. 9 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата Испании 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A850E0D6B15EE7B5978D5993E0605B6C20A3B549
 ```
 
 https://mybot314.ru/tekegram_catalog/

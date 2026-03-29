@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326417.jpg" />
+  <img src="Z:/picture/008/save_picture_326417.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326409.jpg" />
+  <img src="Z:/picture/008/save_picture_326409.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325498.jpg" />
+  <img src="Z:/picture/008/save_picture_325498.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325238.jpg" />
+  <img src="Z:/picture/008/save_picture_325238.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325199.jpg" />
+  <img src="Z:/picture/008/save_picture_325199.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324834.jpg" />
+  <img src="Z:/picture/008/save_picture_324834.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324717.jpg" />
+  <img src="Z:/picture/008/save_picture_324717.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ The End Is Coming - Ультрадобро (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324692.jpg" />
+  <img src="Z:/picture/008/save_picture_324692.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324629.jpg" />
+  <img src="Z:/picture/008/save_picture_324629.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323632.jpg" />
+  <img src="Z:/picture/008/save_picture_323632.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323575.jpg" />
+  <img src="Z:/picture/008/save_picture_323575.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323486.jpg" />
+  <img src="Z:/picture/008/save_picture_323486.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323472.jpg" />
+  <img src="Z:/picture/008/save_picture_323472.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323351.jpg" />
+  <img src="Z:/picture/008/save_picture_323351.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ UNBLOCKERS - Бытие (2020) EP [FLAC|Lossless|WEB-DL|tracks] <HardCore-Punk, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322284.jpg" />
+  <img src="Z:/picture/008/save_picture_322284.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Project NT - Дневник Постороннего (Истории Темны�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321788.jpg" />
+  <img src="Z:/picture/008/save_picture_321788.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318928.jpg" />
+  <img src="Z:/picture/008/save_picture_318928.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317560.jpg" />
+  <img src="Z:/picture/008/save_picture_317560.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317307.jpg" />
+  <img src="Z:/picture/008/save_picture_317307.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Beer Bear - Мёд (Honey) (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316784.jpg" />
+  <img src="Z:/picture/008/save_picture_316784.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316028.jpg" />
+  <img src="Z:/picture/008/save_picture_316028.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315440.jpg" />
+  <img src="Z:/picture/008/save_picture_315440.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314912.jpg" />
+  <img src="Z:/picture/008/save_picture_314912.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Jhonny Box - Proxima (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314545.jpg" />
+  <img src="Z:/picture/008/save_picture_314545.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Midnight Spirit - Emptiness Outside (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314319.jpg" />
+  <img src="Z:/picture/008/save_picture_314319.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314099.jpg" />
+  <img src="Z:/picture/008/save_picture_314099.jpg" />
 </div>
 
 

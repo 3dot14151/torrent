@@ -1,3 +1,81 @@
+###  Публикация: 545915   (478129) от 13.09.2012
+
+Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Круглосуточный скальпер для 4 пар (EURUSD, GBPUSD, USDJPY, USDCHF),таймфрейм М15.Название программы: Wall Street RоВоt - форекс советник для МТ4/МТ5Язык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243878   (477827) от 03.09.2018
+
+PowerPlan v3.2e & Trackpad++ v3.5b [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Включает в себя набор из двух программ PowerPlan и Trackpad++. Первая, PowerPlan, продлит время работы MacBook в Windows - изменяет схемы питания. Вторая, Trackpad++, добавляет жесты трекпада из Mac OS в Windows.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C78D05B4DA8CD0555D81A8E778888B77AB422A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570680   (440211) от 18.08.2022
+
+TransTrade 2.9 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное программное обеспечение, разработанное специально для автоматизации транспортных предприятий. Оно позволяет решать повседневные задачи логистических компаний, деятельность которых связана с перевозками, и производителей, имеющих собственный автопарк. Эффективная автоматизация транспортных предприятий позволяет наладить процесс оказания транспортных услуг, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA760C78EC552EBD430B40819D987CA60826EDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411498   (425068) от 26.09.2020
 
 KinoScreen 1.1 + Portable [Ru/En]
@@ -6,7 +84,7 @@ KinoScreen 1.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425068.jpg" />
+  <img src="Z:/picture/008/save_picture_425068.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384047.jpg" />
+  <img src="Z:/picture/008/save_picture_384047.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378869.jpg" />
+  <img src="Z:/picture/008/save_picture_378869.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ FPS Monitor 5440 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363278.jpg" />
+  <img src="Z:/picture/008/save_picture_363278.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Ripple Screensaver 3.2 RePack by вовава [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344130.jpg" />
+  <img src="Z:/picture/008/save_picture_344130.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296498.jpg" />
+  <img src="Z:/picture/008/save_picture_296498.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Sotis 3.11 (07.12.2016) [Multi/Ru] (Обновляемая)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279802.jpg" />
+  <img src="Z:/picture/008/save_picture_279802.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Keyboard Leds 2.7.1 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278276.jpg" />
+  <img src="Z:/picture/008/save_picture_278276.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Clickermann 4.13.014 Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277284.jpg" />
+  <img src="Z:/picture/008/save_picture_277284.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273177.jpg" />
+  <img src="Z:/picture/008/save_picture_273177.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Windows Style Builder (aka Vista Win7 Style Builder) 1.5.6.3 Beta Portable by Xp
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267494.jpg" />
+  <img src="Z:/picture/008/save_picture_267494.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262515.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ AIO Runtimes 2023 v.1.1 ( MS Visual C++ MS DirectX + DLL/OCX + Trusted Root CA P
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254656.jpg" />
+  <img src="Z:/picture/005/save_picture_254656.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ EarthView 7.13.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252575.jpg" />
+  <img src="Z:/picture/005/save_picture_252575.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250677.jpg" />
+  <img src="Z:/picture/004/save_picture_250677.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ AltSnap 1.66 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250625.jpg" />
+  <img src="Z:/picture/004/save_picture_250625.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248680.jpg" />
+  <img src="Z:/picture/005/save_picture_248680.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ AMP Font Viewer 3.86 + Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244050.jpg" />
+  <img src="Z:/picture/004/save_picture_244050.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ PeStudio 9.43 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232967.jpg" />
+  <img src="Z:/picture/005/save_picture_232967.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ GameMaker 2022.8.1.37 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232958.jpg" />
+  <img src="Z:/picture/005/save_picture_232958.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ Stardock DeskScapes 8.51 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217279.jpg" />
+  <img src="Z:/picture/005/save_picture_217279.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ Atmosphere Deluxe 7.1 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208715.jpg" />
+  <img src="Z:/picture/005/save_picture_208715.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ Digimizer 6.3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205999.jpg" />
 </div>
 
 
@@ -602,85 +680,6 @@ Digimizer - это простой в использовании и гибкий 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E988991886F53C11A4A9E3ED431B10515E652D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586166   (204733) от 26.10.2022
-
-Windows DesktopPack 22.10 [Multi/Ru]  (Авторская раздача)
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это набор программного обеспечения (офисный пакет, графические и музыкальные редакторы, антивирусы, архиваторы, интернет-браузеры, программы верстки и дизайна и другие) для MS Windows, которые имеют открытый исходный код или бесплатны для распространения.
-В его состав входят программы для решения широкого круга задач, являющихся свободными функциональными аналогами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF782504F2142C574A388836BE4514D1BD6E18C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630396   (199143) от 30.04.2023
-
-EarthView 7.7.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199143.jpg" />
-</div>
-
-
-###  Подробнее
-
-EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822626B82D8531407C02C79DC8C9CF25BF5C5A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074519   (198308) от 16.05.2023
-
-Fujikura Data connection 12 series 1.0.3.0 + Manual [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный образ диска для оптического сварочного аппарата Fujikura 12S и 12R. Необходимое ПО для снятия показаний о качестве произведенных сварок на аппарате, сохранения или восстановления ранее сохраненных настроек, и т. д, а так же для автоматического обновления микропрограммы (прошивки) аппарата. Набор инструкций, драйверов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481C5468F00D032E364F6D975A4E07E64714AA9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

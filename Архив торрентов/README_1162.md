@@ -6,7 +6,7 @@ Wondershare Filmora 9.0.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787874.jpg" />
+  <img src="Z:/picture/008/save_picture_787874.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dism++ 10.1.1000.80B Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787869.jpg" />
+  <img src="Z:/picture/008/save_picture_787869.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AAct Network 1.1.7 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787864.jpg" />
+  <img src="Z:/picture/008/save_picture_787864.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ KMSAuto Lite 1.5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787863.jpg" />
+  <img src="Z:/picture/008/save_picture_787863.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ K-Lite Codec Pack Update 16.5.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787854.jpg" />
+  <img src="Z:/picture/008/save_picture_787854.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinTools.net Premium 21.11 RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787852.jpg" />
+  <img src="Z:/picture/008/save_picture_787852.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Keka 1.2.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787850.jpg" />
+  <img src="Z:/picture/008/save_picture_787850.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ GeoGebra 6.0.676.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787849.jpg" />
+  <img src="Z:/picture/008/save_picture_787849.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Magnet 2.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787845.jpg" />
+  <img src="Z:/picture/008/save_picture_787845.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Export for iTunes 2.5.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787844.jpg" />
+  <img src="Z:/picture/008/save_picture_787844.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Q-Dir 10.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787843.jpg" />
+  <img src="Z:/picture/008/save_picture_787843.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ HDCleaner 2.011 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787838.jpg" />
+  <img src="Z:/picture/008/save_picture_787838.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Waterfox Current G4.0.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787837.jpg" />
+  <img src="Z:/picture/008/save_picture_787837.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PC Cleaner Pro 8.2.0.1 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787836.jpg" />
+  <img src="Z:/picture/008/save_picture_787836.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787833.jpg" />
+  <img src="Z:/picture/008/save_picture_787833.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ StartAllBack 3.1.0 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787829.jpg" />
+  <img src="Z:/picture/008/save_picture_787829.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ashampoo WinOptimizer 19.00.20 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787827.jpg" />
+  <img src="Z:/picture/008/save_picture_787827.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Bootstrap Studio 5.8.6 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787826.jpg" />
+  <img src="Z:/picture/008/save_picture_787826.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2199 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787824.jpg" />
+  <img src="Z:/picture/008/save_picture_787824.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Pixelmator Pro 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787823.jpg" />
+  <img src="Z:/picture/008/save_picture_787823.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ RAM Saver Professional 21.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787822.jpg" />
+  <img src="Z:/picture/008/save_picture_787822.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Opera 81.0.4196.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787821.jpg" />
+  <img src="Z:/picture/008/save_picture_787821.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WinTools.net Premium 21.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787815.jpg" />
+  <img src="Z:/picture/008/save_picture_787815.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Wireshark 3.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787814.jpg" />
+  <img src="Z:/picture/008/save_picture_787814.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ ABBYY Lingvo European Dictionary 1.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787812.jpg" />
+  <img src="Z:/picture/008/save_picture_787812.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Topaz Gigapixel AI 5.7.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787807.jpg" />
+  <img src="Z:/picture/008/save_picture_787807.jpg" />
 </div>
 
 

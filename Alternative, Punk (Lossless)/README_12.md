@@ -6,7 +6,7 @@ Primal Scream - Chaosmosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826992.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Knight Area - Heaven And Beyond (2017) [FLAC|Lossless|image + .cue] <Neo-Prog, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826652.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Spoon - Hot Thoughts (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826556.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826504.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Weezer - Weezer (White Album) (2016) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825392.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Brazzaville - The Oceans Of Ganymede (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825197.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Royal Republic - Weekend Man (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825155.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825154.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ EOB - Earth (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822775.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jazmin Bean - Worldwide Torture (2020), 2021, Aswang Birthday Cake [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819490.jpg" />
+  <img src="Z:/picture/008/save_picture_819490.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ David Byrne - Grown Backwards (2004) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819268.jpg" />
+  <img src="Z:/picture/008/save_picture_819268.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Octopus Project - Memory Mirror (2017) [FLAC|Lossless|tracks + .cue] <Electr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819070.jpg" />
+  <img src="Z:/picture/008/save_picture_819070.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Reamonn - Eleven (The Ultimate Best Of Reamonn) (2010) Compilation, 2CD [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818786.jpg" />
+  <img src="Z:/picture/008/save_picture_818786.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Coldplay - Music of the Spheres (2021) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817635.jpg" />
+  <img src="Z:/picture/008/save_picture_817635.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bush - The Best Of 94 - 99 (1999) Compilation, 2CD [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816901.jpg" />
+  <img src="Z:/picture/008/save_picture_816901.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Greenhornes - 4 Albums, 2 EP, 1 Compilation (1999-2010) [FLAC|Lossless]<Clas
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816616.jpg" />
+  <img src="Z:/picture/008/save_picture_816616.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ flyingdeadman - The night (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Instr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816132.jpg" />
+  <img src="Z:/picture/008/save_picture_816132.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Otherwise - Sleeping Lions (2017) [FLAC|Lossless|tracks] <Alternative Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813924.jpg" />
+  <img src="Z:/picture/008/save_picture_813924.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Perfume Genius - Set My Heart On Fire Immediately (2020) [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813751.jpg" />
+  <img src="Z:/picture/008/save_picture_813751.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Linkin Park - Hybrid Theory (2002) 2CD Special Edition [FLAC|Lossless]<Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812666.jpg" />
+  <img src="Z:/picture/008/save_picture_812666.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Snapped Ankles - Come Play the Trees (2017) [FLAC|Lossless|tracks + .cue] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812018.jpg" />
+  <img src="Z:/picture/008/save_picture_812018.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Placebo - This Picture (2003) Australian Exclusive EP [FLAC|Lossless|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811638.jpg" />
+  <img src="Z:/picture/008/save_picture_811638.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Creux Lies - Goodbye Divine (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810426.jpg" />
+  <img src="Z:/picture/008/save_picture_810426.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ New Politics - Lost in Translation (2017) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808400.jpg" />
+  <img src="Z:/picture/008/save_picture_808400.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ B-Movie - The Age Of Illusion (2013) [FLAC|Lossless|image + .cue] <Electronic Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807334.jpg" />
+  <img src="Z:/picture/008/save_picture_807334.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Black Rebel Motorcycle Club - Wrong Creatures (2018) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806361.jpg" />
+  <img src="Z:/picture/008/save_picture_806361.jpg" />
 </div>
 
 

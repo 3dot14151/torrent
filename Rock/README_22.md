@@ -1,3 +1,32 @@
+###  Публикация: 1511022   (789726) от 19.11.2021
+
+Без Обмежень / БеZ Обмежень / Without Limits - Вільні люди (2021) [MP3|320 kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Забрала ніч (02:50)
+02. Вільні люди (02:56)
+03. ЛітоКамон (03:00)
+04. Малий (03:20)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BCEE6D2C1B8F80B4123326ADC20E56018B597A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511148   (789373) от 20.11.2021
 
 MILKOVSKYI (Женя Мильковский) - Вернуться домой (2021) [MP3|320 Kbps] <Punk, Alternative, Rock>
@@ -6,7 +35,7 @@ MILKOVSKYI (Женя Мильковский) - Вернуться домой (20
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789373.jpg" />
+  <img src="Z:/picture/008/save_picture_789373.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Animals Reimagined - A Tribute to Pink Floyd (2021) [MP3|320 Kbps] <Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789359.jpg" />
+  <img src="Z:/picture/008/save_picture_789359.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Terry Brooks & Strange - No Exit (1984) Reissue, 2011, Austria Record Finder [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789091.jpg" />
+  <img src="Z:/picture/008/save_picture_789091.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Shakin' Stevens And The Sunsets - Rockin' And Shakin' (1972) Fontana, 6426 040, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789084.jpg" />
+  <img src="Z:/picture/008/save_picture_789084.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ King Crimson - The Complete 1969 Recordings (2020) Boxset, 20xCD [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787338.jpg" />
+  <img src="Z:/picture/008/save_picture_787338.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - A Fair Forgery Of Pink Floyd (2003) 2CD [MP3|320 Kbps] <Progressive Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787204.jpg" />
+  <img src="Z:/picture/008/save_picture_787204.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786873.jpg" />
+  <img src="Z:/picture/008/save_picture_786873.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Powderfinger - One Night Lonely (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786595.jpg" />
+  <img src="Z:/picture/008/save_picture_786595.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Rockin' the 90's (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786568.jpg" />
+  <img src="Z:/picture/008/save_picture_786568.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Tibbs - Tribute to Pink Floyd (12 Classic Hits) (2014) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786558.jpg" />
+  <img src="Z:/picture/008/save_picture_786558.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Block Group - A Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786556.jpg" />
+  <img src="Z:/picture/008/save_picture_786556.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Rockopera - Tribute to Pink Floyd The Wall Live Orchestra (2013) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786549.jpg" />
+  <img src="Z:/picture/008/save_picture_786549.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Shoot To Thrill A 2020 Legends Tribute To AC/DC (2020) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786544.jpg" />
+  <img src="Z:/picture/008/save_picture_786544.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Furious Few - Furious Few (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786399.jpg" />
+  <img src="Z:/picture/008/save_picture_786399.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Improved Sound Limited - Improved Sound Limited (1971) Remastered, 2001, Long Ha
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786196.jpg" />
+  <img src="Z:/picture/008/save_picture_786196.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Gifts From Enola - Loyal Eyes Betrayed The Mind (2006) [MP3|320 Kbps] <post-rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786189.jpg" />
+  <img src="Z:/picture/008/save_picture_786189.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Steamhammer - Reflection (1969) Reissue, 2010, Air Mail Archive [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786186.jpg" />
+  <img src="Z:/picture/008/save_picture_786186.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The J. Geils Band - "Live" Full House (1972) Reissue, Atlantic, Rhino Records[MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_786178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_786178.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785961.jpg" />
+  <img src="Z:/picture/008/save_picture_785961.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Showaddywaddy - Step Two (1975) Reissue, 2001,  7T's Records [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785808.jpg" />
+  <img src="Z:/picture/008/save_picture_785808.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Lutz Rahn - Solo Trip (1978) Reissue CD, 2012, MIG [MP3|320 Kbps] <Electronic, K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785443.jpg" />
+  <img src="Z:/picture/008/save_picture_785443.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Rocky Burnette - The Son Of Rock And Roll (1979) LP [MP3|320 Kbps] <Soft Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785412.jpg" />
+  <img src="Z:/picture/008/save_picture_785412.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ dArtagnan - Seit An Seit (2016) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785408.jpg" />
+  <img src="Z:/picture/008/save_picture_785408.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ The Shockwave! - Contact From Space (2014) [MP3|320 Kbps] <Rock, Surf>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785024.jpg" />
+  <img src="Z:/picture/008/save_picture_785024.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ THINK PINK! - A Saucerful Of Pink Floyd Songs .... And A Little Bit More! (2011)
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784758.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ THINK PINK! - A Saucerful Of Pink Floyd Songs .... And A Little Bit More! (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC482F8FD2C6C89FC21B722CE910BC082E583CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389265   (784496) от 10.06.2020
-
-Think Floyd - 2 альбома (1997-2013) [MP3|320 Kbps] <Progressive rock, Art rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Brain Rape
-03. The Circle
-04. If I Had Power(   Читать дальше...   )Жанр: Progressive rock, Art rock, RockПродолжительность: 01:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0144440A12825379A9D4B3201B2F8E550239FFE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

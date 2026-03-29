@@ -1,3 +1,55 @@
+###  Публикация: 472632   (84146) от 24.03.2012
+
+Big Fish Legend / Легенда о большой рыбе (L) [Ru] 2012
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в невероятное путешествие за легендарной рыбой! Докажите, что вы можете выдержать все испытания: что ни ядовитые скорпионы, ни знойное солнце пустыни, ни ледяные пустоши не смогут остановить вас! А ведь все начиналось довольно буднично – нашему герою было скучно одним пасмурным летним днем.Тип издания: ЛицензияРазработчик: Alawar GamesЖанр: Аркада, Казуальная, ПлатформерЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский (официальная версия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA0912B9C6D2D5026B7666656860E9BB578FB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471707   (83777) от 22.03.2012
+
+[RePack] Limbo {1.0r6} [Ru] 2011 l Naitro
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Limbo представляет собой платформер, в котором игроку придется проявить способности к логике. Разработчики выбрали черно-белый стиль нуар в графике, придающий игре загадочности и мистичности. Вы играете за паренька, который ищет свою исчезнувшую сестру. Слово "limbo" происходит от латинского "limbus", что значит "край ада". Именно туда отправляется главный герой игры. Геймплей игры построен на физическом взаимодействии главного героя с окружением (ящики, деревья и так далее) для избегания смертельных ловушек и продвижения вперед по миру игры. По мере прохождения сложность и изощренность ловушек возрастает. Особенностью геймплея является бессмертие главного героя: погибая, мальчик тут же оживает и снова старается обойти ловушку.(   Читать дальше...   )Тип издания: RePackЖанр: Инди, 2D, Аркада, Платформер, ГоловоломкаЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD6E16DC718E0788BE51D87EB1640B14C22ADF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470929   (83328) от 20.03.2012
 
 Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 2009
@@ -6,7 +58,7 @@ Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 200
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83328.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ And Then There Were None / И не осталось никого... (L) [Ru/En] 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83114.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80068.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80049.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79658.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Turtle Odyssey 2 / Одиссея Черепашки 2 (P) [Ru] 2007
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79639.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Space Lines (L) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79566.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1 b5457/dlc) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71039.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Speedollama (2024) [Ru/Multi] (1.3.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69467.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Villages & Dungeons (2025) [Ru/Multi] (10033/dlc) Repack Let'sРlay [Crystal Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63889.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Chambers (2024) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62785.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Repack Decepticon
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62601.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62515.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ The Weird Dream (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62064.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Montezuma's Revenge (2020) [En] (1.32) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61166.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ CD 2: Trap Master (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59827.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.4f0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59461.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ BIOMORPH (2024) [Multi] (1.1.26426) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59220.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Turbo Kid (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59108.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Pepper Grinder (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59006.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Knights & Guns (2024) [Multi] (1.0) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58935.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58844.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58701.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ ReMix (2024) [Ru/Multi] (1.01.07) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58689.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ ReMix погружает вас в мир музыкального хаоса, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5A8E64A5C79F1E1803A1A8EE88A7F001002C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718657   (58458) от 26.04.2024
-
-Pepper Grinder (2024) [Ru/Multi] (392-full_release) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pepper Grinder - это ураганная двухмерная адвенчура, в которой ты отправишься вместе с главной героиней, дерзкой пираткой Пеппер, в захватывающее путешествие. В ее распоряжении – невероятно мощный бурильный аппарат Гриндер, с помощью которого она будет пробивать путь сквозь землю и воду, взрывать механизмы и бросаться в бой с врагами, которые посмели преградить ей (   Читать дальше...   )Тип издания: LicenseРазработчик: Ahr EchЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB333FD31E1C6FB20F21832524827C941810397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719295   (58256) от 28.04.2024
-
-ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58256.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorBlend FX: Desaturation – сплатианцы будут смешивать украденные цвета с миром и сражаться с озлобленным Лордом Эшем. Попросту говоря, в этом мире полно сочных противников, есть лужи краски, необходимо решать цветные головоломки и конечно же пережить саму смерть. Это ничто иное как захватывающее мифическое сочетание сразу нескольких популярных игровых жанров! (   Читать дальше...   )Тип издания: RepackРазработчик: Pi-Dev BulgariaЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, БолгарскийЯзык интерфейса: Английский, Болгарский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0983287831D84BD35DF476BB4FB7F4A152415CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

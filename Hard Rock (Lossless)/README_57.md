@@ -1,3 +1,64 @@
+###  Публикация: 1580892   (328987) от 03.10.2022
+
+Free Spirit - Pale Sister Of Light (2008) Japanese Edition, Reissue, 2009, Avalon Marquee Inc. [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Of A Man
+02. Moonlight Ride
+03. Pale Sister Of Light
+04. Heroes Don't Cry(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7BC540968F26F1C6F032B0721C466CC9B61768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189915   (326042) от 06.10.2022
+
+Lita Ford - 14 albums, 25 CD (1983-2016) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Hard'n'Heavy, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лита Форд, полное имя Кармелита Розанна Форд (Carmelita Rosanna Ford), американская гитаристка, певица и композитор, бывшая лид-гитаристка The Runaways. Получила известность в середине 80-х - начале 90-х годов благодаря своим сольным работам, стиль которых постепенно менялся от хэви-метала до чего-то среднего между хэви-металом, глэмом и мэйнстримом.--------------------------
+
+01. 01. Intro (1:35)
+02. 02. Where Will I Find My Heart Tonight (4:50)(   Читать дальше...   )--------------------------
+
+01. Close My Eyes Forever (Remix) (4:44)
+02. Under The Gun (4:50)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' Heavy, Glam Rock |Продолжительность: 19:11:08 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CF36DF16B58CA348471A1FD2E2C71CA878739E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581983   (325586) от 07.10.2022
 
 The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hard Rock>
@@ -6,7 +67,7 @@ The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325586.jpg" />
+  <img src="Z:/picture/008/save_picture_325586.jpg" />
 </div>
 
 
@@ -35,7 +96,7 @@ Attraction - Get Up 'N' Shake (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324688.jpg" />
+  <img src="Z:/picture/008/save_picture_324688.jpg" />
 </div>
 
 
@@ -64,7 +125,7 @@ Taboo - Taboo (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324590.jpg" />
+  <img src="Z:/picture/008/save_picture_324590.jpg" />
 </div>
 
 
@@ -93,7 +154,7 @@ The Killerhertz - Starburst (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323594.jpg" />
+  <img src="Z:/picture/008/save_picture_323594.jpg" />
 </div>
 
 
@@ -122,7 +183,7 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323573.jpg" />
+  <img src="Z:/picture/008/save_picture_323573.jpg" />
 </div>
 
 
@@ -151,7 +212,7 @@ Octane - Back in the Game (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323487.jpg" />
+  <img src="Z:/picture/008/save_picture_323487.jpg" />
 </div>
 
 
@@ -180,7 +241,7 @@ Purpendicular, Ian Paice - Human Mechanic (2021) [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323477.jpg" />
+  <img src="Z:/picture/008/save_picture_323477.jpg" />
 </div>
 
 
@@ -209,7 +270,7 @@ Statement - Dreams From The Darkest Side (2022) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323167.jpg" />
+  <img src="Z:/picture/008/save_picture_323167.jpg" />
 </div>
 
 
@@ -238,7 +299,7 @@ Whitesnake - The Purple Album (2015) Japanese Edition [FLAC|image + .cue]<Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321492.jpg" />
+  <img src="Z:/picture/008/save_picture_321492.jpg" />
 </div>
 
 
@@ -267,7 +328,7 @@ Deep Purple - A Fire in the Sky (2017) 3CD [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321200.jpg" />
+  <img src="Z:/picture/008/save_picture_321200.jpg" />
 </div>
 
 
@@ -296,7 +357,7 @@ Platinum Overdose - Back For The Thrill (2020) [FLAC|Lossless|image + .cue] <Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319893.jpg" />
+  <img src="Z:/picture/008/save_picture_319893.jpg" />
 </div>
 
 
@@ -325,7 +386,7 @@ Scorpions - World Wide Live (1985) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319581.jpg" />
+  <img src="Z:/picture/008/save_picture_319581.jpg" />
 </div>
 
 
@@ -354,7 +415,7 @@ Magical Heart - Heartsonic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318927.jpg" />
+  <img src="Z:/picture/008/save_picture_318927.jpg" />
 </div>
 
 
@@ -383,7 +444,7 @@ Scorpions - Savage Amusement (1988) 50th Anniversary Deluxe Edition, Remastered,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318867.jpg" />
+  <img src="Z:/picture/008/save_picture_318867.jpg" />
 </div>
 
 
@@ -412,7 +473,7 @@ Bon Jovi - This Left Feels Right (2003) Hybrid SACD [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_317510.jpg" />
+  <img src="Z:/picture/005/save_picture_317510.jpg" />
 </div>
 
 
@@ -447,7 +508,7 @@ Uriah Heep - Totally Driven (2015) 2CD [FLAC|tracks|WEB-DL]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316966.jpg" />
+  <img src="Z:/picture/008/save_picture_316966.jpg" />
 </div>
 
 
@@ -476,7 +537,7 @@ Royal Hell - Second Sight of the Grand Seer (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316939.jpg" />
+  <img src="Z:/picture/008/save_picture_316939.jpg" />
 </div>
 
 
@@ -505,7 +566,7 @@ Midnight Rider - Beyond The Blood Red Horizon (2022) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316934.jpg" />
+  <img src="Z:/picture/008/save_picture_316934.jpg" />
 </div>
 
 
@@ -534,7 +595,7 @@ Rise of Division - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316653.jpg" />
+  <img src="Z:/picture/008/save_picture_316653.jpg" />
 </div>
 
 
@@ -563,7 +624,7 @@ Brighton Rock - Love Machine (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315545.jpg" />
+  <img src="Z:/picture/008/save_picture_315545.jpg" />
 </div>
 
 
@@ -592,7 +653,7 @@ Whitesnake - Love Songs (2020) Remix [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315131.jpg" />
+  <img src="Z:/picture/008/save_picture_315131.jpg" />
 </div>
 
 
@@ -621,7 +682,7 @@ Black Country Communion (featuring Joe Bonamassa) -  4 альбомa (2010-2017)
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314640.jpg" />
+  <img src="Z:/picture/008/save_picture_314640.jpg" />
 </div>
 
 
@@ -650,7 +711,7 @@ Britton - Until The Day We Die (1994) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314272.jpg" />
+  <img src="Z:/picture/008/save_picture_314272.jpg" />
 </div>
 
 
@@ -679,7 +740,7 @@ Tony Carey's Planet P Project - G.O.D.B.O.X. 4CD (2014) [FLAC|Lossless|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313144.jpg" />
+  <img src="Z:/picture/008/save_picture_313144.jpg" />
 </div>
 
 
@@ -693,64 +754,6 @@ Tony Carey's Planet P Project - G.O.D.B.O.X. 4CD (2014) [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:487F9EDEFA0AA07C500D5FCC89C03E96914F057B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959904   (312408) от 26.11.2015
-
-Deep Purple - The Battle Rages On… (1993) [FLAC|tracks+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Battle Rages On (5:57)
-02. Lick It Up (4:00)
-03. Anya (6:32)
-04. Talk About Love (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334CBE5B8E9037C00807BE45F8AB72A4F67E9D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076690   (311888) от 26.11.2016
-
-Sixx: A.M. - Prayers For The Blessed Vol.2 (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbarians 05:11
-02. We Will Not Go Quietly 04:21
-03. Wolf At Your Door 04:10
-04. Maybe It's Time 04:22(   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8285B7C889FCD61828896F68C4C9B4D181BEB5D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

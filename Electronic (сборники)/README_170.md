@@ -1,3 +1,61 @@
+###  Публикация: 1075685   (318821) от 23.11.2016
+
+VA - Ibiza Missing Magic Music (2016) [MP3|320 Kbps] <House, Progressive, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DBSTF & Maurice West - Temple 3:11
+02. Axwell & Shapov - Belong (Extended Mix) 5:30
+03. Quintino & Joey Dale Ft. Channii Monroe - Lights Out (Extended Mix) 3:38
+04. Disco Killerz & Liquid Todd Ft Jimmy Gnecco - Stellar (Aiden Jude Remix) 6:06(   Читать дальше...   )Жанр: House, Progressive, Dance, ClubПродолжительность: 08:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3739A6E7914ECE77CC0AB50B28F5A20DC32A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331887   (318358) от 18.10.2019
+
+VA - Silk Weightlessness: Chill Electronic Music (2019) [MP3|320 Kbps] <Chillout, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318358.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ecko Presents Bossardo - I Like Chopin
+002. Marga Sol - Hold Me (Original Mix)
+003. Organ Tapes - Springfield
+004. L.Porsche - Fancy Hours(   Читать дальше...   )Жанр: Chillout, Lounge, RelaxПродолжительность: 12:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7D465CA6C656AFAEC6E31E0FE42642BF9DF3C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332019   (317914) от 18.10.2019
 
 VA - Top50: Tracks Deep House Ver.13 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House>
@@ -6,7 +64,7 @@ VA - Top50: Tracks Deep House Ver.13 (2019) [MP3|320 Kbps] <House, Deep House, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317914.jpg" />
+  <img src="Z:/picture/008/save_picture_317914.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Top50: Tracks Deep House Ver.14 (2019) [MP3|320 Kbps] <House, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317912.jpg" />
+  <img src="Z:/picture/008/save_picture_317912.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Summer Time: Hot Trance Session (2020) [MP3|320 Kbps] <Trance, Progressive,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317659.jpg" />
+  <img src="Z:/picture/008/save_picture_317659.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Future Sound: New Trance Music (2020) [MP3|320 Kbps] <Future Trance, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317658.jpg" />
+  <img src="Z:/picture/008/save_picture_317658.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Vibe Music: Tech House Electro Sound Mix (2020) [MP3|320 Kbps] <Tech House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317644.jpg" />
+  <img src="Z:/picture/008/save_picture_317644.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Autumn Love (A Lounge Collection) (2015) [MP3|320 кб/с]<Downtempo, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317400.jpg" />
+  <img src="Z:/picture/008/save_picture_317400.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Trance Box: Progressive And Vocal Party (2015) [MP3|320 кб/с]<Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317396.jpg" />
+  <img src="Z:/picture/008/save_picture_317396.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Dubstep Classic Hits Top 100 (2015) [MP3|320 кб/с]<Drumstep, Dubstyle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317212.jpg" />
+  <img src="Z:/picture/008/save_picture_317212.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317196.jpg" />
+  <img src="Z:/picture/008/save_picture_317196.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317194.jpg" />
+  <img src="Z:/picture/008/save_picture_317194.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317171.jpg" />
+  <img src="Z:/picture/008/save_picture_317171.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Charming Bourgeois Vol 2  (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317087.jpg" />
+  <img src="Z:/picture/008/save_picture_317087.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - crazyДвиж number tri (2020) [MP3|320 Kbps] <Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317015.jpg" />
+  <img src="Z:/picture/008/save_picture_317015.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Spiritual Liberation: Psychedelic Healing (2018) [MP3|320 Kbps] <Psy, Goa T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316777.jpg" />
+  <img src="Z:/picture/008/save_picture_316777.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Record Super Chart 560 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316772.jpg" />
+  <img src="Z:/picture/008/save_picture_316772.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - EDM Pro Chord Fast Life 001 (2016) [MP3|241~320 Kbps] <House, Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316572.jpg" />
+  <img src="Z:/picture/008/save_picture_316572.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Dance Meteor Fitness Hits (2016) [MP3|241~320 Kbps] <House, Beat, Bass, Big
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316566.jpg" />
+  <img src="Z:/picture/008/save_picture_316566.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - In Da Club Vol.68 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316160.jpg" />
+  <img src="Z:/picture/008/save_picture_316160.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Steve Aoki - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316000.jpg" />
+  <img src="Z:/picture/008/save_picture_316000.jpg" />
 </div>
 
 
@@ -568,7 +626,7 @@ VA - Dj Compressor Relax Mix 2012-11 (2012) [MP3|320 кб/с]<Downtempo, Lounge,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315816.jpg" />
+  <img src="Z:/picture/008/save_picture_315816.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ VA - DeepEmotions - Car Dubstep Vol.9 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315814.jpg" />
+  <img src="Z:/picture/008/save_picture_315814.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ ICON-CELENTANO - mixed by dj Pitkin (2012) [MP3|320 кб/с]<progressive dance /
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_315690.jpg" />
+  <img src="Z:/picture/005/save_picture_315690.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Deep House Mafia (2020) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315438.jpg" />
+  <img src="Z:/picture/008/save_picture_315438.jpg" />
 </div>
 
 
@@ -702,7 +760,7 @@ VA - Sunset Vibe: Absolute Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Amb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315428.jpg" />
+  <img src="Z:/picture/008/save_picture_315428.jpg" />
 </div>
 
 
@@ -716,64 +774,6 @@ VA - Sunset Vibe: Absolute Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3939B2ED97CE611261A772B62789A8F43AB7E636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182654   (315108) от 11.11.2017
-
-VA - 100 European EDM (2017) [MP3|320 Kbps] <Electro, Dance, House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dusky - Bowed (Original Mix)
-002. Hlasznyik - Let's Go To The Party Beach (Original Mix)
-003. Mickey Mask - Wonders
-004. Alex Adair - Casual (Felon Extended Mix)(   Читать дальше...   )Жанр: Electro, Dance, House, TranceПродолжительность: 09:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038C19C7508A0BE1CA2A6527015E145159B4592B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182618   (315105) от 11.11.2017
-
-VA - Spaceship (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Vais - Lonely Planet (Original Mix)
-02. Ricky Rondi - Looking Hot
-03. Daktrin - Solaris
-04. Roni Iron - Guitar Spirit (Matthias Freudmann Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9201EC9784587E4BDC1AAE70527AAF3B3A1A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

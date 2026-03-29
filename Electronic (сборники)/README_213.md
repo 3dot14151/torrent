@@ -1,3 +1,73 @@
+###  Публикация: 474111   (98185) от 31.03.2012
+
+VA - Trance Cookbook Vol.22 (2012) [MP3|320 кб/с]<Uplifting Trance,Vocal Trance,Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98185.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abstract Vision & Elite Electronic - Always Exotic (Original)
+002. DNS Project feat. Madelin Zero - Another Day (KhoMha Remix)
+003. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix)
+004. JES & Andy Duguid - Before You Go (Taxigirl Edit)
+005. Andrew Bennett - Break Away (Original Mix)
+006. Armin van Buuren feat. Fiora - Breathe In Deep (The Blizzard Remix)
+007. Ben Coda & Innate - Brighton Rocks (Original)
+008. Karanda feat. Radmila - Coming Closer (Karanda Club Mix)
+009. Raneem - Equinox (Evgeny Bardyuzha Second Remix)
+010. Lemon & Einar K feat. Paul Johannessen - Everlasting (Original Mix)2012Жанр: Uplifting Trance,Vocal Trance,TranceПродолжительность: 02:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245B63BA446E4340975BAF356466DB68A0285ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476146   (98178) от 31.03.2012
+
+VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Dance, Club, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Sun & Moon ( A-Peace Remix ) (6:07)
+02. Adele - Set Fire To The Rain (House Hunters Remix) (5:59)
+03. Afrojack & Shermanology - Can't Stop Me (MADEin82 Remix) (6:33)
+04. Avicii - Levels (Massive DJ's Bootleg Remix 2012) (6:03)
+05. Azealia Banks feat. Lazy Jay - 212 (Tommie Sunshine & Disco Fries Edit) (5:52)
+06. Beat Service - Fortuna (5:24)
+07. Carl Kennedy feat. Cheyenne - Once Upon A Time (Original Mix) (7:30)
+08. Childish Gambino - Heartbeat (Proper Villains Remix) (4:15)
+09. Cliffhanger - Dont Look Behind You (Original Mix) (3:23)
+ 10. Clockwork & Loreen - The Nox Euphoria (Mart's Mashup)2012Жанр: Electro-House, Trance, Dance, Club, DubstepПродолжительность: 04:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B760A4EFB5AB00D8BD24FFE829A2560B83FF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474758   (98168) от 31.03.2012
 
 VA - House Vip (24.03.12) [MP3|320 кб/с]<Electro House>
@@ -6,7 +76,7 @@ VA - House Vip (24.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98168.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ VA - House Vip (26.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98166.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ VA - House Vip (25.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98160.jpg" />
 </div>
 
 
@@ -111,7 +181,7 @@ VA - Клубные Новинки Vol.57 from AGR (2012)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98158.jpg" />
 </div>
 
 
@@ -146,7 +216,7 @@ VA - Klubnye novinki Vol.54 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98157.jpg" />
 </div>
 
 
@@ -181,7 +251,7 @@ VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98144.jpg" />
 </div>
 
 
@@ -216,7 +286,7 @@ VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98038.jpg" />
 </div>
 
 
@@ -251,7 +321,7 @@ VA - Dub Step vol.7 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97809.jpg" />
 </div>
 
 
@@ -286,7 +356,7 @@ VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97795.jpg" />
 </div>
 
 
@@ -321,7 +391,7 @@ VA - V2-GD [by Pack Master Ex.Mu.] (22.03.2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97758.jpg" />
 </div>
 
 
@@ -356,7 +426,7 @@ VA - Trancern 33.4: Official Compilation (25.03.2012) [MP3|320 кб/с]<Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97661.jpg" />
 </div>
 
 
@@ -389,7 +459,7 @@ VA - HouseVip  (16.03.2012) [MP3|320 кб/с]<Electro house>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97570.jpg" />
 </div>
 
 
@@ -424,7 +494,7 @@ VA - House Vip (13.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97566.jpg" />
 </div>
 
 
@@ -459,7 +529,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #78  (2012) [MP3|320 кб/с]<Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97516.jpg" />
 </div>
 
 
@@ -494,7 +564,7 @@ VA - Into The Cosmic Jungle (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Ful
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97419.jpg" />
 </div>
 
 
@@ -529,7 +599,7 @@ VA - 50 Chillout Lounge Tracks (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97415.jpg" />
 </div>
 
 
@@ -564,7 +634,7 @@ VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97243.jpg" />
 </div>
 
 
@@ -596,7 +666,7 @@ VA - Vocal Trance Collection Vol.84 (2012) [MP3|320 кб/с]<Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97149.jpg" />
 </div>
 
 
@@ -631,7 +701,7 @@ VA - Soul of Ibiza Volume 27 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97103.jpg" />
 </div>
 
 
@@ -666,7 +736,7 @@ VA - First Contact (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97091.jpg" />
 </div>
 
 
@@ -701,7 +771,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96796.jpg" />
 </div>
 
 
@@ -735,7 +805,7 @@ VA - Seasons of Seduction vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96665.jpg" />
 </div>
 
 
@@ -770,7 +840,7 @@ VA - GO GOA!!! ( Speed It Up Release 2 ) (2012) [MP3|320 кб/с]<Psychedelic / 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96662.jpg" />
 </div>
 
 
@@ -805,7 +875,7 @@ VA - Dub Step vol.4 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96620.jpg" />
 </div>
 
 
@@ -825,76 +895,6 @@ VA - Dub Step vol.4 from AGR (2012) [MP3|256 kbps]<Dub Step>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF77B4070BF03780ACC0F8F65DAD390B3C6E8170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467386   (96505) от 13.03.2012
-
-VA - Dub Step vol.2 from AGR (2012) [MP3|256 kbps]<Dub Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vindicatrix - Private Places
-02. Meat Beat Manifesto - Guns 'n' Lovers (Remix)
-03. Appleblim & Peverelist - Circling (Bass Clefs Radius Remix)
-04. Skrubz - Zombie
-05. LaRoux - Bulletproof (Chrispy Dubstep Remix)
-06. ConRank - State of Play (Didjelirium Remix)
-07. Ben Strokin - I Got The Munchies
-08. Mala - New Life Baby Paris
-09. DJ Pinch & P Dutty - War Dub
-10. Quest - Deep Inside(   Читать дальше...   )2012Жанр: Dub StepПродолжительность: 08:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5181E6A5B9AEDE6F7BAD3995BDF6567B7656038A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466922   (96406) от 12.03.2012
-
-VA - Trance Symphony Volume 7 (13.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hydrogenio - 777 (Ben Gold Remix)
-002. Christian Drost & DK Project - Always Connected (Original Mix)
-003. Faruk Sabanci - As Faces Fade (Alexander Popov Remix)
-004. Fadios & Raneem - Chromium (Max Graham Remix)
-005. Indecent Noise - Civitanova (Nick Callaghan & Will Atkinsons Dark Sessions Remix)
-006. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
-007. EDX - D.A.N.C.E. (Original Mix)
-008. Juventa - Dionysia (Skytech Remix)
-009. Ikerya Project - End Of Begining (Original Mix)
-010. Electric Traveller - Enlight (Original Mix)(   Читать дальше...   )13.03.2012Жанр: Uplifting Trance, TranceПродолжительность: 06:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A642287437652455C3C37DF5ACAD9DE792DB218B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Cyberfox 47.0 for Intel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720024.jpg" />
+  <img src="Z:/picture/008/save_picture_720024.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ReviverSoft PC Reviver 2.9.0.46 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720023.jpg" />
+  <img src="Z:/picture/008/save_picture_720023.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719978.jpg" />
+  <img src="Z:/picture/008/save_picture_719978.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Firefox 47.0 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719955.jpg" />
+  <img src="Z:/picture/008/save_picture_719955.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Freemake Video Converter 4.1.9.15 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719952.jpg" />
+  <img src="Z:/picture/008/save_picture_719952.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ GridinSoft Anti-Malware 3.0.39 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719924.jpg" />
+  <img src="Z:/picture/008/save_picture_719924.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Intel® Processor Identification Utility 5.50 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719921.jpg" />
+  <img src="Z:/picture/008/save_picture_719921.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Google Chrome 51.0.2704.84 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719912.jpg" />
+  <img src="Z:/picture/008/save_picture_719912.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719909.jpg" />
+  <img src="Z:/picture/008/save_picture_719909.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ IObit Smart Defrag Pro 5.1.0.787 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719873.jpg" />
+  <img src="Z:/picture/008/save_picture_719873.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mozilla Firefox 47.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719863.jpg" />
+  <img src="Z:/picture/008/save_picture_719863.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Freemake Audio Converter 1.1.8.2 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719844.jpg" />
+  <img src="Z:/picture/008/save_picture_719844.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TechSmith Snagit 13.0.0 Build 6094 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719835.jpg" />
+  <img src="Z:/picture/008/save_picture_719835.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ ReviverSoft Driver Reviver 5.8.0.14 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719818.jpg" />
+  <img src="Z:/picture/008/save_picture_719818.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Vivaldi 1.0.162.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719761.jpg" />
+  <img src="Z:/picture/008/save_picture_719761.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ QuiteRSS 0.17.7 + Portabe [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719760.jpg" />
+  <img src="Z:/picture/008/save_picture_719760.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ SuperEasy Audio Converter 3.0.4225 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719755.jpg" />
+  <img src="Z:/picture/008/save_picture_719755.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Download Master 6.3.1.1457 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719752.jpg" />
+  <img src="Z:/picture/008/save_picture_719752.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ AMD Radeon Software Crimson Edition 16.6.1 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719713.jpg" />
+  <img src="Z:/picture/008/save_picture_719713.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Aiseesoft HD Video Converter 8.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719710.jpg" />
+  <img src="Z:/picture/008/save_picture_719710.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BluffTitler Ultimate 14.0.0.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719530.jpg" />
+  <img src="Z:/picture/008/save_picture_719530.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ AnyMP4 PDF Converter Ultimate 3.3.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719517.jpg" />
+  <img src="Z:/picture/008/save_picture_719517.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ CocCoc 68.4.180 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719515.jpg" />
+  <img src="Z:/picture/008/save_picture_719515.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MediaMonkey Gold 4.1.7.1741 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719489.jpg" />
+  <img src="Z:/picture/008/save_picture_719489.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Windows and Office ISO Download Tool 2.02 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719467.jpg" />
+  <img src="Z:/picture/008/save_picture_719467.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ PingPlotter Pro 5.0.14.1456 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719464.jpg" />
+  <img src="Z:/picture/008/save_picture_719464.jpg" />
 </div>
 
 

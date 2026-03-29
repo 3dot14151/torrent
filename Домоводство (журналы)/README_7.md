@@ -1,3 +1,107 @@
+###  Публикация: 973768   (979272) от 09.01.2016
+
+Газета | Сад, огород – кормилец и лекарь №1 (261) (Январь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сад, огород – кормилец и лекарь — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4C365B3329F8C771D785F81C76811C3A860F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437473   (979252) от 16.01.2012
+
+Газета | Сад, огород – кормилец и лекарь №1 (2012) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979252.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291E55044C18D03A678549906434BA2A5C3684F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615138   (978684) от 07.02.2013
+
+Журнал | Добрые советы. Люблю готовить! №4 [2008] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал состоит из рецептов, присланных в редакцию читателями. По самым интересным рецептам шеф-повар редакции готовит блюда, и их фотографии появляются в журнале со знаком качества.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5107E992781EEBC7848F5F116018D3C5FC86553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973915   (978176) от 10.01.2016
+
+Журнал | Дачный совет №1 (январь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978176.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачный совет» - верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Жанр: Дача, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9B23941691209753FBE73BC1631E94D74EB43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974121   (978122) от 10.01.2016
 
 Журнал | Любимая дача. Спецвыпуск №1. Календарь дачника (январь 2016) [PDF]
@@ -6,7 +110,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978122.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977705.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977620.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977023.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976994.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976889.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976866.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976860.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976859.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976858.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976857.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976838.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976777.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976769.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976760.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976733.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976630.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976401.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976131.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975360.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975358.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975355.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3D544E74A4E4CBBC018A9CE0B2684AE8CEC281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616436   (975354) от 10.02.2013
-
-Журнал | Все для женщины № 16 [13 апреля 2010] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975354.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всё для женщины» — еженедельный женский журнал. Это своего рода сборник практичных советов в области моды, рукоделия и декора, красоты и здоровья, психологии, воспитания детей и юриспруденции, а также доступные любому кошельку рецепты приготовления пищи и маршруты по России. Плюс реальные истории из жизни с хорошим концом! Наши эксперты - не только лучшие в своей области специалисты, но и читатели, а также звезды! «Всё для женщины» – еженедельный женский журнал практичных советов и идей. Журнал информирует, развлекает, воодушевляет и консультирует. Близость к жизни российской женщины обеспечила изданию высокую популярность.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9670D699757E3F4F5F682384F100A19F2D38DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616449   (975352) от 10.02.2013
-
-Журнал | Все для женщины № 18 [27 апреля 2010] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975352.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всё для женщины» — еженедельный женский журнал. Это своего рода сборник практичных советов в области моды, рукоделия и декора, красоты и здоровья, психологии, воспитания детей и юриспруденции, а также доступные любому кошельку рецепты приготовления пищи и маршруты по России. Плюс реальные истории из жизни с хорошим концом! Наши эксперты - не только лучшие в своей области специалисты, но и читатели, а также звезды! «Всё для женщины» – еженедельный женский журнал практичных советов и идей. Журнал информирует, развлекает, воодушевляет и консультирует. Близость к жизни российской женщины обеспечила изданию высокую популярность.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D767F498D29B9DBD04DF894BE728E74963DF89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616461   (975270) от 10.02.2013
-
-Журнал | Все для женщины № 20 [10 мая 2011] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975270.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всё для женщины» — еженедельный женский журнал. Это своего рода сборник практичных советов в области моды, рукоделия и декора, красоты и здоровья, психологии, воспитания детей и юриспруденции, а также доступные любому кошельку рецепты приготовления пищи и маршруты по России. Плюс реальные истории из жизни с хорошим концом! Наши эксперты - не только лучшие в своей области специалисты, но и читатели, а также звезды! «Всё для женщины» – еженедельный женский журнал практичных советов и идей. Журнал информирует, развлекает, воодушевляет и консультирует. Близость к жизни российской женщины обеспечила изданию высокую популярность.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF2E131761AB464E5435FD44AD70EE5F4123BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616468   (975252) от 10.02.2013
-
-Журнал | Все для женщины № 37 [6 сентября 2011] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975252.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всё для женщины» — еженедельный женский журнал. Это своего рода сборник практичных советов в области моды, рукоделия и декора, красоты и здоровья, психологии, воспитания детей и юриспруденции, а также доступные любому кошельку рецепты приготовления пищи и маршруты по России. Плюс реальные истории из жизни с хорошим концом! Наши эксперты - не только лучшие в своей области специалисты, но и читатели, а также звезды! «Всё для женщины» – еженедельный женский журнал практичных советов и идей. Журнал информирует, развлекает, воодушевляет и консультирует. Близость к жизни российской женщины обеспечила изданию высокую популярность.
-Добавлено 16 страниц - 45 рецептов консервирования.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8F6844FD605BCE9B681433F54648753FC83203
 ```
 
 https://mybot314.ru/tekegram_catalog/

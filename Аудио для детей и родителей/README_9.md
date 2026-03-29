@@ -1,3 +1,85 @@
+###  Публикация: 139604   (1012325) от 06.06.2021
+
+А.С. Пушкин | Сказки (2006) [MP3, Михаил Царев и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012325.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник входят сказки:
+Сказка о царе Салтане, о сыне его славном и могучем богатыре князе Гвидоне Салтановиче и о прекрасной царевне лебеди (исполнитель: Михаил Царев)
+"Сказка о Попе и о работнике его Балде" (исполнитель: Александр Калягин)
+"Сказка о медведихе" (исполнитель: Татьяна Пельтцер)(   Читать дальше...   )Жанр: СказкиПродолжительность: 01:54:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475956   (1012001) от 09.06.2021
+
+Эдуард Успенский | Дядя Фёдор идёт в школу (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дядя Фёдор всё время чему-нибудь учится. В первой повести «Дядя Фёдор, пёс и кот» он учился жить в деревне, управляться с хозяйством. Потом он учился дружить с девочкой Катей. Потом тётя дяди Фёдора пыталась учить его музыке. А в этой книге дядя Фёдор наконец поступает в школу и начинает осваивать интернет. Разумеется, кот Матроскин и Шарик с Печкиным тут как тут (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 01:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCD36A578BBCBE9BE3A8A43219B573CD7F19043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477091   (1011342) от 13.06.2021
+
+Лариса Суркова | Ребенок от 3 до 7 лет. Интенсивное воспитание (2015) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суркова Лариса – мама 4 детей, а также кандидат психологических наук и практикующий психолог, ведущая в Instagram свой профиль @larangsovet. Занимается вопросами детской и семейной психологии.
+Ваш ребенок подрос, он уже говорит, читает, активно познает мир, и вам кажется, что он уже большой и самостоятельный? Поверьте, это не так! Ему по-прежнему нужна ваша помощь, (   Читать дальше...   )Жанр: Воспитание детей/Детская психологияПродолжительность: 04:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB73361F4D4850E8CA6246022C4D8E741F32860E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477022   (1011323) от 13.06.2021
 
 Лена Данилова | Мама против беспорядка. Как все организовать, чтобы хватило места счастью, веселью и творчеству (2020) [MP3]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011323.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011175.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011132.jpg" />
 </div>
 
 
@@ -88,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011125.jpg" />
 </div>
 
 
@@ -116,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010837.jpg" />
 </div>
 
 
@@ -145,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010518.jpg" />
 </div>
 
 
@@ -173,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010516.jpg" />
 </div>
 
 
@@ -199,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010207.jpg" />
 </div>
 
 
@@ -226,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010206.jpg" />
 </div>
 
 
@@ -253,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010199.jpg" />
 </div>
 
 
@@ -279,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010196.jpg" />
 </div>
 
 
@@ -305,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010029.jpg" />
 </div>
 
 
@@ -333,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010020.jpg" />
 </div>
 
 
@@ -359,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009622.jpg" />
 </div>
 
 
@@ -385,7 +467,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Metallica (2011) [MP3|192
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008974.jpg" />
 </div>
 
 
@@ -414,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008738.jpg" />
 </div>
 
 
@@ -442,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007772.jpg" />
 </div>
 
 
@@ -468,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007770.jpg" />
 </div>
 
 
@@ -494,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007757.jpg" />
 </div>
 
 
@@ -521,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007190.jpg" />
 </div>
 
 
@@ -547,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007171.jpg" />
 </div>
 
 
@@ -573,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007164.jpg" />
 </div>
 
 
@@ -599,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006762.jpg" />
 </div>
 
 
@@ -610,89 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D49447258722E7CCA9EDACBF11BAE0DF2CD1F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483726   (1006643) от 15.07.2021
-
-Артемий Лукьяненко | Лето на Цеоде (2021) [MP3, Воронецкий Станислав]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятные космические приключения от сына Сергея Лукьяненко.
-«Скажу читателям честно – этого Лукьяненко вы никогда раньше не читали. Эту книгу написал не я. Её автор – мой старший сын.
-Иногда такое случается – спросите хотя бы Стивена Кинга. Меня смущает лишь то, что Артемий написал эту книжку в неполные тринадцать лет.
-Но с другой стороны – он её писал для своих (   Читать дальше...   )Жанр: Детская фантастика, книга для подростковПродолжительность: 07:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF499C5C06539F5A2E60D4F8F982322AD1A07273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484116   (1006388) от 17.07.2021
-
-Екатерина Сигитова | Как бы тебе объяснить… Находим нужные слова для разговора с детьми (2020) [MP3, Люба Петрова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дети растут, познают мир и задают вопросы, на которые мы, родители, не всегда знаем ответы. И иногда объяснить принцип работы подводной лодки нам проще, чем рассказать про то, что такое друзья, откуда берутся дети или как сказать «нет».
-
-Екатерина Сигитова, психотерапевт, доктор наук и мама, собрала все темы, о которых родителям важно поговорить с детьми: неудобные (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Практическая психологияПродолжительность: 10:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FD3996C72C01C3CAB1D7764E063DFE6B2D15A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484221   (1006251) от 18.07.2021
-
-Дэниэл Дж. Сигел, Тина Пэйн Брайсон | Воспитание с умом. 12 революционных стратегий всестороннего развития мозга вашего ребёнка (2020) [MP3, Андрей Зверев (BadCatStudio)]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малыш устроил истерику в магазине? Дошкольник не хочет идти в детский сад? Школьник не умеет общаться со сверстниками? С какой бы проблемой ни столкнулись родители, новаторская книга видного учёного, специалиста в области детской и возрастной психологии Дэниэла Дж. Сигела, написанная в соавторстве с экспертом по воспитанию Тиной Пэйн Брайсон, поможет её решить. Впервые (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияПеревод: Ю. В. РябининаПродолжительность: 06:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DAA0220D7C89A6927979CDD55D6A6485407D73
 ```
 
 https://mybot314.ru/tekegram_catalog/

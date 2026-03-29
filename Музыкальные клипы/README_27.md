@@ -1,3 +1,81 @@
+###  Публикация: 406067   (367786) от 04.11.2011
+
+VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367786.jpg" />
+</div>
+
+
+###  Подробнее
+
+“The best video clips ” -  Музыкальные видеоклипы. Большинство видео материала записано с музыкальных каналов высокой чёткости.Жанр: МузыкаРежиссер: N/AАктеры: DEV, Jennifer Lopez, Selena Gomez & The SceneПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 5x ~00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B797F046A5D5D8FCF9DBAF8ACFF7BA3C8F95172A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575992   (366309) от 16.11.2012
+
+Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0162E116B62BE3E0CB4CFE25737F42C7737EA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575574   (365576) от 16.11.2012
+
+JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E807D639FB6BCC86C805AE8083F6CC555963D947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950814   (365072) от 28.10.2015
 
 VA - Осенний марафон № 200 / Видеоклипы (Презент Хитовой Двухсоточки) (2015) WEBRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@ VA - Осенний марафон № 200 / Видеоклипы (Презен�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365072.jpg" />
+  <img src="Z:/picture/008/save_picture_365072.jpg" />
 </div>
 
 
@@ -36,7 +114,7 @@ Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365066.jpg" />
+  <img src="Z:/picture/008/save_picture_365066.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ The best of Zero project (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360351.jpg" />
+  <img src="Z:/picture/008/save_picture_360351.jpg" />
 </div>
 
 
@@ -91,7 +169,7 @@ Epica - Abyss of Time - Countdown to Singularity (2020) WEB-DL [VP9/2160p-LQ] <S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360212.jpg" />
+  <img src="Z:/picture/008/save_picture_360212.jpg" />
 </div>
 
 
@@ -117,7 +195,7 @@ Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358725.jpg" />
+  <img src="Z:/picture/008/save_picture_358725.jpg" />
 </div>
 
 
@@ -143,7 +221,7 @@ Usher - Numb (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358722.jpg" />
+  <img src="Z:/picture/008/save_picture_358722.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ Usher - Dive (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358716.jpg" />
+  <img src="Z:/picture/008/save_picture_358716.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358546.jpg" />
+  <img src="Z:/picture/008/save_picture_358546.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358544.jpg" />
+  <img src="Z:/picture/008/save_picture_358544.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358366.jpg" />
+  <img src="Z:/picture/008/save_picture_358366.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358356.jpg" />
+  <img src="Z:/picture/008/save_picture_358356.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358348.jpg" />
+  <img src="Z:/picture/008/save_picture_358348.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358345.jpg" />
+  <img src="Z:/picture/008/save_picture_358345.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358335.jpg" />
+  <img src="Z:/picture/008/save_picture_358335.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358229.jpg" />
+  <img src="Z:/picture/008/save_picture_358229.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358221.jpg" />
+  <img src="Z:/picture/008/save_picture_358221.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Robbie Williams - Candy (2012) [1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358213.jpg" />
+  <img src="Z:/picture/008/save_picture_358213.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358211.jpg" />
+  <img src="Z:/picture/008/save_picture_358211.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358056.jpg" />
+  <img src="Z:/picture/008/save_picture_358056.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358052.jpg" />
+  <img src="Z:/picture/008/save_picture_358052.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358044.jpg" />
+  <img src="Z:/picture/008/save_picture_358044.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358040.jpg" />
+  <img src="Z:/picture/008/save_picture_358040.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358038.jpg" />
+  <img src="Z:/picture/008/save_picture_358038.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59E6F19898E2419CDCB352C34C7F13A37A30D2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577908   (358028) от 19.11.2012
-
-Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4166F2CA86DF4FE41E93457C63BD100B60D12BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577501   (357663) от 19.11.2012
-
-Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A5DA3D1739FC818788EA452AD3B9B2C8C19ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577872   (357517) от 19.11.2012
-
-Игорь Горин (Сhiliбомберс) - Дед Лосось (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B938B13A4FACA98A15F43F61570A2694822BB88E
 ```
 
 https://mybot314.ru/tekegram_catalog/

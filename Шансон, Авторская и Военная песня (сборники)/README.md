@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1860862   (1062260) от 
+
+Юрий Сучков - Riffusion.AI - На стихи Юрия Сучкова (2026) [MP3|~245 Kbps (V0)] <Chanson, Rock>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Юрий Сучков. В лесу родилась Елочка [00:03:54]
+02 - Юрий Сучков. Бандерлоги [00:03:52]
+03 - Юрий Сучков. Бомжиха Камилла [00:03:36]
+04 - Юрий Сучков. Коктейль для Майдана [00:02:59](   Читать дальше...   )Жанр: Chanson, RockПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3BFA178485C86B9B7BF6B75341A658CFC1A786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437570   (1041582) от 06.01.2021
 
 VA - Радио Шансон. Лучшее (2020) MP3 от DON Music [MP3|320 Kbps] <Шансон>
@@ -7,7 +36,7 @@ VA - Радио Шансон. Лучшее (2020) MP3 от DON Music [MP3|320 Kb
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041582.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ VA - Шансон Зима (2021) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034540.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ VA - Не за горами весна Vol.3 (2021) [MP3|320 Kbps] <Шансон
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029484.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ VA - 8 марта: Женский выпуск (2021) [MP3|320 Kbps] <Шансо
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028026.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ VA - Шансон Весна (2021) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024685.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ VA - Вечный Аншлаг (2021) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016994.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008402.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ VA - Chanson Soul De France (2CD) (2021) [MP3|320 Kbps] <Chanson, Folk Lyric>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004550.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ VA - Шансон Лето (2021) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002501.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ VA - Понты дороже денег (2013) [MP3|128 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999360.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ VA - Золотой шансон. Жиганский 2 (2012) [MP3|320 кб/с]<
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998629.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ VA - Песни на стихи Сергея Есенина (2010) [MP3|160-320 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998518.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ VA - Новогодняя блатная вечеринка Радио шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995601.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ VA - Хиты Под Водочку (2013) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992226.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ VA - Ecoutez La Musique De L'amour (2020) [MP3|320 Kbps] <Chanson, Pop Lyric, So
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990428.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ VA - World songs. Night in Paris (2005) [MP3|224 kbps]<Chanson>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988895.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ VA - Роза Января (2020) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988868.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ VA - Уголовочка от радио Шансон. Часть 6 (2015) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984643.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ VA - Новогодний душевный шансон (2015) [MP3|256 кб/с]
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984557.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980784.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ VA - Бомба Года. Шансон (2015) [MP3|256-320 кб/с] <Шансо�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980695.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ VA - Подарочный Шансон (2016) [MP3|256 кб/с] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980161.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ VA - Дальнобойщики. 100 шофёрских хитов (2015) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978110.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ VA - Хулиганская душа (2013) [MP3|128 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976725.jpg" />
 </div>
 
 
@@ -739,7 +768,7 @@ VA - Белая вьюга (2015) [MP3|256 кб/с] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975732.jpg" />
 </div>
 
 
@@ -753,38 +782,6 @@ VA - Белая вьюга (2015) [MP3|256 кб/с] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D83A01FF671A5A6CFD823B826A5A12BF4CC129F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357264   (975178) от 02.02.2020
-
-Александр Галич - Тематический сборник (2020) 5 CD, Remaster SMRP, De-Noised[MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Шуточные и Сатирические песни
-------------------------------------------
-01-У жены моей спросите, у Даши (1970) (03:33)
-02-Спи, Семён, спи (1970) (02:10)(   Читать дальше...   )Жанр: Авторская песня, Песни под гитару, СтихиПродолжительность: 01:10:20
-01-Ударение, ударение (Философский этюд) (1968) (00:26)
-02-Прилетает по ночам ворон (1969) (00:42)
-03-Я не сумел понять Тебя в тот раз (Песня о Тбилиси) (1970) (04:24)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C74DB093A8B863A3347E48B59A1CBDFC1B19713
 ```
 
 https://mybot314.ru/tekegram_catalog/

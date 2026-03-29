@@ -1,3 +1,81 @@
+###  Публикация: 1804318   (13220) от 28.06.2025
+
+LIMINAL SHIFT (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Liminal Shift - это уникальная атмосферная игра в жанре напряжения, разработанная с использованием новейших технологий Unreal Engine 5, таких как Lumen и Nanite. С каждым шагом, который вы делаете, Liminal Shift погружает вас в жуткий и тревожный опыт, не похожий ни на что другое.Тип издания: RepackРазработчик: NextPhaseЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B6C74D328EC96AFE934379CF17623D9806ABB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804309   (13197) от 28.06.2025
+
+Boxville (2022) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивная головоломка Boxville представляет собой смесь анимационного фильма и инди-игры, где предстоит в стиле point-and-click адвенчуры передвигаться персонажами по локациям, выполняя задачки на логику. Геймеры будут наблюдать за происходящими событиями в мире без спешки, спокойно исследуя местные метафоричные зарисовки, показывающие бытие простых людей через (   Читать дальше...   )Тип издания: LicenseРазработчик: Triomatica GamesЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED78109628AA034AB6B02893C21CED62F85A8CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804257   (13164) от 28.06.2025
+
+Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boxville 2 от Triomatica Games - это следующая часть приключенческой игры о банках, живущих в городе из коробок. Два друга получили важное задание от мэра - установить фейерверк для городского праздника. Но из-за небольшой ошибки фейерверк запустился неправильно, вызвав хаос в городе. Хуже того, один из друзей пропал без вести. Теперь главному герою, предстоит исследовать (   Читать дальше...   )Тип издания: RepackРазработчик: Triomatica GamesЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC422683A9FEEADBE75566C0B0829BA86513CA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804271   (13155) от 28.06.2025
 
 Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
@@ -6,7 +84,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13155.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13148.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13000.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Until Then (2024) [Multi] (20241126 Build 16523932) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12905.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12902.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Paranormal Torment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12497.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12466.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12451.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12410.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Echo Paradox (2025) [En] (19081580) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12387.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Disney Dreamlight Valley (2022) [Ru/Multi] (1.17.0.7420/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12371.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Tales Beyond The Tomb - White Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12354.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.6) Repack Let'sРlay [The Complete Col
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12299.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Eternal Strands (2025) [Ru/Multi] (1.0.14.1638) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12195.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12082.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Sofia in Exchange for Lies (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11976.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Everdeep Aurora (2025) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11847.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11766.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Liminality (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11722.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Vesnith Tapes (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11667.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Forest Asylum 2 (2025) [Multi] (1.1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11630.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Do Not Press The Button / Or You'll Delete The Multiverse (2025) [Multi] (1.0) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11593.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Murky Divers (2024) [Ru/Multi] (1.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11362.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Murky Divers с головой окунается в кооперативную 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5163C6B990A9F43111474CB86BF59454005EFD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807168   (11248) от 17.07.2025
-
-Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.2) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой изометрической стелс-игре с глубоким сюжетом вам предстоит исследовать великолепный город Эриксхольм. Брат Ханны - Херман - пропал, и в погоню за ним отправляется полиция. Ханна и сама разыскивает брата. Эти поиски запускают цепь трагических событий, которые навсегда изменят жизни героев и судьбу всего города.Тип издания: RepackРазработчик: River End GamesЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171B382B4A9C6A9A231AD520F1821F78D38AA8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807673   (10934) от 20.07.2025
-
-The Danger Zone (2025) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10934.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Danger Zone - постапокалиптический 2.5D шутер с видом сбоку и элементами выживания в уникальной стилистике "вечного заката". Добро пожаловать в новый мир. После того как тысячи межконтинентальных ядерных ракет рассекли землю, прошло уже достаточно времени: ушла эпоха вечных и холодных зим. Радиоактивный фон медленно устремился вниз. А люди, десяток (   Читать дальше...   )Тип издания: RepackРазработчик: HaverЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1342C9D4D2B05FB7B6C69A0A7CCB503A52197F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807674   (10900) от 20.07.2025
-
-Submersed 2 - The Hive (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Submersed 2 - The Hive (Улей) – это научно-фантастическая хоррор-игра, действия в которой происходят от первого лица и разворачиваются в шокирующих глубинах Атлантического океана. Войдите в мир игры и испытайте на себе ужас от пребывания на дне океана. Ищите различные ресурсы и оружие, исследуйте терминалы и секретные документы и узнайте всю правду, ключ к которой (   Читать дальше...   )Тип издания: RepackРазработчик: Main Loop VideogamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1121CFF5C5C20092637109A990BAA63E9254CD8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

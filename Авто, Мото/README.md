@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1860954   (1062246) от 
+
+MotoGP. Этап 02 из 22. Гран-при Бразилии. Гонка (22.03.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062246.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 марта 2026 воскресенье 21:00 МСК этап 2 Гояния. Гран-при Бразилии. Гонка (31 круг).Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43F9AF1F7C51DCFEBE3F900622A1EF9D7B5213B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860717   (1062022) от 
+
+MotoGP. Этап 02 из 22. Гран-при Бразилии. Квалификация (21.03.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062022.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 марта 2026 суббота, 16:50 МСК этап 2 Гояния. Гран-при Бразилии. Квалификация.Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4EFDB3C2E71C47E90028A69327D5EDB28285C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860720   (1062021) от 
+
+MotoGP. Этап 02 из 22. Гран-при Бразилии. Спринт (21.03.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062021.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 марта 2026 суббота, 21:00 МСК этап 2 Гояния. Гран-при Бразилии. Спринт (15 кругов).Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236FA23F3A893C48CBC5032D68483FA227A68EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856684   (1059007) от 01.03.2026
 
 MotoGP. Этап 01 из 22. Гран-при Таиланда. Гонка (01.03.2026) WEBRip [H.264/1080p-LQ] [50fps]
@@ -7,7 +85,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Гонка (01.03
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059007.jpg" />
+  <img src="Z:/picture/005/save_picture_1059007.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058802.jpg" />
+  <img src="Z:/picture/005/save_picture_1058802.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Спринт (28.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058801.jpg" />
+  <img src="Z:/picture/005/save_picture_1058801.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043083.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043077.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 2. Исола 2000. Гонка 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040626.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038956.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 3. Серра Шевалье. �
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038841.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038814.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037641.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036957.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 4. Ланс Эн Веркор. 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036950.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036787.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036302.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ WRC. Чемпионат мира по ралли. Обзоры / World Rally Cha
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035388.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034685.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 5. Валь Торренс. Г�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034658.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034646.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033769.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032549.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032548.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032545.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032303.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7A595B317C36E54B16C7662CA7E537DAF81EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447320   (1031892) от 13.02.2021
-
-Серия Кубков NASCAR 2021. Этап 0. Дайтона. Дуэли 1-2 / NASCAR Cup Series 2021. Bluegreen Vacations Duel 1-2 at Daytona [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:11:06 + 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1AE6D0D3C7CAE4C67F51BAC039FC89ADCFE548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447653   (1031385) от 15.02.2021
-
-Азиатский чемпионат Формулы-3. Сезон 2021. Этап 4. Дубай. Гонка 1-3 / F3 Asian Championship 2021. Dubai. Race 1-3 (12-14.02.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Азиатский чемпионат Формулы-3 — региональная гоночная серия класса «Формула-3», основанная в 2018 году.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:11:10 + 01:11:54 + 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEB29F61C6B534EA94DCE432A78BEF008D542DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447655   (1031384) от 15.02.2021
-
-Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Орландо 1 / AMA Supercross Championship. Orlando 1 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031384.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Жанр: СпортПродолжительность: 03:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4745BCB57C4364586A494101C5F0DA16E7BE111F
 ```
 
 https://mybot314.ru/tekegram_catalog/

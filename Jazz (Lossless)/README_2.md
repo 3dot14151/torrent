@@ -1,3 +1,119 @@
+###  Публикация: 1604983   (1045089) от 16.01.2023
+
+Junior Mance - The Complete Albums Collection (1959 - 1962) 4CD, 2017, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045089.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Smooth One [3:28]
+02. Miss Jackie's Delight [3:53]
+03. Whisper Not [4:20](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 05:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AA575014C5B926F4B917AF868E1C17B50B8EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605047   (1045088) от 16.01.2023
+
+Kim Waters - That Special Touch (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Dance
+02. House Call
+03. Easy on Me (feat. Kayla Waters)
+04. That Special Touch(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EB5D276D7645F086AD048F43CE0A033E7F10F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605223   (1044993) от 17.01.2023
+
+Stanley Turrentine - That's Where It's At (1962) 2021, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile, Stacey [8:06]
+02. Soft Pedal Blues [7:27]
+03. Pia [5:31]
+04. We'll See Yaw'll After While, Ya Heah [7:25](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E719BA40679C639140CAB6104DBF91F71DA52B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605219   (1044990) от 17.01.2023
+
+Paul Chambers - The Complete Albums Collection (1956 - 1960) 4CD, 2016, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044990.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Afternoon in Paris [5:58]
+02. You Turned the Tables on Me [4:46]
+03. Apothegm [5:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008C17AFC891A10D411EE78DB035AC22A3FE6883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605226   (1044987) от 17.01.2023
 
 Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044987.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Paul Desmond - The Complete Albums Collection (1953 - 1963) 4CD, 2018, Enlighten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044877.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Larry Coryell - Larry Coryell's Last Swing With Ireland (2016) 2021, Angel Air [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044871.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Greg Abate & Phil Woods With The Tim Ray Trio - Kindred Spirits: Live At Chan's 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044744.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Tri-Fi - Staring Into The Sun (2014) Self-Released [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044655.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Chick Corea Band Featuring Sadao Watanabe - Live Under the Sky... '80 (1980) 202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044640.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Giovanni De Chiaro - Scott Joplin On Guitar (1990) Centaur Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044633.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Maynard Ferguson - Hollywood Party / Jam Session (1954) 2005, Membran Music [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044569.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Karin Krog & Steve Kuhn - Together Again (2006) Grappa [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044560.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Buddy De Franco - And The Oscar Peterson Quartet (1954) 2005, Membran Music [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044559.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Clarinette: Gitanes Jazz Autour De Minuit (1945 - 1969) 1991, PolyGram [APE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044555.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Woody Herman - The Woody Herman Band! (1954) 2005, Membran Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044339.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Jazz Piano Quartet - Let It Happen (1974) 1983, RCA Records [WavPack|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044334.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jimmy Giuffre - Tangents In Jazz (1955) 2005, Membran Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044253.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Kim Waters - Silver Soul (2014) Red River Entertainment [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044248.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Azymuth - (Fenix) Fênix (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin, Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044243.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Kim Waters - What I Like (2018) Shanachie [FLAC|Lossless|tracks + .cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044172.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Betty Carter - Four Classic Albums (1955 - 1961) 2CD, 2014, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044170.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Piano: Jazz 'Round Midnight (1949 - 1970) 1991, Verve Records [APE|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044071.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ George Shearing - A Jazz Date With George Shearing (1949 - 1953) 2005, Membran M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043975.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Fats Waller - 1935 - 1936 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043971.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jack Teagarden - Meet Me Where They Play The Blues (1954) 2005, Membran Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043853.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jack Teagarden - Meet Me Where They Play The Blues (1954) 2005, Membran Music [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE08E97A09807654A7DC66F843AAD72D3F7B36AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608370   (1043655) от 30.01.2023
-
-Chick Corea With Trondheim Jazz Orchestra & Erlend Skomsvoll - What Game Shall We Play Today (2018) MNJ Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suite No.2 [4:34]
-02. Pledge for Peace [16:15]
-03. What Game Shall We Play Today [8:30]
-04. Children's Song No.1 and 4, recomp [7:48](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8528236EBE95FB80A68D8B2A15494A2EF63B4FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608362   (1043614) от 30.01.2023
-
-Azymuth, Adrian Younge, & Ali Shaheed Muhammad - Azymuth JID004 (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Redor Do Samba (4:30)
-02. Sumaré (5:36)
-03. Cat Jump (4:04)
-04. Fall Afternoon (4:18)(   Читать дальше...   )Жанр: Jazz, Blues, SoulПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45A94F2D7C50912CBD3BE89FA3E44568E6D115C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608624   (1043519) от 31.01.2023
-
-John Arpin - Kings Of Ragtime (1989) Fanfare [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chevy Chase [2:43]
-02. The Chrysanthemum [5:18]
-03. The Cascades [3:02]
-04. Ragtime Nightingale [4:25](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88E47CE50DFCDB009DA1905260EC41A6D028C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609142   (1043371) от 02.02.2023
-
-John Arpin - Ragtime Beatles (1987) Fanfare [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I'm 64 [3:01]
-02. And I Love Her [3:39]
-03. Maxwell's Silver Hammer [4:16]
-04. Here, There and Everywhere [4:57](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4BCFF31AD12314BDA2FAA2F69101168BBE74B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

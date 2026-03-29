@@ -1,3 +1,84 @@
+###  Публикация: 1327126   (378488) от 23.09.2019
+
+Boom Library - MECHANICALS DESIGNED [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378488.jpg" />
+</div>
+
+
+###  Подробнее
+
+MECHANICALS DESIGNED позволит вам создавать захватывающие и сложные механические звуковые эффекты всего за несколько минут - сложные двери хранилищ, секретные, часовые, огромные, мелкие или крошечные механизмы, разводные мосты, вообщем механические процессы любого размера - называйте это как захотите. У вас нет времени редактировать отдельные звуковые файлы, чтобы (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB9046A55F3CDFD0B4E4A947C34126BFFAEE4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327130   (378479) от 23.09.2019
+
+Boom Library - CINEMATIC METAL – TITAN [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дополните ваш дизайн детальными высококачественными металлическими звуками. CINEMATIC METAL – TITAN позволяет создавать уникальные мультиакцентные эффекты, которые впечатляют не только по масштабу, но и по точности, ритму и характеру. Эта библиотека особенно хороша в ситуациях, когда видимая картинка не обязательно производит предполагаемый звук, но требует своего (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B763F4451F3D73F7E4B633D1BDD08A2EE4C09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415138   (378243) от 11.10.2020
+
+Звуковые библиотеки - Q Up Arts - California Keys [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клавишных инструментов:The Fazioli 10ft grand,Rhodes, Wurlitzer, Vox, FARFISA and Hammond organs,
+Мы записали этот великолепный инструмент в объемном звучании с 11 каналами микрофонов.
+Пианино представлено в стерео и объемном исполнении.
+Вы найдете эти инструменты чрезвычайно проигрываемыми и вдохновляющими.(   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKC, NKI, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23F7B9C3B93B4369E41997325010926C2E585B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327298   (376377) от 24.09.2019
 
 Boom Box Library - ROBOTIC CREATIONS: HEADS UP DISPLAY SOUND DESIGN TOOLKIT [WAV, KONTAKT]
@@ -6,7 +87,7 @@ Boom Box Library - ROBOTIC CREATIONS: HEADS UP DISPLAY SOUND DESIGN TOOLKIT [WAV
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376377.jpg" />
+  <img src="Z:/picture/008/save_picture_376377.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Red Room Audio - Palette Symphonic Sketchpad v1.1 [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374390.jpg" />
+  <img src="Z:/picture/008/save_picture_374390.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371835.jpg" />
+  <img src="Z:/picture/008/save_picture_371835.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Boom Library - Virtual Foley Artist - Footsteps [Kontakt, WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369953.jpg" />
+  <img src="Z:/picture/008/save_picture_369953.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369105.jpg" />
+  <img src="Z:/picture/008/save_picture_369105.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ Insanity Samples - New Orleans Brass - RePack Андрей650071 [Kontakt, WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365869.jpg" />
+  <img src="Z:/picture/008/save_picture_365869.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ Big Fish Audio - Vintage Horns 2 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365867.jpg" />
+  <img src="Z:/picture/008/save_picture_365867.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ NNM-Club - Sound Cleaner Group Collection - Vol. 01 [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362951.jpg" />
+  <img src="Z:/picture/008/save_picture_362951.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ Boom Library - Town & Country [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359056.jpg" />
+  <img src="Z:/picture/008/save_picture_359056.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Boom Library - Urban Explosions [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358920.jpg" />
+  <img src="Z:/picture/008/save_picture_358920.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ Native Instruments - Scarbee Jay-Bass 1.1.0 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356407.jpg" />
+  <img src="Z:/picture/008/save_picture_356407.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ Spitfire Audio - Symphonic Woodwinds [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356298.jpg" />
+  <img src="Z:/picture/008/save_picture_356298.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ Cinesamples - Taylor Davis [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352126.jpg" />
+  <img src="Z:/picture/008/save_picture_352126.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ Spitfire Audio - Symphonic Brass [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351980.jpg" />
+  <img src="Z:/picture/008/save_picture_351980.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347027.jpg" />
+  <img src="Z:/picture/008/save_picture_347027.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343840.jpg" />
+  <img src="Z:/picture/008/save_picture_343840.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ NNM-Club Sound Cleaner - Чистые Звуковые Эффекты с AudioJu
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343077.jpg" />
+  <img src="Z:/picture/008/save_picture_343077.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ JP Sample Line - Junior Porciuncula - Nord Stage 3 Ultimate Stage Pianos [Kontak
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334665.jpg" />
+  <img src="Z:/picture/008/save_picture_334665.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ Evolution Series - World Colors Clar-Duduk v1.02 RePack Андрей650071 [Kont
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332152.jpg" />
+  <img src="Z:/picture/008/save_picture_332152.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ Soniccouture - EP73 Deconstructed [Kontakt, MIDI]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320638.jpg" />
+  <img src="Z:/picture/008/save_picture_320638.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315066.jpg" />
+  <img src="Z:/picture/008/save_picture_315066.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312948.jpg" />
+  <img src="Z:/picture/008/save_picture_312948.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310604.jpg" />
+  <img src="Z:/picture/008/save_picture_310604.jpg" />
 </div>
 
 
@@ -596,84 +677,6 @@ Christmas & Holiday Sound Effects Library - В этот праздничный �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AB24ADF4F82F886CF8B666D0797A1366EABBF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422531   (308146) от 09.11.2020
-
-Звуковые библиотеки - Cinematic Studio Series - Cinematic Studio Strings v 1.1 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinematic Studio Series представляет вам библиотеку невероятно реалистичных струнно-смычковых инструментов для Kontakt. Шепчущие гармоники и тремоло, эмоциональные легато и портаменто, а также кусающие стаккато и стаккатиссимо — Cinematic Studio Strings даст вам инструменты, необходимые, чтобы оживить вашу музыку. Библиотека имеет встроенный высококачественный ревербератор, (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2F89747FB21617E2D0DE4AC71FA2304776B217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077130   (306091) от 28.11.2016
-
-Звуковые библиотеки - Triune - Triune Sound: Fighting SFX [WAV]
-
->>След.
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triune Sound: Fighting SFX -  поставляется с более чем 600 звуковыми "боевыми" эффектами высокого качества, готовыми к использованию, а так же с неотредактированными звуками для пользовательского использования!Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B251315C3B54D97CEC0B1F8BBAE500C9E5D25257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333369   (305142) от 24.10.2019
-
-Spitfire Audio - Spitfire Solo Violin [Kontakt, OGG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш высоко оцененный инструмент Total Performance для скрипки (Virtuoso) теперь можно приобрести в виде отдельной библиотеки Kontakt Player. Наша самая подробная и продвинутая сольная скрипка на сегодняшний день была исполнена всемирно известным скрипачом-виртуозом Джеком Либеком в The Hall в AIR Studios.Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX; OGG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF71B21DD4F11021237E774E52592FEAD61126E
 ```
 
 https://mybot314.ru/tekegram_catalog/

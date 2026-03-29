@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839146.jpg" />
+  <img src="Z:/picture/008/save_picture_839146.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839145.jpg" />
+  <img src="Z:/picture/008/save_picture_839145.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839141.jpg" />
+  <img src="Z:/picture/008/save_picture_839141.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839125.jpg" />
+  <img src="Z:/picture/008/save_picture_839125.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839117.jpg" />
+  <img src="Z:/picture/008/save_picture_839117.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Photo Art Studio 2.95 [Eng] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839116.jpg" />
+  <img src="Z:/picture/008/save_picture_839116.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839114.jpg" />
+  <img src="Z:/picture/008/save_picture_839114.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839109.jpg" />
+  <img src="Z:/picture/008/save_picture_839109.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839103.jpg" />
+  <img src="Z:/picture/008/save_picture_839103.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839101.jpg" />
+  <img src="Z:/picture/008/save_picture_839101.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Saola Animate Pro 2.7.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839071.jpg" />
+  <img src="Z:/picture/008/save_picture_839071.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VLC media player for Mac 3.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839063.jpg" />
+  <img src="Z:/picture/008/save_picture_839063.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ CCleaner 5.66.7705 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839062.jpg" />
+  <img src="Z:/picture/008/save_picture_839062.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ SMath Studio 0.89 Build 3856 +Portable [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839026.jpg" />
+  <img src="Z:/picture/008/save_picture_839026.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Reg Organizer 5.15 Final [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839024.jpg" />
+  <img src="Z:/picture/008/save_picture_839024.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Ashampoo HDD Control 2.06 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839023.jpg" />
+  <img src="Z:/picture/008/save_picture_839023.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Reg Organizer 5.15 RePack by rs.bandito.soft [Английский + Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839019.jpg" />
+  <img src="Z:/picture/008/save_picture_839019.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839017.jpg" />
+  <img src="Z:/picture/008/save_picture_839017.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ STOIK Smart Resizer 3.0.0.3680 [multi +русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839016.jpg" />
+  <img src="Z:/picture/008/save_picture_839016.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839015.jpg" />
+  <img src="Z:/picture/008/save_picture_839015.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ PC Tools Registry Mechanic 10.0.1.140 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839013.jpg" />
+  <img src="Z:/picture/008/save_picture_839013.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ SteerMouse 5.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838979.jpg" />
+  <img src="Z:/picture/008/save_picture_838979.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838977.jpg" />
+  <img src="Z:/picture/008/save_picture_838977.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838971.jpg" />
+  <img src="Z:/picture/008/save_picture_838971.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838970.jpg" />
+  <img src="Z:/picture/008/save_picture_838970.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ OMC - Distortion Emotion (2011) [MP3|~207 kbps] <Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838968.jpg" />
+  <img src="Z:/picture/008/save_picture_838968.jpg" />
 </div>
 
 

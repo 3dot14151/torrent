@@ -1,3 +1,58 @@
+###  Публикация: 333289   (693547) от 07.05.2011
+
+WSUS Offline Update 6.8.4 Portable [Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693547.jpg" />
+</div>
+
+
+###  Подробнее
+
+WSUS Offline Update - программа, которая позволяет выполнять обновление Windows и Office в режиме оффлайн. Как известно, корпорация Microsoft регулярно выпускает обновления для своих ключевых продуктов - Windows и Office, причем эти обновления устанавливаются автоматическиы, но только в том случае, если компьютер, на который они устанавливаются, подключен к Интернету. WSUS Offline Update предоставляет возможность обновления Windows и Office в автономном режиме.
+
+Принцип работы заключается в том, что программа с помощью встроенного клиента позволяет загрузить свежие обновления на компьютер, подключенный к Интернету, после чего их можно записать на DVD и в дальнейшем использовать этот диск для обновления других компьютерах уже в режиме оффлайн.
+Одной из особенностей WSUS Offline Update является то, что программа позволяет исключать из списка загружаемых некоторые обновления (громоздкие сервис-паки и т.п.), а также настраивать ряд других параметров, например, для какой из локализаций (русской, английской и т.д.) (   Читать дальше...)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288776   (693536) от 12.03.2019
+
+Домашний медиа-сервер (UPnP, DLNA, HTTP) 3.00 [Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашний медиа-сервер (UPnP, DLNA, HTTP) - программа, предоставляющая медиа-ресурсы (фотографии, аудио и видео файлы) Вашего компьютера другим UPnP (DLNA) устройствам в домашней сети, например, телевизорам Philips, Sony, Samsung, LG, Toshiba, игровым приставкам Sony Playstation 3, XBOX 360, медиа-плеерам WD TV Live, Popcorn Hour, Dune, Boxee Box, IconBit, ASUS O!Play, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC872E469690631BB6FA5EBBE8D47FDAAD58401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288744   (693532) от 12.03.2019
 
 Avira Phantom VPN Pro 2.21.2.30481 RePack by elchupacabra [Multi/Ru]
@@ -6,7 +61,7 @@ Avira Phantom VPN Pro 2.21.2.30481 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693532.jpg" />
+  <img src="Z:/picture/008/save_picture_693532.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Futuremark 3DMark 2.8.6528 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693524.jpg" />
+  <img src="Z:/picture/008/save_picture_693524.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ R-Studio 7.6 Build 158715 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693452.jpg" />
+  <img src="Z:/picture/008/save_picture_693452.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ YoWindow Unlimited Edition 4 Build 27 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693449.jpg" />
+  <img src="Z:/picture/008/save_picture_693449.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ Freemake Video Converter 4.1.6.3 repack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693448.jpg" />
+  <img src="Z:/picture/008/save_picture_693448.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ Slimjet 14.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693419.jpg" />
+  <img src="Z:/picture/008/save_picture_693419.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ uTorrent Pro Stable 3.5.5 build 45146 Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693416.jpg" />
+  <img src="Z:/picture/008/save_picture_693416.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ Skype 8.41.0.54 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693409.jpg" />
+  <img src="Z:/picture/008/save_picture_693409.jpg" />
 </div>
 
 
@@ -214,7 +269,7 @@ CCleaner 5.55.7108 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693404.jpg" />
+  <img src="Z:/picture/008/save_picture_693404.jpg" />
 </div>
 
 
@@ -240,7 +295,7 @@ Any Video Converter Professional 5.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693341.jpg" />
+  <img src="Z:/picture/008/save_picture_693341.jpg" />
 </div>
 
 
@@ -266,7 +321,7 @@ Adobe Acrobat Pro DC 2015.007.20033 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693263.jpg" />
+  <img src="Z:/picture/008/save_picture_693263.jpg" />
 </div>
 
 
@@ -292,7 +347,7 @@ Adobe Photoshop CC 2014.2.2 (20141204.r.310) Portable by PortableWares [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693258.jpg" />
+  <img src="Z:/picture/008/save_picture_693258.jpg" />
 </div>
 
 
@@ -318,7 +373,7 @@ PDF-XChange Viewer Pro 2.5.322.3 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693234.jpg" />
+  <img src="Z:/picture/008/save_picture_693234.jpg" />
 </div>
 
 
@@ -344,7 +399,7 @@ CoolUtils Total CSV Converter 3.1.1.182 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693182.jpg" />
+  <img src="Z:/picture/008/save_picture_693182.jpg" />
 </div>
 
 
@@ -370,7 +425,7 @@ R-Studio 8.7 Build 170939 Network Edition RePack (& Portable) by TryRooM  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693173.jpg" />
+  <img src="Z:/picture/008/save_picture_693173.jpg" />
 </div>
 
 
@@ -396,7 +451,7 @@ Adobe Photoshop Lightroom 6.0.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693161.jpg" />
+  <img src="Z:/picture/008/save_picture_693161.jpg" />
 </div>
 
 
@@ -422,7 +477,7 @@ Adobe Illustrator CC 2014.1.1 18.1.1 Portable by PortableWares [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693154.jpg" />
+  <img src="Z:/picture/008/save_picture_693154.jpg" />
 </div>
 
 
@@ -448,7 +503,7 @@ Adobe Premiere Pro CC 2014.2 8.2.0 (65) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693153.jpg" />
+  <img src="Z:/picture/008/save_picture_693153.jpg" />
 </div>
 
 
@@ -474,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693141.jpg" />
+  <img src="Z:/picture/008/save_picture_693141.jpg" />
 </div>
 
 
@@ -500,7 +555,7 @@ Vivaldi 1.15.1147.36 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693078.jpg" />
+  <img src="Z:/picture/008/save_picture_693078.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ SMPlayer 18.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693071.jpg" />
+  <img src="Z:/picture/008/save_picture_693071.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ Adobe After Effects CC 2014.2 13.2.0.49 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693060.jpg" />
+  <img src="Z:/picture/008/save_picture_693060.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ Microsoft Windows 10 Pro Insider Preview 10.0.10074 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693048.jpg" />
+  <img src="Z:/picture/008/save_picture_693048.jpg" />
 </div>
 
 
@@ -606,7 +661,7 @@ Icecream Screen Recorder Pro 4.82 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693039.jpg" />
+  <img src="Z:/picture/008/save_picture_693039.jpg" />
 </div>
 
 
@@ -617,58 +672,6 @@ Icecream Screen Recorder - программа, позволяющая вести
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE06D12B527809C4BB2671792C1C3A9724293353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133673   (693037) от 13.05.2017
-
-Light Alloy 4.10.1 Build 3251 Final RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light Alloy - компактный мультимедийный плеер. Поддерживает все распространённые мультимедийные форматы. Основная особенность - простота использования и в то же время многообразие настроек. Проигрыватель оптимизирован для быстрого запуска и минимальной загрузки системы. Быстро перематывает видео, умеет загружать субтитры, может сворачиваться в трей, умеет регулировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFEBEF8CEFFB7F089AEE2A23976178DF5F682F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221578   (692996) от 25.04.2018
-
-Opera 52.0.2871.97 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB0518DCCB653D73AE3AA4D8EBFA52E0E4FC8F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

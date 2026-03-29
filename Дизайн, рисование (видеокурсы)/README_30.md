@@ -1,3 +1,29 @@
+###  Публикация: 1526176   (738651) от 23.01.2022
+
+Wingfox Studio, Wingfox | Character Painting in Photoshop (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник охватывает полный набор рабочих процессов для создания персонажа, начиная с проектирования, окраса и детализации. Кроме практических приемов учебник также содержит теорию изящных искусств и глубокий анализ модели. Ключом к созданию хорошего произведения искусства является ваше понимание. Знание одного или двух шагов или простое копирование техник у других (   Читать дальше...   )Производство: Wingfox StudioЖанр: Рисование, Дизайн персонажаЯзык озвучки: АнглийскийПродолжительность: 25:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDE5785F2EDBDC7946272DF4A0D017900B1A2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526415   (738348) от 24.01.2022
 
 Scott Eaton | Digital Figure Sculpture (2012) PCRec
@@ -6,7 +32,7 @@ Scott Eaton | Digital Figure Sculpture (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738348.jpg" />
+  <img src="Z:/picture/008/save_picture_738348.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ART School, Marc Brunet | ART School for digital artists (2021) WEB-DL [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738301.jpg" />
+  <img src="Z:/picture/008/save_picture_738301.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ FlippedNormals, Emiel Sleegers | Hero Prop Creation in Blender & Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738003.jpg" />
+  <img src="Z:/picture/008/save_picture_738003.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Wingfox, Fish man ( Yu Ing ) | Level Up Your Digital Painting Skills: Beginner t
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737969.jpg" />
+  <img src="Z:/picture/008/save_picture_737969.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Udemy, Austin Batchelor | The Digital Painting MEGA Course Beginner to Advanced 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737767.jpg" />
+  <img src="Z:/picture/008/save_picture_737767.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Cubebrush, Marc Brunet | Faster Illustration Techniques (2017) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737729.jpg" />
+  <img src="Z:/picture/008/save_picture_737729.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Udemy, Austin Batchelor, Stephen Sorensen | The Digital Painting Mega Course: Be
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737722.jpg" />
+  <img src="Z:/picture/008/save_picture_737722.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Digital Tutors, Tanya Wiesner | Automating Tasks Using MAXScript in 3ds Max (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737297.jpg" />
+  <img src="Z:/picture/008/save_picture_737297.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Digital Tutors, Eddie Russell | Map Baking Techniques for Games in Maya (2015) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737287.jpg" />
+  <img src="Z:/picture/008/save_picture_737287.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Udemy, Nikolay Naydenov | Making a Cartoon Character in Zbrush (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736772.jpg" />
+  <img src="Z:/picture/008/save_picture_736772.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736325.jpg" />
+  <img src="Z:/picture/008/save_picture_736325.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ Udemy, Nikolay Naydenov | Super Human Anatomy for Artists Course (2021) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736287.jpg" />
+  <img src="Z:/picture/008/save_picture_736287.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners ZBrush Course (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736263.jpg" />
+  <img src="Z:/picture/008/save_picture_736263.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ Udemy, Nikolay Naydenov | Female Anatomy for Artists Course (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736254.jpg" />
+  <img src="Z:/picture/008/save_picture_736254.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ Chris Maynard | Color Theory for CG and VFX Artists (2015) PCRec [En / Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736104.jpg" />
+  <img src="Z:/picture/008/save_picture_736104.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ Lynda, William Lidwell | Universal Principles of Design (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735813.jpg" />
+  <img src="Z:/picture/008/save_picture_735813.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ Digital Tutors, Laura Smith | Animating an Infographic in After Effects (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735801.jpg" />
+  <img src="Z:/picture/008/save_picture_735801.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735780.jpg" />
+  <img src="Z:/picture/008/save_picture_735780.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ Flippednormals, Abraham Leal | Zbrush 2021 for Absolute Beginners (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735776.jpg" />
+  <img src="Z:/picture/008/save_picture_735776.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ Wingfox Studio, Alex Vochshakin | Creative Environment Creation in Unreal Engine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735772.jpg" />
+  <img src="Z:/picture/008/save_picture_735772.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ Udemy, Nikolay Naydenov | Orc Rider and Bull Creature Creation in Zbrush (2019) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735768.jpg" />
+  <img src="Z:/picture/008/save_picture_735768.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ CGMA, CGsociety, Johan Lithvall | Hair creation for games (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735319.jpg" />
+  <img src="Z:/picture/008/save_picture_735319.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735318.jpg" />
+  <img src="Z:/picture/008/save_picture_735318.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Cubebrush, Tom Paul | Zbrush for Hard Surface Design (2014) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735309.jpg" />
+  <img src="Z:/picture/008/save_picture_735309.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ RENDER.CAMP, Даниил Нагаец | Профессиональная Виз
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735296.jpg" />
+  <img src="Z:/picture/008/save_picture_735296.jpg" />
 </div>
 
 
@@ -673,34 +699,6 @@ RENDER.CAMP, Даниил Нагаец | Профессиональная Виз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFF68D1B896DA1C87FF46AD750184FB3CE2200FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528331   (734889) от 01.02.2022
-
-Артём Слаква | Инструменты моделирования в Blender 2.78 (2016) PCRec [видеоуроки к книге]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоуроки к книге «Инструменты моделирования в Blender».
-
-Многое, за что можно поругать Blender, но лишь отчаянный станет критиковать его возможности моделирования объектов. Он неоднократно доказал свою гибкость и удобство при работе с объектами, и не останавливается на достигнутом. Но даже те, кто создают модели с его помощью ежедневно, не всегда знают всех его (   Читать дальше...   )Производство: Blender3DЖанр: 3D моделированиеЯзык озвучки: Озвучки нет, только музыкаПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D33B160A01B95989A507E07414E931A6FE1632B
 ```
 
 https://mybot314.ru/tekegram_catalog/

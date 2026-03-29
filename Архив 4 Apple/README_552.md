@@ -1,3 +1,110 @@
+###  Публикация: 1651146   (223601) от 05.08.2023
+
+GraphicConverter for Mac 12.0.4 Beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223601.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2023Разработчик: © 2023 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5993D114323FE718F47BBD52CBC19A387FE3552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651139   (223591) от 05.08.2023
+
+Dato 5.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 13.3Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BD5BA853C69ECAB5FBF22695CF2A4E4CA299D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651134   (223566) от 05.08.2023
+
+Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2023Разработчик: © 2023 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FEF242197FC88DF6965A97478FCA2AD0131142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513572   (223556) от 29.11.2021
+
+Wondershare Recoverit 10.0.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 28.11.2021Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB999A60410EE5B8786C11D2B431BC6B68C6950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425123   (223544) от 19.11.2020
 
 ACDSee Photo Studio 7 v7.0.1840 [En]
@@ -6,7 +113,7 @@ ACDSee Photo Studio 7 v7.0.1840 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223544.jpg" />
+  <img src="Z:/picture/005/save_picture_223544.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ Movist Pro 2.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223541.jpg" />
+  <img src="Z:/picture/005/save_picture_223541.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ Folder-Factory 7.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223519.jpg" />
 </div>
 
 
@@ -90,7 +197,7 @@ CADintosh X 8.8.5 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223441.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ Wondershare UniConverter for Mac 15.0.1 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223356.jpg" />
 </div>
 
 
@@ -143,7 +250,7 @@ MAMP & MAMP PRO 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223324.jpg" />
+  <img src="Z:/picture/005/save_picture_223324.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ Swish 1.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223277.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ Proxifier for Mac 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223234.jpg" />
 </div>
 
 
@@ -221,7 +328,7 @@ Tenorshare iCareFone for WhatsApp Transfer 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223208.jpg" />
+  <img src="Z:/picture/005/save_picture_223208.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ Red Giant Magic Bullet Suite 14.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223131.jpg" />
+  <img src="Z:/picture/005/save_picture_223131.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ GrandTotal 6 v6.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222895.jpg" />
+  <img src="Z:/picture/005/save_picture_222895.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222874.jpg" />
+  <img src="Z:/picture/005/save_picture_222874.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ iCollections 6 v6.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222866.jpg" />
+  <img src="Z:/picture/005/save_picture_222866.jpg" />
 </div>
 
 
@@ -356,7 +463,7 @@ Posterino 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222862.jpg" />
+  <img src="Z:/picture/005/save_picture_222862.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ Permute 3 v3.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222855.jpg" />
+  <img src="Z:/picture/005/save_picture_222855.jpg" />
 </div>
 
 
@@ -409,7 +516,7 @@ Stats 2.6.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222836.jpg" />
+  <img src="Z:/picture/005/save_picture_222836.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ NetWorker Pro 8.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222829.jpg" />
+  <img src="Z:/picture/005/save_picture_222829.jpg" />
 </div>
 
 
@@ -461,7 +568,7 @@ Softorino YouTube Converter 2 v2.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222819.jpg" />
+  <img src="Z:/picture/005/save_picture_222819.jpg" />
 </div>
 
 
@@ -490,7 +597,7 @@ Application Wizard 4.4 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222781.jpg" />
+  <img src="Z:/picture/005/save_picture_222781.jpg" />
 </div>
 
 
@@ -518,7 +625,7 @@ DiskCatalogMaker 8.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222773.jpg" />
+  <img src="Z:/picture/005/save_picture_222773.jpg" />
 </div>
 
 
@@ -544,7 +651,7 @@ Movist Pro 2.2.13 (build 135) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222732.jpg" />
+  <img src="Z:/picture/005/save_picture_222732.jpg" />
 </div>
 
 
@@ -572,7 +679,7 @@ Downie 4 v4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222729.jpg" />
+  <img src="Z:/picture/005/save_picture_222729.jpg" />
 </div>
 
 
@@ -585,116 +692,6 @@ Downie поддерживает более 1,000 популярных сайто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63684D5D75C33F68A3E3531F23DB30FB9E653FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513805   (222719) от 30.11.2021
-
-DSLR Assistant 3.9.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте камерой Canon, подключенной к Mac, эффективно снимайте цифровые изображения, автоматически выполняйте различные фото-задачи и поддерживайте высокое качество изображений на протяжении всего рабочего процесса.
-Почему DSLR Assistant?
-• Экономьте время. Выполняйте задачи с фотографиями быстрее, лучше и проще. Уменьшите объем рабочего процесса постобработки. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2021Разработчик: © 2021 KAAsoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C358F7647228FDD151D4CDB0EA2E03601EA4D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342722   (222711) от 03.12.2019
-
-Allegorithmic Substance Alchemist 2019.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Alchemist выводит искусство создания 3D-материалов и управления ими на новый уровень, благодаря новым функциям для более простого и быстрого создания материалов. Художники могут рассчитывать на мощный, оптимизированный рабочий процесс и интуитивно понятный пользовательский интерфейс.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AllegorithmicПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B462402320BA1DA0266256ABD1A9D4C106C0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966149   (222681) от 16.12.2015
-
-RightFont 2.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222681.jpg" />
-</div>
-
-
-###  Подробнее
-
-RightFont - менеджер шрифтов с  красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам  легко управлять всеми своими  шрифтами .
-
-Возможности:
-- Доступ к управлению шрифтами в любое время непосредственно из строки меню(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2015Разработчик: Markly TeamПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED92FD79B2BDE462137111FEE3E95B037E3B074E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513804   (222648) от 30.11.2021
-
-balenaEtcher for macOS 1.7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222648.jpg" />
-</div>
-
-
-###  Подробнее
-
-balenaEtcher предлагает вам возможность с легкостью записывать образы ОС на любую SD-карту или USB-накопитель, не заставляя вас выполнять сложные процедуры. Утилита объединяет удобный инструмент выбора диска и может проверить карту перед началом записи данных.
-Это приложение с открытым исходным кодом использует одно окно, в котором пользователь может указать образ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 BalenaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3104384FF99604DC3406FD9BF5DF2BBC24EE16FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

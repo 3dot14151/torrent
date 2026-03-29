@@ -6,7 +6,7 @@ AIMP 4.51 build 2073 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715611.jpg" />
+  <img src="Z:/picture/008/save_picture_715611.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FastStone Image Viewer 5.7 DC 06.06.2016 RePack (& Portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715608.jpg" />
+  <img src="Z:/picture/008/save_picture_715608.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Infix PDF Editor Pro 7.2.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715602.jpg" />
+  <img src="Z:/picture/008/save_picture_715602.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Room Arranger 9.5.4.612 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715514.jpg" />
+  <img src="Z:/picture/008/save_picture_715514.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FileLocator Pro 8.0 Build 2656 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715450.jpg" />
+  <img src="Z:/picture/008/save_picture_715450.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ESET Endpoint Security 6.4.2014.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715446.jpg" />
+  <img src="Z:/picture/008/save_picture_715446.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Internet Download Manager 6.25 Build 21 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715439.jpg" />
+  <img src="Z:/picture/008/save_picture_715439.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BatchPhoto Enterprise 4.3 Build 2018.04.12 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715368.jpg" />
+  <img src="Z:/picture/008/save_picture_715368.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PicPick 4.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715322.jpg" />
+  <img src="Z:/picture/008/save_picture_715322.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ JetBrains CLion 2016.1.3 Build #CL-145.1617 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715311.jpg" />
+  <img src="Z:/picture/008/save_picture_715311.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Corel VideoStudio Ultimate X9 19.3.0.18 SP3 + StandardContent + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715306.jpg" />
+  <img src="Z:/picture/008/save_picture_715306.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ESET Endpoint Security | Antivirus 6.4.2014.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715262.jpg" />
+  <img src="Z:/picture/008/save_picture_715262.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Any Video Converter Ultimate 6.2.3 RePack (&Portable) by arina-23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715237.jpg" />
+  <img src="Z:/picture/008/save_picture_715237.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AIMP 4.51 Build 2073 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715234.jpg" />
+  <img src="Z:/picture/008/save_picture_715234.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6785.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715226.jpg" />
+  <img src="Z:/picture/008/save_picture_715226.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ K-Lite Codec Pack 14.1.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715224.jpg" />
+  <img src="Z:/picture/008/save_picture_715224.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ FastStone Capture 8.2 Final + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715215.jpg" />
+  <img src="Z:/picture/008/save_picture_715215.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Topaz DeNoise AI 2.2.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715179.jpg" />
+  <img src="Z:/picture/008/save_picture_715179.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Cakewalk SONAR Platinum 22.5.0 Build 45 (2016.05) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715153.jpg" />
+  <img src="Z:/picture/008/save_picture_715153.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adobe Photoshop Lightroom CC 2015.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715131.jpg" />
+  <img src="Z:/picture/008/save_picture_715131.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Adobe Photoshop Lightroom CC 2015.6 (6.6) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715128.jpg" />
+  <img src="Z:/picture/008/save_picture_715128.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ ESET Endpoint Antivirus 6.4.2014.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715113.jpg" />
+  <img src="Z:/picture/008/save_picture_715113.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Ashampoo Driver Updater 1.2.0.49468 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715070.jpg" />
+  <img src="Z:/picture/008/save_picture_715070.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Transmission 2.93 (3c5870d4f5)  Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715068.jpg" />
+  <img src="Z:/picture/008/save_picture_715068.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Malwarebytes AdwCleaner 7.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715065.jpg" />
+  <img src="Z:/picture/008/save_picture_715065.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Vivaldi 1.0.162.4 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715048.jpg" />
+  <img src="Z:/picture/008/save_picture_715048.jpg" />
 </div>
 
 

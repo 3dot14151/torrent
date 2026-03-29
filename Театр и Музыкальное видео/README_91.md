@@ -1,3 +1,165 @@
+###  Публикация: 718780   (388237) от 04.11.2013
+
+Black Country Communion - Live Over Europe (2011) BDRemux [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_388237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Over Europe – концертное издание англо-американской рок-супергруппы, записанное на 14 HD камер летом 2011 года в городах Германии: Гамбурге, Мюнхене и Берлине и выпущенный 24 октября 2011 года. Группа первоначально была задумана во время совместного концерта для Guitar Center (сеть магазинов музыкальных инструментов со штаб-квартирой в Калифорнии, США) Joe Bonamassa (   Читать дальше...   )01. Revolution Of The Machine (Intro)
+02. Black Country
+03. One Last Soul
+04. Crossfire(   Читать дальше...   )Производство: Mascot RecordsЖанр: Hard Rock, Blues RockФормат: MKVПродолжительность: 01:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6277FD97ED1B7FB44DB601114007D55C7F7D4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571523   (388016) от 07.11.2012
+
+Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_388016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD716F14FA7D971328EBA8D33D680BF394CDA0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571878   (388003) от 07.11.2012
+
+Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_388003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEEC113215ED1FE4E4D7B8B7ABF89E368987D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571525   (387865) от 07.11.2012
+
+Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Relax, Chill OutПродолжительность: 00:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497DD0C72E6C5304EBB80B2DB837311C4925EA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571733   (387741) от 07.11.2012
+
+Израиль Камакавивиоле / Israel Kamakawiwo'ole Facing Future 14 Somewhere Over The Rainbow [H.264] (2012) Mp4
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень красивый клип и очень прекрасный, замечательный голос!Жанр: Музыка, Jazz, reggae, HawaiianПродолжительность: 00:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A271EC93A1534F4FE1202EE3ADC60D40454E3BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574229   (387629) от 04.09.2022
+
+Квартирник у Маргулиса. The Hatters (04.09.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заявив о себе в начале 2016 года, The Hatters практически сразу же стали известными: пройдя путь от маленьких площадок до многотысячных стадионов, они обрели армию преданных поклонников, а под их песни в стиле «народного алкохардкора на душевных инструментах» устоять не может никто. В гостях у Евгения Маргулиса участники The Hatters поделились интересными воспоминаниями (   Читать дальше...   )00:00:13 Love Is Love
+00:08:47 Сильная Женщина
+00:14:06 Двигай
+00:17:47 На табуретку взгромоздясь(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Фолк-рокПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C4E126D8A3A0484483536C50893DCCAF525FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253003   (387586) от 07.10.2018
 
 Квартирник на НТВ у Маргулиса. Пётр Налич (10.06.2018) WEBRip [H.264/1080p-LQ]
@@ -6,7 +168,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387586.jpg" />
+  <img src="Z:/picture/008/save_picture_387586.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Nirvana - Live At Reading Festival (1992) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_385768.jpg" />
+  <img src="Z:/picture/005/save_picture_385768.jpg" />
 </div>
 
 
@@ -61,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385082.jpg" />
+  <img src="Z:/picture/008/save_picture_385082.jpg" />
 </div>
 
 
@@ -95,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385075.jpg" />
+  <img src="Z:/picture/008/save_picture_385075.jpg" />
 </div>
 
 
@@ -121,7 +283,7 @@ Dio - Holy Diver Live (2010) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384123.jpg" />
+  <img src="Z:/picture/008/save_picture_384123.jpg" />
 </div>
 
 
@@ -147,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383929.jpg" />
+  <img src="Z:/picture/008/save_picture_383929.jpg" />
 </div>
 
 
@@ -177,7 +339,7 @@ Aerosmith - Music From Another Dimension! (Deluxe Edition) (Bonus DVD) (2012) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_383065.jpg" />
+  <img src="Z:/picture/005/save_picture_383065.jpg" />
 </div>
 
 
@@ -209,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382676.jpg" />
+  <img src="Z:/picture/008/save_picture_382676.jpg" />
 </div>
 
 
@@ -238,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382668.jpg" />
+  <img src="Z:/picture/008/save_picture_382668.jpg" />
 </div>
 
 
@@ -267,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382639.jpg" />
+  <img src="Z:/picture/008/save_picture_382639.jpg" />
 </div>
 
 
@@ -296,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382333.jpg" />
+  <img src="Z:/picture/008/save_picture_382333.jpg" />
 </div>
 
 
@@ -322,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381433.jpg" />
+  <img src="Z:/picture/008/save_picture_381433.jpg" />
 </div>
 
 
@@ -348,7 +510,7 @@ Dream Theater - Live at Luna Park (2013) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381335.jpg" />
+  <img src="Z:/picture/008/save_picture_381335.jpg" />
 </div>
 
 
@@ -377,7 +539,7 @@ A-HA - Live In Giske Norway (2017) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380790.jpg" />
+  <img src="Z:/picture/008/save_picture_380790.jpg" />
 </div>
 
 
@@ -404,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380647.jpg" />
+  <img src="Z:/picture/008/save_picture_380647.jpg" />
 </div>
 
 
@@ -430,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380505.jpg" />
+  <img src="Z:/picture/008/save_picture_380505.jpg" />
 </div>
 
 
@@ -459,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_380428.jpg" />
+  <img src="Z:/picture/005/save_picture_380428.jpg" />
 </div>
 
 
@@ -485,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_379956.jpg" />
+  <img src="Z:/picture/005/save_picture_379956.jpg" />
 </div>
 
 
@@ -516,7 +678,7 @@ Nirvana - Live At Reading Festival [1992] (2009) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_379910.jpg" />
+  <img src="Z:/picture/005/save_picture_379910.jpg" />
 </div>
 
 
@@ -545,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379775.jpg" />
+  <img src="Z:/picture/008/save_picture_379775.jpg" />
 </div>
 
 
@@ -559,174 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:914F6E61AE31B26C949853DD93B4829482449880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948795   (379375) от 22.10.2015
-
-Муслим Магомаев. Записи 1963-1973 годов (2007) DVDRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время
-02. Три минуты молчания
-03. В этот день
-04. Вдоль по Питерской(   Читать дальше...   )Производство: РоссияЖанр: МузыкальныйАктеры: М.МагомаевПродолжительность: 02:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAE2F822B125EB2500F68DD7DE84C96887AD1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949194   (379359) от 22.10.2015
-
-Червона рута / Красная рута (1971) TVRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379359.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поезде «Донецк — Верховина» знакомятся карпатская девушка Оксана и молодой шахтёр с Донбасса Борис. В роли Оксаны — преподавательница Черновицкого музыкального училища София Ротар (тогда её фамилия писалась ещё так). Бориса играет солист ВИА «Смеричка» Василий Зинкевич. Парень и девушка влюбляются друг в друга, и весь нехитрый сюжет картины, скрепляющий воедино (   Читать дальше...   )Производство: СССР, УкртелефильмЖанр: МузыкальныйРежиссер: Роман ОлексивАктеры: Василий Зинкевич, София Ротару, Назарий Яремчук, Владимир Ивасюк; ВИА «Смеричка», «Карпаты», «Росинка», танцевальный ансамбль «Эврика» и др.Продолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B02C42EC9E3A2F26C8C56A17CB27EA294845E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253378   (379305) от 11.10.2018
-
-Rammstein - Bizarre Festival (1996) VHSRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein - культовая немецкая рок-группа, образованная в январе 1994 года в Берлине. Музыкальный стиль группы относится к жанру индастриал-метала (конкретно - его немецкой сцене Neue Deutsche Härte).01. Rammstein
-02. Der Meister
-03. Weisses Fleisch
-04. Asche Zu Asche(   Читать дальше...   )Жанр: Rock, Metal, IndustrialСубтитры: отсутствуютПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37D9B3D9B24A04C078736E9EC02432F22B03970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253372   (379301) от 11.10.2018
-
-Rammstein - Bizarre Festival (1997) VHSRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein - культовая немецкая рок-группа, образованная в январе 1994 года в Берлине. Музыкальный стиль группы относится к жанру индастриал-метала (конкретно - его немецкой сцене Neue Deutsche Härte).01. Tier
-02. Bestrafe Mich
-03. Du Riechst So Gut
-04. Du Hast(   Читать дальше...   )Жанр: Rock, Metal, IndustrialСубтитры: отсутствуютПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB8DD38E57897AAD1A68018BB57F5ADD61F822C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948773   (379153) от 22.10.2015
-
-Rihanna - Bitch Better Have My Money (2015) WEBRip[H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rihanna представляет новое скандальное видео  под названием *Bitch Better Have My Money*Жанр: R&B, PoP.Продолжительность: 00:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F8D163A3F76EABA38F5D770343B342B33E792D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949060   (379152) от 22.10.2015
-
-U2-Концерт/Чикаго (2015) WEBRip[H.264/2160p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Ирландской  Рок-группы, одной из самых популярных в мире,который прошел в Чикаго 28 июня 2015г. на арене "City of Big Shoulders" который вы можете увидеть в ультра высоком разрешении 4K (UHD)1.The Miracle (Of Joey Ramone)
-2.Gloria / Van Morrison's Gloria (snippet)
-3.Vertigo
-4.I Will Follow(   Читать дальше...   )Производство: СШАЖанр: Рок-н-роллПродолжительность: 02.24.51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11ACEADCB5F4FF4B2CAE8750E68B4A05467A65C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 917867   (588642) от 13.07.2015
+
+Г. Бельская (сост.) | Неизвестная война. Правда о Первой мировой. Часть 1 (2014) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_588642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о том, как складывалась ситуация в Европе накануне Первой мировой войны, начавшейся в 1914 году, о том, каково было ее начало, о наиболее ярких событиях первых лет войны, о людях на войне. В книгу вошли статьи, опубликованные в журнале «ЗНАНИЕ-СИЛА» в 2014–2015 годах. Все статьи написаны профессиональными историками из России, Венгрии, Украины (   Читать дальше...   )Жанр: История войнФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74990B92E900D2FF970FE479ACD0888BC149029E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040122   (586452) от 05.08.2016
 
 Юрий Жуков | Укрощение "тигров" (1961) [PDF, DJVU, FB2]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586452.jpg" />
+  <img src="Z:/picture/008/save_picture_586452.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586393.jpg" />
+  <img src="Z:/picture/008/save_picture_586393.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585947.jpg" />
+  <img src="Z:/picture/008/save_picture_585947.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585298.jpg" />
+  <img src="Z:/picture/008/save_picture_585298.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584990.jpg" />
+  <img src="Z:/picture/008/save_picture_584990.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583855.jpg" />
+  <img src="Z:/picture/008/save_picture_583855.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583269.jpg" />
+  <img src="Z:/picture/008/save_picture_583269.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583190.jpg" />
+  <img src="Z:/picture/008/save_picture_583190.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583145.jpg" />
+  <img src="Z:/picture/008/save_picture_583145.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583132.jpg" />
+  <img src="Z:/picture/008/save_picture_583132.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582395.jpg" />
+  <img src="Z:/picture/008/save_picture_582395.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582381.jpg" />
+  <img src="Z:/picture/008/save_picture_582381.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582354.jpg" />
+  <img src="Z:/picture/008/save_picture_582354.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582350.jpg" />
+  <img src="Z:/picture/008/save_picture_582350.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582343.jpg" />
+  <img src="Z:/picture/008/save_picture_582343.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582341.jpg" />
+  <img src="Z:/picture/008/save_picture_582341.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582295.jpg" />
+  <img src="Z:/picture/008/save_picture_582295.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582237.jpg" />
+  <img src="Z:/picture/008/save_picture_582237.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580462.jpg" />
+  <img src="Z:/picture/008/save_picture_580462.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580455.jpg" />
+  <img src="Z:/picture/008/save_picture_580455.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580391.jpg" />
+  <img src="Z:/picture/008/save_picture_580391.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580388.jpg" />
+  <img src="Z:/picture/008/save_picture_580388.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580332.jpg" />
+  <img src="Z:/picture/008/save_picture_580332.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577008.jpg" />
+  <img src="Z:/picture/008/save_picture_577008.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575470.jpg" />
+  <img src="Z:/picture/008/save_picture_575470.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2758A045E1616D41A4FCD2D8530024FA275C096A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584307   (574404) от 15.08.2016
-
-Сергей Патянин | Французские крейсера Второй Мировой. «Военно-морское предательство» (2012) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574404.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 января 1941 года, в Сиамском заливе, у Ко-Чанга, французский легкий крейсер «Ламот-Пике» атаковали тайский броненосец береговой обороны «Донбури», который был старше на целых два поколения и, после получасовой перестрелки, тяжело поврежденный, вышел из боя, чтобы вскоре затонуть на мели. «Ламот-Пике» не получил ни одного попадания и потерь не имел. Этот расстрел (   Читать дальше...   )Жанр: Военная история, флотФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89279EC26CCF31F84691B9390D513B270548024
 ```
 
 https://mybot314.ru/tekegram_catalog/

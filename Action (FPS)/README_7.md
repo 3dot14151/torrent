@@ -1,3 +1,81 @@
+###  Публикация: 1499703   (847262) от 02.10.2021
+
+S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля (2007) [Ru] (1.0006) Repack West4it
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847262.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 год. Шесть лет прошло с момента Второй катастрофы, затмившей события апреля 1986 года. Действие игры происходит в Чернобыльской зоне отчуждения, превратившейся из места, где ломались судьбы, в угрозу всему человечеству. Свои тайны Зона раскрывает неохотно, через силу, и редкий герой сможет добраться до самого ее сердца и узнать – какая опасность поджидает его (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4728F8D18D52629D6B7FD95DC05E3727EEB2F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112591   (840868) от 09.03.2017
+
+Homefront: The Revolution (2016) [Ru/En] (1.078.1055/dlc) Repack R.G. Revenants [Freedom Fighter Bundle]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homefront: The Revolution – это шутер от первого лица, в котором вы должны возглавить силы Сопротивления в партизанской войне против превосходящих сил противника. Все ваши действия будут влиять на живой, дышащий открытый мир – ваша ячейка Сопротивления и вы сможете вдохновить угнетённых гражданских на восстание и превратить оккупацию в революцию.Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21709FBEBE349BDE84747D6904F8E09CE5BA4319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112700   (840858) от 09.03.2017
+
+One Sole Purpose (2017) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840858.jpg" />
+</div>
+
+
+###  Подробнее
+
+One Sole Purpose - это приключенческий экшен, в котором игроки могут управлять временем и гравитацией. Сюжет повествует о Майкле, брате известного инженера, пропавшего при странных обстоятельствах. Майкл отправляется на поиски брата, постепенно погружаясь в пучину настоящего безумия.Тип издания: LicenseРазработчик: Sameer HireziЖанр: Action, Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8F73A6675967DFB16745607E52C6F86BC7D2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004532   (837517) от 06.04.2016
 
 Nether: Resurrected (2014) [Ru/En] (2014 June) Repack Pioneer
@@ -6,7 +84,7 @@ Nether: Resurrected (2014) [Ru/En] (2014 June) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837517.jpg" />
+  <img src="Z:/picture/008/save_picture_837517.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ S.T.A.L.K.E.R. Shadow of Chernobyl - Конец Света 2: Последний
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837510.jpg" />
+  <img src="Z:/picture/008/save_picture_837510.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835614.jpg" />
+  <img src="Z:/picture/008/save_picture_835614.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Follia Dear Father (2020) [Ru/Multi] (3.86) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835537.jpg" />
+  <img src="Z:/picture/008/save_picture_835537.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.0.1) RePack R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832312.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Stairs (2015) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832141.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Crysis 2 (2011) [Ru] (1.9) Repack/Mod Agastan [HD Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831951.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Resilience: Wave Survival (2015) [En] (Build 26) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828215.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Outlast Dilogy (2013-2017) [Ru/Multi] Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825536.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Obscuritas (2016) [Ru/Multi] (1.0) Repack ARMENIAC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824517.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Cold Fear (2005) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_824030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_824030.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.19hf/dlc) Repack  xatab [Digital Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823829.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ The Tape (2015) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822826.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Putrefaction (2015) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822600.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Dead Secret (2016) [En] (1.0) Rip Unleashed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822599.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack West4it [Director's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822093.jpg" />
+  <img src="Z:/picture/008/save_picture_822093.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821992.jpg" />
+  <img src="Z:/picture/008/save_picture_821992.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Worst Case Z (2016) [En/De] (1.0) License CODE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818716.jpg" />
+  <img src="Z:/picture/008/save_picture_818716.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd46/dlc) License PLAZA [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818645.jpg" />
+  <img src="Z:/picture/008/save_picture_818645.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818609.jpg" />
+  <img src="Z:/picture/008/save_picture_818609.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816583.jpg" />
+  <img src="Z:/picture/008/save_picture_816583.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Red Orchestra: Ostfront 41–45 (2006) [Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816345.jpg" />
+  <img src="Z:/picture/008/save_picture_816345.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Into the Pit (2021) [Multi] (368) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815402.jpg" />
+  <img src="Z:/picture/008/save_picture_815402.jpg" />
 </div>
 
 
@@ -595,87 +673,6 @@ Into the Pit (2021) [Multi] (368) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BCB404ACCEC33DC7BB325643EC8AE31A63FC61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656077   (814942) от 15.05.2013
-
-Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] License FAIRLIGHT
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814942.jpg" />
-</div>
-
-
-###  Подробнее
-
-В туннелях метро под руинами постапокалиптической Москвы остатки человечества отражают смертоносные атаки как извне, так и изнутри.
-Мутанты регулярно наведываются в катакомбы и охотятся на тех, кто осмелился вылезти на безжизненную поверхность под отравленным небом. Но вместо того, чтобы объединиться, города - станции метро беспрестанно воюют, стремясь заполучить (   Читать дальше...   )Тип издания: ЛицензияРазработчик: 4A GamesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / Английский / Multi6Язык субтитров: Русский / Английский / Multi9Язык интерфейса: Русский / Английский / Multi9
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D750C5B335393650A224DE0AA2C1C5041D7458CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008611   (814828) от 18.04.2016
-
-Doorways: The Underworld (2014) [En/Es] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doorways: The Underworld — это приключенческий хоррор с видом от первого лица, отличающийся запутанным сюжетом и глубокой атмосферой. Игра бросит вам настоящий вызов своим динамичным геймплеем и поразит невероятной графикой и музыкой, так что приготовьтесь ощутить на себе ужасающий психологический опыт. Вы играете роль Томаса Фостера, специального агента, который (   Читать дальше...   )Тип издания: LicenseРазработчик: Saibot StudiosЖанр: Action, Survival, Horror, 3DЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6B5725620CB4E9D41DF40010DB417C3E2A3494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 316320   (814710) от 30.03.2011
-
-Armed Assault 2 / ArmA 2: Reinforcements / ArmA 2: Второй фронт [Ru] (L) 2011 | R.G Игроманы
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814710.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издание «Arma 2: Второй фронт» вошли самостоятельные дополнения British Armed Forces и Private Military Company.
-Десятилетний опыт разработки игр позволил студии Bohemia Interactive создать самый реалистичный военный симулятор на сегодняшний день. Современные технологии, детализированная карта, созданная на основе реальных географических данных, аутентичные модели экипировки солдат, оружия и техники — всё это Arma 2.
-Ведите в бой вооруженные силы Ее Величества или элитные подразделения профессиональных наемников. Играйте в одиночку или присоединяйтесь к захватывающим онлайновым сражениям, в которых могут одновременно участвовать до 50 игроков и сотни компьютерных персонажей.Тип издания: ЛицензияЖанр: Action (Tactical / Shooter) / Add-on / Strategy (Tactical) / 3D / 1st Person / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

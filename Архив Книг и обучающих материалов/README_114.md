@@ -1,3 +1,32 @@
+###  Публикация: 930591   (515202) от 23.08.2015
+
+Гарт Никс | Собрание сочинений [20 книг] (2001-2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарт Никс (1963г.р.) - австралийский писатель. Пишет в жанре фэнтези.
+Наиболее известен трилогией Старое Королевство и циклом Ключи от Королевства.
+
+Награды и премии: Книга года по версии Фантлаба, 2010/ Лучшая повесть / рассказ зарубежного автора - За морскими воротами ученых-пиратов Сарске.(   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF41407314E57A8206CC7EE7F809AC962F9D611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930657   (515074) от 23.08.2015
 
 Евгений Лотош | Sonata con fuoco [тетралогия] (2015) [FB2]
@@ -6,7 +35,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515074.jpg" />
+  <img src="Z:/picture/008/save_picture_515074.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514936.jpg" />
+  <img src="Z:/picture/008/save_picture_514936.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514705.jpg" />
+  <img src="Z:/picture/008/save_picture_514705.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514592.jpg" />
+  <img src="Z:/picture/008/save_picture_514592.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514521.jpg" />
+  <img src="Z:/picture/008/save_picture_514521.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514400.jpg" />
+  <img src="Z:/picture/008/save_picture_514400.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514373.jpg" />
+  <img src="Z:/picture/008/save_picture_514373.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514303.jpg" />
+  <img src="Z:/picture/008/save_picture_514303.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514095.jpg" />
+  <img src="Z:/picture/008/save_picture_514095.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514013.jpg" />
+  <img src="Z:/picture/008/save_picture_514013.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513958.jpg" />
+  <img src="Z:/picture/008/save_picture_513958.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513954.jpg" />
+  <img src="Z:/picture/008/save_picture_513954.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513590.jpg" />
+  <img src="Z:/picture/008/save_picture_513590.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513521.jpg" />
+  <img src="Z:/picture/008/save_picture_513521.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513021.jpg" />
+  <img src="Z:/picture/008/save_picture_513021.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512128.jpg" />
+  <img src="Z:/picture/008/save_picture_512128.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512122.jpg" />
+  <img src="Z:/picture/008/save_picture_512122.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512035.jpg" />
+  <img src="Z:/picture/008/save_picture_512035.jpg" />
 </div>
 
 
@@ -487,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511946.jpg" />
+  <img src="Z:/picture/008/save_picture_511946.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511941.jpg" />
+  <img src="Z:/picture/008/save_picture_511941.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511934.jpg" />
+  <img src="Z:/picture/008/save_picture_511934.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511569.jpg" />
+  <img src="Z:/picture/008/save_picture_511569.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511513.jpg" />
+  <img src="Z:/picture/008/save_picture_511513.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511511.jpg" />
+  <img src="Z:/picture/008/save_picture_511511.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511508.jpg" />
+  <img src="Z:/picture/008/save_picture_511508.jpg" />
 </div>
 
 
@@ -654,32 +683,6 @@ Elle - самый популярный журнал мод в мире. Его �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC1C275FD0F95E6838A696ED7101142AAAE3D6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537494   (511497) от 21.08.2012
-
-Журнал | Marie Claire №9 (131) (Россия) [сентябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511497.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Marie Claire" — международный женский глянцевый журнал, неизменно занимает первое место в рейтингах. В России "Marie Claire" выходит с 1997 года. Формула "Marie Claire" уникальна: сильный блок моды сочетается с яркими, порой провокационными репортажами. Журнал говорит о самых актуальных темах жизни женщины: моде, красоте, здоровье, стиле жизни, психологии, отношениях, общественных событиях.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5F6CE86E5CCAC0BCAB7DA2ACB692F1D3570E30
 ```
 
 https://mybot314.ru/tekegram_catalog/

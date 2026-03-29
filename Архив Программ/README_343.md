@@ -6,7 +6,7 @@ AnyMP4 Video Converter Ultimate 7.0.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877081.jpg" />
+  <img src="Z:/picture/005/save_picture_877081.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCleaner 5.85.9170 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876978.jpg" />
+  <img src="Z:/picture/005/save_picture_876978.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Bat! Professional Edition 9.4.4 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876976.jpg" />
+  <img src="Z:/picture/005/save_picture_876976.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CCleaner 5.85.9170 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876974.jpg" />
+  <img src="Z:/picture/008/save_picture_876974.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876968.jpg" />
+  <img src="Z:/picture/005/save_picture_876968.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Rufus 2.8 (Build 883) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876966.jpg" />
+  <img src="Z:/picture/005/save_picture_876966.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AIMP 4.01 Build 1703 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876960.jpg" />
+  <img src="Z:/picture/005/save_picture_876960.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kaspersky Lab Products Remover 1.0.995 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876955.jpg" />
+  <img src="Z:/picture/005/save_picture_876955.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ PhotoInstrument 7.4 Build 834 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876946.jpg" />
+  <img src="Z:/picture/005/save_picture_876946.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ HyperSnap 8.10.00 RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876943.jpg" />
+  <img src="Z:/picture/005/save_picture_876943.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ XYplorer 20.90.0100 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876879.jpg" />
+  <img src="Z:/picture/005/save_picture_876879.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ IrfanView 4.42 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876849.jpg" />
+  <img src="Z:/picture/005/save_picture_876849.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Wire 2.5.2584 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876847.jpg" />
+  <img src="Z:/picture/005/save_picture_876847.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ R-Studio 7.8 Build 160829 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876846.jpg" />
+  <img src="Z:/picture/005/save_picture_876846.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ RGBGOLD 1.00 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876842.jpg" />
+  <img src="Z:/picture/005/save_picture_876842.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876840.jpg" />
+  <img src="Z:/picture/008/save_picture_876840.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Opera 36.0.2130.32 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876839.jpg" />
+  <img src="Z:/picture/005/save_picture_876839.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Firefox Browser 75.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876825.jpg" />
+  <img src="Z:/picture/005/save_picture_876825.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BurnAware Professional 13.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876822.jpg" />
+  <img src="Z:/picture/005/save_picture_876822.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Complete Internet Repair 5.2.3.4063 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876816.jpg" />
+  <img src="Z:/picture/008/save_picture_876816.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ XPLife 4.0 - Изменения интерфейса Windows XP 32-bit / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876809.jpg" />
+  <img src="Z:/picture/008/save_picture_876809.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 10 Login Changer 0.0.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876764.jpg" />
+  <img src="Z:/picture/005/save_picture_876764.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ PDF24 Creator 9.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876699.jpg" />
+  <img src="Z:/picture/005/save_picture_876699.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Aiseesoft Video Converter Ultimate 10.0.8 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876697.jpg" />
+  <img src="Z:/picture/005/save_picture_876697.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Internet Download Manager 6.25 Build 14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876658.jpg" />
+  <img src="Z:/picture/005/save_picture_876658.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BurnAware Professional 13.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876616.jpg" />
+  <img src="Z:/picture/005/save_picture_876616.jpg" />
 </div>
 
 

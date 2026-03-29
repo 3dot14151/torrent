@@ -1,3 +1,237 @@
+###  Публикация: 1747625   (44400) от 06.09.2024
+
+ВИА Земляне - Земляне (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+0I. КаскадерЬы
+02. Прости, Земля
+03. Маленький кораблик(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9922D294B85DADD7333D6715A91032D21A6B4E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665537   (43972) от 10.09.2024
+
+Edge of Sanity - Studio Albums (12 releases) (1991-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Edge of Sanity — шведская дэт-метал группа, которая, наряду с Opeth, считается первой, кто соединил такие стили экстремального металла, как дэт и блэк-метал, с прогрессивным роком. Группа была основана Дэном Свано в 1989 году и прекратила свое существование в 1999 году.
+Вокалист и композитор Дэн Свано в 2003 году записал альбом "Crimson II", который представлял (   Читать дальше...   )1991 - Nothing But Death Remains
+1992 - Unorthodox
+1993 - The Spectral Sorrows
+1994 - Purgatory AfterglowЖанр: Progressive Death MetalПродолжительность: 09:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA51837582D69D011DD82B2499482A76BE7DFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549031   (43838) от 12.09.2024
+
+Threshold - Studio Albums (22 releases) (1993-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Threshold — английская рок-группа, играющая в стиле «прогрессивный метал». Основана в 1988 году в городе Суррей (Англия). Одна из ведущих групп прогрессив-металла, которая существует уже более 30 лет.1993 - Wounded Land
+1994 - Psychedelicatessen
+1997 - Extinct Instinct
+1998 - CloneЖанр: Progressive MetalПродолжительность: 26:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A73AB675DF523219182943257FC0061880EE38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603776   (43309) от 17.09.2024
+
+Dark Tranquillity - Studio Albums (14 releases) (1993-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Tranquillity — шведская метал-группа, созданная в 1989 году в Гётеборге, под названием Septic Broiler. После записи демо Enfeebled Earth музыканты изменили название на Dark Tranquillity. Наряду с In Flames и At the Gates считаются одними из пионеров жанра мелодичного дэт-метала.1995 - Skydancer
+1995 - The Gallery
+1997 - The Mind's I
+1999 - ProjectorЖанр: Melodic Death MetalПродолжительность: 14:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B847EA2E41247C4DA950B815C068659AA7A27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579045   (43263) от 17.09.2024
+
+Flotsam And Jetsam - Studio Albums (15 releases) (1986-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flotsam and Jetsam — трэш-метал-группа, сформированная в Финиксе, Аризона в 1981 году.1986 - Doomsday For The Deceiver
+1988 - No Place For Disgrace 2014
+1990 - When The Storm Comes Down
+1992 - Cuatro(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 14:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1A33F5D10AD01D5DE083C7E79D0A68AC4AC381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749979   (43251) от 17.09.2024
+
+He Is Legend - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Metal, Stoner Rock, Post-hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43251.jpg" />
+</div>
+
+
+###  Подробнее
+
+He Is Legend — американская альтернативная метал-группа из Уилмингтона, Северная Каролина, основана в 2003 году.2004 - 91025
+2004 - I Am Hollywood
+2006 - Black Unicorn
+2006 - Suck Out The PoisonЖанр: Southern Metal, Stoner Rock, Post-hardcoreПродолжительность: 06:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DA395E0D6D6A5344DD8805D0C2D8F2CB493215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750127   (43175) от 18.09.2024
+
+Земляне & Supermax - Sergey Skachkov & Kurt Hauenstein (2009) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Reggae, Funk / Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Machine
+02. World of today
+03. It aint easy
+04. Hotline(   Читать дальше...   )Жанр: Rock, Reggae, Funk / SoulПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67944DCB5EEC1A6CD49AC22F44753B1B082E995A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591737   (42908) от 21.09.2024
+
+Nightwish - Studio Albums (11 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.
+Nightwish — одна из первых и самых влиятельных групп в жанре симфоник-метал, наряду с Therion и Within Temptation. Раннее творчество Nightwish отличалось сочетанием (   Читать дальше...   )1997 - Angels Fall First
+1999 - Oceanborn
+2000 - Wishmaster
+2002 - Century ChildЖанр: Symphonic MetalПродолжительность: 13:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B454931F661457F8BBD54FDDD5D26682C69FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572589   (42838) от 21.09.2024
 
 Seether - Studio Albums (11 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
@@ -6,7 +240,7 @@ Seether - Studio Albums (11 releases) (2000-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42838.jpg" />
 </div>
 
 
@@ -35,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42600.jpg" />
 </div>
 
 
@@ -64,7 +298,7 @@ Metal Church - Studio Albums (14+1 releases) (1985-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42559.jpg" />
 </div>
 
 
@@ -93,7 +327,7 @@ Hiraes - Studio Albums (2 releases) (2021-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42513.jpg" />
 </div>
 
 
@@ -120,7 +354,7 @@ Toni Braxton - Singles Collection (2000) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42500.jpg" />
 </div>
 
 
@@ -149,7 +383,7 @@ Ratt - Studio Albums (2 releases) (1999; 2010) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42304.jpg" />
 </div>
 
 
@@ -176,7 +410,7 @@ Toni Braxton - Secrets (1997) Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42190.jpg" />
 </div>
 
 
@@ -205,7 +439,7 @@ Disturbed - Studio Albums (8 releases) (2000-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42076.jpg" />
 </div>
 
 
@@ -234,7 +468,7 @@ Tad Morose - Studio Albums (11 releases) (1993-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41886.jpg" />
 </div>
 
 
@@ -263,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41834.jpg" />
 </div>
 
 
@@ -292,7 +526,7 @@ Judas Priest - Дискография (26 releases) (1974-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41235.jpg" />
 </div>
 
 
@@ -321,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41198.jpg" />
 </div>
 
 
@@ -350,7 +584,7 @@ Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40998.jpg" />
 </div>
 
 
@@ -379,7 +613,7 @@ Drowning Pool - Studio Albums (7 releases) (2001-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40997.jpg" />
 </div>
 
 
@@ -408,7 +642,7 @@ Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40712.jpg" />
 </div>
 
 
@@ -437,7 +671,7 @@ Ad Infinitum - Studio Albums (5 releases) (2020-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40673.jpg" />
 </div>
 
 
@@ -466,7 +700,7 @@ Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40372.jpg" />
 </div>
 
 
@@ -495,7 +729,7 @@ Cruachan - Studio Albums (9 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40357.jpg" />
 </div>
 
 
@@ -509,233 +743,6 @@ Cruachan — ирландская группа, играющая в стиле �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:173BDC202A5DE1D15C1786156ED818C689174950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755378   (40284) от 15.10.2024
-
-Вячеслав Добрынин - Браво, Маэстро! I+II (1997) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Chanson, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Chanson, SchlagerПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0480D3E1AC726DEC83377099979E6C7997A12DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755429   (40265) от 15.10.2024
-
-Nocturna (Italy) - Studio Albums (2 releases) (2022-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nocturna - симфо-метал группа из Италии с женским вокалом.2022 - Daughters Of The Night
-2024 - Of Sorcery And DarknessЖанр: Symphonic Power MetalПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE87BD46A3D347C12CD20DECBB08D3420B03F091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522707   (40116) от 17.10.2024
-
-Mylene Farmer - Studio Albums (19 releases) (1986-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <French Pop, Dance, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милен Жанна Готье (фр. Mylène Jeanne Gautier), профессионально известная как Милен Фармер (Mylène Farmer), французская певица, композитор, актриса и поэтесса канадского происхождения.1986 - Cendres de lune
-1988 - Ainsi soit je
-1991 - L'autre
-1995 - AnamorphoseeЖанр: French Pop, Dance, ElectronicПродолжительность: 25:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD270D99E137BE6EF9BE745E37B5BA8A350F1808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755693   (40054) от 17.10.2024
-
-Сергей Беликов - Вечерний Звонок (1997) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Ballad, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Вечерний Звонок
-02. Возвращение
-03. Подари Мне Свой Взгляд(   Читать дальше...   )Жанр: Ballad, SchlagerПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F04C0C9B805E13C53449FD475EA39ABB7EBEC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637597   (39975) от 18.10.2024
-
-Kamelot - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kamelot — американская метал-группа, играющая симфонический пауэр-метал с примесями других жанров. Группа создана в 1991 году Томасом Янгбладом и Ричардом Ворнером и получила название в честь мифического города Камелот с намеренной ошибкой (K вместо C). Несмотря на своё североамериканское происхождение, Kamelot отличается типично «европейским» звучанием.1995 - Eternity
-1996 - Dominion
-1998 - Siege Perilous
-1999 - The Fourth LegacyЖанр: Progressive/Melodic Power MetalПродолжительность: 12:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D40E16D6498A4D79E1105B2DBFC9FD66DCF90E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755911   (39864) от 19.10.2024
-
-Сергей Скачков - Избранное (2024) Compilation, Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Меня нет дома
-02. Маска гетто
-03. Не буди её(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CFFF06C59F653359D559A2D186875AAF4077F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756468   (39675) от 21.10.2024
-
-Frozen Crown - Studio Albums (5 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frozen Crown — итальянская пауэр-метал-группа, образованная в 2017 году в Милане, Ломбардия.2018 - The Fallen King
-2019 - Crowned In Frost
-2021 - Winterbane
-2023 - Call of the NorthЖанр: Power MetalПродолжительность: 04:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF40EA7C93198F3AC17161FCFE5F5A8DEE0CC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756454   (39654) от 21.10.2024
-
-Divinefire - Studio Albums (5 releases) (2004-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Divinefire — пауэр-метал-группа, основанная весной 2004 года финским гитаристом Яни Стефановичем и шведским певцом Кристианом Лильегреном.2004 - Glory Thy Name
-2005 - Hero
-2006 - Into a New Dimension
-2008 - FarewellЖанр: Power MetalПродолжительность: 03:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF969602EA3C361FF63C4E0A6CEA48B7B6147AF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

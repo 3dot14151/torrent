@@ -1,3 +1,124 @@
+###  Публикация: 1179394   (349342) от 31.10.2017
+
+Camille Thurman - Inside The Moment (2017) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Has a Thousand Eyes [07:22]
+02. Sassy's Blues [07:41]
+03. Road Song [06:14]
+04. Detour Ahead [07:44](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C266B8F253757EDD735A2508664472F8CF1EE9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579176   (348199) от 23.11.2012
+
+Al Di Meola - The Grande Passion (2000) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_348199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misterio (7:54)
+02. Double Concerto (5:58)
+03. Prelude: Adagio for Theresa (1:22)
+04. The Grande Passion (9:05)
+05. Asia de Cuba (8:59)
+06. Soledad (7:38)
+07. Opus in Green (10:21)
+08. Libertango (5:08)
+09. Azucar (3:13)Жанр: JazzПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578303   (348161) от 22.09.2022
+
+Ellis Marsalis - Whistle Stop (1994) Columbia [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whistle Stop [4:58]
+02. Dee Wee [6:33]
+03. A Moment Alone [4:18]
+04. Magnolia Triangle [6:07](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D51D56FD7674E99B40B63CFC863BD4009931A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329933   (348013) от 07.10.2019
+
+Tubby Hayes Quartet - Grits, Beans and Greens: The Lost Fontana Sessions (1969) 2CD, 2019, Fontana [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Where Am I Going? (take 1) [8:30]
+02. Where Am I Going? (take 2) [7:40]
+03. Where Am I Going? (take 3) [8:06](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A54029B17FF4B74D4A281709A62FA77F53BEF26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073269   (347945) от 15.11.2016
 
 Dave Pike - Jazz For The Jet Set (1965) Remaster, 2001, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +127,7 @@ Dave Pike - Jazz For The Jet Set (1965) Remaster, 2001, Warner[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347945.jpg" />
+  <img src="Z:/picture/008/save_picture_347945.jpg" />
 </div>
 
 
@@ -35,7 +156,7 @@ Eric Reed - A Light In Darkness (2017) WJ3 Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347938.jpg" />
+  <img src="Z:/picture/008/save_picture_347938.jpg" />
 </div>
 
 
@@ -64,7 +185,7 @@ Portico Quartet - Memory Streams (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347859.jpg" />
+  <img src="Z:/picture/008/save_picture_347859.jpg" />
 </div>
 
 
@@ -93,7 +214,7 @@ Barb Jungr - Shelter From The Storm (2016) Linn Records[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347795.jpg" />
+  <img src="Z:/picture/008/save_picture_347795.jpg" />
 </div>
 
 
@@ -122,7 +243,7 @@ Jeff Hamilton Trio - Live From San Pedro (2018) Capri Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347781.jpg" />
+  <img src="Z:/picture/008/save_picture_347781.jpg" />
 </div>
 
 
@@ -151,7 +272,7 @@ Beegie Adair & Monica Ramey - Some Enchanted Christmas (2018) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347776.jpg" />
+  <img src="Z:/picture/008/save_picture_347776.jpg" />
 </div>
 
 
@@ -180,7 +301,7 @@ Sandro Roy - Souvenir De Paris (2018) Skip Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347613.jpg" />
+  <img src="Z:/picture/008/save_picture_347613.jpg" />
 </div>
 
 
@@ -209,7 +330,7 @@ VA - The Liberty of Jazz (1958, 1963) 2005, SoLyd Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347114.jpg" />
+  <img src="Z:/picture/008/save_picture_347114.jpg" />
 </div>
 
 
@@ -238,7 +359,7 @@ Bril Brothers (Братья Бриль) - Immersion (2000) /Landy Star/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347098.jpg" />
+  <img src="Z:/picture/008/save_picture_347098.jpg" />
 </div>
 
 
@@ -267,7 +388,7 @@ Sadao Watanabe - Pamoja (1975) /2015, Universal/[FLAC|tracks+.cue]<Post-Bop, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347095.jpg" />
+  <img src="Z:/picture/008/save_picture_347095.jpg" />
 </div>
 
 
@@ -296,7 +417,7 @@ Enrico Rava Quartet with Gianluca Petrella - Wild Dance (2015) /ECM/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346977.jpg" />
+  <img src="Z:/picture/008/save_picture_346977.jpg" />
 </div>
 
 
@@ -325,7 +446,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1955) 1989, Blue Note [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346944.jpg" />
+  <img src="Z:/picture/008/save_picture_346944.jpg" />
 </div>
 
 
@@ -354,7 +475,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol.1 (1953) 1989, Blue Note [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346942.jpg" />
+  <img src="Z:/picture/008/save_picture_346942.jpg" />
 </div>
 
 
@@ -383,7 +504,7 @@ Don Ellis - A Simplex One (1960) 2002, Past Perfect [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345933.jpg" />
+  <img src="Z:/picture/008/save_picture_345933.jpg" />
 </div>
 
 
@@ -412,7 +533,7 @@ Bajka - Escape From Wonderland (2010) [FLAC|Lossless]<Nu Jazz, Electronic>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_345898.jpg" />
+  <img src="Z:/picture/005/save_picture_345898.jpg" />
 </div>
 
 
@@ -447,7 +568,7 @@ Steve Turre - Rhythm Within (1995) Verve Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345748.jpg" />
+  <img src="Z:/picture/008/save_picture_345748.jpg" />
 </div>
 
 
@@ -476,7 +597,7 @@ Papik - Rhythm Of Life (2009) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345556.jpg" />
+  <img src="Z:/picture/008/save_picture_345556.jpg" />
 </div>
 
 
@@ -505,7 +626,7 @@ Scott Bradlee's Postmodern Jukebox - Learn To Floss in 3 Easy Steps (2018) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345484.jpg" />
+  <img src="Z:/picture/008/save_picture_345484.jpg" />
 </div>
 
 
@@ -534,7 +655,7 @@ Mildred Bailey - Mrs. Swing (1929 - 1942) 2003, 4CD, Proper Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344822.jpg" />
+  <img src="Z:/picture/008/save_picture_344822.jpg" />
 </div>
 
 
@@ -563,7 +684,7 @@ Al Cohn - Rifftide (1987) /2015, Timeless Records/[FLAC|tracks+.cue]<Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344800.jpg" />
+  <img src="Z:/picture/008/save_picture_344800.jpg" />
 </div>
 
 
@@ -592,7 +713,7 @@ Azar Lawrence - Summer Solstice (1975) /2014, Universal/[FLAC|tracks+.cue]<Afro-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344790.jpg" />
+  <img src="Z:/picture/008/save_picture_344790.jpg" />
 </div>
 
 
@@ -621,7 +742,7 @@ Denzal Sinclaire - I Found Love (2000) /Emarcy/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344786.jpg" />
+  <img src="Z:/picture/008/save_picture_344786.jpg" />
 </div>
 
 
@@ -635,122 +756,6 @@ Denzal Sinclaire - I Found Love (2000) /Emarcy/[FLAC|tracks+.cue]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECD809F84C1E9B0644DA955B5DE040EC018B6A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953846   (344777) от 06.11.2015
-
-Johnny "Hammond" Smith - Open House (1963) /2001, Milestone/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Open House [04:39]
- 02.Cyra [05:28]
- 03.I Remember You [05:02]
- 04.Theme From Cleopatra [02:37](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1D8FAD3B78868D7ED6B9BFFFDF33CF761C5A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179655   (344692) от 02.11.2017
-
-Julian & Roman Wasserfuhr - Gravity (2011) ACT [FLAC|Lossless|image + .cue] <Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twinkle Eyes [04:55]
-02. English Man In New York [05:38]
-03. Interlude [01:32]
-04. L.O.V.E. [05:20](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FDBC1E0557E00EE9E314D9DAFF24E178EC5681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179959   (344688) от 02.11.2017
-
-Cootie Williams - In Hi-Fi (1958) 1999, RCA Victor [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just in Time [03:31]
-02. Summit Ridge Drive [03:21]
-03. Nevertheless, I'm In Love With You [03:43]
-04. On The Street Where You Live [03:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75CE5EF6026E8F2ED3EA3AC8391218A361E3C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179654   (344687) от 02.11.2017
-
-Paul Jackson, Jr. - I Came To Play (1988) Atlantic [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Came to Play [04:29]
-02. My Love's for Real [05:19]
-03. Morning Joy [04:44]
-04. Personal Touch [05:56](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8117C6E7A1CBFD6293ACC0DC1D877B58CA9D591C
 ```
 
 https://mybot314.ru/tekegram_catalog/

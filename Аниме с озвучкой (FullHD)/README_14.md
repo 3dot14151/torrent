@@ -1,3 +1,29 @@
+###  Публикация: 1524405   (744795) от 15.01.2022
+
+Войны Астериска [ТВ-2] | Gakusen Toshi Asterisk 2nd Season | The Asterisk War Season 2 [2016, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно на Землю обрушился доселе невиданный метеоритный дождь - "Инверсия". Всё было сметено с лица Земли, но через множества лет после катастрофы, люди стали приобретать «Генестеллу» - силу, которая высвободилась после катастрофы. На когда-то разрушенной инверсией Земле появился новый город "Рикка", также известный как "Астериск". (   Читать дальше...   )Жанр: Приключения, романтика, эттиРежиссер: Оно МанабуЯзык озвучки: Русский двухголосый, закадровый (AniLibria.TV), ЯпонскийПродолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE7DE38D3B3B58E5F860530F385C942BD92CAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524384   (744794) от 15.01.2022
 
 Войны Астериска [ТВ-1] | Gakusen Toshi Asterisk | The Asterisk War [2015, TV, 12 из 12] BDRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744794.jpg" />
+  <img src="Z:/picture/008/save_picture_744794.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742000.jpg" />
+  <img src="Z:/picture/008/save_picture_742000.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741886.jpg" />
+  <img src="Z:/picture/008/save_picture_741886.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Nakitai Watashi wa Neko wo Kaburu | Сквозь Слёзы я Притворя�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741088.jpg" />
+  <img src="Z:/picture/008/save_picture_741088.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739431.jpg" />
+  <img src="Z:/picture/008/save_picture_739431.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738312.jpg" />
+  <img src="Z:/picture/008/save_picture_738312.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738293.jpg" />
+  <img src="Z:/picture/008/save_picture_738293.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737717.jpg" />
+  <img src="Z:/picture/008/save_picture_737717.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736302.jpg" />
+  <img src="Z:/picture/008/save_picture_736302.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь в альте
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735945.jpg" />
+  <img src="Z:/picture/008/save_picture_735945.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735496.jpg" />
+  <img src="Z:/picture/008/save_picture_735496.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot | Fate/Grand Order -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732610.jpg" />
+  <img src="Z:/picture/008/save_picture_732610.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Tokyo Ghoul:Re | Токийский гуль: Перерождение [ТВ-3] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727285.jpg" />
+  <img src="Z:/picture/008/save_picture_727285.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712597.jpg" />
+  <img src="Z:/picture/008/save_picture_712597.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Coluboccoro / Колубоккоро [2007, Movie] BDRip 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706225.jpg" />
+  <img src="Z:/picture/008/save_picture_706225.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700885.jpg" />
+  <img src="Z:/picture/008/save_picture_700885.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698579.jpg" />
+  <img src="Z:/picture/008/save_picture_698579.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686011.jpg" />
+  <img src="Z:/picture/008/save_picture_686011.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying | Мой сэмпай �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682007.jpg" />
+  <img src="Z:/picture/008/save_picture_682007.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656834.jpg" />
+  <img src="Z:/picture/008/save_picture_656834.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649951.jpg" />
+  <img src="Z:/picture/008/save_picture_649951.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644322.jpg" />
+  <img src="Z:/picture/008/save_picture_644322.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из шк
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644321.jpg" />
+  <img src="Z:/picture/008/save_picture_644321.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644319.jpg" />
+  <img src="Z:/picture/008/save_picture_644319.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640360.jpg" />
+  <img src="Z:/picture/008/save_picture_640360.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0C7566827184AFCC57A774D6D9E5D7171A098AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907273   (637003) от 12.06.2015
-
-Bakuretsu Tenshi / Burst Angel / Ангелы Смерти [2004, TV, 24 + 1 эп.] BDRip 1080p raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее, год 20XX. Токио все больше погружается в хаос преступности и жестокости. Чтобы хоть как-то сохранить порядок, правительство разрешает обычным гражданам носить оружие. Но даже специально созданное полицейское спецподразделение РАПТ не в силах защитить людей, живущих в постоянном страхе. Кто может спасти раздираемый насилием, обреченный город? Только ангелы. (   Читать дальше...   )Производство: Япония, Gonzo DigimationЖанр: приключения, комедия, меха, эттиРежиссер: Охата КойтиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Формат: mp4Продолжительность: 25 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40ED28E5009FDDB37EAF42784E09A29ECDF1EC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

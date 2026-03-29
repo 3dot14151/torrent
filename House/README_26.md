@@ -1,3 +1,119 @@
+###  Публикация: 1018925   (754090) от 21.05.2016
+
+VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Carmela - Curve Sound (Original Mix)
+02. Anthony Mea - Dreama (Original Mix)
+03. Marco Grandi - Butterfly (Original Mix)
+04. Adam Byrd - Without You (Original Mix)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 01:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F332D9E7C7D1062D4016E00E4B4586B2D8BBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018988   (752422) от 22.05.2016
+
+Michael Rade - Dadala (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel (Radio Edit)
+02. Californian Summer (Radio Edit)
+03. Children of the Light (Radio Edit)
+04. Club Bizarre (Radio Edit)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 04:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A3747AAD7074AE6C42E10AC063CF0F10F4645F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019362   (752341) от 22.05.2016
+
+VA - Sirup Deep Anthems Ibiza 2016 (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croatia Squad - The D Machine (Radio Mix) (03:37)
+02. Ben Delay - I Never Felt so Right (Radio Mix) (03:43)
+03. Nora En Pure - Better off That Way (Radio Mix) (03:12)
+04. Milk & Sugar - Heat (Calippo Radio Mix) (03:11)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E955332E196326AA19C548478859DBF27D95882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019582   (750270) от 23.05.2016
+
+VA - Garten Lounge Musik (2016) [MP3|320 кб/с] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fritzbeat - Your Hero - Radio Version [03:33]
+02. Eddy Chrome - Feel It in Your Soul - Vocal Mix [05:31]
+03. DJ Absinth - Morning Sun - Radio Version [03:14]
+04. Angelina Copa - Eu Quero Jogar - Bar Mix [06:20](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D97A444F1CE7CABA044A9AF9F5D521FA5ADAB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282039   (748514) от 10.02.2019
 
 VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, Future House>
@@ -6,7 +122,7 @@ VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, F
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748514.jpg" />
+  <img src="Z:/picture/008/save_picture_748514.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - We Love House (2019) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748512.jpg" />
+  <img src="Z:/picture/008/save_picture_748512.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Dancefloor Hits (2019) [MP3|320 Kbps] <House,  Progressive House, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748506.jpg" />
+  <img src="Z:/picture/008/save_picture_748506.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Poolside Miami 2018 (Mixed by Kraak & Smaak) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747855.jpg" />
+  <img src="Z:/picture/008/save_picture_747855.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Fitness Beats 2018 - 24 Workout & Fitness Gym Music Hits [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747840.jpg" />
+  <img src="Z:/picture/008/save_picture_747840.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Good Old Days Vol 3: Disco House Sounds (2019) [MP3|320 Kbps] <Disco, Nu-Di
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746705.jpg" />
+  <img src="Z:/picture/008/save_picture_746705.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Einfach Nur Mugge 2018 [MP3|320 Kbps] <House, Deep House, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746237.jpg" />
+  <img src="Z:/picture/008/save_picture_746237.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Love Nightlife, Vol. 2 The Lounge Room Grooves (2018) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746131.jpg" />
+  <img src="Z:/picture/008/save_picture_746131.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Love Nightlife, Vol. 1 The Lounge Room Grooves By Kolibri Musique (2017) [M
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746127.jpg" />
+  <img src="Z:/picture/008/save_picture_746127.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745400.jpg" />
+  <img src="Z:/picture/008/save_picture_745400.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Gregory Esayan - Pilgrim's Diary (2016) [MP3|320 кб/с] <Progressive House , B
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745390.jpg" />
+  <img src="Z:/picture/008/save_picture_745390.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744872.jpg" />
+  <img src="Z:/picture/008/save_picture_744872.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743843.jpg" />
+  <img src="Z:/picture/008/save_picture_743843.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741362.jpg" />
+  <img src="Z:/picture/008/save_picture_741362.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741232.jpg" />
+  <img src="Z:/picture/008/save_picture_741232.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741182.jpg" />
+  <img src="Z:/picture/008/save_picture_741182.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741114.jpg" />
+  <img src="Z:/picture/008/save_picture_741114.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741068.jpg" />
+  <img src="Z:/picture/008/save_picture_741068.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741064.jpg" />
+  <img src="Z:/picture/008/save_picture_741064.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Dee
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740992.jpg" />
+  <img src="Z:/picture/008/save_picture_740992.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Training Hits 2017 Workout Music (2017) [MP3|320 Kbps] <House, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740908.jpg" />
+  <img src="Z:/picture/008/save_picture_740908.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Deep Sundays, Vol.1 (2019) [MP3|320 Kbps] <House, DeepHouse>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740388.jpg" />
+  <img src="Z:/picture/008/save_picture_740388.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Deep Sundays, Vol.1 (2019) [MP3|320 Kbps] <House, DeepHouse>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C89A9F29156C72CF7E3355387ABEA96C1F26838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217992   (740319) от 07.04.2018
-
-VA - Spring Club Tunes 2018 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Ross - Example 03:55
-02. Jake Jones - You (feat Addie - Quoala remix) 03:33
-03. Alan Marvin - Memories (feat Scarlett Quinn) 03:39
-04. DeLoops - OK Without You (Oddboy remix) 03:44(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7681B98DE2A0DD7EBE7E87D274694EB79DB30A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398196   (736656) от 24.07.2020
-
-VA - Ultra Cardio Dance & Aerobic Hits 2020 Workout Collection [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovy 69 - House Party (Fitness Version 128 (4:15)
-02. D'Mixmasters - Supalonely (Fitness Version 128 B (4:00)
-03. Red Hardin, The Team - Loco Contigo (Fitness Version 128 (3:45)
-04. Movimento Latino - Mamacita (Fitness Version 128 Bpm (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98746178B74B0B2A2F324CCB37FC5A028D2AD162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398981   (734307) от 29.07.2020
-
-Nikita Cano - Exhale (2020) [MP3|~245 Kbps (V0)] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikita Cano - Exhale (59:13)
-02. Alien Alien - Sambaca (5:33)
-03. Frost - Overtones (Extended Mix) (4:48)
-04. Ben Böhmer, Monolink - Black Hole (Gui Boratto Extended Rework) (4:14)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813354CD05C880C19942C35AE819446B29E2E716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399594   (732943) от 01.08.2020
-
-VA - Pure Body Workout Hits 2020 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732943.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Housecream - I Don't Wanna Live Forever (Fitness Version 128 Bpm) (4:52)
-2. Patty Dart - Lover (Fitness Version 128 Bpm) (6:06)
-3. D'Mixmasters - In My Feelings (Fitness Version 128 Bpm) (3:52)
-4. One Nation - Rescue Me (Fitness Version 128 Bpm) (5:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCB2D884F73A59BF0A9DD4B34D1DCD47B4545F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

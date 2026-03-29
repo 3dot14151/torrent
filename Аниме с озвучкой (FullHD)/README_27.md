@@ -1,3 +1,30 @@
+###  Публикация: 1645503   (186306) от 23.09.2023
+
+Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Владыка демонов первого уровня и герой из однушки [2023, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Десять лет назад герой Макс победил Владыку демонов. Чтобы восстановить свою силу, Владыка погрузился в глубокий сон, но, когда он проснулся, его тело стало лишь сильно уменьшенной и почти лишённой магии версией его устрашающей формы. Теперь, желая узнать, что задумал его враг, Владыка демонов навещает Макса и обнаруживает, что некогда сильнейший герой (   Читать дальше...   )Производство: Япония, студия Silver LinkЖанр: комедия, повседневность, пародияРежиссер: Иноэ КэйсукэЯзык озвучки: Русский закадровый (Dream Cast), (AniBaza), (AniLibria.TV), (DubHouse)Субтитры: Русские надписи, русские (софтсаб), Multi-4Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F929D7B14F8B03A9EFDCBC326B12BF8A3FEB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426633   (185654) от 25.11.2020
 
 No Guns Life [TV-2] | Жизнь без оружия [TV-2] [2020, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
@@ -6,7 +33,7 @@ No Guns Life [TV-2] | Жизнь без оружия [TV-2] [2020, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185654.jpg" />
+  <img src="Z:/picture/004/save_picture_185654.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185626.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182676.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182634.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182148.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181753.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181693.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181274.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181232.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181045.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180652.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Wu Liuqi | Scissor Seven | Killer Seven | Киллер Севен  [ТВ-1] [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180639.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180628.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180434.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180423.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180180.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180101.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179473.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ Fruits Basket TV-2 | Корзинка фруктов ТВ-2 [2020, TV, 25 из 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179442.jpg" />
+  <img src="Z:/picture/005/save_picture_179442.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176982.jpg" />
+  <img src="Z:/picture/005/save_picture_176982.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ Quan Zhi Gao Shou | Quanzhi Gaoshou | The King`s Avatar | Master of Skill | Ав
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176929.jpg" />
+  <img src="Z:/picture/005/save_picture_176929.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175694.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172777.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ Good Night World | Спокойной ночи, мир [2023, Web, 12] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172580.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171685.jpg" />
 </div>
 
 
@@ -658,33 +685,6 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8460D02AB575B036BB08890D572DB6BD1FD8C649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670807   (171680) от 22.10.2023
-
-Семь главенствующих мечей | Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades [2023, TV, 15 из 15] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходит весна, и в Академию магии Кимберли зачисляются полные энтузиазма первогодки. Всем им не терпится начать обучение, чтобы постичь искусство волшебства и стать полноправными магами. Но на вступительной церемонии происходит неожиданное: на ребят нападает самый настоящий тролль. Одолеть его удаётся только благодаря стараниям двух первогодок — прилежного парня (   Читать дальше...   )Производство: Япония / Студия J.C. StaffЖанр: Приключения, фэнтезиРежиссер: Мацунэ МасатоЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Hekomi, Hoopoe, Nuts, SlivciS, WhiteCrow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 15 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF064D21259C9C08B60E9908F52BC89030CA859
 ```
 
 https://mybot314.ru/tekegram_catalog/

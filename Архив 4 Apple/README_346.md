@@ -1,3 +1,111 @@
+###  Публикация: 1560251   (522053) от 28.06.2022
+
+Alfred 5 Powerpack 5.0 EA4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2022Разработчик: © 2022 Running with Crayons LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7198F839D43AB93B2CC685930F3DDAB869616C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560246   (522047) от 28.06.2022
+
+Yate 6.10.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2022Разработчик: © 2022 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37184D0087A1049BC573E8A96573386BDB821B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560157   (522036) от 28.06.2022
+
+FontLab 8 v8.0.0.8200.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522036.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
+По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2022Разработчик: © 2015–2021 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB6A6898DEAE1CE6F49B15D56DBF711503B7D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560075   (522034) от 28.06.2022
+
+PullTube 1.8.3.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 27.06.2022Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550EE119C67AAFDD27DFF15CB7D086C621F06EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560166   (521974) от 28.06.2022
 
 Disk Space Analyzer Pro 3.8 [En]
@@ -6,7 +114,7 @@ Disk Space Analyzer Pro 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521974.jpg" />
+  <img src="Z:/picture/008/save_picture_521974.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Pixelmator Pro 2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521965.jpg" />
+  <img src="Z:/picture/008/save_picture_521965.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ App Cleaner & Uninstaller Pro 7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521900.jpg" />
+  <img src="Z:/picture/008/save_picture_521900.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ VideoProc Converter 4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521888.jpg" />
+  <img src="Z:/picture/008/save_picture_521888.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ ForkLift 3.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521885.jpg" />
+  <img src="Z:/picture/008/save_picture_521885.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Keka 1.2.55 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521884.jpg" />
+  <img src="Z:/picture/008/save_picture_521884.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ MacCleaner 2 PRO 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521830.jpg" />
+  <img src="Z:/picture/008/save_picture_521830.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ MetaImage 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521422.jpg" />
+  <img src="Z:/picture/008/save_picture_521422.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ PowerPhotos 2.0b16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520993.jpg" />
+  <img src="Z:/picture/008/save_picture_520993.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ MarsEdit 4 v4.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520992.jpg" />
+  <img src="Z:/picture/008/save_picture_520992.jpg" />
 </div>
 
 
@@ -273,7 +381,7 @@ A Better Finder Rename 11 v11.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520985.jpg" />
+  <img src="Z:/picture/008/save_picture_520985.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ Alfred PowerPack 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520983.jpg" />
+  <img src="Z:/picture/008/save_picture_520983.jpg" />
 </div>
 
 
@@ -327,7 +435,7 @@ Text Workflow 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520894.jpg" />
+  <img src="Z:/picture/008/save_picture_520894.jpg" />
 </div>
 
 
@@ -354,7 +462,7 @@ Allavsoft Video Downloader Converter 3.24.8.8210 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520892.jpg" />
+  <img src="Z:/picture/008/save_picture_520892.jpg" />
 </div>
 
 
@@ -380,7 +488,7 @@ Wattagio 1.12.12 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520880.jpg" />
+  <img src="Z:/picture/008/save_picture_520880.jpg" />
 </div>
 
 
@@ -406,7 +514,7 @@ Blackmagic Design Fusion Studio 18.0 Beta 5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520806.jpg" />
+  <img src="Z:/picture/008/save_picture_520806.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ SideNotes 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520740.jpg" />
+  <img src="Z:/picture/008/save_picture_520740.jpg" />
 </div>
 
 
@@ -458,7 +566,7 @@ Export for iTunes 3.1.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520734.jpg" />
+  <img src="Z:/picture/008/save_picture_520734.jpg" />
 </div>
 
 
@@ -484,7 +592,7 @@ Davinci Resolve Studio 18.0 Beta 5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520675.jpg" />
+  <img src="Z:/picture/008/save_picture_520675.jpg" />
 </div>
 
 
@@ -512,7 +620,7 @@ Meg Myers - Make A Shadow (2014) [AAC|256 кб/с]<Indie Rock>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520575.jpg" />
+  <img src="Z:/picture/008/save_picture_520575.jpg" />
 </div>
 
 
@@ -541,7 +649,7 @@ Soulver 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520417.jpg" />
+  <img src="Z:/picture/008/save_picture_520417.jpg" />
 </div>
 
 
@@ -568,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520304.jpg" />
+  <img src="Z:/picture/008/save_picture_520304.jpg" />
 </div>
 
 
@@ -579,114 +687,6 @@ TaiG - непривязанный джейлбрейк для устройств
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01AB1B9E32EA737D5D68E07CD3D52FB80A2323BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241291   (520250) от 17.08.2018
-
-Elmedia Video Player Pro 6.9.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Video Player - медиаплеер для macOS, который может воспроизводить практически все типы файлов, будь то - AVI, MP4, FLV, WMV, MKV, MP3, M4V и пр. Elmedia Video Player - это решение «все-в-одном», не требующее каких-либо дополнительных плагинов или кодеков.
-
-Этот плеер предлагает своим пользователям изумительное воспроизведение видео в формате HD благодаря (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2018Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C16B3496933D41610F7266739E395724DD40C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928981   (520204) от 18.08.2015
-
-Corel Painter 2016 (15.0.0.689) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая художественная мастерская у вас под рукой!
-Независимо от того, в каком направлении искусства вы работаете, в Corel® Painter®  вы сможете найти все необходимое, чтобы реализовать свой творческий потенциал. К вашим услугам сотни настраиваемых кистей, текстур бумаги, красок и сухих пигментных материалов, которые не отличаются от своих реальных аналогов! Технология (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 августа 2015Разработчик: Corel CorporationПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3469169D22FAFEC6706672AC90B4479BADEA5BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560627   (519844) от 30.06.2022
-
-Integrity Plus 12.3.14 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Integrity - приложение в помощь Web-мастерам и предназначено для проверки наличия изображений и целостности ссылок на вашем сайте. Проверка начинается с главной страницы и будет продолжена внутрь сайта (от новых страниц к более старым) следуя внутренним связям ресурса.
-Досконально проверяется каждая ссылка и анализируется ответ сервера. Вся информация выводиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.06.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EF0BBA136B5679E3E51EEC69B9D176CCE6AAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560483   (519779) от 30.06.2022
-
-Disk Clean Pro 6.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Clean Pro - это приложение с высоким рейтингом, которое удаляет ненужные файлы и данные с вашего Mac. Он надежно очищает избыточные файлы и гарантирует, что ваши важные данные никогда не окажутся под угрозой.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2022Разработчик: © 2022 Systweak SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F07CF91926FCEC6A8E9A2AB5202C6019E41465
 ```
 
 https://mybot314.ru/tekegram_catalog/

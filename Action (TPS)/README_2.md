@@ -1,3 +1,159 @@
+###  Публикация: 1845680   (1050939) от 02.01.2026
+
+Yakuza 4 Remastered (2021) [Ru/Multi] (1.003a) Repack seleZen
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050939.jpg" />
+</div>
+
+
+###  Подробнее
+
+События игры происходят все в той же местности, а главным героем по-прежнему остается Кадзума Кирю. Ну а начинается все с того, что в вымышленном районе Камурочо происходит убийство члена банды Уэно Сэйва, после чего начинается самая настоящая война за округ. Ну и естественно, в эту войну был втянут и Кирю, и ему снова придется погрузиться в череду безумных сражений, (   Читать дальше...   )Тип издания: RepackРазработчик: CS1 Team (Ryu Ga Gotoku Studio)Жанр: Экшены, Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Корейский, Китайский и другиеЯзык интерфейса: Русский, Английский, Корейский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA40DB17A65011A3169102D3F55AC26A85DBD229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845609   (1050797) от 02.01.2026
+
+Yakuza 0 (2018) [Ru/Multi] (build 4746539) Repack seleZen
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блеск, гламур и безудержный декаданс 80-х годов возвращаются в Yakuza 0. Вместе с главным героем Кадзумой Кирю и постоянным участником серии Горо Мадзимой вы будете сражаться в Токио и Осаке. Сыграйте за Кадзуму Кирю и узнайте, как он оказался в мире неприятностей, когда простое взыскание долга пошло не так, и его знак оказался убит.Тип издания: RepackРазработчик: Ryu Ga Gotoku StudioЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, ЯпонскийЯзык интерфейса: Русский, Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E54F893531F6D6F759A0464097B9C377DCE079E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845497   (1050629) от 01.01.2026
+
+Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3725.0/1.72) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Сантос – город солнца, старлеток и вышедших в тираж звезд. Некогда предмет зависти всего западного мира, ныне это пристанище дрянных реалити-шоу, задыхающееся в тисках экономических проблем. В центре всей заварухи – троица совершенно разных преступников, отчаянно пытающихся ухватить удачу за хвост в непрекращающейся борьбе за место под солнцем. Бывший член уличной (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Action, Racing, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D003359419C09B9E7202044D7F8738A9CE496E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843937   (1049665) от 23.12.2025
+
+Tunguska: The Visitation (2021) [Ru/Multi] (1.95-1/dlc) Repack FitGirl [Final Cut]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проживите жизнь охотника на «упырей» и раскройте тёмные секреты Тунгуски из советских времён. Отправляйтесь в путешествие по безлюдным деревням, заброшенным объектам, ядовитым болотам и зловещим туннелям в этом ужастике с элементами выживания с видом сверху и узнайте правду о таинственном падении Тунгусского метеорита в 1908 году.Тип издания: RepackРазработчик: Rotorist WorkshopЖанр: Экшены, ПриключениеЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Итальянский, УкраинскийЯзык интерфейса: Русский, Английский, Итальянский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F679CBE63C0903D74CAB90358949B27EEC939C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843441   (1049412) от 20.12.2025
+
+Dynasty Warriors 8 Empires (2015) [Multi] (1.0) Scene CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра серии Empires, в которой вы должны завоевать Древний Китай при помощи различных стратегических приемов, а также тактических битв, в которых один воин сражается с тысячей врагов. Вы станете одним из героев эпохи Троецарствия. Государство, за которое вы сражаетесь, должно объединить под своей властью весь Древний Китай, используя различные стратегические приемы (   Читать дальше...   )Тип издания: SceneРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: ЭкшеныЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7A6FF4D413EC39EF2276D4277371F12DDD4BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843522   (1049336) от 20.12.2025
+
+Just Cause 3 (2015) [Ru/Multi] (1.05 Denuvoless/dlc) Repack FitGirl [XXL Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средиземноморская республика Медичи стонет под гнетом генерала Ди Равелло. Помочь может только Рико Родригес. Вас ждет более 1000 квадратных километров свободы. Множество оружия, приспособлений, видов транспорта - все, чтобы устраивать беспорядки самыми изобретательными способами.Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834488C14D8CF1D1D32B5F6CEFAB016215B5453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843557   (1049315) от 20.12.2025
 
 Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack dixen18 [XXL Edition]
@@ -6,7 +162,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack dixen18 [XXL Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049315.jpg" />
+  <img src="Z:/picture/008/save_picture_1049315.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Double Dragon Revive (2025) [Ru/Multi] (1.1.0.0/dlc) Repack Other s [Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049234.jpg" />
+  <img src="Z:/picture/008/save_picture_1049234.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack Let'sРlay [XL Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048990.jpg" />
+  <img src="Z:/picture/008/save_picture_1048990.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Hatred (2015) [Ru/Multi] (24112025_135232_rev.20802) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047912.jpg" />
+  <img src="Z:/picture/008/save_picture_1047912.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (47139 build 20790748/d
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047489.jpg" />
+  <img src="Z:/picture/008/save_picture_1047489.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Hi-Fi Rush (2023) [Ru/Multi] (Build 20567064/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047261.jpg" />
+  <img src="Z:/picture/005/save_picture_1047261.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Onimusha 2: Samurai's Destiny (2025) [Ru/Multi] (Build 16840726/dlc) Repack FitG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046920.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ ASTRONEER (2016) [Ru/Multi] (1.36.31.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046572.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ X-Blades HD (2022) [Ru/Multi] (1.0) License GOG [Gold]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045784.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Lara Croft Tomb Raider Trilogy (2006-2008) [Ru/Multi] Repack R.G Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045617.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ CRISIS CORE –FINAL FANTASY VII– REUNION (2022) [Multi] (1.0) License FLT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043196.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Devil May Cry 5 (2019) [Ru/En] (1.0.0.1.05962864/dlc) Repack xatab [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041245.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Rise of the Tomb Raide (2016) [Ru/Multi] (1.0.668.1/dlc) License CONSPIR4CY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040710.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040698.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ The Sinking City (2021) [Ru/Multi] (4.20.1.0/dlc) License DARKSiDERS [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040684.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Batman: Arkham City (2012) [Ru/En] (1.1) Repack xatab [Game of the Year Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040418.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Tomb Raider (2013) [Ru/Multi] (1.1.748.0/26DLC) Repack z10yded [Game of the Year
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040405.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ Rogue Trooper Redux (2017) [Multi] (5592) License GOG [Collectors Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040006.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ Returnal (2023) [Ru/Multi] (1.0 Build 10547147/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039714.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ Returnal (2023) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039212.jpg" />
 </div>
 
 
@@ -512,162 +668,6 @@ Returnal (2023) [Ru/Multi] (1.0/dlc) Repack DjDI
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D8B06A473CA843975843C94FE88531F6226728F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614126   (1038699) от 21.02.2023
-
-Wanted: Dead (2023) [En] (9935321) Repack DjDI
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wanted: Dead смешивает механики слэшера и шутера, предлагая взять под свое управление члена элитного отряда гонконгской полиции Zombie Unit. Героине Ханне Стоун поручено раскрыть таинственный корпоративный заговор. Протагонистка Wanted: Dead - лейтенант по званию и невероятно опытный боец. Ей предстоит вступить в неравный бой с наемниками, членами преступных банд (   Читать дальше...   )Тип издания: LicenseРазработчик: Soleil Ltd.Жанр: Action, Adventure, SlasherЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D618726093ACD93458687C3EBE6364E4EA10531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440450   (1038637) от 17.01.2021
-
-HITMAN (2016) [Ru/Multi] (1.15.0/dlc) SteamRip =nemos= [Game of The Year Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение стелс-экшена про легендарного убийцу — Агента 47. Hitman — стелс-экшен, рассказывающий о работе профессионального киллера. Сюжет Hitman разворачивается после событий Hitman: Absolution. Главный герой вновь получает задания от Дианы и путешествует по всему миру, устраняя нечестных политиков, банкиров, опасных преступников, торговцев оружием и других людей. (   Читать дальше...   )Тип издания: SteamRipРазработчик: IO InteractiveЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4605215A9BE0A4A3D87BD07D6D27F64F929CAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441291   (1037618) от 21.01.2021
-
-Horizon: Zero Dawn (2020) [Ru/Multi] (1.0.10/dlc) Repack =nemos= [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037618.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прекрасном постапокалиптическом мире, где природа завоевала руины забытых цивилизаций, остатки человечества объединились в примитивные племена охотников-собирателей. Власть над новой дикой средой перешла к машинам, ужасным механическим созданиям неизвестного происхождения.Тип издания: RepackРазработчик: GuerrillaЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99B2992EBFCF89E1B2DA486E1EB2E17CB0FB7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616577   (1036085) от 03.03.2023
-
-Deus Ex: Human Revolution (2013) [Ru/Multi] (1.4.651.0/dlc) Repack dixen18
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deus Ex: Human Revolution - третья часть в одноименной серии игр, являющаяся одновременно продолжением и перезапуском франшизы. Игра разработана в киберпанк-сеттинге и относится к так называемому жанру иммерсив-сим - играм, где нет четких границ и условий прохождения миссии - поступайте так, как считаете нужным или в меру своих возможностей и логики. Deus Ex: Human (   Читать дальше...   )Тип издания: RepackРазработчик: Eidos MontrealЖанр: Action, RPG, Sci-fiЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D1A9541CB4934B5515EACE0B10D2F66F89A5F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443574   (1035299) от 29.01.2021
-
-Gods Will Fall (2021) [Ru/Multi] (1.0/dlc) Repack xatab [Valiant Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — последняя надежда человечества. Мучительное правление богов над людьми продолжается тысячелетиями. Упиваясь жесткостью и чужими страданиями, они требуют слепого подчинения и поклонения, скреплённого клятвой службы от каждого мужчины, каждой женщины, каждого ребёнка. Тех же, кто откажется подчиняться божественной воле, будет ждать медленная и безжалостная смерть.Тип издания: RepackРазработчик: Clever BeansЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF6D72024AFD537D8117E492D4BACBBBD8FBCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443896   (1034274) от 02.02.2021
-
-The Lord of the Rings The Fellowship of the Ring / Властелин Колец: Содружество кольца (2002) [Ru] (1.0) Repack HDlab
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Средиземье - волшебный мир знаменитого английского писателя Дж. Р. Р. Толкина! Вместе с Фродо, Арагорном и Гэндальфом ты пройдешь весь путь, описанный в первой книге трилогии "Властелин Колец". Ты побываешь в уютных деревнях Заселья и мрачных Курганах, поднимешься на вершину Амон Сул и спустишься в глубины Мории, сразишься с коварными (   Читать дальше...   )Тип издания: RepackРазработчик: Surreal SoftwareЖанр: ArcadeЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38C9F904566A40B3DAF85F1E44A7D7C162F1B69
 ```
 
 https://mybot314.ru/tekegram_catalog/

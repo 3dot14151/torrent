@@ -1,3 +1,55 @@
+###  Публикация: 1391117   (781774) от 18.06.2020
+
+Скрестив мечи / Crossing Swords (2020) WEB-DL [H.264/1080p-LQ] (1 сезон, серии 1-10 из 10)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патрик - добросердечный крестьянин, который занимает желанную роль оруженосца в королевском замке. Однако работа его мечты быстро превращается в сущий кошмар, когда он узнает, что его любимое королевство управляется гнездом алчных и разнузданных монархов. Хуже того, доблесть Патрика сделала его белой вороной в семье, где преступные братья хотят сделать его жизнь (   Читать дальше...   )Производство: США /  Stoopid Buddy StoodiosЖанр: мультфильм, фэнтези, комедия, для взрослыхРежиссер: Джон Херветайн IVПеревод: Двуголосый профессиональный (Дима Сыендук и Лиза Чабан)Субтитры: АнглийскиеПродолжительность: ~ 00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D73FB31140EEA75AA6338DDDB4407A5D1BFF798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362840   (781764) от 18.06.2020
+
+Кипо и Эра Чудесных Зверей / Kipo and the Age of Wonderbeasts (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка по имени Кипо прожила всю жизнь в подземном убежище, но однажды она выбирается на поверхность и вместе с группой выживших отправляется в путешествие по постапокалиптической Земле.Производство: США, DreamWorks Animation TelevisionЖанр: Фэнтези, ПриключенияРежиссер: Чейз КонлиПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские (MWT),  английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493D85CE5CBAD579BF5F2AF4357F2D96A95FF8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206446   (781206) от 16.02.2018
 
 Тарантула / Tarantula (2017) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 1 из 10) [VO]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781206.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780502.jpg" />
+  <img src="Z:/picture/008/save_picture_780502.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779438.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779323.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776679.jpg" />
+  <img src="Z:/picture/008/save_picture_776679.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775666.jpg" />
+  <img src="Z:/picture/008/save_picture_775666.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774883.jpg" />
+  <img src="Z:/picture/008/save_picture_774883.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774879.jpg" />
+  <img src="Z:/picture/008/save_picture_774879.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774857.jpg" />
+  <img src="Z:/picture/008/save_picture_774857.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773721.jpg" />
+  <img src="Z:/picture/008/save_picture_773721.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773486.jpg" />
+  <img src="Z:/picture/008/save_picture_773486.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772906.jpg" />
+  <img src="Z:/picture/008/save_picture_772906.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772822.jpg" />
+  <img src="Z:/picture/008/save_picture_772822.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772299.jpg" />
+  <img src="Z:/picture/008/save_picture_772299.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771786.jpg" />
+  <img src="Z:/picture/008/save_picture_771786.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771621.jpg" />
+  <img src="Z:/picture/008/save_picture_771621.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771302.jpg" />
+  <img src="Z:/picture/008/save_picture_771302.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771194.jpg" />
+  <img src="Z:/picture/008/save_picture_771194.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769130.jpg" />
+  <img src="Z:/picture/008/save_picture_769130.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768882.jpg" />
+  <img src="Z:/picture/008/save_picture_768882.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767378.jpg" />
+  <img src="Z:/picture/008/save_picture_767378.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764769.jpg" />
+  <img src="Z:/picture/008/save_picture_764769.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764631.jpg" />
+  <img src="Z:/picture/008/save_picture_764631.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764581.jpg" />
+  <img src="Z:/picture/008/save_picture_764581.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51B74D1FC0B181237CEB557635B82CC3F3FE23B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279613   (764294) от 31.01.2019
-
-Кунг-фу панда: Лапки судьбы / Kung Fu Panda: The Paws of Destiny (2018) WEB-DLRip (Сезон 1, Серии 13 из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре юные панды из Затерянной деревни случайно приобретают в магической пещере древнюю и могущественную силу мастеров энергии ци. И теперь им надо научиться ее контролировать. Ну а в этом им поможет никто иной, как Воин Дракона.Производство: США, DreamWorks Animation TelevisionЖанр: Мультфильм, Боевик, Приключения, Комедия, Семейный, ФэнтезиРежиссер: Лэйн Луэрас, Джеймс Вуттон, ...Перевод: Дублированный (SDI Media)Субтитры: ОтсутствуютПродолжительность: 13 х ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28710229F88AECB9A21FC90C654C00A1B1FB65FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279636   (764225) от 31.01.2019
-
-Кунг-фу панда: Лапки судьбы / Kung Fu Panda: The Paws of Destiny (2018) WEB-DL [H.264/1080p-LQ] (Сезон 1, Серии 13 из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре юные панды из Затерянной деревни случайно приобретают в магической пещере древнюю и могущественную силу мастеров энергии ци. И теперь им надо научиться ее контролировать. Ну а в этом им поможет никто иной, как Воин Дракона.Производство: США, DreamWorks Animation TelevisionЖанр: Мультфильм, Боевик, Приключения, Комедия, Семейный, ФэнтезиРежиссер: Лэйн Луэрас, Джеймс Вуттон, ...Перевод: Дублированный (SDI Media)Субтитры: Русские, английские, арабские, немецкие, испанские, французские, хинди, индонезийские, итальянские, корейские, голландские, польские, португальские, турецкиеПродолжительность: 13 х ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E549D0CA6981B16D348A11266EE65AC630642A
 ```
 
 https://mybot314.ru/tekegram_catalog/

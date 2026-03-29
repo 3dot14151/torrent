@@ -1,3 +1,29 @@
+###  Публикация: 936370   (492261) от 13.09.2015
+
+Борис Алмазов | Петербург – столица русской гвардии. История гвардейских подразделений. Структура войск. Боевые действия. Выдающиеся личности (2015) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петербург – уникальный город. Большая часть событий за три века имперской истории проходила здесь! Здесь служили, отсюда отправлялись на войну, сюда возвращались победители. Здесь покоятся на забытых кладбищах или изваяны в бронзе герои минувших времен. В Северной столице тысячи уникальных памятных мест, сотни имен на карте города и, кроме того, целые районы и кварталы, (   Читать дальше...   )Жанр: История, Биографии и Мемуары, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B7880A5E1BBCC6E5B2A58E7134669D7A5CBA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158478   (491994) от 16.08.2017
 
 Юрий Ленчевский | Как СМЕРШ спас Сталина. Покушения на вождя (2015) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491994.jpg" />
+  <img src="Z:/picture/008/save_picture_491994.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491986.jpg" />
+  <img src="Z:/picture/008/save_picture_491986.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491584.jpg" />
+  <img src="Z:/picture/008/save_picture_491584.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491059.jpg" />
+  <img src="Z:/picture/008/save_picture_491059.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489327.jpg" />
+  <img src="Z:/picture/008/save_picture_489327.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489323.jpg" />
+  <img src="Z:/picture/008/save_picture_489323.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489307.jpg" />
+  <img src="Z:/picture/008/save_picture_489307.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488613.jpg" />
+  <img src="Z:/picture/008/save_picture_488613.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487275.jpg" />
+  <img src="Z:/picture/008/save_picture_487275.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487111.jpg" />
+  <img src="Z:/picture/008/save_picture_487111.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486999.jpg" />
+  <img src="Z:/picture/008/save_picture_486999.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486887.jpg" />
+  <img src="Z:/picture/008/save_picture_486887.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486793.jpg" />
+  <img src="Z:/picture/008/save_picture_486793.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485318.jpg" />
+  <img src="Z:/picture/008/save_picture_485318.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484865.jpg" />
+  <img src="Z:/picture/008/save_picture_484865.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481397.jpg" />
+  <img src="Z:/picture/008/save_picture_481397.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481086.jpg" />
+  <img src="Z:/picture/008/save_picture_481086.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480029.jpg" />
+  <img src="Z:/picture/008/save_picture_480029.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476779.jpg" />
+  <img src="Z:/picture/008/save_picture_476779.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476632.jpg" />
+  <img src="Z:/picture/008/save_picture_476632.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476626.jpg" />
+  <img src="Z:/picture/008/save_picture_476626.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476472.jpg" />
+  <img src="Z:/picture/008/save_picture_476472.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475833.jpg" />
+  <img src="Z:/picture/008/save_picture_475833.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475243.jpg" />
+  <img src="Z:/picture/008/save_picture_475243.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475127.jpg" />
+  <img src="Z:/picture/008/save_picture_475127.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5EBC80EAE8245D057F72B1E1FCC9BF11DE3DF4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406492   (475041) от 03.09.2020
-
-С.Э. Морисон | Американский ВМФ во Второй мировой войне. Война в Микронезии (2005) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной том Самуэля Элиота Морисона «Война в Микронезии» посвящен борьбе за Маршалловы и Марианские острова. Завершением её стало одно из интереснейших морских сражений Второй мировой войны — битва на Филиппинском море. Именно в Микронезии впервые полностью проявился тот американский стиль ведения войны, который действует до сих пор.
-Книга будет интересна как специалистам, (   Читать дальше...   )Жанр: История, Военная историяФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20D5A0B2AA20F57F2C04A1BD2F00D4A421A27C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

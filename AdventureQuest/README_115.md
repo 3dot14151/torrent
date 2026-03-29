@@ -1,3 +1,81 @@
+###  Публикация: 1793411   (4624) от 03.09.2025
+
+Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Once Upon a Puppet, псевдотрехмерный красочный мир театра с элементами головоломки-платформера! Приглашаем вас сыграть роль куклы и кукловода в захватывающей волшебной истории о дружбе, самопознании и искуплении. Наденьте перчатку Сценоручки Ясны, изгнанной в Подсценье, и управляйте Древом - куклой, чьи нити жизни магическим образом переплелись (   Читать дальше...   )Тип издания: RepackРазработчик: Flatter Than EarthЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152F51B1A52C50D7FDAA733B88951613FD0C9FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780350   (4620) от 03.09.2025
+
+Gems of War - Puzzle RPG (2014) [Ru/Multi] (8.8.0r75951/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gems of War - логическая головоломка в жанре три в ряд с элементами ролевой игры. Окунитесь в мир приключений, собирайте героев со всех концов света и сражайтесь с могущественными врагами на игровом поле. Открывайте новые страны и королевства, чтобы привлечь под свои знамена сотни разных видов войск. Вступайте в битву прямо сейчас! Вас ждет долгое путешествие, которое (   Читать дальше...   )Тип издания: RepackРазработчик: Infinity Plus 2Жанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37D48FA902EFE91722EEC12B6BDAEF56C2F8357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816172   (4602) от 03.09.2025
+
+Deliver At All Costs (2025) [Ru/Multi] (250331-132937) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver At All Costs – захватывающий экшен, где разрушения, абсурд и интрига сливаются воедино! На дворе 1959 год. Эпоха рок-н-ролла, платьев в горошек и постоянной угрозы ядерной катастрофы в самом разгаре. Опробуйте себя в роли Winston Green – неудачливого курьера с горячим характером и загадочным прошлым. Доставляйте крайне необычные грузы, оставляя за собой хаос (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Far Out GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8D127B10B224608EAF3F4D18981120E0024CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816111   (4537) от 03.09.2025
 
 BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Edition]
@@ -6,7 +84,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4537.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Summer Pockets: Reflection Blue (2025) [Multi] (1.2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4532.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4515.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4480.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4455.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4404.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4347.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3958.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3955.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Dead Take (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3954.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3925.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3916.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3829.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Kaptain Brawe: A Brawe New World (2011) [Ru/Multi] (3.1.4.33) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3655.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3412.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3398.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Revenge of the Savage Planet (2025) [Ru/Multi] (2025-9-9-106947 Net5/dlc) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3273.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19705579/dlc) Repack FitGirl [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3240.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13.2 4801/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3056.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2898.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0 Build 19682311/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2887.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2849.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2840.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5120041613D2892EFFA1DBF9CA3C1CB020C276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818051   (2817) от 14.09.2025
-
-The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2817.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Procession to Calvary – приключение, выполненное в необычном графическом стиле, в котором игрок словно наблюдает за ожившими картинами эпохи Возрождения. Игра рассказывает истории о придворной жизни в средневековье с элементами фентези. Геймеру достаётся роль человека, что идёт за Петром Небесным – известным тираном, что выскользнул из-под стражи протагониста (   Читать дальше...   )Тип издания: LicenseРазработчик: Joe RichardsonЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82258896EEBC691A781BD6BB4421FD20F7EB784E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802647   (2714) от 15.09.2025
-
-The Alters (2025) [Ru/Multi] (1.3.0.7/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2714.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Alters - амбициозная научно-фантастическая игра с элементами выживания. Вы играете за Яна Дольски - единственного выжившего после аварийной посадки корабля на враждебной планете. Чтобы выжить, вы должны собрать новую команду для своей мобильной базы. Уникальность игры заключается в том, что, используя вещество под названием рапидий, вы создаете альтернативные (   Читать дальше...   )Тип издания: RepackРазработчик: 11 bit studiosЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9A902A18EFFD558F8C9F95627F4F0CC89E931A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796326   (2585) от 16.09.2025
-
-The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте The Midnight Walk, новое инди-приключение от авторов Lost in Random. Подружитесь с одиноким фонарем и осветите себе путь по чудесному и ужасному миру. Обхитрите монстров и изучите жуткие детали ландшафта, созданного вручную из настоящей глины и анимированного покадрово.Тип издания: RepackРазработчик: MoonHoodЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2FD5F8C95056FE3EACD81518A5CA501DDF9BF1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

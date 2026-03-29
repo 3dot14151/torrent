@@ -1,3 +1,63 @@
+###  Публикация: 1140343   (655789) от 06.06.2017
+
+Jorn - Life on Death Road (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейбл Frontiers Music Srl выпустит новый студийный альбом норвежского вокалиста Йорна Ланде (Jorn Lande) "Life On Death Road" 2 июня.
+
+Йорн – однозначно один из величайших рок-певцов XXI века, и его голос вновь звучит во всю мощь на его девятом сольном диске с оригинальным материалом. Ему аккомпанирует новый состав музыкантов, который обеспечил релизу более (   Читать дальше...   )01. Life on Death Road (7:20)
+02. Hammered to the Cross (The Business) (5:29)
+03. Love Is the Remedy (4:53)
+04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9008E6F0E0827F0C8CA5E9949DA1DA46F3816832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904101   (655571) от 02.06.2015
+
+Room Experience - Room Experience (2015) [FLAC|Lossless]<Melodic Hard Rock / AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655571.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shock Me
+2. Tomorrow Came
+3. Run To You
+4. Queen Of Every Heart(   Читать дальше...   )Жанр: Melodic Hard Rock / AORПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BDF3ECC523FCCCFA1B29ED6EA3579C006028A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140351   (655485) от 06.06.2017
 
 Kiss - Kissworld: The Best of Kiss (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
@@ -6,7 +66,7 @@ Kiss - Kissworld: The Best of Kiss (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655485.jpg" />
+  <img src="Z:/picture/008/save_picture_655485.jpg" />
 </div>
 
 
@@ -35,7 +95,7 @@ Trixter - New Audio Machine (2012) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654674.jpg" />
+  <img src="Z:/picture/005/save_picture_654674.jpg" />
 </div>
 
 
@@ -70,7 +130,7 @@ Turbo Lovers - Lettin' It Fly (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652724.jpg" />
+  <img src="Z:/picture/008/save_picture_652724.jpg" />
 </div>
 
 
@@ -99,7 +159,7 @@ The Electric - After the Flood (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652647.jpg" />
+  <img src="Z:/picture/008/save_picture_652647.jpg" />
 </div>
 
 
@@ -128,7 +188,7 @@ Traci Trexx Midnite Blues - Blood Death & Tequila (2022) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652303.jpg" />
+  <img src="Z:/picture/008/save_picture_652303.jpg" />
 </div>
 
 
@@ -157,7 +217,7 @@ AOR - L.A Darkness (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652000.jpg" />
+  <img src="Z:/picture/008/save_picture_652000.jpg" />
 </div>
 
 
@@ -186,7 +246,7 @@ Doogie White & La Paz - Shut Up and Rawk (2016) [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651801.jpg" />
+  <img src="Z:/picture/008/save_picture_651801.jpg" />
 </div>
 
 
@@ -215,7 +275,7 @@ Steve Vai - Modern Primitive + Passion & Warfare (2016) 25th Anniversary Edition
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651375.jpg" />
+  <img src="Z:/picture/008/save_picture_651375.jpg" />
 </div>
 
 
@@ -244,7 +304,7 @@ Emerald Sabbath - Ninth Star (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648840.jpg" />
+  <img src="Z:/picture/008/save_picture_648840.jpg" />
 </div>
 
 
@@ -273,7 +333,7 @@ VA - Pure... hard rock (2011) Box Set, 4 CD [FLAC|Lossless]<Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648072.jpg" />
+  <img src="Z:/picture/008/save_picture_648072.jpg" />
 </div>
 
 
@@ -303,7 +363,7 @@ The Dead Daisies - Revolucion (2015) [FLAC|Lossless|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647768.jpg" />
+  <img src="Z:/picture/008/save_picture_647768.jpg" />
 </div>
 
 
@@ -332,7 +392,7 @@ Wasteland Viper - Dead Men Tell No Tales (2020) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646948.jpg" />
+  <img src="Z:/picture/008/save_picture_646948.jpg" />
 </div>
 
 
@@ -361,7 +421,7 @@ The Dead Daisies - The Dead Daisies (2013) [FLAC|Lossless|tracks + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645952.jpg" />
+  <img src="Z:/picture/008/save_picture_645952.jpg" />
 </div>
 
 
@@ -390,7 +450,7 @@ GT Project - Az Elet Rock & Roll (2019) [FLAC|Lossless|tracks + .cue] <Rock, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645289.jpg" />
+  <img src="Z:/picture/008/save_picture_645289.jpg" />
 </div>
 
 
@@ -419,7 +479,7 @@ Find Me - Angels In Blue (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645190.jpg" />
+  <img src="Z:/picture/008/save_picture_645190.jpg" />
 </div>
 
 
@@ -448,7 +508,7 @@ Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 20
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645081.jpg" />
+  <img src="Z:/picture/008/save_picture_645081.jpg" />
 </div>
 
 
@@ -478,7 +538,7 @@ Crazy Lixx - Forever Wild (2019) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644915.jpg" />
+  <img src="Z:/picture/008/save_picture_644915.jpg" />
 </div>
 
 
@@ -507,7 +567,7 @@ The Bai Bang - Ridin' High (1996) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644867.jpg" />
+  <img src="Z:/picture/008/save_picture_644867.jpg" />
 </div>
 
 
@@ -536,7 +596,7 @@ DeWolff - DeWolff IV (2012) [FLAC|Lossless]<Psychedelic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643629.jpg" />
+  <img src="Z:/picture/005/save_picture_643629.jpg" />
 </div>
 
 
@@ -571,7 +631,7 @@ Scorpion Child - Acid Roulette (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643565.jpg" />
+  <img src="Z:/picture/008/save_picture_643565.jpg" />
 </div>
 
 
@@ -600,7 +660,7 @@ Jet Black Romance - Rock And Roll Riot (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643000.jpg" />
+  <img src="Z:/picture/008/save_picture_643000.jpg" />
 </div>
 
 
@@ -629,7 +689,7 @@ Harem Scarem - United (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642971.jpg" />
+  <img src="Z:/picture/008/save_picture_642971.jpg" />
 </div>
 
 
@@ -658,7 +718,7 @@ Twin Void - Free From Hardtimes (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642619.jpg" />
+  <img src="Z:/picture/008/save_picture_642619.jpg" />
 </div>
 
 
@@ -687,7 +747,7 @@ Jetboy - Born To Fly (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641351.jpg" />
+  <img src="Z:/picture/008/save_picture_641351.jpg" />
 </div>
 
 
@@ -701,64 +761,6 @@ Jetboy - Born To Fly (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EFA76AAF78D6A3955DE039CB805C2272DB07DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541960   (641215) от 05.04.2022
-
-The Hellacopters - Eyes Of Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reap A Hurricane (00:03:15)
-02 - Can It Wait (00:01:59)
-03 - So Sorry I Could Die (00:04:21)
-04 - Eyes Of Oblivion (00:03:59)(   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E78A37D0BB9BA3D3723D7C9202F64DCD5A0B889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541932   (641213) от 05.04.2022
-
-Caught In Action - Devil's Tango (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - New York City (00:03:51)
-02 - Miracle (00:04:32)
-03 - Devil`s Tango (00:04:05)
-04 - Simple Man (00:04:02)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B3FD3127D33D70D33D7BEEC5788A1F83AEE94C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1073043   (141524) от 29.12.2016
+
+СашаТаня (2016) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-20 из 39 + Новогодняя серия)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Производство: Россия / "Comedy Club Production"Жанр: комедияРежиссер: Михаил Старчак, Сергей КазачанскийАктеры: Андрей Гайдулян, Валентина Рубцова, Алексей Климушкин, Елена Бирюкова, Татьяна Орлова, Андрей Лебедев, Ксения Хаирова, Олег Новиков, Сергей Рудзевич, Сергей Мурзин и др.Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3BC6B49D59BD10FCEC29400DFBF8F500191F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060632   (141497) от 29.12.2016
+
+Counter-Strike 1.6 Green Edition (2015) [Ru] (1.1.2.6/pv48/b4554) Repack Vin4
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Counter-Strike (от англ. - «Контрудар»; сокр. CS или КС, разг. - контра) - культовая серия компьютерных игр в жанре командного шутера от первого лица, основанная на движке GoldSrc, изначально появившаяся как модификация игры Half-Life. Из серии самая популярная - Counter-Strike 1.6. Основная идея игры - противостояние двух команд - террористов (Terrorist, T) и спецназа (   Читать дальше...   )Тип издания: RepackРазработчик: Valve Corporation & Barking Dog StudiosЖанр: MMO Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710826DF35A5B1021590B23DC3729CF15D7A42AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904626   (141470) от 29.12.2016
+
+Need for Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s) RePack =nemos= [Limited Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141470.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Need for Speed Hot Pursuit Limited Edition издание войдут 6 эксклюзивных автомобилей: Alfa Romeo 8C Competizione, Ford Shelby GT500, Audi TT RS Coup, Chevrolet Camaro SS, Porsche Cayman S (модель для полицейских) и Dodge Challenger SRT8. Стоит отметить, что модели Alfa Romeo 8C Competizione и Ford Shelby GT500 будут доступны исключительно в Need for Speed Hot Pursuit (   Читать дальше...   )Тип издания: RePackРазработчик: Criterion StudiosЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839C2F7C527AFDEE7F7A701260F7ACAA4E49BCFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678624   (141195) от 23.11.2023
+
+Британские ученые намерены «оживить» мамонта. Используют генную инженерию. Гибриды появятся уже совсем скоро.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская биотехнологическая и генно-инженерная компания Colossal Biosciences заявила о намерении воссоздать к 2028 году шерстистых мамонтов. Детеныш вымершего 4 тыс. лет назад вида, по планам этой фирмы, родится через пять лет, пишет Daily Mail.Эксперты собираются восстановить геном мамонта из найденных образцов, а пробелы заполнить при помощи ДНК современных азиатских (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519963   (141140) от 28.12.2021
+
+Windows 10 PRO 21H2 x64 Rus by OneSmiLe [19044.1415]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru-ru_windows_10_business_editions_version_21h2_updated_dec_2021_x64_dvd_147acd99
+Windows-Defender (По умолчанию выключен. Добавлен пункт Вкл./Выкл. в контекстном меню пуск)
+Поиск работает(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041275CE0065C02836F4731FE49B3B3BED773D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 113022   (141113) от 28.12.2021
+
+Американская история 1-4 / An American Tail I-IV (1986-1999) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свирепое чудовище, охотящееся за мышами, наводит ужас на всех грызунов Манхэттена и преследует бедного Фивела в кошмарных снах. Вместе с мышью-репортером Фивел и его друзья пускаются в головокружительную погоню за «сенсацией века», чтобы увидеть «монстра» своими глазами!Производство: США, Universal PicturesЖанр: Анимационный, приключения, семейный, детский.Режиссер: Ларри ЛэтэмАктеры: Томас Деккер, Дом ДеЛуис, Пэт Масик, Нехемиа Персофф, Эрика Йон, Лэйси Чэберт, Элейн Билстед, Рене Обержене, Дэвид Кэррадайн, Шерман Ховард.Продолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD53E80FDBCD007DB4DEBB0316BE0BE77E289E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195280   (141099) от 29.12.2017
 
 Эксперимент «Офис» 2 / Mayhem (2017) BDRip [MVO]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141099.jpg" />
 </div>
 
 
@@ -33,7 +192,7 @@ Hitman: Absolution - Professional Edition [Ru/En/Multi8] (L/1.0.444.0/DLC) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140948.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140861.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140755.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140719.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140678.jpg" />
 </div>
 
 
@@ -163,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140563.jpg" />
 </div>
 
 
@@ -189,7 +348,7 @@ Kerish Doctor 2020 4.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140504.jpg" />
 </div>
 
 
@@ -215,7 +374,7 @@ Hataage! Kemono Michi | Kemono Michi: Rise Up | Дорога зверя [2019, T
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140274.jpg" />
 </div>
 
 
@@ -241,7 +400,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140262.jpg" />
 </div>
 
 
@@ -267,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140252.jpg" />
 </div>
 
 
@@ -293,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140116.jpg" />
 </div>
 
 
@@ -319,7 +478,7 @@ GoodbyeDPI.0.1.6. Launcher-3.9 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140047.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v17 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140020.jpg" />
 </div>
 
 
@@ -377,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140011.jpg" />
 </div>
 
 
@@ -403,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139984.jpg" />
 </div>
 
 
@@ -430,7 +589,7 @@ Arcania: Gothic 4 / Готика 4: Аркания (2010-2011) [Ru/En/Ge] (1.1.0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139976.jpg" />
 </div>
 
 
@@ -456,7 +615,7 @@ Windows 10 x86 x64 DVD  Present by StartSoft 43-49 2018 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139929.jpg" />
 </div>
 
 
@@ -482,7 +641,7 @@ Tor Browser Bundle 11.0.3 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139787.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139678.jpg" />
 </div>
 
 
@@ -519,163 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27B664A9B712D9B86DADCCDF331DF60E597326B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088316   (139612) от 30.12.2016
-
-Gulman 4: Still alive (2016) [En] (1.0) License PLAZA
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139612.jpg" />
-</div>
-
-
-###  Подробнее
-
-2029 год. Транснациональная корпорация Metacorps на островах в Тихом океане обнаружила комплекс древних сооружений. Спустя месяц, все данные по этой находке были засекречены. Международное правительство отправляет к острову разведывательный отряд, который должен выяснить с какой целью раскопки на острове были засекречены. Вместе с отрядом отправляется Гульмэн, агент (   Читать дальше...   )Тип издания: LicenseРазработчик: Serzhantov AleksandrЖанр: Action (Shooter), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717A75A4F7A9A384898456E36919524859867F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999165   (139260) от 30.12.2017
-
-Life Is Strange (2015) [Ru/Multi] (1.0.0.397609) Repack R.G. Catalyst [Episode 1-5]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Life is Strange – эпизодическое приключение, события которого развиваются в вымышленном городе Аркадия Бэй, что в Орегоне. История о дружбе, которая могла быстро закончиться если бы не внезапно открытый талант Мэкс. Она нашла в себе дар - возможность перематывать время. Но еще неясно, как это точно работает и к чему может привести.Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Русский (Эпизод 1 и 5)Язык субтитров: Русский, Английский  и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2A24437EA6FDFE1DFA82BD9E19BC6772EE0E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348605   (138826) от 30.12.2019
-
-Снег на рабочем столе (Snow on DeskTop) 1.4.1 Portable by Deodatto [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая программа - с помощью которой, Вы можете запустить снежинки на Вашем Рабочем столе. Программа, совсем не мешает при работе за компьютером. За окном солнце, а хочется снега, и программа Вам в этом поможет. Теперь, устроить зиму не так сложно, нужно только запустить программу и будет снег. Если Вам не хватает снега, то эта программа для ВАС. Если же снежинки (   Читать дальше...   )Язык интерфейса: Русский,  Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5E4E8ED087081A96C1EADB5FC9FC1EF9C7DCAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679113   (138759) от 24.11.2023
-
-SolidWorks 2024 SP0.1 Premium RePack by xetrin [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138759.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolidWorks – система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения.
-SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F3B6151253CBAB9941DD18C0A13050F8F5D575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272575   (138499) от 30.12.2018
-
-Эксперты назвали самую востребованную профессию 2019 года в России
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аналитики портала "SuperJob.ru" изучили потенциальный спрос на специалистов в области IT-технологий и составили список вакансий, которые будут востребованы в 2019 году.Так, из-за высокого темпа развития мобильных приложений в следующем году продолжится рост спроса на разработчиков приложений для iOS и Android. Но пока что конкуренция в данном сегменте довольно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520683   (138326) от 30.12.2021
-
-Матрица: Воскрешение / The Matrix Resurrections (2021) WEB-DLRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138326.jpg" />
-</div>
-
-
-###  Подробнее
-
-В двух реальностях Нео снова придется выбирать, следовать ли за белым кроликом. Выбор, пусть и иллюзорный, все еще остается единственным путем в Матрицу или из нее, что более опасно, чем когда-либо.Производство: США / NPV Entertainment, Silver Pictures, Village Roadshow Pictures, Warner Bros.Жанр: Фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис, Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: Дублированный, профессиональный многоголосый, авторский одноголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, 2 х full, SDH), Украинские (forced), Английские (full, SDH)Продолжительность: 02:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A910E19DBD2672A1ACC981D3CB277F6C81BD08D
 ```
 
 https://mybot314.ru/tekegram_catalog/

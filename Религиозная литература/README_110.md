@@ -1,3 +1,86 @@
+###  Публикация: 1677211   (153415) от 16.11.2023
+
+Благовест | Канон за болящего (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек нередко сталкивается с болезнями близких людей и с осознанием, что кроме искреннего участия, сострадания, поддержки он не в силах облегчить болезнь… И вот тогда христианин прибегает к помощи Божией, направляя и участие, и сострадание, и поддержку в горячую молитву к Богу за болящего.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E280A9C65BEAB5FD5537082C2A113DB7A5FCAAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677207   (153396) от 16.11.2023
+
+Благовест | Учение Православной Церкви о страстях и борьбе с ними (2012) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа посвящена краткому изложению учения Православной Церкви о страстях и способах борьбы с ним. Каждое из этих средств в отдельности и все они в совокупности призваны помочь христианам в деле их духовного возрастания и приближения к Богу.
+
+Издание адресовано православным христианам, прежде всего, в части уяснения сущности, механизма развития и пагубности (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81B7C1B46D8B2B8444662AAE80BBB9E82B7F439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968521   (153372) от 24.12.2015
+
+Рене Жирар | Я вижу Сатану, падающего, как Молния (2015) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга выдающегося философа Рене Жирара - одна из лучших современных.
+антропологических апологий христианства - развивает проблематику.
+жертвоприношения, миметического насилия, понимаемого как акт, лежащий.
+в основе культуры и социума. Автор обращается к великим библейским.(   Читать дальше...   )Жанр: АпологетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7E6A379D225B691BEF393C08960EDB062939A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677213   (153354) от 16.11.2023
 
 Благовест | О святой воде (2013) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +89,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153354.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153109.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152558.jpg" />
 </div>
 
 
@@ -86,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152431.jpg" />
 </div>
 
 
@@ -114,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152144.jpg" />
 </div>
 
 
@@ -143,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152127.jpg" />
 </div>
 
 
@@ -171,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152117.jpg" />
 </div>
 
 
@@ -197,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152103.jpg" />
 </div>
 
 
@@ -223,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151926.jpg" />
 </div>
 
 
@@ -249,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151652.jpg" />
 </div>
 
 
@@ -275,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151608.jpg" />
 </div>
 
 
@@ -301,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151335.jpg" />
 </div>
 
 
@@ -327,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151167.jpg" />
 </div>
 
 
@@ -354,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151069.jpg" />
 </div>
 
 
@@ -380,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150941.jpg" />
 </div>
 
 
@@ -406,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150930.jpg" />
 </div>
 
 
@@ -432,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150563.jpg" />
 </div>
 
 
@@ -460,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150554.jpg" />
 </div>
 
 
@@ -486,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149763.jpg" />
 </div>
 
 
@@ -514,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149358.jpg" />
 </div>
 
 
@@ -540,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149355.jpg" />
 </div>
 
 
@@ -566,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148794.jpg" />
 </div>
 
 
@@ -592,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148376.jpg" />
 </div>
 
 
@@ -603,88 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37EFF3B65D6E8992B12AE793014FC4E37C98BA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969056   (147742) от 27.12.2015
-
-Митр. Антоний (Храповицкий) | Пастырское богословие (1994) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пастырское богословие (theologia pastoralis) – учение о нравственных качествах и об обязанностях пастыря церкви.
-
-Необходимые личные свойства священника, и его обязанности в существенных чертах указаны еще в Св. Писании (особенно в т.н. пасторских посланиях апостола Павла), а затем – в ряде наставлений и правил, установленных вселенскими и поместными Соборами. Из (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190930002CB3F97070539B52D644A7D52942421E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968503   (147589) от 27.12.2015
-
-Софокл Софоклеос | Иконы Кипра VII -XX веков (1994) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга греческого исследователя Софокла Софоклеоса представляет собой научное издание лучших образцов иконной живописи VII-XX_веков, находящихся на острове Кипр. Во вступительной статье автор анализирует историю развития кипрской религиозной живописи от византийского периода до современности. Отдельные главы посвящены иконам из знаменитых иконостасов - церкви Панагии (   Читать дальше...   )Жанр: ИконографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAC8B237BA24C1ACB78A4546B524F5DEA74AF52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519848   (147307) от 25.12.2021
-
-Александр Ананичев | Икона Божией Матери «Знамение» (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Над Русской землёй с первых дней крещения святой верой Христовой распростёрт покров Пречистой Девы. Пресвятая Богородица полюбила Святую Русь, став «страны нашей преславной Защитницей и Церкви Утверждением». Её милосердие, терпение и кротость согревают сердца русских людей, вселяя необоримую веру в небесное заступничество.
-
-Святая Русь издревле называлась уделом (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165AE6D8D2E32A7D58A1AD9E7FE702BD99AC7FCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

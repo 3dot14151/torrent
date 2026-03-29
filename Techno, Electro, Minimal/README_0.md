@@ -1,3 +1,32 @@
+###  Публикация: 1290615   (674073) от 22.03.2019
+
+Flume - Hi This Is Flume (2019) Mixtape [MP3|320 Kbps] <Electronic, Hip-Hop>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674073.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hi This Is Flume
+2. Ecdysis
+3. High Beams (ft. Slowthai)
+4. Jewel(   Читать дальше...   )Жанр: Electronic, Hip-HopПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB38F124FE712E6997FCDC3EE2E681D9859001E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291157   (672141) от 23.03.2019
 
 VA - Deep Conception Vol.17 (2019) [MP3|320 Kbps] <Minimal, Tech House>
@@ -6,7 +35,7 @@ VA - Deep Conception Vol.17 (2019) [MP3|320 Kbps] <Minimal, Tech House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672141.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Moby - Music From Porcelain (2016) [MP3|320 Kbps] <Techno, Acid House, Ambient, 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632159.jpg" />
+  <img src="Z:/picture/008/save_picture_632159.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Summer Love (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614554.jpg" />
+  <img src="Z:/picture/008/save_picture_614554.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dance With The Dead - Near Dark (2014) [MP3|320 кб/с]<Electronic, Retro Wave,
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610497.jpg" />
+  <img src="Z:/picture/008/save_picture_610497.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Sonic Alchemy (Mixed by Chris Hampshire) (2019) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610131.jpg" />
+  <img src="Z:/picture/008/save_picture_610131.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dance With the Dead - Into the Abyss (2014) [MP3|320 кб/с]<Electronic, Dreamw
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599974.jpg" />
+  <img src="Z:/picture/008/save_picture_599974.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Dance With the Dead - Out of Body (2013) [MP3|320 кб/с]<Electronic, Retro Wav
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597560.jpg" />
+  <img src="Z:/picture/008/save_picture_597560.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dance With the Dead - Send The Signal [EP] (2014) [MP3|320 кб/с]<Electronic, 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588600.jpg" />
+  <img src="Z:/picture/008/save_picture_588600.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Space Ibiza (2016) [MP3|320 Kbps] <Funky, Minimal, Soulful, UK Garage>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585051.jpg" />
+  <img src="Z:/picture/008/save_picture_585051.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Scratch Massive - 7 Albums (2003-2018) [MP3|320 Kbps] <Electronic, Electro>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577855.jpg" />
+  <img src="Z:/picture/008/save_picture_577855.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Carpenter Brut - Trilogy (2015) 3CD + Bonus [MP3|320 кб/с]<80's, Electro, Syn
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571340.jpg" />
+  <img src="Z:/picture/008/save_picture_571340.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Fckng Serious (One Year) (2016) [MP3|320 Kbps] <Techno, Minimal Techno, Tec
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570804.jpg" />
+  <img src="Z:/picture/008/save_picture_570804.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Lucid Sounds, Vol. 32 (A Fine and Deep Sonic Flow of Club House, Electro, M
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529016.jpg" />
+  <img src="Z:/picture/008/save_picture_529016.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Toolroom Ibiza 2017 Vol 2 [MP3|320 Kbps] <Minimal, Tech House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527597.jpg" />
+  <img src="Z:/picture/008/save_picture_527597.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Tech House For Dinner (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487734.jpg" />
+  <img src="Z:/picture/008/save_picture_487734.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Scooter - The Fifth Chapter (2014) 2CD Deluxe Edition [MP3|320 кб/с]<Techno, 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449111.jpg" />
+  <img src="Z:/picture/008/save_picture_449111.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Masterboy - Generation Of Love - The Album (1995) Vinyl-rip, Reissue, Remastered
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444838.jpg" />
+  <img src="Z:/picture/008/save_picture_444838.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Crossfit Selection 2 (2020) [MP3|320 Kbps] <Techno, Melodic House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438061.jpg" />
+  <img src="Z:/picture/008/save_picture_438061.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Little Big - Antipositive, Pt. 2 (2018) [MP3|320 Kbps] <Rave>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408958.jpg" />
+  <img src="Z:/picture/008/save_picture_408958.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - DJ Фонарь - Reactivate Classics Part I  (1998) [MP3|320 Kbps] <Techno
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347615.jpg" />
+  <img src="Z:/picture/008/save_picture_347615.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Moby - The Remixes (2016) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340223.jpg" />
+  <img src="Z:/picture/008/save_picture_340223.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Little Big - GO BANANAS (2019) EP [MP3|320 Kbps] <Rave, Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269566.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Depeche Mode - All That Glitters  (2008) [MP3|320 kbps]<Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267330.jpg" />
+  <img src="Z:/picture/008/save_picture_267330.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Techno Trance 2019: Top 40 Hits Deep House (2018) [MP3|320 Kbps] <Techno Tr
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265638.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Scooter - Greatest Hits (2011) [MP3|320 kbps] <Progressive, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247304.jpg" />
+  <img src="Z:/picture/004/save_picture_247304.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ CD1 :Жанр: Progressive/TechnoПродолжительность: 01:18:50
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C81FB568080DF2E87A71DD05F5442D369820A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622791   (243654) от 30.03.2023
-
-VA - Ibiza Vibes 2023 - Tech House & Techno Only (2023) [MP3|320 Kbps] <Dark Techno, Acid, Minimal, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Kowalski - Collapsed Transmissions
-02. Pablo Say - Old Child
-03. Sudo - Dawn of Futurist
-04. Lorenzo de Blanck - Speranza(   Читать дальше...   )Жанр: Dark Techno, Acid, Minimal, Tech HouseПродолжительность: 03:25:23 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68537FB57DFFBD0AE15CD8CE5EDC38797D94BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

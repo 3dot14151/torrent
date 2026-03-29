@@ -1,3 +1,57 @@
+###  Публикация: 1598601   (161246) от 21.12.2022
+
+В.Ф.Шаталов, В.М.Шейман | Опорные сигналы по физике для 6 класса (1978) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161246.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии освещены некоторые методические приемы работы по системе, разработанной учителем г. Донецка В. Ф. Шаталовым.
+В соответствии с программой по физике для VI класса дается комплект листов с опорными сигналами, часть из которых дешифрована. Кратко излагаются рекомендации для работы с этими материалами и листами взаимоконтроля.
+Предназначено для учителей физики (   Читать дальше...   )Жанр: физика, пособие для учителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E1A3823EB906B84D03527244868E4F4A2C1FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674481   (161208) от 05.11.2023
+
+В.В. Гуров, В.О. Чуканов | Основы теории и организации ЭВМ (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161208.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены основные схемотехнические элементы ЭВМ: логические элементы, триггерные схемы, регистры, счетчики и т.д. Изложены организация и принципы работы запоминающих устройств, устройства управления, арифметико-логического устройства; их анализ проводится на примерах реализации устройств, выполняющих заданные функции. Описаны режимы адресации (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24665C978E1A406900D65AC7F4DA7475FA68D887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675247   (160387) от 08.11.2023
 
 О.Е. Железникова и др. | Облучательная техника. Источники излучения, облучательные приборы и установки (2023) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160387.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160375.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160360.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160153.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159842.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159498.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158928.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158216.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158187.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158181.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158146.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158083.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158072.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157608.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157497.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157492.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157432.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157426.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157392.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157141.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157072.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157048.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157027.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156916.jpg" />
 </div>
 
 
@@ -625,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF767BFE0DF6018A3A3D7569BD67DC2064F6809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600525   (156725) от 27.12.2022
-
-А.В. Кирилина | Черчение мебели (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие позволит обучающимся получить базовые знания по черчению мебели. Представлены основные правила и требования к черчению изделий мебели. Особое внимание уделено конструированию предметов мебели из материала ЛДСтП.Жанр: Инженерная графикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEE031B55C521F6C0826CECB5AD95474155AC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194279   (156596) от 24.12.2017
-
-А.М. Власова | Математика с MathCad (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целью данного учебно-методического пособия является формирование у студентов, уже знакомых с системой MathCad, навыков его применения для решения простейших задач вычислительной математики. Описаны средства программирования в пакете MathCad, в приложении рассмотрено построение графиков.
-Данное пособие кратко, сжато, конспективно, доступным языком с иллюстрациями-наглядными (   Читать дальше...   )Жанр: Математика, компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FB37343CB46165DD10F3F79107DF2B90C5322A
 ```
 
 https://mybot314.ru/tekegram_catalog/

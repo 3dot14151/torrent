@@ -1,3 +1,38 @@
+###  Публикация: 221675   (612882) от 25.07.2010
+
+VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_612882.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:52) 01. Jonas Assarsson - Calm Breeze
+(4:42) 02. Bindu - The Natural Flow
+(6:33) 03. Skovbye/Brander - Friendship part 2
+(4:47) 04. Egil Fylling - So many to make time for
+(4:13) 05. Steen Hansen - The Beach
+(4:40) 06. Jan Skogvaard Petersen - The first Wave
+(3:53) 07. Pushkar - Manamalei
+(6:09) 08. Gabrielle - Blind Mary
+(4:59) 09. Carsten Rosenlund - She Moved Through the Fair
+(4:46) 10. Peter Bastian & Stig Moller - Just Be(   Читать дальше...   )Жанр: Relax, ChilloutПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912092   (612290) от 25.06.2015
 
 Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
@@ -6,7 +41,7 @@ Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612290.jpg" />
+  <img src="Z:/picture/008/save_picture_612290.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611421.jpg" />
+  <img src="Z:/picture/005/save_picture_611421.jpg" />
 </div>
 
 
@@ -70,7 +105,7 @@ Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609888.jpg" />
+  <img src="Z:/picture/008/save_picture_609888.jpg" />
 </div>
 
 
@@ -105,7 +140,7 @@ Mesa Music Consort & Native Flute Ensemble - Wind Riders (2001) [MP3|320 кб/с
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609711.jpg" />
+  <img src="Z:/picture/008/save_picture_609711.jpg" />
 </div>
 
 
@@ -140,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609703.jpg" />
+  <img src="Z:/picture/008/save_picture_609703.jpg" />
 </div>
 
 
@@ -175,7 +210,7 @@ Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606601.jpg" />
+  <img src="Z:/picture/008/save_picture_606601.jpg" />
 </div>
 
 
@@ -204,7 +239,7 @@ Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604312.jpg" />
+  <img src="Z:/picture/008/save_picture_604312.jpg" />
 </div>
 
 
@@ -233,7 +268,7 @@ Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603082.jpg" />
+  <img src="Z:/picture/008/save_picture_603082.jpg" />
 </div>
 
 
@@ -262,7 +297,7 @@ Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603075.jpg" />
+  <img src="Z:/picture/008/save_picture_603075.jpg" />
 </div>
 
 
@@ -291,7 +326,7 @@ Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumenta
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602539.jpg" />
+  <img src="Z:/picture/008/save_picture_602539.jpg" />
 </div>
 
 
@@ -320,7 +355,7 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [MP3|320 кб/с]<
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601149.jpg" />
+  <img src="Z:/picture/008/save_picture_601149.jpg" />
 </div>
 
 
@@ -349,7 +384,7 @@ Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600216.jpg" />
+  <img src="Z:/picture/008/save_picture_600216.jpg" />
 </div>
 
 
@@ -378,7 +413,7 @@ Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600134.jpg" />
+  <img src="Z:/picture/008/save_picture_600134.jpg" />
 </div>
 
 
@@ -407,7 +442,7 @@ Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599928.jpg" />
+  <img src="Z:/picture/008/save_picture_599928.jpg" />
 </div>
 
 
@@ -436,7 +471,7 @@ Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599618.jpg" />
+  <img src="Z:/picture/008/save_picture_599618.jpg" />
 </div>
 
 
@@ -471,7 +506,7 @@ VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, F
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599338.jpg" />
+  <img src="Z:/picture/008/save_picture_599338.jpg" />
 </div>
 
 
@@ -506,7 +541,7 @@ Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native Ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599217.jpg" />
+  <img src="Z:/picture/008/save_picture_599217.jpg" />
 </div>
 
 
@@ -541,7 +576,7 @@ Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598045.jpg" />
+  <img src="Z:/picture/008/save_picture_598045.jpg" />
 </div>
 
 
@@ -570,7 +605,7 @@ Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595584.jpg" />
+  <img src="Z:/picture/008/save_picture_595584.jpg" />
 </div>
 
 
@@ -602,7 +637,7 @@ TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589960.jpg" />
+  <img src="Z:/picture/008/save_picture_589960.jpg" />
 </div>
 
 
@@ -631,7 +666,7 @@ David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Re
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586446.jpg" />
+  <img src="Z:/picture/008/save_picture_586446.jpg" />
 </div>
 
 
@@ -660,7 +695,7 @@ Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586141.jpg" />
+  <img src="Z:/picture/008/save_picture_586141.jpg" />
 </div>
 
 
@@ -695,7 +730,7 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584880.jpg" />
+  <img src="Z:/picture/008/save_picture_584880.jpg" />
 </div>
 
 
@@ -724,7 +759,7 @@ Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584030.jpg" />
+  <img src="Z:/picture/008/save_picture_584030.jpg" />
 </div>
 
 
@@ -753,7 +788,7 @@ Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583103.jpg" />
+  <img src="Z:/picture/008/save_picture_583103.jpg" />
 </div>
 
 
@@ -769,35 +804,6 @@ Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A62A08144546C8E49B542CADA075A96395375E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919678   (582944) от 19.07.2015
-
-Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditations For Two
-02. A Walk On The Beach
-03. Prayer For Our People
-04. Star Filled Sky(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE086DB00269F3C630F39DF15391F1D9F0103F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

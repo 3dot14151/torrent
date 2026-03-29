@@ -1,4 +1,134 @@
 https://t.me/izofen
+###  Публикация: 1861987   (1063106) от 
+
+Mistbound / Тумань (2026) [Ru/En] (Build 22477588) Repack Other s [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуальная новелла в жанре психологического романа о преодолении травмы, где грань между реальностью и сном стирается. Митя, старшеклассник, не может смириться со смертью младшего брата. Его мир рухнул, погрузившись в тишину опустевшего дома и холод отношений с родителями. Единственное спасение - друзья, творчество и первая любовь. Но его боль рождает причудливые (   Читать дальше...   )Тип издания: RepackРазработчик: aworyrateЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE937FF0BD42CA9668AEAABD0C9AF3EDA60FEF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861643   (1062890) от 
+
+New Cycle (2024) [Ru/Multi] (26-490.03) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062890.jpg" />
+</div>
+
+
+###  Подробнее
+
+New Cycle - это постапокалиптический градостроительный симулятор с элементами выживания. Игрокам предстоит восстановить цивилизацию после разрушительных солнечных вспышек, управляя поселением, ресурсами и заботясь о нуждах населения в суровых условиях. Игра предлагает классическую механику градостроительных стратегий, сфокусированную на борьбе за существование и (   Читать дальше...   )Тип издания: RepackРазработчик: Core EngageЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:959AD448A0AF890121B88BA2ED5696FF9EE9E42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860485   (1061968) от 
+
+Starsand Island (2026) [Ru/Multi] (1.0.0.7673.194862/dlc) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устали от городской суеты? Вернитесь в теплые объятия острова Звездный Песок, сияющей жемчужины, затерянной в бескрайних просторах океана. Насладитесь спокойной, пасторальной жизнью: пообщайтесь с очаровательными капибарами, кошками и собаками, отпразднуйте богатый улов, исследуйте таинственный Лунный Лес или просто полюбуйтесь природной красотой острова. Оставьте (   Читать дальше...   )Тип издания: RepackРазработчик: Seed Sparkle LabЖанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Английский, Японский, КитайскийЯзык субтитров: Русский, Английский, Японский, КитайскийЯзык интерфейса: Русский, Английский, Японский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCF7DD08E0F39B31D06772A829335950E9402EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860538   (1061943) от 
+
+The Legend of Khiimori (2026) [Ru/Multi] (0.6.4/dlc) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061943.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Legend of Khiimori - это свободное путешествие по землям Монголии XIII в. The Legend of Khiimori рассказывает историю храброй всадницы. Станьте гонцом и покорите великую степь вместе с верным конем. Разводите лошадей и развивайте их способности, и вы увидите все уголки этого удивительного края.Тип издания: RepackРазработчик: Aesir Interactive, NightinGamesЖанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Английский, МонгольскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E22FE0B43545EE83F7C5106765D064D34DEFC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860505   (1061942) от 
+
+Everwind (2026) [Ru/Multi] (0.4.417/dlc) Repack Let'sРlay [Capybara Edition] [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everwind - это кооперативная RPG-песочница с элементами выживания, действие которой разворачивается в мире парящих островов. Отправьтесь в приключение вместе с друзьями - стройте базу на летающем острове-корабле, собирайте ресурсы, создавайте предметы и оружие, ищите сокровища, сражайтесь и раскройте тайны этого мира, паря над облаками!Тип издания: RepackРазработчик: Enjoy Studio S.A.Жанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D6D5C0FEE96847FD927E36B17583D641A41907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860382   (1061852) от 
 
 The Scouring (2025) [Ru/Multi] (19.03.26/dlc) Repack Let'sРlay [Digital Deluxe] [Early Access]
@@ -7,7 +137,7 @@ The Scouring (2025) [Ru/Multi] (19.03.26/dlc) Repack Let'sРlay [Digital Deluxe]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061852.jpg" />
+  <img src="Z:/picture/005/save_picture_1061852.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.77.166257-S35) Repack Let'sРlay [Early 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061810.jpg" />
+  <img src="Z:/picture/005/save_picture_1061810.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ Nested Lands (2026) [Ru/Multi] (0.7.8.12) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061554.jpg" />
+  <img src="Z:/picture/005/save_picture_1061554.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ Pioner (2025) [Ru/Multi] (Build 21335712/dlc) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060135.jpg" />
+  <img src="Z:/picture/009/save_picture_1060135.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (Build 21633477) Repa
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059954.jpg" />
+  <img src="Z:/picture/009/save_picture_1059954.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ Assetto Corsa Rally (2025) [Ru/Multi] (0.3.1 HF) Repack Let'sРlay [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059912.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ Mashinky (2018) [Ru/Multi] (25.02.2026) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059873.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ Car Service Together (2026) [Ru/Multi] (0.9F6) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059869.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ Purrrifiers: Cleaning Chaos (2025) [Ru/Multi] (0.8444) Repack Pioneer [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059828.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ Outbreak Island (2025) [Ru/Multi] (Update 9/dlc) Repack Let'sРlay [Supporter Ed
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058540.jpg" />
+  <img src="Z:/picture/005/save_picture_1058540.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ Kupala / Купала (2026) [Ru/En] (Build 21869141) Repack Other s [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058112.jpg" />
+  <img src="Z:/picture/005/save_picture_1058112.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ Menace (2026) [Ru/Multi] (0.6.8) License GOG [Earle Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058074.jpg" />
+  <img src="Z:/picture/005/save_picture_1058074.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.050) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057818.jpg" />
+  <img src="Z:/picture/005/save_picture_1057818.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ Comix Zero (2026) [Multi] (0.4.5) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057235.jpg" />
+  <img src="Z:/picture/005/save_picture_1057235.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ THE IRONY (2026) [Multi] (Alpha 0.1.2) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057138.jpg" />
+  <img src="Z:/picture/005/save_picture_1057138.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ Warhammer 40,000 Dark Heresy (2026) [Ru/Multi] (0.0.3.507) Repack Let'sРlay [Pl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057076.jpg" />
+  <img src="Z:/picture/005/save_picture_1057076.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ Aztecs: The Last Sun (2025) [Ru/Multi] (0.6.0/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056039.jpg" />
+  <img src="Z:/picture/005/save_picture_1056039.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ Being and Becoming (2026) [Ru/Multi] (2023.2.20f1) Repack Necros [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055472.jpg" />
+  <img src="Z:/picture/005/save_picture_1055472.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ Vampires: Bloodlord Rising (2026) [Ru/Multi] (1.0.1.19431/dlc) License GOG [Earl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054859.jpg" />
+  <img src="Z:/picture/005/save_picture_1054859.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ Hytale (2026) [Ru/En] (14.01.2026) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054338.jpg" />
+  <img src="Z:/picture/005/save_picture_1054338.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ Hytale (2026) [Ru/En] (14.01.2026) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054337.jpg" />
+  <img src="Z:/picture/005/save_picture_1054337.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ Hytale – сочетание ролевой игры и песочницы, г�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4908CD8879FA900C5072B33BD42FC99000AB1FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850205   (1054296) от 14.02.2026
-
-R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (0.8.1.6) Repack Let'sРlay [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054296.jpg" />
-</div>
-
-
-###  Подробнее
-
-R.I.P. органично сочетает град пуль из Vampire Survivors с прогрессией, завязанной на снаряжении, из серии игр Diablo. Мир кишит коррозионными вирусами и зомби, вы - элитный сотрудник R.I.P., и ваша цель проста: избавиться от нескончаемых орд физическими методами. Убивайте монстров, подбирайте добычу, перекраивайте снаряжение и собирайте различные комплекты - это (   Читать дальше...   )Тип издания: RepackРазработчик: WarmCore StudioЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Японский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Японский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29B0A7C1A70D1E9E2BA7920290CF13A991AD0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850307   (1054175) от 03.02.2026
-
-Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тело всеми любимого медведя Винни контролирует злобный вирус, и этот вирус – ты! Захватывай здоровые клетки, мутируй и собирай колоду действий, чтобы использовать их в пошаговых боях. Возможности носителя не безграничны. Но твои способности к адаптации помогут предолеть эти ограничения. И помни: монстры кроются даже в лучших из нас.Тип издания: RepackРазработчик: Twice DifferentЖанр: Инди, Стратегии,Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBAC617A89475511EAD935CC6BE181270F1AF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849877   (1053920) от 25.01.2026
-
-StarRupture (2026) [Ru/Multi] (0.1.1 112941-S/dlc) Repack seleZen [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053920.jpg" />
-</div>
-
-
-###  Подробнее
-
-StarRupture - игра от первого лица, где вам предстоит исследовать открытый мир и строить базы. Играйте в одиночку или с друзьями, добывайте ресурсы на изменчивой планете, создайте замысловатую промышленную систему и дайте отпор ордам инопланетных чудовищ. Исследуйте таинственную планету в изменчивом открытом мире, охваченном постоянными катастрофами. Постройте замысловатую (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CDDE6B0DF59929E5ADDB7F72DBC6B0E9709BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849859   (1053913) от 27.01.2026
-
-LORT (2026) [Ru/Multi] (0.5.2) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053913.jpg" />
-</div>
-
-
-###  Подробнее
-
-LORT - кооперативный роулайт-экшен, главная цель в котором заключается в преодолении проклятия, наложенного на фэнтезийный мир. Путь персонажей, рассчитанный на совместное прохождение группой до 8 человек, пролегает от статуса скромных бойцов до сокрушителей могущественных созданий. Противостояние гигантским боссам требует изучения их тактики и использования уязвимостей (   Читать дальше...   )Тип издания: RepackРазработчик: Big DistractionЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6894A99963D8F502BD2A3797C364840DB58ED79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849452   (1053494) от 23.01.2026
-
-My Winter Car (2025) [Ru/Multi] (build 21360632) Repack seleZen [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забудьте о теплых летних днях. Приготовьтесь к настоящему испытанию выживания в суровых условиях заснеженной Финляндии. My Winter Car – это не просто продолжение культового My Summer Car, это погружение в мир механики, борьбы за выживание и непреодолимого желания создать что-то свое. Вам предстоит взять в руки старую, потрепанную жизнью машину и превратить ее в шедевр. (   Читать дальше...   )Тип издания: RepackРазработчик: Amistech GamesЖанр: Инди, Гонки, СимуляторыЯзык озвучки: ФинскийЯзык субтитров: Русский, Английский, ФинскийЯзык интерфейса: Русский, Английский, Финский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD55BC1E2A4F48EEF4BE11CA94A9B2DE85814D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

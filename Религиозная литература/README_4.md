@@ -1,3 +1,81 @@
+###  Публикация: 1447113   (1032097) от 12.02.2021
+
+Анна Ильинская | Матушки Земли Российской (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна Всеволодовна Ильинская — филолог, известная православная писательница, автор десяти книг и множества статей и очерков, член Союза писателей России. Предлагаемая вниманию читателей книга «Матушки Земли Российской» — второе, значительно исправленное, переработанное и дополненное издание книги. Помимо широко известных очерков о схимонахине Серафиме (Бобковой), (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CFC7781ACFB5AFB73EFD1A23DD55BD2A30DC3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447108   (1032048) от 12.02.2021
+
+М. Барсов (сост.) | Апокалипсис. Сборник статей по истолковательному и назидательному чтению (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032048.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сборник» был составлен в 90-х гг. XIX в. инспектором Симбирской духовной семинарии Матвеем Васильевичем Барсовым (1842-1896) с целью собрать в одну книгу замечательные святоотеческие, пастырские и богословские комментарии на Апокалипсис, разбросанные по множеству духовных журналов и книг, малодоступных для читателя как тогда, так и сегодня. Вошедшие в книгу статьи (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577B65C1562EA20DF915F7319F473B5EA83F8743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447224   (1032037) от 12.02.2021
+
+Брюс Шелли | История церкви, рассказанная просто и понятно (2021) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет историю церкви в виде простого, ясного, запоминающегося и увлекательного рассказа о выдающихся людях, великих идеях, грандиозных эпохах и ключевых событиях, благодаря которым христианство появилось, разрослось и вступило в XXI век в масштабах всей планеты. Труд профессора Брюса Шелли (1927—2010) стал классическим. Русский перевод выполнен по (   Читать дальше...   )Жанр: Зарубежная религиозная литература, Религиоведение / история религийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF802A579431C87FC1CEFF540E023BD70E63A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620610   (1031909) от 21.03.2023
 
 Преподобный Максим Исповедник | Главы о любви (2013) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031909.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031902.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031875.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031435.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030278.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030237.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030029.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029815.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029776.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029245.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Cергей Милов (сост.) | Таинство Покаяния (2011) [F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028926.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028244.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028221.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028087.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027919.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027591.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027227.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027224.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027091.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026965.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026954.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026765.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026262.jpg" />
 </div>
 
 
@@ -602,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA4FC08227CC5E2061DBCF82FF2DF5D92C5BCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454847   (1026145) от 16.03.2021
-
-Схиигумен Иоанн (Алексеев) | Письма Валаамского старца, схиигумена Иоанна (2016) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026145.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлено собрание писем известного валаамского подвижника, старца Иоанна (Алексеева) (1873–1958), которые он адресовал своим многочисленным духовным чадам и в которых указывается, как правильно проходить путь спасения во Христе. Душеназидательные письма схиигумена Иоанна принесут пользу всем православным христианам.Жанр: ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455363   (1025823) от 18.03.2021
-
-Священник Сергий Филимонов (сост.) | Великопостный служебник. Службы Великого поста (2021) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великопостный служебник был составлен в 1990-е годы, когда автор обучался в Санкт-Петербургской Духовной Семинарии и Академии. В течение ряда лет он «апробировался» в Академическом храме и в других храмах Санкт-Петербургской епархии. Первое издание служебника вышло в свет в 2005 году. Данное издание значительно дополнено, в него внесены необходимые изменения, учтены (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47BBA630E6CC4EF433EEE02E5FDCACC7446EA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455393   (1025676) от 19.03.2021
-
-Святитель Димитрий Ростовский | Воскресение души. Сборник поучений на Великий пост и приходских поучений (1999) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025676.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Остерегайтесь, братие! Разрыв начинается незаметно. Сначала является охлаждение к Церкви, потом следует осуждение церковного строя жизни и её уставов, потом уклонение мыслей на сторону лжеучений. Душа ваша делается враждебной Церкви: ей не нравится всё церковное, она противится Церкви. И вот разрыв. Являются лжеучители. Они посевают в ваших душах вражду к Церкви, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A5DE510F9640ED0F367D80AD0115B4A324E65D
 ```
 
 https://mybot314.ru/tekegram_catalog/

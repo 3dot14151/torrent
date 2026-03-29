@@ -1,3 +1,112 @@
+###  Публикация: 1191187   (264928) от 12.12.2017
+
+Adobe Photoshop Lightroom Classic CC 2018 v7.1.0 [Multi]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Photoshop Lightroom предназначено для профессиональных фотографов и любителей и позволяющее быстро импортировать и обрабатывать изображения, а также управлять библиотекой фотографий. Такие функции, как Smart Preview и Advanced Healing Brush расширяют возможности полнофункциональной версии Photoshop в области тонкого редактирования фотографий. Инструмент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: Adobe Systems IncПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBF6923773D5E28593770C07F81CA4A8D976C298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238634   (264814) от 08.12.2018
+
+BATTLETECH  v1.3.0.413r (25481) (2018) [En] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battletech - это пошаговый ролевой экшен с роботами от создателей вселенной BattleTech и серии MechWarrior, который создается силами Harebrained Schemes, создателей последних частей Shadowrun, которые объединили усилия вместе с создателем оригинальной серии, Джорданом Вейманом. События новой части разворачиваются в 3025 году, а управлять игрокам предстоит отрядом (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: Harebrained SchemesПоддерживаемая ОС: 10.13.3+Жанр: Strategy, Turn-basedЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE220F14AABC5E5B3B2CDCD8BAC81BC462C7B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339744   (264712) от 21.11.2019
+
+Alfred 4 Powerpack 4.0.7 (1126) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+
+Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Running with CrayonsПоддерживаемая ОС: OS X 10.9 или более поздняя версияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AE095952710479F297ADF261C6B2047EC8528C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339748   (264711) от 21.11.2019
+
+Yate 5 v5.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960E769FFCE0E8C49AF1B2FDCE3B83682A4E346C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339804   (264710) от 21.11.2019
 
 Debookee 7 v7.3.1 [En]
@@ -6,7 +115,7 @@ Debookee 7 v7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264710.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Athentech Perfectly Clear Complete 3 v3.9.0.1697 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264709.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Application Wizard 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264703.jpg" />
 </div>
 
 
@@ -89,7 +198,7 @@ DoYourData AppUninser Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264701.jpg" />
 </div>
 
 
@@ -115,7 +224,7 @@ Acorn 6 v6.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264700.jpg" />
 </div>
 
 
@@ -143,7 +252,7 @@ Duplicate File Finder Pro 6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264678.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264675.jpg" />
 </div>
 
 
@@ -198,7 +307,7 @@ Things 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264443.jpg" />
 </div>
 
 
@@ -226,7 +335,7 @@ DuplicateViewer 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264311.jpg" />
 </div>
 
 
@@ -252,7 +361,7 @@ GarageSale 8 v8.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264310.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ ExactScan Pro 19.11 (build 19.11.12) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264309.jpg" />
 </div>
 
 
@@ -304,7 +413,7 @@ Allegorithmic Substance Designer 2019.2.2 (build 2644) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264292.jpg" />
 </div>
 
 
@@ -330,7 +439,7 @@ Folx Pro 5.13 (13905) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264286.jpg" />
 </div>
 
 
@@ -359,7 +468,7 @@ Pixelmator Pro 1.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264273.jpg" />
 </div>
 
 
@@ -387,7 +496,7 @@ Wondershare PDFelement Pro 7.5.4.282 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264267.jpg" />
 </div>
 
 
@@ -413,7 +522,7 @@ VideoProc (former MacX Video Converter Pro) 3.5 (build 20191121) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264255.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ ACDSee Photo Studio 6 v6.0.1484 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264250.jpg" />
 </div>
 
 
@@ -469,7 +578,7 @@ Disk Drill Enterprise 3.8.953 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264232.jpg" />
 </div>
 
 
@@ -497,7 +606,7 @@ Commander One PRO Pack 2 v2.4 (build 3129) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264154.jpg" />
 </div>
 
 
@@ -526,7 +635,7 @@ ExpanDrive 6.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264136.jpg" />
 </div>
 
 
@@ -555,7 +664,7 @@ iExplorer 4.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264126.jpg" />
 </div>
 
 
@@ -583,7 +692,7 @@ Movavi Video Editor 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264109.jpg" />
 </div>
 
 
@@ -594,117 +703,6 @@ Movavi Video Editor 5.1.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5CEE1FEE22E3BAC9EA3A2DC31B2A470AD28DA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340228   (264014) от 23.11.2019
-
-AnyMP4 Audio Converter for Mac 8.2.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264014.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Audio Converter - простой в использовании аудио конвертер, конвертер AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA аудио, извлечение аудио из видео файлов MPG, MPEG, MPEG2, MOV, QT, MP4, M4V, RM, RMVB, WMV, ASF, MKV, TS, MPV, AVI, 3GP, 3G2, FLV, MPV, MOD, TOD видео в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA аудио, конвертер (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD98F2B3A3EC35BF00EF444F7860ABE4DC7CF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340218   (263998) от 23.11.2019
-
-TG Pro (Temperature Gauge Pro) 2.45 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263998.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2019Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA2B6EA799CCB04F8C2B949CFAAC5980844E961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340320   (263986) от 23.11.2019
-
-ProPresenter 6 v6.5.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263986.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
-Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
-
-Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Renewed Vision LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Корейский, Испанский и д.р.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6932865D1DAE9F9EA73597647288FFE0E25CD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340366   (263974) от 23.11.2019
-
-IconJar 2.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все ваши иконки отлично организованы в удобный интерфейс
-Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
-
-Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066ACF112A158432C3166A54C36D69455EF27246
 ```
 
 https://mybot314.ru/tekegram_catalog/

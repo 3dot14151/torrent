@@ -6,7 +6,7 @@ B.B. And Band - Wee Thee People (1982) LP [MP3|320 Kbps] <Electronic, Funk-Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533245.jpg" />
+  <img src="Z:/picture/008/save_picture_533245.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - I Love The Bee Gees Volume 2 (Strictly DJ Only) (2017) [MP3|320 Kbps] <Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529555.jpg" />
+  <img src="Z:/picture/008/save_picture_529555.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Discotheque - Discotheque Party (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529199.jpg" />
+  <img src="Z:/picture/008/save_picture_529199.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Love Unlimited - Love Is Back (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528680.jpg" />
+  <img src="Z:/picture/008/save_picture_528680.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Karen Cheryl - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528175.jpg" />
+  <img src="Z:/picture/008/save_picture_528175.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Various - Disco Party (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526623.jpg" />
+  <img src="Z:/picture/008/save_picture_526623.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Goody Goody - Goody Goody (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525511.jpg" />
+  <img src="Z:/picture/008/save_picture_525511.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Roger Meno - Collection (1986, 2001, 2010) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525506.jpg" />
+  <img src="Z:/picture/008/save_picture_525506.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Betty Wright - Betty Travelin' In The Wright Circle (1979) Reissue CD, Solid Rec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522906.jpg" />
+  <img src="Z:/picture/008/save_picture_522906.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ RSF - RSF (2018) [MP3|320 Kbps] <Italo-Disco, Leftfield>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520254.jpg" />
+  <img src="Z:/picture/008/save_picture_520254.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Frantique - Frantique (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520249.jpg" />
+  <img src="Z:/picture/008/save_picture_520249.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tuxedo Junction - 2 Albums (1977, 1979) Reissue CD, 1995, Unidisc  [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519442.jpg" />
+  <img src="Z:/picture/008/save_picture_519442.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Peter Thomas Orchestra - In Discoland (1977) LP [MP3|320 Kbps] <Funk Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513900.jpg" />
+  <img src="Z:/picture/008/save_picture_513900.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [MP3|320 кб/с]<Pop, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513266.jpg" />
+  <img src="Z:/picture/008/save_picture_513266.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Jackie Robinson - I'm Different (1976) [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512857.jpg" />
+  <img src="Z:/picture/008/save_picture_512857.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Carol Douglas - 5 Albums (1975-1979) Collection [MP3|320 Kbps] <Funk Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511794.jpg" />
+  <img src="Z:/picture/008/save_picture_511794.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Antonia - Dance With Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508829.jpg" />
+  <img src="Z:/picture/008/save_picture_508829.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Martina - Disco 'Round The World (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501667.jpg" />
+  <img src="Z:/picture/008/save_picture_501667.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Patchwork - Hair Of The Dog (1978) LP [MP3|320 Kbps] <Space Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499671.jpg" />
+  <img src="Z:/picture/008/save_picture_499671.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ King Sporty - Mr. Rhythm (1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498577.jpg" />
+  <img src="Z:/picture/008/save_picture_498577.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Tight Fit - The Lion Sleeps Tonight (1982) Vinyl Rip [MP3|320 Kbps] <Pop, Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496586.jpg" />
+  <img src="Z:/picture/008/save_picture_496586.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Angie Gold - 4 Albums (1982-2012) [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496002.jpg" />
+  <img src="Z:/picture/008/save_picture_496002.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Bananarama - Masquerade (2022) [MP3|320 Kbps] <Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494665.jpg" />
+  <img src="Z:/picture/008/save_picture_494665.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Bad Boys Blue - 25-The Long Mixes (2022) [MP3|320 Kbps] <Disco, Dance, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494564.jpg" />
+  <img src="Z:/picture/008/save_picture_494564.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Boris Midney - 11 Albums (1978-1999) Reissue CD (2012-2014) [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494209.jpg" />
+  <img src="Z:/picture/008/save_picture_494209.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Peter Wilson - The Passion and The Flame (2018) 2CD [MP3|320 Kbps] <Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494126.jpg" />
+  <img src="Z:/picture/008/save_picture_494126.jpg" />
 </div>
 
 

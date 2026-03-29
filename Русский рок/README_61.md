@@ -1,3 +1,116 @@
+###  Публикация: 1251729   (415509) от 02.10.2018
+
+Большой Ногами - Песни 2017-2018 (2018) [MP3|320 Kbps] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Франкенштейн
+02. Соседи
+03. Кит
+04. Проводник(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548487128D7D2AF7CBB50C606F187D74B80FC7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251744   (415504) от 02.10.2018
+
+Радиограмма - Запах земли после дождя (2018) [MP3|320 Kbps] <Art Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер горек
+02. Дым
+03. Осеннее равноденствие
+04. Без слов(   Читать дальше...   )Жанр: Art Rock, Indie RockПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E497F1B68C4F00F0E1861245244B27BA0CA156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129246   (415067) от 02.10.2018
+
+Кипелов - Косово Поле (2017) Single [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маргарита Пушкина: «Идея написать песню о битве на Косовом Поле появилась давно, но никак не могла оформиться окончательно. Наверное, года два или три мысли бродили в голове, подбирались нужные слова. Картина кровавой битвы в 1389 году между сербами и боснийцами с одной стороны, и турками-османами с другой впечатляла... Кроме того, рассказав о тех далеких временах, (   Читать дальше...   )1. Косово полеЖанр: Heavy MetalПродолжительность: 00:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F876F519B0D6398B165F04E6418456A40F57EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573173   (414914) от 30.08.2022
+
+Ayoki - 8 Relises (2018-2022) [MP3|320 Kbps] <Alt. Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Когда исчезнет шанс [00:03:19]
+02. Живой [00:03:07]
+03. Наследие [00:03:54]
+04. День и ночь ждать [00:04:32](   Читать дальше...   )Жанр: Alt. Metal, Female VocalПродолжительность: 8 CD, 01:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6B585ACA77D85EAFE9F925C4C7DFB23A8F27F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573171   (414906) от 30.08.2022
 
 Дездемон Сидоров - Велоанархист (2022) [MP3|320 Kbps] <Punk Rock>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414906.jpg" />
+  <img src="Z:/picture/008/save_picture_414906.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Lifeburn - Город греха (2022) [MP3|320 Kbps] <Hard & Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414778.jpg" />
+  <img src="Z:/picture/008/save_picture_414778.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414407.jpg" />
+  <img src="Z:/picture/008/save_picture_414407.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413613.jpg" />
+  <img src="Z:/picture/008/save_picture_413613.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413502.jpg" />
+  <img src="Z:/picture/008/save_picture_413502.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Louna - Начало нового круга (2020) [MP3|320 Kbps] <Alternative 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413467.jpg" />
+  <img src="Z:/picture/008/save_picture_413467.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412904.jpg" />
+  <img src="Z:/picture/008/save_picture_412904.jpg" />
 </div>
 
 
@@ -208,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411331.jpg" />
+  <img src="Z:/picture/008/save_picture_411331.jpg" />
 </div>
 
 
@@ -237,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411264.jpg" />
+  <img src="Z:/picture/008/save_picture_411264.jpg" />
 </div>
 
 
@@ -264,7 +377,7 @@ Lumen - На части (Full version) (2012) [MP3|320 kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_410962.jpg" />
+  <img src="Z:/picture/005/save_picture_410962.jpg" />
 </div>
 
 
@@ -299,7 +412,7 @@ Mortido - V (2018) [MP3|320 Kbps] <Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409434.jpg" />
+  <img src="Z:/picture/008/save_picture_409434.jpg" />
 </div>
 
 
@@ -328,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409423.jpg" />
+  <img src="Z:/picture/008/save_picture_409423.jpg" />
 </div>
 
 
@@ -357,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409181.jpg" />
+  <img src="Z:/picture/008/save_picture_409181.jpg" />
 </div>
 
 
@@ -386,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408743.jpg" />
+  <img src="Z:/picture/008/save_picture_408743.jpg" />
 </div>
 
 
@@ -415,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408657.jpg" />
+  <img src="Z:/picture/008/save_picture_408657.jpg" />
 </div>
 
 
@@ -444,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408579.jpg" />
+  <img src="Z:/picture/008/save_picture_408579.jpg" />
 </div>
 
 
@@ -473,7 +586,7 @@ The Travelling Orchestra - Early In The Mornin' (2016) EP [MP3|320 Kbps] <Blues 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408065.jpg" />
+  <img src="Z:/picture/008/save_picture_408065.jpg" />
 </div>
 
 
@@ -501,7 +614,7 @@ The Travelling Orchestra - 22 (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408061.jpg" />
+  <img src="Z:/picture/008/save_picture_408061.jpg" />
 </div>
 
 
@@ -530,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407538.jpg" />
+  <img src="Z:/picture/008/save_picture_407538.jpg" />
 </div>
 
 
@@ -559,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406610.jpg" />
+  <img src="Z:/picture/008/save_picture_406610.jpg" />
 </div>
 
 
@@ -588,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406150.jpg" />
+  <img src="Z:/picture/008/save_picture_406150.jpg" />
 </div>
 
 
@@ -623,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405727.jpg" />
+  <img src="Z:/picture/008/save_picture_405727.jpg" />
 </div>
 
 
@@ -635,125 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21158810B9CC06B27107FD66EF9E957152C7013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169277   (404005) от 26.09.2017
-
-Ногу свело! - Ватрушки (2017) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ВатрушкиЖанр: RockПродолжительность: 00:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042B0ACEDA0ED199477447A5E0D15102ED012E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562690   (402593) от 23.10.2012
-
-Ленинград - Рыба +Bonus (2012) [MP3|320 kbps]<SKA, Rock>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва
-02. Мы за
-03. Вода
-04. Рыба
-05. Мой 87ой
-06. Непросто
-07. Жёлуди
-08. Бах
-09. Юлия
-10. Бомбила(   Читать дальше...   )Жанр: SKA, RockПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169896   (401546) от 29.09.2017
-
-Василий К. & Roll Romance - Камень в небо (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401546.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. По следам старика
-2. У людей
-3. Когда я стану героем
-4. Время(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0BE6FB7F1F37EFCD0B393A63DF5022CF3B0C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170006   (401313) от 29.09.2017
-
-Король и шут - Будь Как Дома, Путник...! (1996) Vinyl-rip, Remastered, 2017, Шумный Рекордс [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винил «Будь, как дома, путник!» подарит поклонникам «КиШ» бесценную возможность услышать классические записи, и, спустя двадцать четыре года, оценить их оригинальное звучание. Может быть, даже прочувствовать их заново. И, разумеется, вспомнить, что такое True Russian Punk. Чтобы больше не забывать. Одиннадцать песен, одиннадцать сказок, записанные много лет назад (   Читать дальше...   )1. Мотоцикл
-2. Два Друга
-3. Сапоги
-4. Лесник(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BD3968AC682301E26442CCE2206BA9F51A8770
 ```
 
 https://mybot314.ru/tekegram_catalog/

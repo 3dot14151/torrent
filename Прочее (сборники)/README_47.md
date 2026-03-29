@@ -1,3 +1,174 @@
+###  Публикация: 1274653   (792005) от 08.01.2019
+
+Виктор Павлик - Город Зеленого Цвета (2019) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Город Зеленого Цвета - Виктор Павлик (Ivan ART Extended Remix)Жанр: Club, DanceПродолжительность: 00:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AAC9247F6B033315417736092568CBBE5C0BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201687   (791986) от 25.01.2018
+
+VA - Музыка, с которой мы выросли (зарубежная). Выпуск 2 (1969-1993) [MP3|320 Kbps] <Rock, pop, disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - It Came Out Of The Sky (1969) 02:57
+02. Creedence Clearwater Revival - Travelin' Band (1970) 02:11
+03. Led Zeppelin - Bron-Y-Aur Stomp (1970) 04:18
+04. The Sweet - Santa Monica Sunshine (1971) 03:28(   Читать дальше...   )Жанр: Rock, pop, discoПродолжительность: 06:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634F21A7B6C0BF3910842B2F3465BA656030A69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387326   (791825) от 01.06.2020
+
+VA - Music for You vol.3 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echopraxia - 3s Without 4 (03:51)
+ 02. Jason Becker - Air (05:40)
+ 03. Arch Echo - Tempest (05:18)
+ 04. Dream Theater - Forsaken (05:37)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B064D85702C52B4ABD789F993D259C739678BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387426   (791817) от 01.06.2020
+
+VA - не Громкие новинки недели 69 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791817.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alina - Больно, Но Весело (3:02)
+2. Anivar - Новый Рассвет (Dmitry Air Remix) (4:03)
+3. BELTY - Море (4:26)
+4. Dante - Пряными Травами (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4013C231B67C04A6D1C4D319B4871AF434E290DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387467   (791814) от 01.06.2020
+
+VA - Music News vol.13 (2020) [MP3|320 Kbps] <Pop, Hip - Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AlphaLove - Call Me Up (02:47)
+ 02. Animal ДжаZ - О Хлебе И Воде (02:44)
+ 03. Anivar - Новый Рассвет (04:03)
+ 04. Belty - Море (04:26)(   Читать дальше...   )Жанр: Pop, Hip - HopПродолжительность: 04:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA14D410F37ABC6650A8CE7BE932E4D763912D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387358   (791735) от 01.06.2020
+
+VA - Новинки с разных популярных MP3 сайтов. Ver 96 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rus:
+1. Ahmed Shad - Малая (2:49)
+2. Alekseev - Ревность (3:24)
+3. Bahh Tee feat. Turken - Вытри Слезы, Дура (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A4A62EA491EADE8FD0B94D5397C49368B02B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274945   (791699) от 09.01.2019
 
 VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
@@ -6,7 +177,7 @@ VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791699.jpg" />
+  <img src="Z:/picture/008/save_picture_791699.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0009 (
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791635.jpg" />
+  <img src="Z:/picture/008/save_picture_791635.jpg" />
 </div>
 
 
@@ -64,7 +235,7 @@ VA - Music News vol.148 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791457.jpg" />
+  <img src="Z:/picture/008/save_picture_791457.jpg" />
 </div>
 
 
@@ -93,7 +264,7 @@ VA - Love Songs & Chill (2020) [MP3|320 Kbps] <Pop, Dance, Chill>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791308.jpg" />
+  <img src="Z:/picture/008/save_picture_791308.jpg" />
 </div>
 
 
@@ -122,7 +293,7 @@ VA - Популярный бикини микс (2018) [MP3|256-320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790984.jpg" />
+  <img src="Z:/picture/008/save_picture_790984.jpg" />
 </div>
 
 
@@ -151,7 +322,7 @@ VA - Radio NRJ: TOP 30 - Итоговый за 2017 (2018) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790937.jpg" />
+  <img src="Z:/picture/008/save_picture_790937.jpg" />
 </div>
 
 
@@ -180,7 +351,7 @@ VA - TOP 80: Хит Парад 'Золотой граммофон' (2018) [MP3|3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790847.jpg" />
+  <img src="Z:/picture/008/save_picture_790847.jpg" />
 </div>
 
 
@@ -209,7 +380,7 @@ VA - Music Collection. From West To East. 530 (1991-2021) [MP3|320 Kbps] <New Ag
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790747.jpg" />
+  <img src="Z:/picture/008/save_picture_790747.jpg" />
 </div>
 
 
@@ -238,7 +409,7 @@ VA - Music News vol.14 (2020) [MP3|320 Kbps] <Pop, Noise Rock, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790661.jpg" />
+  <img src="Z:/picture/008/save_picture_790661.jpg" />
 </div>
 
 
@@ -267,7 +438,7 @@ VA - Diskoteka 2018 - Winter Weekend (2018) [MP3|320 Kbps] <House, Latino, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790536.jpg" />
+  <img src="Z:/picture/008/save_picture_790536.jpg" />
 </div>
 
 
@@ -296,7 +467,7 @@ VA - Club House Hits Euro EDM (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790533.jpg" />
+  <img src="Z:/picture/008/save_picture_790533.jpg" />
 </div>
 
 
@@ -325,7 +496,7 @@ VA - Radio DFM: D-Chart Итоговый 2018 Top 50 (2019) [MP3|320 Kbps] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790469.jpg" />
+  <img src="Z:/picture/008/save_picture_790469.jpg" />
 </div>
 
 
@@ -354,7 +525,7 @@ Cheeps - Аппликация (2021) Bootleg [MP3|192 Kbps] <IndiRock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790281.jpg" />
+  <img src="Z:/picture/008/save_picture_790281.jpg" />
 </div>
 
 
@@ -383,7 +554,7 @@ VA - Music News vol.15 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790085.jpg" />
+  <img src="Z:/picture/008/save_picture_790085.jpg" />
 </div>
 
 
@@ -412,7 +583,7 @@ VA - The Official UK Top 40 Singles Chart 11.01.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789912.jpg" />
+  <img src="Z:/picture/008/save_picture_789912.jpg" />
 </div>
 
 
@@ -441,7 +612,7 @@ VA - ЕвроХит Топ 40 Europa Plus 11.01.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789899.jpg" />
+  <img src="Z:/picture/008/save_picture_789899.jpg" />
 </div>
 
 
@@ -470,7 +641,7 @@ VA - Rare Pop Dance (2019) [MP3|320 Kbps] <Electronic, Synthpop, Pop, Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789869.jpg" />
+  <img src="Z:/picture/008/save_picture_789869.jpg" />
 </div>
 
 
@@ -499,7 +670,7 @@ VA - Viskas Bus Gerai (lietuviska muzika) (2021) 2CD [MP3|256-320 Kbps] <Pop, Ro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789804.jpg" />
+  <img src="Z:/picture/008/save_picture_789804.jpg" />
 </div>
 
 
@@ -528,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789624.jpg" />
+  <img src="Z:/picture/008/save_picture_789624.jpg" />
 </div>
 
 
@@ -554,7 +725,7 @@ VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789439.jpg" />
+  <img src="Z:/picture/008/save_picture_789439.jpg" />
 </div>
 
 
@@ -568,180 +739,6 @@ VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F578357EECA09D365E05FF01C286B874191F814E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275804   (789389) от 13.01.2019
-
-VA - Зарубежные Хиты-Январь (2019) [MP3|320 Kbps] <Pop, Alternative, Electro, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789389.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aaron Watson-Kiss That Girl Goodbye
-002. Agustin Casanova-Bye Bye
-003. Allen(IT)-PopLock
-004. Allie X-Little Things (Analog Version)(   Читать дальше...   )Жанр: Pop, Alternative, Electro, DanceПродолжительность: 05:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EFE427986F4CEA21BAAD79CF3C2EF51C16EE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202674   (789277) от 30.01.2018
-
-VA - Дискотека 2018 Dance Club Vol.174 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Synth Pop, Dance и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01.  Claudia Leitte feat. Pitbull  -  Carnaval  3:44
-02.  Arash feat. Helena  -  Dooset Daram (Radio Version)  3:17
-03.  Joy feat. Matami  -  Get Lost (Original Mix)  3:32(   Читать дальше...   )Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 03:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280A2A8363CD2C8C5061F582ADFFAC24E47B7ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511598   (788938) от 21.11.2021
-
-VA - Music News vol.149 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788938.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Cry Your Heart Out (04:15)
- 002. ADDA - Sa Nu-mi Iei Trandafiri (03:25)
- 003. Adele - Can I Get It (03:30)
- 004. Activ - Doar Cu Tine (Andrey Vertuga DFM Radio Edit) (02:52)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A354D2DAE1147D8F8228C9623257AB092C829C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511612   (788841) от 21.11.2021
-
-VA - Music News vol.150 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Natalia Oreiro & Juan Ingaramo - Me Muero de Amor (03:31)
- 002. Anzheli - Антигерой (Piano Version) (02:42)
- 003. ARZU - Слезы (02:45)
- 004. Banzay - Румянец (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2221930ECC43B3DC9ECE90F9067C1FD66AE53288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511502   (788788) от 21.11.2021
-
-VA - Зайцев.нет Лучшие новинки Ноября (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 25 17 - Зима-мама (электричество) (3:13)
-02. 5sta Family - Тюльпаны (Lavrushkin & Tomboo Remix) (2:52)
-03. BRAMA - Нам не нравятся те, кому не нравимся мы (2:25)
-04. GARRISON - Infinity (5:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA1DE7D0E6254169BFA57EEE7D759B8798548EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203137   (788653) от 01.02.2018
-
-VA - Empire Records - Retromania 8 (2018) [MP3|320 Kbps] <Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danger Mode - Crime Wave
-02. Tove Lo - Disco Tits
-03. Ace, Hannah Williams - No Victim Song (Original Mix)
-04. Search DiP - Trapping You Again(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0881C3C64FBC5D1FDA856532A18DF957799FF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

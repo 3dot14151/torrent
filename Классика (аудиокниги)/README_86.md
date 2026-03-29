@@ -1,3 +1,110 @@
+###  Публикация: 422187   (61747) от 26.03.2024
+
+Владимир Одоевский | Русские ночи (2009) [MP3, Владимир Левашёв]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Федорович Одоевский (1804–1869) – выдающийся  русский писатель и философ, автор множества художественных произведений для детей, которые стали классикой детской литературы.
+Философский роман «Русские ночи» - значительное, итоговое произведение Владимира Федоровича Одоевского, русского писателя, философа, педагога, музыковеда и теоретика музыки. Роман состоит (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Терра-Книжный клубПродолжительность: 12:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE02E4622ADEDBC4FE98C447FB5325264FD5182E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335779   (61740) от 26.03.2024
+
+Владимир Одоевский | Княжна Мими. Живой мертвец (2009) [MP3, Савелий Гуреев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Федорович Одоевский (1803-1869) русский писатель, философ, князь, сенатор, директор Румянцевского музея (ныне ГМИИ им. Пушкина). Современники называли Одоевского «русским Гофманом», ибо в повестях его причудливо переплелись фантастика и меткая сатира, глубокая философичность и занимательность сюжета. Писатель этот по праву занимает одно из главных мест в (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-М (аудио)Продолжительность: 03:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5921B47D76438625A09115F9410834904B95F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335902   (61724) от 26.03.2024
+
+Владимир Одоевский | Русские ночи (2007) [MP3, Арина Ланская]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиобиблиотека школьника.
+Владимир Фёдорович Одоевский (1804–1869) – выдающийся  русский писатель и философ, автор множества художественных произведений для детей, которые стали классикой детской литературы.
+Издание содержит фантастические повести, входящие в гениальное произведение «Русские ночи» писателя Владимира Одоевского. Фантастические произведения (   Читать дальше...   )Жанр: Русская литература, классика, фантастическая повестьИздательство: ИДДК, БизнессофтПродолжительность: 05:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5F99FD98779E44D2416E3635678886169B37DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335774   (61714) от 26.03.2024
+
+Владимир Одоевский | Саламандра (2009) [MP3, Савелий Гуреев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Федорович Одоевский (1803-1869) русский писатель, философ, князь, сенатор, директор Румянцевского музея (ныне ГМИИ им. Пушкина). Современники называли Одоевского «русским Гофманом», ибо в повестях его причудливо переплелись фантастика и меткая сатира, глубокая философичность и занимательность сюжета. Писатель этот по праву занимает одно из главных мест в (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-М (аудио)Продолжительность: 03:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0230B53C858C11E3AEFB043AAE2F2424E3FD10D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382565   (61618) от 27.03.2024
 
 Гектор Мало | Без семьи (2006) [MP3, Станислав Сытник]
@@ -6,7 +113,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61618.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61553.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61552.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61547.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61545.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61526.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61474.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61444.jpg" />
 </div>
 
 
@@ -221,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61346.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61324.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61321.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61227.jpg" />
 </div>
 
 
@@ -329,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61219.jpg" />
 </div>
 
 
@@ -358,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61114.jpg" />
 </div>
 
 
@@ -386,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61112.jpg" />
 </div>
 
 
@@ -412,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60948.jpg" />
 </div>
 
 
@@ -440,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60946.jpg" />
 </div>
 
 
@@ -467,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60923.jpg" />
 </div>
 
 
@@ -495,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60920.jpg" />
 </div>
 
 
@@ -522,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60682.jpg" />
 </div>
 
 
@@ -548,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60192.jpg" />
 </div>
 
 
@@ -574,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59691.jpg" />
 </div>
 
 
@@ -586,120 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F620536E3DE57365966B013A82F63EDC9D71D6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381483   (59689) от 15.04.2024
-
-Александр Пушкин | Стихотворения (2007) [MP3, Олег Даль и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиобиблиотека школьника.
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-Его произведения, как поэзия, так и проза, принадлежат к шедеврам мировой литературы, к которым каждое поколение возвращается вновь и вновь.
-Аудиокнига (   Читать дальше...   )Жанр: Русская литература, классика, поэзияПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD98036D421E217354EDD22E35C52B02CE26993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381434   (59670) от 15.04.2024
-
-Александр Пушкин | Руслан и Людмила. Поэмы (2003) [MP3, Вадим Максимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классическая литература
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-Его произведения, как поэзия, так и проза, принадлежат к шедеврам мировой литературы, к которым каждое поколение возвращается вновь и вновь.
-В (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: МедиаКнигаПродолжительность: 06:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3363150155289C64354B9CC02E71D63A0C63D3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362323   (59661) от 15.04.2024
-
-Александр Пушкин | Пир во время чумы. Моцарт и Сальери. Лирика (2006) [MP3, Иннокентий Смоктуновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературный салон «Мелодия».
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-Каждый из нас когда-либо читал «Маленькие трагедии» А.С. Пушкина, как только звучит голос Иннокентия Смоктуновского, мы открываем для себя Пушкина (   Читать дальше...   )Жанр: Русская литература, классика, поэзияПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD634C360C856CC4DB6566918472F6B4F5F9AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361996   (59656) от 15.04.2024
-
-Александр Пушкин | Дубровский (2005) [MP3, Юрий Яковлев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Audiobook, Коллекция аудиоспектаклей.
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-Роман «Дубровский» занимает важное место в русской культуре и является одним из основных произведений русской классической литературы, изучаемых (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ИДДК, БизнессофтПродолжительность: 03:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256AB715BA8AC78422593EB08A966853A8F318EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

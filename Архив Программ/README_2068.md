@@ -1,3 +1,291 @@
+###  Публикация: 1735848   (106803) от 10.07.2024
+
+PDF Shaper Ultimate 14.3 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E21E58C922A5C262EB9CDA9F59CFC6455F72A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735922   (106802) от 10.07.2024
+
+Aiseesoft Video Converter Ultimate 10.8.50 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA371BFC4F8E1988D9F56A666A90B624CFCB493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735865   (106801) от 10.07.2024
+
+eM Client Pro 10.0.3123.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106801.jpg" />
+</div>
+
+
+###  Подробнее
+
+eM Client - мощный клиент электронной почты. Помимо основного функционала, необходимого для полноценной работы с e-mail корреспонденцией (прием, отправка, чтение, написание, удаление, переадресация, сортировка, массовая рассылка электронных писем), он имеет в своем арсенале множество новинок. В их числе отличный мультифункциональный органайзер со встроенной адресной (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951285A5D3CCE1F5DB017B042A8BA5190BA74414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735998   (106796) от 10.07.2024
+
+DesktopOK 11.29 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106796.jpg" />
+</div>
+
+
+###  Подробнее
+
+DesktopOK - небольшая бесплатная и портативная (не требующая установки) программа, предназначенная для сохранения и восстановления местоположения иконок на рабочем столе. Утилита запоминает настройки для различных пользователей, позволяет сохранять позицию иконок для разных разрешений экрана, автоматически скрывает и отображает иконки, а также умеет сворачивать все (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7AD95BA71A36D5D179488812F4C64D4FBEDC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735980   (106795) от 10.07.2024
+
+Mullvad Browser 13.5.1 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mullvad Browser основан на движке Firefox ESR. Содержит множество функций Tor Browser, но не использует сеть Tor, а предназначен для использования с надежным VPN (не требует использования Mullvad VPN).
+Mullvad Browser подойдет для пользователей, которые хотят защитить свою конфиденциальность, избегая использования Tor. Браузер включает режим "HTTPS Only", (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7AC1A57F936CFA02F818C7F4AD313CA82A49B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735939   (106793) от 10.07.2024
+
+Vov Sticky Notes 9.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для многих людей рабочий стол — это просто место, где расположены ярлыки и значки, без какой-либо реальной функциональности. Тем не менее вы можете извлечь выгоду из пустого места на рабочем столе, добавив стикеры, и Vov Sticky Notes — одно из приложений, которое может помочь вам в этом. После установки на компьютер приложение автоматически попадает на панель задач, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485E38299D5461902995BB236033A71D78F6A735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735995   (106791) от 10.07.2024
+
+Q-Dir 11.71 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F31BC95839D99FCCAC8BDB15692F2C9B290D96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735863   (106790) от 10.07.2024
+
+Allavsoft Video Downloader Converter 3.27.3.8952 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - это мощный видео загрузчик с поддержкой скачивания фильмов, музыкальных клипов, плейлистов, видео, уроков с видеохостингов, таких, как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft также может скачивать и конвертировать скачанное видео в популярные видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24154A340596EBF8052E2CA68B30BB80BB9343BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735854   (106783) от 10.07.2024
+
+Photo Supreme 2024.2.0.6544 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EBA586EC38437A18ACFA6BEC0F21B4D5B77711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736038   (106782) от 10.07.2024
+
+4K Video Downloader 4.31.2.0102 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106782.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A9E3DB3684B7955D8CC522E7AA6D8179D9A15D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736036   (106781) от 10.07.2024
+
+4K Video Downloader+ 1.7.3.0102 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106781.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF147815F93FDC282ABE9BEEDB6E6969E9891E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735991   (106770) от 10.07.2024
 
 FanControl V195 + Portable [En]
@@ -6,7 +294,7 @@ FanControl V195 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106770.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ n-Track Studio Suite 10.1.0.8705 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106753.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106752.jpg" />
 </div>
 
 
@@ -84,7 +372,7 @@ Firefox Browser 128.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106750.jpg" />
 </div>
 
 
@@ -110,7 +398,7 @@ FontLab 8.3.0.8895 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106748.jpg" />
 </div>
 
 
@@ -137,7 +425,7 @@ QOwnNotes 24.7.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106742.jpg" />
 </div>
 
 
@@ -163,7 +451,7 @@ Photo Supreme 2024.2.1.6560 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106735.jpg" />
 </div>
 
 
@@ -189,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106734.jpg" />
 </div>
 
 
@@ -215,7 +503,7 @@ High-Logic FontCreator Professional 15.0.0.2993 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106733.jpg" />
 </div>
 
 
@@ -241,7 +529,7 @@ Wavesequencer - Theia 1.14 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106724.jpg" />
 </div>
 
 
@@ -269,7 +557,7 @@ EssentialPIM Pro 12.0.3 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106722.jpg" />
 </div>
 
 
@@ -296,7 +584,7 @@ Photo Supreme 2024.2.1.6568 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106687.jpg" />
 </div>
 
 
@@ -322,7 +610,7 @@ Files Inspector Pro 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106681.jpg" />
 </div>
 
 
@@ -348,7 +636,7 @@ MediaHuman YouTube Downloader 3.9.9.93 (0713) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106677.jpg" />
 </div>
 
 
@@ -374,7 +662,7 @@ Opera One 112.0.5197.24 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106676.jpg" />
 </div>
 
 
@@ -385,295 +673,6 @@ Opera One 112.0.5197.24 Portable by Cento8 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4001492AF3B4D66B9D5330BC9BA1DDAEF06FC6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736544   (106667) от 13.07.2024
-
-XYplorer 26.20.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106667.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer - продвинутый файловый менеджер, который внешне напоминает стандартный Проводник Windows, но имеет множество дополнительных функций и инструментов для удобной работы с файлами. Особенностью этого менеджера является поддержка мультивкладок - откройте столько окошек, сколько Вам нужно, и быстро переключайтесь между ними.
-Приложение имеет гибкие настройки и (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B803477E0DDB3693FD57D6F1BE4A07A8AA39315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736534   (106666) от 13.07.2024
-
-YT Downloader 9.9.6 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106666.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C19D45EEE76F7AE6BB0028593A314D8E6D064A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736614   (106660) от 13.07.2024
-
-Sumatra PDF 3.6.16424 Prerelease + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFABF4808D05C62C361CF7EDDD14D43E3A15574A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736526   (106658) от 13.07.2024
-
-R-Studio Network / Technician 9.4 Build 191338 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106658.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Studio - основанная на новейшей уникальной технологии анализа информации на носителе и обработки данных, R-STUDIO является наиболее исчерпывающим программным решением из доступных на рынке утилит восстановления для файловых систем NTFS, NTFS5, ReFS, FAT12/16/32, exFAT, HFS/HFS+ (Macintosh), Little and Big Endian variants of UFS1/UFS2 (FreeBSD/OpenBSD/NetBSD/Solaris) (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F32C0C1302AFB7B6229607B4B57B3E5A767FC99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736630   (106656) от 13.07.2024
-
-FastFlix 5.7.3 + Portable (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106656.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastFlix - это простой и дружественный графический интерфейс для кодирования видео. Программа сохраняет метаданные HDR10 для x265, NVEncC HEVC и VCEEncC HEVC, которые также будут расширены до библиотек AV1, когда они станут доступны. Для тяжелой работы ему необходим FFmpeg (версия 4.3 или выше, при первом запуске вам предложат его загрузить), который может работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0837AD1A492FAB1892AE2720AB3E117AA1877EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736538   (106655) от 13.07.2024
-
-Radiant Photo 1.3.1.486 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741D9FD6ABC81D59B96ABCEEEE884620645F0C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736640   (106650) от 13.07.2024
-
-PilotEdit Lite & Pro 18.9.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
-PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E7AE2A234909D67C577710B7EA45E8D2B6942D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736540   (106637) от 13.07.2024
-
-Photo Supreme 2024.2.1.6576 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBDDB352AC696D1DEA1E88EAB6E78B4D0FA0B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736684   (106633) от 13.07.2024
-
-GeoGebra 6.0.848.0 Classic + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106633.jpg" />
-</div>
-
-
-###  Подробнее
-
-GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF36A04C335F00CDCD52376447EDC425409E065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736825   (106617) от 14.07.2024
-
-MediaHuman YouTube to MP3 Converter 3.9.9.93 (0713) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70A5E8A75A389B9D3FB4784C62CEE77FD8DB767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736823   (106610) от 14.07.2024
-
-YT Downloader 9.9.7 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106610.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABB41CD0807A3A103C5E8B77E4850487E4DB091
 ```
 
 https://mybot314.ru/tekegram_catalog/

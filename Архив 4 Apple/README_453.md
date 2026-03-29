@@ -1,3 +1,113 @@
+###  Публикация: 1333626   (303433) от 25.10.2019
+
+Big Mean Folder Machine 2 v2.40 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_303433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Mean Folder Machine - интересное приложение, предназначенное для упорядочения файлов по определеннокму критерию. Т.е., если в одной папке все файлы свалены в одну кучу (часто бывает в папке "Загрузка"), мы можем, выбрав определенный критерий, моментально навести порядок, переместив определенные типы файлов в нужные папки.
+
+Например, идеально подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.10.2019Разработчик: publicspace.netПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51EF9F63A9E55DEFBEEA806B626152165F866FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333460   (303428) от 25.10.2019
+
+WiFi Scanner 2.9.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_303428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя WiFi Scanner, вы увидите близлежащие точки беспроводного доступа и их детали, включая каналы, уровни сигнала (RSSI), шум, ширину канала и MAC-адрес, качество сигнала, максимальную скорость передачи данных, шифрование и многое другое. WiFi Scanner включает в себя тестирование скорости загрузки и скачивания, чтобы быстро измерять и анализировать проблемы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AccessAgility LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE3E46AB701AB1B0A4C97696DCA475BE6ED89BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183925   (303426) от 16.11.2017
+
+DeskCover 1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_303426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая альтернатива HazeOver and UnDistracted
+DeskCover - скрывает иконки рабочего стола за красивой обложкой и автоматически подсвечивает окно активного приложения, скрывая все остальное.
+
+DeskCover это простое Мак-приложение, которое позволяет скрыть весь беспорядок на рабочем столе одним щелчком мыши или используя глобальную горячую клавишу.  Так же DeskCover (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2017Разработчик: MacPlus SoftwareПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55728900EEF6D70C48455889975781E964B851E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333588   (303418) от 25.10.2019
+
+MacX Video Converter Pro 6.4.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_303418.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
+MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным гаджетам, включая даже смартфоны и планшеты не самой первой «свежести». (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2019Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7D70C435D1CD29A3CBA280561489CDE2D5A95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961123   (303409) от 30.11.2015
 
 Tweetbot for Twitter 2.2.2 [En]
@@ -6,7 +116,7 @@ Tweetbot for Twitter 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303409.jpg" />
+  <img src="Z:/picture/008/save_picture_303409.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ Things 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303339.jpg" />
+  <img src="Z:/picture/008/save_picture_303339.jpg" />
 </div>
 
 
@@ -63,7 +173,7 @@ Lyn 1.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303336.jpg" />
+  <img src="Z:/picture/008/save_picture_303336.jpg" />
 </div>
 
 
@@ -92,7 +202,7 @@ Nik Complete 2 Collection by DxO 2.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303282.jpg" />
+  <img src="Z:/picture/008/save_picture_303282.jpg" />
 </div>
 
 
@@ -119,7 +229,7 @@ X Lossless Decoder 20151128 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303249.jpg" />
+  <img src="Z:/picture/008/save_picture_303249.jpg" />
 </div>
 
 
@@ -148,7 +258,7 @@ SiteSucker 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303234.jpg" />
+  <img src="Z:/picture/008/save_picture_303234.jpg" />
 </div>
 
 
@@ -177,7 +287,7 @@ iFinance 4.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303003.jpg" />
+  <img src="Z:/picture/008/save_picture_303003.jpg" />
 </div>
 
 
@@ -203,7 +313,7 @@ TunesKit 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303000.jpg" />
+  <img src="Z:/picture/008/save_picture_303000.jpg" />
 </div>
 
 
@@ -230,7 +340,7 @@ Paste 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302999.jpg" />
+  <img src="Z:/picture/008/save_picture_302999.jpg" />
 </div>
 
 
@@ -258,7 +368,7 @@ Archiver 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302918.jpg" />
+  <img src="Z:/picture/008/save_picture_302918.jpg" />
 </div>
 
 
@@ -287,7 +397,7 @@ SketchUp Pro 2018 v18.0.16976 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302883.jpg" />
+  <img src="Z:/picture/008/save_picture_302883.jpg" />
 </div>
 
 
@@ -313,7 +423,7 @@ SteerMouse 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302837.jpg" />
+  <img src="Z:/picture/008/save_picture_302837.jpg" />
 </div>
 
 
@@ -339,7 +449,7 @@ Renamer 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302830.jpg" />
+  <img src="Z:/picture/008/save_picture_302830.jpg" />
 </div>
 
 
@@ -367,7 +477,7 @@ Capture One Pro 9.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302756.jpg" />
+  <img src="Z:/picture/008/save_picture_302756.jpg" />
 </div>
 
 
@@ -394,7 +504,7 @@ Image Exif Editor 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302636.jpg" />
+  <img src="Z:/picture/008/save_picture_302636.jpg" />
 </div>
 
 
@@ -423,7 +533,7 @@ xScope 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302634.jpg" />
+  <img src="Z:/picture/008/save_picture_302634.jpg" />
 </div>
 
 
@@ -450,7 +560,7 @@ BusyCal 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302627.jpg" />
+  <img src="Z:/picture/008/save_picture_302627.jpg" />
 </div>
 
 
@@ -477,7 +587,7 @@ Amadeus Pro 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302625.jpg" />
+  <img src="Z:/picture/008/save_picture_302625.jpg" />
 </div>
 
 
@@ -503,7 +613,7 @@ OmniOutliner Pro 5 v5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302431.jpg" />
+  <img src="Z:/picture/008/save_picture_302431.jpg" />
 </div>
 
 
@@ -529,7 +639,7 @@ Allavsoft Video Downloader Converter 3.23.0.7621 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302397.jpg" />
+  <img src="Z:/picture/008/save_picture_302397.jpg" />
 </div>
 
 
@@ -555,7 +665,7 @@ OmniGraffle Pro 7 v7.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302230.jpg" />
+  <img src="Z:/picture/008/save_picture_302230.jpg" />
 </div>
 
 
@@ -581,7 +691,7 @@ OmniFocus Pro 3 v3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302221.jpg" />
+  <img src="Z:/picture/008/save_picture_302221.jpg" />
 </div>
 
 
@@ -594,118 +704,6 @@ OmniFocus Pro 3 v3.10 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD98693A335519FF5BBC883DF893FD33610DB9D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078235   (301781) от 30.11.2016
-
-VMware Fusion Pro 8.5.3 (4696910) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301781.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Fusion — виртуальная машина, позволяющая в среде Mac OS X на базе платформы Intel запускать приложения, разработанные для других операционных систем, в том числе Windows и Linux. Поддерживаются как 32-разрядные, так и 64-разрядные версии ОС.
-
-VMware  решение для виртуализации в среде Mac OS X. Новая версия программного обеспечения VMware Fusion, поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: VMware, Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D3FE365596FCD3F0508277D12B9778A447A305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078247   (301678) от 30.11.2016
-
-Apple Final Cut Pro X 10.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-
-В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.11.4 +Язык интерфейса: Английский, Китайский,  Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7F2AF93A54D47490E550651281A1E88BB6215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333792   (301593) от 26.10.2019
-
-Cisdem AppCrypt 4.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минималистский и простой в использовании инструмент безопасности Mac OS X, который позволяет защитить любое приложение с помощью мастер-пароля, который потребуется при каждом запуске.
-
-Cisdem AppCrypt  - несложная  утилита, которая дает Вам возможность блокировать доступ к определенным приложениям, установленных на вашем компьютере. Cisdem AppCrypt может оказаться (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E64895223AD637CED145EF2936DF50DF343E02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333824   (301592) от 26.10.2019
-
-GrandTotal 5 v5.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301592.jpg" />
-</div>
-
-
-###  Подробнее
-
-GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
-Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
-GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2019Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.9.+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE0C22FD1E167D0838A9E5112A768FE6EB25F57
 ```
 
 https://mybot314.ru/tekegram_catalog/

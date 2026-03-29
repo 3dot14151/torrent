@@ -1,3 +1,55 @@
+###  Публикация: 1377411   (853423) от 21.04.2020
+
+Берег хищников / The Predator Coast (2012) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Берег хищников - это часть Африки, в которой правят львы, акулы и прочие дикие животные, но и они склоняются перед верховным владыкой. Это уникальная арена, поле битвы между охотником и добычей. У природы есть власть давать жизнь и забирать её. И нет исключений из этого жестокого правила.Производство: ЮАР, США, Earth Touch, Smithsonian NetworksЖанр: Документальный, природа, фаунаРежиссер: Грэм ДуэйнПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: АнглийскиеПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44FFE532604770D72E0D46B7F5063AAD64746B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377435   (853271) от 21.04.2020
+
+Великая синяя бездна (Великие океаны) / Great Blue Wild (2015) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы увидеть некоторые из самых захватывающих природных чудес на планете, человек вынужден иногда погружаться в глубины океанов. Это рай для дайверов. Здесь можно встретиться с самыми потрясающими океанскими жителями: таинственными гигантами, беспощадными хищниками и легендарными глубоководными чудовищами. И все они ведут постоянную битву за выживание. Это родина (   Читать дальше...   )Производство: США, Канада, Blue Ant MediaЖанр: Документальный, природа, путешествияРежиссер: Дэн ХьюзПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 6 x ~00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A9B15FA4EF6740FA40C592FEA6EDC632971C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377272   (853043) от 21.04.2020
 
 Дайвинг с целакантом / Diving with the Coelacanth / Le coelacanthe, plongee vers nos origines (2014) DVBRip [H.264] [hand made 50fps]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853043.jpg" />
+  <img src="Z:/picture/008/save_picture_853043.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG. Ночь льва / Night of The Lion (2010) HDTVRip [H.264/1080i]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850391.jpg" />
+  <img src="Z:/picture/008/save_picture_850391.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846675.jpg" />
+  <img src="Z:/picture/008/save_picture_846675.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846666.jpg" />
+  <img src="Z:/picture/008/save_picture_846666.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846649.jpg" />
+  <img src="Z:/picture/008/save_picture_846649.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846447.jpg" />
+  <img src="Z:/picture/008/save_picture_846447.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844915.jpg" />
+  <img src="Z:/picture/008/save_picture_844915.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843130.jpg" />
+  <img src="Z:/picture/008/save_picture_843130.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840849.jpg" />
+  <img src="Z:/picture/008/save_picture_840849.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840634.jpg" />
+  <img src="Z:/picture/008/save_picture_840634.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837929.jpg" />
+  <img src="Z:/picture/008/save_picture_837929.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837926.jpg" />
+  <img src="Z:/picture/008/save_picture_837926.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837834.jpg" />
+  <img src="Z:/picture/008/save_picture_837834.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836090.jpg" />
+  <img src="Z:/picture/008/save_picture_836090.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834806.jpg" />
+  <img src="Z:/picture/008/save_picture_834806.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834794.jpg" />
+  <img src="Z:/picture/008/save_picture_834794.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834247.jpg" />
+  <img src="Z:/picture/005/save_picture_834247.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833160.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833043.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831835.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831209.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831097.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831007.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830996.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D63BB24E614A3F9ABB8BA75BF4BDC508ECF28E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502245   (830008) от 13.10.2021
-
-Суровое море России / Russlands wildes Meer (2018) WEB-DL [H.264/720p] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830008.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 6 000 километров от Москвы, на Дальнем Востоке России, находится одно из самых богатых по биологическому разнообразию, но и самое неприветливое море на нашей планете. Зимой оно покрыто паковым льдом, а летом тайфуны вздымают огромные волны. Этот регион отличается постоянной сейсмической активностью и смертоносными цунами. Побережье Охотского моря, его нетронутые (   Читать дальше...   )Производство: Австрия, ARTE, Channel One Russia, Interspot Film, National Geographic, ORF Enterprise (in association with), Smithsonian Channel, Zweites Deutsches Fernsehen (ZDF), Österreichischer Rundfunk (ORF)Жанр: Документальный, природа, флора, фаунаРежиссер: Франц ХафнерПеревод: Дублированный (Первый канал)Субтитры: отсутствуютПродолжительность: 2x ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9895FF321071C3674F4CE45D21A4342A199C2B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115035   (829785) от 16.03.2017
-
-Странные контакты третьей степени / Strange Encounters of The Third Kind (2004) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грибы растут на Земле более 400 миллионов лет. Они многообразны по размеру и форме. На сегодняшний день их насчитывается более 100 тысяч видов. В фильме рассказывается об удивительном мире грибов, таящем множество загадок и тайн.Телекомпания: АвстрияЖанр: Документальный, флора и фаунаРежиссер: Курт МюндлПеревод: Одноголосый профессиональный, студия СВ-дубль по заказу ВГТРК "Культура"Продолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8534D5013070BAD0AD090FDE220CD01FADDC01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Everspace 2 (2021) [Ru/Multi] (1.1.36529) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123766.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Top Gun: Hard Lock [Multi5\-] (L) 2012
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86878.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Top Gun: Hard Lock [Multi5\-] (RePack) 2012 | R.G. Origami
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86875.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wing Commander Saga: The Darkest Dawn [En] (P/1.0.2.7795) 2012
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84211.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ X-Tension: New Life / X: Мобилизация: Новая жизнь (2000) [R
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59152.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ X2 The Threat: New Life / X2 Угроза: Новая жизнь (2003) [Ru] (1.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58882.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Nexus 5X (2024) [Multi] (1.0.6717) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58618.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Darklight conflict (1997) [Ru] (1.0) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58413.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Sunless Skies (2017) [En] (2.0.5.6e8c8ff) License GOG [Sovereign Edition] (об�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51671.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ IXION (2022) [Ru/Multi] (1.0.7.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51155.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Stardiver (2024) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43618.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Stardiver (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43509.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43201.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack FitGirl [Digital Deluxe Bun
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43171.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Decepticon
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42388.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42130.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.43094/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40593.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack Decepticon
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39236.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack seleZen
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39135.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35685.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.3-CL364034/dlc) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35673.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Skies above the Great War (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35481.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.0/dlc) Scene Rune [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35476.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.0/dlc) Repack FitGirl [Frontline-59 Editi
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35343.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Vincemus - Air Combat (2022) [En] (1.2.0a) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32465.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1a) License GOG [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30895.jpg" />
 </div>
 
 

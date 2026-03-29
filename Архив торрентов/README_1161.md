@@ -6,7 +6,7 @@ Subnautica (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787998.jpg" />
+  <img src="Z:/picture/008/save_picture_787998.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787996.jpg" />
+  <img src="Z:/picture/008/save_picture_787996.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FurMark 1.20.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787991.jpg" />
+  <img src="Z:/picture/008/save_picture_787991.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787990.jpg" />
+  <img src="Z:/picture/008/save_picture_787990.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ O&O Defrag Professional / Server 22.1 Build 2521 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787980.jpg" />
+  <img src="Z:/picture/008/save_picture_787980.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Driver Booster Pro 6.2.1.234 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787978.jpg" />
+  <img src="Z:/picture/008/save_picture_787978.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blackmagic Design Fusion Studio 9.0.2 Build 15 + Edit Connection Repack TeamVR [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787961.jpg" />
+  <img src="Z:/picture/008/save_picture_787961.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ System Toolkit 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787958.jpg" />
+  <img src="Z:/picture/008/save_picture_787958.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Nova 8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787957.jpg" />
+  <img src="Z:/picture/008/save_picture_787957.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ RSS Button for Safari 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787950.jpg" />
+  <img src="Z:/picture/008/save_picture_787950.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DayRate - Currency Converter 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787949.jpg" />
+  <img src="Z:/picture/008/save_picture_787949.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.02.00/dlc) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787945.jpg" />
+  <img src="Z:/picture/008/save_picture_787945.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ O&O Defrag Professional 22.1 Build 2521 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787942.jpg" />
+  <img src="Z:/picture/008/save_picture_787942.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787934.jpg" />
+  <img src="Z:/picture/008/save_picture_787934.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Sims™ 2: Super Collection v1.2.2 (2005) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787932.jpg" />
+  <img src="Z:/picture/008/save_picture_787932.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787917.jpg" />
+  <img src="Z:/picture/008/save_picture_787917.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Worksheet Crafter Premium Edition 2021.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787897.jpg" />
+  <img src="Z:/picture/008/save_picture_787897.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787896.jpg" />
+  <img src="Z:/picture/008/save_picture_787896.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FigrCollage 3.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787895.jpg" />
+  <img src="Z:/picture/008/save_picture_787895.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WiFiSpoof 3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787894.jpg" />
+  <img src="Z:/picture/008/save_picture_787894.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NeoFinder Business 8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787892.jpg" />
+  <img src="Z:/picture/008/save_picture_787892.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ WinX DVD Ripper for Mac 6.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787891.jpg" />
+  <img src="Z:/picture/008/save_picture_787891.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Sketch 80 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787889.jpg" />
+  <img src="Z:/picture/008/save_picture_787889.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ WinX HD Video Converter for Mac 6.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787887.jpg" />
+  <img src="Z:/picture/008/save_picture_787887.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787881.jpg" />
+  <img src="Z:/picture/008/save_picture_787881.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Viscosity 1.7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787876.jpg" />
+  <img src="Z:/picture/008/save_picture_787876.jpg" />
 </div>
 
 

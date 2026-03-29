@@ -1,3 +1,61 @@
+###  Публикация: 1066553   (409753) от 27.10.2016
+
+VA - Spa Relaxation Ambient Music Vol 1 (2016) [MP3|320 Kbps] <Downtempo, Balearic, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stiller - Kling Klang Klung 06:06
+02. Rafal Kulik - Into The Unknown 03:45
+03. Mark Down - Tea Of Star 02:30
+04. Makia Blue - Mystic River 02:53(   Читать дальше...   )Жанр: Downtempo, Balearic, MeditationПродолжительность: 04:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C56B41D5C0B5334EF0A32F8EA9D01084F082B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066975   (409750) от 27.10.2016
+
+Magna Canta - Deep Spirits (2000) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aethera Et Terra 5:20
+02. Silentium 3:54
+03. Agnus Dei 5:04
+04. Gregoria 4:43(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB0F1D3BBA1DA0905B492C4D34854B33B0CC660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066586   (409747) от 27.10.2016
 
 Louis Landon - Healing Hearts 3 - Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -6,7 +64,7 @@ Louis Landon - Healing Hearts 3 - Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409747.jpg" />
+  <img src="Z:/picture/008/save_picture_409747.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mike Higham & Matthew Margeson - Miss Peregrine’s Home For Peculiar Children /
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409527.jpg" />
+  <img src="Z:/picture/008/save_picture_409527.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409313.jpg" />
+  <img src="Z:/picture/008/save_picture_409313.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408794.jpg" />
+  <img src="Z:/picture/008/save_picture_408794.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Motoi Sakuraba, Yuka Kitamura - Dark Souls II SotFS (Original Soundtrack) (2015)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408202.jpg" />
+  <img src="Z:/picture/008/save_picture_408202.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408025.jpg" />
+  <img src="Z:/picture/008/save_picture_408025.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ Stephen Barton - Titanfall 2 (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408021.jpg" />
+  <img src="Z:/picture/008/save_picture_408021.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Guido Negraszus - Secret Paradise (Cafe Chillout & Dream Lounge) [FLAC|Lossless|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407908.jpg" />
+  <img src="Z:/picture/008/save_picture_407908.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407865.jpg" />
+  <img src="Z:/picture/008/save_picture_407865.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Reservoir Dogs / Бешеные псы - OST (1992) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407769.jpg" />
+  <img src="Z:/picture/008/save_picture_407769.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407453.jpg" />
+  <img src="Z:/picture/008/save_picture_407453.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407116.jpg" />
+  <img src="Z:/picture/008/save_picture_407116.jpg" />
 </div>
 
 
@@ -367,7 +425,7 @@ Stu Larsen - Marigold (2020) [FLAC|Lossless|tracks + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406805.jpg" />
+  <img src="Z:/picture/008/save_picture_406805.jpg" />
 </div>
 
 
@@ -396,7 +454,7 @@ Neil Young - Theme From Dead Man (1996) Single [FLAC|Lossless|tracks + .cue] <So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404890.jpg" />
+  <img src="Z:/picture/008/save_picture_404890.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ Trace Bundy - 4 albums (2000-2012) [MP3|320 kbps]<New age, Instrumental, Folk, A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404633.jpg" />
+  <img src="Z:/picture/008/save_picture_404633.jpg" />
 </div>
 
 
@@ -459,7 +517,7 @@ Brian Tyler - Law Abiding Citizen (2009) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403152.jpg" />
+  <img src="Z:/picture/008/save_picture_403152.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403148.jpg" />
+  <img src="Z:/picture/008/save_picture_403148.jpg" />
 </div>
 
 
@@ -517,7 +575,7 @@ Richard Evans - Seaside: Solo Piano (2008) [FLAC|Lossless|tracks] <New Age, Solo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403104.jpg" />
+  <img src="Z:/picture/008/save_picture_403104.jpg" />
 </div>
 
 
@@ -546,7 +604,7 @@ Daridan - Listen To Beautiful Music II (2012) [MP3|320 кб/с]<New age, Instrum
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402849.jpg" />
+  <img src="Z:/picture/008/save_picture_402849.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402794.jpg" />
+  <img src="Z:/picture/005/save_picture_402794.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402789.jpg" />
+  <img src="Z:/picture/005/save_picture_402789.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402405.jpg" />
+  <img src="Z:/picture/008/save_picture_402405.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401596.jpg" />
+  <img src="Z:/picture/008/save_picture_401596.jpg" />
 </div>
 
 
@@ -709,7 +767,7 @@ Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401554.jpg" />
+  <img src="Z:/picture/008/save_picture_401554.jpg" />
 </div>
 
 
@@ -723,64 +781,6 @@ Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A5D69D0AEC8478570FE3D98138817750088CA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169850   (401516) от 29.09.2017
-
-Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Drinking With Dolly (3:16)
-02 - Winnebago (3:22)
-03 - Selfish (3:47)
-04 - Ugly (3:47)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF94E6C0A558AAF9D0521FDDDAC31FDBA9B9AE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168914   (401216) от 29.09.2017
-
-Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unleashed (feat. Merethe Soltvedt) [05:25]
-02. One Above All (feat. C.C. White & Felicia Farerre) [03:49]
-03. Impossible (feat. Merethe Soltvedt) [08:55]
-04. Rune (feat. Uyanga Bold) [03:34](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 03:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DCD735EA65BD086F5C246400152F1B9EDE0E92
 ```
 
 https://mybot314.ru/tekegram_catalog/

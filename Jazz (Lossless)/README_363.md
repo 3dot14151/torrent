@@ -1,3 +1,119 @@
+###  Публикация: 1757202   (39179) от 26.10.2024
+
+Melody Gardot - The Essential Melody Gardot (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby I'm A Fool (3:32)
+02. If The Stars Were Mine (2:50)
+03. C’est Magnifique (4:52)
+04. Morning Sun (5:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6285C537ED9BB9519792E1285FABB1DD75A1D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757445   (39071) от 27.10.2024
+
+Frank Sinatra With Quincy Jones And Orchestra - L.A. Is My Lady (1984) Deluxe Edition / 2024 Mix [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.A. Is My Lady (2024 Mix)
+02. The Best Of Everything (2024 Mix)
+03. How Do You Keep The Music Playing (2024 Mix)
+04. Teach Me Tonight (2024 Mix)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8046F8EA9ACE50B3ABCC5224DF0929581CFC2086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757553   (38989) от 28.10.2024
+
+Joy Frost - The Roaring 2020's (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Don't You Do Right (3:27)
+02. What Girls Want (3:27)
+03. My Funny Valentine (4:03)
+04. Solitude (3:15)(   Читать дальше...   )Жанр: Crossover JazzПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF5BC026C9A15E5999B3671DF37879B2C2846EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757581   (38973) от 28.10.2024
+
+Sonny Red - Sonny Red (1971) 2017, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Song [5:54]
+02. Tears [7:19]
+03. Mustang [5:55]
+04. And Then Again [5:41](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6767F75FA2EB11AF9AAFF976D310E89BE3DB232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757777   (38908) от 29.10.2024
 
 VA - Not Spooky Jazz (Enchanting Music for a Cozy Halloween Dinner) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +122,7 @@ VA - Not Spooky Jazz (Enchanting Music for a Cozy Halloween Dinner) (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38908.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Unlucky for Some (13 Songs for Halloween, Volume 1) (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38906.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Only Grooves In The Bulding (Chillout Jazz & Soul Vibes) (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38903.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Get Jazzy on Me: Jazz Dance Party, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38902.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charles Tolliver Big Band - Emperor March: Live At The Blue Note (2009) Half Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38804.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Charles Tolliver - The Ringer (1969) 1992, Black Lion Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38701.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ray Anthony - Capitol Collectors Series (1949 - 1962) 1991, Capitol Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38283.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Eric Dolphy - Out To Lunch! (1964) 1985, Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38280.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Funk Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38190.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Lester Young - The Complete Aladdin Recordings (1942 - 1947) 2CD, 1995, Blue Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38174.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Gerry Mulligan with Jane Duboc - Paraiso: Jazz Brazil (2013) First Impression Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37879.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Sunday At The Riverside: The Best Time Of Jazz Piano I (1955 - 1962) 10CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37579.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Caity Gyorgy - Hello! How Are You (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37578.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Simone Kopmajer - Home for Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37368.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Melody Gardot - The Essential (2024) 2 x CD, Compilation [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37359.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - The Most Relaxing Jazz Piano Music in the Universe (2005) 2CD [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36766.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ V.A. - Bossa Nova & Latin Vibes Italian Songs Hits (Bossanova Covers of Popular 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36758.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.3 (1953, 1954) 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36661.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Frank Sinatra - A Voice On Air (1935 – 1955) 4CD, 2015, Legacy [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36556.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Michael Kiwanuka - Small Changes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36486.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ The Pointer Sisters / The New Cast Recording - Highlights From "Ain't Misbehavin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36146.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ V.A. - Bossa Nova International Pop Hits (Bossanova Jazz Covers of Popular Songs
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36045.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ V.A. - Bossa Nova International Pop Hits (Bossanova Jazz Covers of Popular Songs
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:402A9669A61453DA592A924B05652F27B127B1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763715   (35441) от 02.12.2024
-
-Sensual Chill Saxaphone Band - Sensual Embrace: Lush Sounds for Late Nights (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion and Attraction (4:06)
-02. Burning Desires (4:39)
-03. Kissing in the Rain (4:39)
-04. Let Me Love You (4:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF958E65394AAAE70835918FE55195E7E5CBCAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763706   (35438) от 02.12.2024
-
-V.A. - LoFi Jazz (Holiday Chill Vibes) (2024) [FLAC|Lossless|WEB-DL|tracks] <LoFi, Nu Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flow Bop, Lo Greco Bros, Soulstance - Delicato
-02. P. A. Jeron - City Fashion
-03. Loop Therapy - LoopIndigo
-04. Maestro Garofalo - Closing Shop(   Читать дальше...   )Жанр: LoFi, Nu Jazz, Pop JazzПродолжительность: 01:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B169A1005B1873F68C0AB54A7B7A977F3D5E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763651   (35410) от 02.12.2024
-
-Larry Fuller Trio - Easy Walker (1998) 2003, Pony Boy Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Yard [5:29]
-02. In Like Flynn [3:22]
-03. Hymne a l'Amour [3:27]
-04. Ray's Idea [4:06](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12114DC12594FEA76606CD016103329521A66326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763719   (35320) от 03.12.2024
-
-VA - Gershwin – The Gershwin Songbook - 'S Marvelous (1994) CD, Compilation [FLAC|Lossless| tracks + .cue] <Big Band, Cool Jazz, Swing, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Rhythm - Ernestine Anderson  - (02:58)
- 02. Nice Work If You Can Get It - Billie Holiday  - (03:52)
- 03. Embraceable You - Joe Williams  - (04:38)
- 04. Who Cares - Anita O’Day  - (03:17)(   Читать дальше...   )Жанр: Big Band, Cool Jazz, Swing, Latin JazzПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9DEBCB56CA4797F522A6249E0514B17986E07C
 ```
 
 https://mybot314.ru/tekegram_catalog/

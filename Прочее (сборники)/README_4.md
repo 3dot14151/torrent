@@ -1,3 +1,177 @@
+###  Публикация: 1436881   (1042776) от 02.01.2021
+
+VA - Music News vol.61 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042776.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анастасия Рэй - Станем Cтранными (03:00)
+ 002. Alex D'Rosso & Swizznife feat. Eeva - Good Vibrations (02:25)
+ 003. AlphaLove feat. Conor Maynard - Don't Wanna Stop (02:37)
+ 004. Anabel Englund - Picture Us (02:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AA33FF5F90DB7099FE23A34029FBBE5A846E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610036   (1042615) от 06.02.2023
+
+Soul Ballet - Compilation (2023) [MP3|320 Kbps] <Electronic, Smooth, Jazz-Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choose Me
+02. City of Desire
+03. Glitters is Gold
+04. Love, Juliet(   Читать дальше...   )Жанр: Electronic, Smooth, Jazz-Pop, OtherПродолжительность: 01:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3082FC28317E26294481106765B9C76F7A4DC22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610206   (1042593) от 06.02.2023
+
+Engelbert Humperdinck - Compilation (2023) [MP3|320 Kbps] <Pop, Vocal, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Time
+02. The Way it Used to Be
+03. Only a Lonely Child
+04. Without You(   Читать дальше...   )Жанр: Pop, Vocal, Easy ListeningПродолжительность: 02:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F87511DA437833F2AAA7CF2331FD0F9695F274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610207   (1042591) от 06.02.2023
+
+VA - Music News vol.243 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042591.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gerda - За Такую Любовь (02:16)
+ 002. 52Ghz - Спасибо Тебе Бать (02:06)
+ 003. 220 Kid feat. Kangdaniel & Willim - Look Where We Are (03:12)
+ 004. Adesse - Dance With Me (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3427BF1EF23A7A3F41E7DB3968A56E5DDF3E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165962   (1042312) от 07.02.2023
+
+VA- 70 лучших композиций для романтического вечера [MP3|320 kbps]<PoP, Rock>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042312.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:35]  Connels - 74-75
+[04:28]  Enigma -  Boum boum
+[04:30]  Eros Ramazzotti - Cose Della Vita
+[04:20]  Bryan Ferry - Don`t Stop The Dance(   Читать дальше...   )Жанр: PoP, RockПродолжительность: 04:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8203EBFA457032E1558C6764D5296ED733CA91F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437161   (1042281) от 04.01.2021
+
+VA - Hard Fitness Dance Music (2020) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляетесь на пробежку или в тренажерный зал? Закиньте этот плейлист в плеер, и вы сами поразитесь успехам, которые будут достигнуты на спортивном поприще!001. Exagon & The Unknown - Fight Back
+002. Hypnose - Phoenix
+003. Unifire - Generation Z
+004. N-Vitral - I'm A Rebel(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C06AE8C847D9F967D5F3E5F3B085E52448A1780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610675   (1042087) от 08.02.2023
 
 (Score) Kaizo Sonic - The Hedgehog (Zumi, LordXernom (Maciek Kukla/DJ Error)) (2017)
@@ -6,7 +180,7 @@
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042087.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - не Громкие новинки недели 93 (2021) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041929.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Party 2023 More In The Year (2023) [MP3|320 Kbps] <Nu Disco, Progressive Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041635.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Music News vol.244 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041561.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ Timi Yuro - Compilation (2023) [MP3|320 Kbps] <Vocal, Soul, Easy Listening>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041422.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Музыка для машины Vol.7 (2023) [MP3|320 Kbps] <Pop, Dance, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041329.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Music News vol.62 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040885.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Top Female Artists of 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040640.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Music News vol.245 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040526.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - Дискотека Пионер FM По-Русски vol.14 (2021) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040475.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - Power & Hot (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040445.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - Sonic - Before the Sequel (2012)[MP3|320 Kbps] <Score>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040349.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ Sonic Boom (Hack) (Soti, Tweaker, Nineko, Roxahris) (2009)[MP3|320 Kbps] <Score>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040322.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - Best Live Albums (2020) [MP3|320 Kbps] <Rock, Reggae, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040288.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Keep On Dancing: Dance Disco Party (2023) [MP3|320 Kbps] <Dance, Disco, Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039631.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - After Work: Weekends Friends Party (2023) [MP3|320 Kbps] <Dance, Club, Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039625.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - Музыка для машины Vol.8 (2023) [MP3|320 Kbps] <Pop, Dance, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039621.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Music News vol.246 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039592.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ VA - Музыка для машины Vol.9 (2023) [MP3|320 Kbps] <Pop, Dance, R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039585.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - Music News vol.63 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039528.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ VA - Music News vol.63 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B732780AA73E8E7D20DA9656F1434F15B3B9E320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439685   (1039515) от 14.01.2021
-
-VA - Best Pop Плейлист (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sia - Courage to Change (4:52)
-02. Bon Iver, Taylor Swift - exile (4:45)
-03. Hurts - Redemption (4:18)
-04. Taylor Swift - cardigan (3:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBA514238831777733DA462C8529B44D5A40165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439644   (1039494) от 14.01.2021
-
-VA - Sexy Songs 2021 (Slow Bass RnB) [MP3|320 Kbps] <Pop, RnB, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Ross, The Weeknd - In Vein (4:21)
-02. Bazzi - Mine (2:14)
-03. Lux Thugs - Surfboard (5:04)
-04. PARTYNEXTDOOR, Drake - LOYAL (3:18)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 05:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A30B4A0BE5F8F157D6EF41CD022852D23080662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440039   (1039080) от 16.01.2021
-
-VA - Запасные крылья (2021) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fi - Взлетай (3:17)
-02. Весна - Белые крылья любви (3:28)
-03. Братья Грим - Ресницы (2:52)
-04. Денис Майданов - Пролетая над нами (3:56)(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8B32C8FFD9AC7B963A8A678FDB2066DC817DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440041   (1039069) от 16.01.2021
-
-VA - Снег в июне (2021) [MP3|320 Kbps] <Pop, Rock, Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вася Обломов - Грубым даётся радость (4:02)
-02. Павел Пиковский, Сергей Чиграков и Олег Митяев - Детство (4:03)
-03. Павел Фахртдинов - Зимний вечер (2:08)
-04. Адлер Коцба - Письмо к женщине (2:39)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F2D2800091E10F888E3536377193308921FE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440282   (1039044) от 16.01.2021
-
-VA - Music News vol.64 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avy feat. lowlife - Лилии (03:15)
- 002. Alina Artts feat. Slider & Magnit - Белые Цветы (03:01)
- 003. Aly & AJ - Listen!!! (03:50)
- 004. Amelie Martinez - And You Cut (03:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC08895E4D76E6E95E5E6C495253727183B4AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440150   (1039019) от 16.01.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 15.01.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ofenbach & Quarterhead feat. Norma Jean Martine - Head Shoulders Knees & Toes (3:03)
-02. Joel Corry feat. MNEK - Head & Heart (2:46)
-03. Dotan - Numb (3:38)
-04. Alok & Ilkay Sencan feat. Tove Lo - Don't Say Goodbye (3:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52C7270FCB06DCCE57C80D286B97477FDC6FB14
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1141443   (650559) от 10.06.2017
+
+Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Comparsa [03:33]
+02. Cancao De Noite [04:35]
+03. Danzas cubanas: A los tres golpes [01:22]
+04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141448   (650558) от 10.06.2017
+
+Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No brain no pain [05:10]
+02. A wonderful afternoon with Zena-Laure [05:00]
+03. Fema ka [04:47]
+04. Summer run [04:37](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEB0D1BBB5BE29A03D98A2267980EF0F9FD15AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141579   (650545) от 10.06.2017
+
+The Johnny Smith Guitar - My Dear Little Sweetheart (1960) 2017, Roost, Parlophone, Warner Music Japan [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Dear Little Sweetheart (3:45)
+02. Indian Summer (3:45)
+03. Softly, As In A Morning Sunrise (3:09)
+04. All The Things You Are (4:20)(   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9948851DBB1546A0A8AEFD6E652927D218FF2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227141   (650521) от 24.05.2018
+
+Rickey Woodard - The Silver Strut (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Silver Strut [6:42]
+02. Grizzly [6:11]
+03. Quick Flash [6:21]
+04. Kerstin [7:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50744230357A01EAA529C7CA14BC087CA8C45DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227133   (650519) от 24.05.2018
 
 Earl Anderza - Outa Sight (1962) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
@@ -6,7 +122,7 @@ Earl Anderza - Outa Sight (1962) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650519.jpg" />
+  <img src="Z:/picture/008/save_picture_650519.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Wycliffe Gordon - The Joyride (2000) 2003, Nagel Heyer Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650518.jpg" />
+  <img src="Z:/picture/008/save_picture_650518.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dorothy Donegan - Dorothy Romps: A Piano Retrospective 1953-1979 (1991) Rosetta 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650513.jpg" />
+  <img src="Z:/picture/008/save_picture_650513.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Wycliffe Gordon - The Search (2000) Nagel Heyer Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650495.jpg" />
+  <img src="Z:/picture/008/save_picture_650495.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Djabe - Flow (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650401.jpg" />
+  <img src="Z:/picture/008/save_picture_650401.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - 25 Legendary vocal jazz ballads (2015) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649156.jpg" />
+  <img src="Z:/picture/008/save_picture_649156.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Mike Melvoin, Charlie Haden, Bill Henderson - The Capitol Sessions (2000) Naim [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648851.jpg" />
+  <img src="Z:/picture/008/save_picture_648851.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Lars Gullin - with Chet Baker: 1955 - 56, Vol.1 (1992) Dragon Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648815.jpg" />
+  <img src="Z:/picture/008/save_picture_648815.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bob Belden Ensemble - Treasure Island (1990) [FLAC|Lossless|tracks + .cue] <Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648814.jpg" />
+  <img src="Z:/picture/008/save_picture_648814.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Chick Corea - The Musician (2017) 3CD, Concord Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648611.jpg" />
+  <img src="Z:/picture/008/save_picture_648611.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jimmy Rowles - Lilac Time (1994) Kokopelli Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648600.jpg" />
+  <img src="Z:/picture/008/save_picture_648600.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Makoto Terashita - Great Harvest (1978) 2014, Think! Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648595.jpg" />
+  <img src="Z:/picture/008/save_picture_648595.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jeri Brown & Jimmy Rowles - A Timeless Place (1995) Justin Time [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648591.jpg" />
+  <img src="Z:/picture/008/save_picture_648591.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Brad Mehldau Trio - Seymour Reads The Constitution! (2018) Nonesuch Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648586.jpg" />
+  <img src="Z:/picture/008/save_picture_648586.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Al Cohn & Jimmy Rowles - Heavy Love (1977) 2015, Elemental Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648570.jpg" />
+  <img src="Z:/picture/008/save_picture_648570.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Brother Jack McDuff - Live! (1963) 1994, Prestige [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648020.jpg" />
+  <img src="Z:/picture/008/save_picture_648020.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Yusef Lateef - Yusef's Mood, Complete 1957 Sessions with Hugh Lawson (2008) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648017.jpg" />
+  <img src="Z:/picture/008/save_picture_648017.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Scott LaFaro - Pieces Of Jade (2009) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647959.jpg" />
+  <img src="Z:/picture/008/save_picture_647959.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Laura Teller - Three Sides To Everything (2015) [FLAC|Lossless|WEB-DL]<Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647956.jpg" />
+  <img src="Z:/picture/008/save_picture_647956.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Emil Viklicky Trio - Kafka On The Shore: Tribute To Haruki Murakami (2011) Japan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647908.jpg" />
+  <img src="Z:/picture/008/save_picture_647908.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Lee Morgan - Midtown Blues (1957, 1960) 2CD, 2011, Not Now Music[FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647904.jpg" />
+  <img src="Z:/picture/008/save_picture_647904.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Fut
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647826.jpg" />
+  <img src="Z:/picture/008/save_picture_647826.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Fut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227344   (646936) от 26.05.2018
-
-James P. Johnson - 1921 - 1928 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Early Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Harlem Strut [2:35]
-02. Keep Of The Grass [3:15]
-03. Carolina Shout [2:47]
-04. Carolina Shout [3:00](   Читать дальше...   )Жанр: Ragtime, Stride, Early JazzПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAB8AFAF2C6A0E38E7946EFA87A998FFE4DB318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227466   (646934) от 26.05.2018
-
-Dave Ferris - The Quiet One (1991) Nine Winds Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road to Boston [7:07]
-02. Original Music [6:15]
-03. Lazy Bones [6:03]
-04. A Midwest Moment [7:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21716E51B95EF5E4B51832AD22B80BB90FD2C943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227457   (646931) от 26.05.2018
-
-Chris Connor - Free Spirits (1961, 1962) 2014, Warner [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump For Joy [2:48]
-02. Night Bird [3:19]
-03. Milano [3:21]
-04. Opportunity, Please Knock [3:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FC8F3E6528FB55379A653B474273D6D244A8D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227464   (646930) от 26.05.2018
-
-Calvin Johnson Jr. - Native Son (2013) Alma Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Bolden Stomp [4:04]
-02. Midnight in Moscow [3:17]
-03. Summertime [5:17]
-04. Royal Garden Blues [4:00](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8632FE6F7D12193CA5C1B8D707820ED1E957A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Rapoon - Song From The End Of The World (2016) [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819816.jpg" />
+  <img src="Z:/picture/008/save_picture_819816.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kove - Nightfires, Vol. 1 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819814.jpg" />
+  <img src="Z:/picture/008/save_picture_819814.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fantastical 2.2.1 (AppStore) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819812.jpg" />
+  <img src="Z:/picture/008/save_picture_819812.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ goPanel 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819811.jpg" />
+  <img src="Z:/picture/008/save_picture_819811.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Waltr 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819810.jpg" />
+  <img src="Z:/picture/008/save_picture_819810.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819807.jpg" />
+  <img src="Z:/picture/008/save_picture_819807.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ The Clock - The Best World Clock 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819805.jpg" />
+  <img src="Z:/picture/008/save_picture_819805.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Sense Of Trance #3 (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819770.jpg" />
+  <img src="Z:/picture/008/save_picture_819770.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Uplet: bulk instagram uploader 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819760.jpg" />
+  <img src="Z:/picture/008/save_picture_819760.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Super Resize 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819753.jpg" />
+  <img src="Z:/picture/008/save_picture_819753.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Steve Roach & Robert Logan - Biosonic (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819742.jpg" />
+  <img src="Z:/picture/008/save_picture_819742.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Tom Jones - Spirit In The Room (2013) [FLAC|Lossless]<Pop-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819740.jpg" />
+  <img src="Z:/picture/008/save_picture_819740.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Filmage Screen-Screen Recorder 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819697.jpg" />
+  <img src="Z:/picture/008/save_picture_819697.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819695.jpg" />
+  <img src="Z:/picture/008/save_picture_819695.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Artstudio Pro 3.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819692.jpg" />
+  <img src="Z:/picture/008/save_picture_819692.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Acon Digital Acoustica Premium Edition 7.3.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819691.jpg" />
+  <img src="Z:/picture/008/save_picture_819691.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Viper FTP 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819689.jpg" />
+  <img src="Z:/picture/008/save_picture_819689.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ WinX HD Video Converter for Mac 6.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819687.jpg" />
+  <img src="Z:/picture/008/save_picture_819687.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ MacX Video Converter Pro 6.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819684.jpg" />
+  <img src="Z:/picture/008/save_picture_819684.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Tweak Photos - Image Editor 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819682.jpg" />
+  <img src="Z:/picture/008/save_picture_819682.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819653.jpg" />
+  <img src="Z:/picture/008/save_picture_819653.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819652.jpg" />
+  <img src="Z:/picture/008/save_picture_819652.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819651.jpg" />
+  <img src="Z:/picture/008/save_picture_819651.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Mozilla Firefox 46.0 beta 11 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819646.jpg" />
+  <img src="Z:/picture/008/save_picture_819646.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819642.jpg" />
+  <img src="Z:/picture/008/save_picture_819642.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Exhibeo 2 v2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819601.jpg" />
+  <img src="Z:/picture/008/save_picture_819601.jpg" />
 </div>
 
 

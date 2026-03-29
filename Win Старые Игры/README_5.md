@@ -1,3 +1,55 @@
+###  Публикация: 1494083   (890531) от 06.09.2021
+
+King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы когда-либо играли в Age of Empires 2, то должны помнить замечательный вступительный ролик к этой игре: ночь, замок, дрова, потрескивающие в камине, и два короля за массивным столом, которые, изредка прихлёбывая горячий пунш, ведут между собой «поединок умов», играя в шахматы в виде замечательных резных фигур. Теперь и у вас есть возможность сыграть в нечто (   Читать дальше...   )Тип издания: LicenseРазработчик: ImagitecЖанр: Стратегия, Пошаговая, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD9BC1859F56C443F8F08B1E5458041EA312A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371278   (889717) от 31.03.2020
+
+Fallout Resurrection (2016) [Ru] (1.5.116) Repack/Mod Pyran
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_889717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Resurrection разворачивается в промежутке между первой и второй играми на территории Нью Мексико. Разработчики обещают карту, сравнимую по размерам с оригинальной Fallout, однако сдобренную куда большим количеством квестов и вариантов их решения. Resurrrection берёт за основу именно первую игру культовой серии, делая ставку на мрачную атмосферу безысходности (   Читать дальше...   )Тип издания: RepackРазработчик: Black Isle StudiosЖанр: RPGЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ECEB5CEA6112D63AEC75F7DC76CFA9233BA587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102722   (888799) от 10.02.2017
 
 Caesar (1993) [Multi] (1.0) License GOG
@@ -6,7 +58,7 @@ Caesar (1993) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888799.jpg" />
+  <img src="Z:/picture/005/save_picture_888799.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Caesar 2 (1995) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888746.jpg" />
+  <img src="Z:/picture/005/save_picture_888746.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888638.jpg" />
+  <img src="Z:/picture/005/save_picture_888638.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Wing Commander™ 4: The Price of Freedom (1995) [En] (3.0.1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888566.jpg" />
+  <img src="Z:/picture/005/save_picture_888566.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Aura 2: Sacred Rings / Аура 2: Кольца судьбы [Ru] (P) 2007
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886826.jpg" />
+  <img src="Z:/picture/005/save_picture_886826.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886305.jpg" />
+  <img src="Z:/picture/005/save_picture_886305.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885124.jpg" />
+  <img src="Z:/picture/005/save_picture_885124.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882799.jpg" />
+  <img src="Z:/picture/005/save_picture_882799.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882788.jpg" />
+  <img src="Z:/picture/005/save_picture_882788.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881329.jpg" />
+  <img src="Z:/picture/005/save_picture_881329.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878533.jpg" />
+  <img src="Z:/picture/005/save_picture_878533.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876271.jpg" />
+  <img src="Z:/picture/005/save_picture_876271.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876213.jpg" />
+  <img src="Z:/picture/005/save_picture_876213.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Shadowgrounds (2005) [Ru/En] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875590.jpg" />
+  <img src="Z:/picture/005/save_picture_875590.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874385.jpg" />
+  <img src="Z:/picture/005/save_picture_874385.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873244.jpg" />
+  <img src="Z:/picture/008/save_picture_873244.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Rally Championship 2000 [Ru] (L) 2000
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872222.jpg" />
+  <img src="Z:/picture/008/save_picture_872222.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870229.jpg" />
+  <img src="Z:/picture/008/save_picture_870229.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869504.jpg" />
+  <img src="Z:/picture/008/save_picture_869504.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869370.jpg" />
+  <img src="Z:/picture/008/save_picture_869370.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869368.jpg" />
+  <img src="Z:/picture/008/save_picture_869368.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869216.jpg" />
+  <img src="Z:/picture/008/save_picture_869216.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Crime Cities (2000) [En] (1.0) Licence
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867615.jpg" />
+  <img src="Z:/picture/008/save_picture_867615.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864290.jpg" />
+  <img src="Z:/picture/008/save_picture_864290.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108358   (863792) от 24.02.2017
-
-X-COM: Enforcer (2001) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863792.jpg" />
-</div>
-
-
-###  Подробнее
-
-X-COM – это сверхсекретное боевое подразделение Земли по борьбе с инопланетянами. Место: Америка, начало XXI века. Миссия: ликвидировать представителей внеземной цивилизации. Инопланетные войска вторглись на Землю и терроризируют население. Чтобы отразить зловещую угрозу, один из ученых X-COM создал боевую машину под названием Миротворец, воспользовавшись земными (   Читать дальше...   )Тип издания: LicenseРазработчик: Hasbro InteractiveЖанр: Action (Shooter), Arcade, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7C6F056E1AD9A6BDFFB9919B6AAF1CCC9AD438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108051   (863789) от 24.02.2017
-
-Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863789.jpg" />
-</div>
-
-
-###  Подробнее
-
-На выбор представляется две кампании: за СССР и Германию. В кампании за СССР, необходимо сделать попытку вырвать из плотного окружения. В кампании за Германию, предстоит выполнить задачу – давшую название самому Expansion Pack. В игре, как уже стало обычным, представлено все достоверное Советское и Германское вооружение и техника тех времен.Тип издания: UnofficialРазработчик: Illusion SoftworksЖанр: Action (Tactical Shooter), Strategy (Tactical), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A790FCF611DA61BD6354165D30B70B182BBBE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,168 @@
+###  Публикация: 603867   (996709) от 16.01.2013
+
+Paul Kossoff - Back Street Crawler (1973) Deluxe edition /2008, Island Records/ [FLAC|Lossless]<Blues rock, Hard rock, Jam rock, Instrumental rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Ready [05:44]
+02. The Lady Is a Tramp [01:25]
+03. I'm Ready [06:17]
+04. May You Never [04:25]
+05. Leslie Jam [03:32]
+06. Time Away [38:22:00]
+07. Molton Gold (Burnin') #1 [05:55]
+08. Molton Gold (Burnin') #2 [06:12]
+09. Back Street CrawlerЖанр: Blues rock, Hard rock, Jam rock, Instrumental rockПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605242   (995768) от 19.01.2013
+
+Steve Lukather (ex.Toto) - Transition (2013) [FLAC|Lossless]< Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judgement Day (7:17)
+02. Creep Motel (5:46)
+03. Once Again (4:57)
+04. Right the Wrong (6:20)
+05. Transition (5:32)
+06. Last Man Standing (5:21)
+07. Do I Stand Alone (4:10)
+08. Rest of the World (4:01)
+09. Smile (2:31)Жанр: RockПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605482   (995582) от 20.01.2013
+
+Donald Fagen - Sunken Condos (2012) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slinky Thing [05:12]
+02. I'm Not The Same Without You [04:32]
+03. Memorabilia [04:15]
+04. Weather In My Head [05:29]
+05. The New Breed [04:36]
+06. Out Of The Ghetto [04:55]
+07. Miss Marlene [04:44]
+08. Good Stuff [04:55]
+09. Planet D'rhonda [05:36]Жанр: RockПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605892   (995540) от 20.01.2013
+
+Riverside - Shrine Of The New Generation Slaves (2CD, Limited Edition) (2013) [FLAC (tracks+.cue)|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995540.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD:Жанр: Progressive RockПродолжительность: 00:50:58
+01. New Generation Slave
+02. The Depth of Self-Delusion
+03. Celebrity Touch
+04. We Got Used To Us
+05. Feel Like Falling
+06. Deprived (Irretrievably Lost Imagination)
+07. Escalator Shrine
+08. Coda
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430716   (993616) от 02.01.2012
+
+Sting - Fifteen Healing Bites (2012) сборник [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape Of My Heart (4:37)
+02. Fragile (3:55)
+03. Fields Of Gold (3:40)
+04. Moon Over Bourbon Street (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353100   (993118) от 16.01.2020
 
 Queen - Greatest Hits In Japan (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +171,7 @@ Queen - Greatest Hits In Japan (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993118.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ Toto - The Seventh One (1988) [FLAC|Lossless]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993049.jpg" />
 </div>
 
 
@@ -64,7 +229,7 @@ Scandal - Warrior (1984) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991979.jpg" />
 </div>
 
 
@@ -93,7 +258,7 @@ VA - Prog Rocks! (2011) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Prog-Rock, B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989832.jpg" />
 </div>
 
 
@@ -122,7 +287,7 @@ VA - Prog Rocks! Volume Two (2012) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989821.jpg" />
 </div>
 
 
@@ -151,7 +316,7 @@ The Moberlys - Sexteen (1995) [FLAC|Lossless|image + .cue] <Power Pop, Garage Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989103.jpg" />
 </div>
 
 
@@ -180,7 +345,7 @@ Big Bone Daddy - Got It (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989045.jpg" />
 </div>
 
 
@@ -209,7 +374,7 @@ The Rolling Stones - Bridges To Babylon (1997) Remaster, 2009, Polydor [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988327.jpg" />
 </div>
 
 
@@ -238,7 +403,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) SACD, Remastered, 2003 EMI [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988252.jpg" />
 </div>
 
 
@@ -267,7 +432,7 @@ Elephants of Scotland - Home Away From Home (2013) [FLAC|Lossless]<Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988055.jpg" />
 </div>
 
 
@@ -296,7 +461,7 @@ Journey - 9 альбомов (1978-2013) Blu-spec CD2 Collection /2013, Sony Mus
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987765.jpg" />
 </div>
 
 
@@ -325,7 +490,7 @@ Status Quo - Accept No Substitute: The Definitive Hits (2015) 3CD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987406.jpg" />
 </div>
 
 
@@ -354,7 +519,7 @@ Avril Lavigne - Under My Skin (2004) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987313.jpg" />
 </div>
 
 
@@ -383,7 +548,7 @@ Odyssice - Silence (2010) [FLAC|Lossless]<Progressive rock / Symphonic Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987115.jpg" />
 </div>
 
 
@@ -415,7 +580,7 @@ Drive-By Truckers - The Unraveling (2020) [FLAC|Lossless|WEB-DL|tracks] <Souther
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987023.jpg" />
 </div>
 
 
@@ -444,7 +609,7 @@ VA - Prog Rocks! Volume Three (2014) Box Set, 2CD [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987019.jpg" />
 </div>
 
 
@@ -473,7 +638,7 @@ P.L.J Band - Armageddon (1982) Remastered, 2006, Mason Records [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986022.jpg" />
 </div>
 
 
@@ -502,7 +667,7 @@ Electric Light Orchestra - The Very Best of Electric Light Orchestra (2015) 2CD,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985405.jpg" />
 </div>
 
 
@@ -531,7 +696,7 @@ VA - The Ultimate Rock Ballads Collection  (2007) Box Set, 8CD [FLAC|Lossless]<R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984562.jpg" />
 </div>
 
 
@@ -557,7 +722,7 @@ Harry Styles - Fine Line (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983441.jpg" />
 </div>
 
 
@@ -586,7 +751,7 @@ SLADE - Greatest Hits: Feel The Noize (1997) /2002, Universal Music/[WavPack|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982495.jpg" />
 </div>
 
 
@@ -606,153 +771,6 @@ SLADE - Greatest Hits: Feel The Noize (1997) /2002, Universal Music/[WavPack|Los
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972461   (981983) от 06.01.2016
-
-Nostradamus - Testament (2008) [FLAC|Lossless|image + .cue]<Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarissimo
-02. Troy
-03. Shadow In The Rain
-04. Divine Comedy(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:04:20
-
-Благодарность
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED78566FED9420FCB66F59E8B8214A9E918E032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973164   (980255) от 08.01.2016
-
-Baris Manco - Sozum Meclisten Disari (1981) Remastered, 1999, Akbas Muzic [FLAC|Lossless|image + .cue]<Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ademoglu Kizgin Firin Havva Kizi Mercimek
-02. Ali Yazar Veli Bozar
-03. Arkadasim Essek
-04. 2025(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743C8FF97C7E176BD64F97CDD67B839D555AC9DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973219   (979975) от 08.01.2016
-
-David Bowie - Blackstar (2016) [FLAC|Lossless|tracks + .cue] <Art Rock, Rock>
-
->>След.
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blackstar
-2. 'Tis a Pity She Was a Whore
-3. Lazarus
-4. Sue (Or In a Season of Crime)(   Читать дальше...   )Жанр: Art Rock, RockПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC2563295882EFE900E9E37CF3B45CE873D47FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973567   (979144) от 09.01.2016
-
-Genesis - ...And Then There Were Three... (1978) SACD, Remastered, 2007 Virgin [FLAC|Lossless|tracks + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down and Out (5:27)
-02. Undertow (4:47)
-03. Ballad of Big (4:50)
-04. Snowbound (4:31)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB34CFAA79CD67550F459FF384082E1A28B04033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356080   (979119) от 30.01.2020
-
-Alina Orlova (Алина Орлова) - Mutabor (2010) переиздание, 2012, Moon Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Acoustic, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Širdis
-02. Šilkas
-03. Лихорадка
-04. Stars(   Читать дальше...   )Жанр: Alternative Rock, Acoustic, FolkПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FAD4067F678A754F709A46BF19231CCDF8E8A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

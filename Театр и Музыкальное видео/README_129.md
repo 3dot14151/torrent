@@ -1,3 +1,170 @@
+###  Публикация: 1717985   (111049) от 22.04.2024
+
+МузЛофт-подкаст / МузLoft. Прохор Шаляпин (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прохор Шаляпин. Конфликты с артистами. Шутки про бабушек. Но главное - голос.
+В MuzLOFT заглянул, пожалуй, самый народный из артистов. Его музыкальные баллады и романсы звучат уже второе десятилетие, а сам Прохор расскажет о трудном пути становления артистом и о личной жизни.Производство: Россия | Y-GenerationУчастники: Прохор ШаляпинПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5D7348C1020CFDBC0F1E02A7C054CD191FD106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718545   (110936) от 25.04.2024
+
+Леонид Агутин — «Бог об этом не просил» (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Божественное и реальное соединяется в анимационном видео на песню Леонида Агутина «Бог об этом не просил», в нём используется предельно доступная символика и заложена понятная философия. Оживающие люди с дорожных знаков и указателей — свидетельство божественного присутствия во всём. На протяжении ролика схематичные человечки с пиктограмм покидают привычные места (   Читать дальше...   )Жанр: PopРежиссер: Денис КузьминПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718919   (110779) от 27.04.2024
+
+Леонид Агутин — «Всё не зря» (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не дочитав старый роман
+И сняв очки,
+Наш капитан выключил свет
+В кают-компании...Жанр: PopРежиссер: Артур ХарламовПродолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719171   (110670) от 28.04.2024
+
+Квартирник у Маргулиса. Иван Замотаев и «Замотаев Бэнд» (27.04.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все участники коллектива не только музыканты, но и профессиональные артисты театра и кино. Кроме игры в спектаклях театра «Русская песня», «Другого театра» и знаменитого «Квартета "И"», солист и лидер группы Иван Замотаев также пишет музыку для театральных постановок и телепроектов. Выступления артистов отличает удивительно проникновенная музыка, яркие (   Читать дальше...   )00:00:05 Ожидание
+00:05:45 Перекати поле
+00:13:02 Я тебя помню босой и прекрасной
+00:19:44 Песня(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC7993ACB8D7042AE929B18DCA1A0CCBFBFC3D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721383   (110088) от 06.05.2024
+
+МузЛофт-подкаст / МузLoft. Ираклий Пирцхалава (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ираклий Пирцхалава. Разговор о Боге, грузинах и Кобзоне.
+На этот раз в студии Музлофт оказался фабрикант, чьи хиты до сих пор поют в караоке, а сам он их петь не может. Об этом и многом другом вы узнаете, посмотрев выпуск с Ираклием Пирцхалавой.Производство: Россия | Y-GenerationУчастники: Ираклий ПирцхалаваПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6122D6C9323F2FFE0D9E82EF386EB6AE90115D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722042   (109798) от 10.05.2024
+
+Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не хочу ничего уже больше писать,
+Ведь песни мои как пророчества.
+На прогулку ведёт пятилапого пса
+Наше - Ваше высочество.(   Читать дальше...   )Жанр: RapПродолжительность: 00:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725012   (109120) от 22.05.2024
 
 МузЛофт / МузLoft. Мария Зайцева (2024) WEBRip [H.264/1080p]
@@ -6,7 +173,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109120.jpg" />
 </div>
 
 
@@ -33,7 +200,7 @@ Lovebites: Knockin' At Heaven's Gate (2023) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108060.jpg" />
 </div>
 
 
@@ -59,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107960.jpg" />
 </div>
 
 
@@ -85,7 +252,7 @@ BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107816.jpg" />
 </div>
 
 
@@ -115,7 +282,7 @@ BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107813.jpg" />
 </div>
 
 
@@ -145,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107668.jpg" />
 </div>
 
 
@@ -171,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107541.jpg" />
 </div>
 
 
@@ -197,7 +364,7 @@ Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107125.jpg" />
 </div>
 
 
@@ -226,7 +393,7 @@ Scooter - Live in Hamburg (2010) BDRip [H.265/2160p] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106390.jpg" />
 </div>
 
 
@@ -255,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105592.jpg" />
 </div>
 
 
@@ -282,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105260.jpg" />
 </div>
 
 
@@ -309,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103873.jpg" />
 </div>
 
 
@@ -335,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103842.jpg" />
 </div>
 
 
@@ -361,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103377.jpg" />
 </div>
 
 
@@ -390,7 +557,7 @@ Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102713.jpg" />
 </div>
 
 
@@ -416,7 +583,7 @@ Dream Theater - Live at Budokan (2004/2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102245.jpg" />
+  <img src="Z:/picture/005/save_picture_102245.jpg" />
 </div>
 
 
@@ -451,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102051.jpg" />
 </div>
 
 
@@ -481,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101962.jpg" />
 </div>
 
 
@@ -510,7 +677,7 @@ B.o.B feat. Hayley Williams of Paramore - Airplanes (2010) WEB-DLRip [H.265/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101555.jpg" />
 </div>
 
 
@@ -536,7 +703,7 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101553.jpg" />
 </div>
 
 
@@ -547,167 +714,6 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720424EEBF3036DF26D44C657B1F00C65400A3C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764380   (101549) от 07.12.2024
-
-Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101549.jpg" />
-</div>
-
-
-###  Подробнее
-
-«A Sky Full of Stars» (в переводе с англ. — «Небо, полное звёзд») — третий сингл британской группы Coldplay из их шестого студийного альбома Ghost Stories. В альтернативном клипе, снятом дизайн-студией Artisan, группа исполняет песню в темной комнате, где на пол проецируется анимация из звезд. Музыканты взаимодействуют с проекцией, а звезды кружатся и (   Читать дальше...   )Жанр: EDM, поп, альтернативный рокПродолжительность: 00:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057DF79FD55CE91A6942322572F75A769D696E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480897   (99257) от 10.04.2012
-
-Ковалева из провинции (1975) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ТелеспектакльРежиссер: Игорь Владимиров, Майя МарковаАктеры: Алиса Фрейндлих, Анатолий Равикович, Алексей Петренко, Овсей Каган, Валерий Кузин, Ефим Каменецкий, Галина Никулина, Леонид Дьячков, Михаил Девяткин, Владимир Цибин, Цицилия Файн, Алексей Розанов, Ольга Осипова, Лидия ТрубниковаПродолжительность: 02:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A326604057C89DE8562A80B7FA78CDDCF3CC730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479492   (98968) от 07.04.2012
-
-Джиган - Нас больше нет (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Hip-HopПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99C2926B8B611E33FE757B8ABBBE81391EAC03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479502   (98957) от 07.04.2012
-
-INNA - WOW (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5831ED6424E6FC8EBDF5DC3FEF21C5E30447B77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475198   (98113) от 30.03.2012
-
-Музыкальный коллектив Петра Налича, концерт в клубе Б1 MAXIMUM (2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Авторская песняРежиссер: Gala-recordsАктеры: МКПН
-
-Обложку DVD нарисовал, как всегда, сам Пётр. На самом диске есть бонусыПродолжительность: 01:16:32 (концерт - 58:32, интервью - 8:41, ролики - 8:24)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCFD76BB20BBCA6735850FEC05C03293F02DD04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468000   (96840) от 16.03.2012
-
-Сурганова и Оркестр  (15.11.2011) концерт в Киеве ЦКИ НАУ <Rock> CamRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96840.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Интро
- 002 Увидимся скоро
- 003 Хвала
- 004 SanctumSanctorum(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1F2F8220CD74837F2807051ACD97FAEC87CD96
 ```
 
 https://mybot314.ru/tekegram_catalog/

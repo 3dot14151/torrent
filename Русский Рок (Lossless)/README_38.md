@@ -6,7 +6,7 @@ Amatory - Doom (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Nu-Metal, Mode
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313882.jpg" />
+  <img src="Z:/picture/008/save_picture_313882.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ LaScala - Agonia (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313880.jpg" />
+  <img src="Z:/picture/008/save_picture_313880.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313855.jpg" />
+  <img src="Z:/picture/008/save_picture_313855.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313274.jpg" />
+  <img src="Z:/picture/008/save_picture_313274.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sergey Golovin - Changes (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312585.jpg" />
+  <img src="Z:/picture/008/save_picture_312585.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Svartby - Elemental Tales (2012) [FLAC|Lossless|image + .cue] <Folk Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312182.jpg" />
+  <img src="Z:/picture/008/save_picture_312182.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312128.jpg" />
+  <img src="Z:/picture/008/save_picture_312128.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310614.jpg" />
+  <img src="Z:/picture/008/save_picture_310614.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310097.jpg" />
+  <img src="Z:/picture/008/save_picture_310097.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310070.jpg" />
+  <img src="Z:/picture/008/save_picture_310070.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309941.jpg" />
+  <img src="Z:/picture/008/save_picture_309941.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309453.jpg" />
+  <img src="Z:/picture/008/save_picture_309453.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307452.jpg" />
+  <img src="Z:/picture/008/save_picture_307452.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307146.jpg" />
+  <img src="Z:/picture/008/save_picture_307146.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Svartby - Swamp, My Neighbour (2015) [FLAC|Lossless|image + .cue] <Folk Black Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305655.jpg" />
+  <img src="Z:/picture/008/save_picture_305655.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305458.jpg" />
+  <img src="Z:/picture/008/save_picture_305458.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304977.jpg" />
+  <img src="Z:/picture/008/save_picture_304977.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303274.jpg" />
+  <img src="Z:/picture/008/save_picture_303274.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303270.jpg" />
+  <img src="Z:/picture/008/save_picture_303270.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303133.jpg" />
+  <img src="Z:/picture/008/save_picture_303133.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Scratching Soil - War Experience (2003) [FLAC|Lossless|image + .cue] <Black Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301588.jpg" />
+  <img src="Z:/picture/008/save_picture_301588.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301466.jpg" />
+  <img src="Z:/picture/008/save_picture_301466.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Moray Eel - Psycho:Delusion (2005) [WavPack|Lossless|image + .cue] <Death Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299120.jpg" />
+  <img src="Z:/picture/008/save_picture_299120.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Moray Eel - Priest Hunter (2006) [WavPack|Lossless|image + .cue] <Death Metal, T
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298956.jpg" />
+  <img src="Z:/picture/008/save_picture_298956.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298901.jpg" />
+  <img src="Z:/picture/008/save_picture_298901.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296979.jpg" />
+  <img src="Z:/picture/008/save_picture_296979.jpg" />
 </div>
 
 

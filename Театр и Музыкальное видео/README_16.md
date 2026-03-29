@@ -1,3 +1,171 @@
+###  Публикация: 747409   (962328) от 19.01.2014
+
+Roxette - Live, Travelling the World (2013) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертная запись «Roxette» записанная в ходе тура “Travelling the World″, который прошел в 2011-2012 году. Группа отыграла перед 1.5 миллионами человек в 46 странах мира. На протяжении всей карьеры шведский поп-роковый дуэт «Roxette» свыше 30 раз бомбардировал чарты своими синглами, а общий тираж пластинок группы перевалил за 75 миллионов экземпляров.01. Dressed For Success
+02. Sleeping In My Car
+03. The Big L
+04. Silver Blue(   Читать дальше...   )Производство: Швеция / Parlophone, Warner MusicЖанр: Rock, pop, документальныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, немецкийПродолжительность: 01:35:13 + 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8C790F72A8AF1326E7022611E5BBACE2B57C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277249   (962314) от 01.01.2011
+
+Новый год в деревне Глухарёво (Части: 2 из 2)  (2010) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в деревню Глухарёво! Только здесь под ногами скрипит снег, елки не синтетические, а пушистые, и люди тоже живые и настоящие. Прямо из премьерной новогодней серии «Глухаря» его заводилы — Аверин и Рожков — выезжают в деревню Глухарёво. Они торопятся, ведь опаздывать и встречать Новый год в подмосковной пробке никому не хочется: примету про «так и (   Читать дальше...   )Жанр: Новогодняя программаПродолжительность: 04:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A00FCEEE1712ECAA13F63A0DD2F25A67D8F95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978714   (962107) от 24.01.2016
+
+Квартирник у Маргулиса. 4 выпуск. Крематорий (2015) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня в гостях у Евгения Маргулиса группа Крематорий. Говорят, что поиски названия для группы — «Крематорий» — заняли у музыкантов больше времени, чем написание всех песен первого альбома. В теплой и душевной атмосфере гости квартирника исполнят свои самые известные и любимые песни: 2001 год, Мусорный ветер, Амстердам, Пиноккио и многие другие. Дата эфира: 28.11.2015.01. Катманду
+02. 2001 год
+03. Сексуальная кошка
+04. Мусорный ветер(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AF0E25BFC78D4550DE811A3118158F7F00B7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425727   (962010) от 01.01.2015
+
+Старые Песни о Главном - 1,2,3,4 Постскриптум /  (1996 - 2000) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962010.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Старые песни о главном» — цикл новогодних музыкальных телефильмов канала ОРТ российского телевидения, выходивших в 90-е годы. Продюсерами и авторами идеи цикла были Константин Эрнст и Леонид Парфенов.
+Передачи представляли собой мюзиклы с участием известных артистов эстрады. Мюзиклы состояли из популярных советских песен разных лет. Каждый выпуск представлял собой (   Читать дальше...   )Жанр: КонцертПродолжительность: 07:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2EEFC736107AA8461D66B8FD7FBE5DA7874FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621822   (961654) от 21.02.2013
+
+"O2label" /Pulsar (vol.1.) (2013) HDTV 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar & Strannik - Dance Of Galaxies
+02. Back To Reality
+03. Belt Of Orion
+04. Canaan(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA88FECA02352DBDD5865E607C7D271FED8E6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621785   (961385) от 21.02.2013
+
+Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert 2013 - Franz Welser-Most & Wiener Philharmoniker (2013) Blu-ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.
+
+ Ежегодный Новогодний концерт Венского филармонического оркестра по праву считается одним из крупнейших мировых музыкальных событий года. Это мероприятие, открывающее европейский музыкальный (   Читать дальше...   )Жанр: Классика,Продолжительность: 02:03:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 170163   (961216) от 29.01.2010
 
 Шоу в Мулин Руж "Феерия" / Bal du Moulin Rouge "Feerie" (2008) DVD9
@@ -6,7 +174,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961216.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ Scorpions - MTV Unplugged In Athens (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960979.jpg" />
 </div>
 
 
@@ -61,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960940.jpg" />
 </div>
 
 
@@ -90,7 +258,7 @@ Michael Flatley - Gold (2000/2004) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960875.jpg" />
 </div>
 
 
@@ -119,7 +287,7 @@ Roxette - Live, Travelling the World (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960857.jpg" />
 </div>
 
 
@@ -148,7 +316,7 @@ Epica - Retrospect: 10th anniversary (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960853.jpg" />
 </div>
 
 
@@ -177,7 +345,7 @@ VA - Зимний марафон № 221: Продвинутые Зимние Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960807.jpg" />
 </div>
 
 
@@ -206,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960670.jpg" />
 </div>
 
 
@@ -232,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960469.jpg" />
 </div>
 
 
@@ -261,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960464.jpg" />
 </div>
 
 
@@ -290,7 +458,7 @@ Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960319.jpg" />
 </div>
 
 
@@ -316,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959978.jpg" />
 </div>
 
 
@@ -345,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959700.jpg" />
 </div>
 
 
@@ -374,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959028.jpg" />
 </div>
 
 
@@ -403,7 +571,7 @@ Helene Fischer -Live/Fur einen Tag (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958682.jpg" />
 </div>
 
 
@@ -429,7 +597,7 @@ Status Quo – The One And Only (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958414.jpg" />
 </div>
 
 
@@ -458,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958245.jpg" />
 </div>
 
 
@@ -488,7 +656,7 @@ ABBA – Number Ones (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958192.jpg" />
 </div>
 
 
@@ -517,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957360.jpg" />
 </div>
 
 
@@ -546,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957295.jpg" />
 </div>
 
 
@@ -560,177 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8FC05B12A8E05CBDE88A51206C9002B10986EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979471   (957286) от 28.01.2016
-
-R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Videos (With Optional Interview Footage):
-
-01.Bad Day - Film Director: Tim Hope (4:02)
-02.All The Way To Reno (You're Gonna Be A Star)  - Film Director: Michael Moore (4:24)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПеревод: ОтсутствуетПродолжительность: 02:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCB111CDBAA5AEE58A8CA4A8840AEAAE8C168AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979319   (957219) от 28.01.2016
-
-Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Que Mon Coeur Lache (6:44)
-02.	XXL (4:34)
-03.	L'Instant X (4:22)
-04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 01:07:98
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C6D3505519DDE03B90B82B56F33B30AF2C2B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980011   (957198) от 28.01.2016
-
-Mylene Farmer – Music Videos II & III (2000) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Que Mon Coeur Lache (6:44)
-02.	XXL (4:34)
-03.	L'Instant X (4:22)
-04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8825368FFEE8DD10B56E6B084F9659F87EB4F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980181   (957095) от 28.01.2016
-
-Scorpions – Acoustica (2001) DVDRip [AVC, AC-3, DTS, PCM]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957095.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Scorpions - Acoustica» - акустический концерт легендарных Scorpions, который состоит из записей трёх концертов, проходивших за стенами Португальского монастыря в Лиссабоне 8, 9 и 10 февраля 2001 года.01. Loving You Sunday Morning
-02. Is There Anybody There
-03. The Zoo
-04. Always Somewhere(   Читать дальше...   )Жанр: Heavy Metal, Acoustic, Hard Rock, Classic RockРежиссер: Hannes Rossacher, Rudi DolezalПеревод: ОтсутствуетПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E439DA699E367A321B5F8E534DA62195F6B7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171590   (956547) от 02.02.2010
-
-Eruption - One Way Ticket (1979) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших песен группы - "One Way Ticket" (1978), более известной в СССР под названием "Синий иней" и исполнявшаяся многими ВИА. Автором песни был Нил Седака, который впервые издал эту песню в 1970 году. Однако помнят эту песню именно в исполнении Eruption.Жанр: PopПродолжительность: 2:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622402   (955877) от 26.02.2013
-
-"O2label"/Strannik (vol.2.) (2013) HDTV [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Of The Glimmered Fires
-02. Diamonds Sky (History Of Love)
-03. Expedition To The Sun
-04. Horizon On The Planet Thor(   Читать дальше...   )Жанр: Музыка, New Age, Electronic, Downtempo, Chillout, SpaceПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADBE0383BDDD1EE0F57EB62372960D5DCDA0B64
 ```
 
 https://mybot314.ru/tekegram_catalog/

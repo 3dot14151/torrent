@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799647.jpg" />
+  <img src="Z:/picture/008/save_picture_799647.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dc Breaks - Different Breed (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799641.jpg" />
+  <img src="Z:/picture/008/save_picture_799641.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799632.jpg" />
+  <img src="Z:/picture/008/save_picture_799632.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Stand Up (2017.04.02) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 7)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799628.jpg" />
+  <img src="Z:/picture/008/save_picture_799628.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Replay Video Capture 8.8.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799627.jpg" />
+  <img src="Z:/picture/008/save_picture_799627.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Zirenz & Ken Plus Ichiro - Concerto (2017) Single [MP3|320 Kbps] <Trance,Uplifti
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799616.jpg" />
+  <img src="Z:/picture/008/save_picture_799616.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ AIMP 4.13 Build 1891 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799615.jpg" />
+  <img src="Z:/picture/008/save_picture_799615.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799589.jpg" />
+  <img src="Z:/picture/008/save_picture_799589.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Dism++ 10.1.25.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799585.jpg" />
+  <img src="Z:/picture/008/save_picture_799585.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ AIMP 4.13 Build 1891 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799582.jpg" />
+  <img src="Z:/picture/008/save_picture_799582.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Windows 10 Manager 2.0.8 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799578.jpg" />
+  <img src="Z:/picture/008/save_picture_799578.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Zoom Player MAX 13.0 Build 1300 Final RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799576.jpg" />
+  <img src="Z:/picture/008/save_picture_799576.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Skype 7.34.0.103 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799571.jpg" />
+  <img src="Z:/picture/008/save_picture_799571.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799552.jpg" />
+  <img src="Z:/picture/008/save_picture_799552.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Dr.Web Security Space 11.0.5.2171 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799551.jpg" />
+  <img src="Z:/picture/008/save_picture_799551.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ WM Capture 8.8.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799549.jpg" />
+  <img src="Z:/picture/008/save_picture_799549.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799542.jpg" />
+  <img src="Z:/picture/008/save_picture_799542.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Timer RH PRO  2.9 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799534.jpg" />
+  <img src="Z:/picture/008/save_picture_799534.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Stats 2.6.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799532.jpg" />
+  <img src="Z:/picture/008/save_picture_799532.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Twitterrific 5 v5.4.8 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799527.jpg" />
+  <img src="Z:/picture/008/save_picture_799527.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ ProFind 1.9.2 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799521.jpg" />
+  <img src="Z:/picture/008/save_picture_799521.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799517.jpg" />
+  <img src="Z:/picture/008/save_picture_799517.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Skype 7.34.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799514.jpg" />
+  <img src="Z:/picture/008/save_picture_799514.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PopClip 2021.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799498.jpg" />
+  <img src="Z:/picture/008/save_picture_799498.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ FBackup 9.3.434 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799493.jpg" />
+  <img src="Z:/picture/008/save_picture_799493.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ OnyX 4.1.0 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799491.jpg" />
+  <img src="Z:/picture/008/save_picture_799491.jpg" />
 </div>
 
 

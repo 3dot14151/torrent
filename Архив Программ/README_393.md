@@ -6,7 +6,7 @@ PortableApps.com Platform 14.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844601.jpg" />
+  <img src="Z:/picture/008/save_picture_844601.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cyberfox 52.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844600.jpg" />
+  <img src="Z:/picture/008/save_picture_844600.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hotspot Shield Elite 5.20.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844588.jpg" />
+  <img src="Z:/picture/008/save_picture_844588.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics BoostSpeed 8.2.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844575.jpg" />
+  <img src="Z:/picture/008/save_picture_844575.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Arnold Renderer 1.2.3.1 for Maya 2015-2016 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844572.jpg" />
+  <img src="Z:/picture/008/save_picture_844572.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wondershare Filmora 9.4.5.10 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844561.jpg" />
+  <img src="Z:/picture/008/save_picture_844561.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SIV (System Information Viewer) 5.47 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844557.jpg" />
+  <img src="Z:/picture/008/save_picture_844557.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ HDCleaner 2.010 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844526.jpg" />
+  <img src="Z:/picture/008/save_picture_844526.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Overloud TH-U Premium 1.4.5 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844433.jpg" />
+  <img src="Z:/picture/008/save_picture_844433.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Artweaver Plus 7.0.10 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844419.jpg" />
+  <img src="Z:/picture/008/save_picture_844419.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Firefox Browser ESR 78.15.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844413.jpg" />
+  <img src="Z:/picture/008/save_picture_844413.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ IObit Driver Booster Pro 7.4.0.728 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844411.jpg" />
+  <img src="Z:/picture/008/save_picture_844411.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ StartIsBack++ 1.3.4 / StartIsBack+ 1.7.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844379.jpg" />
+  <img src="Z:/picture/008/save_picture_844379.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Corel PaintShop Pro X9 Ultimate 19.2.0.7 + Content [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844364.jpg" />
+  <img src="Z:/picture/008/save_picture_844364.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Macrium Reflect 7.0.2035 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844362.jpg" />
+  <img src="Z:/picture/008/save_picture_844362.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ DAEMON Tools Ultra 4.1.0.0489 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844357.jpg" />
+  <img src="Z:/picture/008/save_picture_844357.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ DAEMON Tools Pro 7.1.0.0595 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844347.jpg" />
+  <img src="Z:/picture/008/save_picture_844347.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NirLauncher Package 1.23.52 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844313.jpg" />
+  <img src="Z:/picture/008/save_picture_844313.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ HWiNFO 7.12 Build 4580 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844312.jpg" />
+  <img src="Z:/picture/008/save_picture_844312.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ W.A. Production - InstaComposer 1.0.0 Beta VSTi, VSTi3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844310.jpg" />
+  <img src="Z:/picture/008/save_picture_844310.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Firefox Browser 93.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844307.jpg" />
+  <img src="Z:/picture/008/save_picture_844307.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ GPU Caps Viewer 1.53.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844301.jpg" />
+  <img src="Z:/picture/008/save_picture_844301.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Revo Uninstaller Pro 4.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844299.jpg" />
+  <img src="Z:/picture/008/save_picture_844299.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ HandBrake 1.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844291.jpg" />
+  <img src="Z:/picture/008/save_picture_844291.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Defender Tools 1.06 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844261.jpg" />
+  <img src="Z:/picture/008/save_picture_844261.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Adobe Photoshop Lightroom CC 2015.9 (6.9) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844230.jpg" />
+  <img src="Z:/picture/008/save_picture_844230.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1110129   (853760) от 02.03.2017
+
+Александр Пушкин | Станционный смотритель (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль 1987 года по одноименной повести А.С. Пушкина из цикла "Повести Белкина"
+
+Режиссёр-постановщик — Борис Щедрин.Жанр: радиоспектакльПродолжительность: 0:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237F00571C132A1A3513C3A6137A1AD1E7F69E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001346   (853751) от 28.03.2016
+
+Антон Чехов | Рассказы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антон Павлович Чехов - один из величайших писателей и драматургов не только отечественной, но и мировой литературы, тончайший психолог, ироничный юморист, непревзойденный певец загадочной русской души во всем се эмоциональном диапазоне, в котором от смешного до драматического - всего один шаг.
+В сборник вошли наиболее известные повести и рассказы Чехова - произведения (   Читать дальше...   )Жанр: КлассикаПродолжительность: 09:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE5D0CCEC53CADC38353C88E47D4B59381BDDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306537   (853174) от 09.03.2011
+
+Александр Островский | Сердце не камень [радиоспектакль] [1957] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Классика, пьесаПродолжительность: 02:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6588C7A0485620768D606793C24094056E4403A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 191507   (852902) от 11.04.2010
 
 Иоганн Вольфганг Гёте | Фауст (Радиоспектакль) (2009) [MP3]
@@ -6,7 +87,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852902.jpg" />
+  <img src="Z:/picture/008/save_picture_852902.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851630.jpg" />
+  <img src="Z:/picture/008/save_picture_851630.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850298.jpg" />
+  <img src="Z:/picture/008/save_picture_850298.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846926.jpg" />
+  <img src="Z:/picture/008/save_picture_846926.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846920.jpg" />
+  <img src="Z:/picture/008/save_picture_846920.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846663.jpg" />
+  <img src="Z:/picture/008/save_picture_846663.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842776.jpg" />
+  <img src="Z:/picture/008/save_picture_842776.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840523.jpg" />
+  <img src="Z:/picture/008/save_picture_840523.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840192.jpg" />
+  <img src="Z:/picture/008/save_picture_840192.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839107.jpg" />
+  <img src="Z:/picture/008/save_picture_839107.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838287.jpg" />
+  <img src="Z:/picture/008/save_picture_838287.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835883.jpg" />
+  <img src="Z:/picture/008/save_picture_835883.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835782.jpg" />
+  <img src="Z:/picture/008/save_picture_835782.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833474.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833338.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833167.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833166.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831966.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830459.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829761.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829509.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829076.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828653.jpg" />
 </div>
 
 
@@ -599,86 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A5553CDF555F487E826825652C5D174C4C4BDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006393   (827241) от 12.04.2016
-
-Дональд Маккейг | Ретт Батлер (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском языке! Долгожданный новый роман о любви Ретта Батлера и Скарлетт О'Хара! Ретт Батлер, герой бессмертного романа Маргарет Митчелл «Унесенные ветром»… Его имя вызывает самые разные чувства, настолько сложный и многогранный образ создала писательница. Ренегат, отщепенец, бунтарь, игрок, пылкий любовник, южанин — и до сих пор загадка для читателей. (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 20:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3208A9D27F2F7574E86D7EABB6950041F6CE04DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006568   (827176) от 12.04.2016
-
-Карен Бликсен | Из Африки (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карен Бликсен, датская баронесса, - одна из самых оригинальных писательниц XX века. Ее творчество уникально, поскольку сочетает в себе элементы самых разных жанров - от триллера до путевых заметок, от философской прозы до лирической комедии. "Из Африки" - главная ее книга, которая неоднократно выдвигалась на Нобелевскую премию; по ней Сидни Поллак снял (   Читать дальше...   )Жанр: Современная классикаПродолжительность: 11:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879290F73AF79E55185101E19D320FB1CFE48ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503093   (822917) от 17.10.2021
-
-Василий Аксенов | Апельсины из Марокко (2006) [MP3, Алексей Россошанский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня яркие сладкие марокканские апельсины можно купить почти на каждом углу в любое время года в любой точке земного шара. Никто, поедая их, особенно не задумается о том, что для живших в 1960-е годы, например, на Дальнем Востоке, это лакомство было не просто экзотикой, но - метафорой личной свободы.
-
-Когда в маленький приморский городок приходит груз апельсинов, (   Читать дальше...   )Жанр: Современная проза, КлассикаПродолжительность: 05:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A572C1D83D2373A8B53F6BE46D726D18289DA9B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

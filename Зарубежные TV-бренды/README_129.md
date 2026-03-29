@@ -1,3 +1,110 @@
+###  Публикация: 1351790   (14359) от 17.06.2025
+
+Можем ли мы создать искусственный интеллект? / Can We Build a Brain? (2018) HDTV [H.264/1080i] (Сезон 1, эпизод 4)
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14359.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме мы расскажем про искусственный интеллект. Машины способные к самообучению... Насколько они разумны? Сегодня они могут флиртовать, шутить, распознавать картинки. Огромный прогресс был достигнут очень быстро. И это улучшает нашу жизнь. Но не зайдёт ли дело слишком далеко? Если процесс выйдет из под контроля, то последствий не избежать. Можем ли мы создать (   Читать дальше...   )Производство: США, Little Bay Pictures, WGBH Educational Foundation, PBSЖанр: Документальный, познавательный, научно-популярныйРежиссер: Анна Ли СтраханУчастники: Мэтью Ботвиник, Родни Брукс, Лили ЧенгПеревод: Многоголосый закадровый, профессиональный (СВ-Дубль)Субтитры: АнглийскиеПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEA952EB3121D3AB1710C56F7EE666421F7285F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802408   (14315) от 17.06.2025
+
+NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14315.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Королевы» — это захватывающий документальный сериал, в котором дикая природа раскрывает свои матриархальные тайны. В каждой серии — судьбы могущественных самок: львиц, слоних, волчиц, медведиц, касаток и даже муравьиных маток.
+Сериал переносит зрителей в разные уголки планеты — от африканских саванн до гор Эфиопии и побережья Аляски. Мы видим, как разные виды борются (   Читать дальше...   )Производство: США | National Geographic, Wildstar FilmsЖанр: Документальный, природаРежиссер: Рэйчел Кинли, Алаира Маллалью, Виктория Бромли, Джессика ТомбсУчастники: Анджела БассеттПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C477DBC0BE75EDC5243B96160FCB954E6661FD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515441   (13943) от 21.06.2025
+
+NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезоны 1-7, серии 1-57 из 57)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Игры разума приглашает вас в путешествие в мир интерактивных игр и тестов, которые помогут вам понять, как устроен ваш мозг. По-настоящему умопомрачительные эксперименты протестируют то, как ваш мозг воспринимает окружающий мир. Исследуя внимание, страх, убеждение и принятие решений, Игры разума заставляет вас задуматься о собственном мозге. Ведь именно (   Читать дальше...   )Производство: США, Magical Elves Productions, National GeographicЖанр: документальный, научно-популярныйРежиссер: Михаэль НигроУчастники: Джейсон Сильва, Берт Томас Моррис, Аполлон РоббинсПеревод: одноголосый профессиональный (АРК ТВ)Субтитры: английскиеПродолжительность: серии x ~00:24:00, ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1111DF3A5BC221878D36A0C2D43FD40127AA805C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803056   (13925) от 21.06.2025
+
+NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-5 из 5) Сoldfilm
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13925.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Аутсайдеры» — это дикая природа без глянца и фильтров.
+Райан Рейнольдс приглашает зрителей в мир самых недооценённых, странных и часто отталкивающих существ планеты. Вместо львов, дельфинов и павлинов — медоеды, комары, носачи и креветки-убийцы. Они уродливы, смешны, иногда отвратительны, но именно благодаря своей странности они выживают, побеждают и удивляют.
+«Аутсайдеры» (   Читать дальше...   )Производство: США | Maximum Effort, Wildstar FilmsЖанр: Документальный, природаРежиссер: Том СтефенсУчастники: Райан РейнольдсПеревод: Одноголосый (Сoldfilm)Субтитры: Английские (full, SDH)Язык: Русский, английскийПродолжительность: ~00:37:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90E705ADC2EEB110D6CD70D732FC7DDF82728F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803639   (13641) от 24.06.2025
 
 BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 6) Pazl Voice
@@ -6,7 +113,7 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13641.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13391.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13057.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12988.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12867.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11852.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11436.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ History: Кевин Костнер: Запад / Kevin Costner's the West (2025)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9911.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9361.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9162.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9132.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ PBS: Первые люди / First Peoples (2015) WEB-DL [H.264/1080p] (сезо
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9119.jpg" />
 </div>
 
 
@@ -320,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9106.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2013) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9065.jpg" />
 </div>
 
 
@@ -372,7 +479,7 @@ Discovery: Челюсти против кракена / Jaws vs Kraken (2022) WE
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8822.jpg" />
 </div>
 
 
@@ -398,7 +505,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6138.jpg" />
 </div>
 
 
@@ -424,7 +531,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6105.jpg" />
 </div>
 
 
@@ -450,7 +557,7 @@ NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3727.jpg" />
 </div>
 
 
@@ -476,7 +583,7 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3425.jpg" />
 </div>
 
 
@@ -502,7 +609,7 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2815.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ Discovery. Великий замысел по Стивену Хокингу / St
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2729.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_342.jpg" />
 </div>
 
 
@@ -566,32 +673,6 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B2E5F7748D60AAF708311FDD338FB4226947B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820763   (94) от 29.09.2025
-
-BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Родительство» — документальный сериал, погружающий зрителей в удивительный и порой шокирующий мир животных-родителей. Мы узнаем об их невероятных стратегиях выживания и воспитания потомства. В каждом эпизоде зрители увидят, как разные виды, от океанских гигантов до обитателей джунглей, проходят через множество испытаний, чтобы дать своим детёнышам шанс на жизнь (   Читать дальше...   )Производство: Великобритания | «Silverback Films»Жанр: Документальный, природа, путешествие, исследованиеРежиссер: Хью Уилсон, Джефф УилсонАктеры: Дэвид АттенбороПеревод: ДвуголосыйЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~00:57:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4079A7B11B5A7D7FD97F91BB8924E983C2E8966B
 ```
 
 https://mybot314.ru/tekegram_catalog/

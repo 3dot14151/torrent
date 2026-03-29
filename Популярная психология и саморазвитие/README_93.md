@@ -1,3 +1,83 @@
+###  Публикация: 1618115   (201537) от 10.03.2023
+
+Джозеф Чароки, Луиза Л. Хейс | Твоя жизнь - твой выбор. Терапия принятия и ответственности для управления эмоциями и развития (2022) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга создана для подростков, чтобы помочь им научиться управлять эмоциями, принять происходящие в них изменения и преодолеть трудности, с которыми они сталкиваются. Читая ее, подросток освоит практические навыки, основанные на психологической вовлеченности, терапии принятия и ответственности, позитивной психологии. Они помогут построить крепкую дружбу, научиться (   Читать дальше...   )Жанр: Популярная психологияПеревод: Д.И. ПарафинюкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D11D2500C07AE2DDF8A60F859C826AA382AE752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618113   (201468) от 10.03.2023
+
+Патрик Кинг | Как легко завести разговор с любым человеком. Искусство умной, легкой и увлекательной беседы (2021) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случалось ли вам прийти в незнакомую компанию и не знать, с чего начать разговор? Вам хотелось завязать знакомство с противоположным полом, но вы не знали, о чем поговорить? Слова застревали у вас в горле, а от волнения потели ладони? Разговор – это ключ ко всему, чего вы хотите достичь в жизни. Продвижение по карьерной лестнице, обретение новых друзей и романтический (   Читать дальше...   )Жанр: Зарубежная психология, Личная эффективность, Саморазвитие / личностный ростПеревод: Мария Чомахидзе-ДоронинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92090583F33399C1022EC2778D3C7BB5732507C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620744   (200967) от 21.03.2023
+
+Фейт Дж. Харпер | Не люби себе мозги! Мощные практики для избавления от тревожности, депрессии и гнева (2023) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_200967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое руководство для тех, кто хочет подружиться со своей головой.
+
+Паническая атака по дороге на работу, тревога из-за срыва дедлайнов, ссора с партнером, бессонница из-за депрессивных мыслей о будущем… Если для вас это обычный вторник, то ваш бедный мозг уже на грани нервного срыва и нуждается в помощи!Жанр: Управление стрессомФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DFEBE62AB3149E8239828ED47A57AED986345F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622445   (200737) от 28.03.2023
 
 Павел Симонов | Мотивированный мозг. Высшая нервная деятельность и естественно-научные основы общей психологии (2022) [FB2]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200737.jpg" />
+  <img src="Z:/picture/005/save_picture_200737.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199878.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199373.jpg" />
+  <img src="Z:/picture/005/save_picture_199373.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198985.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198206.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198125.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197863.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197840.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197764.jpg" />
 </div>
 
 
@@ -247,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197526.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196261.jpg" />
+  <img src="Z:/picture/004/save_picture_196261.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196214.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196210.jpg" />
 </div>
 
 
@@ -356,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196209.jpg" />
+  <img src="Z:/picture/004/save_picture_196209.jpg" />
 </div>
 
 
@@ -382,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196200.jpg" />
 </div>
 
 
@@ -408,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196187.jpg" />
 </div>
 
 
@@ -434,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196183.jpg" />
+  <img src="Z:/picture/004/save_picture_196183.jpg" />
 </div>
 
 
@@ -460,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196003.jpg" />
 </div>
 
 
@@ -486,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195975.jpg" />
 </div>
 
 
@@ -514,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195970.jpg" />
 </div>
 
 
@@ -540,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195925.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195914.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194534.jpg" />
 </div>
 
 
@@ -605,87 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A22DF583927B9D66E2A6D1FB778EE489F265E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652882   (194392) от 13.08.2023
-
-Эндрю Фереби | Порно эпидемия. Справочник по осознанию и избавлению зависимости от порнографии для мужчины (2016) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порнография прочно вошла в наш обиход жизни. И на моей памяти это произошло весьма резко просто в один момент люди перестали стесняться того что они дрочат. И вроде бы все неплохо. Ну передернул человечек 10,20, 30 минут, доставил себе удовольствие. Всё хорошо, всем хорошо. А всё ли хорошо?
-На тему порно-зависимости и просто влияния порно на организм мужчин было (   Читать дальше...   )Жанр: психология, сексологияИздательство: неизвестноФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8813EF020D106B52D53353BA2B1EC3321E5C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654286   (194097) от 20.08.2023
-
-Томас Ширрмахер | Правда о порнографии (2010) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами книга известного немецкого учёного Томаса Ширрмахера, посвященная животрепещущей проблеме — влиянию порнографии на людей. До сих пор эту тему успешно эксплуатирует бизнес и реклама, и, к сожалению объективной информации о том, что это за явление, и что оно с собой приносит мы получаем мало, а поэтому порнография и всё, что связано с ней окутано некой таинственностью. (   Читать дальше...   )Жанр: секс просвещениеПеревод: Просвирякова И.В.Издательство: неизвестноФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BD30652311F032B12726ABC8157A11F037CC91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827793   (193668) от 23.10.2025
-
-Деймон Захариадис | Сила воли. 10 шагов превращения «Надо» в «Хочу!» (2024) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193668.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сила воли. 10 шагов превращения “Надо” в “Хочу!”» – это мощный заряд мотивации, наполняющий читателя энергией и верой в собственные силы.
-Деймон Захариадис – эксперт в области продуктивности. Эта книга – источник вдохновения, который подарит каждому читателю уверенность в собственных силах и желание стремиться к успеху, несмотря ни на что.
-В данной книге вы найдете: (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: ПитерФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A651BDCE84D88C1BDB04383A64AC836C3FA5A585
 ```
 
 https://mybot314.ru/tekegram_catalog/

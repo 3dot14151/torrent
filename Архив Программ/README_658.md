@@ -6,7 +6,7 @@ MInstAll v.03.08.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718514.jpg" />
+  <img src="Z:/picture/008/save_picture_718514.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PC Cleaner Pro 9.0.0.0 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718459.jpg" />
+  <img src="Z:/picture/008/save_picture_718459.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Glary Utilities Pro 5.182.0.211 [DC 17.02.2022] RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718457.jpg" />
+  <img src="Z:/picture/008/save_picture_718457.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paint.NET 4.3.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718455.jpg" />
+  <img src="Z:/picture/008/save_picture_718455.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.90.9443 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718453.jpg" />
+  <img src="Z:/picture/008/save_picture_718453.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CCleaner 5.90.9443  Professional / Business / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718452.jpg" />
+  <img src="Z:/picture/008/save_picture_718452.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Flash Player 26.0.0.89 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718449.jpg" />
+  <img src="Z:/picture/008/save_picture_718449.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MEmu 7.6.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718437.jpg" />
+  <img src="Z:/picture/008/save_picture_718437.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ WinRAR 5.70 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718386.jpg" />
+  <img src="Z:/picture/008/save_picture_718386.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WinRAR 5.70 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718380.jpg" />
+  <img src="Z:/picture/008/save_picture_718380.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ StartAllBack 3.3.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718367.jpg" />
+  <img src="Z:/picture/008/save_picture_718367.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe XD 48.0.12.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718364.jpg" />
+  <img src="Z:/picture/008/save_picture_718364.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AutoRuns 14.09 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718363.jpg" />
+  <img src="Z:/picture/008/save_picture_718363.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Animate 2022 22.0.4.185 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718361.jpg" />
+  <img src="Z:/picture/008/save_picture_718361.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ R-Studio Network 9.0 Build 190295 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718358.jpg" />
+  <img src="Z:/picture/008/save_picture_718358.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ StartAllBack 3.3.1.4280 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718355.jpg" />
+  <img src="Z:/picture/008/save_picture_718355.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WinTools.net Premium 17.4.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718340.jpg" />
+  <img src="Z:/picture/008/save_picture_718340.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ FileZilla 3.25.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718335.jpg" />
+  <img src="Z:/picture/008/save_picture_718335.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ AdminPE10 2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718139.jpg" />
+  <img src="Z:/picture/008/save_picture_718139.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ AdminPE 3.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718128.jpg" />
+  <img src="Z:/picture/008/save_picture_718128.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mozilla Firefox 48.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718054.jpg" />
+  <img src="Z:/picture/008/save_picture_718054.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ ZD Soft Screen Recorder 9.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718052.jpg" />
+  <img src="Z:/picture/008/save_picture_718052.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Pamela for Skype Pro / Business 4.9.0.80 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718020.jpg" />
+  <img src="Z:/picture/008/save_picture_718020.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Navicat Premium 11.2.16 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718013.jpg" />
+  <img src="Z:/picture/008/save_picture_718013.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ SRWare Iron 51.0.2700.0 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717917.jpg" />
+  <img src="Z:/picture/008/save_picture_717917.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NetTraffic 1.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717909.jpg" />
+  <img src="Z:/picture/008/save_picture_717909.jpg" />
 </div>
 
 

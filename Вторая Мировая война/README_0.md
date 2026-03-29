@@ -1,3 +1,29 @@
+###  Публикация: 1484526   (1006000) от 20.07.2021
+
+Сталинград. Мы еще живы или нет? (2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Победа в Сталинградской битве стала ключевым событием Великой Отечественной войны. Фильм рассказывает о кровавом сражении, ставшем поворотным в европейской истории новейшего времени.Производство: РоссияЖанр: Документальный, историяРежиссер: Алексей ЯнковскийСубтитры: ОтсутствуютПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3474E62F460D4695B818BAC17D4D9B96CEEAA08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 111925   (1005758) от 22.07.2021
 
 В осаде. Ленинград 1941: 900 дней / Under Siege. Leningrad 1941: The 900 Days (2005) TVRip
@@ -6,7 +32,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005758.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005576.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998706.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997098.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991820.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991625.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991416.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985556.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985124.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984380.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983278.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982315.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981945.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981891.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981890.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971752.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971689.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959306.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953959.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952804.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949662.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948926.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948006.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947803.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945154.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22358644605649C61E2415E45921780F6CCDCA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984286   (940232) от 08.02.2016
-
-Забытые герои (2015) IPTVRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительным образом через столько десятилетий после Второй мировой подвиги многих людей не отмечены и не описаны. И не только в нашей стране. Самое горестное состоит в том, что имена этих замечательных людей никому не известны. История очень несправедлива. Подлинных героев заменяют мифы...Телекомпания: Россия, ОТРЖанр: Документальный, война, историяПродолжительность: 00:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A88188EA43030F1D06B6CA070790A3B1015D6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

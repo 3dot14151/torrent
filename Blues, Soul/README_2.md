@@ -1,3 +1,32 @@
+###  Публикация: 979295   (959784) от 26.01.2016
+
+George Thorogood & The Destroyers - 2120 South Michigan Ave. (2011) [MP3|320 кб/с] <Blues Rock, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Back (03:25)
+02. Hi-Heel Sneakers (03:30)
+03. Seventh Son (03:07)
+04. Spoonful (04:14)(   Читать дальше...   )Жанр: Blues Rock, RockabillyПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21C1BCED61C500A49393303999E0A3F879D0AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 294556   (958333) от 04.01.2015
 
 Albert King - 29 альбомов (1962 - 2001) [MP3|320 kbps]<Blues>
@@ -6,7 +35,7 @@ Albert King - 29 альбомов (1962 - 2001) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958333.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tritono Blues - Tritono Blues Plays Ray Charles (2016) [MP3|320 кб/с] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957298.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Blue Attitude - All Shades of Blue (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952269.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Runaway Sidecars - She Wanted A Car (2014) [MP3|320 кб/с] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949981.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Peter Karp - Alabama Town (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943010.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Chicken Shack - Forty Blue Fingers, Freshly Packed And Ready To Serve (1968) [MP
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942349.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934471.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dion - New York Is My Home (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934096.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Allison Thrash - Solitude (2009) [MP3|320 Kbps] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933967.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Rare Amber - Rare Amber (1969) 2004, Walhalla [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933953.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Zed Mitchell - Winter In Amsterdam (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933872.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Karen Lovely - Ten Miles of Bad Road (2015) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933863.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Lino Muoio - Mandolin Blues The Piano Session (2016) [MP3|320 кб/с] <Blues, P
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932623.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Layla Zoe - Breaking Free (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932536.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Roberto Ciotti - Road 'N' Rail (1992) [MP3|320 кб/с] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932532.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Roberto Ciotti - Equilibrio Precario (2013) [MP3|243~271 кб/с (V0)] <Blues, F
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931048.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Roberto Ciotti - Troubles And Dreams (2010) [MP3|320 кб/с] <Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931045.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Antologia Polskiego Bluesa Cz.2: Blues z Szuflady (2009) [MP3|128-256 кб/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929178.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Antologia polskiego bluesa cz.2: Blues z oklaskami (2009) [MP3|320 кб/с]
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929164.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Michael Mulvaney - Mike's Blues (2016) [MP3|320 кб/с] <Rockin' Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927971.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Antologia polskiego bluesa cz.2: Nasi (z)zagranica (2009) [MP3|256 кб/с]
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927865.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Antologia Polskiego Bluesa Cz.2: Swieza Krew (2009) [MP3|320 кб/с] <Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926089.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Layla Zoe - Hoochie Coochie Woman (2007) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926059.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Gin Soaked Boy - Blues in Your Bones (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923857.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922821.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23CF1F05D7CA68B545675912CBFB38322AEF43C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988106   (922782) от 19.02.2016
-
-Boyz II Men - Collide (2014) Target Deluxe Edition [MP3|320 кб/с] <Soul, Rhythm & Blues, Ballad>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Myself And I
-02. What Happens In Vegas
-03. Diamond Eyes
-04. Better Half(   Читать дальше...   )Жанр: Soul, Rhythm & Blues, BalladПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D457745965E66E0AF819B2917AC7258A91891704
 ```
 
 https://mybot314.ru/tekegram_catalog/

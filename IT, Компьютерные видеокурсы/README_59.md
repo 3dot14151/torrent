@@ -1,3 +1,136 @@
+###  Публикация: 1406828   (470138) от 05.09.2020
+
+[Udemy] Евгений Новиков | Стань QA специалистом с нуля (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пошаговая инструкция, которая поможет пройти путь от абсолютного новичка до первой работы. Вы получите необходимую базу знаний и навыков для тестирования программного обеспечения. Кроме технических знаний и навыков курс включает практические советы и задания по составлению резюме, подготовке к собеседованию и поиску работы. Этот курс для всех желающих освоить профессию (   Читать дальше...   )Производство: UdemyЖанр: ТестированиеПродолжительность: 03:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A04120ED2CB3C091F7D7128D16AFDC763B089E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406955   (470132) от 05.09.2020
+
+javaops.ru | Junior Java-разработчик веб-приложений - BaseJava (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработка веб-приложения База данных резюме (BaseJava).  Разработка веб-приложения начинается с первого занятия, основываясь на базовых темах проекта: объектная модель, коллекции, система ввода-вывода, работа с файлами, сериализация, работа с XML, JSON, SQL, персистентность в базу данных (PostgreSQL), сервлеты, JSP/JSTL, веб-контейнер Tomcat, HTML, модульные тесты (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 29:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5D3040E9851E9DC1EAE4700113C910995C9BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406881   (470025) от 05.09.2020
+
+Константин Ефимов | Секреты 1С: Эксперта [Пакет полный] (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные вопросы, которые рассматриваются в курсе:
+- знакомство с 1С.
+- механизм управляемого приложения.
+- базовая теория СУБД.(   Читать дальше...   )Жанр: 1СПродолжительность: 30:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D7AF5D63E542AFE904885C8B7FC9268854DF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406834   (470021) от 05.09.2020
+
+[ITVDN] Артём Быковец | QA Start (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеокурс QA Start построен на основе очного курса StartIT. Этот курс дает всю необходимую информацию, которая является основой для старта карьеры тестировщика. Он позволит изучить основы, которые являются "must have" для всех тестировщиков, независимо от сферы тестирования. Закончив его, вы уже сможете начать карьеру и получать реальный опыт на фрилансе (   Читать дальше...   )Производство: ITVDNЖанр: ТестированиеПродолжительность: 07:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B01A06D39378408870D4D1A33E46FAE7B39C919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407084   (470020) от 05.09.2020
+
+javaops.ru | Enterprise Java-разработчик (TopJava) (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработка полнофункционального Spring 5/JPA enterprise-приложения c авторизацией и правами доступа на основе ролей на самом востребованном Java стеке: Maven, Spring MVC, Security, JPA(Hibernate), REST(Jackson), Bootstrap (css,js), datatables, jQuery + plugins, Java 8 Stream and Time API, сохранением в базах данных PostgreSQL и HSQLDB и деплоем в облачный сервис (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 23:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0266F1459B50A9D055484857D8DA2CEE6ED4167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407135   (468154) от 06.09.2020
 
 [Udemy] Anthony Herbert | Flask - Ultimate Курс / The Ultimate Flask Course (2020) PCRec [En / En Sub]
@@ -6,7 +139,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468154.jpg" />
+  <img src="Z:/picture/008/save_picture_468154.jpg" />
 </div>
 
 
@@ -35,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468152.jpg" />
+  <img src="Z:/picture/008/save_picture_468152.jpg" />
 </div>
 
 
@@ -64,7 +197,7 @@ Softwaretesting | Погружение в тестирование. Jedi point (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468150.jpg" />
+  <img src="Z:/picture/008/save_picture_468150.jpg" />
 </div>
 
 
@@ -92,7 +225,7 @@ loftschool | React.js. Разработка веб-приложений (2018) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466998.jpg" />
+  <img src="Z:/picture/008/save_picture_466998.jpg" />
 </div>
 
 
@@ -118,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466186.jpg" />
+  <img src="Z:/picture/008/save_picture_466186.jpg" />
 </div>
 
 
@@ -152,7 +285,7 @@ Charles Dye | Mix it Like a Record [2012] DVDRip [RUS + ENG]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464533.jpg" />
+  <img src="Z:/picture/008/save_picture_464533.jpg" />
 </div>
 
 
@@ -178,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464025.jpg" />
+  <img src="Z:/picture/008/save_picture_464025.jpg" />
 </div>
 
 
@@ -207,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463733.jpg" />
+  <img src="Z:/picture/008/save_picture_463733.jpg" />
 </div>
 
 
@@ -235,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462904.jpg" />
+  <img src="Z:/picture/008/save_picture_462904.jpg" />
 </div>
 
 
@@ -261,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461707.jpg" />
+  <img src="Z:/picture/008/save_picture_461707.jpg" />
 </div>
 
 
@@ -289,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459462.jpg" />
+  <img src="Z:/picture/008/save_picture_459462.jpg" />
 </div>
 
 
@@ -317,7 +450,7 @@ OTUS | Разработчик Java (Часть 1-3) (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459396.jpg" />
+  <img src="Z:/picture/008/save_picture_459396.jpg" />
 </div>
 
 
@@ -344,7 +477,7 @@ EMPO | Аналитика для SEO (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457191.jpg" />
+  <img src="Z:/picture/008/save_picture_457191.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457054.jpg" />
+  <img src="Z:/picture/008/save_picture_457054.jpg" />
 </div>
 
 
@@ -397,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457052.jpg" />
+  <img src="Z:/picture/008/save_picture_457052.jpg" />
 </div>
 
 
@@ -424,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456848.jpg" />
+  <img src="Z:/picture/008/save_picture_456848.jpg" />
 </div>
 
 
@@ -450,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455427.jpg" />
+  <img src="Z:/picture/008/save_picture_455427.jpg" />
 </div>
 
 
@@ -478,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455282.jpg" />
+  <img src="Z:/picture/008/save_picture_455282.jpg" />
 </div>
 
 
@@ -507,7 +640,7 @@ ITVDN | Алгоритмы и структуры данных (2015) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454950.jpg" />
+  <img src="Z:/picture/008/save_picture_454950.jpg" />
 </div>
 
 
@@ -533,7 +666,7 @@ Skillbox, Павел Козлов и др. | MS Office и инструменты
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454916.jpg" />
+  <img src="Z:/picture/008/save_picture_454916.jpg" />
 </div>
 
 
@@ -560,7 +693,7 @@ Skillbox, Ренат Шагабутдинов и др. | PowerPoint + Google П�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454911.jpg" />
+  <img src="Z:/picture/008/save_picture_454911.jpg" />
 </div>
 
 
@@ -573,142 +706,6 @@ Skillbox, Ренат Шагабутдинов и др. | PowerPoint + Google П�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72CE14ED876E59BA9678B63D0C23E8FBA5496FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528731   (452914) от 12.08.2022
-
-А. Севастьянов | Сброс пароля администратора в Windows [2011] PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452914.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном видеоуроке, рассмотрим пример сброса пароля администратора в Windows, что позволит выполнить вход в систему с привилегированными правами.Жанр: Обучающее видеоПродолжительность: 00:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E01468873D86D823D36A7CA28A31ABD1F33D6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409005   (450753) от 14.09.2020
-
-Специалист | Введение в DevOps: инфраструктура как код, использование Docker и Kubernetes (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для инженеров DevOps и системных администраторов, желающих освоить принципы и технологии Infrastructure as a Code для автоматизации развертывания и управления IT инфраструктурой предприятия.Жанр: ПрограммированиеПродолжительность: 19:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90E9FD3D32336361C27E816D203B6A10927D5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061158   (447755) от 10.10.2016
-
-Lynda.com | Основы программирования: объектно-ориентированное проектирование (2012) [RU / EN, EN Sub] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство современных языков программирования, таких как Java, C#, Ruby и Python, являются объектно-ориентированными, что помогает группировать отдельные биты кода в сложные согласованные приложения. Однако сама по себе объектная ориентация — не язык, это комплекс идей и концепций.
-
-Саймон Аллардайс с радостью ознакомит вас с терминами ООП — словечками наподобие (   Читать дальше...   )Производство: Lynda.comЖанр: Объектно-ориентированное проектированиеЯзык субтитров: АнглийскийПродолжительность: 03:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599F9D0A33F8722FB51B1364FA1F33077252B87D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409234   (446845) от 16.09.2020
-
-[Interview Espresso] Aaron Jack | Парсинг с помощью JavaScript / Web Scrape Anything With JavaScript (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446845.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 проектов из реальной жизни. Проекты включают в себя Twitter-бота, парсера объявлений о вакансиях, парсера цен на акции, Intagram, сканеры Reddit и многое другое.
-
-40+ обучающих видео
-В обучающих видео ничего не пропущено, мы расскажем о настройке всего (да, даже Node JS, API и редактора кода) и покажем вам * настоящее * программирование методом проб и ошибок.Производство: Interview EspressoЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEFBEC74ECAF04BFCDED12D8FA5CC80D459E865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409237   (446659) от 16.09.2020
-
-Специалист | Java. Уровень 3. Разработка серверного программного обеспечения на Java EE (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная разработка — это сложный и многоуровневый процесс, который делится на две части: клиентскую (frontend) и серверную (backend). Для разработки серверного программного обеспечения используются платформа Java Enterprise Edition (Java EE).
-Платформа Java EE (Jakarta EE) содержит набор взаимосвязанных технологий, которые существенно сокращают стоимость и сложность (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 27:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876498D0C4353744708543109F1B133AC44956AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

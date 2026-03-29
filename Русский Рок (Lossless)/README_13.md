@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858798.jpg" />
+  <img src="Z:/picture/008/save_picture_858798.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858069.jpg" />
+  <img src="Z:/picture/008/save_picture_858069.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856905.jpg" />
+  <img src="Z:/picture/008/save_picture_856905.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855911.jpg" />
+  <img src="Z:/picture/008/save_picture_855911.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nobody.one - Mercy, Please Mercy! (2020) [FLAC|Lossless|tracks] <Instrumental, r
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855064.jpg" />
+  <img src="Z:/picture/008/save_picture_855064.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854590.jpg" />
+  <img src="Z:/picture/008/save_picture_854590.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854110.jpg" />
+  <img src="Z:/picture/008/save_picture_854110.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Maxidrom (1995-2005) 8CD [FLAC|Lossless|image + .cue, tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852731.jpg" />
+  <img src="Z:/picture/008/save_picture_852731.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852047.jpg" />
+  <img src="Z:/picture/008/save_picture_852047.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851911.jpg" />
+  <img src="Z:/picture/008/save_picture_851911.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851873.jpg" />
+  <img src="Z:/picture/008/save_picture_851873.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850261.jpg" />
+  <img src="Z:/picture/008/save_picture_850261.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Louna - Песни о мире (С симфоническим оркестром
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850210.jpg" />
+  <img src="Z:/picture/008/save_picture_850210.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850160.jpg" />
+  <img src="Z:/picture/008/save_picture_850160.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850134.jpg" />
+  <img src="Z:/picture/008/save_picture_850134.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848541.jpg" />
+  <img src="Z:/picture/008/save_picture_848541.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848535.jpg" />
+  <img src="Z:/picture/008/save_picture_848535.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848161.jpg" />
+  <img src="Z:/picture/008/save_picture_848161.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Tequilajazzz - Камни (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847685.jpg" />
+  <img src="Z:/picture/008/save_picture_847685.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847667.jpg" />
+  <img src="Z:/picture/008/save_picture_847667.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847596.jpg" />
+  <img src="Z:/picture/008/save_picture_847596.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844297.jpg" />
+  <img src="Z:/picture/008/save_picture_844297.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843031.jpg" />
+  <img src="Z:/picture/008/save_picture_843031.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841499.jpg" />
+  <img src="Z:/picture/008/save_picture_841499.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841344.jpg" />
+  <img src="Z:/picture/008/save_picture_841344.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - Иллюминатор. Песни на стихи Ильи Кормиль�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841223.jpg" />
+  <img src="Z:/picture/008/save_picture_841223.jpg" />
 </div>
 
 

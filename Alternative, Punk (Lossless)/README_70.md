@@ -1,3 +1,32 @@
+###  Публикация: 1798669   (66502) от 26.05.2025
+
+These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting (3:08)
+ 02. Bells (7:05)
+ 03. A Season In Hell (5:04)
+ 04. Industrial Love Song (feat. Caroline Polachek) (3:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257461213746BFCFE249DB5E3D84B06813136A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798651   (66498) от 26.05.2025
 
 Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental, Post Rock>
@@ -6,7 +35,7 @@ Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66498.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66362.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The B-52's - Cosmic Thing (1989) CD, Album, Club Edition, Columbia House [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66267.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Pretenders - The Singles (1987) [FLAC|Lossless|tracks + .cue] <Rock, New Wave, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66239.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Exies - Head for the Door (2004) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66174.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The B-52's - Good Stuff (1992) CD, Album, Club Edition, Denon Pressing [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66170.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Pretenders - The Pretenders (1979) CD, Album, Reissue 1980 [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66031.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65609.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Awaken I Am - The Only Way Out Is Through (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65604.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Neezi - Replica (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronicore, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65454.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Brains - Crazy Monster (2025) [FLAC|Lossless|WEB-DL|tracks] <punk rock, psyc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65444.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Tropical Fuck Storm (TFS) - Fairyland Codex (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65352.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Upon A Burning Body - 6 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65292.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Paul Bartolome - Fake Hollywood (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65163.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Calling All Astronauts - Noise Against Tyranny (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65129.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59919.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Linkin Park - Papercuts (2000-2023) Compilation, 2024, Warner Records [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59384.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Los Furios - Old Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <reggae, ska punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58756.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Gorillaz - Дискография (2001-2010) [FLAC|lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57583.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ System of a Down - 5 альбомов (1998-2005) [FLAC|Lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57579.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Avril Lavigne - 6 альбомов (2002-2007) [FLAC|Lossless] <Pop-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57556.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Bring Me The Horizon - Post Human Nex Gen (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55289.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Marilyn Manson - Sweet Dreams Baby (2000) 2024, Smokin' [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54028.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Red Hot Chili Peppers - Unlimited Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49233.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ The Get Up Kids - Something to Write Home About (1999) 25th Anniversary Deluxe E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45564.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ The Get Up Kids - Something to Write Home About (1999) 25th Anniversary Deluxe E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF632E8AEF93931D8EA3518D23F92EB3AD37A3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747640   (44393) от 06.09.2024
-
-blink-182 - One More Time... Part-2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk, Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anthem Part 3 [3:34]
-02 - Dance With Me [3:09]
-03 - Fell In Love [2:19]
-04 - Terrified [2:49](   Читать дальше...   )Жанр: Pop Punk, Rock, Alternative RockПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B21A74F39CB1BAE3BD6B934FD984CF31C06191
 ```
 
 https://mybot314.ru/tekegram_catalog/

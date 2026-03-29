@@ -1,3 +1,29 @@
+###  Публикация: 497999   (255851) от 19.05.2012
+
+[Игра] (Android 2.1+) Temple Run v1.3(Аркада / Runner)
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почувствуйте нагнетающую атмосферу старинного храма и попытайтесь убежать от злых духов. Это будет вызвано тем, что Вы когда-то искали священного идола и наконец его нашли. Он находился в таинственном и загадочном храме и как только Вы его забрали, проснулись стражники святыни. Теперь стоит одна задача перед главным персонажем игры, как можно быстрей убежать от них и не попасться им в руки. Но просто так убежать не получится.Жанр: Аркада / Runner
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497366   (255818) от 19.05.2012
 
 [Игра] (Android 2.0.1+) Munch Time v1.2(Аркада / Головоломка)
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255818.jpg" />
+  <img src="Z:/picture/005/save_picture_255818.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255817.jpg" />
+  <img src="Z:/picture/005/save_picture_255817.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255811.jpg" />
+  <img src="Z:/picture/005/save_picture_255811.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255809.jpg" />
+  <img src="Z:/picture/005/save_picture_255809.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255805.jpg" />
+  <img src="Z:/picture/005/save_picture_255805.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255795.jpg" />
+  <img src="Z:/picture/005/save_picture_255795.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255785.jpg" />
+  <img src="Z:/picture/005/save_picture_255785.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254671.jpg" />
+  <img src="Z:/picture/005/save_picture_254671.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253005.jpg" />
+  <img src="Z:/picture/005/save_picture_253005.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252759.jpg" />
+  <img src="Z:/picture/005/save_picture_252759.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251988.jpg" />
+  <img src="Z:/picture/004/save_picture_251988.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Photo Lab PRO v3.12.56 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251932.jpg" />
+  <img src="Z:/picture/004/save_picture_251932.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251802.jpg" />
+  <img src="Z:/picture/005/save_picture_251802.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Speedtest от Ookla 4.7.18 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250252.jpg" />
+  <img src="Z:/picture/004/save_picture_250252.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ TrackView Platinum Edition 3.7.51 Mod by ~Timozhai~ [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250183.jpg" />
+  <img src="Z:/picture/004/save_picture_250183.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Adobe Acrobat Reader для PDF 22.2.0.21450 Mod by Apps Store [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250165.jpg" />
+  <img src="Z:/picture/004/save_picture_250165.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Edge Action: Edge Screen, Sidebar Launcher 2.5.8 Mod by zabhi [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250146.jpg" />
+  <img src="Z:/picture/004/save_picture_250146.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Camera FV-5 5.3.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250095.jpg" />
+  <img src="Z:/picture/004/save_picture_250095.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ uTorrent Pro 6.7.3 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250094.jpg" />
+  <img src="Z:/picture/004/save_picture_250094.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250068.jpg" />
+  <img src="Z:/picture/004/save_picture_250068.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ FiLMiC Pro: Mobile Cine Camera 6.17.8 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250019.jpg" />
+  <img src="Z:/picture/004/save_picture_250019.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ OfficeSuite + PDF & HD + Addons 12.2.40533 & 12.1.39984 Mod by Balatan, Mihz, Al
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250014.jpg" />
+  <img src="Z:/picture/004/save_picture_250014.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Wildberries 4.7.1000 Mod by Pashulik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249859.jpg" />
+  <img src="Z:/picture/004/save_picture_249859.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ YouTube Vanced [ROOT] (Extended) 17.28.32 Mod by Number one' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249783.jpg" />
+  <img src="Z:/picture/004/save_picture_249783.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Telegram for Android 9.5.2 (3208) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249774.jpg" />
+  <img src="Z:/picture/004/save_picture_249774.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Telegram — это облачный мессенджер для мобильн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB8699B164F0723728F768A52AB4E895C500031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471928   (249640) от 22.03.2022
-
-Авиатабло v2.5.4 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авиатабло – это приложение, которое легко позволит использовать Ваш cмартфон как табло рейсов любого аэропорта мира. В одно касание Вы получите самую полную и актуальную информацию из аэропорта назначения. Самые необходимые и важные данные об интересующем Вас рейсе доступны в любое время.Тип издания: Free + AdFree (удалена реклама)Релиз состоялся: 21.03.2022Разработчик: Discover Ukraine LLCПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A077EF506AC6428A6EC17E7332D5D1C26AAB5C6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

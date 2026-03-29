@@ -1,3 +1,55 @@
+###  Публикация: 1068893   (377797) от 02.11.2016
+
+В.Г. Борисов | Юный радиолюбитель, 7-е изд. (1985) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377797.jpg" />
+</div>
+
+
+###  Подробнее
+
+В форме популярных бесед книга знакомит юного читателя с историей и развитием радио, с элементарной электро- и радиотехникой, электроникой. Она содержит более пятидесяти описаний различных по сложности любительских радиовещательных приемников и усилителей звуковой частоты с питанием от источников постоянного и переменного тока, измерительных пробников и приборов, (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EA895FC8840BF3518EFA63E685D901E152BBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949540   (377411) от 23.10.2015
+
+Элизабет Джордж Спир | The Witch of Blackbird Pond / Ведьма с пруда Черных Дроздов. 10-11 классы. Книга для чтения на английском языке (2014) [FB2][En]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осиротевшая шестнадцатилетняя Кит Тайлет покидает родной Барбадос и отправляется в Новый Свет на поиски своих единственных родственников, которых она прежде никогда не видела. Но в колониальном Коннектикуте 1687 года своевольной и жизнерадостной девушке никак не найти себе место. Наконец, Кит посчастливилось обрести родственную душу, когда она знакомится с загадочной (   Читать дальше...   )Жанр: Иностранный языкФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA45A730B0BB826906284D08BF474D8C6911EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415601   (376985) от 12.10.2020
 
 Лариса Аникеева | От нуля до букваря (2010) [FB2, EPUB, MOBI]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376985.jpg" />
+  <img src="Z:/picture/008/save_picture_376985.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375850.jpg" />
+  <img src="Z:/picture/008/save_picture_375850.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374957.jpg" />
+  <img src="Z:/picture/008/save_picture_374957.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373703.jpg" />
+  <img src="Z:/picture/008/save_picture_373703.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373453.jpg" />
+  <img src="Z:/picture/008/save_picture_373453.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373334.jpg" />
+  <img src="Z:/picture/008/save_picture_373334.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373333.jpg" />
+  <img src="Z:/picture/008/save_picture_373333.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373331.jpg" />
+  <img src="Z:/picture/008/save_picture_373331.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373329.jpg" />
+  <img src="Z:/picture/008/save_picture_373329.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373328.jpg" />
+  <img src="Z:/picture/008/save_picture_373328.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373324.jpg" />
+  <img src="Z:/picture/008/save_picture_373324.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373197.jpg" />
+  <img src="Z:/picture/008/save_picture_373197.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373195.jpg" />
+  <img src="Z:/picture/008/save_picture_373195.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372996.jpg" />
+  <img src="Z:/picture/008/save_picture_372996.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372526.jpg" />
+  <img src="Z:/picture/008/save_picture_372526.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371909.jpg" />
+  <img src="Z:/picture/008/save_picture_371909.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370965.jpg" />
+  <img src="Z:/picture/008/save_picture_370965.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369328.jpg" />
+  <img src="Z:/picture/008/save_picture_369328.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369106.jpg" />
+  <img src="Z:/picture/008/save_picture_369106.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368306.jpg" />
+  <img src="Z:/picture/008/save_picture_368306.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368304.jpg" />
+  <img src="Z:/picture/008/save_picture_368304.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368299.jpg" />
+  <img src="Z:/picture/008/save_picture_368299.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368037.jpg" />
+  <img src="Z:/picture/008/save_picture_368037.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368036.jpg" />
+  <img src="Z:/picture/008/save_picture_368036.jpg" />
 </div>
 
 
@@ -636,59 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1DC0C938FBBE8D3FA977848277A96E8B24C1C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950710   (368031) от 27.10.2015
-
-Леонид Венгер, Александр Венгер | Вот и вышел человечек… (сборник) (2010) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368031.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние годы у нас стало принято очень серьезно заботиться о раннем развитии детей. Вот только забота эта подчас оборачивается своей противоположностью. В дошкольном возрасте важно развивать способности ребенка, а не снабжать его знаниями, которые он успеет приобрести позднее. Не запасом знаний, а умением их приобретать и использовать определяется успешность (   Читать дальше...   )Жанр: ПедагогикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFF6E4E0DC14512B73BE377159525427DEFDD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950721   (368022) от 27.10.2015
-
-Елизавета Водовозова и др. | Царство свободного ребенка [Избранные статьи о воспитании] (2009) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Е.Н. Водовозова – один из виднейших ученых-педагогов своего времени, автор самой популярной дореволюционной книги для родителей «Умственное и нравственное воспитание детей от первого проявления сознания до школьного возраста», которая выдержала 7 изданий.
-Будучи ученицей К.Д. Ушинского, она отличалась самостоятельностью мышления, горячо отстаивала собственное мнение. (   Читать дальше...   )Жанр: ПедагогикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58DF79ABB5D2E72D326B01015D7B63CA31D8DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

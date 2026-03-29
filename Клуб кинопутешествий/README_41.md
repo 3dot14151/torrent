@@ -1,3 +1,55 @@
+###  Публикация: 1417208   (360402) от 19.10.2020
+
+Город на берегу. Сальвадор (Бразилия) / Waterfront Cities Of The World. Salvador de Bahia (2012) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сальвадор - столица бразильского штата Баия, является третьим по величине городом Бразилии. Сальвадор сохраняет позиции богатого сельскохозяйственного и индустриального района. Столица штата славится своей португальской архитектурой колониального периода, культурой, сочетающей африканские и бразильские традиции и тропическими пляжами.Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183A213F41DE2C0839A7595DFB8FA47419F2673C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417197   (360377) от 19.10.2020
+
+Подводный мир Эксумы / Exuma (2013) HDTV [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Багамские острова известны своими достопримечательностями и незабываемыми местами, архипелаг Эксума - как раз одно из них. Познакомьтесь с историей и многообразием подводной жизни Эксумы – одного из архипелагов в составе Багамских островов, который благодаря своим удивительным рифам и пещерам представляет необычайный интерес для дайверов.Производство: СШАЖанр: Документальный, познавательный, путешествияРежиссер: Колин РуджероПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49351F3F924B28D6786DABC6374064D3465415F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952058   (358647) от 31.10.2015
 
 Орел и решка. Шопинг. Сезон №3. Лазурный берег (2015.10.23) SATRip
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358647.jpg" />
+  <img src="Z:/picture/008/save_picture_358647.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358457.jpg" />
+  <img src="Z:/picture/008/save_picture_358457.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358308.jpg" />
+  <img src="Z:/picture/008/save_picture_358308.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358082.jpg" />
+  <img src="Z:/picture/008/save_picture_358082.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356983.jpg" />
+  <img src="Z:/picture/008/save_picture_356983.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356204.jpg" />
+  <img src="Z:/picture/008/save_picture_356204.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355886.jpg" />
+  <img src="Z:/picture/008/save_picture_355886.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355882.jpg" />
+  <img src="Z:/picture/008/save_picture_355882.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355877.jpg" />
+  <img src="Z:/picture/008/save_picture_355877.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355771.jpg" />
+  <img src="Z:/picture/008/save_picture_355771.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355578.jpg" />
+  <img src="Z:/picture/008/save_picture_355578.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354642.jpg" />
+  <img src="Z:/picture/008/save_picture_354642.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353962.jpg" />
+  <img src="Z:/picture/008/save_picture_353962.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353825.jpg" />
+  <img src="Z:/picture/008/save_picture_353825.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353818.jpg" />
+  <img src="Z:/picture/008/save_picture_353818.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353702.jpg" />
+  <img src="Z:/picture/008/save_picture_353702.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353658.jpg" />
+  <img src="Z:/picture/008/save_picture_353658.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352309.jpg" />
+  <img src="Z:/picture/008/save_picture_352309.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352258.jpg" />
+  <img src="Z:/picture/008/save_picture_352258.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352246.jpg" />
+  <img src="Z:/picture/008/save_picture_352246.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352127.jpg" />
+  <img src="Z:/picture/008/save_picture_352127.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352060.jpg" />
+  <img src="Z:/picture/008/save_picture_352060.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350339.jpg" />
+  <img src="Z:/picture/008/save_picture_350339.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350171.jpg" />
+  <img src="Z:/picture/008/save_picture_350171.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E8072FAFCB4553D6CCDCFCB217C65DB9048FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329827   (350020) от 06.10.2019
-
-HDlife: Путешествия / Европа / HDlife: Smart Travels / Europe (2012) HDTV [H.264/1080i] (Часть 2, 14 фильмов)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Travels: Европа - от города знаменитой статуи Давида, работы Микеланджело, до неоновых ночных клубов Парижа и уютных деревенских церквей, предлагает лучшие сюжеты о Европе от Руди Максы.Производство: США, Small World Productions Inc., SeattleЖанр: Документальный, история, путешествияПеревод: Одноголосый закадровый, профессиональный (Видеопродакшн)Субтитры: отсутствуютПродолжительность: серии x ~00:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0D3EA637C8A47052474E271556ECA23BC5ED75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329826   (350015) от 06.10.2019
-
-HDlife: Путешествия / Европа / HDlife: Smart Travels / Europe (2012) HDTV [H.264/1080i] (Часть 1, 11 фильмов)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Travels: Европа - от города знаменитой статуи Давида, работы Микеланджело, до неоновых ночных клубов Парижа и уютных деревенских церквей, предлагает лучшие сюжеты о Европе от Руди Максы.Производство: США, Small World Productions Inc., SeattleЖанр: Документальный, история, путешествияПеревод: Одноголосый закадровый, профессиональный (Видеопродакшн)Субтитры: отсутствуютПродолжительность: серии x ~00:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D610A585C03F680C19FA3188519790EC105B753
 ```
 
 https://mybot314.ru/tekegram_catalog/

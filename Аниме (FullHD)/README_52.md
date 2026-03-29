@@ -1,3 +1,162 @@
+###  Публикация: 1702419   (115881) от 24.02.2024
+
+Gekijouban Psycho-Pass: Providence | Психопаспорт: Провидение [2023, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение трилогии фильмов "Психопаспорт 3: Первый инспектор".
+
+Дeйcтвиe opигинaльнoгo cepиaлa paзвopaчивaeтcя в нeдaлёкoм бyдyщeм, гдe cyщecтвyeт тexнoлoгия, пoзвoляющaя мoмeнтaльнo измepить и oцeнить личнocть и cocтoяниe paccyдкa чeлoвeкa (пoчти кaк cтpaницa в coцceти, тoлькo eщё быcтpee). Bcю пoлyчeннyю тaким oбpaзoм инфopмaцию зaпиcывaют и oбpaбaтывaют, (   Читать дальше...   )Производство: студия Production I.G / プロダクション・アイジーЖанр: приключенияРежиссер: Сиотани НаоёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D202496F435F8F47B90E5DD220C520741467C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459185   (115639) от 26.02.2024
+
+Horimiya | Хоримия [2021, TV, 13 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115639.jpg" />
+</div>
+
+
+###  Подробнее
+
+У старшеклассницы Кёко Хори, похоже, есть всё, что только можно пожелать, ведь она умница, красавица и любимица всего класса. Однако даже у идеальных на первый взгляд людей бывают секреты, и один такой есть у Хори: девушка страшно боится, что её одноклассники прознают о том, что вне стен школы она превращается в настоящую домохозяйку, на которую вечно пропадающие (   Читать дальше...   )Производство: Студия CloverWorksЖанр: комедия, романтикаРежиссер: Исихама МасасиПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DB178814B7EA41100FD974A89C81ED3D4D1DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702754   (115576) от 26.02.2024
+
+Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito | Путешествие аристократа [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток Кадзуя Сиина погиб, спасая двух маленьких девочек от преступника, и переродился в мире меча и магии. Настоящая мечта! Хотя он помнит свою жизнь на Земле, теперь он Каин фон Силфорд, третий сын маркграфа. На свой пятый день рождения он проходит посвящение, знакомство с богами, которые благословляют его. Вот только благословения оказываются слишком сильными: (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Накамура НориюкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66250C4DDFFBB3E692025A0AA5DC6678FAE44B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702899   (115561) от 26.02.2024
+
+Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even at Level 1 | С особым навыком я имба даже на первом уровне [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уставший от невыносимой работы Рёта однажды просыпается в незнакомом подземелье. Он оказался в удивительном мире, где всё что угодно выпадает из монстров. Благодаря помощи незнакомки Эмили он узнаёт свои характеристики — они крайне низки, а его уровень ограничен первым. Решив было, что в новом мире его тоже ждут только лишения, он замечает свой рейтинг добычи ранга (   Читать дальше...   )Производство: студия Maho FilmЖанр: комедия, фэнтезиРежиссер: Янасэ ЮдзиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0262933C0B58CF987D73569B2266266D8F0BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702902   (115557) от 26.02.2024
+
+Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непризнанный школой владыка демонов [ТВ-2] [2023, TV, 12 из 24 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды могущественный Король Демонов Тирании Анос Вольдигод пожертвовал собой во имя установления мира между расами, решив переродиться через пару тысяч лет. И его план удался: реальность, в которой он очнулся, действительно стала куда более мирной. Правда, и её жители, не обременённые постоянными войнами, стали куда слабее и забыли многие простейшие заклинания, (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, фэнтезиРежиссер: Онума СинПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F292A244DDB5B244752F8987DB3BF898AE95AF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702747   (115552) от 26.02.2024
+
+Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades | Семь главенствующих мечей [2023, TV, 15 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115552.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Академию магии Кимберли пришла весна, а вместе с ней и партия новых учеников. Среди них через ворота престижной школы проходит один юноша в чёрном плаще, с белым посохом и мечом на поясе. Героя зовут Оливер, и ему придётся заручиться поддержкой девушки-самурая Нанао, чтобы пережить грядущие опасности в обманчивой и коварной академии.
+© crunchyrollПроизводство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Мацунэ МасатоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 15 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C45DF20C3B076B425129C2ACAAF6F24BBBFF397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702891   (115542) от 26.02.2024
 
 Ars no Kyojuu | Giant Beasts of Ars | Гигантские звери Арса [2023, TV, 12 эп.] BDRIp 1080p 10-bit raw
@@ -6,7 +165,7 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигантские звери Арса [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115542.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ The Klutzy Witch | Rakudai Majo: Fuuka to Yami no Majo | Ведьма-неуда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115540.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115536.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I'm in Love with the Villainess | Я влю
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115535.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ Tenpuru | Храм [2023, TV, 12 эп. + 2 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115531.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115530.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115528.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115526.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ Yumemiru Danshi wa Genjitsushugisha | The Dreaming Boy is a Realist | Из ме�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115524.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ The Quintessential Quintuplets ∽ | Go-Toubun no Hanayome~ | Пять неве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115522.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115518.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115506.jpg" />
 </div>
 
 
@@ -323,7 +482,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115499.jpg" />
 </div>
 
 
@@ -349,7 +508,7 @@ Edomae Elf | Otaku Elf | Эльф Эдомаэ [2023, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115487.jpg" />
 </div>
 
 
@@ -375,7 +534,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi | My Tiny Senpai | Маленька�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115484.jpg" />
 </div>
 
 
@@ -402,7 +561,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110600.jpg" />
 </div>
 
 
@@ -428,7 +587,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110593.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110133.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110127.jpg" />
 </div>
 
 
@@ -506,7 +665,7 @@ Takt Op.Destiny | Такт. Опус Дестини [2021, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110109.jpg" />
 </div>
 
 
@@ -517,162 +676,6 @@ Takt Op.Destiny | Такт. Опус Дестини [2021, TV, 12 эп.] BDRip 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09291F887E09322841AA168FCE4378E13C3196FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721347   (110108) от 06.05.2024
-
-Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я оказалась злодейкой, поэтому мне нужно покорить последнего босса [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за болезни молодая девушка провела большую часть жизни в больничной палате, играя в отомэ-игры. И однажды она оказывается посреди сцены из такой игры в роли злодейки — Ирен Лорен д'Отриш. На банкете по случаю окончания зимнего семестра в Академии наследный принц и друг детства Ирен Седрик Жанна Эльмейер публично аннулирует свою помолвку с Ирен и объявляет, что (   Читать дальше...   )Производство: студия Maho FilmЖанр: комедия, фэнтезиРежиссер: Хабара КумикоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCB36D3D8C804D352910A6B4E4322E834B2A9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721356   (110106) от 06.05.2024
-
-Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110106.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе конец девятнадцатого века. Мир кишмя кишит вампирами, оборотнями и прочими существами, которых обычные люди сторонятся и ненавидят. Жизнь демоноборца Цугару Синъути круто меняется, когда по его душу приходит голова красавицы в позолоченной птичьей клетке. Ая Риндо — бессмертная, чьё тело было отнято насильно. И теперь она вместе со своей служанкой Сидзуку (   Читать дальше...   )Производство: студия Lapintrack / ラパントラックЖанр: детектив, фэнтезиРежиссер: Омата СинъитиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E6EE5D522D1BC43341E09251F27F882EB73C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722320   (109844) от 10.05.2024
-
-Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жизнь в ином мире [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший работник компании Мачио Хираку умер в 39 лет после борьбы с болезнью. Но он получил второй шанс. Его оживили, омолодили и перенесли в другой мир, где существует магия и живут эльфы, вампиры и драконы. Но перед тем как Мачио отправился в другой мир, ему позволили загадать четыре желания. Он выбрал не болеть, жить в спокойном месте, знать язык места, в которое (   Читать дальше...   )Производство: студия Zero-G / ゼロジーЖанр: повседневность, фэнтезиРежиссер: Курая РёитиПеревод: Dniwe (1-2), ItoTakashi (3-12)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC3CE598922537CA261241A3449667F6A0EBDBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722318   (109836) от 10.05.2024
-
-Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни привлекают взоры и внимание, другие — удачу и деньги, третьи — поклонников и сердца, а вот Кэйтаро Гэнтога привлекает призраков. Два года назад это привело к печальному инциденту, в котором пострадал не только сам Кэйтаро, но и его друг, случайно угодивший в этот переплёт. Страдая от чувства вины, Кэйтаро заперся в своей комнате, замкнулся в себе и перестал (   Читать дальше...   )Жанр: триллер, ужасы, драма, мистикаРежиссер: Икэхата ХиросиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские (тайминг и оформление - BeKa300)Продолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81370B6BCFBC6915586E9D6455F517856F62F200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722365   (109813) от 10.05.2024
-
-Seiken Gakuin no Maken Tsukai | The Demon Sword Master of Excalibur Academy | Мастер демонического клинка [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Князь Тьмы Леонис пробуждается от магического стазиса, в который сам себя и погрузил на тысячу лет. Однако что-то пошло не так, и теперь у него тело десятилетнего мальчика. После пробуждения он встречает девушку по имени Риселия, которая сражается с «Пустотой», существами, почти истребившими человечество. Осознав, что мир за время его стазиса сильно изменился, и (   Читать дальше...   )Производство: студия Passione / パッショーネЖанр: приключения, фэнтезиРежиссер: Морита ХироюкиПеревод: AniLibria (тайминг и оформление - BeKa300)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBA30DCAFD8309F56C4286DD4DD9ED124D37B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738035   (106462) от 20.07.2024
-
-Sokushi Cheat ga Saikyou Sugite, Isekai no Yatsura ga Marude Aite ni Naranaindesu ga. | My Instant Death Ability Is So Overpowered | Мгновенная смерть [2024, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьная поездка на автобусе вдруг заканчивается переносом в другой мир. В салон автобуса заходит девушка и раздает ученикам особые способности, заодно показав на примере учителя и водителя автобуса, что этот мир не белый и пушистый как их Япония. Однако способности получили не все. И вот уже недавние одноклассники придумали коварный план как использовать тех, кому (   Читать дальше...   )Производство: студия Okuruto Noboru / オクルトノボルЖанр: приключения, комедия, фэнтезиРежиссер: Хисида МасакадзуПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EE3727BCB7A58C51E9479404DF931386D9B714
 ```
 
 https://mybot314.ru/tekegram_catalog/

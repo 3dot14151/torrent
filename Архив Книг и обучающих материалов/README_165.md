@@ -1,3 +1,29 @@
+###  Публикация: 953153   (351417) от 03.11.2015
+
+Олег Мазурин | Убить отступника (2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351417.jpg" />
+</div>
+
+
+###  Подробнее
+
+В декабре 1825 года в Санкт–Петербурге, столице Российской империи, произошло восстание заговорщиков, которых позже назовут декабристами. Мятеж был подавлен, но, как известно, «декабристы разбудили Герцена», а тот «развернул революционную агитацию», что имело весьма существенные последствия – как для нашей страны, так и для всего мира в целом… Достаточно сказать, (   Читать дальше...   )Жанр: Историческая фантастика, Альтернативная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5FC4CE9D8FF4A90A0BA44CAA937CB27C056184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178943   (351399) от 30.10.2017
 
 Журнал | Сабрина №11 (ноябрь 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351399.jpg" />
+  <img src="Z:/picture/008/save_picture_351399.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351302.jpg" />
+  <img src="Z:/picture/008/save_picture_351302.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350991.jpg" />
+  <img src="Z:/picture/008/save_picture_350991.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350945.jpg" />
+  <img src="Z:/picture/008/save_picture_350945.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350841.jpg" />
+  <img src="Z:/picture/008/save_picture_350841.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350821.jpg" />
+  <img src="Z:/picture/008/save_picture_350821.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350733.jpg" />
+  <img src="Z:/picture/008/save_picture_350733.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350702.jpg" />
+  <img src="Z:/picture/008/save_picture_350702.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350429.jpg" />
+  <img src="Z:/picture/008/save_picture_350429.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350413.jpg" />
+  <img src="Z:/picture/008/save_picture_350413.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350023.jpg" />
+  <img src="Z:/picture/008/save_picture_350023.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349848.jpg" />
+  <img src="Z:/picture/008/save_picture_349848.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349568.jpg" />
+  <img src="Z:/picture/008/save_picture_349568.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349565.jpg" />
+  <img src="Z:/picture/008/save_picture_349565.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349440.jpg" />
+  <img src="Z:/picture/008/save_picture_349440.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349168.jpg" />
+  <img src="Z:/picture/008/save_picture_349168.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Robert Kirkman | Ходячие мертвецы / The Walking Dead [133 кни�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349026.jpg" />
+  <img src="Z:/picture/008/save_picture_349026.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348997.jpg" />
+  <img src="Z:/picture/008/save_picture_348997.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348963.jpg" />
+  <img src="Z:/picture/008/save_picture_348963.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348871.jpg" />
+  <img src="Z:/picture/008/save_picture_348871.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348865.jpg" />
+  <img src="Z:/picture/008/save_picture_348865.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348816.jpg" />
+  <img src="Z:/picture/008/save_picture_348816.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348608.jpg" />
+  <img src="Z:/picture/008/save_picture_348608.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348416.jpg" />
+  <img src="Z:/picture/008/save_picture_348416.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348228.jpg" />
+  <img src="Z:/picture/008/save_picture_348228.jpg" />
 </div>
 
 
@@ -651,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86D2D259A7D96430373A8A6B842390D3C09239E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409812   (348122) от 12.11.2011
-
-Андрей Вознесенский | Ров [1987] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Андреевич Вознесенский (1933–2010) – русский поэт, прозаик, художник, архитектор. Один из самых известных поэтов-шестидесятников.
-Вы услышите необычное чтение поэтом своих стихов, хотя по природе своей оно всегда необычно.Жанр: ПоэмаПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3474FE1F8CA4C9290CBF9427D3EDA529EEABE6DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

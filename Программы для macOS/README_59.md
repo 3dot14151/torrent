@@ -1,3 +1,134 @@
+###  Публикация: 1527121   (737361) от 27.01.2022
+
+OmniGraffle Pro 7 v7.19.4 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737361.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2000-2022 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CA81910C94B7D175A8B178E0A8908CEA7ECE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527533   (736936) от 28.01.2022
+
+Mirror for Panasonic TV 3.7.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется.
+Mirror for Panasonic позволяет отображать экран вашего Mac на любом телевизоре Panasonic Smart TV. Никаких проводов и дополнительного оборудования не требуется. Вы также можете передавать отдельные видеофайлы с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C026EDE02BCAF24A2C84DCAEF08D43D54162CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527367   (736915) от 28.01.2022
+
+Project Office Pro 9.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с вашим личным экспертом по диаграммам Ганта. Project Office - это полнофункциональное приложение для управления проектами, которое поможет вам управлять как простыми, так и сложными проектами на устройствах macOS.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC61DE8A053D78051BD64C65BC8EAF702F724B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527419   (736912) от 28.01.2022
+
+Cleaner-App Pro 8.2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cleaner-App - это приложение «все в одном», которое помогает легко освободить место на вашем Mac. Если ваш диск заполнен, у вас есть тонны дубликатов файлов или вы просто хотите посмотреть, что занимает ваше место, Cleaner-App - это идеальное решение для вас.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0AC78C541120AC48D04FABEA4C92FC20D9C9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527455   (736888) от 28.01.2022
+
+Dependency Walker 1.4.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dependency Walker — это утилита, которая сканирует любые 32-битные или 64-битные исполняемые файлы Mach-O (исполняемые, то есть dylib или kext) любых архитектур (i386, x86_64, ppc, ppc64, arm и arm64) и строит иерархическую древовидную диаграмму всех зависимых модулей. Для каждого найденного модуля в нем перечислены все функции, которые экспортируются этим модулем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.06.2015Разработчик: © 2013-2015 Little Big Monster Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED17C70049B9890AD4A0CBCBD4F85C1229AAE992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527626   (736430) от 29.01.2022
 
 Mirror for Chromecast 2.9.3 [Multi/Ru]
@@ -6,7 +137,7 @@ Mirror for Chromecast 2.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736430.jpg" />
+  <img src="Z:/picture/008/save_picture_736430.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ Acon 1.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736423.jpg" />
+  <img src="Z:/picture/008/save_picture_736423.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ Easy Screen Recorder 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736420.jpg" />
+  <img src="Z:/picture/008/save_picture_736420.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ Navicat Premium 16.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736398.jpg" />
+  <img src="Z:/picture/008/save_picture_736398.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ Nuclear 0.6.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736289.jpg" />
+  <img src="Z:/picture/008/save_picture_736289.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ Native Instruments Komplete 12 Ultimate Collector’s Edition v1.06 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736065.jpg" />
+  <img src="Z:/picture/008/save_picture_736065.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ LaunchControl 1.52.4 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735872.jpg" />
+  <img src="Z:/picture/008/save_picture_735872.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ AnyDrop 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735403.jpg" />
+  <img src="Z:/picture/005/save_picture_735403.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ RSS Button for Safari 1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735399.jpg" />
+  <img src="Z:/picture/008/save_picture_735399.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ Storyspace 3 v3.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735396.jpg" />
+  <img src="Z:/picture/008/save_picture_735396.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ Kiosc 1.13.7 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735395.jpg" />
+  <img src="Z:/picture/008/save_picture_735395.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ Mirror for Sony TV 3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735389.jpg" />
+  <img src="Z:/picture/008/save_picture_735389.jpg" />
 </div>
 
 
@@ -324,7 +455,7 @@ VoodooPad 6 v6.0.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734977.jpg" />
+  <img src="Z:/picture/008/save_picture_734977.jpg" />
 </div>
 
 
@@ -350,7 +481,7 @@ DSSW Power Manager 5.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734858.jpg" />
+  <img src="Z:/picture/008/save_picture_734858.jpg" />
 </div>
 
 
@@ -378,7 +509,7 @@ MediaHuman Youtube Downloader 3.9.9.41 (build 2807) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734770.jpg" />
+  <img src="Z:/picture/008/save_picture_734770.jpg" />
 </div>
 
 
@@ -407,7 +538,7 @@ Serial Box & SerialSeeker 2022 - 02 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734424.jpg" />
+  <img src="Z:/picture/008/save_picture_734424.jpg" />
 </div>
 
 
@@ -435,7 +566,7 @@ Winclone Pro 10 v10.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734398.jpg" />
+  <img src="Z:/picture/008/save_picture_734398.jpg" />
 </div>
 
 
@@ -462,7 +593,7 @@ Mitch for Twitch 1.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734313.jpg" />
+  <img src="Z:/picture/008/save_picture_734313.jpg" />
 </div>
 
 
@@ -488,7 +619,7 @@ Deliver 2.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734026.jpg" />
+  <img src="Z:/picture/008/save_picture_734026.jpg" />
 </div>
 
 
@@ -514,7 +645,7 @@ JetBrains PhpStorm 2020.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733690.jpg" />
+  <img src="Z:/picture/008/save_picture_733690.jpg" />
 </div>
 
 
@@ -542,7 +673,7 @@ Native Instruments Reaktor 6 v6.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_732912.jpg" />
+  <img src="Z:/picture/005/save_picture_732912.jpg" />
 </div>
 
 
@@ -554,147 +685,6 @@ Native Instruments Reaktor 6 v6.4.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00973525B0ACD0D392B2D229BBE826D9D6CF1280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283881   (732147) от 18.02.2019
-
-Bookends 13.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
-
-Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.02.2019Разработчик: Sonny SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940C58B8B6CC02DB4D14BE3D5E45FAFD2A4A3FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283745   (732143) от 18.02.2019
-
-iSoftPhone Pro 4.2.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732143.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSoftPhone - приложение представляет весьма симпатичный и функциональный VoIP-клиент для macOS. Интерфейс приложения выполнен в виде телефона. iSoftPhone обеспечивает отличное качество голосовой связи. При этом программа довольно проста в настройке, имеет встроеную адресную книгу, а так же позволяет создавать виртуальную частную телефонную сеть.
-
-Программа также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2019Разработчик: Xnet CommunicationsПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA3D60E8CA908FCD1F6F9D663CFEE94D31A37C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021707   (732100) от 30.05.2016
-
-TagNotate 1.4.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tagnotate. Инновации в аннотации.
-TagNotate просмотрщик PDF и аннотатор с уникальной возможностью присвоения тегов в аннотации - вы можете создать столько различных тегов, как вы хотите, что позволяет связать с каждой аннотацией независимо от вида информации, которые важны для вас. Выбрав один или несколько тегов, вы можете собрать вместе все аннотации, которые разделяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 мая 2016Разработчик: Tim And Gerry Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF3D3E6455D7BD1D66D0DC84A0F6B7F2971A2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127397   (732082) от 21.04.2017
-
-SkyLab Studio 2.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732082.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вдохновленный своей собственной любовью к красивому небу".
-SkyLab Studio - изменит ваше представление о небе на фотографии.
-Представьте себе  ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE526D70E66831ACDA53E1D9EF6853170943B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127388   (732070) от 21.04.2017
-
-TunesKit iBook Copy 2.1.2 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный конвертер iBook DRM. Удаление защиты без потери качества в IBOOK EPUB DRM Free. TunesKit IBook Copy является уникальным инструментом для удаления IBook DRM на рынке, TunesKit IBook Copy может легко снять защиту DRM от компании Apple …
-
-Обход защиты DRM iBook EPUB файлов.
-Не можете читать ваши EPUB файлы на других устройствах для чтения, как Amazon Kindle, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 апреля 2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CAF0C36BCF143F66141D6550A30219825E6110
 ```
 
 https://mybot314.ru/tekegram_catalog/

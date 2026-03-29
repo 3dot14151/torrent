@@ -1,3 +1,61 @@
+###  Публикация: 927569   (528684) от 13.08.2015
+
+VA - Funny and Sexy Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Hay - Back to School - Kobram's Cool Sunset Mix)
+02. Deep Rhythm Bass - Jungle Percussionist - DRB Deep Mix
+03. Gray Led - Equalixet - V6 Mix
+04. Times Groove - Vision Complete - Dephunk Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EA4D454C70A91CCEE5835AC33F6416D796B49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156143   (528500) от 06.08.2017
+
+VA - Летний Хаус Калейдоскоп Топ 50 (Соmріled bу ZеBуte) (2017) [MP3|320 Kbps] <House, Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mahmut Orhan - Game Of Thrones  3:55
+02.  ATB - The Summer (Ice & Dmirtiy Rs Remix)  5:36
+03.  Dire Straits - Sultans Of Swing (Hugo Villanoca Dub) (Stefanos Atart Edit)  5:28
+04.  Sebastian Weikum - About You  5:34(   Читать дальше...   )Жанр: House, Deep House, Nu DiscoПродолжительность: 04:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CE7F040FF2EE8046E17A4A65B058E7C5CEE9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312806   (528230) от 07.07.2019
 
 VA - Summer Night: Creaton Soft House Electro Mix (2019) [MP3|320 Kbps] <House, Electro>
@@ -6,7 +64,7 @@ VA - Summer Night: Creaton Soft House Electro Mix (2019) [MP3|320 Kbps] <House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528230.jpg" />
+  <img src="Z:/picture/008/save_picture_528230.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Empire Records - Fake 7 (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528223.jpg" />
+  <img src="Z:/picture/008/save_picture_528223.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Make Live Loud Primes (2016) [MP3|256~320 Kbps] <House, Electro House, Dirt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528192.jpg" />
+  <img src="Z:/picture/008/save_picture_528192.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Дискотека 2019 Immersion In Electronics Vol.1 [MP3|320 Kbps] <Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528164.jpg" />
+  <img src="Z:/picture/008/save_picture_528164.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Mix 100 Deep House (2016) [MP3|320 Kbps] <Deep House, Mash Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528132.jpg" />
+  <img src="Z:/picture/008/save_picture_528132.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Свежаки Radio Record Сентябрь (2016) [MP3|320 Kbps] <House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528007.jpg" />
+  <img src="Z:/picture/008/save_picture_528007.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Aural Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527725.jpg" />
+  <img src="Z:/picture/008/save_picture_527725.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Beatport Trance Pack (15.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526736.jpg" />
+  <img src="Z:/picture/008/save_picture_526736.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Beatport Trance Pack (13.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526734.jpg" />
+  <img src="Z:/picture/008/save_picture_526734.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - 200th Release Anniversary (2016) [MP3|320 Kbps] <Minimal, Deep, Funky, Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526128.jpg" />
+  <img src="Z:/picture/008/save_picture_526128.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Empire Outside 75 (2016) [MP3|225-320 Kbps] <House, New wave, Futurepop, Dr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526123.jpg" />
+  <img src="Z:/picture/008/save_picture_526123.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - 100% Ibiza - The Closing (2016) [MP3|320 Kbps] <Funky, Club, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526121.jpg" />
+  <img src="Z:/picture/008/save_picture_526121.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Traxsource Top 100 July (2016) [MP3|320 Kbps] <UK Jackin, Indie Dance, Nu D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526119.jpg" />
+  <img src="Z:/picture/008/save_picture_526119.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Cafe Del Mar - Cafe del Mar ChillWave 2 (2016) [MP3|320 Kbps] <Downtempo, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526001.jpg" />
+  <img src="Z:/picture/008/save_picture_526001.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Bolero By Trance: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525867.jpg" />
+  <img src="Z:/picture/008/save_picture_525867.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - The Whisper Of The Ocean: Classic Chillout (2017) [MP3|320 Kbps] <Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524767.jpg" />
+  <img src="Z:/picture/008/save_picture_524767.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Record Super Chart 548 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524534.jpg" />
+  <img src="Z:/picture/008/save_picture_524534.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Beach House: 130 DJ Selection Progressive Mix (2017) [MP3|320 Kbps] <Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524489.jpg" />
+  <img src="Z:/picture/008/save_picture_524489.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Cool and Sexy Deluxe Lounge: Selected Premium Lounge and Hotel Bar del Mar 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524350.jpg" />
+  <img src="Z:/picture/008/save_picture_524350.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Sambass Top 40 (Brazilian Style Drum'n'Bass) [Compiled by Zebyte] (2016) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524273.jpg" />
+  <img src="Z:/picture/008/save_picture_524273.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Осенний Хаус Калейдоскоп Топ 50 [Compiled by Zebyt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524265.jpg" />
+  <img src="Z:/picture/008/save_picture_524265.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Top 150 Deep House Tracks Vol.3 (2019) [MP3|320 Kbps] <Deep House, Club Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524223.jpg" />
+  <img src="Z:/picture/008/save_picture_524223.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Deep House Collection Vol.181 (2018) [MP3|320 Kbps] <House, Deep House, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524156.jpg" />
+  <img src="Z:/picture/008/save_picture_524156.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - The Very Best of Summer (2015) [MP3|320 кб/с]<Deep House, Chill Out>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524122.jpg" />
+  <img src="Z:/picture/008/save_picture_524122.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - The Very Best of Summer (2015) [MP3|320 кб/с]<Deep House, Chill Out>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB796675278DEC6477F5EA2B82CC2D9B25D4FB69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927886   (524063) от 14.08.2015
-
-VA - Sexy Pre Party Chill House Set (2015) [MP3|320 кб/с]<Electronic, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riverbend's Song - Miraflores
-02. 2 Steps to the Sun - Cane Garden Quartet
-03. Our Time - Soul Emphasis
-04. Can I Be - Proxy Brides(   Читать дальше...   )Жанр: Electronic, Chill HouseПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17719A2765CC0437D79B36F86C8E0EAB9452599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927857   (523934) от 14.08.2015
-
-VA - Sexy Party Ibiza - Best Deep House Beats Playlist (2015) [MP3|320 кб/с]<House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex & Chris - Deep Dream (06:21)
- 02. Alex & Chris - Rosemary (08:12)
- 03. Alex & Chris - Paradise (07:03)
- 04. Stefan Schnabel - Fashion Repo (01:35)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CF628CBF529E19CE2C0FC9D2ED3F2883E01F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,138 @@
+###  Публикация: 1120696   (801980) от 31.03.2017
+
+FocusList: daily planner & focus timer 1.0.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планировщик и таймер фокусировки на основе Timeboxing и техники Pomodoro
+FocusList - приложение, чтобы планировать день и быть более продуктивным с использованием техники Pomodoro.
+
+Вот как:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 марта 2017Разработчик: Vojtech RinikПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B3D23C6FF39CB1F5F84C78D8590018AB2D90CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120579   (801876) от 31.03.2017
+
+DjVuReader EX 1.5.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат DjVu при дословном переводе (от французского «дежа вю») означает «уже увиденное». Формат DjVu изначально разрабатывался для хранения текстов книг, журналов и прочих документов, хранить которые в виде картинок накладно из-за больших размеров файлов, а распознать достаточно трудно.
+Формат DjVu предполагает сжатие с потерями, оптимизированными под текст. Поэтому (   Читать дальше...   )Тип издания: MacOS X SoftwareРелиз состоялся: 29 марта 2017Разработчик: Vacata AGПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B58E3948FCD8030FB0E3366486F67F717662F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384772   (801766) от 21.05.2020
+
+iSMARTtrain 4.2.2 Beta 1 (build 141) [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801766.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSMARTtrain - это мощное и гибкое приложение для ведения так называемых тренировочных журналов, которое позволяет спортсменам и любителям фитнеса всех уровней получить максимум от тренировок и гонок. Это позволяет вам легко и быстро отслеживать ваши тренировки, отслеживать ваши успехи и создавать историю ваших тренировок. Вы можете вручную ввести свои данные или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Yellow Field Technologies Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B74B4E6534108702D54F79CB9AEC0582063913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506099   (801744) от 29.10.2021
+
+PhotosRevive 2.0.0 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801744.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: © NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54C4EE85CF3F9911CDCB3ADF219F40E6A87D6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506092   (801572) от 29.10.2021
+
+Runway 2 v2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Runway - элегантное приложение для UML Дизайна, которое является одновременно простым и мощным инструментом для проектирования различных диаграмм. Runway дает вам все наиболее важные функции, которые необходимы в построении диаграмм и дизайна векторных инструментов, а также простой в использовании инструмент класса Диаграмма без всякого лишнего мусора.
+Runway отлично (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Todd DitchendorfПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC154D2960980A99A43B8187B45231589A2F756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189500   (801495) от 15.01.2018
 
 CrossOver 17.0 [Multi/Ru]
@@ -6,7 +141,7 @@ CrossOver 17.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801495.jpg" />
+  <img src="Z:/picture/008/save_picture_801495.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ Sketch 66.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801483.jpg" />
+  <img src="Z:/picture/008/save_picture_801483.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ Edraw Max for Mac 8.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801454.jpg" />
+  <img src="Z:/picture/008/save_picture_801454.jpg" />
 </div>
 
 
@@ -89,7 +224,7 @@ PrivacyScan 1.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801262.jpg" />
+  <img src="Z:/picture/008/save_picture_801262.jpg" />
 </div>
 
 
@@ -118,7 +253,7 @@ Sketch 78.1 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801107.jpg" />
+  <img src="Z:/picture/008/save_picture_801107.jpg" />
 </div>
 
 
@@ -144,7 +279,7 @@ Clone X 4.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800986.jpg" />
+  <img src="Z:/picture/008/save_picture_800986.jpg" />
 </div>
 
 
@@ -170,7 +305,7 @@ IINA 1.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800592.jpg" />
+  <img src="Z:/picture/008/save_picture_800592.jpg" />
 </div>
 
 
@@ -196,7 +331,7 @@ Dropzone 3.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800515.jpg" />
+  <img src="Z:/picture/008/save_picture_800515.jpg" />
 </div>
 
 
@@ -223,7 +358,7 @@ Wi-Fi Speed Test 2.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800475.jpg" />
+  <img src="Z:/picture/008/save_picture_800475.jpg" />
 </div>
 
 
@@ -252,7 +387,7 @@ Timemator 2.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800401.jpg" />
+  <img src="Z:/picture/008/save_picture_800401.jpg" />
 </div>
 
 
@@ -278,7 +413,7 @@ Duplicate Detective 2 v1.0.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800247.jpg" />
+  <img src="Z:/picture/008/save_picture_800247.jpg" />
 </div>
 
 
@@ -305,7 +440,7 @@ Fresh 4 v4.0.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800243.jpg" />
+  <img src="Z:/picture/008/save_picture_800243.jpg" />
 </div>
 
 
@@ -332,7 +467,7 @@ Leap 4 v4.0.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800240.jpg" />
+  <img src="Z:/picture/008/save_picture_800240.jpg" />
 </div>
 
 
@@ -358,7 +493,7 @@ Yep 4 v4.0.4 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800187.jpg" />
+  <img src="Z:/picture/008/save_picture_800187.jpg" />
 </div>
 
 
@@ -386,7 +521,7 @@ Weather Guru 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800186.jpg" />
+  <img src="Z:/picture/008/save_picture_800186.jpg" />
 </div>
 
 
@@ -412,7 +547,7 @@ CheckBook Pro 2.6.22 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800178.jpg" />
+  <img src="Z:/picture/008/save_picture_800178.jpg" />
 </div>
 
 
@@ -438,7 +573,7 @@ NTI Dragon Burn 4.5.0.45 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800144.jpg" />
+  <img src="Z:/picture/008/save_picture_800144.jpg" />
 </div>
 
 
@@ -465,7 +600,7 @@ Transmission for Mac 3.00 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799910.jpg" />
+  <img src="Z:/picture/008/save_picture_799910.jpg" />
 </div>
 
 
@@ -491,7 +626,7 @@ AppGenome - create desktop app from any Website! 1.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799635.jpg" />
+  <img src="Z:/picture/008/save_picture_799635.jpg" />
 </div>
 
 
@@ -520,7 +655,7 @@ Mirror for Sony TV 1.4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799594.jpg" />
+  <img src="Z:/picture/008/save_picture_799594.jpg" />
 </div>
 
 
@@ -549,7 +684,7 @@ musicMath Touch 5.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799529.jpg" />
+  <img src="Z:/picture/008/save_picture_799529.jpg" />
 </div>
 
 
@@ -560,141 +695,6 @@ musicMath - это музыкальный инструмент, который �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:695B960C1B2600D10C98FAFA6CD3A0EE7651E197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506717   (799524) от 01.11.2021
-
-Textual 7 v7.2.1 fix [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Textual IRC Client - простой и функциональный IRC-клиент, написанный специально для Mac OS X с поддержкой сценариев, будет идеальным решением как для начинающих, так и опытных пользователей. Textual включает светлую и темную тему пользовательского интерфейса для того, чтобы соответствовать всем вкусам.
-IRC (англ. Internet Relay Chat) — протокол прикладного уровня (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.07.2021Разработчик: Codeux Software, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45F49C4B188288F0777273954D1E28DB957F864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506780   (799500) от 01.11.2021
-
-PDF Squeezer 4 v4.3.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799500.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-компрессор предназначен для сокращения размеров файлов больших PDF-документов.
-Приложение позволяет сжимать размеры PDF-документов путем сжатия изображений и удаления ненужной информации. Это позволит получить хороший компромисс между параметрами широкополосной сети, необходимым временем передачи файлов по сети и затратами на хранение цифрового контента.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2021 Daniel DienerПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B968D38C08C509017879D2327A37B404FF26484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506682   (799486) от 01.11.2021
-
-QuickRes 4.9 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя Macbook’и с дисплеями Retina появились уже достаточно давно, все равно некоторые сайты и интерфейсы в приложениях вынуждают пользователей переключаться на разрешение отличное от стандартного для Retina-дисплеев. Да и в обычной жизни, некоторым удобнее установить чуть меньшее разрешение, чтобы получить приемлемый размер шрифта и элементов интерфейса. Это не столько (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: © 2021 ThnkDevПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD80BB866644D53EB45F4FC851C8864B9EE88EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122242   (799222) от 04.04.2017
-
-QuickRes 4.4.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя Macbook’и с дисплеями Retina появились уже достаточно давно, всеравно некоторые сайты и интерфейсы в приложениях вынуждают пользователей переключаться на разрешение отличное от стандартного для Retina-дисплеев. Да и в обычной жизни, некоторым удобнее устновить чуть меньшее разрешение, чтобы получить приемлемый размер шрифта и элементов интерфейса. Это не столько (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: ThnkDevПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BDE074172B740303F642DB0E811E3B78A9B476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122198   (799202) от 04.04.2017
-
-Videoloupe for Mac 1.1.2 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Усовершенствованный мультимедийный проигрыватель с возможностью редактирования.
-Videoloupe - это видеопроигрыватель, который поможет вам получить полный контроль над воспроизведением контента и обеспечить поддержку редактирования и экспорта фильмов в другие форматы.
-
-Проигрыватель может одновременно выводить до девяти видеороликов и синхронизировать их воспроизведение, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 марта 2017Разработчик: Corduroy Code Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0956BF74068B8BD26E03E836FC4BF482AF724D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Charles de Wolff - J.S.Bach. Grote Orgelmis: Schnitger-orgel Grote - of St. Mich
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383167.jpg" />
+  <img src="Z:/picture/008/save_picture_383167.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Benny Andersson - Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382999.jpg" />
+  <img src="Z:/picture/008/save_picture_382999.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Academia Bizantina: A. Vivaldi - Il Cimento dell'Armonia e dell'Inventione op. 8
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382753.jpg" />
+  <img src="Z:/picture/008/save_picture_382753.jpg" />
 </div>
 
 
@@ -101,7 +101,7 @@ Ludovico Einaudi - Seven Days Walking (Day 7) (2019) Decca Records [FLAC|Lossles
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380785.jpg" />
+  <img src="Z:/picture/008/save_picture_380785.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Stokowski / London S. O. / Rca: Bach - Stokowski: Transcriptions / Handel: Music
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380142.jpg" />
+  <img src="Z:/picture/008/save_picture_380142.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ David Garrett - Explosive (2015) 2CD [FLAC|image+.cue]<Classical, Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379144.jpg" />
+  <img src="Z:/picture/008/save_picture_379144.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Bach - Goldberg Variations (Andras Schiff) (2005) [FLAC|image +.cue]<Classical, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377331.jpg" />
+  <img src="Z:/picture/008/save_picture_377331.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ IIlyin - EP_005 Else Lie (2020) [MP3|320 Kbps]
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376538.jpg" />
+  <img src="Z:/picture/008/save_picture_376538.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ David Garrett - Alive – My Soundtrack (2020) Deluxe Edition [MP3|320 Kbps] <Ne
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376016.jpg" />
+  <img src="Z:/picture/008/save_picture_376016.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_373315.jpg" />
+  <img src="Z:/picture/005/save_picture_373315.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371778.jpg" />
+  <img src="Z:/picture/008/save_picture_371778.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Rick Wakeman - Piano Odyssey (2018) [MP3|320 Kbps] <Modern Classical, Piano, Ins
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370267.jpg" />
+  <img src="Z:/picture/008/save_picture_370267.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Lindsey Stirling - Warmer In The Winter (2017) Target Exclusive [FLAC|Lossless|W
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369107.jpg" />
+  <img src="Z:/picture/008/save_picture_369107.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Beethoven - Piano concerto No.5, Choral Fantasy (Robert Levin, Sir J.E.Gardiner 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367889.jpg" />
+  <img src="Z:/picture/008/save_picture_367889.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Rachmaninov - Piano Concerto No.2, Etudes-Tableaux (Valery Gergiev & London Symp
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367886.jpg" />
+  <img src="Z:/picture/008/save_picture_367886.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Chopin - 24 Preludes op.28 (Orchestral Version) (2002) [FLAC|image +.cue]<Classi
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367871.jpg" />
+  <img src="Z:/picture/008/save_picture_367871.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Rachmaninov - Piano Concerto No.3, Vocalise, Prelude  (Evgeny Kissin, Seiji Ozaw
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367775.jpg" />
+  <img src="Z:/picture/008/save_picture_367775.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Anna Netrebko, Elina Garanca, Ramon Vargas, Ludovic Tezier, SWR Sinfonieorcheste
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367764.jpg" />
+  <img src="Z:/picture/008/save_picture_367764.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Schubert - Piano Works for Four Hands (Jeno Jando & Ilona Prunyi) (1994) [FLAC|i
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367556.jpg" />
+  <img src="Z:/picture/008/save_picture_367556.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Nox Arcana - Gothic (2015) [MP3|320 кб/с]<Neo-Classical, Dark Ambient, Darkwa
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367404.jpg" />
+  <img src="Z:/picture/008/save_picture_367404.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ludovico Einaudi - Elements (2015) Deluxe Edition [MP3|320 кб/с]<Modern Class
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367273.jpg" />
+  <img src="Z:/picture/008/save_picture_367273.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Andrea Bocelli - Cinema (2015) Deluxe Edition [MP3|320 кб/с]<Pop/Classical Cr
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367132.jpg" />
+  <img src="Z:/picture/008/save_picture_367132.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Piano Novel - Lumino Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classic
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366020.jpg" />
+  <img src="Z:/picture/008/save_picture_366020.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Beethoven - Complete Piano Sonatas, Kurfursten Sonatas, Sonatinas: Peter Takacs 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365595.jpg" />
+  <img src="Z:/picture/008/save_picture_365595.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363264.jpg" />
+  <img src="Z:/picture/008/save_picture_363264.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362707.jpg" />
+  <img src="Z:/picture/008/save_picture_362707.jpg" />
 </div>
 
 

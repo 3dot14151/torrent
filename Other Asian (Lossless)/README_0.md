@@ -6,7 +6,7 @@ MONACA — DRAG-ON DRAGOON 3 Original Soundtrack (2014) [FLAC|tracks] <Soundtrac
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321204.jpg" />
+  <img src="Z:/picture/008/save_picture_321204.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA — NieR Gestalt & Replicant Original Soundtrack (2010) [FLAC|tracks] <Soundt
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321044.jpg" />
+  <img src="Z:/picture/008/save_picture_321044.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Hatsune Miku Symphony 2016 Orchestra Live CD [FLAC|Lossless|image+.cue] <J-Pop, 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320101.jpg" />
+  <img src="Z:/picture/008/save_picture_320101.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Turtles - 2 albums (2003-2004) [FLAC|Lossless]<Korean,hip hop>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316984.jpg" />
+  <img src="Z:/picture/008/save_picture_316984.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ayako Ishikawa - SAKURA SYMPHONY (2016) [FLAC|Lossless|image+.cue+dvdiso] <J-Pop
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289960.jpg" />
+  <img src="Z:/picture/008/save_picture_289960.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Night Tempo - Japanese Pop Edit (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183122.jpg" />
+  <img src="Z:/picture/004/save_picture_183122.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Dasu - Nakakapagpabagabag (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5152.jpg" />
 </div>
 
 

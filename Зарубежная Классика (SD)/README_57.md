@@ -1,3 +1,83 @@
+###  Публикация: 1142995   (605527) от 04.07.2017
+
+Зеленая лошадь / La jument verte (1959) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605527.jpg" />
+</div>
+
+
+###  Подробнее
+
+1870 год, Франко-прусская война. Чтобы спасти сына, обвиненного в пособничестве партизанам, мать крестьянина вынуждена отдаться прусскому солдату. Проходят годы и крестьянин решает отомстить соседу, который выдал его пруссакам.Производство: Франция, Италия / Raimbourg, S.O.P.A.C., Socit Nouvelle des tablissements Gaumont (SNEG), Star Presse, Zebra FilmsЖанр: КомедияРежиссер: Клод Отан-ЛараАктеры: Бурвиль, Франсис Бланш, Сандра Мило, Ив Робер, Жюльен Каретт, Валери Лагранж, Мари Деа, Ги Бертиль, Мирей Перре, Жорж ВильсонПеревод: Одноголосый закадровый (В. Рутилов)Субтитры: ОтсутствуютПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8F3EC2DC196064847C7FFCF0739BD647F2DA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525908   (605131) от 22.07.2012
+
+Привидение / Призрак / Ghost (1990) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Счастливая парочка возвращается домой после вечера в театре. На тёмной аллее на них нападает грабитель… Защищаясь, Сэм погибает. Теперь он только призрак, но всё еще может помочь своей возлюбленной! Сэм-привидение узнаёт, что его смерть не была случайной, а над Молли нависла смертельная опасность! Но для Молли он теперь «человек-невидимка», которого она не видит (   Читать дальше...   )Жанр: Фэнтези, Драма, ТриллерРежиссер: Джерри ЦукерАктеры: Патрик Суэйзи, Деми Мур, Вупи Голдберг, Тони Голдуин, Рик Авилес, Винсент Скиавелли, Армелия МакКуин, Сьюзен Бресло, Брюс Джарчоу, Рик Клебер, Кристофер Дж. Кин, Мартина Дэйнан, Мака Фоули, Стэнли Лоуренс, Фил Лидс, Анджелина Эстрада, Гэйл Боггс, Том Керли, Стивен Рут, Лаура Дрэйк, Оджи Блант, Альма Белтран, Вивьен Боннель, Дж. Кристофер Салливан, Шарлотта Зукер, (   Читать дальше...   )Перевод: Профессиональный многоголосый (Киномания)Продолжительность: 02:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A513E744843C853E0B53D05242EA1AAE1AE6BFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018801   (605072) от 18.06.2018
+
+Рейд на Энтеббе / Raid on Entebbe (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма основан на реальных событиях, известных под названием «Операция Энтеббе».
+На эту тему было снято несколько фильмов, данная картина - одна из лучших.
+27 июня 1976 года самолет авиакомпании Air France, следовавший рейсом 139 по маршруту Тель-Авив-Афины-Париж, на борту которого находилось более 100 израильских пассажиров, был захвачен террористической организацией (   Читать дальше...   )Производство: США, кинокомпания «20th Century Fox»Жанр: Драма, Боевик, ИсторияРежиссер: Ирвин КершнерАктеры: Тайг Эндрюс, Аллен Эрбас, Мартин Бэлсом, Чарлз Бронсон, Питер Финч, Хорст Бучольц, Джон Сэксон, Сильвия Сидни, Джек Уорден, Яфет Котто, Эдди Константен, Уоррен Кеммерлинг, Роберт Лоджа, Дэвид Опатошу, Мариклэр Костелло, Джеймс Вудс и др.Перевод: Профессиональный многоголосый (1 канал)Продолжительность: 02:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46475AFBAB213A31C4FBF6140EA638F557EE9E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525609   (605043) от 22.07.2012
 
 Мастер и Маргарита / Il Maestro e Margherita (1972) DVDRip
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605043.jpg" />
+  <img src="Z:/picture/008/save_picture_605043.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604855.jpg" />
+  <img src="Z:/picture/008/save_picture_604855.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604775.jpg" />
+  <img src="Z:/picture/008/save_picture_604775.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604684.jpg" />
+  <img src="Z:/picture/008/save_picture_604684.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604026.jpg" />
+  <img src="Z:/picture/008/save_picture_604026.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603860.jpg" />
+  <img src="Z:/picture/008/save_picture_603860.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603803.jpg" />
+  <img src="Z:/picture/008/save_picture_603803.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603560.jpg" />
+  <img src="Z:/picture/008/save_picture_603560.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603543.jpg" />
+  <img src="Z:/picture/008/save_picture_603543.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603154.jpg" />
+  <img src="Z:/picture/008/save_picture_603154.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602915.jpg" />
+  <img src="Z:/picture/008/save_picture_602915.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602913.jpg" />
+  <img src="Z:/picture/008/save_picture_602913.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602890.jpg" />
+  <img src="Z:/picture/008/save_picture_602890.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602813.jpg" />
+  <img src="Z:/picture/008/save_picture_602813.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602705.jpg" />
+  <img src="Z:/picture/008/save_picture_602705.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602612.jpg" />
+  <img src="Z:/picture/008/save_picture_602612.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602417.jpg" />
+  <img src="Z:/picture/008/save_picture_602417.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601135.jpg" />
+  <img src="Z:/picture/008/save_picture_601135.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600972.jpg" />
+  <img src="Z:/picture/008/save_picture_600972.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600668.jpg" />
+  <img src="Z:/picture/008/save_picture_600668.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599864.jpg" />
+  <img src="Z:/picture/008/save_picture_599864.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599332.jpg" />
+  <img src="Z:/picture/008/save_picture_599332.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599293.jpg" />
+  <img src="Z:/picture/008/save_picture_599293.jpg" />
 </div>
 
 
@@ -595,86 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1E23D555C4CB7266AB3C33E7C66E6A7CB49C342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037498   (599292) от 30.07.2016
-
-Великолепная одержимость / Magnificent Obsession (1954) DVDRip [H.264] [АVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плейбой Боб Меррик попадает в аварию, катаясь на быстроходной лодке на одном из озер Калифорнии. При спасении жизни Боба гибнет местный доктор и желая сгладить свою вину Меррик посещает вдову доктора Хелен и безумно в неё влюбляется.
-Однако Меррик опять попадает в аварию, в результате которой уже Хелен теряет зрение. Преодолевая стыд  Меррик делает всё что в его силах (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: Драма, МелодрамаРежиссер: Дуглас СеркАктеры: Джейн Уаймен, Рок Хадсон, Агнес Мурхед, Отто Крюгер, Барбара Раш, Грегг Палмер, Пол Кэвэна, Сара Шэйн, Ричард Х. Каттинг, Джуди НаджентПеревод: Авторский (Ю.Медведев)Продолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD72999C34A6BF614B29AC0B67C6E094AA1B6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146205   (598145) от 12.07.2017
-
-Гигант / Giant (1956) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техасский фермер Бик Бенедикт отправляется в Мэрилэнд за призовым жеребцом. Там он встречает женщину своей мечты Лесли и женится на ней. Молодая пара возвращается на свое ранчо, где Лесли предстоит приспособиться к жизни в изменившихся условиях.
-Новая хозяйка ранчо разбивает сердце Джетта Ринка, нефтяного магната. Разгорается, и без того острое, соперничество между (   Читать дальше...   )Производство: США / Giant Productions, Warner Bros. PicturesЖанр: Драма, ВестернРежиссер: Джордж СтивенсАктеры: Элизабет Тейлор, Рок Хадсон, Джеймс Дин, Кэррол Бейкер, Джейн Уизерс, Чилл Уиллс, Мерседес МакКэмбридж, Деннис Хоппер, Сэл Минео, Род Тейлор, Джудит Эвелин, Эрл ХоллиманПеревод: Профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый)Субтитры: Русские, английскиеПродолжительность: 03:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B1BB6D791C3E5A67A1C6D4DCDDA7A23EE979E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910128   (597977) от 02.07.2015
-
-Любой ценой / Ad ogni costo (1967) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ушедший на пенсию университетский профессор, долгие годы мечтавший ограбить бриллиантовую компанию в Бразилии, при помощи своего давнего друга, ныне криминального босса, собирает команду взломщиков. Под руководством бывшего военного они выезжают в Рио.Производство: Италия, Испания, Германия (ФРГ) / Constantin Film Produktion GmbH, Coral P.C., Jolly FilmЖанр: Драма, КриминалРежиссер: Джулиано МонтальдоАктеры: Джанет Ли, Роберт Хоффманн, Клаус Кински, Риккардо Куччолла, Жорж Риго, Адольфо Чели, Эдвард Дж. Робинсон, Жуссара, Мигель дель Кастильо, Лучана АнджолиллоПеревод: Двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52462FDE3E6D9718151B4CA2B148AC17CB6796EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

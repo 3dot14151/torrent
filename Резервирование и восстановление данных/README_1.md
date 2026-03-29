@@ -1,3 +1,81 @@
+###  Публикация: 984069   (941352) от 07.02.2016
+
+Active@ File Recovery Professional 14.5.0 [En]
+
+>>След.
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Active File Recovery - одна из лучших программ для восстановления повреждённых и удалённых файлов. Программа обеспечивает восстановление данных, потерянных в результате случайного удаления, повреждения, вирусной атаки или форматирования. Может работать с файловыми системами NTFS, FAT/FAT32/exFAT, HFS+, UFS, Ext2/Ext3/Ext4/BtrFS; HDD, SSD, USB, IDE, SATA, SCSI hard (   Читать дальше...   )Язык интерфейса: Английский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49D3B5D2BA64D0F672A29A5511A4967AF69F36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984502   (938020) от 09.02.2016
+
+Starus Partition Recovery 2.5 Commercial Edition Portable by PortableAppC [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starus Partition Recovery является главным продуктом линейки программ для восстановления повреждённых разделов и утерянных данных. Уникальный алгоритм программы находит все доступные и не доступные логические разделы. Инструмент быстро и эффективно восстановит логические диски, созданные ранее и впоследствии удаленные или переформатированные в другую файловую систему. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51CE610A0423D296006A5139D009F791FC784E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094778   (927556) от 19.01.2017
+
+Wondershare Data Recovery 5.0.7.8 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare Data Recovery - мощная и простая в использовании программа, которая может восстановить удаленные, отформатированные, потерянные и недоступные данные с ПК, USB-диска, внешнего жесткого диска, мобильного телефона, цифрового фотоаппарата, Ipod, MP3/MP4-плеера и других носителей информации.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED6BE185623D289E14D653C2C89F9566E73E1C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096393   (920642) от 23.01.2017
 
 Stellar Phoenix Photo Recovery 7.0.0.0 [En]
@@ -6,7 +84,7 @@ Stellar Phoenix Photo Recovery 7.0.0.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920642.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Ontrack EasyRecovery Enterprise 11.5.0.2 Portable by PortableAppZ [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919992.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Stellar Phoenix Photo Recovery 7.0.0.0 RePack by tolyan76 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919027.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ Starus Office Recovery 2.3 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915022.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Hetman Excel Recovery 2.3 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914896.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Starus FAT Recovery 2.5 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914883.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Starus Excel Recovery 2.3 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914881.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Hetman Office Recovery 2.3 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914877.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Starus Word Recovery 2.3 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914806.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Starus NTFS Recovery 2.5 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914805.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Starus File Recovery 3.8 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914791.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Starus Photo Recovery 4.4 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914733.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Hetman Uneraser 3.8 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914727.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Starus Partition Recovery 2.5 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914599.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Hetman Photo Recovery 4.8 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913682.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ ObjectRescue Pro 6.14 Build 1042 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900516.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Active@ UNDELETE Professional 11.0.11 RePack by WYLEK [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895451.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885130.jpg" />
+  <img src="Z:/picture/005/save_picture_885130.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Iperius Backup Full 7.0.4 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884688.jpg" />
+  <img src="Z:/picture/005/save_picture_884688.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Hetman Data Recovery Pack 2.4 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874503.jpg" />
+  <img src="Z:/picture/005/save_picture_874503.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Magic NTFS Recovery 2.6 Home Edition / Office Edition / Commercial Edition [Mult
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872627.jpg" />
+  <img src="Z:/picture/008/save_picture_872627.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ O&O DiskRecovery Pro, Admin, Tech Edition 14.1 build 145 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859969.jpg" />
+  <img src="Z:/picture/008/save_picture_859969.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Comfy Partition Recovery 2.6 Home Edition/Office Edition/Commercial Edition [Mul
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835922.jpg" />
+  <img src="Z:/picture/008/save_picture_835922.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ USB флешек после любых действий, которые прив
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBBF60F081A8C7EC3AFAEF8898016952BDD872DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196447   (823732) от 02.01.2018
-
-Tenorshare Android Data Recovery 5.1.0.0 RePack by вовава [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tenorshare Android Data Recovery - мировой лидер по восстановлению данных из ОС Android. Программа была специально создана для восстановления контактов, сообщений, истории звонков, фотографий и видео из любых устройств Android, смартфонов или планшетов: Samsung, HTC One, Nexus 10 и др., в случае удаления, сбрасывания до заводских настроек, сброса памяти только-для-чтения, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2E6CA2DEB1D8BB09CBEAE66BA085F7BBA6446B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008641   (814817) от 18.04.2016
-
-Acronis True Image 2016 19.0.6559 + Universal Restore [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B76D39D35F7B7C57FD81EABF04E6B07BA35F212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119337   (808667) от 27.03.2017
-
-Stellar Phoenix Photo Recovery 7.0.0.0 RePack by 78Sergey [Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stellar Phoenix Photo Recovery - это надежный продукт для восстановления фотографий и изображений, музыки и видеофайлов, потерянных после случайного удаления или форматирования с различных устройств хранения данных, цифровых камер, карт памяти и т. Д. Возможность поиска удалённых, недоступных или отсутствующих данных в файловой системе FAT, ExFAT, и NTFS. Это компетентное (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533B618275FD8B2E468214228D0B7653238C56AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

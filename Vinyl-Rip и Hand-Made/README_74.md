@@ -1,3 +1,235 @@
+###  Публикация: 1719892   (110483) от 01.05.2024
+
+Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Pagan/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moonsorrow — финская фолк/викинг/блэк-метал-группа, основанная в 1995 году.2001 - Suden Uni
+2001 - Voimasta Ja Kunniasta
+2003 - Kivenkantaja
+2005 - VerisakeetЖанр: Folk/Pagan/Black MetalПродолжительность: 08:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719825   (110454) от 01.05.2024
+
+U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110454.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tongue Reaper
+A2 Make The Move
+A3 Keeper Of My Soul
+A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720249   (110392) от 02.05.2024
+
+Pagan's Mind - Studio Albums (6 releases) (2000-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pagan's Mind — прогрессив-пауэр-метал-группа из Шиена, Норвегия, образованная в 2000 году Нильсом К. Рю, Стианом Кристофферсеном и Торстейном Ааби.2000 - Infinity Divine
+2002 - Celestial Entrance
+2004 - Infinity Divine (Re-recorded, Remastered)
+2005 - Enigmatic Calling(   Читать дальше...   )Жанр: Progressive/Power MetalПродолжительность: 06:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720081   (110386) от 02.05.2024
+
+Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110386.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Time Of My Life (Extended Mix)
+B1 Slow Dancing
+B2 Mr.Manic And Sister Cool (Coolest Cuts)
+(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720538   (110246) от 04.05.2024
+
+U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110246.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Pandemonium
+A2 We Are One
+A3 Love And Sin
+A4 Future Is The Reason Why(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86529A13DDBC643461F0CB523B436A114F32D560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720697   (110228) от 04.05.2024
+
+Mekong Delta - Studio Albums (6 releases) (1996-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mekong Delta — немецкая группа, играющая прогрессивный трэш-метал, образованная в середине 80-х годов из участников других групп. Некоторые имена, использованные в их релизах, были псевдонимами, чтобы защитить их настоящую личность. Основатель группы - владелец звукозаписывающей компании AAAARRG, басист Ральф Хуберт, он же «Бьёрн Эклунд». Остальные музыканты пришли (   Читать дальше...   )1996 - Pictures At An Exhibition
+2007 - Lurking Fear
+2010 - Wanderer On The Edge Of Time
+2012 - IntersectionsЖанр: Progressive Thrash MetalПродолжительность: 05:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44AE7492408E445D7280CF7B12FBDC01224062A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720542   (110218) от 04.05.2024
+
+U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110218.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fear Detector
+A2 Holy Invaders
+A3 Prophecy
+A4 Empty Eyes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B65DBAAD63F95508154A788EC552207CBC2A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720647   (110212) от 04.05.2024
+
+Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110212.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Win Your Love
+A2 Open The Door To Your Heart
+A3 Nobody Else
+A4 Into The Night(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899AA2E0691E2EE87FCD1B0B268DC648237D016C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721475   (110038) от 07.05.2024
 
 Broken Homes - Broken Homes (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Power Pop>
@@ -6,7 +238,7 @@ Broken Homes - Broken Homes (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110038.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Nancy Martinez - Not Just The Girl Next Door (1987) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109902.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Foo Fighters - Studio Albums (12 releases) (1995-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109791.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109702.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ VA - Metal Massacre (1982) Reissue, 1984, Metal Blade Records [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109682.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Sinner - Studio Albums (12 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109676.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109455.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ VA - Metal Massacre 02 (1982) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Glam
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109425.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ VA - Metal Massacre 03 (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109393.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ VA - Metal Massacre 04 (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109391.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Cocteau Twins - Treasure (1984) [FLAC 2.0|24/192|tracks|Vinyl-Rip|image + .cue] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109343.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Orchestre Mario Cavallero - Hit Parade Chante - Pop Hits - Vol. 6 (1973) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109336.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109331.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109196.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109179.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109174.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109155.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Exhorder - Studio Albums (4 releases) (1990-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109040.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Exhorder — американская метал-группа образован
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668C15937FE087A799B38D6CE08753D4727B6E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725361   (108990) от 24.05.2024
-
-Hit Hits - 12 Top Hits Superbly Recorded. Anonymous cover versions of current hits (1969) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Pop, Sound-alike>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108990.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lily The Pink
-A2 Dream A Little Dream Of Me
-A3 Birthday
-A4 A Minute Of Your Time(   Читать дальше...   )Жанр: Pop, Sound-alikeПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87697D718378201E8898F829A22DB47E0EAD4974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725646   (108917) от 25.05.2024
-
-Municipal Waste - Studio Albums (9 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Municipal Waste — кроссовер-трэш-группа из Ричмонда, Вирджиния, основана в 2001 году.2003 - Waste 'Em All
-2005 - Hazardous Mutation
-2007 - The Art of Partying
-2009 - Massive AggressiveЖанр: Thrash Metal/CrossoverПродолжительность: 03:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA737E179C9A6F8932A72CC8956D44374A9A614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725976   (108841) от 26.05.2024
-
-Arrayan Path (Ex-Arryan Path) - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arrayan Path (ранее Arryan Path) — проект певца и автора песен Николаса Лептоса, который объединился в 1997 году с гитаристом Клементом Фунгом при поддержке на протяжении многих лет брата Николаса - Сократа Лептоса2004 - Road To Macedonia
-2010 - Terra Incognita
-2011 - Ira Imperium
-2013 - IV - StigmataЖанр: Epic Power MetalПродолжительность: 09:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DAF4E9EF2F2CF14A41AB9D6E9E96B4DF6F1EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726021   (108796) от 27.05.2024
-
-VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Speed Metal, Heavy Metal, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108796.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Heretic - Impulse
-A2 - Sentinel Beast - Sentinel Beast
-A3 - Flotsam And Jetsam - I Live, You Die
-A4 - Krank - Rented Heat(   Читать дальше...   )Жанр: Thrash, Speed Metal, Heavy Metal, HardcoreПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9002D80ECC9982273D32EE09C88DE0632ED5102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726271   (108789) от 27.05.2024
-
-VA - Metal Massacre 08 (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108789.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Sacred Reich - Ignorance
-A2 - Viking - Hellbound
-A3 - Overlorde - Keeper Of The Flame
-A4 - Fatal Violence - Violence Is Golden(   Читать дальше...   )Жанр: Heavy Metal, ThrashПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36F4B727F418FDC3BC9C4B9D35C444900863152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726066   (108774) от 27.05.2024
-
-Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108774.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 If I Had A Boat
-A2 Give Me Back My Heart
-A3 I Loved You Yesterday
-A4 Walk Through The Bottomland(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED76F9235E230ED312C6C4DC38FDC9C8C0E3A27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726511   (108754) от 28.05.2024
-
-VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108754.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Banshee - We Want You
-A2 - Oliver Magnum - Old World Nites
-A3 - Toxik - Wasteland
-A4 - Dissenter - Blood Under Heaven(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DABCD965CE38B96A0D5832E146B763619C5EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726757   (108664) от 30.05.2024
-
-Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Electro, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108664.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bataillon D'Amour
-A2 Josef & Maria
-A3 Schlohweisser Tag
-A4 EKG(   Читать дальше...   )Жанр: Pop Rock, Electro, New WaveПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150177370F96B72B4AE71AE725FB293B084562DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

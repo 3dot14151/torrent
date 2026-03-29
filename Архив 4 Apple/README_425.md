@@ -1,3 +1,109 @@
+###  Публикация: 1577600   (354301) от 19.09.2022
+
+Elmedia Player Pro 8.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2022Разработчик: © 2022 Eltima LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69980AFF60BA887651C407D07D3E83311B15E843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256186   (354267) от 22.10.2018
+
+Audio Hijack 3.5.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7066226D94ECED8030ED3F031BBBE8795B28881B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256175   (354139) от 22.10.2018
+
+Movavi Video Editor 15 Business v15.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354139.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Movavi Видеоредактором Бизнес вы сможете легко создавать качественные ролики для своего бизнеса: инструкции, рекламные клипы, презентации программ, ролики для видеоблога и многое другое. Красивые и понятные видео заинтересуют ваших клиентов и принесут дополнительный доход. Фирменный ролик с логотипом и контактной информацией поможет продвинуть бренд. Загрузка видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F5701E0959728F449BD4D1F42B0EAAA14B32B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256569   (354021) от 22.10.2018
+
+Movavi Video Editor 15.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем простую и удобную программу для обработки видео на Mac – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий. Просто загрузите фото и видео в программу, исправьте качество одним нажатием кнопки, добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: MovaviПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534F4FEFF80595052DC761BFE45AB8B10FAF76C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577723   (353906) от 19.09.2022
 
 Microsoft Office 2021 for Mac LTSC v16.65 VL [Multi/Ru]
@@ -6,7 +112,7 @@ Microsoft Office 2021 for Mac LTSC v16.65 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353906.jpg" />
+  <img src="Z:/picture/008/save_picture_353906.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ Elmedia Video Player Pro 6.8 (1105) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353822.jpg" />
+  <img src="Z:/picture/008/save_picture_353822.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ Swinsian 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353688.jpg" />
+  <img src="Z:/picture/008/save_picture_353688.jpg" />
 </div>
 
 
@@ -91,7 +197,7 @@ Cardhop 1.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353687.jpg" />
+  <img src="Z:/picture/008/save_picture_353687.jpg" />
 </div>
 
 
@@ -119,7 +225,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353684.jpg" />
+  <img src="Z:/picture/008/save_picture_353684.jpg" />
 </div>
 
 
@@ -147,7 +253,7 @@ Nova 2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353683.jpg" />
+  <img src="Z:/picture/008/save_picture_353683.jpg" />
 </div>
 
 
@@ -174,7 +280,7 @@ Noise Machine 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353682.jpg" />
+  <img src="Z:/picture/008/save_picture_353682.jpg" />
 </div>
 
 
@@ -200,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353545.jpg" />
+  <img src="Z:/picture/008/save_picture_353545.jpg" />
 </div>
 
 
@@ -226,7 +332,7 @@ TablePlus 3.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353533.jpg" />
+  <img src="Z:/picture/008/save_picture_353533.jpg" />
 </div>
 
 
@@ -253,7 +359,7 @@ Rhinoceros 6 v6.30.20288 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353509.jpg" />
+  <img src="Z:/picture/008/save_picture_353509.jpg" />
 </div>
 
 
@@ -281,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353317.jpg" />
+  <img src="Z:/picture/008/save_picture_353317.jpg" />
 </div>
 
 
@@ -307,7 +413,7 @@ Movavi Video Converter 21 Premium 21.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353118.jpg" />
+  <img src="Z:/picture/008/save_picture_353118.jpg" />
 </div>
 
 
@@ -333,7 +439,7 @@ Adobe Character Animator CC 2018 v1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352993.jpg" />
+  <img src="Z:/picture/008/save_picture_352993.jpg" />
 </div>
 
 
@@ -361,7 +467,7 @@ Ableton Live Suite 9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352885.jpg" />
+  <img src="Z:/picture/008/save_picture_352885.jpg" />
 </div>
 
 
@@ -389,7 +495,7 @@ Mp3tag 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352559.jpg" />
+  <img src="Z:/picture/008/save_picture_352559.jpg" />
 </div>
 
 
@@ -415,7 +521,7 @@ Downcast 2.11.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352551.jpg" />
+  <img src="Z:/picture/008/save_picture_352551.jpg" />
 </div>
 
 
@@ -442,7 +548,7 @@ Later - Create Quick Reminders With Presets 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352497.jpg" />
+  <img src="Z:/picture/008/save_picture_352497.jpg" />
 </div>
 
 
@@ -471,7 +577,7 @@ WidsMob Montage 2.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352457.jpg" />
+  <img src="Z:/picture/008/save_picture_352457.jpg" />
 </div>
 
 
@@ -498,7 +604,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352453.jpg" />
+  <img src="Z:/picture/008/save_picture_352453.jpg" />
 </div>
 
 
@@ -525,7 +631,7 @@ Mp3tag 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352440.jpg" />
+  <img src="Z:/picture/008/save_picture_352440.jpg" />
 </div>
 
 
@@ -551,7 +657,7 @@ Transfer 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352439.jpg" />
+  <img src="Z:/picture/008/save_picture_352439.jpg" />
 </div>
 
 
@@ -577,7 +683,7 @@ SILKYPIX JPEG Photography 11 v.11.2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352438.jpg" />
+  <img src="Z:/picture/008/save_picture_352438.jpg" />
 </div>
 
 
@@ -588,112 +694,6 @@ SILKYPIX JPEG Photography 11 v.11.2.6.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B6248A74C7B623A48204772C8C2A23E5B22CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577856   (352432) от 20.09.2022
-
-Clipboard Manager 2.3.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер истории буфера обмена для Mac.
-Сохраняет все, что вы копируете для последующего использования.
-Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2016-2022 Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E98EAE6A24B39A25ABA0261306C83BB1CB4C61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577883   (352322) от 20.09.2022
-
-SILKYPIX Developer Studio Pro 11 v.11.0.6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352322.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2022, Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9166C5D8EE3B7F3F66A65A31654F28702680D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577864   (352317) от 20.09.2022
-
-SponsorBlock for YouTube 5.0.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352317.jpg" />
-</div>
-
-
-###  Подробнее
-
-SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2022Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656547B0C9270AA2F69EAE2B66C89F51FAC09F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577859   (352315) от 20.09.2022
-
-rcmd • App Switcher 2.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переосмысленная вкладка Command. Мы переосмыслили Command-Tab, чтобы переключать приложения без суеты.Тип издания: macOS SoftwareРелиз состоялся: 19.09.2022Разработчик: © 2022 The low-tech guysПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E2076171E9272F5F92A9A9212605917856406E
 ```
 
 https://mybot314.ru/tekegram_catalog/

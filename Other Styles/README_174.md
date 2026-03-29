@@ -1,3 +1,61 @@
+###  Публикация: 1766079   (33958) от 16.12.2024
+
+Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And Winter Came... (3:15)
+02. Journey of the Angels (4:47)
+03. White Is in the Winter Night (3:00)
+04. O Come, O Come, Emmanuel (3:40)(   Читать дальше...   )Жанр: Celtic New AgeПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF992A38D6CE714A62F16A8C0FC21A7AA1E9861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649845   (33472) от 21.12.2024
+
+Владимир Косма / Vladimir Cosma - Soleil (1997) [MP3|256 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33472.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Soleil (6:06)
+2. Sarah Et Meyer (2:28)
+3. Les Roses De Blida (3:30)
+4. Maman Titine (01:44)(   Читать дальше...   )Производство: ФранцияЖанр: SoundtrackПродолжительность: 00:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE4B52B176CDE3055AF726EA02F83F01C3AE107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768945   (32932) от 26.12.2024
 
 Autogenic Training Channel - Ayurveda Music (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ Autogenic Training Channel - Ayurveda Music (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32932.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ John Sokoloff - Дискография (1993-2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32240.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32031.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31975.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31954.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31951.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31934.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31903.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31845.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31567.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Only the Best Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31566.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31364.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Volker Bertelmann - The Day of the Jackal (Original Series Soundtrack) (2024) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30868.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Armik - Gitano Amor (2025) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29923.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Angelo Badalamenti – Music From Twin Peaks (1990) [FLAC|Lossless|tracks + .cue
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29793.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28900.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Deep Forest - Live Machine (2025) [MP3|320 Kbps] <Ambient, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28780.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Jean-Michel Jarre - Musik Aus Zeit Und Raum (1983) Reissue, 1984, Polydor [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28261.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28238.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Emmanuelle - Instrumental Collection (2004) [FLAC|Lossless|image + .cue] <E
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28023.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27316.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27292.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27290.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Henryk Kuzniak - Vabank & Seksmisja / Ва-банк & Сексмиссия (1998
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24764.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Henryk Kuzniak - Vabank & Seksmisja / Ва-банк & Сексмиссия (1998
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86A0D7C547F762F334A8264CF5B4192AB87ABE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641578   (23574) от 25.03.2025
-
-Школа Духовной Музыки Горы Ливан - Божественная Византийская Литургия Антиохийской Святой Церкви (2002) [MP3|320 кб/с]<Церковная музыка>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23574.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Great Litany[07:47]
-2. The First Antiphon[01:18]
-3. The Little Litany[01:39]
-4. The Second Antiphon[02:58](   Читать дальше...   )Жанр: Церковная музыкаПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F4248177AD04003726524D73DD6668CAFAAA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789648   (21667) от 12.04.2025
-
-ДиДюЛя - Seasons (2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <New Age, Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Апрель [00:02:08]
-01. Seasons [00:03:47]
-03. Мирская свеча [00:03:17]
-04. Картинки детства [00:04:06](   Читать дальше...   )Жанр: New Age, FlamencoПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40219F78221D5D69756578E76038F3997FE77854
 ```
 
 https://mybot314.ru/tekegram_catalog/

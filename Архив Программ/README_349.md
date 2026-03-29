@@ -6,7 +6,7 @@ WinContig 2.0.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873553.jpg" />
+  <img src="Z:/picture/008/save_picture_873553.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVG Internet Security 2016 16.51.7497 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873447.jpg" />
+  <img src="Z:/picture/008/save_picture_873447.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.01 Build 1703 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873419.jpg" />
+  <img src="Z:/picture/008/save_picture_873419.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Driver Magician 4.81 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873294.jpg" />
+  <img src="Z:/picture/008/save_picture_873294.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Avira Antivirus Free 15.0.16.282 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873273.jpg" />
+  <img src="Z:/picture/008/save_picture_873273.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ QTranslate 6.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873218.jpg" />
+  <img src="Z:/picture/008/save_picture_873218.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mp3tag 3.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873192.jpg" />
+  <img src="Z:/picture/008/save_picture_873192.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tor Browser Bundle 5.5.4 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873092.jpg" />
+  <img src="Z:/picture/008/save_picture_873092.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Light Alloy 4.9.3 Build 2538 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873037.jpg" />
+  <img src="Z:/picture/008/save_picture_873037.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Edge 93.0.961.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873018.jpg" />
+  <img src="Z:/picture/008/save_picture_873018.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mozilla Thunderbird 91.1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873017.jpg" />
+  <img src="Z:/picture/008/save_picture_873017.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Balabolka 2.15.0.800 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873015.jpg" />
+  <img src="Z:/picture/008/save_picture_873015.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6745.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872969.jpg" />
+  <img src="Z:/picture/008/save_picture_872969.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Office 2007 Standard SP3 12.0.6745.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872959.jpg" />
+  <img src="Z:/picture/008/save_picture_872959.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Altium Designer 16.0.8 (Build 354) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872953.jpg" />
+  <img src="Z:/picture/008/save_picture_872953.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Theme-Pack 1k / сборник тем для Windows XP (29.03.10) [wadimus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_872904.jpg" />
+  <img src="Z:/picture/009/save_picture_872904.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ MKVToolNix 9.9.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872882.jpg" />
+  <img src="Z:/picture/008/save_picture_872882.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Nox App Player 3.8.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872871.jpg" />
+  <img src="Z:/picture/008/save_picture_872871.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ISO Workshop Free 10.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872854.jpg" />
+  <img src="Z:/picture/008/save_picture_872854.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ XYplorer 20.90.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872836.jpg" />
+  <img src="Z:/picture/008/save_picture_872836.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ WinSnap 5.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872829.jpg" />
+  <img src="Z:/picture/008/save_picture_872829.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Tipard Video Converter Ultimate 10.0.16 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872826.jpg" />
+  <img src="Z:/picture/008/save_picture_872826.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ IObit Driver Booster Pro 3.2.0.698 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872800.jpg" />
+  <img src="Z:/picture/008/save_picture_872800.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Core Temp 1.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872727.jpg" />
+  <img src="Z:/picture/008/save_picture_872727.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ LibreOffice 7.2.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872720.jpg" />
+  <img src="Z:/picture/008/save_picture_872720.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Any Video Converter Ultimate 6.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872719.jpg" />
+  <img src="Z:/picture/008/save_picture_872719.jpg" />
 </div>
 
 

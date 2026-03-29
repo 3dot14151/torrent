@@ -1,3 +1,90 @@
+###  Публикация: 1039159   (598190) от 31.07.2016
+
+Aeternam - Disciples of the Unseen (2010) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Almadel 01:51
+02. Angel Horned 03:15
+03. Esoteric Formulae 04:20
+04. The Coronation of Seth 05:16(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB63E027DC3088BACB7C44ABA3332F5374303864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039160   (598180) от 31.07.2016
+
+Deicide - Deny The Cross (1992) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead But Dreaming
+02. Oblivious To Evil
+03. Satan Spawn, The Caco-Daemon
+04. Dead By Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61FCC44BF6248FD2712E2DA636AA2C2C19BDC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038904   (598066) от 31.07.2016
+
+The Great Kat - Rossini's Rape (2000) EP [APE|Lossless|image + .cue] <Thrash Metal, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rossini's "William Tell Overture" for Symphony Orchestra & Band 01:53
+2. Sodomize 01:40
+3. Castration 01:12
+4. Bazzini's "The Road of the Goblins" for Violin, Piano & Band 01:35Жанр: Thrash Metal, ShredПродолжительность: 0:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1BE8E14493AD6E62AB41A83281E61B18F98188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548456   (597910) от 03.05.2022
 
 Nuiterra - ...in the Dark (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -6,7 +93,7 @@ Nuiterra - ...in the Dark (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597910.jpg" />
+  <img src="Z:/picture/008/save_picture_597910.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Tarja - Luna Park Ride (2015) 2CD [FLAC|image+.cue]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597733.jpg" />
+  <img src="Z:/picture/008/save_picture_597733.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ ReinXeed - Welcome To The Theater (2012) [FLAC|Lossless]<Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597651.jpg" />
+  <img src="Z:/picture/005/save_picture_597651.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ Green Hog Band - Crypt of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596279.jpg" />
+  <img src="Z:/picture/008/save_picture_596279.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Mors Principium Est - Liberate The Unborn Inhumanity (2022) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596273.jpg" />
+  <img src="Z:/picture/008/save_picture_596273.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Agathodaimon - The Seven (2022) [FLAC|Lossless|image + .cue] <Melodic Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595104.jpg" />
+  <img src="Z:/picture/008/save_picture_595104.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Woorms - Slake (2022) [FLAC|Lossless|image + .cue] <Sludge Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595103.jpg" />
+  <img src="Z:/picture/008/save_picture_595103.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ Metalwings - Fallen Angel In The Hell (2016) EP [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595012.jpg" />
+  <img src="Z:/picture/008/save_picture_595012.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Myrath - Shehili (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594966.jpg" />
+  <img src="Z:/picture/008/save_picture_594966.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Embraced - Within (2001) Japan [FLAC|Lossless|image + .cue] <Melodic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594797.jpg" />
+  <img src="Z:/picture/008/save_picture_594797.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Hangar - Stronger Than Ever (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594703.jpg" />
+  <img src="Z:/picture/008/save_picture_594703.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Evan - Blue Lightning (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594692.jpg" />
+  <img src="Z:/picture/008/save_picture_594692.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Vivaldi Metal Project - The Four Seasons (2016) Japanese Edition [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594506.jpg" />
+  <img src="Z:/picture/008/save_picture_594506.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Salamandra - Opus Bohemica (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593965.jpg" />
+  <img src="Z:/picture/008/save_picture_593965.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Sabaton - The Symphony To End All Wars (2022) Symphonic Version [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593894.jpg" />
+  <img src="Z:/picture/008/save_picture_593894.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ Mark Morton - Anesthetic (2019) [FLAC|Lossless|tracks + .cue] <Groove Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593883.jpg" />
+  <img src="Z:/picture/008/save_picture_593883.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Holy Blood - Волны Танцуют (2004) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593653.jpg" />
+  <img src="Z:/picture/008/save_picture_593653.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Joe Stump - Revenge of the Shredlord (2012) [FLAC|Lossless|image + .cue] <Neocla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593584.jpg" />
+  <img src="Z:/picture/008/save_picture_593584.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Citizen Anomaly - The Paradoxic Project (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592966.jpg" />
+  <img src="Z:/picture/008/save_picture_592966.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Held Hostage - Great American Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592933.jpg" />
+  <img src="Z:/picture/008/save_picture_592933.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Steelgods - Olitizack (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592932.jpg" />
+  <img src="Z:/picture/008/save_picture_592932.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Manowar - Into Glory Ride (1983) Imperial Edition MMXIX, 2019 [WV|lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592769.jpg" />
+  <img src="Z:/picture/008/save_picture_592769.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ Manowar - Hail To England (1984) Imperial Edition MMXIX, 2019 [WV|lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592758.jpg" />
+  <img src="Z:/picture/008/save_picture_592758.jpg" />
 </div>
 
 
@@ -664,93 +751,6 @@ Manowar - Hail To England (1984) Imperial Edition MMXIX, 2019 [WV|lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:120389A180A4FDB48AE8D751AFEB6BF43F1B7BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300650   (592747) от 07.05.2019
-
-Manowar - The Final Battle I (2019) EP [WV|lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Heroes Into Valhalla (02:39)
-02. Blood And Steel (04:42)
-03. Sword Of The Highlands (05:59)
-04. You Shall Die Before I Die (06:08)Жанр: Heavy MetalПродолжительность: 00:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8E57552AB4022393C5FEDF9B2C003ACCE58026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549724   (592638) от 09.05.2022
-
-Mike LePond's Silent Assassins - Whore Of Babylon (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dracul Son 03:54
-02. Ides of March 04:45
-03. Tell Tale Heart 06:13
-04. Night of the Long Knives 06:06(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1566E1EA19A4FED6F6CAD3820012695F8E5E2458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550069   (592536) от 10.05.2022
-
-Múcaro (Mucaro) - Jinete del Sur (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cibucan (00:07:45)
-02 - El Hombre del Jardin en la Espalda (00:07:20)
-03 - Daca (00:05:32)
-04 - Descartes (00:07:25)(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A772EDD783509BFD1B47CE0657402062736D24B
 ```
 
 https://mybot314.ru/tekegram_catalog/

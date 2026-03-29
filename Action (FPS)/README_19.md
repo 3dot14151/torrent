@@ -1,3 +1,107 @@
+###  Публикация: 1230593   (613540) от 13.06.2018
+
+Prey - Mooncrash (2018) [Ru] (1.0.1.0) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит сбежать с секретной лунной базы «Транстар». Шансы не в вашу пользу — к тому же при каждом новом прохождении опасности, с которыми вам придется столкнуться, задачи, которые предстоит выполнить, и предметы, увеличивающие ваши шансы на выживание, будут другими.Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15C5FB0261F39FF7490C2AB996B7AD67EC28DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228383   (611930) от 14.06.2018
+
+Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0/upd1) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611930.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Downward Spiral: Horus Station, где акцент сделан на графическое развитие сюжета, игрок попадет на корабль, покинутый экипажем. Играть можно в одиночку или вдвоем в режиме сетевой совместной игры. Игрокам придется восстановить сюжет по кусочкам, наблюдая и интерпретируя происходящее на заброшенной космической станции. Атмосферное действие сопровождается электронной (   Читать дальше...   )Тип издания: LicenseРазработчик: 3rd Eye StudiosЖанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62749030D5D5CACD1C5484FAED5B222A52462FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932169   (611377) от 25.07.2016
+
+Sniper: Ghost Warrior (2010) [Ru] (1.3) Repack =nemos= [Gold Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Государственный переворот в небольшом островном государстве грозит обернуться мировым кризисом. Местные военные открыли шахту по добыче урана и готовы передать его в руки международных террористов. Правительство США, озабоченное происходящим, отправляет в опасный район специалиста по скрытному решению проблем.Тип издания: RepackРазработчик: City InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C3A0C4677E96BC13D71AF1549108A3C44390E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287165   (611368) от 17.04.2019
+
+The Occupation (2019) [Ru/Multi] (1.3) License RELOADED
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611368.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Occupation — это захватывающий триллер от первого лица с элементами симулятора детектива, в котором вы отправитесь прямиком в 24 октября 1987 г., на северо-запад Англии.  Вы — журналист в изменчивом реалистичном мире, в котором люди реагируют на каждое ваше действие, а время, становится злейшим врагом.Тип издания: LicenseРазработчик: White Paper GamesЖанр: Adventure (Detective), Stealth, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999CD5F4BDE1DA232481940E01A0873C76BB7F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296746   (609781) от 18.04.2019
 
 Call of Duty 4: Modern Warfare (2007) [Ru] (1.7) Repack xatab
@@ -6,7 +110,7 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609781.jpg" />
+  <img src="Z:/picture/008/save_picture_609781.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609065.jpg" />
+  <img src="Z:/picture/008/save_picture_609065.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Lust for Darkness (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608309.jpg" />
+  <img src="Z:/picture/008/save_picture_608309.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606650.jpg" />
+  <img src="Z:/picture/008/save_picture_606650.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605140.jpg" />
+  <img src="Z:/picture/008/save_picture_605140.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_605137.jpg" />
+  <img src="Z:/picture/005/save_picture_605137.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604461.jpg" />
+  <img src="Z:/picture/008/save_picture_604461.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Duke Nukem Forever (2011) [Ru/Multi] (1.0.244/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603250.jpg" />
+  <img src="Z:/picture/008/save_picture_603250.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Inner Voices (2017) [Ru/Multi] (20170704) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602347.jpg" />
+  <img src="Z:/picture/008/save_picture_602347.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Half-Life 2 Anthology (2004-2007) [Ru/En] (1.0) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602058.jpg" />
+  <img src="Z:/picture/008/save_picture_602058.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Labyrinth Escape (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600830.jpg" />
+  <img src="Z:/picture/008/save_picture_600830.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597717.jpg" />
+  <img src="Z:/picture/008/save_picture_597717.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Crysis 2 Maximum Edition [Ru/En/Multi9] (Steam-Rip/1.9) 2011 | R.G. Киноза
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596704.jpg" />
+  <img src="Z:/picture/008/save_picture_596704.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Whispers (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595546.jpg" />
+  <img src="Z:/picture/008/save_picture_595546.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Crysis 3 (2013) [Ru] (1.3/dlc) Rip Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594669.jpg" />
+  <img src="Z:/picture/008/save_picture_594669.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Sublevel Zero Redux (2015) [Ru/Multi] (1.2.9875/13429) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593723.jpg" />
+  <img src="Z:/picture/008/save_picture_593723.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584913.jpg" />
+  <img src="Z:/picture/008/save_picture_584913.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584148.jpg" />
+  <img src="Z:/picture/008/save_picture_584148.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581219.jpg" />
+  <img src="Z:/picture/008/save_picture_581219.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (1.009/2.070/dlc) Repack/Mo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581176.jpg" />
+  <img src="Z:/picture/008/save_picture_581176.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579697.jpg" />
+  <img src="Z:/picture/008/save_picture_579697.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579043.jpg" />
+  <img src="Z:/picture/008/save_picture_579043.jpg" />
 </div>
 
 
@@ -565,113 +669,6 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B84CF20996789469982C8F6E4A48C1EDB1AE2AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840339   (576633) от 24.07.2015
-
-Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + Battle out of hell]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты - Painkiller. Твоя работа - зачищать местность от всякой нежити. Твоя цель - найти и уничтожить три демонических артефакта, питающих своей энергией сотни порождений тьмы... Бей всё это неупокоенное отродье, пока на твоём пути не останется ни одного, затем пройди по их дымящимся телам к артефактам и уничтожь их - раз и навсегда!
-
-Тебе придётся делать эту неблагодарную (   Читать дальше...   )Тип издания: RepackРазработчик: People Can FlyЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943D98E267E15A23CD52DEAB68A3E5B54D7920B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223648   (575817) от 02.08.2010
-
-The Hunt / Черная метка [Ru] (RePack) 2008 | R.G. Packers
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра создана по мотивам произведения Андрея Дашкова «Черная Метка». Место действия – альтернативная реальность, Россия, Москва, недалекое будущее.
-Главный герой игры – человек, получивший «черную метку» и ставший объектом жестокого телешоу. Основная задача главного героя – выжить любым способом. Он напуган, безоружен, ему нужно бежать и искать способ защитить себя, (   Читать дальше...   )Тип издания: RePackРазработчик: Orion GamesЖанр: Action (Shooter) / 3D / 1st Person / StealthЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150984   (575523) от 17.07.2017
-
-Titanfall 2 (2016) [Ru/En] (2.0.6.1) Repack Other s [Digital Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времени битвы при Деметре Ополчение значительно разрослось и перехватило инициативу, основав опорный пункт на планете Гармония. Организованные и вооруженные новейшим оружием, его войска представляют свободные народы Фронтира, настроенные против IMC. В Titanfall™ 2, эпическом продолжении задавшей новые каноны жанра игры, ваши лучшие друзья — это большие пушки.Тип издания: RepackРазработчик: Respawn EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C1FCBAA523B50CCE81AF2663FE4B6F29EB5828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528381   (572027) от 28.07.2012
-
-7554 [Ru/En] (RePack/1.0.0.1) 2011 l Audioslave
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шутер от первого лица, в названии которого скрыты число, месяц и год - 7 мая 1954 года. Это время Первой Индокитайской войны и день победы над французскими войсками. Игра похожа на Call of Duty по концепции и в целом впечатления схожи, если вы любитель пострелять то эта игра для вас.(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17C9B79C9DDAACAA308649C865671134CBFABD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813335.jpg" />
+  <img src="Z:/picture/008/save_picture_813335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mylene Farmer - Stade de France (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810587.jpg" />
+  <img src="Z:/picture/008/save_picture_810587.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ David Gilmour - In Concert (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796137.jpg" />
+  <img src="Z:/picture/008/save_picture_796137.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Hymn - Sarah Brightman in Concert (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794860.jpg" />
+  <img src="Z:/picture/008/save_picture_794860.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793940.jpg" />
+  <img src="Z:/picture/008/save_picture_793940.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Ken Hensley with Live Fire in Concert & The Making of «Blood On The Highway» (
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793886.jpg" />
+  <img src="Z:/picture/008/save_picture_793886.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Rick Wakeman - Made in Cuba (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791512.jpg" />
+  <img src="Z:/picture/008/save_picture_791512.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Bobby McFerrin - Try This At Home (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790280.jpg" />
+  <img src="Z:/picture/008/save_picture_790280.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Bobby McFerrin - Spontaneous Inventions (1986) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790273.jpg" />
+  <img src="Z:/picture/008/save_picture_790273.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Bobby McFerrin - Live In Montreal (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789649.jpg" />
+  <img src="Z:/picture/008/save_picture_789649.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Billy Idol - VH1 Storytellers (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787647.jpg" />
+  <img src="Z:/picture/008/save_picture_787647.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Joe Dassin - a Toi... Live A L'Olympia '77 (2005) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786628.jpg" />
+  <img src="Z:/picture/008/save_picture_786628.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Joe Dassin: "Ses plus grandes succes" [DVD5] (2000)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786501.jpg" />
+  <img src="Z:/picture/008/save_picture_786501.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Sarah Brightman: Harem - A Desert Fantasy (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784183.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Whitesnake - The Purple Tour '2015 (2018) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782911.jpg" />
+  <img src="Z:/picture/008/save_picture_782911.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Yello-Live in Berlin '2016 (2017) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781165.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Doors : Live At The Isle Of Wight Festival '1970 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776421.jpg" />
+  <img src="Z:/picture/008/save_picture_776421.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Bee Gees - One For All Tour Live in Australia 1989 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775033.jpg" />
+  <img src="Z:/picture/008/save_picture_775033.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Whitesnake - The Purple Tour '2015 (2018) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774293.jpg" />
+  <img src="Z:/picture/008/save_picture_774293.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Eric Clapton «Live In San Diego with special guest JJ Cale» (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773314.jpg" />
+  <img src="Z:/picture/008/save_picture_773314.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Il Volo Takes Flight - Live from The Detroit Opera House { Deluxe edition } (201
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771961.jpg" />
+  <img src="Z:/picture/008/save_picture_771961.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adriano Celentano - Greatest Video. Vol.2 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771006.jpg" />
+  <img src="Z:/picture/008/save_picture_771006.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Золотая коллекция Ретро (2006) 4xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770885.jpg" />
+  <img src="Z:/picture/008/save_picture_770885.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767256.jpg" />
+  <img src="Z:/picture/008/save_picture_767256.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Eurythmics - Peacetour (1999) DVD9 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767212.jpg" />
+  <img src="Z:/picture/008/save_picture_767212.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767161.jpg" />
+  <img src="Z:/picture/008/save_picture_767161.jpg" />
 </div>
 
 

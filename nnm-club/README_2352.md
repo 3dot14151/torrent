@@ -1,22 +1,22 @@
-###  Публикация: 598790   (999750) от 05.01.2013
+###  Публикация: 1488783   (1001479) от 13.08.2021
 
-Sexy Girls Pack Wallpapers (04.01.13) [Wallpapers 16+]
+Журнал | Performance VW [UK] №3 (март 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Если вы знакомы с модифицированными VW, то вам нужно попасть в Performance VW, единственную публикацию, которая предлагает хардкорным VW гарантированное место в журнале ежемесячнике. Производительность VW был в авангарде модифицированных Фольксвагенов уже более десяти лет и сыграл важную роль в превращении сцены в самую инновационную в своем роде. Это действительно (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A47A61B451E4075CA243432A9CE3003167C13187
+magnet:?xt=urn:btih:D417530E498DA15D9FE4C6434E85D8090FB37CA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,29 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599127   (999747) от 05.01.2013
+###  Публикация: 1488789   (1001478) от 13.08.2021
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 1
+Журнал | Performance BMW [UK] №258 (апрель-май 2021) [PDF] [En]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 1
-Название: New 2013 Nature Wallpaper Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Журнал Performance BMW - единственный журнал, который вам нужен, если вы увлекаетесь тюнингом BMW. Каждый выпуск наполнен самыми потрясающими шоу-карами в мире, самыми дикими мощными монстрами, каждый выпуск наполнен автомобилями, которые вам нравятся.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5BC07DE64F3EFCF6BF6F1DB995CCDC505A36F6B
+magnet:?xt=urn:btih:FAC55873DBB9539C30C5BA87E9D9137073333B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598785   (999746) от 05.01.2013
+###  Публикация: 1488790   (1001477) от 13.08.2021
 
-Computer Desktop Wallpapers Collection (04.01.13) [Wallpapers]
+Журнал | Performance BMW [UK] №260 (август-сентябрь 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Журнал Performance BMW - единственный журнал, который вам нужен, если вы увлекаетесь тюнингом BMW. Каждый выпуск наполнен самыми потрясающими шоу-карами в мире, самыми дикими мощными монстрами, каждый выпуск наполнен автомобилями, которые вам нравятся.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6973B5EE66333B101F9138DE817C467257253117
+magnet:?xt=urn:btih:98513D2D395065705677143912BE8445EB59B913
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,29 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599204   (999745) от 05.01.2013
+###  Публикация: 1488791   (1001476) от 13.08.2021
 
-[Wallpapers] New 2013 Wallpaper Pack 14
+Журнал | Performance BMW [UK] №257 (февраль-март 2021) [PDF] [En]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Wallpaper Pack 14
-Название: New 2013 Wallpaper Pack 14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Журнал Performance BMW - единственный журнал, который вам нужен, если вы увлекаетесь тюнингом BMW. Каждый выпуск наполнен самыми потрясающими шоу-карами в мире, самыми дикими мощными монстрами, каждый выпуск наполнен автомобилями, которые вам нравятся.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF5041BE04BDA40E744A2879565A017B80407E83
+magnet:?xt=urn:btih:CF410FCA086C984271DB8992960223386C5577F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598791   (999744) от 05.01.2013
+###  Публикация: 1488794   (1001475) от 13.08.2021
 
-Sexy Girls Wallpapers (04.01.13) [Wallpapers 16+]
+Журнал | OFF ROAD [Deutsch] №7 (июль 2021) [PDF] [De]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+OFF ROAD - Журнал о свободе на колесах: новейшие репортажи обо всем, что касается полного привода, внедорожников и вездеходов! С текущими испытаниями автомобилей, интересными сравнительными тестами, полезными темами обслуживания, захватывающими отчетами о поездках и последними новостями спорта и рынка OFF ROAD вдохновляет рынок на протяжении 35 лет и теперь более (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5C0A87E09BF1889BF7E9D2EF85A8ADE410DDDC8
+magnet:?xt=urn:btih:92627A4CBAB2F5AA18EF739AEE2E8169DAE4D05A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,278 +128,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598744   (999742) от 05.01.2013
+###  Публикация: 1488797   (1001474) от 13.08.2021
 
-HQ Wallpapers Perfect Women (03.01.13) [Wallpapers 16+]
+Журнал | NZV8 [NZ] №4 (апрель 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E51CEC85A6FF1A3F5A4561D112D9CC9C593A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599061   (999741) от 05.01.2013
-
-Журнал | T3. The Gadget Magazine №2(212) (UK) [февраль 2013] [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компьютерный журнал, который рассказывает все о новинках аппаратного и программного обеспечения, электроники, гаджетов для персональных компьютеров.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC6F2BBE67CB1F23C812063008223FEA87CAF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599138   (999740) от 05.01.2013
-
-[Wallpapers] World Architecture (05.01.13)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999740.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] World Architecture (05.01.13)
-Название: World Architecture (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E79A3DC276DE3D3D9BE5053D588C04CFCF31825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599110   (999739) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 10
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999739.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 10
-Название: New 2013 Wallpaper Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755150310B1EAD04F510209A4E2CDE5356283227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599167   (999737) от 05.01.2013
-
-Sonic Lounge Club - Pearls Of Love (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightdrive
-02. Sundown
-03. Lazy Morning
-04. Memories
-05. Brazilian Love Affair
-06. Rain Over Aden
-07. Love or Confusion
-08. Easy Chair
-09. Voyaging Stars
-10. Just Walked inЖанр: Downtempo, Lounge, ChillOutПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F687DBC2166C2B8E7516E40450A091804FED2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598792   (999736) от 05.01.2013
-
-Incredible Mixed Wallpapers (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321F5AB75EAEA5FF1F539D11B2B61B3116ED3204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598788   (999734) от 05.01.2013
-
-53 HQ Wallpapers (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD9904C5F68018021E0E8DE5CEC12D8262B8830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597779   (999733) от 05.01.2013
-
-Sexy Girls Wallpapers (02.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9161338123FE3A310B58489CFA3C1FDCB7457773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598786   (999732) от 05.01.2013
-
-Best HD Wallpapers Pack (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E182DBADD925C88649BBF39957965478FCA3FDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598314   (999731) от 05.01.2013
-
-Sonny Rollins - Reel Life (1982) [MP3|320 кб/с]<Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reel Life (Rollins) 6:14
-02 - McGhee (Howard McGhee, Sonny Rollins) 4:20
-03 - Rosita's Best Friend (Rollins) 6:22
-04 - Sonny Side Up (Yoshiaki Masuo) 6:47
-05 - My Little Brown Book (Billy Strayhorn) 3:55
-06 - Best Wishes (Duke Ellington, Ted Koehler) 5:43
-07 - Solo Reprise (Sonny) 2:12Жанр: JazzПродолжительность: 00:35:23
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -419,29 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599205   (999730) от 05.01.2013
+###  Публикация: 1488798   (1001473) от 13.08.2021
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
+Журнал | NZV8 [NZ] №6 (июнь 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
-Название: New 2013 Nature Wallpaper Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C84B75799E81CD1BC0746B69580976AAE67B43FA
+magnet:?xt=urn:btih:ED033510FCFAE4C6FF89203958E9A2995CC3D555
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599076   (999729) от 05.01.2013
+###  Публикация: 1488799   (1001472) от 13.08.2021
 
-Sexy Girls Wallpapers (05.01.13) [Wallpapers 16+]
+Журнал | NZV8 [NZ] №7 (июль 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F8A840C500A16729D244C084DAC5CCFB09B7E57
+magnet:?xt=urn:btih:34C99ECB3309BF5C0963B4B4A2041FAE243EEACB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,29 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599206   (999728) от 05.01.2013
+###  Публикация: 1488793   (1001471) от 13.08.2021
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 4
+Журнал | OFF ROAD [Deutsch] №4 (апрель 2021) [PDF] [De]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 4
-Название: New 2013 Nature Wallpaper Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 4000х2600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+OFF ROAD - Журнал о свободе на колесах: новейшие репортажи обо всем, что касается полного привода, внедорожников и вездеходов! С текущими испытаниями автомобилей, интересными сравнительными тестами, полезными темами обслуживания, захватывающими отчетами о поездках и последними новостями спорта и рынка OFF ROAD вдохновляет рынок на протяжении 35 лет и теперь более (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21D2183703EE8EC4DA063AC9CE033257DAAF53FE
+magnet:?xt=urn:btih:89D9E975E9ACBB48F8E9696D9E77429745EEC720
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,25 +232,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599071   (999727) от 05.01.2013
+###  Публикация: 1488841   (1001470) от 13.08.2021
 
-Best HD Wallpapers Pack (05.01.13) [Wallpapers]
+Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. For a New Pagan Age to Come(01:38)
+02. Silvano, senor de los bosques (05:19)
+03. The Last European Wolves (04:24)
+04. Son of the Fatherland (06:40)(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73D22B0D368C528A8E501545E50C9200288FC9D8
+magnet:?xt=urn:btih:8FB7E034E29BBE89DB00B90E21F9F3897EFA36E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,30 +261,75 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598298   (999723) от 05.01.2013
+###  Публикация: 1488795   (1001469) от 13.08.2021
 
-Jessy Carolina and The Hot Mess - Bootlegs:January 2012 (2012) [FLAC|Lossless]<New Orleans Jazz \ Vintage Jazz>
+Журнал | OFF ROAD [Deutsch] №9 (сентябрь 2021) [PDF] [De]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Intro
- 02 Nobody's Sweetheart
- 03 Yes Sir, That's My Baby
- 04 Royal Garden Blues
- 05 China Boy (Explicit)
- 06 Louisiana Fairytale
- 07 Muskrat Ramble
- 08 My Melancholy Baby
- 09 I'll Be A Friend With Pleasure
- 10 That's A Plenty(   Читать дальше...   )Жанр: New Orleans Jazz \ Vintage JazzПродолжительность: 00:57:36
+OFF ROAD - Журнал о свободе на колесах: новейшие репортажи обо всем, что касается полного привода, внедорожников и вездеходов! С текущими испытаниями автомобилей, интересными сравнительными тестами, полезными темами обслуживания, захватывающими отчетами о поездках и последними новостями спорта и рынка OFF ROAD вдохновляет рынок на протяжении 35 лет и теперь более (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3339ED350ED71FF9322151EB9E9CADF1413273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488770   (1001468) от 13.08.2021
+
+Отчий дом (изд.) | Советы православного врача (1998) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отечество наше издревле носило название “Русь Святая, Православная”. Называлась она так не потому только, что наши предки исповедовали Православную, а не иную какую-либо веру, но ещё потому, что они были крайне тверды в своей вере, любили Бога, ставили религиозные вопросы всегда на первый план, свято хранили и строго исполняли все установления Церкви.
+
+Пост, молитва (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B6A99DDD610F0DD42F9D1FB62C0ED25C0793F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488800   (1001467) от 13.08.2021
+
+Журнал | NZV8 [NZ] №9 (сентябрь 2021) [PDF] [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -566,28 +341,216 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598916   (999721) от 05.01.2013
+###  Публикация: 1488801   (1001466) от 13.08.2021
 
-Hypnose - Притяжение (2012) [MP3|320 кб/с]<Alt. Rock>
+Журнал | NZV8 [NZ] №8 (август 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5680AC597F551960CB99EA3437713B195D7D3E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488802   (1001465) от 13.08.2021
+
+Журнал | NZV8 [NZ] №5 (май 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3004082D3F637ADAD623057854821289559855E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488803   (1001464) от 13.08.2021
+
+Журнал | NZ Performance Car [NZ] №291 (август-сентябрь 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001464.jpg" />
+</div>
+
+
+###  Подробнее
+
+NZ Performance Car - ежемесячный автомобильный журнал и веб-сайт, а также самый продаваемый журнал о автомобильной и мужской жизни в Новой Зеландии. Как второе издание Parkside Media, оно затмило успех NZ Classic Car.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168686B7912CC760CDF98A3D211255070D3A5DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488869   (1001463) от 13.08.2021
+
+Destruction - Live Attack (2021) 2xCD [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие трэш-метал ветераны Destruction выпустили свой новый концертный Blu-ray и CD "Live Attack" 13 августа этого года на лейбле Napalm Records. Он стал следующим релизом после "Born To Perish", напоминая о почти двухчасовой трэш-атаке в прямом эфире, которую группа устроила в январе этого года.CD - 1:
+ 01. Born to Perish (Live) (06:36)
+ 02. Death Trap (Live) (05:54)
+ 03. Nailed to the Cross (Live) (03:48)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205A6EA79BEF1937DB32F246E264BDEAE7DD83C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488733   (1001462) от 13.08.2021
+
+End Of Horizons - Unleash the Force (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal, Power Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Solnedgang (00:05:03)
+02 - Unleash The Force (00:03:22)
+03 - Between Heaven And Earth (00:03:33)
+04 - In Shallow Waters (00:05:27)(   Читать дальше...   )Жанр: Progressive Heavy Metal, Power MetalПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488847   (1001461) от 13.08.2021
+
+Duke Ellington & His Orchestra Featuring Mahalia Jackson - Black Brown & Beige (1958) 1998, Release Records [APE|Lossless|image + .cue] <Vocal Jazz, Big Band, Gospel>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I [8:16]
+02. Part II [6:12]
+03. Part III [6:21]
+04. Part IV (Come Sunday) [7:56](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, GospelПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488986   (1001460) от 13.08.2021
+
+Неудачный рейс / The Wrong Track (1920) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем-совсем маленькая мульт-шутка, я бы сказал мульт-анекдот. Соль юмора довольно стара, но до сих пор забавна. Спойлерить не буду - смотрите.Производство: США, International Film ServiceJ.R. Bray StudiosЖанр: Рисованная анимацияРежиссер: Уолт ХобанПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37746CF642AADE6430E88ECB08EEE1A4D084FE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488957   (1001459) от 13.08.2021
+
+Audiority - Polaris 1.8.1 VST, VST3, AAX (x64) [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Знаю
-02. С утра и в ночь
-03. Солнцем и луной (Тишина)
-04. Мистер (   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:52:18
+Polaris - это плагин эхо/реверберации, вдохновленный ранними аппаратными цифровыми ревербераторами конца 1970-х годов (такими как Ursa Major SST-282) и способный обеспечивать эхо, атмосферу и реверберацию из одной многопозиционной линии задержки.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C9E02B474F33994AC817243C9EADF7A7CE9D7CD
+magnet:?xt=urn:btih:1D131C29675C9D0339E9ABC270BFA078A06B36E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,25 +558,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599079   (999718) от 05.01.2013
+###  Публикация: 1488855   (1001458) от 13.08.2021
 
-Журнал | Рыболовный мир №1 [январь-февраль 2013] [PDF]
+Burn - Ice Age (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
->>Журналы
->>Хобби (журналы)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Рыболовный мир" - это журнал о современных видах ловли рыбы, прикормках, насадках, тестирование удилищ и многое другое... Вы узнаете много интересного о рыбной ловле и обо всем, что с ней связано. Эксклюзивные статьи, невероятные истории из жизни рыбаков, обзоры различных событий, полезные советы, рыболовные секреты и многое.Формат: PDF
+01. Global Warning (0:45)
+02. Irontown (4:25)
+03. Jealousy (5:00)
+04. Hate (4:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:06:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B005A81C461E043EAEE7AA4BBD29E5D67D5616AE
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,25 +587,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599069   (999717) от 05.01.2013
+###  Публикация: 1488981   (1001457) от 13.08.2021
 
-Computer Desktop Wallpapers Collection (05.01.13) [Wallpapers]
+Начинающий авиатор / L’Apprenti aviateur (1910) DVDRip
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Ну, вот есть такие люди - горит в них страсть к полетам, хотят они летать аки птицы небесные. Готовы на все пойти ради этого. Вот и наш энергичный французик пробует разные способы полетов.Производство: Франция, GaumontЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: НеизвестныПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:04:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7FDCF5CB6A9D1EEA7C25BE281AFC205E9F586B1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,25 +613,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597778   (999716) от 05.01.2013
+###  Публикация: 1488934   (1001456) от 13.08.2021
 
-Sexy Girls Pack Wallpapers (02.01.13) [Wallpapers 16+]
+Dopefist - Nice Dreams (2019) Gated [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Breaks>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+01. I Am Intimidated You Colourful Sound (02:41)
+ 02. Nice Dreams (04:07)
+ 03. Sea Salt (04:18)
+ 04. Naramata (04:04)(   Читать дальше...   )Жанр: Electro, IDM, Acid, BreaksПродолжительность: 00:27:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE1ACA3ECFDAB8E698634944F620C798171ADD4A
+magnet:?xt=urn:btih:8BF4C70841539EF491C13F9A40ABF304A3844BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,25 +642,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599074   (999714) от 05.01.2013
+###  Публикация: 1488613   (1001455) от 13.08.2021
 
-60 HQ Wallpapers (05.01.13) [Wallpapers]
+VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Ann Grace - Intromotion (1:35)
+02. La Estación Del Mar - Un Bano En El Lago (4:45)
+03. Slow World - Deep Inside (Original Mix) (5:21)
+04. Der Waldläufer - Yanaras Light (Original Mix) (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71E68729631678172A0A4826D02BE6F7C96A8E8F
+magnet:?xt=urn:btih:2A905B4800A84C0B281FC2921D9ABB72E698396B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -699,30 +671,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599143   (999712) от 05.01.2013
+###  Публикация: 1488760   (1001454) от 13.08.2021
 
-Sonny Landreth - Outward Bound (1992) [WavPack|Lossless]<Blues>
+Mick Paul - Parallel Lives (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soldier Of Fortune [04:41]
-02. Back To Bayou Teche [03:49]
-03. When You're Away [03:53]
-04. Sacred Ground [04:24]
-05. New Landlord [03:58]
-06. Speak Of The Devil [03:30]
-07. Yokamoma [04:15]
-08. Planet Cannonball [04:00]
-09. Common Law-Love [03:00]
-10. Bad Weather [04:28](   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:20
+01. Your Days (06:14)
+02. Light Of Silence (04:55)
+03. No Horizon (04:03)
+04. Parallel Lives (05:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:50
 
 ## Скачать торент
 ```bash

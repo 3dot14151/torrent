@@ -1,3 +1,29 @@
+###  Публикация: 1644408   (247166) от 05.07.2023
+
+Конь / Kabayo (2023) WEBRip [H.264/1080p] [MVO, AD]
+
+>>След.
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лорен хочет улучшить свои семилетние отношения с Конрадом. Когда Истон появляется на сцене, она считает, что является идеальным дополнением к их сексуальным отношениям.Производство: Филиппины / Viva FilmsЖанр: драма, эротикаРежиссер: Джанфранко МорчаноАктеры: Джулия Виктория, Рико Баррера, Пинг Медина, Паоло Риверо и др.Перевод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:44:17Реклама: Присутствует баннер, голосовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FE88775609FFAD11155347FBE3F02D26AB9BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646219   (247003) от 13.07.2023
 
 Утечка / Lagaslas (2023) WEBRip [H.264/1080p] [MVO, AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247003.jpg" />
+  <img src="Z:/picture/004/save_picture_247003.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244463.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243129.jpg" />
+  <img src="Z:/picture/004/save_picture_243129.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242678.jpg" />
+  <img src="Z:/picture/005/save_picture_242678.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242589.jpg" />
+  <img src="Z:/picture/005/save_picture_242589.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242583.jpg" />
+  <img src="Z:/picture/005/save_picture_242583.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242397.jpg" />
+  <img src="Z:/picture/004/save_picture_242397.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242375.jpg" />
+  <img src="Z:/picture/004/save_picture_242375.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242277.jpg" />
+  <img src="Z:/picture/004/save_picture_242277.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242003.jpg" />
+  <img src="Z:/picture/004/save_picture_242003.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241940.jpg" />
+  <img src="Z:/picture/004/save_picture_241940.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241520.jpg" />
+  <img src="Z:/picture/004/save_picture_241520.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241511.jpg" />
+  <img src="Z:/picture/004/save_picture_241511.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240160.jpg" />
+  <img src="Z:/picture/004/save_picture_240160.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240060.jpg" />
+  <img src="Z:/picture/004/save_picture_240060.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238446.jpg" />
+  <img src="Z:/picture/005/save_picture_238446.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237714.jpg" />
+  <img src="Z:/picture/004/save_picture_237714.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237240.jpg" />
+  <img src="Z:/picture/005/save_picture_237240.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236616.jpg" />
+  <img src="Z:/picture/005/save_picture_236616.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236593.jpg" />
+  <img src="Z:/picture/005/save_picture_236593.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236059.jpg" />
+  <img src="Z:/picture/005/save_picture_236059.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236019.jpg" />
+  <img src="Z:/picture/005/save_picture_236019.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235500.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235157.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235070.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C41E1F622B5DCF8FB0810D0EAEDA2DD0E954712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551620   (234903) от 16.05.2022
-
-8 дней до ада / 8 Days to Hell (2022) WEBRip [H.264/1080p-LQ] [MVO, AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антология ужасов, состоящая из семи связанных между собой историй, каждая из которых следует по пути серийных убийц, несущих ужас и разрушение по всему Лос-Анджелесу.Производство: США / Pegasus Flying FilmsЖанр: УжасыРежиссер: Шэйн ВудсонАктеры: Эрик Робертс, Шэйн Вудсон, Тори Лондон, Дрю Хейл, Рей Марз, Дэвид Кастро, Том МакЛарен, Сэди Кац, Крис Барри, Джоанна РэйПеревод: Многоголосый закадровый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:26:52Реклама: Присутствует реклама аудио, видео, баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE4B26A4A1FF8ABBE0BDF0DA964A729972B038B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1704555   (114104) от 05.03.2024
+
+Alfred PowerPack 5.5 Beta 2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 2024 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAD3165D36D1776B9CC9DA4138CCE822A43985D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704930   (114014) от 06.03.2024
+
+Dropshare 5 v.5.48 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114014.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB8B1ABC9E9C9631B8DA62B894483F01C3D7D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704809   (114013) от 06.03.2024
+
+ForkLift 4 v.4.1 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114013.jpg" />
+</div>
+
+
+###  Подробнее
+
+ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента. На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 BinaryNights LLCПоддерживаемая ОС: macOS X 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889E03F41E8D2894AE03FEE85EAD0B3D66477D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704988   (114011) от 06.03.2024
+
+ForkLift 4 v.4.1.1 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114011.jpg" />
+</div>
+
+
+###  Подробнее
+
+ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента. На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 BinaryNights LLCПоддерживаемая ОС: macOS X 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DE9040D1950FB1DD3F6D6A8DFA7B53BFAA0E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704798   (114008) от 06.03.2024
 
 Cycling'74 Max 8.6.1 + RNBO U2B [En]
@@ -6,7 +112,7 @@ Cycling'74 Max 8.6.1 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114008.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Prism 10 v.10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113998.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113982.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Folder Icons 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113964.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Dynamic Wallpaper Engine 17.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113954.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113949.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Soulver 3 v.3.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113942.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Alfred PowerPack 5.5 Beta 2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113938.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113936.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113850.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113842.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113839.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113838.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ Screen Wonders 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113836.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ iNet Network Scanner 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113792.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ Wondershare PDFelement Pro OCR 10.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113726.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ TG Pro (Temperature Gauge Pro) 2.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113718.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ DaisyDisk 4.26.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113704.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ Cookie 7.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113703.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ Cardhop 2.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113702.jpg" />
 </div>
 
 
@@ -539,7 +645,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113701.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ WiFiSpoof 3.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113699.jpg" />
 </div>
 
 
@@ -578,111 +684,6 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58647B9F7D53A08D4050986A661DA76BF28D2A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706132   (113698) от 11.03.2024
-
-BetterMouse for Mac 1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113698.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8B863AD15FD583BD310905547D54C2C53919FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706081   (113697) от 11.03.2024
-
-Desktop Stickers 2.71 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Desktop Stickers поможет вам в выборе вашей самооценки.
-Ваши мысли являются источником ваших эмоций и настроения. Разговоры, которые вы ведете сами с собой, могут быть разрушительными или полезными. Большинству людей необходимо научиться культивировать позитивные мысли и рассеивать негативные. Разговор с самим собой может улучшить вашу производительность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 Marian RaafatПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6243055B601652AA92477B0EEECE8F75C852D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706156   (113696) от 11.03.2024
-
-Bike Outliner for Mac 1.18.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Структурированное и целенаправленное написание. Используйте Bike, чтобы думать, писать и организовывать. Составляйте списки, делайте заметки, создавайте документы. Bike — необычайно быстрое приложение для письма, разработанное для вашего Mac. Bike быстрый, он может справиться с большими проектами, которые ломают другие планировщики. Bike также быстро справляется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2023 HogbaysoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152F1D771E2B192E082523C9D2B66D291DE50334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706206   (113695) от 11.03.2024
-
-GarageSale 9.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3E670F9A44E3F42761981DCAB9FF99A599A14A
 ```
 
 https://mybot314.ru/tekegram_catalog/

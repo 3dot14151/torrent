@@ -1,3 +1,81 @@
+###  Публикация: 1750090   (21917) от 10.04.2025
+
+Frostpunk 2 (2024) [Ru/Multi] (1.2.3-468950/dlc) Repack Decepticon [Deluxe Edition]
+
+>>След.
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frostpunk 2 открывает новые грани жанра выживания города. Вам предстоит стать Наместником и спасать город в ряде суровых испытаний, которые обрушились лавиной на заснеженный постапокалиптический пейзаж. Стройте районы, учитывайте нужды жителей, а также улаживайте конфликты между фракциями. Только вы сможете управлять разрастающимся поселением и сделать из него процветающий (   Читать дальше...   )Тип издания: RepackРазработчик: 11 bit studiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D200772C8131E086720DEF6259829DC9DBD2D33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792133   (21164) от 17.04.2025
+
+Anno 1800 (2020) [Ru/Multi] (9.2.972600/dlc) Repack seleZen [Complete Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anno 1800 – возглавьте промышленную революцию! Anno 1800 перенесет игроков в XIX век, в мир запутанных политических интриг и стремительно развивающихся технологий. Придется приложить максимум усилий, чтобы отточить способности к управлению и справиться с основной задачей - построить собственную империю, влияние которой распространится от туманных городов Европы до (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ByteЖанр: Strategy, SimulatorЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDDE2ECD79E40F5800C42F5CE7207C192653222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782890   (20750) от 21.04.2025
+
+Citadelum (2024) [Ru/Multi] (2.0.0.10/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаете ли вы о римской империи? Конечно думаете! Кто же не мечтал, наточив гладиус нести цивилизацию в места не столь отдалённые! Citadelum - градостроительный симулятор в декорациях легендарного Древнего Рима. Собирайте ресурсы, стройте и развивайте величественный город, исследуйте мир, торгуйте и ведите легионы в бой. Заслужите милость богов или бросьте им вызов, (   Читать дальше...   )Тип издания: RepackРазработчик: Abylight BarcelonaЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A815FDB59357477DC9972C77A11BA414B5BAD9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793128   (20608) от 22.04.2025
 
 Synergy (2024) [Ru/Multi] (1.0.2504161516/dlc) Repack FitGirl [Supporter Edition]
@@ -6,7 +84,7 @@ Synergy (2024) [Ru/Multi] (1.0.2504161516/dlc) Repack FitGirl [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20608.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20573.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ SpellRogue (2024) [Ru/Multi] (1.0.0b70/dlc) Repack FitGirl [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20053.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19813.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Starless Abyss (2025) [Ru/Multi] (1.011) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19640.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19514.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Stellar Outpost Commander (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19403.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19401.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19298.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19070.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Food Park Manager (2025) [Multi] (1.0.0c) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19050.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18959.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18956.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18758.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ XENOBREAKERS: Classic Tower Defense (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18750.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18729.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18570.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18361.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.3.0/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18272.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10457) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17999.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ LEGO Bricktales (2022) [Ru/Multi] (2.0 r21673) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17843.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Mini Settlers (2024) [Ru/Multi] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17757.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17746.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Anoxia Station — игра об управлении подземной гор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F484F414E8794D8C6FD19F5D6EB6F8A328CDA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728673   (17465) от 22.05.2025
-
-Empires of the Undergrowth (2017) [Ru/Multi] (20250324) Scene SKIDROW
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Empires of the Undergrowth – это уникальная по своей механике игра в жанре симулятора и стратегии в реальном времени. В игре вам придется управлять колонией муравьев. Начиная играть одним муравьем вы будете охотиться, управлять строителями, создавать уникальный улей. От дизайна вашего улья будет зависеть сможете ли ваша колония выжить в этом суровом мире. Почему (   Читать дальше...   )Тип издания: SceneРазработчик: Slug Disco StudiosЖанр: Стратегия, Симулятор, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFB09EBC8B2FD818614EF4AA05B9CCABE22870E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780890   (17356) от 23.05.2025
-
-Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17356.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Microtopia вам предстоит управлять жизнью колонии робо-муравьев, прокладывать уникальные цепочки путей, исследовать острова и как муравей трудиться ради процветания колонии. Главная цель игры? Воспроизводство вида! Создавайте молодых королев, которые отправятся в брачный полет в дальние края и запустят весь цикл сначала. Чтобы основать колонию, разместите королеву (   Читать дальше...   )Тип издания: LicenseРазработчик: Cordyceps CollectiveЖанр: Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073FF63310B4021102E93F9906A51582BA8FB403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735081   (16451) от 29.05.2025
-
-Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2019) [Ru/Multi] (1.1.0.7/dlc) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16451.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Workers and Resources: Soviet Republic вам предстоит возглавить падшую страну, и превратить её в самую сильную республику, сделав сверхдержаву с самыми счастливыми жителями, построившими мировой прогресс. Градостроительная стратегия покажет вам страну, сильно похожую на совок. Вы принимаете её разбитой, разграбленной, разваленной. В казне совершенно нет денег, (   Читать дальше...   )Тип издания: RepackРазработчик: 3DivisionЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCB22D9A5246DCD06FBFE1C8ECA61E278BE558F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1291854   (650485) от 27.03.2019
+
+Live Home 3D Pro 3.5.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
+
+Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Belight Software, Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B72542027DE99EB966DB736DACA955ED1ED7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540857   (650483) от 31.03.2022
+
+Luminar Neo 1.0.4 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2022Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CB1CAFDF44829D160C116F1000BC144FC28B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540869   (650479) от 31.03.2022
+
+Wondershare Filmora Х 11.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3A2E229700F13A6CC86094990AAC0DB46734D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540689   (650471) от 31.03.2022
+
+TunesKit iPhone Unlocker 1.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650471.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit iPhone Unlocker предназначен для того, чтобы избавить вас от проблем, связанных с различными сценариями, включая отключение iPhone после множества неудачных попыток, разбитый или не отвечающий экран вашего iPhone, неработающий Touch ID и многое другое. Таким образом, вы можете восстановить полный доступ к своему iPhone, iPad и iPod touch.Тип издания: macOS SoftwareРелиз состоялся: 10.02.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7252835CFA4E19031DFF446769FC4D7AF02FBCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227121   (650399) от 24.05.2018
 
 Path Finder 8.0 [Multi/Ru]
@@ -6,7 +112,7 @@ Path Finder 8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650399.jpg" />
+  <img src="Z:/picture/008/save_picture_650399.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Movavi Video Editor Plus 2022 v22.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650361.jpg" />
+  <img src="Z:/picture/008/save_picture_650361.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650305.jpg" />
+  <img src="Z:/picture/008/save_picture_650305.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650204.jpg" />
+  <img src="Z:/picture/008/save_picture_650204.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Boom 3D v1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650196.jpg" />
+  <img src="Z:/picture/008/save_picture_650196.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Grids for Instagram 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650009.jpg" />
+  <img src="Z:/picture/008/save_picture_650009.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ Pixave 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649815.jpg" />
+  <img src="Z:/picture/008/save_picture_649815.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ Chaos Control: GTD organizer | To-Do List 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649545.jpg" />
+  <img src="Z:/picture/008/save_picture_649545.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ Vertus Fluid Mask 3.3.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649345.jpg" />
+  <img src="Z:/picture/008/save_picture_649345.jpg" />
 </div>
 
 
@@ -250,7 +356,7 @@ ColorSnapper 2 v1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649250.jpg" />
+  <img src="Z:/picture/008/save_picture_649250.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649160.jpg" />
+  <img src="Z:/picture/008/save_picture_649160.jpg" />
 </div>
 
 
@@ -305,7 +411,7 @@ Ableton Live Suite 9.1.9 (32-64 bit) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648875.jpg" />
+  <img src="Z:/picture/008/save_picture_648875.jpg" />
 </div>
 
 
@@ -331,7 +437,7 @@ ProFind 1.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648838.jpg" />
+  <img src="Z:/picture/008/save_picture_648838.jpg" />
 </div>
 
 
@@ -357,7 +463,7 @@ File Cabinet Pro 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648812.jpg" />
+  <img src="Z:/picture/008/save_picture_648812.jpg" />
 </div>
 
 
@@ -386,7 +492,7 @@ VideoProc Converter 4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648773.jpg" />
+  <img src="Z:/picture/008/save_picture_648773.jpg" />
 </div>
 
 
@@ -412,7 +518,7 @@ GoodTask 6.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648768.jpg" />
+  <img src="Z:/picture/008/save_picture_648768.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ Cardhop 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648756.jpg" />
+  <img src="Z:/picture/008/save_picture_648756.jpg" />
 </div>
 
 
@@ -467,7 +573,7 @@ Hype 3 Pro 3.6.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648525.jpg" />
+  <img src="Z:/picture/008/save_picture_648525.jpg" />
 </div>
 
 
@@ -493,7 +599,7 @@ Sublime Text 3 Dev (3134) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648500.jpg" />
+  <img src="Z:/picture/008/save_picture_648500.jpg" />
 </div>
 
 
@@ -520,7 +626,7 @@ AnyTrans for Android 7 v7.1.0 (build 20190327) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648404.jpg" />
+  <img src="Z:/picture/008/save_picture_648404.jpg" />
 </div>
 
 
@@ -546,7 +652,7 @@ macOS 12 Monterey 12.3.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648288.jpg" />
+  <img src="Z:/picture/008/save_picture_648288.jpg" />
 </div>
 
 
@@ -572,7 +678,7 @@ BBEdit 11.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647772.jpg" />
+  <img src="Z:/picture/008/save_picture_647772.jpg" />
 </div>
 
 
@@ -583,116 +689,6 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53DE5802CC9810855257C5FAC2D0479FD8FA145C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032102   (647761) от 06.07.2016
-
-Capto – Screen Recording, Screen Captures, and Editing 1.0.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capto (was Voila) - профессиональная программа для захвата видео и изображений с рабочего стола.
-Приложение от Французских разработчиков прошло тернистый путь, от простого менеджера скриншотов, до полнофункционального редактора и каталогизатора. Менеджеры скриншотов относятся к узкоспециализированным программам для Mac, которые востребованы лишь у небольшого числа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 июля 2016Разработчик: Global Delight Technologies Pvt. LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5094882F2D062AF51C196DA14388D9FFF13C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032243   (647249) от 06.07.2016
-
-Adobe Audition CC 2015.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2016Разработчик: AdobeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D5D69BD78D72DE92964B347C86FEDF90F998A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824382   (647071) от 07.06.2015
-
-Vectoraster 6.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vectoraster  - программа для создания векторной графики на основе растровых моделей и полутонов из растровых изображений. Вы можете всячески конфигурировать растровые и точечные узоры для создания различных стилей изображений.
-
-Растры могут быть легко экспортированы в качестве векторов в EPS или PDF-файлы, как изображения,  JPEG, PNG или TIFF, или просто скопировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 апреля 2015Разработчик: Lost MindsПоддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E95735CF74E5AFA6BC891DF1EB97E3A82151448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141835   (646720) от 12.06.2017
-
-Tomates - Time Management 6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomates Time Management помогает вам повысить производительность с помощью одного из самых эффективных методов управления в личных или паре рабочих средах.
-
-Приложение очень настраивается в таких аспектах, как время на перерывы или задачи, уведомления, серии задач, все это в красивом и подробном интерфейсе.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 июня 2017Разработчик: Adolfo Vera BlascoПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA3B5F3715072C219C59F454F3A39252DC3A078
 ```
 
 https://mybot314.ru/tekegram_catalog/

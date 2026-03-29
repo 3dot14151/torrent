@@ -1,3 +1,119 @@
+###  Публикация: 1389788   (783915) от 12.06.2020
+
+Boney James - Solid (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Effect
+02. Solid
+03. The Bottom Line
+04. Luna(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330F46F450D6D5DB14C4354659504B77CF41D25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205356   (783807) от 09.02.2018
+
+Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament [06:55]
+02. Four [04:37]
+03. Line for Lyons [06:33]
+04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205492   (783554) от 10.02.2018
+
+Georgie Auld - 1946 - 1951 (2004) Classics [FLAC|Lossless|image + .cue] <Swing, Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canyon Passage [02:56]
+02. You're Blase [03:01]
+03. Handicap [02:56]
+04. Mo Mo [02:42](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13785BADFFCE8E90F34F173452F1EBBF607E7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205489   (783553) от 10.02.2018
+
+Eddie Jefferson - Letters From Home (1962) 1987, Original Jazz Classics [APE|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letter from Home [03:02]
+02. Take the 'A' Train [03:13]
+03. Billie's Bounce (take 4) [02:48]
+04. Billie's Bounce (take 3) [02:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B94CD9452E14FAD71A05A3CC2D9DFB5DB16AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205499   (783548) от 10.02.2018
 
 The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
@@ -6,7 +122,7 @@ The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783548.jpg" />
+  <img src="Z:/picture/008/save_picture_783548.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dave Brubeck - Three Classic Albums Plus: Third Set 1956 - 1960 (2010) 2CD, Avid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783419.jpg" />
+  <img src="Z:/picture/008/save_picture_783419.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Marcus Roberts - Prayer For Peace (1991) BMG [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783256.jpg" />
+  <img src="Z:/picture/008/save_picture_783256.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mal Waldron - Mal: Live 4 To 1 (1971) 1989, Nippon Phonogram [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783255.jpg" />
+  <img src="Z:/picture/008/save_picture_783255.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Marian McPartland - Portraits (1999) NPR Classics [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783254.jpg" />
+  <img src="Z:/picture/008/save_picture_783254.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Crusaders - Street Life (1979) CD Album, Reissue [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783100.jpg" />
+  <img src="Z:/picture/008/save_picture_783100.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Sonny Rollins - Four Classic Albums 1956 - 1957 (2008) 2CD, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783099.jpg" />
+  <img src="Z:/picture/008/save_picture_783099.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Sherri Roberts - Anybody's Spring (2017) Pacific Coast Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782980.jpg" />
+  <img src="Z:/picture/008/save_picture_782980.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bud Shank - Four Classic Albums 1956 - 1958 (2012) 2CD, Avid Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782732.jpg" />
+  <img src="Z:/picture/008/save_picture_782732.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Manuel Valera Trio - The Seasons (2017) Mavo Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782571.jpg" />
+  <img src="Z:/picture/008/save_picture_782571.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Kathy Kosins - Uncovered Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782565.jpg" />
+  <img src="Z:/picture/008/save_picture_782565.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Marty Paich - Four Classic Albums 1955 - 1960 (2015) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782302.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Art Blakey And The Jazz Messengers - Live at Kimball's (1986) Concord Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782166.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Lester Young - Blue Lester: The Immortal Lester Young (1944 - 1949) Savoy Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782165.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Buster Williams Trio LIVE - 65 Roses (2009) BluePort [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782164.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jean-Louis Rassinfosse, Chet Baker, Philip Catherine (1983) 1985, Igloo [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782162.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782161.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Ron Carter And The WDR Big Band - My Personal Songbook (2015) In+Out Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782160.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Mike Garson - Mike Garson's Jazz Hat (2008) Reference Recordings [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782151.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Robert Moore - Outta My Soul (2012) 2014, Reference Recordings [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782144.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Adam Shulman Sextet - Full Tilt (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782142.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Earl Klugh - Ballads (1976 - 1983) 1993, Manhattan Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782140.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Earl Klugh - Ballads (1976 - 1983) 1993, Manhattan Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:656655E7E53FFA7E5FA110E5B41FC0B52B17164F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206518   (782130) от 14.02.2018
-
-Nicki Parrott - Close To You: Burt Bacharach Song Book (2017) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk On By [03:09]
-02. Alfie [04:41]
-03. Close To You [03:17]
-04. Raindrops Keep Fallin' On My Head [03:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED7C6BCECD3B3F8512A5ABC79DDBB08C446499B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390967   (781955) от 18.06.2020
-
-Cannonball Aderley - Riverside Profiles 1958 - 1963 (2006) 2CD, Riverside Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781955.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. This Here [11:47]
-02. Dizzy's Business [7:00]
-03. Nardis [5:33](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A020FC2FD552CB330F13BE21AB647563F561FBFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206541   (781743) от 15.02.2018
-
-Harry James - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Sleepy Lagoon [03:02]
-02. Trumpet Blues and Cantabile [03:04]
-03. Easter Parade [03:28]
-04. Crazy Rhythm [03:46](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5FD8620189A638EFC0227FAD3AD4CEAD590D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391384   (781083) от 20.06.2020
-
-Archie Shepp - Blase & Live at the Pan-African Festival 1969 (2004) 2CD, Charly Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781083.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. My Angel [10:11]
-02. Blase [10:27]
-03. There Is a Balm in Gilead [6:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, Soul-JazzПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285CACD0C0CA7FFECCB5FFEB958D23DFB7A91149
 ```
 
 https://mybot314.ru/tekegram_catalog/

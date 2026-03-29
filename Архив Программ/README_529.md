@@ -6,7 +6,7 @@ Ashampoo Burning Studio 10.0.0 beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781181.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Viber 8.2.0.8 Portable by HA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781125.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Photodex ProShow Producer 9.0.3793 Portable by TryRooM [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781121.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4639.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781115.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Freac 1.1.2 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781011.jpg" />
+  <img src="Z:/picture/008/save_picture_781011.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ LogViewPlus 2.4.34 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781005.jpg" />
+  <img src="Z:/picture/008/save_picture_781005.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ UltraUXThemePatcher 3.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780969.jpg" />
+  <img src="Z:/picture/008/save_picture_780969.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Advanced SystemCare Pro 13.5.0.274 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780968.jpg" />
+  <img src="Z:/picture/008/save_picture_780968.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Open Shell (Classic Shell) 4.4.145 Nightly [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780963.jpg" />
+  <img src="Z:/picture/008/save_picture_780963.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Open Shell (Classic Shell) 4.4.142 Stable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780961.jpg" />
+  <img src="Z:/picture/008/save_picture_780961.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ UltraISO Premium Edition 9.7.3.3618 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780947.jpg" />
+  <img src="Z:/picture/008/save_picture_780947.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ PrivaZer 3.0.41 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780816.jpg" />
+  <img src="Z:/picture/008/save_picture_780816.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Avant Browser Ultimate 2018 build 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780811.jpg" />
+  <img src="Z:/picture/008/save_picture_780811.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ qBittorrent 4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780728.jpg" />
+  <img src="Z:/picture/008/save_picture_780728.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Futuremark 3DMark 2.4.4264 Professional Edition RePack by KpoJIuK[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780703.jpg" />
+  <img src="Z:/picture/008/save_picture_780703.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Microsoft Office 2016 Standard 16.0.4639.1000 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780686.jpg" />
+  <img src="Z:/picture/008/save_picture_780686.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780576.jpg" />
+  <img src="Z:/picture/008/save_picture_780576.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Ashampoo Snap 10.0.5 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780543.jpg" />
+  <img src="Z:/picture/008/save_picture_780543.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780534.jpg" />
+  <img src="Z:/picture/008/save_picture_780534.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Vidiot 0.3.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780529.jpg" />
+  <img src="Z:/picture/008/save_picture_780529.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Room Arranger 9.5.2.608 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780525.jpg" />
+  <img src="Z:/picture/008/save_picture_780525.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6785.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780480.jpg" />
+  <img src="Z:/picture/008/save_picture_780480.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro  15.0.5007
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780463.jpg" />
+  <img src="Z:/picture/008/save_picture_780463.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Microsoft Office 2007 Standard SP3 12.0.6785.5000 RePack by KpoJIuK (2018.02)  [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780455.jpg" />
+  <img src="Z:/picture/008/save_picture_780455.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Office 2010 Professional Plus + Visio Premium + Project Pro 14.0.7194.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780454.jpg" />
+  <img src="Z:/picture/008/save_picture_780454.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ AOMEI Backupper Technician Plus 4.0.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780452.jpg" />
+  <img src="Z:/picture/008/save_picture_780452.jpg" />
 </div>
 
 

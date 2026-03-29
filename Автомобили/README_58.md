@@ -1,3 +1,29 @@
+###  Публикация: 1338459   (269889) от 15.11.2019
+
+Журнал | Fast Car UK №13 (декабрь 2019) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Car - британский автомобильный журнал, освещающий рынок модифицированных автомобилей и автомобильную культуру. Это был первый британский журнал, посвященный этому жанру. Он принадлежит Kelsey Media, базирующейся в Westerham, Kent. Журнал выходит 13 раз в год.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362D516FBD4B611104D44F94634CA9DEC4A7A6A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338462   (269885) от 15.11.2019
 
 Журнал | Fast Car UK №12 (ноябрь 2019) [PDF] [En]
@@ -6,7 +32,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269885.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269878.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269502.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268778.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267698.jpg" />
+  <img src="Z:/picture/008/save_picture_267698.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267398.jpg" />
+  <img src="Z:/picture/008/save_picture_267398.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266750.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264996.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264128.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263346.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263106.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262479.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262208.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261952.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259984.jpg" />
+  <img src="Z:/picture/005/save_picture_259984.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259776.jpg" />
+  <img src="Z:/picture/005/save_picture_259776.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259761.jpg" />
+  <img src="Z:/picture/005/save_picture_259761.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258767.jpg" />
+  <img src="Z:/picture/005/save_picture_258767.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258123.jpg" />
+  <img src="Z:/picture/005/save_picture_258123.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257401.jpg" />
+  <img src="Z:/picture/005/save_picture_257401.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257063.jpg" />
+  <img src="Z:/picture/005/save_picture_257063.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Bosch ESI[tronic]2012 (DVDU+DVDU1) Электронный каталог зап�
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256254.jpg" />
+  <img src="Z:/picture/005/save_picture_256254.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253488.jpg" />
+  <img src="Z:/picture/005/save_picture_253488.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252098.jpg" />
+  <img src="Z:/picture/004/save_picture_252098.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ FITLAB, А.В. Михалевский | Бои без правил для диа
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251934.jpg" />
+  <img src="Z:/picture/004/save_picture_251934.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ FITLAB, А.В. Михалевский | Бои без правил для диа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:486905934EA196CBEFB6311EC4FD4CE9B2CC2D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495408   (251429) от 12.05.2012
-
-Газета | За рулем - Регион. Москва №09 (256) [май/2012] [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета "За рулем - Регион" — популярная газета об автомобилях и автомобилестроении, для разных регионов. Газета является неоспоримым лидером среди аналогичных периодических изданий. На её страницах автолюбители всегда найдут массу информации из автомобильного и около автомобильного мира ибо именно такую цель, помноженную на высокий профессионализм и преданность аудитории, ставит перед собой коллектив проекта.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE7BE9C068B65AFD40DE28CEFF4A95B18968564
 ```
 
 https://mybot314.ru/tekegram_catalog/

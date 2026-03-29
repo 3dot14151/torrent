@@ -1,3 +1,31 @@
+###  Публикация: 1166442   (426119) от 16.09.2017
+
+Проекты - Проект ProShow Producer - Spinning Autumn [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект от grandpaJanek. Слайдшоу осенней тематики.
+Проект может быть использован в авторском решении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
+Превью (авторский ролик) - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56B17C48305AC83B0CD7E87B158701C1D32B5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166347   (426108) от 16.09.2017
 
 Проекты - Проект ProShow Producer - Over Beyond [PSH]
@@ -6,7 +34,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426108.jpg" />
+  <img src="Z:/picture/008/save_picture_426108.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ VideoHive - Falling Photos 2 - 3013463 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426072.jpg" />
+  <img src="Z:/picture/008/save_picture_426072.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ VideoHive - Happy Tree  Family Gallery - 5281593 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425925.jpg" />
+  <img src="Z:/picture/008/save_picture_425925.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425810.jpg" />
+  <img src="Z:/picture/008/save_picture_425810.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425555.jpg" />
+  <img src="Z:/picture/008/save_picture_425555.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425552.jpg" />
+  <img src="Z:/picture/008/save_picture_425552.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425548.jpg" />
+  <img src="Z:/picture/008/save_picture_425548.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424968.jpg" />
+  <img src="Z:/picture/008/save_picture_424968.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424559.jpg" />
+  <img src="Z:/picture/008/save_picture_424559.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423180.jpg" />
+  <img src="Z:/picture/008/save_picture_423180.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422400.jpg" />
+  <img src="Z:/picture/008/save_picture_422400.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422397.jpg" />
+  <img src="Z:/picture/008/save_picture_422397.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421126.jpg" />
+  <img src="Z:/picture/008/save_picture_421126.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420962.jpg" />
+  <img src="Z:/picture/008/save_picture_420962.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420947.jpg" />
+  <img src="Z:/picture/008/save_picture_420947.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420941.jpg" />
+  <img src="Z:/picture/008/save_picture_420941.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ Motion Array - Creative Brush Looks - 288432 [PRPROJ]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420821.jpg" />
+  <img src="Z:/picture/008/save_picture_420821.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420179.jpg" />
+  <img src="Z:/picture/008/save_picture_420179.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420176.jpg" />
+  <img src="Z:/picture/008/save_picture_420176.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420112.jpg" />
+  <img src="Z:/picture/008/save_picture_420112.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420054.jpg" />
+  <img src="Z:/picture/008/save_picture_420054.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419903.jpg" />
+  <img src="Z:/picture/008/save_picture_419903.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419896.jpg" />
+  <img src="Z:/picture/008/save_picture_419896.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ Motion Array - Colorful Memories - 283079 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418665.jpg" />
+  <img src="Z:/picture/008/save_picture_418665.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ VideoHive - From Japan Opener - 19973030 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418657.jpg" />
+  <img src="Z:/picture/008/save_picture_418657.jpg" />
 </div>
 
 
@@ -653,32 +681,6 @@ VideoHive - From Japan Opener - 19973030 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79FF1F01A32EA49D775CD932322F78D4887B6A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325037   (418483) от 12.09.2019
-
-Videohive - Torn Paper Opener - 21754531 [PRPROJ]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный шаблон PrPro, выполнен в винтажном стиле и с оригинальной анимацией для Вашего творчества... Дерзайте!Формат: PRPROJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11498D3DDC21E0FB4128B1F3651332A268822D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

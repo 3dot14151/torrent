@@ -1,3 +1,119 @@
+###  Публикация: 1633646   (234234) от 16.05.2023
+
+Kenni Holmen - Saxophone Serenade (1995) NorthWord Press [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Breezes [4:45]
+02. A Stroll in Central Park [6:31]
+03. Voices in the Dark [2:06]
+04. Dawn's Reflection [7:38](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4876EFB48262AFEB6A76F95674AF6DAC5A1F9A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547034   (234232) от 26.04.2022
+
+Ray Drummond - Continuum (1994) Arabesque Jazz [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Blues from the Sketchpad [7:32]
+02. Equipoise [6:57]
+03. The Intimacy of the Blues [5:08]
+04. Gloria's Step [11:58](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304961439C315149906AC531B4D9DCCF9B197514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622798   (234217) от 30.03.2023
+
+Wynton Marsalis - Uptown Ruler: Soul Gestures in Southern Blue, Vol. 2 (1991) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psalm 26 [1:29]
+02. Uptown Ruler [11:11]
+03. The Truth Is Spoken Here [6:50]
+04. The Burglar [8:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64E65042784F8566A89A633B1BF07FCCF0187AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644089   (234157) от 04.07.2023
+
+Carlos Montoya - Flamenco Meets Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <World Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alegría-Rosa 03:38
+02 - Blues In The Night 03:37
+03 - Zapateado 03:39
+04 - Antonio Vargas Heredia 05:02(   Читать дальше...   )Жанр: World JazzПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF1D7F54BADECE558E7E0022CA6F5D66EFFF660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633664   (234156) от 16.05.2023
 
 V.A. - Smooth Jazz Hits 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -6,7 +122,7 @@ V.A. - Smooth Jazz Hits 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234156.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Wynton Marsalis - Levee Low Moan: Soul Gestures in Southern Blue, Vol. 3 (1991) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234152.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Billy Childs - The Winds Of Change (2023) Mack Avenue [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234137.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Bill Heid - Dealin' Wid It (2022) Savant [FLAC|Lossless|tracks + .cue] <Soul-Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234112.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Louis Armstrong - Louis on Broadway (2023) [FLAC|Lossless|WEB-DL|tracks] <Early 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234021.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Dinah Washington - Gold (1943 - 1961) 2CD, 2007, Verve Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233974.jpg" />
+  <img src="Z:/picture/005/save_picture_233974.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Earl Hines - Fine & Dandy (1949) 1992, Vogue [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233958.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dexter Gordon Quartet - Live in Chateauvallon (1978) 2CD, 2020, Elemental Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233922.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Rachel Therrien - Mi Hogar (2023) Outside in Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233902.jpg" />
+  <img src="Z:/picture/005/save_picture_233902.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Carrol McLaughlin - Jazz Harp (1985) 1997, Self-Released [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233900.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Melissa Stylianou - Dream Dancing (2022) Anzic Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233870.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Stanley Turrentine - The Best of Stanley Turrentine (1990) Epic [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233845.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dinah Washington - La Reine - The Queen (1943 - 1957) 2CD, 2008, Fremeaux & Asso
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233819.jpg" />
+  <img src="Z:/picture/005/save_picture_233819.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jay Jay Johnson Sextet - With Clifford Brown, Vol.1 (1953, 1954) 1995, Toshiba-E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233759.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Tadd Dameron And His Orchestra - The Magic Touch (1962) 1992, Original Jazz Clas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233752.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jessica Williams - Ain't Misbehavin' (1996) 1999, Candid [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233747.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Barbara Dennerlein - Christmas Soul (2015) MPS Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233745.jpg" />
+  <img src="Z:/picture/005/save_picture_233745.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Nicolas Parent - Intuitions (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233707.jpg" />
+  <img src="Z:/picture/005/save_picture_233707.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Horace Silver Quintet - Song For My Father (1963, 1964) 1995, Toshiba-EMI [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233696.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Brian Culbertson - Brian Culbertson Presents: Sleep (2023) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233662.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Kenny Dorham - Trompeta Toccata (1964) 1995, Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233644.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Buster Williams Quartet - Lost In A Memory (1999) TCB Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233599.jpg" />
+  <img src="Z:/picture/005/save_picture_233599.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Buster Williams Quartet - Lost In A Memory (1999) TCB Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AF1938F8D68246317B69AE4547673BC71779DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626614   (233590) от 15.04.2023
-
-Buster Williams - Dreams Come True (1978) 2020, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When the Sky Is Clear [8:41]
-02. Betcha by Golly, Wow! [6:44]
-03. Ain't Misbehavin' [7:16]
-04. Seascape [8:52](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CBB3CD8720FBE8336F250AC74021A507FF675A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511447   (233530) от 21.11.2021
-
-David Newman - Heads Up (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Misbehavin' [7:44]
-02. Makin' Whoopee [8:27]
-03. Heads Up [6:19]
-04. Old Folks [8:17](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2A5F298BF9BFCC66B0F6B3833E23609075E436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644297   (233404) от 05.07.2023
-
-Jacques Loussier - Four Classic Albums (1960 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Chamber Jazz, Third Stream, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allegro [5:38]
-02. Andante [4:39]
-03. Finale [6:03]
-04. Invention A Deux Voix No.1 [2:24](   Читать дальше...   )Жанр: Chamber Jazz, Third Stream, Piano JazzПродолжительность: 02:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1939BE20772001BB653E2016194AD127C9541B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627962   (233330) от 22.04.2023
-
-Richie Cole With Phil Woods - Side By Side (1980) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Your Love for Me [8:50]
-02. Naugahyde Reality [2:27]
-03. Scrapple from the Apple [8:14]
-04. Rain Go Away [8:07](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDBF329738EE78E5396E86D161DCB8689687180
 ```
 
 https://mybot314.ru/tekegram_catalog/

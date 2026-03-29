@@ -1,3 +1,82 @@
+###  Публикация: 1843085   (1049172) от 18.12.2025
+
+Марк Солмз, Оливер Тёрнбулл | Мозг и внутренний мир. Введение в нейробиологию субъективного переживания (2023) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049172.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мозг и внутренний мир" - долгожданная книга о важной революции, происходящей в науке. Субъективные психические состояния , такие как сознание, эмоции и сновидения, традиционно входили в сферу интересов философии, психоанализа и гуманитарных наук. В настоящее время этими вопросами заинтересовались ведущие нейробиологические лаборатории по всему миру, что (   Читать дальше...   )Жанр: ПсихологияПеревод: с англ. И.В. Батуева.Издательство: Академический проектФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8AA8A6335E2B2A25F23F411B24E8A711F62249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842896   (1049068) от 17.12.2025
+
+Людмила Мартьянова | Профайлинг  в действии. Характеристика собеседника за 10 минут (2023) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существуют различные типы людей, и важно научиться их распознавать. Шаг за шагом анализируя тех, кто встречается на вашем пути, вы сможете защитить себя и извлечь выгоду из любой ситуации. Книга, которую вы держите в руках, поможет прокачать навыки в общении, разобраться в ролях и личностях, исследовать мотивы и даст эффективные инструменты для работы с людьми.
+ (   Читать дальше...   )Жанр: Саморазвитие / личностный ростИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3FE62FE2DEEBB0CD57F5566CEDA870D20C38EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842899   (1049067) от 17.12.2025
+
+Антон Рыбаков, Вадим Челпанов | Анализ личности через профиль соцсетей. Интернет-разведка (2023) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Социальные сети давно стали неотъемлемой частью нашей жизни. Мы делимся фотографиями, публикуем и комментируем посты, подписываемся на интересующие нас сообщества, добавляем новых друзей и знакомых. Анализ информации, которую человек транслирует обществу через профиль в социальных сетях, позволяет сделать выводы о его личности. И даже закрытый профиль может кое-что (   Читать дальше...   )Жанр: Психология личности, Социальная психологияИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE828DC896C2E38ABD54C4A3E549E678E3A5623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842906   (1049066) от 17.12.2025
 
 Людмила Мартьянова | Поймать лжеца (2023) [FB2]
@@ -6,7 +85,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049066.jpg" />
+  <img src="Z:/picture/008/save_picture_1049066.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049063.jpg" />
+  <img src="Z:/picture/008/save_picture_1049063.jpg" />
 </div>
 
 
@@ -62,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049057.jpg" />
+  <img src="Z:/picture/008/save_picture_1049057.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049029.jpg" />
+  <img src="Z:/picture/008/save_picture_1049029.jpg" />
 </div>
 
 
@@ -116,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049028.jpg" />
+  <img src="Z:/picture/008/save_picture_1049028.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048897.jpg" />
+  <img src="Z:/picture/008/save_picture_1048897.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048883.jpg" />
+  <img src="Z:/picture/008/save_picture_1048883.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048874.jpg" />
+  <img src="Z:/picture/008/save_picture_1048874.jpg" />
 </div>
 
 
@@ -223,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048686.jpg" />
+  <img src="Z:/picture/008/save_picture_1048686.jpg" />
 </div>
 
 
@@ -249,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048592.jpg" />
+  <img src="Z:/picture/008/save_picture_1048592.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048585.jpg" />
+  <img src="Z:/picture/008/save_picture_1048585.jpg" />
 </div>
 
 
@@ -304,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048463.jpg" />
+  <img src="Z:/picture/008/save_picture_1048463.jpg" />
 </div>
 
 
@@ -332,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048461.jpg" />
+  <img src="Z:/picture/008/save_picture_1048461.jpg" />
 </div>
 
 
@@ -359,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048412.jpg" />
+  <img src="Z:/picture/008/save_picture_1048412.jpg" />
 </div>
 
 
@@ -387,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048395.jpg" />
+  <img src="Z:/picture/008/save_picture_1048395.jpg" />
 </div>
 
 
@@ -413,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047418.jpg" />
+  <img src="Z:/picture/005/save_picture_1047418.jpg" />
 </div>
 
 
@@ -440,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047160.jpg" />
+  <img src="Z:/picture/005/save_picture_1047160.jpg" />
 </div>
 
 
@@ -468,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047007.jpg" />
 </div>
 
 
@@ -496,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046480.jpg" />
 </div>
 
 
@@ -524,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044506.jpg" />
 </div>
 
 
@@ -550,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044483.jpg" />
 </div>
 
 
@@ -577,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043890.jpg" />
 </div>
 
 
@@ -605,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043030.jpg" />
 </div>
 
 
@@ -616,90 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DA24818D3835BCFC8240C802C3AA15FA659895F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436583   (1042985) от 01.01.2021
-
-Роб Уокер | С широко открытыми глазами. 131 Способ увидеть мир по-другому и найти радость в повседневности (2021) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам стать исследователем повседневного мира. Журналист Роб Уокер собрал лучшие практики и составил 131 увлекательное упражнение, которое вернет вам остроту восприятия и детскую радость открытия, позволит посмотреть на обыденные вещи новыми глазами и заметить то, что действительно важно для вас.
-
-Книга предоставлена нашим пользователемЖанр: Психология, СамосовершенствованиеПеревод: Елизавета ПономареваФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29FEA0EE7EAA90F224180BD00D9F1FBCDFE7DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436880   (1042775) от 02.01.2021
-
-Алан И. Фруззетти | Конфликтная пара. Как найти мир, близость и научиться уважать партнера. Поведенческая терапия (2019) [PDF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему мы иногда говорим чудовищные вещи человеку, которого любим больше всего на свете? Как получается, что попытка решить простой вопрос заканчивается тем, что двое кричат друг на друга? Отчего мы клянемся больше никогда не вести себя определенным образом и снова делаем это? Почему любящие люди боятся подойти друг к другу и избегают разговоров на важные темы?
-Конфликты (   Читать дальше...   )Жанр: Семейная психологияПеревод: А.М. ВарениковаФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EFCF7E5CDBAA2651B14414EBE55E7F64BFADA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436841   (1042762) от 02.01.2021
-
-Полина Максимова | Всё у тебя есть, беги давай! Книга о том, куда приводят бег и мечты (2020) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эту книгу стоит прочитать, если…
-Тебе надоели скучные книжки про ЗОЖ с сухими инструкциями.
-Ты хочешь вести правильный образ жизни из любви и радости, а не из-под палки.
-Тебе кажется, что спорт не для тебя, а бегать слишком опасно, слишком скучно или любое другое «слишком».(   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный рост, Спорт, фитнесФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD867480D985748D5A891BF01BD9808800277D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

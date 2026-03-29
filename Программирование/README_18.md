@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683606.jpg" />
+  <img src="Z:/picture/008/save_picture_683606.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Fabio Cimo | The Best Web Programming Languages to Learn (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682801.jpg" />
+  <img src="Z:/picture/008/save_picture_682801.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Raman Jhajj | Apache Hadoop Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682798.jpg" />
+  <img src="Z:/picture/008/save_picture_682798.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Fabio Cimo | Web Developer Interview Questions (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682674.jpg" />
+  <img src="Z:/picture/008/save_picture_682674.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Fabio Cimo | jQuery Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682672.jpg" />
+  <img src="Z:/picture/008/save_picture_682672.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Andriy Redko | Advanced Java (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682671.jpg" />
+  <img src="Z:/picture/008/save_picture_682671.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Web Code Geeks | HTML5 Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682666.jpg" />
+  <img src="Z:/picture/008/save_picture_682666.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Chryssa Aliferi | Android Programming Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682663.jpg" />
+  <img src="Z:/picture/008/save_picture_682663.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Francesco Azzola | Android UI Design (2014) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682662.jpg" />
+  <img src="Z:/picture/008/save_picture_682662.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Nikos Souris | How to Start a Blog with WordPress (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682660.jpg" />
+  <img src="Z:/picture/008/save_picture_682660.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Web Code Geeks | PHP Programming Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682532.jpg" />
+  <img src="Z:/picture/008/save_picture_682532.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Fabio Cimo | JavaScript Interview Questions (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682527.jpg" />
+  <img src="Z:/picture/008/save_picture_682527.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Sebastian Vinci | Python Programming Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682525.jpg" />
+  <img src="Z:/picture/008/save_picture_682525.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682393.jpg" />
+  <img src="Z:/picture/008/save_picture_682393.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Java code geeks | Apache Maven Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682261.jpg" />
+  <img src="Z:/picture/008/save_picture_682261.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682103.jpg" />
+  <img src="Z:/picture/008/save_picture_682103.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681785.jpg" />
+  <img src="Z:/picture/008/save_picture_681785.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681677.jpg" />
+  <img src="Z:/picture/008/save_picture_681677.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Veeramani Kalyanasundaram | Apache Solr Cookbook (2017) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680812.jpg" />
+  <img src="Z:/picture/008/save_picture_680812.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Andriy Redko | Developing Modern Applications with Scala (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680808.jpg" />
+  <img src="Z:/picture/008/save_picture_680808.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680659.jpg" />
+  <img src="Z:/picture/008/save_picture_680659.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Java code geeks | Apache Tomcat Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680407.jpg" />
+  <img src="Z:/picture/008/save_picture_680407.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Andres Cespedes | Gradle Build Automation Handbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678818.jpg" />
+  <img src="Z:/picture/008/save_picture_678818.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Java code geeks | GWT Programming Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678722.jpg" />
+  <img src="Z:/picture/008/save_picture_678722.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Matt Lambert | Bootstrap Site Blueprints Volume II (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678715.jpg" />
+  <img src="Z:/picture/008/save_picture_678715.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677173.jpg" />
+  <img src="Z:/picture/008/save_picture_677173.jpg" />
 </div>
 
 

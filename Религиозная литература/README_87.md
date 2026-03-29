@@ -1,3 +1,81 @@
+###  Публикация: 1338343   (269875) от 15.11.2019
+
+Священник Владимир Архипов | Книга о радости и страдании (2018) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путь человеческой жизни достаточно сложен и тернист: каждый день мы сталкиваемся с проблемами и попадаем в ситуации, в которых нам может быть трудно, больно и страшно. Как при этом не отчаиваться и проходить испытания с радостью в сердце, уповая во всем на Господа? Книга протоиерея Владимира Архипова поможет вам найти ответ на этот вопрос.Жанр: ХристианствоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF8F939E860E39529AF613C3CD974A1535B8BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338151   (269869) от 15.11.2019
+
+Архимандрит Наум (Байбородин) (сост.) | Как очистить свой ум и сердце: По творениям святых отцов (2019) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269869.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге архимандрит Наум (Байбородин; 1927-2017) собрал изречения снятых отцов о том, что такое чистота ума и сердца, как её достичь, какие препятствия ожидают подвижника на этом пути, а также о цели этого делания — стяжании «ума Христова» и обожении человека.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09083FCB09B2409F8F58CC2BC1E4FF1C65CA7A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338350   (269849) от 15.11.2019
+
+В.П. Филимонов | Как создаются легенды. Под маской Православия. Допустима ли неправда в Церкви? (2012) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269849.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре на строго документальной основе разоблачается мифотворческая деятельность и ложь настоятеля подворья несуществующего монастыря священника Г. Беловолова относительно происхождения и истории иконы «Аз есмь с вами и никтоже на вы».Жанр: Христианская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B413ACAF4AC603B62B23764DAFB77FBF1791000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189849   (269587) от 07.12.2017
 
 Старец Паисий Святогорец | Святой Арсений Каппадокийский (2008) [FB2, EPUB]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269587.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269573.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268985.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268974.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268906.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268897.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268895.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268866.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267052.jpg" />
+  <img src="Z:/picture/008/save_picture_267052.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267037.jpg" />
+  <img src="Z:/picture/008/save_picture_267037.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266921.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266014.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265913.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265362.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265244.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265240.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265126.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264474.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264300.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264293.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264289.jpg" />
 </div>
 
 
@@ -573,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264236.jpg" />
 </div>
 
 
@@ -601,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264226.jpg" />
 </div>
 
 
@@ -612,84 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1A6198BD66EEAADD7F998562D58F1FCDEE49A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191569   (264173) от 14.12.2017
-
-Дмитрий Семеник | Делать ли аборт? [Сборник] (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рожать или делать аборт? Этот страшный вопрос задают себе миллионы женщин. Очень часто в разрешении этого вопроса у них нет понимающего, мудрого друга, который мог бы поддержать или хотя бы объяснить, чего будет стоить аборт. Эта книга призвана сыграть роль такого друга. Несмотря на небольшой объём, она даёт много информации о наиболее существенных последствиях аборта, (   Читать дальше...   )Жанр: Православие. ПсихологияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514AF6565B4029756E02216951340582316A6345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191678   (264172) от 14.12.2017
-
-Джанфранко Равази | Краткая история души (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество всегда искало ответ на вопрос: что такое душа; одни считали ее накрепко привязанной к телу, другие — чистым духом. Следы души приводили к сердцу человека, к совести и даже к разуму. Светские исследователи отождествляли ее с психе или с системой нейронов, верующие чувствовали, что она — бездна света, в которой открывается Бог. На страницах этой книги (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929142D5AFD8B25282D2DB7E9C26F352D8D9B171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191668   (264142) от 14.12.2017
-
-Акоп Мегапарт | Книга пятницы [Урбатагирк / Ուրբաթագիրք] (1512) [PDF] [ARM]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая печатная книга на армянском языке называлась Урбатагирк ("Книга пятницы") и была издана в 1512 году в Венеции Акопом Мегапартом ("Грешником"). Об Акопе Мегапарте практически ничего не известно, так же как и о том, почему он именовал себя Грешником (или Грешным). В тот период Армения находилась под владычеством Османской империи, и существенную (   Читать дальше...   )Жанр: МолитвенникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BBA5E1F2B4CBE6D3DB17ABD5167F06619B0F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1523206   (753156) от 10.01.2022
+
+Голос Океана / Fathom (2021) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающая история двух биологов, которые решают расшифровать язык китов.Телекомпания: США, Back Allie Productions, Hidden Candy, Impact PartnersЖанр: Документальный, ФаунаРежиссер: Дрю КсанопулосПеревод: Многоголосый любительский ("Синема УС")Субтитры: 42 языка: Русский, Украинский, English, French, Spanish, Czech, Estonian, German, Italian, Japanese, и др.Продолжительность: 01:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C003BA680D02E264161A2BBC0B7B4CDFEA302353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395949   (752035) от 12.07.2020
+
+Тайная жизнь тасманийского дьявола / Secret Life of the Tasmanian Devil (2016) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тасманийские дьяволы - это настоящие задиры животного мира: злющие, бесстрашные и всегда готовые к битве. А ещё они славятся необычайной прожорливостью. Но несмотря на то, что они находятся на вершине пищевой цепи, эти хищные сумчатые находятся на грани вымирания из-за смертельной болезни, которую они передают друг другу через укусы. Этот фильм - лишь небольшая часть (   Читать дальше...   )Производство: Великобритания, Blink FilmsЖанр: Документальный, природаПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 2 х ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DD0816D26AE41D08F3B7C0062892695373AEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281586   (751962) от 08.02.2019
 
 Наши любимые собаки / Our Favorite Dogs (2016) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751962.jpg" />
+  <img src="Z:/picture/008/save_picture_751962.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749853.jpg" />
+  <img src="Z:/picture/008/save_picture_749853.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749314.jpg" />
+  <img src="Z:/picture/008/save_picture_749314.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749089.jpg" />
+  <img src="Z:/picture/008/save_picture_749089.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746554.jpg" />
+  <img src="Z:/picture/008/save_picture_746554.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746550.jpg" />
+  <img src="Z:/picture/008/save_picture_746550.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745829.jpg" />
+  <img src="Z:/picture/008/save_picture_745829.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743733.jpg" />
+  <img src="Z:/picture/008/save_picture_743733.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ IMAX. Жизнь глубин (На глубине) / Into the Deep (1994) BDRem
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743505.jpg" />
+  <img src="Z:/picture/008/save_picture_743505.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742351.jpg" />
+  <img src="Z:/picture/008/save_picture_742351.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742334.jpg" />
+  <img src="Z:/picture/008/save_picture_742334.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742239.jpg" />
+  <img src="Z:/picture/008/save_picture_742239.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741805.jpg" />
+  <img src="Z:/picture/008/save_picture_741805.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741300.jpg" />
+  <img src="Z:/picture/008/save_picture_741300.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740198.jpg" />
+  <img src="Z:/picture/008/save_picture_740198.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739104.jpg" />
+  <img src="Z:/picture/008/save_picture_739104.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739023.jpg" />
+  <img src="Z:/picture/008/save_picture_739023.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738749.jpg" />
+  <img src="Z:/picture/008/save_picture_738749.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738414.jpg" />
+  <img src="Z:/picture/008/save_picture_738414.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738053.jpg" />
+  <img src="Z:/picture/008/save_picture_738053.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736800.jpg" />
+  <img src="Z:/picture/008/save_picture_736800.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735836.jpg" />
+  <img src="Z:/picture/008/save_picture_735836.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732697.jpg" />
+  <img src="Z:/picture/008/save_picture_732697.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732465.jpg" />
+  <img src="Z:/picture/008/save_picture_732465.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BC1E89033230C854A6D074C75B30FD84A0CA708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282486   (731947) от 18.02.2019
-
-Жизнь: первые шаги / Life: First Steps (2018) HDTVRip (серии 1-3) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первые дни, недели и месяцы жизни каждого животного - самые напряженные. Им предстоит научиться сложным вещам тогда, когда они наиболее уязвимы. Однако природа создала множество стратегий, позволяющих малышам дожить до взросления, несмотря ни на что. Мы увидим, как наши крошечные герои сражаются в битве, каждый шаг которой приводит их всё ближе к успеху.Производство: Великобритания, Offspring Films, Sky TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Дэн ПероунПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C6C13DFCA39570DF4EAC205D90B2C6108C7225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530866   (727722) от 12.02.2022
-
-Животный мир Скалистых гор / Wild Rockies (2015) WEB-DL [H.264/1080p] (серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикие Скалистые горы протянулись почти на 5000 км через международные границы, достигнув тысяч футов в небе - это больше, чем просто массивные горы, они чудовищные. Горы перенесут вас в некоторые из уникальных экосистем этой обширной горной цепи и познакомят вас с животными, от диких лошадей в пустынной долине Оканаган, до медведей-гризли, отгоняющих лосося из рек, (   Читать дальше...   )Производство: Канада, Whistlestop Productions INC, Arcadia EntertainmentЖанр: документальный, флора, фаунаРежиссер: Джон БановичПеревод: двуголосый профессиональныйСубтитры: английскиеПродолжительность: 5x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE24147FBEA08C82ADC277A67E3F67A1ABB2F75
 ```
 
 https://mybot314.ru/tekegram_catalog/

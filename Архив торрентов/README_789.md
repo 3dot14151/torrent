@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872128.jpg" />
+  <img src="Z:/picture/008/save_picture_872128.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872127.jpg" />
+  <img src="Z:/picture/008/save_picture_872127.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872125.jpg" />
+  <img src="Z:/picture/008/save_picture_872125.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872124.jpg" />
+  <img src="Z:/picture/008/save_picture_872124.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Crisopa - A Lucid Dream Kit (2015) [n5MD] [FLAC|Lossless|WEB-DL]<IDM, Downtempo,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872111.jpg" />
+  <img src="Z:/picture/008/save_picture_872111.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872098.jpg" />
+  <img src="Z:/picture/008/save_picture_872098.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ QQ Browser 9.3.6872.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872096.jpg" />
+  <img src="Z:/picture/008/save_picture_872096.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ DJ Nike Twist - TranceWave 136 @ GTI Radio (17.03.2016) [MP3|320 кб/с] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872093.jpg" />
+  <img src="Z:/picture/008/save_picture_872093.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ KakaoTalk 2.1.2.1124 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872089.jpg" />
+  <img src="Z:/picture/008/save_picture_872089.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Sogou Explorer 6.1.5.20644 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872088.jpg" />
+  <img src="Z:/picture/008/save_picture_872088.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Who Ha - Khaki (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Retro Synth, Synthwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872084.jpg" />
+  <img src="Z:/picture/008/save_picture_872084.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872083.jpg" />
+  <img src="Z:/picture/008/save_picture_872083.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Who Ha - Out Running (2013) [FLAC|Lossless|WEB-DL|tracks] <Retro Synth, Synthwav
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872081.jpg" />
+  <img src="Z:/picture/008/save_picture_872081.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872039.jpg" />
+  <img src="Z:/picture/008/save_picture_872039.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Qiyu Swordfish Browser 1.0.7.0 [En/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872038.jpg" />
+  <img src="Z:/picture/008/save_picture_872038.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872030.jpg" />
+  <img src="Z:/picture/008/save_picture_872030.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Roots Manuva - Bleeds (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871977.jpg" />
+  <img src="Z:/picture/008/save_picture_871977.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Maxthon Cloud Browser 4.9.2.400 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871975.jpg" />
+  <img src="Z:/picture/008/save_picture_871975.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Yummy FTP Pro 1.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871973.jpg" />
+  <img src="Z:/picture/008/save_picture_871973.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ xScope 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871972.jpg" />
+  <img src="Z:/picture/008/save_picture_871972.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871970.jpg" />
+  <img src="Z:/picture/008/save_picture_871970.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ AnyMP4 Blu-ray Ripper 6.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871968.jpg" />
+  <img src="Z:/picture/008/save_picture_871968.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Download Master 6.8.1.1509 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871964.jpg" />
+  <img src="Z:/picture/008/save_picture_871964.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ AnyMP4 DVD Converter 6.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871963.jpg" />
+  <img src="Z:/picture/008/save_picture_871963.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Power Manager 4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871962.jpg" />
+  <img src="Z:/picture/008/save_picture_871962.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Cyberfox 45.0.2 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871886.jpg" />
+  <img src="Z:/picture/008/save_picture_871886.jpg" />
 </div>
 
 

@@ -1,3 +1,113 @@
+###  Публикация: 1136099   (676346) от 21.05.2017
+
+Adobe Audition CC 2017.1.1 (10.1.1) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: май 2017Разработчик: AdobeПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680619E84B5E346E47DE4D2EC74C992BEF803CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290724   (676330) от 21.03.2019
+
+Principle 5 v5.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Principle - инструмент для прототипирования
+Principle — приложение для Mac OS, которое позволяет в два счета создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то многоэкранное приложение или просто придуманный вами контрол, так просто и быстро реализовать это раньше не позволял ни один сервис.Тип издания: macOS SoftwareРелиз состоялся: 20.03.2019Разработчик: Daniel HooperПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423812AD770BC62DEEED87773764D1732CFE65D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290469   (676329) от 21.03.2019
+
+MediaHuman YouTube Downloader 3.9.9.13 (1803) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676329.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+● Закачка нескольких файлов одновременно
+● Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: MediaHumanПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8D747E14C81055E5C6BD0CF8A780E7C84F55A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290672   (676325) от 21.03.2019
+
+Blocs 3.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
+
+Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2019Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8B65F2798ACBE3D62BE53FF143F0C536479BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030277   (676261) от 29.06.2016
 
 iStatistica 2.0 [Multi/Ru]
@@ -6,7 +116,7 @@ iStatistica 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676261.jpg" />
+  <img src="Z:/picture/008/save_picture_676261.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ KeyCue 8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676255.jpg" />
+  <img src="Z:/picture/008/save_picture_676255.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ Wondershare AllMyTube 7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676203.jpg" />
+  <img src="Z:/picture/008/save_picture_676203.jpg" />
 </div>
 
 
@@ -88,7 +198,7 @@ Pixelmator 3.8.2 (90215) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676036.jpg" />
+  <img src="Z:/picture/008/save_picture_676036.jpg" />
 </div>
 
 
@@ -114,7 +224,7 @@ Airmail 3 v3.6.58 (546) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675749.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ OmniFocus Pro 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675747.jpg" />
 </div>
 
 
@@ -170,7 +280,7 @@ Microsoft Office Standard 2016 VL v15.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675637.jpg" />
 </div>
 
 
@@ -197,7 +307,7 @@ iFinance 4.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675076.jpg" />
 </div>
 
 
@@ -223,7 +333,7 @@ Downie 2.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_675073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_675073.jpg" />
 </div>
 
 
@@ -251,7 +361,7 @@ Flux 7.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675071.jpg" />
 </div>
 
 
@@ -277,7 +387,7 @@ Viscosity 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675062.jpg" />
 </div>
 
 
@@ -306,7 +416,7 @@ Airmail 3.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674902.jpg" />
 </div>
 
 
@@ -334,7 +444,7 @@ iLock 2.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674897.jpg" />
 </div>
 
 
@@ -363,7 +473,7 @@ Posterino 3.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674894.jpg" />
 </div>
 
 
@@ -391,7 +501,7 @@ FontDoctor 10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674798.jpg" />
 </div>
 
 
@@ -419,7 +529,7 @@ Elmedia Player Pro 8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674795.jpg" />
 </div>
 
 
@@ -446,7 +556,7 @@ Things 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674751.jpg" />
 </div>
 
 
@@ -474,7 +584,7 @@ Keep It 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674448.jpg" />
+  <img src="Z:/picture/008/save_picture_674448.jpg" />
 </div>
 
 
@@ -500,7 +610,7 @@ TextMate 2.0 rc-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674342.jpg" />
+  <img src="Z:/picture/008/save_picture_674342.jpg" />
 </div>
 
 
@@ -528,7 +638,7 @@ Qbserve 1.82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674338.jpg" />
+  <img src="Z:/picture/008/save_picture_674338.jpg" />
 </div>
 
 
@@ -557,7 +667,7 @@ Pixave 2.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674331.jpg" />
+  <img src="Z:/picture/008/save_picture_674331.jpg" />
 </div>
 
 
@@ -583,7 +693,7 @@ Remotix VNC & RDP 4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674293.jpg" />
+  <img src="Z:/picture/008/save_picture_674293.jpg" />
 </div>
 
 
@@ -595,113 +705,6 @@ Remotix это быстрый, удобный и безопасный VNC и RDP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0F36F8925833515FDD99718DEF7B049876BC4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030516   (674289) от 30.06.2016
-
-PhoneRescue 3.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674289.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 июня 2016Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8006BB0DE54F88F9F148C0FF1C7CB092BFA925D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290884   (674193) от 22.03.2019
-
-FontLab VI v6.1.3 (7013) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674193.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
-
-По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2019Разработчик: FontLab StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA10DBF937A4DA1EEC138A2070AC03FB735382E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290964   (674192) от 22.03.2019
-
-TG Pro (Temperature Gauge Pro) 2.39 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674192.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2019Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB24A5EE14C41943990480B7956D99DDE53E65A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536613   (674169) от 12.03.2022
-
-Adobe Illustrator 2022 v26.1 U2B [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Adobe Illustrator 2021 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 Adobe SystemsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C74C0710F6D61FBCFC63044173CA9A8D3345A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

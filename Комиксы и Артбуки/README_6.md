@@ -6,7 +6,7 @@
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427790.jpg" />
+  <img src="Z:/picture/008/save_picture_427790.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DreamWorks Animation | Артбук по мультфильмам Как при�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427275.jpg" />
+  <img src="Z:/picture/008/save_picture_427275.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rovio Entertainment | Артбук по мультфильму Angry Birds / The
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425299.jpg" />
+  <img src="Z:/picture/008/save_picture_425299.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nickelodeon | Артбук по мультсериалу Аватар: Леге�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422915.jpg" />
+  <img src="Z:/picture/008/save_picture_422915.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nickelodeon | Артбук по мультсериалу Легенда о Ко�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420649.jpg" />
+  <img src="Z:/picture/008/save_picture_420649.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Frozenbyte | Артбук по игре Trine 2 / Trine 2 - Artbook (2011) [PDF]
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419143.jpg" />
+  <img src="Z:/picture/008/save_picture_419143.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Benoit Sokal | Артбук по игре Сибирь: Память прошл�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418966.jpg" />
+  <img src="Z:/picture/008/save_picture_418966.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crystal Dynamics | Артбук по игре Tomb Raider / Tomb Raider - Artboo
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418950.jpg" />
+  <img src="Z:/picture/008/save_picture_418950.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Top Cow Production | Артбук по комиксу Witchblade / The Art of Wi
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418669.jpg" />
+  <img src="Z:/picture/008/save_picture_418669.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Frozenbyte | Артбук по игре Trine 4: The Nightmare Prince / The Art 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416696.jpg" />
+  <img src="Z:/picture/008/save_picture_416696.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Guerrilla Games | Артбук по игре Horizon Zero Dawn / The Art of Hori
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416506.jpg" />
+  <img src="Z:/picture/008/save_picture_416506.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Lightbulb Crew | Артбук по игре Othercide / Othercide - Artbook (202
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414606.jpg" />
+  <img src="Z:/picture/008/save_picture_414606.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Deck13 Interactive, City Interactive | Артбук по игре Lords of the F
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414396.jpg" />
+  <img src="Z:/picture/008/save_picture_414396.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dynamite | Артбук по комиксу Dejah Thoris and the Worlds of Mars 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414188.jpg" />
+  <img src="Z:/picture/008/save_picture_414188.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Storm in a Teacup | Артбук по игре Close to the Sun / Close to the S
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412368.jpg" />
+  <img src="Z:/picture/008/save_picture_412368.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Martin Robinson | Артбук по игре Castlevania: Lords of Shadow / The 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412225.jpg" />
+  <img src="Z:/picture/008/save_picture_412225.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ice-Pick Lodge | Артбук по игре Pathologic 2 / The Art of Pathologic
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412224.jpg" />
+  <img src="Z:/picture/008/save_picture_412224.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BioWare | Артбук по игре Anthem / The Art of Anthem (2019) [CBZ] [EN
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412103.jpg" />
+  <img src="Z:/picture/008/save_picture_412103.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ F.J. DeSanto | Hitman: Agent 47: Official Movie Prelude / Хитмэн: Аген
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409119.jpg" />
+  <img src="Z:/picture/008/save_picture_409119.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Lionsgate | Артбук по фильму Хеллбой / Hellboy: The Art of 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407361.jpg" />
+  <img src="Z:/picture/008/save_picture_407361.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400915.jpg" />
+  <img src="Z:/picture/008/save_picture_400915.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Nintendo | Артбук по играм Legend of Zelda / The Legend of Zelda: A
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382952.jpg" />
+  <img src="Z:/picture/008/save_picture_382952.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372574.jpg" />
+  <img src="Z:/picture/008/save_picture_372574.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372143.jpg" />
+  <img src="Z:/picture/008/save_picture_372143.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367192.jpg" />
+  <img src="Z:/picture/008/save_picture_367192.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Croteam | Артбук по игре Serious Sam 4 / The Art of Serious Sam 4 (2
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364518.jpg" />
+  <img src="Z:/picture/008/save_picture_364518.jpg" />
 </div>
 
 

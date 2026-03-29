@@ -1,3 +1,173 @@
+###  Публикация: 1440385   (1038660) от 17.01.2021
+
+ConvertMonster | Интернет-маркетолог 3.0 (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический видеокурс подготовки высококвалифицированных специалистов по интернет-маркетингу с обучением на вашем проекте.
+На основе 8-летнего опыта агентства Convert Monster мы разработали курс «Интернет-маркетолог 3.0», который даст вам набор необходимых знаний и инструментов по привлечению клиентов из интернет.
+Вы научитесь создавать посадочные страницы, настраивать (   Читать дальше...   )Производство: ConvertMonsterЖанр: МаркетингПродолжительность: 59:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D66B44C310A0642B3056D40B39CF7F5C93A1614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440434   (1038649) от 17.01.2021
+
+ConvertMonster | Специалист по трафику, трафик-менеджер 2.0 (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038649.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курс «Трафик-менеджер, специалист по трафику 2.0» вошли все наши наработки по привлечению трафика — только то, что реально работает и приносит прибыль.
+Вы научитесь:
+Определять и сегментировать целевую аудиторию, проводить конкурентный анализ рынка, составлять медиаплан;
+Настраивать эффективную рекламу на поиске в Яндекс.Директ и Google Ads;(   Читать дальше...   )Производство: ConvertMonsterЖанр: Арбитраж трафикаПродолжительность: 39:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6164F7236F08FAF58D26F120F93EE0CB5E20A219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441127   (1037971) от 20.01.2021
+
+Азамат Ушанов | Золотой актив (2017) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моё главное отличие - я даю весь материал ПОШАГОВО в формате "Шаг 1", "Шаг 2", "Шаг 3".
+
+Да, нет никаких историй, камеди-клаба и т.п.
+Золотой актив - это отнюдь не развлекуха и хихи-хаха.(   Читать дальше...   )Жанр: ТренингПродолжительность: 13:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D859E346D98F454BDE531F08A5CA12E0107F229E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615393   (1037702) от 25.02.2023
+
+Slurm (Слёрм) | Soft skills для каждого (2022) WEB-DL [Тариф Мне просто спросить!] [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс для тех, кто хочет динамично и без выгораний расти в карьере.
+К концу курса вы наладите отношения с начальством и коллегами, научитесь эффективно управлять временем, задачами и ресурсами.
+
+Вы начнёте лучше понимать себя: что вам интересно в работе, в каком направлении вы хотите развиваться.(   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:43:30Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED75B90AA7458CF9193EAF6A3C7C84EE8372B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441425   (1037636) от 21.01.2021
+
+Udemy, Rob Percival и др. | The Complete Digital Marketing Course - 12 Courses in 1  (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это один из самых полных доступных курсов цифрового маркетинга, включающий более 20 часов обучения, викторин и практических шагов. Мы расскажем о SEO, маркетинге на YouTube, маркетинге в Facebook, Google Adwords, Google Analytics и многом другом!
+
+Учиться на практике.
+Курс очень интерактивен, в каждый раздел встроены проекты, контрольные списки и полезные лекции.(   Читать дальше...   )Производство: UdemyЖанр: МаркетингЯзык озвучки: АнглйискийПродолжительность: 23:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76357C33C61D0EC439C23C455715060ED37BD057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441647   (1037356) от 22.01.2021
+
+Павел Антонов | Facebook Performance Pro (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как подняться на следующую ступень в работе с рекламой Facebook & Instagram, чтобы зарабатывать $3000+/мес и начать работать с международными проектамиПроизводство: TargetoriumЖанр: SMM, МаркетингЯзык озвучки: РусскийПродолжительность: 50:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3973CDB1A2B11A0EF3B79C7F3EA9610002862C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441926   (1037029) от 23.01.2021
 
 Skillbox, Дмитрий Крутов и др. | Продюсер онлайн-курсов (2020) CamRip
@@ -6,7 +176,7 @@ Skillbox, Дмитрий Крутов и др. | Продюсер онлайн-�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037029.jpg" />
 </div>
 
 
@@ -35,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036876.jpg" />
 </div>
 
 
@@ -64,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036811.jpg" />
 </div>
 
 
@@ -93,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036807.jpg" />
 </div>
 
 
@@ -122,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036784.jpg" />
 </div>
 
 
@@ -150,7 +320,7 @@ Convert Monster | Яндекс.Директ [Пакет "Эксперт"] (2019)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036764.jpg" />
 </div>
 
 
@@ -178,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036514.jpg" />
 </div>
 
 
@@ -205,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036507.jpg" />
 </div>
 
 
@@ -231,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035950.jpg" />
 </div>
 
 
@@ -259,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035940.jpg" />
 </div>
 
 
@@ -288,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035912.jpg" />
 </div>
 
 
@@ -314,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035681.jpg" />
 </div>
 
 
@@ -343,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035668.jpg" />
 </div>
 
 
@@ -372,7 +542,7 @@ SEMPRO | SEO-конференция. Как делать SEO для западн
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035434.jpg" />
 </div>
 
 
@@ -400,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034619.jpg" />
 </div>
 
 
@@ -429,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034552.jpg" />
 </div>
 
 
@@ -455,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034549.jpg" />
 </div>
 
 
@@ -484,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034516.jpg" />
 </div>
 
 
@@ -513,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032878.jpg" />
 </div>
 
 
@@ -542,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031993.jpg" />
 </div>
 
 
@@ -553,176 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A710979FFA91914C0D6C502E391C98D85FAA179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621009   (1031311) от 23.03.2023
-
-Skillbox | Soft Skills for Hard Times (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь управлять командами, заключать выгодные сделки, выступать на публике. Сможете лучше справляться с работой и быстро договариваться с клиентами и партнёрами.
-Soft Skills или гибкие навыки — комплекс умений, связанных с личностными качествами человека. Например, навыки делового общения, тайм-менеджмента или работы в команде.
-Soft Skills помогают лучше выполнять (   Читать дальше...   )Производство: SkillboxЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 68:06:12Реклама: Присутствуют сторонние наложения и вставки в видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5440AF1770D468A1C09F69911EC8751E72319D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450225   (1029114) от 25.02.2021
-
-Мария Афонина | Курс по запускам и продюсированию. 2 поток. Тариф - Продюсер (2020) PCRec
-
->>След.
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по запуску онлайн-курсов и пр.Производство: МасштабЖанр: Бизнес, МаркетингЯзык озвучки: РусскийПродолжительность: 00:13:00 (видеоурок)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF18F8C102403E81A4B2876F10FC595CD4105CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450894   (1028690) от 28.02.2021
-
-Moscow Business School | MBA Start. Модуль 4. Организационное поведение (2008) DVDRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы нашли эту раздачу – Вы знаете что такое MBA
-В данной раздаче выложен видеокурс одного из 15-ти модулей программы MBA Start:
-Модуль 4. Организационное поведение
-от Moscow Business School, дистрибутирующей MBA General, стоимостью от 4500$(   Читать дальше...   )Производство: Россия. MBSЖанр: БизнесЯзык озвучки: РусскийПродолжительность: ~14:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF05D09182C28A736D8FE1C3DFD26BC1E41C330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450896   (1028687) от 28.02.2021
-
-Moscow Business School | MBA Start. Модуль 6. Методы исследований в бизнесе (2008) DVDRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы нашли эту раздачу – Вы знаете что такое MBA
-В данной раздаче выложен видеокурс одного из 15-ти модулей программы MBA Start:
-Модуль 6. Методы исследований в бизнесе.
-от Moscow Business School, дистрибутирующей MBA General, стоимостью от 4500$ и предназначенный для дистанционного обучения в течение одного года(   Читать дальше...   )Производство: Россия. MBSЖанр: БизнесЯзык озвучки: РусскийПродолжительность: ~10:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4761365CAE0AD7D0490B8AF4FA955F2AF6FED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450891   (1028685) от 28.02.2021
-
-Moscow Business School | MBA Start. Модуль 3. Общий менеджмент (2008) DVDRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы нашли эту раздачу – Вы знаете что такое MBA
-В данной раздаче выложен видеокурс одного из 15-ти модулей программы MBA Start:
-Модуль 3. Общий менеджмент
-от Moscow Business School, дистрибутирующей MBA General, стоимостью от 4500$ и предназначенный для дистанционного обучения в течение одного года(   Читать дальше...   )Производство: Россия. MBSЖанр: БизнесЯзык озвучки: РусскийПродолжительность: ~11:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A444203A4BC150A821435193FB2F6780A6C706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450895   (1028681) от 28.02.2021
-
-Moscow Business School | MBA Start. Модуль 5. Финансы в организации (2008) DVDRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы нашли эту раздачу – Вы знаете что такое MBA
-В данной раздаче выложен видеокурс одного из 15-ти модулей программы MBA Start:
-Модуль 5. Финансы в организации.
-от Moscow Business School, дистрибутирующей MBA General, стоимостью от 4500$(   Читать дальше...   )Производство: Россия. MBSЖанр: БизнесЯзык озвучки: РусскийПродолжительность: ~14:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97769AA03B9F7C8ECBD710659E921D020CE3081
 ```
 
 https://mybot314.ru/tekegram_catalog/

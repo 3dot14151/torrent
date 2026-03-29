@@ -1,3 +1,109 @@
+###  Публикация: 1693353   (121878) от 20.01.2024
+
+PDF Expert 3.8.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121878.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - редактор  PDF. Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому.
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2015-2024 Readdle Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A2E22409BAC981ADD9A0B3151D9C844F7560B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693468   (121874) от 20.01.2024
+
+Topaz Video AI for Mac 4.1.1 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14BF751A7E3F39A0EB9C835A5E3627B0EBAF3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693337   (121867) от 20.01.2024
+
+ACDSee Photo Studio 10 for Mac v.10.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ACDSee Photo Studio — одно из лучших решений для работы с графическими изображениями в среде Mac. Качественная обработка фотоснимков, оптимизация всех аспектов рабочего процесса, экономия времени, усилий и финансов пользователей — все это обеспечивает ACDSee Photo Studio.
+Интерфейс программы позволяет проводить удобную для работы настройку. Его ориентация (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: © 2021 ACD Systems International Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87A56D86E94C723C11AA31570AEBA5BA5C96F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693432   (121857) от 20.01.2024
+
+Master of Typing 3 - Practice 15.14.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master of Typing создан для тех, кто хочет научиться печатать вслепую. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2024Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEB571DAEC3F6364A1A1E56D158F68F7D6B8A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693371   (121855) от 20.01.2024
 
 Wondershare Recoverit for Mac 12.5.1.5 [Multi/Ru]
@@ -6,7 +112,7 @@ Wondershare Recoverit for Mac 12.5.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121855.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ WiFi Signal Strength: Wifiry 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121845.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Magic Disk Cleaner 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121844.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ AutoKrypt 13 for Mac 13.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121839.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Typora for Mac 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121837.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ SQLPro Studio 2023.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121832.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Scrutiny 12.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121819.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Wing Pro 10 for Mac 10.0.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121705.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ OmniReader Pro for Mac 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121691.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ DVD-Cloner 2024 for Mac v.11.00.740  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121690.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ VueScan Pro for Mac 9.8.26 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121509.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121478.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ Smooze Pro 2.0.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121458.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ Stats 2.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121455.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ djay - DJ App & AI Mixer 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121453.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ macOS 14 Sonoma 14.3 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121392.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ Live Home 3D Pro Edition 4.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121335.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ SecuritySpy 5.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121296.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ Mp3tag 1.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121275.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ SponsorBlock for YouTube 5.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121264.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ iNet Network Scanner 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121259.jpg" />
 </div>
 
 
@@ -557,7 +663,7 @@ Text Workflow 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121253.jpg" />
 </div>
 
 
@@ -569,112 +675,6 @@ Text Workflow 1.8.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838B8478947A79659DB4D2B7D66A8EB1995FA8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693970   (121252) от 23.01.2024
-
-Sound Siphon 3.6.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sound Siphon делает аудиовыход вашего Mac доступным в качестве устройства ввода звука. Приложение позволяет отправлять аудио из одного приложения в другое, где его можно обрабатывать, транслировать или записывать. Это так же просто, как выбрать микрофон в вашем любимом приложении. Sound Siphon работает с Core Audio, чтобы предоставить эту возможность всем вашим аудио (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.01.2024Разработчик: © 2022 Static Z SoftwareПоддерживаемая ОС: macOS 11.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F201DFD09FEDBD58BA9B04CD53DEF58AE6505DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694143   (121251) от 23.01.2024
-
-Iris 1.6.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iris — это высокопроизводительный экранный рекордер, который записывает в формате h.264. Iris использует ускорение встроенного графического процессора, если оно доступно. Дополнительно может включать видео с камеры и до двух микрофонов. Iris может бесплатно попробовать водяной знак, встроенный в записи.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2023 Static Z SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4154AFCFF927B3CC8DC5EF055786B97B16D5765E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694152   (121248) от 23.01.2024
-
-Cardhop 2.2.15 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121248.jpg" />
-</div>
-
-
-###  Подробнее
-
-До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
-Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2017-2022 Flexibits Inc.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5171816F5823BD9B99FBD528EF41A8C6108337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694132   (121247) от 23.01.2024
-
-Debit & Credit Premium 6.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы ищете приложение для учета личных финансов, которая является максимально удобной, но в, то же время, обладает достаточным количеством функций, то Debit & Credit - это лучший выбор для вас.
-Обычно учет финансов требует времени и усилий. Но теперь с Debit & Credit этот процесс наконец-то стал намного удобней. Просматривайте свои счета в одном месте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2023 Ivan PavlovПоддерживаемая ОС: macOS 10.14.5+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707BBF30D1DAB546180F3BBBC630C5B3685A2DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

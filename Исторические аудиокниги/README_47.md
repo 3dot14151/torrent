@@ -1,3 +1,84 @@
+###  Публикация: 1797259   (17992) от 17.05.2025
+
+Жан Делюмо | Ужасы на западе II. Правящая культура и страх (2025) [MP3, Роман Ильин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страх, что это такое? Каково соотношение личностного и общественного в страхе? Как страх, испытываемый отдельным человеком, проникает в общественное сознание и становится коллективным чувством? Каковы причины, питательная почва страха, и к каким последствиям приводит страх, овладевший целым сообществом людей? Вот круг проблем, изучаемых автором на культурологическом (   Читать дальше...   )Жанр: ИсторияИздательство: Аудиокнига своими рукамиПродолжительность: 08:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37596CD375445108E5C3E28BFA90E0D4E16D5778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800721   (15548) от 05.06.2025
+
+Александр Пушкин | История Пугачева (2008) [MP3, Юрий Радкевич]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Литературный сериал.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+«История Пугачёва» («История Пугачёвского бунта») – историческая монография А.С. Пушкина о событиях крестьянской войны 1773–1775 годов (   Читать дальше...   )Жанр: Русская литература, классика, историческая прозаИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 03:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA8538A2979B356D8DE29A73063F0A988EF880C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762441   (13275) от 27.06.2025
+
+Иван Забелин | Минин и Пожарский (2012) [MP3, Егор Серов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Егорович Забелин (1820–1908) – один из виднейших русских историков XIX века, археолог, музейный деятель, коллекционер, действительный статский советник (1876), член-корреспондент (1884), почетный член (1907) Петербургской Академии наук.
+Книга Забелина посвящена событиям 400-летней давности – тревожным временам Смуты, когда решающую роль в борьбе за независимость (   Читать дальше...   )Жанр: Русская литература, историческая прозаИздательство: Студия «АРДИС»Продолжительность: 08:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A6E0276945443130A86F25F13E679A41C93AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806105   (11904) от 10.07.2025
 
 Виктор Бычков | Проводник с того света (2019) [MP3, Вячеслав Задворных]
@@ -6,7 +87,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11904.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7697.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6768.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6740.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6739.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6455.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6109.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5495.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5338.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5335.jpg" />
 </div>
 
 
@@ -275,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5325.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5138.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4083.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4064.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4061.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4058.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4047.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3590.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3588.jpg" />
 </div>
 
 
@@ -512,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3586.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3570.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3567.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3566.jpg" />
 </div>
 
 
@@ -601,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AD431A219E350852F126C8A643F94F3B42BB898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817113   (3565) от 09.09.2025
-
-Конн Иггульден | Война роз (Книга 3). Право крови (2025) [MP3, Егор Партин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Честолюбивые планы герцога Йоркского рассыпались прахом, сам он казнен врагами, а его голова в бумажной короне насажена на штырь над крепостной стеной. Король Генрих VI все еще в плену, но королева Маргарет во главе победоносной разноплеменной армии наступает с севера, и кажется, не существует силы, которая помешала бы ей занять Лондон.
-Но, расправившись с отцом, (   Читать дальше...   )Жанр: История, приключенияИздательство: Азбука-АттикусПродолжительность: 15:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F37B49204372C2CE166AE28B12EE24D1ED2A06F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817111   (3563) от 09.09.2025
-
-Конн Иггульден | Война роз (Книга 2). Троица (2024) [MP3, Егор Партин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3563.jpg" />
-</div>
-
-
-###  Подробнее
-
-На целый год психическая болезнь превратила Генриха VI в добровольного узника Виндзорского замка. В борьбу за власть, выпавшую из рук сумасшедшего монарха, вступили дворцовые партии, возглавляемые королевой Маргаритой и герцогом Йорком, лордом-протектором. Сторону Йорка принимают граф Солсбери и граф Уорик; эта троица полна решимости одержать верх над лоялистами (   Читать дальше...   )Жанр: История, приключенияИздательство: Азбука-АттикусПродолжительность: 14:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20394232E94D33AB46B6BFAF3BACA07DF8102A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817126   (3561) от 09.09.2025
-
-Конн Иггульден | Император (Книга 5). Кровь богов. Фиговое дерево (2025) [MP3, Егор Партин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гай Юлий Цезарь убит, Рим охвачен скорбью. Убийцы, нарекшие себя Освободителями Рима, амнистированы, но не спокойны за свою судьбу — слишком громко отозвалось свёрнутое ими. Сенат на их стороне, однако не все готовы предать память великого героя Рима. Многолетний соратник Цезаря, возвысившийся под его покровительством Марк Антоний, и приёмный сын Цезаря Гай Октавиан (   Читать дальше...   )Жанр: История, приключенияИздательство: Азбука-АттикусПродолжительность: 14:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3442C6C5D7C13D4AA9EB455669D9EF5E5322EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

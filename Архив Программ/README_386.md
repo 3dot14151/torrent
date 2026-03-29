@@ -6,7 +6,7 @@ Google Chrome 94.0.4606.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849285.jpg" />
+  <img src="Z:/picture/008/save_picture_849285.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CartoonArt - Cartoonizer 1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849275.jpg" />
+  <img src="Z:/picture/008/save_picture_849275.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kerish Doctor 2021 4.85 (30.09.20210) (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849261.jpg" />
+  <img src="Z:/picture/008/save_picture_849261.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ uTorrent 2.2.1.25110 [Multi/Rus] Stable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849229.jpg" />
+  <img src="Z:/picture/008/save_picture_849229.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Reason Studios Reason 12.2.1 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849192.jpg" />
+  <img src="Z:/picture/008/save_picture_849192.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Phase One Capture One Pro 21 14.4.0.101 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849188.jpg" />
+  <img src="Z:/picture/008/save_picture_849188.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Total Commander Ultima Prime 8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849184.jpg" />
+  <img src="Z:/picture/008/save_picture_849184.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AOMEI Partition Assistant Technician Edition 9.4.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849176.jpg" />
+  <img src="Z:/picture/008/save_picture_849176.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ACDSee Photo Studio Ultimate 2022 15.0.0.2795 Lite RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849062.jpg" />
+  <img src="Z:/picture/008/save_picture_849062.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ad-Aware Free Antivirus+ 11.6.306.7947 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848806.jpg" />
+  <img src="Z:/picture/008/save_picture_848806.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MediaInfo 0.7.84 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848799.jpg" />
+  <img src="Z:/picture/008/save_picture_848799.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Maxthon Cloud Browser 4.9.2.600 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848797.jpg" />
+  <img src="Z:/picture/008/save_picture_848797.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FileZilla 3.25.0 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848754.jpg" />
+  <img src="Z:/picture/008/save_picture_848754.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848732.jpg" />
+  <img src="Z:/picture/008/save_picture_848732.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Skype 7.22.32.107 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848691.jpg" />
+  <img src="Z:/picture/008/save_picture_848691.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Ultra Adware Killer 4.2.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848690.jpg" />
+  <img src="Z:/picture/008/save_picture_848690.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ ReviverSoft PC Reviver 2.6.2.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848689.jpg" />
+  <img src="Z:/picture/008/save_picture_848689.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848679.jpg" />
+  <img src="Z:/picture/008/save_picture_848679.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Slimjet 9.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848598.jpg" />
+  <img src="Z:/picture/008/save_picture_848598.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ WinToUSB Enterprise 2.8 Release 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848592.jpg" />
+  <img src="Z:/picture/008/save_picture_848592.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ MKVToolNix 9.0.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848543.jpg" />
+  <img src="Z:/picture/008/save_picture_848543.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Mirillis Action! 1.30.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848532.jpg" />
+  <img src="Z:/picture/008/save_picture_848532.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ GOM Player 2.2.80 Build 5243 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848527.jpg" />
+  <img src="Z:/picture/008/save_picture_848527.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ ClickTeam Install Creator Pro 2.0.36 Portable by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848519.jpg" />
+  <img src="Z:/picture/008/save_picture_848519.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Daum PotPlayer 1.7.661 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848437.jpg" />
+  <img src="Z:/picture/008/save_picture_848437.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Macrium Reflect 7.0.2023 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848434.jpg" />
+  <img src="Z:/picture/008/save_picture_848434.jpg" />
 </div>
 
 

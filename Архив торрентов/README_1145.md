@@ -6,7 +6,7 @@ Typeface Pro 3 v3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790814.jpg" />
+  <img src="Z:/picture/008/save_picture_790814.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Cockos REAPER 6.42 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790812.jpg" />
+  <img src="Z:/picture/008/save_picture_790812.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WizTree 4.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790808.jpg" />
+  <img src="Z:/picture/008/save_picture_790808.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Picture Instruments Preset Converter Pro 1.1.0 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790806.jpg" />
+  <img src="Z:/picture/008/save_picture_790806.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wise Care 365 Pro 6.1.2.597 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790802.jpg" />
+  <img src="Z:/picture/008/save_picture_790802.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Stats 2.6.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790801.jpg" />
+  <img src="Z:/picture/008/save_picture_790801.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Opera GX 81.0.4196.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790798.jpg" />
+  <img src="Z:/picture/008/save_picture_790798.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wondershare Recoverit 10.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790766.jpg" />
+  <img src="Z:/picture/008/save_picture_790766.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Waterfox Current G4.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790765.jpg" />
+  <img src="Z:/picture/008/save_picture_790765.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Glary Utilities Pro 5.176.0.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790764.jpg" />
+  <img src="Z:/picture/008/save_picture_790764.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Any Video Converter Ultimate 7.1.4 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790761.jpg" />
+  <img src="Z:/picture/008/save_picture_790761.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DiskDigger 1.53.97.3169 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790746.jpg" />
+  <img src="Z:/picture/008/save_picture_790746.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790740.jpg" />
+  <img src="Z:/picture/008/save_picture_790740.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ StartAllBack 3.0.6 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790738.jpg" />
+  <img src="Z:/picture/008/save_picture_790738.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Universal Media Creation Tool 16.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790737.jpg" />
+  <img src="Z:/picture/008/save_picture_790737.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790731.jpg" />
+  <img src="Z:/picture/008/save_picture_790731.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Movavi Video Converter 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790725.jpg" />
+  <img src="Z:/picture/008/save_picture_790725.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AnyDesk 7.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790724.jpg" />
+  <img src="Z:/picture/008/save_picture_790724.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Format Factory 5.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790723.jpg" />
+  <img src="Z:/picture/008/save_picture_790723.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ simplewall 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790717.jpg" />
+  <img src="Z:/picture/008/save_picture_790717.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Microsoft Office LTSC for Mac 2021 v16.55 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790707.jpg" />
+  <img src="Z:/picture/008/save_picture_790707.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Adobe Photoshop Lightroom Classic 11.0.1.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790698.jpg" />
+  <img src="Z:/picture/008/save_picture_790698.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ iA Writer 5.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790683.jpg" />
+  <img src="Z:/picture/008/save_picture_790683.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Firefox Browser 77.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790682.jpg" />
+  <img src="Z:/picture/008/save_picture_790682.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ AnyMP4 Data Recovery 1.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790679.jpg" />
+  <img src="Z:/picture/008/save_picture_790679.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Ocenaudio 3.7.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790670.jpg" />
+  <img src="Z:/picture/008/save_picture_790670.jpg" />
 </div>
 
 

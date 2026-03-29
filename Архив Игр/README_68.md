@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259465.jpg" />
+  <img src="Z:/picture/005/save_picture_259465.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259464.jpg" />
+  <img src="Z:/picture/005/save_picture_259464.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alan Wake's American Nightmare (RePack/1.01.16.9062) [Ru] 2012 l R.G. World Game
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259459.jpg" />
+  <img src="Z:/picture/005/save_picture_259459.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alan Wake's American Nightmare (Rip) [Multi6/-] 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259244.jpg" />
+  <img src="Z:/picture/005/save_picture_259244.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259234.jpg" />
+  <img src="Z:/picture/005/save_picture_259234.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ghost Rider (RePack/Emul) [Ru] 2007 | MarkusEVO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258948.jpg" />
+  <img src="Z:/picture/005/save_picture_258948.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258656.jpg" />
+  <img src="Z:/picture/005/save_picture_258656.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258434.jpg" />
+  <img src="Z:/picture/005/save_picture_258434.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Kerbal Space Program [En] (L/0.15) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258409.jpg" />
+  <img src="Z:/picture/005/save_picture_258409.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Incredible Hulk [Ru/En] (RePack/1.1) 2008 | Soprano
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258185.jpg" />
+  <img src="Z:/picture/005/save_picture_258185.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Batman Forever: the arcade game [En] (RePack) 1996 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258147.jpg" />
+  <img src="Z:/picture/005/save_picture_258147.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Sunkin's Wrath (P) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258131.jpg" />
+  <img src="Z:/picture/005/save_picture_258131.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Evidence: The Last Report [Ru] (RePack) 1997 | Pet9948
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258098.jpg" />
+  <img src="Z:/picture/005/save_picture_258098.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Gene Wars (RePack) [Ru/En]  1996 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258087.jpg" />
+  <img src="Z:/picture/005/save_picture_258087.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Alan Wake's American Nightmare [Multi6/-] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257354.jpg" />
+  <img src="Z:/picture/005/save_picture_257354.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257269.jpg" />
+  <img src="Z:/picture/005/save_picture_257269.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257033.jpg" />
+  <img src="Z:/picture/005/save_picture_257033.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256521.jpg" />
+  <img src="Z:/picture/005/save_picture_256521.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Gas Guzzlers: Combat Carnage {1.0} (RePack) [En] 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256496.jpg" />
+  <img src="Z:/picture/005/save_picture_256496.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Gas Guzzlers: Combat Carnage [En] (L) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256258.jpg" />
+  <img src="Z:/picture/005/save_picture_256258.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256235.jpg" />
+  <img src="Z:/picture/005/save_picture_256235.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256203.jpg" />
+  <img src="Z:/picture/005/save_picture_256203.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256201.jpg" />
+  <img src="Z:/picture/005/save_picture_256201.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Far Cry 2: The Fortune’s Pack [Ru/En] (RePack/1.3) 2008 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255981.jpg" />
+  <img src="Z:/picture/005/save_picture_255981.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255980.jpg" />
+  <img src="Z:/picture/005/save_picture_255980.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255979.jpg" />
+  <img src="Z:/picture/005/save_picture_255979.jpg" />
 </div>
 
 

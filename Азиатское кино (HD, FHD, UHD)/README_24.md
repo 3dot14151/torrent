@@ -1,3 +1,109 @@
+###  Публикация: 199929   (782287) от 11.05.2010
+
+Затойчи / Zatoichi (2003) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония, XIX век. Затоичи - слепой странник, который зарабатывает на жизнь игрой в кости и массажем. Но за этим скромным фасадом скрывается боец, искусно владеющий мечом, обладающий молниеносной реакцией и наносящий удары с потрясающей точностью.
+Затоичи приходит в расположенный высоко в горах городок, находящийся во власти шайки Гиндзо. Безжалостный Гиндзо уничтожает (   Читать дальше...   )Производство: Япония, Office Kitano, Bandai Visual Co. Ltd., Dentsu Inc.Жанр: Боевик, Драма, КомедияРежиссер: Такеши КитаноАктеры: Такеши Китано, Таданобу Асано, Юко Дайке, Акира Эмото, Така Гатаруканару, Сабуро Ишикура, Иттоку Кисибе, Юи Натсукава, Мичиё Огусу, Дайгоро ТачибанаСубтитры: РусскиеПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390849   (782245) от 17.06.2020
+
+Мой особенный брат / Naui teukbyeolhan hyeongje / Inseparable Bros / My Special Brother (2019) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэ-ха и Дон-гу не являются родственниками, но последние 20 лет живут как родные братья. Сэ-ха умный, но прикован к инвалидному креслу, а Дон-гу наоборот — обладает прекрасным здоровьем, зато обделён интеллектом. Однажды парни знакомятся с девушкой Ми-хён, которая, в отличие от остальных, относится к ним без предрассудков.Производство: Южная Корея / Joy Rabbit, Myung Films, Next Entertainment WorldЖанр: Драма, комедияРежиссер: Юк Сан-хёАктеры: Щин Ха-гюн, Ли Гван-су, Исом, Пак Чхоль-мин, Квон Хэ-хё, Киль Хэ-ён, Ан Джи-хо, Ким Джун-ги, Ким Гён-нам, Чхве Гван-ильПеревод: Многоголосый любительский (STEPonee)Субтитры: АнглийскиеПродолжительность: 01:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611910ABEDCDD9B4EA862B04E1F2F65F759E3150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391312   (781406) от 19.06.2020
+
+Пак Ёль / Park Yeol / Anarchist from Colony (2017) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония, 1923 год. Великое землетрясение Канто принесло не только масштабные разрушения и человеческие жертвы, но и породило массовые беспорядки в стране. Правительство Японии, опасаясь восстаний и набирающего силу движения за независимость Кореи, под благовидным предлогом вырезает около шести тысяч мирных корейцев, а также проводит массовые аресты оных.
+Дабы отвлечь (   Читать дальше...   )Производство: Южная Корея / CJ PowercastЖанр: Драма, биография, историяРежиссер: Ли Джун-икАктеры: Ли Джэ-хун, Чхве Хи-со, Ким Ин-у, Квон Юль, Мин Джин-ун, Пэк Су-джан, Рю Сон-хён, Пак Сон-тхэк, То Ён-гу, Ли Ён-сокПеревод: Двухголосый любительский, одноголосый любительскийСубтитры: Русские (ФСГ 'Альянс'), английские, корейские, китайскиеПродолжительность: 02:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F82100A47CD3C6A479559CD691C6011FE29611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391421   (781013) от 20.06.2020
+
+Мне, 19-летней / Gei 19 sui de wo zi ji / To My 19 Year-Old (2018) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_781013.jpg" />
+</div>
+
+
+###  Подробнее
+
+На похоронах Мо Сяофэна, который в течение 10 лет был влюблен в Ян Исю, его возлюбленная получила наследство — таинственный деревянный ящик с письмами. Читая эти письма, девушка возвращается в прошлое и открывает для себя забытые воспоминания. Используя волшебную функцию ящика, Ян хочет вернуть потерянную любовь, продолжая общаться с собой 19-летней.Производство: Китай / Beijing CHS Culture Development, Beijing Xingchi Media, CHS InternationalЖанр: Драма, мелодрама, фэнтазиРежиссер: Хуан ЧаолянАктеры: Остин Линь, Ши Ань Ни, Хе Минхань, Вэнди Вэнг, Шу Вэнг, Хонггуанг Чен, Ыинг Жанг, Луяо Даи, Каи Жоу, Юэнь Кин-ТаньПеревод: Двуголосый любительский (STEPonee, XDUB DORAMA)Субтитры: Английские, китайские - hardsub (неотключаемые)Продолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764BC28A47E48B98ED6C7B0BFB316EFCE0BE4856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208830   (779600) от 24.02.2018
 
 Двойная мята / Daburu mintsu (2017) WEB-DLRip [H.264/720p-LQ] [MVO] [PR]
@@ -6,7 +112,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779600.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779348.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778769.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777844.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777720.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777709.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777036.jpg" />
+  <img src="Z:/picture/008/save_picture_777036.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776674.jpg" />
+  <img src="Z:/picture/008/save_picture_776674.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775636.jpg" />
+  <img src="Z:/picture/008/save_picture_775636.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772789.jpg" />
+  <img src="Z:/picture/008/save_picture_772789.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769614.jpg" />
+  <img src="Z:/picture/008/save_picture_769614.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769599.jpg" />
+  <img src="Z:/picture/008/save_picture_769599.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_769064.jpg" />
+  <img src="Z:/picture/005/save_picture_769064.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767476.jpg" />
+  <img src="Z:/picture/008/save_picture_767476.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765258.jpg" />
+  <img src="Z:/picture/008/save_picture_765258.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764771.jpg" />
+  <img src="Z:/picture/008/save_picture_764771.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764451.jpg" />
+  <img src="Z:/picture/008/save_picture_764451.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764267.jpg" />
+  <img src="Z:/picture/008/save_picture_764267.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762885.jpg" />
+  <img src="Z:/picture/008/save_picture_762885.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762770.jpg" />
+  <img src="Z:/picture/008/save_picture_762770.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762563.jpg" />
+  <img src="Z:/picture/008/save_picture_762563.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760307.jpg" />
+  <img src="Z:/picture/008/save_picture_760307.jpg" />
 </div>
 
 
@@ -567,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3873C404CCA841F728A8CAA499A60272DDB1E7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394842   (760252) от 07.07.2020
-
-Бугимен. Царство мёртвых / Keullojet / The Closet (2020) WEB-DL [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через полгода после смерти жены в автокатастрофе архитектор Сан-вон решет сменить обстановку и вместе с 11-летней дочкой И-ной переезжает в новый дом. Сам мужчина с тех пор страдает паническими атаками, а девочка замкнулась в себе. На новом месте дочь заметно оживает, и вскоре поглощенный неотложной работой отец решает отправить её в художественный лагерь. Из-за (   Читать дальше...   )Производство: Южная Корея, Moonlight Film, Perfect Storm FilmЖанр: Ужасы, мистикаРежиссер: Ким Гван-бинАктеры: Ха Джон-у, Ким Нам-гиль, Хо Юль, Ким Щи-а, Пак Сон-ун, Пак Чи-а, Щин Хён-бин, Ким Су-джин, Ким Ми-хва, Кан Щин-чхольПеревод: Двуголосый любительский (SOFTBOX)Субтитры: Английские, болгарские, польские, чешскиеПродолжительность: 01:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E14142BF68E328B7C88C3F40E0CFB1C87604A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522253   (760074) от 06.01.2022
-
-Самокрутка / Sau gyun jin / Hand Rolled Cigarette (2020) BDRemux [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отставной солдат и молодой маргинал вынуждены бороться со своим тяжёлым положением, тогда как общество отворачивается от них.Производство: Гонконг, Hand-Roll Cigarette FilmЖанр: Драма, криминалРежиссер: Келвин ЧанАктеры: Гордон Лам, Бипин Карма, Майкл Нин, Бен Юэнь, Сингх Хартихан Битто, Чинь Сиу-Хо, Аарон Чоу, Чу Пак Хим, Тони Хо, Тай БоПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайскиеПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B948BD93496FCB9BF5CD412EDDAD9884DADD1713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280496   (760046) от 03.02.2019
-
-Кунхам: Пограничный остров / Gunhamdo (2017) BDRip [H.265/1080p-LQ] [10-bit] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японцы называли этот остров Хасима. Шесть гектаров земли и бетона в 15 километрах от побережья Нагасаки. Здесь с конца XIX века профессиональные шахтеры добывали уголь из подводных забоев. Когда наступила война, и все ушли на фронт, на смену шахтерам привезли военнопленных китайцев и корейских переселенцев.
-Корейцы называли этот остров Кунхам. Или Остров-Броненосец. (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, Filmmaker R&K, Weyunaegang ProductionsЖанр: Военный, Драма, БоевикРежиссер: Рю Сын-ванАктеры: Хван Джон-мин, Со Джи-соп, Сон Джун-ги, Ли Джон-хён, Ким Су-ан, Ли Гён-ён, Ким Мин-джэ, Ким Ин-у, Юн Гён-хо, Щин Сын-хванПеревод: Многоголосый закадровый, Двуголосый закадровыйСубтитры: русские (песни, полные), английскиеПродолжительность: 02:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFDF04A02651E470C29554BEE8F9B43D2F77F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280612   (759755) от 03.02.2019
-
-Монструм / Mulgoe (2018) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759755.jpg" />
-</div>
-
-
-###  Подробнее
-
-1527 год. В Чосонском королевстве неспокойно. Мало того, что по стране расползается жуткая зараза, от которой люди умирают в страшных муках, так ещё и на горе Инван откуда ни возьмись появляется волосатое чудище размеров немалых и нрава злобного. Даже ходят слухи, что нет никакого чудовища, а всё это плод коллективных галлюцинаций. Расследовать загадочные события (   Читать дальше...   )Производство: Корея Южная, CJ E&M Film Financing & Investment Entertainment & Comics, ...Жанр: Боевик, Ужасы, Фантастика, ДетективРежиссер: Хо Джон-хоАктеры: Ким Мён-мин, Ким Ин-гвон, Хери, Чхве У-щик, Пак Сон-ун, Ли Гён-ён, Пак Хи-сун, Ли До-гён, Ли Гю-бок, Хан Со-ён ...Перевод: Двуголосый закадровый, любительский (Batafurai team_&_SOUND-GROUP)Озвучка: Ворон и WenlanaСубтитры: Русские, английскиеПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94B944BAB6A869605B51A08278D490C823E7027
 ```
 
 https://mybot314.ru/tekegram_catalog/

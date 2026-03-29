@@ -6,7 +6,7 @@ Vellum 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722259.jpg" />
+  <img src="Z:/picture/008/save_picture_722259.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ XMedia Recode 3.3.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722258.jpg" />
+  <img src="Z:/picture/008/save_picture_722258.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Default Folder X 5.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722257.jpg" />
+  <img src="Z:/picture/008/save_picture_722257.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ StatsBar 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722256.jpg" />
+  <img src="Z:/picture/008/save_picture_722256.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722255.jpg" />
+  <img src="Z:/picture/008/save_picture_722255.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722253.jpg" />
+  <img src="Z:/picture/008/save_picture_722253.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722246.jpg" />
+  <img src="Z:/picture/008/save_picture_722246.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Transmit 5.8.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722235.jpg" />
+  <img src="Z:/picture/008/save_picture_722235.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ BELOFF 2022 (English version)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722228.jpg" />
+  <img src="Z:/picture/008/save_picture_722228.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ HedustMA - Forms 01 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Ps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722168.jpg" />
+  <img src="Z:/picture/008/save_picture_722168.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Wise Care 365 Pro 4.19.405 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722166.jpg" />
+  <img src="Z:/picture/008/save_picture_722166.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Eisentanz - Y - Meson E.P. (2016) Raumklang Music [FLAC|Lossless|WEB-DL|24Bit|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722165.jpg" />
+  <img src="Z:/picture/008/save_picture_722165.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722162.jpg" />
+  <img src="Z:/picture/008/save_picture_722162.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Wise Care 365 Pro 4.19.405 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722159.jpg" />
+  <img src="Z:/picture/008/save_picture_722159.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ MONIT 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722158.jpg" />
+  <img src="Z:/picture/008/save_picture_722158.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722156.jpg" />
+  <img src="Z:/picture/008/save_picture_722156.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ PrivaZer 3.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722151.jpg" />
+  <img src="Z:/picture/008/save_picture_722151.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722148.jpg" />
+  <img src="Z:/picture/008/save_picture_722148.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722147.jpg" />
+  <img src="Z:/picture/008/save_picture_722147.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ USDownloader 1.3.5.9 Portable (04.06.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722145.jpg" />
+  <img src="Z:/picture/008/save_picture_722145.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Cakewalk SONAR Platinum 23.4.0 Build 38 (2017.04) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722138.jpg" />
+  <img src="Z:/picture/008/save_picture_722138.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Adobe Photoshop 2021 22.5.6.749 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722104.jpg" />
+  <img src="Z:/picture/008/save_picture_722104.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Adobe Photoshop 2022 23.2.0.277 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722091.jpg" />
+  <img src="Z:/picture/008/save_picture_722091.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ MInstAll v.31.12.2021 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722085.jpg" />
+  <img src="Z:/picture/008/save_picture_722085.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722077.jpg" />
+  <img src="Z:/picture/008/save_picture_722077.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ SlimBrowser 8.00 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722042.jpg" />
+  <img src="Z:/picture/008/save_picture_722042.jpg" />
 </div>
 
 

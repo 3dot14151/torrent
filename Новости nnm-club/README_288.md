@@ -1,3 +1,162 @@
+###  Публикация: 1762231   (36008) от 27.11.2024
+
+GoodbyeDPI 0.2.3rc3 Launcher 9.5 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
+Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
+
+Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский и английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCB13B9250DD93EF11DE0B50F10BE9056047EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762561   (35919) от 28.11.2024
+
+АВТОВАЗ отправляет Lada Aura в дилерские центры
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35919.jpg" />
+</div>
+
+
+###  Подробнее
+
+На АВТОВАЗе начались отгрузки бизнес-седанов Lada Aura. Автомобили отправятся государственным и корпоративным заказчикам, а также в дилерские центры, сообщили в пресс-службе АВТОВАЗа.Lada Aura оснащаются моторами 1,8 EVO и автоматической бесступенчатой трансмиссией. Первые автомобили изготовлены в максимальной комплектации Status, которая предусматривает обивку салона (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762607   (35913) от 28.11.2024
+
+Антивирус-предатель: драйвер Avast стал ключом к полному контролю системы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалисты Trellix обнаружили новую кампанию, в которой используются доверенные компоненты антивирусных программ для взлома систем. Вместо попыток обойти защиту злоумышленники применяют легальный драйвер Avast Anti-Rootkit, чтобы отключать защитное ПО и получать контроль над компьютером.Механизм атаки выглядит так: вредоносная программа сначала загружает драйвер (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751791   (35903) от 28.11.2024
+
+Последний богатырь. Наследие (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35903.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Ивана, которому как раз исполнилось 50, две дочери: старшая, богатырка Марья, и младшая, начинающая колдунья Софья. Все в Белогорье идет своим чередом, но визит колдуна Северина, которому привиделось страшное бедствие, вносит смуту в размеренную жизнь волшебников. Чтобы спасти и Белогорье, и жизнь собственного отца, Софье придется отправиться в Москву прошлого, (   Читать дальше...   )Производство: Россия / Yellow Black and White, ИРИЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Антон МасловАктеры: Виктор Хориняк, Арина Рожкова, Эвелина Мазурина, Елена Яковлева, Владислав Ветров, Кирилл Зайцев, Татьяна Догилева, Юлия Пересильд, Александра Урсуляк, Дмитрий ЛысенковСубтитры: русскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517816A7FF777F7345E1ACB8EC77D723FE5FA60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751122   (35797) от 29.11.2024
+
+Извне / From (2024) WEB-DL [H.264/1080p] (сезон 3, серии 1-10 из 10) LostFilm, HDRezka Studio, AlexFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в безымянном городке, все жители которого прибыли сюда когда-то из самых разных точек США. Приехали и не смогли уехать. Кто-то находится в ловушке год, а кто-то - больше десяти лет и выглядит уже полностью морально разложившимся. То же самое происходит с семьей Мэттьюз. Папа, мама и двое детей на своем доме на колесах попытались проехать (   Читать дальше...   )Производство: США / AGBO, Epix Studios, MGM International TV ProductionsЖанр: ужасы, фантастика, триллер, драма, детективРежиссер: Джек Бендер, Джефф Ренфро, Дженнифер ЛиаоАктеры: Хэролд Перрино, Каталина Сандино Морено, Эйон Бэйли, Дэвид Алпей, Элизабет Сондерс, Скотт Маккорд, Рики Хе, Хлоя Ван Ландшут, Pegah Ghafoori, Кортен МурПеревод: Многоголосый профессиональный (LostFilm, HDRezka Studio, AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAF8866C5338D5B6D58EDD5AED75563BAAAC697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757730   (35696) от 30.11.2024
+
+Джокер: Безумие на двоих / Joker: Folie a Deux (2024) WEB-DL [H.265/2160p] [4K, Dolby Vision TV, 10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несостоявшийся комик Артур Флек встречает любовь всей своей жизни, Харли Квинн, находясь в заключении в государственной больнице Аркхэм. После его освобождения они начинают обреченное на провал романтическое приключение.Производство: США, DC Entertainment, Joint Effort, Village Roadshow PicturesЖанр: драма, мюзикл, криминал, триллерРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Леди Гага, Зази Битц, Кен Люн, Кэтрин Кинер, Брендан Глисон, Гарри Лоути, Стив Кугэн, Гэттлин Гриффит, Джейкоб ЛофлендПеревод: Дублированный (Movie Dubbing официальный; Red Head Sound, Jaskier не официальные)Язык озвучки: Русский, английскийСубтитры: Русские (4xForced, Full), английские (Full, SDH)Продолжительность: 02:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9CBC857D2DB4C7709905DCF9EED767991F5AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217595   (35692) от 30.11.2024
 
 Книжная серия | Психологический триллер [78 книг] (2016-2024) [FB2] [Обновляемая]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35692.jpg" />
 </div>
 
 
@@ -34,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35689.jpg" />
 </div>
 
 
@@ -60,7 +219,7 @@ Adobe Photoshop 2025 26.1.0.121 RePack by KpoJIuK (24.11.2024) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35594.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ WinPE 11-10 Sergei Strelec (x64) 2024.11.27 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35593.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35592.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35590.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35574.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35469.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35382.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35286.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35277.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35180.jpg" />
 </div>
 
 
@@ -320,7 +479,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05 gog 0.8/dlc) License GOG [Ultimate E
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35074.jpg" />
 </div>
 
 
@@ -346,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34953.jpg" />
 </div>
 
 
@@ -372,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34864.jpg" />
 </div>
 
 
@@ -398,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34673.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34669.jpg" />
 </div>
 
 
@@ -451,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34668.jpg" />
 </div>
 
 
@@ -477,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34654.jpg" />
 </div>
 
 
@@ -503,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34580.jpg" />
 </div>
 
 
@@ -514,169 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764845   (34576) от 11.12.2024
-
-Новый удар по Intel. Производители настольных ПК переходят на процессоры с архитектурой ARM
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производители настольных компьютеров с Windows начали разработку моделей на процессорах с архитектурой ARM. До этого данная ниша почти полностью была занята х86-чипами, и большую часть рынка удерживала Intel. Аналогичные процессы уже происходят в сегментах ноутбуков и серверов. Для Intel это очередной удар, так как ARM-процессоры во всем лучше и современнее, чем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765274   (34570) от 11.12.2024
-
-Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2605 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-ru-ru_windows_11_business_editions_version_24h2_x64_dvd_f9b9b5d6
-ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
-Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F17E6CDA5936D305465497EE9EC841DB666333E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765261   (34464) от 12.12.2024
-
-Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5247 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_sep_2024_x64_dvd_c38bd9db
-ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
-Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94397BC0D03C9392041D27E876ADB009BEFFD9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765107   (34371) от 13.12.2024
-
-Новый квантовый процессор Google достиг прорывной точности
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперимент, проведенный исследователями из Google, показал, что с помощью правильно подобранных техник коррекции ошибок квантовые компьютеры могут выполнять вычисления с повышенной точностью. Пройдя стандартный тест на выборку случайных целей,  квантовый процессор Willow на 105 кубитов за пять минут решил задачу, на которую лучшие суперкомпьютеры мира потратили бы (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765655   (34258) от 14.12.2024
-
-Сто лет одиночества / Cien Anos de Soledad / One Hundred Years of Solitude (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) HDRezka
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация литературного шедевра лауреата Нобелевской премии Габриэля Гарсиа Маркеса. В существующем вне времени городке Макондо семь поколений семьи Буэндиа познают любовь, забвение и неизбежность прошлого — и своей судьбы.Производство: Колумбия / DynamoЖанр: Фэнтези, драма, историяРежиссер: Алекс Гарсия Лопес, Лаура Мора ОртегаАктеры: Джино Монтесинос, Руджеро Паскарелли, Марлейда Сото, Эдуардо Де Лос Рейес, Клаудио Катаньо, Жеронимо Барон, Марко Гонзалес, Леонардо Сото, Сусана Моралес, Элла БесерраПеревод: Многоголосый профессиональный (HDRezka)Язык озвучки: Русский, испанскийСубтитры: Испанские (full, SDH), английские (full, SDH)Продолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D66FBD9DE7A31047C524B9E377D0DC682AB0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221122   (34251) от 14.12.2024
-
-Тени исчезают в полдень (1971) DVDRip (сезон 1, серии 1-7 из 7)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34251.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому роману Анатолия Иванова.
-Потомки знатного рода Константин и Серафима селятся под чужими именами в глухой таежной деревушке после того, как царская власть потерпела поражение в Гражданской войне. В картине прослеживаются судьбы нескольких поколений обитателей советской деревни Зеленый Дол. На фоне переломных событий, разрывающих страну на части, разыгрывается (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Владимир Краснопольский, Валерий УсковАктеры: Пётр Вельяминов, Нина Русланова, Галина Польских, Иван Рыжов, Сергей Яковлев, Александра Завьялова, Борис Новиков, Валерий Гатаев, Элеонора Шашкова, Лев ПоляковЯзык озвучки: русскийКачество: DVDRipПродолжительность: 08:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD55420A67BE8FEEC92B0D1BBA9BA80CF03B14C
 ```
 
 https://mybot314.ru/tekegram_catalog/

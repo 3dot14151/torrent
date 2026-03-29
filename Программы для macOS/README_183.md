@@ -1,3 +1,135 @@
+###  Публикация: 1706708   (113547) от 13.03.2024
+
+NCH ClickCharts Diagram Pro 9.15 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко создавайте блок-схемы и диаграммы с помощью этого программного обеспечения для Mac. Быстро создавайте четкие визуальные эффекты организации, процесса, интеллект-карты, UML-диаграммы и т. д. Найдите узкие места в процессе и способы оптимизации производительности. Начните процесс с опций шаблона или начните заново, выбрав формы, символы, стили соединительных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2024Разработчик: © 2024 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA2E79F183F64408E07CF30527ED956BDA96E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706743   (113526) от 14.03.2024
+
+Musify for Mac 3.5.4 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Musify — лучший конвертер YouTube Music, который может загружать музыку с более чем 1000 веб-сайтов обмена музыкой для прослушивания в автономном режиме без потери качества звука. Такие как: YouTube, Spotify, SoundCloud, Facebook, Instragram и другие. Легко конвертируйте музыкальные файлы mp3, в форматы для  iPhone, iPad, iPod, Samsung и другие устройства iOS и Android. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2024Разработчик: © 2024 iTubeGoПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3207B3AE81F9CF32E9E972C954D589F2CC5FB867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706932   (113509) от 14.03.2024
+
+System Toolkit 6.1.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113509.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2017-2024 Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D97A336DF808B7B06319B125AB9FB3E770BDDA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706801   (113492) от 14.03.2024
+
+Upscayl for Mac 2.10.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масштабирование изображений становится все более доступным с каждым днем, и теперь у нас есть приложения, которые упрощают этот процесс до такой степени, что каждый может сделать это за пару кликов.
+Upscayl — это кроссплатформенное приложение с открытым исходным кодом, которое подходит для большинства сценариев. Оно не предлагает много возможностей настройки, но (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.02.2024Разработчик: © 2023  UpscaylПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BF80E3BBFAD40EF15181619EE614ED9D89EB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707007   (113491) от 14.03.2024
+
+Cronette 1.10.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cronette - это приложение для определения задач, запускаемых Mac без участия оператора.
+Утилиту можно использовать на необслуживаемых серверах Mac или на обычных рабочих станциях Mac для задач, выполняемых в ночное время, или для повторяющихся задач, которые должны выполняться на регулярной основе.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2024Разработчик: © 2012-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929001CD53A4D25EAE8F62DDFAD8E1F52BD24CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706744   (113484) от 14.03.2024
 
 SQLPro Studio 2024.12 [En]
@@ -6,7 +138,7 @@ SQLPro Studio 2024.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113484.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ Prism 10 v.10.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113479.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ Kaleidoscope 4.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113478.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ TS Calc 1.8.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113456.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ iNet Network Scanner 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113450.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ Caffeinated 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113436.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ uDock 4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113435.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ OmniGraffle Pro 7.22.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113420.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ Labels and Databases 1.7.11 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113411.jpg" />
 </div>
 
 
@@ -245,7 +377,7 @@ Desktop Stickers 2.72 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113407.jpg" />
 </div>
 
 
@@ -272,7 +404,7 @@ KCNcrew Pack 03-15-24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113401.jpg" />
 </div>
 
 
@@ -298,7 +430,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113389.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113350.jpg" />
 </div>
 
 
@@ -351,7 +483,7 @@ Navicat for MySQL for Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113296.jpg" />
 </div>
 
 
@@ -377,7 +509,7 @@ WatsGo for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113265.jpg" />
 </div>
 
 
@@ -404,7 +536,7 @@ Product Manager 2 v.2.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113259.jpg" />
 </div>
 
 
@@ -430,7 +562,7 @@ Navicat Charts Creator for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113227.jpg" />
 </div>
 
 
@@ -456,7 +588,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113208.jpg" />
 </div>
 
 
@@ -482,7 +614,7 @@ Room Arranger 9 fo Mac 9.8.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113195.jpg" />
 </div>
 
 
@@ -508,7 +640,7 @@ DiskCatalogMaker 9.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113182.jpg" />
 </div>
 
 
@@ -534,7 +666,7 @@ Unclutter 2.2.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113173.jpg" />
 </div>
 
 
@@ -546,139 +678,6 @@ Unclutter - это новое удобное место на рабочем ст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772FD3CC92DB49B261EA590C6EC68C2E588DA291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708209   (113172) от 19.03.2024
-
-Finder Windows 1.5.16 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Finder Windows — это плавающая панель, которая дает вам мгновенный доступ к списку открытых окон Finder в любое время. Это решает ежедневную «борьбу» с попытками добраться до нужных папок среди постоянно меняющегося беспорядка открытых окон. Теперь вы можете просто мельком взглянуть на список и выбрать нужное окно. Или мгновенно закройте те, которые вам больше не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2006 - 2024 Zevrix SolutionsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8649B8F6F0E90409A93751CE2A1F9492DD28823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708048   (113168) от 19.03.2024
-
-SSH Config Editor Pro 2.6.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования (с графическим предварительным просмотром), а также любой другой вариант SSH конфигурации.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © HejkiПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E17ACCC605B7695A0E822C6B30A85D1E72A6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708220   (113160) от 19.03.2024
-
-GarageSale 9.7.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BD0F9BF2D1AA53832876BB5173AA0830CE8C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708247   (113158) от 19.03.2024
-
-Dropshare 5 v.5.49 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113158.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2024 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AA6F7E6662A8C5FB57AD46277B3DF41488D90D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708013   (113152) от 19.03.2024
-
-Retrobatch Pro 2.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гибкая, супер заряженная, пакетная обработка изображений для вашего Mac.
-Процессор пакетных изображений на основе узлов означает, что вы можете смешивать, сочетать и комбинировать различные операции вместе, чтобы сделать идеальный рабочий процесс
-Конвертируйте PSD-файлы в HEIC, JPEG, PDF, PNG или TIFF.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Flying Meat Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678AEBAF4112AAB52D487C76D5283FABB200C5C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

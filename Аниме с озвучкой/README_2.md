@@ -1,3 +1,29 @@
+###  Публикация: 1842811   (1048814) от 17.12.2025
+
+Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1048814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лина Инверс со своей заклятой подругой Нагой Серпент как-то раз во время странствий очутились в небольшом городке, знаменитом изготовлением големов. Там они познакомились со странной девушкой Лайей, дочкой местного мастера Галия. Проблема в том, что у Галиа есть молодой и амбициозный конкурент Хьюи, бросивший ему вызов. Что именно не поделили между собой эти два (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык озвучки: Русский закадровый (Panda_Ksyao, ~Maria Van Gerad~, Cruel, Chloe, InuMa77Kun, Yukato, PONYAWKA)Продолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7B83CABA9CC49CEF3F2C9289783B5F6E8B0547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842037   (1048345) от 14.12.2025
 
 Jungle Taitei: Yuuki ga Mirai o Kaeru | Jungle Emperor: Courage Changes the Future | Император джунглей: Храбрость изменяет будущее [2009, Special, 1 из 1] HDTV 720p raw+rus
@@ -6,7 +32,7 @@ Jungle Taitei: Yuuki ga Mirai o Kaeru | Jungle Emperor: Courage Changes the Futu
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048345.jpg" />
+  <img src="Z:/picture/008/save_picture_1048345.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048344.jpg" />
+  <img src="Z:/picture/008/save_picture_1048344.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Jungle Taitei | Jungle Emperor | Император джунглей [1989, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048343.jpg" />
+  <img src="Z:/picture/008/save_picture_1048343.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047837.jpg" />
+  <img src="Z:/picture/008/save_picture_1047837.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047835.jpg" />
+  <img src="Z:/picture/008/save_picture_1047835.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047833.jpg" />
+  <img src="Z:/picture/008/save_picture_1047833.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047827.jpg" />
+  <img src="Z:/picture/008/save_picture_1047827.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047641.jpg" />
+  <img src="Z:/picture/008/save_picture_1047641.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел д�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047280.jpg" />
+  <img src="Z:/picture/005/save_picture_1047280.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046691.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 из 12] WEBRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046294.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Пётр Гриль и время �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046291.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046177.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045613.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045453.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 из 2] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044399.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044390.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044010.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2022
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043838.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043220.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042913.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042912.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Tenchi Muyou! Bangaihen: Galaxy Police Mihoshi Space Adventure | Тэнти - л
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042633.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Blade and Soul / Клинок и душа [2014, TV, 12 ep] BDRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042632.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042372.jpg" />
 </div>
 
 
@@ -658,35 +684,6 @@ Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE316596CB576A382A95BAE6B5AF84662DC8C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610367   (1042328) от 07.02.2023
-
-На просторах Лидейла | Мир Лидейл | Leadale no Daichi nite | In the Land of Leadale [2022, TV, 12 из 12] BDRip 1080p HEVC 10bit Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042328.jpg" />
-</div>
-
-
-###  Подробнее
-
-После ужасной аварии Кэйна Кагами оказалась прикованной к аппарату жизнеобеспечения. Единственной радостью в жизни девушки осталась ММОРПГ «Мир Лидейл», ведь только там она могла жить по-настоящему. И вот однажды утром Кэйна обнаруживает себя не в больничной палате, а в странном мире, который в точности похож на её любимую игру, за исключением того, что здесь прошло (   Читать дальше...   )Производство: Япония / Студия Maho FilmЖанр: приключения, фэнтезиРежиссер: Янасэ ЮдзиЯзык озвучки: Русский двухголосый, многоголосый закадровый, дублированный, Японский
-- Itashi, Kroxxa, Lupin, WhiteCrow (AniLibria.TV)
-- не указано (Crunchyroll)
-- WoZWaLD, Veda, Absentia (SHIZA Project)(   Читать дальше...   )Субтитры: Русские (софтсаб на надписи и полные); Английские (софтсаб полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F302BE6CA3ED83AB925CA3C90D27DB5D649757B
 ```
 
 https://mybot314.ru/tekegram_catalog/

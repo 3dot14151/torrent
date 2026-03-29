@@ -1,3 +1,61 @@
+###  Публикация: 1289335   (688278) от 15.03.2019
+
+АЛЁNA - ЧАС (2019) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688278.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Час по часу
+2. Зародила меня матушка
+3. Эх, молодой
+4. Лежу я в больнице(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656997ACFECE84400AA9CDC1AAFAECC847352167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028678   (688246) от 23.06.2016
+
+Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt - Blood and Wine (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybylowicz - Blood and Wine (02:57)
+02. Mikolai Stroinski - Fanfares and Flowers (03:11)
+03. Piotr Musial - For Honor! for Toussaint! (02:04)
+04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F688084F44105D9D556DE23B30CBC0C8ACFF55A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551974   (688238) от 23.06.2016
 
 Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]<Indie Folk, Alternative Rock, British Folk, Folk rock>
@@ -6,7 +64,7 @@ Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688238.jpg" />
+  <img src="Z:/picture/008/save_picture_688238.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687429.jpg" />
+  <img src="Z:/picture/008/save_picture_687429.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un c
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687345.jpg" />
+  <img src="Z:/picture/008/save_picture_687345.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687333.jpg" />
+  <img src="Z:/picture/008/save_picture_687333.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Harry Gregson-Williams - The Zookeeper's Wife / Жена смотрителя з
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687238.jpg" />
+  <img src="Z:/picture/008/save_picture_687238.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687218.jpg" />
+  <img src="Z:/picture/008/save_picture_687218.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686767.jpg" />
+  <img src="Z:/picture/008/save_picture_686767.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686739.jpg" />
+  <img src="Z:/picture/008/save_picture_686739.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686641.jpg" />
+  <img src="Z:/picture/008/save_picture_686641.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / De
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686579.jpg" />
+  <img src="Z:/picture/008/save_picture_686579.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686476.jpg" />
+  <img src="Z:/picture/008/save_picture_686476.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686470.jpg" />
+  <img src="Z:/picture/008/save_picture_686470.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686469.jpg" />
+  <img src="Z:/picture/008/save_picture_686469.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Symphonic Rock (1987) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686462.jpg" />
+  <img src="Z:/picture/008/save_picture_686462.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686253.jpg" />
+  <img src="Z:/picture/008/save_picture_686253.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686124.jpg" />
+  <img src="Z:/picture/008/save_picture_686124.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Traile
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686102.jpg" />
+  <img src="Z:/picture/008/save_picture_686102.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686101.jpg" />
+  <img src="Z:/picture/008/save_picture_686101.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685961.jpg" />
+  <img src="Z:/picture/008/save_picture_685961.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685154.jpg" />
+  <img src="Z:/picture/008/save_picture_685154.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684857.jpg" />
+  <img src="Z:/picture/008/save_picture_684857.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684816.jpg" />
+  <img src="Z:/picture/008/save_picture_684816.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684545.jpg" />
+  <img src="Z:/picture/008/save_picture_684545.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684333.jpg" />
+  <img src="Z:/picture/008/save_picture_684333.jpg" />
 </div>
 
 
@@ -684,74 +742,6 @@ Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507361   (683953) от 08.06.2012
-
-Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683953.jpg" />
-</div>
-
-
-###  Подробнее
-
-(08:46) 1. To Be With You
-(09:15) 2. Lonesome
-(10:57) 3. Be Gentle
-(06:07) 4. Silent Attitude
-(04:50) 5. Near And Far
-(10:18) 6. Follow The Senses
-(09:27) 7. Soft Touch
-(05:17) 8. Bкeak AwayЖанр: MeditativeПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14861CBBB3EFDF314C4873B598B11BC6AFDEB680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507739   (683153) от 08.06.2012
-
-Keiko Matsui - Hidamari No Ki (2000) [FLAC|Lossless]<Score, Smooth Jazz>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_683153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidamari No Ki ~Akatsuki~ (4:16)
-02. Umi E. (5:08)
-03. Seimei No Ki (3:48)
-04. Hashire (4:30)
-05. Umi E ~Piano Version~ (4:00)
-06. Seimei No Ki ~Piano Version~ (3:18)
-07. Hidamari No Ki ~Piano Version~ (4:03)
-08. Yasashii Kaze (2:39)
-09. Anun (0:58)
-10. Omowarete (1:02)(   Читать дальше...   )2000Жанр: Score, Smooth JazzПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

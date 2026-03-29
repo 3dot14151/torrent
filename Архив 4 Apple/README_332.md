@@ -1,3 +1,119 @@
+###  Публикация: 1045708   (558154) от 24.08.2016
+
+News Explorer 1.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558154.jpg" />
+</div>
+
+
+###  Подробнее
+
+News Explorer - инновационное приложение для чтения новостей, простое в использовании и написан исключительно для экосистемы Apple, с iCloud синхронизацией между iPhone, iPAD, iPod Touch, Mac, Apple Watch и Apple TV.
+
+• News Explorer синхронизирует свои подписки, настройки папок, новостей, статусы и избранное на всех устройствах вашей компании Apple.
+• Синхронизация (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 августа 2016Разработчик: BetamagicПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985D97DE456B7F43404D610905078E9A9DDD1480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045655   (558152) от 24.08.2016
+
+Cashew 1.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое, быстрое и элегантное приложение для управления вопросами GitHub.
+
+Особенности:
+- GitHub.com и поддержка GitHub Enterprise.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 августа 2016Разработчик: SimpleRocket LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC24B25FC855F6BAC5B3D5DAC56309520378BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045652   (558151) от 24.08.2016
+
+Templates for Pages 4.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Templates for Pages - красивые и полезные шаблоны для Apple’s Pages.
+Коллекция включает в себя различные, более 2100 типов шаблонов, от визитных карточек и брошюр для плакатов и приглашений. Современные и профессиональные макеты в сочетании с Вашей творческой составляющей будут безошибочно указывать идентичность.
+
+Некоторые шаблоны состоят до 6 различных страниц, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 августа 2016Разработчик: Graphic NodeПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1EFA92A8C0D00A39A26CBF03A5A2E35465AD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045718   (558147) от 24.08.2016
+
+SSH Config Editor 1.3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования  с графическим предварительным просмотром ), а также любой другой вариант SSH конфигурации.
+
+Особенности:
+• Добавление / изменение файлы удостоверений(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 августа 2016Разработчик: Petr HejkalПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891AFCDA1E843E318D1FFF61EFF9E79B99932382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045662   (558041) от 24.08.2016
 
 Typinator 6.10 [Multi]
@@ -6,7 +122,7 @@ Typinator 6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558041.jpg" />
+  <img src="Z:/picture/008/save_picture_558041.jpg" />
 </div>
 
 
@@ -33,7 +149,7 @@ GoodTask 3 v3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558037.jpg" />
+  <img src="Z:/picture/008/save_picture_558037.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Video Editor MovieMator Pro – Movie & Film Maker! 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557971.jpg" />
+  <img src="Z:/picture/008/save_picture_557971.jpg" />
 </div>
 
 
@@ -87,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557758.jpg" />
+  <img src="Z:/picture/008/save_picture_557758.jpg" />
 </div>
 
 
@@ -115,7 +231,7 @@ Sublime Text 3 Dev (3142) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557707.jpg" />
+  <img src="Z:/picture/008/save_picture_557707.jpg" />
 </div>
 
 
@@ -142,7 +258,7 @@ Trim Enabler Pro 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557646.jpg" />
+  <img src="Z:/picture/008/save_picture_557646.jpg" />
 </div>
 
 
@@ -169,7 +285,7 @@ Lyn 1.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557367.jpg" />
+  <img src="Z:/picture/008/save_picture_557367.jpg" />
 </div>
 
 
@@ -198,7 +314,7 @@ System Shock 2 (1999) [En/Ru] [OS X WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557281.jpg" />
+  <img src="Z:/picture/008/save_picture_557281.jpg" />
 </div>
 
 
@@ -224,7 +340,7 @@ Vectoraster 7 v7.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557146.jpg" />
+  <img src="Z:/picture/008/save_picture_557146.jpg" />
 </div>
 
 
@@ -252,7 +368,7 @@ EdgeView 2 v2.788 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557110.jpg" />
+  <img src="Z:/picture/008/save_picture_557110.jpg" />
 </div>
 
 
@@ -278,7 +394,7 @@ Downie 3 v3.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557100.jpg" />
+  <img src="Z:/picture/008/save_picture_557100.jpg" />
 </div>
 
 
@@ -306,7 +422,7 @@ Money Pro - Personal Finance 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557099.jpg" />
+  <img src="Z:/picture/008/save_picture_557099.jpg" />
 </div>
 
 
@@ -334,7 +450,7 @@ OmmWriter 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557098.jpg" />
+  <img src="Z:/picture/008/save_picture_557098.jpg" />
 </div>
 
 
@@ -363,7 +479,7 @@ DropDMG 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557029.jpg" />
+  <img src="Z:/picture/008/save_picture_557029.jpg" />
 </div>
 
 
@@ -390,7 +506,7 @@ Downie 2.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557023.jpg" />
+  <img src="Z:/picture/008/save_picture_557023.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Tidy Up 4.1.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556943.jpg" />
+  <img src="Z:/picture/008/save_picture_556943.jpg" />
 </div>
 
 
@@ -446,7 +562,7 @@ ColorSnapper 2 v1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556934.jpg" />
+  <img src="Z:/picture/008/save_picture_556934.jpg" />
 </div>
 
 
@@ -475,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556918.jpg" />
+  <img src="Z:/picture/008/save_picture_556918.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ QuickRes 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556842.jpg" />
+  <img src="Z:/picture/008/save_picture_556842.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Path Finder 8 v8.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556751.jpg" />
+  <img src="Z:/picture/008/save_picture_556751.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ HDRsoft Photomatix Pro 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556696.jpg" />
+  <img src="Z:/picture/008/save_picture_556696.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ PDF Expert 2.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556578.jpg" />
+  <img src="Z:/picture/008/save_picture_556578.jpg" />
 </div>
 
 
@@ -595,115 +711,6 @@ PDF Expert - редактор  PDF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F5A056EF02F37AC5AD23A493E82645E7B3B62D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305438   (556316) от 31.05.2019
-
-Sketch 55.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.13.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8563DD06562FD6E94DACE70B29092308226B3D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236154   (556199) от 15.07.2018
-
-Lyn 1.9.7.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - просмотрщик и браузер изображений
-Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
-
-Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5A5AA52BF5339AA3F126E901775735EFFF656F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305740   (556115) от 01.06.2019
-
-SteamWorld Quest: Hand of Gilgamech (2019) [Multi/Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возглавь отряд амбициозных героев в красочном, нарисованном от руки мире, и сражайся в напряженных боях, пользуясь только смекалкой и веером карт. Отважно встречай любую угрозу, создавая собственную колоду из более чем 100 уникальных перфокарт!Тип издания: macOS Native gameРелиз состоялся: 31 мая. 2019Разработчик: Image & Form GamesПоддерживаемая ОС: 10.11Жанр: Приключенческие игры, Ролевые игрыЯзык озвучки: английскийЯзык интерфейса: русский, английский, французский, итальянский +
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9E9B687C8B4D680963FCFC4CD8513219C03568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305455   (555833) от 03.06.2019
-
-BusyCal 3 v3.6.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555833.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
-BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.05.2019Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB8E591409F823A8EBA0EFDB5A1BA27FA33437C
 ```
 
 https://mybot314.ru/tekegram_catalog/

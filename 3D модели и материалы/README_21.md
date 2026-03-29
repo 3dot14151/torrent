@@ -6,7 +6,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461171.jpg" />
+  <img src="Z:/picture/008/save_picture_461171.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458564.jpg" />
+  <img src="Z:/picture/008/save_picture_458564.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456537.jpg" />
+  <img src="Z:/picture/008/save_picture_456537.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452832.jpg" />
+  <img src="Z:/picture/008/save_picture_452832.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450970.jpg" />
+  <img src="Z:/picture/008/save_picture_450970.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449975.jpg" />
+  <img src="Z:/picture/008/save_picture_449975.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445319.jpg" />
+  <img src="Z:/picture/008/save_picture_445319.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445312.jpg" />
+  <img src="Z:/picture/008/save_picture_445312.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442972.jpg" />
+  <img src="Z:/picture/008/save_picture_442972.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437353.jpg" />
+  <img src="Z:/picture/008/save_picture_437353.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437176.jpg" />
+  <img src="Z:/picture/008/save_picture_437176.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Hum3D - Fiat Ducato Panel Van L2H2 with HQ interior 2014 [Scanline|Mental Ray|V-
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435283.jpg" />
+  <img src="Z:/picture/008/save_picture_435283.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429469.jpg" />
+  <img src="Z:/picture/008/save_picture_429469.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429397.jpg" />
+  <img src="Z:/picture/008/save_picture_429397.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427988.jpg" />
+  <img src="Z:/picture/008/save_picture_427988.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422131.jpg" />
+  <img src="Z:/picture/008/save_picture_422131.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419863.jpg" />
+  <img src="Z:/picture/008/save_picture_419863.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419700.jpg" />
+  <img src="Z:/picture/008/save_picture_419700.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419506.jpg" />
+  <img src="Z:/picture/008/save_picture_419506.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Hum3D - Volkswagen Crafter Panel Van L1H2 2017 [Scanline|Mental Ray|V-Ray|*.max,
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418298.jpg" />
+  <img src="Z:/picture/008/save_picture_418298.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417611.jpg" />
+  <img src="Z:/picture/008/save_picture_417611.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417597.jpg" />
+  <img src="Z:/picture/008/save_picture_417597.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416068.jpg" />
+  <img src="Z:/picture/008/save_picture_416068.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415170.jpg" />
+  <img src="Z:/picture/008/save_picture_415170.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408408.jpg" />
+  <img src="Z:/picture/008/save_picture_408408.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407221.jpg" />
+  <img src="Z:/picture/008/save_picture_407221.jpg" />
 </div>
 
 

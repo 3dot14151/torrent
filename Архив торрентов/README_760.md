@@ -6,7 +6,7 @@ Kerish Doctor 2020 4.80 DC 30.03.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879850.jpg" />
+  <img src="Z:/picture/005/save_picture_879850.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879842.jpg" />
+  <img src="Z:/picture/005/save_picture_879842.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879824.jpg" />
+  <img src="Z:/picture/005/save_picture_879824.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879780.jpg" />
+  <img src="Z:/picture/005/save_picture_879780.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CoolUtils PDF Combine Pro 4.1.67 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879778.jpg" />
+  <img src="Z:/picture/005/save_picture_879778.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ K-Lite Codec Pack 15.4.4 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879737.jpg" />
+  <img src="Z:/picture/005/save_picture_879737.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Lordi - The Riff (2013) [1080p] HDRemux
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879716.jpg" />
+  <img src="Z:/picture/005/save_picture_879716.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DxO OpticsPro Elite 11.4 (63) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879646.jpg" />
+  <img src="Z:/picture/005/save_picture_879646.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Eassos System Restore 2.0.2.482 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879641.jpg" />
+  <img src="Z:/picture/005/save_picture_879641.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879605.jpg" />
+  <img src="Z:/picture/005/save_picture_879605.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PDF Compressor Pro 3.4 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879596.jpg" />
+  <img src="Z:/picture/005/save_picture_879596.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879532.jpg" />
+  <img src="Z:/picture/005/save_picture_879532.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879531.jpg" />
+  <img src="Z:/picture/005/save_picture_879531.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879527.jpg" />
+  <img src="Z:/picture/005/save_picture_879527.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879526.jpg" />
+  <img src="Z:/picture/005/save_picture_879526.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879525.jpg" />
+  <img src="Z:/picture/005/save_picture_879525.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879524.jpg" />
+  <img src="Z:/picture/005/save_picture_879524.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879523.jpg" />
+  <img src="Z:/picture/005/save_picture_879523.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879520.jpg" />
+  <img src="Z:/picture/005/save_picture_879520.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Outline 3.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879509.jpg" />
+  <img src="Z:/picture/005/save_picture_879509.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Adobe Flash Player 24.0.0.221 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879506.jpg" />
+  <img src="Z:/picture/005/save_picture_879506.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879497.jpg" />
+  <img src="Z:/picture/005/save_picture_879497.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Trance - The Vocal Session 2013 - (2012) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879416.jpg" />
+  <img src="Z:/picture/005/save_picture_879416.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879411.jpg" />
+  <img src="Z:/picture/005/save_picture_879411.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - 50 Оттенков Шторма, Vol. 2 (08.03.2016) [MP3|128 кб/с] <Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879398.jpg" />
+  <img src="Z:/picture/005/save_picture_879398.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Instagiffer 1.62 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879396.jpg" />
+  <img src="Z:/picture/005/save_picture_879396.jpg" />
 </div>
 
 

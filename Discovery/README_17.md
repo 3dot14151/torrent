@@ -6,7 +6,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2015-2017)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412294.jpg" />
+  <img src="Z:/picture/008/save_picture_412294.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411919.jpg" />
+  <img src="Z:/picture/008/save_picture_411919.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Взрывное шоу / The Explosion Show (2020) WEB-DL [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411319.jpg" />
+  <img src="Z:/picture/008/save_picture_411319.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Охотники за реликвиями / Auction Hunters (2015) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410816.jpg" />
+  <img src="Z:/picture/008/save_picture_410816.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) HDTV 1080i
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408033.jpg" />
+  <img src="Z:/picture/008/save_picture_408033.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Смертельный улов / Deadliest Catch (2018) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407801.jpg" />
+  <img src="Z:/picture/008/save_picture_407801.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: Мистический мир: Необъяснимое.Неведо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406543.jpg" />
+  <img src="Z:/picture/008/save_picture_406543.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2017) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398273.jpg" />
+  <img src="Z:/picture/008/save_picture_398273.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396649.jpg" />
+  <img src="Z:/picture/008/save_picture_396649.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Демонтаж (сезон 1-2, серии 1-26 из 26  ) / Decons
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394853.jpg" />
+  <img src="Z:/picture/008/save_picture_394853.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2014-20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391030.jpg" />
+  <img src="Z:/picture/008/save_picture_391030.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2016) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390170.jpg" />
+  <img src="Z:/picture/008/save_picture_390170.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388837.jpg" />
+  <img src="Z:/picture/008/save_picture_388837.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387863.jpg" />
+  <img src="Z:/picture/008/save_picture_387863.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Discovery. Торговцы космосом (космические дилер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386793.jpg" />
+  <img src="Z:/picture/008/save_picture_386793.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382631.jpg" />
+  <img src="Z:/picture/008/save_picture_382631.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Discovery. Дороги России: Трасса А-161: Саянский пе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382340.jpg" />
+  <img src="Z:/picture/008/save_picture_382340.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery: Я - это зло (сезон 1, 12 серий из 12) / Discovery.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378101.jpg" />
+  <img src="Z:/picture/008/save_picture_378101.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Discovery: В поисках сокровищ: змеиный остров / Tre
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376706.jpg" />
+  <img src="Z:/picture/008/save_picture_376706.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Discovery. Загадки планеты Земля / What on Earth? HDTVRip (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375366.jpg" />
+  <img src="Z:/picture/008/save_picture_375366.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery: Звездное выживание с Беаром Гриллсом 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374726.jpg" />
+  <img src="Z:/picture/008/save_picture_374726.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374609.jpg" />
+  <img src="Z:/picture/008/save_picture_374609.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374601.jpg" />
+  <img src="Z:/picture/008/save_picture_374601.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Discovery: Разрушители легенд. Скрытая угроза / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372212.jpg" />
+  <img src="Z:/picture/008/save_picture_372212.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Discovery: Хакер в дикой природе / Hacking the Wild (2017) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367069.jpg" />
+  <img src="Z:/picture/008/save_picture_367069.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363793.jpg" />
+  <img src="Z:/picture/008/save_picture_363793.jpg" />
 </div>
 
 

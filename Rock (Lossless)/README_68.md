@@ -1,3 +1,148 @@
+###  Публикация: 907988   (635968) от 13.06.2015
+
+Smokie - Changing All The Time (1975) [FLAC|image +.cue]<Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Play Your Rock'N'Roll To Me(3:19)
+02. If You Think You Know How To Love Me(3:28)
+03. It's Natural(2:40)
+04. Give It To Me(4:07)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDCCE1D96008FE8C0CB25B51EFA69E82206AF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143527   (635390) от 18.06.2017
+
+Smokey Fingers - Columbus Way (2011) [FLAC|Lossless|image + .cue] <Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Jack  (03:33) 
+02. The Lover  (04:45) 
+03. Chains Of Mind  (04:47) 
+04. Born To Run  (04:40) (   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05ACE9680BAE9A0F6741A468458350B4971A64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143286   (635388) от 18.06.2017
+
+The Black Sorrows - Certified Blue (2014) [FLAC|Lossless|tracks + .cue] <Roots Rock, Funk, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roaring Town  (03:17) 
+02. Certified Blue  (04:00) 
+03. Can't Give Up On You  (03:33) 
+04. Wake Me Up In Paradise  (04:38) (   Читать дальше...   )Жанр: Roots Rock, Funk, BluesПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D11F8A81ED03052E7D5C50B7024F159CD418C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542735   (635333) от 08.04.2022
+
+Fortune - Level Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence Of The Heart
+02. Judgement Day
+03. Dangerous Things
+04. I Will Hold You Up(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8371D0DFB28A7BC96861735DFD08655AF510E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143550   (635246) от 18.06.2017
+
+Jeff Lynne And Friends - Every Little Thing (2010) Compilation [FLAC|Lossless|image + .cue] <Rock, Pop-Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every little Thing (12'' remix)  (07:49) 
+02. Rockabilly Holiday  (03:50) 
+03. Heartbreak Radio  (03:01) 
+04. Sand in my eyes  (03:21) (   Читать дальше...   )Жанр: Rock, Pop-Rock, Classic RockПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F23DD5B33A1D7DAC6075E412595D6FCC89646EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143545   (634975) от 18.06.2017
 
 Foreigner - 40 (2017) 1977 - Forty Hits From Forty Years - 2017 (2CD) [FLAC|Lossless|tracks + .cue] <Classic Rock, Arena Rock>
@@ -6,7 +151,7 @@ Foreigner - 40 (2017) 1977 - Forty Hits From Forty Years - 2017 (2CD) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634975.jpg" />
+  <img src="Z:/picture/008/save_picture_634975.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Mystery Lights - The Mystery Lights (2016) [FLAC|Lossless|tracks] <60's Gara
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634359.jpg" />
+  <img src="Z:/picture/008/save_picture_634359.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ London Symphony Orchestra - The Best of Classic Rock: The Ballads (1997) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634048.jpg" />
+  <img src="Z:/picture/008/save_picture_634048.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Glenn Frey (Ex. Eagles) - Above The Clouds: The Collection (2018) 3CD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633913.jpg" />
+  <img src="Z:/picture/008/save_picture_633913.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Flower Kings - By Royal Decree (2022) 2xCD [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633670.jpg" />
+  <img src="Z:/picture/008/save_picture_633670.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Suzi Quatro - No Control (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633611.jpg" />
+  <img src="Z:/picture/008/save_picture_633611.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Joe Satriani - The Elephants of Mars (2022) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633555.jpg" />
+  <img src="Z:/picture/008/save_picture_633555.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ The Orange Alabaster Mushroom - Space & Time: A Compendium Of The Orange Alabast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633389.jpg" />
+  <img src="Z:/picture/008/save_picture_633389.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Elvis Presley - From Nashville To Memphis - The Essential 60's Masters I vol.2, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632439.jpg" />
+  <img src="Z:/picture/008/save_picture_632439.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Little Feat - Hoy-Hoy! (1981) [FLAC|Lossless|tracks + .cue] <Southern Rock, Boog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632198.jpg" />
+  <img src="Z:/picture/008/save_picture_632198.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Tom Petty and The Heartbreakers - The Best Of Everything (2019) 2CD, Compilation
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631849.jpg" />
+  <img src="Z:/picture/008/save_picture_631849.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ FM - Thirteen (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631841.jpg" />
+  <img src="Z:/picture/008/save_picture_631841.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ Tommy James & The Shondells - Hanky Panky & It's Only Love (1994) [WavPack|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631702.jpg" />
+  <img src="Z:/picture/008/save_picture_631702.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ Bryan Ferry - I'm In The Mood For Love (2000) [FLAC|Lossless|image + .cue] <Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630423.jpg" />
+  <img src="Z:/picture/008/save_picture_630423.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ Chris de Burgh - Best Of Romantic (1994) Unofficial Release [APE|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630413.jpg" />
+  <img src="Z:/picture/008/save_picture_630413.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ Chris Norman - Golden Hits (1993) Series Golden Stars [APE|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630410.jpg" />
+  <img src="Z:/picture/008/save_picture_630410.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ Kiss - Best Of (2002) Unofficial Release [APE|Lossless|image + .cue] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630309.jpg" />
+  <img src="Z:/picture/008/save_picture_630309.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ Sopor Aeternus & The Ensemble of Shadows - Death and Flamingos (2019) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629991.jpg" />
+  <img src="Z:/picture/008/save_picture_629991.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ The Neal Morse Band - The Great Adventure (2019) 2CD [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629988.jpg" />
+  <img src="Z:/picture/008/save_picture_629988.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ The Rolling Stones - Sticky Fingers (1971) Remastered /2015, Polydor/ 3CD Super 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629876.jpg" />
+  <img src="Z:/picture/008/save_picture_629876.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Boston - Greatest Hits (1997) Remastered [FLAC|Lossless|tracks + .cue] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629372.jpg" />
+  <img src="Z:/picture/008/save_picture_629372.jpg" />
 </div>
 
 
@@ -603,163 +748,6 @@ Boston - Greatest Hits (1997) Remastered [FLAC|Lossless|tracks + .cue] <Classic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4FD09CA3F9FDA34E7B309D7BED21B8F967C513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520782   (629189) от 10.07.2012
-
-Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Time [04:55]
-02. You Never Know Til You Get There [04:04]
-03. Calling You [04:53]
-04. I Love You More Than Words Can Say [05:31]
-05. It Takes A Lot To Laugh (It Takes A Train To Cry) [04:46]
-06. I Cried So Hard [04:21]
-07. Staxability [04:04]
-08. You Make Me Feel So Good (All Over) [04:25]
-09. Susan [03:52]
-10. Hold On (Feat Catharine Russell) [03:51](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520876   (629084) от 10.07.2012
-
-It Bites - Map of The Past (2CD) (2012) [FLAC|Lossless]<Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In The Photograph (3:46)
-02. Wallflower (4:50)
-03. Map Of The Past (4:37)
-04. Clocks (5:44)
-05. Flag (4:36)
-06. The Big Machine (5:19)
-07. Cartoon Graveyard (5:03)
-08. Send No Flowers (4:15)
-09. Meadow And The Stream (6:42)
-10. The Last Escape (6:06)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:52:40 / 00:56:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035159   (628669) от 16.07.2016
-
-Cartoon Theory - Planet Geisha (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628669.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hypnotic Nova's Dance (feat. Plini and Luke Martin)
-2. O'Hanami 花見
-3. Wizardry Mind (feat. Plini)
-4. Planet Geisha I Sacred Geometry (feat. Plini & David Maxim Micic)(   Читать дальше...   )Жанр: Progressive Metal, Djent, ElectronicПродолжительность: 0:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085DED3EB8D8E66A1C8A691B644B5244286727FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035155   (628642) от 16.07.2016
-
-Neko Case, k.d. lang, Laura Veirs aka case-lang-veirs - case-lang-veirs (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie, Folk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628642.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atomic Number 02:57
-2. Honey and Smoke
-3. Song for Judee
-4. Blue Fires(   Читать дальше...   )Жанр: Indie, Folk, RockПродолжительность: 0:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D2CE73B5CC2B5CD70C28613BA9E7D9112C2F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035293   (628537) от 16.07.2016
-
-Steven Tyler - We're All Somebody From Somewhere (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Worst Enemy (5:11)
-02. Were All Somebody From Somewhere (2:58)
-03. Hold On (Wont Let Go) (2:53)
-04. It Aint Easy (4:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6875D2371EFFB0D1570786065DFDFA60A84415A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

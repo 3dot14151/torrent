@@ -1,3 +1,31 @@
+###  Публикация: 1679312   (139198) от 24.11.2023
+
+Синхронизация | Как понять шедевры литературы (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139198.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Улисс», «Имя розы» и «Доктор Фаустус» — выдающиеся произведения XX века, которые важно прочитать. Но часто нам сложно понять эти и другие шедевры того времени
+Джойс не использует знаки препинания в одной из глав. Почему?
+Не пытайтесь найти в этой главе логику. Это поток сознания — художественный приём, который использовали писатели-модернисты, чтобы показать, как (   Читать дальше...   )Производство: СинхронизацияЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 14:32:50Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B63FAF4301DC87F59F5FB517D37CA91A1CE5A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589419   (139134) от 18.12.2012
 
 Искусство гриля вместе со Стивеном Райкленом 1 & 2 / Primal GRILL with Steven Raichlen 1 & 2 (2010) SATRip
@@ -6,7 +34,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139134.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137238.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135477.jpg" />
 </div>
 
 
@@ -94,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134803.jpg" />
 </div>
 
 
@@ -123,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134306.jpg" />
 </div>
 
 
@@ -149,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130771.jpg" />
 </div>
 
 
@@ -178,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130687.jpg" />
 </div>
 
 
@@ -207,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130157.jpg" />
 </div>
 
 
@@ -233,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130113.jpg" />
 </div>
 
 
@@ -259,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130109.jpg" />
 </div>
 
 
@@ -285,7 +313,7 @@ Diodov.net, Дмитрий Забарило | Теоретические осн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129675.jpg" />
 </div>
 
 
@@ -311,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129439.jpg" />
 </div>
 
 
@@ -340,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128783.jpg" />
 </div>
 
 
@@ -369,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128462.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128450.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ CG Education, Максим Шаров,  Алиса Арифи | Геймифик
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128289.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127479.jpg" />
 </div>
 
 
@@ -485,7 +513,7 @@ Focus Film International Ltd., Кеннет Кнолл | Камасутра - п
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126570.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125477.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125360.jpg" />
 </div>
 
 
@@ -568,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125072.jpg" />
 </div>
 
 
@@ -597,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122112.jpg" />
 </div>
 
 
@@ -625,7 +653,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120593.jpg" />
 </div>
 
 
@@ -651,7 +679,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120588.jpg" />
 </div>
 
 
@@ -677,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117521.jpg" />
 </div>
 
 
@@ -688,34 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B9DCF948E486BAABA621295E9183E683A2F014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702759   (115586) от 26.02.2024
-
-Udemy, Meritshot Academy | Statistics and Hypothesis Testing for Data science (2023) WEB-DL [AD] [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс на английском языке с английскими субтитрами и русской аудио дорожкой
-Освоение анализа данных и принятие обоснованных решений с помощью проверки статистических гипотез в области науки о данных
-Добро пожаловать на «Статистика и проверка гипотез в области науки о данных» — комплексный курс, который даст вам необходимые статистические знания и навыки анализа данных, (   Читать дальше...   )Производство: Udemy, Meritshot AcademyЖанр: Обучающий курсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:21:27Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE471441B879E0404A96AD2FB79EBA6ADF29B94D
 ```
 
 https://mybot314.ru/tekegram_catalog/

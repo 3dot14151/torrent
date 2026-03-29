@@ -1,3 +1,55 @@
+###  Публикация: 107507   (156477) от 19.12.2018
+
+Сумасшедшие за стеклом / Drawn Together (2004 - 2007) DVDRip (Сезон 1-3, серий 36)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восемь нарисованных психопатов в одном доме борются за свою жизнь, за ними день и ночь следят мультипликаторы и фиксируют все на миллион камер. У каждого героя свои проблемы, но никто не придет на помощь. Дальше все будет только хуже. Первое и единственное мультреалити в мире.Жанр: реальное ТВРежиссер: Рич Мур, Stephen Sandoval, Ray ClaffeyАктеры: Билл Фрейбергер, Эрик Соммерс, Рид ЭгньюПеревод: Канал 2х2Формат: AVIПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC122B65571A198C491B11DB69C6754D6A3F7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675971   (156340) от 13.11.2023
+
+Пантеон / Pantheon (2022) WEBRip [H.265/1080p-LQ] (сезон 1-2, серии 1-16 из 16) RuDub
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156340.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пантеон», мультсериал, раскрывающий увлекательную концепцию загрузки сознания в виртуальную систему, привлек внимание зрителей по всему миру. Несмотря на неожиданные проблемы, включая отмену и удаление с онлайн-платформ, второй сезон «Пантеона» недавно неожиданно вернулся. Сериал рассказывает историю Мэдди, молодой девушки, которая начинает получать сообщения с (   Читать дальше...   )Производство: США / AMC StudiosЖанр: мультфильм, фантастика, драмаАктеры: Пол Дано, Уильям Хёрт, Тейлор Шиллинг, Лара Пулвер, Мод Апатоу, Скут МакНэри, Аарон Экхарт, Дэниэл Дэ Ким, Крис Диамантополос, Розмари ДеУиттПеревод: Многоголосый профессиональный (RuDub)Язык озвучки: Русский, английскийСубтитры: английскиеПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4C6FF91BA0B049AFEA46D856B01914F39CDF35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588365   (156125) от 13.12.2012
 
 Кунг-фу Панда: Захватывающие легенды / Kung Fu Panda: Legends of Awesomeness (2011-2012) WEB-DLRip [1 сезон, 1-26 из 26 серий]  [720p]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156125.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156008.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155664.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155247.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155046.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Headspace: Руководство по медитации / Headspace Guide to M
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154786.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154106.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154090.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153417.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Larva Island  (2018) WEB-DL [H.264/1080p] (сезон 1, серии 1-13 из 13
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152946.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152528.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152340.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152236.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151583.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151539.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151443.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151338.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151174.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150173.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150067.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149463.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148884.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148829.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148103.jpg" />
 </div>
 
 
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251BF8EED96801425F6F16783166938164B40590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285797   (147935) от 24.12.2019
-
-Крейг из Царства Ручья / Craig of the Creek (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-40 из 40) [MVO] NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главным героем этой увлекательной истории является мальчишка по имени Крейг. Он еще совсем юн, ведь не так давно ему исполнилось всего 10 лет. Крейг живет на городской окраине, которая граничит с лесным массивом. Жизнь здесь течет вяло и размеренно, поэтому большую часть свободного времени мальчик проводит вместе со своими лучшими друзьями. Одного из них зовут Келси, (   Читать дальше...   )Производство: США, Cartoon Network StudiosЖанр: драма, комедия, приключения, семейныйРежиссер: Мэтт Барнетт, Бен ЛевинПеревод: Двуголосый закадровый, любительский (NewStation)Субтитры: АнглийскиеПродолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3038393D6DC084C457F05C23DE532DC662414F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258346   (147912) от 24.12.2018
-
-Южный Парк / South Park (2018) WEB-DL [H.264/1080p-LQ] (22 сезон, серия 01-10 из 10)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: СШАЖанр: Для взрослых, КомедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Элиза Шнайдер, Эдриан Бирд, Мэри Кэй Бергман, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: Профессиональный, двухголосый закадровыйОзвучка: Paramount Comedy, Кубик в кубеСубтитры: АнглийскиеПродолжительность: 10x ~00:22:10Реклама: Вырезана
- Присутствует ненормативная лексика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0035D0FF553EF0E4FEB8677CA1EAE7188F8D52
 ```
 
 https://mybot314.ru/tekegram_catalog/

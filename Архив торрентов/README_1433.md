@@ -6,7 +6,7 @@ Sid Meier’s Civilization® VI v1.2.0 [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728526.jpg" />
+  <img src="Z:/picture/008/save_picture_728526.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics BoostSpeed 10.0.23.0 RePack (& Portable) by KpoJIuK 10.0.23.0 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728524.jpg" />
+  <img src="Z:/picture/008/save_picture_728524.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinRAR 5.70 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728511.jpg" />
+  <img src="Z:/picture/008/save_picture_728511.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728476.jpg" />
+  <img src="Z:/picture/008/save_picture_728476.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Aiseesoft Total Video Converter 9.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728475.jpg" />
+  <img src="Z:/picture/008/save_picture_728475.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CCleaner 5.18.5607 DC 01.06.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728473.jpg" />
+  <img src="Z:/picture/008/save_picture_728473.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Horizon. Завтра нашего мира / Horizon. Tomorrow's World (20
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728468.jpg" />
+  <img src="Z:/picture/008/save_picture_728468.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CCleaner 5.18.5607 DC 01.06.2016 Professional | Business | Technician Edition Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728467.jpg" />
+  <img src="Z:/picture/008/save_picture_728467.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Amsterdam Trance Sessions Vol. 4 (2016) [MP3|320 кб/с] <Trance, Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728463.jpg" />
+  <img src="Z:/picture/008/save_picture_728463.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wise Auto Shutdown 1.52.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728462.jpg" />
+  <img src="Z:/picture/008/save_picture_728462.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728460.jpg" />
+  <img src="Z:/picture/008/save_picture_728460.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Audition 2022 22.2.0.61 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728456.jpg" />
+  <img src="Z:/picture/008/save_picture_728456.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Media Encoder 2022 22.2.0.64 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728455.jpg" />
+  <img src="Z:/picture/008/save_picture_728455.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe After Effects 2022 22.2.0.120 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728442.jpg" />
+  <img src="Z:/picture/008/save_picture_728442.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ UNetbootin 6.38 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728423.jpg" />
+  <img src="Z:/picture/008/save_picture_728423.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728421.jpg" />
+  <img src="Z:/picture/008/save_picture_728421.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ AOMEI Partition Assistant Technician Edition 8.0.0 DC 20.02.2019 RePack by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728416.jpg" />
+  <img src="Z:/picture/008/save_picture_728416.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Movavi Video Suite 18.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728407.jpg" />
+  <img src="Z:/picture/008/save_picture_728407.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ IObit Driver Booster Pro 6.3.0.276 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728392.jpg" />
+  <img src="Z:/picture/008/save_picture_728392.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Google Chrome 51.0.2704.79 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728351.jpg" />
+  <img src="Z:/picture/008/save_picture_728351.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Avira Antivirus Free 15.0.17.273 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728348.jpg" />
+  <img src="Z:/picture/008/save_picture_728348.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ BBC. Чудеса жизни. Бесконечноcть прекраснейши
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728344.jpg" />
+  <img src="Z:/picture/005/save_picture_728344.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ System Ninja 3.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728341.jpg" />
+  <img src="Z:/picture/008/save_picture_728341.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728337.jpg" />
+  <img src="Z:/picture/008/save_picture_728337.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728334.jpg" />
+  <img src="Z:/picture/008/save_picture_728334.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5278.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728328.jpg" />
+  <img src="Z:/picture/008/save_picture_728328.jpg" />
 </div>
 
 

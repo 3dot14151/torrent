@@ -1,3 +1,31 @@
+###  Публикация: 1682210   (131748) от 06.12.2023
+
+Udemy, Samantha Dabrowski | Become a Graphic Designer in the Film Industry (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы творческий человек и хотите продолжить свою увлекательную карьеру в киноиндустрии? Мешает ли вам страх перед неизвестностью расти ? Этот курс подготовит вас к тому, чтобы с уверенностью приступить к новой работе !
+Вы хотите работать графическим дизайнером в киноиндустрии ?
+Прошел еще один год, а вы все еще застряли на той же бесполезной работе? Вы говорили себе, (   Читать дальше...   )Производство: UdemyЖанр: ДизайнЯзык озвучки: АнглийскийПродолжительность: 01:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69A0A9241CADA0A15D5B9923859EEEC1E7660E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682223   (131658) от 06.12.2023
 
 Udemy, Mepi.pl Video Tutorials | Mastering Real-Time Animation in Unreal Engine: Mocap vs Key (2023) WEB-DL [EN]
@@ -6,7 +34,7 @@ Udemy, Mepi.pl Video Tutorials | Mastering Real-Time Animation in Unreal Engine:
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131658.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Gumroad, Val Orlov | How to create in 3D Character Concept Art (2023) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131627.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ GNEURO, Никита Глухов, Артур Форостяк | Stable Diffusio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131583.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Udemy, Manas Roy | Adobe Firefly Course: Beginner to Pro AI In One Go (2023) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131375.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ Udemy, Manas Roy | DALL-E and Adobe Firefly Course: AI Art Generation Ethically 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131359.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ Udemy, Mrawan Hussain | Blender: Rolls Royce Spectre in 3D (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131287.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ School of Motion, Joey Korenman, Greg Stewart и др. | A motion design masterp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131273.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ CG Boost, Martin Klekner |  Substance Painter Launch Pad (2020) PCRec [EN, RU / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131231.jpg" />
 </div>
 
 
@@ -227,7 +255,7 @@ Udemy, Vincent Noot | Drawing the Human Skull (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131031.jpg" />
 </div>
 
 
@@ -255,7 +283,7 @@ Udemy, Aidan Perry | Unreal Engine: Ultimate Survival Horror Course (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130909.jpg" />
 </div>
 
 
@@ -282,7 +310,7 @@ Udemy, Neil Bettison | Blender 4 Creator Course Stylized 3D Models (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130886.jpg" />
 </div>
 
 
@@ -310,7 +338,7 @@ Digital Tutors, Pluralsight, Paul Conner | Professional Tips for Modeling Comple
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130763.jpg" />
 </div>
 
 
@@ -338,7 +366,7 @@ Linkedin, George Maestri | Unreal Engine 5 Essential Training (2023) WEB-DL [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130734.jpg" />
 </div>
 
 
@@ -364,7 +392,7 @@ Stepik, Арсений Смирнов | Веб-дизайн: ключ к усп�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130719.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 3D Animated Short AI Course (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130686.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ Udemy, Unreal magic | Unreal Engine 5:Enhance animation skill with Ladder Climbi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130682.jpg" />
 </div>
 
 
@@ -446,7 +474,7 @@ Greech, Анастасия Гречушникова, Вадим Киселев |
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130680.jpg" />
 </div>
 
 
@@ -475,7 +503,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating Jeep Gladiator Rubicon from A to Z (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130662.jpg" />
 </div>
 
 
@@ -502,7 +530,7 @@ VideoSmile, Артём Слаква | Супер Blender (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130585.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ ArtCraft, Александр Шаповалов | 3D Pro. Game environment pipel
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130532.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130257.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ Udemy, Gary Pettie, Ben Tristem | Math For Video Games: The Fastest Way To Get S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130206.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ Proko, Stan Prokopenko | Figure drawing fundamentals (2012) WEBRip [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129827.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129616.jpg" />
 </div>
 
 
@@ -671,7 +699,7 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128983.jpg" />
 </div>
 
 
@@ -685,35 +713,6 @@ Class101, Inhyuk Lee | Advancing to Intermediate Illustration - Steps after Lear
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22E81E82ECE817642CE852879C0CC4CC7869EF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525962   (128976) от 22.01.2022
-
-Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Intermediate (2021) PCRec [KR / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128976.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом классе вы сможете установить твердое понимание основ рисования.
-Каждый рисунок начинается с простого понимания геометрических фигур. Из форм мы можем построить человеческие фигуры, животных, предметы - в общем, что угодно. Как только вы поймете основные принципы, вы сможете рисовать любые сложные фигуры.
-
-На этом уроке я научу вас преобразовывать базовые фигуры (   Читать дальше...   )Производство: Class101Жанр: РисованиеЯзык озвучки: КорейскийСубтитры: Английские (отдельными файлами)Продолжительность: 27:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36BD15D52D09A9A7A0B28E1FD7B2B9EC66D07EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

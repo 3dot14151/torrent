@@ -6,7 +6,7 @@ Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869674.jpg" />
+  <img src="Z:/picture/008/save_picture_869674.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868615.jpg" />
+  <img src="Z:/picture/008/save_picture_868615.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868516.jpg" />
+  <img src="Z:/picture/008/save_picture_868516.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868512.jpg" />
+  <img src="Z:/picture/008/save_picture_868512.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868439.jpg" />
+  <img src="Z:/picture/008/save_picture_868439.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868437.jpg" />
+  <img src="Z:/picture/008/save_picture_868437.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868003.jpg" />
+  <img src="Z:/picture/008/save_picture_868003.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867140.jpg" />
+  <img src="Z:/picture/008/save_picture_867140.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Stephan Micus - 18 Альбомов (1977-2013) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866939.jpg" />
+  <img src="Z:/picture/008/save_picture_866939.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Danny Wright - Unwind: Peaceful Piano Relaxation (2020) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866936.jpg" />
+  <img src="Z:/picture/008/save_picture_866936.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866934.jpg" />
+  <img src="Z:/picture/008/save_picture_866934.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, I
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866892.jpg" />
+  <img src="Z:/picture/008/save_picture_866892.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Enigma - 100% Enigma (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866847.jpg" />
+  <img src="Z:/picture/008/save_picture_866847.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - New Age Hits - Relax (2010) [MP3|320 kbps]<New age, Relax, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866445.jpg" />
+  <img src="Z:/picture/008/save_picture_866445.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865724.jpg" />
+  <img src="Z:/picture/008/save_picture_865724.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Slowgold - Aska (2020) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Folk, Indie Rock>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865391.jpg" />
+  <img src="Z:/picture/008/save_picture_865391.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864785.jpg" />
+  <img src="Z:/picture/008/save_picture_864785.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Govannen - Celtic Air (2016) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864641.jpg" />
+  <img src="Z:/picture/008/save_picture_864641.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Bedouin Nights (2015) [MP3|320 Kbps] <Arabic, Arabic Pop, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864544.jpg" />
+  <img src="Z:/picture/008/save_picture_864544.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Blonker - Zeitreise-25 Jahre Gitarrenmusik (2003) [MP3|320 Kbps] <New Age, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864533.jpg" />
+  <img src="Z:/picture/008/save_picture_864533.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Deva Premal - Password (2011) [FLAC|Lossless|tracks + .cue] <New Age, Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864529.jpg" />
+  <img src="Z:/picture/008/save_picture_864529.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mairead Nesbitt - Hibernia (2016) [MP3|320 Kbps] <Instrumental,  Celtic,  Folk>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864270.jpg" />
+  <img src="Z:/picture/008/save_picture_864270.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Unknown Artist - A Night In A Greek Taverna (Unknown) [FLAC|Lossless|image + .cu
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863066.jpg" />
+  <img src="Z:/picture/008/save_picture_863066.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862579.jpg" />
+  <img src="Z:/picture/008/save_picture_862579.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861972.jpg" />
+  <img src="Z:/picture/008/save_picture_861972.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861540.jpg" />
+  <img src="Z:/picture/008/save_picture_861540.jpg" />
 </div>
 
 

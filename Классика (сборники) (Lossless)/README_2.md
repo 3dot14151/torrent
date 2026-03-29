@@ -6,7 +6,7 @@ VA - Russian Legends (Legendary Russian Soloists Of The 20-th Century) (100 CD  
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481795.jpg" />
+  <img src="Z:/picture/008/save_picture_481795.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gabor Boldoczki - Oriental Trumpet Concertos (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470697.jpg" />
+  <img src="Z:/picture/008/save_picture_470697.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Johann Strauss - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436796.jpg" />
+  <img src="Z:/picture/008/save_picture_436796.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Weekend classics series by Deutsche Grammophon (11 CD из 35) (2006) [APE,
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435492.jpg" />
+  <img src="Z:/picture/008/save_picture_435492.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Wolfgang Amadeus Mozart - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434291.jpg" />
+  <img src="Z:/picture/008/save_picture_434291.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ludwig Van Beethoven - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434287.jpg" />
+  <img src="Z:/picture/008/save_picture_434287.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371778.jpg" />
+  <img src="Z:/picture/008/save_picture_371778.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Baby's First Classics (1999) 2 СD [FLAC|Lossless|image + .cue] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332433.jpg" />
+  <img src="Z:/picture/008/save_picture_332433.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Great Overtures (1989) [FLAC|Lossless|tracks + .cue] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323258.jpg" />
+  <img src="Z:/picture/008/save_picture_323258.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Classical Romance, Vol. 2 (Famous Classical Music) (2018) [FLAC|Lossless|WE
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313978.jpg" />
+  <img src="Z:/picture/008/save_picture_313978.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Classical Romance, Vol. 1  (Famous Classical Music) (2018) [FLAC|Lossless|W
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313975.jpg" />
+  <img src="Z:/picture/008/save_picture_313975.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Joshua Bell - For the Love of Brahms (2016) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290140.jpg" />
+  <img src="Z:/picture/008/save_picture_290140.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Piano Guys - Limitless (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289044.jpg" />
+  <img src="Z:/picture/008/save_picture_289044.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Annie Haslam - Still Life (1985) Limited Edition, Reissue, 1999, Kankard [FLAC|L
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270187.jpg" />
+  <img src="Z:/picture/008/save_picture_270187.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Relaxing Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Music>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264397.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258824.jpg" />
+  <img src="Z:/picture/005/save_picture_258824.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Uplifting Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255668.jpg" />
+  <img src="Z:/picture/005/save_picture_255668.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Vocal Miracles (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239670.jpg" />
+  <img src="Z:/picture/004/save_picture_239670.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Rick Wakeman - Christmas Portraits (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225346.jpg" />
+  <img src="Z:/picture/005/save_picture_225346.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Morining Classic, Classical Music Anthology for Waking up Refreshed (2021) 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219363.jpg" />
+  <img src="Z:/picture/005/save_picture_219363.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191020.jpg" />
+  <img src="Z:/picture/004/save_picture_191020.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146960.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133043.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - Beautiful Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123798.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Ennio Morricone - Ennio Morricone: Winter Walks (2024) [FLAC|Lossless|WEB-DL|tra
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122619.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121176.jpg" />
 </div>
 
 

@@ -1,3 +1,171 @@
+###  Публикация: 1056701   (479718) от 26.09.2016
+
+Мини-футбол (Футзал). Чемпионат мира-2016. 1/8 финала. Испания - Казахстан (21.09.2016) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479718.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 сентября 2016, четверг. 01:30 МСК
+Чемпионат мира-2016. Меделин (Колумбия). Плей-офф
+1/8 финала
+(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин, Олег Денисов)Продолжительность: 01:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68AC7ACD64E89493810FB8140B0A80C9B3771E9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056872   (479409) от 26.09.2016
+
+Бои без правил (2014) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бои без правил - смешанный бой. Для кого-то это кровавое шоу, для кого-то спорт, для кого-то способ проявить себя, а еще для кого-то только способ подраться. В любом случае один боец будет повержен, другой встанет на ринге с поднятой рукой. И только ради этих мгновений он готов идти до конца.Телекомпания: Россия, Первый каналЖанр: ДокументальныйПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD1673D2602114B431B3EEA1295181E2AA92E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405952   (479389) от 01.09.2020
+
+Футбол. Лига 1. Чемпионат Франции 2020-2021. 1-й тур. Бордо — Нант (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Франции по футболу (Лига 1) 2020-2021.
+21 августа 2020, пятница. 20:00 МСК
+1-й тур
+Бордо (Бордо) — Нант (Нант)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B02E233E48A5FC80B7F1CDE1D449D2B6A0F93A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406028   (479388) от 01.09.2020
+
+Футбол. Чемпионат России 2020-2021. 6-й Тур. Локомотив — Зенит (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тинькофф Российская Премьер-Лига.
+Чемпионат России 2020-2021. 6-й Тур.
+30 августа 2020, воскресенье. 16:00 МСК
+Локомотив (Москва) — Зенит (Санкт-Петербург)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92CEEFDF726F05A0B1D692041011AFB00464DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405962   (479386) от 01.09.2020
+
+Футбол. Лига 1. Чемпионат Франции 2020-2021. 1-й тур. Лилль — Ренн (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Франции по футболу (Лига 1) 2020-2021.
+22 августа 2020, суббота. 22:00 МСК
+1-й тур
+Лилль (Лилль) — Ренн (Ренн)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9484EE3C9B66480D96091EDA239DCC76E01776BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546522   (479123) от 13.09.2012
+
+Рестлинг / TNA No Surrender (2012) HDTVRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479123.jpg" />
+</div>
+
+
+###  Подробнее
+
+No Surrender - это ежегодное pay-per-view (ППВ) шоу которое проводит Total Nonstop Action(TNA).Шоу будет проходить 9 сентября 2012 года на Impact Wrestling Zone в Орлалндо, штат Флорида. Первое ППВ прошло в 2005 году.Жанр: СпортПеревод: Многоголосый закадровый, любительскийПродолжительность: 02:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B98A4CB5B88C2963AF3E30A2C07758DE9AA9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938890   (479122) от 19.09.2015
 
 Формула 1. Гран-При Сингапура. Квалификация (2015) SATRip
@@ -6,7 +174,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479122.jpg" />
+  <img src="Z:/picture/008/save_picture_479122.jpg" />
 </div>
 
 
@@ -34,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479012.jpg" />
+  <img src="Z:/picture/008/save_picture_479012.jpg" />
 </div>
 
 
@@ -63,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478965.jpg" />
+  <img src="Z:/picture/008/save_picture_478965.jpg" />
 </div>
 
 
@@ -89,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478823.jpg" />
+  <img src="Z:/picture/008/save_picture_478823.jpg" />
 </div>
 
 
@@ -115,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478752.jpg" />
+  <img src="Z:/picture/008/save_picture_478752.jpg" />
 </div>
 
 
@@ -141,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478400.jpg" />
+  <img src="Z:/picture/008/save_picture_478400.jpg" />
 </div>
 
 
@@ -169,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478262.jpg" />
+  <img src="Z:/picture/008/save_picture_478262.jpg" />
 </div>
 
 
@@ -198,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478261.jpg" />
+  <img src="Z:/picture/008/save_picture_478261.jpg" />
 </div>
 
 
@@ -227,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478260.jpg" />
+  <img src="Z:/picture/008/save_picture_478260.jpg" />
 </div>
 
 
@@ -256,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478259.jpg" />
+  <img src="Z:/picture/008/save_picture_478259.jpg" />
 </div>
 
 
@@ -285,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478255.jpg" />
+  <img src="Z:/picture/008/save_picture_478255.jpg" />
 </div>
 
 
@@ -314,7 +482,7 @@ Monster Energy Nascar Cup Series-2017, Этап 24 - Bass Pro Shops NRA Night Ra
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478251.jpg" />
+  <img src="Z:/picture/008/save_picture_478251.jpg" />
 </div>
 
 
@@ -340,7 +508,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Red Rooster Sydney Sup
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478203.jpg" />
+  <img src="Z:/picture/008/save_picture_478203.jpg" />
 </div>
 
 
@@ -366,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478175.jpg" />
+  <img src="Z:/picture/008/save_picture_478175.jpg" />
 </div>
 
 
@@ -395,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478150.jpg" />
+  <img src="Z:/picture/008/save_picture_478150.jpg" />
 </div>
 
 
@@ -421,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478021.jpg" />
+  <img src="Z:/picture/008/save_picture_478021.jpg" />
 </div>
 
 
@@ -447,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478018.jpg" />
+  <img src="Z:/picture/008/save_picture_478018.jpg" />
 </div>
 
 
@@ -473,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478017.jpg" />
+  <img src="Z:/picture/008/save_picture_478017.jpg" />
 </div>
 
 
@@ -499,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477997.jpg" />
+  <img src="Z:/picture/008/save_picture_477997.jpg" />
 </div>
 
 
@@ -526,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477916.jpg" />
+  <img src="Z:/picture/008/save_picture_477916.jpg" />
 </div>
 
 
@@ -537,171 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC4EDC64EBAE1D08EF87D57CE3996CB86AACC91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939124   (477803) от 20.09.2015
-
-Футбол. Чемпионат Италии 2015-16. Серия А. 4-й тур. Милан - Палермо (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Италии 2015-16 Серия А, 4-й тур Милан - Палермо.Телекомпания: НТВ+ Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 00:55:09+00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F027A190B903887C8F7E8D2AA366DFE2FADA5DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939248   (477791) от 20.09.2015
-
-Точь-в-точь. Сезон №3. Выпуск №1 (2015.09.20) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу "Точь-в-точь" возвращается! Новые участники вновь примерят на себя образы легендарных музыкантов, меняясь до неузнаваемости.
-
-Двенадцать участников уже репетируют вокальные партии, отрабатывают движения, воссоздают атмосферу клипов и привыкают к костюмам своих героев.
-(   Читать дальше...   )Производство: РоссияТелекомпания: Первый каналЖанр: ТВ-шоуПродолжительность: 02:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE4D42B5286FD1537682AE5DAC7F4097661CEEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056890   (477776) от 27.09.2016
-
-Футбол. Чемпионат Италии 2016-2017. 6-й тур. Обзор матчей (26.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 6-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Карен Адамян)Продолжительность: 00:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B07F6BF53724E7E9C64A2E0810F858D2704C906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056960   (477775) от 27.09.2016
-
-Футбол. Чемпионат Франции 2016-2017. 7-й тур. Обзор матчей (26.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 7-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Егор Серов)Продолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34B5B9B6DA050ECB44153D7F992602411AB51DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056988   (477770) от 27.09.2016
-
-Хоккей. КХЛ 2016-2017. Ак барс (Казань) - Динамо (Минск) (26.09.2016) SATRip [H.264] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477770.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 сентября 2016, понедельник. 19:00 МСК
-
-Стадион: Татнефть-Арена (Казань, Россия) , 4 392 зрителя (47 % при вместимости 9 300)
-Главный судья: Павел Комаров (Нижний Новгород, Россия)(   Читать дальше...   )Телекомпания: КХЛ ТВЖанр: СпортЯзык озвучки: Русский (Олег Мосалев, Кирилл Корнилов)Продолжительность: 02:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C618153C0B6D39F3DB459E278441D6D28670CEDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056958   (477724) от 27.09.2016
-
-Футбол. Чемпионат России 2016-2017. 8-й тур. Рубин - Томь (26.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477724.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 сентября 2016, понедельник. 19:30 МСК
-8-й тур
-
-Стадион: Центральный (Казань, Россия) , вместимость: 28856(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин)Продолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C578F7782F2A38E550FAB4E6E5E5CFFEDF070C
 ```
 
 https://mybot314.ru/tekegram_catalog/

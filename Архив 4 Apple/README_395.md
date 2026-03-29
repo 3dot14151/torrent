@@ -1,3 +1,110 @@
+###  Публикация: 1412812   (413827) от 01.10.2020
+
+SQLPro Studio 2020.85 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_413827.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 30.09.2020Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF50813069D37539BCB118166A9CE46EBA0A73CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252053   (413518) от 03.10.2018
+
+BusyContacts 1.2.17 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_413518.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C24579F951C66FF1BF155C92AE9ACEA97D1C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251992   (413513) от 03.10.2018
+
+BookMacster 2.9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_413513.jpg" />
+</div>
+
+
+###  Подробнее
+
+BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие "мертвых" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Sheep SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A9F8265285C15B081738ACD498C17AFEA8DDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251879   (413512) от 03.10.2018
+
+Dash 4.5.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_413512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash - браузер документации и примеров кода
+Dash - удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных. Dash уже содержит более 150 пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну или просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Bogdan PopescuПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0029B21FEAE97749782E0A397B77EE3FBD59CF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251914   (413511) от 03.10.2018
 
 iShowU Instant 1.2.8 (Advanced) [En]
@@ -6,7 +113,7 @@ iShowU Instant 1.2.8 (Advanced) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413511.jpg" />
+  <img src="Z:/picture/008/save_picture_413511.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ Watercolor Studio Pro 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413508.jpg" />
+  <img src="Z:/picture/008/save_picture_413508.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ iShowU Studio 2 v2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413507.jpg" />
+  <img src="Z:/picture/008/save_picture_413507.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ Wondershare AllMyMusic 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413366.jpg" />
+  <img src="Z:/picture/008/save_picture_413366.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Wondershare Recoverit 7.3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413362.jpg" />
+  <img src="Z:/picture/008/save_picture_413362.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ Time Sink 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413361.jpg" />
+  <img src="Z:/picture/008/save_picture_413361.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ Airmail 2.5.3 (2.5.5) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413344.jpg" />
+  <img src="Z:/picture/008/save_picture_413344.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ iSkysoft PDF Editor 6 Pro 6.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413195.jpg" />
+  <img src="Z:/picture/008/save_picture_413195.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ Comic Life 3 v3.5.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413193.jpg" />
+  <img src="Z:/picture/008/save_picture_413193.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ QR Factory 2.9.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413192.jpg" />
+  <img src="Z:/picture/008/save_picture_413192.jpg" />
 </div>
 
 
@@ -278,7 +385,7 @@ Winclone Pro 7 v7.2.1 (40728) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413182.jpg" />
+  <img src="Z:/picture/008/save_picture_413182.jpg" />
 </div>
 
 
@@ -305,7 +412,7 @@ Pixelmator 3.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413181.jpg" />
+  <img src="Z:/picture/008/save_picture_413181.jpg" />
 </div>
 
 
@@ -331,7 +438,7 @@ OmniPlan Pro 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413158.jpg" />
+  <img src="Z:/picture/008/save_picture_413158.jpg" />
 </div>
 
 
@@ -357,7 +464,7 @@ JetBrains WebStorm 2020.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413141.jpg" />
+  <img src="Z:/picture/008/save_picture_413141.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ Sketch 52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413067.jpg" />
+  <img src="Z:/picture/008/save_picture_413067.jpg" />
 </div>
 
 
@@ -410,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413063.jpg" />
+  <img src="Z:/picture/008/save_picture_413063.jpg" />
 </div>
 
 
@@ -438,7 +545,7 @@ Navicat Premium 12.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413017.jpg" />
+  <img src="Z:/picture/008/save_picture_413017.jpg" />
 </div>
 
 
@@ -464,7 +571,7 @@ DiskWarrior 5.2 (Standalone) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413006.jpg" />
+  <img src="Z:/picture/008/save_picture_413006.jpg" />
 </div>
 
 
@@ -492,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412954.jpg" />
+  <img src="Z:/picture/008/save_picture_412954.jpg" />
 </div>
 
 
@@ -520,7 +627,7 @@ PhoneRescue 3.4.3 (20170920) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412838.jpg" />
+  <img src="Z:/picture/008/save_picture_412838.jpg" />
 </div>
 
 
@@ -546,7 +653,7 @@ Softorino YouTube Converter PRO for Mac 5.0.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412763.jpg" />
+  <img src="Z:/picture/008/save_picture_412763.jpg" />
 </div>
 
 
@@ -574,7 +681,7 @@ Bootstrap Studio 6.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412671.jpg" />
+  <img src="Z:/picture/008/save_picture_412671.jpg" />
 </div>
 
 
@@ -587,112 +694,6 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E4058FC11254411BA2A06A67E2F5E1C0A1454C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573427   (412653) от 31.08.2022
-
-DVD-Cloner 2022 v.9.40.732 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412653.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD-Cloner - это небольшая утилита, при помощи которой вы сможете создать полностью идентичную копию вашего DVD-диска (например, с фильмом), в том числе и диска с защитой, и записать ее на другой диск. Программа проста в обращении, не требует тонкой настройки, поддерживает работу с большинством DVD-RW устройств и позволяет создавать копии фильмов с качеством, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2002-2022 OpenCloner™ Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8AC74F5793903F9C6AB222984C19203B84A124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573419   (412536) от 31.08.2022
-
-Softorino YouTube Converter PRO for Mac 5.0.87 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Softorino YouTube Converter — почти YouTube Red, только бесплатно
-YouTube на iPhone и iPad без рекламы, с поддержкой офлайн-просмотра да ещё и даром. Думаете, это невозможно? А вот и не угадали!
-SYC 2 устанавливает совершенно новый уровень для загрузчиков видео, музыки и рингтонов. Он включает в себя: новый быстродействующий движок, поддержку для каждого устройства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2022 Softorino Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4396B4D2406904C6AD642C81A26F52989DDBD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573414   (412533) от 31.08.2022
-
-System Toolkit 5.6.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412533.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A122F15401AAD229D84C631E3029C1D194221F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573355   (412524) от 31.08.2022
-
-QLab 5 v.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412524.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2022 Figure 53, LLC.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE87DBF65E1B1E757673DA32B41786982A41CD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

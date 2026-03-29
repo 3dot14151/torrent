@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1862017   (1063091) от 
+
+Шрифты - Creative Market - Volkys Serif - 291966953 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volkys Serif — это высококонтрастный шрифт, вдохновленный переходными и современными шрифтами. Он расширяет возможности использования благодаря толщине букв от тонкой до черной. Естественные изгибы, выпуклые стебли и наклоны становятся более заметными по мере увеличения толщины букв. Более тонкие буквы имеют меньший контраст и оптическую коррекцию, создавая теплый (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E018D9060E5CEFE2AE6CEB9101BD86189F730F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861823   (1062831) от 
+
+Шрифты - MyFonts - Sophisto [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешное сотрудничество между MRF и типографией Psy/Ops Type Foundry. В поисках шрифта без засечек с выразительным и сильным характером, но при этом достаточно «сдержанного», чтобы быть функциональным в большинстве областей, Sophisto в итоге превратился в обширное семейство из 21 элемента. Тщательно разработанный для использования как с текстом, так и с заголовками, (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16444CCF4DE657306C62BEDD84166DE656A8CFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861933   (1062730) от 
+
+Шрифты - MyFonts - Audit Sans [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audit Sans — это современный шрифт без засечек, разработанный для того, чтобы быть выразительным, сохраняя при этом нейтральный характер. Его гротескный стиль обогащен гуманистическими деталями в изгибах, что придает всей системе шрифтов уникальную эстетику. Созданный с учетом удобочитаемости и универсальности, Audit Sans идеально адаптируется к различным средам. (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14083B2A9FBFA0D4D43DB6E55F710301ABE3B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861965   (1062702) от 
+
+Шрифты - MyFonts - Pure Motif [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pure Motif — это изысканное семейство шрифтов с засечками, сочетающее классическое мастерство с современным искусством. Оно создано для тех, кто ценит утонченность, эмоциональное воздействие и вневременную красоту в каждой букве. Благодаря изящным контрастам, плавным изгибам и скульптурным окончаниям, Pure Motif превращает даже самое простое слово в визуальное высказывание. (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D9E276801F2FC64508284358760B62639D7122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850981   (1054902) от 30.01.2026
 
 Шрифты - Creative Market - NORD - Minimal Display Font Family - 3930703 [OTF, TTF, WOFF, WOFF2, EOT, SVG]
@@ -7,7 +111,7 @@ https://t.me/izofen
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054902.jpg" />
+  <img src="Z:/picture/005/save_picture_1054902.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054822.jpg" />
+  <img src="Z:/picture/005/save_picture_1054822.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054727.jpg" />
+  <img src="Z:/picture/005/save_picture_1054727.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054377.jpg" />
+  <img src="Z:/picture/005/save_picture_1054377.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050310.jpg" />
+  <img src="Z:/picture/005/save_picture_1050310.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050266.jpg" />
+  <img src="Z:/picture/005/save_picture_1050266.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050239.jpg" />
+  <img src="Z:/picture/005/save_picture_1050239.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050159.jpg" />
+  <img src="Z:/picture/005/save_picture_1050159.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050082.jpg" />
+  <img src="Z:/picture/005/save_picture_1050082.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050032.jpg" />
+  <img src="Z:/picture/005/save_picture_1050032.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049968.jpg" />
+  <img src="Z:/picture/005/save_picture_1049968.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049933.jpg" />
+  <img src="Z:/picture/005/save_picture_1049933.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049901.jpg" />
+  <img src="Z:/picture/005/save_picture_1049901.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049832.jpg" />
+  <img src="Z:/picture/005/save_picture_1049832.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049806.jpg" />
+  <img src="Z:/picture/005/save_picture_1049806.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049796.jpg" />
+  <img src="Z:/picture/005/save_picture_1049796.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049773.jpg" />
+  <img src="Z:/picture/005/save_picture_1049773.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049727.jpg" />
+  <img src="Z:/picture/005/save_picture_1049727.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049639.jpg" />
+  <img src="Z:/picture/005/save_picture_1049639.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049428.jpg" />
+  <img src="Z:/picture/008/save_picture_1049428.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049248.jpg" />
+  <img src="Z:/picture/008/save_picture_1049248.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048978.jpg" />
+  <img src="Z:/picture/008/save_picture_1048978.jpg" />
 </div>
 
 
@@ -571,113 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F8A188D95A9497CE4CC56AE4F3AAC070E6D02A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842855   (1048829) от 17.12.2025
-
-Шрифты - Envato - Pinky Vanilla - Handwritten Font - SKR9FF4 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем рукописный шрифт, передающий непринужденную красоту естественного почерка. Благодаря плавным линиям и спокойному ритму, этот шрифт привнесет индивидуальный, дружелюбный штрих в любой дизайн — от брендинга и упаковки до свадебных приглашений и цитат для социальных сетей.
-
-Этот непринужденный, но изысканный шрифт сочетает в себе современную простоту и (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6C9F9B5D98390B3C280162C2AE0FD2DAAAF0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842405   (1048698) от 16.12.2025
-
-Шрифты - Behance - Cristian Tournier - Arturito - 83486229 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arturito - это типографическое семейство шрифтов от Rostype, разработанное Кристианом Турнье в 2019 году.
-Это полупластинчатый шрифт с глифами верхнего и нижнего регистра, разработанный для брендов, выделения текста и заголовков. Главное достоинство этого семейства - читаемость в сокращенном виде и выразительность символов, поскольку их геометрическая структура и (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8D9D9F7F877591C1C6629581FFF435AAE53273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842207   (1048672) от 14.12.2025
-
-Шрифты - Envato - Photo - World Photography Font - DMY5LFS [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048672.jpg" />
-</div>
-
-
-###  Подробнее
-
-PHOTO — это шрифт, посвященный мировой фотографии, который передает элегантность и художественность фотографии. Разработанный для фотографов, студий и творческих профессионалов, PHOTO сочетает в себе современную, изящную эстетику с вневременной привлекательностью визуального повествования. Независимо от того, создаете ли вы логотип, портфолио или рекламные материалы, (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B722483D622202EE8EC1F34904F0F089F29D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841925   (1048469) от 13.12.2025
-
-Шрифты - Envato - Rebelion - Blackletter Font - BFT5XTT [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смелый, исторический и властный CS Rebelion — это декоративный шрифт в стиле готического письма, излучающий драматизм, традиции и поразительный характер. Вдохновленный средневековой каллиграфией и готическим письмом, его острые, ломаные штрихи и витиеватые детали передают ощущение исторической мощи и визуальной авторитетности.Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9EEC8E69707CDC07E7BF7EABC3CF23A14D8D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,134 @@
+###  Публикация: 1639468   (211636) от 13.06.2023
+
+HitPaw Photo Enhancer for Mac 2.3.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211636.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Photo Enhancer может помочь вам сделать ваши фотографии намного четче и увеличить их по вашему желанию. Сделать размытое фото? Сделать скриншот изображения, не может быть хорошего качества, чтобы после увеличения было видно четко? Используйте HitPaw Photo Enhance. Это будет волшебным и сделает все ваши фотографии четкими.Тип издания: macOS SoftwareРелиз состоялся: 07.06.2023Разработчик: © 2023 HitPawПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6911D7F86E1F503CBF873D7CCF3DB71A114C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639490   (211585) от 13.06.2023
+
+HitPaw Photo Object Remover for Mac 1.0.2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря AI-Power HitPaw Photo Object Remover автоматически отслеживает и идентифицирует объекты и помогает вам удалить все, что вы хотите, с фотографии за несколько простых шагов.Тип издания: macOS SoftwareРелиз состоялся: 09.06.2023Разработчик: © 2023 HitPawПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877A89A7A6B9EBA950DE3E848C47D0D02E563348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640194   (211407) от 16.06.2023
+
+ON1 Photo RAW 2023.5 v.17.5.1.14051 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211407.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Photo RAW включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 2023 ON1, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D76461A99CED7048A2D7A221782D38F04368A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641595   (210810) от 23.06.2023
+
+Native Instruments Maschine 2 v.2.17.4[Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maschine – это рабочая станция для создания битов со встроенным барабанным секвенсором, функциями семплирования и нарезки лупов, являющаяся самым актуальным на данный момент результатом инициативы Native Instruments по созданию гибридных аппаратно-программных инструментов.
+Программный компонент запускается как самостоятельное приложение или в качестве AU/VST/RTAS (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.06.2023Разработчик: © 2021 Native Instruments GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932C5453EE1FAAF87D071848DDC756D367995F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642635   (210372) от 28.06.2023
+
+X Lossless Decoder XLD 20230627 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210372.jpg" />
+</div>
+
+
+###  Подробнее
+
+X Lossless Decoder (XLD) - это инструмент для macOS, который может декодировать / конвертировать / воспроизводить различные аудиофайлы без потерь. Поддерживаемые аудиофайлы могут быть разделены на несколько треков с помощью cue Sheet при декодировании. XLD - это универсальный двоичный файл, поэтому он изначально работает как на компьютерах Intel Mac, так и на компьютерах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2023Разработчик: tmkkПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60C64C325C714AC1A530C5AE81831285DB0F210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642968   (210277) от 29.06.2023
 
 Luxion KeyShot 2023.2 Pro 12 v.12.1.0 [Multi/Ru]
@@ -6,7 +137,7 @@ Luxion KeyShot 2023.2 Pro 12 v.12.1.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210277.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ Adobe Bridge 2022 12.0.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210144.jpg" />
+  <img src="Z:/picture/005/save_picture_210144.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ Steinberg Cubase Pro for Mac 12 v.12.0.70 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209918.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ Movavi Video Editor Plus 2022 v.22.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209855.jpg" />
+  <img src="Z:/picture/005/save_picture_209855.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ Steinberg SpectraLayers Pro for Mac 10.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209524.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ Adobe Audition 2022 22.6.0 U2B [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209442.jpg" />
+  <img src="Z:/picture/005/save_picture_209442.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ Adobe Media Encoder 2022 22.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209432.jpg" />
+  <img src="Z:/picture/005/save_picture_209432.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ Movavi Video Suite for Mac 2022 v.22.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209420.jpg" />
+  <img src="Z:/picture/005/save_picture_209420.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ Remote Desktop Manager Enterprise Edition 2022.2.11.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209388.jpg" />
+  <img src="Z:/picture/005/save_picture_209388.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ Movavi Picverse Photo Editor 1.11.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209353.jpg" />
+  <img src="Z:/picture/005/save_picture_209353.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ Movavi Screen Recorder 22 v.22.5.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209179.jpg" />
+  <img src="Z:/picture/005/save_picture_209179.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ Motion 5.6.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208442.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ Compressor 4.6.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208389.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ IINA 1.3.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207830.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ NetSpot PRO – Wi-Fi Reporte‪r‬ for Mac 2.16.1067  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207449.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ Essential Presets Bundle for Luminar Neo Mac 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207440.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ Chrono Plus - Time Tracker 1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207431.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ iVI Video Converter 4 v.4.754 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207414.jpg" />
 </div>
 
 
@@ -478,7 +609,7 @@ Bitwig Studio 5 for Mac v.5.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207341.jpg" />
 </div>
 
 
@@ -505,7 +636,7 @@ Splunk Enterprise for Mac 9.1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206750.jpg" />
 </div>
 
 
@@ -531,7 +662,7 @@ Serato DJ Pro Suite for Mac 3.0.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206710.jpg" />
 </div>
 
 
@@ -542,138 +673,6 @@ Serato DJ – продукт, ориентированный как на про�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BFC5CE2D566D194C1A81E41C02114F87DDE1A6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652223   (206677) от 10.08.2023
-
-AlDente Pro fo Mac 1.2.22 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энтузиасты из Австрии создали небольшую, но полезную утилиту под названием AlDente. Она способствует более щадящему и эффективному использованию аккумуляторов любых MacBookТип издания: macOS SoftwareРелиз состоялся: 31.07.2023Разработчик: © 2023 AppHouseKitchenПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B921D90E2D72DAFF91664DF2FB7DCD83811FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652114   (206649) от 10.08.2023
-
-4K Video Downloader + 1.1.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2023Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDDF8EDCD6BA323668887C5CAE178C79A2DE2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652509   (206564) от 11.08.2023
-
-Sublime Merge 2.0 Build 2087 Dev for Mac [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Merge - клиент системы контроля версий, который сочетает в себе знакомый интерфейс редактора кода и функции Git, например: возможность контролировать слияние версий, искать выбранные коммиты или просматривать историю изменений.Тип издания: macOS SoftwareРелиз состоялся: 11.08.2023Разработчик: © 2022 Sublime HQПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F4E37F69182B7AA916367A68CD69FF39B5754D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652692   (206489) от 12.08.2023
-
-Direct Mail 6.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Direct Mail - Лучшее приложение для управления и отправки писем для Mac OS.
-Direct Mail обладает интуитивно понятным интерфейсом и мощным почтовым движком, который позволит с легкостью поддерживать связь со своими контактами не заморачиваясь сложными настройками.Тип издания: macOS SoftwareРелиз состоялся: 05.08.2023Разработчик: © 2023 e3 SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7B51BD1599E63254FAFC4D564A2526315CB20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652554   (206446) от 12.08.2023
-
-Kyno 1.8.5 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предварительный просмотр, резервное копирование, ввод, регистрация метаданных, конвертирование, обрезка, переименование и организация материала с любых камер (DSLR, дроны, GoPro, RED, Blackmagic Design, Panasonic P2, MXF). Управляйте контентом на любом диске, SD-карте или в команде на общем хранилище.
-Достаточно простой в использовании для режиссеров и помощников (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: Signiant Inc.Поддерживаемая ОС: macOSX 10.10.5 и вышеЯзык интерфейса: Английский, Немеций, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34D7BEEB47C2B295347552A7B141A326842411E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1811040   (16620) от 07.08.2025
+
+Skip House - Outlaw Redux (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Outlaw Redux (4:05)
+02.  Big Daddy Blues (3:48)
+03.  Paradoxical Lady (5:57)
+04.  Simple Stupid Groove (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EC5C38AC09FCF995F5E01166D79E92522E12C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800873   (15473) от 06.06.2025
+
+Streetcar Revenge - Streetcar Revenge (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Too Late (03:24)
+ 02. Satellite (04:33)
+ 03. Dead Will Rise (05:33)
+ 04. You Don't Love Me (04:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D1D3A8BAC47F0AD210FD66FE4CC7B8710038BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800883   (15471) от 06.06.2025
 
 Winterland - Life's What You Make It (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Winterland - Life's What You Make It (2025) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15471.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ A-Z - A2Z² (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15466.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Triumph - 16 Albums (1976 - 2015) 25 CD [FLAC|Lossless|tracks + .cue|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15215.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ Animalyze - Powerhouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15031.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ Wildheart - Wild 'N Three (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14751.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ Volbeat - God of Angels Trust (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14311.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Motorhead - The Manticore Tapes (1977) Reissue, Remastered, 2025, Sanctuary Reco
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13244.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ UFO(Unidentified Flying Objects) - Champions Of Rock (1996) Compilation [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12730.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Kiss - Love Gun (1977) Deluxe Edition, 2014, UMe Direct 2 [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12325.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ AC/DC - Problem Child The Best Of The Bon Scott Years (2018) Box Set, 8 x CD, Co
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12061.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Recor
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11502.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11311.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11310.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Liliac - Delusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10771.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9748.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Styx - 19 Studio Albums, 6 Live, 12 Compilations, 1 Box Set (1972 - 2025) 66 CD 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9580.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Golden Earring - 31 Albums, 3 Box Set (1965 - 2022) (91 CD) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9397.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ James Gang - 12 альбомов (1969 - 2000) 19 CD [FLAC|Lossless|tracks/image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9267.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Bruce Dickinson - More Balls To Picasso (1994) Tri-fold Digisleeve, Remasterd, 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7467.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Ellefson-Soto - Unbreakable (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7462.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Ted Nugent - 35 Albums (1967 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6542.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Michael Schenker's Temple Of Rock - Spirit On A Mission (2015) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6456.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Strangers - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6439.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Van Halen - 12 Studio Albums, 3 Live, 2 Compilation, 8 EPs, Singles, 3 Box Set (
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6381.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Van Halen - американская хард-рок группа. Слушат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74B2A3E10E18727639556B46031C18EA58729CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379766   (5771) от 27.08.2025
-
-Sammy Hagar (frontman Montrose, Van Halen, Chickenfoot) - 34 Albums (1976 - 2022) 42 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5771.jpg" />
-</div>
-
-
-###  Подробнее
-
-К вокалисту Sammy Hagar, по прозвищу The Red Rocker, известность пришла, когда он присоединился к группе Ronnie Montrose "Montrose". С его участием было записано два самых удачных альбома, причем один из хитов, "Bad Motor Scooter", имел в авторах Хагара. Отношения с Ронни складывались непросто, и вскоре Сэмми ушел из "Montrose". С 1976 (   Читать дальше...   )Список альбомов:
-1976 - Nine On A Ten Scale
-1977 - Musical Chairs
-1977 - Sammy Hagar (aka Red)Жанр: Hard RockПродолжительность: 33:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BADEC85A80E12A7CCB6690EE0D9D5058837C772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815470   (5153) от 30.08.2025
-
-Queensryche - Live Evolution (2001) Japanese Edition, 2XCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk 1 - EP/Warning/Rage Suite; Mindcrime Suite:
-EP/Warning/Rage Suite
-1-1 NM156 3:57
-1-2 Walk In The Shadows 3:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D5CA73AF3ABA862B8033A62DB2A4B6C154A115
 ```
 
 https://mybot314.ru/tekegram_catalog/

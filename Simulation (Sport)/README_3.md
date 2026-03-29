@@ -1,3 +1,55 @@
+###  Публикация: 1152293   (566669) от 22.07.2017
+
+Euro Fishing: Foundry Dock (2015) [Ru/Multi] (1.0) Repack Covfefe
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Euro Fishing позволит Вам полностью погрузиться в действие, полное адреналина и веселья, на фоне красоты известнейших озер Европы. Управляйтесь с удочкой и леской, придумайте собственную тактику и совершенствуйте технику, чтобы стать лучшим рыбаком. Это самая реалистичная рыбалка, которой Вы можете заняться, не отрываясь от домашнего комфорта. Займитесь рыбалкой, (   Читать дальше...   )Тип издания: RepackРазработчик: Dovetail GamesЖанр: Симулятор рыбной ловли, СпортЯзык озвучки: ОтсутствуетЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB5FD2E2F65F5D31FECB0089F8DF9F8AD59EE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153921   (556704) от 28.07.2017
+
+Infinite Mini Golf (2017) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте и играйте на неограниченном количестве полей для мини-гольфа в Infinite Minigolf от Zen Studios, в которую можно играть бесконечно! Примите участие в турнирах и испытаниях, разблокируйте и воспользуйтесь усилениями, насладитесь уникальным игровым процессом, удивительной графикой и другими прелестями в самой крутой доступной игре про мини-гольф.Тип издания: LicenseРазработчик: Zen StudiosЖанр: Action, Arcade, SportЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1B2E53AE8445505F03D2CC915E2BAA4EB76108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047020   (550723) от 28.08.2016
 
 MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
@@ -6,7 +58,7 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550723.jpg" />
+  <img src="Z:/picture/008/save_picture_550723.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Battle Chess (1994) [En] (1.0) License GOG [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542087.jpg" />
+  <img src="Z:/picture/008/save_picture_542087.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Card Shark (2022) [Ru/Multi] (1.2.2206160951) License GOG [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537050.jpg" />
+  <img src="Z:/picture/008/save_picture_537050.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ F1 2015 (2015) [Ru/Multi] (1.0.19.1175) Repack R.G. Games
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529314.jpg" />
+  <img src="Z:/picture/008/save_picture_529314.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Pure Hold'em (2015) [Ru/Multi] (1.0) License HI2U
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515811.jpg" />
+  <img src="Z:/picture/008/save_picture_515811.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Virtua Tennis 3 [Ru] (RePack/1.1) 2007 | Skorp1oN
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513178.jpg" />
+  <img src="Z:/picture/008/save_picture_513178.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Hunting Simulator (2017) [Ru/Multi] (1.1) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489789.jpg" />
+  <img src="Z:/picture/008/save_picture_489789.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Hunting Simulator (2017) [Ru/Multi] (1.1/dlc) Repack =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489579.jpg" />
+  <img src="Z:/picture/008/save_picture_489579.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Tour de France 2020 (2020) [Multi] (1.35.0.0) Steam-Rip CHRONOS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470141.jpg" />
+  <img src="Z:/picture/008/save_picture_470141.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Tony Stewart's All-American Racing (2020) [En] (1.0) Steam-Rip CHRONOS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468049.jpg" />
+  <img src="Z:/picture/008/save_picture_468049.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Real Boxing (2014) [Ru/Multi] (1.0.1.1) Repack R.G. RealGaMeRs
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452848.jpg" />
+  <img src="Z:/picture/008/save_picture_452848.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Madden NFL 08 [En] (RePack/4.0) 2007 | R.G. Механики
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432837.jpg" />
+  <img src="Z:/picture/008/save_picture_432837.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ PES 2016 (2015) [Ru/En] (1.0.1.0) Repack R.G. Catalyst
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428454.jpg" />
+  <img src="Z:/picture/008/save_picture_428454.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Madden NFL 19 (2018) [En] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408912.jpg" />
+  <img src="Z:/picture/008/save_picture_408912.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ WWE 2K19 (2018) [Multi] (1.0/dlc) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408907.jpg" />
+  <img src="Z:/picture/008/save_picture_408907.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407214.jpg" />
+  <img src="Z:/picture/008/save_picture_407214.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ FIFA 18 (2017) [Ru/Multi] (1.0) License STEAMPUNKS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400120.jpg" />
+  <img src="Z:/picture/008/save_picture_400120.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Pro Evolution Soccer 2017 (2016) [Ru/En] (1.01.00) Repack =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384050.jpg" />
+  <img src="Z:/picture/008/save_picture_384050.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ NBA 2k13 [Ru/En] (RePack/1.0.1.1) 2012 | Audioslave
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382176.jpg" />
+  <img src="Z:/picture/008/save_picture_382176.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Franchise Hockey Manager 3 (2016) [En] (1.0) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379714.jpg" />
+  <img src="Z:/picture/008/save_picture_379714.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ MotoGP™20 (2020) [Multi] (1.0/dlc) Repaсk R.G. Механики
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378097.jpg" />
+  <img src="Z:/picture/008/save_picture_378097.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ eFootball PES 2021 (2020) [Ru/Multi] (1.01.00) License CPY
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368997.jpg" />
+  <img src="Z:/picture/008/save_picture_368997.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Deer Hunter: Reloaded (2017) [En/Ge/Fr] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355381.jpg" />
+  <img src="Z:/picture/008/save_picture_355381.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ International Snooker 2012 (2013) [En] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339111.jpg" />
+  <img src="Z:/picture/008/save_picture_339111.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ International Snooker 2012 (2013) [En] (1.0) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A92DDC4A8C67BECFD4DD93CB3D6FAAA8B066183D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579160   (338402) от 26.09.2022
-
-PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) License
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гул трибун, мощные прожекторы, кричалки болельщиков... – всё это футбол, такой, какой он есть в реальности. Это бизнес, которым кто-то управляет. Не хочешь попробовать себя на этом поприще? Полный контроль над любимым футбольным клубом, разве ты не мечтал об этом с детства? Заключай контракты, покупай и продавай игроков, улучшай свой стадион, закупай оборудование (   Читать дальше...   )Тип издания: LicenseРазработчик: Gaelco MultimediaЖанр: Спорт, СтратегииЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5446C1B1F8B9F0F6223C41BEC17EF559D6F1E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181260   (334768) от 06.11.2017
-
-NBA 2K18 (2017) [En] (1.0) License CODEX
-
->>След.
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди симуляторов баскетбола, эта игра является самой технически современной, и альтернативы ей практически нет, не считая NBA от EA Sports, но тут уже чистая вкусовщина. На этот раз разработчики приготовили для поклонников баскетбола новую графику, улучшенную анимацию спортсменов, более естественные движения, новые приёмыТип издания: LicenseРазработчик: Visual ConceptsЖанр: Sport (Basketball), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732082A7F38B26DA6930C827FF40CB275D1914E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Godslave - Into The Black (2011) [MP3|224 kbps]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836264.jpg" />
+  <img src="Z:/picture/008/save_picture_836264.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ RONI SIZE - IN THE MODE (2000) [MP3|192 kbps]<D'n'B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836237.jpg" />
+  <img src="Z:/picture/008/save_picture_836237.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836236.jpg" />
+  <img src="Z:/picture/008/save_picture_836236.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Comfy Photo Recovery Home Edition/Office Edition/Commercial Edition 4.5 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836202.jpg" />
+  <img src="Z:/picture/008/save_picture_836202.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836201.jpg" />
+  <img src="Z:/picture/008/save_picture_836201.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Stand Up (2017.03.12) SATRip (сезон 6, выпуск 4)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836194.jpg" />
+  <img src="Z:/picture/008/save_picture_836194.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Windows 10 Manager 2.0.7 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836188.jpg" />
+  <img src="Z:/picture/008/save_picture_836188.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ FreeFileSync 8.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836184.jpg" />
+  <img src="Z:/picture/008/save_picture_836184.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ jv16 PowerTools X 4.0.0.1514 Final RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836164.jpg" />
+  <img src="Z:/picture/008/save_picture_836164.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836163.jpg" />
+  <img src="Z:/picture/008/save_picture_836163.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Adobe Flash Player 21.0.0.213 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836159.jpg" />
+  <img src="Z:/picture/008/save_picture_836159.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836158.jpg" />
+  <img src="Z:/picture/008/save_picture_836158.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Windows 10 Manager 1.1.0 Final Portable by PortableWares [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836157.jpg" />
+  <img src="Z:/picture/008/save_picture_836157.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836156.jpg" />
+  <img src="Z:/picture/008/save_picture_836156.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836155.jpg" />
+  <img src="Z:/picture/008/save_picture_836155.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Alcohol 120% 2.0.3 Build 8806 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836148.jpg" />
+  <img src="Z:/picture/008/save_picture_836148.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836141.jpg" />
+  <img src="Z:/picture/008/save_picture_836141.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836140.jpg" />
+  <img src="Z:/picture/008/save_picture_836140.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ ThisIsWin11 0.85.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836139.jpg" />
+  <img src="Z:/picture/008/save_picture_836139.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836138.jpg" />
+  <img src="Z:/picture/008/save_picture_836138.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Blackmagic Design DaVinci Resolve Studio 17.3.2 Build 8 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836134.jpg" />
+  <img src="Z:/picture/008/save_picture_836134.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Kerish Doctor 2021 4.85 (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836131.jpg" />
+  <img src="Z:/picture/008/save_picture_836131.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Matthew Harwood - OST Homefront (2011) [MP3|320 kbps]<Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836126.jpg" />
+  <img src="Z:/picture/008/save_picture_836126.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ ND - 10 лет истории (2009) [MP3|256 kbps]<Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836112.jpg" />
+  <img src="Z:/picture/008/save_picture_836112.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Digital Visions vol.1 (2011) [MP3|320 kbps] <Full On, Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836109.jpg" />
+  <img src="Z:/picture/008/save_picture_836109.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Adguard 2.4.7 (781) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836101.jpg" />
+  <img src="Z:/picture/008/save_picture_836101.jpg" />
 </div>
 
 

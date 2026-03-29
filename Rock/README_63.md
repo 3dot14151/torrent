@@ -1,3 +1,32 @@
+###  Публикация: 1416050   (367337) от 16.10.2020
+
+Dire Straits - Dire Straits FM Broadcast April 1979 (2020) [MP3|320 Kbps] <Rock, Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down To The Waterline (Live)
+02. Sultan Of Swing (Live)
+03. Where Do You Think You're Going? (Live)
+04. Six Blade Knife (Live)(   Читать дальше...   )Жанр: Rock, Classic Rock, Blues RockПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA8FDDDDF2FB6FC4B007B14A83A30CD305E6C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416027   (367333) от 16.10.2020
 
 Uriah Heep - Uriah Heep FM Broadcast February 1974 (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Uriah Heep - Uriah Heep FM Broadcast February 1974 (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367333.jpg" />
+  <img src="Z:/picture/008/save_picture_367333.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Smokie - Greatest Hits (1999) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366417.jpg" />
+  <img src="Z:/picture/008/save_picture_366417.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ T. Rex - T. Rex FM Broadcast 1976 (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365250.jpg" />
+  <img src="Z:/picture/008/save_picture_365250.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Santana - FM Broadcast Santana Live (2014) [MP3|320 Kbps] <Rock, Indi Rock, Pop 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365108.jpg" />
+  <img src="Z:/picture/008/save_picture_365108.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Eagles - Live From The Forum MMXVIII (2020) [MP3|320 Kbps] <Classic Rock, Legend
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364967.jpg" />
+  <img src="Z:/picture/008/save_picture_364967.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Bruce Springsteen - Letter To You (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364958.jpg" />
+  <img src="Z:/picture/008/save_picture_364958.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ The Mars Volta - The Mars Volta (2022) [MP3|320 Kbps] <Progessive Rock, Neo-Psyc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364356.jpg" />
+  <img src="Z:/picture/008/save_picture_364356.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Witchsnake - Witchsnake (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, Sludge
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364256.jpg" />
+  <img src="Z:/picture/008/save_picture_364256.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ VA - Rock Idols (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364194.jpg" />
+  <img src="Z:/picture/008/save_picture_364194.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Status Quo - Quo'ing in: The Best of the Noughties (2022) 2xCD, Compilation [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364090.jpg" />
+  <img src="Z:/picture/008/save_picture_364090.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Cosmic Overdose - 4668 (1981) LP [MP3|320 Kbps] <Electronic, Alternative Rock, S
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363717.jpg" />
+  <img src="Z:/picture/008/save_picture_363717.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Crazee Noize - 50 Best of Glam Rock (2011) [MP3|320 Kbps] <Rock, Glam Rock, Hard
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363182.jpg" />
+  <img src="Z:/picture/008/save_picture_363182.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ VA - Dreamboats and Petticoats: 10th Anniversary Collection (2016) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363004.jpg" />
+  <img src="Z:/picture/008/save_picture_363004.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ VA - Best of Glam Rock (2020) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362850.jpg" />
+  <img src="Z:/picture/008/save_picture_362850.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Bryan Adams - Bare Bones (2010) [MP3|128-320 kbps]<Rock, Pop Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362093.jpg" />
+  <img src="Z:/picture/008/save_picture_362093.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Ringo Starr - EP3 (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361813.jpg" />
+  <img src="Z:/picture/008/save_picture_361813.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Clutch - Sunrise on Slaughter Beach (2022) [MP3|320 Kbps] <Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361792.jpg" />
+  <img src="Z:/picture/008/save_picture_361792.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ David Osborne - Songs For Oh-Mah (2019) [MP3|320 Kbps] <Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361033.jpg" />
+  <img src="Z:/picture/008/save_picture_361033.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Backstreet Girls - Don't Mess With My Rock'N'Roll (2017) WEB, Voices Of Wonder [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360933.jpg" />
+  <img src="Z:/picture/008/save_picture_360933.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Sting - 57TH & 9TH (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358861.jpg" />
+  <img src="Z:/picture/008/save_picture_358861.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ The Betty Brothers - Hey Kid... (2015) [MP3|320 кб/с]<Progressive, Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358829.jpg" />
+  <img src="Z:/picture/008/save_picture_358829.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Elvis Presley with The Royal Philharmonic Orchestra - If I Can Dream (2015) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358454.jpg" />
+  <img src="Z:/picture/008/save_picture_358454.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Jonah Whale - VI (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358265.jpg" />
+  <img src="Z:/picture/008/save_picture_358265.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Pink Floyd - Cre/ation: The Early Years 1967 - 1972 (2016) 2CD [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356816.jpg" />
+  <img src="Z:/picture/008/save_picture_356816.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Spirit Of John Morgan - Spirit Of John Morgan (1971) /1993, Repertoire Records /
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356055.jpg" />
+  <img src="Z:/picture/008/save_picture_356055.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Spirit Of John Morgan - Spirit Of John Morgan (1971) /1993, Repertoire Records /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8919C8C5EBC69C5F61BBAF7D5D17155C15A4B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417620   (355900) от 21.10.2020
-
-Ricochet - Pieces of the Ricochet (2020) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear (10:27)
- 02. Credo (06:59)
- 03. The Other Side (12:36)
- 04. Again (06:59)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC186CEFD004B3119110B40840A10A806B534FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

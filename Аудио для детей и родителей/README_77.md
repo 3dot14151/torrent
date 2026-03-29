@@ -1,3 +1,90 @@
+###  Публикация: 1590802   (188511) от 15.11.2022
+
+Елена Щепотьева, Юрий Кудинов - Песенки про животных (2022) [MP3|~162 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кошка-хромоножка (Клоун Плюх)
+02. Наш кот (Клоун Плюх, Владимир Сафонкин)
+03. Про лошадку (Клоун Плюх)
+04. Пудель (Клоун Плюх)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAAC5391FEE456511691123BEF7BBF7D424D3F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590796   (188505) от 15.11.2022
+
+Андрей Усачев и Ко - По тропинке жарким летом (2021) [MP3|320 Kbps] <детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тропинка-торопинка (А.Пинегин – Г.Ладонщиков)
+2. Кукушка и лето (А.Пинегин – Н.Карпова)
+3. По тропинке жарким летом (А.Пинегин – А.Усачев)
+4. Брошу в речку камешек (А.Пинегин – А.Пинегин)(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD87D63F1E4C0BC432326939CBC9B162D9334E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827597   (187919) от 22.10.2025
+
+Александр Николаевич Афанасьев, Константин Ушинский | Для самых маленьких. Русские народные сказки (2008) [MP3, Ольга Будина и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Для самых маленьких.
+В сборник русских народных сказок вошли знаменитые сказки в обработке Александра Николаевича Афанасьева, Ольги Иеронимовны Капицы и Константина Дмитриевича Ушинского.
+Русские народные сказки. Мы выросли на них, пусть теперь растут Ваши дети и внуки, слушая их. Эта звуковая книга доставит Вам много приятных, сказочных минут.
+Поставьте (   Читать дальше...   )Жанр: Литература для детей, русская народная сказкаИздательство: Продюсерский центр «Вимбо»Продолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D78E7496D3F6DC1FBDE276E3A9176E1525A65D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827628   (187868) от 22.10.2025
 
 Константин Ушинский, Лев Толстой | 50 рассказов-малюток (2025) [MP3, Ксения Огнева]
@@ -6,7 +93,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187868.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187544.jpg" />
 </div>
 
 
@@ -61,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187520.jpg" />
 </div>
 
 
@@ -90,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187516.jpg" />
 </div>
 
 
@@ -117,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187510.jpg" />
 </div>
 
 
@@ -143,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187490.jpg" />
 </div>
 
 
@@ -172,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187233.jpg" />
 </div>
 
 
@@ -198,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187200.jpg" />
 </div>
 
 
@@ -224,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187152.jpg" />
 </div>
 
 
@@ -253,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187096.jpg" />
 </div>
 
 
@@ -282,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187018.jpg" />
 </div>
 
 
@@ -308,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186910.jpg" />
 </div>
 
 
@@ -335,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185911.jpg" />
 </div>
 
 
@@ -361,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185908.jpg" />
 </div>
 
 
@@ -387,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185902.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185887.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185852.jpg" />
+  <img src="Z:/picture/004/save_picture_185852.jpg" />
 </div>
 
 
@@ -465,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185837.jpg" />
+  <img src="Z:/picture/004/save_picture_185837.jpg" />
 </div>
 
 
@@ -494,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185431.jpg" />
 </div>
 
 
@@ -520,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185277.jpg" />
 </div>
 
 
@@ -546,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184576.jpg" />
 </div>
 
 
@@ -573,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184557.jpg" />
 </div>
 
 
@@ -599,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184422.jpg" />
+  <img src="Z:/picture/004/save_picture_184422.jpg" />
 </div>
 
 
@@ -610,92 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:650B7A816C5724CA0A2BED957BA8DEBF1258EC0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427051   (184122) от 27.11.2020
-
-Кукутики - КОЗЯВКИ (2020) [MP3|320 Kbps] <Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тракторист
-2. Слон
-3. Кенгурёнок
-4. Козявки(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B138B1896010F169A0D3A98C7D4CEDCF801C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155353   (183853) от 27.11.2020
-
-VA - Союз Детский (2013) [MP3|320 Kbps] <Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Азбука Хит & Папины дети - Россия
-02. Даша Яковлева - Золушка
-03. Азбука Хит - Красотка (Ремикс)
-04. Волшебники двора - Напиши мне письмецо(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EF39A2F9F459A758E28BC5A0B8CBB2720CF86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592514   (183846) от 22.11.2022
-
-Александр Седых, Вячеслав Седых | Великолепные зверята и чародей из Арбузовки (Книга 3). Против Колдовского мира (2022) [MP3, Максим Полтавский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183846.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Против Колдовского мира» – фантастический роман Александра Седых и Вячеслава Седых, третья книга цикла «Великолепные зверята и чародей из Арбузовки», жанр детская литература, боевое фэнтези, попаданцы.
-
-Древнее заклинание перемещает пятиклассника Никитку в волшебный край Арбузной Земляники, где счастливо живут симпатичные зверята, похожие на пушистых человечков. (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 03:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D041356650DF4AD5A3876129EE04FC43CBF96445
 ```
 
 https://mybot314.ru/tekegram_catalog/

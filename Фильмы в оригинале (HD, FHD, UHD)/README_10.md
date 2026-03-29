@@ -1,3 +1,107 @@
+###  Публикация: 1114448   (833291) от 14.03.2017
+
+Кража / Larceny (2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек бывший сотрудник ЦРУ, работающий ныне в команде первоклассных грабителей. Совершив очередное крупное ограбление в Мексике, команда едет к границе, но внезапно власти берут их в оборот и Джек попадает в лапы мексиканской полиции. В камере Джека посещает его бывший коллега по ЦРУ, агент Прайс, который сообщает ему, что тот оправляется в суперкрутую и продвинутую (   Читать дальше...   )Производство: США, Мексика / Badhouse Studios Mexico, Parkside Pictures, Tadross Media GroupЖанр: Боевик, ТриллерРежиссер: Р. Эллис ФрэзиерАктеры: Дольф Лундгрен, Корбин Бернсен, Луис Мэндилор, Айзек С. Синглтон мл., Жослин Осорио, Эдди Дж. Фернандез, Дэвид Фернандез, Луис Гатика, Стивен Делл, Маурисио Мендоса ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7032DE2F4003A930AAE27ECB48BDE9B069F72A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114428   (833287) от 14.03.2017
+
+Почему он? / Why Him? (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава семейства вступает в противостояние с молодым и богатым парнем своей дочери.Производство: США, Камбоджа / Twentieth Century Fox Film Corporation, Red Hour Films, 21 Laps Entertainment, TSG EntertainmentЖанр: КомедияРежиссер: Джон ГамбургАктеры: Брайан Крэнстон, Джеймс Франко, Зои Дойч, Меган Маллалли, Гриффин Глюк, Кигэн-Майкл Ки, Седрик «Развлекатель», Зак Перлман, Адам Дивайн, Боб Стефенсон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219FFDB2EC3AE65D3B86D1F7066CB39E0D0E1197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114325   (833286) от 14.03.2017
+
+Кредо убийцы / Assassin's Creed (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря революционным технологиям, позволяющим вызвать в памяти воспоминания прежних поколений, Каллум Линч проживает приключения своего предка Агилара в Испании 15-го века. Каллум узнает, что является потомком членов загадочного тайного общества ассасинов. Накопив невероятные знания и навыки, он вступает в противостояние с могущественной и жестокой организацией (   Читать дальше...   )Производство: Великобритания, Франция, Гонконг, США, Alpha Pictures, CatchPlay, Ubisoft, Ubisoft Motion PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джастин КурзельАктеры: Майкл Фассбендер, Марион Котийяр, Джереми Айронс, Брендан Глисон, Шарлотта Рэмплинг, Майкл Кеннет Уильямс, Дени Меноше, Ариана Лабед, Халид Абдалла, Эсси ДэвисПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821929B6D4C96D51FF3BFFB2DB1428743D3DAB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114429   (833032) от 14.03.2017
+
+Молчание / Silence (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833032.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XVII веке два священника-иезуита подвергаются насилию и преследованиям во время странствия по Японии, куда они приехали с целью найти своего наставника и распространять христианское Евангелие.Производство: Мексика, Тайвань, США / Cappa Defina Productions, Emmett/Furla/Oasis Films (EFO Films), Fbrica de Cine, SharpSword Films, Sikelia Productions, Verdi Productions, Waypoint EntertainmentЖанр: Драма, ИсторияРежиссер: Мартин СкорсезеАктеры: Эндрю Гарфилд, Адам Драйвер, Лиам Нисон, Таданобу Асано, Киран Хайндс, Иссэй Огата, Синья Цукамото, Ёси Оида, Ёскэ Кубодзука, Каору Эндо ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FE8C8B60E7EDBCD5590899117FC1FDF157A477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114420   (832921) от 14.03.2017
 
 День патриота / Patriots Day (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832921.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831483.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831133.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830089.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830076.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827948.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827787.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827566.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826141.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826056.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825705.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824916.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824734.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824558.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824217.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824088.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824083.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823981.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823015.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822128.jpg" />
+  <img src="Z:/picture/008/save_picture_822128.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822066.jpg" />
+  <img src="Z:/picture/008/save_picture_822066.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822007.jpg" />
+  <img src="Z:/picture/008/save_picture_822007.jpg" />
 </div>
 
 
@@ -565,111 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF3BC0B792D49A7EBC2FB9364ADC91DC69EE23BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503303   (820698) от 18.10.2021
-
-Дюна / Dune (2021) HDRip [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия / Warner Bros., Legendary Entertainment, Villeneuve FilmsЖанр: фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: отсутствуетСубтитры: русские (Full), английские (Forced, Full)Продолжительность: 02:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A6A33B446920A98A6CC21B3F5CB7116CCE0280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196779   (820629) от 04.01.2018
-
-Вопрос веры / A Question of Faith  (2017) BDRip [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о нескольких людях, на которых обрушивается трагедия, трудность или горе. Но всё это подталкивает их к тому, чтобы каждый из них открыл для себя Бога, любовь и милосердие.Производство: США / Silver Lining EntertainmentЖанр: драмаРежиссер: Кеван ОттоАктеры: Ричард Т. Джонс, Ким Филдс, Си Томас Хауэлл, Рене О’Коннор, Грегори Алан Уильямс, Т.С. Сталлингс, Джэси Веласкес, Эмбер Томпсон, Карен Валеро, Донна Биско, Джефф РоузПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64B8E6ACF43E00F8B93696B985FDFEE8CCFA1B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116808   (820549) от 21.03.2017
-
-Месть: История любви / Vengeance: A Love Story (2017) WEB-DL [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда мать-одиночку насилуют, а суд уверен, что она сама во всем виновата, лишь один человек может восстановить справедливость…Производство: США, Patriot Pictures, Martini FilmsЖанр: ТриллерРежиссер: Джонни МартинАктеры: Николас Кейдж, Дон Джонсон, Дебора Кара Ангер, Анна Хатчисон, Джошуа Микель, Кара Мишель Уайлдер, Талита Бейтман, Майкл Пападжон, Николь Барре, Елена Санчес ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEE39347597841F641EAEE227587512BCCF2EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196808   (820515) от 04.01.2018
-
-Эксперимент «Офис» 2 / Mayhem  (2017) BDRip [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820515.jpg" />
-</div>
-
-
-###  Подробнее
-
-На человечество обрушился вирус ID7. Заражённые не могут себя контролировать. На 8 часов они оказываются во власти инстинктов: ярости, похоти, страха.
-Дерек упорно работал, чтобы добиться высокого положения в крупной фирме. Босс его подставил и уволил с позором. Именно в этот момент в офис попадает вирус ID7. Прекрасный шанс оторваться и восстановить справедливость.Производство: США / Circle of Confusion, Royal Viking EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Джо ЛинчАктеры: Стивен Ян, Самара Уивинг, Стивен Брэнд, Кэролайн Чикези, Керри Фокс, Даллас Робертс, Марк Фрост, Клер Левин, Андре Эриксен, Никола Кент, Люси Чаппель, Олья ХрустичПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72853A57339FDBAB4922999B5AECAA1819C73FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

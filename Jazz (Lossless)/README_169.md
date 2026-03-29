@@ -1,3 +1,119 @@
+###  Публикация: 1158982   (488136) от 18.08.2017
+
+Joe Zawinul - Concerto Retitled (1976) 2007, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_488136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Vienna With Love [04:27]
+02. My One And Only Love [03:50]
+03. Riverbed [05:10]
+04. Concerto Retitled [05:24](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305A40425773FDA1B9D4C91B48ED38415056AE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158855   (488132) от 18.08.2017
+
+The Dave Brubeck Quartet - For Iola (1985) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_488132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polly
+02. I Hear A Rhapsody
+03. Thank You
+04. Big Bad Basie(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FC3084E7D2EA11F5A232209B5C3F19B1F7E69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405021   (487396) от 28.08.2020
+
+Bob Brookmeyer & Netherlands Metropole Orchestra - Out of This World (1998) Koch Jazz [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_487396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Get a Kick Out of You [5:00]
+02. Some Day My Prince Will Come [5:12]
+03. Morning Glory [6:03]
+04. Polkadots and Moonbeams [5:58](   Читать дальше...   )Жанр: Cool, Post-Bop, Big BandПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE12661E2ADA7FADCB52E3C6558A83DEA1C198E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405014   (487395) от 28.08.2020
+
+Ruby Braff And His Quartet - Live At The Regattabar (1993) 1994, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_487395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Persian Rug [6:29]
+02. It's Wonderful [4:21]
+03. Lousiana [6:36]
+04. Sweet Sue (Just You) [5:23](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08191ABD12AE3E6219CD5909234ED8367631995E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405015   (487393) от 28.08.2020
 
 Ruby Braff And The Flying Pizzarellis - C'est Magnifique! (2002) 2007, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
@@ -6,7 +122,7 @@ Ruby Braff And The Flying Pizzarellis - C'est Magnifique! (2002) 2007, Arbors Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487393.jpg" />
+  <img src="Z:/picture/008/save_picture_487393.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ahmed Abdullah Quartet - Liquid Magic (1988) Silkheart [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486525.jpg" />
+  <img src="Z:/picture/008/save_picture_486525.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Tom Harrell Quintet - Open Air (1987) SteepleChase [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486184.jpg" />
+  <img src="Z:/picture/008/save_picture_486184.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Contrevent - Terre De Feu (1993) /CTV/[APE|image+.cue]<Jazz Fusion, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486165.jpg" />
+  <img src="Z:/picture/008/save_picture_486165.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charlie Mariano - Innuendo (1993) /Lipstick Records/[FLAC|tracks+.cue]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486160.jpg" />
+  <img src="Z:/picture/008/save_picture_486160.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Lou Donaldson Quartet - Forgotten Man (1981) /2015, Solid Records/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486157.jpg" />
+  <img src="Z:/picture/008/save_picture_486157.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ornette Coleman - The Unprecedented Music Of Ornette Coleman (1968) /2014, Studi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486154.jpg" />
+  <img src="Z:/picture/008/save_picture_486154.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Candy Dulfer - Girl Night Out (1999) BMG [FLAC|Lossless|image + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486139.jpg" />
+  <img src="Z:/picture/008/save_picture_486139.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Pear - Extemp'ore (2011) PearStudio Records [WavPack|Lossless|image + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486126.jpg" />
+  <img src="Z:/picture/008/save_picture_486126.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Billy Taylor - One For Fun (1959) Remaster, 2012, Warner[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486117.jpg" />
+  <img src="Z:/picture/008/save_picture_486117.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ David Williams, Cedar Walton, Billy Higgins - Up Front (1986) Remaster, 2015, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486116.jpg" />
+  <img src="Z:/picture/008/save_picture_486116.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Doug Raney Trio - Blues, Ballads, Bebop And A Blue Girl (2008) [WavPack|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485990.jpg" />
+  <img src="Z:/picture/008/save_picture_485990.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Bunny Berigan - A Melody from the Sky (1932 - 1940) 2003, Jazz Legends [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485839.jpg" />
+  <img src="Z:/picture/008/save_picture_485839.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ George Cables - Why Not (1975) 2009, Candid [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485838.jpg" />
+  <img src="Z:/picture/008/save_picture_485838.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Quincy Jones - Stockholm Sweetnin' (1953) 2007, Membran Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485835.jpg" />
+  <img src="Z:/picture/008/save_picture_485835.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Katie Melua - Ketevan (2013) [FLAC|Lossless]<Pop-Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484920.jpg" />
+  <img src="Z:/picture/008/save_picture_484920.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Stephane Grappelli & David Grisman - Live (1994) Warner [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484795.jpg" />
+  <img src="Z:/picture/008/save_picture_484795.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Paul Hardcastle & Maxine Hardcastle - The Collection (2019) [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484715.jpg" />
+  <img src="Z:/picture/008/save_picture_484715.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Nicki Parrott - 3 альбома (2011-2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484643.jpg" />
+  <img src="Z:/picture/008/save_picture_484643.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ V.A. - Guitar and Piano Jazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484414.jpg" />
+  <img src="Z:/picture/008/save_picture_484414.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Milt Buckner & His Alumni (1976) 2000, Black And Blue [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484226.jpg" />
+  <img src="Z:/picture/008/save_picture_484226.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Milt Buckner - Green Onions (1975, 1977) 2000, Black And Blue [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484218.jpg" />
+  <img src="Z:/picture/008/save_picture_484218.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Milt Buckner - Green Onions (1975, 1977) 2000, Black And Blue [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4623704CFCC4E7D35ED4030D54F673CDE5DF06E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244217   (484209) от 31.08.2018
-
-Urbie Green - East Coast Jazz, Vol.6 (1955) 2001, Bethlehem [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mutation [3:12]
-02. On Green Dolphin Street [3:34]
-03. Just One of Those Things [4:21]
-04. How About You? [2:49](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1138BA5FBEDDFE417C5FFEB502A8B649019EEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159427   (484164) от 20.08.2017
-
-The Gil Evans Orchestra & Sting - In Perugia (1987) 2CD, 2006, Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484164.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Up From The Skies [09:57]
-02. Strange Fruit [07:19]
-03. Shadows In The Rain [06:10](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0FC5ECA86FAD5E6634198136DB18872FEA2A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938225   (484067) от 17.09.2015
-
-Earl Hines - Lionel Hampton Presents: Earl Fatha Hines - St. Louis Blues (1977) /1993, Aurophon/[WavPack|image+.cue]<Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Earl's Pearl [05:19]
-02.If It's True [05:51]
-03.Rosetta [04:06]
-04.One Night In Trinidad [03:26](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8272FCAF45E68C4BB3EAE32B3F61210E02B1CD86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938222   (484066) от 17.09.2015
-
-Bill Evans - Re: Person I Knew (1974) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz, Modal Music, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Re: Person I Knew [05:21]
-02.Sugar Plum [08:16]
-03.Alfie [04:58]
-04.T.T.T. [05:32](   Читать дальше...   )Жанр: Post-Bop, Piano Jazz, Modal Music, CoolПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C707762BB17DAA72A0328EB740430BA7A61094
 ```
 
 https://mybot314.ru/tekegram_catalog/

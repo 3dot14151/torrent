@@ -1,3 +1,235 @@
+###  Публикация: 1706802   (62971) от 14.03.2024
+
+VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62971.jpg" />
+</div>
+
+
+###  Подробнее
+
+I сторона
+1. Так не должно быть (Л. Дербенев)
+М. Боярский и О. Зарубина
+Вокальный ансамбль(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB6A01139B3F3A95C8EEA49DB337232782F839C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707009   (62557) от 18.03.2024
+
+Deep Forest - Studio Albums & Projects (23 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <new-age, ambient, world, ethnic electronica>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Forest - французский дуэт, состоящий из музыкантов Мишеля Санчеса (Michel Sanchez) и Эрика Муке (Eric Mouquet). Создают музыку в стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Их звучание было описано как «этно-интроспективная музыка в стиле эмбиент».1992 - 1994 - World Mix
+1995 - Boheme
+1997 - Comparsa
+2000 - PacifiqueЖанр: new-age, ambient, world, ethnic electronicaПродолжительность: 19:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C84CFE37FF6FE826B47CF17136733BA9C0525F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707635   (62437) от 19.03.2024
+
+Electric Light Orchestra (ELO) - Time (1981) [FLAC 24/192|Lossless|tracks] <Synth-pop, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62437.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Prologue 1:16
+A2 Twilight 3:42
+A3 Yours Truly, 2095 3:11
+A4 Ticket To The Moon 4:07(   Читать дальше...   )Жанр: Synth-pop, Symphonic RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B95B1511F533879E0DBEC3D5D6A86035D3C1E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708364   (62343) от 20.03.2024
+
+Samson - Survivors (1979) Reissue, 1983, Thunderbolt [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62343.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 It's Not As Easy As It Seems
+A2 I Wish I Was The Saddle Of A Schoolgirl's Bike
+A3 Big Brother
+A4 Tomorrow Or Yesterday(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2404DBFEB2E64487085BF680B21AD48C86134655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708351   (62339) от 20.03.2024
+
+Валерий Леонтьев - Дискоклуб-16 (Б). Поет Валерий Леонтьев (1986) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01 - Горькие яблоки (Д. Тухманов — А. Поперечный)
+02 - Конь мой, конь (И. Николаев — И. Шаферан)
+03 - Кабаре, из к/ф «Испанский вариант» (Р. Паулс — Н. Денисов)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7562574396C2176BABC70BA70746B23C355BA3CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572453   (62268) от 21.03.2024
+
+Korn (Jonathan Davis) - Studio Albums (16 releases) (1994-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Korn (стилизуется как KoЯn) — американская метал-группа, основанная в городе Бейкерсфилд (Калифорния) в 1993 году. Группа примечательна тем, что стала пионером жанра Nu-Metal и вывела его в мейнстрим.1994 - Korn
+1996 - Life Is Peachy
+1998 - Follow The Leader
+1999 - IssuesЖанр: Nu MetalПродолжительность: 15:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975522801195F2D11115D9F03DE89BC096B0B21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708540   (62237) от 21.03.2024
+
+Доктор Шлягер - То, что доктор прописал... (Песни Вячеслава Добрынина) (1990) [FLAC 24/96|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - То, что доктор прописал. (М.Рябинин)
+02 - Когда-нибудь. (С.Осиашвили)
+03 - Что скажешь - так и будет. (М.Рябинин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578F606D274EBC3C8A68FE28723E6589E60F8D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708562   (62226) от 21.03.2024
+
+Здравствуй, песня - Мы любим диско (1980) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Венера (Ван Леевен - М. Вереш)
+02-03. Огонь. Мы любим диско (А.Бедду, Л. Вандербильд)
+04. Ленивый ковбой (автор неизвестен)
+05. Я жду тебя (А. Челентано)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478A9071F84424DE6D33C5EBC3CF97A89F959DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708539   (62215) от 21.03.2024
 
 Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
@@ -6,7 +238,7 @@ Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62215.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62012.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ VA - Наутилус Помпилиус / Бригада С (1988) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62006.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61904.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61832.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ VA - Пульс 1 - Музыкальный компьютер. (Серия "Сп
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61817.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61806.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61799.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61795.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61626.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61093.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60749.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60368.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60091.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59611.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59085.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58683.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Scott Stapp (Creed) - Studio Albums (4 releases) (2005-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58673.jpg" />
 </div>
 
 
@@ -515,239 +747,6 @@ Scott Stapp — (урожденный Энтони Скотт Флиппен; 8 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6E40C39139F5B3CD9B537D75BB206FC49AC94BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721435   (57302) от 07.05.2024
-
-Cliff Richard - Rock 'N' Roll Juvenile (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57302.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Monday Thru' Friday
-A2 Doing Fine
-A3 Cities May Fall
-A4 You Know That I Love You(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DAAF04C4B084546C2644B32DA3C3CFD3941983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572715   (56903) от 11.05.2024
-
-Unleash the Archers - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unleash the Archers — канадская метал-группа, основанная в Ванкувере в 2007 году. Группа исполняет смесь традиционного хеви-метала с пауэр-металом и мелодичным дэт-металом.2009 - Behold The Devastation
-2011 - Demons Of The AstroWaste
-2015 - Time Stands Still
-2017 - Apex(   Читать дальше...   )Жанр: Heavy/Power Metal, Melodic Death MetalПродолжительность: 06:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A5A8B3549B600F63F023156505C7EFB228EF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722814   (56694) от 13.05.2024
-
-Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56694.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wet Day In September
-A2 Hey Joe
-A3 It's The Same Old Song
-A4 Love In September(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: Vinyl, LP, Album, EMI – EMCE 1047, India
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638278   (56449) от 15.05.2024
-
-Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freedom Call — немецкая пауэр-метал группа, основанная в 1998 году.1999 - Stairway To Fairyland
-1999 - Taragon (EP)
-2001 - Crystal Empire
-2002 - EternityЖанр: Power MetalПродолжительность: 11:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3B1A5274A55E651DDADB5A18900732D8021049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630232   (56341) от 16.05.2024
-
-Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stream of Passion — мексикано-нидерландская симфоник-/готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
-2006 - Out in the Real World (EP)
-2009 - The Flame Within
-2011 - Darker DaysЖанр: Progressive/Symphonic MetalПродолжительность: 04:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F22229E4993B3E7DFA444B9CEDEE70F8DDD79C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541970   (56281) от 17.05.2024
-
-Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pain — индастриал-метал проект шведского музыканта, основателя Hypocrisy — Петера Тэгтгрена.1997 - Pain
-2000 - Rebirth
-2002 - Nothing Remains The Same
-2005 - Dancing With The DeadЖанр: Electronic/Industrial MetalПродолжительность: 08:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C2E6FFC9F140FBCE4714F4EE16A51294ABB2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528857   (56279) от 17.05.2024
-
-Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Groove/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fear Factory — американская метал-группа из Лос-Анджелеса.
-Группа сформировалась в 1989 году. За время своей музыкальной карьеры, музыканты сумели выработать собственное оригинальное звучание представляющее собой сочетание индастриал-метала и грув-метала.1992 - Soul Of A New Machine
-1995 - Demanufacture
-1998 - Obsolete
-2001 - Digimortal(   Читать дальше...   )Жанр: Death/Groove/Industrial MetalПродолжительность: 11:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02323E13F89423B9D40860E54EC6708E63CB9801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595750   (55449) от 25.05.2024
-
-Slash (Saul Hudson, Slash's Snakepit, Velvet Revolver) - Studio Albums (10 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saul Hudson, более известный по сценическому псевдониму Slash (род. 23 июля 1965 года) — американский рок-музыкант британского происхождения. Наиболее известен как гитарист американской хард-рок-группы Guns N’ Roses, с которой он добился всемирного успеха в конце 1980-х и начале 1990-х годов. В поздние годы своего участия в Guns N' Roses сформировал сайд-проект Slash's (   Читать дальше...   )2010 - Slash
-2012 - Apocalyptic Love
-2014 - World On Fire
-2018 - Living The DreamЖанр: Heavy Metal, Hard Rock, Glam MetalПродолжительность: 10:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE5A2BCB7155BAAA65E36CEE3460440045CC738
 ```
 
 https://mybot314.ru/tekegram_catalog/

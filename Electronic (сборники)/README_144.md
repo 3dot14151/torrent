@@ -1,3 +1,61 @@
+###  Публикация: 1248356   (440030) от 21.09.2018
+
+VA - Quality Dance Selector (2018) [MP3|320 Kbps] <Hard House, Club, Eurodance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivo Zeekar - Pump it
+02. Filinskiy - Smash It (Original Mix)
+03. Disclosure - Love Can Be So Hard (Original Mix)
+04. Marlo Morales and Zona feat. Mary Palmer - We Own The Night (Mariano Remix)(   Читать дальше...   )Жанр: Hard House, Club, EurodanceПродолжительность: 04:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A9009D0B744906E5274DD869031C3C7CA6FE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248785   (440020) от 21.09.2018
+
+VA - Now Electronic (2018) [MP3|320 Kbps] <Electronic, Synthetic, New Wave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Discrete Circuit - Control Zero
+002. Frederick And Kusse - Gully Queen (Original Mix)
+003. The Astro Music - Never Bend
+004. C.P.Smith - Needle To The Groove(   Читать дальше...   )Жанр: Electronic, Synthetic, New WaveПродолжительность: 09:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D0F218FF5D419C52392DF670437D4E0C7369D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164665   (439688) от 10.09.2017
 
 VA - Empire Records – Kiddy House (2017) [MP3|287-320 Kbps] <Electro House>
@@ -6,7 +64,7 @@ VA - Empire Records – Kiddy House (2017) [MP3|287-320 Kbps] <Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439688.jpg" />
+  <img src="Z:/picture/008/save_picture_439688.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Empire Records - Chill Out 13 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439687.jpg" />
+  <img src="Z:/picture/008/save_picture_439687.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Авто Дискотека Клубная (2017) [MP3|320 Kbps] <House, Ma
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439210.jpg" />
+  <img src="Z:/picture/008/save_picture_439210.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Record Super Chart #502 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439205.jpg" />
+  <img src="Z:/picture/008/save_picture_439205.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Hits of My Soul Vol. 14 (2016) [MP3|320 кб/с]<Synthwave, Synthpop, New W
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439115.jpg" />
+  <img src="Z:/picture/008/save_picture_439115.jpg" />
 </div>
 
 
@@ -154,7 +212,7 @@ VA - Клубная Вечеринка Vol.3 (2018) [MP3|320 Kbps] <Trance, Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439029.jpg" />
+  <img src="Z:/picture/008/save_picture_439029.jpg" />
 </div>
 
 
@@ -183,7 +241,7 @@ VA - Progressive Music (30.09.2012) [MP3|320 кб/с]<Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438907.jpg" />
+  <img src="Z:/picture/008/save_picture_438907.jpg" />
 </div>
 
 
@@ -218,7 +276,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #99 (2012) [MP3|320 кб/с]<Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438835.jpg" />
+  <img src="Z:/picture/008/save_picture_438835.jpg" />
 </div>
 
 
@@ -253,7 +311,7 @@ VA - Simply Dubstep September 2012 (2012) [MP3|320 кб/с]<Dubstep, Bass, Grime
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438827.jpg" />
+  <img src="Z:/picture/008/save_picture_438827.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ Va - Deep+   Vol. 2 (2012) [MP3|320 кб/с]<Deep House,Tech House,Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438757.jpg" />
+  <img src="Z:/picture/008/save_picture_438757.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Say Love - Finest Chillout & Lounge Music (2015) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438407.jpg" />
+  <img src="Z:/picture/008/save_picture_438407.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Deep City Nights Los Angeles 30 Deep House Tunes (2015) [MP3|320 кб/с]<D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438400.jpg" />
+  <img src="Z:/picture/008/save_picture_438400.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ DJ ICE - Summer The End 2014 Mix (2014) [MP3|320 кб/с]<Deep House, Vocal Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438142.jpg" />
+  <img src="Z:/picture/008/save_picture_438142.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Whisper of Consciousness Volume 30 (2012) [MP3|320 кб/с]<Uplifting Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437295.jpg" />
+  <img src="Z:/picture/008/save_picture_437295.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ VA - Beatport Top 100 EDM Songs & DJ Tracks September (2016) [MP3|320 Kbps] <Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437262.jpg" />
+  <img src="Z:/picture/008/save_picture_437262.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ VA - Empire Records - Chill Out 12 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437239.jpg" />
+  <img src="Z:/picture/008/save_picture_437239.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ VA - Trance Desire Volume 56 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435993.jpg" />
+  <img src="Z:/picture/008/save_picture_435993.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ VA - 135 The Shape DJ Loaded (2018) [MP3|320 Kbps] <Electro, Reggae, Big Room>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435726.jpg" />
+  <img src="Z:/picture/008/save_picture_435726.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ VA - DanceFloor Standings Workout Hits (2016) [MP3|230-320 Kbps] <Breaks, Bassli
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435376.jpg" />
+  <img src="Z:/picture/008/save_picture_435376.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ VA - Sports Megamix - Your Workout Favourite (2016) [MP3|256 Kbps] <Club, Tropic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435359.jpg" />
+  <img src="Z:/picture/008/save_picture_435359.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ VA - Сегодня на радио хиты FM Vol.7 (2019) [MP3|320 Kbps] <Pop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435280.jpg" />
+  <img src="Z:/picture/008/save_picture_435280.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ VA - Beatport Top 100 Deep House September (2016) [MP3|320 Kbps] <Deep House, Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435154.jpg" />
+  <img src="Z:/picture/008/save_picture_435154.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ VA - Empire Records - Positive Emotions (2017) [MP3|320 Kbps] <Downtempo, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435028.jpg" />
+  <img src="Z:/picture/008/save_picture_435028.jpg" />
 </div>
 
 
@@ -706,7 +764,7 @@ VA - Kiss FM - Top-40 (02.10.2012) [MP3|320 кб/с]<Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434072.jpg" />
+  <img src="Z:/picture/008/save_picture_434072.jpg" />
 </div>
 
 
@@ -726,64 +784,6 @@ VA - Kiss FM - Top-40 (02.10.2012) [MP3|320 кб/с]<Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BFF615AD91BD9BD5CEE688F128B6971C4F77DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410749   (434066) от 22.09.2020
-
-VA - Mixed Feelings (Vol.2) (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434066.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexa Esperanza - Lying
-002. Jaylon Ashaun feat. Byron Juane - Reminisce
-003. Stone Paxton - O Baby
-004. Teairra Mari - Baecation(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 10:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86564A01B2B2B88F9948F61D3C92E6BA7EC61403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410745   (434062) от 22.09.2020
-
-VA - Mixed Feelings (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434062.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Halsey - Graveyard (Funkymix By Mark Roberts)
-002. Skaiwater - Ice Cream!
-003. Beyonce - Before I Let Go
-004. Joji - Yeah Right(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 10:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC0FF1886D04A68194EFEAB491BEEC6914A5604
 ```
 
 https://mybot314.ru/tekegram_catalog/

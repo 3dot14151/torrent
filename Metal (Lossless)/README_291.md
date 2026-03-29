@@ -1,3 +1,90 @@
+###  Публикация: 1671876   (171088) от 26.10.2023
+
+The Vision Bleak - Timeline - An Introduction To The Vision Bleak (2016) [FLAC|Lossless|image + .cue] <Horror Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Unknown
+02. The Kindred Of The Sunset
+03. From Wolf To Peacock
+04. The Wood Hag(   Читать дальше...   )Жанр: Horror Gothic MetalПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18A4ECD51B70CDC779B9854C27AE472B77B8D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671729   (171085) от 26.10.2023
+
+Manbryne - Interregnum: O probie wiary i jarzmie zwatpienia (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Piach i niepamiec (00:07:17)
+02 - Suma wszystkich strat (00:08:08)
+03 - Po trupach ku niebu (00:06:31)
+04 - Grzechy ojcow (00:07:54)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FD321451B58B767690EB8B5319FF962D5EB83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671831   (171081) от 26.10.2023
+
+Theatres Des Vamires - Vampyrisme... (2002) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vampyrisme...
+02. Twilight
+03. Beyond The Forest
+04. In The Wood(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE94BF4D803DAD164FE6B2B96CD136FD0DA7772B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671857   (171080) от 26.10.2023
 
 Saviour Machine - Saviour Machine II (1994) [FLAC|Lossless|image + .cue] <Gothic Metal>
@@ -6,7 +93,7 @@ Saviour Machine - Saviour Machine II (1994) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171080.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Lord Vampyr - The Vampire's Legacy (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171078.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Theatres Des Vamires - Moonlight Waltz (2011) [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171049.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Waste Of Space Orchestra - Syntheosis (2019) [FLAC|Lossless|tracks + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170665.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Russian Circles - Blood Year (2019) [FLAC|Lossless|tracks + .cue] <Post Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170615.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170600.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Aggressive - Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170595.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Highlord - Freakin' Out Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170584.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Circus Maximus - Havoc In Oslo (2017) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170580.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Mgła (Mgla) - Age Of Excuse (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170574.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Les Carlsen - He's Coming (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170571.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170558.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Lich King - Toxic Zombie Onslaught (2008) [WavPack|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170557.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Viogression - Expound and Exhort (1991) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170534.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ I, the Oracle - 2 Albums, 2 EP (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170533.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Lich King - World Gone Dead (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170530.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Manbryne - O Udrece Ciala I Tulaczce Duszy (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170522.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Lich King - Born of the Bomb (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170513.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Lich King - Necromantic Maelstrom (2007) [WavPack|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170509.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Slugdge - Esoteric Malacology (2018) [WavPack|Lossless|image + .cue] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170461.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Hypocrisy - Worship (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170419.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Lord Vampyr - De Vampyrica Philosophia (2005) [FLAC|Lossless|Tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170394.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Circus of Fools - A Broadcast from GEN .0 (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170390.jpg" />
 </div>
 
 
@@ -658,94 +745,6 @@ Circus of Fools - A Broadcast from GEN .0 (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB178B30E49784A406DD613A45D32C64087D2B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515198   (170215) от 06.12.2021
-
-Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянские симфо-пауэр-металлисты RHAPSODY OF FIRE выпустили новый полноформатный альбом "Glory For Salvation" 26 ноября 2021 года на лейбле AFM. Эта надрывная и скоростная работа призвана стать новым шедевром симфонического металла от группы, ведомой клавишником Alex Staropoli.
-4 июня 2021 года у RHAPSODY OF FIRE вышел EP “I’ll Be Yor Hero”, служащий (   Читать дальше...   )01. Son Of Vengeance (5:46)
-02. The Kingdom Of Ice (4:26)
-03. Glory For Salvation (5:04)
-04. Eternal Snow (1:34)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90FC4BFCB5401D63AA99685BE246DE4236B6CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596381   (170025) от 10.12.2022
-
-Ribspreader - The Van Murderers - Part 2 (2018) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Departure LA
-02. Flesh Desperados
-03. Back on Frostbitten Shores
-04. Equipped to Kill(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495C5E787D735BA87401DADCABAA5F57D0AE1713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430652   (170011) от 11.12.2020
-
-Deeds of Flesh - Nucleus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Technical-Death-Metal, Brutal-Death-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odyssey [00:03:27]
-02. Alyen Scourge [00:05:02]
-03. Ascension Vortex (feat. Decrepit Bill, Obie Flett, Anthony Trapani) [00:04:29]
-04. Catacombs of the Monolith (feat. Luc Lemay) [00:05:09](   Читать дальше...   )Жанр: Technical-Death-Metal, Brutal-Death-MetalПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03A9BC8B850E86C7AB894180AE684E6A7880C9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,147 @@
+###  Публикация: 1135821   (679144) от 20.05.2017
+
+JustBroadcaster YTEd 1.7.4 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679144.jpg" />
+</div>
+
+
+###  Подробнее
+
+JustBroadcaster YTEd - создай трансляцию на YouTube в считанные минуты
+Начало трансляции на YouTube менее чем за 2 минуты.
+Видео-микшер и прямые трансляции на YouTube.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 мая 2017Разработчик: Mihail GaraninПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F512AD458E61048347B07AACA71D629D8DF265B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135769   (679142) от 20.05.2017
+
+Deliveries 3.0.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679142.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Deliveries вы можете быстро отслеживать все свои посылки.
+Deliveries помогает вам следить за всеми вашими посылками, так что вы всегда будете знать, когда они прибудут до места назначения. Будь то последний гаджет или роман, который вы заказывали заранее в Интернете, Deliveries будет следить за ними, так что вы не пропустите звонок в дверь.
+
+Основной список показывает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2016Разработчик: Junecloud LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16612A720C75309C2B8853C24E929D7DDF24BBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135832   (678976) от 20.05.2017
+
+Aiseesoft PDF Converter 3.3.29 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft PDF Converter Pro - мощный PDF конвертер для Mac.
+Aiseesoft PDF Converte for Mac - Конвертер PDF в Text, Word, Excel, EPUB, HTML и другие форматы. Поддержка сохранения в TIFF, JPEG, PNG, GIF, BMP, TGA, PPM, JPEG2000 и другие форматы.
+
+ Передача готовых файлов на мобильное устройство. Настройка параметров. Пакетный режим работы. Предварительный просмотр в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: RayShare Co., LtdПоддерживаемая ОС: MacOS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C8FA9FE721D9E3C917F140325F62D17B80DBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135812   (678959) от 20.05.2017
+
+Kigo Video Converter Ultimate 6.1.5 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практичное и удобное в использовании приложение, которое поможет вам  загрузить и конвертировать мультимедийный контент всего за несколько кликов мыши
+
+Video Converter Ultimate поддерживает все популярные видеоформаты, включая FLV, MPEG1, MPEG2, MP4, 3GP, 3G2, MOV, AVI, M2TS, MPEG TS / TP (для видео высокой четкости) и т.д., и все типы DVD для воспроизведения на iPod, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: Kigosoft IncПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1A564E84C19DAD795F782FAB76AF6DF2CC3820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135580   (678593) от 20.05.2017
+
+FTP Server 1.2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678593.jpg" />
+</div>
+
+
+###  Подробнее
+
+FTP Server обеспечивает простой способ обмена файлами между компьютерами и другими устройствами.
+
+FTP Server поставляется с собственной аутентификацией пароля, поэтому вам не нужно передавать свою учетную запись другим людям, и вам не нужно создавать системного пользователя для аутентификации.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: Coral WuПоддерживаемая ОС: OS X 10.7.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F38ABF91FD7545D68CCF5503D7308757F391DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290493   (678348) от 20.03.2019
 
 Fluid Browser 1.6 [En]
@@ -6,7 +150,7 @@ Fluid Browser 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678348.jpg" />
+  <img src="Z:/picture/008/save_picture_678348.jpg" />
 </div>
 
 
@@ -35,7 +179,7 @@ Duplicate Photos Detective 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677151.jpg" />
+  <img src="Z:/picture/008/save_picture_677151.jpg" />
 </div>
 
 
@@ -62,7 +206,7 @@ Command-Tab Plus 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677150.jpg" />
+  <img src="Z:/picture/008/save_picture_677150.jpg" />
 </div>
 
 
@@ -90,7 +234,7 @@ Miya Translate 1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677144.jpg" />
+  <img src="Z:/picture/008/save_picture_677144.jpg" />
 </div>
 
 
@@ -116,7 +260,7 @@ Dropzone 3 v3.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677001.jpg" />
+  <img src="Z:/picture/008/save_picture_677001.jpg" />
 </div>
 
 
@@ -143,7 +287,7 @@ Adobe Prelude CC 2017.1.1 (6.1.1) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676834.jpg" />
+  <img src="Z:/picture/008/save_picture_676834.jpg" />
 </div>
 
 
@@ -171,7 +315,7 @@ Hide My IP 6.2.40 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676341.jpg" />
+  <img src="Z:/picture/008/save_picture_676341.jpg" />
 </div>
 
 
@@ -197,7 +341,7 @@ CCleaner Pro 1.13.442 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676102.jpg" />
+  <img src="Z:/picture/008/save_picture_676102.jpg" />
 </div>
 
 
@@ -224,7 +368,7 @@ Microsoft Office Standard 2016 VL v15.23 (individual installers) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675631.jpg" />
 </div>
 
 
@@ -251,7 +395,7 @@ Capture One 22 Enterprise v15.2.0.69 Beta [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675014.jpg" />
 </div>
 
 
@@ -278,7 +422,7 @@ Shimo 5 v5.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674773.jpg" />
 </div>
 
 
@@ -306,7 +450,7 @@ Dragon Responsive Email Designer 2.70 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674758.jpg" />
 </div>
 
 
@@ -332,7 +476,7 @@ iGallery Pro — Best Instagram Uploader 1.6.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674753.jpg" />
 </div>
 
 
@@ -361,7 +505,7 @@ SPlayerX 1.2.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674146.jpg" />
+  <img src="Z:/picture/008/save_picture_674146.jpg" />
 </div>
 
 
@@ -389,7 +533,7 @@ Motion 5.4.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673935.jpg" />
+  <img src="Z:/picture/008/save_picture_673935.jpg" />
 </div>
 
 
@@ -415,7 +559,7 @@ MP4tools 3.6.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673007.jpg" />
 </div>
 
 
@@ -444,7 +588,7 @@ ReSample 1.1.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673000.jpg" />
 </div>
 
 
@@ -470,7 +614,7 @@ XCap 1.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672897.jpg" />
 </div>
 
 
@@ -496,7 +640,7 @@ HDR projects 5 professional v5.52 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672862.jpg" />
 </div>
 
 
@@ -523,7 +667,7 @@ Syncios Data Transfer 1.2.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672649.jpg" />
 </div>
 
 
@@ -551,7 +695,7 @@ Command Center 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672162.jpg" />
 </div>
 
 
@@ -565,139 +709,6 @@ Command Center (бывший Control Center)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:664A59391FEC02D235AB11A931E53B8BA0F1E81E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030789   (671963) от 01.07.2016
-
-MPV 0.18 (git-c57304a) [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671963.jpg" />
-</div>
-
-
-###  Подробнее
-
-MPV — мультимедийный кроссплатформенный плеер, основанный на mplayer и mplayer2. Поддерживает обширный набор видеоформатов, аудио- и видеокодеков и форматов субтитров. Присутствует поддержка аппаратного ускорения. По энергопотреблению сравним с QuickTime.Тип издания: OS X SoftwareРелиз состоялся: 24.06.2016Разработчик: mpv.ioПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCC535C25A8150C0E212E2F4A98ED8D22082A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136875   (671141) от 24.05.2017
-
-Code Collector Pro 1.7.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Code Collector Pro - самый простой и быстрый способ управлять коллекцией фрагментов.
-Большая библиотека фрагментов кода может быть сложной в управлении, поэтому Code Collector Pro предоставляет мощные инструменты для организации фрагментов кода. Собирайте фрагменты кода в группы или используйте Code Collector Pro для смарт-групп. Добавьте теги фрагментов кода, чтобы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Solutions, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46D50B05EFA8DCDDACC8109F42D9E344FF71E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536952   (671059) от 14.03.2022
-
-TiltShift 1.0.3 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Tilt Shift позволяет добавить к фото и видео уникальный эффект миниатюры.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2022Разработчик: © EnvySoftПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882245564345AA727C0631C699776DE6193AFF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537103   (670875) от 14.03.2022
-
-SQLPro for MySQL 2022.15 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670875.jpg" />
-</div>
-
-
-###  Подробнее
-
-MySQL Database Client - простой и мощный менеджер MySQL для Mac OS X
-MySQL клиент базы данных является легким клиентом MySQL, что позволяет осуществить быстрый и простой доступ к Oracle MySQL серверам, в том числе размещенные в Amazon RDS. Это SQL Client только для MySQL и не будет работать с другими серверами баз данных, таких как MSSQL или PostgresSQL.Тип издания: macOS X SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2022 Hankinsoft Development, Inc.Поддерживаемая ОС: macOS X 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE933E80C7C144DD66D04FCE940A54DE55B22686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833805   (670828) от 20.05.2015
-
-TinkerTool System 4.11 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670828.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System 4 -  утилита для управления скрытыми настройками операционной системы Mac OS X.
-Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 мая 2015Разработчик: TinkerToolSys4Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C7D9E2C08B3DD80C298C61CF030E471370EFA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

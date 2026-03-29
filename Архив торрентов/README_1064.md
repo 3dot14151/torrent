@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802682.jpg" />
+  <img src="Z:/picture/008/save_picture_802682.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802681.jpg" />
+  <img src="Z:/picture/008/save_picture_802681.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802680.jpg" />
+  <img src="Z:/picture/008/save_picture_802680.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802679.jpg" />
+  <img src="Z:/picture/008/save_picture_802679.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802678.jpg" />
+  <img src="Z:/picture/008/save_picture_802678.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802676.jpg" />
+  <img src="Z:/picture/008/save_picture_802676.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10051 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802664.jpg" />
+  <img src="Z:/picture/008/save_picture_802664.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Video to Flash 6.8.1.467 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802653.jpg" />
+  <img src="Z:/picture/008/save_picture_802653.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Soft4Boost Document Converter 6.3.3.473 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802649.jpg" />
+  <img src="Z:/picture/008/save_picture_802649.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Soft4Boost Any Uninstaller 8.8.5.579 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_802645.jpg" />
+  <img src="Z:/picture/005/save_picture_802645.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Unity Pro 2019.3.14f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802637.jpg" />
+  <img src="Z:/picture/008/save_picture_802637.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ RubikCalcPRO: Programmable Calculator 2.5 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802635.jpg" />
+  <img src="Z:/picture/008/save_picture_802635.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802629.jpg" />
+  <img src="Z:/picture/008/save_picture_802629.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Files Inspector Pro 3.15 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802626.jpg" />
+  <img src="Z:/picture/008/save_picture_802626.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802623.jpg" />
+  <img src="Z:/picture/008/save_picture_802623.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ TG Pro (Temperature Gauge Pro) 2.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802616.jpg" />
+  <img src="Z:/picture/008/save_picture_802616.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802614.jpg" />
+  <img src="Z:/picture/008/save_picture_802614.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NIUBI Partition Editor 7.6.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802613.jpg" />
+  <img src="Z:/picture/008/save_picture_802613.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Bob Marley - Kingston Sessions Vintage Years (2018) [MP3|320 Kbps] <Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802610.jpg" />
+  <img src="Z:/picture/008/save_picture_802610.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ CompactGUI 2.4.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802595.jpg" />
+  <img src="Z:/picture/008/save_picture_802595.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Krita 3.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802592.jpg" />
+  <img src="Z:/picture/008/save_picture_802592.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Viber 7.9.5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802584.jpg" />
+  <img src="Z:/picture/008/save_picture_802584.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802558.jpg" />
+  <img src="Z:/picture/008/save_picture_802558.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Dropzone 3.5.5 (906) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802557.jpg" />
+  <img src="Z:/picture/008/save_picture_802557.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802554.jpg" />
+  <img src="Z:/picture/008/save_picture_802554.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802553.jpg" />
+  <img src="Z:/picture/008/save_picture_802553.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Chasers Dash & Bash (2020) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9444.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack FitGirl [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8875.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8858.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Le Mans Ultimate (2024) [Multi] (1.0) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8845.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.40.1) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6377.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5881.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Automobilista 2 (2020) [Multi] (1.6.7.0.2953.AVX/dlc) Repack Let'sРlay [IMSA Bu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5055.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Update 12/dlc) Repack Let'sРla
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3994.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Chaos on Wheels (2023) [Ru/Multi] (1.0/dlc) Repack Yaroslav98 [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3976.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.1/dlc) Repack Let'sРlay [Complete]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3793.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.9/dlc) Repack Let'sРlay [Ultimate Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3687.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ CarX Street (2024) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3683.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2434.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2416.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.0/dlc) Repack FitGirl [Complete]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1673.jpg" />
 </div>
 
 

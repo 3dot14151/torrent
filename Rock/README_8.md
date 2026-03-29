@@ -1,3 +1,32 @@
+###  Публикация: 1487741   (1003070) от 07.08.2021
+
+Feuerschwanz - Die letzte Schlacht (2021) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Powermet-Intro
+2. Lords of Powermet
+3. Metnotstand im Märchenland
+4. Die Hörner hoch(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7719C972FA3F40AA9ADC7BDF4A7BD292989958A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488400   (1002033) от 11.08.2021
 
 Deep Purple - Live in London 2002 (2021) Remastered [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Deep Purple - Live in London 2002 (2021) Remastered [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002033.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gila - Дискография (3 альбома) (1971-1973) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001277.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000689.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Mondo Generator - Hell Comes To Your Heart (2012) [MP3|320 кб/с]<Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000501.jpg" />
 </div>
 
 
@@ -134,7 +163,7 @@ Jonestown Revival - Brand New Dad (2012) [MP3|320 кб/с]<Psychedelic Jazz / Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000498.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ Jace Everett - 4 CDs (2006..2011) Discography [MP3|320 kbps]<Country Rock, Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000199.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ Black Cat Bones - Barbed Wire Sandwich (1969) [MP3|320 kbps]<Heavy Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999602.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Second Hand Stereo - Travelers (2012) [MP3|320 кб/с]<70's Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999433.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999406.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ Takara - Perception Of Reality (2002) [MP3|320 kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998414.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Alex  Band - After The Storm (EP) (2012) [MP3|224 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998377.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Cockpit - Mission To Rock [EP] (2008) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998107.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Landing - Wave Lair [EP] (2012) [MP3|320 кб/с]<Post Rock, Shoegaze, Dream Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997870.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Radical Face - 6 альбомов (2003-2012) Discography [MP3|320 кб/с]<Indi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997706.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Strangefish - Fortune Telling (2006) [MP3|320 кб/с]<Neo Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997577.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Puzzle - Nothing But The Rain (2012) [MP3|320 кб/с]<Post-Rock, Experimental, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997058.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ DIIV - Oshin (2012) [MP3|320 кб/с]<Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997048.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ The Courteeners - ANNA (2013) [MP3|320 kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996170.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ Hollywood Undead - Notes From The Underground (2013) [MP3|320 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995989.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Whispers In The Shadow - The Rites Of Passage (2012) [MP3|320 кб/с]<Gothic Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995905.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Geordie - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994491.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ California X - California X (2013) [MP3|320 кб/с]<Sludge Noise Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994168.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ Pride Of Lions - The Destiny Stone (2004) Japanese Ed. [MP3|320 кб/с]<Melodic
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993704.jpg" />
 </div>
 
 
@@ -746,7 +775,7 @@ Queen - Greatest Hits In Japan (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993120.jpg" />
 </div>
 
 
@@ -775,7 +804,7 @@ Yes - Topographic Drama: Live Across America (2017) Live [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992695.jpg" />
 </div>
 
 
@@ -789,35 +818,6 @@ Yes - Topographic Drama: Live Across America (2017) Live [MP3|320 Kbps] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FF1F321D8C49FE1D4C96D660D55910A01C60421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353467   (991969) от 18.01.2020
-
-Jack Green - The Party At The End Of The World (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 100% Alive [2:49]
- 02 - How Proud You Must Feel [4:00]
- 03 - The Party at the End of the World [3:45]
- 04 - Heaven Can Wait [3:28](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A47C3443721BE8E1BFDFE987BAA45CCDFC6F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

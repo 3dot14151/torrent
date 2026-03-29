@@ -6,7 +6,7 @@ Cumulative Updates KB4016240 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725991.jpg" />
+  <img src="Z:/picture/008/save_picture_725991.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Foundry MODO 11.0v1 build 138707 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725984.jpg" />
+  <img src="Z:/picture/008/save_picture_725984.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Amon Tobin - ISAM (2011) [MP3|320 kbps]<Experimental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725920.jpg" />
+  <img src="Z:/picture/008/save_picture_725920.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725894.jpg" />
+  <img src="Z:/picture/005/save_picture_725894.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725886.jpg" />
+  <img src="Z:/picture/008/save_picture_725886.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ iEvaphone Free calls 3.1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725883.jpg" />
+  <img src="Z:/picture/008/save_picture_725883.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Format Factory 4.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725882.jpg" />
+  <img src="Z:/picture/008/save_picture_725882.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ FastStone Image Viewer 5.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725877.jpg" />
+  <img src="Z:/picture/008/save_picture_725877.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Soft4Boost PC Win Booster Free 9.3.7.551 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725874.jpg" />
+  <img src="Z:/picture/008/save_picture_725874.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NVIDIA GeForce Desktop 381.89 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725872.jpg" />
+  <img src="Z:/picture/008/save_picture_725872.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ ESET NOD32 Internet Security 15.0.23.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725867.jpg" />
+  <img src="Z:/picture/008/save_picture_725867.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725850.jpg" />
+  <img src="Z:/picture/008/save_picture_725850.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725788.jpg" />
+  <img src="Z:/picture/008/save_picture_725788.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Stardock Fences 3.0.4.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725770.jpg" />
+  <img src="Z:/picture/008/save_picture_725770.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Bandicam 3.4.0.1227 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725766.jpg" />
+  <img src="Z:/picture/008/save_picture_725766.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Longtion Application Builder 5.6.0.583 Enterprise Edition [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725753.jpg" />
+  <img src="Z:/picture/005/save_picture_725753.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Phone Tester 2.0.10 Premium [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725716.jpg" />
+  <img src="Z:/picture/008/save_picture_725716.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Root Cleaner 6.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725623.jpg" />
+  <img src="Z:/picture/008/save_picture_725623.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ShopSavvy Barcode Scanner v10.0.11 [En] - сканирования QR и бар�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725621.jpg" />
+  <img src="Z:/picture/008/save_picture_725621.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Winstep Xtreme 16.5 Full RePack by Nemo [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725614.jpg" />
+  <img src="Z:/picture/008/save_picture_725614.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Topaz Labs Photoshop Plugins Bundle 2016 (03.06.2016) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725613.jpg" />
+  <img src="Z:/picture/008/save_picture_725613.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725610.jpg" />
+  <img src="Z:/picture/008/save_picture_725610.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ oCam Screen Recorder 107.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725584.jpg" />
+  <img src="Z:/picture/008/save_picture_725584.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ WinSnap 4.5.5 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725568.jpg" />
+  <img src="Z:/picture/008/save_picture_725568.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725546.jpg" />
+  <img src="Z:/picture/008/save_picture_725546.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725543.jpg" />
+  <img src="Z:/picture/008/save_picture_725543.jpg" />
 </div>
 
 

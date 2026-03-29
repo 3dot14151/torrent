@@ -1,3 +1,90 @@
+###  Публикация: 944996   (436099) от 09.10.2015
+
+Wendy O. Williams - Wow (1984) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_436099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love Sex (And Rock And Roll)
+02. It's My Life
+03. Priestess
+04. Thief In The Night (Kiss Cover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525858C6587E978E898F228DF69642DD3E015C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249414   (436015) от 23.09.2018
+
+Dead Summer Society - Visions From A Thousand Lives (2012) [FLAC|Lossless|tracks + .cue] <Doom Metal, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_436015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Explicit (2:27)
+ 02. I Met You In Heaven And Hell (3:44)
+ 03. Shadow I Bear (6:02)
+ 04. The King's Alone (9:37)(   Читать дальше...   )Жанр: Doom Metal, Goth RockПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0456EBE588E4D262F704867DFC36DAA54D0603A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248899   (435861) от 23.09.2018
+
+James LaBrie - 5 Albums (1999 - 2013) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435861.jpg" />
+</div>
+
+
+###  Подробнее
+
+James LaBrie (Kevin James LaBrie) - канадский вокалист, участник американской прог-метал-группы Dream Theater с 1991 года.Список альбомов:
+1999 - Keep It To Yourself
+2001 - Mullmuzzler 2
+2005 - Elements Of Persuasion(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 04:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E3C53964C5513307FD3EB979F3C8AA5A8059EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249196   (435854) от 23.09.2018
 
 Paragon Collapse - The Dawning (2018) [FLAC|Lossless|image + .cue] <Melodic Doom Metal>
@@ -6,7 +93,7 @@ Paragon Collapse - The Dawning (2018) [FLAC|Lossless|image + .cue] <Melodic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435854.jpg" />
+  <img src="Z:/picture/008/save_picture_435854.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Amorphis - Under The Red Cloud (2015) 2CD Japanese Edition [FLAC|image+.cue]<Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435847.jpg" />
+  <img src="Z:/picture/008/save_picture_435847.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Sabaton - Live on the Sabaton Cruise 2014 (2015) Japanese Edition 2CD [FLAC|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435837.jpg" />
+  <img src="Z:/picture/008/save_picture_435837.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Dark Sarah - The Golden Moth (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435727.jpg" />
+  <img src="Z:/picture/008/save_picture_435727.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Suicidal Tendencies - World Gone Mad (2016) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435378.jpg" />
+  <img src="Z:/picture/008/save_picture_435378.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Acid Drinkers - Peep Show (2016) [FLAC|Lossless|image + .cue] <Thrash Metal, Cro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435370.jpg" />
+  <img src="Z:/picture/008/save_picture_435370.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Wolves in the Throne Room - Two Hunters (2007) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434968.jpg" />
+  <img src="Z:/picture/008/save_picture_434968.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ oOoOoOoOoOo - Samen (2016) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Experiment
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434111.jpg" />
+  <img src="Z:/picture/008/save_picture_434111.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434069.jpg" />
+  <img src="Z:/picture/008/save_picture_434069.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ MYNSKH - Chapter I: Obliterating Perfection (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434068.jpg" />
+  <img src="Z:/picture/008/save_picture_434068.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434065.jpg" />
+  <img src="Z:/picture/008/save_picture_434065.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Falconer - From A Dying Ember (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434060.jpg" />
+  <img src="Z:/picture/008/save_picture_434060.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Void Vator - Great Fear Rising (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434049.jpg" />
+  <img src="Z:/picture/008/save_picture_434049.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Seasons Of The Wolf - Lost In Hell (1999) [FLAC|Lossless]<Progressive Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433976.jpg" />
+  <img src="Z:/picture/008/save_picture_433976.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Manticora - Roots Of Eternity (1999) [APE|Lossless|image + .cue] <Progressive Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433611.jpg" />
+  <img src="Z:/picture/008/save_picture_433611.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Drakkar - X-Rated (1988) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433608.jpg" />
+  <img src="Z:/picture/008/save_picture_433608.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Urna - Mors Principium Est (2013) [FLAC|Lossless|image + .cue] <Funeral Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433603.jpg" />
+  <img src="Z:/picture/008/save_picture_433603.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Trillium - Tectonic (2018) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433457.jpg" />
+  <img src="Z:/picture/008/save_picture_433457.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Chaos Magic ) - Chaos Magic (Japanese Edition (2015) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433455.jpg" />
+  <img src="Z:/picture/008/save_picture_433455.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Beauty in Darkness Vol. 3 (1998) [FLAC|Lossless|image + .cue] <Goth Rock, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433450.jpg" />
+  <img src="Z:/picture/008/save_picture_433450.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Lindemann - Fish On (2015) Single [FLAC|image+.cue]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433423.jpg" />
+  <img src="Z:/picture/008/save_picture_433423.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Shores of Ladon - Eindringling (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432860.jpg" />
+  <img src="Z:/picture/008/save_picture_432860.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Enertia - Piece Of The Factory (2015) [FLAC|Lossless|image + .cue] <Heavy, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432858.jpg" />
+  <img src="Z:/picture/008/save_picture_432858.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Enertia - Piece Of The Factory (2015) [FLAC|Lossless|image + .cue] <Heavy, Thras
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3549BA680B6FD1A5BE181E67E0BDE6B82F8F5A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063454   (432856) от 17.10.2016
-
-Stigmhate - Zodacare Od Zodameranu (2014) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aetherion [1:09]
-02. The Third Obsidian [4:08]
-03. Ave Averno In Genesi Nema [4:24]
-04. Mistress Of Bone's Mounds [4:12](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF6FC7A16B2C955A8C2269541E696E31136F891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063648   (432701) от 17.10.2016
-
-Gaia Prelude - Promised Land (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Instrumental Neoclassical Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Prologue
-02.Grand Cross
-03.Material
-04.Lost in the Darkness(   Читать дальше...   )Жанр: Instrumental Neoclassical Power MetalПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CB3218B7A5E10BD322689A68CE73727C316DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165343   (432464) от 13.09.2017
-
-Running Wild - Black Hand Inn (1994) Deluxe Expanded Edition, 2017, Noise [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Curse (3:14)
- 02. Black Hand Inn (4:34)
- 03. Mr. Deadhead (4:03)
- 04. Soulless (4:56)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 01:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7EE3CC4C8F86F523E594DDF75DE982C0B0D04A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1046957   (549809) от 29.08.2016
+
+Игорь Рызов | Кремлевская школа переговоров (2016) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549809.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Кремлевская школа переговоров", зародившаяся в 20-е годы минувшего века, стала одной из самых жестких переговорных школ в истории. Её принципами руководствовались советские дипломаты, которым приходилось налаживать международные отношения СССР, в условиях тотальной неприязни и недоверия. Зачастую, они прибегали к самым агрессивным переговорным тактикам. (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, успех в бизнесеФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54AFDE0F3602058BFFEB61FB7389261AA58EA3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309812   (549349) от 21.06.2019
 
 Илья Кусакин | Бизнес как система. Инструменты Black Star (2019) [PDF]
@@ -6,7 +32,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549349.jpg" />
+  <img src="Z:/picture/008/save_picture_549349.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549195.jpg" />
+  <img src="Z:/picture/008/save_picture_549195.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549190.jpg" />
+  <img src="Z:/picture/008/save_picture_549190.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548707.jpg" />
+  <img src="Z:/picture/008/save_picture_548707.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547977.jpg" />
+  <img src="Z:/picture/008/save_picture_547977.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545525.jpg" />
+  <img src="Z:/picture/008/save_picture_545525.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545521.jpg" />
+  <img src="Z:/picture/008/save_picture_545521.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545468.jpg" />
+  <img src="Z:/picture/008/save_picture_545468.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544516.jpg" />
+  <img src="Z:/picture/008/save_picture_544516.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542909.jpg" />
+  <img src="Z:/picture/008/save_picture_542909.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542905.jpg" />
+  <img src="Z:/picture/008/save_picture_542905.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542550.jpg" />
+  <img src="Z:/picture/008/save_picture_542550.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541313.jpg" />
+  <img src="Z:/picture/008/save_picture_541313.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540449.jpg" />
+  <img src="Z:/picture/008/save_picture_540449.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539907.jpg" />
+  <img src="Z:/picture/008/save_picture_539907.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539855.jpg" />
+  <img src="Z:/picture/008/save_picture_539855.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536841.jpg" />
+  <img src="Z:/picture/008/save_picture_536841.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536708.jpg" />
+  <img src="Z:/picture/008/save_picture_536708.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535188.jpg" />
+  <img src="Z:/picture/008/save_picture_535188.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535038.jpg" />
+  <img src="Z:/picture/008/save_picture_535038.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534871.jpg" />
+  <img src="Z:/picture/008/save_picture_534871.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532443.jpg" />
+  <img src="Z:/picture/008/save_picture_532443.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531503.jpg" />
+  <img src="Z:/picture/008/save_picture_531503.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531277.jpg" />
+  <img src="Z:/picture/008/save_picture_531277.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531266.jpg" />
+  <img src="Z:/picture/008/save_picture_531266.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2879F9D444A656A3F473AD67BD7F53C8D4A05566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926757   (531260) от 11.08.2015
-
-Джон Рольф, Питер Труб | Мартышкин труд. Уолл-стрит изнутри (2012) [PDF, DOCX, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - увлекательный, предельно откровенный рассказ о реальных буднях инвестиционных банкиров. О том, что еще есть в их жизни, кроме белоснежных сорочек, обедов с омарами, конфиденциальных переговоров и безбашенных вечеринок. И о том, что прилагается к огромным зарплатам и чем приходится поступиться ради статуса. Обо всем этом повествуют два бывших сотрудника (   Читать дальше...   )Жанр: БизнесФормат: PDF, DOCX, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A79B4350E823F7278206F85DD869A73B87E326F
 ```
 
 https://mybot314.ru/tekegram_catalog/

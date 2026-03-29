@@ -1,3 +1,96 @@
+###  Публикация: 1317268   (501113) от 31.07.2019
+
+Легенды Ретро FM полная версия (2018) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера международного музыкального фестиваля Легенды Ретро FM 201801. Дмитрий Харатьян и Домисолька - Мы к вам заехали на час
+02. Ottawan - D.I.S.C.O.
+03. Ottawan - Shalala Song
+04. Ottawan - Hands Up(   Читать дальше...   )Телекомпания: 1 канал (Россия)Жанр: PopСубтитры: отсутствуютПродолжительность: 04:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C900124478B67F6290F3841286FB14489C07689C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935060   (500199) от 07.09.2015
+
+Madonna - The MDNA Tour (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500199.jpg" />
+</div>
+
+
+###  Подробнее
+
+The MDNA Tour — девятый концертный тур американской певицы Мадонны в поддержку её двенадцатого студийного альбома MDNA. Сразу после выпуска MDNA в интервью для Vogue Italia, Мадонна сказала, что хочет двигаться. Было решено создать самый масштабный тур в ее карьере, включающий в себя около 90 дат. Первоначально планировалось провести концерты в США, после чего отправится (   Читать дальше...   )01. Virgin Mary (Intro)
+02. Girl Gone Wild
+03. Revolver
+04. Gang Bang(   Читать дальше...   )Жанр: PopРежиссер: Дэнни ТуллПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFF70C07AD20465628A277753B341A0AD28090D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541617   (499051) от 02.09.2012
+
+Валерия: Русские романсы и золотые шлягеры XX века (2012) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499051.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале декабря прошлого года Валерия праздновала в Государственном Кремлевском дворце 20-летие своей творческой деятельности. По ее собственному признанию, певица не любит никаких юбилеев, «потому что юбилей предполагает взгляд назад». В связи с этим Валерия отказалась от идеи устроить ретроспективу своих хитов за отчетный период и подготовила специальную программу – по ее мнению, «лирическую и основанную на романсах, с которых она начинала», а по сути – невероятно торжественную и пафосную: с Российский национальным оркестром в роли аккомпаниатора, камерным хором Московской консерватории в качестве «подпевок», а также Раймондом Паулсом, Давидом Тухмановым и Игорем Крутым, исполняющими партии на рояле в своих песнях. Многочисленные знаменитые гости и коллеги - вопреки популярной юбилейной традиции музыкальных поздравлений - наблюдали за триумфом Валерии из зала: режиссер телеверсии не забывал регулярно показывать то Ларису Долину, то Михаила Барщевского, то взволнованного и гордого Иосифа Пригожина. Гордиться (   Читать дальше...   )01. П.И. Чайковский - Полонез из оперы "Евгений Онегин"
+02. Как хороши те очи
+03. Хризантемы
+04. Оправдаешь ли ты
+05. Небо звездами (За роялем Д. Тухманов)
+06. Напрасные слова (За роялем Д. Тухманов)
+07. Нищая
+08. Подруга
+09. Ноктюрн (Дуэт с И. Кобзоном)
+10. Была любовь(   Читать дальше...   )Жанр: МузыкаРежиссер: Артём ШадровАктеры: Валерия (Алла Перфилова), Давид Тухманов, Иосиф Кобзон, Игорь Крутой, Раймонд Паулс, Василий Герелло, Арсений Шульгин, Российский Национальный ОркестрПеревод: ОтсутствуетПродолжительность: 01:58:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935658   (498347) от 09.09.2015
 
 Edguy - Live Wacken (2012) HDTV [H.264/720p]
@@ -6,7 +99,7 @@ Edguy - Live Wacken (2012) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498347.jpg" />
+  <img src="Z:/picture/008/save_picture_498347.jpg" />
 </div>
 
 
@@ -35,7 +128,7 @@ Steve Hackett - Genesis Revisited – Live at the Royal Albert Hall (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497270.jpg" />
+  <img src="Z:/picture/008/save_picture_497270.jpg" />
 </div>
 
 
@@ -64,7 +157,7 @@ Dream Theater - Live at Luna Park (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496053.jpg" />
+  <img src="Z:/picture/008/save_picture_496053.jpg" />
 </div>
 
 
@@ -93,7 +186,7 @@ The AIX All Star Band - Pachelbel Canon Acoustica (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495468.jpg" />
+  <img src="Z:/picture/008/save_picture_495468.jpg" />
 </div>
 
 
@@ -119,7 +212,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494179.jpg" />
+  <img src="Z:/picture/008/save_picture_494179.jpg" />
 </div>
 
 
@@ -148,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493971.jpg" />
+  <img src="Z:/picture/008/save_picture_493971.jpg" />
 </div>
 
 
@@ -175,7 +268,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493857.jpg" />
+  <img src="Z:/picture/008/save_picture_493857.jpg" />
 </div>
 
 
@@ -204,7 +297,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492231.jpg" />
+  <img src="Z:/picture/008/save_picture_492231.jpg" />
 </div>
 
 
@@ -233,7 +326,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489551.jpg" />
+  <img src="Z:/picture/008/save_picture_489551.jpg" />
 </div>
 
 
@@ -262,7 +355,7 @@ Madonna - MDNA World Tour (2013) HDTV [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489127.jpg" />
+  <img src="Z:/picture/008/save_picture_489127.jpg" />
 </div>
 
 
@@ -291,7 +384,7 @@ Tarja Turunen - Act 1 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486411.jpg" />
+  <img src="Z:/picture/008/save_picture_486411.jpg" />
 </div>
 
 
@@ -326,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486075.jpg" />
+  <img src="Z:/picture/008/save_picture_486075.jpg" />
 </div>
 
 
@@ -352,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485854.jpg" />
+  <img src="Z:/picture/008/save_picture_485854.jpg" />
 </div>
 
 
@@ -379,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485749.jpg" />
+  <img src="Z:/picture/008/save_picture_485749.jpg" />
 </div>
 
 
@@ -406,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484718.jpg" />
+  <img src="Z:/picture/008/save_picture_484718.jpg" />
 </div>
 
 
@@ -432,7 +525,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482854.jpg" />
+  <img src="Z:/picture/008/save_picture_482854.jpg" />
 </div>
 
 
@@ -458,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482690.jpg" />
+  <img src="Z:/picture/008/save_picture_482690.jpg" />
 </div>
 
 
@@ -484,7 +577,7 @@ Pharrell Williams - iTunes Festival London (2014) WEB-DL [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481851.jpg" />
+  <img src="Z:/picture/008/save_picture_481851.jpg" />
 </div>
 
 
@@ -513,7 +606,7 @@ Shar Airag Rock Band - Tribute to Pink Floyd (2013) WEBRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481626.jpg" />
+  <img src="Z:/picture/008/save_picture_481626.jpg" />
 </div>
 
 
@@ -542,7 +635,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481617.jpg" />
+  <img src="Z:/picture/008/save_picture_481617.jpg" />
 </div>
 
 
@@ -571,7 +664,7 @@ Queen - Live At The Rainbow '74 (2014) SD Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481543.jpg" />
+  <img src="Z:/picture/008/save_picture_481543.jpg" />
 </div>
 
 
@@ -600,7 +693,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479750.jpg" />
+  <img src="Z:/picture/008/save_picture_479750.jpg" />
 </div>
 
 
@@ -629,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479729.jpg" />
+  <img src="Z:/picture/008/save_picture_479729.jpg" />
 </div>
 
 
@@ -640,93 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16C68D712B2E1B858C8B73DD7A6BE749F827B316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938654   (479453) от 19.09.2015
-
-Slayer - Repentless (Live At Wacken) (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертное выступление Slayer на Wacken Open Air в 2014 году. Входит бонус-диском в комплект к лимитированному изданию нового альбома "Repentless".1. Intro
-2. Hell Awaits
-3. The Antichrist
-4. Mandatory Suicide(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52910E7F00701A687DE75CC4950656FC37D4F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938453   (479364) от 19.09.2015
-
-Deep Purple - From the Setting Sun... in Wacken (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple объявили о выпуске двух концертных фильмов, снятых на Wacken и в Японии. To The Rising Sun (в Wacken) был снят на девять HD камер и отмечается что в первый раз Deep Purple выпустит 3D-фильм.01. Highway Star
-02. Into The Fire
-03. Hard Lovin' Man
-04. Vincent Price(   Читать дальше...   )Жанр: Rock,  Hard RockПродолжительность: 01:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964FA080AF78BDA012505777B81040719A7E8679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056786   (478922) от 26.09.2016
-
-David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление британского rock музыканта, автора и исполнителя, мультиинструменталиста и музыкального продюсера Дэвида Гилмора в польском Вроцлаве в июне 25, 201601. 5 A.M.
-02. Rattle That Lock
-03. Faces of Stone
-04. Wish You Were Here(   Читать дальше...   )Производство: Польша|TVP2Жанр: Progressive rock, Psychedelic rockПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEBAAF3817A8D8BA2CADA1E4F03C28A5584F0263
 ```
 
 https://mybot314.ru/tekegram_catalog/

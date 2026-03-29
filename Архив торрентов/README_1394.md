@@ -6,7 +6,7 @@ CCleaner 5.89.9401 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738051.jpg" />
+  <img src="Z:/picture/008/save_picture_738051.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738050.jpg" />
+  <img src="Z:/picture/008/save_picture_738050.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ WinRAR 6.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738015.jpg" />
+  <img src="Z:/picture/008/save_picture_738015.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SketchUp Pro 2022 v22.0.315 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738010.jpg" />
+  <img src="Z:/picture/008/save_picture_738010.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738009.jpg" />
+  <img src="Z:/picture/008/save_picture_738009.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CCleaner 5.89.9401 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737965.jpg" />
+  <img src="Z:/picture/008/save_picture_737965.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ WinRAR 6.10 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737962.jpg" />
+  <img src="Z:/picture/008/save_picture_737962.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Apple Logic Pro X 10.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737861.jpg" />
+  <img src="Z:/picture/008/save_picture_737861.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Ftp-Serv 7.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737846.jpg" />
+  <img src="Z:/picture/008/save_picture_737846.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Vellum 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737842.jpg" />
+  <img src="Z:/picture/008/save_picture_737842.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ MarkMyWords 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737841.jpg" />
+  <img src="Z:/picture/008/save_picture_737841.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Exposure X7 v7.1.1.159  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737840.jpg" />
+  <img src="Z:/picture/008/save_picture_737840.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Checksum Thing 0.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737832.jpg" />
+  <img src="Z:/picture/008/save_picture_737832.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Menuwhere 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737831.jpg" />
+  <img src="Z:/picture/008/save_picture_737831.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Glyphs 3 v3.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737824.jpg" />
+  <img src="Z:/picture/008/save_picture_737824.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Exposure X7 Bundle v7.1.0.89 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737817.jpg" />
+  <img src="Z:/picture/008/save_picture_737817.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Exposure Software Blow Up 3 v3.1.4.399 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737814.jpg" />
+  <img src="Z:/picture/008/save_picture_737814.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Downie 4 v4.4.6 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737809.jpg" />
+  <img src="Z:/picture/008/save_picture_737809.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.2 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737791.jpg" />
+  <img src="Z:/picture/008/save_picture_737791.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ K-Lite Codec Pack Update 16.7.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737786.jpg" />
+  <img src="Z:/picture/008/save_picture_737786.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Auslogics File Recovery 10.2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737783.jpg" />
+  <img src="Z:/picture/008/save_picture_737783.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Auslogics Disk Defrag Pro 10.2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737769.jpg" />
+  <img src="Z:/picture/008/save_picture_737769.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Auslogics BoostSpeed 12.2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737766.jpg" />
+  <img src="Z:/picture/008/save_picture_737766.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Bat! Professional (Christmas Edition) 9.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737765.jpg" />
+  <img src="Z:/picture/008/save_picture_737765.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ YTD Video Downloader PRO 5.9.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737723.jpg" />
+  <img src="Z:/picture/008/save_picture_737723.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ CPU-Z 1.99.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737721.jpg" />
+  <img src="Z:/picture/008/save_picture_737721.jpg" />
 </div>
 
 

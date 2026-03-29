@@ -1,3 +1,55 @@
+###  Публикация: 1067526   (244970) от 29.10.2016
+
+Биой Касарес | Спящие на солнце (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244970.jpg" />
+</div>
+
+
+###  Подробнее
+
+В письмах к Феликсу Рамосу, давно знакомому, но далекому человеку, Лусио Борденаве раскрывает историю своей непростой, неспокойной семейной жизни. Непростой, но все же обыденной — до тех пор, пока он не согласился отдать свою жену Диану на лечение в Психопатологический Институт. С этого момента происходящие с ним события принимают все более странный и даже зловещий (   Читать дальше...   )Жанр: РоманПродолжительность: 06:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F33848A151707935EB10713D52B2E84650297DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625387   (244660) от 09.04.2023
+
+Александр Образцов | От Москвы до Ленинграда. Гостиница (2010) [MP3, Александр Васильев, Анна Алексахина]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две короткие пьесы Александра Образцова "От Москвы до Ленинграда" и "Гостиница". Пьесы Александра Образцова полны неизбывного очарования случайных встреч, способных изменить жизнь людей самым коренным образом. Бывают такие мгновения, к которым человек вовсе не был готов, которых не ожидал, которые происходят спонтанно. В тот момент, когда это (   Читать дальше...   )Жанр: Проза, РадиоспектакльПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EA638AE80F40BA55A2361606DA3895295E7E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291708   (244400) от 08.04.2019
 
 Олег Рябов | Убегая - оглянись, или Возвращение к Ветлуге (2018) [MP3]
@@ -6,7 +58,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244400.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244392.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244148.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243961.jpg" />
+  <img src="Z:/picture/004/save_picture_243961.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243655.jpg" />
+  <img src="Z:/picture/004/save_picture_243655.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243272.jpg" />
+  <img src="Z:/picture/004/save_picture_243272.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242558.jpg" />
+  <img src="Z:/picture/005/save_picture_242558.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242520.jpg" />
+  <img src="Z:/picture/005/save_picture_242520.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242498.jpg" />
+  <img src="Z:/picture/005/save_picture_242498.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242260.jpg" />
+  <img src="Z:/picture/004/save_picture_242260.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241971.jpg" />
+  <img src="Z:/picture/004/save_picture_241971.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241613.jpg" />
+  <img src="Z:/picture/004/save_picture_241613.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241378.jpg" />
+  <img src="Z:/picture/004/save_picture_241378.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241064.jpg" />
+  <img src="Z:/picture/004/save_picture_241064.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241043.jpg" />
+  <img src="Z:/picture/004/save_picture_241043.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240854.jpg" />
+  <img src="Z:/picture/004/save_picture_240854.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240836.jpg" />
+  <img src="Z:/picture/004/save_picture_240836.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240835.jpg" />
+  <img src="Z:/picture/004/save_picture_240835.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240827.jpg" />
+  <img src="Z:/picture/004/save_picture_240827.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240785.jpg" />
+  <img src="Z:/picture/004/save_picture_240785.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239715.jpg" />
+  <img src="Z:/picture/004/save_picture_239715.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239578.jpg" />
+  <img src="Z:/picture/004/save_picture_239578.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239469.jpg" />
+  <img src="Z:/picture/005/save_picture_239469.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238834.jpg" />
+  <img src="Z:/picture/005/save_picture_238834.jpg" />
 </div>
 
 
@@ -630,62 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:466FDB771EE1AE10ADC26A4ED4E708E003B5A9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623203   (238832) от 31.03.2023
-
-Алекс Коваль | Брат моего жениха (2023) [MP3, Тина Голд]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238832.jpg" />
-</div>
-
-
-###  Подробнее
-
-– Лана, знакомься, это мой брат Алексей, – звучит на периферии сознания голос моего жениха Славы.
-Вот только меня с этим «братом» знакомить не нужно. Я и так прекрасно знаю, кто этот мужчина, стоящий напротив и прожигающий меня шоколадным взглядом.
-Он Алексей Рысев, по прозвищу Рысь. Мировая звезда хоккея, топовый игрок НХЛ и любимец женщин. Моя неразделенная любовь (   Читать дальше...   )Жанр: Любовный романПродолжительность: 09:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8121034C5324BA5F27DD6A5B1479D2DB6714CAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442131   (238596) от 24.01.2021
-
-Ирина  Мамаева | Земля Гай (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирина Мамаева — молодой прозаик из Петрозаводска. За свой дебют, повесть «Ленкина свадьба», получила премию имени Соколова на Пятом форуме молодых писателей России.
-
-Жители поселка Гай постоянно вспоминают счастливые времена расцвета бывшего леспромхоза, из которого последние пятнадцать лет уходит жизнь. Время, как скорый поезд, проносится мимо испуганных героев (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4436F85E45978CFCE6421603CDEF545F0F6FCA47
 ```
 
 https://mybot314.ru/tekegram_catalog/

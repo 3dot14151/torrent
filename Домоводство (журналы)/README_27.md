@@ -1,3 +1,107 @@
+###  Публикация: 766577   (871580) от 14.03.2014
+
+Журнал | AD / Architectural Digest №4 (127) (апрель 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_871580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал AD (Architectural Digest) — ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений , источник вдохновения в искусстве создания идеального жизненного пространства.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D31F2480CF2AAFB4D9702528E194EFA21C9503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106698   (871388) от 20.02.2017
+
+Журнал | Мой любимый дом №2 (март-апрель 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_871388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мой любимый дом — журнал о создании комфорта и уюта в квартире и частном доме. Разделы журнала — «Квартира», «Частный дом» и «Идеи и решения» — дают полное представление о том, как обустроить свой любимый дом. Издание рассказывает о современных тенденциях строительства и ремонта, оригинальных интерьерах квартир и частных домов, новинках в области дизайна интерьера, (   Читать дальше...   )Жанр: Дом, дача, строительство, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157F3670BFA39F9D5BCCF548F38F2E28A9299FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998498   (870385) от 19.03.2016
+
+Журнал | Дачный совет №6 (Март 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_870385.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачный совет» - верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672519CE104E1151A27F8CDAF2FE64621FD3B2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998170   (870371) от 19.03.2016
+
+Газета | Советчица. Приусадебное хозяйство [Украина] №3 (171) (Март 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_870371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD9E5E9BB26EC31E1796AB6354198BC5945714C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998422   (870276) от 19.03.2016
 
 Журнал | Ландшафтный дизайн №2 (март-апрель 2016) [PDF]
@@ -6,7 +110,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870276.jpg" />
+  <img src="Z:/picture/008/save_picture_870276.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870257.jpg" />
+  <img src="Z:/picture/008/save_picture_870257.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870067.jpg" />
+  <img src="Z:/picture/008/save_picture_870067.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870064.jpg" />
+  <img src="Z:/picture/008/save_picture_870064.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870047.jpg" />
+  <img src="Z:/picture/008/save_picture_870047.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869989.jpg" />
+  <img src="Z:/picture/008/save_picture_869989.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869832.jpg" />
+  <img src="Z:/picture/008/save_picture_869832.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869702.jpg" />
+  <img src="Z:/picture/008/save_picture_869702.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868971.jpg" />
+  <img src="Z:/picture/008/save_picture_868971.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868906.jpg" />
+  <img src="Z:/picture/008/save_picture_868906.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868596.jpg" />
+  <img src="Z:/picture/008/save_picture_868596.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868581.jpg" />
+  <img src="Z:/picture/008/save_picture_868581.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868451.jpg" />
+  <img src="Z:/picture/008/save_picture_868451.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868233.jpg" />
+  <img src="Z:/picture/008/save_picture_868233.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868223.jpg" />
+  <img src="Z:/picture/008/save_picture_868223.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868102.jpg" />
+  <img src="Z:/picture/008/save_picture_868102.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866693.jpg" />
+  <img src="Z:/picture/008/save_picture_866693.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866615.jpg" />
+  <img src="Z:/picture/008/save_picture_866615.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866609.jpg" />
+  <img src="Z:/picture/008/save_picture_866609.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866369.jpg" />
+  <img src="Z:/picture/008/save_picture_866369.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866364.jpg" />
+  <img src="Z:/picture/008/save_picture_866364.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866260.jpg" />
+  <img src="Z:/picture/008/save_picture_866260.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1319BD97BD6D6D44408147EE9B927C059BE3EF89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999202   (866259) от 21.03.2016
-
-Журнал | Дом №4 (апрель 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Дом» - помощник для тех, кого интересуют практические вопросы, связанные со строительством, ремонтом и эксплуатацией индивидуального жилья – коттеджей, дачных и садовых домиков, а также надворных построек.Жанр: Архитектура, строительство, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791A64C13709A6C427539E065AB6734CCF906BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107659   (866241) от 23.02.2017
-
-Журнал | Мой уютный дом №3 (март 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто высоко ценит комфорт, хочет сделать свой дом красивым, находится в постоянном поиске свежих интерьерных идей и решений. Оборудование дома и квартиры, практические советы по оформлению гостиной, спальни, кухни, ванной и детской комнат. Модные тенденции в дизайне интерьера. Эксклюзивные репортажи. Мебельные новинки со всего света. Интересные и стильные (   Читать дальше...   )Жанр: Строительство, ремонт, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D671B6988069EF9D7A471625455BCC5F09544F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767487   (866166) от 17.03.2014
-
-Подшивка журналов | Proyectos de Pintura Country [Argentina] (2004-2012) [JPEG] [SP]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_866166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аргентинский журнал по изготовлению мягких игрушек, кукол (в том числе примитивных), сувениров и предметов интерьера из ткани, фетра, фанеры, металла и т.п. Очень наглядные схемы и интересные идеи на все случаи жизни. Выкройки имеются. Знание языка не требуется.Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1DFBC5FFD829E1FAAD3AE498C419B79B802B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107784   (866102) от 23.02.2017
-
-Журнал | Fine Homebuilding. Home Remodeling (2013) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта коллекция из 36 статей от экспертов журнала Fine Homebuilding. Выкладывает подробную информацию о каждом этапе ремонта - от планирования и проектирования до строительства и монтажа, модернизации, отделки и очистки.Жанр: Строительство и ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CD5F2DC1BC50DE283E23FF7C3F27AB061A95D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1562931   (212672) от 11.07.2022
+
+Тень кота / La Sombra Del Gato / Shadow of the Cat (2021) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмма живёт с отцом и его странным другом по кличке Тень на ферме вдали от цивилизации. С детства её учили верить в зловредность разных современных финтифлюшек. Но однажды она тайком приезжает в город с отцом и находит мобильный телефон...Производство: Аргентина / LouLou Productions, Shock House S.R.L., Tieless MediaЖанр: Фэнтези, приключенияРежиссер: Хосе Мария СикалаАктеры: Моника Антонопулос, Рита Кортесе, Матиас Десидерио, Клара Ковачич, Heinz K. Krattiger, Мэйти Ланата, Луис Мачин, Канделария Мольфесе, Джей Монтальво, Питер О’Брайэн, Денни ТрехоПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: Английские (Hardsub)Продолжительность: 01:27:49Реклама: Присутствуют аудио и видео вставки рекламы, баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C2E6AE737B6DF702D50AA5E2A2A3A430A1BD43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565019   (212304) от 22.07.2022
 
 Счётчик смертей / Death Count / Numbers (2022) WEB-DLRip [H.264/1080p-LQ] [MVO, AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212304.jpg" />
+  <img src="Z:/picture/005/save_picture_212304.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210840.jpg" />
+  <img src="Z:/picture/005/save_picture_210840.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210729.jpg" />
+  <img src="Z:/picture/005/save_picture_210729.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210664.jpg" />
+  <img src="Z:/picture/005/save_picture_210664.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210643.jpg" />
+  <img src="Z:/picture/005/save_picture_210643.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210475.jpg" />
+  <img src="Z:/picture/005/save_picture_210475.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210366.jpg" />
+  <img src="Z:/picture/005/save_picture_210366.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209389.jpg" />
+  <img src="Z:/picture/005/save_picture_209389.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208349.jpg" />
+  <img src="Z:/picture/005/save_picture_208349.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208200.jpg" />
+  <img src="Z:/picture/005/save_picture_208200.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208190.jpg" />
+  <img src="Z:/picture/005/save_picture_208190.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207894.jpg" />
+  <img src="Z:/picture/005/save_picture_207894.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207120.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207082.jpg" />
+  <img src="Z:/picture/005/save_picture_207082.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206943.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206936.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206905.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206809.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206786.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206611.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205866.jpg" />
+  <img src="Z:/picture/005/save_picture_205866.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205461.jpg" />
+  <img src="Z:/picture/005/save_picture_205461.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205457.jpg" />
+  <img src="Z:/picture/005/save_picture_205457.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205389.jpg" />
+  <img src="Z:/picture/005/save_picture_205389.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204922.jpg" />
+  <img src="Z:/picture/004/save_picture_204922.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:253C7D17FB863A436C65EDA5C22C9CDDD0265AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602663   (204418) от 06.01.2023
-
-Слуги Сатаны / Pengabdi Setan / Satan's Slaves (2017) WEB-DLRip [H.264/1080-LQ] [DVO, AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1981 год, Индонезия. Когда-то бывшая популярной певицей мать четырёх детей несколько лет назад слегла и доживает последние дни. Семья о ней заботится, но сводить концы с концами становится всё труднее — в звукозаписывающей компании говорят, что записи больше не продаются, поэтому комиссионных нет, и семья продаёт всё, что может. Когда женщина умирает, то сразу после (   Читать дальше...   )Производство: Индонезия, Корея Южная / Rapi Films, CJ EntertainmentЖанр: ужасыРежиссер: Джоко АнварАктеры: Тара Басро, Бронт Паларэ, Димас Адитья, Энди Арфиан, Насар Аннус, М. Адхият, Арсвенди Насутион, Эги Федли, Аю Лакшми, Элли Д. ЛутанПеревод: Двуголосый любительский (Колобок)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:42Реклама: присутствуют видеовставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9625A521D8780D6197357FD827AAEEC9A8D0B479
 ```
 
 https://mybot314.ru/tekegram_catalog/

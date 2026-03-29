@@ -1,3 +1,90 @@
+###  Публикация: 1344623   (169224) от 12.12.2019
+
+Blind Fury - Out Of Reach (1985) Reissue 2008 [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It Loud 05:05
+02. Out of Reach 06:32
+03. Evil Eyes 06:03
+04. Contact Rock and Roll 03:56(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DC286FAAD71F8DE990DA20AB4F365E8D277A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344653   (169207) от 12.12.2019
+
+Leviathan - Deepest Secrets Beneath (1994) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confidence Not Arrogance
+02. Sanctuary
+03. The Calling
+04. Painful Pursuit Of Passion And Purpose(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5D690B4AC8DD39A1A00970F8AF9406BB4E03FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344646   (169199) от 12.12.2019
+
+Borknagar - True North (2019) [FLAC|Lossless|image + .cue] <Black Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderous
+02. Up North
+03. The Fire That Burns
+04. Lights(   Читать дальше...   )Жанр: Black Folk MetalПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1B6439139B62FEA5B01E2F1D331FF1A945E133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344655   (169193) от 12.12.2019
 
 Leviathan - Scoring The Chapters (1997) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
@@ -6,7 +93,7 @@ Leviathan - Scoring The Chapters (1997) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169193.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Reido - Anātman (2019) [FLAC|Lossless|image + .cue] <Sludge/Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169190.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Nemesis - The Day Of Retribution (1982) Reissued 1990 [WavPack|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169175.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ The Bereaved - Daylight Deception (2009) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169164.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Judas Iscariot - Heaven in Flames (1999) Reissue 2000 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169155.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Lacrimosa - Nachts (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169151.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ ShadowPlay - ShadowPlay (2007) [FLAC|Lossless|image + .cue] <Gothic Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169150.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Diamond Head - The Coffin Train (2019) [WavPack|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169146.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Dismal Euphony - Soria Moria Slott (2004) Remastered in February 2010,   Keltic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169080.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Visigoth - Conqueror's Oath (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168676.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Wolftooth - Blood & Iron (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168672.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Voice - The Storm (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168644.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ A.R.G. - Entrance (1989) Remaster 2012 [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168514.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ A.R.G. - One World Without the End (1991) Remaster 2012 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168496.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Oponente - Decreciendo (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168491.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Amoriello - Amoriello (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168483.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Shadow Warrior - Cyberblade (2020) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168465.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Rob Arnold - Magnitude (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168462.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Amoriello - Dear Dark (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168450.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Domain - Last Days of Utopia (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168439.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Sonus Mortis - Collapse the Mountain (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168418.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Amoriello - Phantom Sounds (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168384.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Viogression - Expound and Exhort (1991) Reissued, 2020, Hammerheart Records [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168350.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Viogression - Expound and Exhort (1991) Reissued, 2020, Hammerheart Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54565D791BB64B9893B9755095B8B5F750204049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672680   (168346) от 29.10.2023
-
-Viogression - 3rd Stage of Decay (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nectar of Veins
-02. Under the Riverbed
-03. Death Dive
-04. 3 Skulls(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9C16A77ACAE3A608B78E118938DCF96E032C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596866   (168344) от 12.12.2022
-
-Shadow Warrior - Return Of The Shadow Warrior (2019) Japanese Edition, EP [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return Of The Shadow Warrior
-02. Night Of The Blades
-03. Hiroshima
-04. Wind Of the Gods(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942D7D475F17B343D28074FF1CBFA025A5F3B948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672726   (168324) от 29.10.2023
-
-Destroyer 666 - Defiance (2009) [FLAC|Lossless|image + .cue] <Black, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weapons of Conquest
-02. I Am Not Deceived
-03. Blood for Blood
-04. The Barricades Are Breaking(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71BDFED6991D5CDB7C2A06AD099FE04C0323D67
 ```
 
 https://mybot314.ru/tekegram_catalog/

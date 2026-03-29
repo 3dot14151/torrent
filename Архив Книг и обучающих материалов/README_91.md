@@ -1,3 +1,29 @@
+###  Публикация: 359490   (583168) от 05.07.2011
+
+Журнал | Обустройство & ремонт №27 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583168.jpg" />
+</div>
+
+
+###  Подробнее
+
+На страницах издания вы найдете аналитические материалы, касающиеся строительства и ремонта, полезные советы и рекомендации, как грамотно отремонтировать квартиру, обустроить участок, построить дом и создать уют в жилом и офисном помещении..Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359471   (583164) от 05.07.2011
 
 Журнал | БЛИК Кулинария №6-7 [2011] [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583164.jpg" />
+  <img src="Z:/picture/008/save_picture_583164.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583014.jpg" />
+  <img src="Z:/picture/008/save_picture_583014.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583011.jpg" />
+  <img src="Z:/picture/008/save_picture_583011.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582936.jpg" />
+  <img src="Z:/picture/008/save_picture_582936.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582931.jpg" />
+  <img src="Z:/picture/008/save_picture_582931.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582924.jpg" />
+  <img src="Z:/picture/008/save_picture_582924.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582859.jpg" />
+  <img src="Z:/picture/008/save_picture_582859.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582858.jpg" />
+  <img src="Z:/picture/008/save_picture_582858.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582854.jpg" />
+  <img src="Z:/picture/008/save_picture_582854.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582850.jpg" />
+  <img src="Z:/picture/008/save_picture_582850.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582834.jpg" />
+  <img src="Z:/picture/008/save_picture_582834.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582704.jpg" />
+  <img src="Z:/picture/008/save_picture_582704.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582689.jpg" />
+  <img src="Z:/picture/008/save_picture_582689.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582682.jpg" />
+  <img src="Z:/picture/008/save_picture_582682.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582680.jpg" />
+  <img src="Z:/picture/008/save_picture_582680.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582527.jpg" />
+  <img src="Z:/picture/008/save_picture_582527.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582515.jpg" />
+  <img src="Z:/picture/008/save_picture_582515.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582467.jpg" />
+  <img src="Z:/picture/008/save_picture_582467.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582438.jpg" />
+  <img src="Z:/picture/008/save_picture_582438.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582383.jpg" />
+  <img src="Z:/picture/008/save_picture_582383.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582304.jpg" />
+  <img src="Z:/picture/008/save_picture_582304.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582291.jpg" />
+  <img src="Z:/picture/008/save_picture_582291.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582041.jpg" />
+  <img src="Z:/picture/008/save_picture_582041.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582002.jpg" />
+  <img src="Z:/picture/008/save_picture_582002.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581997.jpg" />
+  <img src="Z:/picture/008/save_picture_581997.jpg" />
 </div>
 
 
@@ -668,33 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48CB0BD408F1928D743C3B8421F828DC9630AC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359851   (581990) от 06.07.2011
-
-Юрий Рубцов | Новая книга о штрафбатах [2010] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581990.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние годы штрафные части Красной Армии стали одним из главных козырей в шулерской колоде "либеральных" историков-ревизионистов, готовых на любую гнусность, лишь бы принизить подвиг советского народа в Великой Отечественной войне. Все рекорды исторических "ляпов", нелепых домыслов и прямой лжи побил телесериал "Штрафбат", старательно протаскивающий мысль, что штрафники-де "выиграли войну" (хотя на самом деле численность штрафных частей не превышала 1,24% от численности советских Вооруженных сил).
-Эта книга, основанная не на пропагандистских штампах, а на архивных документах и воспоминаниях самих штрафников, опровергает наиболее расхожие и лживые из этих мифов - тем более что реальная жизнь всегда богаче любых кинофантазий, и подлинная история штрафных рот и батальонов Красной Армии по трагизму, горечи и накалу страстей превосходит самый смелый вымысел.Формат: PDF
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

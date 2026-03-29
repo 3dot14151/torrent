@@ -1,3 +1,107 @@
+###  Публикация: 1219444   (713772) от 14.04.2018
+
+NG: Фото-ковчег / Photo Ark (2017) HDTVRip (3 серии из 3) [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к Джоэлу Саторе в его путешествии на Мадагаскар и Флорида-Кис, чтобы сфотографировать красивых и вымирающих животных.Телекомпания: NGWЖанр: Документальный, Природа, Фауна, ФлораПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:14+00:43:57+00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052214CFC9A37A3DDEDB1EC975721CD722F961B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705440   (713535) от 10.06.2016
+
+BBC. Horizon. Миссия на Марс / Horizon. Mission To Mars (2012) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713535.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой серии Вы проникнете за кулисы НАСА, в то время когда там ведётся обратный отсчет времени до посадки марсохода "Curiosity" стоимостью в 2,5 миллиарда долларов на поверхность Марса. Мы увидим все за шесть дней до посадки. Марсоход размером с автомобиль будет спущен лебедкой вниз на поверхность Красной планеты краном с ракетным двигателем. Это в том (   Читать дальше...   )Жанр: Документальный, научно-познавательный, космосПеревод: Двухголосый закадровый (профессиональный)Субтитры: вшитые отключаемыеЯзык субтитров: русский, английскийПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6A853FF5A312C5545EE0CD96D52C7F451BDFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881669   (712991) от 29.04.2015
+
+NG. Суперсооружения Третьего рейха / Nazi Megastructures (Megastructures: Nazi Mega Weapons) (2014) HDTVRip (сезон 2, серии 1, 5, 6 из 6) [обновляемая]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712991.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стремлении к мировому господству нацисты построили некоторые из самых амбициозных и прогрессивных образцов боевой техники, а также разработали самые злодейские технологии в истории; создали продвинутые машины террора, огромные оборонительные системы и оружие массового уничтожения, чтобы завоевать континент и выиграть войну. Этот сериал о Второй Мировой войне рассказывает (   Читать дальше...   )Телекомпания: США, PBSЖанр: Документальный, война, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2E8AB89507241BD8D70C289E90D808244EE76D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286336   (712862) от 02.03.2019
+
+BBC. Как вырастить планету / How to Grow a Planet (2012) BDRemux [H.264/1080i] (Сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712862.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом сериале профессор Ийан Стюарт рассказывает нам о новой, увлекательной версии истории формирования биогенеза, которую прошла наша планета. Показывая нам, сколь велики изменения, которые были вызваны, прежде всего обитателями растительного царства. Его рассказ повествует о древней эволюции представителей флоры и фауны Земли.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, исследование, природа, животный мирРежиссер: Ник Шулинджин Джордан, Найджел УолкПеревод: Многоголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: серии x ~ 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5570B242929DE02250D93BEFAD6ACAEFE08082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264714   (712609) от 02.03.2019
 
 History Channel. Реальный Запад: Ковбои и бандиты / The Real West: Cowboys & Outlaws (2008-2009) HDTVRip [H.264/720p-LQ] (1-6 серии из 6)
@@ -6,7 +110,7 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712609.jpg" />
+  <img src="Z:/picture/008/save_picture_712609.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712605.jpg" />
+  <img src="Z:/picture/008/save_picture_712605.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712462.jpg" />
+  <img src="Z:/picture/008/save_picture_712462.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC. Замки: История укреплений Британии / Castles:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712282.jpg" />
+  <img src="Z:/picture/008/save_picture_712282.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712054.jpg" />
+  <img src="Z:/picture/008/save_picture_712054.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710532.jpg" />
+  <img src="Z:/picture/008/save_picture_710532.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709953.jpg" />
+  <img src="Z:/picture/008/save_picture_709953.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NGW: Самые опасные убийцы. Опасная зона / World's d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709948.jpg" />
+  <img src="Z:/picture/008/save_picture_709948.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NGW: Глубоководные убийцы / Deep sea killers (2017) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709859.jpg" />
+  <img src="Z:/picture/008/save_picture_709859.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NGW: Дикая река Конго / Wild Congo (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709850.jpg" />
+  <img src="Z:/picture/008/save_picture_709850.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708969.jpg" />
+  <img src="Z:/picture/008/save_picture_708969.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Разобрать до основания. Суперджеты (Больш
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708968.jpg" />
+  <img src="Z:/picture/008/save_picture_708968.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NGW: Смертоносная Африка. Степи / Africa's Deadly Kingdom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708855.jpg" />
+  <img src="Z:/picture/008/save_picture_708855.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG: Возрождение морского шелкового пути / Mariti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708619.jpg" />
+  <img src="Z:/picture/008/save_picture_708619.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NGW: Самые странные в мире питомцы / World's weirdest p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708105.jpg" />
+  <img src="Z:/picture/008/save_picture_708105.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Discovery: Разрушители легенд / MythBusters (2016) SATRip (Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707722.jpg" />
+  <img src="Z:/picture/008/save_picture_707722.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Animal Planet. Чернобыль - Жизнь в смертельной зон�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707634.jpg" />
+  <img src="Z:/picture/008/save_picture_707634.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ BBC. Horizon. Почему мы говорим? / Horizon. Why Do We Talk? (2009
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707631.jpg" />
+  <img src="Z:/picture/008/save_picture_707631.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NGW: Смертоносная Африка. Калахари / Africa's Deadly K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706973.jpg" />
+  <img src="Z:/picture/008/save_picture_706973.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ BBC: Horizon. Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706595.jpg" />
+  <img src="Z:/picture/008/save_picture_706595.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706234.jpg" />
+  <img src="Z:/picture/008/save_picture_706234.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706233.jpg" />
+  <img src="Z:/picture/008/save_picture_706233.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38DE2DB4D3DC6FF7400D0498A52E7119CC4724D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220217   (706092) от 18.04.2018
-
-NGW: Первая тройка самых опасных животных. Маленькие убийцы / World's deadliest. Little killers (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706092.jpg" />
-</div>
-
-
-###  Подробнее
-
-От горностаев и красных собак до синекольчатых осьминогов - эти небольшие хищники убивают животных во много раз превосходящих их по размеру.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс БитонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FFEF02DD1884858FA788A60D045F74056B1E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220206   (706090) от 18.04.2018
-
-NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не слышал рев льва в руандийской пустыне в течение 15 лет, но это должно измениться. Скоро в Национальный парк Акагера прибудут львы. Пройдёт немало времени, прежде чем они адаптируются на этой новой территории в Центральной Африке.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кира ИваноффПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A69DE7806B91794D0489D4815FA35E8B10B10BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220209   (706089) от 18.04.2018
-
-NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы узнаете то, что изменит ваше мнение о поведении и стиле питания акул, этих невероятных хищников.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кевин БачарПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8545364AF84ADD8187B52EC69A98DD205E2335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220371   (706086) от 18.04.2018
-
-NGW: Хищники Аляски. Царство китов-убийц / Alaska's Deadliest. Killer Whale Kingdom (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш самый большой штат является прибежищем для самых опасных животных-убийц. Самые опасные животные Аляски обитают на одной из последних границ дикой природы в Америке.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Брайан АрмстронгПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC9A59A051FFFCA69DFD52390FC5DC480AEA07
 ```
 
 https://mybot314.ru/tekegram_catalog/

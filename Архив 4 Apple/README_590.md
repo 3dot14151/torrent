@@ -1,3 +1,112 @@
+###  Публикация: 1430202   (174594) от 09.12.2020
+
+Smultron 12.2.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smultron - простой и удобный редактор
+Smultron - простой и элегантный текстовый редактор, с которым можно легко создавать и редактировать любые неформатированные тексты.
+
+По словам разработчика, при создании редактора ставилась задача снабдить программу богатой функциональностью и обеспечить удобство ее использования как для опытных пользователей, так и для новичков. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8E65F231E8C9102EFDDF1E409736AD4CA4F4E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430168   (174590) от 09.12.2020
+
+AYBO 1.17.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174590.jpg" />
+</div>
+
+
+###  Подробнее
+
+С AYBO вы можете выполнять любые расчеты, конвертировать единицы измерения, конвертировать валюту, проверять погоду, устанавливать таймеры, строить графики, решать простые уравнения. Вы даже можете создавать свои собственные команды.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Sergiy LavrykПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E039EBBD5799A7321C1AAF9A0B8C0EE8179AC264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430176   (174587) от 09.12.2020
+
+Receipts 1.9.11b2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент управления счетами, который может определять сумму, записанную в каждом счете-фактуре, и автоматически упорядочивать записи по поставщику или категории
+
+Receipts призван помочь вам эффективно управлять и упорядочивать входящие счета: вы импортируете документы, и утилита попытается автоматически определить сумму, преобразовать ее в ссылочную валюту и отсортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Dirk HoltwickПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C28356E2A172DB2B60C1D3DD2C71F9378FE9F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430283   (174584) от 09.12.2020
+
+Path Finder 10.0b12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: CocoatechПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81287DC4717FE5DBF0C365DE5A8E0BAC875F891D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430257   (174580) от 09.12.2020
 
 Permute 3 v3.5.12 [Multi/Ru]
@@ -6,7 +115,7 @@ Permute 3 v3.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174580.jpg" />
+  <img src="Z:/picture/004/save_picture_174580.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Texpad 1.8.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174577.jpg" />
+  <img src="Z:/picture/004/save_picture_174577.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174573.jpg" />
+  <img src="Z:/picture/004/save_picture_174573.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ PDF Squeezer 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174568.jpg" />
+  <img src="Z:/picture/004/save_picture_174568.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ AYVY 1.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174564.jpg" />
+  <img src="Z:/picture/004/save_picture_174564.jpg" />
 </div>
 
 
@@ -139,7 +248,7 @@ EverWeb (Standalone) 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174556.jpg" />
+  <img src="Z:/picture/004/save_picture_174556.jpg" />
 </div>
 
 
@@ -167,7 +276,7 @@ Linguist 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174552.jpg" />
+  <img src="Z:/picture/004/save_picture_174552.jpg" />
 </div>
 
 
@@ -193,7 +302,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.1.1893 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174550.jpg" />
+  <img src="Z:/picture/004/save_picture_174550.jpg" />
 </div>
 
 
@@ -221,7 +330,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.0.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174523.jpg" />
+  <img src="Z:/picture/004/save_picture_174523.jpg" />
 </div>
 
 
@@ -249,7 +358,7 @@ Downie 4 v4.1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174518.jpg" />
+  <img src="Z:/picture/004/save_picture_174518.jpg" />
 </div>
 
 
@@ -277,7 +386,7 @@ MediaHuman Youtube Downloader 3.9.9.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174480.jpg" />
+  <img src="Z:/picture/004/save_picture_174480.jpg" />
 </div>
 
 
@@ -306,7 +415,7 @@ Pixelmator Classic 3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174439.jpg" />
+  <img src="Z:/picture/004/save_picture_174439.jpg" />
 </div>
 
 
@@ -332,7 +441,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174427.jpg" />
+  <img src="Z:/picture/004/save_picture_174427.jpg" />
 </div>
 
 
@@ -358,7 +467,7 @@ Rhinoceros 7 v7.1.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174371.jpg" />
+  <img src="Z:/picture/004/save_picture_174371.jpg" />
 </div>
 
 
@@ -386,7 +495,7 @@ Microsoft Office 2021 for Mac LTSC v.16.78 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174304.jpg" />
 </div>
 
 
@@ -414,7 +523,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174174.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ Codepoint for Mac 1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174172.jpg" />
 </div>
 
 
@@ -468,7 +577,7 @@ Amadine 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174147.jpg" />
 </div>
 
 
@@ -495,7 +604,7 @@ Rocket Typist Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174136.jpg" />
 </div>
 
 
@@ -524,7 +633,7 @@ BetterTouchTool 4.212 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174081.jpg" />
 </div>
 
 
@@ -550,7 +659,7 @@ DxO FilmPack 7 for Mac v.7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174022.jpg" />
 </div>
 
 
@@ -576,7 +685,7 @@ Multitouch 1.20.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173981.jpg" />
+  <img src="Z:/picture/004/save_picture_173981.jpg" />
 </div>
 
 
@@ -589,113 +698,6 @@ Multitouch позволяет связать пользовательское д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B47DAADD66C7573CD0A94E52CF0717D0C314CF4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430472   (173977) от 10.12.2020
-
-Mic Drop 1.3.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mic Drop позволяет пользователям отключать и включать микрофон с помощью настраиваемого глобального сочетания клавиш. С Mic Drop вы всегда знаете, включен ваш микрофон или нет, что помогает избежать неловких ситуаций. Он идеально подходит для удаленных сотрудников, учителей, подкастеров, исследователей или всех, кто проводит много времени на видеовстречах. Работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Octopus ThinkПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BC2B589C6532DDAAAD7F544E5C19A4A16A13FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668556   (173976) от 12.10.2023
-
-Topaz Photo AI for Mac 2.0.5 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 11.10.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4DCECC212E6637970040FF1AB27B9C503EA4D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430662   (173972) от 10.12.2020
-
-File List Export 2.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173972.jpg" />
-</div>
-
-
-###  Подробнее
-
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6760A7F973491C0F28685142687DC7F8B19B12EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430540   (173969) от 10.12.2020
-
-Piezo 1.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
-Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
-
-Piezo не требует никаких настроек, достаточно его (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8D5FD1C7945628BCCC0DBAF41FAB9792130CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

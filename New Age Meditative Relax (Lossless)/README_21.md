@@ -1,3 +1,32 @@
+###  Публикация: 1253560   (381760) от 10.10.2018
+
+Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Dawning (08:22)
+02.Darkness of Space (06:38)
+03.Lift Thine Eyes (09:14)
+04.Sunborne (14:58)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95830E67178A34019F0110B8DFB4904531335AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253563   (381687) от 10.10.2018
 
 Constance Demby - Light of This World (1987) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -6,7 +35,7 @@ Constance Demby - Light of This World (1987) [FLAC|Lossless|tracks + .cue] <NewA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381687.jpg" />
+  <img src="Z:/picture/008/save_picture_381687.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Junichi Kamiyama - The Best Musics for Recovery from Fatigue and to Get Healthy 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381605.jpg" />
+  <img src="Z:/picture/008/save_picture_381605.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Darshan Ambient - Lingering Day: Anatomy of a Daydream (2017) [FLAC|Lossless|WEB
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381079.jpg" />
+  <img src="Z:/picture/008/save_picture_381079.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Steve Orchard - Zanzibar (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380602.jpg" />
+  <img src="Z:/picture/008/save_picture_380602.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Constance Demby - Sanctum Sanctuorum (2003) [FLAC|Lossless|tracks + .cue] <NewAg
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379614.jpg" />
+  <img src="Z:/picture/008/save_picture_379614.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Constance Demby - Faces of the Christ (2000) [FLAC|Lossless|tracks + .cue] <NewA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379613.jpg" />
+  <img src="Z:/picture/008/save_picture_379613.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Constance Demby - Spirit Trance (2004) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379526.jpg" />
+  <img src="Z:/picture/008/save_picture_379526.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379525.jpg" />
+  <img src="Z:/picture/008/save_picture_379525.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Constance Demby - Ambrosial Waves – Healing Waters (2011) [FLAC|Lossless|image
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379442.jpg" />
+  <img src="Z:/picture/008/save_picture_379442.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ David Arkenstone - David Arkenstone: The Collection (2020) [FLAC|Lossless|WEB-DL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376535.jpg" />
+  <img src="Z:/picture/008/save_picture_376535.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375962.jpg" />
+  <img src="Z:/picture/008/save_picture_375962.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366029.jpg" />
+  <img src="Z:/picture/008/save_picture_366029.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (19
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365816.jpg" />
+  <img src="Z:/picture/005/save_picture_365816.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365490.jpg" />
+  <img src="Z:/picture/008/save_picture_365490.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Andreas Vollenweider - Quiet Places (2020) [FLAC|Lossless|image + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364963.jpg" />
+  <img src="Z:/picture/008/save_picture_364963.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Peder B. Helland - Sunny Mornings (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364609.jpg" />
+  <img src="Z:/picture/008/save_picture_364609.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Gregorian - Live! Masters Of Chant - Final Chapter Tour (2016) [FLAC|Lossless|im
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364329.jpg" />
+  <img src="Z:/picture/008/save_picture_364329.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Enigma - Love Sensuality Devotion: The Greatest Hits & Remixes (2016) Remastered
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363997.jpg" />
+  <img src="Z:/picture/008/save_picture_363997.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363658.jpg" />
+  <img src="Z:/picture/008/save_picture_363658.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363653.jpg" />
+  <img src="Z:/picture/008/save_picture_363653.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363067.jpg" />
+  <img src="Z:/picture/008/save_picture_363067.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Yoga Music Masters - Life Balance Meditations (2020) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360369.jpg" />
+  <img src="Z:/picture/008/save_picture_360369.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360247.jpg" />
+  <img src="Z:/picture/008/save_picture_360247.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360204.jpg" />
+  <img src="Z:/picture/005/save_picture_360204.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356119.jpg" />
+  <img src="Z:/picture/008/save_picture_356119.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAEA5F61B7C90D11A26D107BBC2DCEBE28CEE5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951832   (355875) от 01.11.2015
-
-Fridrik Karlsson - Chillout Heaven (2006) [APE|tracks+.cue]<New Age, Chillout, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillout Heaven [9:45]
- 02. Rest your Mind [8:37]
- 03. Chillout Zone [10:36]
- 04. In the Moment [10:26](   Читать дальше...   )Жанр: New Age, Chillout, RelaxationПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04C46ECCB286D9C56229842250545559C77B1AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

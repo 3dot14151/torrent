@@ -1,3 +1,29 @@
+###  Публикация: 1043056   (232454) от 28.05.2022
+
+Маршал Жуков против бандитов Одессы. Правда о "Ликвидации" (2007) TVRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1946 год. В стране разруха и нищета, люди начинают умирать от голода. Резко растет преступность. Вооруженные банды грабят не только магазины и склады. Они забирают у людей последнее - одежду, продуктовые карточки, хлеб, обрекая целые семьи на нищету и даже смерть. Обескровленной войной милиции не хватает сил. Именно в тот страшный 1946 год в Одессу направлен маршал (   Читать дальше...   )Телекомпания: Россия, МИРА-ПродакшнЖанр: ДокументальныйФормат: AVIПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66B21DD7D43F239F8D52CEADD7C9BF7021BB405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635651   (232223) от 27.05.2023
 
 Следствие ведёт КГБ (2022-2023) WEBRip [H.264] (фильмы 1-3)
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232223.jpg" />
+  <img src="Z:/picture/004/save_picture_232223.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ RTG. Петербургский музей истории фотографии (
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232162.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ RTG. Исторические кинотеатры Петербурга (2013) H
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232118.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230225.jpg" />
+  <img src="Z:/picture/005/save_picture_230225.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228825.jpg" />
+  <img src="Z:/picture/004/save_picture_228825.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228183.jpg" />
+  <img src="Z:/picture/005/save_picture_228183.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228031.jpg" />
+  <img src="Z:/picture/005/save_picture_228031.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226036.jpg" />
+  <img src="Z:/picture/005/save_picture_226036.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225979.jpg" />
+  <img src="Z:/picture/005/save_picture_225979.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225508.jpg" />
+  <img src="Z:/picture/005/save_picture_225508.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213584.jpg" />
+  <img src="Z:/picture/005/save_picture_213584.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213414.jpg" />
+  <img src="Z:/picture/005/save_picture_213414.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212946.jpg" />
+  <img src="Z:/picture/005/save_picture_212946.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212633.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212614.jpg" />
+  <img src="Z:/picture/005/save_picture_212614.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211567.jpg" />
+  <img src="Z:/picture/005/save_picture_211567.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208180.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207664.jpg" />
+  <img src="Z:/picture/005/save_picture_207664.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207452.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207347.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204613.jpg" />
+  <img src="Z:/picture/004/save_picture_204613.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204553.jpg" />
+  <img src="Z:/picture/004/save_picture_204553.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201461.jpg" />
+  <img src="Z:/picture/005/save_picture_201461.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201401.jpg" />
+  <img src="Z:/picture/005/save_picture_201401.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200317.jpg" />
+  <img src="Z:/picture/005/save_picture_200317.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36EE71930666941105A1DD4ED0C7A41F4D63E185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624527   (200223) от 06.04.2023
-
-Святой архипелаг (2022) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200223.jpg" />
-</div>
-
-
-###  Подробнее
-
-О жизни Соловецкого монастыря — ключевой точки в духовной географии России. Эти места отмечены историческими, культурными и духовными событиями, оставившими глубокий след в нашей истории и народной памяти. В картине затрагиваются глубинные смыслы бытия, веры, надежды и любви — вопросы, важные каждому человеку. Отдельной темой является трагическая, лагерная история (   Читать дальше...   )Производство: Россия, Два капитанаЖанр: документальный, биография, история, природаРежиссер: Сергей ДебижевПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB4CBCE720746D31CFA002C62DC0A0142B5FEDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

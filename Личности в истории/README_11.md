@@ -6,7 +6,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338689.jpg" />
+  <img src="Z:/picture/008/save_picture_338689.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335338.jpg" />
+  <img src="Z:/picture/008/save_picture_335338.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332925.jpg" />
+  <img src="Z:/picture/008/save_picture_332925.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332920.jpg" />
+  <img src="Z:/picture/008/save_picture_332920.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332217.jpg" />
+  <img src="Z:/picture/008/save_picture_332217.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327432.jpg" />
+  <img src="Z:/picture/008/save_picture_327432.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297617.jpg" />
+  <img src="Z:/picture/008/save_picture_297617.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296990.jpg" />
+  <img src="Z:/picture/008/save_picture_296990.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295738.jpg" />
+  <img src="Z:/picture/008/save_picture_295738.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295438.jpg" />
+  <img src="Z:/picture/008/save_picture_295438.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283654.jpg" />
+  <img src="Z:/picture/008/save_picture_283654.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ NG. Три вождя / Inside North Korea's Dynasty (2018) SATRip (1-4 сери
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276286.jpg" />
+  <img src="Z:/picture/008/save_picture_276286.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274345.jpg" />
+  <img src="Z:/picture/008/save_picture_274345.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272548.jpg" />
+  <img src="Z:/picture/008/save_picture_272548.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267723.jpg" />
+  <img src="Z:/picture/008/save_picture_267723.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266947.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264398.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263925.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263774.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259132.jpg" />
+  <img src="Z:/picture/005/save_picture_259132.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257004.jpg" />
+  <img src="Z:/picture/005/save_picture_257004.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255365.jpg" />
+  <img src="Z:/picture/005/save_picture_255365.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253536.jpg" />
+  <img src="Z:/picture/005/save_picture_253536.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ NG. Джон Кеннеди. Семь дней, определивших пре�
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252441.jpg" />
+  <img src="Z:/picture/005/save_picture_252441.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249475.jpg" />
+  <img src="Z:/picture/004/save_picture_249475.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245588.jpg" />
+  <img src="Z:/picture/004/save_picture_245588.jpg" />
 </div>
 
 

@@ -1,3 +1,113 @@
+###  Публикация: 1654302   (205185) от 20.08.2023
+
+Dropzone 4 Pro 4.6.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.08.2023Разработчик: © 2023 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A4452AF964946CB3335A787984B5B434969662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654454   (205183) от 20.08.2023
+
+Folder-Factory 7.2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folders Factory — сделай уникальными свои папочки в OS X.
+«Вам надоели угрюмые одинаково синие папки? С помощь Folders Factory вы сможете легко изменить их цвет, добавить картинки, написать текст или даже сделать оттиск наподобие системных папок».
+Речь идет о замечательном приложении — Folders Factory.
+Единственная и главная функция этой программы — создание уникальных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2023Разработчик: © 2012-2023 TryBestПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3190D28FFDCF5C8FF1A723D32EA9EA0A31E1BFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654500   (205178) от 21.08.2023
+
+Tinderbox 9 v.9.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tinderbox - уникальное приложение для хранения любых записей, мыслей, заметок, планов с возможностью упорядочения, и установления связей между ними для более глубокого понимания. Приложение основано на так называемых агентах, которые отслеживают все связи при добавлении новой информации.
+Tinderbox может автоматически собирать информацию с различных сайтов, обновлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2023Разработчик: © 2023 Eastgate Systems, Inc.Поддерживаемая ОС: macOS X 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96D17A68A76464EB0C545E81C8C48DADB676534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654519   (205165) от 21.08.2023
+
+Pixelmator Pro 3.3.12 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.08.2023Разработчик: © 2017-2023 Pixelmator TeamПоддерживаемая ОС: macOS 11.0Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1900B2F9F8BE845543B975E48E461E1DD9D571D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654598   (205152) от 21.08.2023
 
 VueScan Pro 9.8.15 ARM/Intel [Multi/Ru]
@@ -6,7 +116,7 @@ VueScan Pro 9.8.15 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205152.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205117.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ Lasso 1.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205102.jpg" />
 </div>
 
 
@@ -85,7 +195,7 @@ Integrity Pro 12.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205097.jpg" />
 </div>
 
 
@@ -111,7 +221,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205042.jpg" />
 </div>
 
 
@@ -137,7 +247,7 @@ Sketch 98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205003.jpg" />
 </div>
 
 
@@ -163,7 +273,7 @@ Allavsoft Video Downloader Converter 3.25.8.8624 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204937.jpg" />
 </div>
 
 
@@ -189,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204930.jpg" />
 </div>
 
 
@@ -215,7 +325,7 @@ Stats 2.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204913.jpg" />
 </div>
 
 
@@ -241,7 +351,7 @@ Apeaksoft DVD Creator for Mac 1.0.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204911.jpg" />
 </div>
 
 
@@ -267,7 +377,7 @@ LaunchBar 6 v.6.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204901.jpg" />
 </div>
 
 
@@ -293,7 +403,7 @@ TechSmith Camtasia 2023 Studio 2023.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204886.jpg" />
 </div>
 
 
@@ -319,7 +429,7 @@ Boxy SVG 4.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204868.jpg" />
 </div>
 
 
@@ -345,7 +455,7 @@ Wondershare UniConverter for Mac 15.0.2 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204777.jpg" />
 </div>
 
 
@@ -372,7 +482,7 @@ Dato 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204720.jpg" />
 </div>
 
 
@@ -399,7 +509,7 @@ Mactracker 7.12.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204716.jpg" />
 </div>
 
 
@@ -426,7 +536,7 @@ AnyTrans for iOS 8.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204678.jpg" />
 </div>
 
 
@@ -453,7 +563,7 @@ PhoneRescue for iOS 4.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204661.jpg" />
 </div>
 
 
@@ -479,7 +589,7 @@ Cookie 6.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204622.jpg" />
 </div>
 
 
@@ -506,7 +616,7 @@ Keka 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204556.jpg" />
 </div>
 
 
@@ -532,7 +642,7 @@ Colibri 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204468.jpg" />
 </div>
 
 
@@ -559,7 +669,7 @@ TechSmith Camtasia 2023 Studio 2023.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204461.jpg" />
 </div>
 
 
@@ -570,111 +680,6 @@ Camtasia for Mac — эффективное приложение для созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:823C2BD2561CBFDFBFB3DE58B52C1316457AE03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655313   (204413) от 25.08.2023
-
-Garden Planner 3.8.48 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garden Planner - удобное приложение для проектирования сада Вашей мечты или ландшафта для вашей фазенды. Расположите растения, деревья, постройки и объекты, используя удобный 'drag and drop' интерфейс. Используйте различные инструменты, чтобы быстро создать мощение, дорожки и заборы. Цвет листвы можно изменять. План легко масштабируется. В завершение, вы можете произвести (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2023Разработчик: Artifact InteractiveПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2250F91F3004294E2B6655A5D29F42E874C90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655377   (204396) от 25.08.2023
-
-Master of Typing 3 - Practice 15.13.23 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master of Typing создан для тех, кто хочет научиться печатать вслепую. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 31.05.2023Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C482320ECE8695DA98670D562A8B73F6B78081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655241   (204385) от 25.08.2023
-
-Dropzone 4 Pro 4.6.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.08.2023Разработчик: © 2023 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD056103353EE510030E7768530E3FF3549D463A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655237   (204383) от 25.08.2023
-
-Data Guardian 7 v.7.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.08.2023Разработчик: © 2023 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78C51BE239BE7D4621ED8E553D92DEDB5706706
 ```
 
 https://mybot314.ru/tekegram_catalog/

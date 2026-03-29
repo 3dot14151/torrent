@@ -6,7 +6,7 @@ Format Factory 5.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710882.jpg" />
+  <img src="Z:/picture/008/save_picture_710882.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VidCoder 7.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710880.jpg" />
+  <img src="Z:/picture/008/save_picture_710880.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Secure Eraser Pro 5.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710839.jpg" />
+  <img src="Z:/picture/008/save_picture_710839.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows Repair (All In One) 3.1.4 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710821.jpg" />
+  <img src="Z:/picture/008/save_picture_710821.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BELOFF [dp] 2019.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710800.jpg" />
+  <img src="Z:/picture/008/save_picture_710800.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Luminar 3.0.2.2186 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710744.jpg" />
+  <img src="Z:/picture/008/save_picture_710744.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Core Temp 1.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710740.jpg" />
+  <img src="Z:/picture/008/save_picture_710740.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ GoldWave 6.60 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710737.jpg" />
+  <img src="Z:/picture/008/save_picture_710737.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Simple Sticky Notes 5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710735.jpg" />
+  <img src="Z:/picture/008/save_picture_710735.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ TweakPower 2.009 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710718.jpg" />
+  <img src="Z:/picture/008/save_picture_710718.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ NVIDIA GeForce Desktop 352.63 Beta + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710702.jpg" />
+  <img src="Z:/picture/008/save_picture_710702.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710700.jpg" />
+  <img src="Z:/picture/008/save_picture_710700.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Zettlr 2.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710690.jpg" />
+  <img src="Z:/picture/008/save_picture_710690.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Foxit Reader 7.1.5.425 Portable by PortableAppZ [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710682.jpg" />
+  <img src="Z:/picture/008/save_picture_710682.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Microsoft Windows 10 TP Language Pack build 10074 (x86-x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710632.jpg" />
+  <img src="Z:/picture/008/save_picture_710632.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Microsoft Windows 10 Home Insider Preview 10.0.10074 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710616.jpg" />
+  <img src="Z:/picture/008/save_picture_710616.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Microsoft .NET Framework 4.6 RC DC 19.04.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710609.jpg" />
+  <img src="Z:/picture/008/save_picture_710609.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VeraCrypt 1.24-Update 7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710588.jpg" />
+  <img src="Z:/picture/008/save_picture_710588.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ GetWindowText 4.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710569.jpg" />
+  <img src="Z:/picture/008/save_picture_710569.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Vit Registry Fix Pro 14.7 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710541.jpg" />
+  <img src="Z:/picture/008/save_picture_710541.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ XnView Shell Extension 4.1.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710533.jpg" />
+  <img src="Z:/picture/008/save_picture_710533.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Calibre 2.83 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710521.jpg" />
+  <img src="Z:/picture/008/save_picture_710521.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Microsoft Windows 10 Home Insider Preview 10.0.10074 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710478.jpg" />
+  <img src="Z:/picture/008/save_picture_710478.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Microsoft Windows 10 Enterprise Insider Preview 10.0.10074 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710473.jpg" />
+  <img src="Z:/picture/008/save_picture_710473.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Microsoft Windows 10 Pro / Enterprise Insider Preview 10.0.10074 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710465.jpg" />
+  <img src="Z:/picture/008/save_picture_710465.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Edge Blocker Portable 1.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710425.jpg" />
+  <img src="Z:/picture/008/save_picture_710425.jpg" />
 </div>
 
 

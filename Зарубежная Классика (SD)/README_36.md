@@ -1,3 +1,82 @@
+###  Публикация: 1209551   (779058) от 28.02.2018
+
+Паттон / Patton (1970) BDRip [H.264]
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой фильма - Джордж Паттон, был одним из вдохновителей создания бронетанковых войск США, а в дальнейшем - одним из лучших боевых командиров Второй мировой войны. Генерал Паттон прославился тем, что во время войны не потерпел ни одного поражения. Он командовал Западными бронетанковыми силами в войне в Европе. Это он 22 марта 1945 года начал вторжение в Германию (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, военный, биография, история, экранизацияРежиссер: Франклин Дж. ШаффнерАктеры: Джордж К. Скотт, Карл Молден, Стивен Янг, Майкл Стронг, Кэри Лофтин, Альберт Дюмортиер, Фрэнк Латимор, Морган Полл, Карл Михаэль Фоглер, Билл Хикман, Пэт ЗурикаПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 02:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573E6C510DCEF3BE9556D97193F0C45F0E089AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208944   (778924) от 01.03.2018
+
+Меня зовут Троица / Lo chiamavano Trinita... (1970) BDRip [H.264] [Полная версия]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вольный стрелок Троица, прозванный за умение быстро и метко стрелять «Правой рукой дьявола», приезжает в город, где натыкается на своего сводного брата Бамбино (по кличке «Левая рука дьявола»). Их мать — содержательница публичного дома, в прошлом — проститутка, поэтому братья не знают, кто были их отцы. Бамбино «работает» в городе шерифом (на самом-то деле он — грабитель, (   Читать дальше...   )Производство: Италия / West FilmЖанр: Комедия, ВестернРежиссер: Энцо БарбониАктеры: Теренс Хилл, Бад Спенсер, Стеффен Захариас, Дэн Стёрки, Гизела Хан, Елена Педемонте, Фарли Грейнджер, Эцио Марано, Лучано Росси, Уго СассоПеревод: Многоголосый закадровый, двуголосый закадровый, авторскийСубтитры: Русские(полные, форсированные), английскиеПродолжительность: 01:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB41074D02F9293D0BBAC5A45A69620A5181816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209051   (778811) от 02.03.2018
+
+Скованные одной цепью / The Defiant Ones (1958) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такого рода сюжеты неоднократно появлялись на экранах в разные годы, но всегда неизменно захватывали зрителя и давали отличную кассу. Обычно два абсолютно разных человека вынуждены бежать из тюряги вместе, и дальше их существование и свобода полностью зависят от умения найти общий язык, понять желания другого и примириться с непохожестью товарища по несчастью.
+Вот (   Читать дальше...   )Производство: США / Curtleigh Productions Inc., Stanley Kramer ProductionsЖанр: Драма, триллер, криминалРежиссер: Стэнли КрамерАктеры: Тони Кёртис, Сидни Пуатье, Теодор Бикел, Чарльз МакГроу, Лон Чейни мл., Кинг Донован, Клод Экинс, Лоуренс Добкин, Уит Бисселл, Карл «Алфалфа» Свитцер ...Перевод: Профессиональный (многоголосый закадровый) с DVDСубтитры: ОтсутствуютПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D5205929E92BA02F91872BE1EDE7C0C2FCB054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208987   (778784) от 02.03.2018
 
 Меня все еще зовут Троица / ...continuavano a chiamarlo Trinita (1971) BDRip [H.264] [Полная версия]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778784.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778663.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778648.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778620.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778455.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778210.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777893.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777502.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777434.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777210.jpg" />
+  <img src="Z:/picture/008/save_picture_777210.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777165.jpg" />
+  <img src="Z:/picture/008/save_picture_777165.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777155.jpg" />
+  <img src="Z:/picture/008/save_picture_777155.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776821.jpg" />
+  <img src="Z:/picture/008/save_picture_776821.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776765.jpg" />
+  <img src="Z:/picture/008/save_picture_776765.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775992.jpg" />
+  <img src="Z:/picture/008/save_picture_775992.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775732.jpg" />
+  <img src="Z:/picture/008/save_picture_775732.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774418.jpg" />
+  <img src="Z:/picture/008/save_picture_774418.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774399.jpg" />
+  <img src="Z:/picture/008/save_picture_774399.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774267.jpg" />
+  <img src="Z:/picture/008/save_picture_774267.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774220.jpg" />
+  <img src="Z:/picture/008/save_picture_774220.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774141.jpg" />
+  <img src="Z:/picture/008/save_picture_774141.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774084.jpg" />
+  <img src="Z:/picture/008/save_picture_774084.jpg" />
 </div>
 
 
@@ -586,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773325.jpg" />
+  <img src="Z:/picture/008/save_picture_773325.jpg" />
 </div>
 
 
@@ -597,86 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:049E39721E53C34EFA86B916CA75578F434D2ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121691   (773048) от 13.04.2017
-
-Побег из Алькатраса / Escape from Alcatraz (1979) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общество всегда лелеяло мечту о возведении совершенной тюрьмы, из которой невозможно было бы бежать. И такое заведение удалось построить на острове неподалеку от Сан — Франциско.
-Тюрьма называлась «Алькатрас». Двадцать девять лет считалась она самой надежной тюрьмой США. В ней сидели знаменитые воры, мошенники и даже сам Аль Капоне. Но в один прекрасный день порог (   Читать дальше...   )Производство: СШАЖанр: Драма, криминал, биографияРежиссер: Дон СигелАктеры: Клинт Иствуд, Патрик МакГуэн, Робертс Блоссом, Джек Тибо, Фред Уорд, Пол Бенджамин, Ларри Хэнкин, Брюс М. Фишер, Фрэнк Ронцио, Фред Статмен ...Перевод: Профессиональный многоголосый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7872C0144039D270EBB5DE0AD472E0EFE8217F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274770   (772828) от 24.01.2019
-
-Уилл Пэнни / Will Penny (1967) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый ковбой Уилл Пенни устраивается на работу погонщиком скота, а по возвращению в свою хижину обнаруживает, что она занята незамужней женщиной с сыном-подростком.Производство: США / Paramount PicturesЖанр: Вестерн, МелодрамаРежиссер: Том ГрайзАктеры: Чарлтон Хестон, Джоан Хэккет, Дональд Плезенс, Ли Мэйджорс, Брюс Дерн, Бен Джонсон, Слим Пикенс, Клифтон Джеймс, Энтони Цербе, Рой ДженсонПеревод: Многоголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45167D013E75D87B6D42C29258A704D02F50BFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014415   (772351) от 12.05.2016
-
-Жил-был полицейский / Il еtait une fois un flic... (1972) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комиссар Кампана (по легенде — брат недавно убитого мафиози) отправляется в Ниццу со спецзаданием — найти и обезвредить боссов наркокартеля. Кампана — мрачный крутой мужик, привыкший решать все вопросы кулаком и пистолетом, не любящий женщин и детей, мешающих работе.
- Однако на этот раз руководство решило осложнить ему жизнь — вместе со своей напарницей, очаровательной (   Читать дальше...   )Производство: Италия, Франция / Gaumont International, Rizzoli Film S.p.a.Жанр: Комедия, КриминалРежиссер: Жорж ЛотнерАктеры: Мишель Константен, Мирей Дарк, Микаэль Лонсдаль, Даниэль Ивернель, Венантино Венантини, Джулиано Дисперати, Эрве Ийен, Робер Дальбан, Анри Гибе, Филлис МейджорПеревод: Дублированный, многоголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00A35085DBA34550CABED11036B86BD9D179E93
 ```
 
 https://mybot314.ru/tekegram_catalog/

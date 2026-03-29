@@ -1,3 +1,81 @@
+###  Публикация: 1250801   (225338) от 02.08.2023
+
+Amnesia: The Dark Descent / Амнезия: Призрак прошлого (2010) [Ru/Multi] (1.41b/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остатки памяти исчезают в темноте. Твой разум в смятении, и ты не в силах освободиться от навязчивого чувства преследования. Нужно найти выход. Проснуться... Ты, спотыкаясь, идешь по узкому коридору и слышишь плач вдалеке. Звук приближается. Нужно выяснить... Это действительно кто-то шаркает ногами? Или это просто игра твоего больного воображения?Тип издания: LicenseРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB5E3781B168ECD84650E62CEED6D31519A73F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101767   (225318) от 11.12.2018
+
+Husk (2017) [Ru/Multi] (1.0/upd5) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Husk — это продуманная игра в стиле Survival Horror, в которой говорится о зле, боли и поисках прощения в Шиверклиффе —городе, из которого по неизвестной причине ушли все жители. Эта игра задумана как дань уважения классическим триллерам, таким как «Сайлент Хилл» и «Твин Пикс». Идет 1995 год, ваш персонаж — Мэтью Палмер, и вы только что очнулись после крушения поезда. (   Читать дальше...   )Тип издания: RepackРазработчик: UndeadScoutЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0712906092D5319ECB3722F78C55B39CBCF7C6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336680   (223230) от 02.12.2019
+
+Loco Parentis (2019) [Ru/En] (1.2.0.4856) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Loco Parentis — сюрреалистичный survival-horror, где вам в одиночку, или с другом, предстоит решать загадки и пытаться выжить среди чудовищ внутри бесконечного подъезда.Тип издания: RepackРазработчик: Fair Games StudioЖанр: Adventure (Survival horror), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7435522E5E8D43D729CB2DADB105E7A9FCC35914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342725   (222295) от 03.12.2019
 
 Waxworks (1992) [Multi] (1.0) License GOG
@@ -6,7 +84,7 @@ Waxworks (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222295.jpg" />
+  <img src="Z:/picture/005/save_picture_222295.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221731.jpg" />
+  <img src="Z:/picture/005/save_picture_221731.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221509.jpg" />
+  <img src="Z:/picture/005/save_picture_221509.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Lake Ridden (2018) [En] (1.5.1505) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220225.jpg" />
+  <img src="Z:/picture/005/save_picture_220225.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Guest (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220157.jpg" />
+  <img src="Z:/picture/005/save_picture_220157.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219988.jpg" />
+  <img src="Z:/picture/005/save_picture_219988.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219631.jpg" />
+  <img src="Z:/picture/005/save_picture_219631.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219121.jpg" />
+  <img src="Z:/picture/005/save_picture_219121.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Pale Beyond (2023) [En] (1.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217515.jpg" />
+  <img src="Z:/picture/005/save_picture_217515.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217481.jpg" />
+  <img src="Z:/picture/005/save_picture_217481.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217261.jpg" />
+  <img src="Z:/picture/005/save_picture_217261.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Republique Remastered: Fall Edition (2015) [Ru/Multi] (1.0) Repack R.G. Меха
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216942.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216418.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ DarkHouse (2021) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216196.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Wolfstride (2021) [Ru/Multi] (1.2.1) License GOG [Golden God Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216191.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ House on the Hill (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215358.jpg" />
+  <img src="Z:/picture/005/save_picture_215358.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215319.jpg" />
+  <img src="Z:/picture/005/save_picture_215319.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215177.jpg" />
+  <img src="Z:/picture/005/save_picture_215177.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215115.jpg" />
+  <img src="Z:/picture/005/save_picture_215115.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 7575778/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_214268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214268.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213968.jpg" />
+  <img src="Z:/picture/005/save_picture_213968.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (s106) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212772.jpg" />
+  <img src="Z:/picture/005/save_picture_212772.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ LEGO Indiana Jones: The Original Adventures (2008) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212744.jpg" />
+  <img src="Z:/picture/005/save_picture_212744.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ LEGO Indiana Jones: The Original Adventures – аркадная приключ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562402   (212739) от 09.07.2022
-
-Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте за Флинта, который, как может, присматривает за парком своей бабушки, чтобы он стал отличным местом для отдыха. Обустраивайте парк по вкусу туристов и стройте то, о чем они просят. Вас ждут причудливые персонажи, занимательные диалоги и интересные задания. Знакомьтесь с туристами и узнавайте о старых тайнах, связанных с лесом. Ищите спрятанное сокровище. (   Читать дальше...   )Тип издания: LicenseРазработчик: Fabien WeibelЖанр: Action, Ролевая игра, ExplorationЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1350A8683EEA11EF24504E3BDA724C918B4EB9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831044   (212531) от 28.10.2025
-
-Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для вас сбывается самый большой страх контрабандиста - попасть в зону отчуждения, двадцать миль смерти и разложения, окружённые нависающими, удушающими стенами, воздвигнутыми после коллапса. Одинокая, потерянная, с ограниченными ресурсами - таково ваше текущее положение в зоне. Вам придётся решать загадки на местности, контролировать ресурсы и бороться за жизнь и (   Читать дальше...   )Тип издания: RepackРазработчик: Headware GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, ЯпонскийЯзык интерфейса: Русский, Английский, Испанский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3985C8880E4E3C3DC634DF5F24E743A85E73FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565761   (211978) от 25.07.2022
-
-Sinking Island (2007) [Ru/Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бенуа Сокаль – признанный мастер жанра адвенчур, подаривший миру компьютерных игр множество незабываемых персонажей и прекрасных сюжетов. В 2002 году мы путешествовали по заснеженным пустошам Syberia, в 2006 – исследовали таинственные джунгли в Paradise, сейчас пришло время для нового приключения.Тип издания: LicenseРазработчик: White Birds ProductionsЖанр: Adventure, Point-and-click, MysteryЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB113710CC96CD461FF87575FFC4742146ABED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

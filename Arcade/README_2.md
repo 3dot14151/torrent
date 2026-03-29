@@ -1,3 +1,29 @@
+###  Публикация: 1324170   (1033099) от 07.02.2021
+
+Jump Force (2019) [Ru/Multi] (2.05/dlc) Repack xatab [Ultimate Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Граница, отделяющая наш мир от иных измерений, размыта как никогда. Темное воинство хлынуло на Землю. Человечеству грозит невероятная опасность, и лишь величайшим героям под силу встать на его защиту.Тип издания: RepackРазработчик: Spike ChunsoftЖанр: Action, FightingЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7E796444DC78B6916F7DF8C48D9CF1C217E945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445314   (1032812) от 08.02.2021
 
 Blue Fire (2021) [Ru/Multi] (3.0.8) Repack Other s
@@ -6,7 +32,7 @@ Blue Fire (2021) [Ru/Multi] (3.0.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032812.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Warhammer 40,000: Dakka Squadron (2021) [Ru/En] (153773 PCS) Repack Other s [Fly
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030080.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Cyberia (1994) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026178.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kosmokrats (2020) [Ru/Multi] (1.2) Repack SpaceX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024838.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Puyo Puyo Tetris 2 (2021) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024300.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ WarriOrb (2020) [Ru/Multi] (1.3) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020069.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (3.11) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019384.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Hotline Miami (2012) [Ru/Multi] (46452) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019373.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ REDEEMER (2019) [Ru/Multi] (2.2) Repack Other s [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017987.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Pumpkin Jack (2020) [Ru/Multi] (1.4.6) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017176.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017170.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Mayhem in Single Valley (2021) [Ru/Multi] (4.0.00) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013443.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Ghosts 'n Goblins Resurrection (2021) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013110.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Wing of Darkness (2021) [Multi] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012797.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Last Kids on Earth and the Staff of Doom (2021) [Multi] (1.0) License Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012477.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Guilty Gear -Strive- (2021) [Multi] (Build 6841150/dlc) License Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011382.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Alekon (2021) [En] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009769.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Police Stories (2019) [Ru/Multi] (1.3.2) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007208.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005139.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Intravenous (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004917.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004828.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.0.3) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004822.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Harry Potter and the Philosopher's Stone / Гарри Поттер и Филос
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004785.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.308.05.126703.1/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003276.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Street Fighter V (2016) [Ru/Multi] (07.011/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003270.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Street Fighter V (2016) [Ru/Multi] (07.011/dlc) Repack Necros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D41B192395426A9767B3B28378FDD5A4F149CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487723   (1003030) от 07.08.2021
-
-Dodgeball Academia (2021) [Ru/Multi] (1.2) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортивная ролевая игра о начинающем спортсмене Отто, который вместе с разношёрстной командой друзей учится побеждать и на учебной площадке, и вне её. В мире, где игра в вышибалы — это целая жизнь, вам нужно играть за Отто, который учится в академии и хочет стать величайшим чемпионом вышибал. В игре восемь глав, в ходе которых нужно собрать лучшую спортивную команду, (   Читать дальше...   )Тип издания: LicenseРазработчик: Pocket TrapЖанр: Спорт, Ролевая игра, ДрамаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690D22469E246661B7FD6D348B38C50498570408
 ```
 
 https://mybot314.ru/tekegram_catalog/

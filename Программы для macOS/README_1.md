@@ -1,3 +1,136 @@
+###  Публикация: 1606153   (1044626) от 20.01.2023
+
+AnyMP4 DVD Converter for Mac 8.2.18 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044626.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 MP4 Converter, самое популярное и универсальное программное обеспечение MP4 Converting, предлагает возможность конвертировать любые DVD и видео в MP4. Поддерживаемые форматы: MPG, AVI, 3GP, WMV, MOV, M4V, MKV, MTS, TS, DivX, XviD, VOB, AMV, ASF и SWF и т. Д. Благодаря этому удивительному конвертеру MP4 пользователи могут легко наслаждаться выводом MP4. файл (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2023Разработчик: © 2023 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72EC3B09D8B20297C0C6CCA1E519985C962BF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607948   (1043859) от 28.01.2023
+
+Action 1.1.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Action - это лаунчер действий, который ускорит работу на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2023Разработчик: © 2017-2023 Jan ValtaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634491A12BEDA75A061DB112600F98846CAB667D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607953   (1043856) от 28.01.2023
+
+zGallery – Image Viewer 4.61 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043856.jpg" />
+</div>
+
+
+###  Подробнее
+
+zGallery - это элегантное программное обеспечение, которое показывает, просматривает и редактирует изображения и фотографии в вашей папке и на диске.
+zGallery - это действительно быстрая загрузка и отображение изображений, а также важные функции редактирования.
+Знакомый интерфейс, такой как дерево папок и просмотр эскизов, позволяет быстро находить изображения или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2023Разработчик: © 2022 woojooinПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773A35ACEC6C82E11CA0EAAFE84264E17494C450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608012   (1043855) от 28.01.2023
+
+Bigasoft iMovie Converter for Mac 5.7.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft iMovie Converter, профессиональный конвертер видео iMovie, специально разработан для преобразования всех видов фильмов, включая AVI, MTS, MKV, FLV, MOD и другие, в MP4 для быстрого импорта в iMovie на Mac OS X Lion, Snow Leopard, Tiger, и Леопард.
+Мощный конвертер видео для iMovie позволяет легко конвертировать и быстро импортировать все видеоклипы в форматах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2023Разработчик: © 2022 Bigasoft CorporationПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957810887FA72E136C25A5E4816BEB8019AA8FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607950   (1043839) от 28.01.2023
+
+zCommander - File Manager for Mac 6.27 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043839.jpg" />
+</div>
+
+
+###  Подробнее
+
+zCommander - мощный, быстрый, функциональный, с удобным и симпатичным интерфейсом, менеджер файлов, который сделает процедуру управления файлами на вашем Mac простой и удобной, особенно для тех пользователей, какие совсем недавно перешли на платформу macOS.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2023Разработчик: © 2021 woojooinПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский и Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81BC3C6B215A3E5E69C4BE77D187D6D91052BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608074   (1043836) от 28.01.2023
 
 UltraEdit 22.0.0.17 [Multi]
@@ -6,7 +139,7 @@ UltraEdit 22.0.0.17 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043836.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Real Keyboard Cleaner for Mac 1.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043747.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ Transparent Teleprompter for Mac 2.02 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043738.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ Wondershare PDFelement Pro OCR 9.2.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043698.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ SQLPro for Postgre 2023.06 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043632.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ Icon Maker Pro for Mac 2.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043565.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ TG Pro (Temperature Gauge Pro) 2.78 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043548.jpg" />
 </div>
 
 
@@ -192,7 +325,7 @@ Luminar Neo 1.6.4 ARM [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043445.jpg" />
 </div>
 
 
@@ -218,7 +351,7 @@ Luminar Neo 1.6.4 U2B [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043434.jpg" />
 </div>
 
 
@@ -244,7 +377,7 @@ iBoysoft MagicMenu for Mac 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043423.jpg" />
 </div>
 
 
@@ -271,7 +404,7 @@ Smart Storage Manager for Mac 1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043379.jpg" />
 </div>
 
 
@@ -297,7 +430,7 @@ Photomatix Pro 7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043373.jpg" />
 </div>
 
 
@@ -324,7 +457,7 @@ AnyMP4 Screen Recorder for Mac 2.1.26 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043363.jpg" />
 </div>
 
 
@@ -350,7 +483,7 @@ Meta 2.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043352.jpg" />
 </div>
 
 
@@ -377,7 +510,7 @@ A Better Finder Rename 11 v.11.58 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043350.jpg" />
 </div>
 
 
@@ -404,7 +537,7 @@ GM Reader Pro 2.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043279.jpg" />
 </div>
 
 
@@ -430,7 +563,7 @@ Serial Box & SerialSeeker 2023 - 02 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043250.jpg" />
 </div>
 
 
@@ -458,7 +591,7 @@ Receipts 1.9.19 Beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043179.jpg" />
 </div>
 
 
@@ -485,7 +618,7 @@ TechSmith Snagit 2021.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042033.jpg" />
 </div>
 
 
@@ -511,7 +644,7 @@ WidsMob Panorama 3.21 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042028.jpg" />
 </div>
 
 
@@ -538,7 +671,7 @@ Boom 2 v1.6.13 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041945.jpg" />
 </div>
 
 
@@ -549,138 +682,6 @@ Boom 2 является уникальным приложением для пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6274AD7FFB8CB7FCD86BC6A3FD0FBCF5F7EC8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437992   (1041762) от 06.01.2021
-
-UctoX 2 v2.8.4 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041762.jpg" />
-</div>
-
-
-###  Подробнее
-
-UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
-Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
-Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.01.2021Разработчик: Krystof VasaПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D696EA6900BB710AC5AD706EA54CF7FB4B79C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437839   (1041759) от 06.01.2021
-
-Movie Collector 20.2.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог ваших фильмов, книг, музыки, комиксов и видеоигр. Просто введите названия или отсканируйте штрих-коды для автоматической детализации элемента и изображения обложки. Все программные решения (для настольных компьютеров, онлайн или мобильных устройств) поставляются с бесплатным облачным хранилищем CLZ для сбора данных. Используйте облачное хранилище CLZ для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2021Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EC242B18A8D48F277CFB51CBC3ED552E81F192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437837   (1041757) от 06.01.2021
-
-Comic Collector 20.2.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comic Collector каталогизирует ваши комиксы автоматически, без ввода. Просто введите название серии и выберите свои выпуски, чтобы загрузить все данные из нашей онлайн-базы данных комиксов Collectorz.com, включая издателя, дату публикации, создателей, персонажа, жанр и обложку. Просматривайте свою коллекцию по сериям, издателям, художникам и т. д. или используйте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2021Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378B0B834DA0EEC6D700F31F174BE836BAD9CA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437841   (1041753) от 06.01.2021
-
-Music Collector 20.2.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Collector позволяет автоматически каталогизировать ваши компакт-диски в базе данных. Просто вставьте компакт-диск в привод CD-ROM, отсканируйте его штрих-код или введите исполнителя и название, чтобы загрузить все данные из различных источников в Интернете. Используйте встроенную поддержку TWAIN для сканирования изображений обложек непосредственно в приложение. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2021Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4078FE8E668FE3310444DEB74874BCAF42E0D8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437999   (1041749) от 06.01.2021
-
-WeClean Pro 3.3.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041749.jpg" />
-</div>
-
-
-###  Подробнее
-
-WeClean может очищать корзину, журналы и файлы кэша, чтобы освободить место на жестком диске. Его Duplicates и Old Files Finder могут дополнительно очистить больше места для пользователей. Uninstaller может удалить файлы, связанные с приложением.Тип издания: macOS SoftwareРелиз состоялся: 10.02.2020Разработчик: FMX CO., LTD.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4760EE28B503D028F73ECBC4357D2AEF279C1EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

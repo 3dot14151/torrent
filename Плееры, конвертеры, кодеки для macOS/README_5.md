@@ -1,3 +1,108 @@
+###  Публикация: 1219610   (711121) от 15.04.2018
+
+Movavi Video Converter 8.3.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_711121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальное приложение для конвертации видео, фото и аудио на macOS! Movavi Конвертер Видео поможет сохранить ваши медиафайлы в любой формат и экспортировать их для мобильных устройств, чтобы вы могли наслаждаться любимыми фильмами и музыкой, где бы вы ни находились. При этом пользоваться нашим видеоконвертером невероятно просто: загрузите файлы в программу, укажите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2018Разработчик: MovaviПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55B8694496985E4D4E85812D7BDFB4B5F82C6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287470   (703473) от 07.03.2019
+
+Elimisoft PDF Creator 1.0.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как преобразовать Word (.docx) в PDF-файлы? В отличие от других приложений, Elimisoft PDF Creator - это отличный способ помочь вам создавать PDF из Word (.docx), PowerPoint (.pptx), простого текста, RTFD, HTML, EPUB и изображений (.png, .gif,. TIF, JPEG и т. д.).
+Он также сохраняет исходное форматирование после создания!Тип издания: macOS SoftwareРелиз состоялся: 07.03.2019Разработчик: ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB9F476498A88F595C4FDA534EC138616D670FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288537   (695663) от 11.03.2019
+
+SPlayerX 4.1.2 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695663.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPlayerX - легкий, с отличной производительностью, видео плеер, который способен воспроизводить практически все виды популярных мультимедийных файлов, включая - mpg, mpeg, mpeg 2, vob, dat, mp4, m4v, ts, rm, rmvb, wmv, asf, mkv, avi, 3gp, 3g2, flv, mov, h264/x264, h265/x265/HEVC 1080p/720p HD video и др. Помимо всех типичных функций, таких как качества видео - тюнер (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2019Разработчик: Sagittarius Technology Co. LtdПоддерживаемая ОС: macOS 10.10 или вышееЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292FB25E10433A42E39E7B8E65DF2030D5793118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403160   (694033) от 18.08.2020
+
+Audirvana 3.5.39 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.08.2020Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9EB016FD7C8CB77D47A61B49653E800697B5F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133661   (693140) от 13.05.2017
 
 myTuner Radio Pro 2.0 [En]
@@ -6,7 +111,7 @@ myTuner Radio Pro 2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693140.jpg" />
+  <img src="Z:/picture/008/save_picture_693140.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ iTube Studio 7.4.7 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692391.jpg" />
+  <img src="Z:/picture/008/save_picture_692391.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Any Video Converter Ultimate 6.1.10 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690048.jpg" />
+  <img src="Z:/picture/008/save_picture_690048.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ Total Video Player Pro 2.9.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686792.jpg" />
+  <img src="Z:/picture/008/save_picture_686792.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ Aimersoft Video Suite 12.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686704.jpg" />
+  <img src="Z:/picture/008/save_picture_686704.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ YouTubeHunter Pro 5.6.5 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684190.jpg" />
+  <img src="Z:/picture/008/save_picture_684190.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ JustBroadcaster YTEd 1.7.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679144.jpg" />
+  <img src="Z:/picture/008/save_picture_679144.jpg" />
 </div>
 
 
@@ -196,7 +301,7 @@ Kigo Video Converter Ultimate 6.1.5 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678959.jpg" />
+  <img src="Z:/picture/008/save_picture_678959.jpg" />
 </div>
 
 
@@ -224,7 +329,7 @@ SPlayerX 1.2.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674146.jpg" />
+  <img src="Z:/picture/008/save_picture_674146.jpg" />
 </div>
 
 
@@ -252,7 +357,7 @@ MP4tools 3.6.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673007.jpg" />
 </div>
 
 
@@ -281,7 +386,7 @@ MPV 0.18 (git-c57304a) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671963.jpg" />
 </div>
 
 
@@ -307,7 +412,7 @@ TryToMP3 4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666727.jpg" />
+  <img src="Z:/picture/008/save_picture_666727.jpg" />
 </div>
 
 
@@ -334,7 +439,7 @@ MP4Tools 3.7.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664408.jpg" />
+  <img src="Z:/picture/008/save_picture_664408.jpg" />
 </div>
 
 
@@ -362,7 +467,7 @@ Any DVD Ripper Pro v3.7.89 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664198.jpg" />
+  <img src="Z:/picture/008/save_picture_664198.jpg" />
 </div>
 
 
@@ -390,7 +495,7 @@ Any FLAC Converter v3.8.29 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664134.jpg" />
+  <img src="Z:/picture/008/save_picture_664134.jpg" />
 </div>
 
 
@@ -418,7 +523,7 @@ Tipard Video Converter Ultimate v9.1.16 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663105.jpg" />
+  <img src="Z:/picture/008/save_picture_663105.jpg" />
 </div>
 
 
@@ -444,7 +549,7 @@ Replay Converter 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662400.jpg" />
+  <img src="Z:/picture/008/save_picture_662400.jpg" />
 </div>
 
 
@@ -471,7 +576,7 @@ Replay Music 3.0.2 U2B 3.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662392.jpg" />
+  <img src="Z:/picture/008/save_picture_662392.jpg" />
 </div>
 
 
@@ -498,7 +603,7 @@ Replay Media Catcher 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662306.jpg" />
+  <img src="Z:/picture/008/save_picture_662306.jpg" />
 </div>
 
 
@@ -525,7 +630,7 @@ Replay Video Capture 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662305.jpg" />
+  <img src="Z:/picture/008/save_picture_662305.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ Mac Video Downloader 2.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655118.jpg" />
+  <img src="Z:/picture/008/save_picture_655118.jpg" />
 </div>
 
 
@@ -581,7 +686,7 @@ Avdshare Video Converter for Mac 7 v7.4.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655022.jpg" />
+  <img src="Z:/picture/008/save_picture_655022.jpg" />
 </div>
 
 
@@ -592,111 +697,6 @@ Avdshare Video Converter, приложение для конвертирован
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31738E9E41A5DD3316E1B79D43B775C8CCE575E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540208   (654998) от 28.03.2022
-
-ViWizard Audible AA / AAX Converter for Mac 2.3.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654998.jpg" />
-</div>
-
-
-###  Подробнее
-
-ViWizard Audible AA / AAX Converter - один из самых умных конвертеров аудиокниг, с которым может легко справиться любой пользователь Audible. Благодаря передовому и уникальному процессору дешифрования, ViWizard Audible Audiobook Converter для Mac разработан для полной и независимой загрузки любых аудиокниг Audible AA, AAX без предварительной авторизации вашей учетной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2021Разработчик: © 2022 ViWizardПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5A21803E5DD66C075BC45719E3E1F293507C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140748   (654855) от 07.06.2017
-
-Simple Recorder Pro 1.5 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете найти его значок в меню справа. Нажмите его, чтобы открыть меню. Вы найдете этот значок в панели инструментов. Нажмите на этот значок, чтобы начать запись, а также чтобы ее окончить. Нажмите на правую кнопку мыши (или command) и значок, чтобы открыть меню.Тип издания: OS X SoftwareРелиз состоялся: 31 марта 2017Разработчик: Happy TapПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английскийи др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E599BDCD9BA0CEF43FB5637F034263E98BB94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140635   (654682) от 07.06.2017
-
-IINA 0.0.11 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2017Разработчик: Collider LIПоддерживаемая ОС: macOS 10.10+, 10.12 RecommendedЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1014D9DDE4FFD7AF00ED8FDA881F10B0BDC97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140581   (654562) от 07.06.2017
-
-DivX Pro 10.8.2 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654562.jpg" />
-</div>
-
-
-###  Подробнее
-
-DivX Pro - универсальное решение, позволяющее смотреть, создавать и транслировать высококачественное HD-видео в формате DivX HEVC с разрешением до 1080p.
-DivX Pro — это пакет кодеков (DivX, H.264, AAC и MKV). В состав также входит DivX H.264 Decoder для аппаратного ускорения с помощью DXVA (DirectX Video Acceleration) - это дает возможность смотреть видео высокой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.05.2017Разработчик: Rovi CorporationПоддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: Русский, Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2A0D78BB205F37C8CB2DEDFEB7E600D037DE20
 ```
 
 https://mybot314.ru/tekegram_catalog/

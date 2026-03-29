@@ -6,7 +6,7 @@ WinUtilities Professional Edition 15.22 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709864.jpg" />
+  <img src="Z:/picture/008/save_picture_709864.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ USDownloader 1.3.5.9 Portable (11.06.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709837.jpg" />
+  <img src="Z:/picture/008/save_picture_709837.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Motorhead - Clean Your Clock (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709832.jpg" />
+  <img src="Z:/picture/008/save_picture_709832.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709828.jpg" />
+  <img src="Z:/picture/008/save_picture_709828.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709827.jpg" />
+  <img src="Z:/picture/008/save_picture_709827.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Boxshot Ultimate 4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709825.jpg" />
+  <img src="Z:/picture/008/save_picture_709825.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709817.jpg" />
+  <img src="Z:/picture/008/save_picture_709817.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Glarysoft Malware Hunter PRO 1.56.0.634 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709774.jpg" />
+  <img src="Z:/picture/008/save_picture_709774.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ SoftPerfect RAM Disk 4.0.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709766.jpg" />
+  <img src="Z:/picture/008/save_picture_709766.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Parking Star 1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709755.jpg" />
+  <img src="Z:/picture/005/save_picture_709755.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709728.jpg" />
+  <img src="Z:/picture/008/save_picture_709728.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ PrefEdit 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709727.jpg" />
+  <img src="Z:/picture/008/save_picture_709727.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Mail Designer Pro 3 v3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709723.jpg" />
+  <img src="Z:/picture/008/save_picture_709723.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ AIMP 4.02 Build 1725 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709722.jpg" />
+  <img src="Z:/picture/008/save_picture_709722.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ ZD Soft Screen Recorder 9.7 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709715.jpg" />
+  <img src="Z:/picture/008/save_picture_709715.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Dism++ 10.1.1000.70 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709641.jpg" />
+  <img src="Z:/picture/008/save_picture_709641.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709602.jpg" />
+  <img src="Z:/picture/005/save_picture_709602.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ RarmaRadio Pro 2.70.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709585.jpg" />
+  <img src="Z:/picture/008/save_picture_709585.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bishoujo Yuugi Unit Crane Game / Красотки, играющие в Волш�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709583.jpg" />
+  <img src="Z:/picture/008/save_picture_709583.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ UC Browser 5.6.13108.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709574.jpg" />
+  <img src="Z:/picture/008/save_picture_709574.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Yate 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709547.jpg" />
+  <img src="Z:/picture/008/save_picture_709547.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709546.jpg" />
+  <img src="Z:/picture/008/save_picture_709546.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Xversion 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709543.jpg" />
+  <img src="Z:/picture/008/save_picture_709543.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Duplicate File Finder Pro 6.7.4 (build 348) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709539.jpg" />
+  <img src="Z:/picture/008/save_picture_709539.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Creative Convert 1.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709538.jpg" />
+  <img src="Z:/picture/008/save_picture_709538.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Timemator 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709537.jpg" />
+  <img src="Z:/picture/008/save_picture_709537.jpg" />
 </div>
 
 

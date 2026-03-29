@@ -1,3 +1,87 @@
+###  Публикация: 1630855   (245362) от 03.05.2023
+
+Сатисъ | Акафистник на всякую потребу души (2009) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафист – это хвалебное молитвенное песнопение во славу Господа, Богородицы или святых. В молитвенной практике Восточной Церкви такие песнопения появились еще в VII веке в Византии. С течением времени акафисты получили широкое распространение и являются любимым православными людьми видом молитвенного предстояния.
+
+В предлагаемом сборнике собраны акафисты для обращения (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1606705916FFEB05AB408389EB288F56D4DF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631202   (245254) от 04.05.2023
+
+Сатисъ | Молитвослов православной семьи (2017) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молитва семьи, как молитва малой Церкви Христовой, угодна Богу, радует ангелов, стремительно восходит к небесам. Православной семье, для помощи в молитве, и преподносит наше издательство сей Молитвослов – если не на все, то на многие случаи жизни.
+
+Да будут молитвы наших семей благоугодны и благоприятны Богу Вышнему!Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB7352FED1F41C4EFF5C9B06F16970FD458A01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624244   (245248) от 05.04.2023
+
+Монах Иосиф Дионисиатис | Старец Арсений Пещерник, сподвижник Иосифа Исихаста (2002) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245248.jpg" />
+</div>
+
+
+###  Подробнее
+
+К старцу Арсению поистине может быть отнесено евангельское: вот подлинно Израильтянин, в котором нет лукавства. От природы он был прямым, простым, беззлобным, кротким, послушным и исключительно редким подвижником, также и нестяжательным. К старцу Арсению всегда можно было отнести евангельское: да, да; нет, нет.
+
+Никогда он не злопамятствовал, что бы ты ему ни сделал, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D060C48EAE1E96BE519126B2F75A00BED40EEB55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624241   (245225) от 05.04.2023
 
 Протоиерей Валентин Свенцицкий | Диалоги (2015) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +90,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245225.jpg" />
+  <img src="Z:/picture/004/save_picture_245225.jpg" />
 </div>
 
 
@@ -34,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245187.jpg" />
+  <img src="Z:/picture/004/save_picture_245187.jpg" />
 </div>
 
 
@@ -62,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245138.jpg" />
+  <img src="Z:/picture/004/save_picture_245138.jpg" />
 </div>
 
 
@@ -90,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245074.jpg" />
+  <img src="Z:/picture/004/save_picture_245074.jpg" />
 </div>
 
 
@@ -116,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244980.jpg" />
+  <img src="Z:/picture/004/save_picture_244980.jpg" />
 </div>
 
 
@@ -142,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244884.jpg" />
+  <img src="Z:/picture/004/save_picture_244884.jpg" />
 </div>
 
 
@@ -170,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244809.jpg" />
+  <img src="Z:/picture/004/save_picture_244809.jpg" />
 </div>
 
 
@@ -199,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244646.jpg" />
+  <img src="Z:/picture/004/save_picture_244646.jpg" />
 </div>
 
 
@@ -227,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244637.jpg" />
+  <img src="Z:/picture/004/save_picture_244637.jpg" />
 </div>
 
 
@@ -253,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244620.jpg" />
+  <img src="Z:/picture/004/save_picture_244620.jpg" />
 </div>
 
 
@@ -279,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244579.jpg" />
+  <img src="Z:/picture/004/save_picture_244579.jpg" />
 </div>
 
 
@@ -305,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244571.jpg" />
+  <img src="Z:/picture/004/save_picture_244571.jpg" />
 </div>
 
 
@@ -331,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244499.jpg" />
+  <img src="Z:/picture/004/save_picture_244499.jpg" />
 </div>
 
 
@@ -359,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244390.jpg" />
 </div>
 
 
@@ -387,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244281.jpg" />
 </div>
 
 
@@ -413,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244248.jpg" />
 </div>
 
 
@@ -441,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244083.jpg" />
 </div>
 
 
@@ -467,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244021.jpg" />
+  <img src="Z:/picture/004/save_picture_244021.jpg" />
 </div>
 
 
@@ -493,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243969.jpg" />
+  <img src="Z:/picture/004/save_picture_243969.jpg" />
 </div>
 
 
@@ -519,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243920.jpg" />
+  <img src="Z:/picture/004/save_picture_243920.jpg" />
 </div>
 
 
@@ -547,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243916.jpg" />
+  <img src="Z:/picture/004/save_picture_243916.jpg" />
 </div>
 
 
@@ -575,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243799.jpg" />
+  <img src="Z:/picture/004/save_picture_243799.jpg" />
 </div>
 
 
@@ -601,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243761.jpg" />
+  <img src="Z:/picture/004/save_picture_243761.jpg" />
 </div>
 
 
@@ -612,84 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC5D9A313AC262E86D54C30C4DDC2D8898A52A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611535   (243753) от 12.02.2023
-
-Святитель Василий Великий | Слова подвижнические (2001) [FB2, PDF, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеми же начинаниями да руководит вера в Бога и да сопутствует ей благая надежда, чтобы верою укреплять нам в себе душевную силу, а благою надеждою возбуждать в себе усердие к доброму. Ибо человеческое начинание в рассуждении доброго не совершится без помощи свыше, а вышняя благодать не снизойдёт на того, кто не прилагал о сем старания. Напротив того, в совершении (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7649E255625A024E67E95E30AD27A9C2C7D4408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455609   (243732) от 19.03.2021
-
-Юлия Варенцова | День Ангела. Рассказы о святых (2021) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательный рассказ о необыкновенных и очень разных судьбах святителей и угодников, мучеников и преподобных. Попытка воссоздания их живого образа, внимательная реконструкция биографии героев в контексте той или иной исторической эпохи. Мы нашли отголоски жизней святых в современности, побывали в местах, где они родились, проповедовали и несли свой подвиг. Мы устроили (   Читать дальше...   )Жанр: Биографии и мемуары, Православие, ХристианствоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DE89F5FCBA51C314F51CE927530A8D52B0738C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076875   (243712) от 26.11.2016
-
-К.С. Дружинина | Концепция прав и свобод человека в Русской Православной Церкви в контексте мировой политики (2013) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243712.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии рассматриваются современная концепция достоинства, прав и свобод человека, разработанная в Русской Православной Церкви, и практическая правозащитная деятельность последней. Автор дает комплексный обзор теоретических положений концепции, анализирует деятельность Церкви по ее реализации, рассматривает существующую критику православной концепции прав человека, (   Читать дальше...   )Жанр: МонографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B4AB27D077A52DAF5056E805F6C252B861D92D
 ```
 
 https://mybot314.ru/tekegram_catalog/

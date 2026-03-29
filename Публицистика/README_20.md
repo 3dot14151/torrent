@@ -1,3 +1,83 @@
+###  Публикация: 1383038   (815439) от 13.05.2020
+
+Микки Нокс | Меня зовут Джеффри Дамер. Подлинная история серийного убийцы (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815439.jpg" />
+</div>
+
+
+###  Подробнее
+
+История самого известного в мире «высокоактивного психопата». Коэффициент интеллекта Джеффри Дамера – высочайший среди серийных убийц и один из самых высоких в истории Штатов. Обладая внешностью актера и интеллектом гения, он работал на заводе и бредил мыслями о создании армии зомби. Когда полиция поймала его, он был счастлив, потому как сознавал, что попросту не (   Читать дальше...   )Жанр: Биографии и мемуары, Криминология, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD955842670F9963A401204FDE07CE2ADDF8EACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383041   (815311) от 13.05.2020
+
+Валерий Шамбаров | «Пятая колонна» и Русская Церковь. Век гонений и расколов (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда рухнул СССР, один из главных организаторов этой операции Збигнев Бжезинский заявил: «У нас теперь один враг – Русская Православная Церковь». Хотя она и от коммунистических властей терпела гонения! Парадокс? Нет. Западные правительства, спецслужбы и «закулиса» во все времена нацеливались разрушить не политическую систему в нашей стране, а историческую Россию (   Читать дальше...   )Жанр: История Православной Церкви, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD1FB12CEA212E4D901CFBD5C203396BDE6A644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008396   (815249) от 18.04.2016
+
+Николай Стариков | 1917. Разгадка «русской» революции (2012) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибель Российской империи в 1917 году не была случайностью, как не случайно рассыпался и Советский Союз. В обоих случаях мощная внешняя сила инициировала распад России, используя подлецов и дураков, которые за деньги или красивые обещания в итоге разрушили свою собственную страну.
+
+История этой величайшей катастрофы до сих пор во многом загадочна, и вопросов здесь (   Читать дальше...   )Жанр: История, Публицистика, Социальная психологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DC814EC3FE94F3261EA3AF94DEE290994BE836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383112   (813879) от 14.05.2020
 
 В. В. Вольский, Ю. А. Колосова (ред.) | Международное географическое разделение труда в капиталистическом мире (1981) [DJVU]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813879.jpg" />
+  <img src="Z:/picture/008/save_picture_813879.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813744.jpg" />
+  <img src="Z:/picture/008/save_picture_813744.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811729.jpg" />
+  <img src="Z:/picture/008/save_picture_811729.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811611.jpg" />
+  <img src="Z:/picture/008/save_picture_811611.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811558.jpg" />
+  <img src="Z:/picture/008/save_picture_811558.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809833.jpg" />
+  <img src="Z:/picture/008/save_picture_809833.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808917.jpg" />
+  <img src="Z:/picture/008/save_picture_808917.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808895.jpg" />
+  <img src="Z:/picture/008/save_picture_808895.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807970.jpg" />
+  <img src="Z:/picture/008/save_picture_807970.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807461.jpg" />
+  <img src="Z:/picture/008/save_picture_807461.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806395.jpg" />
+  <img src="Z:/picture/008/save_picture_806395.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806362.jpg" />
+  <img src="Z:/picture/008/save_picture_806362.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806346.jpg" />
+  <img src="Z:/picture/008/save_picture_806346.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806288.jpg" />
+  <img src="Z:/picture/008/save_picture_806288.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806021.jpg" />
+  <img src="Z:/picture/008/save_picture_806021.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805129.jpg" />
+  <img src="Z:/picture/008/save_picture_805129.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804508.jpg" />
+  <img src="Z:/picture/008/save_picture_804508.jpg" />
 </div>
 
 
@@ -451,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804334.jpg" />
+  <img src="Z:/picture/008/save_picture_804334.jpg" />
 </div>
 
 
@@ -477,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804236.jpg" />
+  <img src="Z:/picture/008/save_picture_804236.jpg" />
 </div>
 
 
@@ -505,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804084.jpg" />
+  <img src="Z:/picture/008/save_picture_804084.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803956.jpg" />
+  <img src="Z:/picture/008/save_picture_803956.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802008.jpg" />
+  <img src="Z:/picture/008/save_picture_802008.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801890.jpg" />
+  <img src="Z:/picture/008/save_picture_801890.jpg" />
 </div>
 
 
@@ -596,88 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D52D9F77462A2FFF26CCD7889849BF204D576863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120690   (801867) от 31.03.2017
-
-Андрей Фурсов | Мировая борьба. Англосаксы против планеты (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга Андрея Фурсова посвящена мировой борьбе за власть, информацию и ресурсы. Центральное место в работе занимает проблема борьбы англосаксов за мировое господство и противостояние им России. Мировые войны двадцатого века, роль Великобритании и США в создании нацистской Германии, глобальная Холодная война, Ялтинский мир и послеялтинский хаосопорядок – вот (   Читать дальше...   )Жанр: Политика, политология, Публицистика: прочееФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75B98B60F038DF84A74F26A2F1D52EFDA3AB22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199259   (801785) от 15.01.2018
-
-В. Е. Полетаев, И. Л. Корнаковский | Социальный облик советской рабочей молодежи [по материалам социологических обследований] (1979) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801785.jpg" />
-</div>
-
-
-###  Подробнее
-
-На материалах социологических обследований в брошюре прослеживается социальное развитие советской рабочей молодежи, раскрываются важнейшие черты ее социального облика — производственная деятельность, трудовая и общественно-политическая активность.
-
-Особое внимание уделено заботе партии о молодой рабочей смене.Жанр: История, политология, экономика, культурология, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0416041860977702D1FB8B36DC54C665B4CBB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121018   (801235) от 01.04.2017
-
-Марк Элиот | Джек Николсон. Биография (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Николсон – один из самых талантливых актеров мирового кино. Он менял настроение кадра лишь одним своим присутствием, а сценарии – силой взгляда.
-Пятьдесят лет на экране. Двенадцать номинаций и три статуэтки «Оскар». Семь «Золотых глобусов». Звезда на Голливудской аллее славы. Премия Станиславского «Верю!».
-С ним работали лучшие режиссеры – Стэнли Кубрик, Милош (   Читать дальше...   )Жанр: Биографии и Мемуары, Зарубежная публицистика, Кинематограф, театрФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB796EFAB40666061E75D4AF62C1EE22B788C0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

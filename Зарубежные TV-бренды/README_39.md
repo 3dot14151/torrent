@@ -1,3 +1,107 @@
+###  Публикация: 1022164   (729520) от 01.06.2016
+
+NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers Superkanone V3 (2015) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729520.jpg" />
+</div>
+
+
+###  Подробнее
+
+К весне 1943 года, ситуация на фронтах Второй мировой войны сложилась не в пользу Гитлера. Бомбы союзников сыпались на немецкие города, фюрер решил нанести им ответный удар. Он решил пойти на риск и отдал приказ построить крупнейшую пушку в истории человечества: суперпушку V-3. Она представляла собой гигантское подземное сооружение, спрятанное на французском берегу. (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, война, вооружение, историяПеревод: ДублированныйПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB266DACE256379717449CF4842BF125A24AFD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709713   (729513) от 01.06.2016
+
+BBC: Как строилась Британия / How We Built Britain (2007) HDTVRip [H.264/720p] [6 серий из 6]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор фильма Дэвид Димблби приглашает Вас в грандиозное путешествие по Британии. Перед Вами история этой страны в ее зданиях и людях, которые их построили. Вы сможете узнать, как военные, политические или религиозные события оказывали свое влияние на ее архитектурный стиль: от величественных соборов и средневековых замков, до небольших квартир или коттеджей.Жанр: Документальный, история, архитектураПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 6 х ~00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC39D88C9415E43C2BCFCCC7A0C6BD89C6A42C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284150   (729456) от 20.02.2019
+
+BBC: Цивилизации / Civilisations (2018) BDRemux [H.264/1080p] (сезон 1, серии 1-9 из 9)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы можем проводить время в спорах о том, что есть цивилизация... Но когда мы сталкиваемся с тем, что ей противостоит, а это дикость, жестокость, нетерпимость и жажда разрушений, мы понимаем, что есть цивилизация. На протяжении веков было много людей, обуреваемых страстью разрушать. Но человеку присуще противоположное стремление - стремление создавать. Не только утилитарные (   Читать дальше...   )Производство: Великобритания, США, BBC, Nutopia, The Open University, PBSЖанр: Документальный, история, искусствоРежиссер: Тим Нил, Метью Хил, Эшли Гетинг, Иен Лис, Хью МакГрегорПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: Русские, английскиеПродолжительность: 9 х ~00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3E96725E79EAA22C388244EA6C6C105069A4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021864   (729224) от 01.06.2016
+
+Рассвет во Вселенной. Момент сотворения мира / Cosmic Dawn: The Real Moment of Creation (2015) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая популярная идея создания мира - Большой взрыв. Здесь нам покажут другую точку зрения. Вселенная создавалось в период Космического Рассвета и появлением первой платы во вселенной. Когда Большой взрыв произошел, все вокруг было очень мрачным и темным. Не существовало ни галактик, ни звёзд, было просто гигантское чёрное облако газа. Этот период именуется - тёмные (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1201AAEC87A2AC1FB9CF4FA99F3573E7D6FE6E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284515   (728773) от 21.02.2019
 
 NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728773.jpg" />
+  <img src="Z:/picture/008/save_picture_728773.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: Почему? Вопросы мироздания. Природа н�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728711.jpg" />
+  <img src="Z:/picture/008/save_picture_728711.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Animal Planet: Вторжение / Intruders (2017) HDTV [H.264/1080i] (сер�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728648.jpg" />
+  <img src="Z:/picture/008/save_picture_728648.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728637.jpg" />
+  <img src="Z:/picture/008/save_picture_728637.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC. Horizon. Что же такое один градус? / Horizon. What is O
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728590.jpg" />
+  <img src="Z:/picture/008/save_picture_728590.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728547.jpg" />
+  <img src="Z:/picture/008/save_picture_728547.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728540.jpg" />
+  <img src="Z:/picture/008/save_picture_728540.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728527.jpg" />
+  <img src="Z:/picture/008/save_picture_728527.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ BBC. Барокко! От собора св.Петра до собора св.П
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728464.jpg" />
+  <img src="Z:/picture/008/save_picture_728464.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Discovery. Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728458.jpg" />
+  <img src="Z:/picture/008/save_picture_728458.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728296.jpg" />
+  <img src="Z:/picture/008/save_picture_728296.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727531.jpg" />
+  <img src="Z:/picture/008/save_picture_727531.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ NG: Тайны Тутанхамона / Ultimate Tutankhamun (2013) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727436.jpg" />
+  <img src="Z:/picture/008/save_picture_727436.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ NG: Марс и SpaceX / Mars: Inside SpaceX (2018) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727420.jpg" />
+  <img src="Z:/picture/008/save_picture_727420.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727418.jpg" />
+  <img src="Z:/picture/008/save_picture_727418.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727323.jpg" />
+  <img src="Z:/picture/008/save_picture_727323.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ BBC: Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727316.jpg" />
+  <img src="Z:/picture/008/save_picture_727316.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727205.jpg" />
+  <img src="Z:/picture/008/save_picture_727205.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727072.jpg" />
+  <img src="Z:/picture/008/save_picture_727072.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ NG: Гибель Викингов / Viking Apocalypse (2011) SATRip
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726233.jpg" />
+  <img src="Z:/picture/008/save_picture_726233.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726176.jpg" />
+  <img src="Z:/picture/008/save_picture_726176.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NG. Реальность или фантастика? Корабли-призр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726168.jpg" />
+  <img src="Z:/picture/008/save_picture_726168.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ NG. Реальность или фантастика? Корабли-призр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BB325EFE6605D3390AD7941FBF572C4D0DE7028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128744   (726013) от 26.04.2017
-
-Nat Geo Wild: Амазонская электрическая рыба / Amazon's Electric Fish (2015) HDTVRip  [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726013.jpg" />
-</div>
-
-
-###  Подробнее
-
-В водах Амазонки водятся необычные рыбы, которые с помощью электричества общаются и координируют действия собратьев.Производство: США, Earth Touch and Smithsonian NetworksЖанр: Документальный, научно-популярныйРежиссер: Кира ИваноффПеревод: Одноголосый закадровый, профессиональный (Велес)Продолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071BE0A312EE8549E3B1DB539B569559C0D370CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667460   (725358) от 14.06.2013
-
-Я не должен был выжить / I Shouldn't Be Alive (2010-2012) IPTVRip [Сезон 4: серии 1-8, 13-20; Сезон 5: серии 1-8]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярного сериала, повествующего о людях, оказавшихся в шаге от верной гибели, для которых встреча со смертью стала переломным эпизодом в биографии, тяжелым испытанием и – началом новой жизни. Подобное может произойти с каждым!Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: НетПродолжительность: 24 x ~43-50 мин. серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B8F1DFA9749F46C86C4A4A112A0F6D710BF0A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399940   (724710) от 02.08.2020
-
-Собор Парижской Богоматери. Тайны средневековых зодчих / Notre-Dame de Paris. Les Secrets des Batisseurs (2020) SATRip (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собор Нотр-Дам-де-Пари, который 15 апреля 2019 года едва не погиб в огне, считается одним из величайших творений человека и символом не только Франции, но и миллионов верующих по всему миру. Он выстоял почти девять веков и стал свидетелем огромного количества исторических событий. А что нам известно о строительстве Собора Парижской Богоматери? Оно длилось практически (   Читать дальше...   )Производство: Франция, PROGRAM33 при участии FRANCE TÉLÉVISIONSЖанр: Документальный, познавательный, история, архитектураРежиссер: Эмануюэль БланшарПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04E0D4E16AA87C476E2A49CB77FA7869731DCB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395750   (724509) от 02.08.2020
-
-NG. Научные глупости / Science of stupid (2019) HDTVRip (сезон 8, серии 1-16 из 16)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые расскажут нам о том, как и почему приключение может превратиться в злоключение. В этой передаче объективная наука сочетается с глупостью и выступает на одной сцене с самыми сумасшедшими любительскими видеоклипами. Ричард Хаммонд продемонстрирует все виды несчастных случаев, свойственных отважным, но заблуждающимся смельчакам со всего мира, а затем объясняет (   Читать дальше...   )Производство: США, Eyeboogie, National GeographicЖанр: Документальный, научно-популярный, познавательныйРежиссер: Маркус РутледжПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA5B3C1E00DF7AB3C2385F70026859329F17432
 ```
 
 https://mybot314.ru/tekegram_catalog/

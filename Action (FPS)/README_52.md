@@ -1,3 +1,107 @@
+###  Публикация: 1783311   (25340) от 08.03.2025
+
+Devilated (2021) [Multi] (1.01) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Devilated - брутальный и жестокий шутер от первого лица с элементами ролевой игры. Вам предстоит выживать среди мистических существ и поджаривать задницы всем врагам на своем пути! По мере прохождения получите доступ к новым видам оружия и откройте дополнительные способности. Используйте вспомогательные предметы и преодолевайте препятствия. После окончания сюжетной (   Читать дальше...   )Тип издания: LicenseРазработчик: TrunkaЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Английский, Вьетнамский, Китайский (упрощенный)Язык интерфейса: Английский, Вьетнамский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A050732D6094D4D2E41A30ED9441261BE6C6FA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784106   (25289) от 09.03.2025
+
+Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570) Repack dixen18
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battlefield 1 погружает вас в эпоху Первой мировой войны, когда новые технологии и глобальный конфликт навсегда изменили принципы военного дела. Участвуйте в каждой битве, управляйте каждой огромной машиной, выполняйте маневры, меняющие исход всего боя. Весь мир охвачен войной. Узнайте, что ждет вас на линии фронта. Сражайтесь в роли пехотинца или управляйте потрясающей (   Читать дальше...   )Тип издания: RepackРазработчик: EA DICEЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53538D5E5E5F39762A1DDFE9B8C523D8D6C138C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784557   (25072) от 11.03.2025
+
+Borderlands 3 (2019) [Ru/Multi] (Build 15245523/dlc) Repack Wanterlude
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Borderlands 3, всеми любимый «шутер с базиллионами лута», возвращается, чтобы порадовать вас несметным множеством убойных стволов и новым крышесносным приключением! Вам предстоит покорить доселе не виданные миры, играя за одного из четырех новых искателей Хранилища – нереально крутых перцев, у каждого из которых уникальные навыки, способности и модификации. Действуя (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820583EF04D94FBE7D1F471B23A8C6704CDB8BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784453   (25041) от 11.03.2025
+
+Risk of Rain 2 (2020) [Ru/Multi] (1.3.7/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выберитесь с хаотичной неизвестной планеты, отбиваясь от полчищ безумных монстров в одиночку или с друзьями. Неожиданным образом сочетайте найденные предметы и постигайте все особенности персонажей, пока сами не станете разрушительной силой, вселяющей ужас в других.Тип издания: RepackРазработчик: Hopoo GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B527412ED9E5F97655737B9F21A847EC1DA96A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784451   (25024) от 11.03.2025
 
 Sons of the Forest (2023) [Ru/Multi] (53951) Repack Other s
@@ -6,7 +110,7 @@ Sons of the Forest (2023) [Ru/Multi] (53951) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25024.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24649.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.113250.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24267.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Chernobylite Complete Edition (2019) [Ru/Multi] (50563/dlc) Repack Let'sРlay [P
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24240.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24225.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Heretic: Shadow of the Serpent Riders (1994) [En] (1.3/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24215.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Hexen: Deathkings of the Dark Citadel (1996) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24191.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24182.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24091.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23976.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23871.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Battlefield 4 (2013) [Ru/Multi] (1.8.2.48475) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23785.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23767.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23673.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ ROBOBEAT (2024) [Ru/Multi] (1.3.10) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23603.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23593.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Unreal Tournament (1999) [En] (451) Unofficial [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23390.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23367.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23154.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Battlefield 4 (2013) [Ru/Multi] (4700144/dlc) Repack Other s [Premium Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22942.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22935.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Men of Valor (2004) [Ru] (1.3) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22910.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Men of Valor (2004) [Ru] (1.3) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1CBF75C0B7843406778FB132094353CAFB6BBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752215   (22417) от 05.04.2025
-
-I Am Your Beast (2024) [En] (March 20 Minor Update) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22417.jpg" />
-</div>
-
-
-###  Подробнее
-
-I Am Your Beast - это FPS в обертке триллера о мести, чей сюжет разворачивается в североамериканской глуши, где на вас охотятся бойцы военно-промышленного комплекса - а потом охотники становятся жертвами. Вы - тайный агент Альфонс Хардинг, уже шесть лет в отставке, но вас то и дело просят выполнить «одно последнее задание». После того, как вы отказались от очередного (   Читать дальше...   )Тип издания: LicenseРазработчик: Strange ScaffoldЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9C47F65F550F5C6BD83C6A3A19211AF534AC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790779   (21922) от 10.04.2025
-
-Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) Repack Other s [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21922.jpg" />
-</div>
-
-
-###  Подробнее
-
-2036 год. Прошло четверть века с тех пор, как ядерная война опустошила землю. Москва лежит в руинах, и несколько тысяч выживших вынуждены бороться за существование в тоннелях метро. Их не убила отравленная природа и мутировавшие чудовища, они пережили сверхъестественный кошмар и ужасы гражданской войны.Тип издания: RepackРазработчик: 4A GamesЖанр: Шутеры, От первого лица, ФантаcтикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148F06EBDC3E6F889D2D74ABBF570FF5989C05E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790634   (21902) от 10.04.2025
-
-Prey (2006) [Ru] (1.4) Repack/Mod seleZen
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-фантастическая компьютерная игра в жанре шутера от первого лица, разработанная Human Head Studios и изданная 3D Realms и 2K Games в 2006 году. В России локализована и издана компанией 1С. В игре используется немного модифицированный графический движок Doom 3. В октябре 2006 3D Realms объявило, что благодаря коммерческому успеху на платформах PC и Xbox 360 (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Human Head StudiosЖанр: Шутер от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C97738AFAAD46C06BFE75034AD80A4305ED397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770698   (21400) от 15.04.2025
-
-Echo Point Nova (2024) [Ru/Multi] (1.41) Repack Let'sРlay [Digital Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21400.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей Severed Steel! Сыграйте в шутер от первого лица и погрузитесь в необъятный открытый мир. Вы можете поиграть сами или в компании из 4 друзей! Вы - космический исследователь, и ваш корабль потерпел крушение на загадочной планете. На ней уже орудует безжалостная организация наемников, запустившая свои лапы в древнюю технологию для создания опустошительного (   Читать дальше...   )Тип издания: RepackРазработчик: Greylock StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A4BA24EC383729D72871365ECAF29AD9FFE4DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

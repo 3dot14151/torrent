@@ -1,3 +1,180 @@
+###  Публикация: 968308   (153515) от 24.12.2015
+
+Биатлон с Дмитрием Губерниевым. Сезон 2015-2016. Выпуск 5 (20.12.2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153515.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске:
+- Антон Шипулин поздравил супругу с рождением сына. Все остальные биатлонисты на пол часа остались без лыж;
+- Светлана Слепцова уже выигрывает у всех, правда пока на Кубке IBU;
+- Как нужно радоваться своим успехам? 57-е место - это ведь тоже не всегда поражение;(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: Телепередача, спортПродолжительность: 00:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07987C091DF178F56CEABC756EDE5BC6F887DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589146   (152828) от 14.12.2012
+
+Поединок с Владимиром Соловьевым. Выпуск №73 (2012.11.13) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеведущий Владимир Соловьев после годового перерыва возвращается на экран в качестве ведущего нового общественного политического шоу «Поединок», который будет выходить на телеканале «Россия».
+«Это будет очень яркое действо, бескомпромиссное столкновение мнений и позиций, причем не по вопросам каким-нибудь историческим, например, кто сжег Москву — Кутузов или Наполеон, а по самым актуальным темам нынешнего дня», — рассказал В. Соловьев «Интерфаксу».
+При этом он отметил, что «в программе не будет никаких ограничений тем, никакой цензуры».
+При этом он отметил, что первоначально программа будет выходить для зрителей Дальнего Востока, а потом ее смогут видеть в европейской части России.
+Отвечая на вопросы, В. Соловьев не исключил, что на телеканале «Россия» впоследствии появятся и другие его программы, но пока предпочел не говорить, о чем они могут быть.
+В. Соловьев ранее был телеведущим на телеканале «НТВ».
+После того, как В. Соловьев перестал быть ведущим программы «К барьеру!», он год не появлялся в телеэфире.Жанр: ТВ-ШоуТелекомпания: Продолжительность: ~ 01:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534B786B87FB25BD7AD4AA061AC11B720A5405A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194517   (152480) от 27.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Куршевель (Франция). Женщины. Гигантский слалом (19.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152480.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 декабря 2017 года, вторник. 12:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Куршевель (Франция).
+Женщины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8804946C72E53866E7FA787D35AC2F24493092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194566   (152474) от 27.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Куршевель (Франция). Женщины. Параллельный слалом (20.12.2017) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152474.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 декабря 2017 года, среда. 20:00 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Куршевель (Франция).
+Женщины. Параллельный слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB35E83F0C9ABC7FA6C9197C3FCEFC2DCBC4548D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194808   (152441) от 27.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Куршевель (Франция). Женщины. Параллельный слалом (20.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152441.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 декабря 2017 года, среда. 20:00 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Куршевель (Франция).
+Женщины. Параллельный слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B734CB8CA36BCB03F83AB4481ABE063A5F30D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194866   (152336) от 27.12.2017
+
+Фигурное катание. «Ростелеком-Чемпионат России» 2018. Санкт-Петербург (Россия). 3 День (23.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152336.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 декабря 2017 года, суббота
+«Ростелеком-Чемпионат России» 2018 года по фигурному катанию на коньках. Санкт-Петербург (Россия)
+День 3:
+1. Спортивные пары - Произвольная программа(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:11—02:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C2BA72B3AB1F5831C99CAC21318D6D6ACB146C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347184   (152309) от 23.12.2019
 
 Хоккей. НХЛ 2019-2020. Тампа-Бэй Лайтнинг - Вашингтон Кэпиталз (21.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
@@ -6,7 +183,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152309.jpg" />
 </div>
 
 
@@ -34,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151711.jpg" />
 </div>
 
 
@@ -60,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151689.jpg" />
 </div>
 
 
@@ -86,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150841.jpg" />
 </div>
 
 
@@ -115,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150823.jpg" />
 </div>
 
 
@@ -144,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150304.jpg" />
 </div>
 
 
@@ -173,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150300.jpg" />
 </div>
 
 
@@ -200,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150268.jpg" />
 </div>
 
 
@@ -229,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150232.jpg" />
 </div>
 
 
@@ -258,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150225.jpg" />
 </div>
 
 
@@ -287,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150213.jpg" />
 </div>
 
 
@@ -316,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150172.jpg" />
 </div>
 
 
@@ -345,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149274.jpg" />
 </div>
 
 
@@ -374,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148783.jpg" />
 </div>
 
 
@@ -402,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148758.jpg" />
 </div>
 
 
@@ -428,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148736.jpg" />
 </div>
 
 
@@ -457,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147575.jpg" />
 </div>
 
 
@@ -483,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147040.jpg" />
 </div>
 
 
@@ -512,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146825.jpg" />
 </div>
 
 
@@ -539,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146552.jpg" />
 </div>
 
 
@@ -550,179 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8975522A6175BC0147F951594CC9D141A16EECB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969846   (145939) от 28.12.2015
-
-Фигурное Катание. Чемпионат России 2015. Женщины. Короткая программа. (25.12.2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145939.jpg" />
-</div>
-
-
-###  Подробнее
-
-В четверг в Екатеринбурге стартует чемпионат России по фигурному катанию, который станет отборочным турниром к чемпионату Европы, стартующему в конце января в Братиславе.
-"Девочек у нас много, и все хорошие, - сказала Тарасова по телефону. - Женя Медведева очень здорово выступала в серии Гран-при, шла на мировой рекорд в Финале Гран-при. У нее хорошие шансы (   Читать дальше...   )Телекомпания: HD СпортЖанр: СпортПродолжительность: 02:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE22013CD7F9914DFF16BACE36E21905905EE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590345   (145938) от 16.12.2012
-
-Бокс. А.Хан - К.Молина, бой за титул чемпиона мира / WBC: Amir Khan vs Carlos Molina (16-12-2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145938.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПРОФЕССИОНАЛЬНЫЙ БОКС. Бой за титул чемпиона мира.  А.Хан - К.Молина
-
-Разогревочные поединки:
-ALFREDO ANGULO vs. JORGE SILVA / MIDDLEWEIGHTS
- DEONTAY WILDER vs. KEVIN PRICE / WBC CONTINENTAL AMERICAS  HEAVYWEIGHT TITLE
-
-Основной бой:
-AMIR KHAN vs. CARLOS MOLINAЖанр: СпортТелекомпания: СпортПеревод: Одноголосый закадровый, Владимир Гендлин младший.Формат: tsПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC6DB76C78DD840281FD7BD6A083D0CF673EEF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969982   (145812) от 28.12.2015
-
-Фигурное катание. Чемпионат России 2015. Екатеринбург (Россия). Показательные выступления (27.12.2015) (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министр физической культуры, спорта и молодежной политики Свердловской области Леонид Рапопорт сообщил, что Екатеринбург готов принять международные соревнования по фигурному катанию.
-Напомним, сегодня в Екатеринбурге завершается чемпионат России.
-«Турнир проходит на высочайшем уровне. Для того, чтобы принять у себя чемпионат России, мы проделали огромную работу. (   Читать дальше...   )Телекомпания: HD СпортЖанр: СпортПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C9302331EF387BB4C9DA5F327BB88EC9C23BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969705   (145611) от 28.12.2015
-
-Фигурное катание. Чемпионат России 2015. Екатеринбург (Россия). Женщины. Произвольная программа (26.12.2015)  HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145611.jpg" />
-</div>
-
-
-###  Подробнее
-
-В четверг в Екатеринбурге стартует чемпионат России по фигурному катанию, который станет отборочным турниром к чемпионату Европы, стартующему в конце января в Братиславе.
-"Девочек у нас много, и все хорошие, - сказала Тарасова по телефону. - Женя Медведева очень здорово выступала в серии Гран-при, шла на мировой рекорд в Финале Гран-при. У нее хорошие шансы (   Читать дальше...   )Телекомпания: HD СпортЖанр: СпортПродолжительность: 02:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B898E5E1FDE8C559AC3A6C8C5C48A4A2C7F6DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087681   (145435) от 28.12.2016
-
-Санный спорт. Кубок мира 2016-2017. 1-й Этап. Винтерберг (Германия). Спринт (27.11.2016) WEB-DLRip [H.264/720p-LQ][hand made 50fps][EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145435.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 ноября 2016, воскресенье
-Санный спорт. Кубок мира 2016-2017. 1-й Этап. Винтерберг (Германия)
-Спринт:
-1. Женщины(   Читать дальше...   )Телекомпания: FIL TVЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C4A7C7A0CB834FEA0D42BB427F2EDF83948042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087680   (145429) от 28.12.2016
-
-Санный спорт. Кубок мира 2016-2017. 1-й Этап. Винтерберг (Германия). Мужчины. Двойки (26.11.2016) WEB-DL [H.264/720p-LQ][EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145429.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 ноября 2016, суббота
-Санный спорт. Кубок мира 2016-2017. 1-й Этап. Винтерберг (Германия)
-Мужчины. Двойки. 1-я и 2-я попытка
-(   Читать дальше...   )Телекомпания: FIL TVЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31783DC8A9A8D819D1BAC9D11FC9D1271E8E0928
 ```
 
 https://mybot314.ru/tekegram_catalog/

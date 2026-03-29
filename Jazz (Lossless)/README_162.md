@@ -1,3 +1,119 @@
+###  Публикация: 1561493   (514515) от 05.07.2022
+
+Ethel Waters - Am I Blue?: Ethel Waters Sings 'Em (1923 - 1940) 2CD, 2019, Retrospective Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_514515.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- 1923-1931:
+01. Am I Blue? [3:25]
+02. Ethel Sings 'Em [3:19]
+03. Sweet Georgia Brown [3:13](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F47EF9DADD6B47AE945A8098253048F79912015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930873   (514125) от 24.08.2015
+
+Blue Mitchell - Heads Up! (1967) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_514125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heads Up! Feet Down! [06:03]
+02. Togetherness [06:51]
+03. The Folks Who Live On The Hill [05:35]
+04. Good Humor Man [05:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CCCBD003E5B9850B2CAC719914E43EABAB11A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930891   (514124) от 24.08.2015
+
+Masabumi Kikuchi - Wishes / Kochi (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_514124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auroral Flare [13:37]
+02. Caribbean Blue [08:45]
+03. La Moca Esta Dormindo [05:36]
+04. Pacific Hushes [11:12](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6889D656B31C458735E879BE08AF8EB3DF811B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930864   (514122) от 24.08.2015
+
+Chico Hamilton - And The Players (1976) /2013, EMI Music/[FLAC|tracks+.cue]<Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_514122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Sweets [06:01]
+02. First Light [03:44]
+03. Abdullah's Delight [03:58]
+04. Ole To Miles [07:12](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3787A772B39337B08C33DE036D0C833E7E9F1C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930762   (514100) от 24.08.2015
 
 Shawna Yang - Simple Life (2015) [FLAC|tracks|WEB-DL]<Contemporary Jazz>
@@ -6,7 +122,7 @@ Shawna Yang - Simple Life (2015) [FLAC|tracks|WEB-DL]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514100.jpg" />
+  <img src="Z:/picture/008/save_picture_514100.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Thelonious Monk - Thelonious Himself (1957) /2008, Concord/[FLAC|tracks+.cue]<Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514099.jpg" />
+  <img src="Z:/picture/008/save_picture_514099.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ The Australian Jazz Quartet & Quintet (1956) /2014, Solid Records/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514098.jpg" />
+  <img src="Z:/picture/008/save_picture_514098.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ The Bill Evans Trio - I Will Say Goodbye (1977) /2012, Universal/[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514092.jpg" />
+  <img src="Z:/picture/008/save_picture_514092.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ Hampton Hawes - Jam Session (1968) 2014, Columbia [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514036.jpg" />
+  <img src="Z:/picture/008/save_picture_514036.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ Charles Davis All Stars - A Tribute To Kenny Dorham (2010) TCB Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514035.jpg" />
+  <img src="Z:/picture/008/save_picture_514035.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Freddie Hubbard - The Hub of Hubbard (1969) 1972, MPS Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514034.jpg" />
+  <img src="Z:/picture/008/save_picture_514034.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Thomas Marriott - Romance Language (2018) Origin Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513967.jpg" />
+  <img src="Z:/picture/008/save_picture_513967.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Paul Desmond & Jim Hall - The Complete Recordings Of The Paul Desmond Quartet Wi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513621.jpg" />
+  <img src="Z:/picture/008/save_picture_513621.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Tape Five - Both Sides of the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513602.jpg" />
+  <img src="Z:/picture/008/save_picture_513602.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Maynard Ferguson - Maynard '61 + "Straightaway" Jazz Themes (1961) 2013, America
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513169.jpg" />
+  <img src="Z:/picture/008/save_picture_513169.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ City West Quartet - First Bite Live (1990) /Suisa/[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513080.jpg" />
+  <img src="Z:/picture/008/save_picture_513080.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Coleman Hawkins - Father Bean (1956/1960) /1990, Jazzlab/[FLAC|tracks+.cue]<Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513023.jpg" />
+  <img src="Z:/picture/008/save_picture_513023.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Sarah Vaughan - Young Sassy (1944 - 1950) 4CD, 2006, Proper Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512588.jpg" />
+  <img src="Z:/picture/008/save_picture_512588.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Sophie Alour - La geographie des reves (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512424.jpg" />
+  <img src="Z:/picture/008/save_picture_512424.jpg" />
 </div>
 
 
@@ -445,7 +561,7 @@ Shorty Rogers And His Giants - Way Up There (1955) /2012, Warner/[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511948.jpg" />
+  <img src="Z:/picture/008/save_picture_511948.jpg" />
 </div>
 
 
@@ -474,7 +590,7 @@ Daniel Carter, Roy Campbell, William Parker, Rashid Bakr - Other Dimensions In M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511947.jpg" />
+  <img src="Z:/picture/008/save_picture_511947.jpg" />
 </div>
 
 
@@ -503,7 +619,7 @@ The Cannonball Adderley Quintet - Country Preacher (1969) /2014, Universal/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511942.jpg" />
+  <img src="Z:/picture/008/save_picture_511942.jpg" />
 </div>
 
 
@@ -532,7 +648,7 @@ Galactic - Into The Deep [Deluxe Edition] (2015) [FLAC|tracks|WEB-DL]<Funk, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511847.jpg" />
+  <img src="Z:/picture/008/save_picture_511847.jpg" />
 </div>
 
 
@@ -561,7 +677,7 @@ Duke Ellington - The Complete Variety, Vocalion And Okeh Small Group Sessions (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511538.jpg" />
+  <img src="Z:/picture/008/save_picture_511538.jpg" />
 </div>
 
 
@@ -590,7 +706,7 @@ Dave Brubeck & Paul Desmond - 1951-1953 /1990, Fantasy/[APE|image+.cue]<Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511119.jpg" />
+  <img src="Z:/picture/008/save_picture_511119.jpg" />
 </div>
 
 
@@ -619,7 +735,7 @@ Bill Evans - Alone (1975) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511090.jpg" />
+  <img src="Z:/picture/008/save_picture_511090.jpg" />
 </div>
 
 
@@ -633,122 +749,6 @@ Bill Evans - Alone (1975) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36CA8B5A140BC5838A631BF5276BFC169DD54DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 21674   (510606) от 27.08.2015
-
-Miles Davis (1953 - 2006) 32 альбома [FLAC, APE, WV|tracks+.cue, image+.cue]<Jazz>
-
->>След.
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_510606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miles Davis девять раз становился победителем премии Грэмми. Он целых три поколения  был главной силой в мире джаза, и как трубач и как руководитель джаз-оркестра. Miles Davis считается одним из лучших музыкантов своего времени. На протяжении всей своей жизни, он был у руля меняющейся концепции джаза. Более того, он собственно и менял стили джаза, а многие потом следовали (   Читать дальше...   )Перечень альбомов:
-1953 - At Last!
-1954 - Walkin'
-1955 - Quintet and Sextet(   Читать дальше...   )Жанр: JazzПродолжительность: 37:24:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932070   (510331) от 28.08.2015
-
-Roland Kirk - Introducing (1960) /1990, Chess Records/ [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Call [08:46]
-02. Soul Station [05:31]
-03. Our Waltz [04:54]
-04. Our Love Is Here To Stay [04:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257CBD108B74871ADC86AC04A4FD5B41DC1885AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932224   (510279) от 28.08.2015
-
-Marc Ribot - Live At The Village Vanguard (2012) /2014, Pi Recordings/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dearly Beloved [15:07]
-02. The Wizard [08:00]
-03. Old Man River [06:38]
-04. Bells [19:10](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EEB177C50114CC5EB5F92BAF14943FE8B9EC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932114   (510277) от 28.08.2015
-
-The Dirty Dozen Brass Band - The New Orleans Album (1990) /Columbia/[APE|tracks+.cue]<New Orleans Brass Bands, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside Straight [05:24]
-02. When I'm Walking (Let me Walk) [03:13]
-03. Hannibal [06:35]
-04. Don't You Feel My Leg [04:21](   Читать дальше...   )Жанр: New Orleans Brass Bands, FunkПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B68E8A8A9AD0CEA1A719083CF44F997A64C729
 ```
 
 https://mybot314.ru/tekegram_catalog/

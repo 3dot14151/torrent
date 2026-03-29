@@ -1,3 +1,59 @@
+###  Публикация: 1442937   (1036301) от 26.01.2021
+
+Богдан Сушинский | Рыцари Дикого поля (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XVII века. Зная о критическом состоянии здоровья польского короля Владислава IV, королева Мария Гонзага всеми силами организует поиски возможного претендента на трон короля. Сейм обращает свой взор на трансильванского князя Любоша Ракоци. Более того, Трансильвания может стать надежным союзником Польши, заменив ослабленную в многолетней войне Францию.
+
+В (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F768B33CF5348F0FE3FD4CD2AC86F5A8D6AE715F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443108   (1036003) от 27.01.2021
+
+Тим Северин | Меч Роланда (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Саксонец».
+
+Саксонский королевич Зигвульф потерял на войне семью, владения, богатства — все, кроме благородного имени и самой жизни. Его победитель, король англов, отправляет пленника франкскому королю Карлу Великому в качестве посла, а вернее, благородного заложника. При дворе величайшего из владык Западного мира, правителя, само имя которого (   Читать дальше...   )Жанр: Исторический роман, Исторические приключенияПродолжительность: 10:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92355DBBC3FFF9CE6D3F054193D2170822D414A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443155   (1035928) от 27.01.2021
 
 Александр Чаковский | Блокада (1978) [MP3]
@@ -6,7 +62,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035928.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031664.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030229.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030226.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030225.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030221.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029733.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029508.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028541.jpg" />
 </div>
 
 
@@ -243,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028515.jpg" />
 </div>
 
 
@@ -271,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027350.jpg" />
 </div>
 
 
@@ -299,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027203.jpg" />
 </div>
 
 
@@ -327,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027041.jpg" />
 </div>
 
 
@@ -353,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026941.jpg" />
 </div>
 
 
@@ -380,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026661.jpg" />
 </div>
 
 
@@ -406,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024731.jpg" />
 </div>
 
 
@@ -432,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024556.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024383.jpg" />
 </div>
 
 
@@ -487,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024241.jpg" />
 </div>
 
 
@@ -513,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023454.jpg" />
 </div>
 
 
@@ -540,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023074.jpg" />
 </div>
 
 
@@ -566,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022575.jpg" />
 </div>
 
 
@@ -594,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022246.jpg" />
 </div>
 
 
@@ -622,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021693.jpg" />
 </div>
 
 
@@ -635,59 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82C5961B2E08F8DC37F763A90542B8818BE661FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235689   (1021687) от 10.04.2021
-
-Артур Конан Дойль | Белый отряд (2010) [MP3] [Алексей Борзунов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Белый отряд - исторический роман сэра Артура Конан Дойля, впервые опубликованный издательством Smith Elder в 1891 году, а до этого печатавшийся с продолжением в журнале Cornhill Magazine.
-Действие романа, повествующего о приключениях главного героя и английских лучников, происходит в середине XIV века (1337-1353) в Англии, Франции и Испании - в разгар Столетней Войны. (   Читать дальше...   )Жанр: Исторический роман, ПриключенияПродолжительность: 10:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C222EA257BA88DC4DC24C18CB4D3C58457315202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 94524   (1021685) от 10.04.2021
-
-Артур Конан Дойл | Белый отряд (2008) [MP3] by Lutz Records
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Исторический романПродолжительность: 18:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577155E6C036EF9B995F07C37763659265EF5AF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

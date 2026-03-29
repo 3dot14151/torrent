@@ -1,3 +1,57 @@
+###  Публикация: 1293562   (635080) от 04.04.2019
+
+Aquaria (2007) [En] (1.1.1) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот участок океана был домом одинокой Найи столько, сколько она себя помнила. Но после одной странной встречи она словно очнулась от глубокого сна. В ней вдруг проснулись никогда ранее не испытанные чувства, и больше она не может оставаться на месте. Найя знает, что ее ждет огромный, неизведанный мир, и что пора покинуть родные воды. Воплощая в песнях свой уникальный (   Читать дальше...   )Тип издания: LicenseРазработчик: Bit Blot, LLCЖанр: Экшн, Приключение, MetroidvaniaЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CFB69193DAF061B58EBFDEBBCE4AB26BED78C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521117   (628443) от 10.07.2012
+
+Outcast [Ru/En] (Repack/1.0.46.7) 1999 | R.G. Catalyst
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outcast – не игра. Это одно гигантское приключение. Яркое, запоминающееся, и абсолютно неповторимое.
+
+Одна из наиболее проработанных и детальных игр своего времени. Графика - с поправкой на возраст игры и поддерживаемые ею разрешения - впечатляет даже по нынешним временам. Для инопланетных жителей Адельфы - мира, в котором происходит действие Outcast - даже был придуман свой язык, на котором они говорят. В лицензионных версиях часть руководства к игре специально отведена под словарь этого языка, иначе общение героя с туземцами может осложниться языковым барьером  Игра также получила множество призов за великолепный симфонический саундтрек, один из лучших что были созданы для игр за всю их историю. Исполняют же эту эпическую музыку не кто иные, как Московский симфонический оркестр и хор - из сравнимого по стилю и уровню назову разве что саундтрек Шора к трилогии "Властелин Колец".(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / Adventure / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155B9DB109FF88EF5FC45F61845C1C1888809463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036162   (622147) от 19.07.2016
 
 SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
@@ -6,7 +60,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622147.jpg" />
+  <img src="Z:/picture/008/save_picture_622147.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Massive Assault (2003) [En/Fr] (1.2.204) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613296.jpg" />
+  <img src="Z:/picture/008/save_picture_613296.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613187.jpg" />
+  <img src="Z:/picture/008/save_picture_613187.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613012.jpg" />
+  <img src="Z:/picture/008/save_picture_613012.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612547.jpg" />
+  <img src="Z:/picture/008/save_picture_612547.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612536.jpg" />
+  <img src="Z:/picture/008/save_picture_612536.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612458.jpg" />
+  <img src="Z:/picture/008/save_picture_612458.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612060.jpg" />
+  <img src="Z:/picture/008/save_picture_612060.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610894.jpg" />
+  <img src="Z:/picture/008/save_picture_610894.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609065.jpg" />
+  <img src="Z:/picture/008/save_picture_609065.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608865.jpg" />
+  <img src="Z:/picture/008/save_picture_608865.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606650.jpg" />
+  <img src="Z:/picture/008/save_picture_606650.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603996.jpg" />
+  <img src="Z:/picture/008/save_picture_603996.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603517.jpg" />
+  <img src="Z:/picture/008/save_picture_603517.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603323.jpg" />
+  <img src="Z:/picture/008/save_picture_603323.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603258.jpg" />
+  <img src="Z:/picture/008/save_picture_603258.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ Metal Fatigue (2000) [En] (1.04hf) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599635.jpg" />
+  <img src="Z:/picture/008/save_picture_599635.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597717.jpg" />
+  <img src="Z:/picture/008/save_picture_597717.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596713.jpg" />
+  <img src="Z:/picture/008/save_picture_596713.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594754.jpg" />
+  <img src="Z:/picture/008/save_picture_594754.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594106.jpg" />
+  <img src="Z:/picture/008/save_picture_594106.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593054.jpg" />
+  <img src="Z:/picture/008/save_picture_593054.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592683.jpg" />
+  <img src="Z:/picture/008/save_picture_592683.jpg" />
 </div>
 
 
@@ -604,7 +658,7 @@ Command & Conquer 3: Tiberium Wars (2007) [Ru] (1.09) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587821.jpg" />
+  <img src="Z:/picture/008/save_picture_587821.jpg" />
 </div>
 
 
@@ -615,62 +669,6 @@ Command & Conquer 3: Tiberium Wars — компьютерная игра в жа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356861   (587744) от 30.06.2011
-
-Spider-Man: Friend or Foe [Ru] (P) 2007
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сильные союзники. Вы можете выбрать напарника из длинного списка выдающихся героев, а затем свободно переключаться между ним и Паркером. Каждый помощник, будь то супергерой или суперзлодей, вносит неповторимый вклад в общее дело. Лишь совместив умения персонажей, вы доберетесь до победного финала.
-Враги на стороне добра. После того, как Человек-паук одолеет давних противников –Доктора Октопуса, Зеленого Гоблина и Песчаного человека, они присоединятся к нему.
-Совместные подвиги. В любой момент к вам может присоединиться друг и взять контроль над союзником Человека-паука. Плечо живого товарища надежнее виртуального помощника, и лишь пара игроков способна раскрыть глубокий тактический потенциал проекта.
-Сражайтесь на разных аренах! Одолевая соперников одного за другим, вы открываете новые площадки для подвигов.
-Есть повод вернуться! Повторите понравившиеся уровни в совместной игре, сразитесь друг против друга, пройдите кампанию с новыми союзниками или в обличье Человека-паука в черном костюме. Мрачная экипировка (   Читать дальше...   )Тип издания: ПираткаЖанр: ActionЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB54E1ADDE7094010FEF616BD1538B6F281EC9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301121   (586902) от 09.05.2019
-
-Command & Conquer: Red Alert 3 (2008) [Ru/Multi] (1.12) License PROPHET
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Alert 3 - Uprising представляет собой глобальное дополнение оригинальной игры, состоящее из нескольких кампаний для индивидуального прохождения. Сюжет Command & Conquer Red Alert 3: Uprising повествует о событиях, случившихся после окончания мировой войны.Тип издания: LicenseРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F22865475845F2ED46B2F040B88AF99305DAEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

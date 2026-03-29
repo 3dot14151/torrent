@@ -1,3 +1,55 @@
+###  Публикация: 1142021   (646628) от 12.06.2017
+
+Элизабет Страут | Оливия Киттеридж (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга состоит из тринадцати небольших связанных между собой рассказов, о десятках судеб самых разных людей. Но все же главным действующим лицом каждой новеллы является Оливия Киттеридж. Немолодая женщина, пенсионерка, в недавнем прошлом учитель математики. Возможно, кому-то она покажется слишком властной и даже грубой. Но вместе с тем, она очень отзывчивый и ранимый (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66459609ABF46A3296C67A10A996EC56FD09FB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032687   (644103) от 08.07.2016
+
+Константин Трунин | Отрицательная субстанция (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644103.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 часа из жизни работника «скорой помощи». Холодная зима, чуть менее холодная машина. Суточная рабочая смена и всего один час на отдых. Десятки обращений за помощью. Череда мест, людей, жизней. А между вызовами практические и философские вопросы о здоровье и будущем службы «скорой помощи».Жанр: Современная прозаПродолжительность: 08:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607E802205C7D67E1CB0C44D82378023C64F7A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032690   (644101) от 08.07.2016
 
 Пол Остер | Храм луны (2002) [MP3]
@@ -6,7 +58,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644101.jpg" />
+  <img src="Z:/picture/008/save_picture_644101.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644031.jpg" />
+  <img src="Z:/picture/008/save_picture_644031.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644011.jpg" />
+  <img src="Z:/picture/008/save_picture_644011.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642994.jpg" />
+  <img src="Z:/picture/008/save_picture_642994.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642981.jpg" />
+  <img src="Z:/picture/008/save_picture_642981.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642976.jpg" />
+  <img src="Z:/picture/008/save_picture_642976.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642106.jpg" />
+  <img src="Z:/picture/008/save_picture_642106.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641670.jpg" />
+  <img src="Z:/picture/008/save_picture_641670.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641379.jpg" />
+  <img src="Z:/picture/008/save_picture_641379.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641361.jpg" />
+  <img src="Z:/picture/008/save_picture_641361.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641268.jpg" />
+  <img src="Z:/picture/008/save_picture_641268.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641176.jpg" />
+  <img src="Z:/picture/008/save_picture_641176.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641040.jpg" />
+  <img src="Z:/picture/008/save_picture_641040.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639468.jpg" />
+  <img src="Z:/picture/008/save_picture_639468.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639406.jpg" />
+  <img src="Z:/picture/008/save_picture_639406.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639398.jpg" />
+  <img src="Z:/picture/008/save_picture_639398.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638948.jpg" />
+  <img src="Z:/picture/008/save_picture_638948.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637661.jpg" />
+  <img src="Z:/picture/008/save_picture_637661.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637454.jpg" />
+  <img src="Z:/picture/008/save_picture_637454.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637203.jpg" />
+  <img src="Z:/picture/008/save_picture_637203.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637191.jpg" />
+  <img src="Z:/picture/008/save_picture_637191.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636269.jpg" />
+  <img src="Z:/picture/008/save_picture_636269.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635832.jpg" />
+  <img src="Z:/picture/008/save_picture_635832.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635439.jpg" />
+  <img src="Z:/picture/008/save_picture_635439.jpg" />
 </div>
 
 
@@ -624,61 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3359FF9AD637629BF4FAF09D320BCF8F86C7A4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542879   (635329) от 08.04.2022
-
-Исабель Альенде | Остров под морем (2022) [MP3, Юлия Яблонская]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая семейная сага об истории рабства и жизни на Карибских островах в 18-19 веках, роман о мужестве и страстной любви к свободе. Эпическое повествование о судьбе юной рабыни Тете, которой предстоит пережить множество крутых поворотов прежде чем она обретет свободу. Увлекательный рассказ о драматической судьбе героини сплетается с описанием единственного (   Читать дальше...   )Жанр: Зарубежная литератураПродолжительность: 18:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2EA0B274F058E6C82CC0907EA94DB8727E4720A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542862   (635184) от 08.04.2022
-
-Андрей Шляхов | Доктор Смерть (2022) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что у каждого врача есть свое кладбище… Дело не столько в наличии кладбища, сколько в его размерах.
-Говорят, что человеку свойственно ошибаться… Дело не в ошибках, а в том, как часто они происходят.
-Он считал себя хроническим неудачником, но на самом деле ему постоянно везло. А вот его пациентам – нет.
-Знаете, в чем заключается главное отличие между врачом (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 08:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D80877E2BC3BC857733239CA9646E9A774FEEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

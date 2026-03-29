@@ -1,3 +1,109 @@
+###  Публикация: 1103447   (885237) от 12.02.2017
+
+Проекты - VideoHive - Website Presentation v.1.0 - 6969582 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_885237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный проект для стильной и элегантной презентации Вашего веб-сайта, продукта, портфолио, маркетинга, компании и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2415B81F0E5E31008995C3888BE9DE25966D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995359   (884389) от 11.03.2016
+
+Проекты - RocketStock - Neon [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с веселой и оптимистичной неоновой коллекцией графики. Может быть легко использован как для слайдшоу, и так же для телевидения или веб-вещания (например YouTube).
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24F714D46389597F3D2399EFBCE51C8DA054C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995606   (884265) от 11.03.2016
+
+Проекты - VideoBlocks - Presentation [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8085D661DB6F542C4DFF95750996CC4430B7D561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103872   (883033) от 13.02.2017
+
+Проекты - VideoHive - Connected Mosaic Pack - 18848516 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Connected Mosaic Pack - проект для создания презентации или рекламы с креативным дизайном.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D31105D8869A011A38B7DE2C5DEA76A7AD7B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103953   (882781) от 13.02.2017
 
 Проекты - VideoHive - Real Estate Slideshow KIT - 15175775 [AEP]
@@ -6,7 +112,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882781.jpg" />
+  <img src="Z:/picture/005/save_picture_882781.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880972.jpg" />
+  <img src="Z:/picture/005/save_picture_880972.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880961.jpg" />
+  <img src="Z:/picture/005/save_picture_880961.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879512.jpg" />
+  <img src="Z:/picture/005/save_picture_879512.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879391.jpg" />
+  <img src="Z:/picture/005/save_picture_879391.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879385.jpg" />
+  <img src="Z:/picture/005/save_picture_879385.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878675.jpg" />
+  <img src="Z:/picture/005/save_picture_878675.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874825.jpg" />
+  <img src="Z:/picture/005/save_picture_874825.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874498.jpg" />
+  <img src="Z:/picture/005/save_picture_874498.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873431.jpg" />
+  <img src="Z:/picture/008/save_picture_873431.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872734.jpg" />
+  <img src="Z:/picture/008/save_picture_872734.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ RevoStock - Techno Panels - 707274 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872551.jpg" />
+  <img src="Z:/picture/008/save_picture_872551.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871359.jpg" />
+  <img src="Z:/picture/008/save_picture_871359.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870900.jpg" />
+  <img src="Z:/picture/008/save_picture_870900.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869520.jpg" />
+  <img src="Z:/picture/008/save_picture_869520.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869388.jpg" />
+  <img src="Z:/picture/008/save_picture_869388.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869387.jpg" />
+  <img src="Z:/picture/008/save_picture_869387.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869379.jpg" />
+  <img src="Z:/picture/008/save_picture_869379.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869246.jpg" />
+  <img src="Z:/picture/008/save_picture_869246.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869237.jpg" />
+  <img src="Z:/picture/008/save_picture_869237.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ VideoHive - Simple Folding Corporate - 6268360 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868810.jpg" />
+  <img src="Z:/picture/008/save_picture_868810.jpg" />
 </div>
 
 
@@ -557,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867548.jpg" />
+  <img src="Z:/picture/008/save_picture_867548.jpg" />
 </div>
 
 
@@ -568,116 +674,6 @@ Opener - проект для создания коротенькой презе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85FBBACF6113B7FE61C616DC51B3EF51A772D952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107335   (867337) от 22.02.2017
-
-Проекты - VideoHive - Old school TV - 19373572 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Old school TV - Профессиональный вещательный пакет высокого качества в хорошо организованном и простом шаблоне с пользовательскими настройками. Используйте этот проект для вашего канала Youtube, блога, ТВ-передач, кино или в качестве презентации. Проект имеет модульную структуру. Вы можете использовать любую часть проекта, как вам нравится.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6DB6333BB7633D4896996462B8A636F01154CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999005   (866373) от 21.03.2016
-
-Проекты - RocketStock - Grove [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grove-это красочный, оптимистичный проект, включающий в себя три различные версии анимации.
-Можно использовать как логотип, начальную или финальную видео-заствку, или как визитную карточку фотографа, компании и пр.
-Проект прост в настройке. Можно настроить цвета, отрегулировать толщину рамок, изменить интенсивность света.
-Добавьте Ваш логотип, перетащите фото или (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB1319F77B5F6E7767BA2E5F57618A3AD3AA1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999054   (866267) от 21.03.2016
-
-Проекты - RocketStock - Marquee [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marquee содержит более 60 слайдов, чтобы персонализировать Ваши фотографии или видео.
-Этот проект отлично подходит для показа моды, рекламы компании, и раскрутки в соц. сетях. Настройка цвета, включение/выключение цветового оттенка присутствуют в проекте.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C576877EF40292924082CDA0BCF6E72F7666E4C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999435   (864323) от 22.03.2016
-
-Проекты - Pond5 - Action Promo - 61022046 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный, креативный проект в жанре Action, для создания промо-ролика или трейлера к фильму.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E9F5FE6D8C0138A93EE277E9F42551E9581857
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711699.jpg" />
+  <img src="Z:/picture/005/save_picture_711699.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Auslogics BoostSpeed 5.0.6.250 (от 27.04.2011) [RU/EN] | REPACK от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711694.jpg" />
+  <img src="Z:/picture/005/save_picture_711694.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711692.jpg" />
+  <img src="Z:/picture/005/save_picture_711692.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ExperienceIndexOK 1.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711674.jpg" />
+  <img src="Z:/picture/008/save_picture_711674.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711668.jpg" />
+  <img src="Z:/picture/008/save_picture_711668.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Logic Pro X 10.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711667.jpg" />
+  <img src="Z:/picture/008/save_picture_711667.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ ReNamer Pro 6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711664.jpg" />
+  <img src="Z:/picture/008/save_picture_711664.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711660.jpg" />
+  <img src="Z:/picture/008/save_picture_711660.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Xliff Editor 2.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711657.jpg" />
+  <img src="Z:/picture/008/save_picture_711657.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ SQLPro Studio 2020.68 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711646.jpg" />
+  <img src="Z:/picture/008/save_picture_711646.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Venture - Introverted (2015) [FLAC|Lossless|WEB-DL]<Ambient, Experimental, Downt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711645.jpg" />
+  <img src="Z:/picture/008/save_picture_711645.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Scrutiny 9 v9.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711640.jpg" />
+  <img src="Z:/picture/008/save_picture_711640.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ eBookBinder 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711635.jpg" />
+  <img src="Z:/picture/008/save_picture_711635.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ SoundSource 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711631.jpg" />
+  <img src="Z:/picture/008/save_picture_711631.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Integrity Plus 9.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711626.jpg" />
+  <img src="Z:/picture/008/save_picture_711626.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ SyncTime 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711615.jpg" />
+  <img src="Z:/picture/008/save_picture_711615.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Windows 10 Manager 1.1.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711614.jpg" />
+  <img src="Z:/picture/008/save_picture_711614.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ ImageRanger Pro Edition 1.7.5.1604 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711603.jpg" />
+  <img src="Z:/picture/008/save_picture_711603.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cinemagraph Pro 2.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711574.jpg" />
+  <img src="Z:/picture/008/save_picture_711574.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Infix PDF Editor Pro 7.2.5 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711572.jpg" />
+  <img src="Z:/picture/008/save_picture_711572.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711564.jpg" />
+  <img src="Z:/picture/008/save_picture_711564.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711561.jpg" />
+  <img src="Z:/picture/008/save_picture_711561.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ SizeMyPics 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711526.jpg" />
+  <img src="Z:/picture/008/save_picture_711526.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PDF Search 10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711522.jpg" />
+  <img src="Z:/picture/008/save_picture_711522.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ WinUtilities Professional Edition 11.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711515.jpg" />
+  <img src="Z:/picture/008/save_picture_711515.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711506.jpg" />
+  <img src="Z:/picture/008/save_picture_711506.jpg" />
 </div>
 
 

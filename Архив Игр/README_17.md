@@ -6,7 +6,7 @@ They Always Run (2021) [Ru/Multi] (1.0.2.773) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815397.jpg" />
+  <img src="Z:/picture/008/save_picture_815397.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Midnight Protocol (2021) [Ru/Multi] (1.0.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815254.jpg" />
+  <img src="Z:/picture/008/save_picture_815254.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Scrapnaut (2021) [Ru/Multi] (1.5.1c) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815238.jpg" />
+  <img src="Z:/picture/008/save_picture_815238.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Black Geyser: Couriers of Darkness (2021) [En] (1.0.22) License GOG [Early Acces
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815233.jpg" />
+  <img src="Z:/picture/008/save_picture_815233.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.10) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815232.jpg" />
+  <img src="Z:/picture/008/save_picture_815232.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Slime Rancher (2016) [Ru] (0.2.6) Repack John2s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814967.jpg" />
+  <img src="Z:/picture/008/save_picture_814967.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tales of Maj'Eyal (2012) [En] (1.4.6/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814820.jpg" />
+  <img src="Z:/picture/008/save_picture_814820.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. C
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814319.jpg" />
+  <img src="Z:/picture/008/save_picture_814319.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Eastward (2021) [Multi] (1.0.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813377.jpg" />
+  <img src="Z:/picture/008/save_picture_813377.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Residual (2021) [Ru/Multi] (1.1.5b) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813365.jpg" />
+  <img src="Z:/picture/008/save_picture_813365.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Strangeland (2021) [En] (2.4a) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813354.jpg" />
+  <img src="Z:/picture/008/save_picture_813354.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Scorpion: Disfigured [Ru] 2009 | spartak07 [RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813014.jpg" />
+  <img src="Z:/picture/008/save_picture_813014.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Homefront [Ru] (RePack) 2011 | R.G. ExGames
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813013.jpg" />
+  <img src="Z:/picture/008/save_picture_813013.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ RIDE (2015) [Ru/Multi] (1.0/2dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812512.jpg" />
+  <img src="Z:/picture/008/save_picture_812512.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Swords and Fairy 7 (2021) [Multi] (1.0.7) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811531.jpg" />
+  <img src="Z:/picture/008/save_picture_811531.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Growbot (2021) [Ru/Multi] (1.0.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809740.jpg" />
+  <img src="Z:/picture/008/save_picture_809740.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0j) License PLAZA [Enhanc
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809579.jpg" />
+  <img src="Z:/picture/008/save_picture_809579.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Tinytopia (2021) [Multi] (211013) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809501.jpg" />
+  <img src="Z:/picture/008/save_picture_809501.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Star Dynasties (2021) [En] (1.0.1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809488.jpg" />
+  <img src="Z:/picture/008/save_picture_809488.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Death Trash (2021) [Multi] (0.7.23) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809477.jpg" />
+  <img src="Z:/picture/008/save_picture_809477.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Timberborn (2021) [Ru/Multi] (20211021) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809476.jpg" />
+  <img src="Z:/picture/008/save_picture_809476.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Inscryption (2021) [Ru/Multi] (1.06) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807675.jpg" />
+  <img src="Z:/picture/008/save_picture_807675.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Intravenous (2021) [Ru/Multi] (1.1.5) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807674.jpg" />
+  <img src="Z:/picture/008/save_picture_807674.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Gloomhaven (2021) [Multi] (1.0.633.23934) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807672.jpg" />
+  <img src="Z:/picture/008/save_picture_807672.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.2.7w1/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807665.jpg" />
+  <img src="Z:/picture/008/save_picture_807665.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Tainted Grail: Conquest (2021) [Multi] (1.2a) License GOG [Original Soundtrack B
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807662.jpg" />
+  <img src="Z:/picture/008/save_picture_807662.jpg" />
 </div>
 
 

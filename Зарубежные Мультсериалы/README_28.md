@@ -1,3 +1,55 @@
+###  Публикация: 1054706   (491948) от 20.09.2016
+
+Ниндзяго: Мастера Кружитцу / Ninjago: Masters of Spinjitzu (2013-2014) WEB-DLRip [H.264] (сезон 3, серии 1-8 из 8) [MP4|1024x576]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_491948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уединенный странник встречает Кая, молодого кузнеца мечей, и его сестру Нию, в их небольшой деревне, перед тем, как туда прибывает армия ужасающих скелетов, намеренная разграбить их лавку. Злодеи крадут карту, спрятанную отцом Кая несколько лет назад, а также Нию! Теперь Каю предстоит преодолеть нелегкий путь, прежде чем он сможет освободить свою сестру, и поможет (   Читать дальше...   )Производство: Дания, Сингапур, Канада, США, Wil Film, LEGOЖанр: Аниме, Мультфильм, Фантастика, Боевик, СемейныйРежиссер: Петер Хауснер, Майкл Хельмут Хансен, Трюлле ВильструпАктеры: Винсент Тонг, Джиллиан Майклс, Джон Новак, Йен Джеймс Корлетт, Пол Добсон, Майкл Адамуэйт, Келли Мецгер, Брент Миллер, Кирби Морроу, Брайан ДраммондПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F80648FB51FE934CB8F6EE9A8C1DACB6FC5BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054715   (491790) от 20.09.2016
+
+Ниндзяго: Мастера Кружитцу / Ninjago: Masters of Spinjitzu (2011-2012) WEB-DLRip [H.264] (сезон 1, серии 1-15 из 15)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_491790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уединенный странник встречает Кая, молодого кузнеца мечей, и его сестру Нию, в их небольшой деревне, перед тем, как туда прибывает армия ужасающих скелетов, намеренная разграбить их лавку. Злодеи крадут карту, спрятанную отцом Кая несколько лет назад, а также Нию! Теперь Каю предстоит преодолеть нелегкий путь, прежде чем он сможет освободить свою сестру, и поможет (   Читать дальше...   )Производство: Дания, Сингапур, Канада, США, Wil Film, LEGOЖанр: Аниме, Мультфильм, Фантастика, Боевик, СемейныйРежиссер: Петер Хауснер, Майкл Хельмут Хансен, Трюлле ВильструпАктеры: Винсент Тонг, Джиллиан Майклс, Джон Новак, Йен Джеймс Корлетт, Пол Добсон, Майкл Адамуэйт, Келли Мецгер, Брент Миллер, Кирби Морроу, Брайан ДраммондПеревод: ДублированныйПродолжительность: ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA3DF4175342C3B79CEF1512C816B5802528C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242462   (491330) от 27.08.2018
 
 Разочарование / Disenchantment (2018) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) NewStudio
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491330.jpg" />
+  <img src="Z:/picture/008/save_picture_491330.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489541.jpg" />
+  <img src="Z:/picture/008/save_picture_489541.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489048.jpg" />
+  <img src="Z:/picture/008/save_picture_489048.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487904.jpg" />
+  <img src="Z:/picture/008/save_picture_487904.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487689.jpg" />
+  <img src="Z:/picture/008/save_picture_487689.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486771.jpg" />
+  <img src="Z:/picture/008/save_picture_486771.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486444.jpg" />
+  <img src="Z:/picture/008/save_picture_486444.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486335.jpg" />
+  <img src="Z:/picture/008/save_picture_486335.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485563.jpg" />
+  <img src="Z:/picture/008/save_picture_485563.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482414.jpg" />
+  <img src="Z:/picture/008/save_picture_482414.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482308.jpg" />
+  <img src="Z:/picture/008/save_picture_482308.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480684.jpg" />
+  <img src="Z:/picture/008/save_picture_480684.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480197.jpg" />
+  <img src="Z:/picture/008/save_picture_480197.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_479249.jpg" />
+  <img src="Z:/picture/005/save_picture_479249.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478409.jpg" />
+  <img src="Z:/picture/008/save_picture_478409.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476956.jpg" />
+  <img src="Z:/picture/008/save_picture_476956.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476933.jpg" />
+  <img src="Z:/picture/008/save_picture_476933.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475905.jpg" />
+  <img src="Z:/picture/008/save_picture_475905.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474704.jpg" />
+  <img src="Z:/picture/008/save_picture_474704.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474604.jpg" />
+  <img src="Z:/picture/008/save_picture_474604.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474399.jpg" />
+  <img src="Z:/picture/008/save_picture_474399.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471509.jpg" />
+  <img src="Z:/picture/008/save_picture_471509.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471119.jpg" />
+  <img src="Z:/picture/008/save_picture_471119.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471113.jpg" />
+  <img src="Z:/picture/008/save_picture_471113.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4800D13FC8D9958268D954DA702DE0151BCA5FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545946   (470900) от 16.09.2012
-
-Аватар: Легенда о Корре / The Last Airbender: The Legend of Korra (2012) WEB-DLRip [H.264/720p-LQ] (Сезон 1, серий 12 из 12)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все в этом мире быстротечно... и жизни великих проходят так же быстро как и обычных людей... Аватар Аанг изменил мир к лучшему, проделав не малый труд , не раз рисковав своей жизнью, и вот настало время нового аватара, которым была признана Корра, на пути этой девушки станут не только люди желающие получить власть ради собственной выгоды, но и ее собственный нрав, (   Читать дальше...   )Жанр: Мультфильм, фэнтези, приключения.Режиссер: Майкл Димартино, Брайан КониецкоПерсонажи: Джанет Вэрни, Дж.К. Симмонс, Ди Брэдли Бейкер, Мария Бэмфорд, Кирнан Шипка, Дарси Роуз Бернс, Лэнс Хенриксен, П.Дж. Бирн, Дэвид Фаустино, Данте БаскоПеревод: Многоголосый закадровыйЯзык субтитров: нетПродолжительность: 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEC51CDB01B39BE802422B534325763C16B4413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057198   (470399) от 30.09.2016
-
-Ниндзяго: Мастера Кружитцу / Ninjago: Masters of Spinjitzu (2015) WEB-DLRip [H.264] (сезон 5, серии 1-10 из 10) [MP4|1024x576]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уединенный странник встречает Кая, молодого кузнеца мечей, и его сестру Нию, в их небольшой деревне, перед тем, как туда прибывает армия ужасающих скелетов, намеренная разграбить их лавку. Злодеи крадут карту, спрятанную отцом Кая несколько лет назад, а также Нию! Теперь Каю предстоит преодолеть нелегкий путь, прежде чем он сможет освободить свою сестру, и поможет (   Читать дальше...   )Производство: Дания, Сингапур, Канада, США, Wil Film, LEGOЖанр: Аниме, Мультфильм, Фантастика, Боевик, СемейныйРежиссер: Петер Хауснер, Майкл Хельмут Хансен, Трюлле ВильструпАктеры: Винсент Тонг, Джиллиан Майклс, Джон Новак, Йен Джеймс Корлетт, Пол Добсон, Майкл Адамуэйт, Келли Мецгер, Брент Миллер, Кирби Морроу, Брайан ДраммондПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A728F067E5EA1686B48EB81D94F5F6F11F1E415
 ```
 
 https://mybot314.ru/tekegram_catalog/

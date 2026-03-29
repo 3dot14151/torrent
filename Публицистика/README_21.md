@@ -1,3 +1,85 @@
+###  Публикация: 1120690   (801867) от 31.03.2017
+
+Андрей Фурсов | Мировая борьба. Англосаксы против планеты (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Андрея Фурсова посвящена мировой борьбе за власть, информацию и ресурсы. Центральное место в работе занимает проблема борьбы англосаксов за мировое господство и противостояние им России. Мировые войны двадцатого века, роль Великобритании и США в создании нацистской Германии, глобальная Холодная война, Ялтинский мир и послеялтинский хаосопорядок – вот (   Читать дальше...   )Жанр: Политика, политология, Публицистика: прочееФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75B98B60F038DF84A74F26A2F1D52EFDA3AB22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199259   (801785) от 15.01.2018
+
+В. Е. Полетаев, И. Л. Корнаковский | Социальный облик советской рабочей молодежи [по материалам социологических обследований] (1979) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801785.jpg" />
+</div>
+
+
+###  Подробнее
+
+На материалах социологических обследований в брошюре прослеживается социальное развитие советской рабочей молодежи, раскрываются важнейшие черты ее социального облика — производственная деятельность, трудовая и общественно-политическая активность.
+
+Особое внимание уделено заботе партии о молодой рабочей смене.Жанр: История, политология, экономика, культурология, социологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0416041860977702D1FB8B36DC54C665B4CBB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121018   (801235) от 01.04.2017
+
+Марк Элиот | Джек Николсон. Биография (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Николсон – один из самых талантливых актеров мирового кино. Он менял настроение кадра лишь одним своим присутствием, а сценарии – силой взгляда.
+Пятьдесят лет на экране. Двенадцать номинаций и три статуэтки «Оскар». Семь «Золотых глобусов». Звезда на Голливудской аллее славы. Премия Станиславского «Верю!».
+С ним работали лучшие режиссеры – Стэнли Кубрик, Милош (   Читать дальше...   )Жанр: Биографии и Мемуары, Зарубежная публицистика, Кинематограф, театрФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB796EFAB40666061E75D4AF62C1EE22B788C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273364   (800633) от 01.01.2019
 
 Джон Робб | Панк-Рок: устная история (2018) [FB2]
@@ -6,7 +88,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800633.jpg" />
+  <img src="Z:/picture/008/save_picture_800633.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800330.jpg" />
+  <img src="Z:/picture/008/save_picture_800330.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800114.jpg" />
+  <img src="Z:/picture/008/save_picture_800114.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800081.jpg" />
+  <img src="Z:/picture/008/save_picture_800081.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800049.jpg" />
+  <img src="Z:/picture/008/save_picture_800049.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800036.jpg" />
+  <img src="Z:/picture/008/save_picture_800036.jpg" />
 </div>
 
 
@@ -166,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799892.jpg" />
+  <img src="Z:/picture/008/save_picture_799892.jpg" />
 </div>
 
 
@@ -195,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799846.jpg" />
+  <img src="Z:/picture/008/save_picture_799846.jpg" />
 </div>
 
 
@@ -221,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799784.jpg" />
+  <img src="Z:/picture/008/save_picture_799784.jpg" />
 </div>
 
 
@@ -247,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799781.jpg" />
+  <img src="Z:/picture/008/save_picture_799781.jpg" />
 </div>
 
 
@@ -273,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799777.jpg" />
+  <img src="Z:/picture/008/save_picture_799777.jpg" />
 </div>
 
 
@@ -301,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799604.jpg" />
+  <img src="Z:/picture/008/save_picture_799604.jpg" />
 </div>
 
 
@@ -327,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799365.jpg" />
+  <img src="Z:/picture/008/save_picture_799365.jpg" />
 </div>
 
 
@@ -354,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799215.jpg" />
+  <img src="Z:/picture/008/save_picture_799215.jpg" />
 </div>
 
 
@@ -380,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799182.jpg" />
+  <img src="Z:/picture/008/save_picture_799182.jpg" />
 </div>
 
 
@@ -408,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798396.jpg" />
+  <img src="Z:/picture/008/save_picture_798396.jpg" />
 </div>
 
 
@@ -436,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798103.jpg" />
+  <img src="Z:/picture/008/save_picture_798103.jpg" />
 </div>
 
 
@@ -462,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797946.jpg" />
+  <img src="Z:/picture/008/save_picture_797946.jpg" />
 </div>
 
 
@@ -488,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797804.jpg" />
+  <img src="Z:/picture/008/save_picture_797804.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797796.jpg" />
+  <img src="Z:/picture/008/save_picture_797796.jpg" />
 </div>
 
 
@@ -540,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797794.jpg" />
+  <img src="Z:/picture/008/save_picture_797794.jpg" />
 </div>
 
 
@@ -566,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797785.jpg" />
+  <img src="Z:/picture/008/save_picture_797785.jpg" />
 </div>
 
 
@@ -593,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797781.jpg" />
+  <img src="Z:/picture/008/save_picture_797781.jpg" />
 </div>
 
 
@@ -605,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF37FFA67276F64E4EEB2A3A4EE2FFCA5300B432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385812   (796658) от 26.05.2020
-
-Юрий Бит-Юнан, Давид Фельдман | Перекресток версий. Роман Василия Гроссмана «Жизнь и судьба» в литературно-политическом контексте 1960-х – 2010-х годов (2017) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796658.jpg" />
-</div>
-
-
-###  Подробнее
-
-В.С. Гроссман – один из наиболее известных русских писателей XX века. В довоенные и послевоенные годы он оказался в эпицентре литературных и политических интриг, чудом избежав ареста. В 1961 году рукописи романа «Жизнь и судьба» конфискованы КГБ по распоряжению ЦК КПСС. Четверть века спустя, когда все же вышедшая за границей книга была переведена на европейские языки, (   Читать дальше...   )Жанр: Биографии и мемуары, Литературоведение, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11F1A4EAA247F4819EA3BE51F1D1507F597482E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385815   (796590) от 26.05.2020
-
-Хэлфорд Маккиндер, Збигнев Бжезинский | «Петля анаконды». Как заставить Евразию сдаться (2018) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стратегия «Петля анаконды» впервые была сформулирована в ходе Гражданской войны в США генералом Скоттом, командующим армией северян. Суть стратегии состояла в том, чтобы блокировать с моря и по береговым линиям вражеские территории, отрезая от доступа к портам и добиться, в результате этого, стратегического истощения противника. Впоследствии стратегия «Петля анаконды» (   Читать дальше...   )Жанр: Политология, ПублицистикаПеревод: В. Куршаков, В. ЦымбурскийФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6160DE220C80944D3F7A0C5F4A10308FBEAAF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385823   (796582) от 26.05.2020
-
-Николай Лебедев, Александр Попов | Программа «СОЮЗ – АПОЛЛОН»: афера космического масштаба? (2018) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796582.jpg" />
-</div>
-
-
-###  Подробнее
-
-В июле 1975 года весь мир обсуждал событие международного значения – первый совместный полёт советского «Союза» и американского «Аполлона». Целью проекта было объявлено «накопление опыта совместных полётов космических кораблей СССР и США». С тех пор подобных полётов не было. В чём же тогда заключалось «накопление опыта»? Почему только «Союз», непрерывно совершенствуясь, (   Читать дальше...   )Жанр: История космонавтики, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC0C9ECFEDF6B793FEE430F89BE0E6CA550B0EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

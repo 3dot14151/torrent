@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783503.jpg" />
+  <img src="Z:/picture/008/save_picture_783503.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783436.jpg" />
+  <img src="Z:/picture/008/save_picture_783436.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782939.jpg" />
+  <img src="Z:/picture/008/save_picture_782939.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782934.jpg" />
+  <img src="Z:/picture/008/save_picture_782934.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782892.jpg" />
+  <img src="Z:/picture/008/save_picture_782892.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ U2 at the BBC (U2: Live in London) (2017) HDTV [H.264/1080i]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782657.jpg" />
+  <img src="Z:/picture/008/save_picture_782657.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782122.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781841.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780772.jpg" />
+  <img src="Z:/picture/008/save_picture_780772.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780396.jpg" />
+  <img src="Z:/picture/008/save_picture_780396.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gimme Danger. История Игги и The Stooges / Gimme Danger (2016) HDTV 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779799.jpg" />
+  <img src="Z:/picture/008/save_picture_779799.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779640.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778535.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778497.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777313.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777255.jpg" />
+  <img src="Z:/picture/008/save_picture_777255.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777211.jpg" />
+  <img src="Z:/picture/008/save_picture_777211.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776934.jpg" />
+  <img src="Z:/picture/008/save_picture_776934.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776892.jpg" />
+  <img src="Z:/picture/008/save_picture_776892.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776863.jpg" />
+  <img src="Z:/picture/008/save_picture_776863.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775760.jpg" />
+  <img src="Z:/picture/008/save_picture_775760.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774133.jpg" />
+  <img src="Z:/picture/008/save_picture_774133.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771820.jpg" />
+  <img src="Z:/picture/008/save_picture_771820.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771437.jpg" />
+  <img src="Z:/picture/008/save_picture_771437.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770385.jpg" />
+  <img src="Z:/picture/008/save_picture_770385.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768896.jpg" />
+  <img src="Z:/picture/008/save_picture_768896.jpg" />
 </div>
 
 

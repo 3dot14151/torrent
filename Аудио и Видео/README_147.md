@@ -6,7 +6,7 @@
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615788.jpg" />
+  <img src="Z:/picture/008/save_picture_615788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615781.jpg" />
+  <img src="Z:/picture/008/save_picture_615781.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615524.jpg" />
+  <img src="Z:/picture/008/save_picture_615524.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615339.jpg" />
+  <img src="Z:/picture/008/save_picture_615339.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615047.jpg" />
+  <img src="Z:/picture/008/save_picture_615047.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614926.jpg" />
+  <img src="Z:/picture/008/save_picture_614926.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Public Enemy - Most Of My Heroes Still Don't Appear On No Stamp (2012) [AAC|256 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614833.jpg" />
+  <img src="Z:/picture/008/save_picture_614833.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614713.jpg" />
+  <img src="Z:/picture/008/save_picture_614713.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614463.jpg" />
+  <img src="Z:/picture/008/save_picture_614463.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614155.jpg" />
+  <img src="Z:/picture/008/save_picture_614155.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614073.jpg" />
+  <img src="Z:/picture/008/save_picture_614073.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613966.jpg" />
+  <img src="Z:/picture/008/save_picture_613966.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613953.jpg" />
+  <img src="Z:/picture/008/save_picture_613953.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613920.jpg" />
+  <img src="Z:/picture/008/save_picture_613920.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613871.jpg" />
+  <img src="Z:/picture/008/save_picture_613871.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613848.jpg" />
+  <img src="Z:/picture/008/save_picture_613848.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613570.jpg" />
+  <img src="Z:/picture/008/save_picture_613570.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613554.jpg" />
+  <img src="Z:/picture/008/save_picture_613554.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613428.jpg" />
+  <img src="Z:/picture/008/save_picture_613428.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613379.jpg" />
+  <img src="Z:/picture/008/save_picture_613379.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Sommerbrise 2K22: The Chill & Deep House Session (2022) [AAC|~298 Kbps] <Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613282.jpg" />
+  <img src="Z:/picture/008/save_picture_613282.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Los Angeles Beach Lounge, Vol. 5 (2022) [AAC|~331 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613269.jpg" />
+  <img src="Z:/picture/008/save_picture_613269.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Chillout Spring Gems 2022: Chillout Your Mind (2022) [AAC|~325 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613268.jpg" />
+  <img src="Z:/picture/008/save_picture_613268.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Groove Beats: Urban Chillout Music (2022) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613261.jpg" />
+  <img src="Z:/picture/008/save_picture_613261.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613169.jpg" />
+  <img src="Z:/picture/008/save_picture_613169.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613168.jpg" />
+  <img src="Z:/picture/008/save_picture_613168.jpg" />
 </div>
 
 

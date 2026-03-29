@@ -6,7 +6,7 @@ Adobe Substance 3D Designer 11.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734938.jpg" />
+  <img src="Z:/picture/008/save_picture_734938.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Airwave - Remixed Volume One (2013) [FLAC|Lossless]<Electronic, Progressive Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734936.jpg" />
+  <img src="Z:/picture/005/save_picture_734936.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ App Cleaner & Uninstaller Pro 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734935.jpg" />
+  <img src="Z:/picture/008/save_picture_734935.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.19 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734934.jpg" />
+  <img src="Z:/picture/008/save_picture_734934.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ OCCT 10.0.8 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734930.jpg" />
+  <img src="Z:/picture/008/save_picture_734930.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Telegram Desktop 3.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734928.jpg" />
+  <img src="Z:/picture/008/save_picture_734928.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ R-Studio 9.0 Build 190275 Network RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734927.jpg" />
+  <img src="Z:/picture/008/save_picture_734927.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Adobe Animate 2022 22.0.3.179 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734922.jpg" />
+  <img src="Z:/picture/008/save_picture_734922.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ QuarkXPress 2022 18.0 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734920.jpg" />
+  <img src="Z:/picture/008/save_picture_734920.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ByClick Downloader Premium 2.3.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734918.jpg" />
+  <img src="Z:/picture/008/save_picture_734918.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.19 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734913.jpg" />
+  <img src="Z:/picture/008/save_picture_734913.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Movavi Video Converter 22.2.0 Premium RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734908.jpg" />
+  <img src="Z:/picture/008/save_picture_734908.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ R-Studio Network 9.0 Build 190275 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734906.jpg" />
+  <img src="Z:/picture/008/save_picture_734906.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Alfred 4 Powerpack 4.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734882.jpg" />
+  <img src="Z:/picture/008/save_picture_734882.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Ableton - Live Suite 11.1.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734880.jpg" />
+  <img src="Z:/picture/008/save_picture_734880.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Cookie 6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734869.jpg" />
+  <img src="Z:/picture/008/save_picture_734869.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Keep It 1.8.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734867.jpg" />
+  <img src="Z:/picture/008/save_picture_734867.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Brennan Heart - Live @ Virtual Playground, Electric Love Festival, Austria 2020-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734862.jpg" />
+  <img src="Z:/picture/008/save_picture_734862.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Third Party - Live @ Sweatbox Presents 2020-07-26 [MP3|320 Kbps] <Progressive Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734861.jpg" />
+  <img src="Z:/picture/008/save_picture_734861.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Viper FTP 5.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734859.jpg" />
+  <img src="Z:/picture/008/save_picture_734859.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734856.jpg" />
+  <img src="Z:/picture/008/save_picture_734856.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Chaotica 2.0.26 Beta Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734809.jpg" />
+  <img src="Z:/picture/008/save_picture_734809.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734808.jpg" />
+  <img src="Z:/picture/008/save_picture_734808.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Easy New File 4.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734804.jpg" />
+  <img src="Z:/picture/008/save_picture_734804.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ DesiGN for Numbers - Templates 5.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734802.jpg" />
+  <img src="Z:/picture/008/save_picture_734802.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Allegorithmic Substance Alchemist 2020.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734801.jpg" />
+  <img src="Z:/picture/008/save_picture_734801.jpg" />
 </div>
 
 

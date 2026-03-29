@@ -7,7 +7,7 @@ VA - Lounge And Jazz Background Music (2024) [MP3|320 Kbps] <Lounge, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058219.jpg" />
+  <img src="Z:/picture/005/save_picture_1058219.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055692.jpg" />
+  <img src="Z:/picture/005/save_picture_1055692.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Frezee - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055354.jpg" />
+  <img src="Z:/picture/005/save_picture_1055354.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Sensual Dark Blues (2026) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054840.jpg" />
+  <img src="Z:/picture/005/save_picture_1054840.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Booker T. & the M.G.'s - Super Collection (2026) [MP3|320 Kbps] <R'B, Soul, Jazz
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054771.jpg" />
+  <img src="Z:/picture/005/save_picture_1054771.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Solo Projects From The Rolling Stones (1971-2024) [MP3|320 Kbps] <Rock, Blu
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054076.jpg" />
+  <img src="Z:/picture/005/save_picture_1054076.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Ruby Mae Holloway - Favorites Collection (2026) [MP3|320 Kbps] <Soul Blues, Soul
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053106.jpg" />
+  <img src="Z:/picture/005/save_picture_1053106.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Tom Media - Blues Every Night (Compilation) (2026) [MP3|320 Kbps] <Blues, Blues 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052407.jpg" />
+  <img src="Z:/picture/005/save_picture_1052407.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Nina Blaze - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051491.jpg" />
+  <img src="Z:/picture/005/save_picture_1051491.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Nina Blaze - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051490.jpg" />
+  <img src="Z:/picture/005/save_picture_1051490.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CYRIE - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051098.jpg" />
+  <img src="Z:/picture/005/save_picture_1051098.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Etta James - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051095.jpg" />
+  <img src="Z:/picture/005/save_picture_1051095.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Song
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051094.jpg" />
+  <img src="Z:/picture/005/save_picture_1051094.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Song
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051093.jpg" />
+  <img src="Z:/picture/005/save_picture_1051093.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051091.jpg" />
+  <img src="Z:/picture/005/save_picture_1051091.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051086.jpg" />
+  <img src="Z:/picture/005/save_picture_1051086.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Nina Blaze - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051083.jpg" />
+  <img src="Z:/picture/005/save_picture_1051083.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Nina Blaze - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051082.jpg" />
+  <img src="Z:/picture/005/save_picture_1051082.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Blues compilation part 3 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050787.jpg" />
+  <img src="Z:/picture/005/save_picture_1050787.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nina Blaze - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050761.jpg" />
+  <img src="Z:/picture/005/save_picture_1050761.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ai - Inspired Blues & Soul Songs Part 2 (2025) [MP3|320 Kbps] <Blues & Soul Song
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050706.jpg" />
+  <img src="Z:/picture/008/save_picture_1050706.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Ai - Inspired  Blues & Soul Songs Part 1 (2025) [MP3|320 Kbps] <Blues & Soul Son
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050654.jpg" />
+  <img src="Z:/picture/008/save_picture_1050654.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Frezee - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050427.jpg" />
+  <img src="Z:/picture/005/save_picture_1050427.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Blues compilation part 1  Blues (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050423.jpg" />
+  <img src="Z:/picture/005/save_picture_1050423.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Blues compilation part 2 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulf
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050422.jpg" />
+  <img src="Z:/picture/005/save_picture_1050422.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050418.jpg" />
+  <img src="Z:/picture/005/save_picture_1050418.jpg" />
 </div>
 
 

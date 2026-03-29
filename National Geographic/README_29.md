@@ -1,3 +1,107 @@
+###  Публикация: 1417483   (357551) от 20.10.2020
+
+NG: Подъем "Коста Конкордии" / The Raising the Costa Concordia (2014) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это эксклюзивная история о том, как проводились работы по подъёму и эвакуации круизного лайнера "Коста Конкордия", потерпевшего кораблекрушение около итальянского острова Джильо 13 января 2012 года.Производство: Великобритания / Windfall FilmsЖанр: ДокументальныйРежиссер: Colin CampbellПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F0DB8EDE3E731C4B5035E89846F3B838B0EEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417336   (357547) от 20.10.2020
+
+NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari. Snake Killers (2001) DVDRemux
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно, медоед - самое сильное плотоядное существо в нашем мире. Его традиционная добыча - птицы, пчелы, скорпионы, ящерицы и змеи, но подчас жертвами его смертоносных когтей и мощных челюстей становятся дикобразы, трубкозубы, антилопы и даже буйволы. Однако, при всей своей свирепости, медоед питает ненасытную страсть к меду. Перед Вами захватывающий фильм Дэвида (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Дэвид Хьюз, Кэрол ХьюзПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBDB0625706BD63A308788FEBEF30E70E460551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329001   (356296) от 03.10.2019
+
+NG: Секретное оружие Японии / Japan's Secret Weapon (2009) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1946 года, спустя 8 месяцев после окончания Второй мировой войны, в США было принято решение на высочайшем правительственном уровне: одна из самых совершенных систем японского оружия была отправлена на морское дно, чтобы избежать её попадания в руки Советского Союза. Мы узнаем о том, как мог измениться ход Второй мировой войны, если бы японцы осуществили свой (   Читать дальше...   )Производство: США, Spy Pond Production, Windfall Films, National GeographicЖанр: Документальный, история, исследованияРежиссер: Эрик СтэнджПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B801A46F85CF07EA6B77E75CB78F3B925EB1BF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256508   (354264) от 22.10.2018
+
+NG. Потерянные мумии Новой Гвинеи / Mystery Mummies of New Guinea (Lost Mummies of New Guinea) (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высоко в скалах, окружающих территорию, на которой живет племя Кок в Папуа-Новой Гвинее, располагаются галереи, сооруженные их предками. Подвешенные в них на цепях мумии смотрят прямо на деревню. Они сохранены на века, чтобы их навещали и отдавали им почести. С 50-х годов, когда в этот регион стали заезжать миссионеры, ритуал мумификации умерших родственников был (   Читать дальше...   )Производство: США, John Rubin Productions INC, National GeographicЖанр: Документальный, история, исследованиеРежиссер: Джон РубинПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A8E71568B46495DD73E80BC3B9EC387FEC898E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256638   (354142) от 22.10.2018
 
 NG. Титаник: Роковой пожар / Titanic's: Fatal Fire (Titanic: The New Evidence) (2017) DVB (Сезон 17, эпизод 1)
@@ -6,7 +110,7 @@ NG. Титаник: Роковой пожар / Titanic's: Fatal Fire (Titanic: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354142.jpg" />
+  <img src="Z:/picture/008/save_picture_354142.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Остров муссонов. Озерные охотники / Island of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351888.jpg" />
+  <img src="Z:/picture/008/save_picture_351888.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Загадка гигантского пещерного паука / Myste
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350810.jpg" />
+  <img src="Z:/picture/008/save_picture_350810.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG. Мумии, застывшие во времени / Mummies. Frozen in Time
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349750.jpg" />
+  <img src="Z:/picture/008/save_picture_349750.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG: Затерянный храм империи инков / Lost Temple of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346446.jpg" />
+  <img src="Z:/picture/008/save_picture_346446.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Затерянный храм империи инков / Lost Temple of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346438.jpg" />
+  <img src="Z:/picture/008/save_picture_346438.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG. Франциск-бунтарь / Rebel Pope (2016) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345657.jpg" />
+  <img src="Z:/picture/008/save_picture_345657.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DL [H.264/1080p] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343944.jpg" />
+  <img src="Z:/picture/008/save_picture_343944.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DLRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343942.jpg" />
+  <img src="Z:/picture/008/save_picture_343942.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG: Чудеса инженерии / Big Bigger Biggest (2008-2009) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342925.jpg" />
+  <img src="Z:/picture/008/save_picture_342925.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NGW. Дикий Нил / Wild Nile (2014) HDTVRip [H.264/720p-LQ] (1-3 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342116.jpg" />
+  <img src="Z:/picture/008/save_picture_342116.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Топ 10 Мегамонстры / Top 10 Biggest Beasts Ever (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341948.jpg" />
+  <img src="Z:/picture/008/save_picture_341948.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ NG: От колыбели до могилы / Cradle to Grave (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341631.jpg" />
+  <img src="Z:/picture/008/save_picture_341631.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ NG. Первая мировая война: тоннели смерти / WWI: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340902.jpg" />
+  <img src="Z:/picture/008/save_picture_340902.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ NGW. Дикая природа Коста-Рики / Wild Costa Rica (2000) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340900.jpg" />
+  <img src="Z:/picture/008/save_picture_340900.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ NGW. Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340847.jpg" />
+  <img src="Z:/picture/008/save_picture_340847.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340788.jpg" />
+  <img src="Z:/picture/008/save_picture_340788.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340726.jpg" />
+  <img src="Z:/picture/008/save_picture_340726.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ NG: Внутри колец Сатурна / Mission Saturn (2017) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339393.jpg" />
+  <img src="Z:/picture/008/save_picture_339393.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338697.jpg" />
+  <img src="Z:/picture/008/save_picture_338697.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NGW: Гонка жизни / Race of Life (2015) HDTVRip [H.264/1080p-LQ] (Се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338207.jpg" />
+  <img src="Z:/picture/008/save_picture_338207.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NG: Архитекторы древности / Architects of the Ancient World 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334439.jpg" />
+  <img src="Z:/picture/008/save_picture_334439.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ NG: Архитекторы древности / Architects of the Ancient World 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1AB19D578779A506F922095FCD5548D773DCA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258812   (334437) от 31.10.2018
-
-NGW: Остров муссонов. Паутина жизни / Island of the Monsoon. Web of life (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сериал посвящен удивительному миру дикой природы чарующего острова Шри Ланка - этого мира, заполненного экстримом. От влажных, насыщенных водными испарениями джунглей на юге, до выжженной сухой восточной части, этот небольшой остров - словно мозаика из различных сред обитания и микроклиматов.Производство: Великобритания, Blue Ant Media Solutions Inc., Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0537D3790F650016662A0D718B286F945AE9384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258821   (334432) от 31.10.2018
-
-NG: Мегасооружения: музей Лувр Абу Даби / Megastructures. Louvre Abu Dhabi (2017) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расположившийся на берегу Персидского Залива художественный музей Лувр Абу-Даби, спроектированный архитектором с мировым именем Жаном Нувелем, построен по ассоциации с парижским Лувром и является хранилищем почти 400 шедевров мировой живописи. Массивный стальной купол весом почти в 7000 тонн, прикрывающий залы музея - настоящее чудо инженерной мысли, аналогов которому (   Читать дальше...   )Производство: Новая Зеландия, NHNZ Ltd, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Патрик ЛадуэтетПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8D79C04C76838CCB195855BA46FC483E9B7E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580190   (331714) от 30.09.2022
-
-Возрождение рая в Горонгосе / Gorongosa: Paradise Reborn (2022) WEBRip [H.264/720p] [VO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Национальный парк Горонгоса был известен как африканский рай, но война почти уничтожила его. Теперь это место величайшей реставрации дикой природы в истории.Производство: СШАЖанр: документальныйРежиссер: Лиза ФейтПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133701F4D909F34D4F5AF5C6D93E6E6D6C513B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170861   (322971) от 07.11.2017
-
-NG: Через миллион лет / Year Million (2017) HDTVRip  [H.264/720p-LQ] (Сезон 1, серии 1-6 из 6)
-
->>След.
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это новый сериал, посвященный прогнозам развития жизни в ближайшем и отдаленном будущем, когда искусственный интеллект будет буквально повсюду, а достижения медицины и биологии позволят людям жить сотни лет.Производство: США, RadicalMedia for National GeographicЖанр: Документально-драматический сериалРежиссер: Марк Элайджа РозенбергПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6х~00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F7F3756C21101A8257308E0C1950EDF0D2431C
 ```
 
 https://mybot314.ru/tekegram_catalog/

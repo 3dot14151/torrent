@@ -1,3 +1,81 @@
+###  Публикация: 1414739   (1022658) от 04.04.2021
+
+The Uncertain: Light At The End (2020) [Ru/Multi] (1.3) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022658.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Uncertain: Light At The End — игра в приключенческом жанре, действие которой происходит в постапокалиптическом мире. Окунитесь в загадочную атмосферу и примите решения, от которых будет зависеть судьба вашего героя.Тип издания: RepackРазработчик: New Game OrderЖанр: Adventure, Action, Puzzle, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591E12FDD465D996DC9C580AFF414E15DCB16192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460704   (1022353) от 06.04.2021
+
+ENCODYA (2021) [Ru/Multi] (1.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры ENCODYA разворачивается в анитиутопическом будущем. Это приключение в жанре «укажи и щелкни», в котором очарование и творческий потенциал Studio Ghibli сочетаются с атмосферой «Бегущего по лезвию» и игровым юмором «Острова обезьян». Нео-Берлин, 2062 год. Девятилетняя сирота Тина и СЭМ-53, огромный неуклюжий робот-телохранитель, живут в самодельном домике (   Читать дальше...   )Тип издания: RepackРазработчик: Chaosmonger StudioЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB575C3A8DA3CA9B20632C758EE8EE10EC3575B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460945   (1022169) от 07.04.2021
+
+Lost Words: Beyond the Page (2021) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lost Words — атмосферное повествовательное приключение, которое разворачивается в личных дневниковых записях девочки по имени Иззи. В них вы исследуете фантастическую страну Эсторию, где слова обладают огромной силой. Благодаря захватывающей истории, мастерски воплощённой сценарным талантом Рианны Пратчетт, Lost Words: Beyond the Page завораживает игроков своим уникальным (   Читать дальше...   )Тип издания: LicenseРазработчик: Sketchbook Games, Fourth StateЖанр: Action, Adventure, Casual, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9246005148ED5A9CF87755DCD56E05B9E7555BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397939   (1021982) от 08.04.2021
 
 Creaks (2020) [Ru/Multi] (1.0.9) Repack Other s
@@ -6,7 +84,7 @@ Creaks (2020) [Ru/Multi] (1.0.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021982.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (2.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021978.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Scarlet Hood and the Wicked Wood (2021) [Ru/Multi] (1.0.0c) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021845.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Children of Morta (2019) [Ru/Multi] (1.2.55/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021838.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Cozy Grove (2021) [Ru/Multi] (1.5.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021655.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021491.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ ADD (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021476.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Mundaun (2021) [Ru/Multi] (1.0.207) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021068.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Don't Be Afraid (2020) [Ru/Multi] (1.002) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020230.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Shattering (2020) [Ru/Multi] (1.1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019726.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2/2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019358.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ S.W.A.N.: Chernobyl Unexplored (2021) [Ru/Multi] (1.0.1160.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018669.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Maid of Sker (2020) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018662.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Falconeer (2020) [Ru/Multi] (1.4.0.1/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018480.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Beholder (2016) [Ru/Multi] (1.6.0.12741/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017969.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Signifier (2020) [Ru/Multi] (1.101) License GOG [Director's Cut Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017965.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016856.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016630.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Inherit the Earth: Quest for the Orb (1994) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016525.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.71/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016477.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Papetura (2021) [Graphic] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016340.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016054.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Tohu (2021) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014305.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Tohu (2021) [Ru/Multi] (1.02) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D5EBB96A97C91C6A080A470DCFCC52084E8FA7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472450   (1014285) от 25.05.2021
-
-Essays on Empathy (2021) [En] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Essays on Empathy – это кураторская подборка лучших усилий Deconstructeam в поиске новых повествовательных впечатлений в играх. Населите будни разносторонних персонажей изо всех слоёв общества в крохотных инновационных интерактивных историях: от наёмного убийцы, работающего в цветочном магазине, до школьницы, которая убеждена в том, что её собственный скелет ей не (   Читать дальше...   )Тип издания: LicenseРазработчик: DeconstructeamЖанр: Adventure, Metroidvania, RPG, QuestЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2589A95FE78266EAE87C33D7D904F5A9AB27EBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472846   (1013948) от 27.05.2021
-
-Rainswept (2019) [En] (1.1.5a/1.1.4a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Майкл Стоун прибыл в небольшой городок Пайнвью, чтобы помочь полицейским разобраться с, казалось бы, простым делом - мертвой парой на кухне собственного дома. Местные уверены, что это самоубийство, поскольку в городе ходили слухи о непростых отношениях влюбленных. Но есть ли правда в этих сплетнях? Помогите детективу Стоуну и его целеустремленной и чуткой (   Читать дальше...   )Тип издания: LicenseРазработчик: Frostwood InteractiveЖанр: Adventure, Detective, QuestЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7070968866DD299649528053AD9E851AC31359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473567   (1013655) от 29.05.2021
-
-Larger Than Light (2021) [En] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Larger Than Light - захватывающая 2.5D платформер-головоломка с двумя персонажами, в которой вы одновременно управляете человеком-лампочкой, который может отбрасывать тени, и девушкой, которая может превращаться в тень. В Larger Than Light вы следуете за приключениями пары братьев и сестер-подростков - девушки по имени Скиа, которая может превращаться в тень, и мальчика (   Читать дальше...   )Тип издания: LicenseРазработчик: 20 Watt GamesЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E8B7EC581E7FAD6C653A9EF62E62C1E795113D
 ```
 
 https://mybot314.ru/tekegram_catalog/

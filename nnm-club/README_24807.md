@@ -1,25 +1,25 @@
-###  Публикация: 1807190   (65304) от 17.07.2025
+###  Публикация: 1797972   (66676) от 19.05.2025
 
-Ramonda - The Walls Are Crumbling Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Ballet Mecanico - Primera Secuencia (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Italo Disco, Synthpop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Under The Moonlight (04:32)
- 02 - The Walls Are Crumbling Down (04:15)
- 03 - Don't Look For Love (04:06)
- 04 - Fight Fire With Fire (05:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:20
+1. No cedere (4:14)
+2. Rosa era inocente (3:31)
+3. Mascarilla (4:09)
+4. Como la ultima vez (3:44)(   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 00:35:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D819253BD699E66D9B97A8B23D2E226F4451C37
+magnet:?xt=urn:btih:C5F7A70D5B1698C56083561634F3805F89F9B8EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807167   (65303) от 17.07.2025
+###  Публикация: 1797882   (66675) от 19.05.2025
 
-Kerosin - Через тернии к монстрам (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+Александр Ягья - Я люблю тебя (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 101 Troubles [00:01:57]
-02. Кружок [00:03:33]
-03. Doggone Life [00:02:12]
-04. Плохо быть мной [00:02:32](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:01
+01. Вспоминай [00:04:11]
+02. Отпусти меня [00:03:46]
+03. Постой [00:04:27]
+04. Меня не любила ты [00:04:47](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A96256C03DB6AB9D7DB30E6A179B4813805DF3C
+magnet:?xt=urn:btih:B4A008780456EFD11179AEF74AE19309C6774AD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807134   (65302) от 17.07.2025
+###  Публикация: 1797996   (66674) от 19.05.2025
 
-Super Grup Electrecord - Slagare, Slagare, Slagare (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+Giant - Stand And Deliver (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Not Right (04:12)
+ 02. A Night To Remember (04:13)
+ 03. Hold The Night (03:57)
+ 04. I Will Believe (04:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D473ABE42F95058CF640F1F4A232EFABAF85E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797966   (66673) от 19.05.2025
+
+Manowar - Kings of Metal (1988) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Bad Blood (Prost Obicei)
-A2 Harmour Love (Dragoste Fericita)
-A3 Arms Of Mary (Bratele Lui Mary)
-A4 Walk Away From Love (Voi Fugi De Dragoste)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:27
+A1. Wheels Of Fire
+A2. Kings Of Metal
+A3. Heart Of Steel
+A4. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57460D1C2CDFC5F091DE31390E5A4F8FE44129C0
+magnet:?xt=urn:btih:CCF917A4B48A2FE7DD100AF9766E85FC2B3E9B06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806864   (65301) от 17.07.2025
+###  Публикация: 1796650   (66672) от 19.05.2025
 
-The Unarchiver - Unzip RAR ZIP 3.3.9 [Multi/Ru]
+Фоны - Graphic Studio - Creative Fabrica - Butterfly Backgrounds [PNG]
 
->>Архив торрентов
->>Архив 4Apple
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Unarchiver - Unzip RAR ZIP - простое в использовании приложение, которое позволяет распаковывать десятки форматов архивов, такие как: Rar, Zip, 7z, Tar, Xz, Iso, Lha, bz2, Lzh, cab, cpio, jar, exe, pkg, dms, tbz, swf, Gzip, Bzip2. Также может сжимать и шифровать любые типы файлов, чтобы сделать личные данные более безопасными.Тип издания: macOS SoftwareРазработчик: © 2025 qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+Фоны с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4FAA2C9BCF48D3123DC3F05A487086EAFDFB061
+magnet:?xt=urn:btih:30F21D6CF54EEBB485EABB9FAD91FF1F966CA503
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +140,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807247   (65300) от 17.07.2025
+###  Публикация: 1796647   (66671) от 19.05.2025
 
-Серж Винтеркей | Антидемон (Книга 18) (2025) [MP3, Сергей Уделов]
+Растровый клипарт - Dream Creation - Creative Fabrica - Colorful Spring Butterfly Clipart [PNG]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Секта «Новых практиков» наносит сильный удар по Аргенту, король жаждет мести. Невиновные должны крутиться, чтобы не попасть в подвал к палачу, виновные пытаются подставить других вместо себя. Эйсон начинает думать, что в Бельбе было как-то спокойнее… Две-три смертельные дуэли в день, в остальное время отдыхаешь… Одна отрада – новые мощные артефакты позволяют, наконец, (   Читать дальше...   )Жанр: Фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 08:28:13
+Красочный клипарт с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEA6BA3F0DF37F86D3D749C5435E8791218ACE2E
+magnet:?xt=urn:btih:13BBCBA8FD6DA1815B0508970EA80E5C4E7D2C66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807207   (65299) от 17.07.2025
+###  Публикация: 1796539   (66670) от 19.05.2025
 
-Slaughter to Prevail - Grizzly (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
+Фоны - Graphic Studio - Creative Fabrica - Musical Love Backgrounds [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Banditos (4:52)
-02. Russian Grizzly In America (4:14)
-03. Imdead (3:50)
-04. Babayka (3:58)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:50:13
+Фоны на тему любви и музыки.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F00526CA1FDDEDA86D49BCFEFF952D48B0EBCD6B
+magnet:?xt=urn:btih:FCD46479272E460B7CCC27C6E0A9773A6E9FEA8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +192,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807250   (65298) от 17.07.2025
+###  Публикация: 1796339   (66669) от 19.05.2025
 
-Серж Винтеркей | Антидемон (Книга 19) (2025) [MP3, Сергей Уделов]
+Фоны - Monika Ratan - Behance - Liquid Marble Gold Backgrounds - 192068387 [JPG]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сектанты воюют с Аргентом, а Эйсон в этом хаосе использует все возможности нанести очередной удар по высшим демонам. И речь идет не только об искусстве партизанской войны с демонами, но и о необходимости создать впечатление, что никакой войны и вовсе нет, а жертвы среди высших демонов абсолютно случайны… Сложно, мозги кипят, но куда деваться? Но некоторые последствия (   Читать дальше...   )Жанр: фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 08:29:31
+12 бесплатных фонов под  мрамор и золото.
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 1024 x 1024
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A5F59A43030758274B18B4016F2D3DFEC59C4D1
+magnet:?xt=urn:btih:DD49800CBF7B8D035E4882ABE4C26816A898466D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,25 +219,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807223   (65297) от 17.07.2025
+###  Публикация: 1796538   (66668) от 19.05.2025
 
-Пол Андерсон | Сестра Земли (2020) [MP3, Puffin Сafe]
+Фоны - Graphic Studio - Creative Fabrica - Purple Blue Butterfly Backgrounds [PNG]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Венера покрыта безбрежным океаном, на ней нет материков и нет кислорода — что-то в развитии этой планеты пошло по иному пути — материки не поднялись, многие минералы не образовались, магнитное поле очень слабое, а процессы окисления происходят другими способами. Но океан Венеры пестрит жизнью и высшая ее форма — доверчивые дельфоиды, в которых люди отказываются признавать (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:52:00
+Бесплатные фоны с бабочками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F49DCD924087555C370BE4ABD4E8D3731447BE7
+magnet:?xt=urn:btih:7414E5E655F53006FBECB627F24CB041B898CAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,27 +245,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807241   (65296) от 17.07.2025
+###  Публикация: 1797913   (66667) от 19.05.2025
 
-Alice Cooper - Up All Night (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-Rock>
+Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика
+>>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Up All Night [00:03:07]
-02. Wild Ones [00:04:17]
-03. Black Mamba [00:04:57]Жанр: Hard-RockПродолжительность: 00:12:22
+01. Canto della terra (4:03)
+02. The Prayer (4:30)
+03. Sogno (4:04)
+04. ’O mare e tu (4:37)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:01:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F4A54A2B9A2E08B8CB9D722DC556DD809373840
+magnet:?xt=urn:btih:DF3840CE98EB4B55FE7B5DF5A6D8CC0182DB9867
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,25 +274,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807229   (65295) от 17.07.2025
+###  Публикация: 1798019   (66666) от 19.05.2025
 
-Сергей Карелин, Ник Фабер | Адвокат империи (Книга 5) (2025) [MP3, Олег Шубин]
+Журнал | Тайны ХХ века №21 (1167) (май 2025) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я был адвокатом. Честным. Не верите? Зря, ведь именно поэтому меня и убили. Судьба или боги решили дать мне еще один шанс и отправили в мир магии, аристократов и корпораций. Вот только забыли дать мне при этом и магию, и благородный род, поместив в тело простолюдина. Правда все-таки кое-что мне перепало – умение читать эмоции людей. Что ж у меня опять есть возможность (   Читать дальше...   )Жанр: Попаданцы, ФэнтезиИздательство: Литрес - АвторПродолжительность: 08:46:57
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C0EF9EC28DD5D30886CC2DC947CBE564D4200F6
+magnet:?xt=urn:btih:B0FE36C0A9B0BFBBC5607622FB1027914440D232
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,28 +300,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807236   (65294) от 17.07.2025
+###  Публикация: 1796655   (66665) от 19.05.2025
 
-Yelawolf & Michael Phillips - Whiskey & Roses (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Hip-Hop, Country>
+Фоны - Graphic Studio - Creative Fabrica - Retro Geometric Swirls Backgrounds [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Helping Hand [00:04:20]
-02. I Swear [00:03:41]
-03. Amnesia [00:03:43]
-04. Falling [00:03:32](   Читать дальше...   )Жанр: Alternative Hip-Hop, CountryПродолжительность: 00:37:37
+Фоны с геометрическими завитками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B60A26B2CAD901C44AD854178F106CBFFB32C804
+magnet:?xt=urn:btih:797FA42462B068C0A33BE66514EFD3D8FDCC88C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,28 +326,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807170   (65293) от 17.07.2025
+###  Публикация: 1796651   (66664) от 19.05.2025
 
-Catapulta Airlines - Бирбоинг (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk Rock>
+Растровый клипарт - Dream Creation - Creative Fabrica - Butterfly Flowers Sublimation Clipart [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Катапульта эирлайнс [00:01:54]
-02. Придурок [00:02:34]
-03. Бир брейк [00:02:01]
-04. Тупой босс [00:02:07](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:22:16
+Клипарт с бабочками и цветами для сублимации.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9156EC9C40C7418AFA8E9DB31092FF1E8F687B2C
+magnet:?xt=urn:btih:B53365F43E50906548CFFAE5B0AE2237BD06A5D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -330,28 +352,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807067   (65292) от 17.07.2025
+###  Публикация: 1796646   (66663) от 19.05.2025
 
-Upon A Burning Body - 6 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Deathcore>
+Растровый клипарт - Dream Creation - Creative Fabrica - Watercolor Butterfly Sublimation Bundle [PNG]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-(2010) The World Is Ours
-(2012) Red. White. Green
-(2014) The World Is My Enemy Now(   Читать дальше...   )Жанр: Alternative, Metalcore, DeathcoreПродолжительность: 6 CD, 03:31:01
+Акварельный клипарт с бабочками для сублимации.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D908EF36AA40FA0AE7284CCD75077F08BDE6B2C1
+magnet:?xt=urn:btih:994C6E186187AAE843322C124386DA55D72C6309
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,28 +378,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807237   (65291) от 17.07.2025
+###  Публикация: 1797957   (66662) от 19.05.2025
 
-Cryptopsy - An Insatiable Violence (2025) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+Zealotry - The Last Witness (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The Nimis Adoration 4:10
-2. Until There's Nothing Left 3:58
-3. Dead Eyes Replete 3:57
-4. Fools Last Acclaim 3:25(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:33:52
+01. Arc Of Eradication (04:53)
+02. Heralding The Black Apostle (06:33)
+03. Cybernetic Eucharist (05:07)
+04. Progeny Omega (09:11)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FD7090B1A7E9FC7AF426AB53FECBE205096401E
+magnet:?xt=urn:btih:38548283445FDF45FE28EE913887B7129B476864
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,57 +407,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807252   (65290) от 17.07.2025
+###  Публикация: 1797927   (66661) от 19.05.2025
 
-Fallujah - Xenotaph (2025) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65290.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Stars We Drown 3:06
-2. Kaleidoscopic Waves 4:12
-3. Labyrinth Of Stone 5:45
-4. The Crystalline Veil 5:46(   Читать дальше...   )Жанр: Technical Death Metal, Progressive MetalПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4487DC4DEE93E75647C188A4F5B28C0171FFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807205   (65289) от 17.07.2025
-
-Motorjesus - Streets of Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
+Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Somewhere from Beyond (5:27)
-02. Back for the War (3:31)
-03. Streets of Fire (4:32)
-04. They don't Die (3:23)(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:49:51
+A1-We Are the Many
+A2-The Bogeyman
+A3-Memorial
+A4-No Tomorrow(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:900943548F871AEC7A559DB5E3830839CCD6F66E
+magnet:?xt=urn:btih:CA70B4AC39FB8D2E3FCF2F44C7D27EAEBC61590C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,28 +436,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807213   (65288) от 17.07.2025
+###  Публикация: 1797921   (66660) от 19.05.2025
 
-Anapilin - Dezintegracija (2021) [MP3|320 Kbps] <Black Metal>
+Martoriator - Bloodpainted Visions of Perpetual Conflict (2025) [MP3|320 Kbps] <Black, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aeternum
-02. Oderint Dum Metuant
-03. Postmortem
-04. Vox Nihili(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:21
+01. Cannibal Dictatorship
+02. Nail Rain
+03. Chaos Protocol
+04. Red Flowers Of Nanjing(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:30:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6922A978A6EEAA7CC47A23C53F95A1551711BF51
+magnet:?xt=urn:btih:AD0DE54DF19E375085BFAEE26A9206010B9BBA37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,245 +465,254 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807381   (65287) от 18.07.2025
+###  Публикация: 1798002   (66659) от 19.05.2025
 
-Виктор Молотов, Сергей Харченко | Младший Приручитель (Книга 6). Плывём за монстрами! (2025) [MP3, Руслан Дё]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аннотацию съел Грабби… Возращать отказывается, но если вы как-то можете на него повлиять, то обязательно сообщите об этом в комментариях. Мы рассмотрим все предложения по её вызволению!Жанр: Фэнтези, боевик, юмор, попаданцыИздательство: ЛитРесПродолжительность: 07:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A999349246F3AE4AA7826E6E7F3EDB10D06FB91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807383   (65286) от 18.07.2025
-
-Виктор Молотов, Сергей Харченко | Младший Приручитель (Книга 7). Летим за монстрами! (2025) [MP3, Руслан Дё]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я Сергей Смирнов, единственный в мире приручитель монстров! Мне уже восемь лет… И чем старше я становлюсь, тем больше приключений мне подкидывает жизнь! (оставшуюся часть Аннотации съел Акулыч, но мы его не виним, переходный возраст как никак)Жанр: Фэнтези, боевик, юмор, попаданцыИздательство: ЛитРесПродолжительность: 07:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E00CFC549E7F5E214AF2FA8442A7F1902086C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807376   (65285) от 18.07.2025
-
-Виктор Молотов, Сергей Харченко | Младший Приручитель (Книга 3). Пешком за монстрами! (2025) [MP3, Руслан Дё]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня авторам удалось пронести аннотацию мимо змейки. Это было тяжело, но мы справились с помощью артефакта невидимости! Поэтому спешим вам рассказать, что Сергею пошёл уже второй год. Его перевели в младшую группу детского сада, где продолжается противостояние с демидовцами. Но это не самое главное. И даже не то, что он приручил первого монстра! Нанятый князем (   Читать дальше...   )Жанр: Фэнтези, боевик, юмор, попаданцыИздательство: ЛитРесПродолжительность: 07:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B850CA8B38983E115B34628B5A20D57D1D71342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807276   (65284) от 18.07.2025
-
-Boneshakers - Live To Be This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I’ll Kick A Brick (For My Man) (03:41)
- 02 - They Say I'm Different (03:44)
- 03 - How Do You Spell Love (02:54)
- 04 - I Need Somebody (04:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB2550F840495FF10FE53755F47A9CD8DFA3FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807377   (65283) от 18.07.2025
-
-Виктор Молотов, Сергей Харченко | Младший Приручитель (Книга 4). Бегом за монстрами! (2025) [MP3, Руслан Дё]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы были удивлены, когда змейка сговорилась с Кузей, и они-таки выкрали аннотацию прямо из-под носа авторов. Но мы не сдались, и, подговорив Рэмбо за чекушку, вернули её. Для Серёжи Смирнова стало неприятным сюрпризом появление новой опасности. Но он постарается с ней справиться как можно быстрее. А в это время тихо и постепенно закручивается в тугой опасный узел (   Читать дальше...   )Жанр: Фэнтези, боевик, юмор, попаданцыИздательство: ЛитРесПродолжительность: 07:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757751BAA2D0BB436C112801E373133DC1B6CF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807357   (65282) от 18.07.2025
-
-Reign Of Glory - Slingshot (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On
-02. Higher Ground
-03. Unholy Prophet
-04. Slingshot Of Faith(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400E7182541074F39E483C4F9B8ACF75EB09BCE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807214   (65281) от 18.07.2025
-
-Earthen Sea - Recollection (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Jazz>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Present Day
-02 - Another Space
-03 - Sunlit Leaving
-04 - A Single Pub(   Читать дальше...   )Жанр: Ambient, JazzПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53840DCE54AAAEE9368D86D4C2E2F8D9B6736B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807370   (65280) от 18.07.2025
-
-Руслан Казанцев - Лесоповал (2001) Remastered, 2025, Vybez Music [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лесоповал (Remastered 2025) [00:03:43]
-02. Цыганочка (Remastered 2025) [00:02:41]
-03. Черный ангел (Remastered 2025) [00:04:44]
-04. Срок (Remastered 2025) [00:03:35](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA3E273343220BBD083C47EAE5C28775239F698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807322   (65279) от 18.07.2025
-
-Эффи Брист Фонтане / Fontane Effi Briest (1974) BDRip [H.264/720p] [MVO]
+Виртуоз сердечных дел / Hjertevirtuosen (1916) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Адаптация сценария по мотивам романа немецкого писателя Теодора Фонтане 1894 «Под ивой»... Действие происходит в Германии в конце XIX столетия. Юная Эффи Брист против своей воли выходит замуж за барона фон Инстеттена, который в два раза старше её. Во время длительного отсутствия мужа скучающая Эффи знакомится с майором Кремпасом. Инстеттен получает министерский портфель (   Читать дальше...   )Производство: Германия / Tango FilmЖанр: драмаРежиссер: Райнер Вернер ФассбиндерАктеры: Ханна Шигулла, Вольфган Шенк, Улли Ломмель, Лило Пемпайт, Херберт Штайнмец, Урзула Штрэц, Ирм Херманн, Карлхайнц Бём, Карл Шейдт, Барбара ЛассПеревод: профессиональный многоголосыйЯзык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 02:20:32
+Забавная история. Прославленный и тщеславный виолончелист Карел поражает княжескую чету своей виртуозной игрой на концерте. В благодарность княгиня приглашает артиста на прогулку. Карел был очень талантлив и ... очень глуп и тщеславен. Он вообразил, что княгиня влюбилась в него и пустился во все тяжкие. Но любовь к царственным особам может быть и опасной...Производство: Дания / Dania Biofilm KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Альфред КонАктеры: Карл Альструп, Knud Lumbye, Эльза ВенгПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:32:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E515B3F960E64502B61CCC6C31BE080AAF3BB79
+magnet:?xt=urn:btih:B55E64A9728EC1E48A2BFA2F2865313D5AD5E2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797919   (66658) от 19.05.2025
+
+Футбол. FONBET Кубок России 2024/2025. Путь регионов Финал. Спартак (Москва) - Ростов (Ростов-на-Дону) (15.05.2025) TVRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66658.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Спартак» два матча не может забить, и это большая проблема. Кризисом, наверное, назвать нельзя. Кризисом можно назвать всю весеннюю часть чемпионата, а конкретно два матча. И мы видим, как Деян Станкович нервничает: что происходит на скамейке, его жесты и поведение – всё это передаётся команде. Провальный первый тайм с «Динамо», чуть исправление ситуации во втором, (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболПродолжительность: 02:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7446DB940F8035BE2EA728D6A079D592015219A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797961   (66657) от 19.05.2025
+
+Chris Connor - Four Classic Albums Plus (1953 - 1956) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From This Moment On [2:33]
+02. The Thrill Is Gone [2:50]
+03. Someone to Watch over Me [3:14]
+04. I Concentrate on You [3:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58385CA090EF733AA1D20423E4537D7D93BA4CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797924   (66656) от 19.05.2025
+
+Warfield - With the Old Breed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melting Mass
+02. Appetitive Aggression
+03. Soul Conqueror
+04. Fragmentation(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B026F27C061D6CEC27F74628C668A193F7B46562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797848   (66655) от 19.05.2025
+
+Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66655.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Adapt or Die (Intro Narrative by Jake Stern, sound FX by Zardonic)
+A2. Hatred Will Prevail (Monolith Remix by Rhys Fulber)
+A3. Disobey (Disruptor Remix by Zardonic)
+A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardonic)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797823   (66654) от 19.05.2025
+
+Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dystopia (04:24)
+02. Ascent Of The Blessed (04:10)
+03. Virus (03:55)
+04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797970   (66653) от 19.05.2025
+
+Марина Цветаева | Фортуна (Радиоспектакль) (2024) [MP3, Светлана Письмиченко, Александр Лыков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик.
+«Фортуна» – пьеса в пяти картинах, в стихах, написанная в феврале 1919 года. Сюжет: история реального исторического персонажа – герцога Лозэна, жившего в эпоху Французской революции. Цветаева отобрала пять эпизодов из биографии героя и объединила их образом Фортуны…
+(   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C411F2827FB0AEA062B9A400D55A5EED8535A578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797871   (66652) от 19.05.2025
+
+Confessions of a Traitor - This Pain Will Serve You (2025) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Starve [00:02:14]
+02 - Fatal Frame [00:03:19]
+03 - Doomsayer [00:03:45]
+04 - Midnight Sun [00:03:28](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E17E15FFB46AC3C266552BFB0BFCBDD2A0AE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797918   (66651) от 19.05.2025
+
+DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66651.jpg" />
+</div>
+
+
+###  Подробнее
+
+DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
+2005 - The Fury Of Our Maker's Hand
+2007 - The Last Kind Words
+2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

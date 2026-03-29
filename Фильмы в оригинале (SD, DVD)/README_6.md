@@ -1,3 +1,29 @@
+###  Публикация: 934607   (502241) от 05.09.2015
+
+Девушка и синьор / Una chica y un senor (1974) VHSRip [IT]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь красивой начинающей певицы Ариадны (Орнелла Мути) меняется после того, как она знакомится с преуспевающим адвокатом (Серджо Фантони), который старше её. Он помогает ей найти пропавшую машину и у них начинается бурный роман. Но разница в возрасте и жизненный приоритетах становятся непреодолимым препятствием в их отношениях. Ариадне приходится делать непростой (   Читать дальше...   )Производство: Испания, Impala, Pedro Masó Producciones CinematográficasЖанр: Комедия, МелодрамаРежиссер: Педро МасоАктеры: Орнелла Мути, Серджо Фантони, Эдуардо Фахардо, Эмилио Гутьеррес Каба, Диди Шерман, Луис Варела, Хельга Лине, Пастор Серрадор, Кета Клавер, Рафаэль НаварроПеревод: ОтсутствуетЯзык озвучки: ИтальянскийПродолжительность: 01:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC7AF6E3BB122F0C02DAC2487815AF2518CE8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934605   (502147) от 05.09.2015
 
 Приманка для девушки / Cebo para una adolescente / Forbidden Passion (1974) VHSRip [IT / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502147.jpg" />
+  <img src="Z:/picture/008/save_picture_502147.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501078.jpg" />
+  <img src="Z:/picture/008/save_picture_501078.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501070.jpg" />
+  <img src="Z:/picture/008/save_picture_501070.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501068.jpg" />
+  <img src="Z:/picture/008/save_picture_501068.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495153.jpg" />
+  <img src="Z:/picture/008/save_picture_495153.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491020.jpg" />
+  <img src="Z:/picture/008/save_picture_491020.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487327.jpg" />
+  <img src="Z:/picture/008/save_picture_487327.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484288.jpg" />
+  <img src="Z:/picture/008/save_picture_484288.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480244.jpg" />
+  <img src="Z:/picture/008/save_picture_480244.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478510.jpg" />
+  <img src="Z:/picture/008/save_picture_478510.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475593.jpg" />
+  <img src="Z:/picture/008/save_picture_475593.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471286.jpg" />
+  <img src="Z:/picture/008/save_picture_471286.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463191.jpg" />
+  <img src="Z:/picture/008/save_picture_463191.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460388.jpg" />
+  <img src="Z:/picture/008/save_picture_460388.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454874.jpg" />
+  <img src="Z:/picture/008/save_picture_454874.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453240.jpg" />
+  <img src="Z:/picture/008/save_picture_453240.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451365.jpg" />
+  <img src="Z:/picture/008/save_picture_451365.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450322.jpg" />
+  <img src="Z:/picture/008/save_picture_450322.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448923.jpg" />
+  <img src="Z:/picture/008/save_picture_448923.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444645.jpg" />
+  <img src="Z:/picture/008/save_picture_444645.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433583.jpg" />
+  <img src="Z:/picture/008/save_picture_433583.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432482.jpg" />
+  <img src="Z:/picture/008/save_picture_432482.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431006.jpg" />
+  <img src="Z:/picture/008/save_picture_431006.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429786.jpg" />
+  <img src="Z:/picture/008/save_picture_429786.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428189.jpg" />
+  <img src="Z:/picture/008/save_picture_428189.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BAAA71C1A38068685A0AFD5C152EE62C1330C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166106   (426299) от 16.09.2017
-
-23 Греха / Kuttram 23 (2017) DVDRip [HIN/Ru Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426299.jpg" />
-</div>
-
-
-###  Подробнее
-
-стория начинается с девушки по имени Джессика. Во время исповедования своих грехов священнику в церкви Св. Фомы на окраине Ченнаи, Джессику похищают. Помощник комиссара инспектор Ветриман, расследуя это загадочное исчезновение, узнает, что последний, кто ее видел был священник отец Джозеф. Но и он загадочным образом был убит. В это же время, старший брат Ветримана (   Читать дальше...   )Производство: ИндияЖанр: Криминал, ТриллерРежиссер: АривазхаганАктеры: Абхиная, Амит Бхаргава, Аравинд Акаш, Арун Виджай, Вамси Кришна, Махима Намбияр, Миша Гошал, Нилима Рани, Суджа Варуни, Тамби РамайаПеревод: ОтсутствуетЯзык озвучки: хиндиСубтитры: Русские,неотключаемыеПродолжительность: 02:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5971A1C053F1AF5E563060920CD4C788B652B236
 ```
 
 https://mybot314.ru/tekegram_catalog/

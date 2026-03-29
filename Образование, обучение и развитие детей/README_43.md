@@ -1,3 +1,56 @@
+###  Публикация: 1311768   (538231) от 01.07.2019
+
+Мария Демченко | Как я стала запевалой пятисотниц (1937) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_538231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкая книга. Единственное издание. Колхозы и колхозники.
+Для среднего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306402CBD12BA02E61477666D1BB648C250A301E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311770   (538225) от 01.07.2019
+
+Константин Баев, Виталий Шишаков | На чем земля держится (1937) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_538225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкая книга. Первое издание. Земля. Планеты. Геофизика. Происхождение Земли.Жанр: Образование, обучение и развитие детейФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7D2059C64B9A18C2AAFDCB6B4E0AC3991B141D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050522   (537983) от 08.09.2016
 
 Евгения Карлова | Английский для дошкольников. Полный курс (2012) [PDF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537983.jpg" />
+  <img src="Z:/picture/008/save_picture_537983.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537030.jpg" />
+  <img src="Z:/picture/008/save_picture_537030.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536888.jpg" />
+  <img src="Z:/picture/008/save_picture_536888.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536288.jpg" />
+  <img src="Z:/picture/008/save_picture_536288.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536190.jpg" />
+  <img src="Z:/picture/008/save_picture_536190.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535481.jpg" />
+  <img src="Z:/picture/008/save_picture_535481.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534274.jpg" />
+  <img src="Z:/picture/008/save_picture_534274.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534272.jpg" />
+  <img src="Z:/picture/008/save_picture_534272.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533834.jpg" />
+  <img src="Z:/picture/008/save_picture_533834.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533507.jpg" />
+  <img src="Z:/picture/008/save_picture_533507.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533079.jpg" />
+  <img src="Z:/picture/008/save_picture_533079.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532569.jpg" />
+  <img src="Z:/picture/008/save_picture_532569.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532464.jpg" />
+  <img src="Z:/picture/008/save_picture_532464.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532118.jpg" />
+  <img src="Z:/picture/008/save_picture_532118.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531487.jpg" />
+  <img src="Z:/picture/008/save_picture_531487.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531360.jpg" />
+  <img src="Z:/picture/008/save_picture_531360.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530498.jpg" />
+  <img src="Z:/picture/008/save_picture_530498.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529719.jpg" />
+  <img src="Z:/picture/008/save_picture_529719.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529222.jpg" />
+  <img src="Z:/picture/008/save_picture_529222.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529220.jpg" />
+  <img src="Z:/picture/008/save_picture_529220.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529154.jpg" />
+  <img src="Z:/picture/008/save_picture_529154.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528698.jpg" />
+  <img src="Z:/picture/008/save_picture_528698.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526511.jpg" />
+  <img src="Z:/picture/008/save_picture_526511.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524590.jpg" />
+  <img src="Z:/picture/008/save_picture_524590.jpg" />
 </div>
 
 
@@ -625,61 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE6E76D95138DC03BBF63BFEE85998FA48D5CD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313346   (524436) от 08.07.2019
-
-А.Н. Роганин | Геометрия в схемах, терминах, таблицах (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524436.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии в удобной форме (в виде таблиц и схем) изложены основные понятия геометрии, изучение которых предусмотрено действующей школьной программой.
-Пособие предназначено для учащихся и учителей общеобразовательных школ, абитуриентов, а также для всех, кто интересуется математикой.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C16AB022A634ED12D70C5E34DC49B1FBB93453C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928164   (523293) от 15.08.2015
-
-М. Иорданский (ред.) | Песни для детей (1937) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издаваемый сборник песен для начальной школы соответствует программам Наркомпроса 1937 г. В сборнике песенный материал расположен по классам. В него включены новые песни советских композиторов, народные песни и песни из музыкального наследия.
-
-При составлении данного сборника учтено, что ряд песен для начальной школы вошел в сборник «60 песен дошкольников» и в «Музыкальный (   Читать дальше...   )Жанр: Детская образовательная литератураФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0B41D2661ADBA609D028FE8291171E74EF28D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

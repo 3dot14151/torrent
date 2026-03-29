@@ -1,3 +1,108 @@
+###  Публикация: 1706132   (113698) от 11.03.2024
+
+BetterMouse for Mac 1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113698.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8B863AD15FD583BD310905547D54C2C53919FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706081   (113697) от 11.03.2024
+
+Desktop Stickers 2.71 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Desktop Stickers поможет вам в выборе вашей самооценки.
+Ваши мысли являются источником ваших эмоций и настроения. Разговоры, которые вы ведете сами с собой, могут быть разрушительными или полезными. Большинству людей необходимо научиться культивировать позитивные мысли и рассеивать негативные. Разговор с самим собой может улучшить вашу производительность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 Marian RaafatПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6243055B601652AA92477B0EEECE8F75C852D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706156   (113696) от 11.03.2024
+
+Bike Outliner for Mac 1.18.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Структурированное и целенаправленное написание. Используйте Bike, чтобы думать, писать и организовывать. Составляйте списки, делайте заметки, создавайте документы. Bike — необычайно быстрое приложение для письма, разработанное для вашего Mac. Bike быстрый, он может справиться с большими проектами, которые ломают другие планировщики. Bike также быстро справляется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2023 HogbaysoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152F1D771E2B192E082523C9D2B66D291DE50334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706206   (113695) от 11.03.2024
+
+GarageSale 9.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3E670F9A44E3F42761981DCAB9FF99A599A14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706155   (113692) от 11.03.2024
 
 Mp3tag 1.8.16 [Multi]
@@ -6,7 +111,7 @@ Mp3tag 1.8.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113692.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Wondershare UniConverter for Mac 15.5.2 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113673.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113643.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Keep It 2.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113630.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Piezo 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113628.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ EazyDraw 11.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113627.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ Notebooks – Write and Organize 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113626.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113625.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ TechSmith Camtasia 2023 Studio 2023.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113618.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ TechSmith Snagit 2024.2.1 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113614.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ Things 3 v.3.20.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113585.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Alfred PowerPack 5.5 Release Candidate [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113570.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113565.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113558.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113557.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ Allavsoft Video Downloader Converter 3.26.2.8837  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113546.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ PullTube 1.8.5.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113533.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113529.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ Topaz Video AI for Mac 4.2.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113498.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ System Dashboard Pro 1.10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113486.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ Cookie 7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113470.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ WiFiSpoof 3.9.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113467.jpg" />
 </div>
 
 
@@ -572,112 +677,6 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9754D7D5379CBB6FB03A9062053F54E70523E6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707105   (113409) от 15.03.2024
-
-Topaz Gigapixel AI for Mac 7.0.4 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Gigapixel AI. — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, Topaz Gigapixel AI ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8A92CC0378DBB4F8A69CC3E29815020F796E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707261   (113406) от 15.03.2024
-
-Dato 5.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 14.1Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFA7FE34D028A6FF7CFF782390AB00F371AD605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707152   (113402) от 15.03.2024
-
-Topaz Photo AI 2 for Mac 2.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: © 2005 - 2024 Topaz Labs.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170277AF266AF52E014A0A12F48B368EAE1CB4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707186   (113398) от 15.03.2024
-
-RAW Power 3.4.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2016-20213 Gentlemen Coders, LLC1Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E38DC59673429EEEB7AD3275B6D77BE734FA19E
 ```
 
 https://mybot314.ru/tekegram_catalog/

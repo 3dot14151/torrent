@@ -1,3 +1,67 @@
+###  Публикация: 418209   (306459) от 05.12.2011
+
+Владимир Высоцкий - Владимир Высоцкий в записях Михаила Шемякина (полное собрание из 7 CD) (1996) [MP3|320 kbps]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я из дела ушел
+02. Погоня
+03. Чужой дом
+04. Кони привередливые
+05. Охота на волков
+06. Конец охоты на волков
+07. Баллада о книжных детях
+08. Баллада о любви
+09. Не долюбил
+10. Памятник(   Читать дальше...   )1996, PolyGram (Германия)Жанр: Авторская песняПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266447   (306135) от 05.12.2010
+
+Ирина Круг - Я прочитаю в глазах твоих (2010) [MP3|320 kbps]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306135.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я прочитаю в глазах твоих (3:33)
+2. Без тебя (3:23)
+3. Неужели любовь обман (4:03)
+4. Приснись же мне (4:54)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4960FBAC1F429E3524213786485EF816DC444DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 157940   (306047) от 13.12.2009
 
 Рада Рай - Ты не стой на моем пути (2009) [MP3|320kb/s]<шансон>
@@ -6,7 +70,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306047.jpg" />
+  <img src="Z:/picture/008/save_picture_306047.jpg" />
 </div>
 
 
@@ -41,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304308.jpg" />
+  <img src="Z:/picture/008/save_picture_304308.jpg" />
 </div>
 
 
@@ -70,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303427.jpg" />
+  <img src="Z:/picture/008/save_picture_303427.jpg" />
 </div>
 
 
@@ -99,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303407.jpg" />
+  <img src="Z:/picture/008/save_picture_303407.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303406.jpg" />
+  <img src="Z:/picture/008/save_picture_303406.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ VA - Хит по блату 2 (2000) [FLAC|Lossless|image + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303370.jpg" />
+  <img src="Z:/picture/008/save_picture_303370.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303367.jpg" />
+  <img src="Z:/picture/008/save_picture_303367.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ Helene (Hélène) Rolles - Ce train qui s'en va (1989) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303152.jpg" />
+  <img src="Z:/picture/008/save_picture_303152.jpg" />
 </div>
 
 
@@ -244,7 +308,7 @@ Helene (Hélène) Rolles - Pour l’amour d’un garçon (1992) [FLAC|Lossless|W
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303135.jpg" />
+  <img src="Z:/picture/008/save_picture_303135.jpg" />
 </div>
 
 
@@ -273,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302738.jpg" />
+  <img src="Z:/picture/008/save_picture_302738.jpg" />
 </div>
 
 
@@ -302,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302150.jpg" />
+  <img src="Z:/picture/008/save_picture_302150.jpg" />
 </div>
 
 
@@ -337,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301848.jpg" />
+  <img src="Z:/picture/008/save_picture_301848.jpg" />
 </div>
 
 
@@ -366,7 +430,7 @@ VA - Коллекция из серии: Настроение шансон 33 CD
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301574.jpg" />
+  <img src="Z:/picture/008/save_picture_301574.jpg" />
 </div>
 
 
@@ -392,7 +456,7 @@ Helene (Hélène) Rolles - Toi... émois (1995) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301252.jpg" />
+  <img src="Z:/picture/008/save_picture_301252.jpg" />
 </div>
 
 
@@ -421,7 +485,7 @@ Helene (Hélène) Rolles - Je m’appelle Hélène (1993) [FLAC|Lossless|WEB-DL|
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301242.jpg" />
+  <img src="Z:/picture/008/save_picture_301242.jpg" />
 </div>
 
 
@@ -450,7 +514,7 @@ Helene (Hélène) Rolles - Le miracle de l'amour (1994) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301160.jpg" />
+  <img src="Z:/picture/008/save_picture_301160.jpg" />
 </div>
 
 
@@ -479,7 +543,7 @@ VA - Afisha Hold Music (2004) [FLAC|tracks+.cue]<Chanson, Ballad, Schlager>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300801.jpg" />
+  <img src="Z:/picture/008/save_picture_300801.jpg" />
 </div>
 
 
@@ -508,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298834.jpg" />
+  <img src="Z:/picture/008/save_picture_298834.jpg" />
 </div>
 
 
@@ -537,7 +601,7 @@ Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298581.jpg" />
+  <img src="Z:/picture/008/save_picture_298581.jpg" />
 </div>
 
 
@@ -566,7 +630,7 @@ Helene (Hélène) Rolles - Hélène (2016) [FLAC|Lossless|WEB-DL|tracks] <Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298477.jpg" />
+  <img src="Z:/picture/008/save_picture_298477.jpg" />
 </div>
 
 
@@ -595,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292908.jpg" />
+  <img src="Z:/picture/008/save_picture_292908.jpg" />
 </div>
 
 
@@ -624,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289586.jpg" />
+  <img src="Z:/picture/008/save_picture_289586.jpg" />
 </div>
 
 
@@ -653,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289421.jpg" />
+  <img src="Z:/picture/008/save_picture_289421.jpg" />
 </div>
 
 
@@ -682,7 +746,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289410.jpg" />
+  <img src="Z:/picture/008/save_picture_289410.jpg" />
 </div>
 
 
@@ -696,64 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06A06BA9282496D7E6D38E0B5C385E4BD4272446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492706   (288879) от 23.11.2017
-
-Дмитрий Хворостовский - Песни военных лет (2010) [MP3|320 кб/с]<Военные песни>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где-то далеко (Песня о далекой родине)
-02. Темная ночь
-03. Случайный вальс
-04. Где-же вы теперь, друзья-однополчане?(   Читать дальше...   )Жанр: Военные песниПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388A9E8342BE1EB69D0ED0930B382FE0B5B0E25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080158   (287965) от 07.12.2016
-
-Dalida - Les Geants De La Chanson (2016) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bambino [03:34]
-02.  Histoire D'un Amour [03:08]
-03.  Gondolier [02:56]
-04.  Come Prima [02:40](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C417301707DE35B86A73DBB5BAE0B72360512EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

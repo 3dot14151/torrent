@@ -1,3 +1,81 @@
+###  Публикация: 1467035   (1018070) от 02.05.2021
+
+Александр Великанов | Формула дружбы (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жили были мальчишки Петька, Валька и девчонка Вера. Они ходили в одну школу и учились в одном классе. Ну а дружба у них сложилась сама собой. А сложилась потому, что они умели всё- ездить верхом на неосёдланной лошади, охотиться на болотного луня, перемещать в пространстве предметы и животных, расщепляя предварительно их на молекулы и собирая в конечной точке. Умели (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE84DC28B061241D55A48EE27EBDFCDCC588FA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467401   (1017941) от 03.05.2021
+
+Тамара Михеева | Семь прях. Мия. Книга 1 (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017941.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Мии три старших брата, три младшие сестры и куча обязанностей. И две радости: море и старая книга на чердаке. Она еще не знает, что мир намного больше, чем ей рассказывали. Что есть такие места, где море под запретом, потому что море – это свобода, а люди, мечтающие о свободе, неугодны ни Империи, ни самому благополучному в мире городу. Что книга, доставшаяся в (   Читать дальше...   )Жанр: Детская литература, СказкаПродолжительность: 11:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2288864887E72096C6EECFB7F4A2EDA544B661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467564   (1017772) от 04.05.2021
+
+Астрид Линдгрен | Расмус-Бродяга (2004) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017772.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о девятилетнем шведском мальчике, которого зовут Расмус. Он круглый сирота и живет в приюте, где маленькие дети, лишенные любви и ласки, вынуждены сами зарабатывать себе на хлеб. А начальница приюта фрекен Хёг, (что по-шведски означает "ястреб"), даже не догадывается о том, что игры и развлечения так же необходимы приютским детям, как и всем другим! (   Читать дальше...   )Жанр: Детская литература/ПриключенияПродолжительность: 04:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB75FCEDDFE10383044BD7761DB9732E4C701B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467570   (1017765) от 04.05.2021
 
 Александр Лукин | Занимательная геология (2021) [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017765.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017750.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017739.jpg" />
 </div>
 
 
@@ -90,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017477.jpg" />
 </div>
 
 
@@ -118,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017120.jpg" />
 </div>
 
 
@@ -146,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017118.jpg" />
 </div>
 
 
@@ -174,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017113.jpg" />
 </div>
 
 
@@ -202,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016773.jpg" />
 </div>
 
 
@@ -229,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016604.jpg" />
 </div>
 
 
@@ -255,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016598.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016469.jpg" />
 </div>
 
 
@@ -307,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016001.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015808.jpg" />
 </div>
 
 
@@ -360,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015787.jpg" />
 </div>
 
 
@@ -386,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015773.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015760.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015732.jpg" />
 </div>
 
 
@@ -473,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015660.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015659.jpg" />
 </div>
 
 
@@ -525,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015656.jpg" />
 </div>
 
 
@@ -551,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015645.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015624.jpg" />
 </div>
 
 
@@ -603,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015159.jpg" />
 </div>
 
 
@@ -614,87 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8758862D218201694608E86B500372EC56CF6BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471670   (1014970) от 21.05.2021
-
-Антуан де Сент-Экзюпери | Маленький принц (аудиоспектакль) (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014970.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Маленький принц" – самое знаменитое произведение Антуана де Сент-Экзюпери. Мудрая и "человечная" сказка-притча, в которой просто и проникновенно говорится о самом важном: о дружбе и любви, о долге и верности, о красоте и нетерпимости к злу.
-
-"Все мы родом из детства", – напоминает великий француз и знакомит нас с самым загадочным и (   Читать дальше...   )Жанр: Зарубежные детские книги, СказкиПеревод: Нора ГальПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031932AFA02029600AA3668C23CA8EBA401F81B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471569   (1014958) от 21.05.2021
-
-Росс Уэлфорд | Путешествие во времени с хомяком (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Машина времени, меняющая мир!
-На двенадцатый день рождения Ал получает от покойного отца письмо: мальчик должен отправиться в прошлое и предотвратить его гибель. На необычной машине времени Ал вместе со своим хомяком путешествует в 1984 год. Сумеет ли он спасти отца, не вызвав при этом временной парадокс, который повернёт реальность в совершенно новое, неожиданное (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 08:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31B86507C1E3036896254365F7AAABAB21F5346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471694   (1014952) от 21.05.2021
-
-Марк Твен | Приключения Тома Сойера. Приключения Гекльберри Финна (2009) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может быть увлекательней, чем заблудиться в пещере вместе с обожаемой девочкой или отправиться ночью на кладбище в компании верного друга и дохлой кошки? А уж поиски сокровищ в заброшенном доме и жизнь на острове без надзора взрослых и вовсе предмет мечтаний каждого мальчишки! Мы предлагаем вам услышать о приключениях двух неразлучных сорванцов в сокращенном (   Читать дальше...   )Жанр: Детские приключения, Зарубежная классикаПродолжительность: 08:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D43A680AE9A95C58B9BDD193C4ECB41CAAD279
 ```
 
 https://mybot314.ru/tekegram_catalog/

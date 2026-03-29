@@ -1,3 +1,55 @@
+###  Публикация: 1191350   (264344) от 13.12.2017
+
+Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. Загадка серебряной сережки (2004) [Ru/Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264344.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шерлок Холмс: Загадка серебряной сережки» – оригинальный квест, разработанный компанией Frogwares и озвученный «лучшим Холмсом современности», актером Василием Ливановым. Действие игры начинается с загадочного убийства. Устроив торжественный прием в честь возвращения любимой дочери Лавинии, сэр Бромсби и не подозревал, что этот ужин окажется для него последним. (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ДетективЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06054824574DFE95AFEC8B274861789A815B3897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453604   (263795) от 23.11.2019
+
+Toyland Racing / Игрушечные гонки [Ru] (L) 1998
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детская ездилка под названием"Toyland Racing" от компании "Revistronic Industrial Programs" переносит нас в забавный игрушечный мир, в котором регулярно проводятся всевозможные чемпионаты. Правда, поначалу вам в них никто покататься не даст, сперва придется заработать лицензию, выполняя несложные задания. А уже потом участвовать и в самих соревнованиях. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: RevistronicЖанр: Arcade RacingЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57236DEAD08F00D3D7A023CE28C7BCA88250941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191685   (263700) от 15.12.2017
 
 Warrior Kings (2002) [En] (1.4) License GOG
@@ -6,7 +58,7 @@ Warrior Kings (2002) [En] (1.4) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263700.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tom Clancy's Splinter Cell (2003) [Ru/En] (1.3) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263656.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow (2004) [Ru/En] (1.0) Repack R.G. Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263654.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Star Wars™: Jedi Knight™ - Jedi Academy™ (2003) [Multi] (1.01A) License GO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262967.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262963.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Earth 2150: Lost Souls / Земля 2150: Воды Стикса (2002) [Ru/Multi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262681.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262674.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Earth 2150: Moon Project / Земля 2150: Дети Селены (2000) [Ru/Mul
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262666.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Stranglehold (2007) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262539.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262367.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262161.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262031.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261442.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Tomb Raider Трилогия [En] (L) 1996-1998 | GOG {Tomb Raider + Tomb Raider
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261034.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ StarLord [En] (RePack) 1993 | RG games (Pilotus)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260915.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260890.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260849.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ A-Train (RePack) [En] 1992 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260825.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Delta V [En] (RePack) 1994 | RG Games (Pilotus)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259920.jpg" />
+  <img src="Z:/picture/005/save_picture_259920.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259905.jpg" />
+  <img src="Z:/picture/005/save_picture_259905.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259099.jpg" />
+  <img src="Z:/picture/005/save_picture_259099.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259097.jpg" />
+  <img src="Z:/picture/005/save_picture_259097.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259096.jpg" />
+  <img src="Z:/picture/005/save_picture_259096.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259074.jpg" />
+  <img src="Z:/picture/005/save_picture_259074.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501552   (258579) от 26.05.2012
-
-Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть все той же пошаговой стратегии. Ничего принципиально нового.(   Читать дальше...   )Тип издания: RePackЖанр: Пошаговая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500834   (258210) от 24.05.2012
-
-Tomb Raider: Legend / Tomb Raider: Легенда [Multi6/+] (RePack/1.2) 2006 | R.G. Механики
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всех поклонников легендарной Лары Крофт ждет настоящий праздник – полностью русифицированная версия последних приключений охотницы за древними артефактами. Благодаря приятным нововведениям, упрощенной системе управления и отличной анимации игра гарантирует игрокам море удовольствия. Именно после выхода этой игры Лара Крофт удостоилась титула «Самая известная героиня видеоигр» и попала в Книгу рекордов Гиннесса. Ураганный напор, акробатическая ловкость, феерическое владение оружием и гаджетами – среди всех любителей авантюр Ларе просто нет равных. Опасные джунгли, древние гробницы, заснеженные руины и бушующие водопады – нас вновь ждут путешествие по самым экзотическим местам планеты, зрелищные бои, головокружительные трюки и противостояние хитрому, готовому на самые крайние меры, врагу.(   Читать дальше...   )Тип издания: RePackЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Multi6...Язык интерфейса: Русский, Английский, Multi6...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345CA22902142232C92E4067E1B576857CBAE507
 ```
 
 https://mybot314.ru/tekegram_catalog/

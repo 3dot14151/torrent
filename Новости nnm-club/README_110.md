@@ -1,3 +1,171 @@
+###  Публикация: 1135089   (684350) от 17.05.2017
+
+Linkin Park - One More Light (2017) [MP3|320 Kbps] <Alternative>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Can Save Me
+02. Good Goodbye (feat. Pusha T and Stormzy)
+03. Talking to Myself
+04. Battle Symphony(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77D4F46C0819362DB53E0E7FEAAFB20CAA98A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535500   (683968) от 07.03.2022
+
+Как робот-писатель едва не выиграл литературную премию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_683968.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2016 году японская программа искусственного интеллекта написала небольшой роман, который прошел первый тур национальной литературной премии. Приза текст не получил, но кто сказал, что при следующей попытке искусственный интеллект не улучшит свои писательские способности?Роман называется «Тот день, когда компьютер написал роман». Метанарратив оказался недостаточен, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535578   (683805) от 07.03.2022
+
+iMazing 2.14.6 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_683805.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing - отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: ©  2008-2022 DigiDNA SARLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE3A3EC25B2509587EAB1201DEA9C56135F1586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675219   (683746) от 04.07.2013
+
+AVG Internet Security 2013.0.3345 [x86+x64] [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_683746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обнаружение и устранение вирусов, угроз и вредоносного ПО.
+Блокирует небезопасные ссылки и файлы.
+Защита от спама и мошеннических действий в Интернете.
+В комплект входит бесплатная система защиты для мобильных устройств.
+Защищает от программ-шпионов и кражи данных.
+Защита личных данных от злоумышленников.
+Обеспечивает оптимальную производительность ПК.
+Обеспечивает стабильную работу компьютера.
+Ускоряет работу в Интернете.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029036   (683679) от 25.06.2016
+
+DxO Optics Pro 11.0.0 Build 11397 Elite RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_683679.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO Optics Pro - профессиональное приложение, способное улучшить и скорректировать вашу коллекцию цифровых фотографий. DxO Optics Pro содержит множество прогрессивных технологий, с помощью которых можно настроить яркость, контрастность, цветовой баланс, избавиться от искажений и повысить четкость изображений, исправить цвета и экспозицию по краям и в углах фотографии, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699FEA0455DFD74FCD537C66E5916B8509DEC951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029043   (683678) от 25.06.2016
+
+Adobe Muse CC 2015.2.0.877 RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_683678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F31131782AEBE0868FE8B6FCC03689DBA85B841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947508   (683667) от 25.06.2016
 
 This War of Mine (2014) [Ru/Multi] (2.2.2/dlc) License GOG [Soundtrack Edition]
@@ -6,7 +174,7 @@ This War of Mine (2014) [Ru/Multi] (2.2.2/dlc) License GOG [Soundtrack Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683667.jpg" />
+  <img src="Z:/picture/008/save_picture_683667.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободи�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683637.jpg" />
+  <img src="Z:/picture/008/save_picture_683637.jpg" />
 </div>
 
 
@@ -58,7 +226,7 @@ BATTLETECH (2018) [Ru/En] (1.5.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683494.jpg" />
+  <img src="Z:/picture/008/save_picture_683494.jpg" />
 </div>
 
 
@@ -84,7 +252,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683491.jpg" />
+  <img src="Z:/picture/008/save_picture_683491.jpg" />
 </div>
 
 
@@ -110,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682282.jpg" />
+  <img src="Z:/picture/005/save_picture_682282.jpg" />
 </div>
 
 
@@ -136,7 +304,7 @@ Adobe Premiere Pro CC 2017 (v11.1.1) Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682260.jpg" />
+  <img src="Z:/picture/008/save_picture_682260.jpg" />
 </div>
 
 
@@ -164,7 +332,7 @@ Adobe InDesign CC 2017 (v12.1.0) x86-x64 RUS/ENG Update 1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682257.jpg" />
+  <img src="Z:/picture/008/save_picture_682257.jpg" />
 </div>
 
 
@@ -190,7 +358,7 @@ The Final Station (2016) [Ru/Multi] (1.4.3/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682255.jpg" />
+  <img src="Z:/picture/008/save_picture_682255.jpg" />
 </div>
 
 
@@ -216,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682254.jpg" />
+  <img src="Z:/picture/008/save_picture_682254.jpg" />
 </div>
 
 
@@ -243,7 +411,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682252.jpg" />
+  <img src="Z:/picture/008/save_picture_682252.jpg" />
 </div>
 
 
@@ -269,7 +437,7 @@ AliExpress 5.2.9 [Rus/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682250.jpg" />
+  <img src="Z:/picture/008/save_picture_682250.jpg" />
 </div>
 
 
@@ -296,7 +464,7 @@ The Flame in the Flood (2016) [Ru/Multi] (1.3.002) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682249.jpg" />
+  <img src="Z:/picture/008/save_picture_682249.jpg" />
 </div>
 
 
@@ -322,7 +490,7 @@ Hunt Down The Freeman (2018) [En] (1.0/upd2) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681671.jpg" />
+  <img src="Z:/picture/008/save_picture_681671.jpg" />
 </div>
 
 
@@ -348,7 +516,7 @@ Adobe Photoshop CC 2015.5.0 (20160603.r.88) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681638.jpg" />
+  <img src="Z:/picture/008/save_picture_681638.jpg" />
 </div>
 
 
@@ -374,7 +542,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 06.2016 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681625.jpg" />
+  <img src="Z:/picture/008/save_picture_681625.jpg" />
 </div>
 
 
@@ -403,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681050.jpg" />
+  <img src="Z:/picture/008/save_picture_681050.jpg" />
 </div>
 
 
@@ -429,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681048.jpg" />
+  <img src="Z:/picture/008/save_picture_681048.jpg" />
 </div>
 
 
@@ -457,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680776.jpg" />
+  <img src="Z:/picture/008/save_picture_680776.jpg" />
 </div>
 
 
@@ -483,7 +651,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680767.jpg" />
+  <img src="Z:/picture/008/save_picture_680767.jpg" />
 </div>
 
 
@@ -509,7 +677,7 @@ Apple Final Cut Pro X 10.2.1,  Motion 5.2.1 & Compressor 4.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680765.jpg" />
+  <img src="Z:/picture/008/save_picture_680765.jpg" />
 </div>
 
 
@@ -523,165 +691,6 @@ Motion. Анимация для Final Cut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB9B9F451105298979CE0971570E31D3E58A177C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935468   (680547) от 01.05.2018
-
-This War of Mine (2014) [Ru/En] (4.0.0 (u2)/dlc) Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680547.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «This War of Mine» вы играете не за солдата элитных войск, а за группу мирных жителей, пытающихся выжить в осажденном городе, испытывая нехватку еды, лекарств и постоянную опасность со стороны снайперов и мародеров. Игра дает возможность прочувствовать войну с абсолютно новой перспективы.Тип издания: RepackРазработчик: 11 bit studiosЖанр: Strategy, 3D, LifestyleЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA584068333AFDE6BD25DE996C15897CCC4A5C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507917   (680447) от 09.06.2012
-
-Anthropics Portrait Professional Studio 10.9.5 + Portable [MULTi + Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_680447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Portrait Professional Studio автономная программа и плагин к Photoshop для обработки фотопортретов от компании Anthropics Technology. В ней реализована уникальная технология, которая поволит вам быстро устранять основные недостатки лица на фотографии всего лишь за несколько кликов в полуавтоматическом режиме. Программа устраняет морщины и дефекты кожи, изменяет форму лица, превращая полные или тощие лица в более худенькие и наоборот, улучшает черты лица, делая их более правильными и привлекательными. Результаты работы в программе действительно впечатляют, особенно если учесть, что они получены за несколько минут.Название программы: Anthropics Portrait Professional StudioЯзык интерфейса: MULTi + Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534902   (680104) от 09.03.2022
-
-8 марта!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_680104.jpg" />
-</div>
-
-
-###  Подробнее
-
-
- 
-Весна – сколько надежд, сколько мечтаний о новых чувствах, новых встречах и открытиях готовит нам это время года!
-Дорогие наши женщины, девушки и девочки! В этот светлый весенний праздник, хочется от всей души пожелать Вам самых важных и бесценных вещей: Здоровья, любви и простого человеческого счастья. Пусть дома всегда царит тепло и уют, пусть близкие и родные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290066   (679826) от 19.03.2019
-
-BELOFF 2019.3 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5A6ED511A404845D04D68DF593EDC97739524D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290234   (679825) от 19.03.2019
-
-Windows 7 SP1 х86-x64 by g0dl1ke 19.3.15 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по март 2019 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA81843CE07750132238C071FCE8015000227FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267432   (679819) от 19.03.2019
-
-X4: Foundations (2018) [Ru/En] (2.20/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679819.jpg" />
-</div>
-
-
-###  Подробнее
-
-X4: Foundations - это космический симулятор, продолжающий знаменитую серию X3. Новая часть позволяет игрокам управлять не только космическими кораблями, но и целой империей, сражаясь, торгуя, и развивая свою территорию.Тип издания: RepackРазработчик: EgosoftЖанр: Action, Simulation, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F321D0A32FF7C5FD7F72FE3E9DA50264A900F67
 ```
 
 https://mybot314.ru/tekegram_catalog/

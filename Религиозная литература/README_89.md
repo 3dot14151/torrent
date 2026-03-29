@@ -1,3 +1,85 @@
+###  Публикация: 1625743   (255307) от 11.04.2023
+
+Татьяна Рарова | Юродивый. Преподобный Гавриил (Ургебадзе) (2019) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Татьяны Раровой рассказывает о жизни, служении, проповеди и духовных наставлениях архимандрита Гавриила (Ургебадзе).
+
+В книгу вошли воспоминания о старце, рассказ о его жизненном пути, испытаниях и подвигах. Ключевое внимание уделено духовным подвигам преподобноисповедника Гавриила – юродству, проповеди Православия в годы богоборчества, несению креста за свой (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D269AD13776AABD7F82CE1FC84AA26E4923215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625737   (255305) от 11.04.2023
+
+Епископ Иаков (Тисленко) | Иноческий молитвослов (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255305.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь 1000 летия подвига жизни во Христе Крестителя Руси – святого равноапостольного князя Владимира. Сей молитвослов издан благословением Преосвященного Иакова, епископа Нарьян-Марского и Мезенского.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF767C35AEBF0032955B326343E39F34C1953A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625754   (255298) от 11.04.2023
+
+Преподобный Ефрем Сирин | Избранные творения (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые читателю в этой книге избранные творения одного из величайших подвижников первых веков христианства – преподобного Ефрема Сирина – помогут каждому христианину продвинуться на пути к спасению – главной задаче в жизни любого человека.
+
+Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8CEA9AC8C4184043EC2A31AF643AC04A74CED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627627   (255021) от 19.04.2023
 
 Священник Андрей Горбунов | Тайна зверя. Опыт объяснения пророчеств Апокалипсиса (2004) [PDF]
@@ -6,7 +88,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255021.jpg" />
+  <img src="Z:/picture/005/save_picture_255021.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254752.jpg" />
+  <img src="Z:/picture/005/save_picture_254752.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254751.jpg" />
+  <img src="Z:/picture/005/save_picture_254751.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254750.jpg" />
+  <img src="Z:/picture/005/save_picture_254750.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254023.jpg" />
+  <img src="Z:/picture/005/save_picture_254023.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252895.jpg" />
+  <img src="Z:/picture/005/save_picture_252895.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252425.jpg" />
+  <img src="Z:/picture/005/save_picture_252425.jpg" />
 </div>
 
 
@@ -188,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250605.jpg" />
+  <img src="Z:/picture/004/save_picture_250605.jpg" />
 </div>
 
 
@@ -214,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250310.jpg" />
+  <img src="Z:/picture/004/save_picture_250310.jpg" />
 </div>
 
 
@@ -240,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250298.jpg" />
+  <img src="Z:/picture/004/save_picture_250298.jpg" />
 </div>
 
 
@@ -268,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250265.jpg" />
+  <img src="Z:/picture/004/save_picture_250265.jpg" />
 </div>
 
 
@@ -294,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249805.jpg" />
+  <img src="Z:/picture/004/save_picture_249805.jpg" />
 </div>
 
 
@@ -320,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249790.jpg" />
+  <img src="Z:/picture/004/save_picture_249790.jpg" />
 </div>
 
 
@@ -348,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249786.jpg" />
+  <img src="Z:/picture/004/save_picture_249786.jpg" />
 </div>
 
 
@@ -374,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249750.jpg" />
+  <img src="Z:/picture/004/save_picture_249750.jpg" />
 </div>
 
 
@@ -402,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246004.jpg" />
+  <img src="Z:/picture/004/save_picture_246004.jpg" />
 </div>
 
 
@@ -428,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245800.jpg" />
+  <img src="Z:/picture/004/save_picture_245800.jpg" />
 </div>
 
 
@@ -454,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245772.jpg" />
+  <img src="Z:/picture/004/save_picture_245772.jpg" />
 </div>
 
 
@@ -482,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245401.jpg" />
+  <img src="Z:/picture/004/save_picture_245401.jpg" />
 </div>
 
 
@@ -508,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245398.jpg" />
+  <img src="Z:/picture/004/save_picture_245398.jpg" />
 </div>
 
 
@@ -534,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245393.jpg" />
+  <img src="Z:/picture/004/save_picture_245393.jpg" />
 </div>
 
 
@@ -560,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245380.jpg" />
+  <img src="Z:/picture/004/save_picture_245380.jpg" />
 </div>
 
 
@@ -586,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245374.jpg" />
+  <img src="Z:/picture/004/save_picture_245374.jpg" />
 </div>
 
 
@@ -599,90 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDEB95AB3644B9ED8AFF5C85651A753A0B93A3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630855   (245362) от 03.05.2023
-
-Сатисъ | Акафистник на всякую потребу души (2009) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист – это хвалебное молитвенное песнопение во славу Господа, Богородицы или святых. В молитвенной практике Восточной Церкви такие песнопения появились еще в VII веке в Византии. С течением времени акафисты получили широкое распространение и являются любимым православными людьми видом молитвенного предстояния.
-
-В предлагаемом сборнике собраны акафисты для обращения (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1606705916FFEB05AB408389EB288F56D4DF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631202   (245254) от 04.05.2023
-
-Сатисъ | Молитвослов православной семьи (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молитва семьи, как молитва малой Церкви Христовой, угодна Богу, радует ангелов, стремительно восходит к небесам. Православной семье, для помощи в молитве, и преподносит наше издательство сей Молитвослов – если не на все, то на многие случаи жизни.
-
-Да будут молитвы наших семей благоугодны и благоприятны Богу Вышнему!Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB7352FED1F41C4EFF5C9B06F16970FD458A01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624244   (245248) от 05.04.2023
-
-Монах Иосиф Дионисиатис | Старец Арсений Пещерник, сподвижник Иосифа Исихаста (2002) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245248.jpg" />
-</div>
-
-
-###  Подробнее
-
-К старцу Арсению поистине может быть отнесено евангельское: вот подлинно Израильтянин, в котором нет лукавства. От природы он был прямым, простым, беззлобным, кротким, послушным и исключительно редким подвижником, также и нестяжательным. К старцу Арсению всегда можно было отнести евангельское: да, да; нет, нет.
-
-Никогда он не злопамятствовал, что бы ты ему ни сделал, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D060C48EAE1E96BE519126B2F75A00BED40EEB55
 ```
 
 https://mybot314.ru/tekegram_catalog/

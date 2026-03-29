@@ -1,3 +1,107 @@
+###  Публикация: 1459556   (1022703) от 04.04.2021
+
+Минари / Minari (2020) WEB-DL [H.264/1080p-LQ] [KOR]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая корейская семья переезжает в американскую глубинку, где отец-мечтатель намеревается в чистом поле возвести сад, построить ферму и наконец-таки стать успешным членом общества. Следом приезжает бабушка, которая почитает традиции, относится ко всему с юмором, но становится незримой поддержкой для молодого семейства, которому предстоит испытать невероятные сложности (   Читать дальше...   )Производство: США / Plan B EntertainmentЖанр: драмаРежиссер: Ли Айзек ЧунАктеры: Стивен Юн, Хан Е-ри, Юн Ё-джон, Алан С. Ким, Ноэль Чо, Уилл Пэттон, Скотт Хэйз, Эрик Старки, Эстер Мун, Дэррил КоксПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: Английские (хардсаб)Продолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A24D70B15E46725A7F2185CF626D48CB6F3895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459574   (1022689) от 04.04.2021
+
+Крошка Шива / Shiva Baby (2020) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцатилетняя еврейка Даниэль вынуждена посещать Шиву вместе со своими религиозными родителями. На траурном мероприятии так же присутствует взрослый любовник Даниэль со своей женой и ребенком и ее бывшая школьная возлюбленная Майя. Родители героини не в курсе о ее бисексуальности, поэтому Даниэль пытается сделать все, чтобы ее секреты не раскрылись.Производство: США, Канада / Neon Heart ProductionsЖанр: комедияРежиссер: Эмма СелигманАктеры: Рэйчел Сеннотт, Молли Гордон, Полли Дрэйпер, Дэнни Деферрари, Фред Меламед, Дианна Агрон, Джеки Хоффман, Сондра Джеймс, Дебора Оффнер, Вивьен ЛандауПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F78D9A4CC8F601908501A85CC015270082BB076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459778   (1022688) от 04.04.2021
+
+Заблудший космический корабль / A Mother of No Destination (2021) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022688.jpg" />
+</div>
+
+
+###  Подробнее
+
+После гибели планеты богатая элита с президентом во главе пытаются утаить причину исчезновения человечества, находясь на космическом корабле. Вся жизнедеятельность и существование поддерживаются за счет обслуживающего квалифицированного персонала, который давно превратился в рабов. Однако отлаженная система жизнедеятельности дает трещину, когда один из сотрудников (   Читать дальше...   )Производство: СШАЖанр: фантастика, триллерРежиссер: Michele PlunkettАктеры: Tommy Fury, William Gannon, Edward Dirgo, Clark Hurlburt, Чарльз Ф. Роузней, Aimee Malasankas, Linda Rivera, Tony Sciarra, Zakariya Narowski, Christina MunizПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3970C4201D23BB8EF7991DB691C0496F435548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349476   (1020391) от 18.04.2021
+
+Вторженцы / Trespassers (2018) BDRip [H.264/720p] (EN / EN Sub) [PR]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две пары снимают современный роскошный дом, чтобы приятно провести выходные. Вскоре после заселения на пороге дома появляется женщина, утверждающая, что у неё сломалась машина. И вот тут начинаются опасные игры со смертельным исходом.Производство: США, 1inMM Productions, The Hallivis BrothersЖанр: ужасы, триллерРежиссер: Орсон ОбловитцАктеры: Анджела Тримбур, Джанел Пэрриш, Джонатан Ховард, Зак Эйвери, Файруза Балк, Карло Рота, Джои Абрил, Себастьян Соцци, Крис Гэнн, Шон В. ЛойзерПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: английские (отключаемые)Продолжительность: 01:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F334252FEF5696A7C1172FBAA862E30129671ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462891   (1020119) от 20.04.2021
 
 Игры шпионов / The Courier (2020) WEB-DL [H.264/1080p-LQ] [EN]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020119.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020110.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020101.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020083.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020068.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019695.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019554.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019081.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019040.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019034.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018740.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017796.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017205.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014262.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014088.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013929.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013641.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013460.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012934.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012381.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011791.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011667.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D00DC16D1DC76BCC7BCBF1A567749E60EB71AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476559   (1011630) от 11.06.2021
-
-Неолит / The Neolith (2020) WEBRip [H.264/1440p-LQ]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственный человек принимает меры против стаи кровожадных чужаков, чья жажда господства процветает.Производство: Великобритания / Claret & BlueЖанр: Короткометражный, боевик, приключенияРежиссер: Дэниэл БукокАктеры: Лассе Восс, Дэн Бойе, Джек Корри, Нанна ЛинеПеревод: ОтсутствуетЯзык озвучки: Оригинал (древнескандинавский язык)Субтитры: ОтсутствуютПродолжительность: 00:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0E41A6CDCB7931C472AC4D2FDA572E5621CA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438512   (1011424) от 12.06.2021
-
-Бродяга Архимед (Архимед, клошар) / Archimede, le clochard (1959) BDRip [H.264/1080p] [FR / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клошар Архимед — обаятельный, воспитанный, эрудированный человек. Кристально честный — нитки чужой не возьмет. Но со сложным характером, оттого и погром в баре учинить, или какого-нибудь типа в форме обругать он не задумается. У Архимеда в распоряжении целых четыре многоэтажных дома. Они еще не достроены, потому жить никто не мешает. Одна проблема — децибелы. С утра (   Читать дальше...   )Производство: Франция, Италия / Filmsonor, Intermondia Films, CinédisЖанр: драма, комедияРежиссер: Жиль ГранжьеАктеры: Жан Габен, Дарри Коул, Бернар Блие, Дора Долл, Поль Франкёр, Габи Бассет, Саша Брике, Ги Декомбль, Альбер Динан, Бернар Ла ЖарижПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские (оригинальные, по своему переводу — Веселый Гном)Продолжительность: 01:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193C4CA235135EB72009B5044F32D720143807B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478230   (1010426) от 18.06.2021
-
-Ограбление по-джентльменски / The Misfits (2021) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010426.jpg" />
-</div>
-
-
-###  Подробнее
-
-После дерзкого побега из тюрьмы самый известный вор в мире Ричард Пейс заключает сделку с «Командой изгоев», которые грабят богатых и отдают деньги бедным. Под началом бывалого вора-джентльмена новые Робин Гуды нацеливаются на крупнейшее хранилище золотых слитков в мире, владелец которого — Уорнер Шольц — отмывает деньги международных преступников, а по совместительству (   Читать дальше...   )Производство: США / Highland Film Group (HFG)K. JAM MediaRNG EntertainmentЖанр: Боевик, триллер, приключенияРежиссер: Ренни ХарлинАктеры: Пирс Броснан, Джейми Чон, Тим Рот, Гермиона Корфилд, Ник Кэннон, Pirat Nithipaisarnsakul, Гонсало Менендес, Адам Стоун, Сэм Калиди, Дэвид БатчелорПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2B04E59AE759B8E0A5715D8E889ADDDBD37273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480464   (1008885) от 28.06.2021
-
-Тихое место 2 / A Quiet Place Part II (2021) WEB-DL [H.265/2160p] [HDR, 10-bit] [EN / RU, UK, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Эбботт продолжает бороться за жизнь в полной тишине. Вслед за смертельной угрозой, с которой они столкнулись в собственном доме, им предстоит познать ужасы внешнего мира. Они вынуждены отправиться в неизвестность, где быстро обнаруживают, что существа, охотящиеся на звук, — не единственные враги за пределами безопасной песчаной тропы.Производство: США / Buffalo FilmWorks, Paramount Pictures, Platinum Dunes, Sunday Night ProductionsЖанр: Фантастика, ужасы, драма, триллерРежиссер: Джон КрасинскиАктеры: Эмили Блант, Джон Красински, Милли Симмондс, Ноа Джуп, Киллиан Мёрфи, Джимон Хонсу, Окьерете Онаодован, Скут МакНэри, Zachary Golinger, Блейк ДеЛонгПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, русские, украинские, мультиязычныеПродолжительность: 01:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6C29F33AB1ED60BA4F97520F0410E959E1C6F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

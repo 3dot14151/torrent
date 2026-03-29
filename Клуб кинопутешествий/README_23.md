@@ -1,3 +1,55 @@
+###  Публикация: 508563   (679087) от 10.06.2012
+
+Золотой глобус. Мальта. Таинственный остров монахов-рыцарей [выпуск 113] (2012) DVDRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это новая вдохновляющая коллекция для тех, кто любит природу, путешествия и увлекается историей. Все достопримечательности, которые вы встретите на страницах журнала, включены в Список объектов Всемирного наследия ЮНЕСКО. Каждый номер журнала комплектуется DVD, повествующим о мировых культурных сокровищах и достижениях цивилизаций. Новая вдохновляющая коллекция для тех, кто любит природу, путешествия и историю.Жанр: ДокументальныйПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAA576CFB7212743F7FE2B2BD1806DB94500D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029783   (677982) от 28.06.2016
+
+Орел и решка. Кругосветка (2016.06.27) SATRip (сезон 12: Хиросима)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677982.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3268C53AB0E0825991727B060855DEA23A46D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136256   (676995) от 21.05.2017
 
 Орел и решка. Рай и ад (2017.05.21) WEB-DL [H.264/720p-LQ] (сезон 13: Райский Квинсленд)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676995.jpg" />
+  <img src="Z:/picture/008/save_picture_676995.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676851.jpg" />
+  <img src="Z:/picture/008/save_picture_676851.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676844.jpg" />
+  <img src="Z:/picture/008/save_picture_676844.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671413.jpg" />
+  <img src="Z:/picture/008/save_picture_671413.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671029.jpg" />
+  <img src="Z:/picture/008/save_picture_671029.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665578.jpg" />
+  <img src="Z:/picture/008/save_picture_665578.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665577.jpg" />
+  <img src="Z:/picture/008/save_picture_665577.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665445.jpg" />
+  <img src="Z:/picture/008/save_picture_665445.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665436.jpg" />
+  <img src="Z:/picture/008/save_picture_665436.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660132.jpg" />
+  <img src="Z:/picture/008/save_picture_660132.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658219.jpg" />
+  <img src="Z:/picture/008/save_picture_658219.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658144.jpg" />
+  <img src="Z:/picture/008/save_picture_658144.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658131.jpg" />
+  <img src="Z:/picture/008/save_picture_658131.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658109.jpg" />
+  <img src="Z:/picture/008/save_picture_658109.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658033.jpg" />
+  <img src="Z:/picture/008/save_picture_658033.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658023.jpg" />
+  <img src="Z:/picture/008/save_picture_658023.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657991.jpg" />
+  <img src="Z:/picture/008/save_picture_657991.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657675.jpg" />
+  <img src="Z:/picture/008/save_picture_657675.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Viasat Nature: Тайны заливного леса – национальны
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656918.jpg" />
+  <img src="Z:/picture/008/save_picture_656918.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ NG. Дикая Аляска / Wildes Alaska (2012) BDRip [H.264/720p]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656569.jpg" />
+  <img src="Z:/picture/008/save_picture_656569.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656436.jpg" />
+  <img src="Z:/picture/008/save_picture_656436.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649407.jpg" />
+  <img src="Z:/picture/008/save_picture_649407.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648708.jpg" />
+  <img src="Z:/picture/008/save_picture_648708.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648695.jpg" />
+  <img src="Z:/picture/008/save_picture_648695.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:154B1A56CA69CC19A679538190478201DB0FEA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141798   (648693) от 11.06.2017
-
-Орел и решка. Рай и ад (2017.06.11) WEB-DL [H.264/720p-LQ] (сезон 13: Райский Тунис)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648693.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
-В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00::
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA038C5527280716F7DD29E3734DCCAF6969EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141797   (648614) от 11.06.2017
-
-Орел и решка. Рай и ад (2017.06.11) WEB-DLRip (сезон 13: Райский Тунис)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648614.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
-В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D00D27F1F7573CBC49B107B114D7B7807186792
 ```
 
 https://mybot314.ru/tekegram_catalog/

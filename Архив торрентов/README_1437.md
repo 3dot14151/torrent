@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727671.jpg" />
+  <img src="Z:/picture/008/save_picture_727671.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727670.jpg" />
+  <img src="Z:/picture/008/save_picture_727670.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Instant Translate – translator, dictionary, voice 1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727666.jpg" />
+  <img src="Z:/picture/008/save_picture_727666.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ PhotoSweeper 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727664.jpg" />
+  <img src="Z:/picture/008/save_picture_727664.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Google Chrome 72.0.3626.119 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727657.jpg" />
+  <img src="Z:/picture/008/save_picture_727657.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ WiFi Scanner 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727654.jpg" />
+  <img src="Z:/picture/008/save_picture_727654.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Google Chrome 72.0.3626.119 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727650.jpg" />
+  <img src="Z:/picture/008/save_picture_727650.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ TechSmith Snagit 2019.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727647.jpg" />
+  <img src="Z:/picture/008/save_picture_727647.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Auslogics Disk Defrag Free 8.0.23.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727646.jpg" />
+  <img src="Z:/picture/008/save_picture_727646.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ DaVinci Resolve Studio 15.2.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727640.jpg" />
+  <img src="Z:/picture/008/save_picture_727640.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ BurnAware Professional 3.2.0 RePack by Diablik94 [Rus/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727609.jpg" />
+  <img src="Z:/picture/005/save_picture_727609.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727599.jpg" />
+  <img src="Z:/picture/008/save_picture_727599.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727597.jpg" />
+  <img src="Z:/picture/008/save_picture_727597.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727592.jpg" />
+  <img src="Z:/picture/008/save_picture_727592.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ The Kills - Ash & Ice (2016) [FLAC|Lossless|tracks] <Garage Rock, Lo-Fi, Indie R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727590.jpg" />
+  <img src="Z:/picture/008/save_picture_727590.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Oddisee - The Odd Tape (2016) [MP3|320 кб/с] <Hip Hop, Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727589.jpg" />
+  <img src="Z:/picture/008/save_picture_727589.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ CSIBridge 2016 Advanced with Rating 18.1.1 Build 1228 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727588.jpg" />
+  <img src="Z:/picture/008/save_picture_727588.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ ScrollNavigator 5.2.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727586.jpg" />
+  <img src="Z:/picture/008/save_picture_727586.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727584.jpg" />
+  <img src="Z:/picture/008/save_picture_727584.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727581.jpg" />
+  <img src="Z:/picture/008/save_picture_727581.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Notability 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727567.jpg" />
+  <img src="Z:/picture/008/save_picture_727567.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Downie 2.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727565.jpg" />
+  <img src="Z:/picture/008/save_picture_727565.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Montana Rose - Wild Oats (2017) [FLAC|Lossless|tracks + .cue] <Country, American
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727559.jpg" />
+  <img src="Z:/picture/008/save_picture_727559.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA -  The World's Biggest Country Classics (2014) 2CD [FLAC|Lossless|tracks + .c
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727558.jpg" />
+  <img src="Z:/picture/008/save_picture_727558.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ AudioFinder 5.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727555.jpg" />
+  <img src="Z:/picture/008/save_picture_727555.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Flux 7.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727549.jpg" />
+  <img src="Z:/picture/008/save_picture_727549.jpg" />
 </div>
 
 

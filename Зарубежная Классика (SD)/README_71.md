@@ -1,3 +1,82 @@
+###  Публикация: 934757   (485830) от 16.09.2015
+
+Королева скота из Монтаны / Cattle Queen of Montana (1954) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485830.jpg" />
+</div>
+
+
+###  Подробнее
+
+XIX век, Дикий Запад. Молодая привлекательная девушка Сьерра-Невада Джонс и её отец перегоняют стадо из Техаса в свои новые владения в штате Монтана. Об этом они мечтали очень долго и сейчас наслаждаются спокойствием и красотой новых мест. Внезапно они подвергаются нападению разбойника-индейца Начакоа и его людей из племени черноногих.Производство: США / Benedict Bogeaus Production, RKO Radio Pictures Inc.Жанр: ВестернРежиссер: Аллан ДуонАктеры: Барбара Стэнвик, Рональд Рейган, Джин Эванс, Лэнс Фуллер, Энтони Карузо, Джек Элам, Ивет Дугай, Моррис Анкрум, Чабби Джонсон, Майрон ХилиПеревод: Одноголосый закадровый (minyaev)Язык субтитров: РусскийПродолжительность: 01:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6876FFB848064AE9712724B7F4DEBD46F5757196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155431   (485793) от 19.08.2017
+
+Пария / Le paria (1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неподалеку от испанской границы был ограблен экспресс, везущий из Роттердама в Мадрид партию бриллиантов. В перестрелке с охранником несколько лихих парней погибли, а Маню получил пулю в руку, но ушел с добычей к морю. В отделении Интерпола и в банде налетчиков озабочены исчезновением Маню и бриллиантов…Производство: Франция, Испания / Carlton Continental, Ceres Films, Santos Alcocer P.C.Жанр: Боевик, Криминал, ТриллерРежиссер: Клод КарльезАктеры: Жан Маре, Мари-Жозе Нат, Хорст Франк, Жак Стани, Жан Лара, Беатрис Дельф , Эрик Донат, Ниевес Наварро, Энрике Сан ФрансискоПеревод: Многоголосый закадровый (студия "Инис" по заказу "Союз-Видео")Субтитры: ОтсутствуютПродолжительность: 01:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C30F13B1CC6CD5DB299975BAFB748BF0E824B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055652   (485354) от 23.09.2016
+
+Синьор Робинзон / Il signor Robinson, mostruosa storia d'amore e d'avventure / Mr. Robinson (1976) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робинзон Крузо проходит через множество комичных ситуаций, пока ему не удается хоть как-то освоиться на острове. У него появляется даже Пятница — только на этот раз это темнокожая красавица, с которой Робинзон поначалу тщетно пытается найти общий язык.
+Современный Робинзон не хочет отказываться от благ цивилизации и придумывает, как заменить телевизор, радио и все (   Читать дальше...   )Производство: Италия / Vides CinematograficaЖанр: Мелодрама, Комедия, ПриключенияРежиссер: Серджио КорбуччиАктеры: Паоло Вилладжо, Зеуди Арая Кристальди, Перси Хоган, Анна НогараПеревод: Дублированный (Киностудия "Союзмультфильм", с вставками MVO)Продолжительность: 01:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6799E5B1E74DF78B7F820C24717F2AC75FF855D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317513   (484583) от 11.08.2019
 
 Зеркало треснуло / The Mirror Crack'd (1980) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484583.jpg" />
+  <img src="Z:/picture/008/save_picture_484583.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483911.jpg" />
+  <img src="Z:/picture/008/save_picture_483911.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483886.jpg" />
+  <img src="Z:/picture/008/save_picture_483886.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483845.jpg" />
+  <img src="Z:/picture/008/save_picture_483845.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482963.jpg" />
+  <img src="Z:/picture/008/save_picture_482963.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482645.jpg" />
+  <img src="Z:/picture/008/save_picture_482645.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481854.jpg" />
+  <img src="Z:/picture/008/save_picture_481854.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481811.jpg" />
+  <img src="Z:/picture/008/save_picture_481811.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481602.jpg" />
+  <img src="Z:/picture/008/save_picture_481602.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480928.jpg" />
+  <img src="Z:/picture/008/save_picture_480928.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480524.jpg" />
+  <img src="Z:/picture/008/save_picture_480524.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480476.jpg" />
+  <img src="Z:/picture/008/save_picture_480476.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479837.jpg" />
+  <img src="Z:/picture/008/save_picture_479837.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479743.jpg" />
+  <img src="Z:/picture/008/save_picture_479743.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479589.jpg" />
+  <img src="Z:/picture/008/save_picture_479589.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479366.jpg" />
+  <img src="Z:/picture/008/save_picture_479366.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479259.jpg" />
+  <img src="Z:/picture/008/save_picture_479259.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478896.jpg" />
+  <img src="Z:/picture/008/save_picture_478896.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478562.jpg" />
+  <img src="Z:/picture/008/save_picture_478562.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478438.jpg" />
+  <img src="Z:/picture/008/save_picture_478438.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478381.jpg" />
+  <img src="Z:/picture/008/save_picture_478381.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478285.jpg" />
+  <img src="Z:/picture/008/save_picture_478285.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478128.jpg" />
+  <img src="Z:/picture/008/save_picture_478128.jpg" />
 </div>
 
 
@@ -600,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45492F8E945DAA62895512D50F065CB5373F471A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935420   (477669) от 20.09.2015
-
-Верная рука - друг индейцев / Old Surehand (1965) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477669.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам произведений Карла Мая. Отставной офицер по кличке "Генерал", сколотивший банду головорезов, любыми способами пытается найти золото команчей, для этого он провоцирует войну индейцев с населением мирного городка. На их беду в городе появляется Джонни Гарден - Олд Шурхэнд, странствующий по Дикому Западу в поисках убийц своей матери, которого индейцы (   Читать дальше...   )Производство: Германия (ФРГ), Югославия, Jadran Film, Rialto Film Preben-PhilipsenЖанр: Приключения, ВестернРежиссер: Альфред ФерерАктеры: Пьер Брис, Вольфганг Лукши, Эрик Шуманн, Теренс Хилл, Владимир Медар, Стюарт Грейнджер, Велимир «Бата» Живоинович, Летиция Роман, Ларри Пеннелл, Милан Срдоч, Душан Антониевич, Хермина Пипинич, Елена Жигон, Войя Мирич, Душан Яничиевич, Велько Маричич, Мирослав Бухин, Симе Ягаринец, Мартин Загнер, Мате ИванковичПеревод: Многоголосый закадровыйСубтитры: нетПродолжительность: 01:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5644400462F746D3A10E29FB95D57BD49D2DF19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209758   (477545) от 20.09.2015
-
-Игра в классики / Hopscotch (1980) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_477545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своевольный шпион Кендиг кажется новому молодому начальнику слишком опасным. Однако, пригрозив перевести его на "более спокойную" должность, шеф своими руками поджигает фитиль: Кендигу приходит на ум игра, которая взбаламутит все разведки мира. С помощью своей давней подруги он готовит к выходу книгу...Жанр: Комедия, ДетективРежиссер: Роналд Ним /Ronald Neame/Актеры: Уолтер Маттау / Walter Matthau (Кендиг), Гленда Джексон /Glenda Jackson (Изобел), Сэм Уотерсон / Sam Waterston (Каттер), Нед Битти / Ned Beatty (Майерсон), Херберт Лом / Herbert Lom (Ясков), David Matthau (Росс, напарник Каттера), Lucy Saroyan (пилот)Перевод: Профессиональный (одноголосый) В.Сонькин+ ОригиналПродолжительность: 01:45:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211956   (477132) от 20.09.2015
-
-Ужин с убийством / Убийство смертью / Murder by Death (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_477132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксцентричный миллионер Лайонел Твэйн (Труман Капоте) приглашает к себе на ужин пять самых известных детективов мира, за слегка измененными именами которых можно легко узнать знаменитых литературных героев (от Эркюля Пуаро до инспектора Коломбо). За ужином Твэйн объявляет, что ровно в полночь в доме произойдет убийство, и он заплатит миллион долларов тому, кто раскроет (   Читать дальше...   )Жанр: Детектив, КомедияРежиссер: Robert Moore / Роберт МурАктеры: Труман Капоте / Truman Capote /, Питер Фальк / Peter Falk /, Алек Гиннесс / Alec Guinness /, Питер Селлерс / Peter Sellers /, Дэйвид Нивен / David Niven /, Мэгги Смит / Maggie Smith /, Джеймс Коко / James Coco /Перевод: 2 варианта - Многоголосый закадровый + английский, оригинальныйПродолжительность: 01:30:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

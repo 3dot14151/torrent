@@ -1,3 +1,30 @@
+###  Публикация: 1217012   (746001) от 02.04.2018
+
+Холостяк (2018.04.01) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746001.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 6-м сезоне самого романтичного шоу ТНТ главным героем станет 23-летний певец Егор Крид! Самый завидный жених страны, а также артист музыкального лейбла Black Star предстанет перед зрителями шоу «Холостяк».
+Именно за его сердце будут бороться самые красивые девушки России.Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC56098A4E926972666EB6FBC5AC352B0A4E412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020490   (745518) от 26.05.2016
 
 Место встречи. Савченко-геть? (26.05.2016) SATRip
@@ -6,7 +33,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745518.jpg" />
+  <img src="Z:/picture/008/save_picture_745518.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743956.jpg" />
+  <img src="Z:/picture/008/save_picture_743956.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743952.jpg" />
+  <img src="Z:/picture/008/save_picture_743952.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_743951.jpg" />
+  <img src="Z:/picture/005/save_picture_743951.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743949.jpg" />
+  <img src="Z:/picture/008/save_picture_743949.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743944.jpg" />
+  <img src="Z:/picture/008/save_picture_743944.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743942.jpg" />
+  <img src="Z:/picture/008/save_picture_743942.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742515.jpg" />
+  <img src="Z:/picture/008/save_picture_742515.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742502.jpg" />
+  <img src="Z:/picture/008/save_picture_742502.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742198.jpg" />
+  <img src="Z:/picture/008/save_picture_742198.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741111.jpg" />
+  <img src="Z:/picture/008/save_picture_741111.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741009.jpg" />
+  <img src="Z:/picture/008/save_picture_741009.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740779.jpg" />
+  <img src="Z:/picture/008/save_picture_740779.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740696.jpg" />
+  <img src="Z:/picture/008/save_picture_740696.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740066.jpg" />
+  <img src="Z:/picture/008/save_picture_740066.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738994.jpg" />
+  <img src="Z:/picture/008/save_picture_738994.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735663.jpg" />
+  <img src="Z:/picture/008/save_picture_735663.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735620.jpg" />
+  <img src="Z:/picture/008/save_picture_735620.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735592.jpg" />
+  <img src="Z:/picture/008/save_picture_735592.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734396.jpg" />
+  <img src="Z:/picture/008/save_picture_734396.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732213.jpg" />
+  <img src="Z:/picture/008/save_picture_732213.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732160.jpg" />
+  <img src="Z:/picture/008/save_picture_732160.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732001.jpg" />
+  <img src="Z:/picture/008/save_picture_732001.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731768.jpg" />
+  <img src="Z:/picture/008/save_picture_731768.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730605.jpg" />
+  <img src="Z:/picture/008/save_picture_730605.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:695E2B5C5A1A0E678176A87B1EA7984C1FC1B6C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128104   (730043) от 23.04.2017
-
-Лучше всех (2017.04.23) SATRip (сезон 2, выпуск 11)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF9450A8EFE32B969311FB6FF819A00AAD3ADF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

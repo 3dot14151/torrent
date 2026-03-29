@@ -1,3 +1,32 @@
+###  Публикация: 1076326   (314189) от 25.11.2016
+
+Boneyard Dog - Bluesbound Train (2016) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atchafayalla (00:57)
+02. Mother Lode (04:23)
+03. Kingdom Of Your Company  (04:39)
+04. Lonely Road  (04:42)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3327ADF083652123FA2B7E4D58B396416DBAAB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422045   (312851) от 07.11.2020
 
 AC/DC - Johnson City 1988 (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ AC/DC - Johnson City 1988 (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312851.jpg" />
+  <img src="Z:/picture/008/save_picture_312851.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mickey Thomas - Alive Alone (серия "Другие восьмидесятые
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311696.jpg" />
+  <img src="Z:/picture/008/save_picture_311696.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Juicy Lucy - Juicy Lucy (1995) Reissue, Remastered, 2010, Japanese Edition [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310713.jpg" />
+  <img src="Z:/picture/008/save_picture_310713.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Janis Joplin - The Television Broadcast Sessions 1968 -1970 (2017) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310077.jpg" />
+  <img src="Z:/picture/008/save_picture_310077.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309977.jpg" />
+  <img src="Z:/picture/008/save_picture_309977.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Jeff Lynne's ELO - From Out Of Nowhere (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309367.jpg" />
+  <img src="Z:/picture/008/save_picture_309367.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Imagine Dragons - Origins (2018) Deluxe Edition [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309138.jpg" />
+  <img src="Z:/picture/008/save_picture_309138.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Blackbirds - No Destination (1968) Remastered, 2005, Long Hair [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309074.jpg" />
+  <img src="Z:/picture/008/save_picture_309074.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Smokie - Early Successes (2016) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308498.jpg" />
+  <img src="Z:/picture/008/save_picture_308498.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Michael Rother - 9 Studio Albums (1977-2004) CD [MP3|320 Kbps] <Electronic, Krau
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307774.jpg" />
+  <img src="Z:/picture/008/save_picture_307774.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mgzavrebi - Geo (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307444.jpg" />
+  <img src="Z:/picture/008/save_picture_307444.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Shocking Blue - Venus-The Best Of (1993) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307381.jpg" />
+  <img src="Z:/picture/008/save_picture_307381.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Preacher Stone - Remedy (2016) [MP3|320 Kbps] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306989.jpg" />
+  <img src="Z:/picture/008/save_picture_306989.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Temple of Switches - The Wings of Mind (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306302.jpg" />
+  <img src="Z:/picture/008/save_picture_306302.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Ace of Cups - Ace of Cups (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock, Psyche
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305582.jpg" />
+  <img src="Z:/picture/008/save_picture_305582.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ The Rolling Stones - Blue and Lonesome (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304297.jpg" />
+  <img src="Z:/picture/008/save_picture_304297.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ J:МОРС - 20 лет. Полёт норм! (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303410.jpg" />
+  <img src="Z:/picture/008/save_picture_303410.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ VA - Shine On You Crazy Diamond A Tribute To Pink Floyd's Greatest Hits (2018) [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303279.jpg" />
+  <img src="Z:/picture/008/save_picture_303279.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ VA - Gottschalks Rock Classics (2018) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303269.jpg" />
+  <img src="Z:/picture/008/save_picture_303269.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Joe Cocker - The Life of a Man (The Ultimate Hits 1968-2013) (2015) 2CD [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302939.jpg" />
+  <img src="Z:/picture/008/save_picture_302939.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Imagine Dragons - 4 Albums (2012-2018) [MP3|320 Kbps] <Indie Rock, Alternative R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302544.jpg" />
+  <img src="Z:/picture/008/save_picture_302544.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Kadavar - Studio Live Session Vol. I (2020) [MP3|320 Kbps] <Psychedelic Rock, St
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302447.jpg" />
+  <img src="Z:/picture/008/save_picture_302447.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Dirt Poor Robins - Deadhorse (2020) 2xCD,  Deluxe Edition [MP3|320 Kbps] <Progre
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302401.jpg" />
+  <img src="Z:/picture/008/save_picture_302401.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Final Conflict - The Rise Of The Artisan (2020) [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302387.jpg" />
+  <img src="Z:/picture/008/save_picture_302387.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Syrinx - Meteora (1980) LP [MP3|320 Kbps] <Electronic, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301586.jpg" />
+  <img src="Z:/picture/008/save_picture_301586.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Syrinx - Meteora (1980) LP [MP3|320 Kbps] <Electronic, Krautrock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0961EBEBE6FC5638EA6ED754DE7B412A4306FB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184374   (301276) от 17.11.2017
-
-Jeff Lynne's ELO - Wembley Or Bust (2017) Live [MP3|320 Kbps] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standin' In The Rain
-02. Evil Woman
-03. All Over The World
-04. Showdown(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FA5A017BECF417383259F5A9A08E72DC691D05
 ```
 
 https://mybot314.ru/tekegram_catalog/

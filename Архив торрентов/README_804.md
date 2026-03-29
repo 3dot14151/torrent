@@ -6,7 +6,7 @@ Luminar Neo 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867870.jpg" />
+  <img src="Z:/picture/008/save_picture_867870.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrossOver 21.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867869.jpg" />
+  <img src="Z:/picture/008/save_picture_867869.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867861.jpg" />
+  <img src="Z:/picture/008/save_picture_867861.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867858.jpg" />
+  <img src="Z:/picture/008/save_picture_867858.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe Shockwave Player 12.2.7.197 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867852.jpg" />
+  <img src="Z:/picture/008/save_picture_867852.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867820.jpg" />
+  <img src="Z:/picture/008/save_picture_867820.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867815.jpg" />
+  <img src="Z:/picture/008/save_picture_867815.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867811.jpg" />
+  <img src="Z:/picture/008/save_picture_867811.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867796.jpg" />
+  <img src="Z:/picture/008/save_picture_867796.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ PhoneClean Pro 4.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867795.jpg" />
+  <img src="Z:/picture/008/save_picture_867795.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Stand Up (2016.03.20) SATRip (сезон 4, выпуск 4)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867793.jpg" />
+  <img src="Z:/picture/008/save_picture_867793.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867788.jpg" />
+  <img src="Z:/picture/008/save_picture_867788.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Electronic Saviors • Industrial Music To Cure Cancer - Discography 12 Rel
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867735.jpg" />
+  <img src="Z:/picture/008/save_picture_867735.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Advanced SystemCare Pro 14.6.0.307 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867728.jpg" />
+  <img src="Z:/picture/008/save_picture_867728.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Auslogics File Recovery 7.1.2.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867690.jpg" />
+  <img src="Z:/picture/008/save_picture_867690.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867688.jpg" />
+  <img src="Z:/picture/008/save_picture_867688.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867687.jpg" />
+  <img src="Z:/picture/008/save_picture_867687.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MAGIX Vegas DVD Architect 7.0.0 Build 54 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867683.jpg" />
+  <img src="Z:/picture/008/save_picture_867683.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.6.7 B) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867595.jpg" />
+  <img src="Z:/picture/008/save_picture_867595.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867588.jpg" />
+  <img src="Z:/picture/008/save_picture_867588.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Adobe Acrobat Pro DC 2021.007.20091 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867586.jpg" />
+  <img src="Z:/picture/008/save_picture_867586.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867573.jpg" />
+  <img src="Z:/picture/008/save_picture_867573.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867558.jpg" />
+  <img src="Z:/picture/008/save_picture_867558.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Soft Organizer 6.06 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867544.jpg" />
+  <img src="Z:/picture/008/save_picture_867544.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ JonDo 0.9.41 (Анонимный доступ в сети) [x86] (DVD, CD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867523.jpg" />
+  <img src="Z:/picture/008/save_picture_867523.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867474.jpg" />
+  <img src="Z:/picture/008/save_picture_867474.jpg" />
 </div>
 
 

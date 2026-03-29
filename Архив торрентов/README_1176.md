@@ -6,7 +6,7 @@ Adobe Acrobat Reader DC 2017.009.20044 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785546.jpg" />
+  <img src="Z:/picture/008/save_picture_785546.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 7.35.0.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785545.jpg" />
+  <img src="Z:/picture/008/save_picture_785545.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Monstercat Label - 937 releases (2011-2017) [FLAC|Lossless|tracks] <Breaks, Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785536.jpg" />
+  <img src="Z:/picture/008/save_picture_785536.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785531.jpg" />
+  <img src="Z:/picture/008/save_picture_785531.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785520.jpg" />
+  <img src="Z:/picture/008/save_picture_785520.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Acrobat Pro DC 2017.009.20044 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785519.jpg" />
+  <img src="Z:/picture/008/save_picture_785519.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SamDrivers 17.4.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785517.jpg" />
+  <img src="Z:/picture/008/save_picture_785517.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Format Factory 4.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785516.jpg" />
+  <img src="Z:/picture/008/save_picture_785516.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Wondershare Recoverit 7.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785475.jpg" />
+  <img src="Z:/picture/008/save_picture_785475.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Jim Bryson - Tired Of Waiting (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785473.jpg" />
+  <img src="Z:/picture/008/save_picture_785473.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Indian Wells - Where The World Ends (2017) Japanese Edition [FLAC|Lossless|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785462.jpg" />
+  <img src="Z:/picture/008/save_picture_785462.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AnyTrans for Android 6.5.0 (build 20190117) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785446.jpg" />
+  <img src="Z:/picture/008/save_picture_785446.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Auto Reverse - Loneliness Of The Deep Space Traveller (2017) [FLAC|Lossless|WEB-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785432.jpg" />
+  <img src="Z:/picture/008/save_picture_785432.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ CoolUtils PDF Combine 6.1.0.117 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785428.jpg" />
+  <img src="Z:/picture/008/save_picture_785428.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Laura Branigan (Лора Брэниган) - Remember Me (2005) Dance Street, DS
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785423.jpg" />
+  <img src="Z:/picture/008/save_picture_785423.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ FireAlpaca 2.1.14 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785401.jpg" />
+  <img src="Z:/picture/008/save_picture_785401.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Bagelman Sisters - A Yiddish Lied / Bist Main Welt  (1939) [FLAC|Lossless|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785400.jpg" />
+  <img src="Z:/picture/008/save_picture_785400.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785399.jpg" />
+  <img src="Z:/picture/008/save_picture_785399.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785398.jpg" />
+  <img src="Z:/picture/008/save_picture_785398.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Structural Mind Engine - Forest (2018)2CD [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785394.jpg" />
+  <img src="Z:/picture/008/save_picture_785394.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Last Life - Nootka EP (2017) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785390.jpg" />
+  <img src="Z:/picture/008/save_picture_785390.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Mimetic Desire - Sacred Aim (2006) Ant-Zen [FLAC 2.0|48/24|tracks|DVD-Rip] <Trib
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785389.jpg" />
+  <img src="Z:/picture/008/save_picture_785389.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Loaris Trojan Remover 3.0.75.210 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785376.jpg" />
+  <img src="Z:/picture/008/save_picture_785376.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ save2pc Ultimate 5.5.7.1584 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785374.jpg" />
+  <img src="Z:/picture/008/save_picture_785374.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Calibre 3.38.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785369.jpg" />
+  <img src="Z:/picture/008/save_picture_785369.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Product Key Explorer 4.0.10.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785365.jpg" />
+  <img src="Z:/picture/008/save_picture_785365.jpg" />
 </div>
 
 

@@ -1,3 +1,116 @@
+###  Публикация: 1615944   (1036986) от 28.02.2023
+
+Joe Zawinul Trio - To You With Love (1959) 2005, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Should Care [3:19]
+02. Easy Living [3:29]
+03. Please Send Me Someone to Love [4:17]
+04. It Might as Well Be Spring [3:06](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9737B5BAAF80F8DE31F7F7418DEAEAE24E891676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442055   (1036964) от 24.01.2021
+
+Ian Hendrickson-Smith - The Lowdown (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036964.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Lowdown
+2. Savin' Up
+3. 10:30
+4. Nancy (with the Laughing Face)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97E3CE085B1FF4FBB3CE720D5EFC1F2855A9ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442216   (1036948) от 24.01.2021
+
+Wayne Alpern - Standard Deviation (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.ThrillerЖанр: Jazz, Crossover JazzПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24D85784F9E2A2601E31EE60BF0914A25666562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616134   (1036743) от 01.03.2023
+
+John Medeski - A Different Time (2013) Okeh [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Different Time [4:33]
+02. I'm Falling in Love Again [5:44]
+03. His Eye Is on the Sparrow [6:18]
+04. Ran [1:54](   Читать дальше...   )Жанр: Avant-Garde Jazz, Piano JazzПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F835777B528FFA24187660F586DC150418F04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616129   (1036741) от 01.03.2023
 
 Dinah Washington - The Fats Waller Songbook (1957) 1992, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +119,7 @@ Dinah Washington - The Fats Waller Songbook (1957) 1992, EmArcy [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036741.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Sun Ra And His Arkestra - Greatest Hits: Easy Listening For Intergalactic Travel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036738.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Hal Singer - Milt & Hal (1968) 2019, Solid Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036670.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ The Dave Brubeck Quartet - Brubeck in Amsterdam (1962) 2015,  Sony Music Labels 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036668.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Enrique Haneine - Unlayered (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Post Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036666.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Jo Jones - Caravan (2019) [FLAC|Lossless|image + .cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036661.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Jeff Lorber - West Side Stories (1994) [FLAC|Lossless|tracks + .cue] <Fusion, Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036614.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ Dinah Washington - Dinah Jams (1954) 1984, EmArcy [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036452.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ Dinah Washington - Collection: 25 songs (1994) The Collection [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036444.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ Najee - Savoir Faire (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036441.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ Nicki Parrott - Misty (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036428.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ Erotica - Nymphomania (2022) [FLAC|Lossless|tracks] <Jazz, Instrumental, Easy Li
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036411.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Buddy De Franco (DeFranco) - Four Classic Albums Plus (1952 - 1954) 2014, 2CD, A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036362.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ Jimmie Lunceford And His Harlem Express - Wham (2005) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036357.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ Al Casey - Buck Jumpin' (1960) 1991,  Prestige/Swingville/Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036265.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ Buddy De Franco (DeFranco) - In A Mellow Mood (1954) 2012, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036060.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ Dinah Washington - Mellow Mama (1945) 1992, Delmark Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035875.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ Sun Ra Arkestra - Swirling (2020) Strut [FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035866.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ Dinah Washington - The Queen Sings Jazz: Jazz Archives № 145 (1943 - 1948) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035864.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ Mary Lou Williams - Black Christ Of The Andes (1963) 2006, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035775.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Dinah Washington - After Hours With Miss "D" (1953, 1954) 2004, Verve Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035624.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ Dinah Shore - Fascination: The Encore Collection (1950-e) 1997, BMG Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035621.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ Dinah Shore - Fascination: The Encore Collection (1950-e) 1997, BMG Music [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05F6CF7ECB9731EA51A8BC2C4112DE724FCBCC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617058   (1035584) от 05.03.2023
-
-Quincy Jones - Milestones Of A Legend (1953 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|tracks + .cue] <Bop, Cool, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Golden Touch [3:05]
-02. Jones Beach [4:55]
-03. The Midnight Sun Will Never Set [4:58]
-04. I'm Gone [5:18](   Читать дальше...   )Жанр: Bop, Cool, Big BandПродолжительность: 11:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3F29486D6390723B585BFCB9094B27EC0261BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617171   (1035567) от 05.03.2023
-
-Eva Cassidy & London Symphony Orchestra - I Can Only Be Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Classical Crossover, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Songbird
-02. Autumn Leaves
-03. People Get Ready
-04. Waly Waly(   Читать дальше...   )Жанр: Vocal Jazz, Classical Crossover, Easy ListeningПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA53B2414396FAC477647554C693B1E5028E3E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443498   (1035500) от 29.01.2021
-
-Mary Lou Williams - Conversation (1940-e) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 8th Avenue [2:40]
-02. Medley: Cloudy/What's Your Story? Morning Glory/Ghost of Love [4:19]
-03. Limehouse Blues [2:43]
-04. Boogie Misterioso [2:49](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B5135466FDA185A99D11B766095F9983BDAF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617341   (1035362) от 06.03.2023
-
-Kenny Barron - Other Places (1993) Gitanes Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anywhere [5:31]
-02. Other Places [6:55]
-03. Mythology [7:55]
-04. For Heaven's Sake [8:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07154FBB803C87D398E43589DE34C5B3E4DE829
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1671462   (171280) от 24.10.2023
+
+F-Secure Freedome VPN 2.69.35.0 RePack by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171280.jpg" />
+</div>
+
+
+###  Подробнее
+
+F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4FC863AC933995DFAB00ED3608835D65F22DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288189   (171278) от 24.10.2023
+
+Шрифты - NNM-Club - NoNaMe Classic - 1288189 [OTF, EOT, SVG, WOFF]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный кириллический шрифт сайта NoNaMe Club.Разработчик: Vadaboom
+
+Адаптация под кириллицу от "He Rez AD", им же расширена латиница для поддержки большего количества европейских языков: добавлены к уже имеющейся Польская, Румынская, Немецкая, Французская и др. + мелкие исправления + шрифт включает в cебя знак Биткойна (Bitcoin) U+20BF ($20BF).Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F4F6A89F7535F307ED84EABFA5BCBEDCC906A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671388   (171123) от 25.10.2023
+
+Роскомнадзор не смог остановить рост числа пиратских ресурсов с фильмами и музыкой
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171123.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первом полугодии заметно выросло количество нелегальных ресурсов с медийным контентом (книги, фильмы, музыка), отмечает «Коммерсантъ» со ссылкой на данные опроса TelecomDaily. В отношении фильмов рост пиратства в основном наблюдается в части западной продукции, сообщили в официальных онлайн-кинотеатрах. Попытки властей вернуть зарубежный контент на легальные площадки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692163   (170727) от 09.12.2019
+
+Битва за Москву (1985) DVDRip [H.264] [Реставрация]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киноэпопея в двух фильмах.
+В фильме "Агрессия" показаны события, происходившие в Европе, на территории СССР накануне и в начале Второй мировой войны. Интереснейшая картина смотрится захватывающе. С первых дней войны столица СССР начала готовиться к обороне. Были эвакуированы учереждения и заводы, посольства и министерства. В Москву из Ленинграда, чтобы (   Читать дальше...   )Производство: СССР, Чехословакия, Германия (ГДР), Вьетнам / Мосфильм, Deutsche Film (DEFA), Filmové studio Barrandov, Defa, Favim VRЖанр: Военный, ДрамаРежиссер: Юрий ОзеровАктеры: Яков Трипольский, Михаил Ульянов, Александр Голобородько, Бруно Фрейндлих, Николай Засухин, Анатолий Никитин, Владимир Трошин, Степан Микоян, Вячеслав Езепов, Юозас БудрайтисПродолжительность: 4 серии - 05:38:05 (01:17:52 + 01:28:17 + 01:23:05 + 01:28:51)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A176FDBCFD13CF8BE1F3A700FE057E8ACCA8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070624   (170723) от 09.12.2019
+
+City Car Driving (2016) [Ru/Multi] (1.5.9) Repack Other s [Home Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170723.jpg" />
+</div>
+
+
+###  Подробнее
+
+City Car Driving – реалистичный симулятор вождения автомобиля, который поможет вам освоить базовые навыки управления машиной в различных дорожных условиях, с погружением в среду, максимально приближенную к реальной. "Умный" трафик, непредсказуемые пешеходы и внезапные опасные ситуации не дадут расслабиться и будут поддерживать атмосферу реальной дорожной (   Читать дальше...   )Тип издания: RepackРазработчик: Forward Development, Ltd.Жанр: Simulator (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF6F4FCDF54E1E5B26CAAF08000E00356206D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596052   (170619) от 08.12.2022
+
+Сердце пармы (2022) WEBRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский князь Михаил и юная Тиче — дети разных народов, разных миров и разных богов. Любовь молодого воителя и ведьмы-ламии кажется невозможной, но преодолевает все запреты, запуская маховик рока. Отныне только от Михаила зависит будущее родной пармы, древних суровых земель, напоенных чудодейственной мощью кровавых языческих богов. Здесь сталкиваются герои и призраки, (   Читать дальше...   )Производство: Россия, Профит, Star MediaЖанр: драма, фэнтезиРежиссер: Антон МегердичевАктеры: Александр Кузнецов, Елена Ербакова, Сергей Пускепалис, Евгений Миронов, Виталий Кищенко, Фёдор Бондарчук, Владимир Свирский, Роза Хайруллина, Елена Панова, Александр ГорбатовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95416C869CFB2FCFB62EEB5AD4E3E9F9048A36BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 123389   (170568) от 26.10.2023
 
 Хищник / Predator (1987)  Blu-Ray [H.264/1080p]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170568.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ The Lord of the Rings: Return to Moria (2023) [Ru/Multi] (1.0.0.112055) Repack O
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170554.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Cloudflare, Apple и Fastly объявили о создании нового п
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_170236.jpg" />
+  <img src="Z:/picture/005/save_picture_170236.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170100.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_169730.jpg" />
+  <img src="Z:/picture/005/save_picture_169730.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169406.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ Rolls-Royce полагается на малые ядерные реакторы
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_169398.jpg" />
+  <img src="Z:/picture/005/save_picture_169398.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_168638.jpg" />
+  <img src="Z:/picture/005/save_picture_168638.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168605.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ Adobe Premiere Pro 2023 23.1.0.86 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168542.jpg" />
 </div>
 
 
@@ -266,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168539.jpg" />
 </div>
 
 
@@ -292,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168534.jpg" />
 </div>
 
 
@@ -318,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168422.jpg" />
 </div>
 
 
@@ -344,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168403.jpg" />
 </div>
 
 
@@ -370,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168381.jpg" />
 </div>
 
 
@@ -396,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_168335.jpg" />
+  <img src="Z:/picture/005/save_picture_168335.jpg" />
 </div>
 
 
@@ -422,7 +581,7 @@ KissXsis / Поцелуй Сестёр [2010, TV, 12 серий] HDTV 720p raw +
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168117.jpg" />
 </div>
 
 
@@ -448,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_168065.jpg" />
+  <img src="Z:/picture/005/save_picture_168065.jpg" />
 </div>
 
 
@@ -474,7 +633,7 @@ JetBrains PyCharm Professional 2019.3 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167659.jpg" />
 </div>
 
 
@@ -500,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_167269.jpg" />
+  <img src="Z:/picture/005/save_picture_167269.jpg" />
 </div>
 
 
@@ -513,164 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495829   (167143) от 09.12.2021
-
-Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (1.0.0p-1.1.4i.486) License GOG [Patches]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pathfinder: Wrath of the Righteous – непрямое продолжение ролевой игры Pathfinder: Kingmaker, событие которого разворачиваются в новой части Голариона, Ране Мира, где открылся портал в Бездну. Оказавшись там, вы будете вовлечены в войну между смертными и демонами. В Pathfinder: Wrath of the Righteous появились новые классы персонажей – ведьма и оракул.Тип издания: LicenseРазработчик: Owlcat GamesЖанр: Adventure, RPG, Isometric, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44910538A321505BA1A89CBA32E0F061C2503C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431272   (167069) от 13.12.2020
-
-Zombie Army 4: Dead War (2020) [Ru/Multi] (1.06/dlc) License EMPRESS [Super Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орды под предводительством Гитлера возвращаются за добавкой в новом леденящем кровь шутере от создателей Sniper Elite 4! Жуткие демонические враги, эпическое оружие и невероятная новая кампания для 1−4 игроков в духе Европы 1940-х. Сразитесь с нежитью и не дайте человечеству погибнуть!Тип издания: LicenseРазработчик: RebellionЖанр: ШутерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5D20E05F4320A4A9F4CFE305060E81AE91983C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596853   (167060) от 13.12.2022
-
-Google Chrome теперь официально поддерживает ключи доступа для входа без паролей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_167060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google объявила, что общедоступная версия браузера Chrome теперь поддерживает ключи доступа — решение, предназначенное для аутентификации пользователей на различных ресурсах без необходимости запоминать и вводить пароль. Ключи доступа работают в последней версии Chrome под Windows 11, macOS и Android.Классический механизм аутентификации с логинами и паролями в современных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431479   (167046) от 13.12.2020
-
-HTML Academy | HTML и CSS. Профессиональная вёрстка сайтов (2020) PCRec [7 сентября — 8 ноября 2020]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс разработан для тех, кто хочет сменить профессию и стать высокооплачиваемым профессионалом. Он подойдёт для работающих людей, у которых мало времени.
-
-Во время курса вы будете работать как настоящие верстальщики: поработаете с системой контроля версий в GitHub Desktop и с графическим макетом в редакторе Figma, создадите выразительную и доступную разметку, построите (   Читать дальше...   )Производство: HTML AcademyЖанр: Программирование, вёрсткаПродолжительность: 19:18:81
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0627532B1A3770A6A1CD7A0AA549676C8E895F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338431   (166829) от 14.12.2019
-
-Kaspersky Free 2020 20.0.14.1085 (e) RePack by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Free — бесплатный Антивирус Касперского с облачными технологиями Kaspersky Security Network. Решение предлагает файловый антивирус, веб-антивирус, VPN, защиту от сетевых атак и мониторинг активности.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E4DA4958D5108498814EC45AAC234EAFD513AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317607   (166789) от 14.12.2019
-
-KMS Tools Portable 01.08.2019 by Ratiborus [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166789.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CBCCE32E119D40CF19563A24DC63DBC2BC2945
 ```
 
 https://mybot314.ru/tekegram_catalog/

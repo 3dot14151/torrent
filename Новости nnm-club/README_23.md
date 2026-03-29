@@ -1,3 +1,114 @@
+###  Публикация: 1356280   (978447) от 30.01.2020
+
+Kali Linux 2020.1 (ex. BackTrack) [Аудит безопасности, хакинг] [amd64, i386] 4xDVD+2CD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоялся релиз дистрибутива Kali Linux 2020.1, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников. Все оригинальные наработки, созданные в рамках дистрибутива, распространяются под лицензией GPL и доступны через публичный Git-репозиторий. Для загрузки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B31E907437C0AF79E3B9E904A5EBB018E998AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 398147   (978364) от 16.01.2012
+
+Убежище / Sanctuary (2011) WEB-DLRip [4 сезон, полностью] Gravi-TV
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убежище повествует о истории доктора Хелен Магнус, которая разыскивает разного рода чудовищных созданий (также известных как "абнормалы"). Некоторых из них нужно держать в заперти ради защиты людей, а некоторых - защищать от самих людей. В этом ей помогают её коллега доктор Уилл Зиммерман, бесстрашная и порой безрассудная дочь Эшли, черезчур разговорчивый (   Читать дальше...   )Жанр: ФантастикаРежиссер: Мартин Вуд / Martin WoodАктеры: Аманда Таппинг, Робин Данн, Кристофер Хейердал, Леа Кейрнс, Миранда Фригон, Лаура Меннелл, Райан Роббинс, Питер ДеЛуис.Перевод: Двуголосый закадровый, любительскийОзвучка: Alex White & Irene BlackФормат: AVIПродолжительность: ~ 00:45:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615413   (978329) от 07.02.2013
+
+Microsoft Security Essentials 4.2.216.0 Prerelease [Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Security Essentials - бесплатный антивирус для базовой защиты вашего компьютера от вирусов, интернет-червей, троянов, программ-шпионов. Усиленная безопасность,
+максимальная производительность, интеграция с фаерволом Windows. Для использования пакета
+MSE не требуется регистрация, отсутствует этап пробного использования, нет ограничений по сроку
+использования – достаточно загрузить и установить.
+
+(   Читать дальше...   )Название программы: Microsoft Security EssentialsЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615075   (978252) от 07.02.2013
+
+Origin Pro 9.0 SR1 b76 [Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощнейший научный пакет для анализа и обработки данных. Считается стандартом де факто во многих научных лабораториях. OriginPro представляет собой универсальное средство обработки статистических и математических функций, обработки массивов данных, построения графиков этих функций и графиков по массивам данных, а также инструмент разработки узкоспециализированных математических программ и средств визуализации графических данных. Интеграция с системами сбора данных таких как LabView, DasyLab, LabWindows... Совместимость с MathLab, MathCad, Microsoft Office... Origin включает в себя полную версию библиотеки численных алгоритмов NAG Mark VII от Numerical Algorithms Group, Inc. (NAG®). Эти отлаженные и проверенные временем алгоритмы предоставляют пользователю широкие возможности для вычислений, начиная от простой статистики и преобразования Фурье, заканчивая линейной алгеброй и многомерным анализом. Все функции библиотеки NAG доступны для вызова через Origin C, тем самым обеспечивая платформу для разработки приложений, требующих сложных численных рассчетов. От себя добавлю что уже 10 лет все знакомые ученые работают именно с этой программой и заставляют студентов рисовать в ней графики к дипломам.
+
+(   Читать дальше...   )Название программы: Origin ProЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615164   (978249) от 07.02.2013
 
 Sony Vegas Pro 10.0e Build 737 Portable by punsh [Русский]
@@ -6,7 +117,7 @@ Sony Vegas Pro 10.0e Build 737 Portable by punsh [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978249.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977586.jpg" />
 </div>
 
 
@@ -59,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977578.jpg" />
 </div>
 
 
@@ -85,7 +196,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2015.12 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977576.jpg" />
 </div>
 
 
@@ -111,7 +222,7 @@ Atnsoft Key Manager 1.11.0.350 RePack + Portable by Vnvvnv [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977575.jpg" />
 </div>
 
 
@@ -137,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977537.jpg" />
 </div>
 
 
@@ -165,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977501.jpg" />
 </div>
 
 
@@ -192,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977324.jpg" />
 </div>
 
 
@@ -218,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977321.jpg" />
 </div>
 
 
@@ -244,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977319.jpg" />
 </div>
 
 
@@ -270,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977196.jpg" />
 </div>
 
 
@@ -296,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977192.jpg" />
 </div>
 
 
@@ -324,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977088.jpg" />
 </div>
 
 
@@ -354,7 +465,7 @@ XCOM: Enemy Unknown [Ru/En] (Steam-Rip/1.0.0.20072/2 DLC) 2012 | R.G. Игром
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_977087.jpg" />
+  <img src="Z:/picture/005/save_picture_977087.jpg" />
 </div>
 
 
@@ -384,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977085.jpg" />
 </div>
 
 
@@ -412,7 +523,7 @@ Stubbs the Zombie in Rebel Without a Pulse [Ru/En] (Repack) 2005 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977083.jpg" />
 </div>
 
 
@@ -440,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977079.jpg" />
 </div>
 
 
@@ -466,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976607.jpg" />
 </div>
 
 
@@ -492,7 +603,7 @@ Adobe Photoshop Elements 14.1 x86-x64 Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976418.jpg" />
 </div>
 
 
@@ -520,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976337.jpg" />
 </div>
 
 
@@ -546,7 +657,7 @@ Call of Duty: Black Ops III (2015) [Ru/En] (100.0.0.0.0.0/dlc) SteamRip =nemos= 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976168.jpg" />
 </div>
 
 
@@ -572,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975720.jpg" />
 </div>
 
 
@@ -587,115 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616344   (975707) от 09.02.2013
-
-Wolfram Mathematica 9.0.1 [English]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти любой рабочий процесс включает в себя вычисление результатов, и это именно то, что делает система Mathematica — от построения веб-сайта для торговли хедж-фондами или публикации технических учебников до разработки встроенных алгоритмов распознавания изображений или преподавания математического анализа.
-
-Система Mathematica известна как самое мощное в мире вычислительное приложение. Но это гораздо больше — она является единственной платформой для разработки, полностью интегрирующей вычисления в рабочий процесс от начала до конца, плавно проводя вас от первоначальных идей и вплоть до развернутых индивидуальных и промышленных решений.Название программы: Wolfram MathematicaЯзык интерфейса: English
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972696   (975197) от 12.01.2016
-
-Михаил Русаков | Фреймворк Yii 2.0 с нуля. Пример создaния сaйтa (2015) PCRec [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс состоит из двух крупных разделов:
-«Основы и примеры использования Yii» и «Создание Blog.MyRusakov.ru».
-По сути, это теория и практика. Почти к каждому уроку в обоих разделах идут упражнения для закрепления материала.
-(   Читать дальше...   )Производство: РоссияЖанр: Программирование, PHPПродолжительность: 05:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7AE65D69EF82C4F00535BF7D7B817D9AC03672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974390   (975195) от 12.01.2016
-
-Вавилон 5 / Babylon 5 (1993-2007) DVDRip [H.264] (сезон 1-5, серии 1-110 из 110 + Крестовый поход + полнометражные фильмы) ТВ-6
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Началась новая эра в истории человечества. Минуло десять лет после войны Земли с Минбаром. Проект «Вавилон» стал воплощением мечты о галактике без войн. Его цель — создание центра, где различные цивилизации смогут решать спорные вопросы мирным путём. Станция стала местом встречи и домом для дипломатов, авантюристов, дельцов, путешественников, тысяч людей и инопланетян (   Читать дальше...   )Производство: США / Warner Bros.Жанр: фантастика, боевик, драмаРежиссер: Ричард Комптон, Джон С. Флинн Третий, Дженет Грик, Брюс Сет Грин, Джим Джонстон, Лоррейн СеннаАктеры: Майкл О'Хэр, Клаудиа Кристиан, Джерри Дойл, Майра Ферлэн, Ричард Биггз, Андреа Томпсон, Стивен Ферст, Билл Мами, Кэйтлин Браун, Андреас Катсулас, Питер Юрасик и др.Перевод: Многоголосый профессиональный (ТВ-6)Язык озвучки: Русский, английскийПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B4B53BF348F56C613141962FCF90E63B0CE805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974675   (975191) от 12.01.2016
-
-Экстрасенсы / Утешение / Solace (2015) HDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напарники, Джо и Кэтрин, детективы из ФБР расследуют череду загадочных убийств. Все преступления объединяет нечто сверхъестественное — серийный убийца всегда на шаг впереди лучших сыщиков. Тогда на помощь правосудию приходит отставной аналитик спецслужб доктор Джон Кленси. Его исключительная интуиция и интеллект могут помочь поймать убийцу, но вскоре Джон понимает (   Читать дальше...   )Производство: США / Eden Rock Media, FilmNation Entertainment, Flynn Picture CompanyЖанр: Триллер, ДетективРежиссер: Афонсо ПойартАктеры: Джеффри Дин Морган, Колин Фаррелл, Энтони Хопкинс, Эбби Корниш, Марли Шелтон, Джанин Тернер, Ксандер Беркли, Кенни Джонсон, Хосе Пабло Кантильо, Джошуа КлоузПеревод: Двухголосый закадровый, любительский (Parovoz Production)Язык субтитров: Английский, испанский, румынский, датский, голландскийПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060CAECEE2C4DCDDB6FFAA7D4453ACF68F3383EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

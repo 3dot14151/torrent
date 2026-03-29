@@ -1,3 +1,90 @@
+###  Публикация: 1576755   (361891) от 16.09.2022
+
+Silentend - Neverending War (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - M.A.D (05:23)
+02 - The Sacred Defiled (05:36)
+03 - Massive Oppression (06:10)
+04 - Rage Arise (06:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EC23DB7D743233F548AA1681061124096E4B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576799   (361890) от 16.09.2022
+
+Demonical - Mass Destroyer (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We Conquer the Throne 03:13
+2. Sun Blackened 03:40
+3. Fallen Mountain 05:04
+4. Wrathspawn 03:45(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EAC081F7DC682788A52A61381C561D878E476F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255619   (361836) от 19.10.2018
+
+House Vs. Hurricane - Perspectives (2010) [FLAC|Lossless|tracks + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaps & Bounds (4:40)
+ 02. We, The Reserveless (3:54)
+ 03. Lesson Learnt (2:48)
+ 04. Off The Wall (3:20)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69144835D525CBFF41211459963FA4E4B308C03A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070929   (361825) от 09.11.2016
 
 Sirenia - Dim Days Of Dolor (2016) Limited Edition [FLAC|Lossless|image + .cue] <Gothic Metal>
@@ -6,7 +93,7 @@ Sirenia - Dim Days Of Dolor (2016) Limited Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361825.jpg" />
+  <img src="Z:/picture/008/save_picture_361825.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Coma Divine - Dead End Circle (Digipak) (2011) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_361547.jpg" />
+  <img src="Z:/picture/005/save_picture_361547.jpg" />
 </div>
 
 
@@ -70,7 +157,7 @@ Sonata Arctica - Talviyo (2019) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361041.jpg" />
+  <img src="Z:/picture/008/save_picture_361041.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ Silent Descent - Mind Games (Japanese Edition) (2012) [FLAC|Lossless]<Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360815.jpg" />
+  <img src="Z:/picture/005/save_picture_360815.jpg" />
 </div>
 
 
@@ -134,7 +221,7 @@ Kamelot - Silverthorn (Japanese Edition) (2012) [FLAC|Lossless]<Progressive Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360813.jpg" />
+  <img src="Z:/picture/005/save_picture_360813.jpg" />
 </div>
 
 
@@ -169,7 +256,7 @@ Step Child - The Prayer (1995) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360702.jpg" />
+  <img src="Z:/picture/008/save_picture_360702.jpg" />
 </div>
 
 
@@ -198,7 +285,7 @@ Carnivore - Retaliation (1987) Reissue, Remastered, 2018, Listenable [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360689.jpg" />
+  <img src="Z:/picture/008/save_picture_360689.jpg" />
 </div>
 
 
@@ -227,7 +314,7 @@ Spirit Adrift - Еnlightеnеd In Еtеrnitу (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360687.jpg" />
+  <img src="Z:/picture/008/save_picture_360687.jpg" />
 </div>
 
 
@@ -256,7 +343,7 @@ Soulfly - 11 Альбомов (1998-2018) [FLAC|tracks|Lossless]<Groove Metal, N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360649.jpg" />
+  <img src="Z:/picture/008/save_picture_360649.jpg" />
 </div>
 
 
@@ -285,7 +372,7 @@ Behemoth - Opvs Contra Natvram (2022) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359520.jpg" />
+  <img src="Z:/picture/008/save_picture_359520.jpg" />
 </div>
 
 
@@ -314,7 +401,7 @@ Blind Guardian - The God Machine (2022) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359513.jpg" />
+  <img src="Z:/picture/008/save_picture_359513.jpg" />
 </div>
 
 
@@ -343,7 +430,7 @@ Slipknot - The End, So Far (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359368.jpg" />
+  <img src="Z:/picture/008/save_picture_359368.jpg" />
 </div>
 
 
@@ -372,7 +459,7 @@ Type O Negative - The Best Of Type O Negative (2006) [APE|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359153.jpg" />
+  <img src="Z:/picture/008/save_picture_359153.jpg" />
 </div>
 
 
@@ -401,7 +488,7 @@ VA - Symphonic & Opera Metal Vol. 1-5 (2015 - 2019) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359058.jpg" />
+  <img src="Z:/picture/008/save_picture_359058.jpg" />
 </div>
 
 
@@ -430,7 +517,7 @@ Draconian - Sovran (2015) Limited Edition [FLAC|Lossless]<Gothic/Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358635.jpg" />
+  <img src="Z:/picture/008/save_picture_358635.jpg" />
 </div>
 
 
@@ -459,7 +546,7 @@ Benediction - Scriptures (2020) 2xCD [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358261.jpg" />
+  <img src="Z:/picture/008/save_picture_358261.jpg" />
 </div>
 
 
@@ -488,7 +575,7 @@ Vogelfrey - Titanium (2022) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Harte, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357171.jpg" />
+  <img src="Z:/picture/008/save_picture_357171.jpg" />
 </div>
 
 
@@ -517,7 +604,7 @@ Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357044.jpg" />
+  <img src="Z:/picture/008/save_picture_357044.jpg" />
 </div>
 
 
@@ -546,7 +633,7 @@ Apocalyptica - Metal Classic, Classic Metal (2022) EP [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356875.jpg" />
+  <img src="Z:/picture/008/save_picture_356875.jpg" />
 </div>
 
 
@@ -574,7 +661,7 @@ Bring Me the Horizon - Suicide Season (2008) [FLAC|Lossless|tracks + .cue] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356787.jpg" />
+  <img src="Z:/picture/008/save_picture_356787.jpg" />
 </div>
 
 
@@ -603,7 +690,7 @@ Insomnium - Heart Like A Grave (Deluxe Editioin) (2019) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356514.jpg" />
+  <img src="Z:/picture/008/save_picture_356514.jpg" />
 </div>
 
 
@@ -632,7 +719,7 @@ Broken Glazz - Divine (1991) [FLAC|image +.cue]<Heavy Metal / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356338.jpg" />
+  <img src="Z:/picture/008/save_picture_356338.jpg" />
 </div>
 
 
@@ -661,7 +748,7 @@ Dream Evil - Evilized (2003) Japanese Edition / King Record /[FLAC|image +.cue]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356329.jpg" />
+  <img src="Z:/picture/008/save_picture_356329.jpg" />
 </div>
 
 
@@ -675,93 +762,6 @@ Dream Evil - Evilized (2003) Japanese Edition / King Record /[FLAC|image +.cue]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A62D66C302C2963775D3A237334DC546E7B0AD4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256220   (356325) от 21.10.2018
-
-Disturbed - Evolution (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready
-02. No More
-03. A Reason to Fight
-04. In Another Time(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144AA94543B77953DD31FF6FBC3120F49FFC8338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417606   (355907) от 21.10.2020
-
-Mega Colossus - HyperGlaive (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunsword
-02. Sea Of Stars
-03. Gods And Demons
-04. The Judge(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC26CCFCB9D0ED34CE644EE9B5A6255FAA7A895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417550   (355901) от 21.10.2020
-
-Lancelot - But I Just Can't Stay Behind (1983) Reissue, Remastered, 2015, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Man
-02. Home Again
-03. Struck Down
-04. Stargazer(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBC711B20297A405C0E6B05C518D66BF60687CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1312562   (530962) от 05.07.2019
+
+Марксистское искусствознание и В. М. Фриче. Сборник статей и библиография (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научная деятельность В. М. Фриче была необычайно плодотворной — исключительная эрудиция сочеталась в нем с изумительной творческой работоспособностью. Огромное литературное наследство оставлено им. Нужна напряженная работа целого научного коллектива, чтобы в полной мере усвоить это наследство, развить поставленные В. М. Фриче проблемы, систематизировать его многочисленные (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1129ED276A84A98E615A2F53191D2AF15CB4AAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312721   (530730) от 05.07.2019
 
 В.И. Гуляев | Древние цивилизации Америки (2008) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530730.jpg" />
+  <img src="Z:/picture/008/save_picture_530730.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530586.jpg" />
+  <img src="Z:/picture/008/save_picture_530586.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530544.jpg" />
+  <img src="Z:/picture/008/save_picture_530544.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529782.jpg" />
+  <img src="Z:/picture/008/save_picture_529782.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529690.jpg" />
+  <img src="Z:/picture/008/save_picture_529690.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529480.jpg" />
+  <img src="Z:/picture/008/save_picture_529480.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528695.jpg" />
+  <img src="Z:/picture/008/save_picture_528695.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528184.jpg" />
+  <img src="Z:/picture/008/save_picture_528184.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528182.jpg" />
+  <img src="Z:/picture/008/save_picture_528182.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528173.jpg" />
+  <img src="Z:/picture/008/save_picture_528173.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528060.jpg" />
+  <img src="Z:/picture/008/save_picture_528060.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527732.jpg" />
+  <img src="Z:/picture/008/save_picture_527732.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527365.jpg" />
+  <img src="Z:/picture/008/save_picture_527365.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527069.jpg" />
+  <img src="Z:/picture/008/save_picture_527069.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526122.jpg" />
+  <img src="Z:/picture/008/save_picture_526122.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526085.jpg" />
+  <img src="Z:/picture/008/save_picture_526085.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526048.jpg" />
+  <img src="Z:/picture/008/save_picture_526048.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526007.jpg" />
+  <img src="Z:/picture/008/save_picture_526007.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ C. Радхакришнан | Индийская философия [2 тома]
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524532.jpg" />
+  <img src="Z:/picture/008/save_picture_524532.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524506.jpg" />
+  <img src="Z:/picture/008/save_picture_524506.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524054.jpg" />
+  <img src="Z:/picture/008/save_picture_524054.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523860.jpg" />
+  <img src="Z:/picture/008/save_picture_523860.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523700.jpg" />
+  <img src="Z:/picture/008/save_picture_523700.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523666.jpg" />
+  <img src="Z:/picture/008/save_picture_523666.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522365.jpg" />
+  <img src="Z:/picture/008/save_picture_522365.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D45EC2EDACD741B49EFE5F40C6AC50406F93447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240964   (521912) от 15.08.2018
-
-Юваль Ной Харари | Homo Deus. Краткая история будущего (2018) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521912.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей первой книге, ставшей всемирной сенсацией "Sapiens. Краткая история человечества", Юваль Харари рассказал, как Человек Разумный пришел к господству над нашей планетой. "Homo Deus" является своего рода продолжением темы - это попытка заглянуть в будущее. Что произойдет, когда Google и Facebook будут лучше, чем мы сами, знать наши вкусы, (   Читать дальше...   )Жанр: История, антропологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0A5A97C19AB0D02905F21D74D662C9114B100A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,137 @@
+###  Публикация: 1009710   (805112) от 23.04.2016
+
+Андрей Кудлай | Создание каталога товаров с помощью PHP, MySQL и jQuery (2015) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_805112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Вашему вниманию курс по созданию каталога товаров с помощью PHP, MySQL и jQuery. Это огромный по объему курс, в котором не просто решается какая-то конкретная задача, но в котором практически в режиме онлайн мы будем создавать собственный движок с нуля. Написанный в курсе по созданию каталога товаров с помощью PHP, MySQL и jQuery движок, можно будет (   Читать дальше...   )Производство: WebforMyselfЖанр: PHP, MySql, jQueryПродолжительность: 32:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70678A84B269EC7272A47587B19EC0488492CB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198765   (803993) от 13.01.2018
+
+Клабпрофи | Суперкомпьютер за один день (2017) CamRip, PCRec  [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Ваш компьютер уже тормозит и не устраивает Вас, ситуация в лучшую сторону не изменится. Он будет работать всё хуже и хуже, пока не наступит его смерть!
+
+Не стоит дожидаться, когда это произойдет внезапно. Позаботьтесь сейчас о том, чтобы с Вами был не тяжело-больной, а обновленный, мощный и резвый компьютер, который будет радовать Вас каждый день.Производство: Клабпрофи, СсылкаЖанр: ВидеокурсПродолжительность: 01:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0525FE60397D75B5CDA0D9A57F7A5517AD800D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505580   (803870) от 27.10.2021
+
+Студия Миши Рудрастых, Миша Рудрастых | Создайте интернет-магазин для вашего бизнеса (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803870.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот раз создаём интернет-магазин с нуля. То есть вообще без кода. Поэтому возможно далеко не всем моим прокачанным подписчикам этот курс будет полезен. Тем не менее, он будет полезен для владельцев бизнеса, особенно в связи с произошедшим в 2020.Производство: Студия Миши РудрастыхЖанр: Программирование, WooCommerceПродолжительность: 02:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1E2263D12CC41A1157EFFDCF924189309F1D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505584   (803863) от 27.10.2021
+
+Udemy, Oleksandr Heiets | React JS с нуля и до создания полноценного SPA-приложения (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803863.jpg" />
+</div>
+
+
+###  Подробнее
+
+React - одна из самых интересных и популярных библиотек для создания клиентских приложений на javascript. Данный курс сфокусирован на изучение данной библиотеки и охватывает полный цикл разработки приложения: от понимания азов библиотеки до создания приложения, его оптимизации и тестирования. После прохождения курса вы получаете реальное большой react приложение (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 05:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99566A634E90C59820B008E0D1E1E4E4CFF92B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505585   (803858) от 27.10.2021
+
+Stepik, Никита Шультайс | Пакет SQL курсов (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Основы SQL
+Практический Online-курс по основам SQL с серией коротких видео-уроков и большим количеством заданий. На курсе вы научитесь делать как простые выборки, так и многотабличные запросы с использование JOIN и UNION, а также освоите функции агрегации.
+Курс - победитель V международного конкурса EdCrunch Award 2019 в номинации "Лучший онлайн-курс размещенный (   Читать дальше...   )Производство: StepikЖанр: ПрограммированиеПродолжительность: 08:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D47E947C274CEE5DC18C6E0159E1BA96DB7F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118217   (802857) от 30.03.2017
 
 Ильяс Ахмедов | Основы работы в Mac OS X (2017) PCRec
@@ -6,7 +140,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802857.jpg" />
+  <img src="Z:/picture/008/save_picture_802857.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Udemy | PHP 5.5 Zend Certification (OOP) (2016) PCRec [H.264/720p-LQ] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802472.jpg" />
+  <img src="Z:/picture/008/save_picture_802472.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ Udemy | PHP 5.5 Zend Certification - PHP Security (2016) PCRec [H.264/720p-LQ] [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802464.jpg" />
+  <img src="Z:/picture/008/save_picture_802464.jpg" />
 </div>
 
 
@@ -88,7 +222,7 @@ Particular Software, Udi Dahan | Advanced Distributed Systems Design (2021) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800825.jpg" />
+  <img src="Z:/picture/008/save_picture_800825.jpg" />
 </div>
 
 
@@ -114,7 +248,7 @@ Itproger | Полное изучение языка Python (2018) PCRec [H.264/1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800523.jpg" />
+  <img src="Z:/picture/008/save_picture_800523.jpg" />
 </div>
 
 
@@ -140,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799464.jpg" />
+  <img src="Z:/picture/008/save_picture_799464.jpg" />
 </div>
 
 
@@ -166,7 +300,7 @@ Udemy | Основы SQL: SELECT, JOIN, DML, DDL, TCL, DCL (2020) PCRec [H.264/7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797692.jpg" />
+  <img src="Z:/picture/008/save_picture_797692.jpg" />
 </div>
 
 
@@ -192,7 +326,7 @@ ProfIT | Node.js Express: Создаём веб-приложение быстр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797229.jpg" />
+  <img src="Z:/picture/008/save_picture_797229.jpg" />
 </div>
 
 
@@ -220,7 +354,7 @@ JUG Ru Group | Joker 2021. Международная Java-конференци�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796666.jpg" />
+  <img src="Z:/picture/008/save_picture_796666.jpg" />
 </div>
 
 
@@ -248,7 +382,7 @@ ITVDN, Юрий Боцман | .NET Developer (2021) WEB-DL [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796620.jpg" />
+  <img src="Z:/picture/008/save_picture_796620.jpg" />
 </div>
 
 
@@ -276,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796485.jpg" />
+  <img src="Z:/picture/008/save_picture_796485.jpg" />
 </div>
 
 
@@ -302,7 +436,7 @@ Udemy | Машинное обучение: нейросети и глубоко�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796482.jpg" />
+  <img src="Z:/picture/008/save_picture_796482.jpg" />
 </div>
 
 
@@ -328,7 +462,7 @@ Udemy | Data Science на Python 3 с нуля (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796480.jpg" />
+  <img src="Z:/picture/008/save_picture_796480.jpg" />
 </div>
 
 
@@ -357,7 +491,7 @@ Udemy | Веб разработка - с нуля до профессионал�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796475.jpg" />
+  <img src="Z:/picture/008/save_picture_796475.jpg" />
 </div>
 
 
@@ -385,7 +519,7 @@ Skillbox | Профессия С# разработчик (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796469.jpg" />
+  <img src="Z:/picture/008/save_picture_796469.jpg" />
 </div>
 
 
@@ -412,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796003.jpg" />
+  <img src="Z:/picture/008/save_picture_796003.jpg" />
 </div>
 
 
@@ -438,7 +572,7 @@ Javabegin | Новый пошаговый курс Angular + Java/Spring + Hiber
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795747.jpg" />
+  <img src="Z:/picture/008/save_picture_795747.jpg" />
 </div>
 
 
@@ -466,7 +600,7 @@ ITVDN | SQL Практикум (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795145.jpg" />
+  <img src="Z:/picture/008/save_picture_795145.jpg" />
 </div>
 
 
@@ -492,7 +626,7 @@ ITVDN | Основы использования Git (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795132.jpg" />
+  <img src="Z:/picture/008/save_picture_795132.jpg" />
 </div>
 
 
@@ -518,7 +652,7 @@ Udemy | Машинное обучение: кластеризация и кла�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795105.jpg" />
+  <img src="Z:/picture/008/save_picture_795105.jpg" />
 </div>
 
 
@@ -544,7 +678,7 @@ javascript.ru | Интенсив по TypeScript (2020) PCRec [H.264/900p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795096.jpg" />
+  <img src="Z:/picture/008/save_picture_795096.jpg" />
 </div>
 
 
@@ -555,142 +689,6 @@ TypeScript увеличивает эффективность и надёжнос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5276CD28573DE04F08022CF6546077AC4AAE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508963   (794536) от 12.11.2021
-
-Skillbox, Артём Кожуховский | Базы данных для разработчиков (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь использовать, проектировать и оптимизировать базы данных и эффективно работать с ними через код. Сможете улучшать производительность приложений и подбирать подходящие базы под требования бизнеса.Производство: SkillboxЖанр: ПрограммированиеПродолжительность: 21:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52090AC034087CC0A05861514E24B115FBBAC903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386271   (794326) от 29.05.2020
-
-Udemy | React For The Rest Of Us (2020/05) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn the world's most popular library for creating user interfaces!
-
-What makes this course different is we take the time to understand *why* we're doing what we're doing. We begin by asking an important question that so many other React courses skip entirely; What problem does React solve?
-(   Читать дальше...   )Производство: UdemyЖанр: Программирование, JavaScript, ReactЯзык озвучки: АнглийскийПродолжительность: 15:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD1BC37D59A8FE5B0F69682B8A19E8DF60D2BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386501   (794215) от 29.05.2020
-
-Skillbox | PHP-разработчик с нуля до PRO (2018) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучение инструментов по написанию сценариев веб-приложений и сайтов. Содержит 98 уроков разного уровня сложности. Подходит новичкам, начинающим разработчикам и IT-специалистам других сфер. Способствует продвижению в профессии PHP-разработчиков. В программе: вёрстка, работа с базами данных, освоение фреймворка Laravel.Жанр: Программирование, PHPЯзык озвучки: РусскийПродолжительность: 49:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37F9947DFCFB3FA6A93446003B9ACD59E7036EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386592   (793116) от 30.05.2020
-
-Udemy | Тестирование ПО. С нуля до Junior QA (2020) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы готовы начать карьеру в тестировании и хотите зарабатывать на том, что тестируете сайты, игры, мобильные приложения. То в этом курсе вы сможете найти ответы от А до Я как это сделать.
-Всё начинается со знаний.
-Здесь записаны видеуроки, в которых есть необходимая теория для трудоустройства и работы.
-Практика. В курсе даны задания на выполнение. А для тех кто (   Читать дальше...   )Производство: Алексей ВасилевскийЖанр: ТестированиеЯзык озвучки: РусскийПродолжительность: 2:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95291D84B2ECE058A867FD75947B7A61A2CB30A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 243751   (792792) от 07.01.2019
-
-CG Cookie - 2010 Blender Training Series (full parts 1 & 2) [2010, ENG] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792792.jpg" />
-</div>
-
-
-###  Подробнее
-
-На официальном сайте вода, поэтому пишу отсебятину. Данный материал предназначен для начинающих изучать Blender или желающих перейти со старой версии на новый Blender 2.5-2.6. В первой части (главы 1-5) автор знакомит нас с основами работы в программе, а во второй части (главы 6-12) шаг за шагом моделируется, текстурируется, ригится и рендерится воинственная девица (   Читать дальше...   )Жанр: Видеоуроки по Blender 2.5Продолжительность: более 23 часов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1906DB3F21D783F0EB91E0E2B96056CAE816A521
 ```
 
 https://mybot314.ru/tekegram_catalog/

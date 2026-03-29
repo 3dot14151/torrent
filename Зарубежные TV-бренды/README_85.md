@@ -1,3 +1,107 @@
+###  Публикация: 1166341   (426275) от 16.09.2017
+
+Императорский дворец в Киото. Красота, неподвластная времени / Kyoto Imperial Palace. Beauty Hidden for a Thousand Years (2015) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сердце Киото есть почитаемое место, полное величия. Это императорский дворец. Его возраст измеряется тысячей лет. Дворец в Киото долго находился в центре японской истории. Здесь была сосредоточена вся власть в стране, здесь жили государи. Стены и двери украшает тысяча восемьсот картин, написанных драгоценными красками по золоту. А в самой глубине вы найдете сокровищницу. (   Читать дальше...   )Производство: Япония, NHKЖанр: Документальный, архитектура, искусство, историяРежиссер: Kenichi Kuroda, Yusuke YagishitaПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF340A378034BA11C543C4D81EFDFC55EB09228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246384   (426161) от 17.10.2010
+
+Современные чудеса. Пушки / Modern Marvels. Guns (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_426161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многолетний цикл "Современные чудеса" - пожалуй, самый популярный на канале "ТВ-3". Цикл посвящен истории практически всего того, что нас окружает. Поэтому тема эта поистине безгранична.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246383   (426150) от 17.10.2010
+
+Современные чудеса. Модели / Modern Marvels. Models (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_426150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многолетний цикл "Современные чудеса" - пожалуй, самый популярный на канале "ТВ-3". Цикл посвящен истории практически всего того, что нас окружает. Поэтому тема эта поистине безгранична.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166149   (425960) от 16.09.2017
+
+Расшифрованные сокровища (Сокровища мира) / Treasures Decoded (2012-2015) HDTVRip [H.264/720p-LQ] (Сезон 1, эпизоды 1-4 из 5; Сезон 2, эпизоды 1-6 из 6; Сезон 3, эпизоды 1-7 из 7)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокровища прошлого хранят секреты; написанные кровью, камнем, золотом... Все они обладают удивительными тайнами, которые были неизвестны до сих пор. В новом сезоне документального цикла "Расшифрованные сокровища" с помощью экспертов мы попытаемся раскрыть всю правду.Производство: Великобритания, Канада, Entertainment One & Blink FilmsЖанр: Документальный, альтернативная история, псевдоисторияРежиссер: Джо Локк, Дэвид Нью, Грэм Болл, Тоби Тремман, Ана ТомсонПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ, студия "Кондор", SDI Media)Субтитры: отсутствуютПродолжительность: 17x~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717EA31270DFEF4774049D7161144782B77D1E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324560   (425182) от 09.09.2019
 
 NGW. Окаванго: Река мечты / Okavango: River of Dreams (2019) HDTVRip [H.264] (серии 3 из 3)
@@ -6,7 +110,7 @@ NGW. Окаванго: Река мечты / Okavango: River of Dreams (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425182.jpg" />
+  <img src="Z:/picture/008/save_picture_425182.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Леопарды дельты Окаванго / Leopards of Dead Tree Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425073.jpg" />
+  <img src="Z:/picture/008/save_picture_425073.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425064.jpg" />
+  <img src="Z:/picture/008/save_picture_425064.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424823.jpg" />
+  <img src="Z:/picture/008/save_picture_424823.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424701.jpg" />
+  <img src="Z:/picture/008/save_picture_424701.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ NGW: Невероятная Африка. Последний лес / Extraordin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424612.jpg" />
+  <img src="Z:/picture/008/save_picture_424612.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Discovery. Взрывая историю / Blowing up History (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423594.jpg" />
+  <img src="Z:/picture/008/save_picture_423594.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423465.jpg" />
+  <img src="Z:/picture/008/save_picture_423465.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423008.jpg" />
+  <img src="Z:/picture/008/save_picture_423008.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ BBC. Дикая природа: шпион среди антилоп гну / Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422583.jpg" />
+  <img src="Z:/picture/008/save_picture_422583.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ NGW: Невероятная Африка. Назинга / Extraordinary Africa.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422458.jpg" />
+  <img src="Z:/picture/008/save_picture_422458.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ NGW: Невероятная Африка. Сокровища Восточног�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422452.jpg" />
+  <img src="Z:/picture/008/save_picture_422452.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ Discovery. Как это работает? / How it's made? (2016-2019) WEB-DL [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422422.jpg" />
+  <img src="Z:/picture/008/save_picture_422422.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Discovery. Дороги России: Ладога (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421114.jpg" />
+  <img src="Z:/picture/008/save_picture_421114.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421036.jpg" />
+  <img src="Z:/picture/008/save_picture_421036.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419503.jpg" />
+  <img src="Z:/picture/005/save_picture_419503.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419370.jpg" />
+  <img src="Z:/picture/005/save_picture_419370.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NGW: Африканские охотники / Africa's Hunters (2018) HDTVRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418667.jpg" />
+  <img src="Z:/picture/008/save_picture_418667.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Discovery: Жизнь отвратительных животных / Nasty by N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418663.jpg" />
+  <img src="Z:/picture/008/save_picture_418663.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418510.jpg" />
+  <img src="Z:/picture/008/save_picture_418510.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417758.jpg" />
+  <img src="Z:/picture/008/save_picture_417758.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417606.jpg" />
+  <img src="Z:/picture/008/save_picture_417606.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB0B7525147304733B908D66642EFA460721E2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248435   (417292) от 21.10.2010
-
-Современные чудеса. Грузовики-монстры / Modern Marvels. Truck-Monster (2010) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_417292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многолетний цикл "Современные чудеса" - пожалуй, самый популярный на канале "ТВ-3". Цикл посвящен истории практически всего того, что нас окружает. Поэтому тема эта поистине безгранична.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158553   (416653) от 20.09.2017
-
-Animal Planet. Проект Гризли / Project Grizzly (2016) HDTVRip (Сезон 1, серии 1-6 из 6) (Обновляемая)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джефф Уотсон по прозвищу Человек-медведь уже 27 лет ухаживает за медведями в неволе, и все эти годы он мечтает о возвращении величественных животных в дикую природу. Сегодня Джефф пытается обучить навыкам выживания двух взрослых бурых медведей по кличке Боб и Скрич, выросших в неволе, чтобы выпустить их на свободу в глубинке на юге штата Индиана. Ему предстоит провести (   Читать дальше...   )Производство: США, Animal Planet, Discovery Communications, LLC.Жанр: Документальный, животный мир, наблюдениеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6E7D7A6622CFA1A91209A72C8E7FC06C6E7FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065959   (416165) от 24.10.2016
-
-Discovery. Дороги России: Уфа - Магнитогорск (2016) HDTVRip [720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416165.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот раз мы отправимся в путешествие с Discovery Channel по дорогам Башкирии и Южного Урала. Немалая протяженность Урала предполагает большие различия в отдельных районах – климатические условия, рельеф, растительный и животный миры сменяют друг друга здесь почти каждые пару километров. С чем можно столкнуться, преодолевая Уральские горы, какие захватывающие виды (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ТелепередачаПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4439375EC2C17E1C03E52774005FD266662D03A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948033   (415612) от 18.10.2015
-
-Discovery: Разрушители легенд. Взрыв на воде / MythBusters. Blow It Out Of The Water (2015) SATRip  (Сезон 15, эпизод 07) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415612.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3ABAFDFCC45515A0556327BA8334C640B648B16
 ```
 
 https://mybot314.ru/tekegram_catalog/

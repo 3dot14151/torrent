@@ -1,3 +1,107 @@
+###  Публикация: 261789   (190955) от 06.11.2022
+
+NG: Секреты истории - Эксперименты ЦРУ: Контроль над сознанием / The Secret History. CIA: Mind Control (2007) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_190955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разгар холодной войны. В Нью-Йорке при странных обстоятельствах из окна отеля выпадает человек. В Кентукки в рамках секретного эксперимента в течение месяца заключенным дают ЛСД. В Монреале психиатр подвергает своих пациентов сотням разрядов электрошока. Насколько далеко зашло Центральное разведывательное управление в борьбе с коммунистической угрозой? Бактериальные (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F810C3B463A41410A289BEC2375A99DF44ADB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589283   (190541) от 08.11.2022
+
+Discovery. Потерянный город Тутанхамона / Tut's Lost City Revealed (2022) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Археолог Захи Хавасс открывает забытый город, таящий секреты последних дней Тутанхамона.Производство: Великобритания, At Land ProductionsЖанр: документальный, историяРежиссер: Катерина ТуррониПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74F740ED836BA1733776B0010C719F353805CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589288   (190510) от 08.11.2022
+
+History Channel: Древние пришельцы / Ancient Aliens (2021) WEB-DL [H.264/1080p-LQ] (сезон 17, серии 1-7 из 7) [VO]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190510.jpg" />
+</div>
+
+
+###  Подробнее
+
+В телесериале рассказывается о различных аспектах теории палеоконтакта и высказываются предположения, что исторические тексты, археологические свидетельства и легенды народов мира содержат доказательства контактов человека с внеземными цивилизациями в прошлом.Производство: США, Prometheus Entertainment, A&E Television Networks, LLC., History ChannelЖанр: Документальный, научно-популярный, уфологияРежиссер: Джон Леви, Кевин БарнсПеревод: одноголосый любительский (Vlad Dorf)Субтитры: отсутствуютПродолжительность: серии x ~00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E65FA27564A6A56CEC72573BE57A35F0AFAF75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658957   (190462) от 10.09.2023
+
+Акулы в ледяных водах / Shark Below Zero (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страх и ужас охватили живописное побережье на западе острова Кейп-Бретон. В августе 2021 года Канаду шокировали новости о нападении акулы. На Кейп-Бретоне девушку двадцати одного года отправили в больницу после нападения акулы. Это первое подтвержденное нападение акулы в канадских водах более чем за 150 лет. И последнее из серии загадочных случаев, когда на восточном (   Читать дальше...   )Производство: Великобритания, Big Wave Productions, National GeographicЖанр: документальный, исследованияРежиссер: Марк ВудвордУчастники: Хизер Боулби, Шон Бойс Джонсон, Уоррен ДжойсПеревод: двуголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99BC542E5064F8E8AAF8FC6BF96676DFEA12D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 63483   (189498) от 12.09.2023
 
 Пентагон 11 сентября 2001 г. / Pentagon 9.11 SATRip
@@ -6,7 +110,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189498.jpg" />
+  <img src="Z:/picture/005/save_picture_189498.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ History Channel: Жизнь после людей / Life after people (2008) HDR
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189495.jpg" />
+  <img src="Z:/picture/005/save_picture_189495.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ NG: 11 сентября - хроника террора / Inside 9/11 (2007) TVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189484.jpg" />
+  <img src="Z:/picture/005/save_picture_189484.jpg" />
 </div>
 
 
@@ -89,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189018.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188938.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188364.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188212.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_187056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187056.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187032.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ Discovery. Тутанхамон: столетие тайн / King Tut: A Century
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186719.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ Discovery: Покушение на Гитлера / Virtual History: The Secret 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186400.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186393.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186189.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ Discovery. Взрывая историю / Blowing up History (2022) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185776.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184897.jpg" />
+  <img src="Z:/picture/004/save_picture_184897.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ BBC: Приключeния Брайана Кокса в пространстве
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183454.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182987.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182985.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182710.jpg" />
+  <img src="Z:/picture/004/save_picture_182710.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181974.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ History Channel. Тайны древности. Варвары: Монголы /
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181840.jpg" />
+  <img src="Z:/picture/005/save_picture_181840.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2023) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180426.jpg" />
 </div>
 
 
@@ -569,111 +673,6 @@ History Channel: Древние пришельцы / Ancient Aliens (2023) WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B12844E9B32D3A4D431578F109C174299651E3CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666193   (180053) от 03.10.2023
-
-Discovery: Современные Шерлок Холмсы / In the Mind of Criminal Profilers (2000) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда у неизвестного злодея нет лица и примет, в дело вступают профайлеры – специалисты, составляющие портрет правонарушителя по косвенным уликам. В любой стране таких экспертов – считанные единицы, ведь чтобы обрисовать профиль подозреваемого, нужно обладать энциклопедическими знаниями, интуицией Шерлока Холмса и интеллектом, способным замечать и анализировать тысячи (   Читать дальше...   )Производство: США / High Road Films Production, Discovery CommunicationsЖанр: документальныйРежиссер: Art BoothУчастники: Dayle Hinman, Susan Smith, Bill SuffПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BC935505E740539B2162F29778F96777FADA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577895   (179597) от 28.11.2022
-
-Discovery. Джереми Уэйд: Тайны океана / Mysteries of the Deep (2022) WEB-DL [H.264/1080p] (сезон 2, серия 1-5 из 9) [VO] (обновляемая)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джереми Уэйд возвращается в новом захватывающем шоу! Темные глубины океана полны тайн. Каждую неделю Джереми будет погружаться в одну из увлекательных загадок: потерянные сокровища, пропавшие корабли и самолеты на дне океанов. Уэйд изучит невероятные кадры из архивов, повстречается с очевидцами необъяснимых событий и изучит заключения экспертов. Сможет ли он разгадать (   Читать дальше...   )Производство: США, Icon Films, Discovery ChannelЖанр: документальный, история, исследованияРежиссер: Энди КлэрПеревод: одноголосый любительский (Vlad Dorf)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6BA1E2193F895AE374F0B5F82FE306C485E912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 60621   (178719) от 03.12.2020
-
-Discovery. Московская осада / The Moscow Siege (2002) SatRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178719.jpg" />
-</div>
-
-
-###  Подробнее
-
-922 заложника, 42 чеченских боевика, готовых умереть, российские специальные подразделения, использование смертоносного секретного оружия, 171 человек погиб. С этих слов начинается фильм об ужасных событиях, произошедших в октябре 2002 года - о захвате театрального центра на Дубровке. Фильм был продемонстрирован на канале Discovery в 2002 году.Телекомпания: DiscoveryЖанр: ДокументальныйРежиссер: Памела ГордонПеревод: ПрофессиональныйПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43950421623378A6C71EA3C434FCB97352E1FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594213   (178671) от 30.11.2022
-
-BBC: Мир природы. Лосось: Серебряный прилив / The Natural World. Salmon: The Silver Tide (2000) SATRip (сезон 18, серия 14)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нерка в реках Северо-Западного побережья США — невероятно щедрый подарок природы для всех: от людей и медведей-гризли до белоголовых орланов.
-Каждый год огромная масса этой рыбы возвращается на нерест в реки Аляски и Британской Колумбии. И тогда же множество хищников устремляется к воде — не упустить свой шанс.Производство: США, BBC, Discovery Channel Co-productionЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A0CB71C8E165EEF6368DD478AA034DBF5F4FEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

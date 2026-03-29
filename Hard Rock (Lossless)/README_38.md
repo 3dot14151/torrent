@@ -1,3 +1,61 @@
+###  Публикация: 1298588   (601671) от 28.04.2019
+
+Grand Funk Railroad - 24 albums, 3 Box sets, 64 CD (1969-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Boogie Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grand Funk Railroad (или Grand Funk) — американская хард-рок-группа, образованная в 1969 году. В течение 1969—1972 годов пять альбомов GFR стали платиновыми (остальные три — золотыми); общий альбомный тираж группы в 70-х годах составил более 25 миллионов[1]. Grand Funk Railroad исполняли предельно упрощённый, но оглушительно-громкий вариант блюз-рока; впоследствии (   Читать дальше...   )--------------------------
+
+01. Footstompin' Music (4:08)
+02. Rock 'N' Roll Soul  (4:04)(   Читать дальше...   )Жанр: Hard Rock, Boogie Rock, Blues Rock |Продолжительность: 56:54:51 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4887D5CABC2770C0A1F45D59660E26DF3E19CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298612   (601627) от 29.04.2019
+
+Mantra - Roots (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Different Keys (4:14)
+02. Dirty River (5:13)
+03. The Architechtures Of The Sky (7:50)
+04. Garden Of Secrets (3:55)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABB79B9BA7A9B2152E76BE8EDF5B359108DA1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547891   (600956) от 01.05.2022
 
 Ted Nugent - Detroit Muscle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -6,7 +64,7 @@ Ted Nugent - Detroit Muscle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600956.jpg" />
+  <img src="Z:/picture/008/save_picture_600956.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Howard Leese - Secret Weapon (2009) [APE|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599688.jpg" />
+  <img src="Z:/picture/008/save_picture_599688.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Pendulum Of Fortune - Return To Eden (2019) [FLAC|lossless|tracks + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598120.jpg" />
+  <img src="Z:/picture/008/save_picture_598120.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Places of Power - Now Is The Hour (2009) [APE|Lossless|image + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598073.jpg" />
+  <img src="Z:/picture/008/save_picture_598073.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Mammoth - XXXL (1997) [APE|Lossless|image + .cue] <Hard Rock, Heavy Metal, Class
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598068.jpg" />
+  <img src="Z:/picture/008/save_picture_598068.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Heavy Bones - Heavy Bones (1992) [APE|Lossless|image + .cue] <Hard Rock, Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598047.jpg" />
+  <img src="Z:/picture/008/save_picture_598047.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Witch Cake - Not If I See You First (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598017.jpg" />
+  <img src="Z:/picture/008/save_picture_598017.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Gary Hoey - Utopia (2010) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597807.jpg" />
+  <img src="Z:/picture/008/save_picture_597807.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Vinnie Moore - Defying Gravity (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597804.jpg" />
+  <img src="Z:/picture/008/save_picture_597804.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Vixen - Rev It Up (1990) [WavPack|Lossless|image + .cue] <Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597632.jpg" />
+  <img src="Z:/picture/008/save_picture_597632.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Train - Does Led Zeppelin II (2016) [FLAC|Lossless|tracks] <Hard Rock, Blues Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597624.jpg" />
+  <img src="Z:/picture/008/save_picture_597624.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Crucified Barbara - The Midnight Chase (2012) [FLAC|Lossless]<Hard Rock, Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597300.jpg" />
+  <img src="Z:/picture/005/save_picture_597300.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition, Remastered, 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597160.jpg" />
+  <img src="Z:/picture/008/save_picture_597160.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ American Jetset - Cat's Got Your Tongue (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595106.jpg" />
+  <img src="Z:/picture/008/save_picture_595106.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Tom Keifer - The Way Life Goes (2017) Deluxe Edition [FLAC|lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594843.jpg" />
+  <img src="Z:/picture/008/save_picture_594843.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Fortune - II (2019) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594728.jpg" />
+  <img src="Z:/picture/008/save_picture_594728.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ John Diva And The Rockets Of Love - Mama Said Rock Is Dead (2019) [FLAC|lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593770.jpg" />
+  <img src="Z:/picture/008/save_picture_593770.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ Nidhoggs (Nidhöggs) - Persecution (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592962.jpg" />
+  <img src="Z:/picture/008/save_picture_592962.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ Jeff Scott Soto - Complicated (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592928.jpg" />
+  <img src="Z:/picture/008/save_picture_592928.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ Motley Crue - 27 albums, 48 CD (1981-2019) [FLAC|Lossless|image + .cue | tracks 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592704.jpg" />
+  <img src="Z:/picture/008/save_picture_592704.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Altzi - All Eyes On Me (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592667.jpg" />
+  <img src="Z:/picture/008/save_picture_592667.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ Epic - Starlight (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592661.jpg" />
+  <img src="Z:/picture/008/save_picture_592661.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Rust N' Rage - One For The Road (2022) Japanese Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592660.jpg" />
+  <img src="Z:/picture/008/save_picture_592660.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ Outlaw Saint - Persistence Pays Off (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591646.jpg" />
+  <img src="Z:/picture/008/save_picture_591646.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ Outlaw Saint - Persistence Pays Off (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EA561D3012A2DA2702C17640A94964C6857C770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550826   (591226) от 13.05.2022
-
-Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paroxysm
-02. One And Only
-03. Hero
-04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550958   (590777) от 14.05.2022
-
-Stinger - Expect The Unexpected (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Diggin' Up The Dirt (00:04:22)
-02 - Chasing Utopia (00:05:10)
-03 - Monkey (00:03:22)
-04 - Highfalutin' (00:02:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E016EE2A845F594B6EAFE9B00EF3851A90ACCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

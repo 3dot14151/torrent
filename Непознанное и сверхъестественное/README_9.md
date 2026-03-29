@@ -1,3 +1,55 @@
+###  Публикация: 1018494   (755811) от 20.05.2016
+
+Знахари.  Целители под прицелом медицины (20.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли нетрадиционное лечение представлять угрозу для фармацевтических корпораций? Некоторые альтернативные методы постоянно балансируют на грани полного запрещения. Однако до прошлого года никто не мог предположить, что нетрадиционное лечение может стать опасным для практикующего врача! Что это – новая теория заговора? Или противостояние официальной медицины и (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйПродолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFC0624C7B12600171254535DB542053808E976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018903   (753945) от 21.05.2016
+
+Территория заблуждений с Игорем Прокопенко (2016.05.21) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18ADDA83C872803E902E2487C41EFE9A60224E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281375   (753241) от 07.02.2019
 
 Код доступа - Звездные войны инженера Теслы (07.02.2019) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753241.jpg" />
+  <img src="Z:/picture/008/save_picture_753241.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750936.jpg" />
+  <img src="Z:/picture/008/save_picture_750936.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750191.jpg" />
+  <img src="Z:/picture/008/save_picture_750191.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750190.jpg" />
+  <img src="Z:/picture/008/save_picture_750190.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749913.jpg" />
+  <img src="Z:/picture/008/save_picture_749913.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748467.jpg" />
+  <img src="Z:/picture/008/save_picture_748467.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747560.jpg" />
+  <img src="Z:/picture/008/save_picture_747560.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743584.jpg" />
+  <img src="Z:/picture/008/save_picture_743584.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742189.jpg" />
+  <img src="Z:/picture/008/save_picture_742189.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741066.jpg" />
+  <img src="Z:/picture/008/save_picture_741066.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740893.jpg" />
+  <img src="Z:/picture/008/save_picture_740893.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740882.jpg" />
+  <img src="Z:/picture/008/save_picture_740882.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740880.jpg" />
+  <img src="Z:/picture/008/save_picture_740880.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740784.jpg" />
+  <img src="Z:/picture/008/save_picture_740784.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730975.jpg" />
+  <img src="Z:/picture/008/save_picture_730975.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730957.jpg" />
+  <img src="Z:/picture/008/save_picture_730957.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730823.jpg" />
+  <img src="Z:/picture/008/save_picture_730823.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730707.jpg" />
+  <img src="Z:/picture/008/save_picture_730707.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729966.jpg" />
+  <img src="Z:/picture/008/save_picture_729966.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728825.jpg" />
+  <img src="Z:/picture/008/save_picture_728825.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728781.jpg" />
+  <img src="Z:/picture/008/save_picture_728781.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728700.jpg" />
+  <img src="Z:/picture/008/save_picture_728700.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727780.jpg" />
+  <img src="Z:/picture/008/save_picture_727780.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727112.jpg" />
+  <img src="Z:/picture/008/save_picture_727112.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:189C3B84E3E4DC331CEF06436EB3A99BF5645AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023250   (726679) от 04.06.2016
-
-Раскрывая мистические тайны. Возмездие (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726679.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента эволюции человеческого мозга и психики, наши предки были уверены, что за любой поступок нас ожидает либо награда, либо наказание; за добро вселенная-бог отплатит добром, за убийства, обман и мракобесие – нас ожидает, полная трагедий и роковых стечений, жизнь. Так почему же наступает расплата за неправедную жизнь? Как вычислить закономерность между совершаемыми (   Читать дальше...   )Производство: Москва МедиаЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CADEF5A25AD7EF9F790BD2BDC5893D1D9F33C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023253   (726620) от 04.06.2016
-
-Территория заблуждений с Игорем Прокопенко (2016.06.04) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15476246582CE40435DDD978149302D16C57CF5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

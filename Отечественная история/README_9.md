@@ -1,3 +1,29 @@
+###  Публикация: 1301064   (585987) от 10.05.2019
+
+Военный парад, посвященный 74-й годовщине Победы в ВОВ 1941-1945 годов (2019) HDTVRip [H.264/1080p-LQ] (Москва)
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прямая трансляция с Красной площади. В главном параде страны, посвященном 74-й годовщине победы в Великой Отечественной войне, участвуют тысячи военнослужащих и курсантов военных училищ, более 150 единиц военной техники.Телекомпания: Первый каналЖанр: Документальный, Военный парадПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C276612454E24C11EFA33F3C90604C46597FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041314   (583422) от 08.08.2016
 
 Кремлёвские похороны. Константин Черненко (2009) DVBRip [H.264]
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583422.jpg" />
+  <img src="Z:/picture/008/save_picture_583422.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583421.jpg" />
+  <img src="Z:/picture/008/save_picture_583421.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583408.jpg" />
+  <img src="Z:/picture/008/save_picture_583408.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583376.jpg" />
+  <img src="Z:/picture/008/save_picture_583376.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583200.jpg" />
+  <img src="Z:/picture/008/save_picture_583200.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583117.jpg" />
+  <img src="Z:/picture/008/save_picture_583117.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582787.jpg" />
+  <img src="Z:/picture/008/save_picture_582787.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582422.jpg" />
+  <img src="Z:/picture/008/save_picture_582422.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581741.jpg" />
+  <img src="Z:/picture/008/save_picture_581741.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580726.jpg" />
+  <img src="Z:/picture/008/save_picture_580726.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580537.jpg" />
+  <img src="Z:/picture/008/save_picture_580537.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580534.jpg" />
+  <img src="Z:/picture/008/save_picture_580534.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580527.jpg" />
+  <img src="Z:/picture/008/save_picture_580527.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580434.jpg" />
+  <img src="Z:/picture/008/save_picture_580434.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579863.jpg" />
+  <img src="Z:/picture/008/save_picture_579863.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579830.jpg" />
+  <img src="Z:/picture/008/save_picture_579830.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579829.jpg" />
+  <img src="Z:/picture/008/save_picture_579829.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579827.jpg" />
+  <img src="Z:/picture/008/save_picture_579827.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579644.jpg" />
+  <img src="Z:/picture/008/save_picture_579644.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579488.jpg" />
+  <img src="Z:/picture/008/save_picture_579488.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579414.jpg" />
+  <img src="Z:/picture/008/save_picture_579414.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579407.jpg" />
+  <img src="Z:/picture/008/save_picture_579407.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578442.jpg" />
+  <img src="Z:/picture/008/save_picture_578442.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578436.jpg" />
+  <img src="Z:/picture/008/save_picture_578436.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578390.jpg" />
+  <img src="Z:/picture/008/save_picture_578390.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7F9BA5B3E8E042437DC47DC6EDDD8FFF621A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042742   (578338) от 13.08.2016
-
-Пятая графа. Эмиграция (2012) DVB
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578338.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 февраля 1971 года в 11 часов утра министр внутренних дел СССР Николай Щелоков получает экстренное сообщение - захвачена приемная Президиума Верховного Совета СССР! Событие неслыханное по тем временам: террористы в самом центре Москвы, почти у Кремля! Поверить в происходящее невозможно. Через 10 минут на стол министра ложится новое донесение: захватчиков 24 человека. (   Читать дальше...   )Телекомпания: Россия, AV Content ProductionЖанр: ДокументальныйПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C646D81A923123B782E6EA38A29B8109A31B522
 ```
 
 https://mybot314.ru/tekegram_catalog/

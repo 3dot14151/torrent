@@ -1,3 +1,29 @@
+###  Публикация: 147627   (403521) от 22.10.2009
+
+Крыша (2009) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_403521.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий — три девочки-подростка, родители которых заняты решением своих проблем и почти не замечают того, что происходит с их детьми. Однако, фильм не о детях, а о том, как взрослые иногда бывают невнимательны. Мама одной из девочек — карьеристка и рвется к власти любой ценой. Вторая готова бросить любящую семью ради внезапно вспыхнувшей страсти. Третья (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Борис ГрачевскийАктеры: Анфиса Черных, Софья Ардова, Мария Белова, Мария Шукшина, Валерий Гаркалин, Ольга Прокофьева, Анатолий Журавлев, Евдокия Германова, Лариса Гузеева, Артем АртемьевПродолжительность: 01:43:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563619   (403490) от 22.10.2012
 
 Супертеща для неудачника (2003) DVDRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403490.jpg" />
+  <img src="Z:/picture/008/save_picture_403490.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403321.jpg" />
+  <img src="Z:/picture/008/save_picture_403321.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402706.jpg" />
+  <img src="Z:/picture/008/save_picture_402706.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402530.jpg" />
+  <img src="Z:/picture/008/save_picture_402530.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402285.jpg" />
+  <img src="Z:/picture/008/save_picture_402285.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400967.jpg" />
+  <img src="Z:/picture/008/save_picture_400967.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400815.jpg" />
+  <img src="Z:/picture/008/save_picture_400815.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400695.jpg" />
+  <img src="Z:/picture/008/save_picture_400695.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400645.jpg" />
+  <img src="Z:/picture/008/save_picture_400645.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399401.jpg" />
+  <img src="Z:/picture/008/save_picture_399401.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399186.jpg" />
+  <img src="Z:/picture/008/save_picture_399186.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399143.jpg" />
+  <img src="Z:/picture/008/save_picture_399143.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398461.jpg" />
+  <img src="Z:/picture/008/save_picture_398461.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397980.jpg" />
+  <img src="Z:/picture/008/save_picture_397980.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397809.jpg" />
+  <img src="Z:/picture/008/save_picture_397809.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397676.jpg" />
+  <img src="Z:/picture/008/save_picture_397676.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397600.jpg" />
+  <img src="Z:/picture/008/save_picture_397600.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397588.jpg" />
+  <img src="Z:/picture/008/save_picture_397588.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397510.jpg" />
+  <img src="Z:/picture/008/save_picture_397510.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397443.jpg" />
+  <img src="Z:/picture/008/save_picture_397443.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397193.jpg" />
+  <img src="Z:/picture/008/save_picture_397193.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396442.jpg" />
+  <img src="Z:/picture/008/save_picture_396442.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396118.jpg" />
+  <img src="Z:/picture/005/save_picture_396118.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395491.jpg" />
+  <img src="Z:/picture/008/save_picture_395491.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393948.jpg" />
+  <img src="Z:/picture/008/save_picture_393948.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A29CE012D3B9281D468EAD040D9C40A57C200BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172150   (393771) от 07.10.2017
-
-Вурдалаки (2016) BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия, 18 век. На краю Руси, в Карпатских горах, стоит Спасский монастырь, куда был сослан духовник императрицы Елизаветы монах Лавр. Какие тайны он унес с собой из столичного Петербурга, никто не ведал. Да и край, в который он был сослан, издревле считался неспокойным, о нем слагали легенды и рассказывали их только шепотом. Говорили мол, что в тех краях живет нечистая (   Читать дальше...   )Производство: Россия / Горад, ВВП АльянсЖанр: Триллер, фэнтезиРежиссер: Сергей ГинзбургАктеры: Михаил Пореченков, Константин Крюков, Аглая Шиловская, Андрей Руденский, Михаил Жигалов, Игорь Хрипунов, Анатолий Гущин, Константин Милованов, Анна Арланова, Юлия АугПеревод: Не требуется (язык русский)Субтитры: ОтсутствуютПродолжительность: 01:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC62551EC026AE2362329D9D06C083137FC541CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

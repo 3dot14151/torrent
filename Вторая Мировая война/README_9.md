@@ -1,3 +1,57 @@
+###  Публикация: 915325   (592309) от 05.07.2015
+
+Признания нацистов (Прослушка армии Гитлера) / Spying on Hitler's Army: The Secret Recordings (2007) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта документальная-драма рассказывает историю одной из тайн Второй мировой войны, о дерзкой операции британской разведки по прослушке в частных беседах 10 000 немецких военнопленных, не догадывающихся, что их подслушивают.
+Для этого использовалось три огромных особняка, превращенных в сложную ловушку. Было записано более ста тысяч часов разговоров заключенных, некоторые (   Читать дальше...   )Телекомпания: Великобритания, Channel 4Жанр: Документальный, война, история, постановочныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40836242FC9F4138244821C6017EF44D1B7C7A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915331   (592290) от 05.07.2015
+
+Признания нацистов (Прослушка армии Гитлера) / Spying on Hitler's Army: The Secret Recordings (2007) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта документальная-драма рассказывает историю одной из тайн Второй мировой войны, о дерзкой операции британской разведки по прослушке в частных беседах 10 000 немецких военнопленных, не догадывающихся, что их подслушивают.
+Для этого использовалось три огромных особняка, превращенных в сложную ловушку. Было записано более ста тысяч часов разговоров заключенных, некоторые (   Читать дальше...   )Телекомпания: Великобритания, Channel 4Жанр: Документальный, война, история, постановочныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DFB4746EB371C8AEDD1B45D53D0C52D42A51B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 728730   (586235) от 05.08.2016
 
 Марш к Победе. Дорога на Берлин (14 серий из 14) / March To Victory. Road To Berlin (2007) IPTVRip
@@ -6,7 +60,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586235.jpg" />
+  <img src="Z:/picture/008/save_picture_586235.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585350.jpg" />
+  <img src="Z:/picture/008/save_picture_585350.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584205.jpg" />
+  <img src="Z:/picture/008/save_picture_584205.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583369.jpg" />
+  <img src="Z:/picture/008/save_picture_583369.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582677.jpg" />
+  <img src="Z:/picture/008/save_picture_582677.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579358.jpg" />
+  <img src="Z:/picture/008/save_picture_579358.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578206.jpg" />
+  <img src="Z:/picture/008/save_picture_578206.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578063.jpg" />
+  <img src="Z:/picture/008/save_picture_578063.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577567.jpg" />
+  <img src="Z:/picture/008/save_picture_577567.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ ENIGMA (Энигма) / Тайнопись войны / И немного про
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577372.jpg" />
+  <img src="Z:/picture/008/save_picture_577372.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576033.jpg" />
+  <img src="Z:/picture/008/save_picture_576033.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571743.jpg" />
+  <img src="Z:/picture/008/save_picture_571743.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570304.jpg" />
+  <img src="Z:/picture/008/save_picture_570304.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569788.jpg" />
+  <img src="Z:/picture/008/save_picture_569788.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568657.jpg" />
+  <img src="Z:/picture/008/save_picture_568657.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565827.jpg" />
+  <img src="Z:/picture/008/save_picture_565827.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560935.jpg" />
+  <img src="Z:/picture/008/save_picture_560935.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558797.jpg" />
+  <img src="Z:/picture/005/save_picture_558797.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558657.jpg" />
+  <img src="Z:/picture/008/save_picture_558657.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558227.jpg" />
+  <img src="Z:/picture/008/save_picture_558227.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557005.jpg" />
+  <img src="Z:/picture/008/save_picture_557005.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ History Channel. Вторая мировая война в HD: утерянны�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556016.jpg" />
+  <img src="Z:/picture/008/save_picture_556016.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ History Channel. Вторая мировая война в HD: утерянны�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555965.jpg" />
+  <img src="Z:/picture/008/save_picture_555965.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553830.jpg" />
+  <img src="Z:/picture/008/save_picture_553830.jpg" />
 </div>
 
 
@@ -624,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41AA03A0D4B4E99A9696CB6DD73644AD950C6B4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902745   (552807) от 17.06.2019
-
-Рецепт Победы. Медицина в годы Великой Отечественной войны (2015) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда началась война, военные медики оказались в тяжелейшей ситуации. На фронте катастрофически не хватало врачей, особенно хирургов. Медсестры, санитары, санинструкторы в большинстве своем успели окончить только ускоренные курсы. Почти половина госпиталей и фармацевтических складов в первые же месяцы войны оказалась на оккупированной территории. Прифронтовая обстановка (   Читать дальше...   )Телекомпания: Россия HDЖанр: ДокументальныйРежиссер: Глеб ДобровольскийПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D2277FB0AC31C68D416967BD23C310BDB0C2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046670   (551723) от 27.08.2016
-
-Танковый удар (2016) DVDRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Август 1943-го… Красная Армия проводит Белгородско-Харьковскую операцию, с задачей уничтожить группировку вермахта. В операции участвуют Воронежский и Степной фронты, две полноценные гвардейские танковые армии. Уже с первых дней наступления противник отброшен на сотню километров.
-В составе Воронежского фронта действует 27-я армия, на острие которой вступил в бой (   Читать дальше...   )Телекомпания: УкраинаЖанр: Документальный, война, историяПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26666B9BB760CEE50FFED3E7E9FF223D3EF9C2B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

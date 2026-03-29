@@ -1,3 +1,145 @@
+###  Публикация: 1090097   (949174) от 05.01.2017
+
+Stationery - Templates for Mail 4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Designs for Mail является прекрасной коллекцией из 230 фирменных бланков для Apple’s Mail.
+Просто выберите шаблон, добавьте текст и фотографии и отправляйте, и пошлите уникальное электронное письмо своему клиенту, коллеге или другу. Доступные проекты варьируются от изящного Red Red Wine до «сумасшедшего Пасхального Цыпленка». Вы определенно найдете шаблон, который (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 января 2017Разработчик: Alungu UABПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A1438C3BF7813D6A9E53698B4C628E60C47817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090050   (949159) от 05.01.2017
+
+TokenLock 4.71 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный класс Bluetooth / USB / HotKey Блокировка и разблокировка для вашего Mac ... с кучей опций.
+
+Если вы дорожите своей безопасностью, то должны постоянно думать не только о безопасных каналах и протоколах передачи данных, но и знать, что к включенному компьютеру никто, кроме вас, не имеет физического доступа. Если вы работаете за ноутбуком, то достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 января 2017Разработчик: Map-Pin SoftwareПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287921863F5AEDCA6522D47EBE1213514E933556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982375   (948282) от 03.02.2016
+
+LensFlare Studio 5.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948282.jpg" />
+</div>
+
+
+###  Подробнее
+
+LensFlare Studio послужит основным инструментом для фотографов.
+Добавить красивые вспышки и световые эффекты для ваших фотографий.
+С более чем 100 эффектами, вы можете выбрать из бликов, полос, свечение, боке и многое другое.
+LensFlare Studio - инструмент, который должен иметь любой фотограф или дизайнер.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 февраля 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C88C28CF495E7C528704D80A13C230B5B08F02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982297   (948266) от 03.02.2016
+
+ProCommander 1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948266.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProCommander - двухпанельный файловый менеджер . Он предоставляет множество функций для того, чтобы быстро получить доступ и управлять локальными и удаленными файлами. Он делает все, что вам нужно, делает это быстро, без сбоев и  утечек памяти.
+
+Особенности
+- Двойная панель, с несколькими вкладками(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 февраля 2016Разработчик: Solaz Dazen SRL. All rights reserved.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A2D5B230B529FCDDB8DD188E8D9382F2CC7F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982454   (948143) от 03.02.2016
+
+MacAppBlocker 2.8.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Защитите ваши приложения Mac от несанкционированного использования
+Mac App Blocker - с помощью этой программы пользователь может установить пароль на любое приложение, установленное в системе. Держите ваши приложения и ваш Mac в сейфе.
+
+Помимо установки пароля Mac App Blocker позволяет также устанавливать таймер, который будет автоматически закрывать защищенные приложения. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2015Разработчик: KnewSense LLCПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052B84D1F6AA5DA698D7A984F91B43B4213D6052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090398   (947695) от 06.01.2017
 
 Share Tunes 2: Share your taste in music 2.1.3 [Multi]
@@ -6,7 +148,7 @@ Share Tunes 2: Share your taste in music 2.1.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947695.jpg" />
 </div>
 
 
@@ -34,7 +176,7 @@ SimpleMind 1.15.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947303.jpg" />
 </div>
 
 
@@ -62,7 +204,7 @@ Calendar 366 Plus 1.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946912.jpg" />
 </div>
 
 
@@ -91,7 +233,7 @@ DriveDx 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946832.jpg" />
 </div>
 
 
@@ -117,7 +259,7 @@ Suite for iBooks Author 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946804.jpg" />
 </div>
 
 
@@ -145,7 +287,7 @@ Word Count Popup 2.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946633.jpg" />
 </div>
 
 
@@ -173,7 +315,7 @@ Display Maestro 3 v3.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946628.jpg" />
 </div>
 
 
@@ -201,7 +343,7 @@ Overlay 3.60 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946627.jpg" />
 </div>
 
 
@@ -228,7 +370,7 @@ Patina 1.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946582.jpg" />
 </div>
 
 
@@ -256,7 +398,7 @@ MacPilot 11 v11.0.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946566.jpg" />
 </div>
 
 
@@ -283,7 +425,7 @@ Toontrack Superior Drummer 3 v3.1.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946455.jpg" />
 </div>
 
 
@@ -309,7 +451,7 @@ Maxon Cinema 4D Studio R21.207 (build RB303831) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946306.jpg" />
 </div>
 
 
@@ -335,7 +477,7 @@ deepClock 1.11.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945855.jpg" />
 </div>
 
 
@@ -363,7 +505,7 @@ WaterMarker 2 v2.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945408.jpg" />
 </div>
 
 
@@ -391,7 +533,7 @@ Get Backup Pro 3 v3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945379.jpg" />
 </div>
 
 
@@ -417,7 +559,7 @@ Aiseesoft Mac PDF to Image Converter 3.1.50 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945336.jpg" />
 </div>
 
 
@@ -443,7 +585,7 @@ Aiseesoft iPhone Ringtone Maker 7.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945247.jpg" />
 </div>
 
 
@@ -469,7 +611,7 @@ DVDFab All-In-one 11.0.7.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945063.jpg" />
 </div>
 
 
@@ -495,7 +637,7 @@ Calcbot 1.0.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944700.jpg" />
 </div>
 
 
@@ -524,7 +666,7 @@ Aiseesoft PDF Converter-PDF to TEXT/EPUB and more 3.3.19 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944370.jpg" />
 </div>
 
 
@@ -551,7 +693,7 @@ Affinity Photo 1.8.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943900.jpg" />
 </div>
 
 
@@ -562,139 +704,6 @@ Affinity Photo переопределяет границы профессион�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149824095A184AAB4EAC846D86AE6D8C25107C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983541   (943767) от 06.02.2016
-
-DEVONthink Pro Office 2.8.9 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Devonthink Pro Office — программное обеспечение для хранения, организации и поиска электронных документов. Devonthink Pro Office в некотором роде можно назвать Вашим вторым мозгом, хранящим все цифровые файлы, будь то PDF-файлы, электронные письма, документы Word, или даже мультимедиа. Devonthink чрезвычайно гибок и легко настраивается под Ваши потребности. А если (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 февраля 2016Разработчик: Devontechnologies, LLCПоддерживаемая ОС: OS X 10.8.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4DF603E2081B3C44D34E89F75E665E4CC94C317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363276   (943557) от 27.02.2020
-
-Eagle 1.9.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eagle - программа, позволяющая сохранять, искать и систематизировать изображения, скриншоты, веб-страницы, PDF и другие файлы из различных источников в одном месте. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. Автоматический сбор изображений по типу и тематике, показ изображений по ключевым словам, поиск их по (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2019Разработчик: ogdesignПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DC788247139229711F639921270FF92C727F72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363526   (942538) от 28.02.2020
-
-SD Clone Pro 3.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942538.jpg" />
-</div>
-
-
-###  Подробнее
-
-SD Clone - это идеальный инструмент для клонирования SD-карт прямо на вашем Mac. Легко делать резервные копии любых данных на SD-картах и ​​легко восстанавливать их другими SD-картами. Если вы создаете много SD-карт с одинаковыми данными, SD Clone может записывать на несколько SD-карт одновременно, что делает его самым быстрым инструментом для подготовки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2020Разработчик: Twocanoes SoftwareПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC48462FDE7A6AE6DBA0FEDAEF94A0ED7B2A34CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363539   (942470) от 28.02.2020
-
-Graphic 3.1 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942470.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Graphic  есть все инструменты, необходимые для создания всего: от подробных технических иллюстраций до красивых произведений искусства. Быстро и легко создавайте замысловатые дизайны и продолжайте работать в дороге с Graphic для iPad. Создавайте независимые от разрешения иллюстрации, которые можно вставлять в документы Pages, включать в презентации Keynote или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2018Разработчик: Picta, Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E867E382DF7B184D496CD4DD917D72EE80BCD2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984038   (941973) от 07.02.2016
-
-Tweetbot for Twitter 2.3.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый, кто активно использует Twitter с помощью устройств от Apple, давно знает, что нет ничего лучше приложения Tweetbot.
-
-Tweetbot - клиент Twitter для Mac. Этот полнофункциональный клиент имеет фантастическую поддержку нескольких учетных записей и списков. Он также имеет мощные фильтры, несколько видов столбцов, и многое другое.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 февраля 2016Разработчик: Tapbots LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6639468942B655ACA8CD403A79124D1D7E14FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

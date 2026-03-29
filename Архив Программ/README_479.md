@@ -6,7 +6,7 @@ RegScanner 2.65 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796800.jpg" />
+  <img src="Z:/picture/008/save_picture_796800.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 81.0.4196.37 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796799.jpg" />
+  <img src="Z:/picture/008/save_picture_796799.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Malwarebytes AdwCleaner 7.0.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796787.jpg" />
+  <img src="Z:/picture/008/save_picture_796787.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VirtualBox 5.2.6 Build 120293 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796779.jpg" />
+  <img src="Z:/picture/008/save_picture_796779.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ashampoo Burning Studio 19.0.1.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796776.jpg" />
+  <img src="Z:/picture/008/save_picture_796776.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WifiInfoView 2.00 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796771.jpg" />
+  <img src="Z:/picture/008/save_picture_796771.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ SMPlayer 16.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796765.jpg" />
+  <img src="Z:/picture/008/save_picture_796765.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Opera 81.0.4196.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796764.jpg" />
+  <img src="Z:/picture/008/save_picture_796764.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Format Factory 3.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796760.jpg" />
+  <img src="Z:/picture/008/save_picture_796760.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ AIMP 5.00 Build 2344 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796755.jpg" />
+  <img src="Z:/picture/008/save_picture_796755.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Xilisoft Video Converter Ultimate 7.8.16 Build 20160419 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796750.jpg" />
+  <img src="Z:/picture/008/save_picture_796750.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ foobar2000 1.6.8 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796749.jpg" />
+  <img src="Z:/picture/008/save_picture_796749.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Volume2 1.1.7.437 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796744.jpg" />
+  <img src="Z:/picture/008/save_picture_796744.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Universal Media Creation Tool 09.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796739.jpg" />
+  <img src="Z:/picture/008/save_picture_796739.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft .NET 6.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796708.jpg" />
+  <img src="Z:/picture/008/save_picture_796708.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Windows 10 Manager 1.1.2 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796704.jpg" />
+  <img src="Z:/picture/008/save_picture_796704.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VMware Workstation Player 16.2.1 build 18811642 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796703.jpg" />
+  <img src="Z:/picture/008/save_picture_796703.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ WebcamMax 7.9.9.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796700.jpg" />
+  <img src="Z:/picture/008/save_picture_796700.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Nemetschek SCIA Engineer 15.3.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796667.jpg" />
+  <img src="Z:/picture/008/save_picture_796667.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Photo Supreme 5.4.1.2924 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796657.jpg" />
+  <img src="Z:/picture/008/save_picture_796657.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kerish Doctor 2021 4.85 (DC 08.11.2021) (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796637.jpg" />
+  <img src="Z:/picture/008/save_picture_796637.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AnyDesk 6.3.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796634.jpg" />
+  <img src="Z:/picture/008/save_picture_796634.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Microsoft Windows 10.0.19043.1288 Professional Version 21H1 (Updated October 202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796626.jpg" />
+  <img src="Z:/picture/008/save_picture_796626.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ WireGuard VPN 0.5.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796624.jpg" />
+  <img src="Z:/picture/008/save_picture_796624.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ USB Low-Level Format 5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796622.jpg" />
+  <img src="Z:/picture/008/save_picture_796622.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ HitmanPro 3.7.14 Build 263 RePack by norton46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796601.jpg" />
+  <img src="Z:/picture/008/save_picture_796601.jpg" />
 </div>
 
 

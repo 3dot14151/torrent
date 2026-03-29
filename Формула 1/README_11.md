@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451077.jpg" />
+  <img src="Z:/picture/008/save_picture_451077.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448495.jpg" />
+  <img src="Z:/picture/008/save_picture_448495.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442204.jpg" />
+  <img src="Z:/picture/008/save_picture_442204.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442004.jpg" />
+  <img src="Z:/picture/008/save_picture_442004.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429600.jpg" />
+  <img src="Z:/picture/008/save_picture_429600.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429594.jpg" />
+  <img src="Z:/picture/008/save_picture_429594.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427615.jpg" />
+  <img src="Z:/picture/008/save_picture_427615.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427545.jpg" />
+  <img src="Z:/picture/008/save_picture_427545.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427320.jpg" />
+  <img src="Z:/picture/008/save_picture_427320.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425724.jpg" />
+  <img src="Z:/picture/008/save_picture_425724.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425567.jpg" />
+  <img src="Z:/picture/008/save_picture_425567.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425473.jpg" />
+  <img src="Z:/picture/008/save_picture_425473.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423929.jpg" />
+  <img src="Z:/picture/008/save_picture_423929.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423739.jpg" />
+  <img src="Z:/picture/008/save_picture_423739.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422848.jpg" />
+  <img src="Z:/picture/008/save_picture_422848.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422643.jpg" />
+  <img src="Z:/picture/008/save_picture_422643.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422642.jpg" />
+  <img src="Z:/picture/008/save_picture_422642.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422550.jpg" />
+  <img src="Z:/picture/008/save_picture_422550.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420310.jpg" />
+  <img src="Z:/picture/008/save_picture_420310.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420192.jpg" />
+  <img src="Z:/picture/008/save_picture_420192.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420100.jpg" />
+  <img src="Z:/picture/008/save_picture_420100.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420098.jpg" />
+  <img src="Z:/picture/008/save_picture_420098.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420094.jpg" />
+  <img src="Z:/picture/008/save_picture_420094.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419472.jpg" />
+  <img src="Z:/picture/008/save_picture_419472.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419330.jpg" />
+  <img src="Z:/picture/008/save_picture_419330.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418522.jpg" />
+  <img src="Z:/picture/008/save_picture_418522.jpg" />
 </div>
 
 

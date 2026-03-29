@@ -6,7 +6,7 @@ Marco Garau's Magic Opera - 2 Albums (2021-2023) [MP3|320 Kbps] <Symphonic Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244519.jpg" />
+  <img src="Z:/picture/004/save_picture_244519.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Antim Grahan - Goat Legion (2023) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244510.jpg" />
+  <img src="Z:/picture/004/save_picture_244510.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Victor Smolski - 3 Albums (2006-2023) [MP3|320 Kbps] <Neo-Classical, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244490.jpg" />
+  <img src="Z:/picture/004/save_picture_244490.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Center of the Earth - 4 Albums (2018-2023) [MP3|320 Kbps] <Psych, Stoner, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244419.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Drac Attack! - Drac Attack! (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244380.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Aura - Roku Ronin (2023) EP [MP3|320 Kbps] <Nu-Metal, Rapcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244367.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Angel Vivaldi - Away With Words, Part 1-2 (2014-2023) 2EP [MP3|320 Kbps] <Progre
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244323.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Noctem - Credo certe ne cras (2022) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244276.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Silhouette - Les retranchements (2022) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244250.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Morghash - Cosmogony (2019) EP [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244232.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Elyose - 5 Albums (2015-2023) [MP3|320 Kbps] <Modern Industrial, Gothic, Nu-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244132.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dispyria - 3 Albums (2012-2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244057.jpg" />
+  <img src="Z:/picture/004/save_picture_244057.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Right Stripped - Daylight Into Darkness (2021) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244047.jpg" />
+  <img src="Z:/picture/004/save_picture_244047.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Grafting The Vine - Beneath The Redwood (2020) [MP3|320 Kbps] <Instrumental Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243779.jpg" />
+  <img src="Z:/picture/004/save_picture_243779.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Aenaon - Hypnosophy (2016) [MP3|320 Kbps] <Avant-Garde, Experimental, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243688.jpg" />
+  <img src="Z:/picture/004/save_picture_243688.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Afterdusk - Fatalize (2023) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243647.jpg" />
+  <img src="Z:/picture/004/save_picture_243647.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Brutai - Born (2016) [MP3|256 Kbps] <Progressive Metal, Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243644.jpg" />
+  <img src="Z:/picture/004/save_picture_243644.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dusk - Spectrums (2023) [MP3|320 Kbps] <Progressive Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243634.jpg" />
+  <img src="Z:/picture/004/save_picture_243634.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Delorian - It Is Time (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243353.jpg" />
+  <img src="Z:/picture/004/save_picture_243353.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Silence In Solitude - Resurgence (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243170.jpg" />
+  <img src="Z:/picture/004/save_picture_243170.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bethlehem - Bethlehem (2016) [MP3|320 Kbps] <Black Metal, Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243163.jpg" />
+  <img src="Z:/picture/004/save_picture_243163.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Aphyxion - Aftermath (2016) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243132.jpg" />
+  <img src="Z:/picture/004/save_picture_243132.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Wheel - Resident Human (2021) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242780.jpg" />
+  <img src="Z:/picture/004/save_picture_242780.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Wythersake - Antiquity (2021) [MP3|320 Kbps] <Symphonic Black, Melodic Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242772.jpg" />
+  <img src="Z:/picture/005/save_picture_242772.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Drakkar - Chaos Lord (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242705.jpg" />
+  <img src="Z:/picture/005/save_picture_242705.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Imperia - The Last Horizon (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242688.jpg" />
+  <img src="Z:/picture/005/save_picture_242688.jpg" />
 </div>
 
 

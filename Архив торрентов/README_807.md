@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866741.jpg" />
+  <img src="Z:/picture/008/save_picture_866741.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866738.jpg" />
+  <img src="Z:/picture/008/save_picture_866738.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866737.jpg" />
+  <img src="Z:/picture/008/save_picture_866737.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866735.jpg" />
+  <img src="Z:/picture/008/save_picture_866735.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866734.jpg" />
+  <img src="Z:/picture/008/save_picture_866734.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866733.jpg" />
+  <img src="Z:/picture/008/save_picture_866733.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866732.jpg" />
+  <img src="Z:/picture/008/save_picture_866732.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866731.jpg" />
+  <img src="Z:/picture/008/save_picture_866731.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866730.jpg" />
+  <img src="Z:/picture/008/save_picture_866730.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866729.jpg" />
+  <img src="Z:/picture/008/save_picture_866729.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Keep It 1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866726.jpg" />
+  <img src="Z:/picture/008/save_picture_866726.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Cardhop 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866725.jpg" />
+  <img src="Z:/picture/008/save_picture_866725.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ wordCount 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866724.jpg" />
+  <img src="Z:/picture/008/save_picture_866724.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866699.jpg" />
+  <img src="Z:/picture/008/save_picture_866699.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866698.jpg" />
+  <img src="Z:/picture/008/save_picture_866698.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AdwCleaner 5.104 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866696.jpg" />
+  <img src="Z:/picture/008/save_picture_866696.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866691.jpg" />
+  <img src="Z:/picture/008/save_picture_866691.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Dropshare 5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866679.jpg" />
+  <img src="Z:/picture/008/save_picture_866679.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Performance Index 64 Pro 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866677.jpg" />
+  <img src="Z:/picture/008/save_picture_866677.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Posterino 3 v3.10.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866676.jpg" />
+  <img src="Z:/picture/008/save_picture_866676.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ GraphicConverter 11 v11.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866675.jpg" />
+  <img src="Z:/picture/008/save_picture_866675.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ GoodNotes 5 v5.7.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866674.jpg" />
+  <img src="Z:/picture/008/save_picture_866674.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ XCap 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866670.jpg" />
+  <img src="Z:/picture/008/save_picture_866670.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ WinX HD Video Converter for Mac 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866667.jpg" />
+  <img src="Z:/picture/008/save_picture_866667.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Flexi Player Turntable 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866666.jpg" />
+  <img src="Z:/picture/008/save_picture_866666.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ XCOrganizer 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866665.jpg" />
+  <img src="Z:/picture/008/save_picture_866665.jpg" />
 </div>
 
 

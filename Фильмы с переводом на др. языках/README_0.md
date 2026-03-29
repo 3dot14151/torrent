@@ -1,3 +1,29 @@
+###  Публикация: 1481059   (1008532) от 01.07.2021
+
+Ограбление по-джентльменски / The Misfits (2021) WEB-DL [H.264/1080p-LQ] [UKR, ENG / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008532.jpg" />
+</div>
+
+
+###  Подробнее
+
+После дерзкого побега из тюрьмы самый известный вор в мире Ричард Пейс заключает сделку с «Командой изгоев», которые грабят богатых и отдают деньги бедным. Под началом бывалого вора-джентльмена новые Робин Гуды нацеливаются на крупнейшее хранилище золотых слитков в мире, владелец которого — Уорнер Шольц — отмывает деньги международных преступников, а по совместительству (   Читать дальше...   )Производство: США / Highland Film Group (HFG)K. JAM MediaRNG EntertainmentЖанр: Боевик, триллер, приключенияРежиссер: Ренни ХарлинАктеры: Пирс Броснан, Джейми Чон, Тим Рот, Гермиона Корфилд, Ник Кэннон, Pirat Nithipaisarnsakul, Гонсало Менендес, Адам Стоун, Сэм Калиди, Дэвид БатчелорПеревод: ДублированныйЯзык озвучки: Украинский, английскийСубтитры: АнглийскиеПродолжительность: 01:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20B85EBBC25EC55E7B0FFD3FD9215DCF3737CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349657   (1004257) от 02.01.2020
 
 Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264] [UKR] [Line]
@@ -6,7 +32,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264] [UKR] [Line]
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004257.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [UKR] [Line]
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004217.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264/1080p-LQ] [UKR, 
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004206.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002895.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002889.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002423.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002378.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002370.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001496.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983848.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939221.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937786.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932613.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917715.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913545.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907870.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894753.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882347.jpg" />
+  <img src="Z:/picture/005/save_picture_882347.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880067.jpg" />
+  <img src="Z:/picture/005/save_picture_880067.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880044.jpg" />
+  <img src="Z:/picture/005/save_picture_880044.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876784.jpg" />
+  <img src="Z:/picture/005/save_picture_876784.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855981.jpg" />
+  <img src="Z:/picture/008/save_picture_855981.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854092.jpg" />
+  <img src="Z:/picture/008/save_picture_854092.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827472.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804136.jpg" />
+  <img src="Z:/picture/008/save_picture_804136.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F7A155FC18684FFFD2850A68AC76C099E202054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507983   (798071) от 06.11.2021
-
-Главный герой / Free Guy (2021) BDRip [H.264/720p] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798071.jpg" />
-</div>
-
-
-###  Подробнее
-
-У сотрудника крупного банка всё идёт по накатанной, пока однажды он не выясняет, что окружающий его мир — это часть огромной видеоигры, а сам он в ней — всего лишь второстепенный персонаж. Хватит ли у него духу переписать свой код, обратить на себя внимание прекрасной девушки и, наконец, спасти мир? Одним словом, получится ли из него главный герой?Производство: США, Канада / 20th Century Studios, Berlanti Productions, 21 Laps EntertainmentЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Джоди Комер, Лил Рел Ховери, Джо Кири, Уткарш Амбудкар, Тайка Вайтити, Аарон В Рид, Бритни Олдфорд, Камилль Костек, Марк ЛайнерПеревод: Дублированный (Лицензия)Язык озвучки: украинский, английскийСубтитры: украинские (Forced, Full), английские (Forced, Full)Продолжительность: 01:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F771AF2961F779A3F8D7EF99B1D727EC71C8801E
 ```
 
 https://mybot314.ru/tekegram_catalog/

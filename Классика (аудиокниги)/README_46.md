@@ -1,3 +1,110 @@
+###  Публикация: 332575   (167548) от 29.10.2023
+
+Александр Блок и поэты Серебряного века (2005) [MP3, Алексей Емельянов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Библиотека Стекольщикова.
+Русская поэзия трех предоктябрьских десятилетий (1890–1910 гг.) представлена на диске избранными стихами не только видных мастеров, но и их менее известных и незаслуженно забытых современников. В исполнении Заслуженного артиста России Алексея Емельянова звучат более 500 стихотворений.Жанр: Русская литература, классика, поэзияИздательство: МетрополияПродолжительность: 12:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7B9C60C08D5EEC862911696B899466EA18343F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672975   (167247) от 30.10.2023
+
+Леонид Андреев | Самсон в оковах (2023) [MP3, Роман Ильин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонид Николаевич Андреев (1871–1919) – писатель и драматург удивительно тонкой и острой интуиции, оставивший неповторимый след в русской литературе. Прозу Л. Н. Андреева отличает психологизм, повышенное внимание к миру подсознания и биологическому началу в человеческой личности. «Самсон в оковах» относится к психологическим пьесам Л. Н. Андреева. Драматург называл (   Читать дальше...   )Жанр: Драма, ПьесаИздательство: Самиздат (Dtfm rec.)Продолжительность: 03:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CD5EB5BAC93A178BFF057E3347FAC88552C689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672953   (167244) от 30.10.2023
+
+Марина Цветаева | Воспоминания о поэтах (2010) [MP3, Наталия Литвинова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик. Основное место в творчестве Цветаевой 1930-х гг. заняла проза, которая соединяет в себе черты лирической прозы и философской эссеистики.
+Серебряный век русской культуры отмечен яркой звездой Марины Цветаевой. Автор несравненных стихотворений и самобытной прозы, неординарная личность, окруженная слухами (   Читать дальше...   )Жанр: Русская литература, классика, воспоминания, мемуарыИздательство: МедиаКнигаПродолжительность: 13:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E03AE025959A57365128665C9F1B5A3DBFCF770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326683   (166818) от 30.10.2023
+
+Марина Цветаева | Если душа родилась крылатой... (2010) [MP3, Евгения Корницкая и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Поэзия, проза, драматургия Серебряного Века.
+Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик. В сборник включены стихотворения Марины Цветаевой разных лет, «Повесть о Сонечке» и драма «Конец Казановы» основанная на мемуарах знаменитого итальянского писателя, авантюриста, дамского угодника Джованни Джакомо Казановы – история его единственной, (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, прозаИздательство: МедиаКнигаПродолжительность: 09:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5197F8EDE030EB87A1D1E2F33E56F7E811B12D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 408604   (166810) от 30.10.2023
 
 Марина Цветаева | Феникс. Радиоспектакль (2007) [MP3, Карэн Бадалов, Полина Кутепова и др.]
@@ -6,7 +113,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166810.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166802.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166774.jpg" />
 </div>
 
 
@@ -89,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166745.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166654.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165384.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165086.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164898.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164893.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164860.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164851.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164825.jpg" />
 </div>
 
 
@@ -329,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164809.jpg" />
 </div>
 
 
@@ -355,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164801.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164787.jpg" />
 </div>
 
 
@@ -410,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164516.jpg" />
 </div>
 
 
@@ -438,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164510.jpg" />
 </div>
 
 
@@ -467,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164486.jpg" />
 </div>
 
 
@@ -496,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164474.jpg" />
 </div>
 
 
@@ -524,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164469.jpg" />
 </div>
 
 
@@ -552,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164450.jpg" />
 </div>
 
 
@@ -579,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164374.jpg" />
 </div>
 
 
@@ -591,114 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF228FE501E5FEB08C77CFA205B30A5CA4C9B657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304701   (164072) от 02.11.2023
-
-Иван Тургенев | Старые портреты (2009) [MP3, Александр Васильев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164072.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом диске представленные повести И.С. Тургенева погружают слушателя в историческое прошлое России. Героем в них зачастую выступает разночинец с его практичностью и осмотрительностью, чуждый чрезмерной восторженности и неумеренных порывов, или же наоборот - неистовый кутила, не знающий меры ни в чем - ни в отчаянном бесстрашии, ни в вине («Отчаянный»). В рассказе (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-МПродолжительность: 05:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5374F957D2D5A2FDBB6F953F0430ED5658736F44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304709   (164058) от 02.11.2023
-
-Иван Тургенев | Степной король Лир (Радиоспектакль) (2008) [MP3, Максим Суханов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
-В девятнадцатом веке И.С. Тургенев показал, что не только «быстрых разумом Невтонов» может рождать российская земля, но и своих Гамлетов, Фаустов и королей Лиров. Эти вечные образы, архетипы и сверхтипы, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио РоссииПродолжительность: 03:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68795358F0A1A447CF0F9351E79CCBCE615E5B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304814   (164052) от 02.11.2023
-
-Иван Тургенев | Песнь торжествующей любви (2003) [MP3, Алексей Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская фантастическая повесть.
-Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
-«Песнь торжествующей любви» (1881) - одна из поздних повестей Ивана Сергеевича Тургенева, рассказывающая о дружбе, любви и слабости человека, подвластного игре (   Читать дальше...   )Жанр: Русская литература, классика, фантастическая повестьИздательство: ИД «Союз», «Книга вслух»Продолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193EB4F9A3E9065D5E3464EDEE3F68A2978E968D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305061   (164015) от 02.11.2023
-
-Иван Тургенев | Накануне (2007) [MP3, Радик Мухаметзянов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская классика.
-«Накануне» (1860) — один из лучших романов автора, известный читателям со школьных лет. В нем отражены идеи и настроения, царившие в стране накануне эпохи больших перемен. Елена, героиня романа, новый человек эпохи — и в лице ее новая Россия — ищет прежде всего нравственного обаяния и практического осуществления идеалов. Пренебрегая приличиями, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ИД «Равновесие»Продолжительность: 07:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16264D08E0B75B8D7D24B4541582C5C8EB15C33B
 ```
 
 https://mybot314.ru/tekegram_catalog/

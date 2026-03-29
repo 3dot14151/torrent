@@ -1,3 +1,55 @@
+###  Публикация: 532115   (290514) от 10.12.2013
+
+Россия из окна поезда. Выпуски №1-10 из 10 (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_290514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный российский фотограф Антон Ланге при поддержке ОАО «РЖД» совершил длительное путешествие через всю страну. Он сумел сфотографировать практически всю Россию – от южной её точки до Полярного круга. Вы увидите цикл фильмов, в котором лучшие снимки Антона Ланге оживут!Жанр: Документальный, путешествие, познавательныйФормат: XviDПродолжительность: ~ 00:25:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520976   (289181) от 18.11.2018
+
+80 островов вокруг света [выпуски 2-25] / Il Giro Del Mondo In 80 Isole (Around the World in 80 Days) (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неординарный сериал, в котором соединились две потрясающие вещи: райская безмятежность экзотических островов и активный отдых – каноэ, виндсёрфинг, кайтсёрфинг, дайвинг. Те водные виды спорта, которые помогают путешественникам исследовать каждый из этих уникальных миров в полной мере. Зритель совершит поездку по восьмидесяти островам во все уголки земного шара. Невероятные (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 24X~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27587F07D6BD61B8D257F910D37553FF3B189314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186123   (288111) от 24.11.2017
 
 Орел и решка. Перезагрузка (2017.11.20) WEB-DL [H.264/720p-LQ] (сезон 14: Рим. Италия)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288111.jpg" />
+  <img src="Z:/picture/008/save_picture_288111.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288102.jpg" />
+  <img src="Z:/picture/008/save_picture_288102.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286179.jpg" />
+  <img src="Z:/picture/008/save_picture_286179.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286010.jpg" />
+  <img src="Z:/picture/008/save_picture_286010.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284588.jpg" />
+  <img src="Z:/picture/008/save_picture_284588.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284441.jpg" />
+  <img src="Z:/picture/008/save_picture_284441.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284411.jpg" />
+  <img src="Z:/picture/008/save_picture_284411.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284077.jpg" />
+  <img src="Z:/picture/008/save_picture_284077.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282902.jpg" />
+  <img src="Z:/picture/008/save_picture_282902.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282897.jpg" />
+  <img src="Z:/picture/008/save_picture_282897.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282806.jpg" />
+  <img src="Z:/picture/008/save_picture_282806.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282804.jpg" />
+  <img src="Z:/picture/008/save_picture_282804.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282227.jpg" />
+  <img src="Z:/picture/008/save_picture_282227.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280635.jpg" />
+  <img src="Z:/picture/008/save_picture_280635.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280598.jpg" />
+  <img src="Z:/picture/008/save_picture_280598.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280582.jpg" />
+  <img src="Z:/picture/008/save_picture_280582.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280439.jpg" />
+  <img src="Z:/picture/008/save_picture_280439.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280437.jpg" />
+  <img src="Z:/picture/008/save_picture_280437.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279751.jpg" />
+  <img src="Z:/picture/008/save_picture_279751.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277250.jpg" />
+  <img src="Z:/picture/008/save_picture_277250.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275194.jpg" />
+  <img src="Z:/picture/008/save_picture_275194.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273514.jpg" />
+  <img src="Z:/picture/008/save_picture_273514.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273512.jpg" />
+  <img src="Z:/picture/008/save_picture_273512.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273442.jpg" />
+  <img src="Z:/picture/008/save_picture_273442.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CF0BA5EDAEB721E9B8EA36B0AF91A0F5B22A728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188803   (273432) от 03.12.2017
-
-Орел и решка. Рай и ад-2 (2017.12.03) WEB-DL [H.264/1080p-LQ] (сезон 15: Барбадос)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда проекта продолжит свои "райско-адские" путешествия по миру, но во второй части "Рая и ада" зрителей ждут изменения.
-Во-первых, немного поменяется концепция: теперь прекрасное и ужасное будут искать в каждом исследуемом городе. Во-вторых, в 15-м сезоне вместо ушедшей в отпуск Леси Никитюк путешествовать с Региной Тодоренко будет новый ведущий. (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516E91AA97E9C96080560249390943BE073115CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084061   (272563) от 17.12.2016
-
-Проводник (2016.12.16) SATRip (Красноярск)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272563.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Андрей Бедняков отправляется вместе с самыми любимыми российскими звёздами в их родные края. Он объедет всю страну вдоль и поперек. Бородатый ведущий из первых уст узнает все о городах, в которых звезды нашего шоу-бизнеса родились и выросли. Где случился их первый поцелуй, как звали любимую учительницу и из-за кого пролились их первые слезы неразделенной (   Читать дальше...   )Телекомпания: ПятницаЖанр: ТВ-Шоу, ПутешествияСубтитры: ОтсутствуютПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D98235D9F14D4D988A09C0558D04879F34DC1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,136 @@
+###  Публикация: 1466377   (1018594) от 29.04.2021
+
+Кир Булычёв | Миллион приключений (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018594.jpg" />
+</div>
+
+
+###  Подробнее
+
+С таким другом, как Пашка Гераскин, Алисе Селезневой скучать не приходится. Путешествия во времени, приключения в таинственных джунглях планеты Пенелопа, встреча с космическими пиратами... Короче, миллион приключений. В издании воспроизводятся 78 рисунков самого известного иллюстратора писателя — Евгения Мигунова.Жанр: Детская фантастика, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EBE84ADF6C39222F73EDFB702DC972D698152EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466357   (1018593) от 29.04.2021
+
+Н.Д. Анашина (ред.) | Английский язык. Пишем буквы и слова (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018593.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данную книгу вошли прописи по английскому языку, благодаря которым ребенок сможет потренироваться в написании английских букв и слов. Пособие проиллюстрировано картинками, вносящими игровой элемент в процесс обучения. Вместе с этой книгой ваш ребенок почувствует интерес к учебе и сделает уверенный шаг к пятерке!
+Издание адресовано учащимся начальной школы. Подходит (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D76388E511E5AD823F42B70D5BC0B588DD40A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466409   (1018586) от 29.04.2021
+
+Андрей Мерников | Как это устроено. Большая энциклопедия. Техника (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018586.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современном мире техника сопровождает человека буквально повсюду. Ты наверняка тоже это заметил, но задумывался ли ты над тем, как оно устроено?
+Прочитав эту книгу, ты познакомишься с устройством различных машин и механизмов и поймешь, почему и как они работают. С помощью каких технических средств люди используют энергию ветра, воды и солнца? Чем гидроэлектростанция (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E90F9F0E247026DDEAA53D55FAAF358B79E9510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466418   (1018578) от 29.04.2021
+
+Любовь Вайткене | Полный курс занимательных наук. Химия (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежедневно вокруг происходят миллионы невидимых процессов. Тем не менее они влияют на твою жизнь. Тебе интересно узнать об этом? Почему, например, картофель темнеет, если его не положить в воду? Или как появляется ржавчина на любимых качелях? Почему мыло пенится? Почему соль и сахар растворяются в воде? И как можно их вернуть в твердое состояние? И наконец, какими (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15188757C11B0BF3ED5A7213449ADDC7997FDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744744   (1018574) от 29.04.2021
+
+Ирина Щеглова | Самый страшный кошмар лета [Рассказы] (2013) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018574.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Время ведьм»
+Василиса и ее подруга Даша решили в Вальпургиеву ночь посетить шабаш ведьм. Сказано – сделано. Девчонки отправились в деревню к бабушкам Василисы, где решили разыграть из себя ведьм: заночевали в пустом доме, вооружились ухватами, метлами и устроили импровизированное представление. Но оказалось, что в единственную ночь в году силы зла не дремлют и лучше (   Читать дальше...   )Жанр: Ужасы и МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC1530DD00AE9704C2E25BE000BB9C15D936583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744356   (1018573) от 29.04.2021
 
 Евгений Дубровский (Лесник) | В лесу (1938) [DJVU]
@@ -6,7 +139,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018573.jpg" />
 </div>
 
 
@@ -35,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018465.jpg" />
 </div>
 
 
@@ -63,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018433.jpg" />
 </div>
 
 
@@ -91,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018388.jpg" />
 </div>
 
 
@@ -118,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018305.jpg" />
 </div>
 
 
@@ -146,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018287.jpg" />
 </div>
 
 
@@ -173,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018275.jpg" />
 </div>
 
 
@@ -200,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018240.jpg" />
 </div>
 
 
@@ -226,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018238.jpg" />
 </div>
 
 
@@ -252,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018230.jpg" />
 </div>
 
 
@@ -279,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018205.jpg" />
 </div>
 
 
@@ -305,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018170.jpg" />
 </div>
 
 
@@ -331,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018158.jpg" />
 </div>
 
 
@@ -358,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018146.jpg" />
 </div>
 
 
@@ -387,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018145.jpg" />
 </div>
 
 
@@ -414,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018084.jpg" />
 </div>
 
 
@@ -440,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018081.jpg" />
 </div>
 
 
@@ -466,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018079.jpg" />
 </div>
 
 
@@ -494,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018075.jpg" />
 </div>
 
 
@@ -522,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018066.jpg" />
 </div>
 
 
@@ -550,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018045.jpg" />
 </div>
 
 
@@ -561,141 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F02F426C6605DA1A14810E3361DBE7F2E1BB9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467016   (1018037) от 02.05.2021
-
-Дуглас Фишер, Нэнси Фрей, Джон Хэтти | Учим в любых условиях. Онлайн-образование на каждый день (2021) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга написана учителями для учителей, которым предстоит работать в онлайн-формате. Здесь вы найдете советы, как обеспечить дисциплину в классе (и не только онлайн), поддержать эмоциональную связь с учениками, сохранить и укрепить авторитет, подготовить материалы для уроков и адекватно оценить успеваемость учеников.
-В книге собраны как универсальные советы, которые (   Читать дальше...   )Жанр: ПедагогикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C905B2E3D069CF9EFD8DC8A5F78E38669DED3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631015   (1018028) от 02.05.2021
-
-Валерия Фадеева | Книга лучшей российской мамы. Малыш от года до 5 лет (2012) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валерия Фадеева написала эту книгу специально для российских мам, для тех женщин, которые хотят дать своему малышу все самое лучшее в этой жизни. Она отважно готова разделить с другими мамами эту почетную ответственность - воспитание чудесных маленьких непосед.
-Вместе с нею вы легко и уверенно пройдете путь от рождения до пятилетнего возраста вашего малыша - то есть (   Читать дальше...   )Жанр: пособие для родителейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8094A4B86BF3EBF19902197AF234FB27D0CB595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636913   (1018015) от 02.05.2021
-
-Книжная серия| Начальная школа (2008)  [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018015.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник книг серии "Начальная школа" входят 13 книг различной тематики от математических диктантов до правил дорожного движенияЖанр: Учебная литература для детского сада и начальной школыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C0ACF385E6F1A7B168D98FB8F60441F9EDCACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467358   (1017963) от 03.05.2021
-
-Катя Матюшкина | Трикси-Фикси. Волшебница Злюня и её пакости (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как-то раз ночью в игрушечном Звёздном городе возник таинственный особняк... Он был такой кривой и перекошенный, что казалось удивительным, как он тут же не развалился! Окна и двери были разбросаны в самых неподходящих местах; над крышей поднималось несколько печных труб, а из окон лился призрачный свет...
-Это еще не всё! Как только особняк появился, прямо над ним (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD05772BF012EFF8897F3E3E563588DF4E1C52A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467343   (1017960) от 03.05.2021
-
-Валерий Горбачев | Самые лучшие сказки. Весёлые истории про Хрюшу (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь, это - Хрюша, непоседливый и непослушный поросёнок, очень похожий на маленького своенравного ребёнка. Придумал и нарисовал его известный художник Валерий Горбачёв. Хрюше сложно усидеть на месте, сложно прислушаться к тому, что ему советуют друзья, у него на все есть своё мнение!
-
-Поэтому он то и дело попадает в неприятности! И как же хорошо, что у этого (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3C9CE86A9A64775603303DF5AD9821F4910D83
 ```
 
 https://mybot314.ru/tekegram_catalog/

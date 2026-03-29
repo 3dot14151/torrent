@@ -1,3 +1,81 @@
+###  Публикация: 999777   (862061) от 23.03.2016
+
+Day of the Tentacle Remastered (2016) [En/Multi] (1.1.6) License RELOADED
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_862061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Day of the Tentacle Remastered представляет собой ремейк классического квеста 1993 года, который является продолжением Maniac Mansion, квеста 1989. Если первая часть заложила основы квестов, взаимодействие пользователя с которыми происходило с помощью мышки, то вторая развила юмористическую сторону, ввела новых персонажей и добавила перемещения во времени. По сюжету (   Читать дальше...   )Тип издания: LicenseРазработчик: Double Fine ProductionsЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Французский, Испанский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6181B135248BC8D073BE31B7BB02072F17C25E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999925   (861974) от 23.03.2016
+
+Republique Remastered (2015) [Ru/En] (1.0) Repack xatab [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_861974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Republique Remastered – игра в жанре стелс от студии Camouflaj. Проект рассказывает о девушке которую зовут Хоуп, которая попала в очень сложную ситуацию, она совершенно не знает, что ей делать. Однако она не одна, ей помогает некий персонаж из телефона. Ее главной целью является побег от тоталитарного режима, который установило действующее правительство. Отметим, (   Читать дальше...   )Тип издания: RepackРазработчик: CamouflajЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF66998CF948B44DE002985B2D528CF7E9D0E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108710   (861788) от 25.02.2017
+
+Boogeyman 2 (2017) [Ru/Multi] (1.4.1) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_861788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы проснулись посреди ночи от звуков своей куклы. Она начала говорить, как будто обладает собственным разумом. Кукла предупреждает вас о монстре, который пришел чтобы забрать тебя. Возьмите свой фонарик и найдите Бугимена, прежде чем он найдет вас!Тип издания: LicenseРазработчик: Barry McCabeЖанр: Action (Survival horror), Strategy, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAFD3F423AABA36A9CB9F4A62EE321D747F53E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375852   (861456) от 16.04.2020
 
 Sunwards (2020) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +84,7 @@ Sunwards (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861456.jpg" />
+  <img src="Z:/picture/008/save_picture_861456.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2166) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859350.jpg" />
+  <img src="Z:/picture/008/save_picture_859350.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Sable (2021) [En] (3.2.9) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859348.jpg" />
+  <img src="Z:/picture/008/save_picture_859348.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Black Mirror 3: Final Fear / Черное зеркало 3 (2011) [Ru/Multi] (1.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859242.jpg" />
+  <img src="Z:/picture/008/save_picture_859242.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858852.jpg" />
+  <img src="Z:/picture/008/save_picture_858852.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Addams Family: Mansion Mayhem / Семейка Аддамс: Переполох 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857519.jpg" />
+  <img src="Z:/picture/008/save_picture_857519.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Biped (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856182.jpg" />
+  <img src="Z:/picture/008/save_picture_856182.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855233.jpg" />
+  <img src="Z:/picture/008/save_picture_855233.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Count Lucanor (2016) [En/Multi] (1.0.16) Repack ARMENIAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855128.jpg" />
+  <img src="Z:/picture/008/save_picture_855128.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En] (1.0.8767.0) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854834.jpg" />
+  <img src="Z:/picture/008/save_picture_854834.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Ni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853618.jpg" />
+  <img src="Z:/picture/008/save_picture_853618.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853520.jpg" />
+  <img src="Z:/picture/008/save_picture_853520.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack R.G.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853348.jpg" />
+  <img src="Z:/picture/008/save_picture_853348.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Hero of the Kingdom: The Lost Tales 1 (2020) [Ru/Multi] (1.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852776.jpg" />
+  <img src="Z:/picture/008/save_picture_852776.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852537.jpg" />
+  <img src="Z:/picture/008/save_picture_852537.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ I Saw Black Clouds (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852321.jpg" />
+  <img src="Z:/picture/008/save_picture_852321.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Terrarium Land (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851715.jpg" />
+  <img src="Z:/picture/008/save_picture_851715.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851256.jpg" />
+  <img src="Z:/picture/008/save_picture_851256.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851006.jpg" />
+  <img src="Z:/picture/008/save_picture_851006.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ NightCry (2016) [En/Jap] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849944.jpg" />
+  <img src="Z:/picture/008/save_picture_849944.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Shattering (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849480.jpg" />
+  <img src="Z:/picture/008/save_picture_849480.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849462.jpg" />
+  <img src="Z:/picture/008/save_picture_849462.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Impostor Factory (2021) [Ru/Multi] (7455447) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849267.jpg" />
+  <img src="Z:/picture/008/save_picture_849267.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Impostor Factory (2021) [Ru/Multi] (7455447) License TiNYiSO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3C8D1DEC39D0906E28718634CA3F1CD5E8C6C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387327   (849044) от 01.10.2021
-
-Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849044.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Those Who Remain вы окажетесь в самом центре захватывающего психологического ужастика, действие которого разворачивается в сонном городке Дормонт – отколовшегося от реальности городке, охваченном тьмой и последствиями поступков местных жителей. Преодолейте страшные, простирающиеся из темноты ужасы и переживите ночь в Дормонте, вместе с Эдвардом подвергнув испытанию (   Читать дальше...   )Тип издания: RepackРазработчик: Camel 101Жанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Немецкий, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57691813C9B1ACAD7D672A7BA4CA07D3DC6E64DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002267   (848227) от 31.03.2016
-
-Amigdala (2016) [En] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герман Дривен, мужчина средних лет, фанатик теории заговора который отрекся от всех прелестей жизни, от друзей, семьи и своей работы. Герман не обращал внимания на все что происходило вокруг, остался без ничего, и все из-за своей одержимости "Филадельфийским экспериментом". С момента проведения эксперимента прошло уже 11 лет, но Герману удалось найти документ (   Читать дальше...   )Тип издания: LicenseРазработчик: GuidiGermanoЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56074504CE53154730B16FD12F937DD69F67371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002718   (846429) от 01.04.2016
-
-Layers of Fear (2016) [Ru/Multi] (5.1.3.48304/upd 2) Repack SpaceX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Layers of Fear - жуткий психологический триллер, события которого разворачиваются в доме сумасшедшего художника, который и является главным героем. Найдите корни собственного безумия и попробуйте избавиться от них. Авторы описывают проект как «психоделический хоррор, в котором любой поворот камеры может привести к кардинальным изменениям окружающего пейзажа». Локации (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober Team SAЖанр: Adventure (Horror)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0016BB37C870596FFAC0B68727450BB104CED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

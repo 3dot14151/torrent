@@ -1,3 +1,32 @@
+###  Публикация: 1576116   (370837) от 12.09.2022
+
+Svenne & Lotta - 6 Albums (1973-1983) Collection [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_370837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Svenne & Lotta (в некоторых странах Sven & Charlotte) - поп-дуэт Свенне Хедлунд и Лотты Хедлунд. Они познакомились в 1967 году, когда (вместе с Бенни Андерссоном из ABBA) Свенне Хедлунд был вокалистом в группе Hep Stars. Шарлотта Уокер, которую в то время звали Лотта Хедлунд, гастролировала по Швеции с женским американским трио The Sherrys. Стремясь пойти (   Читать дальше...   )Список альбомов:
+1973 - Oldies But Goodies
+1975 - 2
+1976 - Letters(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, SchlagerПродолжительность: 03:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7245E0CACAE5E3F7C743512783F50A59A7FB259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176590   (369846) от 22.10.2017
 
 Carl Douglas - Kung Fu Fighting (1994) The Best Of Carl Douglas [MP3|320 Kbps] <Electronic, Pop-Rock, Disco>
@@ -6,7 +35,7 @@ Carl Douglas - Kung Fu Fighting (1994) The Best Of Carl Douglas [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369846.jpg" />
+  <img src="Z:/picture/008/save_picture_369846.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Cliff Richard - Love Songs (1981) Remaster, 1987, Parlophone[MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368609.jpg" />
+  <img src="Z:/picture/008/save_picture_368609.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Julio Iglesias - Love Songs (2007) [MP3|320 Kbps] <Pop Latino>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368496.jpg" />
+  <img src="Z:/picture/008/save_picture_368496.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Chris Norman - Rediscovered Love Songs (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368392.jpg" />
+  <img src="Z:/picture/008/save_picture_368392.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Eros Ramazzotti - Somos (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368276.jpg" />
+  <img src="Z:/picture/008/save_picture_368276.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Ace Of Base - Hidden Gems (2015) [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366513.jpg" />
+  <img src="Z:/picture/008/save_picture_366513.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ VA - Endless Wide - Acousitc Session Alaska (2016) [MP3|320 Kbps] <Acousitc, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364662.jpg" />
+  <img src="Z:/picture/008/save_picture_364662.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ VA - New Italo Disco Top 25 Compilation Vol. 2 (2016) [MP3|320 Kbps] <Disco, Nu-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364411.jpg" />
+  <img src="Z:/picture/008/save_picture_364411.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ VA - Schlager Hits, Vol. 1 (Das Musikfestival der Stars) (2018) [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364299.jpg" />
+  <img src="Z:/picture/008/save_picture_364299.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Todd Rundgren & Utopia - Disco Jets (2012) Remastered CD [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364176.jpg" />
+  <img src="Z:/picture/008/save_picture_364176.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ VA - Après Ski Party Hits 2019 (2018) [MP3|320 Kbps] <Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364161.jpg" />
+  <img src="Z:/picture/008/save_picture_364161.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Thomas Anders - Ewig mit Dir (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363627.jpg" />
+  <img src="Z:/picture/008/save_picture_363627.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Shy'm - A nos dix ans (2015) 2CD [OGG| 454-561 кб/с]<French Pop, Dance, R&B, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363309.jpg" />
+  <img src="Z:/picture/008/save_picture_363309.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Susan Boyle - Standing Ovation: The Greatest Songs From The Stage (2012) [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363038.jpg" />
+  <img src="Z:/picture/008/save_picture_363038.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ Sandra - Stay In Touch "Complete Deluxe Edition"(2012)(2CD) [MP3|320 кб/с]<Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362421.jpg" />
+  <img src="Z:/picture/008/save_picture_362421.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ VA - Atlantic Rock & Roll Series (2017) 6CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360925.jpg" />
+  <img src="Z:/picture/008/save_picture_360925.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ VA - Best Italo Disco Hits Remixed (3CD) (2007) [MP3|320 kbps]<Dance, Italo-Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359583.jpg" />
+  <img src="Z:/picture/008/save_picture_359583.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Karel Gott - Music History (2001) [MP3|192 кб/с]<Pop, Euro-Pop, Vocal Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359067.jpg" />
+  <img src="Z:/picture/008/save_picture_359067.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ VA - Best Of 2018 - Die Hits Des Jahres (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359036.jpg" />
+  <img src="Z:/picture/008/save_picture_359036.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359035.jpg" />
+  <img src="Z:/picture/008/save_picture_359035.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Vangoffey - Take Your Jacket Off & Get Into It (2015) [OGG| 489-542 кб/с]<Cla
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358822.jpg" />
+  <img src="Z:/picture/008/save_picture_358822.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ Dua Lipa - Dua Lipa (Complete Edition) (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358746.jpg" />
+  <img src="Z:/picture/008/save_picture_358746.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Kelly Clarkson - Meaning Of Life (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358518.jpg" />
+  <img src="Z:/picture/008/save_picture_358518.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Alexandra Stan - The Best (2018) [MP3|320 Kbps] <Dance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356791.jpg" />
+  <img src="Z:/picture/008/save_picture_356791.jpg" />
 </div>
 
 
@@ -726,7 +755,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353012.jpg" />
+  <img src="Z:/picture/008/save_picture_353012.jpg" />
 </div>
 
 
@@ -740,41 +769,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A09E8AC99EEF3F7917D75A5A3DBED6D877A40E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578367   (352347) от 21.11.2012
-
-Thomas Anders - Christmas For You (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Must Have Been The Mistletoe
-02. Christmas Is Just Around The Corner (From 'Cranberry Christmas')
-03. Sleigh Ride
-04. The Christmas Song
-05. It's The Most Wonderful Time Of The Year
-06. Last Christmas
-07. Silverbells
-08. It's Christmastime
-09. Kisses For Christmas
-10. Can You Hear The Snowflakes Falling(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6710466A0990D08EEAEA4AF100D5274F4D4256
 ```
 
 https://mybot314.ru/tekegram_catalog/

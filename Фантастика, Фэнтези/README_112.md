@@ -1,3 +1,60 @@
+###  Публикация: 1298023   (601809) от 27.04.2019
+
+Андрей Васильев | Сеятели ветра (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый роман цикла «Ученики Ворона».
+
+Мирная жизнь в Рагеллоне трещит по швам, и все то, что казалось незыблемым, начинает рассыпаться в пыль. Коснутся ли перемены того тихого уголка, в котором обитают маг Ворон и его ученики, или их минует чаша сия? Кто знает…Жанр: фантастика, фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CF9CBFD35CDDB029C68C512483E0DE4D04FC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298733   (601737) от 28.04.2019
+
+А. Варшавский (составитель) | Альфа Эридана (сборник) (1960) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601737.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Альфа Эридана» — так называется предлагаемый вниманию читателей сборник современных советских научно-фантастических рассказов.
+Почти все авторы рассказов — молодые учёные, инженеры, изобретатели. В литературу они пришли недавно, и поэтому с полным правом этот сборник можно считать сборником рассказов младшего поколения советских фантастов.
+
+Содержание:(   Читать дальше...   )Жанр: фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C575CF63C22008E793BADEDBD959249CB1D0D7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 686775   (601118) от 06.08.2013
 
 Вадим Денисов | Путь на Кристу. Закрытые воды [2013] [FB2]
@@ -6,7 +63,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601118.jpg" />
+  <img src="Z:/picture/008/save_picture_601118.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601072.jpg" />
+  <img src="Z:/picture/008/save_picture_601072.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600977.jpg" />
+  <img src="Z:/picture/008/save_picture_600977.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600970.jpg" />
+  <img src="Z:/picture/008/save_picture_600970.jpg" />
 </div>
 
 
@@ -116,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600904.jpg" />
+  <img src="Z:/picture/008/save_picture_600904.jpg" />
 </div>
 
 
@@ -142,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600275.jpg" />
+  <img src="Z:/picture/008/save_picture_600275.jpg" />
 </div>
 
 
@@ -168,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600078.jpg" />
+  <img src="Z:/picture/008/save_picture_600078.jpg" />
 </div>
 
 
@@ -195,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599971.jpg" />
+  <img src="Z:/picture/008/save_picture_599971.jpg" />
 </div>
 
 
@@ -223,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599929.jpg" />
+  <img src="Z:/picture/008/save_picture_599929.jpg" />
 </div>
 
 
@@ -249,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599923.jpg" />
+  <img src="Z:/picture/008/save_picture_599923.jpg" />
 </div>
 
 
@@ -278,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599892.jpg" />
+  <img src="Z:/picture/008/save_picture_599892.jpg" />
 </div>
 
 
@@ -304,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599887.jpg" />
+  <img src="Z:/picture/008/save_picture_599887.jpg" />
 </div>
 
 
@@ -332,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599833.jpg" />
+  <img src="Z:/picture/008/save_picture_599833.jpg" />
 </div>
 
 
@@ -360,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599803.jpg" />
+  <img src="Z:/picture/008/save_picture_599803.jpg" />
 </div>
 
 
@@ -388,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599765.jpg" />
+  <img src="Z:/picture/008/save_picture_599765.jpg" />
 </div>
 
 
@@ -416,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599763.jpg" />
+  <img src="Z:/picture/008/save_picture_599763.jpg" />
 </div>
 
 
@@ -442,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599752.jpg" />
+  <img src="Z:/picture/008/save_picture_599752.jpg" />
 </div>
 
 
@@ -469,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599604.jpg" />
+  <img src="Z:/picture/008/save_picture_599604.jpg" />
 </div>
 
 
@@ -495,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599592.jpg" />
+  <img src="Z:/picture/008/save_picture_599592.jpg" />
 </div>
 
 
@@ -522,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599591.jpg" />
+  <img src="Z:/picture/008/save_picture_599591.jpg" />
 </div>
 
 
@@ -548,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599429.jpg" />
+  <img src="Z:/picture/008/save_picture_599429.jpg" />
 </div>
 
 
@@ -574,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599426.jpg" />
+  <img src="Z:/picture/008/save_picture_599426.jpg" />
 </div>
 
 
@@ -603,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599425.jpg" />
+  <img src="Z:/picture/008/save_picture_599425.jpg" />
 </div>
 
 
@@ -629,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599210.jpg" />
+  <img src="Z:/picture/008/save_picture_599210.jpg" />
 </div>
 
 
@@ -642,59 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF73D0CB1AE2455BF4BEDEC4EA8115C47C61AD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299089   (599205) от 01.05.2019
-
-Влад Воронов | Земля лишних. Однокласснички (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяжела жизнь простого русского хакера! Не успел Влад Воронов добыть 500 тысяч долларов со счета известного международного банка, как буквально через день проснулся в уютной камере. Однако Орден, взявший его на горячем, – не ФСБ и не ЦРУ. Теперь Владу предстоит не только заниматься привычным делом, работая на новых хозяев, но и переехать в Новый Мир.
-А так как тяга (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A8AE6F223DD6484569729AD40089FF8A29C9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232651   (598373) от 25.06.2018
-
-Андрей Ангелов | Театр мистера Фэйса (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь театральной сценой служит весь Лос-Анджелес, а режиссером выступает мистер Фэйс – циничный киллер. Его театр гениален по сути, кровав по исполнению и основан на философии гипербореев. Перформансы мучительной смерти, немотивированных убийств и кровавого распутства – все это театр мистера Фэйса…Жанр: Триллеры, УжасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA522604C3521CDA888A63DACDE902977DBC94CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

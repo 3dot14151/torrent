@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893681.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893646.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893402.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885210.jpg" />
+  <img src="Z:/picture/005/save_picture_885210.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883861.jpg" />
+  <img src="Z:/picture/005/save_picture_883861.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883852.jpg" />
+  <img src="Z:/picture/005/save_picture_883852.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883851.jpg" />
+  <img src="Z:/picture/005/save_picture_883851.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883783.jpg" />
+  <img src="Z:/picture/005/save_picture_883783.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ INSTASAMKA - MAMACITA (2020) [MP3|320 Kbps] <Rap, Trap, Mumble>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883614.jpg" />
+  <img src="Z:/picture/005/save_picture_883614.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882161.jpg" />
+  <img src="Z:/picture/005/save_picture_882161.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ zavet - Жилы (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873156.jpg" />
+  <img src="Z:/picture/008/save_picture_873156.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Young P&H - Квартал делает числа (2020) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873007.jpg" />
+  <img src="Z:/picture/008/save_picture_873007.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ etnaise - NEO (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873003.jpg" />
+  <img src="Z:/picture/008/save_picture_873003.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ T-Fest - Выйди и зайди нормально (2020) [MP3|320 Kbps] <Rap,
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872988.jpg" />
+  <img src="Z:/picture/008/save_picture_872988.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bahh Tee - 10 лет спустя (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872842.jpg" />
+  <img src="Z:/picture/008/save_picture_872842.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Centr - Система (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869552.jpg" />
+  <img src="Z:/picture/008/save_picture_869552.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Loc-Dog - Крылья (2017) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867550.jpg" />
+  <img src="Z:/picture/008/save_picture_867550.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865627.jpg" />
+  <img src="Z:/picture/008/save_picture_865627.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Anacondaz - Выходи за меня (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863906.jpg" />
+  <img src="Z:/picture/008/save_picture_863906.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Fardi - Черный сад, часть 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860622.jpg" />
+  <img src="Z:/picture/008/save_picture_860622.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860495.jpg" />
+  <img src="Z:/picture/008/save_picture_860495.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860491.jpg" />
+  <img src="Z:/picture/008/save_picture_860491.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Jah Khalib - 911 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860368.jpg" />
+  <img src="Z:/picture/008/save_picture_860368.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856701.jpg" />
+  <img src="Z:/picture/008/save_picture_856701.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851649.jpg" />
+  <img src="Z:/picture/008/save_picture_851649.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Czar - Pig Drum (Side B) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848423.jpg" />
+  <img src="Z:/picture/008/save_picture_848423.jpg" />
 </div>
 
 

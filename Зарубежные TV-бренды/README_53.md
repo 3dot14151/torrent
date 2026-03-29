@@ -1,3 +1,107 @@
+###  Публикация: 844364   (641596) от 09.07.2016
+
+NG. Тайны истории. Леонардо да Винчи / Mystery Files. Leonardo Da Vinci (2009) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не позволяйте этой загадке помешать Вам уснуть, может быть, она ни когда не будет разгадана, а вопросы останутся без ответов. National Geographic Channel берется за величайшие неразгаданные тайны мира, пытаясь узнать, что стоит за легендами, которые веками вдохновляли, интриговали и ставили в тупик человечество!В этом выпуске: Он один из самых известных гениев всех времен, образец универсального человека, художник и изобретатель чьи идеи опередили свое время. Танк, скафандр, вертолет. Однако некоторые мало известные факты говорят о том, что открытия Леонардо были далеко не такими революционными как принято считать. Правда ли, что Леонардо, эта суперзвезда ренессанса, всего лишь шел в ногу (   Читать дальше...   )Жанр: Документальный, история, загадкиПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CC02385BC442FB6D89C4A5745AD592E0C53682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227920   (641069) от 29.05.2018
+
+NGW: Скала леопардов / The Leopard Rocks (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леопарды, обитающие в удаленном от людей, малоизвестном регионе Раджастхан, порой демонстрируют примеры удивительного поведения. Мать по кличке Ниилам защищает своих троих детенышей от бродячих взрослых самцов.Производство: Австрия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Харальд ПокисерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C409F6AF8E2FEED583E706F009872FC5EF3572F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293069   (641033) от 01.04.2019
+
+BBC. Горы - жизнь над облаками / Mountains: Life Above The Clouds (2017) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высоко над облаками лежат затерянные миры - неизведанные, неумолимые и совершенно непредсказуемые. Но в этих гигантских горных цепях планеты существует жизнь. Вопреки всему некоторые замечательные животные и удивительные люди нашли свое пристанище в самых высоких горах Земли. Знаменитая серия из 3 частей из Отдела естественной истории Би-би-си, раскрывающая необыкновенных (   Читать дальше...   )Производство: Великобритания, A BBC Studios production for BBC and PBSЖанр: Документальный, природа, флора, фаунаРежиссер: Алекс ЛанчестерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77D0487A40A7E54B6309715BF842035E3E66756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227946   (640934) от 29.05.2018
+
+NGW: Дикие земли Европы / Europe's Great Wilderness (2015) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европа - небольшой по сравнению с другими континент, но его природа очень разнообразна. Например, перепад температур в разных частях Европы составляет более 80 градусов.Производство: Великобритания, Off the Fence for Blue Ant Media and National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Эллисон БинПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3х~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586E8DAB6033A5AE541D1D338427D50903A02F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468146   (640853) от 04.07.2012
 
 Discovery: Бесстрашная планета (6 серий) / Fearless Planet (2008) [1080p] BDRip
@@ -6,7 +110,7 @@ Discovery: Бесстрашная планета (6 серий) / Fearless Plane
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640853.jpg" />
+  <img src="Z:/picture/008/save_picture_640853.jpg" />
 </div>
 
 
@@ -36,7 +140,7 @@ NG. Фри-соло / Free Solo (2018) HDTVRip [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640639.jpg" />
+  <img src="Z:/picture/008/save_picture_640639.jpg" />
 </div>
 
 
@@ -62,7 +166,7 @@ Viasat History: Загадка исчезновения неандертальц
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640523.jpg" />
+  <img src="Z:/picture/008/save_picture_640523.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Animal Planet. Аквариумный бизнес / Tanked (2011-2014) SATRip, 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640504.jpg" />
+  <img src="Z:/picture/008/save_picture_640504.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ National Geographic. Смертельный бой динозавров / Dino D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639533.jpg" />
+  <img src="Z:/picture/008/save_picture_639533.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ NG. Тираннозавр: чемпион по выживанию / T.Rex: Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639023.jpg" />
+  <img src="Z:/picture/008/save_picture_639023.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ NG: С точки зрения науки. Экспедиция "Виски" / N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638985.jpg" />
+  <img src="Z:/picture/008/save_picture_638985.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Animal Planet: Живой или вымерший. Додо Севера / Extin
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638929.jpg" />
+  <img src="Z:/picture/008/save_picture_638929.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ NGW: Африканские охотники / Africa's Hunters. (2018) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638833.jpg" />
+  <img src="Z:/picture/008/save_picture_638833.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ DV: Галилео Галилей - борьба за небо / Galileos Battle
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638641.jpg" />
+  <img src="Z:/picture/008/save_picture_638641.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Discovery: Телескоп / Discovery: Telescope (2016) HDTVRip [H.264/720p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637851.jpg" />
+  <img src="Z:/picture/008/save_picture_637851.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ NG. В поисках правды / The Truth Behind (2011) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637433.jpg" />
+  <img src="Z:/picture/008/save_picture_637433.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ NGW: Крупные рыбы Зэба: огромный сом / Monster Fish. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637380.jpg" />
+  <img src="Z:/picture/008/save_picture_637380.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Discovery: Земля восходов. Секреты Солнца / Sunrise Ea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637353.jpg" />
+  <img src="Z:/picture/008/save_picture_637353.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637266.jpg" />
+  <img src="Z:/picture/008/save_picture_637266.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Discovery. Вирусы / Virus: Invisible Killers (2017) HDTVRip [H.264/720p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637226.jpg" />
+  <img src="Z:/picture/008/save_picture_637226.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ NG. Фри-соло / Free Solo (2018) BDRemux [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636970.jpg" />
+  <img src="Z:/picture/008/save_picture_636970.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ NG: Испытайте свой мозг / Test Your Brain (Brain Games, Teste d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636693.jpg" />
+  <img src="Z:/picture/008/save_picture_636693.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ NG: Нефтяное загрязнение столетия / Oil Spill of the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635371.jpg" />
+  <img src="Z:/picture/008/save_picture_635371.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ NG: Осушить океан: глубокое погружение. Шторм
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635360.jpg" />
+  <img src="Z:/picture/008/save_picture_635360.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ BBC: В краю муссонов / Wonders of the Monsoon (2014) [BDRip/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634977.jpg" />
+  <img src="Z:/picture/008/save_picture_634977.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ PBS: Природа - Невероятные лягушки / PBS: Nature - Fabu
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634766.jpg" />
+  <img src="Z:/picture/008/save_picture_634766.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ PBS: Природа - Невероятные лягушки / PBS: Nature - Fabu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BABC185E6043E92AA0462EE6285EB22A85B5B0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140791   (634761) от 18.06.2017
-
-Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] (сезон 1, эпизоды 1-4 из 4)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон много веков был опасным городом. Сюда, будто магнитом, притягивало убийц. О Джеке-потрошителе писали во всех газетах но он был далеко не единственным. Убийство повсюду. Страх смерти обуял весь город. В этой программе мы узнаем о самых известных, самых загадочных лондонских убийствах. Интриги и страсть, коварные убийства и новейшие достижения технологий, рассказы (   Читать дальше...   )Производство: Великобритания, 3DD Production in association with UKTVЖанр: Документальный, криминалистика, историяРежиссер: Дэниел КончерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: ~00:44:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BEF543408413123C5DEEC47CC77AE56D0F6011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520009   (634700) от 07.07.2012
-
-DV: Невероятное вокруг нас. Волны, которые греют [6 из 28] / Totally Phenomenal. Waves that warm (2012) SATRip
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB58305A35C32D5C5C65331EEEB939BECC0BBDC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520034   (634699) от 07.07.2012
-
-DV: Невероятное вокруг нас. Рождение и жизнь ветра [7 из 28] / Totally Phenomenal. Pretty windy (2012) SATRip
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04AA788B9DDDA5E12D1A1DF29EF80A8B78BC3FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228668   (634016) от 02.06.2018
-
-NGW: Прирождённые монстры. Тигровая змея / Natural born monsters (2015) HDTV [H.264/1080i-LQ] (Сезон 1, эпизод 1)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шон Дуган отправляется в Австралию, чтобы развеять миф о гигантской морской змее и показать смертельно опасную тигровую.Производство: США, Karga Seven Pictures, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: B.J. GolnickПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763D9998238D8FBFC8372ACDD51C2D66C0074098
 ```
 
 https://mybot314.ru/tekegram_catalog/

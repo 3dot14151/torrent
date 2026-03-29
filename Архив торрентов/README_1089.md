@@ -6,7 +6,7 @@ VidCoder 6.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799019.jpg" />
+  <img src="Z:/picture/008/save_picture_799019.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Java SE Runtime Environment 8.0.3110.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799016.jpg" />
+  <img src="Z:/picture/008/save_picture_799016.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Avidemux 2.8.0 Nightly(r211027) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799015.jpg" />
+  <img src="Z:/picture/008/save_picture_799015.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SamDrivers 21.10 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799012.jpg" />
+  <img src="Z:/picture/008/save_picture_799012.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Autodesk AutoCAD MEP 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799005.jpg" />
+  <img src="Z:/picture/008/save_picture_799005.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ LuLu 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799000.jpg" />
+  <img src="Z:/picture/008/save_picture_799000.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798994.jpg" />
+  <img src="Z:/picture/008/save_picture_798994.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Alwoods - Stardust (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798990.jpg" />
+  <img src="Z:/picture/008/save_picture_798990.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ SoftPerfect RAM Disk 4.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798987.jpg" />
+  <img src="Z:/picture/008/save_picture_798987.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Kaspersky Virus Removal Tool 15.0.19.0 (04.04.2017) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798984.jpg" />
+  <img src="Z:/picture/008/save_picture_798984.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Movavi Video Suite 22.0.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798983.jpg" />
+  <img src="Z:/picture/008/save_picture_798983.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Atomix VirtualDJ 2021 Pro Infinity 8.5.6732 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798979.jpg" />
+  <img src="Z:/picture/008/save_picture_798979.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Revo Uninstaller Pro 3.1.9 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798969.jpg" />
+  <img src="Z:/picture/008/save_picture_798969.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ O&O ShutUp10 1.9.1426 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798940.jpg" />
+  <img src="Z:/picture/008/save_picture_798940.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Boilsoft Video Splitter 8.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798936.jpg" />
+  <img src="Z:/picture/008/save_picture_798936.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Movavi Video Suite 22.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798933.jpg" />
+  <img src="Z:/picture/008/save_picture_798933.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798928.jpg" />
+  <img src="Z:/picture/008/save_picture_798928.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Cкелетон. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798891.jpg" />
+  <img src="Z:/picture/008/save_picture_798891.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798890.jpg" />
+  <img src="Z:/picture/008/save_picture_798890.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798889.jpg" />
+  <img src="Z:/picture/008/save_picture_798889.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798888.jpg" />
+  <img src="Z:/picture/008/save_picture_798888.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798887.jpg" />
+  <img src="Z:/picture/008/save_picture_798887.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Permute 2.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798877.jpg" />
+  <img src="Z:/picture/008/save_picture_798877.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ PicturesToExe Deluxe 9.0.7 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798874.jpg" />
+  <img src="Z:/picture/008/save_picture_798874.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Trance April 2017: Melodic Progressive And Vocal, Best Of Collection (2017)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798870.jpg" />
+  <img src="Z:/picture/008/save_picture_798870.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ JustBroadcaster for  YouTube 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798862.jpg" />
+  <img src="Z:/picture/008/save_picture_798862.jpg" />
 </div>
 
 

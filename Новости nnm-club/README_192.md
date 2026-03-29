@@ -1,3 +1,163 @@
+###  Публикация: 1416711   (364509) от 17.10.2020
+
+Mortal Kombat 11 (2019) [Ru/Multi] (0.318/dlc) SteamRip =nemos= [Ultimate Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mortal Kombat 11 – продолжение культовой серии файтингов Mortal Kombat, в котором игроков ждут широкие возможности кастомизации бойцов благодаря новой системе Custom Character Variations. Новый графический движок переместит вас в гущу боев, заставляя буквально прочувствовать каждую ломающуюся кость и вылетающие из обрит глаза. В Mortal Kombat 11 представлены классические (   Читать дальше...   )Тип издания: SteamRipРазработчик: NetherRealm Studios, QLOC, ShiverЖанр: Action, Arcade (Fighting)Язык озвучки: Английский, французский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D841A924B67664D15AA6453AE450A2203D02BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849206   (364505) от 17.10.2020
+
+Paint.NET plugins pack 17.10.2020 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка плагинов к Paint.NET .
+Paint.NET — бесплатный растровый графический редактор рисунков и фотографий для Windows.Paint.NET является отличной заменой редактору графических изображений, входящему в состав стандартных программ операционных систем Windows. Эффекты и плагины значительно расширяют возможности Paint.NET . Некоторые плагины имеют русский интерфейс.Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851818F998A9190ACAAF27706C4A35D97997FCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836232   (363549) от 31.10.2014
+
+NBA 2K15 [PS3] [USA] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363549.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2013 году симулятор баскетболаТип издания: ЛицензияРазработчик: Visual ConceptsЖанр: Sport (Basketball) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7AC5A6D9F23FC80789B01430C56517B7EE459E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154379   (363492) от 22.11.2009
+
+King's Bounty: Armored Princess / King's Bounty: Принцесса в доспехах [Ru] (RePack) 2009 | a1chem1st
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_363492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая приключенческая ролевая игра — долгожданное продолжение саги «King's Bounty. Легенда о рыцаре». В роли принцессы Амели игрок отправится в мир Теаны, где героине предстоит отыскать прославленного рыцаря и своего наставника Билла Гилберта.
+
+Новый мир полон неведомых опасностей: на пути принцессы станут армии ужасных монстров, огромные чудовища-боссы и раса кровожадных (   Читать дальше...   )Тип издания: LРазработчик: Katauri InteractiveЖанр: Add-on (Standalone) / RPG / Strategy (Turn-based) / 3rd PersonЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255233   (363452) от 18.10.2018
+
+Председатель Комитета Госдумы по культуре Елена Ямпольская призвала "топить" интернет-пиратов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_363452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Е. Ямпольская сравнила пиратство в сети с морским и призвала «топить интернет-корабли»
+Председатель комитета Госдумы по культуре Елена Ямпольская («Единая Россия») сравнила интернет-пиратство с морским и призвала «топить корабли» на просторах интернета. Об этом она заявила в ходе проводимого в нижней палате парламента круглого стола «Совершенствование законодательных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571536   (363288) от 15.09.2022
+
+VPN Russia - VPN сервера в России v1.133 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и бесплатный Vpn Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения VPN с ключом 2048 бит.Тип издания: ProРелиз состоялся: 10 сент. 2022 г.Разработчик: AltAppsПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5854E3D0D60C73446FAE72BC88D6E99BB485AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071024   (363245) от 08.11.2016
 
 Adobe InDesign CC 2017.0 12.0.0.81 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +166,7 @@ Adobe InDesign CC 2017.0 12.0.0.81 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363245.jpg" />
+  <img src="Z:/picture/008/save_picture_363245.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Borderlands 2 (2014) [PSVita] [USA] 3.50 [HENkaku] [Repack / 1.09 / 6 DLC] [Ru/E
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363242.jpg" />
+  <img src="Z:/picture/008/save_picture_363242.jpg" />
 </div>
 
 
@@ -59,7 +219,7 @@ Mem Reduct 3.3.3 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363065.jpg" />
+  <img src="Z:/picture/008/save_picture_363065.jpg" />
 </div>
 
 
@@ -85,7 +245,7 @@ Windows x86 x64 USB Release by StartSoft 26 2019 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362640.jpg" />
+  <img src="Z:/picture/008/save_picture_362640.jpg" />
 </div>
 
 
@@ -111,7 +271,7 @@ Assassin's Creed II / Assassin's Creed 2 (2010) [Ru] (1.01/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362284.jpg" />
+  <img src="Z:/picture/008/save_picture_362284.jpg" />
 </div>
 
 
@@ -137,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362283.jpg" />
+  <img src="Z:/picture/008/save_picture_362283.jpg" />
 </div>
 
 
@@ -163,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362282.jpg" />
+  <img src="Z:/picture/008/save_picture_362282.jpg" />
 </div>
 
 
@@ -191,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362280.jpg" />
+  <img src="Z:/picture/008/save_picture_362280.jpg" />
 </div>
 
 
@@ -217,7 +377,7 @@ USSDDualWidgetPro V1.0.19 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362252.jpg" />
+  <img src="Z:/picture/008/save_picture_362252.jpg" />
 </div>
 
 
@@ -243,7 +403,7 @@ Life Is Strange Complete Season (2015) [Ru/En/Fr] (1.0.0.371598) Repack R.G. Cat
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362245.jpg" />
+  <img src="Z:/picture/008/save_picture_362245.jpg" />
 </div>
 
 
@@ -269,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362244.jpg" />
+  <img src="Z:/picture/008/save_picture_362244.jpg" />
 </div>
 
 
@@ -296,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362236.jpg" />
+  <img src="Z:/picture/008/save_picture_362236.jpg" />
 </div>
 
 
@@ -322,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_362176.jpg" />
+  <img src="Z:/picture/005/save_picture_362176.jpg" />
 </div>
 
 
@@ -348,7 +508,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 Final (c) Xone [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_362156.jpg" />
+  <img src="Z:/picture/005/save_picture_362156.jpg" />
 </div>
 
 
@@ -376,7 +536,7 @@ Adobe Photoshop 2020 21.2.4.323 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362066.jpg" />
+  <img src="Z:/picture/008/save_picture_362066.jpg" />
 </div>
 
 
@@ -402,7 +562,7 @@ Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0) RePack Au
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362002.jpg" />
+  <img src="Z:/picture/008/save_picture_362002.jpg" />
 </div>
 
 
@@ -430,7 +590,7 @@ WYSIWYG Web Builder 11.2.4 + extensions + templates [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360686.jpg" />
+  <img src="Z:/picture/008/save_picture_360686.jpg" />
 </div>
 
 
@@ -456,7 +616,7 @@ Clean Master v5.8.8 - чистильщик-оптимизатор смартфо
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360525.jpg" />
+  <img src="Z:/picture/008/save_picture_360525.jpg" />
 </div>
 
 
@@ -482,7 +642,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/Multi] (191018) License PLAZA [Langu
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360463.jpg" />
+  <img src="Z:/picture/008/save_picture_360463.jpg" />
 </div>
 
 
@@ -508,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360457.jpg" />
+  <img src="Z:/picture/008/save_picture_360457.jpg" />
 </div>
 
 
@@ -519,164 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C859DF882FEA546082A035D05F40210D53C757E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328706   (360445) от 01.10.2019
-
-VideoHive - Birth Announcement - Baby Birthday Album - 19307377 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский проект, который может быть использован для демонстрации вашего малыша с 1-го дня рождения, как приглашение на день рождения ребёнка, в качестве детской фотогалереи, детского фотоальбома. Проект содержит две версии: для мальчика и девочки.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB4E3ED706EEF17BF493C4993A6816D34301529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177437   (360235) от 26.10.2017
-
-Мосгорсуд отказался освободить пресс-секретаря Роскомнадзора
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360235.jpg" />
-</div>
-
-
-###  Подробнее
-
-СК заподозрил пресс-секретаря Роскомнадзора в даче ложных показаний
-Сотрудники Следственного комитета уверены, что пресс-секретарь Роскомнадзора Вадим Ампелонский дает ложные показания по делу о мошенничестве. «Прошу приобщить к материалам дела показания свидетеля. Из них следует, что Ампелонский на данный момент дает ложные показания», — сказал следователь в среду (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177962   (359842) от 26.10.2017
-
-Mozilla Firefox 56.0.2 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C66EFE87A13A0FE27AED9577AA17746A04ED38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177794   (359833) от 26.10.2017
-
-TecDoc DVD Catalog 4Q.2017 Full [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359833.jpg" />
-</div>
-
-
-###  Подробнее
-
-TecDoc – это универсальный каталог автозапчастей с деревом поиска автозапчастей по моделям автомобилей, учитывая их различные модификации и комплектации. Не требует знание VIN. Возможен поиск по товарным группам автозапчастей и сборочным узлам. Осуществляет поиск автозапчасти по любым артикулам - по оригинальным номерам и по номерам производителей не оригинала.
- (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий (+27)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE2F8C7AB884A1C7378E196B5438858FA10F6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857504   (359822) от 26.10.2017
-
-[Highlight School] Маргарита Карева | Сказочная обработка в Photoshop (2014) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучающий курс от фотографа Маргариты Каревой. Состоит из восьми уроков, на каждом из которых Маргарита демонстрирует принципы обработки своих фотографий. Информация дается в доступной форме, в раздаче выложены испходные материалы для самостоятельной тренировки.Жанр: Фото, обработка фотоПродолжительность: 09:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2750ED89ED8AB995991DEDF6DA128CDE4E2F4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177788   (359821) от 26.10.2017
-
-Взрывная блондинка / Atomic Blonde (2017) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент Лоррейн Бротон, бриллиант в короне Секретной разведывательной службы Ее Величества, не просто мастер шпионажа: она бомбически сексуальна, взрывоопасна и использует весь арсенал своих уникальных умений во время невыполнимых миссий. В неспокойном Берлине, куда ее направляют с заданием вернуть бесценное досье, она вынуждена объединиться с агентом под прикрытием (   Читать дальше...   )Производство: Германия, Швеция, США, 87Eleven, Closed on Mondays Entertainment, Denver and Delilah Productions, Film i Vst, Focus Features, Sierra Pictures (III), T.G.I.M FilmsЖанр: Боевик, Триллер, ДетективРежиссер: Дэвид ЛитчАктеры: Шарлиз Терон, Джеймс МакЭвой, Эдди Марсан, Джон Гудман, Тоби Джонс, Джеймс Фолкнер, Роланд Мюллер, София Бутелла, Билл Скарсгард, Сэм Харгрейв, Тиль ШвайгерПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), Английские (Forced-хардсаб, Full)Продолжительность: 01:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D7CCFD253FBEFFE9B92EFEA95CAC80B42A9A65
 ```
 
 https://mybot314.ru/tekegram_catalog/

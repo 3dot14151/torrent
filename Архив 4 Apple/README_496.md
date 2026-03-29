@@ -1,3 +1,107 @@
+###  Публикация: 1537396   (243968) от 16.03.2022
+
+Multitouch 1.27.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 16.03.2022Разработчик: © 2022 Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CC80EEC757129BF039C47248861755EAEFE8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455302   (243962) от 18.03.2021
+
+PDF Search 11.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243962.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Search - это утилита, которая имеет революционный алгоритм поиска, специально разработанный для документов PDF. Время на получение информации в ваших документах PDF будет минимальным. Это позволит вам мгновенно найти то, что вы ищете в тысячах документов. Это система интегрирована. Вы можете начать поиск непосредственно из системного меню, например, Spotlight.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2021Разработчик: Muharrem OzkanПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860B5F3E996311EF154FFF9564980594BF820AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542124   (243954) от 05.04.2022
+
+Movavi Video Suite for Mac 2022 v22.2.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite 2022 - все для монтажа видео на macOS: создание видеороликов, конвертация файлов, запись экрана и многое другое. Удобный инструмент дистанционной работы и обучения.Тип издания: macOS SoftwareРелиз состоялся: 05.04.2022Разработчик: © 2022 Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBEFE5DB25CBD85BEC2E236ABF15B67B5BCE3CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537575   (243946) от 17.03.2022
+
+Artstudio Pro 4.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.03.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B496917A3BD50A032D5375C6A1825E71D76A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537652   (243932) от 17.03.2022
 
 Omni Recover 3 v3.2.6 [En]
@@ -6,7 +110,7 @@ Omni Recover 3 v3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243932.jpg" />
+  <img src="Z:/picture/004/save_picture_243932.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ iCollections 6 v6.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243913.jpg" />
+  <img src="Z:/picture/004/save_picture_243913.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Better Trash 1.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243900.jpg" />
+  <img src="Z:/picture/004/save_picture_243900.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ MarkMyWords 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243892.jpg" />
+  <img src="Z:/picture/004/save_picture_243892.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ EditReady 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243879.jpg" />
+  <img src="Z:/picture/004/save_picture_243879.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Text Scanner - PDF & Document 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243871.jpg" />
+  <img src="Z:/picture/004/save_picture_243871.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ SyncBird Pro 3.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243864.jpg" />
+  <img src="Z:/picture/004/save_picture_243864.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Data Extractor 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243863.jpg" />
+  <img src="Z:/picture/004/save_picture_243863.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ Things 3 v3.17.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243853.jpg" />
+  <img src="Z:/picture/004/save_picture_243853.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Bartender 4 v4.0.44 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243844.jpg" />
+  <img src="Z:/picture/004/save_picture_243844.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ Integrity Plus 12.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243832.jpg" />
+  <img src="Z:/picture/004/save_picture_243832.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ BetterDisplay Pro for Mac 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243831.jpg" />
+  <img src="Z:/picture/004/save_picture_243831.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243828.jpg" />
+  <img src="Z:/picture/004/save_picture_243828.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ Oka Unarchiver - Unzip ZIP RAR 2.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243823.jpg" />
+  <img src="Z:/picture/004/save_picture_243823.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ Soulver 3 v3.4.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243818.jpg" />
+  <img src="Z:/picture/004/save_picture_243818.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ Integrity Pro 12.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243815.jpg" />
+  <img src="Z:/picture/004/save_picture_243815.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ Screenium 3 v3.2.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243809.jpg" />
+  <img src="Z:/picture/004/save_picture_243809.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ Mitti 1.5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243802.jpg" />
+  <img src="Z:/picture/004/save_picture_243802.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ Cisdem PDFCompressor 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243720.jpg" />
+  <img src="Z:/picture/004/save_picture_243720.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ Cisdem PDFPasswordRemover 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243698.jpg" />
+  <img src="Z:/picture/004/save_picture_243698.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ Feeder 3 v3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243687.jpg" />
+  <img src="Z:/picture/004/save_picture_243687.jpg" />
 </div>
 
 
@@ -567,7 +671,7 @@ Cisdem Duplicate Finder 4 v4.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243676.jpg" />
+  <img src="Z:/picture/004/save_picture_243676.jpg" />
 </div>
 
 
@@ -580,113 +684,6 @@ Cisdem Duplicate Finder - поиск дубликатов и их удалени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1D5C02B35E4B4AF489E424B74510D50CA80D7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455767   (243649) от 20.03.2021
-
-Display Maid 3.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Maid позволяет сохранять и восстанавливать расположение окон в зависимости от конфигурации дисплея. Если у вас есть ноутбук, который вы используете с одним или несколькими внешними дисплеями, и вам надоело переставлять окна каждый раз при подключении / отключении дисплея, тогда Display Maid для вас.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2021Разработчик: Funk-iSoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1EED509F6BAA174DD91EF4E2F4BFB1190551EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538117   (243648) от 19.03.2022
-
-Yate 6.9.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5DCEBC26DC6C2CE1E246605A3375AA0660283E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538091   (243638) от 19.03.2022
-
-DoYourData AppUninser Pro 5.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243638.jpg" />
-</div>
-
-
-###  Подробнее
-
-DoYourData AppUninser - очень мощный, но простой в использовании деинсталлятор Mac. Он может полностью удалить приложения, удалить связанные файлы и очистить все, что осталось. Он может полностью удалить даже самые «упрямые» приложения, аварийные программы, плагины, виджеты и панели настроек с вашего Mac. DoYourData AppUninser также может удалять ненужные языковые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2022Разработчик: © 2021 DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AE0733525D100BD8BF65735E56E51BEB26DE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455675   (243626) от 20.03.2021
-
-VideoDuke 1.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
-Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши. Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2021Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0F962F14848B476516394A5970C22450C957B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

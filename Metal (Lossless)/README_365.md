@@ -1,3 +1,90 @@
+###  Публикация: 1783301   (69821) от 05.03.2025
+
+Mercury Tide - Walls Of Confusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Awakening (02:24)
+ 02. Walls Of Confusion (06:07)
+ 03. House Of Horror (05:05)
+ 04. Crimson (05:27)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63C90E4EF2445BDA256FCFF470AE817B328CCF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783698   (69765) от 07.03.2025
+
+Delain - Dance With The Devil (2024) Japanese Edition [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance with the Devil
+02. The Reaping
+03. Sleepwalkers Dream (2024 Version)
+04. The Cold (Live)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A086FB6CB79F7B4C98823778C41717431829FC11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783518   (69746) от 07.03.2025
+
+Lightning Swells Forever - Delirium (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hanged Man [00:05:18]
+02. Daze [00:04:36]
+03. Caldron [00:04:44]
+04. Green Tide [00:07:33](   Читать дальше...   )Жанр: Doom Metal, Hard RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB730C777B729C4D886F9673765874658E06BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783705   (69745) от 07.03.2025
 
 The 7th Guild - Triumviro (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
@@ -6,7 +93,7 @@ The 7th Guild - Triumviro (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69745.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Destruction - Birth of Malice (2025) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69740.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lacrimosa - Lament (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark Wave
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69728.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Roadrunner United - The Concert (2023) 2 x CD [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69695.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Dream Theater - Old Bridge, New Jersey (1996) 2 x CD, Reissue, Special Edition, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69630.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Drunkskull - Realive (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69602.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Edge of Paradise - Prophecy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69591.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Irony Of Fate - Equinox (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69573.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Jinjer - Duel (2025) [FLAC|Lossless|tracks + .cue] <Metalcore, Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69560.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Saor - Origins (2022) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69555.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Rainbows Are Free - Silver And Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69526.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Warbringer - Wrath And Ruin (2025) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69492.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Dark Horizon - 9 Ways To Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69452.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Impurity - The Eternal Sleep (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69409.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Athiel - Maw of the Curse (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69408.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Darghl - Satan Obscure. Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69405.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Tierra Santa - Todos Somos Uno (2023) 2 x CD [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69397.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Death Angel - The Enigma Years (1987 - 1990) (2020) Box Set, Compilation, Reissu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69349.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Wombbath - Beyond the Abyss (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69294.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Soulspell - Spirits of Ghosts (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69271.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Dirkschneider - Balls to the Wall Reloaded (2025) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69261.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Opertus - Golden Shade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69249.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Riot - Archives Volume 4 : 1988-1989 (2019) Compilation [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69233.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Riot - Archives Volume 4 : 1988-1989 (2019) Compilation [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56ACC24776089AC6D1DBDF9D110555DE36A208A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785492   (69228) от 16.03.2025
-
-Himmelkraft - Himmelkraft (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Pages of History (Opening) (00:00:26)
-02 - Full Steam Ahead (00:05:10)
-03 - Uranium (00:04:54)
-04 - Paika (00:04:56)(   Читать дальше...   )Жанр: Power, Symphonic MetalПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999042AE74C69DE082C49C48D3BA680117FC4148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785396   (69223) от 16.03.2025
-
-Rioghan - Kept (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dreams (00:04:15)
-02 - Hands (00:04:34)
-03 - Skin (00:04:26)
-04 - Edge (00:04:27)(   Читать дальше...   )Жанр: Gothic, Progressive MetalПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB12752666D17E6DEACA85889FF342D08BC155A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785346   (69222) от 16.03.2025
-
-Erocis - The Sunken Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Awakening in the Starry Night
-02 - Follow the Stars
-03 - Through the Dark Forest
-04 - Passage to the Sunken Lands(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB72A5F44E72638AF2C64968EB6D5036B8664064
 ```
 
 https://mybot314.ru/tekegram_catalog/

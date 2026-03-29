@@ -1,3 +1,61 @@
+###  Публикация: 1120988   (800601) от 02.04.2017
+
+VA - Лучшая дискотека на Europa Plus. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vavan Aka Вова Селиванов - Хулиганка 3:36
+002. Мария Миа - Я Буду 2:50
+003. Mainstream One - Нам Солнце Светит Ярче 3:00
+004. Регина Тодоренко - Не Обижу 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DCB313235FADCA32EA74F871DFE7F8887E9DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120971   (800555) от 02.04.2017
+
+VA - Музыкальный подарок от Европы Плюс. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирма Нойман - Я Буду 2:51
+002. Ольга Орлова - Девушка Простая 3:35
+003. А-Студио - Только С Тобой 4:19
+004. Майк Павлов - Лайки 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BFFFDAED399C0AECEFB3902FC50B1A3733000C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121171   (800545) от 02.04.2017
 
 VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
@@ -6,7 +64,7 @@ VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800545.jpg" />
+  <img src="Z:/picture/008/save_picture_800545.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Весенняя 100-ка популярных треков выпуск �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800502.jpg" />
+  <img src="Z:/picture/008/save_picture_800502.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Только хиты. Русский сборник от Хит fm вып�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800382.jpg" />
+  <img src="Z:/picture/008/save_picture_800382.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - German Top 100 Single Charts 22.05.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800341.jpg" />
+  <img src="Z:/picture/008/save_picture_800341.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Новогодний Торт (2017) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800150.jpg" />
+  <img src="Z:/picture/008/save_picture_800150.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Весенняя танцевальная вечеринка. Выпуск 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800014.jpg" />
+  <img src="Z:/picture/008/save_picture_800014.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - German Top 100 Single Charts 29.10.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800007.jpg" />
+  <img src="Z:/picture/008/save_picture_800007.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - German Top 100 Single Charts 07.01.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799847.jpg" />
+  <img src="Z:/picture/008/save_picture_799847.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799645.jpg" />
+  <img src="Z:/picture/008/save_picture_799645.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Halloween Pop (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799090.jpg" />
+  <img src="Z:/picture/008/save_picture_799090.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Sound Color: Popular Dance Music (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798833.jpg" />
+  <img src="Z:/picture/008/save_picture_798833.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Hymn For The Weekend (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798436.jpg" />
+  <img src="Z:/picture/008/save_picture_798436.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Вспомним 90-2000 от Виталия 72 - 4 (2016) [MP3|320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797574.jpg" />
+  <img src="Z:/picture/008/save_picture_797574.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - German Top 100 Single Charts 19.01.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797495.jpg" />
+  <img src="Z:/picture/008/save_picture_797495.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797221.jpg" />
+  <img src="Z:/picture/008/save_picture_797221.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - De Top 100 Aller Tijden 1977 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796912.jpg" />
+  <img src="Z:/picture/008/save_picture_796912.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Зайцев нет. Лучшие новинки апреля (2016) [MP3|1
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796877.jpg" />
+  <img src="Z:/picture/008/save_picture_796877.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Попсовый армагедон от Русского радио (2016)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796307.jpg" />
+  <img src="Z:/picture/008/save_picture_796307.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796174.jpg" />
+  <img src="Z:/picture/008/save_picture_796174.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - My Beath Summer: Pop Musical Collection (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796168.jpg" />
+  <img src="Z:/picture/008/save_picture_796168.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795954.jpg" />
+  <img src="Z:/picture/008/save_picture_795954.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Midnight Rhythm Disco: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795874.jpg" />
+  <img src="Z:/picture/008/save_picture_795874.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - 100 Greatest 00s Pop Hits (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795796.jpg" />
+  <img src="Z:/picture/008/save_picture_795796.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Новая Русская Дискотека - 2 (2016) [MP3|320 кб/с] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795415.jpg" />
+  <img src="Z:/picture/008/save_picture_795415.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Новая Русская Дискотека - 2 (2016) [MP3|320 кб/с] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13B7223E3810C84F45E865D3AF074729097CBE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200728   (795383) от 21.01.2018
-
-VA - Итоговый Еврохит TOP-100 от Европа Плюс за 2017 год (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795383.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rag'n'Bone Man - Human (03:19)
-002. Kaleo - Way Down We Go (03:40)
-003. Luis Fonsi feat. Daddy Yankee - Despacito (03:48)
-004. Ed Sheeran - Shape Of You (03:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F9076BB4BE79963A767BE3CE6B8F8063E1657F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386239   (795271) от 28.05.2020
-
-VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hardcore>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Iyf - Yade
-002. Francesco Zeta - Different Side
-003. Radical Redemption - Born Killers
-004. Vandal!Sm - Drums Of War(   Читать дальше...   )Жанр: Hard Dance, HardcoreПродолжительность: 08:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

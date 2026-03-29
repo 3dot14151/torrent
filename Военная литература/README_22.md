@@ -1,3 +1,29 @@
+###  Публикация: 902719   (658963) от 30.05.2015
+
+Ольга Кузьменко и др. | Знаменитые загадки истории (2014) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многовековая история человечества хранит множество загадок. Эта книга поможет читателю приоткрыть завесу над тайнами исторических событий и явлений различных эпох – от древнейших до наших дней, расскажет о судьбах многих легендарных личностях прошлого: короля Макбета, Жанны д’Арк, Екатерины Медичи, Александра I и Наполеона. Здесь вы найдете новые интересные версии (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D10BA9806ECDAB03C63EEDF34EFA0E3F159B2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515296   (657121) от 25.06.2012
 
 Джек Хиггинс, Ивен Монтегю | Операция «Адлер» [1991] [DJVU]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657121.jpg" />
+  <img src="Z:/picture/008/save_picture_657121.jpg" />
 </div>
 
 
@@ -38,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656783.jpg" />
+  <img src="Z:/picture/008/save_picture_656783.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656669.jpg" />
+  <img src="Z:/picture/008/save_picture_656669.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656666.jpg" />
+  <img src="Z:/picture/008/save_picture_656666.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656663.jpg" />
+  <img src="Z:/picture/008/save_picture_656663.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656571.jpg" />
+  <img src="Z:/picture/008/save_picture_656571.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656565.jpg" />
+  <img src="Z:/picture/008/save_picture_656565.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656437.jpg" />
+  <img src="Z:/picture/008/save_picture_656437.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655736.jpg" />
+  <img src="Z:/picture/008/save_picture_655736.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655299.jpg" />
+  <img src="Z:/picture/008/save_picture_655299.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654705.jpg" />
+  <img src="Z:/picture/008/save_picture_654705.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654136.jpg" />
+  <img src="Z:/picture/008/save_picture_654136.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653194.jpg" />
+  <img src="Z:/picture/008/save_picture_653194.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653092.jpg" />
+  <img src="Z:/picture/008/save_picture_653092.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651454.jpg" />
+  <img src="Z:/picture/008/save_picture_651454.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651452.jpg" />
+  <img src="Z:/picture/008/save_picture_651452.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651450.jpg" />
+  <img src="Z:/picture/008/save_picture_651450.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651447.jpg" />
+  <img src="Z:/picture/008/save_picture_651447.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651362.jpg" />
+  <img src="Z:/picture/008/save_picture_651362.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_650737.jpg" />
+  <img src="Z:/picture/005/save_picture_650737.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650476.jpg" />
+  <img src="Z:/picture/008/save_picture_650476.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650349.jpg" />
+  <img src="Z:/picture/008/save_picture_650349.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649712.jpg" />
+  <img src="Z:/picture/008/save_picture_649712.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649544.jpg" />
+  <img src="Z:/picture/008/save_picture_649544.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647690.jpg" />
+  <img src="Z:/picture/008/save_picture_647690.jpg" />
 </div>
 
 
@@ -662,33 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C982C82856FB6908A7EE6710BDE6B8C2942CD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032120   (647390) от 06.07.2016
-
-Д. О. Хвостова (ред) | Бусидо. Путь воина (2016) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647390.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бусидо» - так называли в древней Японии свод правил и установлений, регламентирующих поведение и повседневную жизнь самураев - профессиональных воинов, определявших историю своей страны на протяжении веков.
- Это философия и этика японского воина, которая произошла из далекого прошлого. Бусидо, которое первоначально объединяло общие воинские законы, благодаря введенному (   Читать дальше...   )Жанр: Теория военного искусства, Восточная философияПеревод: Ирина МизининаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596C1FB4586029E0AA7455A947127403BC505BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

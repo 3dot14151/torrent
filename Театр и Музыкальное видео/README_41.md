@@ -1,3 +1,172 @@
+###  Публикация: 658863   (803299) от 21.05.2013
+
+Сборник клипов - VA - Various Music part. 42 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5ive Star - More 720p (3:28)
+2. Alex M. - Greatest DJ 1080p (3:10)
+3. Aligator - Be With You (feat. Sarah West) 1080p (4:22)
+4. Andreea D - Magic Love 1080p (3:53)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0546A9A4C7FF245C60843A0F1D5DA58E73F78EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009153   (802121) от 25.04.2016
+
+Був'е - Влюбленные / Був'є - Закохані (2016) WEB-DL [H.264/2160p] [4K]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сети появился клип группы «Був'є» и Александра Положинского на песню «Закохані». Эта композиция является официальным саундтреком фильма «Жива» режиссера Тараса Химича. На данный момент создатели картины держат сюжет в секрете. «Это история женщины, а не о войне, хотя автоматы там есть», - говорит Химич.Производство: УкраинаЖанр: РокРежиссер: Тарас ХимичПродолжительность: 00:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691C0C8B62F91831FFB166D47278471F17A93686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010573   (802029) от 25.04.2016
+
+Andrea Bocelli - Cinema (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версия нового альбома Андреа Бочелли "Cinema". Когда слушаешь записи Андреа Бочелли, поражаешься удивительной энергетике его голоса и манере исполнения. Казалось, что певец вновь и вновь проживает моменты мелодраматичных и романтических историй, о которых повествует его музыкальный репертуар. Голос Бочелли в буквальном смысле заставляет умирать и воскресать (   Читать дальше...   )1. "Maria" from West Side Story
+2. "Nuovo Cinema Paradiso" from Cinema Paradiso
+3. "Moon River" from Breakfast at Tiffany's
+4. "Cheek to Cheek" from Top Hat(   Читать дальше...   )Жанр: Classical crossover, Pop, OperaЯзык субтитров: АнглийскийПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51291579328B21ECCEA05CB2A770E74DE180B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120528   (801961) от 31.03.2017
+
+Александр Гладков - До новых встреч! (1973) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801961.jpg" />
+</div>
+
+
+###  Подробнее
+
+По пьесе Александра Константиновича Гладкова.
+Действие проходит в годы Великой Отечественной Войны. По-разному складываются судьбы двух подруг - Люси и Люки. Люся - человек цельный и постоянный в своих привязанностях. Люка, возлагая надежды лишь на свою красоту, стремилась любыми средствами достигнуть избранной цели - стать артисткой. Вновь встретились подруги после (   Читать дальше...   )Жанр: Телеспектакль, экранизацияРежиссер: Юрий СергеевАктеры: Нина Русланова, Марианна Вертинская, Екатерина Васильева (VI), Андрей Мартынов, Николай Волков мл., Всеволод Платов, Григорий Лямпе, Юрий ЛихачевСубтитры: отсутствуютПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC0223E2EDF09506E0CEE9871785CB298ABB162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616395   (801959) от 25.04.2016
+
+Группа Стаса Намина “Цветы” - Лучшие песни за 30 лет. Юбилейный концерт (2001) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный концерт группы «Цветы» посвящённый 30 летию их деятельности на сцене, записанный в янвяре 2001 года в концертном зале «Россия» с участием музыкантов, работавших в группе "Цветы" в 1970-2000 гг., и друзей группы. Друзья и специальные гости концерта (те, кто пел/подпевал): Андрей Макаревич, Николай Носков, Дмитрий Ревякин, Алексей Романов, Андрей (   Читать дальше...   )01. Есть глаза у цветов (О.Фельцман, Р.Гамзатов)
+02. Больше жизни (В.Семенов Л.Дебренев)
+03. Не надо (С.Дьячков О.Гаджикасимов)
+04. Звездочка моя ясная (В.Семенов О.Фокина)(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:05:58 + 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9404DC8F12A337490273A482D21886B6A82EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199101   (801633) от 15.01.2018
+
+Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801633.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+105 50 Cent - Candy Shop
+106 Лигалайз - Моя Москва
+107 Trick Trick & Eminem - Welcome 2 Detroit(   Читать дальше...   )Жанр: Rap, Hip hopФормат: MKVПродолжительность: 03:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536B9952B36CE79FEB6DD7F68545F8A7B4B6EA46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506061   (801397) от 29.10.2021
 
 ВИА "Самоцветы" Фильм-концерт (1973) TVRip [H.264] [handmade AI colored]
@@ -6,7 +175,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801397.jpg" />
+  <img src="Z:/picture/008/save_picture_801397.jpg" />
 </div>
 
 
@@ -36,7 +205,7 @@ Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801042.jpg" />
+  <img src="Z:/picture/008/save_picture_801042.jpg" />
 </div>
 
 
@@ -62,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800806.jpg" />
+  <img src="Z:/picture/008/save_picture_800806.jpg" />
 </div>
 
 
@@ -90,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800571.jpg" />
+  <img src="Z:/picture/008/save_picture_800571.jpg" />
 </div>
 
 
@@ -116,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800442.jpg" />
+  <img src="Z:/picture/008/save_picture_800442.jpg" />
 </div>
 
 
@@ -143,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800371.jpg" />
+  <img src="Z:/picture/008/save_picture_800371.jpg" />
 </div>
 
 
@@ -169,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800116.jpg" />
+  <img src="Z:/picture/008/save_picture_800116.jpg" />
 </div>
 
 
@@ -195,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799558.jpg" />
+  <img src="Z:/picture/008/save_picture_799558.jpg" />
 </div>
 
 
@@ -222,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799177.jpg" />
+  <img src="Z:/picture/008/save_picture_799177.jpg" />
 </div>
 
 
@@ -249,7 +418,7 @@ Yello - Live At Montreux Jazz Festival (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798935.jpg" />
+  <img src="Z:/picture/008/save_picture_798935.jpg" />
 </div>
 
 
@@ -278,7 +447,7 @@ Alice Cooper - A Paranormal Evening At The Olympia Paris (2021) WEBRip [H.264/72
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798670.jpg" />
+  <img src="Z:/picture/008/save_picture_798670.jpg" />
 </div>
 
 
@@ -309,7 +478,7 @@ Yello - Live in Berlin (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798389.jpg" />
+  <img src="Z:/picture/008/save_picture_798389.jpg" />
 </div>
 
 
@@ -338,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797960.jpg" />
+  <img src="Z:/picture/008/save_picture_797960.jpg" />
 </div>
 
 
@@ -364,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797775.jpg" />
+  <img src="Z:/picture/008/save_picture_797775.jpg" />
 </div>
 
 
@@ -390,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797762.jpg" />
+  <img src="Z:/picture/008/save_picture_797762.jpg" />
 </div>
 
 
@@ -416,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796792.jpg" />
+  <img src="Z:/picture/008/save_picture_796792.jpg" />
 </div>
 
 
@@ -442,7 +611,7 @@ Masami Okui - V-mode ~10th Anniversary~ Disc 1 (2003) DVDRip [H.264/480p]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796596.jpg" />
+  <img src="Z:/picture/008/save_picture_796596.jpg" />
 </div>
 
 
@@ -471,7 +640,7 @@ David Gilmour - In Concert (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796137.jpg" />
+  <img src="Z:/picture/008/save_picture_796137.jpg" />
 </div>
 
 
@@ -500,7 +669,7 @@ Wink Live. ДДТ - История звука (22.05.2020) WEBRip [H.264/1080p-L
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795777.jpg" />
+  <img src="Z:/picture/008/save_picture_795777.jpg" />
 </div>
 
 
@@ -526,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795532.jpg" />
+  <img src="Z:/picture/008/save_picture_795532.jpg" />
 </div>
 
 
@@ -537,172 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00BAF76CA66B23D15EBC50737F1AC327479DFA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274196   (794860) от 05.01.2019
-
-Hymn - Sarah Brightman in Concert (2018) DVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-концерт Sarah Brightman, снятый 21.09.2018г в зале Ludwigs Festspielhaus (Fussen, Bavaria, Germany). Фильм демонстрировался во многих кинотеатрах (в т.ч. в 450 залах США) 8.11.2018, предваряя выход 15-го альбома исполнительницы "Hymn". Всемирное турне в поддержку альбома стартовало 24.11.2018г в Сан-Пауло (Бразилия), в программе тура предполагается (   Читать дальше...   )Act 1.Hymn - The Opera
-01.Gothica
-02.Fleurs Du Mal
-03.Stranger In Paradise(   Читать дальше...   )Производство: Music Delight Productions GmbHЖанр: Pop, Classical CrossoverРежиссер: Gerd F.SchultzeАктеры: Sarah BrightmanПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61251BA4F6892CA468867BE235C74D79F40CFD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274326   (794091) от 06.01.2019
-
-Квартирник НТВ у Маргулиса. Незваные гости (31.12.2018) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794091.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту новогоднюю ночь телеканал НТВ пригласил всех зрителей на новогодний «Квартирник НТВ у Маргулиса», где выступили очень необычные гости. Музыканты, которых не пригласили на гламурные голубые огоньки, устроили крутую вечеринку, где не нашлось места попсе.
-На рок-квартирнике с живым звуком собрались старые друзья Евгения Маргулиса: Гарик Сукачёв, Юрий Шевчук, Сергей (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72000B7D49D0783EEA32E5980400A0F85A39C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274228   (793940) от 06.01.2019
-
-Квартирник НТВ у Маргулиса - Новогодний выпуск - Незваные гости (2018) DVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний «Квартирник НТВ у Маргулиса», на котором выступили «незваные», но очень желанные гости. "Неформатные" музыканты, которых, как правило, не встретить на «голубых огоньках» ТВ-каналов, устроили вечеринку, где не было места попсе и гламуру. На рок-квартирнике с живым звуком собрались старые друзья Евгения Маргулиса: Гарик Сукачёв, Юрий Шевчук, Сергей (   Читать дальше...   )01.Вступление
-02.Крематорий и Артур Смольнинов - 2001
-03.Гарик Сукачев и Шпионы забытых хитов - Уносит
-04.Jukebox Trio и Оркестр волынщиков Сity Pipes - Стаканы(   Читать дальше...   )Производство: АО Телекомпания НТВЖанр: русский рокРежиссер: Кирилл ПапакульАктеры: Евгений Маргулис, Гарик Сукачёв, Юрий Шевчук, Сергей Галанин, Сергей Чиграков, «Чайф», «Крематорий», «Мельница» и др.Перевод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 02:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEF7D530793BC8FE01C14619F081BECCDAD78B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201166   (793886) от 23.01.2018
-
-Ken Hensley with Live Fire in Concert & The Making of «Blood On The Highway» (2007) DVD9+DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Кена Хенсли навсегда войдет в историю рок-музыки как первого настоящего хитмейкера классической британской хард-роковой сцены 70-х. В этом концерте главной движущей силы, музыкального лидера, харизматичного клавишника и гитариста «Uriah Heep» периода 70-х годов с группой «The Viking All-stars Band», (позже переименованной им в «Live Fire») сделан упор на композиции (   Читать дальше...   )Disc 1
-Live Fire:
-01. Intro
-02. Out Of My Control(   Читать дальше...   )Производство: Германия, Membran Music LtdЖанр: Классический рок, хард-рокПеревод: Одноголосый закадровыйСубтитры: Английские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683FB092D1D23A2188991A02AF0382B2F8A3E78A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509770   (793852) от 13.11.2021
-
-Marilyn Manson: Guns, God and Government (2002) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись последнего концерта в Калифорнии, в Лос-Анджелесе в 2001 году в рамках мирового тура Guns, God and Government World Tour, прошедшего 2000-2001 гг в США, России, Японии, Польше.Производство: США / Marilyn Manson Records Inc.Жанр: Industrial metal, Industrial rock, Alternative metal, Hard rock, Glam rock, Shock rockАктеры: Мэрилин Мэнсон, Джон 5, Джорди Уайт, Мадонна Уэйн Гейси, Джинджер Фиш, Тэмми Фэй Баккер, Duncan BlackПеревод: ОтсутствуетПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A51AD4280237A78FA9BC4503A3D04433C3D5A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490854   (793489) от 23.01.2018
-
-Пикник: 30 Световых лет (2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцатилетний юбилей группы Пикник - хороший повод, чтобы «вспомнить все», а точнее исполнить все те песни, которые составили не только квинтэссенцию творчества Пикника, но и вошли в золотой фонд Русского рока. На юбилейном концерте, состоявшемся в Ледовом дворце, на глазах восьми тысяч зрителей, ожили фантастические персонажи песен Эдмунда Шклярского. Это и Гигант (   Читать дальше...   )Жанр: РокРежиссер: Марат КорчемныйАктеры: Эдмунд Шклярский, Леонид Кирнос, Марат Корчемный, Станислав Шклярский, Вадим СамойловПеревод: ОтсутствуетПродолжительность: 02:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352861D8169A1CA9FA40F810F6211C9058B5215A
 ```
 
 https://mybot314.ru/tekegram_catalog/

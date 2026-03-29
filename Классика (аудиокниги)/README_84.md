@@ -1,3 +1,116 @@
+###  Публикация: 321835   (63836) от 06.03.2024
+
+Эрнст Теодор Амадей Гофман | Песочный человек (2004) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрнст Теодор Амадей Гофман (1776–1822) – немецкий писатель-романтик, композитор и художник, один из основоположников сказочной фантастики.
+В повести «Песочный человек» её герой Натанаэль – одержим паническим страхом перед внешним миром, и эта миробоязнь постепенно приобретает болезненный, по сути, клинический характер. Невеста Натанаэля Клара пытается образумить (   Читать дальше...   )Жанр: Зарубежная литература, классика, условно-фантастическая повестьИздательство: Вира-М (аудио)Продолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF32242B584A1E1F06502505A065376063B893D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372548   (63763) от 07.03.2024
+
+Оскар Уайльд | Саломея (Радиоспектакль) (2010) [MP3, Ольга Остроумова, Валентин Гафт и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у микрофона. Из фондов «Радио России».
+Оскар Уайльд (1854–1900) – ирландский писатель и поэт.
+Радиоспектакль по одноименной драме «Саломея» английского писателя Оскара Уайльда. «Саломея» Уайльда – возрождение поэтической драмы больших страстей, в которой любовь неотделима от смерти…
+Сюжет драмы основан на библейском рассказе о гибели Иоанна Крестителя.(   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаИздательство: Радио РоссииПродолжительность: 01:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC71CFDADDF5DE828E44D86ECE4835CBA31E758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372403   (63758) от 07.03.2024
+
+Оскар Уайльд | Портрет Дориана Грея (2006) [MP3, Юрий Доронин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика (АСТ).
+Перед вами – лучшее из творческого наследия великого Оскара Уайльда, произведение, дающее наиболее полное представление о его ярком, многогранном таланте.
+Единственный роман Уайльда – это история человека, сделавшего смыслом своего существования поиски новых, все более изощренных ощущений и впечатлений.
+Следуя по избранному (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Аудиокнига (АСТ)Продолжительность: 10:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFDB4F50239300D01233BD591692C6674E52CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372546   (63747) от 07.03.2024
+
+Оскар Уайльд | Саломея (2005) [MP3, Екатерина Семёнова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+Драма «Саломея» была написана основоположником западноевропейского декаданса Уайльдом в 1892 году специально для великой французской актрисы Сары Бернар. Премьера с ее участием состоялась в Париже в 1896 году, но вскоре постановка была запрещена французской цензурой.
+В основу драмы Уайльдом был положен библейский миф о Саломее – падчерице (   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаИздательство: Студия «АРДИС»Продолжительность: 01:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDDD7137C6BC8C10F789EEA3BAEE60A2D20675F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 308068   (63660) от 08.03.2024
 
 Генри Джеймс | Поворот винта. Зверь в чаще (2005) [MP3, Светлана Кузьмина]
@@ -6,7 +119,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63660.jpg" />
 </div>
 
 
@@ -34,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63641.jpg" />
 </div>
 
 
@@ -62,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63631.jpg" />
 </div>
 
 
@@ -89,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63630.jpg" />
 </div>
 
 
@@ -117,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63612.jpg" />
 </div>
 
 
@@ -145,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63607.jpg" />
 </div>
 
 
@@ -173,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63586.jpg" />
 </div>
 
 
@@ -201,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63549.jpg" />
 </div>
 
 
@@ -229,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63548.jpg" />
 </div>
 
 
@@ -257,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63532.jpg" />
 </div>
 
 
@@ -286,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63461.jpg" />
 </div>
 
 
@@ -313,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63447.jpg" />
 </div>
 
 
@@ -341,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63444.jpg" />
 </div>
 
 
@@ -367,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63395.jpg" />
 </div>
 
 
@@ -393,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63348.jpg" />
 </div>
 
 
@@ -421,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63346.jpg" />
 </div>
 
 
@@ -449,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63344.jpg" />
 </div>
 
 
@@ -477,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63343.jpg" />
 </div>
 
 
@@ -505,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63341.jpg" />
 </div>
 
 
@@ -533,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63327.jpg" />
 </div>
 
 
@@ -561,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63324.jpg" />
 </div>
 
 
@@ -589,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63321.jpg" />
 </div>
 
 
@@ -601,117 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E449F42B36EC686EDA712D5554A616DA1ACB10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291186   (63320) от 11.03.2024
-
-Михаил Волконский | Брат герцога (2011) [MP3, Маргарита Иванова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Историко–приключенческий роман «Брат герцога» Михаилом Николаевичем Волконским написан 1895 году, он рассказывает о триумфе и падении Густава Бирона – удачливого в службе, но несчастливого в любви генерал–аншефа, (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Нигде не купишьПродолжительность: 12:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD89B8C9DB3C137EF18E2A0FD1FEA336DBFFC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291500   (63312) от 11.03.2024
-
-Михаил Волконский | Кольцо императрицы (2009) [MP3, Юлия Мен]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Волконский Михаил Николаевич (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Роман «Кольцо императрицы» написан Михаилом Николаевичем Волконским в 1896 году, он состоит из двух произведений «Кольцо императрицы» и «Горсть бриллиантов». Роман «Кольцо (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 10:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE86597715F29507C2FA30CAB2D43307CE389F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291208   (63309) от 11.03.2024
-
-Михаил Волконский | Забытые хоромы (2007) [MP3, Галина Самойлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Роман «Забытые хоромы» написан Михаилом Николаевичем Волконским в 1910 году. События романа «Забытые хоромы» разворачиваются через два года после восшествия на престол (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 04:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D41934537F15957A8512269D95F233F2682E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291495   (63299) от 11.03.2024
-
-Михаил Волконский | Князь Никита Фёдорович (2009) [MP3, Борис Хасанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Роман «Князь Никита Фёдорович» написан Михаилом Николаевичем Волконским в 1914 году. Князь Никита Фёдорович Волконский происходил из знатного рода князей Волконских (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 07:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4075CB2E8F3C6E96AB485991329FAB1D3C4F43F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1410308   (435792) от 21.09.2020
+
+Картинки - Super mix wallpapers 592 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435792.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1600x1200-7680x4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD70783109634CD1958BE0A42AC8D14F4D4ACF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552867   (435691) от 01.10.2012
 
 [Рисованая графика]Artworks by Валерия Барыкина
@@ -6,7 +32,7 @@
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435691.jpg" />
+  <img src="Z:/picture/008/save_picture_435691.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Desktop Wallpapers Full HD. Part (510) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435660.jpg" />
+  <img src="Z:/picture/008/save_picture_435660.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Ultra HD 3840x2160 Wallpaper Pack 399 [JPG, PNG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435654.jpg" />
+  <img src="Z:/picture/008/save_picture_435654.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (266) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435649.jpg" />
+  <img src="Z:/picture/008/save_picture_435649.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (267) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435647.jpg" />
+  <img src="Z:/picture/008/save_picture_435647.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (268) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435629.jpg" />
+  <img src="Z:/picture/008/save_picture_435629.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435304.jpg" />
+  <img src="Z:/picture/008/save_picture_435304.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Wallpapers - Mix Full HD 14 [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435020.jpg" />
+  <img src="Z:/picture/008/save_picture_435020.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Wallpapers Кошачьи #63 [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433793.jpg" />
+  <img src="Z:/picture/008/save_picture_433793.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Wallpapers Кошачьи #64 [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433779.jpg" />
+  <img src="Z:/picture/008/save_picture_433779.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Wallpaper pack - Abstraction 41 [JPG, PNG]
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433676.jpg" />
+  <img src="Z:/picture/008/save_picture_433676.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433580.jpg" />
+  <img src="Z:/picture/008/save_picture_433580.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431654.jpg" />
+  <img src="Z:/picture/008/save_picture_431654.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431593.jpg" />
+  <img src="Z:/picture/008/save_picture_431593.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431557.jpg" />
+  <img src="Z:/picture/008/save_picture_431557.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431450.jpg" />
+  <img src="Z:/picture/008/save_picture_431450.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431437.jpg" />
+  <img src="Z:/picture/008/save_picture_431437.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431323.jpg" />
+  <img src="Z:/picture/008/save_picture_431323.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431296.jpg" />
+  <img src="Z:/picture/008/save_picture_431296.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431292.jpg" />
+  <img src="Z:/picture/008/save_picture_431292.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431249.jpg" />
+  <img src="Z:/picture/008/save_picture_431249.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430923.jpg" />
+  <img src="Z:/picture/008/save_picture_430923.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Wallpapers - Обои для рабочего стола - Разное (13000 �
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430143.jpg" />
+  <img src="Z:/picture/008/save_picture_430143.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429391.jpg" />
+  <img src="Z:/picture/008/save_picture_429391.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429338.jpg" />
+  <img src="Z:/picture/008/save_picture_429338.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EAA59A19E2FA514F551AA69B9A84AE6285D7214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571432   (429333) от 23.08.2022
-
-Фотография - ArtStation - Grafit Studio - 460+ Anime Girl Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет содержит более 460 эталонных изображений в высоком разрешении с женскими позами, вдохновленными персонажами аниме. В этом выпуске мы собрали множество поз в стиле аниме и включили большое количество ракурсов и несколько вариаций костюмов. В наборе также есть портреты крупным планом с выражениями персонажей и разным освещением. Это будет отличный инструмент (   Читать дальше...   )Формат: JPGРазрешение файлов: 2289x2639 - 5226x3548
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BA8ED1B518007AC84CE933DB5BED4223BAD0CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

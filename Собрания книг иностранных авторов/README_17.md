@@ -1,3 +1,83 @@
+###  Публикация: 1568860   (62625) от 18.03.2024
+
+Александр Дюма | Собрание сочинений в 100 томах (1992 - 2023)  [99 из 100] [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Дюма (1803-1870) - французский писатель, завоевавший любовь читателей приключенческими историческими романами. Литературное наследие писателя огромно: кроме романов, им написаны пьесы, воспоминания, путевые очерки и другие произведения самых различных жанров.Жанр: Историческая прозаИздательство: Арт-Бизнес-ЦентрФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD73DA57947A88EBA240DAB113C459341464BB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405056   (62191) от 22.03.2024
+
+Сандроне Дациери | Сборник произведений [6 книг] (2008-2024) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский беллетрист Сандроне Дациери шел к своему призванию путем проб и ошибок. Он окончил знаменитую школу кулинарного искусства в Бергамо, но десять лет работы шеф-поваром убедили его в том, что эта профессия - не по нему. Сандроне принялся колесить по Италии, был то продавцом, то грузчиком, то бутафором.
+Наконец он осел в Милане, где начал сотрудничать с различными (   Читать дальше...   )Жанр: Детектив, триллерИздательство: Азбука-Аттикус, Азбука-классика, ИностранкаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FEE87FE3EDCD14B8B4CE5F0C2D97A881885272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425442   (51358) от 02.07.2024
+
+Бернар Миньер | Сборник произведений [11 книг] (2012-2024) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бернар Миньер (Bernard Minier) - французский писатель, автор детективных бестселлеров. Бернар родился в Франции в 1960 году. Его детство прошло в предгорье Пиренеев, на юго-востоке Франции.
+В школе, когда учитель читал классу вслух "Робинзона Крузо" Дефо, Миньер решил, что станет писателем. Позже он открыл для себя Дойла и Верна, Азимова и Уэллса, Камю (   Читать дальше...   )Жанр: ТриллерИздательство: Эксмо, ДоминоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A399D5260AEEDFBB44629B581284C725E4EDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688434   (49662) от 18.07.2024
 
 Артуро Перес-Реверте | Сборник произведений [36 книг] (1995-2024) [FB2]
@@ -6,7 +86,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49662.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44228.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44055.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42392.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36225.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35968.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35739.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33677.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32348.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28531.jpg" />
 </div>
 
 
@@ -277,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27458.jpg" />
 </div>
 
 
@@ -305,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27246.jpg" />
 </div>
 
 
@@ -333,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24834.jpg" />
 </div>
 
 
@@ -359,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19299.jpg" />
 </div>
 
 
@@ -386,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9554.jpg" />
 </div>
 
 
@@ -412,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9528.jpg" />
 </div>
 
 
@@ -438,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8988.jpg" />
 </div>
 
 
@@ -465,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8819.jpg" />
 </div>
 
 
@@ -491,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8689.jpg" />
 </div>
 
 
@@ -517,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7910.jpg" />
 </div>
 
 
@@ -545,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7406.jpg" />
 </div>
 
 
@@ -571,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6665.jpg" />
 </div>
 
 
@@ -597,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6646.jpg" />
 </div>
 
 
@@ -609,87 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97DF373F05ECC13B940F7027F9D6B3B41C26A590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813724   (6632) от 21.08.2025
-
-Валерио Эванджелисти | Собрание произведений [6 книг] (2007-2025) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он, пожалуй, самый известный итальянский автор в области научной фантастики и фэнтези. После многих лет, которые он посвятил историческим исследовательским работам в университете Болоньи, где живёт и по сей день, в 1994 году он получил премию «Урания» за роман «Николас Эймерих, инквизитор». Фигура Николаса Эймериха, инквизитора XIV века, столь же умного, сколь и (   Читать дальше...   )Жанр: Фантастика, триллер, мистика, фэнтезиИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD9336BE06232BECE399A6D27C7802F592C5CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813878   (6478) от 22.08.2025
-
-Джеймс Дэшнер | Собрание произведений [17 книг] (2013-2024) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Дэшнер — американский писатель, известный прежде всего благодаря серии «Бегущий в лабиринте» (The Maze Runner). Его творчество ориентировано на подростков и молодежь (жанр Young Adult) и включает в себя антиутопии, научную фантастику, приключения и технотриллеры.
- Характерные черты прозы Дэшнера
-Интенсивный сюжет: быстрый темп, неожиданные повороты, постоянное (   Читать дальше...   )Жанр: Фантастика, приключенияИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8170312A8D14450A32119AAF3412C375A9EC7D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814003   (6301) от 23.08.2025
-
-Стивен Браст | Собрание произведений [26 книг] (1983-2025) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стивен Браст — американский писатель, известный прежде всего благодаря своему циклу «Влад Талтош», который сочетает фэнтези, детектив и элементы политического триллера. Его стиль — это остроумные диалоги, циничные герои, ирония и глубокие размышления о власти, морали и свободе.
-Если тебе нравятся миры, где магия сочетается с цинизмом, а герои — не рыцари в сияющих (   Читать дальше...   )Жанр: Фэнтези, фантастика, приключенияИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734D0D37E020A79766055800C9F98F91BACDD6F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

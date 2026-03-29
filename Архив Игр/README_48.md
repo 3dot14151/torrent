@@ -6,7 +6,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru] (RePack) 2011 | R.G. W
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471256.jpg" />
+  <img src="Z:/picture/008/save_picture_471256.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alan Wake Дилогия [Ru/En] (Repack) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471100.jpg" />
+  <img src="Z:/picture/008/save_picture_471100.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Black Mesa [Ru/En] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471077.jpg" />
+  <img src="Z:/picture/008/save_picture_471077.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dark Sector [Ru] (LossLess RePack) 2009 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470935.jpg" />
+  <img src="Z:/picture/008/save_picture_470935.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Twisted Metal [PS3] [ENG] [NTSC] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470923.jpg" />
+  <img src="Z:/picture/008/save_picture_470923.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SCP - Containment Breach [En] (RePack/0.3) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470907.jpg" />
+  <img src="Z:/picture/008/save_picture_470907.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ MotoGP 15 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470737.jpg" />
+  <img src="Z:/picture/008/save_picture_470737.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Dark Souls: Prepare To Die Edition [Ru/En] (Repack/1.0.0.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468545.jpg" />
+  <img src="Z:/picture/008/save_picture_468545.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Invisible, Inc. (2015) [Ru/En] (173288/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467991.jpg" />
+  <img src="Z:/picture/008/save_picture_467991.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Du Super Wario Bros [English] (2011) [Wii]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466577.jpg" />
+  <img src="Z:/picture/008/save_picture_466577.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ War for the Overworld (2015) [Ru/Multi] (1.2.1/dlc) Repack SpaceX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466293.jpg" />
+  <img src="Z:/picture/008/save_picture_466293.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Max Payne 3 [PS3] [RUS] [PAL] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466177.jpg" />
+  <img src="Z:/picture/008/save_picture_466177.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465948.jpg" />
+  <img src="Z:/picture/008/save_picture_465948.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Sorcerer King (2015) [En] (1.2) Repack leve1ord
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465935.jpg" />
+  <img src="Z:/picture/008/save_picture_465935.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464822.jpg" />
+  <img src="Z:/picture/008/save_picture_464822.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru] (1.02) RePack YelloSOFT [Delux
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464421.jpg" />
+  <img src="Z:/picture/008/save_picture_464421.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Borderlands 2 [En] (Repack/1.0) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464354.jpg" />
+  <img src="Z:/picture/008/save_picture_464354.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464317.jpg" />
+  <img src="Z:/picture/008/save_picture_464317.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Borderlands 2 [En] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464210.jpg" />
+  <img src="Z:/picture/008/save_picture_464210.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Prelude of the Chambered (2011) [En] (1.0) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464149.jpg" />
+  <img src="Z:/picture/008/save_picture_464149.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Jet Set Radio HD [En/Multi4] (L) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463922.jpg" />
+  <img src="Z:/picture/008/save_picture_463922.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Renowned Explorers: International Society (2015) [En] (1.0.192) SteamRip R.G. И
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463798.jpg" />
+  <img src="Z:/picture/008/save_picture_463798.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Tony Hawk's Pro Skater HD [En] (Repack) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462738.jpg" />
+  <img src="Z:/picture/008/save_picture_462738.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462375.jpg" />
+  <img src="Z:/picture/008/save_picture_462375.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ F1 2012 [En] (P) 2012 | FAIRLIGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462003.jpg" />
+  <img src="Z:/picture/008/save_picture_462003.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Pro Evolution Soccer 2013 [Ru/Multi6] (L) (2012) | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461883.jpg" />
+  <img src="Z:/picture/008/save_picture_461883.jpg" />
 </div>
 
 

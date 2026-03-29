@@ -1,3 +1,107 @@
+###  Публикация: 990611   (909241) от 26.02.2016
+
+Movavi Video Editor 11.3.0 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Editor - мощный и между тем достаточно простой видео редактор, позволяющий пользователю редактировать видео файлы, используя простой и дружелюбный пользовательский интерфейс. При помощи этого видео редактора, можно легко импортировать медиафайл, открыть файл DVD или 3D видео, а также записать видео или аудио поток.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A53D88559AC286275EF3683C98C46D40852B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990607   (909236) от 26.02.2016
+
+MathType 6.9b [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909236.jpg" />
+</div>
+
+
+###  Подробнее
+
+MathType — это мощный интерактивный инструмент, который кардинально меняет способ создания печатных и электронных документов, содержащих математические формулы. MathType может применяться вместе с любым текстовым и HTML-редактором, презентационной или издательской программой, и другими типами программного обеспечения - для создания формул в научных статьях, учебных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4CBD387015FCCF126B82C53BC695C34CB98857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990758   (909226) от 26.02.2016
+
+В центре внимания / Spotlight (2015) BDRip [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная на реальных событиях история журналистского расследования одного из самых громких в истории США секс-скандалов. Корреспонденты бостонской газеты разоблачают случаи педофилии, в которых обвиняются представители Церкви…Производство: США, КанадаЖанр: Триллер, Драма, Биография, ИсторияРежиссер: Том МакКартиАктеры: Марк Руффало, Майкл Китон, Рэйчел МакАдамс, Лив Шрайбер, Джон Слэттери, Стэнли Туччи, Брайан Д’Арси Джеймс, Елена Стайтелер, Джин Аморозо, Даг Мюррэй, Шэрон МакФарлэйн, Джейми Шеридан, Нил Хафф, Билли Крадап, Роберт Б. Кеннеди, Дуан Мюррэй, Брайан Чемберлен, Майкл Сирил Крейтон, Пол Гилфойл, Майкл КантримэнПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73163229665B4808E55473DDD918EDDB60CCF148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990882   (909217) от 26.02.2016
+
+Зачётный препод 2 / Fack ju Gohte 2 (2015) HDRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший грабитель, а ныне крутой препод в школе Гёте, Зеки Мюллер, обрел популярность среди учеников благодаря нетрадиционным методам преподавания. Не успел он заскучать, заполняя классные журналы и проверяя тетради, как его вовлекли в «войну школ»: для того, чтобы получить статус престижного учебного заведения, необходимо съездить с коррекционным классом старшеклассников (   Читать дальше...   )Производство: Германия, Constantin Film International, Constantin Film Produktion GmbH, Red Balloon FilmsЖанр: КомедияРежиссер: Бора ДагтекинАктеры: Элиас ЭмБарек, Йелла Хаазе, Каролина Херфурт, Катя Риман, Макс фон Гробен, Гизем Эмре, Арам Арами, Анна-Лена Кленке, Лукас Райбер, Руна ГрайнерПеревод: Дублированный (чистый звук)Продолжительность: 01:55:24Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD307EC477E1E56C2086074B3540FEE7F8DF284D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979711   (909209) от 26.02.2016
 
 Интерны (2016) DVB [MPEG-2] (сезон 14, серии 1-20 из 20)
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909209.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Garmin: Дороги России Топо 6.32 (FID 3332 + FID 4594) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908308.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Pendulum - 4 Albums, 1 Compilation, 13 Singles & EPs + Demos (2003-2011) [MP3|17
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907949.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907872.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907865.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907852.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907620.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907303.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ The Elder Scrolls V: Skyrim Legendary Edition + Falskaar (2011) [Xbox360] [Regio
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907294.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ BELOFF 2016.02.23 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907284.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907282.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Linux Mint Debian Edition  4 “Debbie” Cinnamon [32-bit, 64-bit] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906333.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ DOOM Eternal (2020) [Ru/Multi] (1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906291.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906284.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906119.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ ROSA Desktop Fresh R7 GNOME [i586, x86-64] 2x(DVD)+2x(uefiDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905520.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ KB3135173 сбрасывает приложения по умолчанию в W
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905460.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Webroot SecureAnywhere AntiVirus 9.0.8.72 [Multi/Ru] (Онлайн-устано�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905446.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Bear Simulator (2016) [En] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905439.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Anno 2205 (2015) [Ru/Multi] (1.3.2441.47119) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905414.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905387.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ Adobe Photoshop 2021 22.5.0.384 (Win10) Portable by syneus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904987.jpg" />
 </div>
 
 
@@ -569,111 +673,6 @@ Adobe Photoshop 2021 - новая версия программы для обр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8FBA91DB8E069DE35C2C5FEB732D1F768431387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215206   (904930) от 28.08.2021
-
-Tamas Olejnik (Dublicator, MetaComplex, Antendex, Astral Travel Agency, Organit, Auto Reverse, etc.) - 2006-2021 [FLAC|Lossless] <Dub Techno, Ambient, Electro, Psybient, Synthwave, Psy-Trance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avulth - Lime & Space (07:52)
- 02. Organit - Curvature (07:12)Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Electro, Techno, Psybient, Synthwave, Psy-Trance •Продолжительность: 46:42:52 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CE68DABE45586F2D5DBB01F32B605060BF6A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368727   (904680) от 22.03.2020
-
-Ремонт по-марсиански: инженеры NASA вернули бур аппарата InSight к работе, стукнув по нему лопатой
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженеры NASA в очередной раз доказали, что способны решать самые нетривиальные задачи в самых непростых условиях. Прецедент произошел с марсианским модулем InSight – в ходе пробного бурения инструмент аппарата застрял в грунте Красной планеты и операторы марсохода нашли крайне необычный выход из положения. Они отдали марсоходу приказ... ударить себя лопатой. И это (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099351   (904572) от 01.02.2017
-
-Пространственно-временные кристаллы - абсолютно новая форма материи
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904572.jpg" />
-</div>
-
-
-###  Подробнее
-
-У большинства людей понятие "кристалл" ассоциируется с алмазами, полудрагоценными камнями или крупинками обычной соли. Все названные выше вещи имеют одно общее свойство - элементы их упорядоченной структуры повторяются в пространстве бесчисленное количество раз. Но на свете могут существовать и более экзотические кристаллы, к примеру такие, структура которых (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369062   (904525) от 22.03.2020
-
-Платформа / El hoyo / The Platform (2019) WEB-DLRip [H.264] [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горен соглашается на участие в некоем эксперименте и вскоре приходит в себя в почти пустой комнате уровня 48, где имеются большие прямоугольные отверстия в полу и потолке. На каждом уровне находятся двое человек, а сколько всего уровней — неизвестно. Этажи связывает общий колодец, по которому раз в день опускается платформа с едой, и чем ниже находятся люди, тем (   Читать дальше...   )Производство: Испания / Basque Films, Mr Miyagi Films, Plataforma La Película AIEЖанр: Фантастика, триллер, драмаРежиссер: Гальдер Гастелу-УррутияАктеры: Иван Массаге, Сорион Эгилеор, Антония Сан Хуан, Эмилио Буале, Alexandra Masangkay, Zihara Llana, Марио Пардо, Альгис Арлаускас, Txubio Fernández, Eric GoodeПеревод: Одноголосый любительский (Datynet)Субтитры: Русские, английские, испанскиеПродолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7793C45E41161B41AFCD60274B19170ECC4E62E
 ```
 
 https://mybot314.ru/tekegram_catalog/

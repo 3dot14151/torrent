@@ -1,3 +1,81 @@
+###  Публикация: 1745423   (45602) от 26.08.2024
+
+My Lovely Empress (2024) [Multi] (1.0.5) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45602.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Lovely Empress - симулятор имперского управления, который перенесет вас в мир, насыщенный восточной мифологией. Вы берете на себя роль императора Багровой империи, чье царствование расшатывается под тяжестью личных трагедий и политических волнений. Задача заключается в том, чтобы установить мир с соседними правителями, решать внутренние конфликты и обеспечивать (   Читать дальше...   )Тип издания: RepackРазработчик: GameChanger Studio, Neon DoctrineЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Английский, Индонезийский, Китайский (упрощенный)Язык интерфейса: Английский, Индонезийский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36254CD100ABD3C16B8CFA035D33467404CBAAF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745889   (45406) от 28.08.2024
+
+Paris in 2000 Years (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paris in 2000 Years - это градостроительная игра, посвященная истории Парижа. Вы можете строить, улучшать и украшать различные здания. Выполнение исторических квестов также принесет вам в награду знаковые архитектурные достопримечательности. Игра охватывает три крупные исторические эпохи: галло-римскую, средневековую и эпоху Возрождения.Тип издания: RepackРазработчик: WindforceЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Китайский (упрощенный)Язык интерфейса: Английский, Французский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6656091236B9F4794368BED369797B4594C105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543466   (45211) от 30.08.2024
+
+Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приветствую, Ваша Светлость! Просторные земли готовы к колонизации и ждут ваших поселенцев. Отправьте своих архитекторов и строителей проектировать и строить новый город. Но не забудьте и про рабочих - пусть рубят деревья и добывают руду. Освойте плодородные земли, чтобы прокормить своих голодных подданных. Townsmen A Kingdom Rebuilt даст вам примерить на себя королевскую (   Читать дальше...   )Тип издания: LicenseРазработчик: HandyGamesЖанр: Симулятор, Стратегия, МенеджментЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5106FCEB5A49A22C2AF97D42A55565ED99F60BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513051   (45207) от 30.08.2024
 
 Patron (2021) [Ru/Multi] (1.906.0/dlc) License GOG
@@ -6,7 +84,7 @@ Patron (2021) [Ru/Multi] (1.906.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45207.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ World Turtles (2023) [Multi] (1.02) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45185.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Highrise City (2022) [Multi] (1.2.2/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44910.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.26.2) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44898.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Sweet Transit (2022) [Ru/Multi] (20240910) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43837.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43833.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Demon's Mirror (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43475.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Frostpunk 2 (2024) [Ru/Multi] (Build 15731711) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43199.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Frostpunk 2 (2024) [Ru/Multi] (5.2.1-391109/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42900.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42858.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Planetbase (2015) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42756.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42574.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42170.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42b/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_41015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_41015.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Wanterlude [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40909.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Decepticon [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40906.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (1.0.96.0927.1622) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40879.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack FitGirl [Ultimate Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40819.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40607.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40598.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ SteamWorld Build (2023) [Ru/Multi] (1.0.12/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40334.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39945.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.23.68800/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39926.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Offworld Trading Company (2016) [Ru/Multi] (1.23.68800/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E536F867C917A5B5DF265D5FF402183A02EC642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757193   (39169) от 26.10.2024
-
-Cities: Skylines (2015) [Ru/Multi] (1.18.1-f3/dlc) Scene Rune
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cities: Skylines предлагает по-новому взглянуть на классический жанр градостроительного симулятора. Эта игра как нельзя лучше передает возникающие перед градоначальником трудности и позволяет создать настоящий мегаполис, одновременно привнося в игру приятные новшества. Создатели игры принимали участие в разработке серии Cities in Motion, поэтому игра отличается высокореалистичной (   Читать дальше...   )Тип издания: SceneРазработчик: Colossal Order Ltd.Жанр: Strategy (Manage, Busin., Real-time), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29196DF67D2D9A1C793AE321173EDBDA08142F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757374   (39116) от 27.10.2024
-
-Terraformers (2022) [Ru/Multi] (1.5.30/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terraformers предлагает вам построить космическую колонию и заняться распределением ресурсов. Исследуйте Красную планету, создавайте города и используйте передовые технологии, чтобы сделать Марс пригодным для жизни. Отправляйте руководителей экспедиции исследовать таинственные территории Красной планеты и открывайте богатые месторождения ресурсов, гигантские пещеры, (   Читать дальше...   )Тип издания: RepackРазработчик: Asteroid LabЖанр: Инди, Наука, Пошаговая стратегияЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9ED31A7E4C6965149BC678EFE4EF3F84D3E0DD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758675   (38452) от 03.11.2024
-
-The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайте волю своему воображению и создайте мир с уникальными симами! Выбирайте и изменяйте любые детали как симов, так и их домов. И это еще далеко не все! Выбирайте внешность, характер и наряды для своих симов и решайте, как они будут проводить свои дни. Проектируйте и стройте потрясающие дома для каждой семьи и выбирайте мебель и декор. Путешествуйте по различным (   Читать дальше...   )Тип издания: RepackРазработчик: MaxisЖанр: Simulator, 3DЯзык озвучки: SimlishЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B066595A792D5FA1A2C67A344FEE55CC2DBAAC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

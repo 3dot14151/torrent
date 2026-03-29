@@ -1,3 +1,29 @@
+###  Публикация: 1239529   (538600) от 05.08.2018
+
+Картинки - Сборник разнообразных обоев HD #216 [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_538600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на различную тематику.Формат: JPG, PNGРазрешение файлов: 3456x2592-7680x4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D52D89AA2E9BEFC10994790F71B46E46B20DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925055   (538509) от 07.08.2015
 
 Классическое искусство - Великие художники. Обнаженная натура [JPG]
@@ -6,7 +32,7 @@
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538509.jpg" />
+  <img src="Z:/picture/008/save_picture_538509.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538286.jpg" />
+  <img src="Z:/picture/008/save_picture_538286.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537192.jpg" />
+  <img src="Z:/picture/008/save_picture_537192.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537119.jpg" />
+  <img src="Z:/picture/008/save_picture_537119.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537113.jpg" />
+  <img src="Z:/picture/008/save_picture_537113.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537033.jpg" />
+  <img src="Z:/picture/008/save_picture_537033.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536937.jpg" />
+  <img src="Z:/picture/008/save_picture_536937.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Star Wars - Films Artwork [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536275.jpg" />
+  <img src="Z:/picture/008/save_picture_536275.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535383.jpg" />
+  <img src="Z:/picture/008/save_picture_535383.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535370.jpg" />
+  <img src="Z:/picture/008/save_picture_535370.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535281.jpg" />
+  <img src="Z:/picture/008/save_picture_535281.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535275.jpg" />
+  <img src="Z:/picture/008/save_picture_535275.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535270.jpg" />
+  <img src="Z:/picture/008/save_picture_535270.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535039.jpg" />
+  <img src="Z:/picture/008/save_picture_535039.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534101.jpg" />
+  <img src="Z:/picture/008/save_picture_534101.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533499.jpg" />
+  <img src="Z:/picture/008/save_picture_533499.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533410.jpg" />
+  <img src="Z:/picture/008/save_picture_533410.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533326.jpg" />
+  <img src="Z:/picture/008/save_picture_533326.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532520.jpg" />
+  <img src="Z:/picture/008/save_picture_532520.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Artworks by Laurent Logicfun [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532519.jpg" />
+  <img src="Z:/picture/008/save_picture_532519.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532307.jpg" />
+  <img src="Z:/picture/008/save_picture_532307.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531481.jpg" />
+  <img src="Z:/picture/008/save_picture_531481.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531423.jpg" />
+  <img src="Z:/picture/008/save_picture_531423.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531274.jpg" />
+  <img src="Z:/picture/008/save_picture_531274.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531193.jpg" />
+  <img src="Z:/picture/008/save_picture_531193.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:816314C5DAD932C8C1C14F57FCB1A634E250D676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926954   (531031) от 11.08.2015
-
-Современное искусство - Federico Bebber (Потрясающие и ужасные работы) [JPG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одновременно безумные, потрясающие, страшные и красивейшие работы Federico Bebber"а. Его характеризуют как отличного фотографа, безусловно талантливого графика и с несомненно искаженным восприятием действительности, скорее всего вызванной различными наркотическими веществами. Сам Фредерико Беббер определяет свое амплуа, как «цифровой фантазер» (digital dreamer). (   Читать дальше...   )Формат: JPGРазрешение файлов: от 500х735,1024х1024 до 1595х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E51A32BD958936D0DC509CAE4F7556A7C889B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

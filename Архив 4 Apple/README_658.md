@@ -1,3 +1,109 @@
+###  Публикация: 1680124   (134608) от 28.11.2023
+
+Dropover for Mac 4.12 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropover - это утилита, облегчающая управление и перемещение содержимого между папками, приложениями, окнами и рабочими пространствами с помощью Drag and Drop. Подвигайте курсор, чтобы загрузить утилиту и перетащите все, что перетаскиваете в полку. Эта полка плавает поверх всех остальных окон, что позволяет без труда перейти к целевой папке или программе. Это работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2023Разработчик: © 2019 Damir TursunovicПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1EF9A07BC0ACCB5CC6E9C55A1E53D304CC72AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680147   (134593) от 28.11.2023
+
+Video Converter X2 for Mac 1.2.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
+Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: © 2023 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E613E389C104DB52D7D3306A6C9D5A7C0AD8C236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680278   (134567) от 28.11.2023
+
+Infuse PRO 7.6.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 28.11.2023Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7237FD7CB7121492BC5BE53BC28B0B833998ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680209   (134535) от 28.11.2023
+
+PDF Expert 3.7.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134535.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - редактор  PDF. Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому.
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2023Разработчик: © 2015-2022 Readdle Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBE1A7B5323D8C1E25BEF9714DB4FC03EB2FE6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680140   (134531) от 28.11.2023
 
 Dynamic Wallpaper Engine 16.8 [En]
@@ -6,7 +112,7 @@ Dynamic Wallpaper Engine 16.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134531.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Native Instruments Kontakt 7.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134529.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Keka 1.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134525.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ GraphicConverter for Mac 12.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134383.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Mp3tag 1.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134381.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ AutoKrypt13 for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134367.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134362.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ RightFont 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134349.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ JaSFTP13 for Mac 13.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134345.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ Alarm Clock Pro 15 v.15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134340.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ JixiPix Artista Impresso Pro 1.8.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134317.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ Dash 7.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134316.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ Swinsian 3.0 Preview 10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134283.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ Vinegar 2.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134264.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134259.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ TG Pro (Temperature Gauge Pro) 2.89 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134249.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ TechSmith Camtasia 2023 Studio 2023.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134225.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ Elmedia Player Pro 8.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134125.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ MarsEdit 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133981.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ Dropshare 5 v.5.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133976.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133942.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ Automize13 Enterprise for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133931.jpg" />
 </div>
 
 
@@ -574,114 +680,6 @@ Automize - пакет программ автоматизации для пов�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6553AB1121DA90025FF2CEF5977D53EDE3FC139F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680745   (133915) от 30.11.2023
-
-NCH DreamPlan Plus 8.61 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуализируйте и спланируйте дом своей мечты с помощью реалистичной 3D-модели дома.
-• Создайте план дома, квартиры или квартиры
-• Настраиваемые цвета, текстуры, мебель, украшения и многое другое
-• Планируйте идеи внешнего озеленения и садовых пространствТип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2023 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4E3A30061D008287306583ADBEBA43315B3525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680615   (133896) от 30.11.2023
-
-Mp3tag 1.8.11 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mp3tag - мощный и простой в использовании инструмент для редактирования метаданных аудиофайлов. Музыканты, ди-джеи, подкастеры и аудиоэнтузиасты используют его для множества различных аспектов обработки аудиофайлов.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2023Разработчик: © 2021-2022 Florian HeidenreichПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91097EA81F7169120BDBA42D16475324546D7F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680873   (133886) от 30.11.2023
-
-AirMail Pro 5 v.5.6.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
-По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CC728D1D1372A53B5A7352B29E91824C273761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680747   (133866) от 30.11.2023
-
-uDock 4.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133866.jpg" />
-</div>
-
-
-###  Подробнее
-
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838C6CD15814AD282C7313E807780B153A723574
 ```
 
 https://mybot314.ru/tekegram_catalog/

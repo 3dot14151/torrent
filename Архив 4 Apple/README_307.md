@@ -1,3 +1,111 @@
+###  Публикация: 1033978   (634231) от 13.07.2016
+
+MAMP & MAMP PRO 3.5.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любому веб-разработчику в процессе создания того или иного сайта необходимо проверять его работоспособность. Делать это удобнее всего на локальном веб-сервере, поднятом на своем компьютере. Преимущества этого способа в том, что нет ограничений ни на размер сайта, ни на использование процессорного времени или оперативной памяти сервера, а главное – то, что любое сохранение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 июля 2016Разработчик: Appsolute GmbH.Поддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB69F025639AEAD6EB5605996D788B1464644AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801560   (634183) от 02.07.2014
+
+Apple Final Cut Pro X 10.1.2,  Motion 5.1.1 & Compressor 4.1.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+
+Motion. Анимация для Final Cut
+Создавайте великолепные титры, переходы, эффекты и многое другое в приложении Motion. Это отличное дополнение к Final Cut Pro. Новые смарт-шаблоны Motion позволяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 июня 2014Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.9.2 +Язык интерфейса: Английский, Китайский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628C1512A2F63BAF4352FD8B6DCA1D2D78D72B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034292   (634042) от 13.07.2016
+
+Remotix VNC & RDP 4.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remotix это быстрый, удобный и безопасный VNC и RDP клиент для удаленного доступа к компьютерам
+Туннелирование SSH, VNC и RDP. Синхронизация буфера обмена: картинки, RTF, HTML. Удаленный доступ к Mac OS X, Windows и Linux. Не нужна установка ПО на удаленный компьютер. Поддержка Apple Screen Sharing, RDP и VNC. Доступ к Мак через интернет через Back to My Mac. Передача (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 июля 2016Разработчик: Nulana LTDПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355119E7CC64E951F65255EF126774AB8F51FCC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542981   (633830) от 09.04.2022
+
+Any RecScreen 2.0.71 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any RecScreen - это простая в использовании утилита записи экрана для Mac, которая позволяет записывать происходящее на  мониторе в полноэкранном режиме или в настраиваемой области. Вы можете записать веб-камеру для создания видео «картинка в картинке», добавив веб-камеру в область записи. Также может быть записан звук в ваших видео с микрофона или системного звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.04.2022Разработчик: © 2022 Tipard StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE2600342388F6474C772FD997A064F407EE3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543012   (633819) от 09.04.2022
 
 SQLPro Studio 2022.25 [En]
@@ -6,7 +114,7 @@ SQLPro Studio 2022.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633819.jpg" />
+  <img src="Z:/picture/008/save_picture_633819.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Baldur's Gate II: Enhanced Edition v.2.5.16.4 (2013) [Multi/Ru] [macOS Native ga
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633656.jpg" />
+  <img src="Z:/picture/008/save_picture_633656.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ VideoProc Converter 4K 4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633556.jpg" />
+  <img src="Z:/picture/008/save_picture_633556.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Stellar Phoenix Mac Data Recovery 7.0.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633476.jpg" />
+  <img src="Z:/picture/008/save_picture_633476.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ Privatus 5.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633385.jpg" />
+  <img src="Z:/picture/008/save_picture_633385.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ Boom 3D v1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633263.jpg" />
+  <img src="Z:/picture/008/save_picture_633263.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ BlueHarvest 6.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633150.jpg" />
+  <img src="Z:/picture/008/save_picture_633150.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ VueScan Pro 9.5.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633020.jpg" />
+  <img src="Z:/picture/008/save_picture_633020.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ Blocs 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632584.jpg" />
+  <img src="Z:/picture/008/save_picture_632584.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ Color Finale 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632369.jpg" />
+  <img src="Z:/picture/008/save_picture_632369.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ TechSmith Snagit 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632253.jpg" />
+  <img src="Z:/picture/008/save_picture_632253.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ AnyToISO PRO 3.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632194.jpg" />
+  <img src="Z:/picture/008/save_picture_632194.jpg" />
 </div>
 
 
@@ -332,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631967.jpg" />
+  <img src="Z:/picture/008/save_picture_631967.jpg" />
 </div>
 
 
@@ -358,7 +466,7 @@ Capture One Pro 9.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631927.jpg" />
+  <img src="Z:/picture/008/save_picture_631927.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ MAMP & MAMP PRO 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631919.jpg" />
+  <img src="Z:/picture/008/save_picture_631919.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Tweetbot for Twitter 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631884.jpg" />
+  <img src="Z:/picture/008/save_picture_631884.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ Flume Pro ~ A beautiful Instagram experience for your desktop 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631350.jpg" />
+  <img src="Z:/picture/008/save_picture_631350.jpg" />
 </div>
 
 
@@ -466,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631147.jpg" />
+  <img src="Z:/picture/008/save_picture_631147.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ Serial Box 07-2014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630965.jpg" />
+  <img src="Z:/picture/008/save_picture_630965.jpg" />
 </div>
 
 
@@ -521,7 +629,7 @@ Short Menu 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630583.jpg" />
+  <img src="Z:/picture/008/save_picture_630583.jpg" />
 </div>
 
 
@@ -550,7 +658,7 @@ KCNcrew Pack 07-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630516.jpg" />
+  <img src="Z:/picture/008/save_picture_630516.jpg" />
 </div>
 
 
@@ -578,7 +686,7 @@ Navicat Premium 11.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630308.jpg" />
+  <img src="Z:/picture/008/save_picture_630308.jpg" />
 </div>
 
 
@@ -591,114 +699,6 @@ Navicat Premium совмещает в себе функции других пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C1CE3A7F60F080304523C892648D682B42BAD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035086   (630204) от 15.07.2016
-
-Data Rescue Pro 4.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Data Rescue  — утилита восстановления данных
-Data Rescue  одна из лучших программ на рынке по восстановлению данных с проблемных носителей или удаленных файлов. Data Rescue  работает даже тогда, когда другие инструменты не в состоянии что-либо сделать.
-Data Rescue  полностью безопасен в использовании, поскольку программа не пытается восстановить диск "любой ценой". (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 июня 2016Разработчик: Prosoft Engineering, Inc.Поддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F306F98C874C9C3267C054FFDB1DF5883B4F785F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035084   (629928) от 15.07.2016
-
-Adguard 1.3 (309) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов.
- Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 июля 2016Разработчик: © AdguardПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6ECCDAED6C561559AF38204B67902DE4B097036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294289   (629895) от 07.04.2019
-
-Alien Skin Exposure X4 Bundle 4.5.1.64 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1657A733162945D9497CB28E9ABC1F688B8F973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543503   (629787) от 11.04.2022
-
-PatterNodes 3 v3.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629787.jpg" />
-</div>
-
-
-###  Подробнее
-
-PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
-Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2022Разработчик: © 2022 lost mindsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D81858075DBBF7AD230C3973CBACED9EDF14670
 ```
 
 https://mybot314.ru/tekegram_catalog/

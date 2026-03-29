@@ -6,7 +6,7 @@ Microsoft Silverlight 5.1.50906.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785754.jpg" />
+  <img src="Z:/picture/008/save_picture_785754.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SIV (System Information Viewer) 5.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785749.jpg" />
+  <img src="Z:/picture/008/save_picture_785749.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785743.jpg" />
+  <img src="Z:/picture/008/save_picture_785743.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows and Office ISO Download Tool 4.32 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785738.jpg" />
+  <img src="Z:/picture/008/save_picture_785738.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DevID Agent 4.39 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785736.jpg" />
+  <img src="Z:/picture/008/save_picture_785736.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AV Uninstall Tools Pack 2017.04 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785735.jpg" />
+  <img src="Z:/picture/008/save_picture_785735.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ EssentialPIM Pro 7.24 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785731.jpg" />
+  <img src="Z:/picture/008/save_picture_785731.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Flash Player 25.0.0.148 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785720.jpg" />
+  <img src="Z:/picture/008/save_picture_785720.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ O&O ShutUp10 1.5.1389 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785719.jpg" />
+  <img src="Z:/picture/008/save_picture_785719.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Flash Player 25.0.0.148 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785716.jpg" />
+  <img src="Z:/picture/008/save_picture_785716.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Sound Normalizer 7.6 RePack (& Portable) by elchupacabra (UPD 11.04.2017) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785708.jpg" />
+  <img src="Z:/picture/008/save_picture_785708.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Acronis True Image 2017 Build 8041 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785707.jpg" />
+  <img src="Z:/picture/008/save_picture_785707.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Adobe Acrobat XI Pro 11.0.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785693.jpg" />
+  <img src="Z:/picture/008/save_picture_785693.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sprint-Layout 6.0 (06.06.2016) Repack by Lordar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785687.jpg" />
+  <img src="Z:/picture/008/save_picture_785687.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rufus 2.14 Build 1086 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785684.jpg" />
+  <img src="Z:/picture/008/save_picture_785684.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adobe Photoshop Lightroom CC 2015.10 (6.10) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785682.jpg" />
+  <img src="Z:/picture/008/save_picture_785682.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ K-Lite Codec Pack Update 13.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785612.jpg" />
+  <img src="Z:/picture/008/save_picture_785612.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Ashampoo Burning Studio 18.0.4.15 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785556.jpg" />
+  <img src="Z:/picture/008/save_picture_785556.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Opera 44.0.2510.1218 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785550.jpg" />
+  <img src="Z:/picture/008/save_picture_785550.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ SamDrivers 17.4.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785549.jpg" />
+  <img src="Z:/picture/008/save_picture_785549.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Dr.Web Security Space 11.0.5.4100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785547.jpg" />
+  <img src="Z:/picture/008/save_picture_785547.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adobe Acrobat Reader DC 2017.009.20044 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785546.jpg" />
+  <img src="Z:/picture/008/save_picture_785546.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Skype 7.35.0.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785545.jpg" />
+  <img src="Z:/picture/008/save_picture_785545.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Air Explorer Pro 1.14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785532.jpg" />
+  <img src="Z:/picture/008/save_picture_785532.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Shadow Defender 1.4.0.665 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785530.jpg" />
+  <img src="Z:/picture/008/save_picture_785530.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ DU Meter 7.22 Build 4764 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785527.jpg" />
+  <img src="Z:/picture/008/save_picture_785527.jpg" />
 </div>
 
 

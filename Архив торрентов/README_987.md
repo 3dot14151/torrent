@@ -6,7 +6,7 @@ LuLu 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821336.jpg" />
+  <img src="Z:/picture/008/save_picture_821336.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Capto: Screen Capture & Record 1.2.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821335.jpg" />
+  <img src="Z:/picture/008/save_picture_821335.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ X Lossless Decoder XLD 20211018 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821330.jpg" />
+  <img src="Z:/picture/008/save_picture_821330.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dropzone 4 Pro v4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821328.jpg" />
+  <img src="Z:/picture/008/save_picture_821328.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Cockos REAPER 6.38 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821327.jpg" />
+  <img src="Z:/picture/008/save_picture_821327.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821323.jpg" />
+  <img src="Z:/picture/008/save_picture_821323.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821319.jpg" />
+  <img src="Z:/picture/008/save_picture_821319.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Ashampoo Snap 8.0.10 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821305.jpg" />
+  <img src="Z:/picture/008/save_picture_821305.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821303.jpg" />
+  <img src="Z:/picture/008/save_picture_821303.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Counterstrike - Fear Division Destruction (2016) [MP3|320 кб/с] <Drum & Bass,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821301.jpg" />
+  <img src="Z:/picture/008/save_picture_821301.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Any Video Converter Ultimate 5.9.3 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821298.jpg" />
+  <img src="Z:/picture/008/save_picture_821298.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Any Video Converter Professional 5.9.3 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821295.jpg" />
+  <img src="Z:/picture/008/save_picture_821295.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821294.jpg" />
+  <img src="Z:/picture/008/save_picture_821294.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VideoCacheView 2.96 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821288.jpg" />
+  <img src="Z:/picture/008/save_picture_821288.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821286.jpg" />
+  <img src="Z:/picture/008/save_picture_821286.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - WMC Trance Tunes Miami (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821282.jpg" />
+  <img src="Z:/picture/008/save_picture_821282.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821280.jpg" />
+  <img src="Z:/picture/008/save_picture_821280.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Overloud TH-U Slate Edition 1.4.5 STANDALONE, VST, VST3, AAX (x64) + Library ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821240.jpg" />
+  <img src="Z:/picture/008/save_picture_821240.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ FBackup 9.3.428 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821239.jpg" />
+  <img src="Z:/picture/008/save_picture_821239.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Drake - Certified Lover Boy (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Conte
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821237.jpg" />
+  <img src="Z:/picture/008/save_picture_821237.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Sugar Bytes - DrumComputer 1.1.0 STANDALONE, VSTi, AAX (X64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821235.jpg" />
+  <img src="Z:/picture/008/save_picture_821235.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Living Weather & Wallpapers HD 5.1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821222.jpg" />
+  <img src="Z:/picture/008/save_picture_821222.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821194.jpg" />
+  <img src="Z:/picture/008/save_picture_821194.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Vidiot 0.3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821188.jpg" />
+  <img src="Z:/picture/008/save_picture_821188.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Condura Sounds Coming To Miami (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821186.jpg" />
+  <img src="Z:/picture/008/save_picture_821186.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Sidify Apple Music Converter 1.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821184.jpg" />
+  <img src="Z:/picture/008/save_picture_821184.jpg" />
 </div>
 
 

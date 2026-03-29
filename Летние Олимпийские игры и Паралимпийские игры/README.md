@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761652.jpg" />
+  <img src="Z:/picture/008/save_picture_761652.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ XXXI Летние Олимпийские игры 2016. Рио-де-Жанейр
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585432.jpg" />
+  <img src="Z:/picture/008/save_picture_585432.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ XXXI Летние Олимпийские игры 2016. Рио-де-Жанейр
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585342.jpg" />
+  <img src="Z:/picture/008/save_picture_585342.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69464.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ XXXIII Летние Олимпийские Игры 2024. Церемония о�
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48747.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ XXXIII Летние Олимпийские Игры 2024. Церемония о�
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48490.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ XXXIII Летние Олимпийские Игры 2024. Церемония з�
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47038.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1032.jpg" />
 </div>
 
 

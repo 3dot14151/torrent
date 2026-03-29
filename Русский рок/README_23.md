@@ -1,3 +1,131 @@
+###  Публикация: 1498735   (854543) от 28.09.2021
+
+Raizer - Resurrection (2021) [MP3|320 kbps] <Alternative Rock, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resurrection (02:21)
+02. Phoenix (04:28)
+03. Invisible (03:42)
+04. Explode (04:26)(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D432E182F1CC2CD27406F86FC7777D1483982F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 161162   (854497) от 10.04.2010
+
+Рубль - Сдачи не надо (2009) [MP3|192-320 kbps]<Рок, панк-рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пи*дец
+02. Финский залив
+03. Олимпиада
+04. Терпи
+05. Доширак
+06. Любовь это пи*дец
+07. Любовь это пи*дец акустика
+08. Сандали
+09. Сдача
+10. Новости(   Читать дальше...   )Жанр: Рок, панк-рокПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 190813   (854395) от 10.04.2010
+
+Пикник - Театр Абсурда (2010) [MP3|320 kbps]<Rock>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Театр Абсурда
+02. Кукла С Человеческим Лицом
+03. Не В Опере Венской...
+04. Фетиш
+05. Карлик Нос
+06. Урим Туммим
+07. Русы Косы, Ноги Босы
+08. Уйду-Останусь
+09. Дикая Певица
+10. Начало Игры(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110475   (853726) от 02.03.2017
+
+Театр Теней - SAX (2017) EP [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сыграй
+2. Другой День
+3. Две Стороны
+4. РепризыЖанр: Heavy MetalПродолжительность: 00:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBF41D9D5BDF997C98D66E6517B522BFCB6115D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377299   (853277) от 21.04.2020
 
 Гарик Сукачёв - Враги сожгли родную хату (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +134,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853277.jpg" />
+  <img src="Z:/picture/008/save_picture_853277.jpg" />
 </div>
 
 
@@ -32,7 +160,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852740.jpg" />
+  <img src="Z:/picture/008/save_picture_852740.jpg" />
 </div>
 
 
@@ -61,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852618.jpg" />
+  <img src="Z:/picture/008/save_picture_852618.jpg" />
 </div>
 
 
@@ -90,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852086.jpg" />
+  <img src="Z:/picture/008/save_picture_852086.jpg" />
 </div>
 
 
@@ -119,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851977.jpg" />
+  <img src="Z:/picture/008/save_picture_851977.jpg" />
 </div>
 
 
@@ -148,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851913.jpg" />
+  <img src="Z:/picture/008/save_picture_851913.jpg" />
 </div>
 
 
@@ -174,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851848.jpg" />
+  <img src="Z:/picture/008/save_picture_851848.jpg" />
 </div>
 
 
@@ -203,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851841.jpg" />
+  <img src="Z:/picture/008/save_picture_851841.jpg" />
 </div>
 
 
@@ -231,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850265.jpg" />
+  <img src="Z:/picture/008/save_picture_850265.jpg" />
 </div>
 
 
@@ -259,7 +387,7 @@ Louna - Песни о мире (С симфоническим оркестром
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850260.jpg" />
+  <img src="Z:/picture/008/save_picture_850260.jpg" />
 </div>
 
 
@@ -288,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850079.jpg" />
+  <img src="Z:/picture/008/save_picture_850079.jpg" />
 </div>
 
 
@@ -314,7 +442,7 @@ Lumen - Хроника бешеных дней (2016) [MP3|320 Kbps] <Alternativ
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850015.jpg" />
+  <img src="Z:/picture/008/save_picture_850015.jpg" />
 </div>
 
 
@@ -343,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850007.jpg" />
+  <img src="Z:/picture/008/save_picture_850007.jpg" />
 </div>
 
 
@@ -372,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849478.jpg" />
+  <img src="Z:/picture/008/save_picture_849478.jpg" />
 </div>
 
 
@@ -401,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849465.jpg" />
+  <img src="Z:/picture/008/save_picture_849465.jpg" />
 </div>
 
 
@@ -430,7 +558,7 @@ Aspen - III (2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848495.jpg" />
+  <img src="Z:/picture/008/save_picture_848495.jpg" />
 </div>
 
 
@@ -459,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848494.jpg" />
+  <img src="Z:/picture/008/save_picture_848494.jpg" />
 </div>
 
 
@@ -486,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848417.jpg" />
+  <img src="Z:/picture/008/save_picture_848417.jpg" />
 </div>
 
 
@@ -515,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848347.jpg" />
+  <img src="Z:/picture/008/save_picture_848347.jpg" />
 </div>
 
 
@@ -544,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848253.jpg" />
+  <img src="Z:/picture/008/save_picture_848253.jpg" />
 </div>
 
 
@@ -570,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848068.jpg" />
+  <img src="Z:/picture/008/save_picture_848068.jpg" />
 </div>
 
 
@@ -605,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847971.jpg" />
+  <img src="Z:/picture/008/save_picture_847971.jpg" />
 </div>
 
 
@@ -619,119 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB07BB978B96C880A1D1C887DB654F543BA2843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499510   (847968) от 02.10.2021
-
-4 Апреля - Бездна (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847968.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Это игра
-2. Выбора нет
-3. Летала душа
-4. Что будет с нами?(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5EF1806124A3ED864ED3624B8AD1024FA618B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111382   (847939) от 05.03.2017
-
-Чайф - Теория струн (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой блюз
-02. Время не ждет
-03. Четверо парней
-04. Ковбои(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7EBEF824D19575C6DEB68A29720D59FFD1CE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499554   (847836) от 02.10.2021
-
-Мара - Панк-Рок (2021) Single [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Панк-рок (03:08)Жанр: RockПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42DB97287B8787C00CEA329C485780E59F7FC8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499504   (847835) от 02.10.2021
-
-Tequilajazzz - Камни (2021) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847835.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В тёмную воду. Intro
-2. Никого не останется
-3. Вьюгина ты дочь
-4. Сам с собой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410CFBF3D0913FBEE02FC121115017C784015052
 ```
 
 https://mybot314.ru/tekegram_catalog/

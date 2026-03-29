@@ -1,3 +1,81 @@
+###  Публикация: 1545756   (609371) от 22.04.2022
+
+Даль-ли и камджатхан / Далли и дерзкий принц / Dalriwa Gamjatang / Dali and the Cocky Prince (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16) SOFTBOX
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка из хорошей семьи Ким Даль-ли работает в художественной галерее приглашённым экспертом. Она говорит на семи языках, но готовка и уборка — совсем не её занятия. Семья Чин Му-хака владеет сетью ресторанов, их бизнес начался с картофельно-свиного супа камджатхан. Хотя парень не имеет достойного образования, зато обладает предпринимательской жилкой. Молодые люди (   Читать дальше...   )Производство: Южная Корея, Copus Korea, KBS Drama Production, Monster UnionЖанр: мелодрама, комедияРежиссер: Ли Джон-сопАктеры: Пак Кю-ён, Ким Мин-джэ, Квон Юль, Ёну, Со Джон-ён, Хван Хи, У Хи-джин, Ан Гиль-ган, Хван Бо-ра, Ан Сэ-хаПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: Русский, корейскийПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A95CDB9DB69448A7802ED301F1CBCD0A4E19B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546671   (604242) от 25.04.2022
+
+Плохой и сумасшедший / Baedeu Aen Keureiji / Bad and Crazy (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) SOFTBOX
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспринципный полицейский Су-ёль достаточно быстро движется по карьерной лестнице, пока не встречает безумца по имени К, обладающего обострённым чувством справедливости — по любому поводу парень пускает в ход кулаки.Производство: Южная Корея, Studio DragonЖанр: боевик, комедия, криминалРежиссер: Ю Сон-донАктеры: Ли Дон-ук, Ви Ха-джун, Хан Джи-ын, Чха Хаг-ён, Сон Джи-ру, Ким Дэ-гон, Лим Ги-хон, Кан Э-щим, Ли Хва-рён, Чха Щи-вонПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: Русский, корейскийПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F793002B489896D1A461EA4CAFFB8A262C8FE0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546669   (604197) от 25.04.2022
+
+Мы все мертвы / Jigeum Uri Hakgyoneun / All of Us Are Dead (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) LostFilm, Alexfilm
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604197.jpg" />
+</div>
+
+
+###  Подробнее
+
+В старшей школе города Хёсан творятся нехорошие вещи. Некоторые учащиеся, в том числе сын учителя Ли, стабильно подвергаются буллингу, а руководство школы закрывает на это глаза. Когда одну ученицу кусает лабораторный хомячок, Ли изолирует её и попадает под подозрение в похищении — пострадавшую отвозят в больницу, а учителя, несмотря на его протесты и просьбы объявить (   Читать дальше...   )Производство: Южная Корея, Film Monster Co., Kimjonghak Production Co.Жанр: ужасы, боевик, драмаРежиссер: Ли Джэ-гю, Ким Нам-суАктеры: Пак Чи-ху, Юн Чхан-ён, Чо И-хён, Пак Соломон, Ю Ин-су, Ли Ю-ми, Ким Бён-чхоль, Ли Гю-хён, Чон Бэ-су, Ли Ын-сэмПеревод: Многоголосый профессиональный (LostFilm, Alexfilm)Язык озвучки: Русский, корейский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF665D5DFF2A83920DADF7EBDA3497FDB6BD5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547315   (603340) от 27.04.2022
 
 Лунный свет / Когда цветут цветы, я думаю о луне / Kkot Pimyeon Dal Saenggakhago / Moonshine / When Flowers Bloom, I Think of the Moon (2021) HDTVRip (сезон 1, серии 1-16 из 16) SoftBox
@@ -6,7 +84,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603340.jpg" />
+  <img src="Z:/picture/008/save_picture_603340.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603317.jpg" />
+  <img src="Z:/picture/008/save_picture_603317.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601955.jpg" />
+  <img src="Z:/picture/008/save_picture_601955.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596036.jpg" />
+  <img src="Z:/picture/008/save_picture_596036.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593267.jpg" />
+  <img src="Z:/picture/008/save_picture_593267.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592622.jpg" />
+  <img src="Z:/picture/008/save_picture_592622.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592589.jpg" />
+  <img src="Z:/picture/008/save_picture_592589.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592475.jpg" />
+  <img src="Z:/picture/008/save_picture_592475.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592461.jpg" />
+  <img src="Z:/picture/008/save_picture_592461.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587584.jpg" />
+  <img src="Z:/picture/008/save_picture_587584.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584648.jpg" />
+  <img src="Z:/picture/008/save_picture_584648.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569920.jpg" />
+  <img src="Z:/picture/008/save_picture_569920.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556010.jpg" />
+  <img src="Z:/picture/008/save_picture_556010.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551292.jpg" />
+  <img src="Z:/picture/008/save_picture_551292.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533606.jpg" />
+  <img src="Z:/picture/008/save_picture_533606.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531650.jpg" />
+  <img src="Z:/picture/008/save_picture_531650.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520960.jpg" />
+  <img src="Z:/picture/008/save_picture_520960.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507899.jpg" />
+  <img src="Z:/picture/008/save_picture_507899.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507897.jpg" />
+  <img src="Z:/picture/008/save_picture_507897.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496280.jpg" />
+  <img src="Z:/picture/008/save_picture_496280.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493380.jpg" />
+  <img src="Z:/picture/008/save_picture_493380.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490018.jpg" />
+  <img src="Z:/picture/008/save_picture_490018.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477741.jpg" />
+  <img src="Z:/picture/008/save_picture_477741.jpg" />
 </div>
 
 
@@ -593,86 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFC5C919B09BFB773B25B01E91AAAB7DEE496373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234391   (477633) от 03.09.2018
-
-Оставшееся прощание / Yibyuli Ddeonatda / Goodbye to Goodbye (2018) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-20 из 20) SoftBox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Муж одной из главных героинь Ён Хи пилот Сан Джин завел роман на стороне, с тех пор она живет одна, не поддерживая с ним никакой связи.
-Однажды к ней приходит Чон Хё, она беременна от сына Ён Хи, но тот настаивает на аборте. Однако Чон Хё хочет обязательно родить этого ребенка и извещает героиню, что до родов останется жить у неё.
-Сначала совместная жизнь двух женщин (   Читать дальше...   )Производство: Корея ЮжнаяЖанр: мелодрамаРежиссер: Ким Мин СикАктеры: Ли Сон Джэ, Чон Хе Ён, Чхэ Си Ра, Чо Бо А, Ли Джун Ён, Ян Хи Гён, Ха Си Ын, Ким Сан Хо, О Ха Ни, Чон Ун Ин и др.Перевод: Двуголосый закадровый, любительский - SoftBoxПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783C824775729605DEAC0BE94C575CC8BC643C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567905   (468013) от 05.08.2022
-
-Связь: Ешь, люби, убивай / Ringkeu: meokgo saranghara jukige / Link: Eat, Love, Kill (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) SOFTBOX
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ын Ге-хун работает шеф-поваром в ресторане в городе, где 20 лет назад пропала его сестра-близнец. Однажды парень внезапно начинает испытывать несвязанные с его настроением эмоции и вскоре выясняет, что у него установилась странная ментальная связь с девушкой Но Да-хён.Производство: Южная Корея, Studio Dragon, TVNЖанр: детектив, мелодрама, фэнтезиРежиссер: Хон Джон-чханАктеры: Ё Джин-гу, Мун Га-ён, Сон Док-хо, Ли Сок-хён, Ким Джи-ён, Ким Чхан-хён, Е Су-джон, Щин Джэ-хви, Ли Бом, Пак По-гёнПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: Русский, корейскийСубтитры: РусскиеПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7479245AD49086882A6D305573F1CF48F35F47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824322   (439230) от 06.10.2014
-
-Запертая комната / Kagi no Kakatta Heya (2012) HDTVRip (сезон 1, серии 1-11 из 11) (ViruseProject)
-
->>След.
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кей Эномото работает в крупной охранной компании. Он ежедневно посвящает себя исследованию защитных систем (преимущественно ключи и замки) в отделе по продаже оборудования, который находится в конце тёмного корридора основного офиса. Эномото хорошо знаком с преступным миром, он хладнокровен и необщителен — на первый взгляд к нему трудно подступиться, — а также обладает (   Читать дальше...   )Жанр: ДетективРежиссер: Хироаки МацуямаАктеры: Ohno Satoshi (Enomoto Kei), Toda Erika (Aoto Junko), Sato Koichi (Serizawa Gou) и др.Перевод: Одноголосый закадровый ViruseProjectПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C742DE9A543EE13E290BA690EEB9B6630F8415A
 ```
 
 https://mybot314.ru/tekegram_catalog/

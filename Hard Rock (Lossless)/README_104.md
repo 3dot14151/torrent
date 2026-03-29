@@ -1,3 +1,61 @@
+###  Публикация: 1737550   (49654) от 18.07.2024
+
+Deep Purple - =1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me
+02. A Bit on the Side
+03. Sharp Shooter
+04. Portable Door(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B2FAD747E951B7002C07E78985753DA1C43316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737628   (49608) от 18.07.2024
+
+Falcon Trails - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fastlane (3:32)
+02. Feel (4:16)
+03. The Way We Want (4:28)
+04. Soul Satisfaction (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5794D622875E56C8E47D339B737763A4199FEDBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741816   (47439) от 08.08.2024
 
 Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (202
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47439.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ A Rising Force - Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47331.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47113.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Fast Train Union - Analog Outliers (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46289.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Shark Island - Memento Mori Live On The Strip (2024) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46177.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Scarlet Rebels - Let Me In (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46169.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Deep Purple - =1 (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46013.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Deep Purple - 106 Albums (1968 - 2024) 280 CD [FLAC|Lossless|image + .cue|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45625.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Demon - Invincible (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45241.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Sister Switchblade - Don't Try This at Home (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45233.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44924.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Neil Young & Crazy Horse - Fu##in’ Up (2024) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44511.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Thin Lizzy - 1976 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44198.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ The Many Colored Death - The Comfort In Telling (2024) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43882.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ One More Shot - Railroad to Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43880.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Steve Cone - Autonomous (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43879.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ SkinInc. - Another Crack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43877.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ The Nail - The Nail (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43771.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Bad Attitude - Right From The Start (1988-1991) Compilation, Reissue, 2024, FnA 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43473.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Bonsai Kitten - Let It Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43359.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Lakeview - Lakeview (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43250.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Michael Schenker Group - My Years with UFO (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43165.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43147.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ SteelCity - Reverence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42939.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ SteelCity - Reverence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F0BD3DCDF011179CB5A57E644DD01BB00EC82D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750527   (42921) от 20.09.2024
-
-Sweet - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circus (2:56)
-02. Don't Bring Me Water (4:32)
-03. Burning Like A Falling Star (3:51)
-04. Changes (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343BBA737583845352D16E1D1AD3624750F22810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751182   (42610) от 23.09.2024
-
-Black Bay - Black Bay (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showdown (4:17)
-02. Black Sand (4:31)
-03. The Last Goodbye (4:40)
-04. Revelation (3:37)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59B7BF96954BD3B0FC4389CC5015EB941478673
 ```
 
 https://mybot314.ru/tekegram_catalog/

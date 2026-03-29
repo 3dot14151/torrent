@@ -1,3 +1,55 @@
+###  Публикация: 1203520   (787566) от 03.02.2018
+
+Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в атмосферу кёрлинга, этого модного и с недавнего времени, олимпийского вида спорта. Самое главное - теперь вы поймёте, в чем смысл этой игры, где "кидают утюги" и "трут швабрами" лёд. Ну что, потрём?Тип издания: RepackРазработчик: Geronimo Entertainment, "SoWhat!" s.r.o.Жанр: Sport (Winter Sport, Сurling), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA74441C186E0338E0D545D838F563B24941EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203713   (787565) от 03.02.2018
+
+RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вряд ли кто-то не согласится с тем, что зимние олимпийские игры - это самый торжественный и драматичный праздник спорта на планете. Не правда ли досадно, что такое грандиозное событие случается лишь однажды за долгих четыре года? Да, но только томиться в ожидании вовсе не обязательно. Всего несколько минут, как лавина надежд, триумфов и острых ощущений накроет вас (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sports, Olympics), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E338991CB1ECBA02C871D7F1EDC97E37CBC17AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203792   (787564) от 03.02.2018
 
 RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
@@ -6,7 +58,7 @@ RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787564.jpg" />
+  <img src="Z:/picture/008/save_picture_787564.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787562.jpg" />
+  <img src="Z:/picture/008/save_picture_787562.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787561.jpg" />
+  <img src="Z:/picture/008/save_picture_787561.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787274.jpg" />
+  <img src="Z:/picture/008/save_picture_787274.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786018.jpg" />
+  <img src="Z:/picture/008/save_picture_786018.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Peter Jackson's King Kong: The Official Game of the Movie (2005) [Ru/Multi] (1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785193.jpg" />
+  <img src="Z:/picture/008/save_picture_785193.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ RTL Winter Sports 2008: The Ultimate Challenge / Зимний спорт 2008 (2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784829.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ The Guild (2002) [Ru] (1.0) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784717.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783731.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781170.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Athens 2004 / Летние игры. Афины 2004 (2004) [Ru] (1.0) Repack Co
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780488.jpg" />
+  <img src="Z:/picture/008/save_picture_780488.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780475.jpg" />
+  <img src="Z:/picture/008/save_picture_780475.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780468.jpg" />
+  <img src="Z:/picture/008/save_picture_780468.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780359.jpg" />
+  <img src="Z:/picture/008/save_picture_780359.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776298.jpg" />
+  <img src="Z:/picture/008/save_picture_776298.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775892.jpg" />
+  <img src="Z:/picture/008/save_picture_775892.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775565.jpg" />
+  <img src="Z:/picture/008/save_picture_775565.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774028.jpg" />
+  <img src="Z:/picture/008/save_picture_774028.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774022.jpg" />
+  <img src="Z:/picture/008/save_picture_774022.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773971.jpg" />
+  <img src="Z:/picture/008/save_picture_773971.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772900.jpg" />
+  <img src="Z:/picture/008/save_picture_772900.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770034.jpg" />
+  <img src="Z:/picture/008/save_picture_770034.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769425.jpg" />
+  <img src="Z:/picture/008/save_picture_769425.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768562.jpg" />
+  <img src="Z:/picture/008/save_picture_768562.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123934   (768226) от 26.01.2019
-
-Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26ND) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Thief™ II: The Metal Age предоставит вам шанс вновь выйти на мрачные улицы Города, преобразившиеся с приходом к власти Ордена Механистов – нового культа, который потеснил и принял в свои ряды Хаммеритов. В новом мире камер и роботов на паровом ходу Гаррету предстоит встретиться с новым врагом – шерифом Горманом Труартом, служителем закона, задумавшим избавить (   Читать дальше...   )Тип издания: LicenseРазработчик: Looking Glass StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36591EBCEF0BC70E03FEC6173DD01AE81F78A74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125750   (767716) от 15.04.2017
-
-Codename: Iceman (1990) [En] (1.033) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ныне практически забытый, а в своё время – почти культовый шпионский квест от Sierra. Вам предстоит играть за секретного агента Джонни Вестланда, отправленного на подводной лодке в Тунис, чтобы разведать обстановку около недавно обнаруженного крупного нефтяного месторождения и таинственных слухов вокруг него. Впрочем, это лишь начало: потом вам предстоит разоблачить (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C18A880570B557BD90E11EB5199AB9B829ABAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

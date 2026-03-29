@@ -6,7 +6,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582701.jpg" />
+  <img src="Z:/picture/008/save_picture_582701.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579304.jpg" />
+  <img src="Z:/picture/008/save_picture_579304.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575964.jpg" />
+  <img src="Z:/picture/008/save_picture_575964.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575211.jpg" />
+  <img src="Z:/picture/008/save_picture_575211.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574788.jpg" />
+  <img src="Z:/picture/008/save_picture_574788.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574109.jpg" />
+  <img src="Z:/picture/008/save_picture_574109.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569204.jpg" />
+  <img src="Z:/picture/008/save_picture_569204.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566683.jpg" />
+  <img src="Z:/picture/008/save_picture_566683.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564428.jpg" />
+  <img src="Z:/picture/008/save_picture_564428.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560884.jpg" />
+  <img src="Z:/picture/008/save_picture_560884.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560881.jpg" />
+  <img src="Z:/picture/008/save_picture_560881.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Winx Club: Волшебное приключение / Winx Club 3D: Magic Adven
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543433.jpg" />
+  <img src="Z:/picture/008/save_picture_543433.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip 3D [H.264/1080p] [�
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539782.jpg" />
+  <img src="Z:/picture/008/save_picture_539782.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538681.jpg" />
+  <img src="Z:/picture/008/save_picture_538681.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535716.jpg" />
+  <img src="Z:/picture/008/save_picture_535716.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) Blu-ray 3D [H.264/1080p] 
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531976.jpg" />
+  <img src="Z:/picture/008/save_picture_531976.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip 3D [H.264/1080p] [�
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531837.jpg" />
+  <img src="Z:/picture/008/save_picture_531837.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531788.jpg" />
+  <img src="Z:/picture/008/save_picture_531788.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521366.jpg" />
+  <img src="Z:/picture/008/save_picture_521366.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519705.jpg" />
+  <img src="Z:/picture/008/save_picture_519705.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514835.jpg" />
+  <img src="Z:/picture/008/save_picture_514835.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514065.jpg" />
+  <img src="Z:/picture/008/save_picture_514065.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513728.jpg" />
+  <img src="Z:/picture/008/save_picture_513728.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512619.jpg" />
+  <img src="Z:/picture/008/save_picture_512619.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498307.jpg" />
+  <img src="Z:/picture/008/save_picture_498307.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495136.jpg" />
+  <img src="Z:/picture/008/save_picture_495136.jpg" />
 </div>
 
 

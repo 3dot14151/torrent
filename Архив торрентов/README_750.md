@@ -6,7 +6,7 @@ Q-Dir 6.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882513.jpg" />
+  <img src="Z:/picture/005/save_picture_882513.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project Pitchfork - Second Anthology (2016) [MP3|320 кб/с] <EBM, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882494.jpg" />
+  <img src="Z:/picture/005/save_picture_882494.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Currency Rates Pro 6.0.5 [Ru] - Курсы валют
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882479.jpg" />
+  <img src="Z:/picture/005/save_picture_882479.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ GIF Brewery 3 - Video to GIF Creator 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882476.jpg" />
+  <img src="Z:/picture/005/save_picture_882476.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882409.jpg" />
+  <img src="Z:/picture/005/save_picture_882409.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ VMware Workstation 9.0.2 build 1031769 [i386, x86-64] (bundle)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882343.jpg" />
+  <img src="Z:/picture/005/save_picture_882343.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882336.jpg" />
+  <img src="Z:/picture/005/save_picture_882336.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882332.jpg" />
+  <img src="Z:/picture/005/save_picture_882332.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882319.jpg" />
+  <img src="Z:/picture/005/save_picture_882319.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ThunderSoft Video to GIF Converter 3.4.0 Repack & Portable by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882311.jpg" />
+  <img src="Z:/picture/005/save_picture_882311.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Total HTML Converter 4.1.92 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882310.jpg" />
+  <img src="Z:/picture/005/save_picture_882310.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ XYplorer 16.40 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882308.jpg" />
+  <img src="Z:/picture/005/save_picture_882308.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ThunderSoft GIF to Video Converter 3.6.0 Repack & Portable by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882307.jpg" />
+  <img src="Z:/picture/005/save_picture_882307.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882296.jpg" />
+  <img src="Z:/picture/005/save_picture_882296.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882270.jpg" />
+  <img src="Z:/picture/005/save_picture_882270.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ CleanMyMac 3.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882268.jpg" />
+  <img src="Z:/picture/005/save_picture_882268.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882252.jpg" />
+  <img src="Z:/picture/005/save_picture_882252.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882247.jpg" />
+  <img src="Z:/picture/005/save_picture_882247.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882232.jpg" />
+  <img src="Z:/picture/005/save_picture_882232.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - House Vip (23.03.10) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882231.jpg" />
+  <img src="Z:/picture/005/save_picture_882231.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Armada: Best of 5 Years (2008) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_882220.jpg" />
+  <img src="Z:/picture/009/save_picture_882220.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ PullTube 1.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882214.jpg" />
+  <img src="Z:/picture/005/save_picture_882214.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Valentina Studio Pro 10.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882212.jpg" />
+  <img src="Z:/picture/005/save_picture_882212.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Amadeus Pro  2.8 (build 2408) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882210.jpg" />
+  <img src="Z:/picture/005/save_picture_882210.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ LEGO: Marvel's Avengers (2016) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882185.jpg" />
+  <img src="Z:/picture/005/save_picture_882185.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ FastStone Capture 9.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882183.jpg" />
+  <img src="Z:/picture/005/save_picture_882183.jpg" />
 </div>
 
 

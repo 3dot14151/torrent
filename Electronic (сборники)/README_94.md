@@ -1,3 +1,61 @@
+###  Публикация: 1138287   (665649) от 28.05.2017
+
+VA - Sensual Piano Chill Out Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Milews – Children – Ambient Mix
+02. Soleil Fisher – Beautiful Nights in Ibiza – Tribute to Cafe Del Mar Mix
+03. Blue Lagoona – One Last Look – No Coldplay On the Beach Mix
+04. Blue Motion Control – Numero Deux – Wild At Heart Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FC3A0D41140231B1E562A03D9FFC88E2E6DF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137973   (665434) от 28.05.2017
+
+VA - Record Super Chart #488 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Martin Garrix & Brooks - Byte 4:45
+02.  Matt Nash - Know My Love 4:23
+03.  Yellow Claw & Moksi feat. Jonna Fraser - Open 3:31
+04.  Kolomensky - Pictures (DJ Antonio Remix) 4:44(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613B68000051EECC282DA648FF4E4E664656548A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138214   (665431) от 28.05.2017
 
 VA - Club Dance Ambience Vol.110 (2017) [MP3|256-320 Kbps] <Dance , Club House , Vocal House>
@@ -6,7 +64,7 @@ VA - Club Dance Ambience Vol.110 (2017) [MP3|256-320 Kbps] <Dance , Club House ,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665431.jpg" />
+  <img src="Z:/picture/008/save_picture_665431.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - NME Essential Synthpop Hits (2022) [MP3|320 Kbps] <Synthpop, Electropop, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665387.jpg" />
+  <img src="Z:/picture/008/save_picture_665387.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Psy Goa Trance: Beach Party (2018) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664864.jpg" />
+  <img src="Z:/picture/008/save_picture_664864.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Strandgefuehle Vol. 1 (Leichte Sommer Relax Sounds) (2017) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664391.jpg" />
+  <img src="Z:/picture/008/save_picture_664391.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - LUXEmusic - Dance Super Chart Vol.119 (2017) [MP3|320 Kbps] <Club House, De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664318.jpg" />
+  <img src="Z:/picture/008/save_picture_664318.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Deep House Collection Vol.123 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664271.jpg" />
+  <img src="Z:/picture/008/save_picture_664271.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Trance 2022 [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664222.jpg" />
+  <img src="Z:/picture/008/save_picture_664222.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - New Sounds & More Power Vol.12 (2017) [MP3|320 Kbps] <EBM, Futurepop, Synth
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663170.jpg" />
+  <img src="Z:/picture/008/save_picture_663170.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Andromed: Glamtronica Remix (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662767.jpg" />
+  <img src="Z:/picture/008/save_picture_662767.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Pacific Progressive Trance Vol. 3 (2017) [MP3|320 Kbps] <Progressive Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662326.jpg" />
+  <img src="Z:/picture/008/save_picture_662326.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Trance Traveling 89 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661399.jpg" />
+  <img src="Z:/picture/008/save_picture_661399.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661305.jpg" />
+  <img src="Z:/picture/008/save_picture_661305.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661294.jpg" />
+  <img src="Z:/picture/008/save_picture_661294.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Sexy Trance #39 (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660536.jpg" />
+  <img src="Z:/picture/008/save_picture_660536.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ VA - Deep Vocal Relax (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659939.jpg" />
+  <img src="Z:/picture/008/save_picture_659939.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - Deep House Collection Vol.170 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659668.jpg" />
+  <img src="Z:/picture/008/save_picture_659668.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Ibiza Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659323.jpg" />
+  <img src="Z:/picture/008/save_picture_659323.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Empire Records - Retromania 2 (2017) [MP3|320 Kbps] <House, Nu Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659291.jpg" />
+  <img src="Z:/picture/008/save_picture_659291.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Sexy Trance #86 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659141.jpg" />
+  <img src="Z:/picture/008/save_picture_659141.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Urban Glow: March Techno Set (2022) [MP3|320 Kbps] <Techno, Minimal, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658207.jpg" />
+  <img src="Z:/picture/008/save_picture_658207.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Urban Glow: March Trance Set (2022) [MP3|320 Kbps] <Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658201.jpg" />
+  <img src="Z:/picture/008/save_picture_658201.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Black (2015) [MP3|320 кб/с]<Techno, Electro, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658081.jpg" />
+  <img src="Z:/picture/008/save_picture_658081.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Twilight: Deep House Mix (2018) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657953.jpg" />
+  <img src="Z:/picture/008/save_picture_657953.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - UKF Dubstep (Album Megamix) (2013-2014) [MP3|128 кб/с]<Dubstep, Drum & B
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657878.jpg" />
+  <img src="Z:/picture/008/save_picture_657878.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - UKF Dubstep (Album Megamix) (2013-2014) [MP3|128 кб/с]<Dubstep, Drum & B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68859418426349B16B75AD25F52DF057B9067160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903526   (657859) от 31.05.2015
-
-VA - Sexy Love Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrojas - Around the Sun
-02. DJ Cattail - Sunshine and Crystal Clear Water
-03. Solanos - Love At Sunset
-04. Chillo - Cosy(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE776A4867B5A01D7B9DAEF89A18D6EFF52D22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539560   (657205) от 26.03.2022
-
-VA - Dawn Of The Replicant: Synthwave Electronic (2022) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам по вкусу качественная синтетическая электронная музыка, которая будет радовать в любой жизненной ситуации, то лучше что можем, это порекомендовать Вам новый тематический микс с наименованием "Dawn Of The Replicant". Мелодии альбома звучат чрезвычайно современно, хотя нет, нет но и прослеживается в композициях дух Retrowave, в связи с чем он может (   Читать дальше...   )001. Tragic Comedy - Autobahn
-002. Wholf B - Backside
-003. Teslasonic - Obsex
-004. Aiboforcen - Numbers(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectronicПродолжительность: 11:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA469CEEC946D1877853A4698701304BA591837
 ```
 
 https://mybot314.ru/tekegram_catalog/

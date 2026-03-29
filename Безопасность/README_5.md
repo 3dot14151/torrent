@@ -1,3 +1,134 @@
+###  Публикация: 1759093   (38150) от 06.11.2024
+
+Kaspersky Rescue Disk 2024 Beta [03.11.2024] [Ru/En]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузитесь с помощью диска Kaspersky Rescue Disk, чтобы обнаружить и удалить с зараженного компьютера вредоносные программы и другие угрозы без риска заражения других файлов и компьютеров.
+Скачайте ISO-образ, запишите на USB-носитель или DVD-диск, войдите в BIOS и установите загрузку с выбранного носителя, после чего перезагрузите ПК. По завершению загрузки будет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA3116AE96984BD6FECDAA96E9F7379897817AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764391   (34965) от 07.12.2024
+
+Sticky Password Premium 8.8.6.1987 (промо Comss) [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sticky Password Premium – менеджер паролей, который позволяет хранить ваши учетные данные локально или в облаке, синхронизируя их с компьютерами Windows, Mac, Android-устройствами, iPhone и iPad, гарантируя, что вы можете создавать безопасные пароли и автоматически вводить их, где бы вы ни находились.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E2ED24C3B21AE36B3FB6440F6F879F49384853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771023   (31965) от 05.01.2025
+
+Kaspersky Small Office Security 21.19.7.527 [Ru]
+
+>>Безопасность
+>>Комплексные системы защиты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Small Office Security обеспечивает комплексную защиту от различных видов информационных угроз, сетевых и мошеннических атак, а также спама. Для решения задач комплексной защиты в составе Kaspersky Small Office Security предусмотрены различные функции и компоненты защиты.Каждый тип угроз обрабатывается отдельным компонентом защиты. Вы можете включать и выключать (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1B81FE8FC0EAAE7C81CA603098750F58396448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772688   (31321) от 11.01.2025
+
+Kaspersky Password Manager 24.3.0.324 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Password Manager — мультиплатформенный менеджер паролей, позволяющий безопасно хранить пароли и автоматизировать процесс авторизации и ввода информации на страницах интернета и в программах. Эта программа избавляет вас от необходимости придумывать и помнить большое количество паролей. При использовании Kaspersky Password Manager для авторизации на сайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595E8D098F291127FB9C3454F1F0E3252753B73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779135   (27995) от 11.02.2025
+
+Security Task Manager 3.0 Portable by zeka.k [Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Security Task Manager отображает расширенную информацию о программах и процессах, выполняющихся на компьютере. Для каждого процесса, в отличии от Windows, в Task Manger отдельно указывается: имя файла и путь к каталогу, оценка опасности, описание, время запуска, использование CPU (процессора), значок программы, имеющиеся скрытые функции, (контроль клавиатуры, наблюдение (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE2DF984E43588E887CBA9852589E0AD6B4C821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785165   (24737) от 14.03.2025
 
 Kaspersky Secure Connection 21.20.8.505 [Ru]
@@ -6,7 +137,7 @@ Kaspersky Secure Connection 21.20.8.505 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24737.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ Glarysoft Malware Hunter PRO 1.197.0.826 Portable by FC Portables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22932.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ Cryptomator 1.15.2 + portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22100.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ Sandboxie plus 1.15.12 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19698.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ Sandboxie 5.70.12 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19657.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ simplewall 3.8.6.1 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16271.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ Kaspersky Free | Standard | Plus | Premium 21.22.7.466 [Ru/En]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9711.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ Minimal Firewall 2.2.6 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8544.jpg" />
 </div>
 
 
@@ -217,7 +348,7 @@ Malwarebytes AdwCleaner 8.6.0.613 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6352.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ RegRun Reanimator 17.50.2025.819 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5907.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.0.2062.0 RePack by KpoJIuK [
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5480.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ Adguard 7.21.3 (7.21.5089.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4597.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ Folder Guard Pro 25.9 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3780.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ Auslogics Anti-Malware Pro 1.23.0.2 RePack (& Portable) by elchupacabra [Multi/R
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3355.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ Fort Firewall 3.19.6 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3329.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ Antivirus Removal Tool 2025.8 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3217.jpg" />
 </div>
 
 
@@ -426,7 +557,7 @@ Auslogics Anti-Malware Pro 1.23.0.2 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2829.jpg" />
 </div>
 
 
@@ -452,7 +583,7 @@ ESET NOD32 Internet Security 18.2.18.0 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1714.jpg" />
 </div>
 
 
@@ -478,7 +609,7 @@ MinerSearch 1.4.8.1 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1077.jpg" />
 </div>
 
 
@@ -504,7 +635,7 @@ Minimal Firewall 2.2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_325.jpg" />
 </div>
 
 

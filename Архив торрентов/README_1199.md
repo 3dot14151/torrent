@@ -6,7 +6,7 @@ UltraISO Premium Edition 9.7.3.3618 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780947.jpg" />
+  <img src="Z:/picture/008/save_picture_780947.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Uplifting Only Top 15: February (2018) [MP3|320 Kbps] <Uplifting Trance, Vo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780896.jpg" />
+  <img src="Z:/picture/008/save_picture_780896.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Audiotrauma Fest 2k18 (2018) audiotrauma [FLAC|Lossless|WEB-DL|tracks] <IDM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780889.jpg" />
+  <img src="Z:/picture/008/save_picture_780889.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Recondite - Daemmerlicht (2018) Plangent Records [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780865.jpg" />
+  <img src="Z:/picture/008/save_picture_780865.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ PDF Expert 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780863.jpg" />
+  <img src="Z:/picture/008/save_picture_780863.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ iTubeDownloader 6.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780860.jpg" />
+  <img src="Z:/picture/008/save_picture_780860.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Cypecore - The Alliance (2018) [MP3|320 Kbps] <Melodic Death Metal, Industrial M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780849.jpg" />
+  <img src="Z:/picture/008/save_picture_780849.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_780844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_780844.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Uplifting Only Top 15: February (2018) [FLAC|Lossless|WEB-DL|tracks] <Uplif
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780823.jpg" />
+  <img src="Z:/picture/008/save_picture_780823.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ PrivaZer 3.0.41 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780816.jpg" />
+  <img src="Z:/picture/008/save_picture_780816.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Avant Browser Ultimate 2018 build 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780811.jpg" />
+  <img src="Z:/picture/008/save_picture_780811.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780804.jpg" />
+  <img src="Z:/picture/008/save_picture_780804.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780755.jpg" />
+  <img src="Z:/picture/008/save_picture_780755.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780749.jpg" />
+  <img src="Z:/picture/008/save_picture_780749.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780746.jpg" />
+  <img src="Z:/picture/008/save_picture_780746.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780704.jpg" />
+  <img src="Z:/picture/008/save_picture_780704.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Futuremark 3DMark 2.4.4264 Professional Edition RePack by KpoJIuK[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780703.jpg" />
+  <img src="Z:/picture/008/save_picture_780703.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780656.jpg" />
+  <img src="Z:/picture/008/save_picture_780656.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ ChronoSync 4.8.4 & ChronoAgent 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780603.jpg" />
+  <img src="Z:/picture/008/save_picture_780603.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Asche - Distorted DJ (2002) Ant-Zen [FLAC|Lossless|tracks+.cue] <Rhythmic Noise,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780595.jpg" />
+  <img src="Z:/picture/008/save_picture_780595.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ CodeKit 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780586.jpg" />
+  <img src="Z:/picture/008/save_picture_780586.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Macgo Mac Blu-ray Player Pro 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780577.jpg" />
+  <img src="Z:/picture/008/save_picture_780577.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780576.jpg" />
+  <img src="Z:/picture/008/save_picture_780576.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Ashampoo Snap 10.0.5 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780543.jpg" />
+  <img src="Z:/picture/008/save_picture_780543.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780534.jpg" />
+  <img src="Z:/picture/008/save_picture_780534.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Vidiot 0.3.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780529.jpg" />
+  <img src="Z:/picture/008/save_picture_780529.jpg" />
 </div>
 
 

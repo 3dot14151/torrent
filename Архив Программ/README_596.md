@@ -6,7 +6,7 @@ Business Contact Manager / Диспетчер контактов 2010 4.00.9925.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750884.jpg" />
+  <img src="Z:/picture/005/save_picture_750884.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Franzis Focus Projects Pro 4.42.02821 RePack (& Portable) by elchupacabra  [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750736.jpg" />
+  <img src="Z:/picture/008/save_picture_750736.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Charles Web Debugging Proxy 4.2.1 Repack by megapro17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750723.jpg" />
+  <img src="Z:/picture/008/save_picture_750723.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ SSE Setup 8.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750720.jpg" />
+  <img src="Z:/picture/008/save_picture_750720.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.97.4600 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750618.jpg" />
+  <img src="Z:/picture/008/save_picture_750618.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ KeePass 2.15 + Portable [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750504.jpg" />
+  <img src="Z:/picture/005/save_picture_750504.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750469.jpg" />
+  <img src="Z:/picture/005/save_picture_750469.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750177.jpg" />
+  <img src="Z:/picture/008/save_picture_750177.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ RegScanner 2.17 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750089.jpg" />
+  <img src="Z:/picture/008/save_picture_750089.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ OCCT 6.1.0.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750056.jpg" />
+  <img src="Z:/picture/008/save_picture_750056.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Photo Supreme 4.3.3.1943 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750026.jpg" />
+  <img src="Z:/picture/008/save_picture_750026.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Vivaldi 1.0.156.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749978.jpg" />
+  <img src="Z:/picture/008/save_picture_749978.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ WinTools.net Premium 16.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749964.jpg" />
+  <img src="Z:/picture/005/save_picture_749964.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Screenpresso Pro 1.6.3.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749962.jpg" />
+  <img src="Z:/picture/008/save_picture_749962.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Punto Switcher 4.2.5 Build 1238 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749950.jpg" />
+  <img src="Z:/picture/008/save_picture_749950.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ AIMP 4.70 build 2222 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749936.jpg" />
+  <img src="Z:/picture/005/save_picture_749936.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ XYplorer 19.60.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749926.jpg" />
+  <img src="Z:/picture/008/save_picture_749926.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ RarmaRadio Pro 2.72.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749915.jpg" />
+  <img src="Z:/picture/008/save_picture_749915.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ NTShare Photo Recovery 3.5.8 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749909.jpg" />
+  <img src="Z:/picture/008/save_picture_749909.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Firefox Browser 91.5.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749899.jpg" />
+  <img src="Z:/picture/005/save_picture_749899.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Firefox Browser 96.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749897.jpg" />
+  <img src="Z:/picture/005/save_picture_749897.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Mozilla Firefox 38.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749892.jpg" />
+  <img src="Z:/picture/008/save_picture_749892.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Cytomic The Drop 1.7.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749886.jpg" />
+  <img src="Z:/picture/008/save_picture_749886.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ K-Lite Codec Pack Update 16.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749882.jpg" />
+  <img src="Z:/picture/008/save_picture_749882.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ PDF24 Creator 7.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749867.jpg" />
+  <img src="Z:/picture/008/save_picture_749867.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Icecream Ebook Reader PRO 4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749858.jpg" />
+  <img src="Z:/picture/008/save_picture_749858.jpg" />
 </div>
 
 

@@ -1,3 +1,115 @@
+###  Публикация: 1149559   (600377) от 11.07.2017
+
+Nice Clipboard - a cloud synced clipboard manager 1.4.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nice Clipboard - это менеджер истории буфера обмена, который всегда ждет вас под значком меню на вашем Mac или на главном экране вашего iPhone. Он синхронизируется через iCloud между компьютерами Mac и iOS и построен с использованием новейших технологий Apple, чтобы быть легким и сверхбыстрым. Эти функции делают ваш буфер обмена гораздо более полезным инструментом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.07.2017Разработчик: Nice AppsПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF1A205B8B92904BD1CF93ECE9345C0EE966DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149558   (600374) от 11.07.2017
+
+NetWorker - Advanced Network Information App 3.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600374.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
+
+ NetWorker: ● Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График ● Текущий активный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.06.2017Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712E4A166C83E9BD507A6AA00F616DB1726BE636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149569   (600373) от 11.07.2017
+
+Tooth Fairy 2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tooth Fairy -  один клик для управления любым устройством посредством Bluetooth.
+Tooth Fairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню или даже при помощи глобальных клавиш, которые вы сами зададите.
+
+Примечание. Tooth Fairy может подключаться к устройствам, которые могут быть подключены через меню системы bluetooth. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.07.2017Разработчик: Lu YibinПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D467C7CE70364374BD0EA24F1BA7688BDE6D1F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149497   (600301) от 11.07.2017
+
+Carbon Copy Cloner 4.1.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner –  утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 июня 2017Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56FC13D0F2574F9D991CE284899B8FC75ACF5764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914177   (600273) от 01.07.2015
 
 Dash 3.0.2 [En]
@@ -6,7 +118,7 @@ Dash 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600273.jpg" />
+  <img src="Z:/picture/008/save_picture_600273.jpg" />
 </div>
 
 
@@ -35,7 +147,7 @@ Capture One Pro 8.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599842.jpg" />
+  <img src="Z:/picture/008/save_picture_599842.jpg" />
 </div>
 
 
@@ -62,7 +174,7 @@ Acorn 6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599806.jpg" />
+  <img src="Z:/picture/008/save_picture_599806.jpg" />
 </div>
 
 
@@ -90,7 +202,7 @@ Yate 3.13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599660.jpg" />
+  <img src="Z:/picture/008/save_picture_599660.jpg" />
 </div>
 
 
@@ -119,7 +231,7 @@ iStat Menus 5.20 (673) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599522.jpg" />
+  <img src="Z:/picture/008/save_picture_599522.jpg" />
 </div>
 
 
@@ -148,7 +260,7 @@ Money Pro 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599413.jpg" />
+  <img src="Z:/picture/008/save_picture_599413.jpg" />
 </div>
 
 
@@ -177,7 +289,7 @@ VueScan Pro 9.5.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599403.jpg" />
+  <img src="Z:/picture/008/save_picture_599403.jpg" />
 </div>
 
 
@@ -203,7 +315,7 @@ AirServer 7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599288.jpg" />
+  <img src="Z:/picture/008/save_picture_599288.jpg" />
 </div>
 
 
@@ -229,7 +341,7 @@ Pro Audio Converter 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599283.jpg" />
+  <img src="Z:/picture/008/save_picture_599283.jpg" />
 </div>
 
 
@@ -258,7 +370,7 @@ ProPresenter 6.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598518.jpg" />
+  <img src="Z:/picture/008/save_picture_598518.jpg" />
 </div>
 
 
@@ -285,7 +397,7 @@ Piezo 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598436.jpg" />
+  <img src="Z:/picture/008/save_picture_598436.jpg" />
 </div>
 
 
@@ -313,7 +425,7 @@ Renamer 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598434.jpg" />
+  <img src="Z:/picture/008/save_picture_598434.jpg" />
 </div>
 
 
@@ -341,7 +453,7 @@ AnyToISO Pro 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598388.jpg" />
+  <img src="Z:/picture/008/save_picture_598388.jpg" />
 </div>
 
 
@@ -370,7 +482,7 @@ iStatistica 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598313.jpg" />
+  <img src="Z:/picture/008/save_picture_598313.jpg" />
 </div>
 
 
@@ -399,7 +511,7 @@ FontExplorer X Pro 5.0 (11362) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598177.jpg" />
+  <img src="Z:/picture/008/save_picture_598177.jpg" />
 </div>
 
 
@@ -426,7 +538,7 @@ App Cleaner & Uninstaller Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598044.jpg" />
+  <img src="Z:/picture/008/save_picture_598044.jpg" />
 </div>
 
 
@@ -453,7 +565,7 @@ ArtRage 5 v5.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598006.jpg" />
+  <img src="Z:/picture/008/save_picture_598006.jpg" />
 </div>
 
 
@@ -479,7 +591,7 @@ Corel Painter 2018 (18.1.0.651) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597787.jpg" />
+  <img src="Z:/picture/008/save_picture_597787.jpg" />
 </div>
 
 
@@ -506,7 +618,7 @@ WinZip Mac Edition 4.0.2519 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597721.jpg" />
+  <img src="Z:/picture/008/save_picture_597721.jpg" />
 </div>
 
 
@@ -533,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597395.jpg" />
+  <img src="Z:/picture/008/save_picture_597395.jpg" />
 </div>
 
 
@@ -559,7 +671,7 @@ Adobe Muse CC 2015.0.0.597 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597317.jpg" />
+  <img src="Z:/picture/008/save_picture_597317.jpg" />
 </div>
 
 
@@ -586,7 +698,7 @@ Adobe Audition CC 2015 (8.0.0.192) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597307.jpg" />
+  <img src="Z:/picture/008/save_picture_597307.jpg" />
 </div>
 
 
@@ -597,116 +709,6 @@ Adobe Audition CC 2015 (8.0.0.192) [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14307A1040BCFA8AF62F59947C75AFE2E69B678E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150008   (596546) от 13.07.2017
-
-WiFi Explorer Pro 1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сканируй, ищи и устраняй проблемы в беспроводных сетях с помощью WiFi Explorer!
-WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
-
-WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 июня 2017Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF81682B6AA3B6528A2AD0F2439FD0EFEDB644B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149759   (596542) от 13.07.2017
-
-Sketch 45.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов для macOS! Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.07.2017Разработчик: Bohemian CodingПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613021FDA792E48E554012FD1974D329EE57EF47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232794   (596363) от 26.06.2018
-
-Path Finder 8.0.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CocoatechПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C06ADD03C7C247CE23DF3000EF807B28E3CA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039554   (595957) от 01.08.2016
-
-Serial Box 08-2016 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595957.jpg" />
-</div>
-
-
-###  Подробнее
-
-База серийных номеров проекта iSerial по состоянию на август 2016 года.
-В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете!(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: август 2016Разработчик: iSerialПоддерживаемая ОС: OS X 10.3.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B836EB2F6C9E96AF124B88968A7366B9984A325B
 ```
 
 https://mybot314.ru/tekegram_catalog/

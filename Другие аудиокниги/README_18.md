@@ -6,7 +6,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645443.jpg" />
+  <img src="Z:/picture/008/save_picture_645443.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645430.jpg" />
+  <img src="Z:/picture/008/save_picture_645430.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642839.jpg" />
+  <img src="Z:/picture/008/save_picture_642839.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642720.jpg" />
+  <img src="Z:/picture/008/save_picture_642720.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642715.jpg" />
+  <img src="Z:/picture/008/save_picture_642715.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642563.jpg" />
+  <img src="Z:/picture/008/save_picture_642563.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641797.jpg" />
+  <img src="Z:/picture/008/save_picture_641797.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641781.jpg" />
+  <img src="Z:/picture/008/save_picture_641781.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640105.jpg" />
+  <img src="Z:/picture/008/save_picture_640105.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639087.jpg" />
+  <img src="Z:/picture/008/save_picture_639087.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638906.jpg" />
+  <img src="Z:/picture/008/save_picture_638906.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638043.jpg" />
+  <img src="Z:/picture/008/save_picture_638043.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637184.jpg" />
+  <img src="Z:/picture/008/save_picture_637184.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636347.jpg" />
+  <img src="Z:/picture/008/save_picture_636347.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636135.jpg" />
+  <img src="Z:/picture/008/save_picture_636135.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636010.jpg" />
+  <img src="Z:/picture/008/save_picture_636010.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635819.jpg" />
+  <img src="Z:/picture/008/save_picture_635819.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634986.jpg" />
+  <img src="Z:/picture/008/save_picture_634986.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632661.jpg" />
+  <img src="Z:/picture/008/save_picture_632661.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631347.jpg" />
+  <img src="Z:/picture/008/save_picture_631347.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630299.jpg" />
+  <img src="Z:/picture/008/save_picture_630299.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629961.jpg" />
+  <img src="Z:/picture/008/save_picture_629961.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Viki - Сказки на Ночь I-II  [2011-2012] [MP3, WAV, FLAC]
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628448.jpg" />
+  <img src="Z:/picture/008/save_picture_628448.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628358.jpg" />
+  <img src="Z:/picture/008/save_picture_628358.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628237.jpg" />
+  <img src="Z:/picture/008/save_picture_628237.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628133.jpg" />
+  <img src="Z:/picture/008/save_picture_628133.jpg" />
 </div>
 
 

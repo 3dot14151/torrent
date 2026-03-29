@@ -1,3 +1,30 @@
+###  Публикация: 1225709   (658587) от 17.05.2018
+
+Иконки - Creative Market - 370 People Line Icons - 2321735 [AI, CDR, EPS, JPG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконки чёрно-белые контурные в векторе и не только.
+Автор: IconBunny.Формат: AI, CDR, EPS, JPG, PNG, SVG, CMXРазрешение файлов: 16 x 16 - 5120 x 5120
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE0444FB4C11FD903EFC4CBC77CFB94DC6F3A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225694   (658502) от 17.05.2018
 
 Иконки - GraphicRiver - Social Media Icons Bundle - 13321643 [AI, EPS, PNG]
@@ -6,7 +33,7 @@
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658502.jpg" />
+  <img src="Z:/picture/008/save_picture_658502.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658499.jpg" />
+  <img src="Z:/picture/008/save_picture_658499.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657556.jpg" />
+  <img src="Z:/picture/008/save_picture_657556.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656827.jpg" />
+  <img src="Z:/picture/008/save_picture_656827.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656821.jpg" />
+  <img src="Z:/picture/008/save_picture_656821.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656732.jpg" />
+  <img src="Z:/picture/008/save_picture_656732.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655638.jpg" />
+  <img src="Z:/picture/008/save_picture_655638.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655507.jpg" />
+  <img src="Z:/picture/008/save_picture_655507.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655498.jpg" />
+  <img src="Z:/picture/008/save_picture_655498.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655418.jpg" />
+  <img src="Z:/picture/008/save_picture_655418.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654655.jpg" />
+  <img src="Z:/picture/008/save_picture_654655.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654401.jpg" />
+  <img src="Z:/picture/008/save_picture_654401.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653641.jpg" />
+  <img src="Z:/picture/008/save_picture_653641.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653428.jpg" />
+  <img src="Z:/picture/008/save_picture_653428.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653352.jpg" />
+  <img src="Z:/picture/008/save_picture_653352.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (23.06.14) [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652369.jpg" />
+  <img src="Z:/picture/008/save_picture_652369.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652255.jpg" />
+  <img src="Z:/picture/008/save_picture_652255.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652093.jpg" />
+  <img src="Z:/picture/008/save_picture_652093.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651427.jpg" />
+  <img src="Z:/picture/008/save_picture_651427.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651373.jpg" />
+  <img src="Z:/picture/008/save_picture_651373.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651305.jpg" />
+  <img src="Z:/picture/008/save_picture_651305.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651157.jpg" />
+  <img src="Z:/picture/008/save_picture_651157.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651028.jpg" />
+  <img src="Z:/picture/008/save_picture_651028.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651023.jpg" />
+  <img src="Z:/picture/008/save_picture_651023.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651020.jpg" />
+  <img src="Z:/picture/008/save_picture_651020.jpg" />
 </div>
 
 
@@ -647,32 +674,6 @@ Animated Live Wallpapers - живые видео обои (часть 4)Форм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4777689C27E6E6C8F3B1AF7F00CDB2AC1C7E973D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516664   (650956) от 29.06.2012
-
-Репродукции картин - Художник Сергей Лим [JPG]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художник Сергей ЛимРазрешение файлов: ~ 1500 x 1100
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007107936089A772446118234B560CF50FFF9336
 ```
 
 https://mybot314.ru/tekegram_catalog/

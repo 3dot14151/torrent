@@ -1,3 +1,81 @@
+###  Публикация: 1126658   (765038) от 18.04.2017
+
+NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTVRip  [H.264/720p-LQ] (Серии 1-5; 8; из 8)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765038.jpg" />
+</div>
+
+
+###  Подробнее
+
+История древнего Египта... Чего в ней больше — достоверных фактов или захватывающих воображение легенд и мифов? Этот сериал представит новый взгляд на самые известные тайны Египта. Гидом в этом захватывающем путешествии в глубь веков станет знаменитый египтолог, генеральный секретарь комитета древностей Египта доктор Захи Хавасс. Вам предстоит узнать подлинную историю (   Читать дальше...   )Производство: Великобритания, Atlantic Productions, FremantleMedia Enterprises for National GeographicЖанр: Документальный, история, археология, исследования, мифы, загадки, тайныРежиссер: Дуг Ховарт, Дэвид ЛиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 5x~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90A1254D64A72591385A7E9116699279158883C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279808   (764301) от 31.01.2019
+
+NG: Инстинкт выживания: Китай. Яростная река / Primal survivor: China, Raging River (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хейзен Одел присоединяется к племени дулунов в долине реки Дулун. Преодолевая бурные воды и леса, полные ядовитых змей и медведей, он вместе с проводниками направляется в покрытые снегом горы, чтобы собрать там целебные травы и мед из ульев, которые защищают тысячи пчел. Хейзен должен проверить себя и возвратиться в деревню, чтобы накормить жителей и оставить им (   Читать дальше...   )Производство: США, Icon Films, National GeographicЖанр: Документальный, исследование, путешествияРежиссер: Джо Лонкрейн, Алекс Паркинсон, Анвар Мамон, Энтони БарвеллПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C493BBE26CCF8DE9D4E4BA42515A971D466EA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279810   (764300) от 31.01.2019
+
+NG: Инстинкт выживания: Пустыни / Primal survivor: Deserts (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хейзен Одел принимает исключительно сложный вызов выживания в самых непригодных для жизни местах мира, каковыми по праву являются пустыни, где добыть пищу и воду почти невозможно, а палящее солнце способно за минуты сжечь вашу кожу. Хейзен столкнется в этом путешествии с опасными гигантами пустыни, преодолеет смертельно опасные зыбучие пески и будет использовать (   Читать дальше...   )Производство: США, Icon Films, National GeographicЖанр: Документальный, исследование, путешествияРежиссер: Джо Лонкрейн, Алекс Паркинсон, Анвар Мамон, Энтони БарвеллПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB15280CF78213FB67FD13A374D1F494A58E7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365122   (761953) от 06.07.2020
 
 NG. Грандиозные переезды - Перенос древнего Египта / Monster Moves - Moving Ancient Egypt (2008) HDTVRip [H.264/720p-LQ]
@@ -6,7 +84,7 @@ NG. Грандиозные переезды - Перенос древнего Е
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761953.jpg" />
+  <img src="Z:/picture/008/save_picture_761953.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG: Просто магия / General Magic (2018) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761878.jpg" />
+  <img src="Z:/picture/008/save_picture_761878.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NG: Взгляд изнутри. Крупнейший круизный лайн�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760785.jpg" />
+  <img src="Z:/picture/008/save_picture_760785.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760336.jpg" />
+  <img src="Z:/picture/008/save_picture_760336.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NGW: Дикие острова гигантов / Savage Island Giants (2016) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760328.jpg" />
+  <img src="Z:/picture/008/save_picture_760328.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758615.jpg" />
+  <img src="Z:/picture/008/save_picture_758615.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ NG: Крокодил против акулы / The Croc That Ate Jaws (2021) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758243.jpg" />
+  <img src="Z:/picture/008/save_picture_758243.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ NG: Потоп / The Flood (2018) WEB-DL [H.264/1080p] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758239.jpg" />
+  <img src="Z:/picture/008/save_picture_758239.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ NG: Кремниевая долина / Valley of the Boom (2019) SATRip (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758189.jpg" />
+  <img src="Z:/picture/008/save_picture_758189.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757855.jpg" />
+  <img src="Z:/picture/008/save_picture_757855.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756834.jpg" />
+  <img src="Z:/picture/008/save_picture_756834.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756833.jpg" />
+  <img src="Z:/picture/008/save_picture_756833.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ NGW: Смертельно опасные монстры Австралии / Aus
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756710.jpg" />
+  <img src="Z:/picture/005/save_picture_756710.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756705.jpg" />
+  <img src="Z:/picture/008/save_picture_756705.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756504.jpg" />
+  <img src="Z:/picture/008/save_picture_756504.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ NG. Индия с высоты птичьего полёта / India From Above 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756488.jpg" />
+  <img src="Z:/picture/008/save_picture_756488.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756481.jpg" />
+  <img src="Z:/picture/008/save_picture_756481.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755731.jpg" />
+  <img src="Z:/picture/008/save_picture_755731.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755079.jpg" />
+  <img src="Z:/picture/008/save_picture_755079.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ NG: Последствия: Перенаселенная планета / Afterm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755024.jpg" />
+  <img src="Z:/picture/008/save_picture_755024.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ NGW: Дикая природа. Южная Африка / Wild South Africa (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754952.jpg" />
+  <img src="Z:/picture/008/save_picture_754952.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ NG. Реальность или фантастика? Привидения / Is 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752110.jpg" />
+  <img src="Z:/picture/008/save_picture_752110.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750937.jpg" />
+  <img src="Z:/picture/008/save_picture_750937.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B83ED02C8FFF7F5697D0BD74949B6ADE739738B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019632   (748459) от 24.05.2016
-
-NG: Спасти Титаник с Бобом Баллардом / Save the Titanic with Bob Ballard (2012) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Боб Баллард, человек, который обнаружил место последнего упокоения Титаника в 1985 году едет в Ирландию, чтобы встретиться с некоторыми из людей, которые построили корабль и обсуждает проблемы останков корабля и другого имущества утонувших от разграбления мародеров.Телекомпания: США, Produced by National Geographic Television for National Geographic ChannelsЖанр: Документальный, расследованияПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FE3FF1E6F1244B9F44CC71B6555449F10D3472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019406   (748187) от 24.05.2016
-
-NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748187.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью виртуальной визуализации мы "осушим" место крушения "Титаника", чтобы раскрыть тайны гибели корабля, считавшегося непотопляемым.Телекомпания: Канада, The Canadian Film or Video Production Tax CreditЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23252E57FDF4A1AA56AE1AC64172F5A6C018687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281944   (748126) от 10.02.2019
-
-NG: Китайская мегагробница. Секреты терракотовой армии / China's Megatomb. Secrets of the Terracota Army (2018) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альберт Лин, исследователь Nat Geo и современный Индиана Джонс, расследует мрачные тайны, скрытые в усыпальнице первого императора Китая, которую охраняет всемирно известное терракотовое войско.Производство: США, National GeographicЖанр: Документальный, история, исследованияРежиссер: Чен Кейдж, Хай БаллантинПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEF0234FCC8F68C71F01D235B1F7A844899CD56
 ```
 
 https://mybot314.ru/tekegram_catalog/

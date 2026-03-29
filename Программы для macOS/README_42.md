@@ -1,3 +1,138 @@
+###  Публикация: 1506717   (799524) от 01.11.2021
+
+Textual 7 v7.2.1 fix [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Textual IRC Client - простой и функциональный IRC-клиент, написанный специально для Mac OS X с поддержкой сценариев, будет идеальным решением как для начинающих, так и опытных пользователей. Textual включает светлую и темную тему пользовательского интерфейса для того, чтобы соответствовать всем вкусам.
+IRC (англ. Internet Relay Chat) — протокол прикладного уровня (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.07.2021Разработчик: Codeux Software, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45F49C4B188288F0777273954D1E28DB957F864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506780   (799500) от 01.11.2021
+
+PDF Squeezer 4 v4.3.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799500.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-компрессор предназначен для сокращения размеров файлов больших PDF-документов.
+Приложение позволяет сжимать размеры PDF-документов путем сжатия изображений и удаления ненужной информации. Это позволит получить хороший компромисс между параметрами широкополосной сети, необходимым временем передачи файлов по сети и затратами на хранение цифрового контента.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2021 Daniel DienerПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B968D38C08C509017879D2327A37B404FF26484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506682   (799486) от 01.11.2021
+
+QuickRes 4.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя Macbook’и с дисплеями Retina появились уже достаточно давно, все равно некоторые сайты и интерфейсы в приложениях вынуждают пользователей переключаться на разрешение отличное от стандартного для Retina-дисплеев. Да и в обычной жизни, некоторым удобнее установить чуть меньшее разрешение, чтобы получить приемлемый размер шрифта и элементов интерфейса. Это не столько (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: © 2021 ThnkDevПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD80BB866644D53EB45F4FC851C8864B9EE88EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122242   (799222) от 04.04.2017
+
+QuickRes 4.4.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя Macbook’и с дисплеями Retina появились уже достаточно давно, всеравно некоторые сайты и интерфейсы в приложениях вынуждают пользователей переключаться на разрешение отличное от стандартного для Retina-дисплеев. Да и в обычной жизни, некоторым удобнее устновить чуть меньшее разрешение, чтобы получить приемлемый размер шрифта и элементов интерфейса. Это не столько (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: ThnkDevПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BDE074172B740303F642DB0E811E3B78A9B476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122198   (799202) от 04.04.2017
+
+Videoloupe for Mac 1.1.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Усовершенствованный мультимедийный проигрыватель с возможностью редактирования.
+Videoloupe - это видеопроигрыватель, который поможет вам получить полный контроль над воспроизведением контента и обеспечить поддержку редактирования и экспорта фильмов в другие форматы.
+
+Проигрыватель может одновременно выводить до девяти видеороликов и синхронизировать их воспроизведение, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 марта 2017Разработчик: Corduroy Code Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0956BF74068B8BD26E03E836FC4BF482AF724D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506905   (799130) от 02.11.2021
 
 Cinch 1.2.4 fix [En]
@@ -6,7 +141,7 @@ Cinch 1.2.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799130.jpg" />
+  <img src="Z:/picture/008/save_picture_799130.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ Prizmo 4 Pro Scanning + OCR v4.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799073.jpg" />
+  <img src="Z:/picture/008/save_picture_799073.jpg" />
 </div>
 
 
@@ -60,7 +195,7 @@ Newton (Plugin for After Effects) 2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798996.jpg" />
+  <img src="Z:/picture/008/save_picture_798996.jpg" />
 </div>
 
 
@@ -89,7 +224,7 @@ Playr 2.2.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798799.jpg" />
+  <img src="Z:/picture/008/save_picture_798799.jpg" />
 </div>
 
 
@@ -116,7 +251,7 @@ Display Maestro 5 v5.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798764.jpg" />
+  <img src="Z:/picture/008/save_picture_798764.jpg" />
 </div>
 
 
@@ -143,7 +278,7 @@ Vitamin-R 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798758.jpg" />
+  <img src="Z:/picture/008/save_picture_798758.jpg" />
 </div>
 
 
@@ -169,7 +304,7 @@ iNet Network Scanner 2.8.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798755.jpg" />
+  <img src="Z:/picture/008/save_picture_798755.jpg" />
 </div>
 
 
@@ -196,7 +331,7 @@ Battery Health 3 v1.0.28 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798454.jpg" />
+  <img src="Z:/picture/008/save_picture_798454.jpg" />
 </div>
 
 
@@ -223,7 +358,7 @@ Disk Drill Media Recovery 4.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798421.jpg" />
+  <img src="Z:/picture/008/save_picture_798421.jpg" />
 </div>
 
 
@@ -250,7 +385,7 @@ SketchUp Pro 2021.1.2 v21.1.331 fix [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798339.jpg" />
+  <img src="Z:/picture/008/save_picture_798339.jpg" />
 </div>
 
 
@@ -276,7 +411,7 @@ Voice Memo 2.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798307.jpg" />
+  <img src="Z:/picture/008/save_picture_798307.jpg" />
 </div>
 
 
@@ -302,7 +437,7 @@ Resolutionator 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798304.jpg" />
+  <img src="Z:/picture/008/save_picture_798304.jpg" />
 </div>
 
 
@@ -329,7 +464,7 @@ Murasaki 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798297.jpg" />
+  <img src="Z:/picture/008/save_picture_798297.jpg" />
 </div>
 
 
@@ -355,7 +490,7 @@ Renamer 6.0.6 fix [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798291.jpg" />
+  <img src="Z:/picture/008/save_picture_798291.jpg" />
 </div>
 
 
@@ -381,7 +516,7 @@ Araxis Merge Pro Edition 2021.5644 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798282.jpg" />
+  <img src="Z:/picture/008/save_picture_798282.jpg" />
 </div>
 
 
@@ -408,7 +543,7 @@ Aurora HDR 2019 1.0.1 fix [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798272.jpg" />
+  <img src="Z:/picture/008/save_picture_798272.jpg" />
 </div>
 
 
@@ -434,7 +569,7 @@ Archiver 4.0.0 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798255.jpg" />
+  <img src="Z:/picture/008/save_picture_798255.jpg" />
 </div>
 
 
@@ -460,7 +595,7 @@ TinyPNG and TinyJPG: Photoshop Plugin for Mac 2.5.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798227.jpg" />
+  <img src="Z:/picture/008/save_picture_798227.jpg" />
 </div>
 
 
@@ -486,7 +621,7 @@ Shortcut Bar 2.9.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798139.jpg" />
+  <img src="Z:/picture/008/save_picture_798139.jpg" />
 </div>
 
 
@@ -513,7 +648,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.1 CR2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798133.jpg" />
+  <img src="Z:/picture/008/save_picture_798133.jpg" />
 </div>
 
 
@@ -540,7 +675,7 @@ NCH Express Invoice Plus 9.14 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798121.jpg" />
+  <img src="Z:/picture/008/save_picture_798121.jpg" />
 </div>
 
 
@@ -551,138 +686,6 @@ NCH Express Invoice Plus 9.14 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FC4DA2C3CE58849A5836D3288DC5DFC95C30B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507942   (798117) от 06.11.2021
-
-MKVtools 3.7.2 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798117.jpg" />
-</div>
-
-
-###  Подробнее
-
-MKVtools - Программа для создания и редактирования видео в формате MKV на вашем Mac. С её помощью вы сможете конвертировать в MKV видео из форматов MP4 и AVI. Вставляйте в ваши видео субтитры, разбивайте видео на несколько файлов, объединяйте их воедино, извлекайте видео или аудио дорожку из MKV видеозаписи, а так же многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 EmmGunnПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8264DDA2F325C606C905B46BCEF60D1C9CC77E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508183   (797991) от 07.11.2021
-
-Stockfolio - Stocks, Real-Time Stock Portfolio 1.8.1 fix [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stockfolio - это инвестиционное приложение для Mac, которое поможет повысить доходность ваших инвестиций, позволяя вам исследовать и отслеживать интересные акции и криптовалюты. Его очень легко настроить, и это лучший способ управлять своим инвестиционным портфелем и следить за ним.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: StockfolioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB4A785F7F82520645E1FBB9D2F2BDFBD725B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508170   (797953) от 07.11.2021
-
-ACDSee Photo Studio 7 v7.1.2020 fix [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение ACDSee Photo Studio — одно из лучших решений для работы с графическими изображениями в среде Mac. Качественная обработка фотоснимков, оптимизация всех аспектов рабочего процесса, экономия времени, усилий и финансов пользователей — все это обеспечивает ACDSee Photo Studio.
-Интерфейс программы позволяет проводить удобную для работы настройку. Его ориентация (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2021Разработчик: © 2021 ACD Systems International Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACC00DA32D4212237D5BE83E1E0AB7A235CE4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385412   (797814) от 24.05.2020
-
-MacPilot 11 v11.1.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёгкое включение и отключение скрытых функций Mac OS X, оптимизация и ремонт вашей системы, выполнение множества рутинных процедур по обслуживанию системы путём простого нажатия на кнопку!
-Независимо от того, профессионал вы или начинающий пользователь, теперь вы сможете повысить производительность компьютера несколькими кликами мыши. В приложении предусмотрено выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.05.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0402CC67C81B7A2A41CDB18AAC0EDDF4770E2128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385329   (797805) от 24.05.2020
-
-AnyMP4 MP3 Converter for Mac 8.2.16 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797805.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 MP3 Converter может преобразовать почти все видео и аудио в MP3, AAC, AIFF, ALAC, WAV и M4A молниеносно и без потерь качества. С этим замечательным MP3 Music Converter App, пользователи могут конвертировать любые аудио файлы, как OGG, FLAC, AC3, и больше других популярных аудио форматов. Кроме того, она позволяет пользователям извлекать аудио файлы из самых (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7198C61E7E914FC5873C3AE56093EA3DE691D33
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 656077   (814942) от 15.05.2013
+
+Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] License FAIRLIGHT
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814942.jpg" />
+</div>
+
+
+###  Подробнее
+
+В туннелях метро под руинами постапокалиптической Москвы остатки человечества отражают смертоносные атаки как извне, так и изнутри.
+Мутанты регулярно наведываются в катакомбы и охотятся на тех, кто осмелился вылезти на безжизненную поверхность под отравленным небом. Но вместо того, чтобы объединиться, города - станции метро беспрестанно воюют, стремясь заполучить (   Читать дальше...   )Тип издания: ЛицензияРазработчик: 4A GamesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / Английский / Multi6Язык субтитров: Русский / Английский / Multi9Язык интерфейса: Русский / Английский / Multi9
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D750C5B335393650A224DE0AA2C1C5041D7458CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008611   (814828) от 18.04.2016
+
+Doorways: The Underworld (2014) [En/Es] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doorways: The Underworld — это приключенческий хоррор с видом от первого лица, отличающийся запутанным сюжетом и глубокой атмосферой. Игра бросит вам настоящий вызов своим динамичным геймплеем и поразит невероятной графикой и музыкой, так что приготовьтесь ощутить на себе ужасающий психологический опыт. Вы играете роль Томаса Фостера, специального агента, который (   Читать дальше...   )Тип издания: LicenseРазработчик: Saibot StudiosЖанр: Action, Survival, Horror, 3DЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6B5725620CB4E9D41DF40010DB417C3E2A3494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 316320   (814710) от 30.03.2011
+
+Armed Assault 2 / ArmA 2: Reinforcements / ArmA 2: Второй фронт [Ru] (L) 2011 | R.G Игроманы
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814710.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издание «Arma 2: Второй фронт» вошли самостоятельные дополнения British Armed Forces и Private Military Company.
+Десятилетний опыт разработки игр позволил студии Bohemia Interactive создать самый реалистичный военный симулятор на сегодняшний день. Современные технологии, детализированная карта, созданная на основе реальных географических данных, аутентичные модели экипировки солдат, оружия и техники — всё это Arma 2.
+Ведите в бой вооруженные силы Ее Величества или элитные подразделения профессиональных наемников. Играйте в одиночку или присоединяйтесь к захватывающим онлайновым сражениям, в которых могут одновременно участвовать до 50 игроков и сотни компьютерных персонажей.Тип издания: ЛицензияЖанр: Action (Tactical / Shooter) / Add-on / Strategy (Tactical) / 3D / 1st Person / 3rd PersonЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008519   (814707) от 18.04.2016
 
 Taken (2015) [Ru/Multi] (1.0) License RELOADED
@@ -6,7 +87,7 @@ Taken (2015) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814707.jpg" />
+  <img src="Z:/picture/008/save_picture_814707.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Delta Force (1998) [En] (1.00.03.03p) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814568.jpg" />
+  <img src="Z:/picture/008/save_picture_814568.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Wolfenstein Anthology (1981-2015) [Ru/Multi] (1.0/1.4/1.41/1.2/1.0.0.2/1.0.0.0/d
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813058.jpg" />
+  <img src="Z:/picture/008/save_picture_813058.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Delta Force 2 (1999) [En] (1.06.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812749.jpg" />
+  <img src="Z:/picture/008/save_picture_812749.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812699.jpg" />
+  <img src="Z:/picture/008/save_picture_812699.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812638.jpg" />
+  <img src="Z:/picture/008/save_picture_812638.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812637.jpg" />
+  <img src="Z:/picture/008/save_picture_812637.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ Homefront (2011) [Ru/En] (1.5/dlc) Repack R.G. Механики [Ultimate Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812623.jpg" />
+  <img src="Z:/picture/008/save_picture_812623.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812622.jpg" />
+  <img src="Z:/picture/008/save_picture_812622.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ Painkiller Антология [Ru/En] (Lossless RePack) 2004-2011 | RG Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811087.jpg" />
+  <img src="Z:/picture/008/save_picture_811087.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ The Butterfly Sign (2017) [Ru/Multi] (1.2.0) License PLAZA [Chapter II: Human Er
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810841.jpg" />
+  <img src="Z:/picture/008/save_picture_810841.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ The Crow's Eye (2017) [En/Sp] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810736.jpg" />
+  <img src="Z:/picture/008/save_picture_810736.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ SnipZ (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810572.jpg" />
+  <img src="Z:/picture/008/save_picture_810572.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.5) Repack Other s [Chapter I: Necessar
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810562.jpg" />
+  <img src="Z:/picture/008/save_picture_810562.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809208.jpg" />
+  <img src="Z:/picture/008/save_picture_809208.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.10.0/dlc) License SKIDROW [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808861.jpg" />
+  <img src="Z:/picture/008/save_picture_808861.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ The Butterfly Sign (2017) [Ru/Multi] (1.2.0) Repack Other s [Chapter II: Human E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808645.jpg" />
+  <img src="Z:/picture/008/save_picture_808645.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ Tomato Way (2016) [Ru/Multi] (110118) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805917.jpg" />
+  <img src="Z:/picture/008/save_picture_805917.jpg" />
 </div>
 
 
@@ -477,7 +558,7 @@ CTU: Counter Terrorism Unit (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805223.jpg" />
+  <img src="Z:/picture/008/save_picture_805223.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ Narcosis (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804654.jpg" />
+  <img src="Z:/picture/008/save_picture_804654.jpg" />
 </div>
 
 
@@ -529,7 +610,7 @@ Outbreak: The New Nightmare (2018) [En] (1.0) Repack MAXSEM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803984.jpg" />
+  <img src="Z:/picture/008/save_picture_803984.jpg" />
 </div>
 
 
@@ -555,7 +636,7 @@ Get Even (2017) [Ru/Multi] (1.0/12.01.18) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803972.jpg" />
+  <img src="Z:/picture/008/save_picture_803972.jpg" />
 </div>
 
 
@@ -581,7 +662,7 @@ Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) Repack R.G. Мех�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803234.jpg" />
+  <img src="Z:/picture/008/save_picture_803234.jpg" />
 </div>
 
 
@@ -592,86 +673,6 @@ Rambo The Video Game: Baker Team – шутер от первого лица, с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0177B6502042A2CD8B90BD21AB58BF7129AD0F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120219   (802842) от 30.03.2017
-
-Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте выжить в беспросветных глубинах Тихого океана.
-Оказавшись на дне океана почти без света и инструментов, промышленный водолаз отчаянно борется за жизнь — подняться на поверхность надо прежде, чем кончится кислород и наступит безумие.
-Эта история выживания рассказана от первого лица изнутри «ходячего гроба» — суперсовременного скафандра весом в полтонны, (   Читать дальше...   )Тип издания: RepackРазработчик: Honor Code, Inc.Жанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E129E0608355C7017955CCEDDE1004F4F2B95746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505773   (802223) от 28.10.2021
-
-Agony Unrated (2018) [Ru/Multi] (1.0.0) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Agony – это приключенческий хоррор c видом от первого лица от польской компании MadMind Studio. В состав команды разработчиков входят ветераны индустрии, успевшие поработать над такими знаковыми проектами как The Witcher 3: Wild Hunt и Tom Clancy’s The Division.Тип издания: LicenseРазработчик: Madmind StudioЖанр: Экшн, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B191A3C0F876ED25EB95790809558FBAC61271F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199156   (801402) от 15.01.2018
-
-DOOM (2016) [Ru/En] (6.66/upd8) Rip xatab
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный исследовательский комплекс Объединенной аэрокосмической корпорации на Марсе заполонили кровожадные демоны, готовящиеся покорить наш мир. И только один человек стоит у них на пути... DOOM возвращается. Легендарная игра, определившая саму суть жанра шутеров, снова с нами. Жестокий, агрессивный, бескомпромиссный и очень кровавый боевик разрабатывается силами (   Читать дальше...   )Тип издания: RipРазработчик: id Software и Certain AffinityЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554CC2B5585A7DBD8C70C61EAD835FCA5DC0913D
 ```
 
 https://mybot314.ru/tekegram_catalog/

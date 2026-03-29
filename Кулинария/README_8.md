@@ -1,3 +1,29 @@
+###  Публикация: 1363695   (940688) от 29.02.2020
+
+С. Ильичева (ред.) | 50 блюд за двадцать минут (2014) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нам всем не хочется много времени тратить на приготовление блюд, но очень хочется, чтобы было вкусно! В этой книге собраны уникальные рецепты, которые помогут разнообразить вашу повседневную жизнь яркими вкусами и свежими решениями. При этом вам не придется стоять у плиты более 20 минут! Тщательно проверенная технология позволит грамотно сочетать ингредиенты, а шаги (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21011EF6865CB1A675EE7EB5B4B7A01666168D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363740   (940686) от 29.02.2020
 
 Е. Левашева (ред.) | 50 рецептов. Птица. Продукты и приготовление (2016) [PDF]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940686.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940678.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940571.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940366.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938849.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938524.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938412.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938289.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936763.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936693.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936513.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936314.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936195.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934730.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934654.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933838.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933320.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933310.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932409.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932113.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932078.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931966.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931914.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930305.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930166.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEFBC285061EF142483BF8B4B904EC3222384048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094730   (929048) от 18.01.2017
-
-Ирина Вечерская | 100 рецептов при панкреатите. Вкусно, полезно, душевно, целебно (2017) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга расскажет о том, как питаться при панкреатите. Здоровье поджелудочной железы напрямую зависит от образа жизни. Только сам человек отвечает за ее состояние. Алкоголь, жирная, жареная, насыщенная специями и экстрактивными веществами пища, ожирение, неправильное питание – вот далеко не полный перечень основных причин хронического панкреатита. Причиной вторичного (   Читать дальше...   )Жанр: Здоровье, Гастроэнтерология, Диетическая кухняФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474E88C0246C7675901ABF61F898DEB3178657F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

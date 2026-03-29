@@ -1,3 +1,114 @@
+###  Публикация: 1690559   (123922) от 07.01.2024
+
+Ги де Мопассан | Заведение Телье. Сборник новелл (2022) [MP3, Наталья Потопальская]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ги де Мопассан (1850–1893) – крупнейший французский новеллист, мастер рассказа с неожиданной концовкой.
+В своих произведениях Мопассан воспевает любовь и силу человеческого духа, рассказывает о трагедии одиночества и неразделенных чувств, осуждает корыстолюбие, лицемерие и предательство.
+Одним субботним вечером посетители обнаружили местный публичный дом закрытым. (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: ИДДКПродолжительность: 06:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AD7FDBD6947511F174B531A18CB9CFE91118B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690550   (123921) от 07.01.2024
+
+Ги де Мопассан | Рассказы вальдшнепа (2022) [MP3, Наталья Первина]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ги де Мопассан (1850–1893) – крупнейший французский новеллист, мастер рассказа с неожиданной концовкой.
+
+«Едва ли был другой такой писатель, столь искренно считавший, что все благо, весь смысл жизни – в женщине, в любви… и едва ли был когда-нибудь писатель, который до такой ясности и точности показал все ужасные стороны того самого явления, которое казалось ему самым (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: ИДДКПродолжительность: 04:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB76D2691A0B3518AFF6AF1E44A29583B23BA7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690482   (123917) от 07.01.2024
+
+Ги де Мопассан | Милый друг (2003) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века.
+«Милый друг» – роман-памфлет, показывающий неприглядную кухню политики и журналистики в Третьей Республике. И это роман об «антилюбви», ибо его герой Жорж Дюруа, наглый и ловкий делец, строит свою карьеру почти исключительно на расчетливых (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 14:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F91D864525DF78322E5F6B7658156511798B53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690561   (123916) от 07.01.2024
+
+Ги де Мопассан | Парижское приключение (2017) [MP3, Александр Бордуков, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена (Французская литература).
+Классическая художественная литература Франции богата и красочна. Она широко охватывает французскую социальную жизнь, историю, быт, нравы и психологию человека различных общественных слоев, придвигая к нашему взору бедность и богатство, роскошь и убожество, город и деревню. Она с любовью рисует лик всего (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказ, новеллаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 07:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC499A8077A0902841AD188FBA01570DAE3D7151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690401   (123911) от 07.01.2024
 
 Михаил Булгаков | Театральный роман (2013) [MP3, Ирина Ерисанова]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123911.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123909.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123896.jpg" />
 </div>
 
 
@@ -90,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123874.jpg" />
 </div>
 
 
@@ -118,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123872.jpg" />
 </div>
 
 
@@ -146,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123844.jpg" />
 </div>
 
 
@@ -173,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123839.jpg" />
 </div>
 
 
@@ -200,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123817.jpg" />
 </div>
 
 
@@ -227,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123786.jpg" />
 </div>
 
 
@@ -254,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123774.jpg" />
 </div>
 
 
@@ -283,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123750.jpg" />
 </div>
 
 
@@ -310,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123744.jpg" />
 </div>
 
 
@@ -337,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123743.jpg" />
 </div>
 
 
@@ -364,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123737.jpg" />
 </div>
 
 
@@ -393,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123734.jpg" />
 </div>
 
 
@@ -421,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123716.jpg" />
 </div>
 
 
@@ -448,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123662.jpg" />
 </div>
 
 
@@ -477,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123640.jpg" />
 </div>
 
 
@@ -504,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123594.jpg" />
 </div>
 
 
@@ -532,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123589.jpg" />
 </div>
 
 
@@ -559,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123579.jpg" />
 </div>
 
 
@@ -586,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123576.jpg" />
 </div>
 
 
@@ -598,117 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12959A6D2DBBE30E8FA79C391F3CEE94D7D313D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385495   (123472) от 11.01.2024
-
-Михаил Салтыков-Щедрин | История одного города (2005 [MP3, Семён Ярмолинец]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классическая литература.
-«История одного города» – одно из лучших произведений Михаила Евграфовича Салтыкова-Щедрина (1826–1889), мастера социальной сатиры и гротеска. Роман Салтыкова-Щедрина современники называли «пасквилем на историю государства Российского». Эта книга сохраняет актуальность и в наше время, являясь, по сути, не беспощадным приговором (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 10:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1A04E80189E710D13D92A91E4140FFC8D7149E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 428073   (123212) от 13.01.2024
-
-И.С. Шмелёв | Старый Валаам (2010) [MP3, Георгий Корольчук]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из фонда радио «Град Петров».
-Иван Сергеевич Шмелёв (1873–1950) – классик русской литературы, один из самых читаемых писателей русского зарубежья. И на родине, и эмиграции Иван Шмелёв, по его собственному признанию, писал «только о России, о русском человеке, о его душе и сердце».
-«Старый Валаам» (1937) – август 1895 года. Московский студент, далекий от религиозных (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: Град ПетровПродолжительность: 05:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C530C405412E2A5BEE230E612E4E506F1685F830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691637   (123109) от 13.01.2024
-
-И.С. Шмелёв | Лето Господне: Праздники. Радости. Скорби (2006) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Иван Сергеевич Шмелёв (1873–1950) – великий русский писатель, публицист, православный мыслитель, чье имя долгое время было под запретом. Он писал удивительные тексты, в которых размышлял о судьбе страны, представитель консервативно-христианского направления русской словесности.
-Роман-трилогия «Лето Господне: Праздники. Радости. Скорби» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 07:18:14+08:28:15+04:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589476C457E181FB969DF4E3FF01EF58CA6297C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691699   (123068) от 13.01.2024
-
-И.С. Шмелёв | Человек из ресторана (2004) [MP3, Виктор Рудниченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Иван Сергеевич Шмелёв (1873–1950) – великий русский писатель, публицист, православный мыслитель.
-Замысел повести «Человек из ресторана» (1911), по словам автора – выявить слугу человеческого, который по своей специфической деятельности как бы в фокусе представляет всю массу слуг на разных путях жизни. Действующие лица повести образуют (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B291CFD9A765252270B0136D77391B240DF0D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

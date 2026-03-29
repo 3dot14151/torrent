@@ -1,3 +1,30 @@
+###  Публикация: 1551440   (235119) от 15.05.2022
+
+The Animation Box, Yuri Lementy | Cartoon Mechanics Masterclass (2020) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235119.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мастер-классе вы увидите весь процесс создания шота с мультяшной механикой тела в Autodesk Maya, от планирования до полировки. Более 20 часов детальных видеолекций, объясняющих блокинг, добавление брейкдаунов, сплайнинг и т. д.
+Рекомендуемый уровень: средний / продвинутый, вы должны уверенно работать в Maya и хотя бы на базовом уровне понимать принципы анимации.Производство: The Animation BoxЖанр: Анимация персонажейЯзык озвучки: Русский (отдельным файлом)Продолжительность: 22:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFE0F1E1AF26465919208F15DC7A071BF54B77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632603   (235092) от 11.05.2023
 
 Nadja-Leutloff-School, Евгения Костикова | Нежность лепестков (2023) WEB-DL [RU]
@@ -6,7 +33,7 @@ Nadja-Leutloff-School, Евгения Костикова | Нежность ле
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235092.jpg" />
+  <img src="Z:/picture/005/save_picture_235092.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Domestika, Juan Solís | Professional Modelling of 3D Cartoon Characters (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235054.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234933.jpg" />
+  <img src="Z:/picture/005/save_picture_234933.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ Stan Winston School, Dan LuVisi | Creature Design - Photoshop Character Renderin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234797.jpg" />
 </div>
 
 
@@ -117,7 +144,7 @@ The Gnomon Workshop, Wojtek Piwowarczyk | Creating Procedural Environments in Ho
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234701.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ Udemy, Nathalia Ferrari | Environment Course in Blender 2.93 (2022) PCRec [EN / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234633.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Enterclass, Сергей Курбатов | Весенняя зелень (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234346.jpg" />
 </div>
 
 
@@ -200,7 +227,7 @@ Artefactoschool, Игорь Хайков | Времена года (2022) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234092.jpg" />
 </div>
 
 
@@ -229,7 +256,7 @@ CG Cookie, Kent Trammell | Creating Hair Cards for Realtime Characters in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233904.jpg" />
+  <img src="Z:/picture/005/save_picture_233904.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ Watermedia, Татьяна Ширбидова | Акварельные прак�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233738.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ Enterclass, Ольга Гусева | Весна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233699.jpg" />
 </div>
 
 
@@ -313,7 +340,7 @@ Pixel Front, Wesley Versteeg | An introduction to vellum grains, RBD & colliders
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233543.jpg" />
 </div>
 
 
@@ -339,7 +366,7 @@ Allegorithmic, Daniel Thiger | Creating Photorealistic Procedural Materials in S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233527.jpg" />
+  <img src="Z:/picture/005/save_picture_233527.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ The Gnomon Workshop, Jason Shum | Combat Animation for Games (2017) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233519.jpg" />
+  <img src="Z:/picture/005/save_picture_233519.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ CGMA, Nicolas Weis | Environment Design for Animation Workshops (2016) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233509.jpg" />
+  <img src="Z:/picture/005/save_picture_233509.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ The Gnomon Workshop, Vitaly Bulgarov | Robotic 3D Design for Entertainment (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233480.jpg" />
+  <img src="Z:/picture/005/save_picture_233480.jpg" />
 </div>
 
 
@@ -443,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233371.jpg" />
+  <img src="Z:/picture/004/save_picture_233371.jpg" />
 </div>
 
 
@@ -469,7 +496,7 @@ Udemy, Lindsay Marsh | Graphic Design Masterclass - Learn GREAT Design (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233297.jpg" />
+  <img src="Z:/picture/005/save_picture_233297.jpg" />
 </div>
 
 
@@ -498,7 +525,7 @@ Pluralsight, Sophie Jameson | CINEMA 4D UV Mapping Fundamentals (2018) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233094.jpg" />
+  <img src="Z:/picture/005/save_picture_233094.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233076.jpg" />
+  <img src="Z:/picture/005/save_picture_233076.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ Sketchpark, Мария Мусиенко | Запредельная иллюст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232735.jpg" />
+  <img src="Z:/picture/005/save_picture_232735.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ CG Cookie, Kent Trammell | Short Film Character Production in Blender (Creating 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232710.jpg" />
+  <img src="Z:/picture/005/save_picture_232710.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ Blender Cloud, Pablo Vazquez | Cartoon Character Creation - Venom's Lab! 2 (2014
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232497.jpg" />
+  <img src="Z:/picture/005/save_picture_232497.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ FlippedNormals, Emiel Sleegers | Creating Custom Decals for Games - In-Depth Tut
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232391.jpg" />
+  <img src="Z:/picture/005/save_picture_232391.jpg" />
 </div>
 
 
@@ -661,7 +688,7 @@ Gumroad, Jan Urschel | Procedural Landscapes in Blender (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232318.jpg" />
+  <img src="Z:/picture/005/save_picture_232318.jpg" />
 </div>
 
 
@@ -672,33 +699,6 @@ Gumroad, Jan Urschel | Procedural Landscapes in Blender (2019) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE50C632CBF5902084CED9DBC65FB80A8B2EEDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554229   (232267) от 29.05.2022
-
-CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное полное обновление самого классного и профессионального курса по созданию персонажа!
-Целью этого курса является освоение процесса создания персонажей для фильмов и игровых синематиков, включая все аспекты композиции и нарратив. Каждую неделю курса мы посвятим отдельному аспекту процесса создания модели персонажа и последовательно создадим полностью законченную (   Читать дальше...   )Производство: CGMAЖанр: 3D-моделированиеЯзык озвучки: АнглийскийПродолжительность: 31:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317746C0020B1DEEB88823FEFF83C8DB7E14E9ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

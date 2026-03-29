@@ -6,7 +6,7 @@ Yoshida Brothers - Yoshida Brothers (2003) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747870.jpg" />
+  <img src="Z:/picture/008/save_picture_747870.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kazumi Watanabe - Guitar is Beautiful KW45 (2016) [MP3|320 кб/с] <Jazz, Fusio
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741792.jpg" />
+  <img src="Z:/picture/008/save_picture_741792.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Loudness - Sunburst~我武者羅 (2021) 2xCD, Japanese Edition [FLAC|Lossless|im
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737790.jpg" />
+  <img src="Z:/picture/008/save_picture_737790.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Silent Elegy - Gone With The Wind (2016) [MP3|320 кб/с] <Gothic Metal, Sympho
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728347.jpg" />
+  <img src="Z:/picture/008/save_picture_728347.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Boom Boom Satellites - To The Loveless (2010) [MP3|320 kbps]<JRock/Electronic, B
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727264.jpg" />
+  <img src="Z:/picture/005/save_picture_727264.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Tadaaki Otaka - Takemitsu: How Slow the Wind (2001) [FLAC|Lossless|image + .cue]
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727115.jpg" />
+  <img src="Z:/picture/008/save_picture_727115.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Yamato - The Wadaiko Drummers Of Japan (2005) [MP3|320 kbps]<ethno / folk / japa
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_714975.jpg" />
+  <img src="Z:/picture/005/save_picture_714975.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Akisai - Images (2015) [FLAC|Lossless|tracks] <Electronic, Instrumental, Ambient
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713675.jpg" />
+  <img src="Z:/picture/008/save_picture_713675.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Takahiro Matsumoto - Enigma (2016) [MP3|320 кб/с] <Rock, Instrumental Rock>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707613.jpg" />
+  <img src="Z:/picture/008/save_picture_707613.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Kalafina - Discography (2008-2012) [MP3|320 кб/с]<JPop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704465.jpg" />
+  <img src="Z:/picture/008/save_picture_704465.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Mari Hamada - 9 albums (1983-1993) [FLAC|Lossless]<Japanese, heavy metal,AOR, 80
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_686880.jpg" />
+  <img src="Z:/picture/005/save_picture_686880.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Sandii & The Sunsetz - Immigrants (1982) Reissue, 2006, YEN Records, GT Music [F
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682577.jpg" />
+  <img src="Z:/picture/008/save_picture_682577.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Sayuri - Mikazuki no Koukai (2017) [MP3|320 Kbps] <J-Pop Rock / Acoustic>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682535.jpg" />
+  <img src="Z:/picture/008/save_picture_682535.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Vocalohistory (2017) [FLAC|Lossless|image+.cue] <J-Pop, Vocaloid>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682530.jpg" />
+  <img src="Z:/picture/008/save_picture_682530.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Sunsetz (Sandii & The Sunsetz) - Heat Scale (1981) Reissue, Limited Edition, 200
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680660.jpg" />
+  <img src="Z:/picture/008/save_picture_680660.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Keiichi Okabe, VA - NieR:Automata Original Soundtrack (2017) 4 CD [MP3|320 Kbps|
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676471.jpg" />
+  <img src="Z:/picture/008/save_picture_676471.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Night Tempo - Showa Idol's Groove (2019) [FLAC|Lossless|WEB-DL|tracks] <Vaporwav
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676024.jpg" />
+  <img src="Z:/picture/008/save_picture_676024.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ MYTH & ROID - eYe's (2017) [MP3|320 Kbps] <Synth Pop / Electronic Rock / Alterna
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674610.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Touhou Gensoukyou UROBOROS ~fANTASIAsPIRALoVERdRIVE~(2013) [MP3|320kbps] <Touhou
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671083.jpg" />
+  <img src="Z:/picture/008/save_picture_671083.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Night Tempo - Pure Present (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Cit
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670352.jpg" />
+  <img src="Z:/picture/008/save_picture_670352.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ HAPPY I SCREAM!! - 4 альбомов (2010-2012) [FLAC|Lossless] <Touhou, Instr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669578.jpg" />
+  <img src="Z:/picture/008/save_picture_669578.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ As/Hi Soundworks | Ash Blind | As/Hi - 20 альбомов (2006-2013) Touhou In
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669501.jpg" />
+  <img src="Z:/picture/008/save_picture_669501.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Mono - 9 albums (2001-2010) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668162.jpg" />
+  <img src="Z:/picture/005/save_picture_668162.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Huang Hui - Singing Of Bamboos (2005) [APE|Lossless]<Chinese Instrumental>
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667415.jpg" />
+  <img src="Z:/picture/005/save_picture_667415.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Chen Lei - The Song of King Yao (2009) [FLAC|Lossless]<Chinese Traditional Music
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666125.jpg" />
+  <img src="Z:/picture/005/save_picture_666125.jpg" />
 </div>
 
 
@@ -774,7 +774,7 @@ VA - Band Dream Garden I-III (2009) [MP3|320 кб/с]<Instrumental, Ethnic, New 
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659115.jpg" />
+  <img src="Z:/picture/008/save_picture_659115.jpg" />
 </div>
 
 

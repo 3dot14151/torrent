@@ -1,3 +1,187 @@
+###  Публикация: 1309682   (550008) от 20.06.2019
+
+Wing IDE Pro 7.0.3.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wing IDE - интегрированная среда разработки, предназначенная для создания приложений на языке Python. IDE предоставляет профессиональный редактор кода, в котором можно использовать клавиатурные комбинации vi и emacs, работает автодополнение кода, рефакторинг, отслеживание вызовов, контекстные подсказки. Доступен графический отладчик кода для локальной и удаленной (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270B09F7F29671B7486E47C9BCEA1B70CF582A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932298   (508805) от 29.08.2015
+
+SDL Passolo Professional 2015 SP1 15.1.316.0 [Ru/En]
+
+>>След.
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия SDL Passolo, самого дорогостоящего и самого мощного шаблонного редактора ресурсов — SDL Passolo 2015 SP1 v15.1.316.0. Без него не обойтись ни одному пользователю, который серьёзно занимается или собирается заняться локализацией программ. SDL Passolo – это ультрасовременная технология локализации, доказанная практикой простота применения на всех основных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032D3B16185C5B47B85F4F384584252B11F882D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933541   (504076) от 03.09.2015
+
+SoMachine 4.1 SP1.2 [Multi]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_504076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Schneider Electric SoMachine для программирования промышленных ПЛК.Язык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694E909136B4410A14E1D1E795BBF8128EF0CE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546325   (475556) от 14.09.2012
+
+Turbo Pascal for Windows 1.5 [Английский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Pascal for Windows представляет собой программное приложение, позволяющая создавать программные продукты с помощью языка высокого уровня Pascal. Представляющаяся незнакомой для большинства пользователей версия Turbo Pascal for Windows заслуживает особого внимания и уважения со стороны любителей экзотики и школьников решивших окунуться в атмосферу 80-90 годов. Версия 1.5  адаптирована под работу с операционной симтемой Windows с использованием оконного режима, что обеспечит наибольшую эффективность работы приложения разработки и устранит некоторые проблемы работы в среде Dos.
+Интерфейс программы выполнен в стиле оконного приложения со всеми известными функциями, использовавшимися Turbo Pascal предыдущих версий. Несмотря на тот факт, что программе уже 20 лет, до сих пор она пользуется популярностью среди программистов и разработчиков. Программы, прошедшие компиляцию, также представлены в оконном режиме.Название программы: Turbo Pascal for WindowsЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569136   (454913) от 11.08.2022
+
+Microsoft .NET Framework 4.8.1 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft .NET Framework — программная платформа, выпущенная компанией Microsoft в 2002 году. Основой платформы является исполняющая среда Common Language Runtime (CLR), способная выполнять как обычные программы, так и серверные веб-приложения. .NET Framework поддерживает создание программ, написанных на разных языках программирования. Платформа необходима для установки (   Читать дальше...   )Язык интерфейса: Английский, Русский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6697220773F26B5BA379E8527B1406C046C164B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944494   (439553) от 07.10.2015
+
+EMCO MSI Package Builder Enterprise 5.2.9.3741 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_439553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для автоматической генерации пакетов Windows Installer. EMCO MSI Package Builder предназначен для создания файлов формата MSI, готовых для «тихой» установки. Приложение позволяет видеть в реальном времени все изменения, произведенные процессом установки конкретного приложения, и использовать полученные результаты для создания инсталляционных пакетов. Процесс (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0688A51191889B8391AEC1D2661E70390F17CFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571002   (438053) от 19.08.2022
+
+Java SE Development Kit 18.0.2.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
+Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FFF2CB953F402B8D2DD62FF79315619F094DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945015   (437294) от 08.10.2015
 
 Sybase PowerDesigner 16.5.0.3982 [En]
@@ -6,7 +190,7 @@ Sybase PowerDesigner 16.5.0.3982 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437294.jpg" />
+  <img src="Z:/picture/008/save_picture_437294.jpg" />
 </div>
 
 
@@ -32,7 +216,7 @@ Pascal ABC.NET 1.8 build 496 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_410951.jpg" />
+  <img src="Z:/picture/005/save_picture_410951.jpg" />
 </div>
 
 
@@ -64,7 +248,7 @@ NVIDIA Nsight Visual Studio Edition 2.2.0.12255 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396696.jpg" />
+  <img src="Z:/picture/005/save_picture_396696.jpg" />
 </div>
 
 
@@ -92,7 +276,7 @@ IDA Pro 7.0 2017 Incl. Hex-Rays Decompilers [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371225.jpg" />
+  <img src="Z:/picture/008/save_picture_371225.jpg" />
 </div>
 
 
@@ -119,7 +303,7 @@ DevelNext 16.7.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313789.jpg" />
+  <img src="Z:/picture/008/save_picture_313789.jpg" />
 </div>
 
 
@@ -146,7 +330,7 @@ Microsoft Visual C++ 2015 Redistributable Package 14.0.23506 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294287.jpg" />
+  <img src="Z:/picture/008/save_picture_294287.jpg" />
 </div>
 
 
@@ -172,7 +356,7 @@ JetBrains GoLand 2019.2.5 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267884.jpg" />
+  <img src="Z:/picture/008/save_picture_267884.jpg" />
 </div>
 
 
@@ -198,7 +382,7 @@ Intel Parallel Studio XE Cluster Edition 2019 Update 1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265571.jpg" />
 </div>
 
 
@@ -224,7 +408,7 @@ SQL Dynamite 2.5.3.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261659.jpg" />
 </div>
 
 
@@ -250,7 +434,7 @@ Microsoft  Visual C++ Runtimes AIO v0.103.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261546.jpg" />
 </div>
 
 
@@ -276,7 +460,7 @@ JetBrains dotUltimate 2025.2.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261331.jpg" />
+  <img src="Z:/picture/005/save_picture_261331.jpg" />
 </div>
 
 
@@ -305,7 +489,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259851.jpg" />
+  <img src="Z:/picture/005/save_picture_259851.jpg" />
 </div>
 
 
@@ -331,7 +515,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.21 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259840.jpg" />
+  <img src="Z:/picture/005/save_picture_259840.jpg" />
 </div>
 
 
@@ -357,7 +541,7 @@ Microsoft Visual Studio 2026 Professional 18.0.0 [11205.157] (Offline Cache) [Ru
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256804.jpg" />
+  <img src="Z:/picture/005/save_picture_256804.jpg" />
 </div>
 
 
@@ -383,7 +567,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.0 [11205.157] (Offline Cache) [Ru/E
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256803.jpg" />
+  <img src="Z:/picture/005/save_picture_256803.jpg" />
 </div>
 
 
@@ -409,7 +593,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255903.jpg" />
+  <img src="Z:/picture/005/save_picture_255903.jpg" />
 </div>
 
 
@@ -435,7 +619,7 @@ Microsoft Visual Studio 2022 Professional 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255902.jpg" />
+  <img src="Z:/picture/005/save_picture_255902.jpg" />
 </div>
 
 
@@ -461,7 +645,7 @@ JetBrains Rider 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255363.jpg" />
+  <img src="Z:/picture/005/save_picture_255363.jpg" />
 </div>
 
 
@@ -489,7 +673,7 @@ JetBrains WebStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255362.jpg" />
+  <img src="Z:/picture/005/save_picture_255362.jpg" />
 </div>
 
 
@@ -500,192 +684,6 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06AE3F1D146DBBEBB173B8F420E24C8C1B4AC8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625417   (255358) от 09.04.2023
-
-JetBrains PhpStorm 2023.1 [En]
-
->>След.
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255358.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
-поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1 и PHP 8.2 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание языков.
-Сотни (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE77101FA0ED69371DFD8D6832F81AB19A035A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625419   (255355) от 09.04.2023
-
-Jetbrains IntelliJ IDEA Ultimate 2023.1 [En]
-
->>След.
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255355.jpg" />
-</div>
-
-
-###  Подробнее
-
-IntelliJ IDEA — самая умная среда разработки для Java и других языков, включающая поддержку всех последних технологий и фреймворков, идеально подходящая для создания коммерческих, веб- и мобильных приложений.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2609143C6973FB218BE46267D41F6D36CDCFD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625415   (255353) от 09.04.2023
-
-JetBrains PyCharm Professional 2023.1 [En]
-
->>След.
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255353.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyCharm – это самая интеллектуальная Python IDE с полным набором средств для эффективной разработки на языке Python. Выпускается в двух вариантах – бесплатная версия PyCharm Community Edition и поддерживающая больший набор возможностей PyCharm Professional Edition. PyCharm выполняет инспекцию кода на лету, автодополнение, в том числе основываясь на информации, полученной (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A016232AAF6B8626BF70ED319CE2B88E2D22DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564963   (249585) от 21.07.2022
-
-Java SE Development Kit 8.0.341 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1349C16A905256F613015B6D45F8324A0E74AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540516   (245271) от 30.03.2022
-
-PowerShell Studio 2022 v5.8.202 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245271.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerShell Studio - это среда редактирования и инструментария для PowerShell. Создание графических инструментов с помощью PowerShell с простым в использовании конструктором GUI. Избавляет от необходимости вручную записывать сотни строк кода. Используйте встроенные шаблоны PowerShell Studio и проводные элементы управления для быстрого создания расширенного GUI. Создайте (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E72A8DC9F244E072E690FD1EB357F2BD884B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623029   (243389) от 31.03.2023
-
-Lahey/Fujitsu Fortran 7.9 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Lahey/Fujitsu Fortran 95 поддерживает автоматическое распараллеливание вычислений, в том числе с помощью библиотеки OpenMP 2.0. При целевой компиляции программ для процессоров Intel Pentium III и AMD Athlon поддерживается оптимизация конвейера упреждающей выборки. Кроме того, новая версия компилятора поддерживает адресацию массивов размером до 2 Гб. Новые компиляторы (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B3581687212DFF767242FB9512BB532ECC4302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625099   (241408) от 09.04.2023
-
-Code Composer Studio 12.2.0.00009 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среда разработки для Texas Instruments.
-Одно из известных устройств Launchpad - отладочная плата для семейства микроконтроллеров MSP430 от 8 до 16-битных. Плюс этой отладочной платы в её низкой цене и бесплатной доставки службой FedEx, лёгкий старт, работать с ней даже проще, чем с известным Arduino. В комплекте сразу получаете 2 МК, с тестовой программой. Программировние (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D27C9E2455EBFEF0AD92CE392FB9B4737F9A74
 ```
 
 https://mybot314.ru/tekegram_catalog/

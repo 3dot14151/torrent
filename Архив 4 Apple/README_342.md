@@ -1,3 +1,115 @@
+###  Публикация: 1156127   (528559) от 06.08.2017
+
+TinkerTool System 5.62 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528559.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System -  утилита для управления скрытыми настройками операционной системы Mac OS X.
+
+Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: август 2017Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB70A6E317DC1B42FA0770E956580D7DC6909B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927424   (528518) от 13.08.2015
+
+Aurora Blu-ray Player 2.17.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aurora Blu-ray Media Player - это универсальный HD мультимедиа проигрыватель .
+Может воспроизводить диски Blu-ray, ISO образы файлов Blu-ray, стандартные Blu-ray папки, DVD, VCD, CD, и другие видео форматы. Её мощные функции также отображены в самых современных аудио технологиях: DTS HD 7.1, DTS/AC3 5.1.
+
+Поддержка большинства аудио и видео форматов, в том числе: (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 15 июня 2015Разработчик: Aurora Software Inc.Поддерживаемая ОС: Mac OS X 10.6  +Язык интерфейса: Русский, Немецкий, Английский, Французский  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E443BEFC68D245C2C5B404844E6283BB8776D06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916244   (528509) от 13.08.2015
+
+Alternote 1.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alternote — идеальный клиент для Evernote
+Alternote — это приложение для Mac, которое заменяет собой клиент для Evernote. Больше всего Alternote напоминает какой-то простейший заметочник, но на деле подтягивает всю базу ваших заметок и позволяет работать с ними без ограничений.
+
+Интерфейс выглядит очень просто и разделён на три области. Панель слева показывает список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 августа 2015Разработчик: MABee Arts LtdПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB7DE4B148C14DCB6A2C38C1B12882C2681B4A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558805   (528432) от 22.06.2022
+
+Adobe Premiere Pro 2022 22.5.0 U2B [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2022Разработчик: © 1991 - 2022 Adobe SystemsПоддерживаемая ОС: macOS X 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F5D004F2F36674CAE034E9FDAF9BA239723E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052298   (528244) от 14.09.2016
 
 Swinsian 1.12.1 (295) [En]
@@ -6,7 +118,7 @@ Swinsian 1.12.1 (295) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528244.jpg" />
+  <img src="Z:/picture/008/save_picture_528244.jpg" />
 </div>
 
 
@@ -33,7 +145,7 @@ Textual 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528241.jpg" />
+  <img src="Z:/picture/008/save_picture_528241.jpg" />
 </div>
 
 
@@ -62,7 +174,7 @@ Currencier 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528190.jpg" />
+  <img src="Z:/picture/008/save_picture_528190.jpg" />
 </div>
 
 
@@ -91,7 +203,7 @@ Viscosity 1.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528129.jpg" />
+  <img src="Z:/picture/008/save_picture_528129.jpg" />
 </div>
 
 
@@ -120,7 +232,7 @@ Tower 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528126.jpg" />
+  <img src="Z:/picture/008/save_picture_528126.jpg" />
 </div>
 
 
@@ -147,7 +259,7 @@ Circular Studio 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528123.jpg" />
+  <img src="Z:/picture/008/save_picture_528123.jpg" />
 </div>
 
 
@@ -174,7 +286,7 @@ TechSmith Snagit 4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527943.jpg" />
+  <img src="Z:/picture/008/save_picture_527943.jpg" />
 </div>
 
 
@@ -201,7 +313,7 @@ Magic Sort List 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527870.jpg" />
+  <img src="Z:/picture/008/save_picture_527870.jpg" />
 </div>
 
 
@@ -229,7 +341,7 @@ Valentina Studio Pro 12.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527869.jpg" />
+  <img src="Z:/picture/008/save_picture_527869.jpg" />
 </div>
 
 
@@ -255,7 +367,7 @@ PDF Search 12.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527868.jpg" />
+  <img src="Z:/picture/008/save_picture_527868.jpg" />
 </div>
 
 
@@ -281,7 +393,7 @@ Movist 2.7.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527845.jpg" />
+  <img src="Z:/picture/008/save_picture_527845.jpg" />
 </div>
 
 
@@ -308,7 +420,7 @@ SponsorBlock for YouTube 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527842.jpg" />
+  <img src="Z:/picture/008/save_picture_527842.jpg" />
 </div>
 
 
@@ -334,7 +446,7 @@ Noir – Dark Mode for Safari 2022.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527841.jpg" />
+  <img src="Z:/picture/008/save_picture_527841.jpg" />
 </div>
 
 
@@ -362,7 +474,7 @@ OmniPlayer Pro - Media Player 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527840.jpg" />
+  <img src="Z:/picture/008/save_picture_527840.jpg" />
 </div>
 
 
@@ -388,7 +500,7 @@ Website Watchman 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527838.jpg" />
+  <img src="Z:/picture/008/save_picture_527838.jpg" />
 </div>
 
 
@@ -414,7 +526,7 @@ Sweet Home 3D 6.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527795.jpg" />
+  <img src="Z:/picture/008/save_picture_527795.jpg" />
 </div>
 
 
@@ -440,7 +552,7 @@ EdgeView 3 v3.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527792.jpg" />
+  <img src="Z:/picture/008/save_picture_527792.jpg" />
 </div>
 
 
@@ -466,7 +578,7 @@ DxO PhotoLab 5 ELITE Edition 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527790.jpg" />
+  <img src="Z:/picture/008/save_picture_527790.jpg" />
 </div>
 
 
@@ -493,7 +605,7 @@ Movavi Screen Recorder 22 v22.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527750.jpg" />
+  <img src="Z:/picture/008/save_picture_527750.jpg" />
 </div>
 
 
@@ -519,7 +631,7 @@ TotalFinder 1.14.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527744.jpg" />
+  <img src="Z:/picture/008/save_picture_527744.jpg" />
 </div>
 
 
@@ -546,7 +658,7 @@ Startupizer 2.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527735.jpg" />
+  <img src="Z:/picture/008/save_picture_527735.jpg" />
 </div>
 
 
@@ -575,7 +687,7 @@ Things 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527726.jpg" />
+  <img src="Z:/picture/008/save_picture_527726.jpg" />
 </div>
 
 
@@ -588,118 +700,6 @@ Things — приятный и простой ежедневник. Это ид�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C95D3ED1BBE3EEBD0C4A039A00B6D150BE4F7A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156525   (527718) от 07.08.2017
-
-Hands Off! 3.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hands Off! - контроль доступа в Интернет
-Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07 августа 2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A79BBB1F936203E628CDE7C942ACA11D9D4585A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052543   (527715) от 14.09.2016
-
-Bartender 2.1.6 [En]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 сентября 2016Разработчик: Surtees Studios LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5845AC8AF44A6074D50ED2E57D972F21DF345B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156451   (527562) от 07.08.2017
-
-Pixellu SmartAlbums 2 v2.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы: теперь легко
-SmartAlbums является революционным программным обеспечением, которое позволит создавать фотоальбомы быстро и весело! Простота установки, экономя время и творчество!
-
-Экспериментируйте с дизайном, перемешайте и размещайте фотографии ... Используйте готовые шаблоны или используйте возможность создать свой собственный. SmartAlbum, создан фотографами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 августа 2017Разработчик: PIXELLUПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5C2512CE922859324C6EB9289461854C10702D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052768   (527330) от 15.09.2016
-
-Blocs 2.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой способ создания красивых сайтов.
-Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
-
-Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 сентября 2016Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8629969465324534CA2407DAAE95D6EC77A2C91D
 ```
 
 https://mybot314.ru/tekegram_catalog/

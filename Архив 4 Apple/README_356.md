@@ -1,3 +1,114 @@
+###  Публикация: 1565543   (492459) от 24.07.2022
+
+WidsMob Viewer Pro 2.18 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть ли способ просмотреть все изображения в одной папке на Mac? Как просмотреть несколько фотографий с быстрой скоростью? Как выбрать и экспортировать нужные фотографии? Для того чтобы иметь приятный опыт работы с фотографиями, WidsMob Viewer может быть решением, которое необходимо принять во внимание.Тип издания: macOS SoftwareРелиз состоялся: 23.07.2022Разработчик: © 2022 WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Арабский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF5B338508360F064F4817DEB09492AFD130A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565734   (492457) от 24.07.2022
+
+Omni Recover 3 v3.3.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
+Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189A2C61BFF13ED98B6E26AE994720BC2B294B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565733   (492436) от 24.07.2022
+
+Fix My iPhone 2.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fix My iPhone — это инструмент для восстановления системы iOS. Устраняет все известные неисправности на  вашем iPhone:
+• Зависший на логотипе Apple
+• Черный / зависший экран
+• Ошибки обновления / восстановления iTunes и более 50+ сбоев обновления iOS 15(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:854A79A88D7C6886D35C20252F3B0BDF47BA6D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054357   (492369) от 20.09.2016
+
+X Lossless Decoder 20160920 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492369.jpg" />
+</div>
+
+
+###  Подробнее
+
+X Lossless Decoder - Lossless аудио декодер для  OS X
+X Lossless Decoder (XLD) для Mac OS X позволяет декодировать, конвертировать и воспроизводить аудиоданные в различных lossless-форматах. Файлы поддерживаемых форматов во время декодирования могут быть разбиты на отдельные треки на основе информации в файлах cue sheet.
+
+Результат может быть сохранен в файлах: WAVE, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 сентября 2016Разработчик: TmkkПоддерживаемая ОС: Mac OS X 10.4 +Язык интерфейса: Русский, Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60E58EDA8A16D196E0DF779CF31B4A5CDD89B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936956   (492122) от 13.09.2015
 
 Data Rescue 4.2 [En]
@@ -6,7 +117,7 @@ Data Rescue 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492122.jpg" />
+  <img src="Z:/picture/008/save_picture_492122.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ Leaf - RSS News Reader 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492095.jpg" />
+  <img src="Z:/picture/008/save_picture_492095.jpg" />
 </div>
 
 
@@ -63,7 +174,7 @@ beaTunes 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492092.jpg" />
+  <img src="Z:/picture/008/save_picture_492092.jpg" />
 </div>
 
 
@@ -92,7 +203,7 @@ iStat Menus 5.32 (730) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492088.jpg" />
+  <img src="Z:/picture/008/save_picture_492088.jpg" />
 </div>
 
 
@@ -121,7 +232,7 @@ Parallels Desktop Business Edition 11.0.1 (31277) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491219.jpg" />
+  <img src="Z:/picture/008/save_picture_491219.jpg" />
 </div>
 
 
@@ -147,7 +258,7 @@ ProFind 1.14.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490511.jpg" />
+  <img src="Z:/picture/008/save_picture_490511.jpg" />
 </div>
 
 
@@ -173,7 +284,7 @@ EdgeView 3 v3.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490509.jpg" />
+  <img src="Z:/picture/008/save_picture_490509.jpg" />
 </div>
 
 
@@ -199,7 +310,7 @@ FontLab 8 v8.0.1.8237 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490508.jpg" />
+  <img src="Z:/picture/008/save_picture_490508.jpg" />
 </div>
 
 
@@ -226,7 +337,7 @@ DropDMG 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490418.jpg" />
+  <img src="Z:/picture/008/save_picture_490418.jpg" />
 </div>
 
 
@@ -253,7 +364,7 @@ Swinsian 1.12.2 (297) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490415.jpg" />
+  <img src="Z:/picture/008/save_picture_490415.jpg" />
 </div>
 
 
@@ -280,7 +391,7 @@ BBEdit 11.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490411.jpg" />
+  <img src="Z:/picture/008/save_picture_490411.jpg" />
 </div>
 
 
@@ -306,7 +417,7 @@ Transmit 5.5.2 (124163) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490373.jpg" />
+  <img src="Z:/picture/008/save_picture_490373.jpg" />
 </div>
 
 
@@ -332,7 +443,7 @@ BarLinks: Menu Bar Bookmarks 1.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490356.jpg" />
+  <img src="Z:/picture/008/save_picture_490356.jpg" />
 </div>
 
 
@@ -358,7 +469,7 @@ EazyDraw 10.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490348.jpg" />
+  <img src="Z:/picture/008/save_picture_490348.jpg" />
 </div>
 
 
@@ -384,7 +495,7 @@ Live Home 3D Pro Edition 4.4.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490347.jpg" />
+  <img src="Z:/picture/008/save_picture_490347.jpg" />
 </div>
 
 
@@ -411,7 +522,7 @@ Deflection Pro 6.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490343.jpg" />
+  <img src="Z:/picture/008/save_picture_490343.jpg" />
 </div>
 
 
@@ -438,7 +549,7 @@ Affinity Designer 1.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490340.jpg" />
+  <img src="Z:/picture/008/save_picture_490340.jpg" />
 </div>
 
 
@@ -467,7 +578,7 @@ PDF Squeezer 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490292.jpg" />
+  <img src="Z:/picture/008/save_picture_490292.jpg" />
 </div>
 
 
@@ -496,7 +607,7 @@ Carbon Copy Cloner 4.1.10 (4425) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490288.jpg" />
+  <img src="Z:/picture/008/save_picture_490288.jpg" />
 </div>
 
 
@@ -525,7 +636,7 @@ MarsEdit 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490231.jpg" />
+  <img src="Z:/picture/008/save_picture_490231.jpg" />
 </div>
 
 
@@ -551,7 +662,7 @@ Carbon Copy Cloner 4.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490161.jpg" />
+  <img src="Z:/picture/008/save_picture_490161.jpg" />
 </div>
 
 
@@ -580,7 +691,7 @@ Path Finder 7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490105.jpg" />
+  <img src="Z:/picture/008/save_picture_490105.jpg" />
 </div>
 
 
@@ -591,114 +702,6 @@ Path Finder - один из лучших файловых менеджеров, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:516344F75B98E82D94DCF943C9FA9B69264EE515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157562   (490055) от 17.08.2017
-
-OmmWriter 1.52 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490055.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmmWriter - скромная попытка вернуть себе то, что технология вырвала у нас сегодня: наша способность концентрироваться.
-
-OmmWriter - это инструмент, который позволяет снова писать в удовольствие, позволяя пользователям оставаться наедине со своими мыслями; Сконцентрироваться и писать без отвлечения. OmlWriter - это нечто большее, чем текстовый процессор.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 июля 2017Разработчик: Herraiz Soto & Co.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6764303AA39838BA21F507E1DAABEAA501C54ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404878   (489883) от 27.08.2020
-
-MediaInfo 20.08.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489883.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 21.08.2020Разработчик: MediaAreaПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705DDF71F131ADCA774108DF4629A7E8A490CD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243579   (489838) от 28.08.2018
-
-Hands Off! 3.2.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hands Off! представляет собой функциональный и простой в использовании инструмент для платформы macOS может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность утечки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2018Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A88C84623BC5FE1AE805619445D8FA9C72E329E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404820   (489755) от 27.08.2020
-
-TG Pro (Temperature Gauge Pro) 2.49 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489755.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.08.2020Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA72DD3FDFB16C365CA179E77856ED2A7A718361
 ```
 
 https://mybot314.ru/tekegram_catalog/

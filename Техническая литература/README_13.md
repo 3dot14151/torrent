@@ -6,7 +6,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667758.jpg" />
+  <img src="Z:/picture/008/save_picture_667758.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Infineon Technologies | Полупроводниковая электроник�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667698.jpg" />
+  <img src="Z:/picture/008/save_picture_667698.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667077.jpg" />
+  <img src="Z:/picture/008/save_picture_667077.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666714.jpg" />
+  <img src="Z:/picture/008/save_picture_666714.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666651.jpg" />
+  <img src="Z:/picture/008/save_picture_666651.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665426.jpg" />
+  <img src="Z:/picture/008/save_picture_665426.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665252.jpg" />
+  <img src="Z:/picture/008/save_picture_665252.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665251.jpg" />
+  <img src="Z:/picture/008/save_picture_665251.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664671.jpg" />
+  <img src="Z:/picture/008/save_picture_664671.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664257.jpg" />
+  <img src="Z:/picture/008/save_picture_664257.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663821.jpg" />
+  <img src="Z:/picture/008/save_picture_663821.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662114.jpg" />
+  <img src="Z:/picture/008/save_picture_662114.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662113.jpg" />
+  <img src="Z:/picture/008/save_picture_662113.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661105.jpg" />
+  <img src="Z:/picture/008/save_picture_661105.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659646.jpg" />
+  <img src="Z:/picture/008/save_picture_659646.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658433.jpg" />
+  <img src="Z:/picture/008/save_picture_658433.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657708.jpg" />
+  <img src="Z:/picture/008/save_picture_657708.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656893.jpg" />
+  <img src="Z:/picture/008/save_picture_656893.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ REXANT | Электротехническое оборудование. Ката
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655305.jpg" />
+  <img src="Z:/picture/008/save_picture_655305.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655267.jpg" />
+  <img src="Z:/picture/008/save_picture_655267.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ NEON-NIGHT | Декоративная светотехника 2015 (2015) [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655236.jpg" />
+  <img src="Z:/picture/008/save_picture_655236.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654203.jpg" />
+  <img src="Z:/picture/008/save_picture_654203.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654133.jpg" />
+  <img src="Z:/picture/008/save_picture_654133.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653746.jpg" />
+  <img src="Z:/picture/008/save_picture_653746.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653679.jpg" />
+  <img src="Z:/picture/008/save_picture_653679.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ NSGate | Оборудование для связи и IP-видеонаблюд
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652992.jpg" />
+  <img src="Z:/picture/008/save_picture_652992.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 983217   (943117) от 06.02.2016
+
+Бильярдная братия / Rack Pack (2016) WEBRip [H.264/720p-LQ] [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это художественный драматический биографический фильм о снукере в период его расцвета в 70-80-е годы, в центре сюжета – конкуренция между горячим смутьяном Алексом "Ураганом" Хиггинсом и его невозмутимым в своем спокойствии "ледяным" противником Стивом Дэвисом. В фильме, снятом в жанре трагикомедии, рассказывается и про то, как с помощью Дэвиса (   Читать дальше...   )Производство: США, Великобритания, BBCЖанр: ДрамаРежиссер: Брайан УэлшАктеры: Люк Тридэуэй, Уилл Меррик, Кевин Бишоп, Никола Берли, Джеймс БэйлиПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: sprvisionСубтитры: ОтсутствуютПродолжительность: 01:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B4A0941374333249E18320FB56554B5B0C9BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983268   (943098) от 06.02.2016
+
+Стив Джобс / Steve Jobs (2015) BDRip [H.264/1080p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Стив Джобс» - биографическая лента об одном из пионеров эры IT-технологий. Картина разделена на три условные части, каждая из которых рассказывает о важном для Джобса периоде, связанном с выпуском ключевых продуктов его компании. В 1984 году Стив вместе с командой разработчиков презентовал Макинтош. 1988 год - Apple теряла долю на рынке, испытывала сложности (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Драма, биографияРежиссер: Дэнни БойлАктеры: Майкл Фассбендер, Сет Роген, Джефф Дэниелс, Кейт Уинслет, Майкл Стулбарг, Кэтрин Уотерстон, Перла Аней-Жардине, Рипли Собо, Макензи Мосс, Сара Снук.Перевод: Дублированный (Чистый звук)Язык субтитров: РусскийПродолжительность: 02:02:21Реклама: Присутствует голосовая вставка рекламы в начале.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2876450F38848A7EAE4779E1FCCB896AF2B6F88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982835   (943094) от 06.02.2016
+
+Avast Premier 2016.11.1.2253 Final [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943094.jpg" />
+</div>
+
+
+###  Подробнее
+
+avast! Premier – самый мощный из всех существующих антивирусов avast. Версия Premier обладает многослойной антивирусной защитой, веб-контролем угроз, брандмаэуром, проверкой облачных технологий и всех систем виртуализции. Программа представляет собой улучшенную версию avast Internet Security, которая снабжена функцией удаления файла без возможности восстановления, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7A8094B2FBF6EDB076F92E84726803328EA87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 281645   (942856) от 15.01.2011
+
+Бэтмен / Batman (1989, 1992, 1995, 1997, 2005, 2008) [1080p] Blu-Ray [Коллекция]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бэтмен поднимает ставки в войне с криминалом. С помощью лейтенанта Джима Гордона и прокурора Харви Дента он намерен очистить улицы от преступности, отравляющей город. Сотрудничество оказывается эффективным, но скоро они обнаружат себя посреди хаоса, развязанного восходящим криминальным гением, известным испуганным горожанам под именем Джокер.Жанр: Боевик, Триллер, ФантастикаРежиссер: Кристофер Нолан.Актеры: Кристиан Бэйл, Хит Леджер, Аарон Экхарт, Майкл Кейн, Мэгги Джилленхол, Гари Олдман, Морган Фриман, Моника Карнен, Рон Дин, Киллиан Мёрфи и др.Перевод: ДублированныйЯзык субтитров: Русские, Английские, Арабские, Болгарские, Исландские, Хорватские, Чешские, Венгерские, Польские, Румынские, Словенские, Турецкие, Хинди, ИвритПродолжительность: 02:32:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090540   (942468) от 09.01.2017
 
 GOIT | [GoJava EE Online] (2016) PCRec [H.264/720p]
@@ -6,7 +110,7 @@ GOIT | [GoJava EE Online] (2016) PCRec [H.264/720p]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942468.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942333.jpg" />
 </div>
 
 
@@ -62,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941702.jpg" />
 </div>
 
 
@@ -91,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941354.jpg" />
 </div>
 
 
@@ -117,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941347.jpg" />
 </div>
 
 
@@ -146,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941341.jpg" />
 </div>
 
 
@@ -172,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940815.jpg" />
 </div>
 
 
@@ -198,7 +302,7 @@ Microsoft Office Professional 2003 SP3 (обновления 09.01.2017) RePack 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940812.jpg" />
 </div>
 
 
@@ -224,7 +328,7 @@ Mass Effect Trilogy / Трилогия Mass Effect [Ru/En] (RePack/1.02, 1.02, 1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940620.jpg" />
 </div>
 
 
@@ -251,7 +355,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 Final (f) [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940612.jpg" />
 </div>
 
 
@@ -279,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940470.jpg" />
 </div>
 
 
@@ -305,7 +409,7 @@ Nvidia DriverPack v.442.50 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940466.jpg" />
 </div>
 
 
@@ -332,7 +436,7 @@ PROMT 20 Expert Portable by conservator [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940431.jpg" />
 </div>
 
 
@@ -361,7 +465,7 @@ Deep Forest - Essence Of The Forest by Deep Forest (2004) [DTS]<New Age>
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940424.jpg" />
 </div>
 
 
@@ -390,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940418.jpg" />
 </div>
 
 
@@ -416,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940417.jpg" />
 </div>
 
 
@@ -442,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_939899.jpg" />
+  <img src="Z:/picture/009/save_picture_939899.jpg" />
 </div>
 
 
@@ -468,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939797.jpg" />
 </div>
 
 
@@ -494,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939578.jpg" />
 </div>
 
 
@@ -521,7 +625,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.0.0s/dlc) Repack R.G. Механи
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939537.jpg" />
 </div>
 
 
@@ -547,7 +651,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack R.G. Revenants [Apex Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939469.jpg" />
 </div>
 
 
@@ -573,7 +677,7 @@ Test Drive Unlimited Gold(2008) [Ru] (1.66а/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939463.jpg" />
 </div>
 
 
@@ -584,113 +688,6 @@ Test Drive Unlimited Gold(2008) [Ru] (1.66а/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C301BF57E4A81839D160268153042C8F179469D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983618   (939435) от 08.02.2016
-
-Сергей Сараханов | Основы фотографии (2015) CamRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальный курс по фотографии, от Сергея Сараханова
-пройдя который вы сможете смело шагнуть в профессиональную сферу!Жанр: ФотографияПродолжительность: 09:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1C6A18FA8DAFC24AF4320F6EBAF7498FE409E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984145   (939428) от 08.02.2016
-
-Хватай и беги / Freaks of Nature (2015) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет о группе учеников старших классов, атакованных зомби. Пока ничего необычного. Однако в то время как школьники спасаются бегством, зомби подвергаются нападению вампиров. Все становится еще веселее, когда на Землю высаживаются инопланетяне. Теперь школьникам придется объединиться с зомби и вампирами, чтобы остановить вторжение на нашу планету.Производство: США | Columbia Pictures, Sony Pictures Entertainment (SPE)Жанр: Ужасы, КомедияРежиссер: Робби ПикерингАктеры: Николас Браун, Маккензи Дэвис, Джош Фэйдем, Дэнис Лири, Эд Вествик, Ванесса Энн Хадженс, Кигэн-Майкл Ки, Боб Оденкёрк, Джоан Кьюсак, Крис ЗилкаПеревод: Многоголосый закадровый, профессиональный (iTunes)Продолжительность: 01:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4F678C8DE65CD0CCA5012402260E89CC061D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591026   (939358) от 08.03.2013
-
-Sleeping Dogs - Limited Edition + 21 DLC [Ru/En/Multi7] (Repack/2.1) 2012 | R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Гонконг, город, в котором дрожащий свет неоновых огней тесно переплетается с повседневной жизнью, город, чьи экзотические места и бурлящие улицы скрывают одну из самых могущественных и опасных криминальных организаций во всем мире — Триад.
-
-В этой игре с открытым миром вам предстоит примерить на себя роль Вей Шена, полицейского под прикрытием, который пытается разрушить банды Триад изнутри. Докажите свою значимость на пути к верхушкам этой организации, приняв участие в жестоких криминальных операциях, и не дайте преступникам раскрыть себя. Разрываясь между верностью к полицейскому значку и бандитским кодексом чести, вам придется поставить на кон всё и не запутаться в размытых границах между правдой, преданностью и справедливостью.(   Читать дальше...   )Тип издания: RepackРазработчик: United Front GamesЖанр: Action, Open worldЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, Итальянский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Итальянский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D48342E87D314C9728D78A579377B4F3F169B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363642   (939176) от 01.03.2020
-
-Ростех передал заказчику первый серийный Ми-38
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый серийный Ми-38 с салоном повышенной комфортности передан заказчику — компании «Газпромбанк Лизинг». Эксплуатантом машины, произведенной на Казанском вертолетном заводе, станет компания Русские вертолетные системы (РВС).Передача первого вертолета Ми-38 — важный этап, подтверждающий готовность КВЗ к серийным поставкам машин данного типа как для коммерческих (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

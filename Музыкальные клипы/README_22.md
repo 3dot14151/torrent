@@ -1,3 +1,89 @@
+###  Публикация: 941426   (462055) от 27.09.2015
+
+VA - Осенний марафон № 194 / Видеоклипы (Зарубежный Коктейль Танцевальных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_462055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (27.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexander Brown ft. Jack Savoretti - Jack In A Box (Official Video) (00:03:31)
+2. Carina Dahl - Champions (Official Video) (00:03:40)
+3. Cassadee Pope - I Am Invincible (Official Video) (00:03:33)
+4. Chris Brown - Liquor Zero (Explicit Version) (Official Video) (00:09:30)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, SynthpopПродолжительность: 01:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B5BD27EDF567644DF0DD6335989210468B6189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059305   (461385) от 04.10.2016
+
+Robbie Williams - Party Like A Russian (2016) WEB-DL [MPEG-4/1080p-LQ]
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский певец Робби Уильямс объяснил, почему песня Party Like A Russian из его нового альбома посвящена русской гулянке.
+«Частью британского самовосприятия является поголовная вера в то, что мы самые лучшие в веселье, да и многие страны думают так о себе. Но не существует такой вечеринки, как русская вечеринка», — говорится в ответе Уильямса.
+30 сентября певец (   Читать дальше...   )Жанр: Pop, Dance, BritpopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C51827DA30455500910C67D230DDADF03B92BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703143   (461351) от 25.09.2013
+
+Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Highway Star
+02. Curved Air - Back Street Luv
+03. Canned Heat - Big City
+04. Deep Purple - No, No, No(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE55149788FE0D04E75C285B380754338948578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 703774   (461254) от 25.09.2013
 
 Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
@@ -6,7 +92,7 @@ Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461254.jpg" />
+  <img src="Z:/picture/008/save_picture_461254.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460735.jpg" />
+  <img src="Z:/picture/008/save_picture_460735.jpg" />
 </div>
 
 
@@ -61,7 +147,7 @@ Sika - Love Kills (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460733.jpg" />
+  <img src="Z:/picture/008/save_picture_460733.jpg" />
 </div>
 
 
@@ -87,7 +173,7 @@ Antonia - Jameia (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460729.jpg" />
+  <img src="Z:/picture/008/save_picture_460729.jpg" />
 </div>
 
 
@@ -113,7 +199,7 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460572.jpg" />
+  <img src="Z:/picture/008/save_picture_460572.jpg" />
 </div>
 
 
@@ -139,7 +225,7 @@ INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460330.jpg" />
+  <img src="Z:/picture/008/save_picture_460330.jpg" />
 </div>
 
 
@@ -165,7 +251,7 @@ Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460097.jpg" />
+  <img src="Z:/picture/008/save_picture_460097.jpg" />
 </div>
 
 
@@ -194,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460086.jpg" />
+  <img src="Z:/picture/008/save_picture_460086.jpg" />
 </div>
 
 
@@ -220,7 +306,7 @@ Little Big - Tacos (2020) WEBRip [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459951.jpg" />
+  <img src="Z:/picture/008/save_picture_459951.jpg" />
 </div>
 
 
@@ -246,7 +332,7 @@ BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459652.jpg" />
+  <img src="Z:/picture/008/save_picture_459652.jpg" />
 </div>
 
 
@@ -272,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459477.jpg" />
+  <img src="Z:/picture/008/save_picture_459477.jpg" />
 </div>
 
 
@@ -301,7 +387,7 @@ Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458367.jpg" />
+  <img src="Z:/picture/008/save_picture_458367.jpg" />
 </div>
 
 
@@ -327,7 +413,7 @@ Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458365.jpg" />
+  <img src="Z:/picture/008/save_picture_458365.jpg" />
 </div>
 
 
@@ -353,7 +439,7 @@ Legends Disco Star-80 (2009) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458069.jpg" />
+  <img src="Z:/picture/008/save_picture_458069.jpg" />
 </div>
 
 
@@ -383,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456447.jpg" />
+  <img src="Z:/picture/008/save_picture_456447.jpg" />
 </div>
 
 
@@ -412,7 +498,7 @@ LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456154.jpg" />
+  <img src="Z:/picture/008/save_picture_456154.jpg" />
 </div>
 
 
@@ -439,7 +525,7 @@ ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456112.jpg" />
+  <img src="Z:/picture/008/save_picture_456112.jpg" />
 </div>
 
 
@@ -465,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455017.jpg" />
+  <img src="Z:/picture/008/save_picture_455017.jpg" />
 </div>
 
 
@@ -505,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453773.jpg" />
+  <img src="Z:/picture/008/save_picture_453773.jpg" />
 </div>
 
 
@@ -531,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453750.jpg" />
+  <img src="Z:/picture/008/save_picture_453750.jpg" />
 </div>
 
 
@@ -557,7 +643,7 @@ Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453457.jpg" />
+  <img src="Z:/picture/008/save_picture_453457.jpg" />
 </div>
 
 
@@ -583,7 +669,7 @@ Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453324.jpg" />
+  <img src="Z:/picture/008/save_picture_453324.jpg" />
 </div>
 
 
@@ -609,7 +695,7 @@ Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453319.jpg" />
+  <img src="Z:/picture/008/save_picture_453319.jpg" />
 </div>
 
 
@@ -620,84 +706,6 @@ Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E9FD177EE015E37D8B471FF1BA7C4CD3C54056F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551375   (453317) от 24.09.2012
-
-Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF37E63A28282B455859465B1D91157CC07907D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551378   (453120) от 24.09.2012
-
-Booba - Caramel (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-HopПродолжительность: 00:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F639A9DB86D19E1C2F114F96149EE5EEDCDF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551840   (451422) от 25.09.2012
-
-Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69685E22BD73416FC7763E257CD5FF611A63DFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

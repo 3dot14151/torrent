@@ -6,7 +6,7 @@ Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300089.jpg" />
+  <img src="Z:/picture/008/save_picture_300089.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299940.jpg" />
+  <img src="Z:/picture/008/save_picture_299940.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299800.jpg" />
+  <img src="Z:/picture/008/save_picture_299800.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299668.jpg" />
+  <img src="Z:/picture/008/save_picture_299668.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299654.jpg" />
+  <img src="Z:/picture/008/save_picture_299654.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299638.jpg" />
+  <img src="Z:/picture/008/save_picture_299638.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Guf & Slim - GUSLI II (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298613.jpg" />
+  <img src="Z:/picture/008/save_picture_298613.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lenin & Карандаш - После шоу (2016) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295768.jpg" />
+  <img src="Z:/picture/008/save_picture_295768.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294083.jpg" />
+  <img src="Z:/picture/008/save_picture_294083.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Chemodan - Абсурд и аллегория (2015) [MP3|320 кб/с]<Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290618.jpg" />
+  <img src="Z:/picture/008/save_picture_290618.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Noize MC - *кустик* (2015) Live [MP3|320 кб/с]<Acoustic, Rap, Alternati
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290608.jpg" />
+  <img src="Z:/picture/008/save_picture_290608.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285745.jpg" />
+  <img src="Z:/picture/008/save_picture_285745.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281896.jpg" />
+  <img src="Z:/picture/008/save_picture_281896.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ KillaGram - Возвращение легенды (2019) [MP3|192 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278961.jpg" />
+  <img src="Z:/picture/008/save_picture_278961.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276418.jpg" />
+  <img src="Z:/picture/008/save_picture_276418.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275818.jpg" />
+  <img src="Z:/picture/008/save_picture_275818.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Noize MC - Царь Горы (2016) [MP3|320 Kbps] <Rap, Rock, Electronic>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273178.jpg" />
+  <img src="Z:/picture/008/save_picture_273178.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Cмоки Мо и Zloi Negr - Доспехи Бога 2 (2017) [MP3|320 Kbps] <R
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270341.jpg" />
+  <img src="Z:/picture/008/save_picture_270341.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268570.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266987.jpg" />
+  <img src="Z:/picture/008/save_picture_266987.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264245.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Anacondaz - Ночь с астраханцем (2025) [MP3|320 Kbps] <Rap, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258034.jpg" />
+  <img src="Z:/picture/005/save_picture_258034.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255508.jpg" />
+  <img src="Z:/picture/005/save_picture_255508.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255051.jpg" />
+  <img src="Z:/picture/005/save_picture_255051.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Рэп для любимых женщин (2023) [MP3|320 Kbps] <Rap, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250224.jpg" />
+  <img src="Z:/picture/004/save_picture_250224.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246001.jpg" />
+  <img src="Z:/picture/004/save_picture_246001.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 965929   (222815) от 16.12.2015
+
+VA - Sunrise Avenue Vol 6 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasper Jones - I Want to Meet You Again - Original Mix
+02. Nat Wood - Te Quiero Mi Vida - Original Mix
+03. Frederic Flores - Groove Therapy - Original Mix
+04. James Wilson - Reggae Morning - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BBA0A94632A906EBA77A3D19BE7C39BC48DA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965981   (222805) от 16.12.2015
+
+VA - Soothing Music Finest in Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Florea - Garden of Balance
+02. Relaxea - Into the Blue
+03. Oscar Salguero - We Have to Go Back
+04. M. Vitoria - Shakra Naom(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DF882E346D155DD8C59A5919BC0D3F25FCECBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342452   (222794) от 03.12.2019
 
 VA - Beatport Techno 01 (2019) [MP3|320 Kbps] <Techno, Edm>
@@ -6,7 +64,7 @@ VA - Beatport Techno 01 (2019) [MP3|320 Kbps] <Techno, Edm>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222794.jpg" />
+  <img src="Z:/picture/005/save_picture_222794.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Dream City: Urban Electro House (2019) [MP3|320 Kbps] <Electro House, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222775.jpg" />
+  <img src="Z:/picture/005/save_picture_222775.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - New Habitat: Synth Electronic Music (2019) [MP3|320 Kbps] <Synthwave, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222739.jpg" />
+  <img src="Z:/picture/005/save_picture_222739.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - crazyДвиж number chetyre (2020) [MP3|320 Kbps] <Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222676.jpg" />
+  <img src="Z:/picture/005/save_picture_222676.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Inner Miracle (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222582.jpg" />
+  <img src="Z:/picture/005/save_picture_222582.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - After Christmas Lounge Chilled and Relaxed Lounge Tunes (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221171.jpg" />
+  <img src="Z:/picture/005/save_picture_221171.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Bedroom Chillout and Ambient (2015) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221095.jpg" />
+  <img src="Z:/picture/005/save_picture_221095.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - SVS Collection vol. 7 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220976.jpg" />
+  <img src="Z:/picture/005/save_picture_220976.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - PromoDJ Top 100 Remix (2015) [MP3|224-320 кб/с] <Club house, Vocal house
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220805.jpg" />
+  <img src="Z:/picture/005/save_picture_220805.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Madjestic Drum And Bass (2019) [MP3|320 Kbps] <Drum And Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220226.jpg" />
+  <img src="Z:/picture/005/save_picture_220226.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Autumn Light Deep (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219956.jpg" />
+  <img src="Z:/picture/005/save_picture_219956.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Deep House Collection Vol.101 (2016) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219943.jpg" />
+  <img src="Z:/picture/005/save_picture_219943.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Beatport Electro House: Sound Pack #563 (2022) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219877.jpg" />
+  <img src="Z:/picture/005/save_picture_219877.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Glamorous Sport Music (2022) [MP3|320 Kbps] <Uplifting, Vocal-Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219854.jpg" />
+  <img src="Z:/picture/005/save_picture_219854.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - D&B: Best New Electro Bass Hype Mix (2021) [MP3|320 Kbps] <Drum And Bass, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219719.jpg" />
+  <img src="Z:/picture/005/save_picture_219719.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Hypnotic Techno (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219700.jpg" />
+  <img src="Z:/picture/005/save_picture_219700.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - E-Dance: Clubbing Electro House (Vol.07) (2021) [MP3|320 Kbps] <Club, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219659.jpg" />
+  <img src="Z:/picture/005/save_picture_219659.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Hyperlandia Night Party (2021) [MP3|320 Kbps] <Club, Dance House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219612.jpg" />
+  <img src="Z:/picture/005/save_picture_219612.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Deep Impact Positively: Clubbing Electro House (2021) [MP3|320 Kbps] <Club,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219589.jpg" />
+  <img src="Z:/picture/005/save_picture_219589.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Clubbing Techno Energetic Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219573.jpg" />
+  <img src="Z:/picture/005/save_picture_219573.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Beatport Funky House: Sound Pack #375 (2021) [MP3|320 Kbps] <Funky, Disco H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219561.jpg" />
+  <img src="Z:/picture/005/save_picture_219561.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Frozen Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219554.jpg" />
+  <img src="Z:/picture/005/save_picture_219554.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Beatport Synth Electronic: Sound Pack #378 (2021) [MP3|320 Kbps] <Syntwave,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219445.jpg" />
+  <img src="Z:/picture/005/save_picture_219445.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Vocal Trance Top 50 (2021) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219299.jpg" />
+  <img src="Z:/picture/005/save_picture_219299.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Vocal Trance Top 50 (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B5789D2E3F7DD6B8729AE70141E151584F3DA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084640   (219216) от 19.12.2016
-
-VA - Following My Intuition (2016) [MP3|320 Kbps] <Psychodelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219216.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Dual Vision - Break The Silence (Aerospace Remix) 7:29
-002.Ovnimoon - Quiet My Mind (Nature Remix) 10:17
-003.Suntree - The Future (Aerospace Remix) 8:52
-004.Space Cat & Pixel - Clear Test Signal (Pixel & Vini Vici Remix) 6:22(   Читать дальше...   )Жанр: Psychodelic TranceПродолжительность: 13:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B7D7EB5AA94903FE3F01BD1A7FA6DAD8A3BF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514024   (219099) от 02.12.2021
-
-VA - Beatport Ambient: Sound Pack #377 (2021) [MP3|320 Kbps] <Ambient, Meditation, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219099.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Liquid Bloom - Heart Active8 Meditation
-002. Enya - Oíche Chiúin
-003. Max Cooper - Weakness Of The Flesh
-004. Aswekeepsearching - Sleep Again(   Читать дальше...   )Жанр: Ambient, Meditation, LoungeПродолжительность: 09:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFBD0CC03F0ED3D999E76B55EF7AA6CC2573E76
 ```
 
 https://mybot314.ru/tekegram_catalog/

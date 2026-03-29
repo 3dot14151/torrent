@@ -6,7 +6,7 @@ CopyClip 2 v2.9.98.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854418.jpg" />
+  <img src="Z:/picture/008/save_picture_854418.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tune Sweeper 4 v4.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853673.jpg" />
+  <img src="Z:/picture/008/save_picture_853673.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Magnet - Snap windows into various sizes and positions 2.1.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853469.jpg" />
+  <img src="Z:/picture/008/save_picture_853469.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Easy Batch Rename 1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852890.jpg" />
+  <img src="Z:/picture/008/save_picture_852890.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CopyLess 1.8.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852115.jpg" />
+  <img src="Z:/picture/008/save_picture_852115.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ SMARTReporter 3.1.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852103.jpg" />
+  <img src="Z:/picture/008/save_picture_852103.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850890.jpg" />
+  <img src="Z:/picture/008/save_picture_850890.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VersionsManager 1.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850554.jpg" />
+  <img src="Z:/picture/008/save_picture_850554.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Vicomsoft FTP Client 5.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850306.jpg" />
+  <img src="Z:/picture/008/save_picture_850306.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SmoothScroll 1.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849688.jpg" />
+  <img src="Z:/picture/008/save_picture_849688.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ NetWorker Pro 7.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849645.jpg" />
+  <img src="Z:/picture/008/save_picture_849645.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Magic Battery 5.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849536.jpg" />
+  <img src="Z:/picture/008/save_picture_849536.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ SyncMate 5.3.636 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848927.jpg" />
+  <img src="Z:/picture/008/save_picture_848927.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ AnyTrans 4.9.2 (20160331) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848684.jpg" />
+  <img src="Z:/picture/008/save_picture_848684.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ TimeMachineEditor 5.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844810.jpg" />
+  <img src="Z:/picture/008/save_picture_844810.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Clips 2.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841789.jpg" />
+  <img src="Z:/picture/008/save_picture_841789.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Dwell Click 2.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841703.jpg" />
+  <img src="Z:/picture/008/save_picture_841703.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ HazeOver 1.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841691.jpg" />
+  <img src="Z:/picture/008/save_picture_841691.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Clipboard Center 2.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841089.jpg" />
+  <img src="Z:/picture/008/save_picture_841089.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Hazel 3.3.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838308.jpg" />
+  <img src="Z:/picture/008/save_picture_838308.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mirror for Samsung TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837942.jpg" />
+  <img src="Z:/picture/008/save_picture_837942.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ iStatistica 1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836672.jpg" />
+  <img src="Z:/picture/008/save_picture_836672.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ FileSalvage 9.1 (3.0) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836607.jpg" />
+  <img src="Z:/picture/008/save_picture_836607.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ CCleaner Professional Edition for Mac 1.12.339 [En/Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836040.jpg" />
+  <img src="Z:/picture/008/save_picture_836040.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Mirror for Philips TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835166.jpg" />
+  <img src="Z:/picture/008/save_picture_835166.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ DirEqual 3.8.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831910.jpg" />
 </div>
 
 

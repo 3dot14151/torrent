@@ -6,7 +6,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 890 HF02 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885116.jpg" />
+  <img src="Z:/picture/005/save_picture_885116.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Telegram Desktop 2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885084.jpg" />
+  <img src="Z:/picture/005/save_picture_885084.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Serif Affinity Designer 1.8.3.641 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885059.jpg" />
+  <img src="Z:/picture/005/save_picture_885059.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Driver Updater 1.24.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885055.jpg" />
+  <img src="Z:/picture/005/save_picture_885055.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Serif Affinity Photo 1.8.3.641 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885024.jpg" />
+  <img src="Z:/picture/005/save_picture_885024.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ iSendSMS  2.1.3.628 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_885014.jpg" />
+  <img src="Z:/picture/008/save_picture_885014.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Macrorit Partition Expert 5.3.9 Professional Edition + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885007.jpg" />
+  <img src="Z:/picture/005/save_picture_885007.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Room Arranger 9.5.6.619 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885002.jpg" />
+  <img src="Z:/picture/005/save_picture_885002.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WorldWide Telescope 5.5.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884983.jpg" />
+  <img src="Z:/picture/005/save_picture_884983.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AnyDesk 5.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884928.jpg" />
+  <img src="Z:/picture/005/save_picture_884928.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Celestia 1.6.1 + Portable + Celestia Origin v.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884906.jpg" />
+  <img src="Z:/picture/005/save_picture_884906.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Avast Free Antivirus 20.2.2401 (build 20.2.5130.561) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884871.jpg" />
+  <img src="Z:/picture/005/save_picture_884871.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Tor Browser Bundle 9.0.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884818.jpg" />
+  <img src="Z:/picture/005/save_picture_884818.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Avast Premium Security 20.2.2401 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884795.jpg" />
+  <img src="Z:/picture/005/save_picture_884795.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Sitni Sati FumeFX 5.0.2 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884780.jpg" />
+  <img src="Z:/picture/005/save_picture_884780.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Malwarebytes AdwCleaner 8.0.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884681.jpg" />
+  <img src="Z:/picture/005/save_picture_884681.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Total Commander 9.51 Titan v.21 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884658.jpg" />
+  <img src="Z:/picture/005/save_picture_884658.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ USDownloader 1.3.5.9 Portable (11.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884608.jpg" />
+  <img src="Z:/picture/005/save_picture_884608.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ MInstAll v.01.04.2020 By Andreyonohov & Leha342 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884582.jpg" />
+  <img src="Z:/picture/005/save_picture_884582.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ oCam Screen Recorder 240.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884506.jpg" />
+  <img src="Z:/picture/005/save_picture_884506.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mozilla Firefox 45.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884504.jpg" />
+  <img src="Z:/picture/005/save_picture_884504.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ashampoo Snap 8.0.9 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884495.jpg" />
+  <img src="Z:/picture/005/save_picture_884495.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Edge 93.0.961.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884452.jpg" />
+  <img src="Z:/picture/005/save_picture_884452.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sonible - smart:comp 1.1.1 VST, VST3, AAX (x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884437.jpg" />
+  <img src="Z:/picture/005/save_picture_884437.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Calibre 5.27.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884434.jpg" />
+  <img src="Z:/picture/005/save_picture_884434.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ PicPick 5.1.8 Pro + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884432.jpg" />
+  <img src="Z:/picture/005/save_picture_884432.jpg" />
 </div>
 
 

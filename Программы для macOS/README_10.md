@@ -1,3 +1,137 @@
+###  Публикация: 1462540   (1021220) от 14.04.2021
+
+Digital Clock 3D 2.0.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка цифровых часов, начиная от ретро и закачивая современным вариантом OLED. Подключить все это великолепие, можно, как в качестве обоев, так и в качестве заставки. Выберите стиль, который вам больше всего нравится или оставьте его на волю случая, смакуя ультра реалистичную 3D графику!Тип издания: macOS SoftwareРелиз состоялся: 13.04.2021Разработчик: 3PlanesoftПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C5B0BB04A20C65548407B4B79CC1C43167CE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462376   (1021211) от 14.04.2021
+
+ForkLift 3.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021211.jpg" />
+</div>
+
+
+###  Подробнее
+
+ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
+На ForkLift стоит обратит внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2021Разработчик: BinaryNightsПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD70BFB41D2CE9FAFB87E9A13353D29D59D35E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462730   (1021026) от 15.04.2021
+
+Kaleidoscope 2.4.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaleidoscope — приложение, предназначенное для сравнения текстовых или графических файлов и быстрого поиска различий в них.
+Область применения программы предельно ясна.
+Если вы программист, то с помощью Kaleidoscope всегда будете видеть различия в коде двух версий файлов. При этом зелёным цветом будут подсвечиваться добавленные строки, красным — удалённые, а синим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2021Разработчик: Black PixelПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CB667AE5C38AFEEB18947A28406CACE2049471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462717   (1021018) от 15.04.2021
+
+OmniFocus Pro 3 v3.11.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
+Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2021Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88ACBFFDCD6DCC611EE54C525EB233BC1831CA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462785   (1020982) от 15.04.2021
+
+Magnet 2.6.0 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый раз, когда вы хотите скопировать содержимое из одного приложения в другое, сравнивать файлы бок о бок в многозадачном режиме, необходимо сделать так, чтобы все окна были расположены соответственно. Magnet делает этот процесс простым и понятным. Вы щелкаете любое окно в левой, правой, верхней или нижней половине экрана. И путем перетаскивания окон по углам, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2021Разработчик: Pavel KozarekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F29C33613D9C6895E5B9B6F898310B852273F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462729   (1020979) от 15.04.2021
 
 Capture One 21 Pro Pro v14.1.1.63 [Multi/Ru]
@@ -6,7 +140,7 @@ Capture One 21 Pro Pro v14.1.1.63 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020979.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ Comic Strip Factory 1.0.137 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020876.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ Paint X - Paint, Draw and Edit 6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020833.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ UkeLib Chords Pro 1.3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020698.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ GtrLib Chords Pro 1.3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020681.jpg" />
 </div>
 
 
@@ -137,7 +271,7 @@ Awesome Mails Pro 4 v4.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020671.jpg" />
 </div>
 
 
@@ -164,7 +298,7 @@ Flotato Pro 36 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020324.jpg" />
 </div>
 
 
@@ -190,7 +324,7 @@ NAMO 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020320.jpg" />
 </div>
 
 
@@ -216,7 +350,7 @@ Dato 2.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020177.jpg" />
 </div>
 
 
@@ -243,7 +377,7 @@ AYVY 1.11.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020176.jpg" />
 </div>
 
 
@@ -269,7 +403,7 @@ Firefox Developer Edition for Mac 89.0 Beta [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019995.jpg" />
 </div>
 
 
@@ -295,7 +429,7 @@ StarUML 4.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019972.jpg" />
 </div>
 
 
@@ -321,7 +455,7 @@ Templates for Keynote - DesiGN 7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019955.jpg" />
 </div>
 
 
@@ -348,7 +482,7 @@ Cloud Outliner Pro 2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019832.jpg" />
 </div>
 
 
@@ -374,7 +508,7 @@ Rumpus PRO 9 v9.0.1 + Tether Client 1.1  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019829.jpg" />
 </div>
 
 
@@ -401,7 +535,7 @@ Dark Mode for Safari 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019825.jpg" />
 </div>
 
 
@@ -427,7 +561,7 @@ Audio Playr 2.3.1  [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019816.jpg" />
 </div>
 
 
@@ -454,7 +588,7 @@ TextSniper - OCR simplified 1.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019805.jpg" />
 </div>
 
 
@@ -480,7 +614,7 @@ Total Video Player 3.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019650.jpg" />
 </div>
 
 
@@ -506,7 +640,7 @@ File List Export 2.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019512.jpg" />
 </div>
 
 
@@ -532,7 +666,7 @@ Iconographer Mini 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019511.jpg" />
 </div>
 
 
@@ -544,139 +678,6 @@ Iconographer Mini был разработан для macOS 11.0 Big Sur, что�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E635BDB9E2427D12506FB05B1D24689FADE51E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465009   (1019509) от 24.04.2021
-
-Fenêtre 0.8.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Держите окно открытым, всегда поверх всего остального. Картинка в картинке теперь доступно на вашем Mac.
-Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт. Не стесняйтесь смотреть последний эпизод на Netflix во время работы над своими данными. Следите за документацией во время работы над вашей последней библиотекой. Создайте справочный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2021Разработчик: Yoann MoinetПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C5D400E8D91A29E6B46CDBF289771ACC3F867F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465029   (1019497) от 24.04.2021
-
-Playr 2.6.1  [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Playr (был Little Audio) представляет собой удобный инструмент для воспроизведения и экспорта практически любого файла, который содержит аудио.
-Audio Playr App может обрабатывать почти все, если файл содержит аудио в той или иной форме. Все, начиная от аудио форматов для контейнеров файлов фильмов, вы можете экспортировать в AAC или Apple Lossless. Вот Некоторые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2021Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB427985BF78F1B02FC36767A493CEB51B486FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465034   (1019494) от 24.04.2021
-
-Total Video Downloader 2.4.5 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Video Downloader для Mac - это простой загрузчик видео для Mac со сверхбыстрой скоростью загрузки. С помощью этого профессионального загрузчика видео для Mac пользователи могут загружать видео, музыкальные файлы, даже живое видео в разных разрешениях (SD и HD) с 1000 веб-сайтов, таких как YouTube, Facebook, Livestream, Vimeo, Dailymotion, VEVO, Metacafe, FunnyorDie (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2021Разработчик: eTinysoft Inc.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236511C3CE6D472585F999BB364A87DCFDBFEAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465237   (1019287) от 25.04.2021
-
-Tuneskit Spotify Converter 2.1.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и умный инструмент для преобразования музыки Spotify для загрузки песен, плейлистов, альбомов, исполнителей Spotify, а также для преобразования любой дорожки из Spotify в обычные MP3, M4A, AAC, WAV, M4B, FLAC для любого музыкального проигрывателя, такого как iPod, Zune, Creative Zen и т. д.Тип издания: macOS SoftwareРелиз состоялся: 24.04.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF4BBCE7B2204A89B809E8E837B14889A7BDAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465568   (1019164) от 26.04.2021
-
-Desktop Curtain 3.1.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Desktop Curtain - это простой инструмент, чтобы скрыть беспорядок на рабочем столе и помочь вам сосредоточиться на основной задаче. Это идеальный вариант для преподавателей, ведущих, писателей, разработчиков и кого-либо еще, кто ненавидит беспорядок и/или тем, кому необходимо делать скриншоты с чистых фоновых изображений.
-Зачем тратить время на перемещение файлов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2021Разработчик: Many TricksПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74C43AFEB6C33612779FF756DFBBD6784D7E951
 ```
 
 https://mybot314.ru/tekegram_catalog/

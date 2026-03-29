@@ -7,7 +7,7 @@ Windows 7 SP1 7601.28117 x64 3in1 by OneSmiLe [17.01.2026] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052745.jpg" />
+  <img src="Z:/picture/005/save_picture_1052745.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Windows 7 SP1 7601.28064 x64 3in1 by OneSmiLe [12.12.2025] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048059.jpg" />
+  <img src="Z:/picture/008/save_picture_1048059.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.12.09) [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048019.jpg" />
+  <img src="Z:/picture/008/save_picture_1048019.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.2
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045350.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Windows 7 SP1 with Update [7601.24564] AIO 44in2 (x86-x64) by adguard (v21.01.13
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039680.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Windows 7 SP1 (8in1) Build 6.1.7601.26366 [UPDATE 21.02.2023] by ivandubskoj (x8
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038473.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy 02.2023 1DVD
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037146.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Windows 7 Home - Ultimate (x86/x64) UpdPack7R2 by ProDarks (21.3.10)
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026644.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Windows 7 Pro SP1 VL (x64) Elgujakviso Edition (v.24.01.20) [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985654.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Windows 7 SP1 6in1 (x86) Elgujakviso Edition (v.20.01.20) [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980745.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Windows 7 SP1 with Update [7601.24550] AIO 11in2 (x86-x64) by adguard (v20.03.11
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918221.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Windows 7 ultimate sp1 x64x86 Matros Edition 27 2019 [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764985.jpg" />
+  <img src="Z:/picture/008/save_picture_764985.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Windows 7 SP1 x64 Home Premium by Ratmir 10.03.19 [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695338.jpg" />
+  <img src="Z:/picture/008/save_picture_695338.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Windows 7 Максимальная SP1 (Spring Edition) Build 7601.24441 (x86) b
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557749.jpg" />
+  <img src="Z:/picture/008/save_picture_557749.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Windows 7 Максимальная SP1 (Spring Edition) Build 7601.24441 (x64) b
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555116.jpg" />
+  <img src="Z:/picture/008/save_picture_555116.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Windows 7 SP1 Ultimate (x86&x64) [Updates V.12] by YelloSOFT [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552092.jpg" />
+  <img src="Z:/picture/008/save_picture_552092.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Windows 7 Корпоративная SP1 Build 7601.24475 (x86-x64) [2in1] by iv
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550844.jpg" />
+  <img src="Z:/picture/008/save_picture_550844.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Windows 7 Professional VL SP1 x86 (build 6.1.7601.26022) by ivandubskoj 14.07.20
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500262.jpg" />
+  <img src="Z:/picture/008/save_picture_500262.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Windows 7 Professional VL SP1 x64 (build 6.1.7601.26065) by ivandubskoj 11.08.20
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454909.jpg" />
+  <img src="Z:/picture/008/save_picture_454909.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Windows 7 Ultimate SP1 x86x64 By Vladios13 v.09.10 [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374485.jpg" />
+  <img src="Z:/picture/008/save_picture_374485.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Windows 7 SP1 7601.28021 x64 3in1 by OneSmiLe [12.11.2025] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255681.jpg" />
+  <img src="Z:/picture/005/save_picture_255681.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 23.6.14 [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247562.jpg" />
+  <img src="Z:/picture/004/save_picture_247562.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Windows 7 SP1 6.1 (Build 7601.26623) (15.07.2023) (13in2) x86/x64 by Sergei Stre
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246958.jpg" />
+  <img src="Z:/picture/004/save_picture_246958.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (07.2023) [Ru/En]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246945.jpg" />
+  <img src="Z:/picture/004/save_picture_246945.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy 08.2023 2DVD
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213555.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [22.08.2023]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202272.jpg" />
 </div>
 
 

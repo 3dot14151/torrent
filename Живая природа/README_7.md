@@ -1,3 +1,59 @@
+###  Публикация: 642257   (881120) от 10.04.2013
+
+NGW: Дунай. Европейская Амазонка / Danube. Europe's Amazon (2012) IPTVRip (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дунай, протекающий по территориям 10 стран, является самой многонациональной рекой в мире и второй по протяжённости рекой в Европе (после Волги), объединяющей разнообразные ландшафты и природные зоны. Река берёт исток на территории Германии, в горах Шварцвальда. Далее Дунай протекает или является границей десяти государств: Германия, Австрия, Словакия, Венгрия, Хорватия, (   Читать дальше...   )1. От Чёрного леса до Чёрного моря
+2. Леса, разливы, морозыПроизводство: Германия, Франция, США, ScienceVision, ORF Universum, Norddeutscher Rundfunk (NDR)Жанр: Документальный, природа, флора, фаунаРежиссер: Михаэль Шламбергер, Рита ШламбергерПеревод: Профессиональный одноголосый (АРК-ТВ, текст читал Игорь Тарадайкин)Продолжительность: 2 х ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A0F8EC7D8774F9FF6BB33F0269B0B6CEB1F283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642018   (880696) от 10.04.2013
+
+Микрокосмос / Microcosmos (1996) [1080p] BDRip [hand made 60fps]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_880696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полтора часа, проведенные на неизвестной планете, где все расстояния измеряются миллиметрами. Ее обитатели: фантастические создания, насекомые, улитки и прочие обитатели травы и воды. Ее пейзажи: непроходимые дебри травяных кущ, капли росы, огромные, как воздушные шары.
+Зритель открывает для себя прекрасный, сияющий всеми красками радуги параллельный мир, где работают иные физические законы. Мир, залитый ирреальным светом, полный неведомых звуков. Страна, где животные умеют ходить по воде или разгуливать вниз головой.
+Фазан, разгуливающий по муравьиной тропе производит на вас не меньшее впечатление, чем Годзилла из знаменитого триллера, а обычная летняя гроза заставляет вспомнить о воздушной атаке сотни тяжелых бомбардировщиков. Постоянные переходы из одного мира в другой дают ошеломленным зрителям почувствовать относительность наших представлений о пространстве.
+Зритель ощущает себя крохотным десантником, заброшенным в самый эпицентр действия. Он слышит грохот муравьиных войн и рев пчелиных крыльев у себя за (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Клод Нуридзани, Мари ПеренуПродюсер: Кристоф Барратье, Ивет Мале, Жак ПерренПеревод: Не требуетсяПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39180F4660FEA4871060E0CF4EEBE1E7ABFF3168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853892   (880554) от 13.03.2016
 
 BBC. Дикая Аравия / Wild Arabia (2013) BDRip [H.264/1080p] [1-3 серия из 3]
@@ -6,7 +62,7 @@ BBC. Дикая Аравия / Wild Arabia (2013) BDRip [H.264/1080p] [1-3 се�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880554.jpg" />
+  <img src="Z:/picture/005/save_picture_880554.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877365.jpg" />
+  <img src="Z:/picture/005/save_picture_877365.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876464.jpg" />
+  <img src="Z:/picture/005/save_picture_876464.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876216.jpg" />
+  <img src="Z:/picture/005/save_picture_876216.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875042.jpg" />
+  <img src="Z:/picture/005/save_picture_875042.jpg" />
 </div>
 
 
@@ -136,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874434.jpg" />
+  <img src="Z:/picture/005/save_picture_874434.jpg" />
 </div>
 
 
@@ -162,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874194.jpg" />
+  <img src="Z:/picture/005/save_picture_874194.jpg" />
 </div>
 
 
@@ -188,7 +244,7 @@ NG. Ядовитый остров / Venom Islands (2012) HDTVRip [H.264/720p]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873682.jpg" />
+  <img src="Z:/picture/008/save_picture_873682.jpg" />
 </div>
 
 
@@ -214,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873555.jpg" />
+  <img src="Z:/picture/008/save_picture_873555.jpg" />
 </div>
 
 
@@ -240,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871400.jpg" />
+  <img src="Z:/picture/008/save_picture_871400.jpg" />
 </div>
 
 
@@ -266,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870913.jpg" />
+  <img src="Z:/picture/008/save_picture_870913.jpg" />
 </div>
 
 
@@ -292,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870831.jpg" />
+  <img src="Z:/picture/008/save_picture_870831.jpg" />
 </div>
 
 
@@ -318,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870056.jpg" />
+  <img src="Z:/picture/008/save_picture_870056.jpg" />
 </div>
 
 
@@ -344,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869961.jpg" />
+  <img src="Z:/picture/008/save_picture_869961.jpg" />
 </div>
 
 
@@ -370,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866855.jpg" />
+  <img src="Z:/picture/008/save_picture_866855.jpg" />
 </div>
 
 
@@ -396,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864349.jpg" />
+  <img src="Z:/picture/008/save_picture_864349.jpg" />
 </div>
 
 
@@ -422,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863746.jpg" />
+  <img src="Z:/picture/008/save_picture_863746.jpg" />
 </div>
 
 
@@ -448,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863448.jpg" />
+  <img src="Z:/picture/008/save_picture_863448.jpg" />
 </div>
 
 
@@ -474,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863057.jpg" />
+  <img src="Z:/picture/008/save_picture_863057.jpg" />
 </div>
 
 
@@ -500,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861915.jpg" />
+  <img src="Z:/picture/008/save_picture_861915.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858979.jpg" />
+  <img src="Z:/picture/008/save_picture_858979.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857797.jpg" />
+  <img src="Z:/picture/008/save_picture_857797.jpg" />
 </div>
 
 
@@ -578,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857500.jpg" />
+  <img src="Z:/picture/008/save_picture_857500.jpg" />
 </div>
 
 
@@ -604,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855586.jpg" />
+  <img src="Z:/picture/008/save_picture_855586.jpg" />
 </div>
 
 
@@ -615,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93243F979CB7C50EF08A064B49ECA159FB6919F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377411   (853423) от 21.04.2020
-
-Берег хищников / The Predator Coast (2012) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Берег хищников - это часть Африки, в которой правят львы, акулы и прочие дикие животные, но и они склоняются перед верховным владыкой. Это уникальная арена, поле битвы между охотником и добычей. У природы есть власть давать жизнь и забирать её. И нет исключений из этого жестокого правила.Производство: ЮАР, США, Earth Touch, Smithsonian NetworksЖанр: Документальный, природа, фаунаРежиссер: Грэм ДуэйнПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: АнглийскиеПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44FFE532604770D72E0D46B7F5063AAD64746B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377435   (853271) от 21.04.2020
-
-Великая синяя бездна (Великие океаны) / Great Blue Wild (2015) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы увидеть некоторые из самых захватывающих природных чудес на планете, человек вынужден иногда погружаться в глубины океанов. Это рай для дайверов. Здесь можно встретиться с самыми потрясающими океанскими жителями: таинственными гигантами, беспощадными хищниками и легендарными глубоководными чудовищами. И все они ведут постоянную битву за выживание. Это родина (   Читать дальше...   )Производство: США, Канада, Blue Ant MediaЖанр: Документальный, природа, путешествияРежиссер: Дэн ХьюзПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 6 x ~00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A9B15FA4EF6740FA40C592FEA6EDC632971C58
 ```
 
 https://mybot314.ru/tekegram_catalog/

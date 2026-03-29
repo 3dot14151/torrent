@@ -1,3 +1,32 @@
+###  Публикация: 1134025   (690889) от 14.05.2017
+
+Дмитрий Заваров | Эхо войны (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Хроники Армады».
+
+Цивилизация уничтожена. Они – всё, что осталось от человечества. Горстка людей, пытающихся приспособиться к новым правилам мертвого мира. Против них – мутанты, аномалии, неизвестные вирусы… и нечто страшное, чему пока еще нет названия.
+(   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD24A11BE18C5FDA1E8BC87ED0D8D25160EA5F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134072   (690886) от 14.05.2017
 
 Стивен Кинг | Сияние (2014) [FB2]
@@ -6,7 +35,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690886.jpg" />
+  <img src="Z:/picture/008/save_picture_690886.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690490.jpg" />
+  <img src="Z:/picture/008/save_picture_690490.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690411.jpg" />
+  <img src="Z:/picture/008/save_picture_690411.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690398.jpg" />
+  <img src="Z:/picture/008/save_picture_690398.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690356.jpg" />
+  <img src="Z:/picture/008/save_picture_690356.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690068.jpg" />
+  <img src="Z:/picture/008/save_picture_690068.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690067.jpg" />
+  <img src="Z:/picture/008/save_picture_690067.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690049.jpg" />
+  <img src="Z:/picture/008/save_picture_690049.jpg" />
 </div>
 
 
@@ -228,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689936.jpg" />
+  <img src="Z:/picture/008/save_picture_689936.jpg" />
 </div>
 
 
@@ -254,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689925.jpg" />
+  <img src="Z:/picture/008/save_picture_689925.jpg" />
 </div>
 
 
@@ -282,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689803.jpg" />
+  <img src="Z:/picture/008/save_picture_689803.jpg" />
 </div>
 
 
@@ -310,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689793.jpg" />
+  <img src="Z:/picture/008/save_picture_689793.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689741.jpg" />
+  <img src="Z:/picture/008/save_picture_689741.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689700.jpg" />
+  <img src="Z:/picture/008/save_picture_689700.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689318.jpg" />
+  <img src="Z:/picture/008/save_picture_689318.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689096.jpg" />
+  <img src="Z:/picture/008/save_picture_689096.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689049.jpg" />
+  <img src="Z:/picture/008/save_picture_689049.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689048.jpg" />
+  <img src="Z:/picture/008/save_picture_689048.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689042.jpg" />
+  <img src="Z:/picture/008/save_picture_689042.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688969.jpg" />
+  <img src="Z:/picture/008/save_picture_688969.jpg" />
 </div>
 
 
@@ -548,6 +577,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134362   (688961) от 15.05.2017
+
+Тереза Тур | Пламя мести (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_688961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Империя Тигвердов».
+
+Никогда не знаешь, к чему тебя приведет любовь к синим платьям и к журналистике. Никогда не знаешь, кого видишь перед собой. У злодеев тысячи лиц, и надо научиться видеть сердцем. Меня зовут Вероника. С фамилией, как и со статусом в империи Тигвердов, мне еще предстоит определиться, а пока... Пока кое с кем предстоит разобраться, (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4491B1A6B9F2E8C19AC6BD7D6DBAD3A44CA4D4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104332   (688775) от 15.05.2017
 
 Геннадий Ищенко | Мой брат с Земли (2017) [FB2]
@@ -556,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688775.jpg" />
+  <img src="Z:/picture/008/save_picture_688775.jpg" />
 </div>
 
 
@@ -582,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688582.jpg" />
+  <img src="Z:/picture/008/save_picture_688582.jpg" />
 </div>
 
 
@@ -608,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688526.jpg" />
+  <img src="Z:/picture/008/save_picture_688526.jpg" />
 </div>
 
 
@@ -636,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688523.jpg" />
+  <img src="Z:/picture/008/save_picture_688523.jpg" />
 </div>
 
 
@@ -649,60 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41670C1AFD7BE204900B892C6B2ADCE525B3A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403654   (688453) от 21.08.2020
-
-Демий | Пламя грядет (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каково быть наёмником, когда ты болтливый гоблин с инфантильным характером? И тебя почти никто не воспринимает всерьёз… Главному герою по имени Гло одновременно повезло и не повезло. Страшная война катится по родному континенту и гоблину приходится отправиться в далёкое путешествие на другой конец материка, чтобы сбежать от неё. Но, во время такого, полного опасных (   Читать дальше...   )Жанр: Героическое фэнтези, Юмористическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EF8CCC6847DDE0512231B9F0931D5F244A5AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028677   (688405) от 23.06.2016
-
-Ирина Успенская | Герцог (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Практическая психология»
-
-Храм разрывают склоки, а где-то там, на фронтире, опальный бастард последнего короля закладывает новый город, теряет союзников и обретает семью. Враги готовят для него камеру в самой престижной тюрьме и празднуют победу. Грядет время перемен. Время Разрушителя. Только назначенный на эту должность Алан Валлид ничего этого (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEA859759F60BCEDB3FBA12CDD7091C4AD8FB77
 ```
 
 https://mybot314.ru/tekegram_catalog/

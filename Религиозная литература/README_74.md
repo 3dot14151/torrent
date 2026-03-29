@@ -1,3 +1,83 @@
+###  Публикация: 946965   (420711) от 16.10.2015
+
+В. А. Бугаев, А. Л. Кац | Явления природы и суеверия (1965) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра повествует о природных явлениях и людских суевериях.Жанр: История, естествознание, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFEB2A48CC88068C04A727976CAF30893F41C96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946969   (420707) от 16.10.2015
+
+Г. И. Царегородцев | Медицина и религия (1968) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420707.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре будет раскрыта незатухающая на протяжении многих столетий борьба между научным и религиозным пониманием проблемы здоровья и болезни человека и некоторые другие вопросы, тесно связанные с этой проблемой.
+
+Показывая несовместимость медицины и религии в истолковании проблемы здоровья и болезни человека, автор стремился углубить и расширить те вопросы, которые (   Читать дальше...   )Жанр: История, религиоведение, медицинаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313BD59538F01F8D0F662D046A885DB3D0A10A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946835   (420705) от 16.10.2015
+
+А. Г. Баканурский | Православная церковь и скоморошество (1986) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420705.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре на большом историко-документальном и фольклорном материале раскрывается суть скоморошества — одного из проявлений народного творчества на Руси; выявляются его эстетическая, культурная и социальная функции; показываются причины гонений свободолюбивого искусства скоморохов со стороны православной церкви.Жанр: История, религиоведение, культурология, эстетика, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87FEAD91121866622412B4B93E084B547687143B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412136   (420636) от 28.09.2020
 
 Д.С. Чунтонов (сост.) | Благие мысли. По творениям преподобных Оптинских старцев (2019) [FB2, EPUB]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420636.jpg" />
+  <img src="Z:/picture/008/save_picture_420636.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420533.jpg" />
+  <img src="Z:/picture/008/save_picture_420533.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420400.jpg" />
+  <img src="Z:/picture/008/save_picture_420400.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420229.jpg" />
+  <img src="Z:/picture/008/save_picture_420229.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419727.jpg" />
+  <img src="Z:/picture/008/save_picture_419727.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419680.jpg" />
+  <img src="Z:/picture/008/save_picture_419680.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419676.jpg" />
+  <img src="Z:/picture/008/save_picture_419676.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419546.jpg" />
+  <img src="Z:/picture/008/save_picture_419546.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419386.jpg" />
+  <img src="Z:/picture/008/save_picture_419386.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418981.jpg" />
+  <img src="Z:/picture/008/save_picture_418981.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418394.jpg" />
+  <img src="Z:/picture/008/save_picture_418394.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418267.jpg" />
+  <img src="Z:/picture/008/save_picture_418267.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418262.jpg" />
+  <img src="Z:/picture/008/save_picture_418262.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418259.jpg" />
+  <img src="Z:/picture/008/save_picture_418259.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418258.jpg" />
+  <img src="Z:/picture/008/save_picture_418258.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418249.jpg" />
+  <img src="Z:/picture/008/save_picture_418249.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418121.jpg" />
+  <img src="Z:/picture/008/save_picture_418121.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418106.jpg" />
+  <img src="Z:/picture/008/save_picture_418106.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417984.jpg" />
+  <img src="Z:/picture/008/save_picture_417984.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417929.jpg" />
+  <img src="Z:/picture/008/save_picture_417929.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417928.jpg" />
+  <img src="Z:/picture/008/save_picture_417928.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417925.jpg" />
+  <img src="Z:/picture/008/save_picture_417925.jpg" />
 </div>
 
 
@@ -589,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417435.jpg" />
+  <img src="Z:/picture/008/save_picture_417435.jpg" />
 </div>
 
 
@@ -602,86 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A349B909DD4C01405DFBF83A66D069964E7E0D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831682   (417316) от 16.10.2014
-
-Мир Зафар | Воин, идущий к Солнцу. Духовный путь Бодхидхармы [III книги] (2008-2014) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга 1. В книге впервые в мире изложена жизнь человека, создавшего боевые искусства Индии, Ирана, Тибета, Китая, Древней Руси, создавшего понятие Путь Воина, создавшего искусство жить по законам Сокровенной Красоты Мира - Дзэн.
-Это произведение - благодарность нашим отцам-первопредкам, тем, кто оставил нам в наследство Свободу.
-Свободу и дорогу к Солнцу.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FBF48E7E7A8E2D649224E7F5D12F43B1B968A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066033   (416630) от 24.10.2016
-
-митрополит Макарий (Булгаков) | История Русской Церкви [Книга первая] (1994) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416630.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу настоящего издания положена тринадцатитомная «История Русской Церкви» высокопреосвященного Макария, митрополита Московского и Коломенского, выдающегося церковного ученого прошлого века. Церковно-историческая наука богата яркими талантами, такими как митрополит Московский Платон (Левшин), митрополит Киевский Евгений (Болховитинов), архиепископ Черниговский (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EE0BB4F0DA4F8E8DC9A05A3B0FB08F1E483C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065474   (416345) от 24.10.2016
-
-Скотт Адамс | Осколки Бога (2001) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга не попытка навязать вам новую религию, не очередная «теория всего», не сборник высшей мудрости. Она вообще ценна не столько своими ответами, сколько вопросами. Ответы же, по большей части, заведомо ложные. Эта книга позволяет взглянуть на многие вещи под необычным углом, заставляет задуматься, заставляет со скрипом проворачиваться заржавевшие шестеренки (   Читать дальше...   )Жанр: Философия, РелигияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF42109231E6FA7D376C82E00ED6FD57655CDA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

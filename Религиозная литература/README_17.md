@@ -1,3 +1,84 @@
+###  Публикация: 987814   (924669) от 18.02.2016
+
+Ф. Путинцев | Кабальное братство сектантов (1931) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924669.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны факты обмана и эксплуатации верующих сектантской верхушкой в 1920 - начале 30-х гг.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2253E02EB39AF0249E381D4785620CFBF567732E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987190   (924609) от 18.02.2016
+
+Ф. Мегружан | Религия и национальная рознь (1939) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924609.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре рассказывается o том, как буржуазия и ее наемные агенты разжигают национальную рознь между трудящимися, используя для этой цели религию и церковь.
+
+Автор показывает, как, в противовес капиталистическим странам, крепнет союз и братство народов СССР.
+(   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C63F3E1F85C3EFA784824988B8D21B0CA5EB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987016   (924595) от 18.02.2016
+
+З. А. Мукашев | Почему некоторые ученые верят в бога (1967) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре кандидата философских наук 3. А. Мукашева рассказывается о некоторых закономерностях процесса познания в связи с необходимостью ответить на вопрос, почему отдельные ученые верят в бога.Жанр: История, религиоведение, психология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E1A8BDD2219AB0883D444701AA12C740954EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987393   (924585) от 18.02.2016
 
 С. Г. Лозинский | Папа Римский в роли спекулянта (1929) [DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924585.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924490.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924424.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924297.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923930.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923834.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922810.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922594.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920999.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920997.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920992.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920753.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920308.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ C. Милов (составитель)| Сила Любви. По творени
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920303.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919295.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919279.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919245.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919040.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918595.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917777.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917753.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917749.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917720.jpg" />
 </div>
 
 
@@ -601,86 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CC6E066A57C2DA09033FA6793FBF3BF8B458981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096924   (917710) от 25.01.2017
-
-Н. Р. Гусева | Джайнизм (1968) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена характеристике одной из религий Индии. Показаны этнические и исторические корни джайнизма, его развитие со времени возникновения до наших дней, описаны его философские принципы, а также литература и искусство джайнов.Жанр: История, политология, религиоведение, культурология, этнография, философия, литературоведение, искусствоФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F3FBAFD339643E1F1D7C37B6A151876648BC8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097066   (917657) от 25.01.2017
-
-А.И. Еланская (сост.) | Изречения Египетских Отцов (2001) [DJVU, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга впервые знакомит русского читателя с литературой христианского Египта (так называемой коптской), история которой охватывает несколько веков, начиная с IV века. Литература коптов сосуществовала с общей для всего Ближнего Востока греческой христианской литературой; главные ее жанры - легенды, апокрифы, дидактические сочинения. В книге представлены образцы этих (   Читать дальше...   )Жанр: Античное христианствоФормат: DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0EB5AAA2D37BFF06295F2834B8A5C18281FEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096817   (917651) от 25.01.2017
-
-М. П. Гапочка, Ю. Б. Пищик | Идеалы человеческие и божественные (1975) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек, моральные принципы, которых он должен придерживаться в жизни, идеалы, которым он должен следовать, — одна из центральных проблем, вокруг которой ведется острая идейная борьба между атеизмом и религией.
-
-В книге раскрываются действительные моральные ценности, утверждаемые человеком социалистического общества, показывается, какие «принципы» выдает за моральные (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C3BBA1846176DEE15C39A6D82748036C7D6F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

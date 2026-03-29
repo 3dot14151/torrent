@@ -6,7 +6,7 @@ MacBooster 6.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788165.jpg" />
+  <img src="Z:/picture/008/save_picture_788165.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chick Webb - King Of The Savoy Vol 2 1937-1939 (1958 ??) аукционная п
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788163.jpg" />
+  <img src="Z:/picture/008/save_picture_788163.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Movavi Photo Manager 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788157.jpg" />
+  <img src="Z:/picture/008/save_picture_788157.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brave Browser 0.58.21 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788152.jpg" />
+  <img src="Z:/picture/008/save_picture_788152.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Your Universal MultiBoot Installer 2.0.6.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788150.jpg" />
+  <img src="Z:/picture/008/save_picture_788150.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ WinSnap 5.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788145.jpg" />
+  <img src="Z:/picture/008/save_picture_788145.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Sex Lounge: Music For Making Love (2002) [FLAC|Lossless|tracks + .cue] <Lou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788140.jpg" />
+  <img src="Z:/picture/008/save_picture_788140.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Michiya Koide Backed By The King Orchestra - Beautiful Melodies Of Japan Play's 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788138.jpg" />
+  <img src="Z:/picture/008/save_picture_788138.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ YTD Video Downloader PRO 5.9.3 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788135.jpg" />
+  <img src="Z:/picture/008/save_picture_788135.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Barry Sisters - Barry Sisters with Sammy Meade's Orchestra (1940) шеллак  
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788131.jpg" />
+  <img src="Z:/picture/008/save_picture_788131.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ CoolUtils Total Audio Converter 5.3.0.160 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788129.jpg" />
+  <img src="Z:/picture/008/save_picture_788129.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ IObit Uninstaller Pro 8.3.0.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788114.jpg" />
+  <img src="Z:/picture/008/save_picture_788114.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Google Chrome 64.0.3282.140 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788097.jpg" />
+  <img src="Z:/picture/008/save_picture_788097.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Maxthon Browser 5.1.6.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788086.jpg" />
+  <img src="Z:/picture/008/save_picture_788086.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ PrivaZer 3.0.40 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788082.jpg" />
+  <img src="Z:/picture/008/save_picture_788082.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Ashampoo Photo Optimizer 7.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788066.jpg" />
+  <img src="Z:/picture/008/save_picture_788066.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Google Chrome 64.0.3282.140 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788057.jpg" />
+  <img src="Z:/picture/008/save_picture_788057.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Zoom Player MAX 14.1 Build 1410 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788047.jpg" />
+  <img src="Z:/picture/008/save_picture_788047.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ NetLimiter 4.0.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788038.jpg" />
+  <img src="Z:/picture/008/save_picture_788038.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ K-Lite Codec Pack 14.6.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788034.jpg" />
+  <img src="Z:/picture/008/save_picture_788034.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Auslogics BoostSpeed 10.0.22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788031.jpg" />
+  <img src="Z:/picture/008/save_picture_788031.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788026.jpg" />
+  <img src="Z:/picture/008/save_picture_788026.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Auslogics BoostSpeed 10.0.22.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788024.jpg" />
+  <img src="Z:/picture/008/save_picture_788024.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VirtualBox 6.0.2 Build 128162 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788020.jpg" />
+  <img src="Z:/picture/008/save_picture_788020.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Auslogics Driver Updater 1.11.0.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788003.jpg" />
+  <img src="Z:/picture/008/save_picture_788003.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788002.jpg" />
+  <img src="Z:/picture/008/save_picture_788002.jpg" />
 </div>
 
 

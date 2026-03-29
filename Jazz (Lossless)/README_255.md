@@ -1,3 +1,119 @@
+###  Публикация: 1641374   (235439) от 22.06.2023
+
+Jessica Williams - Live At Maybeck Recital Hall, Vol. 21 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introductory Announcement [0:18]
+02. Why Do I Love You? [6:40]
+03. The Nearness of You [7:49]
+04. Kristen [8:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEC38D17D1ADE3815BC7412F8553331A78CFF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641370   (235433) от 22.06.2023
+
+Paul Bley, Evan Parker, Barre Phillips - Time Will Tell (1995) ECM [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetic Justice [17:22]
+02. Time Will Tell [4:25]
+03. Above the Tree Line [4:50]
+04. You Will, Oscar, You Will [4:58](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AE128F6849A50A0013D165B572C4C5321C5296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641373   (235427) от 22.06.2023
+
+Jake Fryer & Bud Shank Quintet - In Good Company (2009) 2011, Capri Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [7:41]
+02. Bopping with Bud [7:32]
+03. Agnieszka [9:33]
+04. Tip Top and Tickety Boo [4:36](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AF77EB955BC15CDF2A9B5007EE22A405C5D430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641369   (235419) от 22.06.2023
+
+Sonny Rollins - Jazz Profile (1956, 1957) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plain Jane [9:58]
+02. You Stepped Out of a Dream [6:24]
+03. Reflections [7:03]
+04. Sonnymoon for Two [8:51](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE53647442D9353467C2C80C6857F12854683911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618595   (235399) от 12.03.2023
 
 Mal Waldron - The 1978 Solo Piano Concert (2022) 2CD, Tompkins Square [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Mal Waldron - The 1978 Solo Piano Concert (2022) 2CD, Tompkins Square [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235399.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Abdullah Ibrahim - Solotude (2021) Gearbox Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235398.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Chet Baker - As Time Goes By (1986) 2020, Solid Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235369.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Pasquale Grasso - Be-Bop! (2022) Sony Music [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235346.jpg" />
+  <img src="Z:/picture/004/save_picture_235346.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ben Tankard - Shine! (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235324.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Jessica Williams - The Next Step (1993) Hep Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235315.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Albert Ayler Trio - Spiritual Unity (1964) 2005, ESP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235278.jpg" />
+  <img src="Z:/picture/004/save_picture_235278.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Jessica Williams - Gratitude (1996) Candid [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235254.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ray Gelato And The Giants Of Jive - A Taste Of Gelato (1992) High Five Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235251.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Carmen Lundy - This Is Carmen Lundy (2001) Justin Time [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235247.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Duke Ellington - Hot Summer Dance (1960) 2003,  Red Baron [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235212.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Toshiko Akiyoshi Jazz Orchestra - Desert Lady / Fantasy (1994) Columbia [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235192.jpg" />
+  <img src="Z:/picture/005/save_picture_235192.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Anita Baker - Christmas Fantasy (2005) Par Media Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235163.jpg" />
+  <img src="Z:/picture/005/save_picture_235163.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Charles Mingus - Let My Children Hear Music (1971) 1988, Sony [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235143.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Orrin Evans And The Captain Black Big Band - The Intangible Between (2020) Smoke
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235082.jpg" />
+  <img src="Z:/picture/005/save_picture_235082.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jazzamor - From The Edge Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235009.jpg" />
+  <img src="Z:/picture/005/save_picture_235009.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Mort Weiss - Mort Weiss Meets Sam Most (2006) SMS Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235004.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Eddie Heywood - Eddie Heywood (1955) 1990, EmArcy [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234972.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Sonny Stitt - With The New Yorkers (1957) 2002, Roost [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234957.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Eddie Heywood - The Touch Of Eddie Heywood (1957) 1999, RCA [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234939.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Sam Taylor - Sam Taylor Best Selection (2013) Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234909.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ McCoy Tyner - Milestone Profiles (1972 - 1980) 2CD, 2006, Milestone [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234901.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ McCoy Tyner - Milestone Profiles (1972 - 1980) 2CD, 2006, Milestone [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDC7E3FB1AECF782CD951C4E701C924F35B3C0FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642166   (234808) от 26.06.2023
-
-Carmen Lundy - Fade To Black (2022) Afrasia Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine a Light [8:07]
-02. So Amazing [3:31]
-03. Daughter of the Universe [5:39]
-04. Ain't I Human [3:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE626FC1EB60CCA80EB925B74099785FFBB126C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621339   (234802) от 24.03.2023
-
-George Kawaguchi - Best: 50 Years Anniversary (1995) King Record [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EJ Blues [10:53]
-02. George's Boogie (from 'Drum Boogie') [17:02]
-03. Watermelon Man [5:55]
-04. Maiden Voyage [8:17](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6334A00AD7BA7174619C85EA969C634E84799593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621131   (234783) от 24.03.2023
-
-Walt Weiskopf - Song For My Mother (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outsider [7:14]
-02. Three Armed Man [5:23]
-03. Barebones [6:46]
-04. End of the Year So Soon [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1359939C896BB9803FA41FA7A5491CB29D47EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642382   (234767) от 27.06.2023
-
-Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocky Scotch [4:41]
-02. Under The Lilacs [5:07]
-03. They Say It's Wonderful [5:49]
-04. Potrezebie [4:50](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00CF03A264A04767C576D83CF543BFC1A8FE3C08
 ```
 
 https://mybot314.ru/tekegram_catalog/

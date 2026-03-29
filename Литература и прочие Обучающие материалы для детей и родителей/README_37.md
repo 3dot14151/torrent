@@ -1,3 +1,137 @@
+###  Публикация: 746947   (1023304) от 01.04.2021
+
+Евгений Иванов | Кот-колоброд и крысы (1928) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023304.jpg" />
+</div>
+
+
+###  Подробнее
+
+В те дни революция разгоралась в городах и селах. Всех захватила и человека и зверя--каждого по своему.
+Воевали долго. Все шли на войну, все везли в армию. А в городах без хлеба и дров был холод и голод....Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF9B5C750D265A4DCD04A191713F566A9295C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 396325   (1023261) от 01.04.2021
+
+Слово | Мосты. Энциклопедия (1998) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга  не только ответит на многие вопросы о строительстве мос­тов,  но  и  пробудит в  ком-то  из  юных чи­тателей желание  когда-нибудь  и  самому стать строителем.
+Русское  издание  книги  дополнено  рас­сказом  о  петербургских  мостах  и  крат­ким  словариком  встречающихся  терми­нов.  Эту часть книги написал московский архитектор Г. 3. Каганов.Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF400FEBA82FA68CF135A85FEC477AC154600A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646351   (1023228) от 01.04.2021
+
+Й. Аугуста , З. Буриан | Летающие ящеры и древние птицы (1961) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного чешского палеонтолога профессора Йозефа Аугусты - увлекательный рассказ о происхождении птиц от древнейших летающих ящеров. Текст великолепно дополняют многочисленные фотографии отпечатков и окаменелостей этих ископаемых существ. Особую ценность книге придают великолепные цветные репродукции картин замечательного художника Зденека Буриана, воспроизводящие (   Читать дальше...   )Жанр: Познавательная и справочная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A98346FEE23ECDF748AE0DA888592AE1C41E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746934   (1023151) от 02.04.2021
+
+А. Гарри | Снег на крыльях (1935) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соль, которую люди употребляют в пищу, как известно, запаха не имеет. Тем не менее ветер, дующий с моря, безусловно пахнет солью. Ноздри ненца Ийши, почуяв острый запах морского ветра, жадно вздрогнули, а скуластое лицо его осветилось хитрой усмешкой....
+
+Повесть для детей среднего и старшего возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE1A96E34FF0F47CF5794D58270940189725526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459901   (1023005) от 03.04.2021
+
+О.Э. Охредько | Обществознание. Школьные таблицы. 5-9 класса [2 книги] (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание подготовлено в соответствии с федеральным компонентом образовательного стандарта и освещает вопросы курса обществознания для 5—9 классов. Отличительной чертой пособия является подача учебного материала в наглядной форме — в виде схем и таблиц по отдельным темам. Такой подход облегчает восприятие информации, а также позволит учащимся лучше разобраться в отдельных (   Читать дальше...   )Жанр: ОГЭ/ЕГЭ/ОбществознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E73B0E9E8B4E0DD12788154704DA8868B4881F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459884   (1023002) от 03.04.2021
 
 Наталия Баранова, Дмитрий Лукашанец, Оксана Мазур | Новая занимательная энциклопедия. 1001 удивительный факт о животных (2017) [PDF]
@@ -6,7 +140,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023002.jpg" />
 </div>
 
 
@@ -34,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023001.jpg" />
 </div>
 
 
@@ -61,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022996.jpg" />
 </div>
 
 
@@ -89,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022993.jpg" />
 </div>
 
 
@@ -117,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022992.jpg" />
 </div>
 
 
@@ -143,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022988.jpg" />
 </div>
 
 
@@ -169,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022983.jpg" />
 </div>
 
 
@@ -195,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022981.jpg" />
 </div>
 
 
@@ -221,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022977.jpg" />
 </div>
 
 
@@ -247,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022974.jpg" />
 </div>
 
 
@@ -275,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022946.jpg" />
 </div>
 
 
@@ -301,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022917.jpg" />
 </div>
 
 
@@ -327,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022899.jpg" />
 </div>
 
 
@@ -354,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022888.jpg" />
 </div>
 
 
@@ -380,7 +514,7 @@ Disney | 900 раскрасок к Диснеевским мультфильма
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022849.jpg" />
 </div>
 
 
@@ -407,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022810.jpg" />
 </div>
 
 
@@ -435,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022809.jpg" />
 </div>
 
 
@@ -463,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022803.jpg" />
 </div>
 
 
@@ -491,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022797.jpg" />
 </div>
 
 
@@ -519,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022778.jpg" />
 </div>
 
 
@@ -547,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022750.jpg" />
 </div>
 
 
@@ -558,141 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F474AB7491B46F75C5E593BE9C2E8A252BAC2CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390062   (1022743) от 04.04.2021
-
-Слово | Возрождение. Энциклопедия (2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Что есть что" популярна во всем мире. В нее вошли энциклопедические книги для детей, посвященные самым разнообразным предметам, областям знаний и сферам нашей жизни. Издание прекрасно иллюстрировано. Эта серия — победитель конкурсов 2001 года "Лучшие издания XIV ММКВЯ" и "Лучшие книги года" Ассоциации книгоиздателей России.Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CB65B23A717ECC5F69F719427AEF8AE4CFF51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 394559   (1022739) от 04.04.2021
-
-Слово | Корабли. Энциклопедия (1998) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022739.jpg" />
-</div>
-
-
-###  Подробнее
-
-В  этой  книге  из  серии  «ЧТО  ЕСТЬ  ЧТО» описывается  история  кораблестроения  —
-с  самого  ее  начала  до  наших  дней.  Вы узнаете,  как  много  в  ней  было  увлека­тельного  и  почему  в  те  или  иные  исто­рические  эпохи  в  этой  области  появля­лись  самые  разнообразные  технические новшества.  Итак,  приятного  плавания!Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9524D39366B4B133A03873CA276EA32DB4B68103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460250   (1022738) от 04.04.2021
-
-Р.В. Пазин, П.А. Ушаков | История. ЕГЭ. 10-11 классы. Практикум по работе с иллюстративным материалом: тетрадь-тренажёр (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие предназначено учащимся 10―11-х классов, учителям и методистам. Книга содержит: краткие методические рекомендации; 200 заданий в формате ЕГЭ по работе с иллюстративным материалом; информационные исторические справки; задания олимпиадного уровня; ответы ко всем заданиям.
-
-Учебно-методическое пособие предназначено для подготовки к ЕГЭ по истории. Оно позволит (   Читать дальше...   )Жанр: ЕГЭ/ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F531E331B9CA32A40CC1652A6A08935D8C6DB1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396283   (1022736) от 04.04.2021
-
-Слово | Московская Русь. Энциклопедия (2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022736.jpg" />
-</div>
-
-
-###  Подробнее
-
-В  конце  1230-х  годов  Севе­ро-Восточная Русь, сокрушенная уда­рами  монголо-татар,  вошла  в состав их степной державы — Золотой Орды.
-С  этого  времени  и  начинается  исто­рия Московской Руси — история освобождения от ига захватчиков, созда­ния  независимого,  а  затем  и  много­
-национального  царства.Все  развитие  страны  оказалось  свя­занным  с  усилением  небольшого удельного (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B24DB57D152F0BECF71C26628A40945E6EC0369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395738   (1022735) от 04.04.2021
-
-Слово | Лошади. Энциклопедия (1998) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Что есть что" популярна во всем мире. В нее вошли энциклопедические книги для детей, посвященные самым разнообразным предметам, областям знаний и сферам нашей жизни. Издание прекрасно иллюстрировано. Эта серия — победитель конкурсов 2001 года "Лучшие издания XIV ММКВЯ" и "Лучшие книги года" Ассоциации книгоиздателей России.Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1408EB0055FFA62B16DD6470EB135DE9BAD07C03
 ```
 
 https://mybot314.ru/tekegram_catalog/

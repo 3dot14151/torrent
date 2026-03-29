@@ -1,3 +1,112 @@
+###  Публикация: 1518870   (152957) от 21.12.2021
+
+Final Draft 12 v12.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Draft — профессиональное программное обеспечение для написания сценариев фильмов, телевизионных шоу и спектаклей.
+Приложение представляет собой многооконный текстовый процессор с массой специализированных возможностей под написание сценариев.
+Для использования утилиты вам совершенно не требуется знать правила оформления сценариев — Final Draft автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2021Разработчик: © 2021 Cast & Crew Production Software, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C451EA78597569E5D536F75C89A2C10D359BA4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270841   (152944) от 21.12.2018
+
+TG Pro (Temperature Gauge Pro) 2.35 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152944.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2018Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5038E5AEF9E591227BF815252895E1C7EA94F2A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601149   (152929) от 30.12.2022
+
+Deliver 2.7.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver — это комплексное решение для отправки файлов через Интернет и локальные сети с уведомлениями по электронной почте. Он поддерживает FTP, SFTP, Amazon S3 и другие основные сервисы, а также предлагает автоматические уведомления о доставке по электронной почте, сжатие, доставку в несколько пунктов назначения и многое другое. Уведомления основаны на переменных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.12.2022Разработчик: © 2010-2022 Zevrix SolutionsПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8DC6BCC50116C116922AC9B5AE0C30AB8B38B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086450   (152880) от 24.12.2016
+
+Xojo IDE RAD 2016r4.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xojo (ранее Real Studio, а еще ранее Real Basic) - объектно-ориентированная, кросс-платформенная, визуальная среда разработки приложений для Mac OS X, Linux, Windows, iOS и Raspberry PI, которая позволяет разрабатывать удобные и легкие приложения, утилиты (в том числе консольные) и приложения для Web, с возможностью поддержки самых популярных баз данных.
+
+Приложение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2016Разработчик: Xojo LLСПоддерживаемая ОС: macOS 10.7.5 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A908D0DF35774A3D16930B6A4F8800D863782C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347059   (152878) от 22.12.2019
 
 CleanMyMac X 4.5.2 [Multi/Ru]
@@ -6,7 +115,7 @@ CleanMyMac X 4.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152878.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ FxFactory Pro 7.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152872.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152841.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ Wondershare PDFelement Pro 8.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152825.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ Geekbench 5 v5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152788.jpg" />
 </div>
 
 
@@ -141,7 +250,7 @@ Find Any File (FAF) 2.4b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152764.jpg" />
 </div>
 
 
@@ -168,7 +277,7 @@ Invisor - Media File Inspector 3.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152753.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ Chain Timer 9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152734.jpg" />
 </div>
 
 
@@ -222,7 +331,7 @@ FoneDog Toolkit for Android 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152724.jpg" />
 </div>
 
 
@@ -248,7 +357,7 @@ System Toolkit 5.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152703.jpg" />
 </div>
 
 
@@ -274,7 +383,7 @@ NetWorker Pro 8.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152676.jpg" />
 </div>
 
 
@@ -300,7 +409,7 @@ Aiseesoft Mac Video Converter Ultimate 10.3.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152664.jpg" />
 </div>
 
 
@@ -326,7 +435,7 @@ DriveDx 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152653.jpg" />
 </div>
 
 
@@ -352,7 +461,7 @@ FoneDog Toolkit for iOS 2.1.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152625.jpg" />
 </div>
 
 
@@ -378,7 +487,7 @@ Byword 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152580.jpg" />
 </div>
 
 
@@ -405,7 +514,7 @@ Mactracker 7.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152512.jpg" />
 </div>
 
 
@@ -432,7 +541,7 @@ DjVu Reader Pro 2.6.2 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152506.jpg" />
 </div>
 
 
@@ -459,7 +568,7 @@ ColorWell 7.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152497.jpg" />
 </div>
 
 
@@ -485,7 +594,7 @@ PDFpenPro 11.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152484.jpg" />
 </div>
 
 
@@ -513,7 +622,7 @@ Screenium 3 3.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152442.jpg" />
 </div>
 
 
@@ -539,7 +648,7 @@ EtreCheck Pro 6.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152429.jpg" />
 </div>
 
 
@@ -567,7 +676,7 @@ Adware Zap Pro 2.7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152422.jpg" />
 </div>
 
 
@@ -579,110 +688,6 @@ Adware Zap Pro 2.7.0.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B696F4A3C0C9F278EF94CABB8976CE0D5D6C21C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347455   (152413) от 23.12.2019
-
-NeoFinder Business 7.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для катологизации мультимедийного контента, хранящегося на локальных и внешних дисках, CD/DVD-дисках и других носителях. NeoFinder каталогизирует все данные, что позволяет полностью контролировать коллекцию файлов.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2019Разработчик: West-Forest-SystemsПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECE0B8C6B234E75ECACACD35BBB611AF253A2F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271208   (152395) от 22.12.2018
-
-Wirecast Pro 11.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. В приложение интегрирована поддержка карт захвата Blackmagic. Кроме того, программное обеспечение поддерживает высококачественные видео форматы Main Concept H.264 и On2 VP6 Flash. «Чтобы производить и транслировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2018Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76972FEED722C64EC5F4560381F5F6417B8510C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347535   (152370) от 23.12.2019
-
-Navicat Premium 15.0.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: PremiumSoft CyberTech Ltd.Поддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Английский, немецкий, испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8712ED0921A5357972298F28E9E680AF23F300EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518837   (152357) от 21.12.2021
-
-Screaming Frog SEO Spider 16.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screaming Frog SEO Spider Tool - программа для проведения подробного SEO анализа любого сайта. С помощью нее вы сможете проверить все внутренние ссылки, исходящие ссылки, метаописания каждой страницы, теги h1-h6 веб ресурса. С помощью Screaming Frog SEO Spider вы без труда обнаружите все ошибки в СЕО оптимизации вашего веб ресурса и сможете их устранить до их появления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Screaming Frog Ltd.Поддерживаемая ОС: macOS 10.7.3+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71DE4B5D02C3132CA95C47FEA3D7235FFAF6B88
 ```
 
 https://mybot314.ru/tekegram_catalog/

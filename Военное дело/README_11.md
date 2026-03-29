@@ -1,3 +1,29 @@
+###  Публикация: 963618   (287134) от 08.12.2015
+
+Военная приемка. Хризантема. Убийца танков (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287134.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске программы «Военная приёмка» зрители увидят уникальный противотанковый ракетный комплекс, аналогов которому нет в мире.  Эта грозная машина, которая носит романтичное имя «Хризантема», может в одиночку противостоять пяти танкам. Создатели «Хризантемы» – российские конструкторы – наделили ее удивительными свойствами. Во-первых, эта машина может пробивать (   Читать дальше...   )Телекомпания: ОАО ТРК ВС РФ "ЗВЕЗДА"Жанр: ДокументальныйРежиссер: Александр ШильниковПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3867F2254C88AF2A33FB4063B0FFE1D632B9F434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247772   (285459) от 20.11.2018
 
 История оружия / History of Weapons (2018) HDTVRip [H.264/720p-LQ] (1-10 серия из 10)
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285459.jpg" />
+  <img src="Z:/picture/008/save_picture_285459.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285455.jpg" />
+  <img src="Z:/picture/008/save_picture_285455.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280632.jpg" />
+  <img src="Z:/picture/008/save_picture_280632.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280284.jpg" />
+  <img src="Z:/picture/008/save_picture_280284.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278466.jpg" />
+  <img src="Z:/picture/008/save_picture_278466.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277107.jpg" />
+  <img src="Z:/picture/008/save_picture_277107.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275113.jpg" />
+  <img src="Z:/picture/008/save_picture_275113.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274444.jpg" />
+  <img src="Z:/picture/008/save_picture_274444.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273336.jpg" />
+  <img src="Z:/picture/008/save_picture_273336.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271886.jpg" />
+  <img src="Z:/picture/008/save_picture_271886.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270986.jpg" />
+  <img src="Z:/picture/008/save_picture_270986.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270446.jpg" />
+  <img src="Z:/picture/008/save_picture_270446.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265888.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262808.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262733.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262730.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255018.jpg" />
+  <img src="Z:/picture/005/save_picture_255018.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254399.jpg" />
+  <img src="Z:/picture/005/save_picture_254399.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252995.jpg" />
+  <img src="Z:/picture/005/save_picture_252995.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252461.jpg" />
+  <img src="Z:/picture/005/save_picture_252461.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247869.jpg" />
+  <img src="Z:/picture/004/save_picture_247869.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232473.jpg" />
+  <img src="Z:/picture/005/save_picture_232473.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229572.jpg" />
+  <img src="Z:/picture/004/save_picture_229572.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226643.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226163.jpg" />
+  <img src="Z:/picture/005/save_picture_226163.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257FDA5842A369B1FC3AB2897C33B2AB2556A1EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736532   (224584) от 20.12.2013
-
-Арсенал (4 серии из 4) / Arsenal (1996) IPTVRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал расскажет о развитием сухопутных войск, от прошлых неудач и успехов, о состоянии дел в развитии современной боевой техники и сил в самом сердце сегодняшнего механизированного боя.Жанр: Документальный, вооружение, война, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 4 х ~ 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A493A7A738175D87F90913F8C46C35740B6F933
 ```
 
 https://mybot314.ru/tekegram_catalog/

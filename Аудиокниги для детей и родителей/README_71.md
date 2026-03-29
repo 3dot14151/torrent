@@ -1,3 +1,85 @@
+###  Публикация: 420065   (125263) от 29.12.2023
+
+Жюль Верн | Таинственный остров (Радиоспектакль) (2008) [MP3, Михаил Козаков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125263.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Таинственный остров» – один из самых увлекательных романов французского писателя-фантаста Жюля Верна. Во времена гражданской войны в США пятеро смельчаков-северян спасаются от плена на воздушном шаре. Страшная буря выбрасывает их на берег необитаемого острова. Отвага и таланты новых поселенцев острова помогают им обустроить свою жизнь. Мирное пребывание «робинзонов» (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романВ ролях: Михаил Козаков, Олег Бурделов, Олег Герасимов, Михаил Гульдан, Александр Касьянов, А. Лобачевский, Олег ЩербининИздательство: Эксмо-Сидиком, Sound TimeПродолжительность: 02:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6584BCA15FC2248CA2FC08D9B2A1DC4391591438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385801   (125251) от 29.12.2023
+
+Жан-Батист Мольер | Мещанин во дворянстве. Мнимый больной (2009) [MP3, Владимир Маслаков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Школьная библиотека.
+Жан-Батист Мольер (1622–1673) – французский поэт и актер, создатель жанра комедии эпохи Классицизма.
+«Школьная библиотека» знакомит своих слушателей с одними из самых известных пьес Жана-Батиста Мольера – «Мнимый больной» и «Мещанин во дворянстве». Полные искрометного юмора и тонкой иронии комедии, вот уже несколько сотен лет не сходят (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: АудиокнигаПродолжительность: 04:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E786294A30DD52B361642FBD9DB7DC6C87E7C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385798   (125249) от 29.12.2023
+
+Жан-Батист Мольер | Мещанин во дворянстве (2008) [MP3, Илья Прудовский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Школьная программа.
+Жан-Батист Мольер (1622–1673) – французский поэт и актер, создатель жанра комедии эпохи Классицизма.
+«Мещанин во дворянстве» – искрометная комедия классика французской литературы Жана-Батиста Мольера. Богатый буржуа господин Журден одержим идеей стать аристократом. Портные, парикмахеры, учителя в один голос сулят посредством своего искусства (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: Студия «АРДИС»Продолжительность: 03:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C1D29739F0FA2745ED57CAF2DEF0FBBE6EF805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449335   (125245) от 29.12.2023
 
 Жюль Верн | Пятнадцатилетний капитан (2008) [MP3, Борис Хасанов]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125245.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125244.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125225.jpg" />
 </div>
 
 
@@ -89,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125223.jpg" />
 </div>
 
 
@@ -117,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125207.jpg" />
 </div>
 
 
@@ -143,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125198.jpg" />
 </div>
 
 
@@ -169,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125196.jpg" />
 </div>
 
 
@@ -195,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125195.jpg" />
 </div>
 
 
@@ -223,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125194.jpg" />
 </div>
 
 
@@ -249,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125191.jpg" />
 </div>
 
 
@@ -277,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125189.jpg" />
 </div>
 
 
@@ -303,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125187.jpg" />
 </div>
 
 
@@ -331,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125183.jpg" />
 </div>
 
 
@@ -357,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125182.jpg" />
 </div>
 
 
@@ -383,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125181.jpg" />
 </div>
 
 
@@ -409,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125171.jpg" />
 </div>
 
 
@@ -435,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125170.jpg" />
 </div>
 
 
@@ -463,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125169.jpg" />
 </div>
 
 
@@ -489,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125168.jpg" />
 </div>
 
 
@@ -517,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125166.jpg" />
 </div>
 
 
@@ -543,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125165.jpg" />
 </div>
 
 
@@ -569,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125164.jpg" />
 </div>
 
 
@@ -596,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125160.jpg" />
 </div>
 
 
@@ -609,85 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C311A3CCB616D4C05E59BF4C62518B16C6C1BFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568132   (125159) от 29.12.2023
-
-Мария Парр | Тоня Глиммердал (2021) [MP3, Роза Шмуклер]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тоня – единственный ребёнок в норвежской горной деревушке неподалёку от моря. У неё есть снегокат, лыжи, большая семья, собирающаяся вместе только по праздникам и горы, и пастбища, и речка – всё вокруг её. Когда она летит на лыжах, распевая во весь голос и сверкая рыжей копной волос, вся деревня знает, что едет самый главный человек в долине. Лучший друг Тони – старик (   Читать дальше...   )Жанр: детская проза, зарубежные детские книгиПеревод: Ольга ДроботПродолжительность: 04:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A563F828E16F4082143BBA4FFE8A460BCFF39DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688365   (125151) от 29.12.2023
-
-Народное творчество | Игралки. Считалочки. Дразнилки. Небылицы. Сказки (2013) [MP3, Наталья Михеева, Олег Исаев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вдруг вашему ребёнку стало грустно и нет настроения играть и веселиться, то скорее включайте нашу уникальную программу «Игралки». Во-первых, вы сможете наконец-то пересчитать «всех и вся» с помощью наших многочисленных считалок, возможно, вспомните свои детские считалки. Во-вторых, научитесь подшучивать над окружающими с помощью наших дружеских дразнилок. В-третьих, (   Читать дальше...   )Жанр: детские стихи, сказкиИздательство: Литрес ПаблишингПродолжительность: 03:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC5A2094BF5230628672E27AB0662D959635866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420232   (125141) от 30.12.2023
-
-Жюль Верн | Вокруг света за 80 дней (Аудиоспектакль) (2006) [MP3, Альберт Филозов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мир приключений.
-Французский писатель Жюль Верн (1828–1905) известен всем нам как автор захватывающих фантастических и приключенческих романов. Его перу принадлежат свыше 60 книг, каждая из которых после прочтения запоминается на всю жизнь. Роман «Вокруг света в 80 дней» – не исключение.Жанр: Зарубежная литература, классика, приключенческий романВ ролях: Андрей Данилюк, Александр Ильин, Ирина Киреева, Альберт Филозов и др.Продолжительность: 01:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F193FDC1B1F631976C137427251D21EE711E6B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

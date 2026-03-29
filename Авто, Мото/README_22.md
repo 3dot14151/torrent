@@ -1,3 +1,81 @@
+###  Публикация: 1798136   (17664) от 20.05.2025
+
+FIA European Truck Racing Championship. Чемпионат Европы по кольцевым гонкам тягачей. Мизано гонка-2 (17.05.2025) WEBRip [H.264]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грузовики выйдут на трассу в Мизано для участия в открытии сезона Чемпионата Европы по грузовым гонкам Goodyear FIA (ETRC), на соревнованиях дебютирует новое поколение гоночных шин Goodyear. Goodyear является ключевым игроком чемпионата Европы по гонкам на грузовиках с 2003 года, постоянно совершенствуя технологию производства шин, чтобы расширить возможности гоночных (   Читать дальше...   )Телекомпания: СтартЖанр: спорт, автогонкиЯзык озвучки: РусскийПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11EF161BF4CFC684E0AA3AFFD1822F251737DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802116   (14551) от 15.06.2025
+
+Американский гром: NASCAR в Ле-Мане / American Thunder: NASCAR to Le Mans (2025) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14551.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь 100-летия автогонки «24 часа Ле-Мана» американскую команду NASCAR приглашают посоревноваться с футуристическими европейскими прототипами.Производство: США, Франция / Hendrick Motorsports, Nascar StudiosЖанр: документальный, спортРежиссер: Брэд ЛокхартУчастники: Джеймс Френс, Билл Френс, Эланис КингПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: 01:38:07Реклама: присутствует пара вставок видеорекламы и статичный логотип
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC92755C562375306D959DD5EF4C4216B59AC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805216   (12042) от 09.07.2025
+
+Тур де Франс: В сердце пелотона / Tour de France: Unchained (2025) WEBRip [H.264/1080p] (сезон 3, серии 1-8 из 8) 1win Studio [AD]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный проект, повествующий о нескольких профессиональных командах по велоспорту, позволяет заглянуть за кулисы одной из самых престижных в мире велогонок «Тур де Франс». Помимо спортсменов, которые кровью и потом добывают себе победу, свое слово говорят руководители команд и многочисленные эксперты, объясняющие правила и важные особенности шоссейного велоспорта. (   Читать дальше...   )Производство: Франция, Великобритания / Box to Box Films, Quad, NetflixЖанр: документальный, спортРежиссер: Ян Леноре, Jamie Batten, Рёланд ДаустУчастники: Алек Ньюман, Julian Alaphilippe, Fabio Jakobsen, Wout van Aert, Christian Prudhomme, Steve Chainel, Patrick Lefevere, Michael Mørkøv, Yves LampaertПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: 1win StudioПродолжительность: ~00:45:00 серияРеклама: присутствует пара вставок видеорекламы и статичный логотип
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BE62F29D91D0C9621348FF02D1C77BF0046B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812948   (7190) от 17.08.2025
 
 MotoGP. Этап 13 из 22. Гран-при Австрии. Квалификация (16.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +84,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7190.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Спринт (16.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7186.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Гонка (17.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7017.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6250.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Спринт (23.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6249.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Гонка (24.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6074.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3841.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3839.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Гонка (07.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3837.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Квалифи
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2905.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Спринт (
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2902.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Гонка (14
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2751.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_476.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Спринт (27.09.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_474.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Гонка (28.09.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_206.jpg" />
 </div>
 
 

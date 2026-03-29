@@ -6,7 +6,7 @@ Movavi Video Suite 20.4.1 RePack (& Portable) by  Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720736.jpg" />
+  <img src="Z:/picture/008/save_picture_720736.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dropshare v4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720715.jpg" />
+  <img src="Z:/picture/008/save_picture_720715.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720704.jpg" />
+  <img src="Z:/picture/008/save_picture_720704.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Stellarium 0.90.0.9320 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720701.jpg" />
+  <img src="Z:/picture/008/save_picture_720701.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720699.jpg" />
+  <img src="Z:/picture/008/save_picture_720699.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720696.jpg" />
+  <img src="Z:/picture/008/save_picture_720696.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Process Lasso Pro 9.0.0.318 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720695.jpg" />
+  <img src="Z:/picture/008/save_picture_720695.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720694.jpg" />
+  <img src="Z:/picture/008/save_picture_720694.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Skype 8.40.0.070 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720692.jpg" />
+  <img src="Z:/picture/008/save_picture_720692.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720688.jpg" />
+  <img src="Z:/picture/008/save_picture_720688.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Peter Berry - Syncopate (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720681.jpg" />
+  <img src="Z:/picture/008/save_picture_720681.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Beyond Compare 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720679.jpg" />
+  <img src="Z:/picture/008/save_picture_720679.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Adobe InCopy 2022 v17.1.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720668.jpg" />
+  <img src="Z:/picture/008/save_picture_720668.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ uTorrent 3.5.5 Build 45095 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720661.jpg" />
+  <img src="Z:/picture/008/save_picture_720661.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720658.jpg" />
+  <img src="Z:/picture/008/save_picture_720658.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ uTorrent Pro 3.5.5 Build 45095 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720654.jpg" />
+  <img src="Z:/picture/008/save_picture_720654.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Kazrog - AmpCraft - 1992 1.0.1 STANDALONE, VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720643.jpg" />
+  <img src="Z:/picture/008/save_picture_720643.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Blackmagic Design Fusion Studio 17.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720637.jpg" />
+  <img src="Z:/picture/008/save_picture_720637.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Internet Download Manager 6.28 Build 8 Final RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720583.jpg" />
+  <img src="Z:/picture/008/save_picture_720583.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Function : Vatican Shadow - Games Have Rules (2014) [FLAC|Lossless|tracks + .cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720582.jpg" />
+  <img src="Z:/picture/008/save_picture_720582.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ WinTools.net Premium 17.4.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720581.jpg" />
+  <img src="Z:/picture/008/save_picture_720581.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Instant Translate – translator, dictionary, voice 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720579.jpg" />
+  <img src="Z:/picture/008/save_picture_720579.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720577.jpg" />
+  <img src="Z:/picture/008/save_picture_720577.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720575.jpg" />
+  <img src="Z:/picture/008/save_picture_720575.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VirtualHostX 7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720568.jpg" />
+  <img src="Z:/picture/008/save_picture_720568.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ John Wetton - The Studio Recordings Anthology (2015) 2 CD, Compilation, Remaster
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720565.jpg" />
+  <img src="Z:/picture/008/save_picture_720565.jpg" />
 </div>
 
 

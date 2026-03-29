@@ -6,7 +6,7 @@ CoolUtils Total Audio Converter 6.1.0.259 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728816.jpg" />
+  <img src="Z:/picture/008/save_picture_728816.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 6.1.8.605 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728813.jpg" />
+  <img src="Z:/picture/008/save_picture_728813.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wireshark 3.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728812.jpg" />
+  <img src="Z:/picture/008/save_picture_728812.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Perfectly Clear WorkBench 4.0.1.2233 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728809.jpg" />
+  <img src="Z:/picture/008/save_picture_728809.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Character Animator 2022 22.2.0.62 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728799.jpg" />
+  <img src="Z:/picture/008/save_picture_728799.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ K-Lite Codec Pack Update 13.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728778.jpg" />
+  <img src="Z:/picture/008/save_picture_728778.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VueScan Pro 9.6.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728769.jpg" />
+  <img src="Z:/picture/008/save_picture_728769.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ XYplorer 19.70.0000 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728761.jpg" />
+  <img src="Z:/picture/008/save_picture_728761.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Macrium Reflect v7.2 .4063 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728758.jpg" />
+  <img src="Z:/picture/008/save_picture_728758.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ DVDFab 12.0.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728691.jpg" />
+  <img src="Z:/picture/008/save_picture_728691.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ FileZilla 3.25.2 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728674.jpg" />
+  <img src="Z:/picture/008/save_picture_728674.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ IObit Uninstaller Pro 8.3.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728651.jpg" />
+  <img src="Z:/picture/008/save_picture_728651.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Macrium Reflect v7.2.4063 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728647.jpg" />
+  <img src="Z:/picture/008/save_picture_728647.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ FastStone MaxView + portable 3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728645.jpg" />
+  <img src="Z:/picture/008/save_picture_728645.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ FabFilter - Total Bundle 2019.02.19 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728643.jpg" />
+  <img src="Z:/picture/008/save_picture_728643.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Mirillis Splash v2.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728640.jpg" />
+  <img src="Z:/picture/008/save_picture_728640.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ HWiNFO 5.30-2880 + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728594.jpg" />
+  <img src="Z:/picture/008/save_picture_728594.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Slimjet 10.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728577.jpg" />
+  <img src="Z:/picture/008/save_picture_728577.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728569.jpg" />
+  <img src="Z:/picture/008/save_picture_728569.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Light Alloy 4.10.0 Build 2945 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728544.jpg" />
+  <img src="Z:/picture/008/save_picture_728544.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ WinRAR 5.70 Beta 2 [En+Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728528.jpg" />
+  <img src="Z:/picture/008/save_picture_728528.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Auslogics BoostSpeed 10.0.23.0 RePack (& Portable) by KpoJIuK 10.0.23.0 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728524.jpg" />
+  <img src="Z:/picture/008/save_picture_728524.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ WinRAR 5.70 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728511.jpg" />
+  <img src="Z:/picture/008/save_picture_728511.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Aiseesoft Total Video Converter 9.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728475.jpg" />
+  <img src="Z:/picture/008/save_picture_728475.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ CCleaner 5.18.5607 DC 01.06.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728473.jpg" />
+  <img src="Z:/picture/008/save_picture_728473.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ CCleaner 5.18.5607 DC 01.06.2016 Professional | Business | Technician Edition Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728467.jpg" />
+  <img src="Z:/picture/008/save_picture_728467.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ NetSetMan 4.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864496.jpg" />
+  <img src="Z:/picture/008/save_picture_864496.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XnView Classic 2.50.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864462.jpg" />
+  <img src="Z:/picture/008/save_picture_864462.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OEM Info Updater 9.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864456.jpg" />
+  <img src="Z:/picture/008/save_picture_864456.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864341.jpg" />
+  <img src="Z:/picture/008/save_picture_864341.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.16.5551 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864326.jpg" />
+  <img src="Z:/picture/008/save_picture_864326.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Acronis True Image WD Edition 25.0.1.39200 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864283.jpg" />
+  <img src="Z:/picture/008/save_picture_864283.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Allavsoft Video Downloader Converter 3.13.9.6263 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864271.jpg" />
+  <img src="Z:/picture/008/save_picture_864271.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Reg Organizer 7.35 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864190.jpg" />
+  <img src="Z:/picture/008/save_picture_864190.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CCleaner 5.16.5551 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864184.jpg" />
+  <img src="Z:/picture/008/save_picture_864184.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Autodesk Product Design Suite Ultimate 2015 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864169.jpg" />
+  <img src="Z:/picture/008/save_picture_864169.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hex Editor Neo Ultimate Edition 6.24.00.5920 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864142.jpg" />
+  <img src="Z:/picture/008/save_picture_864142.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864138.jpg" />
+  <img src="Z:/picture/008/save_picture_864138.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CCleaner 5.16.5551 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864084.jpg" />
+  <img src="Z:/picture/008/save_picture_864084.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.70.3800 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864076.jpg" />
+  <img src="Z:/picture/008/save_picture_864076.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ DriverPack Solution Online 17.6.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864069.jpg" />
+  <img src="Z:/picture/008/save_picture_864069.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.70.3800 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864068.jpg" />
+  <img src="Z:/picture/008/save_picture_864068.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Foundry MODO 10.2v2 Build 131034 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864042.jpg" />
+  <img src="Z:/picture/008/save_picture_864042.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Auslogics Disk Defrag Free 7.1.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864041.jpg" />
+  <img src="Z:/picture/008/save_picture_864041.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ R-Drive Image Technician 6.1 Build 6103 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864033.jpg" />
+  <img src="Z:/picture/008/save_picture_864033.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4805.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863964.jpg" />
+  <img src="Z:/picture/008/save_picture_863964.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NetLimiter 4.0.19.0 Enterprise RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863960.jpg" />
+  <img src="Z:/picture/008/save_picture_863960.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Dism++ 10.1.4.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863957.jpg" />
+  <img src="Z:/picture/008/save_picture_863957.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.70.3800 Final + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863955.jpg" />
+  <img src="Z:/picture/008/save_picture_863955.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ The KMPlayer 4.0.6.4 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863953.jpg" />
+  <img src="Z:/picture/008/save_picture_863953.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ K-Lite Codec Pack 12.0.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863951.jpg" />
+  <img src="Z:/picture/008/save_picture_863951.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ XWiki Enterprise 8.0 Portable by LuchS_52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863920.jpg" />
+  <img src="Z:/picture/008/save_picture_863920.jpg" />
 </div>
 
 

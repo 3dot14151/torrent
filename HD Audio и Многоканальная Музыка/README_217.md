@@ -1,3 +1,235 @@
+###  Публикация: 1711254   (61393) от 29.03.2024
+
+Sheryl Crow - Evolution (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alarm Clock
+02. Digging In The Dirt (feat. Peter Gabriel)
+03. Do It Again
+04. Love Life(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD23D9D51BEC5997D03CDC4D15779CF8DC385E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711069   (61391) от 29.03.2024
+
+De-Phazz - Pit Sounds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip Hop, Lounge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry Golden Waters (feat. Marcus Bartelt)
+02. While the Moon
+03. Afternoon Tune
+04. Jazz with Boom(   Читать дальше...   )Жанр: Nu Jazz, Trip Hop, LoungeПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF7D09FFEB2089D3336AB48D311F7C4C3D924F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619837   (61093) от 01.04.2024
+
+Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sum 41 — канадская рок-группа из города Эйджакс, Онтарио. Была образована в 1996 году2000 - Half Hour Of Power (EP)
+2001 - All Killer, No Filler
+2002 - Does This Look Infected
+2004 - ChuckЖанр: Punk RockПродолжительность: 07:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712205   (61012) от 02.04.2024
+
+Dire Straits - On Every Street (1991) SACD, Remastered, 2024, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взятый из оригинальных мастер-лент и помещенный в мини-упаковку для пластинок, гибридный SACD On Every Street от Mobile Fidelity представляет альбом таким, каким он всегда предназначался для восприятия: в аудиофильском звуке эталонного уровня. Записанный в AIR Studios в Лондоне и спродюсированный лидером Dire Straits Марком Нопфлером, он включает в себя все звуковые (   Читать дальше...   )01. Calling Elvis 6:26
+02. On Every Street 5:01
+03. When It Comes To You 5:00
+04. Fade To Black 3:47(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D631088071F9B4D3B555516DC6F3A65A7B3D1237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556221   (60749) от 04.04.2024
+
+Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Djent, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bad Wolves — американская супер-группа, играющая в стиле грув-метал. Группа образована в 2017 году и стала наиболее известна исполнением кавер-версии хита The Cranberries 1994 года «Zombie». По мнению самих участников, их стиль, это рок при пониженном строе гитар с элементами джента.2018 - Disobey
+2019 - N.A.T.I.O.N.
+2021 - Dear Monsters
+2023 - Die About It(   Читать дальше...   )Жанр: Groove Metal, Djent, MetalcoreПродолжительность: 04:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498E04B8F6D9FED231EC3F098F4041C010A18544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709650   (60368) от 08.04.2024
+
+Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Nu Metal, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guano Apes — альтернативный рок-квартет из Гёттингена, Германия, образованный в 1994 году.1997 - Proud Like A God
+2001 - Don't Give Me Names
+2003 - Walking On A Thin Line
+2004 - Planet Of The ApesЖанр: Alternative Rock, Nu Metal, Funk MetalПродолжительность: 08:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4460A371B31DC2FF4D462F7C943A889DEDF07AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519346   (60091) от 11.04.2024
+
+Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Finger Death Punch  (с англ. — «Смертельный удар пятью пальцами», сокращённо 5FDP и FFDP) — американская грув-метал-группа, образованная в 2005 году в Лос-Анджелесе, Калифорния, Золтаном Батори, гитаристом венгерского происхождения, в прошлом — басиста U.P.O. Кроме Батори в состав группы входят бывший вокалист2007 - The Way Of The Fist
+2009 - War Is The Answer
+2011 - American Capitalist
+2013 - The Wrong Side of Heaven and The Righteous Side of Hell(   Читать дальше...   )Жанр: Groove metalПродолжительность: 10:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715361   (60016) от 11.04.2024
+
+Mark Knopfler - One Deep River (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Pairs Of Hands (4:05)
+02. Ahead Of The Game (3:56)
+03. Smart Money (4:27)
+04. Scavengers Yard (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63A1708C568094E0BFBACE037333B5FA8FD41C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716321   (59611) от 15.04.2024
 
 Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Pop, Disco>
@@ -6,7 +238,7 @@ Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59611.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59594.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Pearl Jam - Dark Matter (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59180.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59085.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ The Ghost Inside - Searching for Solace (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58983.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Bonnie Tyler - In Berlin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58767.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58683.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Scott Stapp (Creed) - Studio Albums (4 releases) (2005-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58673.jpg" />
 </div>
 
 
@@ -240,7 +472,7 @@ Paul Mauriat - Windy & You Don't Know Me (1986-1990) SACD, 2023, Vocalion [DST64
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58046.jpg" />
 </div>
 
 
@@ -269,7 +501,7 @@ Pabllo Vittar - Batidao Tropical Vol. 1-2 (2021-2024) [FLAC 24/44.1,48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57923.jpg" />
 </div>
 
 
@@ -298,7 +530,7 @@ Mark Knopfler - The Boy (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57704.jpg" />
 </div>
 
 
@@ -327,7 +559,7 @@ Michael Jackson - Thriller (1982) 2008 [FLAC 24/176.4|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57615.jpg" />
 </div>
 
 
@@ -356,7 +588,7 @@ Michael Jackson - Bad (Remastered) (1987) 2012 [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57532.jpg" />
 </div>
 
 
@@ -385,7 +617,7 @@ Scorpions - Virgin Killer (1976) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57425.jpg" />
 </div>
 
 
@@ -414,7 +646,7 @@ Scorpions - In Trance (1975) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57392.jpg" />
 </div>
 
 
@@ -443,7 +675,7 @@ Scorpions - Fly To The Rainbow (1974) Remastered 2023 [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57388.jpg" />
 </div>
 
 
@@ -472,7 +704,7 @@ Creedence Clearwater Revival - The Complete Studio Albums (1968-1972) Compilatio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57342.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Cliff Richard - Rock 'N' Roll Juvenile (1979) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57302.jpg" />
 </div>
 
 
@@ -512,239 +744,6 @@ A4 You Know That I Love You(   Читать дальше...   )Жанр: Rock & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98DAAF04C4B084546C2644B32DA3C3CFD3941983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572715   (56903) от 11.05.2024
-
-Unleash the Archers - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unleash the Archers — канадская метал-группа, основанная в Ванкувере в 2007 году. Группа исполняет смесь традиционного хеви-метала с пауэр-металом и мелодичным дэт-металом.2009 - Behold The Devastation
-2011 - Demons Of The AstroWaste
-2015 - Time Stands Still
-2017 - Apex(   Читать дальше...   )Жанр: Heavy/Power Metal, Melodic Death MetalПродолжительность: 06:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A5A8B3549B600F63F023156505C7EFB228EF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722778   (56755) от 12.05.2024
-
-Полуночные странники - Русский блюз (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Русский блюз (крест) (5:51)
-02. Дао блюз (4:54)
-03. Брат (4:58)
-04. Без тебя (8:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931E51CA7FA2FAEF636F30E8CCDD6D6D622150CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722814   (56694) от 13.05.2024
-
-Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56694.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wet Day In September
-A2 Hey Joe
-A3 It's The Same Old Song
-A4 Love In September(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: Vinyl, LP, Album, EMI – EMCE 1047, India
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638278   (56449) от 15.05.2024
-
-Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freedom Call — немецкая пауэр-метал группа, основанная в 1998 году.1999 - Stairway To Fairyland
-1999 - Taragon (EP)
-2001 - Crystal Empire
-2002 - EternityЖанр: Power MetalПродолжительность: 11:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3B1A5274A55E651DDADB5A18900732D8021049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630232   (56341) от 16.05.2024
-
-Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stream of Passion — мексикано-нидерландская симфоник-/готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
-2006 - Out in the Real World (EP)
-2009 - The Flame Within
-2011 - Darker DaysЖанр: Progressive/Symphonic MetalПродолжительность: 04:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F22229E4993B3E7DFA444B9CEDEE70F8DDD79C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541970   (56281) от 17.05.2024
-
-Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pain — индастриал-метал проект шведского музыканта, основателя Hypocrisy — Петера Тэгтгрена.1997 - Pain
-2000 - Rebirth
-2002 - Nothing Remains The Same
-2005 - Dancing With The DeadЖанр: Electronic/Industrial MetalПродолжительность: 08:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C2E6FFC9F140FBCE4714F4EE16A51294ABB2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528857   (56279) от 17.05.2024
-
-Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Groove/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fear Factory — американская метал-группа из Лос-Анджелеса.
-Группа сформировалась в 1989 году. За время своей музыкальной карьеры, музыканты сумели выработать собственное оригинальное звучание представляющее собой сочетание индастриал-метала и грув-метала.1992 - Soul Of A New Machine
-1995 - Demanufacture
-1998 - Obsolete
-2001 - Digimortal(   Читать дальше...   )Жанр: Death/Groove/Industrial MetalПродолжительность: 11:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02323E13F89423B9D40860E54EC6708E63CB9801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723909   (56270) от 17.05.2024
-
-Billie Eilish - HIT ME HARD AND SOFT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56270.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:40] 01. SKINNY
-[3:00] 02. LUNCH
-[5:04] 03. CHIHIRO
-[3:31] 04. BIRDS OF A FEATHER(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C8295977595D1D321BBDEE78138C65A59DA258
 ```
 
 https://mybot314.ru/tekegram_catalog/

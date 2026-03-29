@@ -1,3 +1,56 @@
+###  Публикация: 1255488   (363266) от 18.10.2018
+
+Р.Ю. Царев | Алгоритмы и структуры данных (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены структуры и алгоритмы, которые являются основой современной методологии разработки программ. Изложено детальное описание и анализ основных алгоритмов обработки данных: сортировка данных, поиск образа в строке, алгоритмы обработки графов.
+Предназначено для бакалавров направления 231000.62 «Программная инженерия» и преподавателей дисциплины «Алгоритмы и (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF75D21726EBCDBA0A9C35F1449367E1D7CF29CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177602   (363172) от 25.10.2017
+
+В.А. Кудрявцев (ред.) | Основы эксплуатационной работы железных дорог (2005) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основы управления перевозками на железнодорожном транспорте. Даны понятия устройства и технологии работы станций и узлов, принципов организации вагонопотоков, графика движения, плана формирования поездов, пропускной способности участков, технического нормирования и других форм управления движениемЖанр: ТранспортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7E408E766C725B8B72B9C58D50877507A2FEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177589   (363156) от 25.10.2017
 
 А.И. Михайличенко (ред.) | Основы проектирования химических производств (2005) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363156.jpg" />
+  <img src="Z:/picture/008/save_picture_363156.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363144.jpg" />
+  <img src="Z:/picture/008/save_picture_363144.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362995.jpg" />
+  <img src="Z:/picture/008/save_picture_362995.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362993.jpg" />
+  <img src="Z:/picture/008/save_picture_362993.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361488.jpg" />
+  <img src="Z:/picture/008/save_picture_361488.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361375.jpg" />
+  <img src="Z:/picture/008/save_picture_361375.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360949.jpg" />
+  <img src="Z:/picture/008/save_picture_360949.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360906.jpg" />
+  <img src="Z:/picture/008/save_picture_360906.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360902.jpg" />
+  <img src="Z:/picture/008/save_picture_360902.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360389.jpg" />
+  <img src="Z:/picture/008/save_picture_360389.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360274.jpg" />
+  <img src="Z:/picture/008/save_picture_360274.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360143.jpg" />
+  <img src="Z:/picture/008/save_picture_360143.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360088.jpg" />
+  <img src="Z:/picture/008/save_picture_360088.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359379.jpg" />
+  <img src="Z:/picture/008/save_picture_359379.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359377.jpg" />
+  <img src="Z:/picture/008/save_picture_359377.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358899.jpg" />
+  <img src="Z:/picture/008/save_picture_358899.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358895.jpg" />
+  <img src="Z:/picture/008/save_picture_358895.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358772.jpg" />
+  <img src="Z:/picture/008/save_picture_358772.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358737.jpg" />
+  <img src="Z:/picture/008/save_picture_358737.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357992.jpg" />
+  <img src="Z:/picture/008/save_picture_357992.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357832.jpg" />
+  <img src="Z:/picture/008/save_picture_357832.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357532.jpg" />
+  <img src="Z:/picture/008/save_picture_357532.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356442.jpg" />
+  <img src="Z:/picture/008/save_picture_356442.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356297.jpg" />
+  <img src="Z:/picture/008/save_picture_356297.jpg" />
 </div>
 
 
@@ -625,62 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C1054B9FD1BB8CC06F24CCDB7CBFD93CEAE6E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577750   (354850) от 20.11.2012
-
-В.Д. Черненко | Высшая математика в примерах и задачах: Учебное пособие для вузов. [2003] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354850.jpg" />
-</div>
-
-
-###  Подробнее
-
-т.1 содержит краткий теоретический материал по определителям и матрицам, системам линейных уравнений, векторной и линейной алгебре, аналитической геометрии на плоскости и в пространстве, функциям и вычислению, пределов, дифференциальному исчислению функций одной и нескольких переменных, приложениям дифференциального исчисления к геометрии, неопределенному и определенному интегралам и приложениям определенного интеграла к задачам геометрии, механики и физики, а также большое количество примеров, иллюстрирующих основные методы решения.
-
-т. 2 содержит краткий теоретический материал по рядам Фурье, двойным, тройным, криволинейным, поверхностным интегралам и их приложениям к задачам геометрии, механики и физики, векторному анализу, функциям комплексных переменных, операционному исчислению и методам интегрирования уравнений в частных производных, а также большое количество примеров, иллюстрирующих основные методы решения.
-
-т. 3 содержит краткий теоретический материал по тензорному исчислению, численным методам высшего (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8C114A1723BCF95CBEE48A0CCE2D98A2FA955F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256660   (354030) от 22.10.2018
-
-Л.А. Алимов, В.В. Воронин | Строительные материалы (2012) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник создан в соответствии с требованиями Федерального государственного образовательного стандарта по направлению «Строительство» (квалификация «бакалавр»). Изложены основы строительного материаловедения, строение и свойства строительных материалов: природных каменных, теплоизоляционных, гидроизоляционных, металлов, стекла, полимеров. Показаны перспективы дальнейшего (   Читать дальше...   )Жанр: Строительство, ремонтФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F403A7729F7FCF175F01F54E42BDACF4255179
 ```
 
 https://mybot314.ru/tekegram_catalog/

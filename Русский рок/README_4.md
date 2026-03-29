@@ -1,3 +1,119 @@
+###  Публикация: 1613734   (1039394) от 19.02.2023
+
+Как Хочешь - 2 EP (2020-2022) [MP3|320 Kbps] <Alco Metal, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тёлки, треш и самогон [00:02:52]
+02. Барон Суббота [00:03:23]
+03. Мунщайн-брейк [00:02:34]
+04. Карантин [00:02:45]Жанр: Alco Metal, PunkПродолжительность: 2 CD, 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6426077A88ABDE355E2ED2DCC46BC95FBBFD2379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439980   (1039289) от 15.01.2021
+
+VA - Сохрани мою речь навсегда (2021) [MP3|320 Kbps] <Rock, Pop & etc.>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alina Pash - Среди лесов, унылых и заброшенных
+2. MILKOVSKYI - Только детские книги читать
+3. Свидание - Нежнее нежного
+4. Илья Лагутенко, Кудамир Катица - Раковина(   Читать дальше...   )Жанр: Rock, Pop & etc.Продолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE3A13582E919271B8E75922009EA572A468B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613923   (1039098) от 20.02.2023
+
+Borssch (Борщ) - 4 Albums (2021-2023) [MP3|320 Kbps] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - В глухие дни..
+2021 - Сегодня ночью будет день
+2022 - Запустение(   Читать дальше...   )Жанр: PunkПродолжительность: 4 CD, 02:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FADEAEF7B28BC6D35660BC0CAACDA986C317EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613764   (1039097) от 20.02.2023
+
+Прохор и Пузо - 5 Albums (2008-2020) [MP3|320 Kbps] <Experimental, Industrial Chanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2008 - Водка
+2010 - Алла
+2013 - Тлен(   Читать дальше...   )Жанр: Experimental, Industrial ChansonПродолжительность: 5 CD, 03:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75390456F82A5FE43A5CDE28D8A1C7E01A713BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614043   (1039096) от 20.02.2023
 
 Новый Гражданский - Горящий город (2023) [MP3|256 Kbps] <Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039096.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039094.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039093.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ LP.PROD - 6 Albums (2021-2023) [MP3|320 Kbps] <Electronic Cinematic Music>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039056.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dig 'Em Down - Ребуха (2023) [MP3|280-290 kbps VBR] <Rock, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038900.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038827.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Assanity - Новые русские панки / То, что все знают
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038803.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038801.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038760.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ LaScala - 8 Альбомов + 1 Live + 12 Синглов (2012-2023) [MP3|320 K
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038484.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038365.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038262.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037987.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Alkonost - Ведомые Ветром (2021) [MP3|320 Kbps] <Folk Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037749.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Beckson Beck - Счастья нет (2023) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037289.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037191.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037109.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037009.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Last Trial - Хронос (2023) [MP3|320 Kbps] <Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037006.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Beyond the Body - Station Hate (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036997.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ The Matrixx - EP2021 (2021) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036593.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036446.jpg" />
 </div>
 
 
@@ -624,122 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A43E9FCA7AF54E056F2D56F4599FF26835D1209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616496   (1036436) от 02.03.2023
-
-Краснознамённая дивизия имени моей бабушки - Знаки любви (2023) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1036436.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Завтра
-2. Александр
-3. Болливуд
-4. Гром в раю(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309C61FD1074A8AF9523F3772214491A90398EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616409   (1036423) от 02.03.2023
-
-Форрест Гамп - Рубикон (2023) [MP3|320 Kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Родина-мать [00:03:44]
-02 - Дядя Вова [00:03:56]
-03 - Костры [00:02:48]
-04 - Иван-дурак [00:03:20](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE07DDC4DBF731FD25A4C22646AA47F380DC099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442352   (1036329) от 26.01.2021
-
-Люди на Холме - Дикие Цветы (2020) [MP3|320 Kbps] <Dark neo-folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I 04:33
-2. Пора 04:19
-3. Полотно 04:39
-4. Соберу Тебе Диких Цветов 04:27(   Читать дальше...   )Жанр: Dark neo-folkПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33292DCAE6FAED90D1798B0044AE1AB05630A2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616614   (1036163) от 03.03.2023
-
-Гаснет Свет - Symphonia Vitiorum (2023) [MP3|320 Kbps] <Heavy Metal, Power Metal, Epic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ноктюрн [2:07]
-02. Архитектор судеб [6:45]
-03. Маскарад [7:01]
-04. Алхимик [7:15](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Epic MetalПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11FE99D75EF4DF6EB8947D02FDA8FE82993CF84
 ```
 
 https://mybot314.ru/tekegram_catalog/

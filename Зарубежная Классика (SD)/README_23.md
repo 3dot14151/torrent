@@ -1,3 +1,81 @@
+###  Публикация: 995774   (879213) от 14.03.2016
+
+Поддержи своего стрелка / Support Your Local Gunfighter (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брачный аферист Латиго Смит, ускользая от очередной брошенной дамочки, оказывается в шахтёрском городке с красноречивым названием Чистилище. Городок этот контролируется двумя конкурирующими группировками. Противоречия не разрешимы, и глава одной из группировок вызывает знаменитого стрелка Свифти Моргана чтобы уладить проблему с конкурентом. Латиго Смит оказывается (   Читать дальше...   )Производство: СШАЖанр: Комедия, мелодрама, вестерн, приключенияРежиссер: Берт КеннедиАктеры: Джеймс Гарнер, Гарри Морган, Сюзанн Плешетт, Джек Илэм, Джоан Блонделл, Мари Уиндсор, Джон Денер, Генри Джонс, Даб Тейлор, Кэтлин Фримен, Дик Кертис, Уиллис Бучи, Уолтер Бурк, Джин Эванс, Грэйди Саттон, Эллен Корби, Вирджиния Кейперс, Херб Вигран, Педро Гонзалез Гонзалез, Майк Вагнер, Терри Уилсон, Рой Гленн, Джон Вилер, Джерри Гэтлин, Чак Коннорс, Джон Дахейм, Уильям (   Читать дальше...   )Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D094BBD3CE4CD3ECFC46966BA749FBBFFF5292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642390   (878744) от 11.04.2013
+
+Привидение / Призрак / Ghost (1990) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_878744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Счастливая парочка возвращается домой после вечера в театре. На тёмной аллее на них нападает грабитель… Защищаясь, Сэм погибает. Теперь он только призрак, но всё еще может помочь своей возлюбленной! Сэм-привидение узнаёт, что его смерть не была случайной, а над Молли нависла смертельная опасность! Но для Молли он теперь «человек-невидимка», которого она не видит (   Читать дальше...   )Жанр: Фэнтези, Триллер, Драма, Мелодрама, ДетективРежиссер: Джерри Цукер / Jerry ZuckerАктеры: Патрик Суэйзи, Деми Мур, Вупи Голдберг, Тони Голдвин, Стэнли Лоуренс, Кристофер Дж. Кин, Сьюзэн Бреслау, Мартина Дэйнан, Рик Клебер, Мэка Фоли, Рик Авилес, Фил Лидз, Джон Хью, Sam Tsoutsouvas, Шарон Бреслау, Винсент Скиавелли, Анджелина Эстрада, Armelia McQueen, Гэйл Боггс, Том Керли, Стивен РутПеревод: 5х Многоголосый, 3х Авторский одноголосыйЯзык субтитров: РусскийПродолжительность: 02:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8660E977B7EB1E8DCCC35C76E802F531E1A877C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346631   (877839) от 10.03.2014
+
+Возвращение Дона Камилло / Le Retour de Don Camillo (1953) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_877839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй фильм в серии о доне Камилло. Пастор дон Камилло возвращается в родной городок после вынужденной ссылки за плохое поведение…......Жанр: комедияРежиссер: Жюльен ДювивьеПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F240E0E20F8C3B3E99AC4BCBAF03BD7A2B862DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104622   (877798) от 16.02.2017
 
 Народный роман / Romanzo popolare (1974) DVDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877798.jpg" />
+  <img src="Z:/picture/005/save_picture_877798.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877787.jpg" />
+  <img src="Z:/picture/005/save_picture_877787.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877712.jpg" />
+  <img src="Z:/picture/005/save_picture_877712.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877231.jpg" />
+  <img src="Z:/picture/005/save_picture_877231.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877202.jpg" />
+  <img src="Z:/picture/005/save_picture_877202.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877150.jpg" />
+  <img src="Z:/picture/005/save_picture_877150.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877104.jpg" />
+  <img src="Z:/picture/005/save_picture_877104.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876838.jpg" />
+  <img src="Z:/picture/008/save_picture_876838.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876397.jpg" />
+  <img src="Z:/picture/005/save_picture_876397.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_876259.jpg" />
+  <img src="Z:/picture/009/save_picture_876259.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875806.jpg" />
+  <img src="Z:/picture/005/save_picture_875806.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875703.jpg" />
+  <img src="Z:/picture/008/save_picture_875703.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875118.jpg" />
+  <img src="Z:/picture/005/save_picture_875118.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874685.jpg" />
+  <img src="Z:/picture/005/save_picture_874685.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874676.jpg" />
+  <img src="Z:/picture/005/save_picture_874676.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874467.jpg" />
+  <img src="Z:/picture/005/save_picture_874467.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874457.jpg" />
+  <img src="Z:/picture/005/save_picture_874457.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872703.jpg" />
+  <img src="Z:/picture/008/save_picture_872703.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872594.jpg" />
+  <img src="Z:/picture/008/save_picture_872594.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872485.jpg" />
+  <img src="Z:/picture/008/save_picture_872485.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872294.jpg" />
+  <img src="Z:/picture/008/save_picture_872294.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872214.jpg" />
+  <img src="Z:/picture/008/save_picture_872214.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871869.jpg" />
+  <img src="Z:/picture/008/save_picture_871869.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96238E85CA5A20EB27526CFFDB01FC2007015BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105972   (871219) от 20.02.2017
-
-Мистер Питкин: Ранняя пташка / The Early Bird (1965) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норман работает на старой,забытой Богом,маслобойне,все оборудование которой медленно,но верно приходит в полную негодность. А вокруг,между тем,кипит жизнь-технический прогресс уверенно наступает со всех сторон. И тогда Норман решает во что бы это не стало отстоять свою древнюю маслобойню.Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом, Эдвард Чэпман, Джерри Десмонд, Пэдди О’Нил, Брайан Прингл, Ричард ВернонПеревод: Одноголосый закадровыйСубтитры: НетПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE833FA50C73B0828216C0789F29E0054F3F8310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496594   (871073) от 18.09.2021
-
-Мамочка, нянечка, сыночек и доченька / Mumsy, Nanny, Sonny & Girly (1969) BDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подростки брат с сестрой любят приводить к себе в особняк, где ещё живут мама и няня, различных людей и играть с ними в игры. А если новые друзья не следуют правилам, то они отправляются к праотцам. Впрочем, даже если они им следуют, в итоге они всё равно отправляются туда же. Но однажды у их очередного друга появляется интересная идея для новой игры.Производство: Великобритания, Brigitte, Fitzroy Films Ltd., Ronald J. Kahn ProductionsЖанр: Ужасы, комедия, криминалРежиссер: Фредди ФрэнсисАктеры: Майкл Брайант, Урсула Хауэллс, Пэт Хейвуд, Ховард Тревор, Ванесса Ховард, Роберт Сванн, Имоджен Хассалл, Майкл Риппер, Хью АрмстронгПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041B428210C0BDEA2FEE85D9EDDDC4A0E0D21CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100458   (871044) от 20.02.2017
-
-Бекет / Becket (1964) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генрих II окружен завистниками и интриганами. Единственный человек, которому правитель Англии всецело доверяет, — Томас Бекет. Он — слуга и наставник, военный советник и соучастник амурных похождений короля. Чтобы подчинить себе могучего противника — католическую церковь, — Генрих добивается избрания Бекета архиепископом Кентерберийским. Но веселый гуляка, плюющий (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Драма, биография, история, экранизацияРежиссер: Питер ГленвиллАктеры: Ричард Бёртон, Питер О`Тул, Джон Гилгуд, Джино Черви, Паоло Стоппа, Доналд Уолфит, Дэвид Уэстон, Мартита Хант, Памела Браун, Сайн Филлипс ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 02:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59F94560BA95F1897D2759FC99D4D4E045B916C
 ```
 
 https://mybot314.ru/tekegram_catalog/

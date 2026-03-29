@@ -1,3 +1,31 @@
+###  Публикация: 549689   (460023) от 21.09.2012
+
+Серия: Баффи-истребительница вампиров [2004] [RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_460023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оборотни и тролли, дождь из жаб и прочие штучки указывают на атаку темных сил. Что ни говори, а адская армада должна быть найдена и закупорена пробкой — для этого и существует славная команда Баффи. Правда, положение в этот раз осложняется тем, что тысячи комнат имеют дверные проемы для проникновения самых низких сил ада.
+
+Как вы уже поняли это книги по мотивам сериала "Баффи" и здесь продолжаються приключения победительницы вампиров , на страничках этих книг , из них мы узнаем новые истории приключений Баффи , но также есть 3 книги полностью по сериалу . Это Хроники Ангела ( серии о первом Хэллоэне , первое появления Спайка, первое появление Кэндры) , Ксандр в поисках любви ( учительница - насекомое , принцесса - мумия , магия где все влюбились в Ксандра) , и так же Жатва ( первые серии "Баффи" 1 сезона). Все книги можна читать в любом порядке , есть только единнственное исключение это Прочь из сумашедшего дома , Дороги призраков , Сыновья Энтропии - это трилогия одной истории , и ее нужно (   Читать дальше...   )Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706EF043E67A8811D12132DAA6733D496459391B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549968   (460022) от 21.09.2012
 
 Егор Чекрыгин | Хроники Дебила. Свиток 1. Волшебный Меч [2012] [FB2][TXT][JAVA (jar+jad)]
@@ -6,7 +34,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460022.jpg" />
+  <img src="Z:/picture/008/save_picture_460022.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460021.jpg" />
+  <img src="Z:/picture/008/save_picture_460021.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460013.jpg" />
+  <img src="Z:/picture/008/save_picture_460013.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459852.jpg" />
+  <img src="Z:/picture/008/save_picture_459852.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459650.jpg" />
+  <img src="Z:/picture/008/save_picture_459650.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459300.jpg" />
+  <img src="Z:/picture/008/save_picture_459300.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458522.jpg" />
+  <img src="Z:/picture/008/save_picture_458522.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458504.jpg" />
+  <img src="Z:/picture/008/save_picture_458504.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458499.jpg" />
+  <img src="Z:/picture/008/save_picture_458499.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458498.jpg" />
+  <img src="Z:/picture/008/save_picture_458498.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458371.jpg" />
+  <img src="Z:/picture/008/save_picture_458371.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458356.jpg" />
+  <img src="Z:/picture/008/save_picture_458356.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458353.jpg" />
+  <img src="Z:/picture/008/save_picture_458353.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458234.jpg" />
+  <img src="Z:/picture/008/save_picture_458234.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458082.jpg" />
+  <img src="Z:/picture/008/save_picture_458082.jpg" />
 </div>
 
 
@@ -402,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457980.jpg" />
+  <img src="Z:/picture/008/save_picture_457980.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457979.jpg" />
+  <img src="Z:/picture/008/save_picture_457979.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457977.jpg" />
+  <img src="Z:/picture/008/save_picture_457977.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457971.jpg" />
+  <img src="Z:/picture/008/save_picture_457971.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457963.jpg" />
+  <img src="Z:/picture/008/save_picture_457963.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457890.jpg" />
+  <img src="Z:/picture/008/save_picture_457890.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457602.jpg" />
+  <img src="Z:/picture/008/save_picture_457602.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457566.jpg" />
+  <img src="Z:/picture/008/save_picture_457566.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457558.jpg" />
+  <img src="Z:/picture/008/save_picture_457558.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ Nicky Holender | STRONGER (2014) HDTVRip [H.264/720p-LQ] [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457403.jpg" />
+  <img src="Z:/picture/008/save_picture_457403.jpg" />
 </div>
 
 
@@ -651,32 +679,6 @@ STRONGER является 8 недельной премиум фитнес-пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6C15CB1E1FFAC905A98FD763C220A8749B33A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550376   (457154) от 22.09.2012
-
-Александр Никонов | За фасадом империи. Краткий курс отечественной мифологии [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему русские не улыбаются? Ответ на этот вопрос Александр Никонов находит в отечественной истории, которая в нашей стране "не просто повторяется, а ходит кругами, как слепая кобыла…" Автор старается помочь подавляющему большинству соотечественников, особенно молодежи, избавиться от стойких заблуждений и иллюзий.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C4678E6828DAE3395E7596E30BE196F4AB0134
 ```
 
 https://mybot314.ru/tekegram_catalog/

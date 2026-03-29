@@ -1,3 +1,118 @@
+###  Публикация: 1686487   (126404) от 23.12.2023
+
+Jeremy Bruger Trio - Jubilation (2013) Black & Blue [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jubilation [5:22]
+02. Mr Peter All-Key [3:48]
+03. Alpha [4:38]
+04. Cubano Chant [4:13](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBE56634C96E3E797A70786D2D20E31D779F3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686346   (126394) от 23.12.2023
+
+Bud Shank, Manny Albam, Vic Lewis - Bud Shank Plays (1984, 1985) 1987, Mole Jazz [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's That Rainy Day [11:33]
+02. Body and Soul [5:50]
+03. Concerto for Jazz Alto Saxophone and Orchestra [20:30]Жанр: Cool, Hard BopПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50D1388EF0C7C6D69B8DE5FC80DA297AE3C5E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686829   (126212) от 24.12.2023
+
+Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milano [6:09]
+02. Well, You Needn't [6:21]
+03. K.C. Blues [9:14]
+04. A Night in Tunisia [8:00](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A839AF655398EC7DAD370C1825C9D9F1A2C9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686831   (126179) от 24.12.2023
+
+Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nora's Theme [6:38]
+02. Morning Song of a Spring Flower [7:05]
+03. All Blues [7:48]
+04. Falling in Love [5:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12811F8B1191DAEEE9C029BBC9881F1373343864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686787   (126178) от 24.12.2023
 
 Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -6,7 +121,7 @@ Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126178.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126177.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Ramsey Lewis - Ramsey Lewis And His Gentle-Men of Jazz (1957, 1958) 2008, Fresh 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125730.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Felo Sepulveda - Long Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125712.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ John Hicks - Piece For My Peace (1996) Landmark Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125700.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Frank Morgan - Gene Norman Presents Frank Morgan (1955) 1989, Fresh Sound Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125698.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Frank Sinatra & Bing Crosby - Christmas Sing With Frank And Bing (1945 -1971) 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125457.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Ramsey Lewis - Classic Encounter (1988) CBS [FLAC|Lossless|tracks + .cue] <Cross
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125438.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ Boston Brass & The Brass All-Stars Big Band - The Stan Kenton Christmas Carols (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125436.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125428.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ VA - Jazz Hop #2 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125426.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Frank Sinatra - Under The Mistletoe (2001) Direct Source Special Products [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125425.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125424.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ John Hicks - Inc. 1 (1985) 2008, DIW Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125416.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Horace Silver Quintet / Sextet - The Jody Grind (1966) 1991, Blue Note [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125414.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125295.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125294.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125293.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125292.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ Tadd Dameron - Four Classic Albums (1948 - 1962) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125158.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ Nobuo Hara & His Sharps & Flats - Big Band Congress (1970) 2013, Nippon Columbia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125157.jpg" />
 </div>
 
 
@@ -615,7 +730,7 @@ David Benoit - Remembering Christmas (1996) GRP [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125153.jpg" />
 </div>
 
 
@@ -629,122 +744,6 @@ David Benoit - Remembering Christmas (1996) GRP [FLAC|Lossless|tracks + .cue] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B30CD921B08216A873C3BC0E5F205B3D541B3119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688689   (125021) от 30.12.2023
-
-Saxtribution - Magical Christmas Saxophone (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Christmas (3:44)
-02. Have Yourself a Merry Little Christmas (4:00)
-03. Sweet Love (4:08)
-04. Let It Snow! Let It Snow! Let It Snow! (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B081B5ED7FCECA9244137BB3D600E386A59092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688686   (125020) от 30.12.2023
-
-Saxtribution - A Very Special Jazzy Christmas (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driving Home for Christmas (3:52)
-02. Santa Claus Is Coming to Town (3:30)
-03. We Wish You A Merry Christmas (1:45)
-04. As (3:27)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580B1FBD0D18B39C7911165E3588CC440059D98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688553   (125018) от 30.12.2023
-
-VA - Santa Swings... The Windup: 27 Christmas Stockings Full Of Shellac Dust (1929 - 1980) 2023, Bear Family Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Prima Orch. - What Will Santa Claus Say (When He Finds Everybody Swingin') (3:13)
-02. Bob Crosby's Bob Cats - Blow Blow Thou Winter Winds (2:18)
-03. The Ramblers - Let It Snow! Let It Snow! Let It Snow! (2:32)
-04. Louis Armstrong Orch. - I Hope Gabriel Likes My Music (3:19)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6F7A3B0DA1854B2416B71ACEC2D73FEAFC957C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688516   (125000) от 30.12.2023
-
-Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960) 2CD, 2007, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Blues [7:36]
-02. Outburst [4:39]
-03. Left Alone [6:08]
-04. Contour [5:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B085FE1D2161244C2F9E18115CD566D7270D4130
 ```
 
 https://mybot314.ru/tekegram_catalog/

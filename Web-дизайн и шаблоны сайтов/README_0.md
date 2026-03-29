@@ -1,3 +1,56 @@
+###  Публикация: 1363100   (666283) от 17.03.2022
+
+Шаблоны сайта - RocketTheme - Premium Templates 2018-2019 Joomla 3.3-3.9 [PHP, HTML, CSS, JS]
+
+>>След.
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_666283.jpg" />
+</div>
+
+
+###  Подробнее
+
+106 премиум шаблонов от RocketTheme для Joomla 3.3-3.9. В комплекте: шаблон, исходники (не все), сайт на Joomla с шаблоном и отдельно Gantry Framework, на котором созданы шаблоны.
+Шаблоны для ознакомления, хоть это и покупные версии. Отсутствие скрытых ссылок не гарантирую, так же как и  последующее обновление шаблона или компонентов через Joomla. Посмотрели, протестировали, (   Читать дальше...   )Формат: PHP, HTML, CSS, JS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0D5E7CAA1F722345915866B9B47F7D68F20812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518899   (634509) от 07.07.2012
+
+Шаблоны сайта - YouJoomla - 34 Шаблона для Joomla 2.5
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известная и популярная студия YouJoomla опубликовала пакеты обновлений с предустановленным быстрым стартом Joomla 2.5. Всего было подготовлено 34 шаблона.Разработчик: YouJoomla
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17669E752593FB5B8B0804B765F7429E190A31D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520068   (628319) от 10.07.2012
 
 Шаблоны сайта - Расширение JCE Editor для joomla 1,5, 1.6, 1.7, 2.5 + платные плагины
@@ -6,7 +59,7 @@
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628319.jpg" />
+  <img src="Z:/picture/008/save_picture_628319.jpg" />
 </div>
 
 
@@ -36,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622144.jpg" />
+  <img src="Z:/picture/008/save_picture_622144.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622098.jpg" />
+  <img src="Z:/picture/008/save_picture_622098.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561446.jpg" />
+  <img src="Z:/picture/008/save_picture_561446.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559451.jpg" />
+  <img src="Z:/picture/008/save_picture_559451.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542832.jpg" />
+  <img src="Z:/picture/008/save_picture_542832.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498111.jpg" />
+  <img src="Z:/picture/008/save_picture_498111.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388298.jpg" />
+  <img src="Z:/picture/008/save_picture_388298.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ WordPress plugin - Interactive 3D FlipBook (Lite version) [PHP, HTML, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265957.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Ui Kits - UI8 - Enefty - NFT Website UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213477.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Ui Kits - UI8 - FindWork - Job Finder App Ui Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212178.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ Ui Kits - UI8 - Carsova - Electric Cars Website [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212137.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ Ui Kits - UI8 - Convert [PDF]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202414.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ Ui Kits - UI8 - Camero - CRM Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193342.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Ui Kits - UI8 - Beesign - e-Signature Document Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173554.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141074.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ WordPress plugin - Rank Math SEO PRO 3.0.49 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127538.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ WordPress plugin - Advanced Custom Fields PRO 6.2.4 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127533.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ WordPress plugin - Oxygen 4.8 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127530.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ Ui Kits - UI8 - The Folio - Portfolio, Blog, and Personal Website Template [FIG,
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117610.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Ui Kits - UI8 - Eclipse - Vintage Store Web Ecommerce [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104474.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Ui Kits - UI8 - Financial Forecasting Mobile App UI Kit - Thriftly [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101703.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Ui Kits - UI8 -  WeCare - Medical Admin Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91194.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65789.jpg" />
 </div>
 
 
@@ -634,60 +687,6 @@ MainStream - наборы пользовательского интерфейс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C47BCF5FE46743C0E5D812D79D9B7FC0A41CEDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803824   (65779) от 25.06.2025
-
-Шаблон администратора - UI8 - ModoUI - Design System 2.0 [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modo UI — это интерактивная система дизайна, разработанная для оптимизации рабочего процесса занятых дизайнеров. Созданная в Figma, она предлагает полный набор функций для повышения эффективности и гибкости в процессе проектирования.Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0B44A6D0BB6BDED07BEDFB9FA43778AF258992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821326   (52264) от 01.10.2025
-
-Ui Kits - UI8 - Catmy - AI Chatbot Mobile App UI Kits [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот комплексный пакет дизайна включает в себя более 40 тщательно продуманных экранов, охватывающих все: от регистрации пользователя до расширенного взаимодействия в чате. Каждый экран в Catmy разработан с учетом индивидуальных особенностей, что позволяет легко адаптировать дизайн к уникальной идентичности вашего бренда.
-
-Адаптивная система макетов гарантирует единообразный (   Читать дальше...   )Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2698609CCBF6890D5707DCF1395796DE78B45EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

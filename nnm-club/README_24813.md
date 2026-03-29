@@ -1,80 +1,25 @@
-###  Публикация: 1807402   (65147) от 19.07.2025
+###  Публикация: 1798685   (66520) от 26.05.2025
 
-Forth Wanderers - The Longer This Goes On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Know Me/To Love Me [00:02:34]
-02. Call You Back [00:02:06]
-03. Honey [00:03:03]
-04. 7 Months [00:02:32](   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2417D952511AE3A4DF597DD8AC5F7C9C1BA5A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807574   (65146) от 19.07.2025
-
-MotoGP. Этап 12 из 22. Гран-при Чехии. Квалификация (19.07.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65146.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 июля 2025 суббота 11:50 МСК этап 12 автодром Брно. Гран-при Чехии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8A5D60277E2382934F3F6FF25CEE0BD89ED47C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807355   (65145) от 19.07.2025
-
-As the Sea Parts - Psychosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
+Skunk Anansie - The Painful Truth (2025) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Where Paradise Lies
-02. The Search Within
-03. Among the Shadows
-04. Psychosis(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:53:31
+01 - An Artist Is An Artist [3:12]
+02 - This Is Not Your Life [3:25]
+03 - Shame [4:07]
+04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3864F7CBC34948206134B03A826FA336E0143BDD
+magnet:?xt=urn:btih:7F59106210D8E0067AC703E37588D9886AEA2AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807659   (65144) от 20.07.2025
+###  Публикация: 1799224   (66519) от 26.05.2025
 
-Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation | Альтернативная игра богов | Игровое гиперпространство Нептунии [2013, TV, 12 + 1] BDRip 1080p HEVC 10-bit raw+rus
+Газета | Тайны СССР №8 (185) (апрель 2025) [PDF]
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бескрайний мир Игромании поделен на четыре державы, каждой из которых управляет могущественная богиня. До недавнего времени они вели отчаянную борьбу за Шару – долю популярности на игровом рынке, но стараниями хозяйки Планептуна, богини Пурпурное Сердце, был заключен мир. Лидеры воюющих сторон договорились не отбирать Шару друг у друга, а множить ее общими усилиями, (   Читать дальше...   )Производство: David Production / デイヴィッドプロダクションЖанр: приключения, фэнтези, комедия, фантастика, махо-сёдзёРежиссер: Мукай МасахироПеревод: Koushin & Shifroval (эп. 01-08), Shegann (эп. 09-12), Endil & Flusszerfall (спешиал)Язык озвучки: японский, русскийСубтитры: русские (полные, надписи)Продолжительность: 12 эп. по 25 мин. + 1 спешиал на 25 мин.
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C9615B56BB27A6AC0943DD811CB644C8466C70F
+magnet:?xt=urn:btih:5CDD0DC632C8640446F66D670B7620EF53D3992A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,53 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807798   (65143) от 20.07.2025
+###  Публикация: 1798522   (66518) от 26.05.2025
 
-Проекты - VideoHive - Clean Music Visualizer v3.0 - 15331211 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон визуализации музыки для Adobe After Effects.
-
-Плейлист YouTube с примерами на разных разрешениях экрана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E8806CA11E4BB6558484CE52429FCC3F8B4ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807793   (65142) от 20.07.2025
-
-Иконки - Creative Market - Firefighter 3D Icon - 279043062 [PNG, BLEND, OBJ, GLB]
+Книжная иллюстрация - DoodleBox - Creative Fabrica - Abstract Mandala Coloring Pages Vol.3 [AI, EPS, JPG, PDF, PNG, SVG]
 
 >>Графика, Арт, Разное
->>Иконки и аватарки
+>>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем нашу коллекцию из 25 3D-иконок пожарной охраны, тщательно проработанных, чтобы придать вашим проектам динамичность и профессионализм. Независимо от того, разрабатываете ли вы приложения, веб-сайты, презентации или маркетинговые материалы, эти универсальные иконки готовы улучшить ваши визуальные эффекты и стильно передать идею безопасности.Формат: PNG, BLEND, OBJ, GLBРазрешение файлов: 2000x2000
+Набор изображений с мандалами в векторе и растре.Формат: AI, EPS, JPG, PDF, PNG, SVGРазрешение файлов: 4000 x 4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3862BECBABEDAF2B0216DC2A4FFA28304F7B2EC4
+magnet:?xt=urn:btih:F5347743E091ABB3C68EEB7382AF54C859178FB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,298 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807834   (65141) от 20.07.2025
+###  Публикация: 1798510   (66517) от 26.05.2025
 
-Manowar - Gods Of War (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture to the Hymn of the Immortal Warriors (instrumental) (06:19)
-02. The Ascension (02:30)
-03. King of Kings (04:17)
-04. Army of the Dead, Part 1 (01:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D8052A85A1EE0CD20554D12D7AD9629BA287DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807791   (65140) от 20.07.2025
-
-Motorhead - The Manticore Tapes (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японское издание альбома Motörhead The Manticore Tapes, компиляция из первых записей группы. Это издание в формате SHM-CD включает в себя два бонус-трека.
-
-Немного рекламной информации:
-В августе 1976 года легендарный состав Motörhead — Лемми (бас/вокал), Фаст Эдди Кларк (гитара) и Фил «Philthy Animal» Тейлор — собрался в легендарной студии Manticore Эмерсона, (   Читать дальше...   )01. Intro (Instrumental)
-02. Leavin´ Here
-03. Vibrator
-04. Help Keep Us On The Road(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E42BD5C8E76A81EFF502422CFE8C0F4C86F99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807743   (65139) от 20.07.2025
-
-PicWish: AI Photo Editor v2.1.7 Mod by NURIK kz [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте самое простое приложение для редактирования фотографий с искусственным интеллектом! Удалите фон и размытие фотографии, чтобы ваши продукты выделялись! Вот ваши полностью автоматические функции ластик фона, улучшитель фотографий и ластик фотографий и ретушь. Никаких навыков не требуется. Супер простой в использовании.
-PicWish — фоторедактор с искусственным (   Читать дальше...   )Тип издания: ModРелиз состоялся: 19.07.2025Разработчик: WangxuTechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8516344330DB22A15867F212CBC3F3E61B47E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807814   (65138) от 20.07.2025
-
-Firefox Browser ESR 128.12.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC4370518B9A15DA1136D0B6C1287551B78B1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807682   (65137) от 20.07.2025
-
-Андрей Шопперт | Дурень (Книга 5) Буря (2025) [MP3, FAN12]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Германович Кох, он же – князь Александр Сергеевич Болоховский пытается доказать, что и один в поле воин. Главное – знать куда бить и когда бить. Преддверие и начало Крымской войны.Жанр: Попаданцы во времени, Альтернативная история, ФантастикаИздательство: Аудиокнига своими руками (Клуб любителей аудиокниг)Продолжительность: 09:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D0A2D3CF120E22502ABE485F3A33D295B3AF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807813   (65136) от 20.07.2025
-
-Firefox Browser 140.0.4 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0E0A523C1D626F57CBE095BE9A25C8287EE248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807724   (65135) от 20.07.2025
-
-Strava: бег, велоезда, хайкинг v420.11 Mod by PieMods [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любите бегать, кататься на велосипеде или просто проводить время на свежем воздухе? Тогда бесплатное приложение Strava — это то, что вам нужно. Попробуйте, вам понравится! Миллионы бегунов, велогонщиков и просто активных людей используют Strava, чтобы записывать данные своих тренировок, следить за прогрессом, общаться с единомышленниками, а также делиться фотографиями, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.07.2025Разработчик: Strava Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F1A6F5D6BD3123BCD24CF9872DBD08F6530099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807766   (65134) от 20.07.2025
-
-VA - Assorted Compilation Part 12 (2025) [MP3|320 Kbps] <Electronic, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sisco Le Voyageur - Transparence Enigmatic N°2
-02 - Gigi D'agostino,  Korgstyle Life - L'amour Toujours
-03 - Dj Artur - Legatto Dreams
-04 - Korg Style - Snow is Falling(   Читать дальше...   )Жанр: Electronic, Easy listeningПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9E593FC2A57CBA6781E622D3FD7AB39668B266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807703   (65133) от 20.07.2025
-
-AirBrush: ИИ Фоторедактор v7.11.0 Mod by PieMods [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Овладейте искусством селфи с AirBrush — мощным редактором фото и видео! Благодаря простым в использовании функциям вы можете обрабатывать свои селфи и фото с помощью инструментов, созданных, чтобы усиливать естественную красоту, сохраняя при этом природное очарование.Тип издания: Premium / ModРелиз состоялся: 20.07.2025Разработчик: PPIXOCIAL LABS PTE. LTD.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CED62CB821E7C1993FDD5FFDC386B7A93B85A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807725   (65132) от 20.07.2025
-
-Иконки - Creative Market - Communication 3D Icons - 291040867 [PNG, BLEND, OBJ, GLB]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выведите свои проекты на новый уровень с помощью 16 коммуникационных 3D-иконок — профессионально созданных и готовых к использованию в любых целях. Будь то презентации, приложения, веб-сайты или маркетинговые материалы, эти иконки придадут вашим проектам современный и профессиональный вид.Формат: PNG, BLEND, OBJ, GLBРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B98678A39593A17DBD6A15EB4D69C7AFE37B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807772   (65131) от 20.07.2025
-
-Пресеты - Creative Market - VINTAGE LIGHTROOM PRESETS - 281680 [LRTEMPLATE]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Camera Retro Sublimation [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Богатая коллекция из 27 пресетов Lightroom для придания вашим RAW-файлам разнообразного винтажного эффекта. Они отлично подойдут для портретной съёмки в винтажном стиле, художественной свадебной фотографии и многих других видов съёмки.Формат: LRTEMPLATE
+Клипарт с фотоаппаратами для сублимации.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47B13B9C88DDD2156D1A614F606D8ED7A7DCF86E
+magnet:?xt=urn:btih:4A01EC5F2BBC360DD2DEC94DD517B3B7C0E47B91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,25 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807747   (65130) от 20.07.2025
+###  Публикация: 1799196   (66516) от 26.05.2025
 
-Три кота и море приключений (2022) WEB-DL [H.264/1080p]
+VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коржик, Карамелька, Компот и их родители отправляются отдыхать на морской курорт и селятся в отель «Морская звезда». Коржик, Карамелька и Компот надеялись и мечтали познакомиться с новыми друзьями, но все дети на три дня уехали на экскурсию, и трём котам не с кем поговорить и поиграть. Помирая от скуки на пляже Коржик, Карамелька и Компот встречают белого краба с (   Читать дальше...   )Производство: Россия / Студия МетрафильмсЖанр: мультфильм, детский, комедия, семейныйРежиссер: Дмитрий ВысоцкийАктеры: Максим Тимонин, Софико Гогитидзе, Владимир Прудников, Михаил Хрусталёв, Светлана Кузнецова, Максим СергеевСубтитры: отсутствуютПродолжительность: 01:04:33
+01. Steen Thottrup & Kaia Mainz - Dreamers (daZZla Deep Remix) (06:14)
+02. Living Room - Fisheye (Pearldiver Deep Edit) (03:29)
+03. Calmabohain - Never Forget (03:25)
+04. Mia Lemar - Squire Of Desire (HerbLF Close To Dub Mix) (06:34)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:13:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76AFD143CA7F38F2A139CB66494F6628EEFF244E
+magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,28 +134,385 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807721   (65129) от 20.07.2025
+###  Публикация: 1799220   (66515) от 26.05.2025
 
-Calling All Astronauts - Noise Against Tyranny (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Punk>
+Газета | Тайны СССР №15 (166) (июль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF6FE8DCF29715833C954CA094E374A98098A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799172   (66514) от 26.05.2025
+
+Карен Хорни | Невротическая личность нашего времени (2005) [MP3, Игорь Писарев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66514.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей работе «Невротическая личность нашего времени» (1937), ознаменовавшей отход от классической фрейдовской теории, Карен Хорни сосредотачивается не на прошлых, а на существующих в данный момент конфликтах личности и включает в сферу своего внимания социальные и культурные факторы развития неврозов.Жанр: ПсихологияИздательство: АРДИСПродолжительность: 09:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65B252703D9374F7229BB206F67826931066E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798733   (66513) от 26.05.2025
+
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-9 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600 - 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C69CFCD74CE03D86474AFCB7DB9A61A0AFD1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798525   (66512) от 26.05.2025
+
+Растровый клипарт - DoodleBox - Creative Fabrica - Abstract Mandala Adult Coloring Pages 2 [AI, EPS, JPG, PDF, PNG, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор изображений с мандалами в векторе и растре.Формат: мРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F9AF698DBEF2C400CA9651BDCC7C66257000AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798633   (66511) от 26.05.2025
+
+Растровый клипарт - FabriCraft - Creative Fabrica - Monstera Plant Digital Paper Patterns [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орнаменты с изображениями монстеры.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF96F6D1030528A747A1FBD810C95111A259F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798626   (66510) от 26.05.2025
+
+Растровый клипарт - Creative Fabrica - FabriCraft - Medical Seamless Patterns [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные бесшовные орнаменты на медицинскую тему.
+Подойдет для медицинской формы в детских мед. учреждениях.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEABC40B778ED1B3E2782E39C5E6D5C31484E98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798736   (66509) от 26.05.2025
+
+Фоны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-11 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD18EE1F8209D9545165517B28537899993AB9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798711   (66508) от 26.05.2025
+
+Mudslider - Eerie Visions (2025) [MP3|320 Kbps] <Progressive Thrash, Heavy, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chewing Dead
+02. Doppelgänger
+03. Globster
+04. Hanako-san(   Читать дальше...   )Жанр: Progressive Thrash, Heavy, Death MetalПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397E6850FE3C451CDB425B07A4398DC6F07486FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798789   (66507) от 26.05.2025
+
+Deathfucker - God Devourer (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Calling
+02. Macabre Hallucinations
+03. Christ Crusher
+04. Pentagram Invoker(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709707EE1096C0C755E0B4D9D4E9D6CF68D93920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798720   (66506) от 26.05.2025
+
+Antropomorphia - Devoid of Light (2025) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Withering Stench of Hope
+02. Devoid of Light
+03. Funeral Throne
+04. In Writhing Rapture(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62DC7BA6975009605172AE9A46B67AD094238AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798781   (66505) от 26.05.2025
+
+Necrochakal - Golgothian Orgies of Bestial Lust (2025) [MP3|320 Kbps] <Black, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demonic Invasion to Gethsemane
+02. Satanas Rebirth
+03. Thorns Upon the Head of the Carrion
+04. Scapegoat Crucifixion(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE07F0F127F48EBA01B36881836BDF6752987D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799272   (66504) от 26.05.2025
+
+The Ossuary - Requiem for the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrifice (04:29)
+ 02. Altar in Black (05:17)
+ 03. Far from the Tree (04:57)
+ 04. Wishing Well (05:04)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E8E5532EBE5AD59EFDA38E2FD3B4A44DB93C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799191   (66503) от 26.05.2025
+
+Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
+1995 - Twinaleblood
+1997 - Unpop
+1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798669   (66502) от 26.05.2025
+
+These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pray For Your Soul [00:03:56]
-02. Will Somebody Help Me [00:03:58]
-03. War On Truth [00:03:44]
-04. More Than You Need [00:04:03](   Читать дальше...   )Жанр: Alternative Rock, Post-PunkПродолжительность: 00:40:48
+01. Waiting (3:08)
+ 02. Bells (7:05)
+ 03. A Season In Hell (5:04)
+ 04. Industrial Love Song (feat. Caroline Polachek) (3:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:47:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E60079FEF8C201777FE820EAE3544EA513A71145
+magnet:?xt=urn:btih:257461213746BFCFE249DB5E3D84B06813136A45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,25 +520,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807750   (65128) от 20.07.2025
+###  Публикация: 1798513   (66501) от 26.05.2025
 
-Звуковые библиотеки - Splice - Big Room Sound-Archaeology Tools [WAV]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Cherry Blossom Easter Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет звуков, охватывающий основы полевой археологии. Включает в себя звуки: копание, соскребание, ковыряние и чистку различными полевыми инструментами.Формат: WAV
+Пасхальный клипарт с цветущей вишней.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:277F97B6EB92399C5A252B3B622F38D32AA519DC
+magnet:?xt=urn:btih:0055D695F1174158BCA8C831F460788A2718501B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,82 +546,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807773   (65127) от 20.07.2025
+###  Публикация: 1798717   (66500) от 26.05.2025
 
-Дангал / Борьба / Dangal (2016) BDRip [H.264]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65127.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета история бывшего борца Махавира Сингха Пхогата, воспитавшего Гиту Пхогат и Бабиту Кумари, ставших прославленными индийскими женщинами-борцами... Когда-то Махавир Сингх Пхогат был чемпионом Индии по борьбе. По причине бедности он был вынужден бросить спорт, но поклялся воспитать сына, который станет в будущем олимпийским чемпионом. Но вот досада — у (   Читать дальше...   )Производство: Индия / Aamir Khan Productions Ltd., Walt Disney PicturesЖанр: драма, спорт, биографияРежиссер: Нитеш ТивариАктеры: Аамир Кхан, Сакши Танвар, Фатима Сана Шейкх, Санья Мальхотра, Апаршакти Кхурана, Заира Васим, Сухани Бхатнагар, Ритвик Сахоре, Гириш Кулкарни, Анураг Арора, Махеш Балрадж, Виван Бхатена, Анмол Чаран, Бадрул Ислам, ДжагбирПеревод: дублированный (Кинопоиск HD), профессиональный многоголосый (FocusStudio; Honey&Haseena)Язык озвучки: русский, хиндиСубтитры: русские (на песни и полные), английскиеПродолжительность: 02:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A410126AB5226A605EAE6DE1F55AEB7A27140BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807712   (65126) от 20.07.2025
-
-The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walk This Road (feat. Mavis Staples) (3:37)
-02.  Angels & Mercy (3:49)
-03.  Call Me (3:38)
-04.  Learn to Let Go (4:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8A1FE88728E8ABB9DF43E0D5B8E016E01963DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807807   (65125) от 20.07.2025
-
-Шрифты - MyFonts - SkyWing [TTF, OTF]
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-4 [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Современный округлый шрифт, вдохновлённый японскими консольными компьютерными играми.
-
-Кириллица не поддерживаетсяФормат: TTF, OTF
+Клипарт с изображением мандалы.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A459FD397BCF240C4345A270D3A126131A97D276
+magnet:?xt=urn:btih:7F5441D06F50BBAB17D879534A696A8B22456B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +572,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807661   (65124) от 20.07.2025
+###  Публикация: 1798511   (66499) от 26.05.2025
 
-Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation | Альтернативная игра богов | Игровое гиперпространство Нептунии [2019, OVA, 3 из 3] BDRip 1080p HEVC 10-bit raw
+Растровый клипарт - inpixell.studio - Creative Fabrica - Vintage Teacup Stacks Clipart [PNG]
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четыре богини вместе со своими сёстрами встречаются на знаменитом горном курорте в королевстве Ластейшн. Но в самый разгар отдыха младших сестёр уносит в портал, который ведёт в параллельную вселенную.Производство: Okuruto Noboru / オクルトノボルЖанр: приключения, фэнтези, комедия, фантастика, махо-сёдзёРежиссер: Мукай МасахироПеревод: RinaIchigo & SpiderDanger (эп. 01-03), warqsize (эп. 01), Serious Livsi (эп. 02, 03)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 3 эп. по 30 мин.
+Винтажный клипарт с чайными чашками.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D149FB2155ABCBF5281E2FB79EBEF10ABC23E2A
+magnet:?xt=urn:btih:EBFF14DB6744E0C3F34291EF62586DD9E76CEC28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,27 +598,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807777   (65123) от 20.07.2025
+###  Публикация: 1798651   (66498) от 26.05.2025
 
-Лилия Глазова | Зачем пиарщику линейка? Советы по измерению коммуникаций (2021) [MP3, Александра Максимова]
+Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental, Post Rock>
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Всего 20 лет назад работу пиарщика можно было измерить линейкой. Клиппинги — собранные вместе публикации о компании — были бумажными, и толщину таких сборников некоторые руководители напрямую связывали с продуктивностью PR-отдела. Сейчас работа с данными стала важной частью PR-активности: линейка превратилась в схемы, графики и гугл-таблицы.
-
-Хотя работы с общественностью (   Читать дальше...   )Жанр: PR-технологии, бизнес-коммуникации, управление маркетингомИздательство: Альпина ДиджиталПродолжительность: 04:07:14
+01. Mystical Plosives (0:56)
+ 02. Aerial Troubles (3:21)
+ 03. Melodie Is A Wound (7:37)
+ 04. Immortal Hands (6:25)(   Читать дальше...   )Жанр: Indie Rock, Experimental, Post RockПродолжительность: 00:59:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:700DABDC633EC6765384F8E307532465890F2459
+magnet:?xt=urn:btih:76EDC78F3C6257EA404819A76A4A8D55D3B3F81B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +627,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807731   (65122) от 20.07.2025
+###  Публикация: 1798721   (66497) от 26.05.2025
 
-Macan - Bratland (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-6 [JPEG]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Macan, Alblak 52 - Flagman [00:03:05]
-02. Macan, Баста - Пусть Бог Будет Рядом С Твоими Планами [00:03:16]
-03. Macan, Гуф - Бордовая 99 [00:03:26]
-04. Macan, Брутто - Золотые Купола [00:02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:11
+Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC57B6C65C6278922FC27A1B888100F8382128A3
+magnet:?xt=urn:btih:E3737DFC34A37BADDE7BE107ECE3337EAB8CC792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798499   (66496) от 26.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Princess Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображениями принцесс.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B27B6A6B779AEBBBD16D9F2BCBA4543AC1ED2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798712   (66495) от 26.05.2025
+
+Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-3 [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E7ADC601249886A648931156CE99F6D8D6E0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

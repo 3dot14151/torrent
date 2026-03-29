@@ -1,3 +1,29 @@
+###  Публикация: 1843640   (1049280) от 21.12.2025
+
+River City Girls (2019) [Ru/Multi] (1.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049280.jpg" />
+</div>
+
+
+###  Подробнее
+
+На улицах Ривер-сити опять назревают проблемы, но на этот раз мальчики влипли по уши! В новой серии легендарного beat-'em-up горячие герои Кунио и Рики попадают в плен, предоставляя своим жестоким подругам, Киоко и Мисако, вершить возмездие. По мере того, как вы проталкиваете и пробиваете путь через город - в одиночку или с другом в режиме кооперации - вы приобретаете (   Читать дальше...   )Тип издания: LicenseРазработчик: WayForwardЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016EB4A7FC60F4ED2C2D292ADC1859730B23A198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843226   (1049102) от 19.12.2025
 
 Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack FitGirl
@@ -6,7 +32,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049102.jpg" />
+  <img src="Z:/picture/008/save_picture_1049102.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048569.jpg" />
+  <img src="Z:/picture/008/save_picture_1048569.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Biped 2 (2025) [Ru/Multi] (1.0.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048485.jpg" />
+  <img src="Z:/picture/008/save_picture_1048485.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ My Little Puppy (2025) [Ru/Multi] (1.0.2517.124175) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047669.jpg" />
+  <img src="Z:/picture/008/save_picture_1047669.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Egging On (2025) [Ru/Multi] (0.1.8654) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047666.jpg" />
+  <img src="Z:/picture/008/save_picture_1047666.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ GigaBash (2024) [Ru/Multi] (1.7.2/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047558.jpg" />
+  <img src="Z:/picture/008/save_picture_1047558.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Outshine (2022) [Ru/Multi] (0.24.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047232.jpg" />
+  <img src="Z:/picture/005/save_picture_1047232.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Sapo 3D (2025) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046858.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Portal (2007) [Ru/Multi] (18647097) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046644.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Exit the Gungeon (2020) [Ru/Multi] (2.1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046300.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046296.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ The Spirit and the Mouse (2022) [Multi] (1.2c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044786.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ WHALIEN - Unexpected Guests (2023) [Ru/Multi] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043493.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Punch A Bunch (2023) [En] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043400.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Pumpkin Jack (2020) [Ru/Multi] (1.4.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041819.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Yooka-Laylee and the Impossible Lair (2019) [Multi] (28130/dlc) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041226.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Temple Of Snek (2023) [Ru/Multi] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039729.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Power of Ten (2023) [Multi] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038704.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Beatbuddy: Tale of the Guardians (2013) [Multi] (1.2.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038030.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Arcade Paradise (2022) [Ru/Multi] (1016/dlc) License GOG [Digital Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037699.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ RUINER (2017) [Ru/Multi] (1.6c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037427.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035605.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033583.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ GRIME (2021) [Ru/Multi] (1.11.11/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033576.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.0.1) Repack xatab [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033129.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Redout: Space Assault (2021) [Ru/Multi] (1.0.1) Repack xatab [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A85EC1D954267AD32AD20A81FBA3DBCD1F52EB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324170   (1033099) от 07.02.2021
-
-Jump Force (2019) [Ru/Multi] (2.05/dlc) Repack xatab [Ultimate Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Граница, отделяющая наш мир от иных измерений, размыта как никогда. Темное воинство хлынуло на Землю. Человечеству грозит невероятная опасность, и лишь величайшим героям под силу встать на его защиту.Тип издания: RepackРазработчик: Spike ChunsoftЖанр: Action, FightingЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7E796444DC78B6916F7DF8C48D9CF1C217E945
 ```
 
 https://mybot314.ru/tekegram_catalog/

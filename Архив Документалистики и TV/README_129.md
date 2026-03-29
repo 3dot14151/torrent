@@ -1,3 +1,119 @@
+###  Публикация: 1221196   (693077) от 25.04.2018
+
+NASCAR. Monster Energy Cup Series 2018. TicketGuardian 500 (11.03.2018) HDTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693077.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 марта 2018 года, 0:30 МСК
+Сезон 2018 года серии Кубка НАСКАР (NASCAR Cup Series). 4-й Этап.
+Авондейл (штат Аризона. США). TicketGuardian 500.
+Дистанция: 312 миль (502,115 км). круг - 1 миля (1,6 км)(   Читать дальше...   )Телекомпания: США, Fox SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые)Продолжительность: 02:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CEA1483FD1FE442BD3B497BC3672199A1F96AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028038   (693041) от 21.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа B. 3-й тур. Словакия - Англия (20.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693041.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 июня 2016, понедельник. 22:00 МСК
+Группа B. 3-й тур
+
+Стадион: Жеффруа-Гишар (Сент-Этьен, Франция) , 39 051 зритель (93 % при вместимости 42 000)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Денис Казанский, Роман Трушечкин)Продолжительность: 01:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9100586E5EF526C6EC73FB28ED802AE44E82A322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028033   (692977) от 21.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа B. 3-й тур. Словакия - Англия (20.06.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692977.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 июня 2016, понедельник. 22:00 МСК
+Группа B. 3-й тур.
+
+Стадион: Жеффруа-Гишар (Сент-Этьен, Франция) , 39 051 зритель (93 % при вместимости 42 000)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Роман Трушечкин, Денис Казанский) / ИнтершумПродолжительность: 01:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE74C92F1F4BBBF5FA35CCC1661726433A85CA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027943   (692976) от 21.06.2016
+
+Футбол. Кубок Америки 2016. 1/4 финала. Аргентина - Венесуэла (18.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692976.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 июня 2016, воскресенье. 02:00 МСК
+1/4 финала
+
+Стадион: Жиллетт (Фоксборо, США) , вместимость: 68756(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Дерябкин, Кытманов)Продолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8794023F1151D0D47D5A2C83A8FBC912A15151FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027946   (692974) от 21.06.2016
 
 Футбол. Кубок Америки 2016. 1/4 финала. Мексика - Чили (18.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +122,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692974.jpg" />
+  <img src="Z:/picture/008/save_picture_692974.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692873.jpg" />
+  <img src="Z:/picture/008/save_picture_692873.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692760.jpg" />
+  <img src="Z:/picture/008/save_picture_692760.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692707.jpg" />
+  <img src="Z:/picture/008/save_picture_692707.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692685.jpg" />
+  <img src="Z:/picture/008/save_picture_692685.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692684.jpg" />
+  <img src="Z:/picture/008/save_picture_692684.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692432.jpg" />
+  <img src="Z:/picture/008/save_picture_692432.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ BBC. Horizon: Бог внутри нас / God on the Brain (2003) TVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692380.jpg" />
+  <img src="Z:/picture/008/save_picture_692380.jpg" />
 </div>
 
 
@@ -224,6 +340,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403277   (692355) от 19.08.2020
+
+НХЛ. Кубок Стэнли 2019-2020. Плей-офф. 1/4 финала - Восток. 1-й матч. Филадельфия Флайерз — Монреаль Канадиенс (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок Стэнли 2019-2020. Плей-офф.
+13 августа 2020, четверг. 03:00 МСК
+1/4 финала - Восток. 1-й матч.
+Филадельфия Флайерз — Монреаль Канадиенс(   Читать дальше...   )Телекомпания: Setanta SportsЖанр: Спорт, ХоккейЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC98CB87B994D9F7BE3A987FDC0A55CD5916A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403280   (692347) от 19.08.2020
 
 НХЛ. Кубок Стэнли 2019-2020. Плей-офф. 1/4 финала - Запад. 1-й матч. Сент-Луис Блюз — Ванкувер Кэнакс (2020) WEB-DLRip [H.264/720p-LQ] [hand made 60fps] [EN]
@@ -232,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692347.jpg" />
+  <img src="Z:/picture/008/save_picture_692347.jpg" />
 </div>
 
 
@@ -261,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692195.jpg" />
+  <img src="Z:/picture/008/save_picture_692195.jpg" />
 </div>
 
 
@@ -289,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692085.jpg" />
+  <img src="Z:/picture/008/save_picture_692085.jpg" />
 </div>
 
 
@@ -318,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692072.jpg" />
+  <img src="Z:/picture/008/save_picture_692072.jpg" />
 </div>
 
 
@@ -347,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692061.jpg" />
+  <img src="Z:/picture/008/save_picture_692061.jpg" />
 </div>
 
 
@@ -376,7 +521,7 @@ BBC: Галапагосы / BBC: Galapagos (2006) [1080p] HD-DVDRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_691907.jpg" />
+  <img src="Z:/picture/005/save_picture_691907.jpg" />
 </div>
 
 
@@ -404,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691847.jpg" />
+  <img src="Z:/picture/008/save_picture_691847.jpg" />
 </div>
 
 
@@ -433,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691546.jpg" />
+  <img src="Z:/picture/008/save_picture_691546.jpg" />
 </div>
 
 
@@ -459,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691537.jpg" />
+  <img src="Z:/picture/008/save_picture_691537.jpg" />
 </div>
 
 
@@ -488,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691490.jpg" />
+  <img src="Z:/picture/008/save_picture_691490.jpg" />
 </div>
 
 
@@ -514,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691476.jpg" />
+  <img src="Z:/picture/008/save_picture_691476.jpg" />
 </div>
 
 
@@ -540,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690978.jpg" />
+  <img src="Z:/picture/008/save_picture_690978.jpg" />
 </div>
 
 
@@ -569,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690977.jpg" />
+  <img src="Z:/picture/008/save_picture_690977.jpg" />
 </div>
 
 
@@ -583,151 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7BEA42FACC384B4AF14B68A294A8C2C720FCDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028313   (690976) от 22.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа C. 3-й тур. Северная Ирландия - Германия (21.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690976.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2016, вторник. 19:00 МСК
-Группа C. 3-й тур.
-
-Стадион: Парк де Пренс (Париж, Франция) , 44 125 зрителей (91 % при вместимости 48 713)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Константин Генич, Нобель Арустамян)Продолжительность: 01:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FD2DB306057E656C2FE9231B9539849457B1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028324   (690975) от 22.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа D. 3-й тур. Хорватия - Испания (21.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690975.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2016, вторник. 22:00 МСК
-Группа D. 3-й тур.
-
-Стадион: Матмут-Атлантик (Бордо, Франция) , 37 245 зрителей (87 % при вместимости 43 000)(   Читать дальше...   )Телекомпания: Первый HDЖанр: СпортЯзык озвучки: Русский (Виктор Гусев)Продолжительность: 01:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F613F806E5622CA45166B0332268AB194999CBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028246   (690974) от 22.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа C. 3-й тур. Северная Ирландия - Германия (21.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690974.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2016, вторник. 19:00 МСК
-Группа C. 3-й тур
-
-Стадион: Парк де Пренс (Париж, Франция) , вместимость: 48713(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Константин Генич, Нобель Арустамян) / ИнтершумПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97966048923245482EC383F69BE7748A9E5312AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028329   (690973) от 22.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа D. 3-й тур. Чехия - Турция (21.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690973.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2016, вторник. 22:00 МСК
-Группа D. 3-й тур.
-
-Стадион: Феликс Болар (Ланс, Франция) , 32 836 зрителей (80 % при вместимости 41 233)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Сергей Кривохарченко) / ИнтершумПродолжительность: 01:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1815228AE1AC699E5A4735CC355733B9ACE1ED56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028312   (690972) от 22.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа C. 3-й тур. Украина - Польша (21.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690972.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 июня 2016, вторник. 19:00 МСК
-Группа C. 3-й тур.
-
-Стадион: Велодром (Марсель, Франция) , 58 874 зрителя (87 % при вместимости 67 394)(   Читать дальше...   )Телекомпания: Россия HDЖанр: СпортЯзык озвучки: Русский (Илья Казаков)Продолжительность: 01:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385D7DC26FA3003E40C63B844E935ED024D418FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

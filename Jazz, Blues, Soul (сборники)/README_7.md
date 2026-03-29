@@ -6,7 +6,7 @@ VA - Blues Collection 7 (2017) [MP3|320 Kbps] <Blues Rock. Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808903.jpg" />
+  <img src="Z:/picture/008/save_picture_808903.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Creedence Clearwater Revival - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blu
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808666.jpg" />
+  <img src="Z:/picture/008/save_picture_808666.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Live Sounds Of Blues (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804159.jpg" />
+  <img src="Z:/picture/008/save_picture_804159.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vaya Con Dios - Hits (Presents: Elgujakviso) (2016) [MP3|224 кб/с] <Blues Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803612.jpg" />
+  <img src="Z:/picture/008/save_picture_803612.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - Vocal Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801645.jpg" />
+  <img src="Z:/picture/008/save_picture_801645.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ T-Bone Walker - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801169.jpg" />
+  <img src="Z:/picture/008/save_picture_801169.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Romantic Mood Smooth Compilation (2017) [MP3|320 Kbps] <Smooth Jazz, Easy L
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800213.jpg" />
+  <img src="Z:/picture/008/save_picture_800213.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Blues Night: Coctail For The Soul (2019) [MP3|320 Kbps] <Blues, Rock, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799367.jpg" />
+  <img src="Z:/picture/008/save_picture_799367.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Robert Cray - 30 most slow Blues (2017) [MP3|256-320 Kbps] <Blues, Harmonica Blu
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799180.jpg" />
+  <img src="Z:/picture/008/save_picture_799180.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Baba Blues - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799157.jpg" />
+  <img src="Z:/picture/008/save_picture_799157.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Romantic Smooth Jazz (2017) [MP3|320 Kbps] <Smooth Jazz, Relax, Lyric Instr
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799149.jpg" />
+  <img src="Z:/picture/008/save_picture_799149.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Moon Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798805.jpg" />
+  <img src="Z:/picture/008/save_picture_798805.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Instrumental Nu Jazz (2016) [MP3|320 кб/с] <Instrumental, Nu Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797627.jpg" />
+  <img src="Z:/picture/008/save_picture_797627.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Golden Cadillac (2018) [MP3|320 Kbps] <Blues, Country>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797441.jpg" />
+  <img src="Z:/picture/008/save_picture_797441.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Hoodoo Dark Blues (2021) 2CD [MP3|320 Kbps] <Folk, Blues, Country, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796092.jpg" />
+  <img src="Z:/picture/008/save_picture_796092.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Classical in Jazz Vol.2: New Jazz Version of Classical Masterpieces (2016) 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795503.jpg" />
+  <img src="Z:/picture/008/save_picture_795503.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Blues Classics Playlist Spotify (2020) [MP3|320 Kbps] <Pop, Blues, Other>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795226.jpg" />
+  <img src="Z:/picture/008/save_picture_795226.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Anthology Of Blues (Vol. 01) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794984.jpg" />
+  <img src="Z:/picture/008/save_picture_794984.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Anthology Of Blues (Vol. 02) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793985.jpg" />
+  <img src="Z:/picture/008/save_picture_793985.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - The Blues For Yesterday (Vol.04, 2CD) (2021) [MP3|320 Kbps] <Blues, Rock Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793856.jpg" />
+  <img src="Z:/picture/008/save_picture_793856.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Tadeusz Nalepa - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793181.jpg" />
+  <img src="Z:/picture/008/save_picture_793181.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Jazz Christmas (2019) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791688.jpg" />
+  <img src="Z:/picture/008/save_picture_791688.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Blues After Hours (100% Blues Instrumental) (2020) 2CD [MP3|320 Kbps] <Blue
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791205.jpg" />
+  <img src="Z:/picture/008/save_picture_791205.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Jazz From Monday On (2019) [MP3|320 Kbps] <Jazz, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791088.jpg" />
+  <img src="Z:/picture/008/save_picture_791088.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Blues Collection (Winter) (2018) [MP3|320 Kbps] <Blues. Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790410.jpg" />
+  <img src="Z:/picture/008/save_picture_790410.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Empire Records - Bar (2019) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788549.jpg" />
+  <img src="Z:/picture/008/save_picture_788549.jpg" />
 </div>
 
 

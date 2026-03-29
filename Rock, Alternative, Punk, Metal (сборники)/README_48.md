@@ -1,3 +1,148 @@
+###  Публикация: 1761963   (21668) от 12.04.2025
+
+Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Session (Meteora 2003)
+02. A Light That Never Comes (Recharged 2013)
+03. A6 (Lost Demos 2023)
+04. Across The Line (Minutes To Midnight 2007)(   Читать дальше...   )Жанр: Alternative, Nu metalПродолжительность: 04:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36174A32660F4DEAFF1E30208691C8B8C5492BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777086   (21636) от 12.04.2025
+
+Хроноп - Compilation (1990-2025) [MP3|320 Kbps] <Indie rock, New wave>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аллилуйя (С Оркестром) (Песни Бронзового Века 2007)
+02. Лежу На Луне (Любитель Жидкости 2006)
+03. Люди, В Общем-То, Не Так Плохи (Между Никогда и Всегда 2023)
+04. Лётчик (Любитель Жидкости 2006)(   Читать дальше...   )Жанр: Indie rock, New waveПродолжительность: 04:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B280BC04FC460C3677E42748A85AB6F4B16921C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765345   (21592) от 13.04.2025
+
+Вячеслав Бутусов - Compilation (1985-2025) [MP3|320 Kbps] <Art rock, New wave, Electronic, Post punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бесконечность (Модель Для Сборки 2007)
+02. Настасья (Настасья EP 2000)
+03. 1915 (Аллилуия 2019)
+04. Аделаида (Disco version) (Аделаида EP 2012)(   Читать дальше...   )Жанр: Art rock, New wave, Electronic, Post punkПродолжительность: 05:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE16AEB29EB2F7469C4A9B187805ECD8E00A0E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766155   (21432) от 14.04.2025
+
+blink-182 - Compilation (1995-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skate punk, Pop punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurt (Interlude) (One More Time... Part 2 2024)
+02. Adam's Song (Enema Of The State 1999)
+03. All The Small Things (Enema Of The State 1999)
+04. Anthem (Enema Of The State 1999)(   Читать дальше...   )Жанр: Punk rock, Alternative, Skate punk, Pop punkПродолжительность: 01:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519E19B0610245290A2C6F7C92ACEAF64EB446BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760864   (21386) от 15.04.2025
+
+30 (Thirty) Seconds To Mars - Compilation (2002-2023) [MP3|320 Kbps] <Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle Of One (A Beautiful Lie 2005)
+02. Kings & Queens (This Is War 2009)
+03. Stuck (It’s The End Of The World But It’s A Beautiful Day 2023)
+04. The Kill (Bury Me) (A Beautiful Lie 2005)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 03:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD911FB2FFD85224C6DA20923306257BEA84AB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791645   (21310) от 15.04.2025
 
 Dave Stewart - Compilation (2025) [MP3|320 Kbps] <Rock, Pop rock, Soft Rock>
@@ -6,7 +151,7 @@ Dave Stewart - Compilation (2025) [MP3|320 Kbps] <Rock, Pop rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21310.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Rock Hits Of Today (2025) [MP3|320 Kbps] <Rock, Punk, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20528.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Scorpions - Compilation (1972-2022) [MP3|320 Kbps] <Hard rock, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20445.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Billy Idol - Compilation (1981-2025) [MP3|320 Kbps] <Punk rock, Post punk, New w
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20212.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Krokus - Compilation (1976-2017) [MP3|320 Kbps] <Hard rock, Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19858.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Uriah Heep - Collection (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19384.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19383.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Apathy (2025) [MP3|320 Kbps] <Metal, Hard-Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19124.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Smokie - Compilation (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19080.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Voodoo Circle (Alex Beyrodt's) - Compilation (2008-2024) [MP3|320 Kbps] <Hard ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19028.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Imagine Dragons - Compilation (2009-2024) [MP3|320 Kbps] <Alternative rock, Indi
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18415.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ KISS - Compilation (2025) [MP3|320 Kbps] <Rock, Glam>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18318.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Сказочный  том (2003-2024) [MP3|320 Kbps] <Folk rock, Post punk
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17281.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Balthazar & Warhaus - Compilation (2006-2024) [MP3|320 Kbps] <Indie rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16708.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ SUM★41 - Compilation (2000-2024) [MP3|320 Kbps] <Punk rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15829.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ ZZ Top - Live compilation (2025) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15746.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Ken Hensley - Live Compilation (2025) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15060.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Queen - Epic (2025) [MP3|320 Kbps] <Rock, Progressive Rock, Glam Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14791.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Solo Projects From Deep Purple (1965-2025) [MP3|320 Kbps] <Hard rock, Progr
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14115.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Pink Floyd - p·u·l·s·e (2025) Compilation [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13467.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - Hard Rock Arena (2025) [MP3|320 Kbps] <Hard Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12581.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ VA - Hard Rock Arena (2025) [MP3|320 Kbps] <Hard Rock, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF39E9233EDE90B67FEF4268285DEEF3B613E53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805687   (12160) от 08.07.2025
-
-Ian Gillan - Voice Of Rock - Compilation (1966-2020) [MP3|320 Kbps] <Hard rock, Jazz fusion, Progressive rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12160.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gut Reaction (Naked Thunder | 1990)
-002. Gassed Up (Toolbox | 1991)
-003. When A Blind Man Cries (& Jeff Healey & Tommy Z & Jon Lord) (Gillan's Inn | 2006)
-004. Holy Water (& Tony Iommi) (WhoCares | 2012)(   Читать дальше...   )Жанр: Hard rock, Jazz fusion, Progressive rockПродолжительность: 07:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E20B8624791AA85DADA6B3097B12CF6621B824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806782   (11412) от 15.07.2025
-
-Blackmore's Night - Compilation (1997-2025) [MP3|320 Kbps] <Folk rock, Medieval rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Temple Of The King (& Rainbow) (Dancer & The Moon | 2013)
-02. Wish You Were Here (& Rednex) (Shadow Of The Moon | 1997)
-03. Home Again (Fires At Midnight | 2001)
-04. Moonlight Shadow (& Mike Oldfield) (All Our Yesterdays | 2015)(   Читать дальше...   )Жанр: Folk rock, Medieval rockПродолжительность: 06:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA11AA0131A89F43B3B879796BE5B6DCA07D2D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807948   (10822) от 21.07.2025
-
-VA - Top 100 Legend Rock Hits vol.2 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10822.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Red Hot Chili Peppers - Can't Stop(04:29)
-002 Black Sabbath - Paranoid(02:48)
-003 RYDERS - Whole Lotta Love (Live)(03:51)
-004 The Goo Goo Dolls - Iris(04:50)(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 06:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC07D12F26A0625852502C3BA58A9508EFF9508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808102   (10701) от 22.07.2025
-
-VA - Top 100 Mega Hits Rock 2025 (2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10701.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Rise Against - Savior(04:02)
-002 Sum 41 - Fat Lip(02:58)
-003 Jimmy Eat World - The Middle(02:46)
-004 blink-182 - First Date(02:52)(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45AF66C7609386E3AC7D3BF02F1683B439109C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787665   (10536) от 24.07.2025
-
-Ozzy Osbourne - Compilation (1980-2025) [MP3|320 Kbps] <Heavy metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Train (Blizzard Of Ozz 1980)
-02. Perry Mason (Ozzmosis 1995)
-03. Zombie Stomp (No More Tears 1991)
-04. Secret Loser (The Ultimate Sin 1986)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 10:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8096581BB60C75562CA3288EC679FC41771BB2E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 902179   (661947) от 27.05.2015
+
+ОЛМА Медиа Групп | Универсальный энциклопедический справочник (2010) [FB2, PDF, RTF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661947.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Универсальный энциклопедический справочник» содержит массу интересных и нужных знаний, собранных в одной книге. Доступность и увлекательность изложения, глубина освещения каждой темы, новые интересные факты и сведения – все это делает книгу незаменимой в домашней библиотеке.Жанр: ЭнциклопедияФормат: FB2, PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D293077373170AF2EF80FF1C28848985CC1FB39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902955   (659827) от 29.05.2015
 
 Айдын Ариф оглы Али-заде | Исламский энциклопедический словарь (2007) [PDF]
@@ -6,7 +32,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659827.jpg" />
+  <img src="Z:/picture/008/save_picture_659827.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658672.jpg" />
+  <img src="Z:/picture/008/save_picture_658672.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657661.jpg" />
+  <img src="Z:/picture/008/save_picture_657661.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656194.jpg" />
+  <img src="Z:/picture/008/save_picture_656194.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653501.jpg" />
+  <img src="Z:/picture/008/save_picture_653501.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653199.jpg" />
+  <img src="Z:/picture/008/save_picture_653199.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647146.jpg" />
+  <img src="Z:/picture/008/save_picture_647146.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639442.jpg" />
+  <img src="Z:/picture/008/save_picture_639442.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631697.jpg" />
+  <img src="Z:/picture/008/save_picture_631697.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627812.jpg" />
+  <img src="Z:/picture/008/save_picture_627812.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627496.jpg" />
+  <img src="Z:/picture/008/save_picture_627496.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618720.jpg" />
+  <img src="Z:/picture/008/save_picture_618720.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615942.jpg" />
+  <img src="Z:/picture/008/save_picture_615942.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615782.jpg" />
+  <img src="Z:/picture/008/save_picture_615782.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612175.jpg" />
+  <img src="Z:/picture/008/save_picture_612175.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606999.jpg" />
+  <img src="Z:/picture/008/save_picture_606999.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606923.jpg" />
+  <img src="Z:/picture/008/save_picture_606923.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ Francis DK Ching | A Visional Dictionary of Architecture (1995) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605813.jpg" />
+  <img src="Z:/picture/008/save_picture_605813.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605568.jpg" />
+  <img src="Z:/picture/008/save_picture_605568.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603180.jpg" />
+  <img src="Z:/picture/008/save_picture_603180.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599839.jpg" />
+  <img src="Z:/picture/008/save_picture_599839.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599687.jpg" />
+  <img src="Z:/picture/008/save_picture_599687.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597518.jpg" />
+  <img src="Z:/picture/008/save_picture_597518.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596533.jpg" />
+  <img src="Z:/picture/008/save_picture_596533.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596111.jpg" />
+  <img src="Z:/picture/008/save_picture_596111.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A1F7F0A03707FB42097A19BDD3F6EA3CE41EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300359   (593500) от 05.05.2019
-
-Вадим Чернобров | Энциклопедия уфологии (2007) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое уфология? Что такое НЛО и кто такие пришельцы? Существуют ли они в действительности и, зачем прилетают на Землю и прилетают ли вообще? Эти вопросы и наше время могут задавать и маленькие дети, и взрослые, но ответы на них не знают даже люди, посвятившие изучению этой теме всю жизнь. Уфологии как науке более 60 лет, но вряд ли ее основные тайны стали менее (   Читать дальше...   )Жанр: Энциклопедия, Научно-популярная литература, УфологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6F6D06908AA7C980F88924F76F2C36A66A136E
 ```
 
 https://mybot314.ru/tekegram_catalog/

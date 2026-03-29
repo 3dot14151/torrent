@@ -1,3 +1,29 @@
+###  Публикация: 1147639   (604316) от 05.07.2017
+
+Великий Звэн / De Grote Zwaen (2015) WEB-DLRip [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие картины переносит нас в столицу Нидерландов, Амстердам. На дворе конец 90-х. главный герой - Жерар Заэн, он писатель, у которого настали не лучшие времена. Он находится в стадии развода, муза от него улетела, его последний роман не получил признания, и ему нужны деньги. Жизнь Жерара приняла неожиданный поворот, когда он наткнулся на неожиданные и ужасающие (   Читать дальше...   )Производство: НидерландыЖанр: Драма, ТриллерРежиссер: Макс ПорчелийнАктеры: Питер ван де Уитти, Тон Кас, Мишель Ромейн, Анник Фифер, Рубен ван Дер Меер, Рене ван’т Хоф, Стеф Кёйперс, Ник ВорсселманПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:52:45Реклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF61FD163E075988C023A62B6810A09946D98667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148325   (604212) от 05.07.2017
 
 Любовь по договору / Hap joek nam nui (2017) BDRip [H.264/720p-LQ] [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604212.jpg" />
+  <img src="Z:/picture/008/save_picture_604212.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604200.jpg" />
+  <img src="Z:/picture/008/save_picture_604200.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604164.jpg" />
+  <img src="Z:/picture/008/save_picture_604164.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603852.jpg" />
+  <img src="Z:/picture/008/save_picture_603852.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603809.jpg" />
+  <img src="Z:/picture/008/save_picture_603809.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603788.jpg" />
+  <img src="Z:/picture/008/save_picture_603788.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603456.jpg" />
+  <img src="Z:/picture/008/save_picture_603456.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603414.jpg" />
+  <img src="Z:/picture/008/save_picture_603414.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603331.jpg" />
+  <img src="Z:/picture/008/save_picture_603331.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603284.jpg" />
+  <img src="Z:/picture/008/save_picture_603284.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603264.jpg" />
+  <img src="Z:/picture/008/save_picture_603264.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603260.jpg" />
+  <img src="Z:/picture/008/save_picture_603260.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602840.jpg" />
+  <img src="Z:/picture/008/save_picture_602840.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602802.jpg" />
+  <img src="Z:/picture/008/save_picture_602802.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602318.jpg" />
+  <img src="Z:/picture/008/save_picture_602318.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601544.jpg" />
+  <img src="Z:/picture/008/save_picture_601544.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600826.jpg" />
+  <img src="Z:/picture/008/save_picture_600826.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599982.jpg" />
+  <img src="Z:/picture/008/save_picture_599982.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599547.jpg" />
+  <img src="Z:/picture/008/save_picture_599547.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594629.jpg" />
+  <img src="Z:/picture/008/save_picture_594629.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594030.jpg" />
+  <img src="Z:/picture/008/save_picture_594030.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593928.jpg" />
+  <img src="Z:/picture/008/save_picture_593928.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593854.jpg" />
+  <img src="Z:/picture/008/save_picture_593854.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593669.jpg" />
+  <img src="Z:/picture/008/save_picture_593669.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593646.jpg" />
+  <img src="Z:/picture/008/save_picture_593646.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4307E638EB532885E0BA76EC863B3F791AFC3F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233063   (593594) от 28.06.2018
-
-Дарк / Darc (2018) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы разнести международную сеть работорговцев, Интерполу нужен новый герой. Шеф одного из отделов Интерпола вербует брутального разбойника, дабы проникнуть в самое сердце Якудзы и уничтожить ее.Производство: США / Hollywood Media Bridge, Julius R. Nasso ProductionsЖанр: ТриллерРежиссер: Джулиус Р. НассоАктеры: Тони Шина, Арманд Ассанте, Киппэй Сина, Тэцу Ватанабэ, Виенна Хехир, Сё Икусима, Доун Оливери, Кеван Охтци, Каси Райн МазакПеревод: Многоголосый закадровый, любительский (GreenРай Studio)Субтитры: ОтсутствуютПродолжительность: 01:36:49Реклама: Присутствуют вставки аудио и текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52B7B801264027271FA086E66AAA5CB4487F590
 ```
 
 https://mybot314.ru/tekegram_catalog/

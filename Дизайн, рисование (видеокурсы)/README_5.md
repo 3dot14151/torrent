@@ -1,3 +1,29 @@
+###  Публикация: 1443751   (1035035) от 30.01.2021
+
+Knower School, Дмитрий Смирнов | Курс по созданию моделей мягкой мебели (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс расскажет полный цикл создания моделей мягкой мебели, от моделирования до материалов тканей и визуализации. Вы поймете, как создавать форму геометрией под сглаживание в 3ds Max, симуляцией в Marvelous Designer и скульптингом в Mudbox. Мы последовательно разберемся, как работают материалы тканей в Corona Render. И настроим ткань разных свойств и фактуры от ровного (   Читать дальше...   )Производство: Knower SchoolЖанр: 3D ГрафикаПродолжительность: 10:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B5EDE1FDD3C6B8C2E223036C54D6B5908AA5DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617798   (1034720) от 08.03.2023
 
 Smirnov School, Марина Пахомова | Рисование в Procreate (2023) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ Smirnov School, Марина Пахомова | Рисование в Procreate 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034720.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034551.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034324.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034147.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034103.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ Emiel Sleegers | 3D game asset creation: Fire hydrant (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033967.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ Eric Keller | Maya Viewport 2.0 and Shader FX (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033958.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Stanislav Poritskiy | Modeling a Detailed Ship in Maya (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033950.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Wes McDermott | Substance Painter 2019 Essential Training (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033941.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Andy Beane | Maya: Advanced Modeling (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033914.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ James Schauf | Vehicle Modeling for Production (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033911.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033875.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ James Schauf | Vehicle Texturing in Substance Painter: From Clean to Mean (2018)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033869.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ FXPHD, Jeronimo Maggi | Taking Houdini Digital Assets to the Next Level (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033820.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Steven Knipping | Applied Houdini Dynamics I (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033729.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033658.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ Steven Knipping | Applied Houdini Dynamics IV (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033537.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ Steven Knipping | Applied Houdini Dynamics II (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033535.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ Steven Knipping | Applied Houdini Dynamics III (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033531.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ Steven Knipping | Applied Houdini Rigids II (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033526.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Steven Knipping | Applied Houdini Dynamics V (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033525.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Steven Knipping | Applied Houdini Rigids III (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033511.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Steven Knipping | Applied Houdini Rigids I (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033510.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Steven Knipping | Applied Houdini Dynamics VI (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033503.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Steven Knipping | Applied Houdini Rigids IV (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033492.jpg" />
 </div>
 
 
@@ -656,33 +682,6 @@ pplied Houdini ("практический Houdini", "Houdini в практиче
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41381CE83811A6BE3CA3BCD67E5160B41F028C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446000   (1033171) от 07.02.2021
-
-Дарья Сорокина | Графический дизайн Баухауса (2020) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выйдя во многом из немецкого Веркбунда, графический дизайн Баухауcа вобрал в себя множество других художественных явлений из разных течений. Его особенность заключается в способности собрать разное и представить так, что появляется особый, характерный визуальный язык, максимально точно отображающий неугомонный дух ревущих двадцатых.
-Этот интенсив является второй, (   Читать дальше...   )Жанр: Графический дизайнПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F9D6DC30CDC43E59100DAA721C593CA97534E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

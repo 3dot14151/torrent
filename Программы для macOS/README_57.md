@@ -1,3 +1,141 @@
+###  Публикация: 1021255   (742069) от 28.05.2016
+
+Disk Map Analyzer 1.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Map Analyzer был разработан пользователями, как и вы, которые пытаются освободить ценное дисковое пространство простым и быстрым способом на сколько это возможно. Мы тщательно проводили бесчисленные часы создания нашего алгоритма отображения диска и оптимизировали наше приложение исключительно для Mac OSX. Disk Map Analyzer визуально интуитивен и понятен.
+
+Мы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 мая 2016Разработчик: Pocket Bits LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15746665228352C3A66DA78AD8E4342C6BABA602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524750   (741890) от 17.01.2022
+
+KeyKey 2.9 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741890.jpg" />
+</div>
+
+
+###  Подробнее
+
+KeyKey — учимся слепому набору.
+Слепая десятипальцевая печать — штука полезная. Даже если вы пишете только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
+Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2019Разработчик: © Sergiy Vynnychenko & Vlad GorohovskyПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5417C6DEB1306B61185E59C0D3207A3177B219BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217646   (741692) от 05.04.2018
+
+Adobe Audition CC 2018 v11.1 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AdobeПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EA7DB7187BC992803C03AA56B7A1900972FE53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217648   (741625) от 05.04.2018
+
+Adobe Muse CC 2018.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse CC - создавайте великолепные веб-сайты без написания кода.
+Если вы уже знакомы с Adobe InDesign, рекомендуем вам познакомиться с Adobe Muse, популярным у графических дизайнеров приложением для создания веб-сайтов. Не тратьте время на написание кода и быстро создавайте уникальные сайты с использованием знакомых инструментов и комбинаций клавиш, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AdobeПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8AEA9ABF42D46BE71060E586F9A7AF05814851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127124   (741115) от 20.04.2017
+
+Browser Care 4.0.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Browser Care  - держим браузеры в чистоте
+Browser Care - является мощным приложением, которое поможет вас сохранять ваш браузер всегда быстрым и стабильным, очищая кеш, список загрузок, историю, куки сессий, данные автозаполнений и многое, многое другое, а кастомные настройки позволят выбрать то, что вам необходимо.
+
+Приложение поддерживает самые популярные браузеры (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: Giovanni Maria CusaroПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C6E3FD1148240BD123DB3E3F0BE345AE3D8668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126916   (741113) от 20.04.2017
 
 Better Rename 10.17 [En]
@@ -6,7 +144,7 @@ Better Rename 10.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741113.jpg" />
+  <img src="Z:/picture/008/save_picture_741113.jpg" />
 </div>
 
 
@@ -33,7 +171,7 @@ iFFmpeg v6.3.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740708.jpg" />
+  <img src="Z:/picture/008/save_picture_740708.jpg" />
 </div>
 
 
@@ -59,7 +197,7 @@ DjVu Reader FS 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740507.jpg" />
+  <img src="Z:/picture/008/save_picture_740507.jpg" />
 </div>
 
 
@@ -88,7 +226,7 @@ Ableton Live Suite 9.7.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740493.jpg" />
+  <img src="Z:/picture/008/save_picture_740493.jpg" />
 </div>
 
 
@@ -116,7 +254,7 @@ TableEdit Pro 1.3.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740186.jpg" />
+  <img src="Z:/picture/008/save_picture_740186.jpg" />
 </div>
 
 
@@ -144,7 +282,7 @@ EzeeGD 2.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739902.jpg" />
+  <img src="Z:/picture/008/save_picture_739902.jpg" />
 </div>
 
 
@@ -170,7 +308,7 @@ ShowPass - пароль за звездочками 1.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739777.jpg" />
+  <img src="Z:/picture/008/save_picture_739777.jpg" />
 </div>
 
 
@@ -196,7 +334,7 @@ iSkysoft Data Recovery 4.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739560.jpg" />
+  <img src="Z:/picture/008/save_picture_739560.jpg" />
 </div>
 
 
@@ -222,7 +360,7 @@ Recordia 2.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739138.jpg" />
+  <img src="Z:/picture/008/save_picture_739138.jpg" />
 </div>
 
 
@@ -248,7 +386,7 @@ WinX DVD Ripper for Mac 6.6.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739129.jpg" />
+  <img src="Z:/picture/008/save_picture_739129.jpg" />
 </div>
 
 
@@ -274,7 +412,7 @@ NCH Switch Plus 9.45 [De]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739121.jpg" />
+  <img src="Z:/picture/008/save_picture_739121.jpg" />
 </div>
 
 
@@ -301,7 +439,7 @@ VisualDiffer 1.8.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739107.jpg" />
+  <img src="Z:/picture/008/save_picture_739107.jpg" />
 </div>
 
 
@@ -328,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739080.jpg" />
+  <img src="Z:/picture/008/save_picture_739080.jpg" />
 </div>
 
 
@@ -355,7 +493,7 @@ AnyMP4 Audio Recorder for Mac 1.0.10 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739076.jpg" />
+  <img src="Z:/picture/008/save_picture_739076.jpg" />
 </div>
 
 
@@ -381,7 +519,7 @@ OmniGraffle Pro 7 v7.19.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739069.jpg" />
+  <img src="Z:/picture/008/save_picture_739069.jpg" />
 </div>
 
 
@@ -407,7 +545,7 @@ Screenshot Editor 2.3.3 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738813.jpg" />
+  <img src="Z:/picture/008/save_picture_738813.jpg" />
 </div>
 
 
@@ -433,7 +571,7 @@ PDF to Pages Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738808.jpg" />
+  <img src="Z:/picture/008/save_picture_738808.jpg" />
 </div>
 
 
@@ -459,7 +597,7 @@ PDF to Numbers Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738805.jpg" />
+  <img src="Z:/picture/008/save_picture_738805.jpg" />
 </div>
 
 
@@ -485,7 +623,7 @@ PDF Converter Master 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738804.jpg" />
+  <img src="Z:/picture/008/save_picture_738804.jpg" />
 </div>
 
 
@@ -512,7 +650,7 @@ Compress PDF 2.0.0 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738802.jpg" />
+  <img src="Z:/picture/008/save_picture_738802.jpg" />
 </div>
 
 
@@ -538,7 +676,7 @@ VideoSolo DVD Copy 1.0.18 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738797.jpg" />
+  <img src="Z:/picture/008/save_picture_738797.jpg" />
 </div>
 
 
@@ -549,139 +687,6 @@ VideoSolo DVD Copy — это быстрое и простое в использ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24DA63644F8BE575CC7949D5F784CD22A4F1F951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526073   (738796) от 23.01.2022
-
-VideoSolo Video Cutter 1.0.8 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение VideoSolo Video Cutter - это ваш помощник при работе с видео-файлами
-• Обрежьте ненужные сегменты и оставьте нужные клипы
-• Объединение нескольких клипов в один файл
-• Вращайте и переворачивайте видеофайл, чтобы получить правильный угол(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2021Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3461B8049C3E6BF8B8B95777D7CB11C1635211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526238   (738785) от 23.01.2022
-
-PDF Converter OCR 6.2.1 fix [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738785.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Converter OCR - это эффективный инструмент, который работает для вашего удобства и полностью подходит для получения содержимого из отсканированных PDF или изображений, а также обычных файлов PDF. Он позволяет полностью конвертировать PDF в 15 форматов документов, включая .pages, .key, .pptx, .doc, .docx, .xlsx, .epub, .html, .text, .rtfd, кроме того, одновременно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08517D698638BEEC9179FA8B9C563FB45641670D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526064   (738783) от 23.01.2022
-
-VideoSolo Blu-ray Player 1.1.22 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blu-ray Player без потерь качества для Mac. VideoSolo Blu-ray Player в основном предназначен для воспроизведения Blu-ray на компьютере, например, для воспроизведения Blu-ray на Mac OS. Он также может воспроизводить DVD и обычное видео. С передовой технологией дешифрования Blu-ray, VideoSolo Blu-ray Player обеспечивает кинематографическое впечатление от просмотра (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2021Разработчик: VideoSoloПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEB8204907289AE2F8D2F4DBA69BF91C8A75A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526197   (738782) от 23.01.2022
-
-PDF to EPUB Converter 6.2.1 fix [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертируйте PDF в EPUB с высокой скоростью. Конвертер PDF в EPUB будет сначала анализировать данные PDF, выявлять абзацы и организовывать их в EPUB. Даже если PDF-файл содержит несколько столбцов, приложение также может правильно преобразовать содержимое.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44903B49C1090E7FA1D26060E49E98D8F5F87E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526248   (738780) от 23.01.2022
-
-PDF to Word OCR 6.2.1 fix [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738780.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF to Word для Mac — это мощное и интуитивно понятное приложение, позволяющее преобразовывать PDF в Microsoft Word (docx, doc). Он может конвертировать сложные PDF-файлы с несколькими столбцами, графикой, форматированием, таблицами и идеально сохранять все в Microsoft Word. Редактирование или повторное использование PDF в Word не может быть проще.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06303CE485940F1807973DE2C06FD0B0F46FB17A
 ```
 
 https://mybot314.ru/tekegram_catalog/

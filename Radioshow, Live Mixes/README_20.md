@@ -1,3 +1,61 @@
+###  Публикация: 1195354   (144109) от 28.12.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 528 (Top 30) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signum & James Dymond – Keep On Moving Up (Original Mix)
+02. Robert Nickson – Heliopause (Original Mix)
+03. O.B.M Notion – Uplifted To Another Word (Daniel Kandi Bangin’ Mix)
+04. Ahmed Romel – Vanaheim (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568A25F2084E69E484D942E119F6EC7190AA1851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272773   (141503) от 29.12.2018
+
+VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Filmic
+02. Sasha & Maria - Be As One
+03. FC Kahuna - Hayling (Markus Schulz Remix)
+04. David West - Carrier(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B638F634703BBBD6BC584D28EE1EE91CAE3EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679102   (134963) от 27.11.2023
 
 VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +64,7 @@ VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134963.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134955.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134281.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133139.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133127.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133028.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Fonarev - Эфиры радиошоу/подкаста «Znaki / Digital Emotion
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132447.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Armin van Buuren - A State Of Trance 1150 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129833.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Open to Close Solo Set, Stereo M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128706.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Live @ Tomorrowland Brasil (2023) [MP3|320 Kbps] <Progressive House, Melodi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128428.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Martin Trevy - Live @ Road To Ultra Guatemala (2023-11-04) [MP3|320 Kbps] <Dance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127953.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ MUSICAL FREEDOM - Musical Freedom Radio The Best Of 2023 (2023-12-13) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127948.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Armin van Buuren - A State Of Trance 1151 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127564.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Armin Van Buuren - A State Of Trance 1152 (Top 50 Of 2023) (2023) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126593.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Rencontre Nocturne - Recap 2023 (2023) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126579.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Lane 8 - Winter 2023 Mixtape (2023-12-20) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126453.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Markus Schulz - Global DJ Broadcast Year in Review (2023) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126443.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Cosmic Gate - Best Of 2023 (2023-12-20) [MP3|320 Kbps] <Progressive House, Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126240.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Mike Williams - Live @ Storylines, Hotel Arena, Amsterdam Dance Event (2023-10-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126205.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Frank Walker - Live @ Breakaway Music Festival Michigan, United States (2025-08-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126046.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - ARMADA - Trance Year Mix 2023 (2023-12-25) [MP3|320 Kbps] <Trance, Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125422.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Armin Van Buuren - A State Of Trance 1153 (Yearmix 2023) (2023) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125162.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Tiesto - New Year's Eve Best of 2023 Mix (Countdown to 2024) (2023-12-31) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124695.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Eric Prydz - Live @ Forever Stage Forever Midnight, Los Angeles Convention Cente
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124512.jpg" />
 </div>
 
 
@@ -686,61 +744,6 @@ Eric Prydz - Live @ Forever Stage Forever Midnight, Los Angeles Convention Cente
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CD4E417FA47E7B0AA2ED15A15470FF33A26F0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689842   (124343) от 04.01.2024
-
-Andrew Rayel - Find Your Harmony Radioshow (Yearmix 2023) (2024-01-03) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andrew Rayel - The Source Of Harmony (FYH 350 Anthem)
-02.  Leo Reyes & Mofasa - IOU
-03.  Mofasa - Dreamer
-04.  LÜRUM ft. That Girl - Fall Or Fly(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077C1A6C56120EE5038A8163986954C80A1099B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690022   (124170) от 05.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1154 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. GOODBOYS - Forever (Stay Like This)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A167BB9887651A7F03AF0C5AD4F269EDC0B7D308
 ```
 
 https://mybot314.ru/tekegram_catalog/

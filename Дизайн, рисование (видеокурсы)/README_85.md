@@ -1,3 +1,29 @@
+###  Публикация: 1345626   (154592) от 21.12.2019
+
+Udemy.com | Photoshop CC 2020 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших курсов от Udemy - c одним из 10 лучших инструкторов Adobe в мире. Этот курс научит вас использовать Adobe Photoshop в качестве профессионала. Все содержание курса, включая примеры, методы, упражнения и тесты были тщательно отобраны и проработаны, чтобы предложить наиболее эффективный и приятный способ освоить этот продукт.Производство: Udemy.comЖанр: Photoshop, Обучающее видеоПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 12:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5EEB50EC0C4544879B883F51237AF373871FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676859   (154204) от 15.11.2023
 
 Дмитрий Роза | Море и звёзды - мини-курс (2021) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154204.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154111.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Compositing Academy, Alex Hanneman | Methods of 3D VFX Compositing Nuke Mastercl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153970.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ Compositing Academy, Alex Hanneman | Fundamentals of CG VFX Compositing in Nuke 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153936.jpg" />
 </div>
 
 
@@ -120,7 +146,7 @@ Gumroad, Alex Hanneman | NUKE: Advanced CG Compositing and Look Development NK60
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153855.jpg" />
 </div>
 
 
@@ -149,7 +175,7 @@ Stepik, Александр Бондарев | Revit 2024: Основы созд�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153810.jpg" />
 </div>
 
 
@@ -178,7 +204,7 @@ Stepik, Александр Бондарев | Revit 2024: Создание се�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153736.jpg" />
 </div>
 
 
@@ -207,7 +233,7 @@ Learn Squared, John Sweeney | Cinematic Concept Design (2017) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153698.jpg" />
 </div>
 
 
@@ -233,7 +259,7 @@ Chung Kan | Quick UV Mapping For Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153357.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ Justin Marshall | Topology Tools in TopoGun 2.0 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153286.jpg" />
 </div>
 
 
@@ -285,7 +311,7 @@ Chung Kan | Real-Time Creation For Games Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153218.jpg" />
 </div>
 
 
@@ -313,7 +339,7 @@ Chung Kan | Hard Surface 3D Modeling for Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152789.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ CGMA, Kurt Kupser | Texturing and Shading for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152737.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ Compositing Academy, Alex Hanneman | VFX Color Grading and Re-Lighting in Nuke �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152450.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ SOA Academy | Photorealism with Corona Renderer Online (2021) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152285.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152260.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Learn Squared, Milan Nikolic | Creature Design (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152247.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Kaplan School, Гунефа Матюшенкова | Техники скетчи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152068.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ ProArt School, Майк Вазовский | Game Art иллюстрация (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151982.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Udemy, Joe "tripplejaz" Zavaletta | How to Design Comic Book Characters Course (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151796.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151788.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ HighLights | Веб-дизайн. Продвинутый уровень (2016) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150893.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Liveclasses, Алексей Шадрин | Секреты современног
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150645.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Udemy, Alexander Hanneman | VFX Compositing Elements Photorealistically in Nuke 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150634.jpg" />
 </div>
 
 
@@ -668,7 +694,7 @@ SOA Academy | Postproduction & Matte Painting Online (2021) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150631.jpg" />
 </div>
 
 
@@ -679,35 +705,6 @@ SOA Academy | Postproduction & Matte Painting Online (2021) WEB-DL [AD] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9730B0EBA4E787D5E186F7E47745F2C41414385A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677385   (150617) от 17.11.2023
-
-Светлана Янецкая | Онлайн курс 2 в 1 (2020) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150617.jpg" />
-</div>
-
-
-###  Подробнее
-
-После прохождения курса ты освоишь с нуля новую профессию:
-- Научишься создавать милые коммерческие иллюстрации
-- Узнаешь, как профессионально обрабатывать изображения
-- Разберешься, как правильно устанавливать цены на свои работы(   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 19:37:21Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E24D1573885CEB15886F8362A898754D7D55E7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

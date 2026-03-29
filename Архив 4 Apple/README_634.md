@@ -1,3 +1,114 @@
+###  Публикация: 1085910   (156928) от 22.12.2016
+
+Later - Create Quick Reminders With Presets 1.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Later позволяет планировать напоминания естественным образом, выбирая время, как в этот вечер, завтра утром или на следующей неделе. Чтобы добавить простое напоминание, позже приложение будет идеальным для вас.
+
+Основные преимущества:
+• Напоминания, которые появляются, когда вы вернулись на свой Mac(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Regular SIAПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC70CD2205454F494443641DCF7CCD8810B69D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085820   (156917) от 22.12.2016
+
+Sidify Apple Music Converter 1.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sidify Apple Music Converter -  хорошо продуманный аудио конвертер для iTunes музыки для пользователей Mac.
+Sidify Apple Music Converter может удалить DRM от Apple Music и позволяет сохранить треки в формате AAC или MP3 на локальном компьютере или музыкальных плеерах. Кроме того, вы можете использовать Sidify Apple Music конвертер для преобразования аудиокниги и музыку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Sidify Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFD8EBBFF28E1F8CC5B7EF34CC445AC30562DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968364   (156902) от 23.12.2015
+
+iMazing 1.4.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156902.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 декабря 2015Разработчик: DigiDNAПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212B73FB724FF7A1001D57F84C8167C4973A46E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085912   (156794) от 22.12.2016
+
+Downie 2.6.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 декабря 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81637D4110BAA6FF4FE099E337D27DEAB4EBCD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085706   (156777) от 22.12.2016
 
 Kiwi for Gmail 2.0.4 [En]
@@ -6,7 +117,7 @@ Kiwi for Gmail 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156777.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ Corporate Templates - Business Stationery 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156766.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ Butler 4.1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156726.jpg" />
 </div>
 
 
@@ -88,7 +199,7 @@ Pixelmator Pro 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156719.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ uDesktop NEXT - vast wallpaper collection 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156680.jpg" />
 </div>
 
 
@@ -144,7 +255,7 @@ Skip Tunes 3.2.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156658.jpg" />
 </div>
 
 
@@ -173,7 +284,7 @@ Bigasoft Total Video Converter 5.0.8.5809 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156651.jpg" />
 </div>
 
 
@@ -199,7 +310,7 @@ Color Finale Pro 2 v2.0.48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156649.jpg" />
 </div>
 
 
@@ -225,7 +336,7 @@ Usher 1.1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156645.jpg" />
 </div>
 
 
@@ -253,7 +364,7 @@ Tap Forms Organizer 5 v5.3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156337.jpg" />
 </div>
 
 
@@ -280,7 +391,7 @@ Path Finder 8.3.7
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156336.jpg" />
 </div>
 
 
@@ -306,7 +417,7 @@ DxO PhotoLab 2 2.1.0 build 14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156323.jpg" />
 </div>
 
 
@@ -333,7 +444,7 @@ Resolutionator 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156295.jpg" />
 </div>
 
 
@@ -362,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156270.jpg" />
 </div>
 
 
@@ -390,7 +501,7 @@ GlueMotion 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156234.jpg" />
 </div>
 
 
@@ -417,7 +528,7 @@ Scrollow 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156222.jpg" />
 </div>
 
 
@@ -443,7 +554,7 @@ Geekbench 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156215.jpg" />
 </div>
 
 
@@ -472,7 +583,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156211.jpg" />
 </div>
 
 
@@ -499,7 +610,7 @@ iReal Pro 2021.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156183.jpg" />
 </div>
 
 
@@ -525,7 +636,7 @@ AirFoil+Airfoil Satellite 5.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156165.jpg" />
 </div>
 
 
@@ -551,7 +662,7 @@ Viper FTP 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156150.jpg" />
 </div>
 
 
@@ -578,7 +689,7 @@ Music Tag Editor 5.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156133.jpg" />
 </div>
 
 
@@ -591,112 +702,6 @@ Music Tag Editor - редактор музыкальных тегов помож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5776E392134456BC2B5E5152A243C11958EC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600752   (156132) от 28.12.2022
-
-iCompta 6 v.6.0.60 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156132.jpg" />
-</div>
-
-
-###  Подробнее
-
-iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2006-2022 SAS LyricAppsПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F446187DC4B7740A09E40222B2BD9449FAF413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518318   (156117) от 19.12.2021
-
-ON1 Photo RAW 2022.1 v16.1.0.11629 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156117.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Photo RAW включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2021Разработчик: © ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF0CC80CABB2BDF0DAC00B6DC46A544B4F09EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600632   (156085) от 28.12.2022
-
-EdgeView 3 v.3.9.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156085.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C400BEAB80AC2C6ED11C48183836032E43FDC006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270679   (156002) от 20.12.2018
-
-Live Home 3D Standart 3.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
-
-Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2018Разработчик: Belight Software, Ltd.Поддерживаемая ОС: OS X 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C219DEA4A773D460D30A2F1DBA2D023D50EA8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

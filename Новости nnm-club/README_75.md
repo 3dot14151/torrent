@@ -1,3 +1,107 @@
+###  Публикация: 1085076   (796684) от 19.01.2018
+
+X3: Terran War Pack (2008-2011) [Ru/Multi] (3.4/3.3) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие X3: Albion Prelude происходит в промежуточный период между старой и новой вселенными Х. Равновесие сил пошатнулось, грядут грандиозные перемены. Старая вселенная Х исчезает, в то время как новой еще только предстоит появиться на свет. Война! Вселенная Х проходит через период масштабных потрясений. То, что началось как конфликт интересов землян и рас вселенной (   Читать дальше...   )Тип издания: LicenseРазработчик: EgosoftЖанр: Add-on, Simulator (Space), 3D, Privateer, TraderЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A073DEE6A42EEED88DC99B34E4BA93ED783CC2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508695   (796619) от 09.11.2021
+
+STAR WARS Jedi: Fallen Order (2019) [Ru/Multi] (1.0.10.0/dlc) License DARKSiDERS [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796619.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «Звёздные Войны Джедаи: Павший Орден», боевике с видом от третьего лица от Respawn Entertainment, вас ждут приключения галактического масштаба. Действие этой сюжетной одиночной игры разворачивается после фильма «Эпизод III — Месть ситхов». Вам предстоит очутиться в роли джедая-падавана, которому едва удалось избежать уничтожения, санкционированного Приказом 66. (   Читать дальше...   )Тип издания: LicenseРазработчик: Respawn EntertainmentЖанр: Action (Shooter), Adventure, 3rd PersonЯзык озвучки: Русский, Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFB6A1FBAAEDF6B79EDDC379B07FA19B2BF0F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011489   (796613) от 27.04.2016
+
+Internet Download Manager 6.25 Build 16 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский | Английский | Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BB4998267843144B00D055711494F1DD7759B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011208   (796576) от 27.04.2016
+
+ESET Smart Security 9.0.377.1 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796576.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 Smart Security - новая версия комплексного антивируса NOD32 с облачной технологией ESET Live Grid. Решение "все-в-одном" с многоуровневой защитой. Защитите свой компьютер или ноутбук от потери или кражи с помощью функциональности нового компонента Анти-Вор. Функция Антивор (Anti-Theft) позволяет обнаружить местоположение и вернуть потерянный (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2113CA47A4E84A249B7B5A92B997BF6D04EAEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011435   (796555) от 27.04.2016
 
 Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +110,7 @@ Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License COD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796555.jpg" />
+  <img src="Z:/picture/008/save_picture_796555.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796554.jpg" />
+  <img src="Z:/picture/008/save_picture_796554.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ iOS 14 целиком попала в руки хакеров, джейлбре�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_796493.jpg" />
+  <img src="Z:/picture/005/save_picture_796493.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Mozilla Firefox Quantum 58.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796080.jpg" />
+  <img src="Z:/picture/008/save_picture_796080.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ TecDoc DVD Catalog 1Q.2018 Full [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796002.jpg" />
+  <img src="Z:/picture/008/save_picture_796002.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Windows 10 x86 x64 AIO Release by StartSoft 03-04 2018 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796001.jpg" />
+  <img src="Z:/picture/008/save_picture_796001.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Mirror's Edge (2009) [Ru/En] (1.1.0.0/dlc) Repack R.G. Механики [Reflect
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795994.jpg" />
+  <img src="Z:/picture/008/save_picture_795994.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_795957.jpg" />
+  <img src="Z:/picture/005/save_picture_795957.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Adobe Photoshop 2022 23.0.1.68 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795935.jpg" />
+  <img src="Z:/picture/008/save_picture_795935.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795930.jpg" />
+  <img src="Z:/picture/008/save_picture_795930.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ OCCT 4.4.2 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795819.jpg" />
+  <img src="Z:/picture/008/save_picture_795819.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Maxon Cinema 4D R16 Portable by soyv4 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795814.jpg" />
+  <img src="Z:/picture/008/save_picture_795814.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795812.jpg" />
+  <img src="Z:/picture/008/save_picture_795812.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795808.jpg" />
+  <img src="Z:/picture/008/save_picture_795808.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) St
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795745.jpg" />
+  <img src="Z:/picture/008/save_picture_795745.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) EG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795743.jpg" />
+  <img src="Z:/picture/008/save_picture_795743.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_795366.jpg" />
+  <img src="Z:/picture/005/save_picture_795366.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ HitmanPro 3.8.0 Build 292 RePack by Norton46 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795316.jpg" />
+  <img src="Z:/picture/008/save_picture_795316.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_795291.jpg" />
+  <img src="Z:/picture/005/save_picture_795291.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ Acronis True Image 2016 19.0.6569 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795153.jpg" />
+  <img src="Z:/picture/008/save_picture_795153.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795133.jpg" />
+  <img src="Z:/picture/008/save_picture_795133.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ Google отказалась от обязательного выпуска об�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_794777.jpg" />
+  <img src="Z:/picture/005/save_picture_794777.jpg" />
 </div>
 
 
@@ -568,112 +672,6 @@ Google отказалась от обязательного выпуска об�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274087   (794773) от 05.01.2019
-
-Nvidia DriverPack Hotfix v.417.58 RePack by CUTA [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nvidia DriverPack - это единый пакет с драйверами для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
-Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9ECDEF7E7F75BDF9DE1D177B290E0394F12EE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200889   (794537) от 22.01.2018
-
-Opera 50.0.2762.67 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F605A23C88617D20037AB8779539E14E0FB15A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011695   (794361) от 30.04.2016
-
-Надоедливое обновление Windows сорвало прямой эфир новостей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_794361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновление до Windows 10 испортило прямой эфир
-Как показывает практика, обновления от Microsoft очень часто приходят в самое неподходящее время. Ведущая новостей меньше всего ожидала столкнуться с этой проблемой в прямом эфире.Забавный казус произошёл на одном из американских телеканалов. Ведущая намеревалась рассказать о ненастной погоде в регионе, однако на экране (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012168   (794291) от 30.04.2016
-
-Acronis True Image 2016 19.0 Build 6569 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646F514BE52FB0979A88B9335B50B87828D98957
 ```
 
 https://mybot314.ru/tekegram_catalog/

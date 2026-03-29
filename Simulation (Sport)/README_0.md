@@ -1,3 +1,59 @@
+###  Публикация: 1356330   (968339) от 08.02.2020
+
+AO Tennis 2 (2020) [Ru/En] (1.0.1422) Repack xatab
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968339.jpg" />
+</div>
+
+
+###  Подробнее
+
+AO Tennis 2 — уникальная игра, сделанная любителями тенниса для любителей тенниса. Создавайте собственных игроков, стадионы и проводите легендарные матчи. Участвуйте в соревнованиях и займите первую строчку мирового рейтинга в карьерном режиме.Тип издания: RepackРазработчик: Big Ant StudiosЖанр: Спортивные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB460ADDC6A9AAB41BF8188A6D60899E3BF3BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624438   (951830) от 28.02.2013
+
+FIFA 13 [Ru/Multi] (Origin-Rip/1.7.0.0) 2012 l R.G. Игроманы
+
+>>След.
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951830.jpg" />
+</div>
+
+
+###  Подробнее
+
+FIFA13 воплощает драматизм и накал страстей настоящего футбола.
+Пять революционных изменений, представленных в свежем сезоне знаменитого футбольного симулятора, выводят на качественно новый уровень искусственный интеллект, систему дриблинга, контроль над мячом и силовую борьбу. Теперь соперничество за мяч на каждом участке поля будет еще более напряженным и непредсказуемым — совсем как в реальном футболе.
+Кроме того, в игре появилось два новых вида передачи мяча. Рефери стали точнее определять фолы и обоснованно выносить предупреждения, вратари — действовать четче, а в тактику обороны введен вариант, позволяющий сдвигать защитные порядки поперек поля. Добавлены новые анимации ударов в прыжке и с разворотом на 180 градусов, а также ликования по поводу забитого мяча.
+Не изменяет FIFA 13 традиции аутентичности: в игре представлено более 500 официально лицензированных клубов и 15 000 спортсменов.
+(   Читать дальше...   )Тип издания: Цифровая лицензия (Origin-Rip)Разработчик: EA CanadaЖанр: Sport (Soccer) / 3DЯзык озвучки: РусскийЯзык субтитров: Русский, MultiЯзык интерфейса: Русский, Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18E42D4281E7174E2DFEDBBDB5B84F5FDF54436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336569   (941872) от 28.02.2020
 
 Lonely Mountains Downhill (2019) [Ru/Multi] (1.0.4) Repack Butter_
@@ -6,7 +62,7 @@ Lonely Mountains Downhill (2019) [Ru/Multi] (1.0.4) Repack Butter_
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941872.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Hunting Unlimited 2010 (2009) [Ru] (1.0) Repack =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930014.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ Pro Evolution Soccer 2016 (2016) [Ru/Multi] (1.03) Repack R.G. Механики
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912903.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ TT Isle of Man Ride on the Edge 2 (2020) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908279.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ F1 2015 (2015) [Ru/En] (1.0.22.4646) RePack =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904248.jpg" />
 </div>
 
 
@@ -136,7 +192,7 @@ MicroProse™ Soccer (1988) [En] (2.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891995.jpg" />
 </div>
 
 
@@ -162,7 +218,7 @@ NBA 2K22 (2021) [Multi] (7326260) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881952.jpg" />
+  <img src="Z:/picture/005/save_picture_881952.jpg" />
 </div>
 
 
@@ -188,7 +244,7 @@ Pool Nation (2013) [Multi] (1.42hf/2dlc) SteamRip DWORD
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848665.jpg" />
+  <img src="Z:/picture/008/save_picture_848665.jpg" />
 </div>
 
 
@@ -216,7 +272,7 @@ MotoGP™20 (2020) [En] (1.0) Repaсk xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845800.jpg" />
+  <img src="Z:/picture/008/save_picture_845800.jpg" />
 </div>
 
 
@@ -242,7 +298,7 @@ MXGP2 - The Official Motocross Videogame (2016) [En/Multi] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833851.jpg" />
 </div>
 
 
@@ -268,7 +324,7 @@ MXGP2 - The Official Motocross Videogame (2016) [En/Multi] (1.0) Repack =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830078.jpg" />
 </div>
 
 
@@ -294,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827794.jpg" />
 </div>
 
 
@@ -320,7 +376,7 @@ Real Boxing (2014) [Ru/Multi] (1.1) License PROPHET
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816355.jpg" />
+  <img src="Z:/picture/008/save_picture_816355.jpg" />
 </div>
 
 
@@ -346,7 +402,7 @@ A Little Golf Journey (2021) [Multi] (1.0.72) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809618.jpg" />
+  <img src="Z:/picture/008/save_picture_809618.jpg" />
 </div>
 
 
@@ -372,7 +428,7 @@ Franchise Hockey Manager 8 (2021) [En] (8.1) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800767.jpg" />
+  <img src="Z:/picture/008/save_picture_800767.jpg" />
 </div>
 
 
@@ -398,7 +454,7 @@ Bassmaster Fishing 2022 (2021) [Ru/Multi] (1.0rls) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800720.jpg" />
+  <img src="Z:/picture/008/save_picture_800720.jpg" />
 </div>
 
 
@@ -424,7 +480,7 @@ GolfTopia (2021) [En] (1.0.10) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798405.jpg" />
+  <img src="Z:/picture/008/save_picture_798405.jpg" />
 </div>
 
 
@@ -450,7 +506,7 @@ Revhead (2017) [Ru/Multi] (1.4.6692/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797063.jpg" />
+  <img src="Z:/picture/008/save_picture_797063.jpg" />
 </div>
 
 
@@ -476,7 +532,7 @@ Tennis Manager 2021 (2021) [Multi] (1.6.2129) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794823.jpg" />
+  <img src="Z:/picture/008/save_picture_794823.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ Mutant Football League (2017) [En] (1.0) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794770.jpg" />
+  <img src="Z:/picture/008/save_picture_794770.jpg" />
 </div>
 
 
@@ -528,7 +584,7 @@ Alpine Skiing 2005 (2004) [En/Ge] (1.88) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788043.jpg" />
+  <img src="Z:/picture/008/save_picture_788043.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ Salt Lake 2002 (2002) [En] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788041.jpg" />
+  <img src="Z:/picture/008/save_picture_788041.jpg" />
 </div>
 
 
@@ -580,7 +636,7 @@ Alpine Skiing 2006 / Лучшие из лучших. Горный слалом 2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788011.jpg" />
+  <img src="Z:/picture/008/save_picture_788011.jpg" />
 </div>
 
 
@@ -606,7 +662,7 @@ Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788008.jpg" />
+  <img src="Z:/picture/008/save_picture_788008.jpg" />
 </div>
 
 
@@ -617,58 +673,6 @@ Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39AB580A01F4AE6797661D0EC628DE90EE5140A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203682   (787595) от 03.02.2018
-
-RTL Winter Sports 2009: The Next Challenge / RTL Зимние игры 2009: Новый сезон (2008) [Ru] (1.0) Repack CoD - MW2
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Провели всю зиму, кутаясь в теплые вещи дома? Жалеете об упущенных возможностях прокатиться на коньках, лыжах или сноуборде? Или наоборот, холодная пора не прошла без активного отдыха? В любом случае, RTL Winter Sports 2009 дает шанс вновь с головой окунуться в мир зимних видов спорта! Биатлон, горные лыжи, прыжки с трамплина, бобслей, фигурное катание и даже керлинг (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sport), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27F5B72E778E20A37F566DFD646C24657FFB5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203679   (787569) от 03.02.2018
-
-RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот спортивный симулятор введет вас в образ биатлониста. Ваша задача,это как можно быстрее пройти забег и быть точным при стрельбе. Биатлон принадлежит к тем видам зимнего спорта ,которые очень требовательны к спортсмену. Основным условием победы является выносливость при преодолении громадных дистанций по пересеченной местности,хладнокровное спокойствие при стрельбе (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sports, Biathlon), 3D, 1'st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E2046B327E7EB351A6388A64882593B4A84E7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1118865   (811823) от 26.03.2017
+
+Uptown Jazz Tentet - There It Is (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There It Is (4:17)
+02. All Too New (7:01)
+03. Lush Life (6:16)
+04. Like Someone In Love (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB2F1301C8D2394C1410EE3CD3AFFF3DC628B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118677   (811820) от 26.03.2017
+
+Fred Astaire - Golden Greats (1930-e - 1940-e) 3CD, 2002, Disky [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Dance Band, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811820.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Cheek To Cheek [03:17]
+02.Let's Face The Music And Dance [02:29]
+03.Let's Calle The Whole Thing Off [03:14](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Dance Band, Easy ListeningПродолжительность: 03:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E43DC6831CFF5F0979C7C1BD2C7E94B4529E263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118712   (811814) от 26.03.2017
+
+Harold Melvin & The Blue Notes - I Miss You (1972) 2010, Big Break Records [FLAC|Lossless|tracks + .cue] <Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Miss You (8:39)
+02. Ebony Woman (3:41)
+03. Yesterday I Had The Blues (7:34)
+04. If You Don't Know Me By Now (3:28)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF492ECFF10AF2203A507DB11233573330DFA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118652   (811812) от 26.03.2017
+
+The Oscar Peterson Trio - Walking The Line (1970) 2005, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Love You [05:15]
+ 02.Rock of Ages [05:33]
+ 03.Once Upon a Summertime [05:20]
+ 04.Just Friends [03:59](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E8CEAE68E221A84C819852A791726B942BF696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118686   (811074) от 26.03.2017
 
 Zaz - Paris, Encore! (2015) [FLAC|Lossless|image + .cue] <Nu Jazz, Chanson>
@@ -6,7 +122,7 @@ Zaz - Paris, Encore! (2015) [FLAC|Lossless|image + .cue] <Nu Jazz, Chanson>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811074.jpg" />
+  <img src="Z:/picture/008/save_picture_811074.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bucky Pizzarelli - Challis In Wonderland (2011) Arbors Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810365.jpg" />
+  <img src="Z:/picture/008/save_picture_810365.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Art Farmer - Early Art (1954) Remaster, 2006, Victor Entertainment[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810294.jpg" />
+  <img src="Z:/picture/008/save_picture_810294.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Joe Zawinul - The Rise & Fall Of The Third Stream (1967) Remaster, 2012, Warner[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810293.jpg" />
+  <img src="Z:/picture/008/save_picture_810293.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Art Farmer - Art (1960) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810292.jpg" />
+  <img src="Z:/picture/008/save_picture_810292.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Kenny Burrell - Blue Lights, Volume 1 (1958) Remaster, 2000, Toshiba[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810291.jpg" />
+  <img src="Z:/picture/008/save_picture_810291.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Sonny Stitt - Eight Classic Albums, Vol.2 (1959 - 1962) 4CD, 2013, Real Gone Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810268.jpg" />
+  <img src="Z:/picture/008/save_picture_810268.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Yusef Lateef & Adam Rudolph - Beyond The Sky (2000) META [WavPack|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810264.jpg" />
+  <img src="Z:/picture/008/save_picture_810264.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Dorado Schmitt - Parisienne (1995) [FLAC|Lossless|tracks] <Jazz, Instrumental>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810183.jpg" />
+  <img src="Z:/picture/008/save_picture_810183.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Murray, Allen & Carrington Power Trio - Perfection (2016) [FLAC|Lossless|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810181.jpg" />
+  <img src="Z:/picture/008/save_picture_810181.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Oz Noy - Who Gives a Funk (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810177.jpg" />
+  <img src="Z:/picture/008/save_picture_810177.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Jimmy Virani presents The Exotic Sounds of Tiki Tribe (2011) Dionysus Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810167.jpg" />
+  <img src="Z:/picture/008/save_picture_810167.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Miles Davis - Miles In The Sky (1968) Remaster, 1991, Sony Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810165.jpg" />
+  <img src="Z:/picture/008/save_picture_810165.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Return To Forever - Romantic Warrior (1976) Remastered 1990 [APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810160.jpg" />
+  <img src="Z:/picture/008/save_picture_810160.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Miles Davis & Gil Evans - Quiet Nights 1962 - 1963 (1997) Sony Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810126.jpg" />
+  <img src="Z:/picture/008/save_picture_810126.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Sidney Bechet - Weary Blues (1938 - 1940) 1992, Jazz Hour [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810064.jpg" />
+  <img src="Z:/picture/008/save_picture_810064.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Art Farmer - Benny Golson Jazztet - Here And Now (1962) Remaster, 2002, Universa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809899.jpg" />
+  <img src="Z:/picture/008/save_picture_809899.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Stan Kenton - The Lost Concert Vol. I & II (1978) 2CD, 1999, Jazz Heritage [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809607.jpg" />
+  <img src="Z:/picture/008/save_picture_809607.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Freddie Hubbard - Born To Be Blue (1981) 1999, Original Jazz Classics [APE|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809604.jpg" />
+  <img src="Z:/picture/008/save_picture_809604.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ John Coltrane - The Best Of John Coltrane (1959, 1960) 1992, Atlantic [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809601.jpg" />
+  <img src="Z:/picture/008/save_picture_809601.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Miles Okazaki - Trickster (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809460.jpg" />
+  <img src="Z:/picture/008/save_picture_809460.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809131.jpg" />
+  <img src="Z:/picture/008/save_picture_809131.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1BA50CB1B076E9CAEE1555D7E92F7443E8697E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119235   (809127) от 27.03.2017
-
-Caro Emerald - Emerald Island (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Neo-swing, Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tahitian Skies
-02. The Ghost Of You
-03. Never Ever
-04. Exotic Flu(   Читать дальше...   )Жанр: Neo-swing, Vocal Jazz, Pop JazzПродолжительность: 00:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A90B60AF0A72CC23D536D5EB88E20C886D239E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778234   (808620) от 17.04.2014
-
-Sarah Vaughan - Duke Ellington Songbook , Vol. 1,2 (1980) /2000 - Галактис/ [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain't Got Nothin' But The Blues [04:36]
-02. Black Butterfly [03:01]
-03. Chelsea Bridge [03:25]
-04. What Am I Here For [03:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50D65AFB14ACE3BDB5C87C560DE9D4EF3D44F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504930   (808434) от 25.10.2021
-
-Buddy Tate Meets Abdullah Ibrahim - The Legendary 1977 Encounters (1996) Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goduka Mfundi (Going Home) [7:18]
-02. Heyt Mazurki [6:56]
-03. Poor Butterfly [8:32]
-04. In a Sentimental Mood [7:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F535832130452F7C61F49313C21A968240811A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009717   (808363) от 22.04.2016
-
-Art Farmer - Listen to Art Farmer and the Orchestra (1962) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Street of Dreams [04:22]
- 02.Rain Check [03:44]
- 03.Rue Prevail [04:12]
- 04.The Sweetest Sounds (From 'No Strings') [04:39](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B0A7407314521F94B79FB0F40B0A44E1E5BF5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

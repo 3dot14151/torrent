@@ -1,3 +1,55 @@
+###  Публикация: 1185079   (296846) от 19.11.2017
+
+Михаил Завьялов | Бокс. От зала к рингу (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся тренер и президент Национальной лиги профессионального бокса Украины Михаил Завьялов знакомит читателей со всеми аспектами этого вида спорта: от истории его возникновения до современных мировых турниров, от системы подготовки «новичков бокса» до сложнейших тренировочных процессов чемпионов.Жанр: Боевые искусства, БоксФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3AAAE2E7E6D63AE6A650A15748755205799F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185084   (296841) от 19.11.2017
+
+Григорий Левенфиш | Книга начинающего шахматиста (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Григория Левенфиша – признанная классика и, пожалуй, лучший учебник по шахматам для начинающих любого возраста. По ней учились десятки тысяч шахматистов, многие из которых стали гроссмейстерами и чемпионами мира. С помощью этой книги вы сможете увидеть и оценить всю красоту великой игры.Жанр: Спорт, Хобби и ремесла, ШахматыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A1F11E1FBB816A490697963E89E130F00FD08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962121   (296633) от 03.12.2015
 
 Виталий Беззубенко | Книга, которая сохранит вам жизнь (2014) [PDF]
@@ -6,7 +58,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296633.jpg" />
+  <img src="Z:/picture/008/save_picture_296633.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296472.jpg" />
+  <img src="Z:/picture/008/save_picture_296472.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295773.jpg" />
+  <img src="Z:/picture/008/save_picture_295773.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294616.jpg" />
+  <img src="Z:/picture/008/save_picture_294616.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293511.jpg" />
+  <img src="Z:/picture/008/save_picture_293511.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293299.jpg" />
+  <img src="Z:/picture/008/save_picture_293299.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293115.jpg" />
+  <img src="Z:/picture/008/save_picture_293115.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292653.jpg" />
+  <img src="Z:/picture/008/save_picture_292653.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292645.jpg" />
+  <img src="Z:/picture/008/save_picture_292645.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292644.jpg" />
+  <img src="Z:/picture/008/save_picture_292644.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290602.jpg" />
+  <img src="Z:/picture/008/save_picture_290602.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289612.jpg" />
+  <img src="Z:/picture/008/save_picture_289612.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288981.jpg" />
+  <img src="Z:/picture/008/save_picture_288981.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287614.jpg" />
+  <img src="Z:/picture/008/save_picture_287614.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286024.jpg" />
+  <img src="Z:/picture/008/save_picture_286024.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285941.jpg" />
+  <img src="Z:/picture/008/save_picture_285941.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285746.jpg" />
+  <img src="Z:/picture/008/save_picture_285746.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285589.jpg" />
+  <img src="Z:/picture/008/save_picture_285589.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281667.jpg" />
+  <img src="Z:/picture/008/save_picture_281667.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280790.jpg" />
+  <img src="Z:/picture/008/save_picture_280790.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276764.jpg" />
+  <img src="Z:/picture/008/save_picture_276764.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274608.jpg" />
+  <img src="Z:/picture/008/save_picture_274608.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274507.jpg" />
+  <img src="Z:/picture/008/save_picture_274507.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274392.jpg" />
+  <img src="Z:/picture/008/save_picture_274392.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88EE18CEB231513EA0A078BBB8FED03585B0B0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084130   (271996) от 17.12.2016
-
-Иоганн Петер Мюллер | Моя система: Пять минут в день (2014) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мюллер Иоганнес Петер (1801-1858) - естествоиспытатель, иностранный член-корреспондент Петербургской АН (1832). Автор трудов по физиологии центральной нервной системы и органов чувств, сравнительной анатомии; описал ранние этапы развития зародыша человека.
-Вашему вниманию предлагается книга "Моя система: Пять минут в день", в которой доходчиво описана авторская (   Читать дальше...   )Жанр: Физкультура, фитнес, бодибилдингФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71C85602F3D64FC57B5B00D493521B2033DD99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215107   (271672) от 30.11.2018
-
-А. А. Кадочников | Сборник книг по Системе Кадочникова [PDF/DOC]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский рукопашный бой-система, созданная на базе народных видов борьбы и под незначительным влиянием лучших достижений зарубежных систем самозащиты, вместе с тем органически отличается от всех других систем, главным образом тем, что она основана на знании анатомического строения человека,
-на умении переходить с приема на прием, на знании равновесия человеческого (   Читать дальше...   )Формат: PDF/DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43723CF7D38A73C2BFDB312CBC9B0A5B50B96B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

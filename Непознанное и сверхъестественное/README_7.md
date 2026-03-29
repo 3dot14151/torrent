@@ -1,3 +1,55 @@
+###  Публикация: 1200373   (796200) от 20.01.2018
+
+Битва экстрасенсов (2018.01.20) SATRip (сезон 18, выпуск 16: Дайджест)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796200.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуПродолжительность: ~ 01:07:13Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902DB77B9A80C266013949A51425968C3DCC1743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011985   (794793) от 30.04.2016
+
+Бриллиантовые слёзы (29.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смертельный блеск камней. Что вы знаете о бриллиантах? Они красивые и очень дорогие, из-за них часто убивают. А что вы знаете об алмазных королях и о том, как они правят миром? В алмазах и бриллиантах заключаются тайные сделки между спецслужбами и их агентами. Террористы платят алмазами за оружие и поддержку зарубежных политиков. Тайный оборот драгоценных камней (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйПродолжительность: 01:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776DA49918DDA9EBE9B5EE00AE6C75EC2E45DF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012312   (794713) от 30.04.2016
 
 Территория заблуждений с Игорем Прокопенко (2016.04.30) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794713.jpg" />
+  <img src="Z:/picture/008/save_picture_794713.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793375.jpg" />
+  <img src="Z:/picture/008/save_picture_793375.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792718.jpg" />
+  <img src="Z:/picture/008/save_picture_792718.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791390.jpg" />
+  <img src="Z:/picture/008/save_picture_791390.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790897.jpg" />
+  <img src="Z:/picture/008/save_picture_790897.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789757.jpg" />
+  <img src="Z:/picture/008/save_picture_789757.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789021.jpg" />
+  <img src="Z:/picture/008/save_picture_789021.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788997.jpg" />
+  <img src="Z:/picture/008/save_picture_788997.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788842.jpg" />
+  <img src="Z:/picture/008/save_picture_788842.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788797.jpg" />
+  <img src="Z:/picture/008/save_picture_788797.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787558.jpg" />
+  <img src="Z:/picture/008/save_picture_787558.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786983.jpg" />
+  <img src="Z:/picture/008/save_picture_786983.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786972.jpg" />
+  <img src="Z:/picture/008/save_picture_786972.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786378.jpg" />
+  <img src="Z:/picture/008/save_picture_786378.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786368.jpg" />
+  <img src="Z:/picture/008/save_picture_786368.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786325.jpg" />
+  <img src="Z:/picture/008/save_picture_786325.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786166.jpg" />
+  <img src="Z:/picture/008/save_picture_786166.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786162.jpg" />
+  <img src="Z:/picture/008/save_picture_786162.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786083.jpg" />
+  <img src="Z:/picture/008/save_picture_786083.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785878.jpg" />
+  <img src="Z:/picture/008/save_picture_785878.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785287.jpg" />
+  <img src="Z:/picture/008/save_picture_785287.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780197.jpg" />
+  <img src="Z:/picture/008/save_picture_780197.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779474.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779245.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AA6247D1C733D7BEB60403B0123901EFBA5F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209463   (779213) от 27.02.2018
-
-10 сценариев конца света: Последние дни человечества / 10 Ways to End the World (2011) HDTVRip (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779213.jpg" />
-</div>
-
-
-###  Подробнее
-
-От коллапсирующих звезд до смертоносных эпидемий, от атомной войны до изменения климата - ученые исследуют десять потенциальных угроз, которые могут уничтожить человечество. Уничтожит ли человечество само себя? Суждено ли человечеству жить на земле вечно, или же наши дни сочтены? Будем ли мы удачливее динозавров или наших далеких предков, неандертальцев, которые (   Читать дальше...   )Производство: США , Swedish Educational Broadcasting CompanyЖанр: Документальный, познавательный, исследованиеПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 2 x ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5677A218E290AB2795D6006C542C84AFF6CA263F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209438   (779200) от 27.02.2018
-
-Ангар-1: Архив НЛО / Hangar 1: The UFO Files (2015) WEB-DLRip (сезон 2, серий 12 из 12)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная в 1969 году Всеобщая организация наблюдения за НЛО (MUFON) сегодня имеет свои представительства в 42 странах мира. В архиве MUFON - более 300 000 документов, связанных с НЛО. Все документы хранятся на закрытом для посторонних складе в Огайо, известном как «Ангар-1». Организация предоставила телеканалу неограниченный доступ в Ангар-1, ко всем хранящимся (   Читать дальше...   )Производство: США, Go Go Luckey Productions, A&E Television Networks, LLCЖанр: Документальный, НЛО, расследованиеПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 12 х ~ 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD433DCA763DD7F4093D2271BC3974A7A93882C
 ```
 
 https://mybot314.ru/tekegram_catalog/

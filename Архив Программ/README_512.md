@@ -6,7 +6,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v17.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786914.jpg" />
+  <img src="Z:/picture/008/save_picture_786914.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Microsoft Visual Studio 2019 Professional 16.5.5 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786869.jpg" />
+  <img src="Z:/picture/008/save_picture_786869.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Microsoft Visual Studio 2019 Community 16.5.5 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786866.jpg" />
+  <img src="Z:/picture/008/save_picture_786866.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.5 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786864.jpg" />
+  <img src="Z:/picture/008/save_picture_786864.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Calibre 4.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786846.jpg" />
+  <img src="Z:/picture/008/save_picture_786846.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ WinUtilities Pro 15.74 (comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786816.jpg" />
+  <img src="Z:/picture/008/save_picture_786816.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Adguard 7.4.3247.0 (офиц 7.4.2) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786783.jpg" />
+  <img src="Z:/picture/008/save_picture_786783.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Avast Premium Security 20.4.2410 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786782.jpg" />
+  <img src="Z:/picture/008/save_picture_786782.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ K-Lite Codec Pack Update 15.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786747.jpg" />
+  <img src="Z:/picture/008/save_picture_786747.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Microsoft Edge 84.0.522.11 Beta (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786725.jpg" />
+  <img src="Z:/picture/008/save_picture_786725.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MediBang Paint Pro 25.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786712.jpg" />
+  <img src="Z:/picture/008/save_picture_786712.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Unity Pro 2018.4.23f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786711.jpg" />
+  <img src="Z:/picture/008/save_picture_786711.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Unity Pro 2019.3.15f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786704.jpg" />
+  <img src="Z:/picture/008/save_picture_786704.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ UnHackMe 11.70.0.970 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786682.jpg" />
+  <img src="Z:/picture/008/save_picture_786682.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ ABViewer Enterprise 14.1.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786681.jpg" />
+  <img src="Z:/picture/008/save_picture_786681.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.4 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786679.jpg" />
+  <img src="Z:/picture/008/save_picture_786679.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ESET Online Scanner 3.3.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786675.jpg" />
+  <img src="Z:/picture/008/save_picture_786675.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ simplewall 3.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786671.jpg" />
+  <img src="Z:/picture/008/save_picture_786671.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Wallpaper Engine 1.2.41 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786668.jpg" />
+  <img src="Z:/picture/008/save_picture_786668.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VirtualBox 6.1.10 Build 138449 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786658.jpg" />
+  <img src="Z:/picture/008/save_picture_786658.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Topaz DeNoise AI 2.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786657.jpg" />
+  <img src="Z:/picture/008/save_picture_786657.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Maxon CINEMA 4D Studio S22.114 build RB315510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786648.jpg" />
+  <img src="Z:/picture/008/save_picture_786648.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ IP-TV Player 50.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786633.jpg" />
+  <img src="Z:/picture/008/save_picture_786633.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ OEM Info Updater 9.2 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786632.jpg" />
+  <img src="Z:/picture/008/save_picture_786632.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ JRiver Media Center 26.0.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786576.jpg" />
+  <img src="Z:/picture/008/save_picture_786576.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ RegScanner 2.51 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786574.jpg" />
+  <img src="Z:/picture/008/save_picture_786574.jpg" />
 </div>
 
 

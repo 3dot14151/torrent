@@ -1,3 +1,108 @@
+###  Публикация: 1143343   (634662) от 18.06.2017
+
+Песня за песней / Song to Song (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о двух пересекающихся любовных треугольниках. Это история о сексуальной одержимости и предательстве на фоне музыкальной сцены в Остине, штат Техас.Производство: США, Buckeye Pictures, FilmNation Entertainment, Waypoint EntertainmentЖанр: Драма, Музыкальный, МелодрамаРежиссер: Терренс МаликАктеры: Натали Портман, Майкл Фассбендер, Райан Гослинг, Руни Мара, Кейт Бланшетт, Холли Хантер, Беренис Марло, Вэл Килмер, Люкке Ли, Оливия Грэйс Эпплгейт ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 02:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E222E15CAC396AD31D79DE0221137D3AD3A7B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034835   (632378) от 14.07.2016
+
+Преступник / Criminal  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632378.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последней отчаянной попытке остановить катастрофу мирового масштаба генетики осуществляют невероятную операцию по вживлению воспоминаний и умений погибшего оперативника ЦРУ в тело опасного заключенного с надеждой, что тот доведет до конца прерванную миссию агента.Производство: Великобритания, США, BenderSpink, Campbell Grobman Films, Lionsgate, Millennium FilmsЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Ариэль ВроменАктеры: Кевин Костнер, Гари Олдман, Томми Ли Джонс, Райан Рейнольдс, Элис Ив, Галь Гадот, Хорди Молья, Майкл Питт, Амори Ноласко, Антье Трауэ, Скотт Эдкинс, Лара ДэкароПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7329D4C441030DAA6ABF2C76F52133B31E40DA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034883   (632259) от 14.07.2016
+
+Преступник / Criminal  (2016) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632259.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последней отчаянной попытке остановить катастрофу мирового масштаба генетики осуществляют невероятную операцию по вживлению воспоминаний и умений погибшего оперативника ЦРУ в тело опасного заключенного с надеждой, что тот доведет до конца прерванную миссию агента.Производство: Великобритания, США, BenderSpink, Campbell Grobman Films, Lionsgate, Millennium FilmsЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Ариэль ВроменАктеры: Кевин Костнер, Гари Олдман, Томми Ли Джонс, Райан Рейнольдс, Элис Ив, Галь Гадот, Хорди Молья, Майкл Питт, Амори Ноласко, Антье Трауэ, Скотт Эдкинс, Лара ДэкароПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91C90C5FDF9F17DF0BCE9AF5A34EE1C4EAC1B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034966   (632058) от 14.07.2016
+
+Высотка / High-Rise  (2015) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элитная высотка - идеальная модель мира будущего. Здесь есть всё для комфортной и роскошной жизни. Но зависть, соперничество, жажда острых ощущений постепенно разжигают открытую вражду между жителями высотки, заставляя забыть о законах морали даже лучших из них.
+Добро пожаловать в мир будущего.Производство: Великобритания, Бельгия, British Film Institute (BFI), Film4, HanWay Films, Ingenious Media, Northern Ireland Screen, Recorded Picture Company (RPC), S Films, Scope PicturesЖанр: драмаРежиссер: Бен УитлиАктеры: Том Хиддлстон, Джереми Айронс, Сиенна Миллер, Люк Эванс, Элизабет Мосс, Джеймс Пьюрфой, Кили Хоуз, Питер Фердинандо, Сиенна Гиллори, Рис Шерсмит, Энцо Чиленти, Август ПрюПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB937B18C672AAF106D9661BBABF0F33E08C259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229055   (631810) от 03.06.2018
 
 Последняя битва (Конец пути) / Journey's End (2017) BDRemux [H.264/1080p] [EN / EN Sub]
@@ -6,7 +111,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631810.jpg" />
+  <img src="Z:/picture/008/save_picture_631810.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628389.jpg" />
+  <img src="Z:/picture/008/save_picture_628389.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627383.jpg" />
+  <img src="Z:/picture/008/save_picture_627383.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627246.jpg" />
+  <img src="Z:/picture/008/save_picture_627246.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627242.jpg" />
+  <img src="Z:/picture/008/save_picture_627242.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626034.jpg" />
+  <img src="Z:/picture/008/save_picture_626034.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625864.jpg" />
+  <img src="Z:/picture/008/save_picture_625864.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625849.jpg" />
+  <img src="Z:/picture/008/save_picture_625849.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625835.jpg" />
+  <img src="Z:/picture/008/save_picture_625835.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625690.jpg" />
+  <img src="Z:/picture/008/save_picture_625690.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624200.jpg" />
+  <img src="Z:/picture/008/save_picture_624200.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623867.jpg" />
+  <img src="Z:/picture/008/save_picture_623867.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623720.jpg" />
+  <img src="Z:/picture/008/save_picture_623720.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623649.jpg" />
+  <img src="Z:/picture/008/save_picture_623649.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623638.jpg" />
+  <img src="Z:/picture/008/save_picture_623638.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620997.jpg" />
+  <img src="Z:/picture/008/save_picture_620997.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619962.jpg" />
+  <img src="Z:/picture/008/save_picture_619962.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619494.jpg" />
+  <img src="Z:/picture/008/save_picture_619494.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616003.jpg" />
+  <img src="Z:/picture/008/save_picture_616003.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615995.jpg" />
+  <img src="Z:/picture/008/save_picture_615995.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615807.jpg" />
+  <img src="Z:/picture/008/save_picture_615807.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615283.jpg" />
+  <img src="Z:/picture/008/save_picture_615283.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E837468E909B7C67A8DC232E9D565F82DFE296B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037074   (615167) от 23.07.2016
-
-Нервы на пределе / High Strung (2016) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руби — танцовщица, которая поступает в Манхэттенскую Школу Искусств. Она встречает скрипача по имени Джонни, который выступает в метро. Когда он отвлекся, его скрипку украли. Она пытается ему помочь, и узнает, что он нелегальный иммигрант. Она узнала, что существует конкурс, в котором танцор выступает с скрипачом, а победитель получает стипендию, которая дает возможность (   Читать дальше...   )Производство: США, Румыния, Castel Film Studio, Riviera Films, Sforzando ProductionsЖанр: Драма, Мелодрама,МузыкаРежиссер: Майкл ДамианАктеры: Кинан Кампa, Николас Голицин, Джейн Сеймур, Соноя Мидзуно, Ричард Саутгейт, Пол Фримен, Майя Моргенштерн, Иэн Иствуд, Анабель Кутай, Маркус Эмануэл МитчеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB73547A5D07C0C0EBD15A6A8A25FE8754CE5AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036574   (615077) от 23.07.2016
-
-Бэтмен против Супермена: На заре справедливости / Batman v Superman: Dawn of Justice (2016) Blu-ray [H.264/1080p] [Расширенная версия] [EUR] [IT, JA, ES, EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опасаясь, что действия богоподобного супергероя так и останутся бесконтрольными, грозный и могущественный страж Готэм Сити бросает вызов самому почитаемому в наши дни спасителю Метрополиса, в то время как весь остальной мир решает, какой герой ему по-настоящему нужен. И пока Бэтмен и Супермен пребывают в состоянии войны друг с другом, возникает новая угроза, которая (   Читать дальше...   )Производство: США, DC Entertainment, Dune Entertainment, SyncopyЖанр: Фантастика, БоевикРежиссер: Зак СнайдерАктеры: Генри Кавилл, Бен Аффлек, Галь Гадот, Джейсон Момоа, Эми Адамс, Джесси Айзенберг, Джена Мэлоун, Эзра Миллер, Дайан Лэйн, Джереми АйронсПеревод: ОтсутствуетЯзык озвучки: Английский, Итальянский, Испанский, ЯпонскийЯзык субтитров: Русский, Японский, Английский, Итальянский, Испанский, Корейский, Арабский, Болгарский, Хорватский, Чешский, Датский, Эстонский, Финский, Греческий, Иврит, Венгерский, Исландский, Латвийский, Литовский, Норвежский, Польский, Португальский, Румынский, Словенский, Шведский, ТурецкийПродолжительность: 03:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38A477CA81B8B39B1631D76B15657F72345B2DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230692   (613553) от 13.06.2018
-
-Павел, апостол Христа / Paul, Apostle of Christ  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613553.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни и смерти апостола Павла, который прошёл путь от беспощадного гонителя христиан до одного из основателей христианской церкви. Его последнее миссионерское путешествие заканчивается в тюрьме, куда он был заточён по приказу римского императора Нерона. Пока плененный Павел ждёт казни и размышляет о своей посмертной участи, его последователь Лука пишет новое (   Читать дальше...   )Производство: США / Affirm Films, ODB Films, Outside Da BoxЖанр: драма, историяРежиссер: Эндрю ХайаттАктеры: Джеймс Кэвизел, Джеймс Фолкнер, Оливье Мартинес, Джоэнн Уэлли, Джон Линч, Гиоргос Карамихос, Антония Кэмпбелл-Хьюджес, Алессандро Спердути, Александра Вино, Мануэль Коши, Ной Хантли, Кеннет СпитериПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12213D4DC6FE6F70E45E491C93BD9236070FB6E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037402   (613338) от 24.07.2016
-
-Манхэттенская ночь / Manhattan Night / Manhattan Nocturne  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613338.jpg" />
-</div>
-
-
-###  Подробнее
-
-С просьбы соблазнительной незнакомки разобраться в нераскрытом убийстве ее мужа начинается неприятная история сексуальной одержимости и шантажа, которая может стоить журналисту Портеру Рену его работы, семьи и даже жизни.Производство: США, DeCubellis Films, Untravelled Worlds, Fable House, Nocturne Pictures, Big Indie PicturesЖанр: триллер, драма, криминал, детективРежиссер: Брайан ДеКьюбелисАктеры: Ивонн Страховски, Эдриан Броуди, Дженнифер Билз, Линда Лавин, Кэмпбелл Скотт, Стивен Беркофф, Кевин Брезнахан, Амели МакКендри, Томас Баир, Мария-Кристина Оливерас, Уилл Бейнбринк, Чинаса ОгбуагуПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65906AFBA91FB88E59D9177006C8B3062DF0D930
 ```
 
 https://mybot314.ru/tekegram_catalog/

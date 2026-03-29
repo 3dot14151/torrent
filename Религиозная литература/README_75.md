@@ -1,3 +1,83 @@
+###  Публикация: 831682   (417316) от 16.10.2014
+
+Мир Зафар | Воин, идущий к Солнцу. Духовный путь Бодхидхармы [III книги] (2008-2014) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга 1. В книге впервые в мире изложена жизнь человека, создавшего боевые искусства Индии, Ирана, Тибета, Китая, Древней Руси, создавшего понятие Путь Воина, создавшего искусство жить по законам Сокровенной Красоты Мира - Дзэн.
+Это произведение - благодарность нашим отцам-первопредкам, тем, кто оставил нам в наследство Свободу.
+Свободу и дорогу к Солнцу.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FBF48E7E7A8E2D649224E7F5D12F43B1B968A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066033   (416630) от 24.10.2016
+
+митрополит Макарий (Булгаков) | История Русской Церкви [Книга первая] (1994) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416630.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу настоящего издания положена тринадцатитомная «История Русской Церкви» высокопреосвященного Макария, митрополита Московского и Коломенского, выдающегося церковного ученого прошлого века. Церковно-историческая наука богата яркими талантами, такими как митрополит Московский Платон (Левшин), митрополит Киевский Евгений (Болховитинов), архиепископ Черниговский (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46EE0BB4F0DA4F8E8DC9A05A3B0FB08F1E483C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065474   (416345) от 24.10.2016
+
+Скотт Адамс | Осколки Бога (2001) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга не попытка навязать вам новую религию, не очередная «теория всего», не сборник высшей мудрости. Она вообще ценна не столько своими ответами, сколько вопросами. Ответы же, по большей части, заведомо ложные. Эта книга позволяет взглянуть на многие вещи под необычным углом, заставляет задуматься, заставляет со скрипом проворачиваться заржавевшие шестеренки (   Читать дальше...   )Жанр: Философия, РелигияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF42109231E6FA7D376C82E00ED6FD57655CDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948018   (416264) от 18.10.2015
 
 Д. Ангелов | Богомильство в Болгарии (1954) [DJVU]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416264.jpg" />
+  <img src="Z:/picture/008/save_picture_416264.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416263.jpg" />
+  <img src="Z:/picture/008/save_picture_416263.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416136.jpg" />
+  <img src="Z:/picture/008/save_picture_416136.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415994.jpg" />
+  <img src="Z:/picture/008/save_picture_415994.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415976.jpg" />
+  <img src="Z:/picture/008/save_picture_415976.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415182.jpg" />
+  <img src="Z:/picture/008/save_picture_415182.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414880.jpg" />
+  <img src="Z:/picture/008/save_picture_414880.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414668.jpg" />
+  <img src="Z:/picture/008/save_picture_414668.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414045.jpg" />
+  <img src="Z:/picture/008/save_picture_414045.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413846.jpg" />
+  <img src="Z:/picture/008/save_picture_413846.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413833.jpg" />
+  <img src="Z:/picture/008/save_picture_413833.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413824.jpg" />
+  <img src="Z:/picture/008/save_picture_413824.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411934.jpg" />
+  <img src="Z:/picture/008/save_picture_411934.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411785.jpg" />
+  <img src="Z:/picture/008/save_picture_411785.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411608.jpg" />
+  <img src="Z:/picture/008/save_picture_411608.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410523.jpg" />
+  <img src="Z:/picture/008/save_picture_410523.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410204.jpg" />
+  <img src="Z:/picture/008/save_picture_410204.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409802.jpg" />
+  <img src="Z:/picture/008/save_picture_409802.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409560.jpg" />
+  <img src="Z:/picture/008/save_picture_409560.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408540.jpg" />
+  <img src="Z:/picture/008/save_picture_408540.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408149.jpg" />
+  <img src="Z:/picture/008/save_picture_408149.jpg" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408032.jpg" />
+  <img src="Z:/picture/008/save_picture_408032.jpg" />
 </div>
 
 
@@ -591,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407966.jpg" />
+  <img src="Z:/picture/008/save_picture_407966.jpg" />
 </div>
 
 
@@ -602,86 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B15BB01B19DA0A125F86B9CDA07D0D04C0D6B090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326044   (407420) от 18.09.2019
-
-Игумен Нектарий (Морозов) | Таинство Исповеди. Как научиться каяться и перестать прятаться от Бога (2018) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407420.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного православного писателя и публициста игумена Нектария (Морозова) говорится о сути таинства Покаяния, его истории, подготовке к нему и об основных ошибках, которые люди, сознательно или неосознанно, допускают на исповеди.
-
-Книга поможет более честно взглянуть на себя. Почему моё сердце холодно и не радуется молитве? Почему я так мало похож на Христа: (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638DD1D116FAD3809C237E413850088708804BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573569   (407388) от 03.09.2022
-
-Сергей Котов | Метка зверя. Свидетельства людей, получивших начертание антихриста (2018) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407388.jpg" />
-</div>
-
-
-###  Подробнее
-
-«После этого Господь отделил многих от находившихся по левую руку, и вот пришли лукавые; они были хуже других. Глаза их темнее и мрачнее, чем у прочих, на челе у каждого из них были подписи сатаны, в руках они держали дощечки, на которых было написано их отвержение. К ним Господь обратился с такими словами; «О, нечестивые, почему Меня вы оставили и Мое святое крещение (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606689B02C22ED85CEDB0740BF815CAA454B9A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326034   (407373) от 18.09.2019
-
-Сатисъ (изд.) | О блудной страсти. Святые отцы и современные пастыри о грехе плотской нечистоты (2007) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407373.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всякий грех мерзок перед Богом и лишает нас благоволения Божия. Но есть один грех, которого особенно гнушается Господь, — это грех плотской нечистоты. Поэтому, хотя святой апостол Павел и говорит, что срамно об этом грехе говорить, тем не менее Божественное Откровение для предохранения человечества от этого порока говорит о нём. Пастыри и учители Церкви порою с (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1F7C4DD6F432B845377E1480BC573EF381E8D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

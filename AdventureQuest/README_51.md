@@ -1,3 +1,81 @@
+###  Публикация: 1155274   (263646) от 15.12.2017
+
+Tacoma (2017) [Ru/Multi] (121417) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Venturis хочет вернуть свою систему искусственного интеллекта. И вы должны ей в этом помочь. Tacoma - приключенческая игра с увлекательным сюжетом, действия которой разворачиваются в 2088 году на высокотехнологичной космической станции. Вам предстоит исследовать инопланетную базу, выяснить, как на ней жили и работали члены экипажа и что именно там произошло. (   Читать дальше...   )Тип издания: LicenseРазработчик: FullbrightЖанр: Приключение, От первого лица, ДрамаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CECDFCB3A61B6466B5A60C1D3C3CBB1DFB85670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340691   (263431) от 24.11.2019
+
+Heavy Rain (2019) [Ru/Multi] (build 362) License CPY
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте четырьмя персонажами в этом безумно напряженном психологическом триллере. Тщательно выбирайте каждый шаг, ведь у любого решения могут быть драматические последствия. На протяжении четырех наполненных тайнами и неопределенностью дней идет охота на душегуба, известного как «Мастер оригами», который получил такое прозвище из-за своей жуткой визитной карточки (   Читать дальше...   )Тип издания: LicenseРазработчик: Quantic DreamЖанр: Action, Adventure, Int.Movie, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10FD63466B4EF2FF1C5D46A0FDA53A6F2BBF1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340169   (263419) от 24.11.2019
+
+Asterix & Obelix XXL 3 - The Crystal Menhir (2019) [Ru/Multi] (1.15) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asterix & Obelix XXL 3 - The Crystal Menhir продолжает приключения отважных Астерикса и Обеликса. 50 год до нашей эры. Галлия полностью оккупирована римлянами. Ну, не совсем. Одна маленькая деревенька неукротимых галлов, где живут два наших героя, все еще противостоит захватчикам. Однажды деревенский друид Хетафикс получает странное письмо от Авины Гандир, верховной (   Читать дальше...   )Тип издания: RepackРазработчик: Osome StudioЖанр: Adventure, Action, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7FDBA4825BE5A005CF268BE81635979D8E3C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340859   (263181) от 25.11.2019
 
 The Lift (2018) [Ru/En] (1.0) Repack Other s
@@ -6,7 +84,7 @@ The Lift (2018) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263181.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Heavy Rain (2019) [Ru/Multi] (1.0/build 362) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262781.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Mind: Path to Thalamus (2015) [Ru/Multi] (1.1) License PLAZA [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262198.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262154.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262010.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Granny Remake (2023) [Ru/Multi] (3.6.3) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261694.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261553.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Radiolight (2025) [Multi] (0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261515.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261511.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Nostradamus: The Last Prophecy / Нострадамус: Последнее пр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261502.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261442.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0hf4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260759.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259905.jpg" />
+  <img src="Z:/picture/005/save_picture_259905.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Still Life 1, 2 (2005-2009) [Ru/En] (1.00) Repack R.G. Catalyst [Dilogy / Дил
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259509.jpg" />
+  <img src="Z:/picture/005/save_picture_259509.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Nancy Drew: Legend of the Crystal Skull / Нэнси Дрю: Легенда о �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258408.jpg" />
+  <img src="Z:/picture/005/save_picture_258408.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257932.jpg" />
+  <img src="Z:/picture/005/save_picture_257932.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257746.jpg" />
+  <img src="Z:/picture/005/save_picture_257746.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257626.jpg" />
+  <img src="Z:/picture/005/save_picture_257626.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Entomorph: Plague of the Darkfall [En] (RePack) 1995 | RG Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257272.jpg" />
+  <img src="Z:/picture/005/save_picture_257272.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256796.jpg" />
+  <img src="Z:/picture/005/save_picture_256796.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ DE-EXIT - Eternal Matters (2023) [Ru/Multi] (1.0.23.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256787.jpg" />
+  <img src="Z:/picture/005/save_picture_256787.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Agatha Christie - Death on the Nile / Агата Кристи - Смерть н�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256766.jpg" />
+  <img src="Z:/picture/005/save_picture_256766.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256755.jpg" />
+  <img src="Z:/picture/005/save_picture_256755.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A6CE2E634EA48430DB67A21EE9E4BB4AF59FFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837390   (256745) от 16.11.2025
-
-Knock On The Window (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Knock on the Window – это атмосферный хоррор с эстетикой VHS, который погрузит вас в загадочную историю, полную напряжения и неожиданных поворотов. На работе Мартину поручили выполнить срочное задание. Однако для этого ему пришлось отправиться в дом своего Босса. И вот Мартин оказался один дома, посреди бескрайнего поля из подсолнуха. Все шло хорошо, пока не раздался (   Читать дальше...   )Тип издания: RepackРазработчик: Tropical GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4B54CB703858AE0334D73CADDE06FCE3EC49AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837146   (256641) от 15.11.2025
-
-Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Legend of Robin Hood (1990, 1991) [En] (1.001,1.1) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый интригующий и стойкий преступник всех времен оживает в самой насыщенной и сложной игре Sierra. Чтобы выжить, вы должны использовать сострадание так же мало, как остроумие и хитрость. Вооружившись логикой, креативностью и моральными суждениями, вы столкнетесь с одними из самых запутанных и сложных головоломок, которые вы когда-либо видели. Многие головоломки (   Читать дальше...   )Тип издания: LicenseРазработчик: SierraЖанр: Приключение, Квест, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BC53B859BFCB85B73FFEBD6BEE12202BAA3A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837154   (256638) от 15.11.2025
-
-Lumo (2016) [Ru/Multi] (2.4.0.6) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lumo, волшебный платформер повышенной степени уютности. Иногда для приключения не нужен повод, во всяком случае – серьезный. В самом деле, не все же время спасать миры! Вот у героя Lumo, к примеру, совсем простая задача: коротышка-волшебник очутился в огромном замке – не то в музее, не то в полной ловушек гробнице.Тип издания: LicenseРазработчик: Triple Eh? LtdЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB6B44363DBB0C7F831703C04E068EBB99C8D14
 ```
 
 https://mybot314.ru/tekegram_catalog/

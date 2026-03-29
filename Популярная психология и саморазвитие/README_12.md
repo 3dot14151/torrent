@@ -1,3 +1,86 @@
+###  Публикация: 1357229   (975454) от 02.02.2020
+
+Олеся Звагольская | Я – бренд. 3 шага к созданию личного бренда (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему мой коллега постоянно получает продвижение, а меня как будто не замечают? Почему мою подругу считают более популярной и обаятельной, хотя я не уступаю ей во внешности. Как мне себя вести, чтобы люди меня уважали? Ответы на все эти вопросы лежат в одном простом понятии — личный бренд. В этой книге мы разберем 3 простых шага, которые позволят создать свой личный (   Читать дальше...   )Жанр: Общая психологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA76F811D7376E3A19DC9F17A9AC1E0486821E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357262   (975381) от 02.02.2020
+
+Вера Янышева | Чистый мозг. Что будет, если выгнать всех «тараканов» и влюбиться в мечты (2020) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем хороша эта книга? Она для тех, кто не хочет или пока не может пойти к психологу и рассказать о том, что что-то не так. Что жизнь, как бракованный воздушный шарик, не радует. Что нет результатов, или они совсем не те, что мечталось. Что вообще не мечтается и «вообще все сложно». Пропали яркие, захватывающие дух желания и забылись таланты.
+
+Это не развлекательная (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF4D57A54CDC9A9B1B9A11CC5DD4A6323A8AF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357260   (975271) от 02.02.2020
+
+Чарлз Дахигг | Власть привычки. Почему мы живем и работаем именно так, а не иначе (2017) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лауреат Пулитцеровской премии Чарлз Дахигг открывает перед читателями увлекательный мир последних научных открытий, которые объясняют, как формируются и почему существуют привычки, а также то, как их можно изменить.
+Как «Starbucks» завоевывает своих клиентов?
+Возможно ли запрограммировать себя на победу?
+Влияют ли привычки одного человека на достижение общей цели?(   Читать дальше...   )Жанр: Зарубежная психология, Научно-популярная литература, О психологии популярноФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3395895F769AE53C3309F2B526C3085CA8D7E5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357329   (974212) от 03.02.2020
 
 Вера Янышева | Чистый мозг. Что будет, если выгнать всех «тараканов» и влюбиться в мечты (2020) [EPUB]
@@ -6,7 +89,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974212.jpg" />
 </div>
 
 
@@ -33,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974208.jpg" />
 </div>
 
 
@@ -59,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973000.jpg" />
 </div>
 
 
@@ -86,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972953.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972848.jpg" />
 </div>
 
 
@@ -139,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972785.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972021.jpg" />
 </div>
 
 
@@ -192,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971862.jpg" />
 </div>
 
 
@@ -218,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971815.jpg" />
 </div>
 
 
@@ -244,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971811.jpg" />
 </div>
 
 
@@ -270,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971730.jpg" />
 </div>
 
 
@@ -296,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971728.jpg" />
 </div>
 
 
@@ -323,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971721.jpg" />
 </div>
 
 
@@ -349,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971693.jpg" />
 </div>
 
 
@@ -377,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971679.jpg" />
 </div>
 
 
@@ -403,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970560.jpg" />
 </div>
 
 
@@ -429,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969649.jpg" />
 </div>
 
 
@@ -455,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969337.jpg" />
 </div>
 
 
@@ -481,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968703.jpg" />
 </div>
 
 
@@ -508,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968464.jpg" />
 </div>
 
 
@@ -536,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968280.jpg" />
 </div>
 
 
@@ -564,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968270.jpg" />
 </div>
 
 
@@ -590,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967748.jpg" />
 </div>
 
 
@@ -601,86 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38D268FBF5CF7E3674F0A0F3328EBB20F6FE2878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976994   (967741) от 19.01.2016
-
-Отто Ранк | Травма рождения и ее значение для психоанализа (2009) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967741.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей фундаментальной работе классик психоанализа подробно разбирает неизбежный и самый глубокий травматический опыт в жизни каждого человека – травму рождения. В ней он видит важнейший элемент психического развития, а также корень всех страхов и неврозов, и рассматривает желание вернуться во внутриутробное состояние как основополагающую силу, управляющую психической (   Читать дальше...   )Жанр: Психология, психотерапия и консультированиеФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B7B2411533ECA2AB9F8267F14282E07F294A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977130   (967673) от 19.01.2016
-
-Аманда Палмер | Хватит ныть. Начни просить (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аманда считает, что люди слишком много бояться, в особенности попросить о помощи, и это парализует их жизнь, не дает им сдвинуться с мертвой точки.
-
-В книге «Хватит ныть. Начни просить» Палмер анализирует эти барьеры, страх попросить и быть отвергнутым, как в своей жизни, так и в жизни ее окружения и обнаруживает эмоциональные, философские и практические аспекты (   Читать дальше...   )Жанр: Психология общения, межличностные коммуникацииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE20260188FC80DA58628F295615626E26C6E2DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977015   (967672) от 19.01.2016
-
-Зигмунд Фрейд | Психопатология обыденной жизни. Толкование сновидений. Пять лекций о психоанализе (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зигмунд Фрейд – знаменитый австрийский ученый, психиатр и невролог, основатель психоанализа. Его новаторские идеи, критиковавшиеся в научном сообществе, тем не менее оказали огромное влияние на психологию, медицину, социологию, антропологию, литературу и искусство XX века. Среди крупнейших достижений Фрейда: обоснование понятия «бессознательное», разработка теории (   Читать дальше...   )Жанр: Психология, психотерапия и консультированиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939C1F3BE855E7C21213F659FB0EDA7F2568CAF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 204508   (759502) от 27.05.2010
+
+Анантачарйей | Жизнь Рамануджи [2010] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основным источником сведений о жизни Рамануджйи является книга, которая называется Прапаннамрита; она написана на санскрите Анантачарйей, потомком Андхрапурны. Существуют некоторые разногласия относительно того, когда именно появилась эта книга. Некоторые ученые пытались доказать, что она написана уже в семнадцатом столетии, но большинство авторитетов сходятся на том, что ее автор был младшим современником Рамануджи и поэтому мог собрать материал «из первых рук».
+
+В Прапаннамрите сто двадцать шесть глав, первые шестьдесят восемь из которых описывают жизнь Рамануджачарйи. Остальные пятьдесят восемь относятся к жизни Йамуначарйи, Натхамуни и других вайшнавов южной Индии. На эту книгу ссылается Шрила Прабхупада, упоминая о жизни Рамануджачарйи в своих комментариях на Чайтанйа-чаритамрту.Жанр: Аудиокнига
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017637   (759090) от 18.05.2016
 
 Апостол Марк | Евангелие от Марка (2009) [MP3]
@@ -6,7 +34,7 @@
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759090.jpg" />
+  <img src="Z:/picture/008/save_picture_759090.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753174.jpg" />
+  <img src="Z:/picture/008/save_picture_753174.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751951.jpg" />
+  <img src="Z:/picture/008/save_picture_751951.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751227.jpg" />
+  <img src="Z:/picture/008/save_picture_751227.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745252.jpg" />
+  <img src="Z:/picture/005/save_picture_745252.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743341.jpg" />
+  <img src="Z:/picture/008/save_picture_743341.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743100.jpg" />
+  <img src="Z:/picture/008/save_picture_743100.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733976.jpg" />
+  <img src="Z:/picture/008/save_picture_733976.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732551.jpg" />
+  <img src="Z:/picture/008/save_picture_732551.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729140.jpg" />
+  <img src="Z:/picture/008/save_picture_729140.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720233.jpg" />
+  <img src="Z:/picture/008/save_picture_720233.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713216.jpg" />
+  <img src="Z:/picture/008/save_picture_713216.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707933.jpg" />
+  <img src="Z:/picture/008/save_picture_707933.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707849.jpg" />
+  <img src="Z:/picture/008/save_picture_707849.jpg" />
 </div>
 
 
@@ -370,6 +398,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334473   (687106) от 10.05.2011
+
+Олег Торсунов | Развитие Разума [2011] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_687106.jpg" />
+</div>
+
+
+###  Подробнее
+
+семинар Развитие Разума прочитанный Олегом Геннадиевичем Торсуновым с 15 по 17 апреля 2011 г. в Новосибирске, ДК Прогресс, Красный проспект, 167.
+1. Строение разума и функции разума: Тонкое строение человека, Материальный и духовный разум, Тонкое строение разума, Функции духовного и материального разума.
+2. Взаимодействие разума с умом, чувствами, психической энергией. Уровни сознания, Виды знания, Нарушение функции разума и связанные с этим болезни.
+3. Черты характера связанные с разумом. Разум и силы природы. Классификация черт характера, связанных с разумом. Эволюция разума, Последовательное развинтите черт характера при становлении разума, Разум и отрицательные черты характера, Деградация разума. Разум в благости. Разум в страсти. Разум в невежестве. Разум и закон кармы. Разум и закон перевоплощения.
+4. Развитие разума. Что такое йога разума. Физические упражнения тренирующие разум. Психические упражнения тренирующие разум. Влияние общения на развитие разума. Разум и режим дня. Разум и молитва.Жанр: ведическая психология
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7694D3B81808FCA0DC1CF65A29B76B8D3CB04D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506624   (685684) от 07.06.2012
 
 Даниловский Благовестник | Житие великомученика и целителя Пантелеимона с Акафистом [2012] [MP3]
@@ -378,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685684.jpg" />
+  <img src="Z:/picture/008/save_picture_685684.jpg" />
 </div>
 
 
@@ -405,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678180.jpg" />
+  <img src="Z:/picture/008/save_picture_678180.jpg" />
 </div>
 
 
@@ -431,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673902.jpg" />
+  <img src="Z:/picture/008/save_picture_673902.jpg" />
 </div>
 
 
@@ -457,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667694.jpg" />
+  <img src="Z:/picture/008/save_picture_667694.jpg" />
 </div>
 
 
@@ -483,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622184.jpg" />
+  <img src="Z:/picture/008/save_picture_622184.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620855.jpg" />
+  <img src="Z:/picture/008/save_picture_620855.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613270.jpg" />
+  <img src="Z:/picture/008/save_picture_613270.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603571.jpg" />
+  <img src="Z:/picture/008/save_picture_603571.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583831.jpg" />
+  <img src="Z:/picture/008/save_picture_583831.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576406.jpg" />
+  <img src="Z:/picture/008/save_picture_576406.jpg" />
 </div>
 
 
@@ -636,58 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3291E29C2C9CF96E2B55EAE54AA05ED6EE2C7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151317   (568706) от 21.07.2017
-
-Александра Николаевна Бахметева | Рассказы из русской церковной истории. Часть 2 (2017) [MP3]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия АРДИС предлагает вашему вниманию книгу Александры Николаевны Бахметевой, популярной в XIX веке писательницы. Она была дружна с Гоголем и Тургеневым, Станкевичем и Огаревым, состояла почётным членом Общества любителей российской словесности, много занималась благотворительностью. Сочинения Бахметевой многократно переиздавались до 1917 г., она известна как талантливый (   Читать дальше...   )Жанр: История православной церквиПродолжительность: 12:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DFA3DEBC78228DCC8626953110E6F49D9D2A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151278   (568698) от 21.07.2017
-
-Александра Николаевна Бахметева | Рассказы из русской церковной истории. Часть 1 (2017) [MP3]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия АРДИС предлагает вашему вниманию книгу Александры Николаевны Бахметевой, популярной в XIX веке писательницы. Она была дружна с Гоголем и Тургеневым, Станкевичем и Огаревым, состояла почётным членом Общества любителей российской словесности, много занималась благотворительностью. Сочинения Бахметевой многократно переиздавались до 1917 г., она известна как талантливый (   Читать дальше...   )Жанр: История православной церквиПродолжительность: 15:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657985D8DAF1FACE26F56C68DC960444E4537669
 ```
 
 https://mybot314.ru/tekegram_catalog/

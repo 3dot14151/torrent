@@ -6,7 +6,7 @@ Devil You Know - They Bleed Red (2015) [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346832.jpg" />
+  <img src="Z:/picture/008/save_picture_346832.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lacrimosa - Hoffnung (2015) [MP3|320 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346486.jpg" />
+  <img src="Z:/picture/008/save_picture_346486.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Saber - Without Warning (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345853.jpg" />
+  <img src="Z:/picture/008/save_picture_345853.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Helloween - United Alive In Madrid (2019) Live [MP3|320 kbps] <Heavy Metal, Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345608.jpg" />
+  <img src="Z:/picture/008/save_picture_345608.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ne Obliviscaris - Urn (2017) [MP3|320 Kbps] <Melodic Black Metal, Progressive De
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344577.jpg" />
+  <img src="Z:/picture/008/save_picture_344577.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Moonspell - 1755 (2017) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344438.jpg" />
+  <img src="Z:/picture/008/save_picture_344438.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Skrik - 5 Relises (2017-2022) [MP3|320 Kbps] <Crust Hardcore, Metallic Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343372.jpg" />
+  <img src="Z:/picture/008/save_picture_343372.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sleeping Romance - Alba (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342638.jpg" />
+  <img src="Z:/picture/008/save_picture_342638.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ F.K.U. - 1981 (an original soundtrack) (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342635.jpg" />
+  <img src="Z:/picture/008/save_picture_342635.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kings Of High Iron - Sting Of Steel (2020) [MP3|320 Kbps] <Heavy Metal, Hard Roc
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342188.jpg" />
+  <img src="Z:/picture/008/save_picture_342188.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dark Moor - Project X (2015) Deluxe Edition [MP3|320 кб/с]<Symphonic Metal, M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342148.jpg" />
+  <img src="Z:/picture/008/save_picture_342148.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Annihilator - For The Demented (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342069.jpg" />
+  <img src="Z:/picture/008/save_picture_342069.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Amaranthe - Helix (2018) Japanese Edition [MP3|320 кб/с]<Modern Melodic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340892.jpg" />
+  <img src="Z:/picture/008/save_picture_340892.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ A Sense of Gravity - Atrament (2016) [MP3|320 Kbps] <Progressive Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340742.jpg" />
+  <img src="Z:/picture/008/save_picture_340742.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Devilment - II - The Mephisto Waltzes (2016) [MP3|320 Kbps] <Extreme Metal, Goth
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340544.jpg" />
+  <img src="Z:/picture/008/save_picture_340544.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Diabulus In Musica - Dirge For The Archons (2016) [MP3|320 Kbps] <Symphonic Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340540.jpg" />
+  <img src="Z:/picture/008/save_picture_340540.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lamb Of God - The Duke (2016) EP [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340365.jpg" />
+  <img src="Z:/picture/008/save_picture_340365.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Candiria - While They Were Sleeping (2016) [MP3|320 Kbps] <Progressive, Experime
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339012.jpg" />
+  <img src="Z:/picture/008/save_picture_339012.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Arkan - Kelem (2016) [MP3|320 Kbps] <Oriental Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338602.jpg" />
+  <img src="Z:/picture/008/save_picture_338602.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dark Sarah - The Puzzle (2016) [MP3|320 Kbps] <Symphonic Metal, Neo-Classical Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338203.jpg" />
+  <img src="Z:/picture/008/save_picture_338203.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Godsnake - Poison Thorn (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337814.jpg" />
+  <img src="Z:/picture/008/save_picture_337814.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Armored Saint - Punching The Sky (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337801.jpg" />
+  <img src="Z:/picture/008/save_picture_337801.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Bullet-Proof - De-Generation (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337651.jpg" />
+  <img src="Z:/picture/008/save_picture_337651.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VoidOath - 2 Albums (2020-2022) [MP3|320 Kbps] <Doom, Death, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336611.jpg" />
+  <img src="Z:/picture/008/save_picture_336611.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Eye of Void - Eye of Void (2022) [Mp3|320 kbps] <Stoner Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336608.jpg" />
+  <img src="Z:/picture/008/save_picture_336608.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Another Now - 5 Albums (2020-2022) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336420.jpg" />
+  <img src="Z:/picture/008/save_picture_336420.jpg" />
 </div>
 
 

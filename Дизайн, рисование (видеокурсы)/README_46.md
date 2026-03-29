@@ -1,3 +1,29 @@
+###  Публикация: 1555404   (383147) от 06.09.2022
+
+Udemy, Nikolay Naydenov | Demon Huntress in Blender Course (2022) PCRec [EN / EN Sub]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_383147.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе по созданию 3D-персонажа в Blender мы пройдем через процесс создания слегка стилизованного женского персонажа с доспехами и готовыми к 3D-печати волосами, сделаем позу для неё, создадим некоторые материалы и освещение, а также создадим рендеры и видеоролик для вашего портфолио. В курсе будет много советов по анатомии женского лица и тела, а также разобраны (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 23:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4639E609BA77BAE5352F8570C5A24DD2DA1E1816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414598   (382883) от 09.10.2020
 
 [CG School] Андрей Заморский | VFX pack - 2 (fire - smoke) (2015) PCRec
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382883.jpg" />
+  <img src="Z:/picture/008/save_picture_382883.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Chris Thomas | Particle Flow Fundamentals 4: Tests, Forces & Collisions (2004) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381422.jpg" />
+  <img src="Z:/picture/008/save_picture_381422.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Chris Thomas | Particle Flow Fundamentals 3: Operators 2 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381418.jpg" />
+  <img src="Z:/picture/008/save_picture_381418.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Chris Thomas | Particle Flow Fundamentals 5: Practical Examples (2004) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381325.jpg" />
+  <img src="Z:/picture/008/save_picture_381325.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Chris Thomas | Particle Flow Fundamentals 2: Operators 1 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381267.jpg" />
+  <img src="Z:/picture/008/save_picture_381267.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Chris Thomas | Particle Flow Fundamentals 1: Principles and Workflow (2004) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381023.jpg" />
+  <img src="Z:/picture/008/save_picture_381023.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Wayne Hollingsworth | Введение в Maya Fluid Effects. Часть 2 /  In
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380896.jpg" />
+  <img src="Z:/picture/008/save_picture_380896.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380603.jpg" />
+  <img src="Z:/picture/008/save_picture_380603.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Hristo Velev | Thinking Particles. Часть 2 - Промежуточные к�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378589.jpg" />
+  <img src="Z:/picture/008/save_picture_378589.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Skillshare, 3D Tudor | Unreal Engine 5 Beginners Guide to Building an Environmen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378586.jpg" />
+  <img src="Z:/picture/008/save_picture_378586.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Joshua Kinney | Map Baking Techniques for Games in 3ds Max (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378414.jpg" />
+  <img src="Z:/picture/008/save_picture_378414.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378412.jpg" />
+  <img src="Z:/picture/008/save_picture_378412.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378408.jpg" />
+  <img src="Z:/picture/008/save_picture_378408.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378246.jpg" />
+  <img src="Z:/picture/008/save_picture_378246.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Hristo Velev | Thinking Particles. Часть 1 - Всестороннее вв�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378239.jpg" />
+  <img src="Z:/picture/008/save_picture_378239.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Joshua Kinney | Automotive Modeling in 3ds Max (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378238.jpg" />
+  <img src="Z:/picture/008/save_picture_378238.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Tim Bergholz | Mech Tutorial Complete Edition (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378016.jpg" />
+  <img src="Z:/picture/008/save_picture_378016.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377987.jpg" />
+  <img src="Z:/picture/008/save_picture_377987.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Hai Phan | 3d Character Art for Games Volume 1-6 (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375892.jpg" />
+  <img src="Z:/picture/008/save_picture_375892.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Side FX, Moeen Sayed | VEX isn't scary (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375035.jpg" />
+  <img src="Z:/picture/008/save_picture_375035.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ CGMA, Patrick Yeung | Character Creation for Games (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374681.jpg" />
+  <img src="Z:/picture/008/save_picture_374681.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373981.jpg" />
+  <img src="Z:/picture/008/save_picture_373981.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373911.jpg" />
+  <img src="Z:/picture/008/save_picture_373911.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Blender Market, Josh Gambrell, Ponte Ryuurui | The Blender Bros Hard Surface Gam
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372315.jpg" />
+  <img src="Z:/picture/008/save_picture_372315.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Udemy, Dmitrii Fokeev | Теория дизайна - для веб дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372313.jpg" />
+  <img src="Z:/picture/008/save_picture_372313.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Udemy, Dmitrii Fokeev | Теория дизайна - для веб дизайн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E75918E7E9ABC7846EFB861B1EBA6AFA71CB939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416075   (371159) от 14.10.2020
-
-Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы освоите одно из самых востребованных направлений дизайна. Научитесь профессионально создавать визуальные эффекты, анимацию и 3D. Сделаете шоурил для портфолио, сможете начать карьеру в motion-дизайне и работать над новыми интересными проектами.Жанр: ДизайнПродолжительность: 72:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8408C9D6AD9C9520B5F62B4D2CBC1F795F53D959
 ```
 
 https://mybot314.ru/tekegram_catalog/

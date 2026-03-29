@@ -6,7 +6,7 @@ Blues and Bullets Ep. 1 v. 1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341556.jpg" />
+  <img src="Z:/picture/008/save_picture_341556.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Red Johnson's Chronicles [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339911.jpg" />
+  <img src="Z:/picture/005/save_picture_339911.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Afterparty v1.4.9 (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339448.jpg" />
+  <img src="Z:/picture/008/save_picture_339448.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ AternativA [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_337701.jpg" />
+  <img src="Z:/picture/005/save_picture_337701.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Face Noir. The Cat with Jade Eyes [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_337419.jpg" />
+  <img src="Z:/picture/005/save_picture_337419.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Carto v1.0.2 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337398.jpg" />
+  <img src="Z:/picture/008/save_picture_337398.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Never Alone Arctic Collection v. 2.0.0.1 (2014) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336668.jpg" />
+  <img src="Z:/picture/008/save_picture_336668.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ FAR: Lone Sails v. 1.21 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334403.jpg" />
+  <img src="Z:/picture/008/save_picture_334403.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Lilly Looking Through 1.1.50 (2014) [Ru/Multi] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333692.jpg" />
+  <img src="Z:/picture/008/save_picture_333692.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333260.jpg" />
+  <img src="Z:/picture/008/save_picture_333260.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332848.jpg" />
+  <img src="Z:/picture/008/save_picture_332848.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ The Baconing [Native] [RUS]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325695.jpg" />
+  <img src="Z:/picture/008/save_picture_325695.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Game of Thrones: A Telltale Games Series. Episode 1-6 v. 1.0 (2015) [En] [OS X N
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325476.jpg" />
+  <img src="Z:/picture/008/save_picture_325476.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Game of Thrones: A Telltale Games Series. Episode 1-6 v. 1.0 (2015) [Ru] [OS X N
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316213.jpg" />
+  <img src="Z:/picture/008/save_picture_316213.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Abandon Ship v1.3.14934 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315058.jpg" />
+  <img src="Z:/picture/008/save_picture_315058.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Memoranda  [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311834.jpg" />
+  <img src="Z:/picture/008/save_picture_311834.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ State of Mind  [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311678.jpg" />
+  <img src="Z:/picture/008/save_picture_311678.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Wasteland 2 Director's Cut v.2.3.0.5 (2014) [License GOG] [Multi/Ru] [macOS Nati
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302768.jpg" />
+  <img src="Z:/picture/008/save_picture_302768.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Silence - The Whispered World 2 (2016) [Multi/Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299567.jpg" />
+  <img src="Z:/picture/008/save_picture_299567.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Deponia 3.2.5.1333 (2014) [Multi/Ru] [AppStore]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295503.jpg" />
+  <img src="Z:/picture/008/save_picture_295503.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Manual Samuel (2016) [Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288128.jpg" />
+  <img src="Z:/picture/008/save_picture_288128.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ The Walking Dead: Michonne - Episode 1 (2016) [Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285910.jpg" />
+  <img src="Z:/picture/008/save_picture_285910.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285575.jpg" />
+  <img src="Z:/picture/008/save_picture_285575.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Chaos on Deponia (2014) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284450.jpg" />
+  <img src="Z:/picture/008/save_picture_284450.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Worms 3d (2003) [Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280023.jpg" />
+  <img src="Z:/picture/008/save_picture_280023.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278593.jpg" />
+  <img src="Z:/picture/008/save_picture_278593.jpg" />
 </div>
 
 

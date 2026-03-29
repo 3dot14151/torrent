@@ -1,3 +1,83 @@
+###  Публикация: 614215   (981301) от 05.02.2013
+
+NG: Снежный барс Афганистана / NG: Snow Leopard of Afghanistan (2012) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общество охраны дикой природы совместно с National Geographic объединяются для того, чтобы сделать то, что никому ранее не удавалось: с помощью специальных ошейников и приспособлений изучить жизнь неуловимого и удивительно красивого животного – снежного барса Афганистана. Горная экспедиция общества охраны дикой природы в зону войны – это настоящий вызов здравому смыслу. Кроме того, регион, в котором обирают снежные барсы является лавиноопасным регионом, с возможному неожиданными снежными буранами и резкими перепадами температур. Команда, путешествующая из Кабула в дом снежного барса в горах на северо-востоке Афганистана, сталкивается с множеством проблем. Неисправное и потерянное оборудование, резкое изменение погоды и угроза нападения талибов могут стать причинами задержек и помешать исследователям найти снежного барса. Тем не менее, они находят снежного барса – первого в истории афганского барса, которого удалось поймать и с помощью специального оборудования начать исследование его жизни, которое позволит собрать (   Читать дальше...   )Жанр: Документальный, фаунаПеревод: ДублированныйПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938D0CEEDF3031FE975F56D96F548DC82E950972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355763   (980894) от 28.01.2020
+
+NG. Мухи и пиявки (мерзкие существа) / Flies and leeches (2004) TVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они представляют собой мерзких и грязных созданий и их никто не любит. Но у них есть своя ниша в нашей жизни, и они живут рядом с нами. И людям ничего не остается, как признать этот факт и попытаться использовать их для своих нужд. Документальное повествование посвящено мухам и пиявкам, их жизни, использования для людей в области медицины и криминалистики.Производство: США, Explorer, National GeographicЖанр: Документальный, научно-популярный, фаунаРежиссер: Джеф МоралесПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A563B93E61924D305A43907C44B18296A0E9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974303   (976701) от 11.01.2016
+
+National Geographic: Сканеры древнего мира. Египетские пирамиды / Time scanners. Egyptian pyramids (2013) HDTVRip [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976701.jpg" />
+</div>
+
+
+###  Подробнее
+
+В документальном фильме «Сканеры древнего мира» используется передовая технология трехмерного лазерного сканирования, которая позволяет раскрыть секреты самых примечательных построек мира.
+Команда едет в Египет узнать о том, как пирамиды превратились из простых глинобитных построек в самые величественные сооружения Древнего мира.Телекомпания: National GeographicЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
+Студия АРК-ТВ, Игорь ТарадайкинПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C76B0F99CD5A44BE367637E0D1BD576B499FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616334   (976622) от 09.02.2013
 
 NG. Семейное оружие: Ковбойская перестрелка / NG. Marital weapons: Cowboy Shootout (2013) SATRip
@@ -6,7 +86,7 @@ NG. Семейное оружие: Ковбойская перестрелка /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976622.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976507.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ NG. Суперсооружения Третьего рейха (1 сезон, 6 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975127.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974344.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974283.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974271.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973021.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ NG. Осушить океан: корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972947.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972888.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971762.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971749.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971696.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ NG: Апокалипсис: Вторая мировая война: Развяз
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970602.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ NG: Запреты. Опознавательные знаки / Taboo. Marks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970584.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970288.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ National Geographic: Расследования авиакатастроф. См
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969600.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ NG: Расследования авиакатастроф: Посадка на �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969430.jpg" />
 </div>
 
 
@@ -448,7 +528,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965961.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952119.jpg" />
 </div>
 
 
@@ -500,7 +580,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952103.jpg" />
 </div>
 
 
@@ -526,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946651.jpg" />
 </div>
 
 
@@ -552,7 +632,7 @@ NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942475.jpg" />
 </div>
 
 
@@ -578,7 +658,7 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936203.jpg" />
 </div>
 
 
@@ -589,84 +669,6 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF45F6CA915873BFFFA356B9DFC0A9CF95EBD8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364588   (936193) от 03.03.2020
-
-NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти змеи - настоящие супер-сыщики, тихие и смертельно опасные хищники, которые буквально выжимают жизнь из своих жертв. Они самые большие, смелые и, возможно, самые величественные в мире змей. В этой серии мы исследуем образ жизни и эволюцию одних из самых крупных змей в мире - удавов!Производство: США, Wildbear Entertainment, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Мартин БекерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AC745EB80605E2A862BD8C160FB7A88EF5690B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285052   (935956) от 20.01.2011
-
-NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (2010) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_935956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фашисткой Германии были созданы одни из самых разрушительных видов оружия на земле. Огромные пушки, высокотехнологичные ракеты и передовые реактивные истребители. Fritz X - прообраз современной "умной бомбы", была совершенно секретной бомбой Адольфа Гитлера. Завеса тайны скрывает один из последних секретов Второй мировой войны. Могла ли бомба нацистов изменить ее исход? В этом фильме немецкие и американские авиационные эксперты воскресят новаторское оружие Третьего рейха. Они проведут смелый эксперимент в глубине калифорнийской пустыни - сбросят две модели высокоточной бомбы нацистов...Жанр: ДокументальныйПеревод: Профессиональный (полное дублирование) + Профессиональное (одноголосое)Формат: AVIПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822006CC7EEC7BEDEDBE03E793BAB2E33FCECB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095126   (926037) от 20.01.2017
-
-Королевы гадюк / Viper Queens (2016) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926037.jpg" />
-</div>
-
-
-###  Подробнее
-
-От пустынь Юго-Запада США до джунглей и деревень Африки, гадюки печально известны своим скверным нравом. треугольными головами, и само длинными клыками среди своих сородичей на Земле. Но эти супер змеи не просто семейство хладнокровных убийц. Самки проявляют мягкость , когда речь заходит о семье. Телма , Велвет и Нала - гадюки трёх видов и их объединяет одно, материнский (   Читать дальше...   )Телекомпания: СШАЖанр: Документальный, фаунаРежиссер: Джесика КоннеллПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3764553EE2FD1F505459CB589F0EC2E33DDD26
 ```
 
 https://mybot314.ru/tekegram_catalog/

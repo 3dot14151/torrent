@@ -1,3 +1,235 @@
+###  Публикация: 1795469   (67066) от 04.05.2025
+
+Eric Bell - Authenticity (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Some Girls (3:16)
+02.  Walk On Water (5:23)
+03.  Tales Of Thin Lizzy (3:15)
+04.  Honeycomb Nights (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B74DA9231EB5E82EF78A6B05CF58A8B973DE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797017   (66888) от 13.05.2025
+
+Terry Hanck - Grease to Gravy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Let the Green Grass Fool You (4:52)
+02.  If a Politician Was a Doctor (4:06)
+03.  Best Years of My Life (5:15)
+04.  Come Back Baby (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3321EBD722F266F2E09A39E3BF467B8104EBB489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796999   (66885) от 13.05.2025
+
+Dudley Taft - 15 Greatest Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Flying on Love (3:43)
+02.  Screaming in the Wind (4:17)
+03.  Skin and Bones (3:59)
+04.  Favorite Things (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CC6BCCBD3B69C3BD26CBEB32FE703B50595C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796995   (66883) от 13.05.2025
+
+Cottonfield Blues - Rust & Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Moon Lament (3:44)
+02.  Cold Whiskey Nights (4:25)
+03.  Dust and Broken Dreams (3:34)
+04.  Echoes in the Alley (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941CE06C12BA04C4606E3EA70C940F0CF977B26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797016   (66879) от 13.05.2025
+
+Stratcat Willie & the Strays - Don't Slow Down! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Ain't Got Nothin' (4:59)
+02.  Demons Within (3:52)
+03.  Slow Down (3:31)
+04.  Go on Home (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C3B03644AC03FBB29AA61750C5917BD0596E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796992   (66872) от 13.05.2025
+
+Aki Kumar - God Bless The USA (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Should I Stay (3:18)
+02.  A Plea to Be Free (4:06)
+03.  I Just Want to Make Love (2:58)
+04.  Jarvos Woman (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210044649865A42C39D38499C4550DFA80A8C6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796994   (66871) от 13.05.2025
+
+Catfish John Tisdell - Back to the Dirt (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Third Rate Romance (4:37)
+02.  Today I Started Loving You Again (5:02)
+03.  Honky-Tonk Man (3:14)
+04.  I Think I'll Just Stay Here and Drink (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771AAAB82B13392E779071EDB3FD4986A1EDD374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797003   (66870) от 13.05.2025
+
+John Primer - Grown in Mississippi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John's Blues Holler (1:30)
+02.  Born in Mississippi (3:32)
+03.  Blues Before Sunrise (5:36)
+04.  Down in the Bottom (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4DA533618A4F28436D1C4ECCB4B95468DA8D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796993   (66867) от 13.05.2025
 
 Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +238,7 @@ Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66867.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Noel Evans - AZTEC MOON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66866.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Dave Packham - The Wedding Dance (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66865.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ JB & The Huggeli - The Blues Supadupa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66864.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Crystal Shawanda - Sing Pretty Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66862.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ MHMM - Do Not Disturb (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66860.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Ruthie Foster - Mileage (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66859.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Mako, Kanoa - Blues in the Bar (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66732.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Brad "Guitar" Wilson - The Californian (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66731.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Bernie Marsden - Icons (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66728.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Voodoo Ramble - In the Heart of the City (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66726.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Kinland Station - Electric! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66712.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Alison Joy Williams - How You Look At Things (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66711.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Heitor Neves - Bandoo Blues (Live at ForestLab) (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66704.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Mama Lucky - Linda Sue and Dorothy Jean (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66701.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Frode Wassvik - Sense Of Spring (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66699.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Andy B. AND SoulFolk - Tellin' Myself Weird Li'l Stories (2025) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66698.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Aretha Franklin - Respect And Other Hits (1997) CD, Compilation [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66679.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Aretha Franklin - Respect And Other Hits (1997) CD, Compilation [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7AB43C44BA187AE90689AC5CCE3B5EEFBF77486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799432   (66463) от 27.05.2025
-
-VA - Bongo Boy Records Backroom Blues, Vol. 13 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The New Bardots - Born Ready (3:46)
-02.  Sapphire Star Studios - Homeward Bound (3:30)
-03.  Covid Recovery Ministry - Crocodile Sunset (4:55)
-04.  Ann M. Wolf - Is There Any Room, Anymore for Love? (4:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9455C41998A86DB424825B8D2EF94653BEA916BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799761   (66403) от 29.05.2025
-
-Pino Scotto - The Devil's Call (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  No Fear No Shame (4:41)
-02.  Phantom Humanity (4:06)
-03.  Catch 22 (3:48)
-04.  A Dozen Souls (5:37)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2231419769E2EE02B417C599E4D653B9224621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799759   (66394) от 29.05.2025
-
-Loop of Boom - Human Artifacts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Devil (3:43)
-02.  Cause Worth All (2:49)
-03.  Maze (4:34)
-04.  Eastport Thing (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF8D9508D86B7CC2E742E2B07F42BEC19668620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799757   (66393) от 29.05.2025
-
-John Elijah - Take and Give (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heart Goes Boom (3:42)
-02.  The Giver (4:56)
-03.  Ghost Of My Past (3:25)
-04.  I'm Old (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E471612375E2F7ADF5418F1160854DE8821CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799765   (66388) от 29.05.2025
-
-Sam Ghezzi - Bad Boy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Drop Anchor (2:08)
-02.  I'm Lost Without You (2:30)
-03.  Bad Boy (3:52)
-04.  The Seventh Son (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F413B676B89B805210E1D28D10DED7CC88CB98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799758   (66381) от 29.05.2025
-
-John Stewart Simpson and Old Brown Dog - Chasing the Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ride On (5:23)
-02.  Enjoy the Ride (6:21)
-03.  Mekong Girl (4:40)
-04.  Not a Bad Night to Die (6:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E08AA243DABEEE492FDA8047A26428F0BA5F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799937   (66374) от 30.05.2025
-
-Teskey - White Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Under the Sun (3:25)
-02.  Cast Aside Child (4:40)
-03.  Upside Down World (5:04)
-04.  Don't Take My Angel (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF60935F384E8955E7E32B8766A527031BB975E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799932   (66359) от 30.05.2025
-
-Catfish John Tisdell - Somethin' To Feel (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Somethin' To Feel (3:13)
-02.  Chrome and Trouble (3:55)
-03.  Long Way Down (3:13)
-04.  Blues In Paradise (rock version) (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACD2CD55A7798024CA5E747B7B4F33AD344D094
 ```
 
 https://mybot314.ru/tekegram_catalog/

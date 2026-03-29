@@ -1,3 +1,148 @@
+###  Публикация: 1506040   (801808) от 29.10.2021
+
+Little Hag - Leash (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Whole World (00:04:15)
+02 - Cherry (00:03:59)
+03 - Blood (00:03:01)
+04 - Leash (00:03:07)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B958C3BB964C3D28F41CCFC1913985E9AD1597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384577   (801752) от 21.05.2020
+
+Anubis - Different Stories (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Passing Bell (13:20)
+02. The Deepest Wound (04:29)
+03. Fool's Gold (06:34)
+04. Dead Trees (07:21)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:0948
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25384215D0D71F4F2C6A7E3CEA345F61DAB8A5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506029   (801746) от 29.10.2021
+
+Dymond Bright - Rebirth Of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rebirth Of Light (00:05:25)
+02 - Walk In Pride (00:03:30)
+03 - Voices From The Past (00:04:44)
+04 - Save The World Today (00:04:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5474A2DFB8B269E88AA83BA9FB537B4065A18FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506035   (801740) от 29.10.2021
+
+John E Vistic - Under The Volcano (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Sublime Architecture of Death (00:04:26)
+02 - The King of Rock N Roll (00:03:34)
+03 - Psycho Death Kult (00:03:33)
+04 - It's Nature (00:03:53)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529E1C55BF0FC85D0E9F9B06CB2E2B1C7C9BE1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505979   (801735) от 29.10.2021
+
+This Winter Machine - Kites (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Le Jour D'avant (00:01:40)
+02 - The Storm (Part I) (00:05:37)
+03 - The Storm (Part II) (00:04:36)
+04 - Limited (00:02:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BE9AA2CD10333D704E5BC5118D67A20A7DF802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505958   (801649) от 29.10.2021
 
 Ringo Starr - Zoom In (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <Pop Rock, Classic Rock, Rock'N'Roll>
@@ -6,7 +151,7 @@ Ringo Starr - Zoom In (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801649.jpg" />
+  <img src="Z:/picture/008/save_picture_801649.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Compact Disc Club - The Rock Party [4CD Box Set] (1996) [FLAC|Lossless]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801547.jpg" />
+  <img src="Z:/picture/008/save_picture_801547.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Elektradrive - Elektradrive (1995) [APE|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801283.jpg" />
+  <img src="Z:/picture/008/save_picture_801283.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ The Four Horsemen - Nobody Said It Was Easy (1991) [APE|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801266.jpg" />
+  <img src="Z:/picture/008/save_picture_801266.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Grand Funk - All The Girls In The World Beware!!! (1974) remaster, 2017, Hybrid 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801227.jpg" />
+  <img src="Z:/picture/008/save_picture_801227.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Bob Dylan - Triplicate (2017) 3CD Digipack [FLAC|Lossless|tracks + .cue] <Folk-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801217.jpg" />
+  <img src="Z:/picture/008/save_picture_801217.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Grand Funk - Shinin' On (1974) remaster, 2017, Hybrid SACD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801215.jpg" />
+  <img src="Z:/picture/008/save_picture_801215.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Fleetwood Mac - Tango In The Night (2017) 3CD, Deluxe Edition [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801210.jpg" />
+  <img src="Z:/picture/008/save_picture_801210.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ James LaBrie's Mullmuzzler - Mullmuzzler 2 (2001) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801111.jpg" />
+  <img src="Z:/picture/008/save_picture_801111.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ The Doobie Brothers - Extended Versions (2006) [FLAC|Lossless|image + .cue] <Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801099.jpg" />
+  <img src="Z:/picture/008/save_picture_801099.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ The Age of Truth - Threshold (2017) [FLAC|Lossless|tracks + .cue] <Stoner Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801086.jpg" />
+  <img src="Z:/picture/008/save_picture_801086.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ Legacy Pilots - The Penrose Triangle (2021) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800978.jpg" />
+  <img src="Z:/picture/008/save_picture_800978.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ The Lucid Furs - Damn! That Was Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800893.jpg" />
+  <img src="Z:/picture/008/save_picture_800893.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Enhanced, Remastered,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800870.jpg" />
+  <img src="Z:/picture/008/save_picture_800870.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ PSI - Horizonte (1977) 2016, Poland, GAD Records/Chickadisc [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800599.jpg" />
+  <img src="Z:/picture/008/save_picture_800599.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ Pavlov's Dog - At The Sound Of The Bell (1976) [FLAC|Lossless|image + .cue]<Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800333.jpg" />
+  <img src="Z:/picture/008/save_picture_800333.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800283.jpg" />
+  <img src="Z:/picture/008/save_picture_800283.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ The Johnny Van Zant Band - No More Dirty Deals (1980) Reissue, 2006, Rock Candy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800110.jpg" />
+  <img src="Z:/picture/008/save_picture_800110.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ BrainStorm - Год без календаря (2021) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800094.jpg" />
+  <img src="Z:/picture/008/save_picture_800094.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ The Immediate Family - The Immediate Family (2021) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799992.jpg" />
+  <img src="Z:/picture/008/save_picture_799992.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ Phenomena - Innervision (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799893.jpg" />
+  <img src="Z:/picture/008/save_picture_799893.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ Phenomena - Innervision (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAB8704031CCBFF95800B612DFA8AED8007E0E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121141   (799670) от 03.04.2017
-
-Alaska - The Bronze Years (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799670.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Run With the Pack (Badhams, Hawthorn, Marsden) 3:49
-2.Woman Like You (Badhams) 3:37
-3.Where Did They Go (Bonneville Blues) (Badhams, Hawthorn, Marsden) 4:41
-4.School Girl (Hawthorn, Marsden, Sinfield) 5:07(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B746A36254B5598E3491FC0F4D84539AF456504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121502   (799620) от 03.04.2017
-
-Tommy Shaw - 7 Deadly Zens (1998) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ocean
-02 - Stop Knockin'
-03 - All In How You Say It
-04 - What Do You Want From Life(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990F1641BF9C6A0D322181C0D62B7CF87478C22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121664   (799587) от 03.04.2017
-
-The Doors - The Doors (50th Anniversary Deluxe Edition) (1967) 3CD, Remastered, 2017 [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799587.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1.
-01/11. Break On Through (To The Other Side) (Original Stereo Mix) (2:30)
- 02/11. Soul Kitchen (Original Stereo Mix) (3:35)
- 03/11. The Crystal Ship (Original Stereo Mix) (2:34)(   Читать дальше...   )Жанр: RockПродолжительность: 02:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438EA203F0E2C81C7CEB6E7F4CDB741500531D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506753   (799540) от 01.11.2021
-
-Others by No One - Book II: Where Stories Come From (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal, Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Counting Raindrops
-02. An Artwork; Clandestine
-03. A Reverie to Quell the Giants
-04. Right Side of the Brain(   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, Rock OperaПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6614553C7EA7CE3C3933F4B64AAA3E52EFAF0A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506760   (799499) от 01.11.2021
-
-Sonus Orbis - Anthropoid Notion (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apsophetos (05:29)
-02. No Country Man (07:07)
-03. Strangers (06:58)
-04. Owner of the World (04:22)(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA6AB30D0AECB64430D93D2BC88E5AE094676AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

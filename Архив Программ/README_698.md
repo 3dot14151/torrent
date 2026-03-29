@@ -6,7 +6,7 @@ PrivaZer 2.31.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697408.jpg" />
+  <img src="Z:/picture/008/save_picture_697408.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ SMPlayer 22.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697401.jpg" />
+  <img src="Z:/picture/008/save_picture_697401.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MediaHuman YouTube Downloader 3.9.9.13 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697378.jpg" />
+  <img src="Z:/picture/008/save_picture_697378.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Movavi Screen Recorder 11.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697323.jpg" />
+  <img src="Z:/picture/008/save_picture_697323.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ BitTorrent Stable 7.10.5 build 44995 Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697263.jpg" />
+  <img src="Z:/picture/008/save_picture_697263.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Adobe Flash Player 18.0.0.114 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697186.jpg" />
+  <img src="Z:/picture/008/save_picture_697186.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Advanced Renamer 3.66 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697174.jpg" />
+  <img src="Z:/picture/008/save_picture_697174.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Auslogics BoostSpeed Premium 7.9.0.0 DC 07.05.2015 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697172.jpg" />
+  <img src="Z:/picture/008/save_picture_697172.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Process Lasso Pro 9.0.0.338 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697107.jpg" />
+  <img src="Z:/picture/008/save_picture_697107.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ LibreOffice 4.4.3 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697090.jpg" />
+  <img src="Z:/picture/008/save_picture_697090.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Windows 7 Manager 5.1.0 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697081.jpg" />
+  <img src="Z:/picture/008/save_picture_697081.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ WinZip Pro 19.5 Build 11475 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697080.jpg" />
+  <img src="Z:/picture/008/save_picture_697080.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Kaspersky Anti-Ransomware Tool for Business 4.0.0.861 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697075.jpg" />
+  <img src="Z:/picture/008/save_picture_697075.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Adobe Photoshop CC 2019 20.0.4 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697060.jpg" />
+  <img src="Z:/picture/008/save_picture_697060.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Vivaldi 1.9.818.49 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696998.jpg" />
+  <img src="Z:/picture/008/save_picture_696998.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Bulk Crap Uninstaller 3.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696989.jpg" />
+  <img src="Z:/picture/008/save_picture_696989.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AusLogics BoostSpeed Premium 7.9.0.0 DC 07.05.2015 RePack (& Portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696984.jpg" />
+  <img src="Z:/picture/008/save_picture_696984.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Nero Burning ROM & Nero Express 2015 16.0.24.0 Portable by PortableAppZ [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696976.jpg" />
+  <img src="Z:/picture/008/save_picture_696976.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Hotspot Shield Elite 4.08 Update DC 05.05.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696969.jpg" />
+  <img src="Z:/picture/008/save_picture_696969.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696947.jpg" />
+  <img src="Z:/picture/008/save_picture_696947.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Any Video Converter Ultimate 6.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696935.jpg" />
+  <img src="Z:/picture/008/save_picture_696935.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Windows 7 Manager 5.1.0 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696925.jpg" />
+  <img src="Z:/picture/008/save_picture_696925.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Microsoft Visio 2016 Professional Preview 16.0.3930.1008 [Ru/En] (онлайн-�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696918.jpg" />
+  <img src="Z:/picture/008/save_picture_696918.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ HitmanPro 3.7.9 Build 241 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696917.jpg" />
+  <img src="Z:/picture/008/save_picture_696917.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wise Care 365 Pro 4.63.441 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696879.jpg" />
+  <img src="Z:/picture/008/save_picture_696879.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Cacheman 10.10.0.12 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696860.jpg" />
+  <img src="Z:/picture/008/save_picture_696860.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1677604   (150451) от 18.11.2023
+
+Журнал | WOOD Magazine №293 (декабрь 2023-январь 2024) [PDF][En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Wood предназначен для всех любителей и профессионалов в области деревообработки и столярного дела. Предлагает обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража.
+Все изделия, модели и поделки представлены понятными схемами и чертежами, практически (   Читать дальше...   )Жанр: Столярное дело, деревообработкаЯзык: АнглийскийИздательство: Meredith Corporation Wood MagazineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF46996C4C6A97A65974388440889DF7BF27B7AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086679   (150183) от 25.12.2016
+
+Журнал | Мастерица №12 (2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по разным видам рукоделия. В нём представлены: шитьё, вязание, вышивание крестом и лентами, декупаж, бисероплетение, фриволите, другие рукоделия, обзорные статьи и мастер-классы.
+Собственный скан.Жанр: Рукоделие, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F6464013B3369BA22F43DAF1EFC17350F7794C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840378   (150087) от 25.12.2015
+
+Подшивка журналов | Куклы в костюмах народов мира №1-30 + 1 спецвыпуск (2014-2015) [PDF] [Обновляемая]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство «ДеАгостини» представляет новую коллекцию Куклы в костюмах народов мира. Каждый номер посвящен одной стране: ее культуре, традициям, национальной кухне, природе. Фарфоровая кукла ручной работы в традиционном костюме страны прилагается к журналу.Жанр: Коллекционирование, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DD52266EAB715799879F2DA8D9CC88B17AE3FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271059   (150055) от 23.12.2018
 
 Журнал | Woodworking Crafts №48 (2019) [PDF] [En]
@@ -6,7 +86,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150055.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149974.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149946.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149206.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148810.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148780.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147530.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147248.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147169.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144505.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143933.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143921.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143471.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143300.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142696.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142556.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142337.jpg" />
 </div>
 
 
@@ -448,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142286.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142277.jpg" />
 </div>
 
 
@@ -500,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142132.jpg" />
 </div>
 
 
@@ -526,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142075.jpg" />
 </div>
 
 
@@ -552,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140217.jpg" />
 </div>
 
 
@@ -578,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138296.jpg" />
 </div>
 
 
@@ -589,84 +669,6 @@ Woodshop News — издание представляет самую после�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A183EEE83A9C7AF27DC94C1DC7CD9E3AABBB5537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591888   (136138) от 20.12.2012
-
-Журнал | Stereo & Video [Россия] №1 [январь 2013] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F262825A1B031F1770DEA120DB1EBAD090CF820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592462   (135864) от 21.12.2012
-
-Журнал | Foto & Video №1 [январь 2013] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foto & Video – популярный журнал, посвященный фототехнике и фотоискусству. Он является единственным в России представителем Европейской ассоциации журналов по аудио-, видео- и фототехнике EISA.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB6118D61F45151B1C83D3BFC4E631148B281C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592801   (135676) от 22.12.2012
-
-Журнал | Рыбачьте с нами №12 [декабрь 2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135676.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Рыбачьте с нами” - это журнал об увлечении. Он делается для людей с высокими требованиями к качеству жизни, для которых рыбалка стала синонимом высококлассного отдыха и приятного времяпрепровождения, то есть синонимом слова “удовольствие”. Подтверждением этого тезиса может служить тот факт, что рекламодатели часто прибегают к демонстрации своих товаров и услуг на фоне рыбалки!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6393E624E7AE68A59FA232FD974FE7F5BC058A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

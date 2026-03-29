@@ -6,7 +6,7 @@ AusLogics BoostSpeed 9.0.0.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705587.jpg" />
+  <img src="Z:/picture/008/save_picture_705587.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Easy CD-DA Extractor 2011.3.0.0 Ultimate Final [Мульти/Русский] | R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705581.jpg" />
+  <img src="Z:/picture/008/save_picture_705581.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soft Organizer Pro 8.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705502.jpg" />
+  <img src="Z:/picture/008/save_picture_705502.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Topaz A.I. Gigapixel 5.0.4.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705500.jpg" />
+  <img src="Z:/picture/008/save_picture_705500.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC 07.08.2020) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705482.jpg" />
+  <img src="Z:/picture/008/save_picture_705482.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Android Studio 2.1.2 Build #AI-143.2915827 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705469.jpg" />
+  <img src="Z:/picture/008/save_picture_705469.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AusLogics BoostSpeed 9.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705466.jpg" />
+  <img src="Z:/picture/008/save_picture_705466.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ FileZilla 3.41.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705361.jpg" />
+  <img src="Z:/picture/008/save_picture_705361.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ KinoScreen 1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705320.jpg" />
+  <img src="Z:/picture/008/save_picture_705320.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WinToUSB Technician 5.6 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705308.jpg" />
+  <img src="Z:/picture/008/save_picture_705308.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mp3tag 2.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705204.jpg" />
+  <img src="Z:/picture/008/save_picture_705204.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Master PDF Editor 5.3.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705201.jpg" />
+  <img src="Z:/picture/008/save_picture_705201.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Acoustica Premium Edition 7.1.15 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705196.jpg" />
+  <img src="Z:/picture/008/save_picture_705196.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sumatra PDF 3.4.14276 Pre-release + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705174.jpg" />
+  <img src="Z:/picture/008/save_picture_705174.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Zortam Mp3 Media Studio Pro 29.25 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705170.jpg" />
+  <img src="Z:/picture/008/save_picture_705170.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CrystalDiskMark 4.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705167.jpg" />
+  <img src="Z:/picture/008/save_picture_705167.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Hallo northern sky 4.2.3 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705166.jpg" />
+  <img src="Z:/picture/008/save_picture_705166.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Ant Download Manager Pro 2.6.1 Build 80894 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705157.jpg" />
+  <img src="Z:/picture/008/save_picture_705157.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Opera GX 83.0.4254.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705155.jpg" />
+  <img src="Z:/picture/008/save_picture_705155.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ K-Lite Codec Pack 15.6.8 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705147.jpg" />
+  <img src="Z:/picture/008/save_picture_705147.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Reg Organizer 8.52 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705140.jpg" />
+  <img src="Z:/picture/008/save_picture_705140.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Reg Organizer 8.52 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705138.jpg" />
+  <img src="Z:/picture/008/save_picture_705138.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Cyberfox 52.1.2 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705116.jpg" />
+  <img src="Z:/picture/008/save_picture_705116.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Notepad++ 7.6.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705057.jpg" />
+  <img src="Z:/picture/008/save_picture_705057.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ XnConvert 1.80 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705056.jpg" />
+  <img src="Z:/picture/008/save_picture_705056.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705042.jpg" />
+  <img src="Z:/picture/008/save_picture_705042.jpg" />
 </div>
 
 

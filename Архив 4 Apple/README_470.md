@@ -1,3 +1,112 @@
+###  Публикация: 1264288   (281166) от 23.11.2018
+
+MovieMator Video Editor Pro 2.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281166.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 года в процессе создания, Video Editor MovieMator наконец-то стал простым, но мощным программным обеспечением для редактирования видео. Он не только позволяет пользователям выполнять все основные работы по редактированию, такие как обрезка, обрезка, разделение, поворот, слияние и многое другое, но также предоставляет более продвинутые функции редактирования, такие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2018Разработчик: EtinysoftПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85A5AEA710B7A8CE161E5E904A47BDC8091C002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264240   (281164) от 23.11.2018
+
+iStat Menus 6 v6.30 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281164.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS High Sierra.
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться работой, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2018Разработчик: Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D449512C12B00E69998BF3218AE336CCECC1975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081943   (281119) от 11.12.2016
+
+Squeezer 1.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минимизировать, компилировать и сжимать веб-источники и изображения
+Squeezer дружище веб-разработчика. Он может компилировать ваши сценарии, оптимизировать изображения, и убрать ненужные файлы, чтобы ускорить время загрузки сайта. Просто перетащите  ваши файлы, и Squeezer позаботится об остальном!
+
+• Простота в использовании, интуитивно понятный пользовательский интерфейс(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 декабря 2016Разработчик: InSili.co.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14EC5F75EE99D6519A79E3EB4F91B5209D56E18C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336324   (281071) от 06.11.2019
+
+Find Any File (FAF) 2.0.1 b8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB45D5975EE85B0DC4068AACBDC40826DB375A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336375   (281070) от 06.11.2019
 
 Scherlokk - Files finder 4 v4.1.4 [Multi]
@@ -6,7 +115,7 @@ Scherlokk - Files finder 4 v4.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281070.jpg" />
+  <img src="Z:/picture/008/save_picture_281070.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ PullTube 1.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281069.jpg" />
+  <img src="Z:/picture/008/save_picture_281069.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ A Better Finder Rename 11 v11.04 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281068.jpg" />
+  <img src="Z:/picture/008/save_picture_281068.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ Business Templates for Pages 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281031.jpg" />
+  <img src="Z:/picture/008/save_picture_281031.jpg" />
 </div>
 
 
@@ -114,7 +223,7 @@ Corporate Templates - Business Stationery 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281023.jpg" />
+  <img src="Z:/picture/008/save_picture_281023.jpg" />
 </div>
 
 
@@ -142,7 +251,7 @@ iStat Menus 6 v6.30 (1087) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280992.jpg" />
+  <img src="Z:/picture/008/save_picture_280992.jpg" />
 </div>
 
 
@@ -169,7 +278,7 @@ ExactScan Pro 19.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280957.jpg" />
+  <img src="Z:/picture/008/save_picture_280957.jpg" />
 </div>
 
 
@@ -195,7 +304,7 @@ Amadeus Pro 2.6.2 (2226) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280956.jpg" />
+  <img src="Z:/picture/008/save_picture_280956.jpg" />
 </div>
 
 
@@ -221,7 +330,7 @@ goPanel 2 v2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280954.jpg" />
+  <img src="Z:/picture/008/save_picture_280954.jpg" />
 </div>
 
 
@@ -250,7 +359,7 @@ BusyContacts 1.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280953.jpg" />
+  <img src="Z:/picture/008/save_picture_280953.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ Script Debugger 7 v7.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280952.jpg" />
+  <img src="Z:/picture/008/save_picture_280952.jpg" />
 </div>
 
 
@@ -306,7 +415,7 @@ RSS Menu 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280949.jpg" />
+  <img src="Z:/picture/008/save_picture_280949.jpg" />
 </div>
 
 
@@ -332,7 +441,7 @@ BusyCal 3 v3.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280947.jpg" />
+  <img src="Z:/picture/008/save_picture_280947.jpg" />
 </div>
 
 
@@ -359,7 +468,7 @@ GraphicConverter 11 v11.1.1 (4163) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280945.jpg" />
+  <img src="Z:/picture/008/save_picture_280945.jpg" />
 </div>
 
 
@@ -385,7 +494,7 @@ Path Finder 9.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280944.jpg" />
+  <img src="Z:/picture/008/save_picture_280944.jpg" />
 </div>
 
 
@@ -411,7 +520,7 @@ Screenshot Editor 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280942.jpg" />
+  <img src="Z:/picture/008/save_picture_280942.jpg" />
 </div>
 
 
@@ -437,7 +546,7 @@ Carbon Copy Cloner 5 v5.1.14 b1 (5850) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280941.jpg" />
+  <img src="Z:/picture/008/save_picture_280941.jpg" />
 </div>
 
 
@@ -466,7 +575,7 @@ Numi 3.20.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280939.jpg" />
+  <img src="Z:/picture/008/save_picture_280939.jpg" />
 </div>
 
 
@@ -492,7 +601,7 @@ MacAppBlocker 3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280915.jpg" />
+  <img src="Z:/picture/008/save_picture_280915.jpg" />
 </div>
 
 
@@ -521,7 +630,7 @@ Elements for iWork 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280913.jpg" />
+  <img src="Z:/picture/008/save_picture_280913.jpg" />
 </div>
 
 
@@ -547,7 +656,7 @@ Folx Pro 5.1.13642 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280912.jpg" />
+  <img src="Z:/picture/008/save_picture_280912.jpg" />
 </div>
 
 
@@ -575,7 +684,7 @@ Backgrounds 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280817.jpg" />
+  <img src="Z:/picture/008/save_picture_280817.jpg" />
 </div>
 
 
@@ -589,115 +698,6 @@ Backgrounds 7.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8FB3CB4CF1D3D0F0719BC2C2499C65A79C9366B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336294   (280816) от 06.11.2019
-
-Compress PDF 2.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280816.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-файл может быть очень большим, если он содержит много изображений в оригинальном качестве. Мы хотели бы сохранить документы, такие как брошюра о продукте, руководство пользователя, отчеты, предложения или другие, в виде файла PDF для распространения. Но вы не хотите размещать руководство пользователя объемом 50 МБ в формате PDF на своем веб-сайте или отправлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60783FD5DC1FBE9F2DEC81AC8D482D318E05ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336408   (280812) от 06.11.2019
-
-Geekbench 5 v5.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-
-Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2019Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575F25C08D9C1A4D71D8322E81CB641796B7D0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336346   (280799) от 06.11.2019
-
-Adobe Zii 2020 - Universal Patcher v5.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2794A848F2F6F836742A55B013BD2E3181621A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187335   (280769) от 28.11.2017
-
-UninstallPKG 1.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280769.jpg" />
-</div>
-
-
-###  Подробнее
-
-UninstallPKG - приложение, которое позволяет Вам полностью удалять так называемые "пакеты" (расширения файла .pkg) и все их установленное содержимое с Вашего Mac.
-
-UninstallPKG может использоваться для очистки свободного пространства на диске , например удалить неиспользуемые драйвера принтера или полностью удалить приложения, которые Вы больше не используете. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2017Разработчик: CoreCodeПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0B543742E58DD82AAE07569571597CA229D9FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

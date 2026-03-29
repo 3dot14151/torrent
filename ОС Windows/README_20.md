@@ -1,3 +1,55 @@
+###  Публикация: 1417554   (355205) от 21.10.2020
+
+Windows Server, Version 20H2 (10.0.19042.508) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EDF7AB62068E21CD96CCBD8A34D65CAC10C3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417564   (355021) от 21.10.2020
+
+Windows 10 IoT Enterprise, Version 20H2 (10.0.19042.508) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 IoT Корпоративная — это полная версия Windows 10 с функциями управления и защиты для решений Интернета вещей, а также всеми преимуществами глобальной экосистемы Windows. Эта ОС представляет собой двоичный эквивалент Windows 10 Корпоративная, позволяя использовать такие привычные средства разработки и администрирования, как клиентские компьютеры и ноутбуки. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726E9E93E2D03D2E6B5CB4D305CFF1EAB02B38BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417556   (352658) от 22.10.2020
 
 Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные образы от Microsoft MSDN [Ru]
@@ -6,7 +58,7 @@ Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные обр�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352658.jpg" />
+  <img src="Z:/picture/008/save_picture_352658.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Microsoft Windows 11 [10.0.22000.978], Version 21H2 (Updated September 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352057.jpg" />
+  <img src="Z:/picture/008/save_picture_352057.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Microsoft Windows 10.0.19043.2006, Version 21H1 (Updated September 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352054.jpg" />
+  <img src="Z:/picture/008/save_picture_352054.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.4 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351760.jpg" />
+  <img src="Z:/picture/008/save_picture_351760.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ Recovery DVD for Acer Aspire One 522 / Windows 7 Starter (х86) SP1 [русск�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_349674.jpg" />
+  <img src="Z:/picture/005/save_picture_349674.jpg" />
 </div>
 
 
@@ -147,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349631.jpg" />
+  <img src="Z:/picture/008/save_picture_349631.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ Microsoft Windows 10.0.18362.1139 Version 1903 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348949.jpg" />
+  <img src="Z:/picture/008/save_picture_348949.jpg" />
 </div>
 
 
@@ -200,7 +252,7 @@ Microsoft Windows 10.0.17763.1518 Version 1809 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348936.jpg" />
+  <img src="Z:/picture/008/save_picture_348936.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ Microsoft Windows 10.0.18363.1139 Version 1909 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348813.jpg" />
+  <img src="Z:/picture/008/save_picture_348813.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ Microsoft Windows 10.0.18362.1139 Version 1903 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348796.jpg" />
+  <img src="Z:/picture/008/save_picture_348796.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ Microsoft Windows 10.0.17763.1518 Version 1809 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348670.jpg" />
+  <img src="Z:/picture/008/save_picture_348670.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ Microsoft Windows 10.0.19041.572 Version 2004 (Updated Oct 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348531.jpg" />
+  <img src="Z:/picture/008/save_picture_348531.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ Microsoft Windows 10.0.18363.1139 Version 1909 (Updated Oct 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348530.jpg" />
+  <img src="Z:/picture/008/save_picture_348530.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1518 (Updated Oct 2020) Ори
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348387.jpg" />
+  <img src="Z:/picture/008/save_picture_348387.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ Microsoft Windows 10.0.19044.2006, Version 21H2 (Updated September 2022)  - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347208.jpg" />
+  <img src="Z:/picture/008/save_picture_347208.jpg" />
 </div>
 
 
@@ -417,7 +469,7 @@ Microsoft Windows 10.0.19041.572 Version 2004 (Updated Oct 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345973.jpg" />
+  <img src="Z:/picture/008/save_picture_345973.jpg" />
 </div>
 
 
@@ -444,7 +496,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v11 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344933.jpg" />
+  <img src="Z:/picture/008/save_picture_344933.jpg" />
 </div>
 
 
@@ -473,7 +525,7 @@ Microsoft Windows 11 [10.0.22621.382], Version 22H2 - Оригинальные �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342417.jpg" />
+  <img src="Z:/picture/008/save_picture_342417.jpg" />
 </div>
 
 
@@ -499,7 +551,7 @@ Recovery USB HDD (FLASH) ISO for HP Pavilion dv6-6b63er / Windows 7 Home Basic 6
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341906.jpg" />
+  <img src="Z:/picture/005/save_picture_341906.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339284.jpg" />
+  <img src="Z:/picture/008/save_picture_339284.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Recovery DVD for Lenovo IdeaPad S10-3S / Windows 7 Starter (х32) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336879.jpg" />
+  <img src="Z:/picture/008/save_picture_336879.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Microsoft Windows 11 [10.0.22621.525], Version 22H2 (Updated September 2022)  - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332753.jpg" />
+  <img src="Z:/picture/008/save_picture_332753.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Microsoft Windows 10 Enterprise 10.0.10586 Version 1511 - Оригинальны
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330752.jpg" />
+  <img src="Z:/picture/008/save_picture_330752.jpg" />
 </div>
 
 
@@ -630,7 +682,7 @@ Microsoft Windows 10 Pro-Home | Single Language 10.0.10586 Version 1511 - Ори
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330748.jpg" />
+  <img src="Z:/picture/008/save_picture_330748.jpg" />
 </div>
 
 
@@ -641,58 +693,6 @@ Microsoft Windows 10 Pro-Home | Single Language 10.0.10586 Version 1511 - Ори
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E146E96131826C10D4949E03D028F53035C91F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956207   (329854) от 14.11.2015
-
-Microsoft Windows 10 Education 10.0.10586 Version 1511 - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A1D927E54B1C94B95E7C1A4BAB02930FAABF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958250   (324415) от 20.11.2015
-
-Microsoft Windows 10 Professional,Enterprise 10586 TH2, Release 1511 - Оригинальные образы от Microsoft VLSC [Ru/En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский, English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D034B970917772FB2B1C541616A9395476EEAD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

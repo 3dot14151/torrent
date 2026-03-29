@@ -6,7 +6,7 @@ Bastard Folk - Трактир на перекрестке (2022) [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598362.jpg" />
+  <img src="Z:/picture/008/save_picture_598362.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597975.jpg" />
+  <img src="Z:/picture/008/save_picture_597975.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597265.jpg" />
+  <img src="Z:/picture/008/save_picture_597265.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ IZTUMANA - Zoomorph (2014) [APE|Lossless|image + .cue] <Space-Rock, Psychedelic 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596178.jpg" />
+  <img src="Z:/picture/008/save_picture_596178.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595753.jpg" />
+  <img src="Z:/picture/005/save_picture_595753.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593901.jpg" />
+  <img src="Z:/picture/008/save_picture_593901.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593518.jpg" />
+  <img src="Z:/picture/008/save_picture_593518.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593063.jpg" />
+  <img src="Z:/picture/008/save_picture_593063.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593010.jpg" />
+  <img src="Z:/picture/008/save_picture_593010.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592998.jpg" />
+  <img src="Z:/picture/008/save_picture_592998.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ The Faceless Hunter - One Minute to Midnight (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590754.jpg" />
+  <img src="Z:/picture/008/save_picture_590754.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590750.jpg" />
+  <img src="Z:/picture/008/save_picture_590750.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Morok - Вне света & На круги своя (1997) 2CD, Remastered & Re
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590228.jpg" />
+  <img src="Z:/picture/008/save_picture_590228.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590192.jpg" />
+  <img src="Z:/picture/008/save_picture_590192.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589424.jpg" />
+  <img src="Z:/picture/008/save_picture_589424.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588184.jpg" />
+  <img src="Z:/picture/008/save_picture_588184.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585851.jpg" />
+  <img src="Z:/picture/008/save_picture_585851.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584324.jpg" />
+  <img src="Z:/picture/008/save_picture_584324.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581871.jpg" />
+  <img src="Z:/picture/008/save_picture_581871.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578203.jpg" />
+  <img src="Z:/picture/008/save_picture_578203.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577821.jpg" />
+  <img src="Z:/picture/005/save_picture_577821.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574430.jpg" />
+  <img src="Z:/picture/008/save_picture_574430.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573812.jpg" />
+  <img src="Z:/picture/008/save_picture_573812.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Znaki - Видеть больше (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572521.jpg" />
+  <img src="Z:/picture/008/save_picture_572521.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572429.jpg" />
+  <img src="Z:/picture/008/save_picture_572429.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Siberian Meat Grinder - Hail To The Tsar , Versus The World (2015) [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570953.jpg" />
+  <img src="Z:/picture/008/save_picture_570953.jpg" />
 </div>
 
 

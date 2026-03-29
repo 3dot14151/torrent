@@ -6,7 +6,7 @@ MiyaGi & Эндшпиль - Hajime, Pt. 3 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553764.jpg" />
+  <img src="Z:/picture/008/save_picture_553764.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552843.jpg" />
+  <img src="Z:/picture/008/save_picture_552843.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Krec - Комиксы (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549450.jpg" />
+  <img src="Z:/picture/008/save_picture_549450.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547093.jpg" />
+  <img src="Z:/picture/008/save_picture_547093.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rickey F - FLASHFORWARD (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544651.jpg" />
+  <img src="Z:/picture/008/save_picture_544651.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544030.jpg" />
+  <img src="Z:/picture/008/save_picture_544030.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Da Gudda Jazz - Легенда (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543754.jpg" />
+  <img src="Z:/picture/008/save_picture_543754.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542429.jpg" />
+  <img src="Z:/picture/008/save_picture_542429.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518731.jpg" />
+  <img src="Z:/picture/008/save_picture_518731.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513614.jpg" />
+  <img src="Z:/picture/008/save_picture_513614.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Guf & Murovei - PART 2 (2022) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507055.jpg" />
+  <img src="Z:/picture/008/save_picture_507055.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504236.jpg" />
+  <img src="Z:/picture/008/save_picture_504236.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493442.jpg" />
+  <img src="Z:/picture/008/save_picture_493442.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ MiyaGi & Эндшпиль - HAJIME Part.2 (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491446.jpg" />
+  <img src="Z:/picture/008/save_picture_491446.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489033.jpg" />
+  <img src="Z:/picture/008/save_picture_489033.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485798.jpg" />
+  <img src="Z:/picture/008/save_picture_485798.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ ATL - Карма x Кома (2016) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481280.jpg" />
+  <img src="Z:/picture/008/save_picture_481280.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Stephan Pie - Не паникуй! (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473190.jpg" />
+  <img src="Z:/picture/008/save_picture_473190.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ DK - SYNONIM (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473080.jpg" />
+  <img src="Z:/picture/008/save_picture_473080.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473074.jpg" />
+  <img src="Z:/picture/008/save_picture_473074.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ L'One - Гравитация (2016) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468323.jpg" />
+  <img src="Z:/picture/008/save_picture_468323.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Pra(Killa'Gramm) - 39 ROOTS (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466549.jpg" />
+  <img src="Z:/picture/008/save_picture_466549.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465900.jpg" />
+  <img src="Z:/picture/008/save_picture_465900.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Sagath - Тёмное добро (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443279.jpg" />
+  <img src="Z:/picture/008/save_picture_443279.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443153.jpg" />
+  <img src="Z:/picture/008/save_picture_443153.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443141.jpg" />
+  <img src="Z:/picture/008/save_picture_443141.jpg" />
 </div>
 
 

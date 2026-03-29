@@ -1,3 +1,137 @@
+###  Публикация: 1027050   (700412) от 17.06.2016
+
+Борис Житков | Что бывало (1980) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Житков Б. С. много ездил по России и за границей: был в Индии, на Цейлоне, в Китае, в Японии, объездил всю Англию на мотоцикле, жил во Франции, в Дании — словом, исколесил почти весь мир. Обо всём, что знал и видел, Борис Степанович захотел рассказать другим и стал писателем…
+
+В этом сборнике автор рассказывает про птиц и животных, жизнь и повадки которых он отлично (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA3979878B6498AABCE08C36298CA9240614F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220638   (700314) от 21.04.2018
+
+Джиллиан Джонсон | Как нарисовать все, что захочешь (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – для тех, кто хочет преодолеть страх перед чистым листом бумаги…
+Известный иллюстратор Джиллиан Джонсон уверена, что в душе многих из нас живёт художник, и призывает дать ему волю, освободиться от неуверенности и тревоги. Подчас после одного-двух негативных комментариев («Это что за уродец?» «Совсем непохоже, даже простое яблоко нарисовать не можешь!») (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E3A5455DDAE3B2661F9DD7B8C460BAB5088416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402527   (700061) от 15.08.2020
+
+Людмила Шелгунова | Звездочка (1894) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для детей младшего школьного возраста.
+Орфография и пунктуация приближены к современным нормам.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC02926E4E59625546FC237F534A0A2ACB954A43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026953   (699955) от 17.06.2016
+
+Владимир Рюмин | Занимательная электротехника на дому (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_699955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Владимирович Рюмин получил широкую известность как популяризатор науки и техники. Будучи прогрессивным педагогом-новатором, разрабатывал собственные оригинальные методики преподавания, ставил необычные опыты, следил за новостями из мира техники и делился ими с учениками. Начав заниматься преподаванием, он издал много учебных пособий по химии, минералогии, (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EE97898793D75DDC31B96D56A30A8D22BC5CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402588   (699940) от 15.08.2020
+
+Нина Пикулева | Слово на ладошке (2006) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_699940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двести страниц вдохновенной прозы детского поэта и педагога Нины Пикулевой с наглядными примерами, подсказками и комментариями посвящены главному сокровищу нашей жизни — ребенку и адресованы воспитателям, учителям, гувернерам, руководителям театральных коллективов, а также студентам педколледжей и вузов, организаторам детских праздников и просто добрым и чутким родителям. (   Читать дальше...   )Жанр: Педагогика/Воспитание детей/ПрозаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337F069E2F8669410F28DA5C8FE8546FB75EDDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402593   (699931) от 15.08.2020
 
 Анна Бену | Ты – сказка! Антистресс для больших и маленьких. (2019) [FB2, EPUB, MOBI]
@@ -6,7 +140,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699931.jpg" />
+  <img src="Z:/picture/008/save_picture_699931.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699825.jpg" />
+  <img src="Z:/picture/008/save_picture_699825.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699757.jpg" />
+  <img src="Z:/picture/008/save_picture_699757.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699698.jpg" />
+  <img src="Z:/picture/008/save_picture_699698.jpg" />
 </div>
 
 
@@ -113,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699432.jpg" />
+  <img src="Z:/picture/008/save_picture_699432.jpg" />
 </div>
 
 
@@ -140,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699423.jpg" />
+  <img src="Z:/picture/008/save_picture_699423.jpg" />
 </div>
 
 
@@ -166,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699172.jpg" />
+  <img src="Z:/picture/008/save_picture_699172.jpg" />
 </div>
 
 
@@ -193,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699060.jpg" />
+  <img src="Z:/picture/008/save_picture_699060.jpg" />
 </div>
 
 
@@ -219,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698378.jpg" />
+  <img src="Z:/picture/008/save_picture_698378.jpg" />
 </div>
 
 
@@ -245,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698351.jpg" />
+  <img src="Z:/picture/008/save_picture_698351.jpg" />
 </div>
 
 
@@ -271,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697931.jpg" />
+  <img src="Z:/picture/008/save_picture_697931.jpg" />
 </div>
 
 
@@ -297,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697909.jpg" />
+  <img src="Z:/picture/008/save_picture_697909.jpg" />
 </div>
 
 
@@ -326,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697868.jpg" />
+  <img src="Z:/picture/008/save_picture_697868.jpg" />
 </div>
 
 
@@ -352,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697717.jpg" />
+  <img src="Z:/picture/008/save_picture_697717.jpg" />
 </div>
 
 
@@ -380,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697706.jpg" />
+  <img src="Z:/picture/008/save_picture_697706.jpg" />
 </div>
 
 
@@ -408,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697370.jpg" />
+  <img src="Z:/picture/008/save_picture_697370.jpg" />
 </div>
 
 
@@ -434,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697346.jpg" />
+  <img src="Z:/picture/008/save_picture_697346.jpg" />
 </div>
 
 
@@ -461,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697333.jpg" />
+  <img src="Z:/picture/008/save_picture_697333.jpg" />
 </div>
 
 
@@ -487,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697225.jpg" />
+  <img src="Z:/picture/008/save_picture_697225.jpg" />
 </div>
 
 
@@ -515,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697221.jpg" />
+  <img src="Z:/picture/008/save_picture_697221.jpg" />
 </div>
 
 
@@ -541,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697217.jpg" />
+  <img src="Z:/picture/008/save_picture_697217.jpg" />
 </div>
 
 
@@ -554,138 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6765AE644EC13580BAB7798FD2C40C1EEB9C4E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133056   (697102) от 11.05.2017
-
-Иван Дроздов | Катя-лётчица (1973) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время Великой Отечественной войны был полк ночных лёгких бомбардировщиков. Служили в нем только девушки. Об их подвигах и рассказывает эта книга.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567EF80A065E17B03BDA18A773BD10A52F826105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220976   (696886) от 23.04.2018
-
-Михаил Круковский | Зяблик (1915) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для детей о природе, ребятах и зверятах. Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B81CDF9D6E9069690AAFB83C08E21455CAD2027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221252   (696882) от 23.04.2018
-
-Горшеня (1916) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская народная сказка.  Для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4095283092509E9C1E305A87AA1DE4A685E05634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221258   (696881) от 23.04.2018
-
-Вера Морозова | На рассвете - казнь (1983) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696881.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новую книгу В.А. Морозовой входят две повести: «На рассвете - казнь» и «Безумие Петра Львова».
-В первой повести рассказывается о юноше революционере Федоре Путоракине, оставшемся верным своему революционному долгу, несмотря на угрозу вынесения смертного приговора.
-Во второй - о революционере Петре Львове, на долю которого выпали тяжкие испытания и который сумел (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376253B0271519A1A0FE79EA47E62BD4EE013CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220974   (696813) от 23.04.2018
-
-Юрий Казаков | Никишкины тайны (1986) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего  школьного возраста.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0AC8E3980347EC7495A75B0223010C3B9C42B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

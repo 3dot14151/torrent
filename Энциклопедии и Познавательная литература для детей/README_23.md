@@ -1,3 +1,58 @@
+###  Публикация: 1557080   (501451) от 17.07.2022
+
+Елена Ананьева | Энциклопедии с крупными буквами [4 книги] (2020-2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь и у маленьких читателей есть своя собственная энциклопедия, как у взрослых: все только самое интересное, самое важное, легко запоминающееся — С КРУПНЫМИ БУКВАМИ.
+- На каждой странице — одно животное.
+- Большая картинка с поясняющими короткими подписями.
+- Общий текст о животном.(   Читать дальше...   )Жанр: Энциклопедия, Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9730408862A18D40C39352125641A3D57388F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565169   (494552) от 23.07.2022
+
+Г.П. Шалаева | Школа раннего развития [7 книг] (2009-2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги этой серии способствуют развитию познавательных способностей и талантов вашего ребёнка. Материал подобран в соответствии с новой программой обучения дошкольников, рекомендованной Министерством образования и науки РФ.Жанр: Детская познавательная и развивающая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA6EAF8683C302E350963BA23220124EBC543E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936760   (494033) от 12.09.2015
 
 Л. Кон | Первая книга о растениях (1947) [JPG]
@@ -6,7 +61,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494033.jpg" />
+  <img src="Z:/picture/008/save_picture_494033.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492712.jpg" />
+  <img src="Z:/picture/008/save_picture_492712.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492305.jpg" />
+  <img src="Z:/picture/008/save_picture_492305.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483371.jpg" />
+  <img src="Z:/picture/008/save_picture_483371.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480277.jpg" />
+  <img src="Z:/picture/008/save_picture_480277.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Oxford Educational Encycyclopedia | Энциклопедия Мир животн
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480018.jpg" />
+  <img src="Z:/picture/008/save_picture_480018.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478330.jpg" />
+  <img src="Z:/picture/008/save_picture_478330.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475010.jpg" />
+  <img src="Z:/picture/008/save_picture_475010.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_461619.jpg" />
+  <img src="Z:/picture/005/save_picture_461619.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455904.jpg" />
+  <img src="Z:/picture/008/save_picture_455904.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454427.jpg" />
+  <img src="Z:/picture/008/save_picture_454427.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453782.jpg" />
+  <img src="Z:/picture/008/save_picture_453782.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451604.jpg" />
+  <img src="Z:/picture/008/save_picture_451604.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447479.jpg" />
+  <img src="Z:/picture/008/save_picture_447479.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445847.jpg" />
+  <img src="Z:/picture/008/save_picture_445847.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445242.jpg" />
+  <img src="Z:/picture/008/save_picture_445242.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445238.jpg" />
+  <img src="Z:/picture/008/save_picture_445238.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445007.jpg" />
+  <img src="Z:/picture/008/save_picture_445007.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442577.jpg" />
+  <img src="Z:/picture/008/save_picture_442577.jpg" />
 </div>
 
 
@@ -512,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440870.jpg" />
+  <img src="Z:/picture/008/save_picture_440870.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440629.jpg" />
+  <img src="Z:/picture/008/save_picture_440629.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438427.jpg" />
+  <img src="Z:/picture/008/save_picture_438427.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438350.jpg" />
+  <img src="Z:/picture/008/save_picture_438350.jpg" />
 </div>
 
 
@@ -618,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438054.jpg" />
+  <img src="Z:/picture/008/save_picture_438054.jpg" />
 </div>
 
 
@@ -629,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266D212F61455A6735369AA2ADC2D8E33FCB4ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410762   (433860) от 22.09.2020
-
-Дмитрий Кошевар | Большая детская энциклопедия знаний. Большая энциклопедия знаний обо всём на свете (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433860.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Большая энциклопедия знаний обо всем на свете" поможет найти ответы на многие вопросы, расширить кругозор, прослыть эрудитом среди друзей, в общем, с пользой провести время. На страницах книги полно и доступно представлена информация об устройстве Солнечной системы, особенностях нашей планеты, ее флоре и фауне, техническом прогрессе. Интересные сведения (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7523F388DD77089FC3676066B0C06DA3299D064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410771   (433751) от 22.09.2020
-
-Любовь Кремер | Интересные и любопытные факты обо всем на свете (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необыкновенные, захватывающие, интересные, потрясающие и абсолютно достоверные факты, которые вы наверняка не знали. Можно ли увидеть алмазы и бриллианты на рентгеновских снимках? Сколько весят облака? Какой толщины кожа слона? Сколько кошек находится на службе британского правительства? Чем питаются панды? Сколько лет Леонардо да Винчи доводил до совершенства улыбку (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396B4DC44A7B5F39028B1F4F2395BAFC845F0B93
 ```
 
 https://mybot314.ru/tekegram_catalog/

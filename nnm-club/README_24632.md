@@ -1,275 +1,25 @@
-###  Публикация: 1783062   (69867) от 03.03.2025
+###  Публикация: 1776498   (71241) от 01.02.2025
 
-Александр Пушкин | Капитанская дочка (Радиосериал) (2012) [MP3, Иван Краско, Борис Соколов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Радиосериал.
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-«Капитанская дочка» – историческая повесть Александра Пушкина, действие которого происходит во время восстания Емельяна Пугачёва. Впервые был опубликован в 1836 году (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 05:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C072CD793AAFD97BB838C59D9691EB5EBE3BD69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782975   (69866) от 03.03.2025
-
-John Haydock - Heard It on the Radio (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Darkness on the Water (3:46)
-02.  Runaround (4:18)
-03.  You Got the Fire (4:03)
-04.  21 Reasons (5:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC5A493F90AD3DCC8F78F1D9C1B9C157D3ACF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783007   (69865) от 03.03.2025
-
-Шрифты - Creative Market - Raking - Bold Display Font - 290877712 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Raking Font — это смелый и элегантный дисплейный шрифт, оснащенный альтернативой и лигатурой, который подходит для брендинга, плакатов, логотипов и рекламы. Этот шрифт гарантирует, что сообщение, переданное через текст, останется легко читаемым и понятным.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503B305960AA53B633DB6412683C3488939333CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782955   (69864) от 03.03.2025
-
-Downhome Kin - Gravel & Grit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hushed Horizons (2:30)
-02.  Obsidian Grace (3:40)
-03.  Iridescent Steps (2:04)
-04.  Midnight Blues (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E419CB7D9947D6B6F4640571BDD223C4A450246C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782991   (69863) от 03.03.2025
-
-Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Run Brother Run (4:11)
-02.  Wow! Signal (3:31)
-03.  Labareda (participação de Oswaldo Montenegro) (3:33)
-04.  Cloudy Winter Dome (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949009432D8ABC61FD23ABB69BCCA66F434FCC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782895   (69862) от 03.03.2025
-
-Шрифты - Creative Market - Winter Veil - Festive Typeface - 290879936 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окутайте свои проекты теплом и очарованием сезона с Winter Veil, праздничным рождественским шрифтом с аутентичным рисованным видом. Этот шрифт с грубыми краями и естественной, рукописной эстетикой передает уютный дух праздников, что делает его идеальным выбором для распространения веселья и радости.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D659A5267AAAC8AE23F17C6D46B1E5374E1938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782950   (69861) от 03.03.2025
-
-Журнал | Главбух №5 (март 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F483B704A7EF3B9A9C35A0D25343E870146089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782949   (69860) от 03.03.2025
-
-Журнал | Небосвод №4 (апрель 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Небосвод" расскажет вам новости из мира астрономии. В журнале вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будете в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: НебосводФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A67AD8A3F0C37AB5795CBF996F795AE98715D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783020   (69859) от 03.03.2025
-
-НХЛ 2024-2025. Торонто Мэйпл Ливс - Питтсбург Пингвинз (02.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69859.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 марта 2025, воскресенье. 21:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 284 зрителя (87% при вместимости 18 673)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Джон Макисаак (Труро, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада); Линейный: Брэд Ковачик (Вудсток, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD76F62E84CD45764BEFFFECE3EDF034EA61D161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782962   (69858) от 03.03.2025
-
-Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
+The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introduction - Joey [0:45]
-02. Cherokee [9:17]
-03. Ceora [13:51]
-04. I'm in the Mood for Love [6:36](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:04:10
+01. Blame It on My Youth [7:09]
+02. Fairytale Countryside [9:54]
+03. The Smile of the Snake [6:03]
+04. Third Avenue [8:21](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:47:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E53170D50F806E70F34D1F02431AB4943F9A98
+magnet:?xt=urn:btih:0DC761B06899A1F53C5C2A6D07BA471E86E551C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,56 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782902   (69857) от 03.03.2025
+###  Публикация: 1776481   (71240) от 01.02.2025
 
-Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thrashfire - турецкая метал-группа, основанная в январе 2006 года2011 - Thrash Burned The Hell
-2015 - Vengeance of Fire (EP)
-2019 - Into the ArmageddonЖанр: Thrash MetalПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782964   (69856) от 03.03.2025
-
-Joey DeFrancesco, Massimo Farao - Estate (2008) Zucca Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
+Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossless|tracks + .cue] <Hard Bop, Poat-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Estate [13:41]
-02. On a Clear Day [9:04]
-03. Fly Me to the Moon [11:10]
-04. Voyage [9:47](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:08:53
+01. Double Bass [9:21]
+02. Gypsy Jingle Jangle [4:41]
+03. Povo [12:14]
+04. Love Is a Many Splendored Thing [7:29](   Читать дальше...   )Жанр: Hard Bop, Poat-BopПродолжительность: 00:57:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A68152C5F5D964226C70871A3E730A2677F9FE7
+magnet:?xt=urn:btih:D800F211B9AE72187ED0555F1764E2B81E26779A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,28 +56,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783096   (69855) от 03.03.2025
+###  Публикация: 1751415   (71239) от 01.02.2025
 
-Unto Others - Strength (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Post-Punk>
+Прикончи их всех 2 / Kill Em All 2 (2024) WEBRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филипп сталкивается лицом к лицу с русско-французским террористом, который мстит ему за убийство брата.
+"Прикончи их всех 2" - американский остросюжетный боевик 2024 года режиссера Валерия Милева и сценариста Джеймса Агню. Это прямое продолжение фильма «Прикончи их всех» (2017), в котором снялись Жан-Клод Ван Дамм, Жаклин Фернандес, Питер Стормаре и Мария (   Читать дальше...   )Производство: США / Arramis Films, Iervolino & Lady Bacardi Entertainment, March On ProductionsЖанр: боевикРежиссер: Валерий МилевАктеры: Петер Стормаре, Жан-Клод Ван Дамм, Мария Кончита Алонсо, Жаклин Фернандес, Ана Голджа, Мередит Микельсон, Талия Ассераф, Андрей Ленарт, Давид Себасти, Martina Di Fonte и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:03Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776489   (71238) от 01.02.2025
+
+The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone an' Git It Y'all [4:49]
+02. A Night at El Morocco (Easy As It Goes) [5:43]
+03. Right On, Right On [5:04]
+04. That's the Kind of Love I'm Talking About (For Cecile) [5:11](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD46B395B3E14C64DE8F8D6BD6EF906CAC4FD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776478   (71237) от 01.02.2025
+
+Defecto - Tribu II (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heroin 3:41
-02. Downtown 3:15
-03. When Will Gods Work Be Done 4:07
-04. No Children Laughing Now 3:43(   Читать дальше...   )Жанр: Gothic Metal, Post-PunkПродолжительность: 00:46:23
+01. El Diablo [00:07:37]
+02. Psicópatas [00:05:51]
+03. Cuatro Enemigos [00:10:11]
+04. Tribu, Vol. 2 [00:10:26](   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 01:03:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:026481824F223C3BF701ED4346C70C31D8486CCC
+magnet:?xt=urn:btih:428C8FC7BE4BB6A9FF606EE8DA16BBD99D3E36B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,341 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782963   (69854) от 03.03.2025
+###  Публикация: 1776533   (71236) от 01.02.2025
 
-Joey DeFrancesco - All Of Me (1989) Columbia [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for J. [4:20]
-02. Close to You [4:32]
-03. Carbon Copy [6:01]
-04. All of Me [7:04](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9495D5A90863A3C72FE52521AE574D54CBC20FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782961   (69853) от 03.03.2025
-
-Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Bluegrass>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69853.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mr. Wonderful
-A2 Yesterday
-A3 Good Morning Starshine
-A4 Body And Soul(   Читать дальше...   )Жанр: Folk, BluegrassПродолжительность: 00:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33208A9C25F7FE841C24338C008F6BD33C983291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782972   (69852) от 03.03.2025
-
-Howard Mahan - Hope on Credit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stuck on My Mind (4:11)
-02.  Gin Soaked Poet (5:03)
-03.  Leave My Heart Alone (5:52)
-04.  Miss Lady (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6EB362B42010302C94ACD8437DD8507A920C5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782974   (69851) от 03.03.2025
-
-John Doe Trio - JD III (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Prologue: Resurgence (1:51)
-02.  First King of Texas (4:11)
-03.  Whose Blues? (3:42)
-04.  Big Bad Ron (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D062F4015DD5FD5171E2047543E5E2D65A62A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783171   (69850) от 04.03.2025
-
-John Graas & Art Pepper - Complete Small Group Sessions (1951 - 1958) 2CD, 2017, Phono [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popo [3:05]
-02. Didi [2:30]
-03. Four Mothers [2:52]
-04. Over the Rainbow [3:04](   Читать дальше...   )Жанр: West Coast Jazz, BopПродолжительность: 02:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40BB924DB7E0112E5FBE0AD37BA89410016BB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783208   (69849) от 04.03.2025
-
-НХЛ 2024-2025. Оттава Сенаторз - Вашингтон Кэпиталз (03.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69849.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 марта 2025, вторник. 02:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Джон Макисаак (Труро, Канада); Главный судья: Брэндон Шредер (Санборн, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C26C54EE48877AEC61776DFDFDF6A6B2DD9871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783234   (69848) от 04.03.2025
-
-Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asylum - метал-группа, образованная в Голд -Кост, Австралия, в 2012 году.2017 - Concealed Death/Slaughterhouse
-2022 - TyrannicideЖанр: Thrash MetalПродолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D626F2340CCD2A61EF8A4ED12B2CCA209BED8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783160   (69847) от 04.03.2025
-
-Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Blackened Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fatal Embrace - метал-группа из Варберга, Швеция. Была активна с 1992 по 1998 год и воссоединилась в 2016 году.1997 - Shadowsouls' Garden
-2023 - Manifestum Infernalis
-2024 - Hail Down DeepЖанр: Melodic Blackened Death MetalПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B510205E1DEEE2394E91EC0CAA5FFDE43D65B4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783153   (69846) от 04.03.2025
-
-Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adversor - трэш-метал группа из Италии, сформированная в сентябре 2015 года2016 - Rise To Survive
-2018 - The End Of Mankind
-2023 - Portrait of a WastelandЖанр: Thrash MetalПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E46757FB9190B28A20736500DEB64C388A4D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783174   (69845) от 04.03.2025
-
-The Very Tall Band - What's Up? (1998) 2007, Telarc Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squatty Roo [8:26]
-02. Salt Peanuts [8:25]
-03. Ad Lib Blues [10:49]
-04. If I Should Lose You [7:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DC29C81024568593C3C2D591F8AA3B6BE4A1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783173   (69844) от 04.03.2025
-
-Joey DeFrancesco - Finger Poppin' (2009) Doodlin' Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strollin' [8:26]
-02. Swingin' the Samba [4:41]
-03. The Jody Grind [6:00]
-04. Finger Poppin' [6:05](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978DDB80E8F55DA3D8DBD0F40E67F41078E956B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783086   (69843) от 04.03.2025
-
-Christian Mistress - Children of the Earth (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
+Mogwai - The Bad Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <post-rock, Alternative & Indie>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. City of Gold [00:04:11]
-02. Voiceless [00:03:56]
-03. Demon's Night [00:04:12]
-04. Love of the World [00:05:05](   Читать дальше...   )Жанр: MetalПродолжительность: 00:33:00
+01. God Gets You Back [00:06:40]
+02. Hi Chaos [00:05:24]
+03. What Kind Of Mix Is This? [00:04:11]
+04. Fanzine Made Of Flesh [00:04:34](   Читать дальше...   )Жанр: post-rock, Alternative & IndieПродолжительность: 00:54:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C71545861AC0CCB1E7367B4894B1D137AB0D01D
+magnet:?xt=urn:btih:D149C3574E5B3F2BA55512A3452C4DEB6BAB4B8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,28 +170,552 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783099   (69842) от 04.03.2025
+###  Публикация: 1776556   (71235) от 01.02.2025
 
-Antony Szmierek - Service Station At The End Of The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternativa & Indie>
+Lane 8 & Sultan + Shepard - Live @ Field Stage, Proper NYD (2025-01-01) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Service Station at the End of the Universe [00:03:06]
-02. Rafters [00:03:07]
-03. The Great Pyramid of Stockport [00:02:35]
-04. Big Light [00:03:23](   Читать дальше...   )Жанр: Alternativa & IndieПродолжительность: 00:36:37
+01. ID - ID
+02. Lane 8 & Le Youth ft. Jyll - I Will Leave A Light On
+03. Sultan + Shepard - Neptune
+04. Sultan + Shepard & Lane 8 - The Little Mushroom That Got Away(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:12:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81CB4726AADA505A86581B033351F037078CAF50
+magnet:?xt=urn:btih:85F74DDC6265C7634A5F6C3CE29842D2E6D4CEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776465   (71234) от 01.02.2025
+
+Пятеро на одного (01.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6729F808D423AC9FA4BC3AF725DC80562C4A1E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776575   (71233) от 01.02.2025
+
+Своя игра (01.02.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71233.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 января начался новый турнир "Своей игры" - Кубок "Контура", призовой фонд которого составит 5 миллионов рублей. Турнир будет состоять из 8 этапов по 10 игр в каждом.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F14615E6255F4D9D27F1A69C91B210D5DF832C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776495   (71232) от 01.02.2025
+
+Donna Regina - Lazing Away (1992) Remastered, 2025, Karaoke Kalk [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Synth-pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Mood [00:04:25]
+02. Times Without Number [00:07:00]
+03. Water So Blue [00:02:57]
+04. Lazing Away [00:03:46](   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C026C38E703158818C8F78476B452F718A4F4545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776539   (71231) от 01.02.2025
+
+Тест-драйв BYD TANG DM-P FLAGSHIP 2024 — Минтранс (01.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71231.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Неоплата парковки. Можно ли отменить штраф, если случайно выбрал не тот автомобиль из списка в приложении на телефоне?
+🔸 BYD TANG DM-P FLAGSHIP 2024: передовой гибрид. Часто ли придётся искать розетку?
+🔸 Авария на трассе. Что делать в первую очередь, чтобы потом не пожалеть?
+🔸 Это надо знать. Почему большой автомобиль считается безопаснее (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E47824565E76D4DD3DEA30551DF44435A430F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776494   (71230) от 01.02.2025
+
+МузЛофт-подкаст / МузLoft. TESTOSTERON (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71230.jpg" />
+</div>
+
+
+###  Подробнее
+
+TESTOSTERON. Кто решает в группе и кто отвечает за базар.
+В гости на музыкальные посиделки заглянули обладатели хита «Это не женщина - это беда», братья и основатели группы Тестостерон. Ребята расскажут о насыщенной жизни как на сцене, так и за ее пределами. А главное, ответят на вопрос: «как делят девушек?».Производство: Россия | Y-GenerationУчастники: TESTOSTERONПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9BE940D4F2EDF035A44E4176C6251A6F208DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776547   (71229) от 01.02.2025
+
+Kilmara - Journey to the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Point Of No Return (01:21)
+ 02. Journey To The Sun (05:18)
+ 03. Alliance Of The Free (06:11)
+ 04. Chances (04:44)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1FB91CE6204AF16590AAE9B1008350953152A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776389   (71228) от 01.02.2025
+
+VA - Nothing But... Trancetopia, Vol. 23 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zader Tro - The Distant Sky (Extended Mix) [7:03]
+02. REX.W - Nostalgia (Extended Mix) [7:33]
+03. NrgMind - Lost In Soundwaves (Original Mix) [3:21]
+04. Sergey Badanin - Mysterious (Original Mix) [3:31](   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D32CEF4B59F7027F298631CD998BBD0161CE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776472   (71227) от 01.02.2025
+
+МузЛофт / МузLoft. Лео и Akmal' (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лео и Akmal'. Истории про Градского, Пугачеву и The Weeknd.
+Это наш музыкальный эксперимент, который мы сняли в Градский - холл. Сразу два артиста, а это значит в два раза больше песен и историй.Производство: Россия | Y-GenerationУчастники: Лео и Akmal'Продолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB5E1FF653BB8BB659F1F2D8C050B903C178841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776537   (71226) от 01.02.2025
+
+Алтай: уха из судака, гейзерное озеро и поиск места силы | «Поедем, поедим!» (01.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди отправился в зимний вояж по Алтаю! На этот раз его путь пролегал по самой живописной дороге в Алтайском крае. Путешественник отведал уху из судака, пельмени с грибами и сливочный мусс с экстрактом чаги. А еще ведущий увидел гейзерное озеро и древние наскальные рисунки, отыскал место силы и покорил горы на сноуборде, а также попробовал бифштекс из (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1E6FD07623C6FA925E0EABDDA2F8DAF9F55717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776551   (71225) от 01.02.2025
+
+VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valerie - The Night
+02. Good Vibes - Survivor
+03. Cascada Feat. Mirabella - Fotonovella
+04. Syn-Tonic - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442330AA72B28E82F625146C1A9DAB4063C67CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776519   (71224) от 01.02.2025
+
+Шэрон Гослинг | Книжный на маяке (2024) [MP3, Марина Гладкая]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ньютон-Данбар, маленький городок, спрятавшийся в долине среди гор на северо-востоке Шотландии, известен разве что маяком, который двести лет назад построил рядом со своим домом местный землевладелец, хотя до моря отсюда совсем не близко. Сейчас в нём находится единственный на многие мили вокруг книжный магазин — центр притяжения для любителей чтения, уютной атмосферы, (   Читать дальше...   )Жанр: сентиментальные романы, современная зарубежная литератураПеревод: Юлия ЗмееваИздательство: СиндбадПродолжительность: 10:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD767F0DDE4CA688B6ED7E44AFB6F1927CEE1217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776536   (71223) от 01.02.2025
+
+Живая еда с Сергеем Малозёмовым (01.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мухоморы: что стоит за модой на поедание ядовитого гриба, кто ездит на мухоморные ретриты и чем это может обернуться?
+ Что полезнее — оливки или оливковое масло?
+ Неожиданные черты характера сладкоежек, бактерии против стресса и секрет сплочения коллектива.
+ Рецепт недели: пирог в коробке из-под яиц по видео из Интернета.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FEE8B6A25169F69BA77E925A8E067485FA28B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776553   (71222) от 01.02.2025
+
+VA - Italo Strikes Back (1997) [AAC|320 Kbps] <Electronic, Pop, Euro House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valerie - The Night
+02. Good Vibes - Survivor
+03. Cascada Feat. Mirabella - Fotonovella
+04. Syn-Tonic - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380C31FA11D9F31DC36AB9014360E6D42C0299ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776484   (71221) от 01.02.2025
+
+Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now's the Time [6:30]
+02. All the Things You Are [7:02]
+03. A Night in Tunisia [7:46]
+04. 'Round Midnight [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3206EDE920C4E0E5D983B8B7D664F497493FA4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751414   (71220) от 01.02.2025
+
+Прикончи их всех 2 / Kill Em All 2 (2024) WEBRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филипп сталкивается лицом к лицу с русско-французским террористом, который мстит ему за убийство брата.
+"Прикончи их всех 2" - американский остросюжетный боевик 2024 года режиссера Валерия Милева и сценариста Джеймса Агню. Это прямое продолжение фильма «Прикончи их всех» (2017), в котором снялись Жан-Клод Ван Дамм, Жаклин Фернандес, Питер Стормаре и Мария (   Читать дальше...   )Производство: США / Arramis Films, Iervolino & Lady Bacardi Entertainment, March On ProductionsЖанр: боевикРежиссер: Валерий МилевАктеры: Петер Стормаре, Жан-Клод Ван Дамм, Мария Кончита Алонсо, Жаклин Фернандес, Ана Голджа, Мередит Микельсон, Талия Ассераф, Андрей Ленарт, Давид Себасти, Martina Di Fonte и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:03Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776492   (71219) от 01.02.2025
+
+The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Chancho [15:21]
+02. In The Tradition Of Switzerland [9:24]
+03. No One Can Explain It [6:30]
+04. The Holy Grail Of Jazz And Joy [25:21]Жанр: Big Band, Post-BopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768648D4857C3D201579E3BC0AF82000C95AB338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776794   (71218) от 02.02.2025
+
+Журнал | Трудовые споры №12 (240) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудовые споры — это журнал о разрешении трудовых конфликтов. В каждом номере — десятки разобранных до мелочей трудовых споров, секреты оформления документов, пошаговые алгоритмы проведения кадровых процедур, оценка рисков работодателя, аргументы для того, чтобы выиграть спор в суде.Жанр: Популярный журналИздательство: ООО "Актион Цифровое издательство"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2106EDDB24A322616B01E6A3E6CE8C0299821EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776797   (71217) от 02.02.2025
+
+Иван Бунин | Тёмные аллеи (2023) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл рассказов «Тёмные аллеи» был написан Иваном Алексеевичем Буниным в эмиграции с 1937 по 1944 годы. По словам автора, «все рассказы этой книги только о любви, о её «тёмных» и чаще всего очень мрачных и жестоких аллеях». Писатель считал эту книгу своим лучшим произведением.Жанр: классическая проза, рассказы, русская классика, социальная проза, философская прозаИздательство: АрдисПродолжительность: 09:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DFAAB48A25C7C38A97BEF10F376907526CF35F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776621   (71216) от 02.02.2025
+
+Следствие вели... (01.02.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71216.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кровавые счеты». 1979 год, Саратовская область. Неизвестные нападают на работников секретного завода. Неужели это дело рук вражеских агентов? Могла ли эти преступления совершить женщина? И какую роль в этом деле сыграл кадровый вопрос и вязаное пальто?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2BD097670A88501D46E9ACF7C62DCCA45BF473
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 986099   (932472) от 13.02.2016
+
+Василий Ермаков | Павел Луспекаев. Белое солнце пустыни (2012) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подростком он попал в партизанский отряд, участвовал в боевых операциях разведгруппы, был ранен. А в 44-м уже выходил на сцену Ворошиловградского драмтеатра... Биография Павла Луспекаева - сама по себе сюжет для целого романа. Собственно, кинорежиссер Василий Ермаков его и написал. Это не просто взгляд со стороны. Актер самобытного дарования и мощного темперамента (   Читать дальше...   )Жанр: Биографии, Мемуары, ПрозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BA0A031227547F1387BA05EA80FBA11508F4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754874   (932150) от 08.02.2014
+
+К. В. Гусев (ред.) | Дайте нам организацию революционеров... (1895-1903 гг.) (1987) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга открывает совместное издание Политиздата и Института марксизма-ленинизма при ЦК КПСС под названием "История КПСС в воспоминаниях современников". В ней собраны воспоминания участников и современников событий периода создания РСДРП - первой пролетарской партии нового типа. Хронологические рамки книги: 1895-1903 гг. - от ленинского "Союза борьбы (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FD08BF4DD86D97C43D72170A8E87DA3317B3E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365282   (932127) от 06.03.2020
+
+Илья Стогов | История одной банды (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный роман рассказывает историю одной из самых радикальных банд последних десятилетий – скинхедов, которые в нулевых годах наводили ужас на все население России.Жанр: История, Криминал, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB3EAE347C9517AC810915DFC621BFAB1D791BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093787   (932100) от 16.01.2017
 
 Александр Модестов | Развенчанные мифы о Жукове. Невский пятачок (2012) [PDF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932100.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931796.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930798.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930734.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930668.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929998.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929021.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927771.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927376.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927270.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927162.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926992.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926986.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926008.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925599.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924486.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924255.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924115.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922444.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922371.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922033.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921981.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921977.jpg" />
 </div>
 
 
@@ -598,88 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7033FF3F3EB288C2E841F77870419C367CDDCC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988407   (920931) от 20.02.2016
-
-Сергей Вальцев | Миссия России. Национальная доктрина (2011) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы устали от пустых лозунгов, красивой банальности, заказных трудов под конкретных вождей, если Вы хотите честного и обстоятельного анализа русской доктрины, если Вы хотите понять ту страну, в которой Вы живите, наш труд для Вас.
-В данной книге:
-• четко показан глобальный вызов современности, который целенаправленно пытаются закамуфлировать различными псевдопроблемами, (   Читать дальше...   )Жанр: История, Политика, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF54D207630123E245A1638135F68B83A3BC1A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367009   (919140) от 14.03.2020
-
-Никита Михалков | Право и Правда. Манифест просвещенного консерватизма (2017) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня в год столетнего юбилея двух русских революций мы предлагаем читательскому вниманию новое издание Манифеста просвещенного консерватизма под названием «Право и Правда».
-Его автор – выдающийся кинорежиссер и общественный деятель Никита Михалков.
-Надеемся, что посвященный российской консервативной идеологии Манифест, написанный простым, ясным и афористичным (   Читать дальше...   )Жанр: История, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CF6F0D77EAA29E3CA772EB996811BFCC74D8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367013   (919067) от 14.03.2020
-
-Сергей Юрский | Игра в жизнь (2017) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Сергея Юрского прочно вошло в историю русской культуры XX века. Актер мирового уровня, самобытный режиссер, неподражаемый декламатор, талантливый писатель, он одним из немногих сумел запечатлеть свою эпоху в емком, энергичном повествовании. Книга «Игра в жизнь» – это не мемуары известного артиста. Это рассказ о XX веке и собственной судьбе, о семье и искусстве, (   Читать дальше...   )Жанр: Биографии и мемуары, Кинематограф, Театр, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A57142C4A7FBBA3F0FC9C6057D977BB3B91C1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

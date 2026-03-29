@@ -1,3 +1,136 @@
+###  Публикация: 1673322   (165290) от 01.11.2023
+
+Дж. Барлтроп, Дж. Койл | Возбуждённые состояния в органической химии (1978) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие по органической фотохимии. Нетрадиционное изложение материала - не по типам реакций, а по реакциям хромофорных (поглощающих) групп.
+Рекомендуется преподавателям и студентам, специалистам в области фотохимии.Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30900626847B9769C76B77AC82C71240F8909A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432010   (164952) от 16.12.2020
+
+П.Д. Нахин | Секреты интересных интегралов (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция ловких трюков, хитрых подстановок и множество других невероятно искусных, удивительно озорных и дьявольски соблазнительных маневров для вычисления почти 200 запутанных определенных интегралов из физики, техники и математики плюс 60 сложных задач с полными, подробными решениями!
+Какой смысл вычислять определенные интегралы, если вы не можете все их решить? (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED98C2A74AB932E075EC11DEC2AC75A86A1D8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597923   (163896) от 17.12.2022
+
+Х. Штёкер (ред.) | Справочник по физике. Формулы, таблицы, схемы (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163896.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Справочник по физике» был создан коллективом опытных преподавателей вузов, ученых и инженеров. Девиз книги - лаконичность и удобство. В ней компактно собраны все важные формулы, таблицы и другой инструментарий, рассмотрены способы их использования.
+«Справочник по физике» представляет базовые знания, необходимые поступающим в вузы, выпускникам средних специальных (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CBB609C971EE7DDF1B77530AF707B8F260791BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673802   (163351) от 03.11.2023
+
+О.С. Зайцев | Химическая термодинамика к курсу общей химии (1973) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная общая и неорганическая химия быстро превращается из описательной науки в количественную. Почти полное отсутствие знаний по высшей математике у студентов первого курса крайне затрудняет введение в программу новых важнейших разделов химии, в том числе и термодинамики. В книге без применения высшей математики в простой форме изложены элементарные основы (   Читать дальше...   )Жанр: ХимияИздательство: Издательство Московского университетаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B277D78E99D719FC3922BD4743B44A902F16B7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673808   (163293) от 03.11.2023
+
+О.С. Зайцев | Задачи и вопросы по химии (1985) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит задачи и вопросы, охватывающие важнейшие разделы общей химии: строение вещества, направление н скорость процессов, периодическое изменение свойств элементов и соединений. Предпочтение отдано задачам проблемного и качественного характера, формирующим химическое мышление, при решении которых требуется поиск дополнительных сведений. Для проверки химических (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0ACBEAFF0D68E9050241098B2EEA51E9A554F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673806   (163260) от 03.11.2023
 
 О.С. Зайцев | Общая химия. Состояние веществ и химические реакции (1990) [PDF]
@@ -6,7 +139,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163260.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163247.jpg" />
 </div>
 
 
@@ -60,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163106.jpg" />
 </div>
 
 
@@ -87,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163037.jpg" />
 </div>
 
 
@@ -114,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162864.jpg" />
 </div>
 
 
@@ -140,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162802.jpg" />
 </div>
 
 
@@ -166,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160643.jpg" />
 </div>
 
 
@@ -192,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160598.jpg" />
 </div>
 
 
@@ -218,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160558.jpg" />
 </div>
 
 
@@ -244,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159985.jpg" />
 </div>
 
 
@@ -270,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159548.jpg" />
 </div>
 
 
@@ -296,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159547.jpg" />
 </div>
 
 
@@ -323,7 +456,7 @@ F. Kroger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия не
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159013.jpg" />
 </div>
 
 
@@ -349,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158993.jpg" />
 </div>
 
 
@@ -375,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158975.jpg" />
 </div>
 
 
@@ -401,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158939.jpg" />
 </div>
 
 
@@ -427,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158896.jpg" />
 </div>
 
 
@@ -454,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158881.jpg" />
 </div>
 
 
@@ -481,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158644.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158602.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157580.jpg" />
 </div>
 
 
@@ -549,142 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1EDC08BBC4E7F0ACCFDAA7BA2BCCFB9328D911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518153   (157408) от 18.12.2021
-
-Фрэнк Вильчек | Основы реальности. 10 Фундаментальных принципов устройства вселенной (2021) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лучших популяризаторов науки Фрэнк Вильчек в доступной форме описывает основные составляющие физической реальности – пространство, время, материю, энергию и динамическую сложность. Вы узнаете о теории Большого взрыва и возникновении Вселенной, познакомитесь с одними из крупнейших проектов современности: охотой на частицу Хиггса и поиском гравитационных волн, (   Читать дальше...   )Жанр: Научно-популярная литература, ФизикаПеревод: Инна Каганова, Татьяна ЛисовскаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14EE1BACDB32F8869E85D0840CF5F5110070F51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676852   (154600) от 15.11.2023
-
-А.А. Преображенский | Магнитные материалы (1965) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154600.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге кратко изложены основные представления о физических процессах, происходящих в ферромагнитных металлах, сплавах и ферритах. Рассмотрены требования, предъявляемые к различным группам магнитных материалов, и их свойства. Описаны технологические операции, выполняемые на заводах-потребителях магнитных материалов. Даны некоторые сведения об измерении свойств магнитных (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBBC344443A9A0C186C7DD4E2AF54584066ED25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085236   (154516) от 23.12.2016
-
-А. А. Горелова (ред.) | Норвегия. Справочная карта (1977) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154516.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Норвегии с административным делением (масштаб 1:2 500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6415B1B888A1B1718AC4A148F5707F19A0418F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085556   (154502) от 23.12.2016
-
-М. П. Бушуева (ред.) | Норвегия. Справочная карта (1984) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154502.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Норвегии с административным делением (масштаб 1:2 500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4E4FBF54D802B64BC4B61E543388E166776B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676928   (154273) от 15.11.2023
-
-Р. Рипан, И. Четяну | Неорганическая химия (1971 - 1972) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник по неорганической химии, предназначенный для учащихся химических техникумов, а также студентов нехимических вузов. Большой и удачно подобранный фактический материал делает его также ценным справочным пособием для лаборантов и младших научных сотрудников химических лабораторий. По широте охвата и разнообразию рассматриваемых вопросов книга полезна не только (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD55CFA126A76822D146CAF24AE721885116611
 ```
 
 https://mybot314.ru/tekegram_catalog/

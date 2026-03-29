@@ -1,3 +1,235 @@
+###  Публикация: 1700082   (117363) от 15.02.2024
+
+Illumishade - Another Side of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter the Void [00:01:51]
+02. ELEGY [00:04:55]
+03. ENEMY [00:04:53]
+04. In the Darkness [00:04:23](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Progressive MetalПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243EA286ADD4308260C88CB388E40E18EB15780C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700243   (117287) от 16.02.2024
+
+Boris Blank (Yello) - Resonance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo Heroes (Part I)
+02. Resonance
+03. Ninive
+04. Time Bridges(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54C07245E7F81D30F7408F21EB282526CB7B19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700250   (117224) от 16.02.2024
+
+Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Salt Theme (00:43)
+02. Softly She Cries (04:16)
+03. Conditioned (04:17)
+04. Healing Now (04:30)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700149   (117218) от 16.02.2024
+
+Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117218.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 No Way
+A2 She Likes To Hide
+A3 Sisters
+A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700256   (117217) от 16.02.2024
+
+Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117217.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Accelerator
+A2 Unfuture
+A3 Restless Boy
+B1 Wait(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700424   (117215) от 16.02.2024
+
+Love Romance Music Zone, Music to Relax in Free Time - Sexy Massage for Valentine’s Day 2024 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe (Increase Intimacy) (5:36)
+02. Desire (Attractive Pose) (5:46)
+03. Effect of Deep Love (5:30)
+04. Erotic Pleasure (Massage Time) (5:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE5D4E87429B128C04E7C94F3B904CB5891E415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700266   (117204) от 16.02.2024
+
+Steve Hackett - The Circus and the Nightwhale (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - People of the Smoke [4:51]
+02 - These Passing Clouds [1:36]
+03 - Taking You Down [4:18]
+04 - Found and Lost [1:50](   Читать дальше...   )Жанр: Pop Rock, Rock, Progressive RockПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0585EE37BE0B3A2F6A4CF1363F2BD47F8DCC1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700292   (117196) от 16.02.2024
+
+AC/DC - AC/DC: Live in Maryland, 1979 (2024) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Live Wire (Live) [3:43]
+02 - Shot Down In Flames (Live) [6:36]
+03 - Hell Ain't A Bad Place To Be (Live) [4:28]
+04 - Sin City (Live) [5:14](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A1E2F0E78453AECAB9336CCEAFBB8275B32BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700155   (117176) от 16.02.2024
 
 UMC - 80s in Metal (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
@@ -6,7 +238,7 @@ UMC - 80s in Metal (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117176.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy O
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117173.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Art Of Anarchy - Let There Be Anarchy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117167.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Manga Saint Hilare & MoreNight - Everything Is Under Control (2024) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117162.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ David Aubaile - Trafiquants (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117149.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117142.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Idles - Tangk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117137.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Jazz Sax Lounge Collection, Sexual Music Collection, Smooth Jazz Music Academy -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117062.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Romantic Jazz Music Club, Erotic Moods Music Club - Sensual Date Night: Set the 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117038.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117028.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Serena Forni - Rhythmic Nocturne (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117026.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Jazz Instrumental Music Academy, Calming Jazz Relax Academy - Vintage Elegance: 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117023.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117011.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117008.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ A Somerset Parade - Carcosa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117006.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ Omni - Collection (2019-2024) Sub Pop Records [FLAC 24/44.1, 24/88.2|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117005.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117001.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116891.jpg" />
 </div>
 
 
@@ -512,238 +744,6 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC 24/48|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67E9A7D646324BD6F9C18E328B6AAAE3E2F7CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700777   (116888) от 18.02.2024
-
-Durbin - Screaming Steel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Made Of Metal [4:06]
-02 - Screaming Steel [4:05]
-03 - Where They Stand [3:45]
-04 - Hallows [3:40](   Читать дальше...   )Жанр: Rock, Metal, Heavy MetalПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3855996BAF82F8AEEBEB5AEE29ECFAA0B2BE1F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700683   (116873) от 18.02.2024
-
-Jennifer Lopez - This Is Me...Now (2024) (Deluxe) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin, Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - This Is Me...Now [4:14]
-02 - To Be Yours [3:19]
-03 - Mad in Love [3:07]
-04 - Can't Get Enough [3:07](   Читать дальше...   )Жанр: Latin, Pop, DanceПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3637E56282F3BBDAB7D8C95E2179DEE3269C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700593   (116869) от 18.02.2024
-
-Background Instrumental Music Collective - Till Next Summer: Happy Jazz to Keep Good Memories, Background for Bar, Restaurant and Cafe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Not Over Yet (3:19)
-05. Horizon Is So Low (3:35)
-11. September In My Heart (3:32)
-02. Jazz Instrumental Relax Center - Honey Sun (3:20)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6D5371AB2DEBCB27D242EEB4AB1A516E8AD243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700673   (116849) от 18.02.2024
-
-Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sternzeit (1. Strophe)
-02. Kling Glöckchen Klingelingeling
-03. Leise Rieselt Der Schnee
-04. O Tannenbaum(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700800   (116847) от 18.02.2024
-
-Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Filmrolle
-02. Zauberer
-03. Hört Mein Wort
-04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700858   (116843) от 18.02.2024
-
-Geo22 - Knightcore (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance-Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Essentia [3:58]
-02 - Ante [1:45]
-03 - Noster [1:59]
-04 - Alchemy [2:44](   Читать дальше...   )Жанр: Electronic, Dance-PopПродолжительность: 00:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0B7121A1E4CDF297D53B1A2EBA8915CB4E7C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700794   (116836) от 18.02.2024
-
-Amba Shepherd - Superrlativ Collection II (2024) [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Electronic, Pop, Tropical House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wide Awake & Dreaming (Radio Edit) [3:27]
-02 - Halo of Hope [3:25]
-03 - If I Could [3:30]
-04 - Away [2:57](   Читать дальше...   )Жанр: Electronic, Pop, Tropical HouseПродолжительность: 02:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845D3022A11735657F6A260550BC97EA2E54D968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700860   (116830) от 18.02.2024
-
-Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Uhrwerk
-02. Luftschiff
-03. Ich Will Alles
-04. Goldene Zeiten(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

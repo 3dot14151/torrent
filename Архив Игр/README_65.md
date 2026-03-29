@@ -6,7 +6,7 @@ Zero: Shinku no Chou (零 ~眞紅の蝶~) [Wii] [NTSC-J] [JPN] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307188.jpg" />
+  <img src="Z:/picture/008/save_picture_307188.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Fantastic Fishing / Фантастическая рыбалка (2013) [Ru] (1.1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306841.jpg" />
+  <img src="Z:/picture/008/save_picture_306841.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Black lightning / Черная молния [Ru] (RePack) 2010  | Ultra
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306010.jpg" />
+  <img src="Z:/picture/008/save_picture_306010.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru] (RePack) 2010 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305912.jpg" />
+  <img src="Z:/picture/008/save_picture_305912.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru] (RePack) 2010 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305794.jpg" />
+  <img src="Z:/picture/008/save_picture_305794.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Farming Simulator 19 (2018) [Ru/Multi] (1.5.1.0/dlc) Repack xatab [Platinum Edit
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304568.jpg" />
+  <img src="Z:/picture/008/save_picture_304568.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Torchlight II [Ru/En] (RePack/1.19.5.7) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304527.jpg" />
+  <img src="Z:/picture/008/save_picture_304527.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304187.jpg" />
+  <img src="Z:/picture/008/save_picture_304187.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.6.0-f4/dlc) License SKIDROW [Deluxe Editio
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303942.jpg" />
+  <img src="Z:/picture/008/save_picture_303942.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Bastion (2011) [Ru/En] (build 0.12367) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303915.jpg" />
+  <img src="Z:/picture/008/save_picture_303915.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Angry Birds Seasons [En] (L/3.1.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_302514.jpg" />
+  <img src="Z:/picture/005/save_picture_302514.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Darksiders Дилогия [Ru/En] (Lossless RePack) 2010-2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302302.jpg" />
+  <img src="Z:/picture/008/save_picture_302302.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Torchlight: Dilogy / Torchlight: Дилогия [Ru/En] (RePack) 2009 - 2012 | R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302154.jpg" />
+  <img src="Z:/picture/008/save_picture_302154.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Mass Effect: Trilogy Edition  [PS3] [ENG] [USA] [4.30] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302152.jpg" />
+  <img src="Z:/picture/008/save_picture_302152.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Primordia [En] (L/2.0.0.2) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302149.jpg" />
+  <img src="Z:/picture/008/save_picture_302149.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Darksiders: Warmastered Edition (2016) [Ru/Multi] (1.0.2246) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301763.jpg" />
+  <img src="Z:/picture/008/save_picture_301763.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299613.jpg" />
+  <img src="Z:/picture/008/save_picture_299613.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Dishonored (2013) [Ru/En] (1.0.0.0/4dlc) Repack Samael [Game of the Year Edition
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298248.jpg" />
+  <img src="Z:/picture/008/save_picture_298248.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ WRC: FIA World Rally Championship [Ru/Multi6+] (RePack) 2010 l R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297518.jpg" />
+  <img src="Z:/picture/008/save_picture_297518.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ The Dwarves (2016) [Ru/Multi] (1.1.2.57) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297410.jpg" />
+  <img src="Z:/picture/008/save_picture_297410.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ WRC FIA World Rally Championship [Ru/Multi6+] (L) 2010 l Шмель
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297377.jpg" />
+  <img src="Z:/picture/008/save_picture_297377.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ WRC: FIA World Rally Championship [Ru] (RePack) 2010 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297376.jpg" />
+  <img src="Z:/picture/008/save_picture_297376.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Homefront (2011) [Ru] (1.5/dlc) Rip Other s [Collection Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296372.jpg" />
+  <img src="Z:/picture/008/save_picture_296372.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296298.jpg" />
+  <img src="Z:/picture/008/save_picture_296298.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ iMazing 2.10.4 [Multi/Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290586.jpg" />
+  <img src="Z:/picture/008/save_picture_290586.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290472.jpg" />
+  <img src="Z:/picture/008/save_picture_290472.jpg" />
 </div>
 
 

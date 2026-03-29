@@ -1,3 +1,161 @@
+###  Публикация: 1184720   (298419) от 18.11.2017
+
+Need for Speed The Run (2011) [Ru] (1.1.0.0/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298419.jpg" />
+</div>
+
+
+###  Подробнее
+
+«The Run» – гоночные состязания, ставка в которых невероятно высока. Единственный способ выжить – первым завершить опаснейшее путешествие из Сан-Франциско в Нью-Йорк. Никаких ограничений скорости. Никаких правил. Никаких друзей.Тип издания: RepackРазработчик: EA Black BoxЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D12C1F0565B67C084812B8D08FF8ED0721E76B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261959   (298335) от 13.11.2018
+
+A Way Out (2018) [Ru/Multi] (1.0) License CPY
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели игры Brothers - A Tale of Two Sons представляют вам A Way Out, приключение, предназначенное исключительно для совместного прохождения. Вам предстоит сыграть роль одного из двух заключенных, затеявших дерзкий побег из тюрьмы.Тип издания: LicenseРазработчик: HazelightЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900BB85E31BD0421C67333A3C2CABE58D51967B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 406632   (298321) от 13.11.2018
+
+Шпионка / Alias (2005) DVDRip [H.264] (Сезон 5, серии 01-17 из 17) ОРТ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переезды по всему миру, борьба с «плохими ребятами», двойная жизнь и опасность, подстерегающая на каждом шагу. Для Сидни Бристоу это — обычный день на её необычной работе. Она — агент сверхсекретного подразделения — группы СД-6.
+
+Однажды от своего отца Джека Сидни узнаёт страшную правду: оказывается, она работает на международную шпионскую организацию. Чувствуя себя (   Читать дальше...   )Производство: США, Touchstone TelevisionЖанр: Фантастика, Боевик, Триллер, ДетективРежиссер: Кен Олин, Лоуренс Триллинг, Джек Бендер и др.Актеры: Дженнифер Гарнер, Рон Рифкин, Карл Ламбли и др.Перевод: Многоголосый закадровый, профессиональный - ОРТПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE53AD4706A3E6F115D5BBFE654E6F8F2C3F3983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261877   (298317) от 13.11.2018
+
+Adobe Photoshop Lightroom Classic CC 2019 8.0.0 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A62C2C70223ACB9384F4437C8D7F2CD452D9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961739   (298260) от 02.12.2015
+
+Acronis True Image 2016 19.0.6027 BootCD [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image - комплексное приложение для всех видов локального и онлайн резервного копирования важных данных и системы в целом. Надежное и защищенное резервное копирование, максимально интегрированное с облаком Acronis Cloud.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26384CB38C0D8BE8E7D111645D295A5CF9365539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961264   (298252) от 02.12.2015
+
+Advanced SystemCare Pro 9.0.3.1078 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced SystemCare PRO обеспечивает автоматический всесторонний сервис для ПК с удалением вредоносных программ, исправлением ошибок в реестре, защитой личных данных, очисткой системы и повышением производительности. Благодаря применению новейших технологий Защита Браузера и Ускорение Интернета, программа обеспечивает превосходную защиту и ускорение доступа при пользовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574D81C469342B15636C7EAA9B71AC4BA4D17B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423561   (297325) от 14.11.2020
 
 Микросхемы можно печатать прямо на одежде
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_297325.jpg" />
+  <img src="Z:/picture/005/save_picture_297325.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Neverwinter Nights (2005) [En] (1.6.9.0/dlc) License GOG [Diamond Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297283.jpg" />
+  <img src="Z:/picture/008/save_picture_297283.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Microsoft Windows Universal StartSoft 35-36 2016 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297281.jpg" />
+  <img src="Z:/picture/008/save_picture_297281.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Adobe Premiere Pro CC 2017 (v11.0.1) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297274.jpg" />
+  <img src="Z:/picture/008/save_picture_297274.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297266.jpg" />
+  <img src="Z:/picture/008/save_picture_297266.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ Depeche Mode отдали должное
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_297191.jpg" />
+  <img src="Z:/picture/005/save_picture_297191.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297164.jpg" />
+  <img src="Z:/picture/008/save_picture_297164.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ Zaz - 7 альбомов (8CD) (2010 - 2014) Дискография [FLAC|track,
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297161.jpg" />
+  <img src="Z:/picture/008/save_picture_297161.jpg" />
 </div>
 
 
@@ -220,7 +378,7 @@ VA - Просыпаемся с удовольствием! / Будильник�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297074.jpg" />
+  <img src="Z:/picture/008/save_picture_297074.jpg" />
 </div>
 
 
@@ -246,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_296678.jpg" />
+  <img src="Z:/picture/005/save_picture_296678.jpg" />
 </div>
 
 
@@ -272,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_296613.jpg" />
+  <img src="Z:/picture/005/save_picture_296613.jpg" />
 </div>
 
 
@@ -298,7 +456,7 @@ AusLogics BoostSpeed 8.1.2.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296327.jpg" />
+  <img src="Z:/picture/008/save_picture_296327.jpg" />
 </div>
 
 
@@ -324,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296320.jpg" />
+  <img src="Z:/picture/008/save_picture_296320.jpg" />
 </div>
 
 
@@ -350,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296306.jpg" />
+  <img src="Z:/picture/008/save_picture_296306.jpg" />
 </div>
 
 
@@ -377,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296300.jpg" />
+  <img src="Z:/picture/008/save_picture_296300.jpg" />
 </div>
 
 
@@ -403,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296297.jpg" />
+  <img src="Z:/picture/008/save_picture_296297.jpg" />
 </div>
 
 
@@ -429,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296296.jpg" />
+  <img src="Z:/picture/008/save_picture_296296.jpg" />
 </div>
 
 
@@ -455,7 +613,7 @@ Amazon будет перевозить данные клиентов в груз
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_295460.jpg" />
+  <img src="Z:/picture/005/save_picture_295460.jpg" />
 </div>
 
 
@@ -481,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295200.jpg" />
+  <img src="Z:/picture/008/save_picture_295200.jpg" />
 </div>
 
 
@@ -507,7 +665,7 @@ Alien Skin Exposure X2 Bundle 1.0.0.88 Revision 35316 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295150.jpg" />
+  <img src="Z:/picture/008/save_picture_295150.jpg" />
 </div>
 
 
@@ -518,165 +676,6 @@ The Exposure X2 Bundle - это редактор фотографий и орг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A60D77DCDF38F003EF752F7B3D802B63932163E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423847   (295149) от 15.11.2020
-
-Образовательный центр Сириус обрел эксклюзивный статус
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_295149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Президент РФ Владимир Путин наделил образовательный центр Сириус особым статусом. На совещании 13 ноября глава государства объявил о превращении наукограда в федеральную территорию и определил амбициозные цели для уникальной площадки. Для главы государства Сириус имеет особое значение, констатируют  в политической среде.Онлайн-заседание попечительского совета фонда (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185182   (294632) от 20.11.2017
-
-qBittorrent 4.0.0 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свободный кросс-платформенный клиент файлообменной сети BitTorrent. qBittorrent - абсолютно бесплатный, без рекламы, мощный и простой при работе клиент. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CB6B8B4E036ADE0DDE392E3FF345FA0ED576E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179045   (294579) от 20.11.2017
-
-Очень странные дела / Загадочные события / Stranger Things (2017) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-9 из 9) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в 80-х годах в тихом провинциальном городке. Благоприятное течение местной жизни нарушает загадочное исчезновение подростка по имени Уилл. Выяснить обстоятельства дела полны решимости родные мальчика и местный шериф. Также события затрагивают лучшего друга Уилла — Майка. Он начинает собственное расследование. Майк уверен, что близок (   Читать дальше...   )Производство: США, 21 Laps Entertainment, Monkey MassacreЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Мэтт Даффер, Росс Даффер, Шон Леви, Эндрю Стэнтон, Ребекка ТомасАктеры: Вайнона Райдер, Дэвид Харбор, Финн Вулфхарт, Милли Бобби Браун, Гейтен Матараццо, Кейлеб МакЛохлен, Ной Шнапп, Сэди Синк, Наталия Дайер, Чарли Хитон и др.Перевод: многоголосый закадровый, профессиональный - LostFilmСубтитры: русские, английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF32F9A0E18B837CBD8494AF3C54ADE2C563CD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262309   (294466) от 15.11.2018
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.11.14 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081581B44C718F54C543A0682D3E96969561E052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334270   (294355) от 29.10.2019
-
-Blackmagic Design DaVinci Resolve Studio (16.1.0.55) Portable by XpucT [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294355.jpg" />
-</div>
-
-
-###  Подробнее
-
-DaVinci Resolve 16 — первый в мире программный продукт с поддержкой 8K, который позволяет на профессиональном уровне выполнять редактирование и цветокоррекцию видео, сводить аудиодорожку и добавлять визуальные эффекты. Для моментального перехода между разными страницами достаточно одного щелчка мыши. Кроме того, DaVinci Resolve 16 Studio — единственное приложение (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A90D64ABDFAE451CEBD5C2D7875EE306DD1D85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333773   (294351) от 29.10.2019
-
-Windows 10 (v1909) x64 HSL/PRO by KulHunter v1.0 (esd) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: ru_windows_10_consumer_editions_version_1909
-_x64_dvd_f74288fc.iso
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол Samba.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304F094F89FB87D7C464CAEF4235912A96B0D638
 ```
 
 https://mybot314.ru/tekegram_catalog/

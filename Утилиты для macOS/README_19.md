@@ -6,7 +6,7 @@ Alfred 4 Powerpack 4.1.1 (build1170) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721295.jpg" />
+  <img src="Z:/picture/008/save_picture_721295.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ AppCleaner 3.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720647.jpg" />
+  <img src="Z:/picture/008/save_picture_720647.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Path Finder 9 v9.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718863.jpg" />
+  <img src="Z:/picture/008/save_picture_718863.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Weather Guru - Accurate Weather Forecasts 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718055.jpg" />
+  <img src="Z:/picture/008/save_picture_718055.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Simbooster Premium 2.9.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716791.jpg" />
+  <img src="Z:/picture/008/save_picture_716791.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Spillo 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716648.jpg" />
+  <img src="Z:/picture/008/save_picture_716648.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Membrane Pro - Cover image maker 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716531.jpg" />
+  <img src="Z:/picture/008/save_picture_716531.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ TripMode 2.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716263.jpg" />
+  <img src="Z:/picture/008/save_picture_716263.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ QR Factory 2.9.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716251.jpg" />
+  <img src="Z:/picture/008/save_picture_716251.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VMware Fusion Pro 11 v11.5.6 (build 16696540) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714667.jpg" />
+  <img src="Z:/picture/008/save_picture_714667.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Roxio Toast Titanium 17 v17.4.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714362.jpg" />
+  <img src="Z:/picture/008/save_picture_714362.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Gridsutra 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714231.jpg" />
+  <img src="Z:/picture/008/save_picture_714231.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Timing - The Best Automatic Time Tracking 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713986.jpg" />
+  <img src="Z:/picture/008/save_picture_713986.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Contacts Cleaner 1.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713807.jpg" />
+  <img src="Z:/picture/008/save_picture_713807.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Inklet 2.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713673.jpg" />
+  <img src="Z:/picture/008/save_picture_713673.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Smart Scroll 4.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712607.jpg" />
+  <img src="Z:/picture/008/save_picture_712607.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ BookmarkApp 1.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712362.jpg" />
+  <img src="Z:/picture/008/save_picture_712362.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ UltData (iPhone Data Recovery) 7.4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712174.jpg" />
+  <img src="Z:/picture/008/save_picture_712174.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Copied 4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711497.jpg" />
+  <img src="Z:/picture/008/save_picture_711497.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Lux 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711491.jpg" />
+  <img src="Z:/picture/008/save_picture_711491.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Git For Command Line on Mac OS X (Git v. 2.7.1) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710388.jpg" />
+  <img src="Z:/picture/008/save_picture_710388.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AppDelete 4.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710148.jpg" />
+  <img src="Z:/picture/008/save_picture_710148.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FoldersSynchronizer 5.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707708.jpg" />
+  <img src="Z:/picture/008/save_picture_707708.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Tenorshare UltData - Mac 3.0.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707527.jpg" />
+  <img src="Z:/picture/008/save_picture_707527.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ MacPaw Hider 2 2.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706680.jpg" />
+  <img src="Z:/picture/008/save_picture_706680.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Stellar Drive Defrag 3.0.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706585.jpg" />
+  <img src="Z:/picture/008/save_picture_706585.jpg" />
 </div>
 
 

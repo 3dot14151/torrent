@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756397.jpg" />
+  <img src="Z:/picture/005/save_picture_756397.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ SuperX 2.0 [x64] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756378.jpg" />
+  <img src="Z:/picture/005/save_picture_756378.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Zoner Photo Studio X 19.1803.2.60 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756352.jpg" />
+  <img src="Z:/picture/008/save_picture_756352.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ AMD Radeon Software Adrenalin Edition 18.3.4 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756347.jpg" />
+  <img src="Z:/picture/008/save_picture_756347.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Waterfox 56.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756346.jpg" />
+  <img src="Z:/picture/008/save_picture_756346.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Sketch 49.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756338.jpg" />
+  <img src="Z:/picture/008/save_picture_756338.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Warren G - Regulate... The G Funk Era (1994) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756334.jpg" />
+  <img src="Z:/picture/008/save_picture_756334.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Psiphon 3 build 171 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756321.jpg" />
+  <img src="Z:/picture/008/save_picture_756321.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Mozilla Firefox ESR 52.7.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756227.jpg" />
+  <img src="Z:/picture/008/save_picture_756227.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Mozilla Firefox Quantum 59.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756224.jpg" />
+  <img src="Z:/picture/008/save_picture_756224.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ DaisyDisk 4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756223.jpg" />
+  <img src="Z:/picture/008/save_picture_756223.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Stellarium 0.18.0 + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756213.jpg" />
+  <img src="Z:/picture/008/save_picture_756213.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756207.jpg" />
+  <img src="Z:/picture/008/save_picture_756207.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756192.jpg" />
+  <img src="Z:/picture/005/save_picture_756192.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756186.jpg" />
+  <img src="Z:/picture/005/save_picture_756186.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756124.jpg" />
+  <img src="Z:/picture/008/save_picture_756124.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756123.jpg" />
+  <img src="Z:/picture/008/save_picture_756123.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756122.jpg" />
+  <img src="Z:/picture/008/save_picture_756122.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756121.jpg" />
+  <img src="Z:/picture/008/save_picture_756121.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756118.jpg" />
+  <img src="Z:/picture/008/save_picture_756118.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756116.jpg" />
+  <img src="Z:/picture/008/save_picture_756116.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ RAM Saver Professional 18.3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756112.jpg" />
+  <img src="Z:/picture/008/save_picture_756112.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VueMinder Ultimate 2018.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756110.jpg" />
+  <img src="Z:/picture/008/save_picture_756110.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Mate Translate – переводчик 4.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756109.jpg" />
+  <img src="Z:/picture/008/save_picture_756109.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ IObit Malware Fighter Pro 5.6.0.4462 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756100.jpg" />
+  <img src="Z:/picture/008/save_picture_756100.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756075.jpg" />
+  <img src="Z:/picture/005/save_picture_756075.jpg" />
 </div>
 
 

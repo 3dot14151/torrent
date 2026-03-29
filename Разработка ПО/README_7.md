@@ -1,3 +1,191 @@
+###  Публикация: 1780290   (27337) от 17.02.2025
+
+EditPlus 6.0.0 build 0632 + EditPlus 6.0.0 patch 0669 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27337.jpg" />
+</div>
+
+
+###  Подробнее
+
+EditPlus – это компактный текстовый редактор для Windows, умеющий читать тексты различных форматов и кодировок. В программе реализована подсветка синтаксиса для HTML, CSS, PHP, ASP, PERL, C/C , Java, javascript и VBScript. В программе имеется многооконный интерфейс, встроенный веб-браузер для предварительного просмотра HTML или Java-aпплетов. Редактор может служить (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981ACF2CBD445C18569EB8326C96EFAEF95373B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782291   (26295) от 27.02.2025
+
+Microsoft Visual Studio 2022 Community 17.13.2 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Community - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9CD92F1E487AD004C256092A8F40395582B794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784164   (25138) от 10.03.2025
+
+JetBrains dotUltimate 2024.1.3 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный набор инструментов для .NET
+Каким бы видом разработки вы ни занимались, dotUltimate сделает ее максимально эффективной. Он включает в себя расширения для Visual Studio, независимую IDE, а также набор инструментов для профилирования и анализа покрытия кода, которые помогут вам раскрыть весь потенциал платформы .NET.
+
+Разработка .NET охватывает самые различные (   Читать дальше...   )Язык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5EB9BB1E39A2E4248A6DFD8A1D3DAE591D4823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792624   (20885) от 19.04.2025
+
+Resource Tuner Business | Personal 2.25 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resource Tuner - это программа для просмотра, редактирования, замены и извлечения ресурсов исполняемых файлов, т.е. всех тех элементов, которые образуют визуальный графический интерфейс приложений, работающих под Windows: иконки, строчки, изображения, звуки, диалоги, меню и многое другое.
+Программа позволяет вносить изменения во внешний вид приложений, не вмешиваясь (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6C585318D614A0847FB6A89FA41FB86DBC991E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801586   (14973) от 11.06.2025
+
+Microsoft .NET 9.0.6 Runtime [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392B2D2884783AF3EF709B3AFC41A81FCDAEFB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811609   (8683) от 10.08.2025
+
+Araxis Merge Pro 2025.1 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
+Araxis Merge – это обязательное приложение для разработчиков (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCFD16FD838A1E969AA63F96FD4910447B8BD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812255   (8109) от 13.08.2025
+
+Microsoft Visual Studio 2019 Enterprise 16.11.50 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7D37904B2DAE3FAC330A1C3D7B1BA38A864DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812853   (7550) от 16.08.2025
 
 JetBrains PhpStorm 2025.2 Repack by Sitego [En]
@@ -6,7 +194,7 @@ JetBrains PhpStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7550.jpg" />
 </div>
 
 
@@ -33,7 +221,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7540.jpg" />
 </div>
 
 
@@ -59,7 +247,7 @@ JetBrains DataGrip 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7518.jpg" />
 </div>
 
 
@@ -86,7 +274,7 @@ JetBrains CLion 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7494.jpg" />
 </div>
 
 
@@ -112,7 +300,7 @@ JetBrains PyCharm Professional 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7364.jpg" />
 </div>
 
 
@@ -138,7 +326,7 @@ JetBrains Rider 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7326.jpg" />
 </div>
 
 
@@ -164,7 +352,7 @@ Jetbrains WebStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7320.jpg" />
 </div>
 
 
@@ -190,7 +378,7 @@ JetBrains GoLand 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7302.jpg" />
 </div>
 
 
@@ -218,7 +406,7 @@ JetBrains RustRover 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7290.jpg" />
 </div>
 
 
@@ -245,7 +433,7 @@ JetBrains DataSpell 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7277.jpg" />
 </div>
 
 
@@ -271,7 +459,7 @@ JetBrains RubyMine 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7268.jpg" />
 </div>
 
 
@@ -298,7 +486,7 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3378.jpg" />
 </div>
 
 
@@ -324,7 +512,7 @@ Microsoft Visual Studio 2022 Professional 17.14.15 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2330.jpg" />
 </div>
 
 
@@ -350,7 +538,7 @@ Open Server Panel 6.4.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1511.jpg" />
 </div>
 
 
@@ -378,7 +566,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.16 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1183.jpg" />
 </div>
 
 
@@ -404,7 +592,7 @@ Microsoft  Visual C++ Runtimes AIO v0.101.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115.jpg" />
 </div>
 
 
@@ -430,7 +618,7 @@ Microsoft Visual C++ 2015-2022(2026) Redistributable 14.50.35615.0 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68.jpg" />
 </div>
 
 

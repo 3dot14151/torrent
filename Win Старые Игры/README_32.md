@@ -1,3 +1,55 @@
+###  Публикация: 1520408   (141252) от 28.12.2021
+
+LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141252.jpg" />
+</div>
+
+
+###  Подробнее
+
+епло принятая игроками и критиками франшиза LEGO Star Wars возвращается. В LEGO Star Wars III: The Clone Wars собраны грандиозные истории, любимые персонажи из вселенной Звездных Войн, в том числе известного мультсериала Star Wars: The Clone Wars, и новые возможности. Игроки смогут опробовать новые механики, позволяющие исследовать далекую-далекую галактику как никогда (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Экшн, Приключение, КомедияЯзык субтитров: Английский, Немецкий, Испанский, Датский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Датский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE86A001793E25C416A3AA1FC2EB29A51B61A552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088452   (140080) от 30.12.2016
+
+Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытайте самый реалистичный охотничий опыт в истории игровой индустрии. Просторные регионы с действенной природой в Канаде и США-Альберта, Аризона, Мэн, Орегон и Теннеси, где обитает множество видов животных.Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Sport (Hunt, Fish), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088390   (140049) от 30.12.2016
 
 Hunting Unlimited 4 (2006) [En] (1.0) License Razor1911
@@ -6,7 +58,7 @@ Hunting Unlimited 4 (2006) [En] (1.0) License Razor1911
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140049.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ DethKarz (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139261.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138422.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138133.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137875.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Hunting Unlimited 2 (2003) [En] (1.0) License Fairlight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137791.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137261.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137186.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Nexus - The Jupiter Incident (2004) [Ru/Multi] (1.03) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136919.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136819.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136781.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Crysis (2007) [Ru] (1.1.1.6156) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136739.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Bioshock [En] (Steam-Rip/1.1) 2007 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135110.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Operation Steel Tide (2002) [Ru] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134668.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134473.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ STAR WARS Empire at War (2006) [Ru/En] (1.120/1.121/dlc) Repack dixen18 [Gold Pa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134407.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131787.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130631.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130588.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130490.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130488.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack Decepticon [Collector's Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128514.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Need for Speed: Most Wanted (2005) [Ru/Multi] (1.3) Repack Decepticon [Black Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128507.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127750.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ Need for Speed: Underground 2 - это аркадный гоночный сим�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC07E7106EA1E8CC8FB5D6C2AFE7B618B514898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684564   (127730) от 16.12.2023
-
-Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed: Porsche Unleashed – одна из лучших игр серии Need for Speed, вышла в марте 2000 года и почти сразу очутилась на верхушках многих мировых чартов. В этой части разработчики сделали упор на автомобили марки Porsche, представив почти весь модельный ряд компании, начиная с шестидесятых годов прошлого века. Благодаря этому геймеры могли покататься как на (   Читать дальше...   )Тип издания: RepackРазработчик: EA CanadaЖанр: Racing, SimulatorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59033D3B40561934DA9D8FADDFE6D045AE9E0667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684840   (127537) от 17.12.2023
-
-Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может утолить жажду скорости? Только очередная часть легендарных гонок. Более 20 роскошных автомобилей от ведущих мировых производителей. Два режима игры - чемпионат и уличные гонки с полицией - по 33 уровня в каждом. Доступна игра за полицию в качестве "копа", где вы можете вызывать подкрепление, вертолеты, сбрасывающие бомбы на злостных нарушителей, (   Читать дальше...   )Тип издания: RepackРазработчик: EA SeattleЖанр: Racing, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
 ```
 
 https://mybot314.ru/tekegram_catalog/

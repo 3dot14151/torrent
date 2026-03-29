@@ -1,3 +1,107 @@
+###  Публикация: 1120653   (801806) от 31.03.2017
+
+Сегодня международный день резервного копирования (День бэкапа)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_801806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный день резервного копирования (англ. World Backup Day) или День бэкапа (от англ. backup) проводится ежегодно 31 марта. Резервное копирование — это создание копии данных на носителе (жёстком диске, флеш-карте, CD-диске и других носителях), предназначенном для восстановления данных в случае их повреждения или потери на основном носителе. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120521   (801644) от 31.03.2017
+
+MAGIX Vegas Pro 14.0 Build 244 RePack by KpoJIuK [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801644.jpg" />
+</div>
+
+
+###  Подробнее
+
+MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C70AA863B3503D825DD2EC5EE63B1B7492D8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120913   (801171) от 01.04.2017
+
+Компания SpaceX произвела успешный повторный запуск и посадку использованной ранее ступени ракеты-носителя Falcon 9
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_801171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известная аэрокосмическая компания SpaceX в очередной раз вошла в историю, произведя повторный запуск и успешную посадку использованной ранее первой ступени ракеты-носителя Falcon 9. Восстановленная после первого запуска ракета стартовала 30 марта 2017 года в 22:27 по времени Гринвичского меридиана со стартовой площадки Launch Complex 39 космодрома Космического центра (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120609   (800935) от 01.04.2017
+
+uTorrent Pro 3.5 Build 43580 Stable RePack (& Portable) by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800935.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB0EFC587E5BEF47B88AB8582A0CAE831A34DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029916   (800811) от 16.01.2018
 
 The Beatles: 1 (1962-1970) 2015 [remastered] BDRip [H.264/1080p]
@@ -6,7 +110,7 @@ The Beatles: 1 (1962-1970) 2015 [remastered] BDRip [H.264/1080p]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800811.jpg" />
+  <img src="Z:/picture/008/save_picture_800811.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800798.jpg" />
+  <img src="Z:/picture/008/save_picture_800798.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_800730.jpg" />
+  <img src="Z:/picture/005/save_picture_800730.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 05.2020 by OVGorskiy 1D
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800688.jpg" />
+  <img src="Z:/picture/008/save_picture_800688.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ Astra Linux Special Edition 1.7 [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800662.jpg" />
+  <img src="Z:/picture/008/save_picture_800662.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800527.jpg" />
+  <img src="Z:/picture/008/save_picture_800527.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800525.jpg" />
+  <img src="Z:/picture/008/save_picture_800525.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_800235.jpg" />
+  <img src="Z:/picture/005/save_picture_800235.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_800011.jpg" />
+  <img src="Z:/picture/005/save_picture_800011.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Saints Row: The Third - Remastered (2020) [Ru/En] (1.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799793.jpg" />
+  <img src="Z:/picture/008/save_picture_799793.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799787.jpg" />
+  <img src="Z:/picture/008/save_picture_799787.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799720.jpg" />
+  <img src="Z:/picture/005/save_picture_799720.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Halo: Combat Evolved (2003) [Ru/En] (1.10) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799709.jpg" />
+  <img src="Z:/picture/008/save_picture_799709.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799704.jpg" />
+  <img src="Z:/picture/008/save_picture_799704.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799701.jpg" />
+  <img src="Z:/picture/008/save_picture_799701.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ Microsoft Windows 7 SP1-u with IE11 (2 x 3in1) - DG Win&Soft 2018.12 (en-US, ru-
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799700.jpg" />
+  <img src="Z:/picture/008/save_picture_799700.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ Project CARS 2 (2017) [Ru/Multi] (7.1.0.1.1108/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799699.jpg" />
+  <img src="Z:/picture/008/save_picture_799699.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799697.jpg" />
+  <img src="Z:/picture/008/save_picture_799697.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799696.jpg" />
+  <img src="Z:/picture/008/save_picture_799696.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799583.jpg" />
+  <img src="Z:/picture/005/save_picture_799583.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ WWE 2K17 (2017) [En] (1.06/upd4/dlc) Repack =nemos= [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799418.jpg" />
+  <img src="Z:/picture/008/save_picture_799418.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ Gregorian [Полная дискография] [1991-2007] [MP3|192-320 CBR] <N
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799417.jpg" />
+  <img src="Z:/picture/005/save_picture_799417.jpg" />
 </div>
 
 
@@ -576,110 +680,6 @@ Gregorian [Полная дискография] [1991-2007] [MP3|192-320 CBR] <N
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498567   (799291) от 01.11.2021
-
-ИГРА (2021) WEBRip [H.264/1080p-LQ] (сезон 1, выпуски 1-6 из ??) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799291.jpg" />
-</div>
-
-
-###  Подробнее
-
-85 комиков из 12 команд поборются за беспрецедентный для телеэфира приз – 30 миллионов рублей. В новом шоу, ведущим которого стал самый интеллигентный комик Евгений Чебатков, представителей разных поколений юмора разделят на «стариков» и «молодых». Они будут выступать в жанрах миниатюр, стендапа, импровизации, музыкальной комедии, инсценировок, абсурдного или любого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Азамат Мусагалиев, Алексей Щербаков, Рустам Рептилоид, Тамби Масаев, Дмитрий Кожома, Айдар Гараев, Артём Муратов, Иван Абрамов, Илья Макаров, Варвара Щербакова, Елена Гущина и др.Субтитры: ОтсутствуютПродолжительность: ~01:20:00 выпуск (~02:16:00 выпуск 1)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F512132E634847EE544546FCE49F0F1100CC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505752   (799289) от 01.11.2021
-
-Кощей. Начало (2021) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799289.jpg" />
-</div>
-
-
-###  Подробнее
-
-В давние времена люди и сказочные существа жили вместе. Пока в Дивноземское княжество не нагрянул Белый призрак, безжалостный монстр, способный уничтожить весь мир. Но лишь одному герою под силу остановить чудище. Он молод, силен, красив, а еще водит байк… Его зовут Кощей.Производство: Россия / ПаровозЖанр: мультфильм, семейный, приключения, фэнтезиРежиссер: Андрей КолпинАктеры: Никита Волков, Ирина Старшенбаум, Арсений Перель, Тимур Родригез, Юрий Гальцев, Павел Баршак, Владислав Ветров, Ирина Медведева, Юлия Зимина, Мирослава КарповичСубтитры: РусскиеПродолжительность: 01:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E23672AF3963D6352118560E489EF3B590A8064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273786   (799279) от 03.01.2019
-
-MyLifeOrganized Pro 5.0.1.3026 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799279.jpg" />
-</div>
-
-
-###  Подробнее
-
-MyLifeOrganized простой и в то же время мощный инструмент ведения персональных задач. С помощью MLO Вы можете организовать Ваши дела в цели, проекты, задачи и подзадачи. Из полученного дерева задач может быть легко сформирован список конкретных дел, которыми следует заняться в данный момент. Этот список может быть отфильтрован с учетом текущего контекста, имеющегося (   Читать дальше...   )Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803D18D80E2739B31B979F8E633884B803787008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067074   (799265) от 03.01.2019
-
-Alice VR (2016) [Ru/Multi] (1.0/u7) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alice VR - это остросюжетная исследовательская игра с множеством головоломок, уникальное приключение в виртуальной реальности. Игра создана по мотивам известной книги Льюиса Кэрролла "Алиса в Стране чудес", персонажи и сюжеты которой перенесены в фантастическую, инопланетную обстановку. Прекрасные пейзажи, стильная электронная музыка.Тип издания: LicenseРазработчик: Carbon StudioЖанр: Adventure, IndieЯзык озвучки: Английский и ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C28E7CB0BF9EE1B39C4372FDFD2AD0E598B416
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Allegorithmic Substance Designer 6.0.3 build 181 (Linux) [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653668.jpg" />
+  <img src="Z:/picture/008/save_picture_653668.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tor Browser 4.5.2 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629745.jpg" />
+  <img src="Z:/picture/008/save_picture_629745.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tor Browser 5.0a2  (Alpha2)  [анонимный доступ в сети] [х86
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627505.jpg" />
+  <img src="Z:/picture/008/save_picture_627505.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Autodesk Maya 2017 Update 3 [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623056.jpg" />
+  <img src="Z:/picture/008/save_picture_623056.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Bricsys BricsCAD Platinum 17 17.1.20 Build 47302 [x64] (.tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621238.jpg" />
+  <img src="Z:/picture/008/save_picture_621238.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ OpenVPN Access Server 2.6.1 [En]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620083.jpg" />
+  <img src="Z:/picture/008/save_picture_620083.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Maplesoft Maple 2017.1a Build 1238644 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612533.jpg" />
+  <img src="Z:/picture/008/save_picture_612533.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PDF Studio Pro 11.0.7 (13.04.17) [x86, amd64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597864.jpg" />
+  <img src="Z:/picture/008/save_picture_597864.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Komodo Edit 10-2.2.17703 [x86, amd64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596327.jpg" />
+  <img src="Z:/picture/008/save_picture_596327.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Tor Browser for Linux 4.5.3 [x86/x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596103.jpg" />
+  <img src="Z:/picture/008/save_picture_596103.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586867.jpg" />
+  <img src="Z:/picture/008/save_picture_586867.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft Office 2007 Professional Plus SP3 12.0.6607.1000 Repack The Hacker [x8
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582558.jpg" />
+  <img src="Z:/picture/008/save_picture_582558.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Tor Browser 2.3.25-12 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573179.jpg" />
+  <img src="Z:/picture/008/save_picture_573179.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Image Uploader 1.3.1 build 4318 Stable [Multi/Ru] Repack The Hacker [x86-x64] (c
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571345.jpg" />
+  <img src="Z:/picture/008/save_picture_571345.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Abbyy FineReader 7.0 Professional 7.0.0.509 Repack The Hacker [x86-x64] (cxarchi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567805.jpg" />
+  <img src="Z:/picture/008/save_picture_567805.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Wing IDE Professional 6 6.0.6-1 [x64] (tar.bz2,deb,rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566665.jpg" />
+  <img src="Z:/picture/008/save_picture_566665.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Tixati 2.53 [amd64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564881.jpg" />
+  <img src="Z:/picture/008/save_picture_564881.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552036.jpg" />
+  <img src="Z:/picture/008/save_picture_552036.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Wing IDE Pro 7.0.3.0 [x64] (deb,rpm,tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549268.jpg" />
+  <img src="Z:/picture/008/save_picture_549268.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548001.jpg" />
+  <img src="Z:/picture/008/save_picture_548001.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Abbyy FineReader 8.0 Professional 8.0.0.706 Repack The Hacker [x86-x64] (cxarchi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540258.jpg" />
+  <img src="Z:/picture/008/save_picture_540258.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Brackets 30 [x32,x64] (deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533618.jpg" />
+  <img src="Z:/picture/008/save_picture_533618.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tor Browser 5.0 [анонимный доступ в сети] [х86, x64] (bundl
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531197.jpg" />
+  <img src="Z:/picture/008/save_picture_531197.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Microsoft Office 2003 Pro SP3 + FrontPage 2003 SP3 + Project 2003 Pro SP3 + Visi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521242.jpg" />
+  <img src="Z:/picture/008/save_picture_521242.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Microsoft Office 2007 Pro Plus SP3 + Project 2007 Pro SP3 + Sharepoint Designer 
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520192.jpg" />
+  <img src="Z:/picture/008/save_picture_520192.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Tor Browser 5.0.1 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518338.jpg" />
+  <img src="Z:/picture/008/save_picture_518338.jpg" />
 </div>
 
 

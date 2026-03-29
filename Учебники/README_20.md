@@ -1,3 +1,57 @@
+###  Публикация: 1373358   (880148) от 06.04.2020
+
+Наталья Викторовна Макарычева | Профилактика жадности, лжи, лени и хвастовства: Коррекционно-развивающая программа для детей 5-8 лет (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: "Растем гражданами и патриотами"
+
+Представлена программа работы по профилактике и коррекции негативных нравственных качеств у детей старшего дошкольного и младшего школьного возраста. В ее основецикл занятий, цель которых состоит в формировании у детей представлений о биполярных качествах личности (честности и лжи, щедрости и жадности, скромности (   Читать дальше...   )Жанр: Дошкольное образованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2527DC1C8F3AB73CC42F25599374290BCAED75CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104405   (879735) от 15.02.2017
+
+Н.А. Акимова и др. | Монтаж, техническая эксплуатация и ремонт электрического и электромеханического оборудования (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы, связанные с правильным хранением, монтажом и техническим обслуживанием электрических машин и аппаратов, трансформаторов, распределительных электрических сетей, осветительных установок и электрической бытовой техники. Приведены организационная структура и методы планирования электроремонтного производства, типовые технологические процессы ремонта (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C853C9998FE5C145CF2359D88B038B9FBD6300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104702   (876458) от 17.02.2017
 
 О.О. Гонина | Психология младшего школьного возраста. Учебное пособие (2015) [RTF, FB2]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876458.jpg" />
+  <img src="Z:/picture/005/save_picture_876458.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876414.jpg" />
+  <img src="Z:/picture/005/save_picture_876414.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876342.jpg" />
+  <img src="Z:/picture/005/save_picture_876342.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875582.jpg" />
+  <img src="Z:/picture/005/save_picture_875582.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875019.jpg" />
+  <img src="Z:/picture/005/save_picture_875019.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ RCA | Basic Alcohol Tutorial (Руководство для барменов) (2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874984.jpg" />
+  <img src="Z:/picture/005/save_picture_874984.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874874.jpg" />
+  <img src="Z:/picture/005/save_picture_874874.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873569.jpg" />
+  <img src="Z:/picture/008/save_picture_873569.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873374.jpg" />
+  <img src="Z:/picture/008/save_picture_873374.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873283.jpg" />
+  <img src="Z:/picture/008/save_picture_873283.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873228.jpg" />
+  <img src="Z:/picture/008/save_picture_873228.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873217.jpg" />
+  <img src="Z:/picture/008/save_picture_873217.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873039.jpg" />
+  <img src="Z:/picture/008/save_picture_873039.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871462.jpg" />
+  <img src="Z:/picture/008/save_picture_871462.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871222.jpg" />
+  <img src="Z:/picture/008/save_picture_871222.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871214.jpg" />
+  <img src="Z:/picture/008/save_picture_871214.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870595.jpg" />
+  <img src="Z:/picture/008/save_picture_870595.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870512.jpg" />
+  <img src="Z:/picture/008/save_picture_870512.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870060.jpg" />
+  <img src="Z:/picture/008/save_picture_870060.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868434.jpg" />
+  <img src="Z:/picture/008/save_picture_868434.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868319.jpg" />
+  <img src="Z:/picture/008/save_picture_868319.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866232.jpg" />
+  <img src="Z:/picture/008/save_picture_866232.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866228.jpg" />
+  <img src="Z:/picture/008/save_picture_866228.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866101.jpg" />
+  <img src="Z:/picture/008/save_picture_866101.jpg" />
 </div>
 
 
@@ -626,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6915FDF8CC21BE94C15CB323A2ED53EE0CCAEFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107772   (866099) от 23.02.2017
-
-В.В. Величко и др. | Основы инфокоммуникационных технологий (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866099.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии с единых позиций рассмотрен комплекс вопросов, относящихся к инфокоммуникационным технологиям. представлены основы построения телекоммуникационных систем и сетей, дано представление о современных беспроводных средствах связи, включая подвижные средства связи, рассмотрены принципы построения сетей следующего поколения и технологии, применяемые при (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A3220CED1F2AB9D05F6B5A2FA04B50159BBD37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107762   (866095) от 23.02.2017
-
-А.В. Росляков | Сети доступа (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены вопросы построения современных сетей доступа и модернизации существующих сетей, а также приведена классификация необходимых для этого современных проводных и беспроводных технологий. Наибольшее внимание в пособии уделено самым востребованным в настоящее время широкополосным технологиям цифровых абонентских линий xDSL.
-Для студентов высших учебных заведений, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB6172DD8C19875378931A20DF2CE5F6F96C7DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

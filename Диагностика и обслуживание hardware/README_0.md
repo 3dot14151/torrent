@@ -1,3 +1,211 @@
+###  Публикация: 1856272   (1058670) от 27.02.2026
+
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.25.8200 Final RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058670.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E505DC553E52873C20A40C4D26383D57B5C0899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855796   (1058476) от 24.02.2026
+
+MiniTool Partition Wizard Technician 13.6.0 RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058476.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniTool Partition Wizard Technician - мощный менеджер для работы с разделами жесткого диска. С его помощью можно изменять размер раздела, создавать новые разделы на жестком диске, удалять и форматировать уже существующие разделы. Partition Wizard обладает удобным интерфейсом, который будет понятным большинству более-менее подготовленных пользователей, MiniTool Partition (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3D41AE525D4EB7B5C4C687735A4F5DD90CDAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855800   (1058474) от 24.02.2026
+
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.25.8200 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058474.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256271F8556A6578ADC029F94445CD673CEA43EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855809   (1058356) от 25.02.2026
+
+AIDA64 Business Edition 8.25.8200 Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058356.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67A935EA63062F125F3FFD8F6277BDDD4E408D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855916   (1058346) от 25.02.2026
+
+Hard Disk Sentinel PRO 6.40 Build 13782 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B734A302F9981AB7F1B2FD8E615EF3BB2CF3657C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855920   (1058345) от 25.02.2026
+
+Macrorit Partition Expert 8.9.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2C37567ABAF67CE2EFC5583A2368792CBC2422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855720   (1058194) от 24.02.2026
+
+Auslogics Disk Defrag Pro 12.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2045C4343DFDDEC7A06982BF97B798D07BA1BFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855739   (1058175) от 24.02.2026
+
+HWiNFO 8.42 Build 5930 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058175.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB10E30208CF698AAD846386ACB46F198ED0EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854982   (1057889) от 20.02.2026
 
 AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.20.8100 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -6,7 +214,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.20.8100 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057889.jpg" />
+  <img src="Z:/picture/005/save_picture_1057889.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ IsMyHdOK 4.48 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057680.jpg" />
+  <img src="Z:/picture/005/save_picture_1057680.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ IM-Magic Partition Resizer 7.9.0 Professional |Server | Unlimited Edition RePack
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057593.jpg" />
+  <img src="Z:/picture/005/save_picture_1057593.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ NIUBI Partition Editor 10.3.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057592.jpg" />
+  <img src="Z:/picture/005/save_picture_1057592.jpg" />
 </div>
 
 
@@ -111,7 +319,7 @@ CrystalDiskMark 9.0.2 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057226.jpg" />
+  <img src="Z:/picture/005/save_picture_1057226.jpg" />
 </div>
 
 
@@ -137,7 +345,7 @@ Futuremark PCMark 10 Professional Edition 2.3.2912 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057221.jpg" />
+  <img src="Z:/picture/005/save_picture_1057221.jpg" />
 </div>
 
 
@@ -163,7 +371,7 @@ Hard Disk Sentinel Pro 6.40 Build 13782 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057102.jpg" />
+  <img src="Z:/picture/005/save_picture_1057102.jpg" />
 </div>
 
 
@@ -189,7 +397,7 @@ Macrorit Partition Expert 8.9.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057099.jpg" />
+  <img src="Z:/picture/005/save_picture_1057099.jpg" />
 </div>
 
 
@@ -215,7 +423,7 @@ Hard Disk Sentinel PRO 6.40 Build 13782 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057072.jpg" />
+  <img src="Z:/picture/005/save_picture_1057072.jpg" />
 </div>
 
 
@@ -241,7 +449,7 @@ GPU-Z 2.69.0 RePack by druc [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057020.jpg" />
+  <img src="Z:/picture/005/save_picture_1057020.jpg" />
 </div>
 
 
@@ -267,7 +475,7 @@ CrystalDiskInfo 9.8.0 Final [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056962.jpg" />
+  <img src="Z:/picture/005/save_picture_1056962.jpg" />
 </div>
 
 
@@ -293,7 +501,7 @@ GPU-Z 2.69.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056602.jpg" />
+  <img src="Z:/picture/005/save_picture_1056602.jpg" />
 </div>
 
 
@@ -319,7 +527,7 @@ CPU Temp 1.9.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056596.jpg" />
+  <img src="Z:/picture/005/save_picture_1056596.jpg" />
 </div>
 
 
@@ -345,7 +553,7 @@ CPUID HWMonitor 1.62 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056453.jpg" />
+  <img src="Z:/picture/005/save_picture_1056453.jpg" />
 </div>
 
 
@@ -371,7 +579,7 @@ OCCT 15.0.14 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054654.jpg" />
+  <img src="Z:/picture/005/save_picture_1054654.jpg" />
 </div>
 
 
@@ -397,7 +605,7 @@ Futuremark 3DMark 2.32.8826 for Enterprise RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053774.jpg" />
+  <img src="Z:/picture/005/save_picture_1053774.jpg" />
 </div>
 
 
@@ -423,7 +631,7 @@ Hard Disk Sentinel PRO 6.30.7 Build 13782 Beta RePack (& Portable) by elchupacab
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052741.jpg" />
+  <img src="Z:/picture/005/save_picture_1052741.jpg" />
 </div>
 
 
@@ -449,7 +657,7 @@ Auslogics SSD Optimizer 2.2.0.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052593.jpg" />
+  <img src="Z:/picture/005/save_picture_1052593.jpg" />
 </div>
 
 
@@ -460,214 +668,6 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D49D50842874A50C056CD59B3FF8300E21CF6201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848132   (1052563) от 16.01.2026
-
-Auslogics SSD Optimizer 2.2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics SSD Optimizer - специальный инструмент, разработанный для повышения эффективности вашего SSD и достижения новых высот производительности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174A927932A5AED39D79A72A50AA9EE460CC6FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847950   (1052403) от 16.01.2026
-
-SIV (System Information Viewer) 5.85 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052403.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965E58A8B5354AF811D6B1A05800D0BECA613569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846952   (1051816) от 09.01.2026
-
-CPU-Z 2.18.0 + Portable [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB30BDA4B0EBE52A36710008324612B318EC6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847058   (1051722) от 10.01.2026
-
-IObit Smart Defrag Pro 11.2.0.472 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D81B3B544FDD8EB2593BC6F8988E3598B070384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846820   (1051605) от 09.01.2026
-
-HWiNFO 8.40 Build 5900 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051605.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698DD675EF2A1FC839D4AED58FC3FD460A4EA3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846828   (1051596) от 09.01.2026
-
-IObit Smart Defrag Pro 11.2.0.472 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC2FB9D3632460626EEB412E2EC8D86437861EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846855   (1051584) от 09.01.2026
-
-CPU-Z 2.18.0 Portable [Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051584.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D71665DC13B2E0F2522B92FA9FFF4BBDD4EBA20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846672   (1051379) от 08.01.2026
-
-IObit Smart Defrag Pro 11.2.0.472 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC12D09BCB256C157AABEE61AF81A42D7C2243F
 ```
 
 https://mybot314.ru/tekegram_catalog/

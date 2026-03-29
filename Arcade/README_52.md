@@ -1,3 +1,29 @@
+###  Публикация: 1751602   (34974) от 07.12.2024
+
+Disney Epic Mickey: Rebrushed (2024) [Multi] (1.0.3/dlc) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disney Epic Mickey: Rebrushed оживляет магию мира Disney в красочном трехмерном платформере. В этой версии Микки Маус отправится в эпическое путешествие по Пустоши - царству забытых диснеевских персонажей. Вместе с Микки вам предстоит познакомиться с фантастическим миром, где вы с краской и кисточкой наперевес будете творить историю.Тип издания: LicenseРазработчик: Purple LampЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA5E6EF2B855418528C62418A50AD0FB0996A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330445   (34762) от 09.12.2024
 
 Chasm (2018) [Multi] (1.093) License GOG
@@ -6,7 +32,7 @@ Chasm (2018) [Multi] (1.093) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34762.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34575.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tales of Kenzera: ZAU (2024) [Multi] (1.5.45551) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34249.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34139.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34089.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33810.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack FitGirl [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33622.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Ashes of the Union (2024) [Ru/Multi] (0.3.5 Hotfix 2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33534.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33218.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33195.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32954.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Viscera (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32775.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32738.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32727.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0.1.1f/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32653.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32415.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Penny Blood: Hellbound (2024) [Multi] (1.0.00628) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32363.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32345.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32341.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32282.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32218.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32116.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack seleZen [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31945.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31853.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Adventure Allies (2025) [Ru/Multi] (build 16612391) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31832.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Adventure Allies - это казуальная игра в жанре action-adv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93A737325C88CC854084FDB235D3C1B824136A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763281   (31746) от 07.01.2025
-
-Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живя в фантастическом мире, ты всегда мечтал стать известным искателем приключений, как твой отец. Однако реальность оказывается более скучной, чем вымысел, поскольку вы в основном проводите время, выполняя случайную работу для жителей деревни. Вместе со своими друзьями вы участвуете в Турнире Восьмерок и стремитесь к чему-то большему: шансу стать лучшей гильдией (   Читать дальше...   )Тип издания: SceneРазработчик: InusukuЖанр: ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02322C18E3C83C3E855FC3025F728FC18B5F654A
 ```
 
 https://mybot314.ru/tekegram_catalog/

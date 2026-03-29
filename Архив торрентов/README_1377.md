@@ -6,7 +6,7 @@ Plugin Alliance & DS Audio - Thorn 1.2.0 VSTi, VSTi3, AAX (x86/x64) RePack by VR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742221.jpg" />
+  <img src="Z:/picture/008/save_picture_742221.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Rorschach Patterns (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Industrial, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742211.jpg" />
+  <img src="Z:/picture/008/save_picture_742211.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742186.jpg" />
+  <img src="Z:/picture/008/save_picture_742186.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742161.jpg" />
+  <img src="Z:/picture/008/save_picture_742161.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ LibreOffice 7.2.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742156.jpg" />
+  <img src="Z:/picture/008/save_picture_742156.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ digiKam 7.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742155.jpg" />
+  <img src="Z:/picture/008/save_picture_742155.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PhotoScape X Pro 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742140.jpg" />
+  <img src="Z:/picture/008/save_picture_742140.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742135.jpg" />
+  <img src="Z:/picture/008/save_picture_742135.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Maniac Lover - Vaccine (2018) [MP3|320 Kbps] <EDM, Industrial, Retrowave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742127.jpg" />
+  <img src="Z:/picture/008/save_picture_742127.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Chamillionaire - The Sound Of Revenge (2005) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742125.jpg" />
+  <img src="Z:/picture/008/save_picture_742125.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Alison Wonderland - Awake (2018) [MP3|320 Kbps] <Dubstep, Trap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742123.jpg" />
+  <img src="Z:/picture/008/save_picture_742123.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ LL Cool J - G.O.A.T. (The Greatest Of All Time) (2000) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742120.jpg" />
+  <img src="Z:/picture/008/save_picture_742120.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ NVIDIA GeForce Desktop 418.91 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742110.jpg" />
+  <img src="Z:/picture/008/save_picture_742110.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Capture One Pro 12 v12.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742109.jpg" />
+  <img src="Z:/picture/008/save_picture_742109.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Aiseesoft Blu-ray Player 6.2.92 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742087.jpg" />
+  <img src="Z:/picture/008/save_picture_742087.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Slimjet 10.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742077.jpg" />
+  <img src="Z:/picture/008/save_picture_742077.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Julio Iglesias - Un Hombre Solo (1987) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742074.jpg" />
+  <img src="Z:/picture/008/save_picture_742074.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Crash (УННВ) - Нитки (2016) [MP3|320 кб/с] <Underground hip-hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742073.jpg" />
+  <img src="Z:/picture/008/save_picture_742073.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742071.jpg" />
+  <img src="Z:/picture/008/save_picture_742071.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Down Low - Third Dimension (1998) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742052.jpg" />
+  <img src="Z:/picture/008/save_picture_742052.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ R-Drive Image Technician 6.2.Build.6202 RePack (& Portable) by TryRooM  [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742037.jpg" />
+  <img src="Z:/picture/008/save_picture_742037.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Display Driver Uninstaller 18.0.4.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742017.jpg" />
+  <img src="Z:/picture/008/save_picture_742017.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Spotify 1.1.76.447 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742016.jpg" />
+  <img src="Z:/picture/008/save_picture_742016.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ LosslessCut 3.42.0 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742009.jpg" />
+  <img src="Z:/picture/008/save_picture_742009.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741996.jpg" />
+  <img src="Z:/picture/008/save_picture_741996.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741989.jpg" />
+  <img src="Z:/picture/008/save_picture_741989.jpg" />
 </div>
 
 

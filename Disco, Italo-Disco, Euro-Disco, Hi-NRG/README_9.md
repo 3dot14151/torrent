@@ -6,7 +6,7 @@ Roberta Flack Featuring Donny Hathaway - Roberta Flack Featuring Donny Hathaway 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793389.jpg" />
+  <img src="Z:/picture/008/save_picture_793389.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Melody Stewart - Action Satisfaction (1980) Reissue CD, 2009, Unidisc [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792929.jpg" />
+  <img src="Z:/picture/008/save_picture_792929.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gilla - The HQ Vinil Collection (1975-1980) All Studio Albums [MP3|320 Kbps] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792336.jpg" />
+  <img src="Z:/picture/008/save_picture_792336.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Noel - Is There More To Life Than Dancing? (1979) LP [MP3|320 Kbps] <Electronic,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792269.jpg" />
+  <img src="Z:/picture/008/save_picture_792269.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gayle Adams - 2 Albums (1980, 1982) Reissue CD, 1992, Unidisc [MP3|320 Kbps] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791579.jpg" />
+  <img src="Z:/picture/008/save_picture_791579.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Watson Beasley - Watson Beasley (1980) Reissue CD, 2003, Unidisc [MP3|320 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791528.jpg" />
+  <img src="Z:/picture/008/save_picture_791528.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Star City - I'm A Man (1978) Reissue CD, 1998, Unidisc [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791335.jpg" />
+  <img src="Z:/picture/008/save_picture_791335.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jebadiah - Rock 'N' Soul (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791332.jpg" />
+  <img src="Z:/picture/008/save_picture_791332.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Top Secret - Top Secret (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790756.jpg" />
+  <img src="Z:/picture/008/save_picture_790756.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Guy Lafleur - Lafleur! (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789853.jpg" />
+  <img src="Z:/picture/008/save_picture_789853.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Disco Planet (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789441.jpg" />
+  <img src="Z:/picture/008/save_picture_789441.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ X Ray Connection - X Ray Connection (1984) LP [MP3|320 Kbps] <Electronic, Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788649.jpg" />
+  <img src="Z:/picture/008/save_picture_788649.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Number One Ensemble - 2 Albums, 1 Singles & EPs (1979, 1980) LP, 7" [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788174.jpg" />
+  <img src="Z:/picture/008/save_picture_788174.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Roots - Roots (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788172.jpg" />
+  <img src="Z:/picture/008/save_picture_788172.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sabu - Sabu (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787242.jpg" />
+  <img src="Z:/picture/008/save_picture_787242.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Smoove & Turrell - Stratos Bleu (2020) [MP3|320 Kbps] <Funk, Disco, Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786757.jpg" />
+  <img src="Z:/picture/008/save_picture_786757.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Stay In The 80s (2018) 2CD [MP3|320 Kbps] <EuroPop, EuroDisco, Italo Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784062.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Montana - I Love Music (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783933.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Doctor's Cat - Gee Wiz (1984) LP, 7'' [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783506.jpg" />
+  <img src="Z:/picture/008/save_picture_783506.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sine - Happy Is The Only Way (1977) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783400.jpg" />
+  <img src="Z:/picture/008/save_picture_783400.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Daniele Baldelli Presents Baia Degli Angeli 1977-1978 (2005,2007) 2CD [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783228.jpg" />
+  <img src="Z:/picture/008/save_picture_783228.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jose Calvario - The Best Disco In Sound (1977) LP [MP3|320 Kbps] <Instrumental, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782960.jpg" />
+  <img src="Z:/picture/008/save_picture_782960.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ De Lux - More Disco Songs About Love (2018) [MP3|320 Kbps] <Dance-pop, Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782949.jpg" />
+  <img src="Z:/picture/008/save_picture_782949.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ The Glass Family - 2 Albums (1978,1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782946.jpg" />
+  <img src="Z:/picture/008/save_picture_782946.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Dee D. Jackson - 2 Albums (1978, 1980) LP Mint [MP3|320 Kbps] <Electronic, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782632.jpg" />
+  <img src="Z:/picture/008/save_picture_782632.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Disco 80's Vol.2 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781713.jpg" />
 </div>
 
 

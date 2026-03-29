@@ -1,3 +1,164 @@
+###  Публикация: 1812798   (7433) от 16.08.2025
+
+STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2FDBC0E3CC77839345F53E927EBBBE813FCEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971524   (7401) от 17.08.2025
+
+Номер 13 (Номер 13 или женитьба Пигдена) / Out of order (2001) DVDRip (2 действия) (МХТ им. А.П.Чехова)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7401.jpg" />
+</div>
+
+
+###  Подробнее
+
+По пьесе популярного английского драматурга Рэя Куни "Out of order".
+Помощник премьер-министра Ричард Уилли снял номер в шикарном отеле, где намеревался устроить свидание со своей секретаршей. Но в номере оказалось бездыханное тело незнакомого мужчины. Чтобы избавиться от тела, Уилли вызывает своего секретаря Джорджа Пигдена, который только усложняет положение...Производство: Россия, МХТ им. А.П.ЧеховаЖанр: Комедия, приключения, спектакльРежиссер: Владимир МашковАктеры: Авангард Леонтьев, Евгений Миронов, Александра Скачкова, Ксения Лаврова-Глинка, Игорь Золотовицкий, Марианна Шульц, Леонид Тимцуник, Сергей Беляев, Сергей Угрюмов, Варвара ШулятьеваПродолжительность: 01:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B09467F1CCDDE985DFD3ECE69467C99B0E1F190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812940   (7322) от 17.08.2025
+
+Кино. Последний концерт в Лужниках (1990) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний концерт группы «Кино», который прошел на Большой спортивной арене Лужников 24 июня 1990 года, незадолго до трагической гибели Виктора Цоя. Во время шоу, на котором присутствовали 70 тысяч зрителей, зажгли Олимпийский огонь Игр-1980, а по окончании 45-минутного выступления группы «Кино» прогремел салют.Телекомпания: Россия | Первый каналЖанр: РокУчастники: Виктор Цой (вокал, гитара), Юрий Каспарян (соло-гитара), Георгий Гурьянов (драм-машина, ударные) и Игорь Тихомиров (бас-гитара)Продолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B654895929B0E6F40BBD840F6321E58957A75673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049243   (6840) от 20.08.2025
+
+Звезды на утреннем небе (1987) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Ленинградского Малого Драматического Театра. Драма в двух действиях по мотивам одноименной пьесы А. Галина «Звезды на утреннем небе», написанная в 1982 году, возвращает нас в дни Московской олимпиады, когда блестел парадный фасад Москвы, все радовались празднику, а на 101 километре от Москвы жили и страдали те, кого выселили на время из праздника, из Москвы (   Читать дальше...   )Производство: СССР, Академический Малый драматический Театр ЕвропыЖанр: Драма, спектакль, экранизацияРежиссер: Лев ДодинАктеры: Наталья Акимова, Татьяна Шестакова, Ирина Селезнёва, Марина Гридасова, Владимир Осипчук, Галина Филимонова, Игорь ИвановПеревод: ОтсутствуетПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF46DED75AB917AD9D0D79E4B53EDF2F72A283F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813775   (6645) от 21.08.2025
+
+NEMOPHILA - 5th Anniversary. JIGOKU NO YURUFUWA LIVE at NIPPON BUDOKAN (2024) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6645.jpg" />
+</div>
+
+
+###  Подробнее
+
+NEMOPHILA - японская женская метал/рок группа, основанная в 2019 г. в Токио.
+Запись концерта в честь пятилетия группы, прошедшего 17.02.2024 в Nippon Budokan.1. RISE
+2. 鬼灯
+3 .雷霆 -RAITEI-
+4. ZEN(   Читать дальше...   )Производство: ЯпонияЖанр: J-Metal, J-RockУчастники: Маю, Саки, Хадзуки, Мурата Таму, ХарагутиПродолжительность: 02:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FB096C7B0F08762827869493C63F9B9DD59404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814095   (6282) от 23.08.2025
+
+Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE58F2695AA1FFD8E58A835182BD93AE6FC992D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 876277   (5911) от 26.08.2025
 
 Криминальный талант (1985) WEB-DLRip
@@ -6,7 +167,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5911.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ Whitney Houston - Концерт в Южной Африке / Whitney Houston - 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5569.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5013.jpg" />
 </div>
 
 
@@ -87,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3939.jpg" />
 </div>
 
 
@@ -116,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2760.jpg" />
 </div>
 
 
@@ -145,7 +306,7 @@ Gorillaz - The Happy Dictator ft. Sparks (2025) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2184.jpg" />
 </div>
 
 
@@ -171,7 +332,7 @@ Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2152.jpg" />
 </div>
 
 
@@ -197,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1665.jpg" />
 </div>
 
 
@@ -226,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_287.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 578559   (351946) от 21.11.2012
+
+Macross: Do You Remember Love? / Макросс: Помнишь ли ты любовь? [1984, MOVIE, 1 из 1] BDrip 1080i raw + rus + eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351946.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2009 году н.э. человечество оказалось втянуто в трехсторонний военный конфликт с расой гигантских пришельцев-гуманоидов Зентради. Генетически эта раса представляет из себя единое целое, однако, женские особи называют себя Мелтранди и сражаются независимо за собственное военное превосходство. Потерпев поражение в первой битве против инопланетян, гиперпространственная крепость Макросс была отброшена на край солнечной системы и теперь держит путь назад к Земле. Во время короткого столкновения с силами Зентради, молодой пилот Хикару Ичидзе спасает поп-диву Линн Минмэй. По стечению обстоятельств, они проводят неделю вместе, запертые в отсеке корабля, и в конечном итоге влюбляются друг в друга. По возвращении в Макросс Сити Хикару за самодеятельность на поле боя получает выговор от офицера Мисы Хаясе, однако, за спасение известной певицы на этот раз он освобожден от наказания. Случайно обнаруживается, что голос Минмэй способен воздействовать на вражескую армию и может помочь отражать атаки пришельцев. Вскоре Зентради (   Читать дальше...   )Жанр: фантастика, меха, романтика, драмаРежиссер: Кавамори СёдзиПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7299467ED4562AF312805714741AF5B141935401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562090   (347219) от 22.09.2022
 
 Дочь моей мачехи - моя бывшая девушка | Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347219.jpg" />
+  <img src="Z:/picture/008/save_picture_347219.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 из 12] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344924.jpg" />
+  <img src="Z:/picture/008/save_picture_344924.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342833.jpg" />
+  <img src="Z:/picture/008/save_picture_342833.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340252.jpg" />
+  <img src="Z:/picture/008/save_picture_340252.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338040.jpg" />
+  <img src="Z:/picture/008/save_picture_338040.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338038.jpg" />
+  <img src="Z:/picture/008/save_picture_338038.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338037.jpg" />
+  <img src="Z:/picture/008/save_picture_338037.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338034.jpg" />
+  <img src="Z:/picture/008/save_picture_338034.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338033.jpg" />
+  <img src="Z:/picture/008/save_picture_338033.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338028.jpg" />
+  <img src="Z:/picture/008/save_picture_338028.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Cyberpunk: Edgerunners (2022) | Киберпанк: Бегущие по краю
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338027.jpg" />
+  <img src="Z:/picture/008/save_picture_338027.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ RWBY Ледяное королевство | RWBY: Hyousetsu Teikoku | RWBY: Ice
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335947.jpg" />
+  <img src="Z:/picture/008/save_picture_335947.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Jujutsu Kaisen | Магическая битва [2020, TV, 24 из 24] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335946.jpg" />
+  <img src="Z:/picture/008/save_picture_335946.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335874.jpg" />
+  <img src="Z:/picture/008/save_picture_335874.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333651.jpg" />
+  <img src="Z:/picture/008/save_picture_333651.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331519.jpg" />
+  <img src="Z:/picture/008/save_picture_331519.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330454.jpg" />
+  <img src="Z:/picture/008/save_picture_330454.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327786.jpg" />
+  <img src="Z:/picture/008/save_picture_327786.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327779.jpg" />
+  <img src="Z:/picture/008/save_picture_327779.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324195.jpg" />
+  <img src="Z:/picture/008/save_picture_324195.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322558.jpg" />
+  <img src="Z:/picture/008/save_picture_322558.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319990.jpg" />
+  <img src="Z:/picture/008/save_picture_319990.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315767.jpg" />
+  <img src="Z:/picture/008/save_picture_315767.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304417.jpg" />
+  <img src="Z:/picture/008/save_picture_304417.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298239.jpg" />
+  <img src="Z:/picture/008/save_picture_298239.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FC2DC774D380A34984470B82A291CF4BFE56C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333903   (298237) от 27.10.2019
-
-Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: One Flew Over the Kuno's Nest | Ранма 1/2: Команда Ранмы против Легендарного феникса [1994, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Татэваки Куно покупает в одном антикварном магазине таинственное яйцо легендарного феникса. По словам продавца, мастера рукопашного боя очень его ценят. И неспроста: владелец яйца способен обучиться особой атаке «Хоо-кэн» (рус. «Меч феникса»). Есть только одно железное правило: ни в коем случае не класть яйцо себе на голову, иначе — быть беде. Но не проходит и дня, (   Читать дальше...   )Производство: Studio DEEN / スタジオディーンЖанр: приключения, комедияРежиссер: Нисимура ДзюндзиСубтитры: русские (полные)Продолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C6867A092D446F2CC60AD554A8BF3323E5D330
 ```
 
 https://mybot314.ru/tekegram_catalog/

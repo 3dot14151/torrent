@@ -1,3 +1,30 @@
+###  Публикация: 922777   (566252) от 30.07.2015
+
+Картинки - Прекрасная абстракция [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые абстрактные изображения. Совсем небольших - от 1024х768- около 7 штук. К сожалению, контент платный. Но не стала удалять—очень уж хороши.
+Остальные можно использовать в качестве обоев. У меня они из самых любимых.Формат: JPG, PNGРазрешение файлов: 1024х768—7697х1884
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC651E406A01CE6E66C4377EED36575D67EFA65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922675   (566249) от 30.07.2015
 
 Картинки - Дух Средневековья. 50 обоев 8К [JPG]
@@ -6,7 +33,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566249.jpg" />
+  <img src="Z:/picture/008/save_picture_566249.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566087.jpg" />
+  <img src="Z:/picture/008/save_picture_566087.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564710.jpg" />
+  <img src="Z:/picture/008/save_picture_564710.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564706.jpg" />
+  <img src="Z:/picture/008/save_picture_564706.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564585.jpg" />
+  <img src="Z:/picture/008/save_picture_564585.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564548.jpg" />
+  <img src="Z:/picture/008/save_picture_564548.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564547.jpg" />
+  <img src="Z:/picture/008/save_picture_564547.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564545.jpg" />
+  <img src="Z:/picture/008/save_picture_564545.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564543.jpg" />
+  <img src="Z:/picture/008/save_picture_564543.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564541.jpg" />
+  <img src="Z:/picture/008/save_picture_564541.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564539.jpg" />
+  <img src="Z:/picture/008/save_picture_564539.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564501.jpg" />
+  <img src="Z:/picture/008/save_picture_564501.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564495.jpg" />
+  <img src="Z:/picture/008/save_picture_564495.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564492.jpg" />
+  <img src="Z:/picture/008/save_picture_564492.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564400.jpg" />
+  <img src="Z:/picture/008/save_picture_564400.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563504.jpg" />
+  <img src="Z:/picture/008/save_picture_563504.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563109.jpg" />
+  <img src="Z:/picture/008/save_picture_563109.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562961.jpg" />
+  <img src="Z:/picture/008/save_picture_562961.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562949.jpg" />
+  <img src="Z:/picture/008/save_picture_562949.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ Wallpapers - Sexy Girl Full HD 2 [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561010.jpg" />
+  <img src="Z:/picture/008/save_picture_561010.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560804.jpg" />
+  <img src="Z:/picture/008/save_picture_560804.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560801.jpg" />
+  <img src="Z:/picture/008/save_picture_560801.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560800.jpg" />
+  <img src="Z:/picture/008/save_picture_560800.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560714.jpg" />
+  <img src="Z:/picture/008/save_picture_560714.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560512.jpg" />
+  <img src="Z:/picture/008/save_picture_560512.jpg" />
 </div>
 
 
@@ -645,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42E9FA0BAE66519D50100BE68C7F6A0B68735292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923836   (560399) от 02.08.2015
-
-Классическое искусство - Классическая и Современная Ева [JPG]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое "классическая Ева"? Это женщина-мечта глазами мужчин от эпохи Возрождения до конца XIX - начала XX века. Излишне говорить о том, что это - богини, феи, нимфы, принцессы, одалиски. Одним словом - создания не от мира сего, сошедшие если не с небес, то никак не из кухни. Чем отличается Современная Ева от Классической Евы? Современная Ева здесь только (   Читать дальше...   )Формат: JPGРазрешение файлов: от 870х2000,1000х1370 до 3540х5230,4500х3075
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781A7850F882DCB8DAC7DE8AE85016F4F6A9AFD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129513.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129512.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129508.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129505.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129496.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129494.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129490.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129480.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - My Electronic Kitchen, Vol. 3 (2017) [AAC|~324 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129479.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Stil vor Talent 300, Pt. 1 (2021) [AAC|~326 Kbps] <Melodic House, Progressi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129477.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - My Electronic Kitchen, Vol. 1 (2016) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129473.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - My Electronic Kitchen, Vol. 2 (2017) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129471.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Guenter Haas - Tales of a Broken Planet (2013) [AAC|~319 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129467.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129285.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Africa Gets Physical, Vol. 2 (2019) [AAC|~331 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129260.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Africa Gets Physical, Vol. 1 (2017) [AAC|~335 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129249.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Africa Gets Physical, Vol. 3 (2020) [AAC|~331 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129242.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129226.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulfu
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129177.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129175.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129172.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129170.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Relaxing Chillout (2022) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129153.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Buddah's Chill 3 (2013) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129141.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Buddah's Chill 6 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129139.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Buddah's Chill 4 (2015) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129133.jpg" />
 </div>
 
 

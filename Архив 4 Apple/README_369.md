@@ -1,3 +1,109 @@
+###  Публикация: 548086   (466185) от 18.09.2012
+
+Apple iOS 6 Golden Master (iPhone 4S,iPhone 4,iPhone 3GS,iPad 2/3) (IOS)
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчик: Apple Inc.Язык интерфейса: 33 языка, включая русский, английский, немецкий и т.д.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058601   (466162) от 02.10.2016
+
+1Blocker - Block ads, tracking scripts, anything 1.2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466162.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Blocker - блокировка рекламы
+Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30.09.2016Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC635E31C09A2C8CB46F67048B6C1B69DB3F2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058712   (466159) от 02.10.2016
+
+Espionage 3.6.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Espionage - приложение, которое позволяет шифровать и защищать паролем отдельные папки и взаимодействовать с ними прямо из Finder. В отличии от других аналогичных программ, Espionage защищает только то, что вы хотите и он это делает в процессе интеграции непосредственно с Finder. Просто перетащите нужную папку на окно Espionage и установите пароль.Тип издания: macOS SoftwareРелиз состоялся: 29.09.2016Разработчик: TAO EffectПоддерживаемая ОС: macOS OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97580390AB997B6051F604EFA0252CA8A427F091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058653   (466063) от 02.10.2016
+
+iMazing 2.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466063.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 сентября 2016Разработчик: DigiDNAПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A208DC933D7E21C6207C9A5DE76301E9DC94158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161713   (465533) от 29.08.2017
 
 iA Writer 4.0.4 [En]
@@ -6,7 +112,7 @@ iA Writer 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465533.jpg" />
+  <img src="Z:/picture/008/save_picture_465533.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ TechTool Pro 9.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465530.jpg" />
+  <img src="Z:/picture/008/save_picture_465530.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Corel Painter 2018 (18.0.0.621) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465100.jpg" />
+  <img src="Z:/picture/008/save_picture_465100.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Unibox 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464769.jpg" />
+  <img src="Z:/picture/008/save_picture_464769.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ Beyond Compare 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464756.jpg" />
+  <img src="Z:/picture/008/save_picture_464756.jpg" />
 </div>
 
 
@@ -143,7 +249,7 @@ PlistEdit Pro 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464618.jpg" />
+  <img src="Z:/picture/008/save_picture_464618.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ iMazing 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464607.jpg" />
+  <img src="Z:/picture/008/save_picture_464607.jpg" />
 </div>
 
 
@@ -197,7 +303,7 @@ Carbon Copy Cloner 3.5.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464531.jpg" />
+  <img src="Z:/picture/008/save_picture_464531.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ SuperDuper! 2.7.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464526.jpg" />
+  <img src="Z:/picture/008/save_picture_464526.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ Templates for Pages 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464472.jpg" />
+  <img src="Z:/picture/008/save_picture_464472.jpg" />
 </div>
 
 
@@ -278,7 +384,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464468.jpg" />
+  <img src="Z:/picture/008/save_picture_464468.jpg" />
 </div>
 
 
@@ -307,7 +413,7 @@ Path Finder 6.0.6 [Eng/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464350.jpg" />
+  <img src="Z:/picture/008/save_picture_464350.jpg" />
 </div>
 
 
@@ -333,7 +439,7 @@ Pixave 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464164.jpg" />
+  <img src="Z:/picture/008/save_picture_464164.jpg" />
 </div>
 
 
@@ -360,7 +466,7 @@ ExpanDrive 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464136.jpg" />
+  <img src="Z:/picture/008/save_picture_464136.jpg" />
 </div>
 
 
@@ -389,7 +495,7 @@ MacBooster 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464053.jpg" />
+  <img src="Z:/picture/008/save_picture_464053.jpg" />
 </div>
 
 
@@ -418,7 +524,7 @@ Camtasia 2.10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464039.jpg" />
+  <img src="Z:/picture/008/save_picture_464039.jpg" />
 </div>
 
 
@@ -445,7 +551,7 @@ zCommander Pro 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464035.jpg" />
+  <img src="Z:/picture/008/save_picture_464035.jpg" />
 </div>
 
 
@@ -474,7 +580,7 @@ DxO FilmPack Elite 5.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464026.jpg" />
+  <img src="Z:/picture/008/save_picture_464026.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ iDatabase 3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463900.jpg" />
+  <img src="Z:/picture/008/save_picture_463900.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ Xojo IDE RAD 2016r3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463789.jpg" />
+  <img src="Z:/picture/008/save_picture_463789.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ Topaz Plugins Bundle (03.10.2016) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463768.jpg" />
+  <img src="Z:/picture/008/save_picture_463768.jpg" />
 </div>
 
 
@@ -581,7 +687,7 @@ Dead Cells v1.0.2.23340 (2018) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463185.jpg" />
+  <img src="Z:/picture/008/save_picture_463185.jpg" />
 </div>
 
 
@@ -593,117 +699,6 @@ Dead Cells v1.0.2.23340 (2018) [Multi] [macOS Native game]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C33E4B6A7398E6B0004A0741AED1F9ED8703BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059632   (462109) от 04.10.2016
-
-RapidWeaver 7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462109.jpg" />
-</div>
-
-
-###  Подробнее
-
-RapidWeaver - популярный HTML-редактор
-RapidWeaver - WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
-
-RapidWeaver является приложением все-в-одном, которое (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 октября 2016Разработчик: Realmac Software LimitedПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD90FCD5D4AB5860ADE0D0B1F2237C5200E9E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059687   (461976) от 04.10.2016
-
-Default Folder X 5.0.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2016Разработчик: St. Clair SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06020E83198118B7BE12198329EE10BE3BF6F289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059549   (461975) от 04.10.2016
-
-Downie 2.5.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie 2 – это простейший видео-загрузчик. Поддерживает более 750 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS OS X 10.10 и вышеЯзык интерфейса: Английский, Русский (вперемешку)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B7CF540E8E81C5D09D8CF10A5DD76CDBB6E377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059671   (461974) от 04.10.2016
-
-Cocktail 10.0.1 (Sierra Edition) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cocktail - это приятная и довольно мощная утилита со множеством практических возможностей, которые упрощают использование продвинутых функций UNIX и помогает сотням мак-юзеров!
-
-Cocktail преподносит великолепный микс из инструментов для обслуживания и твиков интерфейса.Тип издания: macOS SoftwareРелиз состоялся: 04 октября 2016Разработчик: MaintainПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0F7D452E767E030AC46F60C7D656B8A16447FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

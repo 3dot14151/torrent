@@ -1,3 +1,86 @@
+###  Публикация: 340005   (36895) от 18.11.2024
+
+Альфред де Виньи | Сен Мар, или заговор в царствование Людовика XIII (2011) [MP3, Михаил Поздняков]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альфред де Виньи (1797–1863) – французский писатель, граф,  крупнейший представитель французского аристократического, консервативного романтизма.
+«Сен Мар» Альфреда де Виньи – книга из первого ряда не только французской, но и мировой литературы. Безупречная по стилю, она принадлежит еще и к редчайшим, поистине романтическим произведениям. Нашему современнику – очевидцу (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: МедиаКнигаПродолжительность: 22:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16AB7088DB56837E102DC66DADA930BF20A95CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319362   (36846) от 19.11.2024
+
+Валентин Иванов | Древняя история Руси (Книга 3). Русь Великая (2010) [MP3, Николай Козий]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Библиотечная серия. Древняя история Руси.
+Валентин Дмитриевич Иванов (1902–1975) – русский советский писатель, член Союза писателей СССР.
+Роман «Русь великая» (1961) третья книга трилогии Валентина Иванова о создании Русского государства. Время действия романа – XI век, период активного развития выхода славянства и его государственного объединения – Киевской (   Читать дальше...   )Жанр: Русская литература, исторический романИздательство: Нигде не купишьПродолжительность: 33:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B03BFD7A4A32FAE5055F8015AD0C46FBA638E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319354   (36842) от 19.11.2024
+
+Валентин Иванов | Древняя история Руси (Книга 1). Повести древних лет (2009) [MP3, Юрий Рудник]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Библиотечная серия. Древняя история Руси.
+Валентин Дмитриевич Иванов (1902–1975) – русский советский писатель, член Союза писателей СССР.
+Роман «Повести древних лет» (1955) писателя-историка В.Д. Иванова – яркий, динамичный и увлекательный рассказ о событиях IX века. Завершается распад родового строя у славянских племен. Начинается процесс формирования (   Читать дальше...   )Жанр: Русская литература, исторический  романИздательство: Нигде не купишьПродолжительность: 21:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EF2BE0F0C2DDBFE1155425D7412C131A0FAE30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 328979   (36688) от 20.11.2024
 
 Евгений Карнович | Мальтийские рыцари в России (2009) [MP3, Олег Фёдоров]
@@ -6,7 +89,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36688.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36679.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36526.jpg" />
 </div>
 
 
@@ -88,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36320.jpg" />
 </div>
 
 
@@ -116,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36319.jpg" />
 </div>
 
 
@@ -143,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36252.jpg" />
 </div>
 
 
@@ -171,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36202.jpg" />
 </div>
 
 
@@ -199,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36106.jpg" />
 </div>
 
 
@@ -227,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35999.jpg" />
 </div>
 
 
@@ -255,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35794.jpg" />
 </div>
 
 
@@ -282,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35429.jpg" />
 </div>
 
 
@@ -309,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34844.jpg" />
 </div>
 
 
@@ -337,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34491.jpg" />
 </div>
 
 
@@ -364,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34228.jpg" />
 </div>
 
 
@@ -392,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34201.jpg" />
 </div>
 
 
@@ -419,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33874.jpg" />
 </div>
 
 
@@ -445,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20578.jpg" />
 </div>
 
 
@@ -471,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20273.jpg" />
 </div>
 
 
@@ -497,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20270.jpg" />
 </div>
 
 
@@ -524,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20258.jpg" />
 </div>
 
 
@@ -551,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20154.jpg" />
 </div>
 
 
@@ -577,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18933.jpg" />
 </div>
 
 
@@ -606,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18522.jpg" />
 </div>
 
 
@@ -620,87 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43ACCAA020D8BBCD6BF41149659596D96B5E51A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797259   (17992) от 17.05.2025
-
-Жан Делюмо | Ужасы на западе II. Правящая культура и страх (2025) [MP3, Роман Ильин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страх, что это такое? Каково соотношение личностного и общественного в страхе? Как страх, испытываемый отдельным человеком, проникает в общественное сознание и становится коллективным чувством? Каковы причины, питательная почва страха, и к каким последствиям приводит страх, овладевший целым сообществом людей? Вот круг проблем, изучаемых автором на культурологическом (   Читать дальше...   )Жанр: ИсторияИздательство: Аудиокнига своими рукамиПродолжительность: 08:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37596CD375445108E5C3E28BFA90E0D4E16D5778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800721   (15548) от 05.06.2025
-
-Александр Пушкин | История Пугачева (2008) [MP3, Юрий Радкевич]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Литературный сериал.
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-«История Пугачёва» («История Пугачёвского бунта») – историческая монография А.С. Пушкина о событиях крестьянской войны 1773–1775 годов (   Читать дальше...   )Жанр: Русская литература, классика, историческая прозаИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 03:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA8538A2979B356D8DE29A73063F0A988EF880C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762441   (13275) от 27.06.2025
-
-Иван Забелин | Минин и Пожарский (2012) [MP3, Егор Серов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Егорович Забелин (1820–1908) – один из виднейших русских историков XIX века, археолог, музейный деятель, коллекционер, действительный статский советник (1876), член-корреспондент (1884), почетный член (1907) Петербургской Академии наук.
-Книга Забелина посвящена событиям 400-летней давности – тревожным временам Смуты, когда решающую роль в борьбе за независимость (   Читать дальше...   )Жанр: Русская литература, историческая прозаИздательство: Студия «АРДИС»Продолжительность: 08:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A6E0276945443130A86F25F13E679A41C93AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

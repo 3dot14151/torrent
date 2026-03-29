@@ -1,3 +1,90 @@
+###  Публикация: 1494649   (887822) от 08.09.2021
+
+Bloodbound - Creatures Of The Dark Realm (2021) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Creatures Preludium
+02. Creatures Of The Dark Realm
+03. When Fate Is Calling
+04. Ever Burning Flame(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9842A32331E9235661549010D4BDEDA67184D356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103102   (887766) от 11.02.2017
+
+Doro - Machine II Machine (1995) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tie Me Up (5:00)
+02. The Want (6:31)
+03. Ceremony (4:58)
+04. Machine II Machine (5:03)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C34D0BA84816AD3CA269DECA4D609C82A80269C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103101   (887648) от 11.02.2017
+
+Doro - Angels Never Die (1993) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye On You (3:06)
+02. Bad Blood (4:10)
+03. Last Day Of My Life (5:34)
+04. Born To Bleed (4:24)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Soft RockПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7940F35C59BAE019B6B66BADDDB1E935AF5AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994797   (886594) от 10.03.2016
 
 Minushuman - Bloodthrone (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Thrash Metal, Groove Metal>
@@ -6,7 +93,7 @@ Minushuman - Bloodthrone (2011) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886594.jpg" />
+  <img src="Z:/picture/005/save_picture_886594.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Royal Hunt - Cargo (2016) Japanese Edition 2CD [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886228.jpg" />
+  <img src="Z:/picture/005/save_picture_886228.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Eld Varg - One Man Army (2021) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886108.jpg" />
+  <img src="Z:/picture/005/save_picture_886108.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Quarzum - Alma Inmaterial (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886000.jpg" />
+  <img src="Z:/picture/005/save_picture_886000.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Cabal - Drag Me Down (2020) [FLAC|Lossless|tracks] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885620.jpg" />
+  <img src="Z:/picture/005/save_picture_885620.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Viscerals (2020) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885611.jpg" />
+  <img src="Z:/picture/005/save_picture_885611.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Testament - Titans of Creation (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885285.jpg" />
+  <img src="Z:/picture/005/save_picture_885285.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Sepultura - Beneath The Remains (1989) 2CD Remastered, 2020, Roadrunner Records 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885283.jpg" />
+  <img src="Z:/picture/005/save_picture_885283.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Sinergy - 3 Albums (1999-2002) 4CD [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885196.jpg" />
+  <img src="Z:/picture/005/save_picture_885196.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Mike Dimareli Artical - Fantasy (2004) [FLAC|Lossless|image + .cue] <Shred Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884817.jpg" />
+  <img src="Z:/picture/005/save_picture_884817.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Metalium - Demons Of Insanity - Chapter Five (2005) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884538.jpg" />
+  <img src="Z:/picture/005/save_picture_884538.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Metalium - 6 Studio Albums (1999-2009) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884534.jpg" />
+  <img src="Z:/picture/005/save_picture_884534.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Red - Release The Panic (2013) Deluxe Edition [FLAC|lossless|tracks + .cue] <Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884358.jpg" />
+  <img src="Z:/picture/005/save_picture_884358.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ AtomA - Skylight (2012) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Atmosp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883994.jpg" />
+  <img src="Z:/picture/005/save_picture_883994.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Tulip - High Strangeness (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883993.jpg" />
+  <img src="Z:/picture/005/save_picture_883993.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ V.A - Shadows Of Tragedy (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883730.jpg" />
+  <img src="Z:/picture/005/save_picture_883730.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Ad Infinitum - Chapter I: Monarchy (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883717.jpg" />
+  <img src="Z:/picture/005/save_picture_883717.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ My Darkest Hate - Anger Temple (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883648.jpg" />
+  <img src="Z:/picture/005/save_picture_883648.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Chrome Molly - Hoodoo Voodoo (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883645.jpg" />
+  <img src="Z:/picture/005/save_picture_883645.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Mastercastle - The Phoenix (2009) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883643.jpg" />
+  <img src="Z:/picture/005/save_picture_883643.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Al Atkins - Reloaded (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883641.jpg" />
+  <img src="Z:/picture/005/save_picture_883641.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Best of Lovy Metal (2007) [FLAC|Lossless|tracks + .cue] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883553.jpg" />
+  <img src="Z:/picture/005/save_picture_883553.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Between Worlds - Between Worlds (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882502.jpg" />
+  <img src="Z:/picture/005/save_picture_882502.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Between Worlds - Between Worlds (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF606EF5C06A915E26F8942D3A09150D67148266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495128   (882500) от 11.09.2021
-
-Skid Life - Awake (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awake
-02. Salvation
-03. Corrupted
-04. Joker(   Читать дальше...   )Жанр: Heavy Metal, GrooveПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8924243BBCEC2901353C6164E10A5CA576FA5CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495036   (882497) от 11.09.2021
-
-Black Mass - Feast At The Forbidden Tree (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Unholy Libations
-03. Dead To The World
-04. A.S.H.E.S(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0FF5A23848A254A65B6D3F7E5CFC93D5CDD2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495086   (882481) от 11.09.2021
-
-Inferi - Vile Genesis (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Gods But Our Flesh
-02. Maelstrom Prison
-03. Simian Hive
-04. From Exile To Exaltation(   Читать дальше...   )Жанр: Technical Melodic Death MetalПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C0F86E0374874466B18A38095403263267981A
 ```
 
 https://mybot314.ru/tekegram_catalog/

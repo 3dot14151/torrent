@@ -1,3 +1,85 @@
+###  Публикация: 1202539   (789913) от 29.01.2018
+
+"Ковчег" (изд.) | Как научиться терпеть недостатки ближних (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга научит вас терпеть недостатки ближних, а также обиды, оскорбления, грубость и клевету.
+
+Терпение есть та плодородная земля, на которой произрастает всякая добродетель. Вспомните евангельскую притчу о сеявшем семя на поле своем: «. .. иное упало при до­роге ... иное упало на камень ... иное упало между тернием ... а иное упало на добрую землю» (Лк. 8, 5-8). (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51169AE6C034E068D78C9DCE68F760AE715847EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817133   (789300) от 20.11.2021
+
+М. И. Одинцов | Государство и церковь [История взаимоотношений. 1917-1938 гг.] (1991) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня осуждены и преодолеваются грубые нарушения, произвол и беззаконие в отношении религиозных организаций, допущенные во второй половине 20-x гг. и в 30-ые гг., создаются условия для реализации в жизни общества принципа свободы совести. Эта брошюра - попытка на основе документальных материалов, многие из которых вводятся в научный оборот впервые, воспроизвести (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C3F4B8994BE2172E425BA9531E7B5D8D6B419D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511306   (789249) от 20.11.2021
+
+Священник Даниил Сысоев | Инструкция для бессмертных или что делать, если Вы всё-таки умерли... (2009) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789249.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современном мире человеку сложно жить без помощи и поддержки. Возникают многочисленные вопросы и недоумения: кто на них ответит? Страх и уныние терзают измученную грехами и суетой душу: кто исцелит?
+
+Для православного человека путь к решению всех проблем ведёт в храм Божий к священнику, который призван помогать и врачевать. Священник Даниил Сысоев — был один из (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952F7AC34F774449D8121F29AD38D63CEC517AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202687   (789101) от 31.01.2018
 
 Н.В. Маслов | Благодатный старец. Схиархимандрит Иоанн (Маслов) (2006) [PDF]
@@ -6,7 +88,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789101.jpg" />
+  <img src="Z:/picture/008/save_picture_789101.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789094.jpg" />
+  <img src="Z:/picture/008/save_picture_789094.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788349.jpg" />
+  <img src="Z:/picture/008/save_picture_788349.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788195.jpg" />
+  <img src="Z:/picture/008/save_picture_788195.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787720.jpg" />
+  <img src="Z:/picture/008/save_picture_787720.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787713.jpg" />
+  <img src="Z:/picture/008/save_picture_787713.jpg" />
 </div>
 
 
@@ -166,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787707.jpg" />
+  <img src="Z:/picture/008/save_picture_787707.jpg" />
 </div>
 
 
@@ -192,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787121.jpg" />
+  <img src="Z:/picture/008/save_picture_787121.jpg" />
 </div>
 
 
@@ -220,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786882.jpg" />
+  <img src="Z:/picture/008/save_picture_786882.jpg" />
 </div>
 
 
@@ -246,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786601.jpg" />
+  <img src="Z:/picture/008/save_picture_786601.jpg" />
 </div>
 
 
@@ -272,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786586.jpg" />
+  <img src="Z:/picture/008/save_picture_786586.jpg" />
 </div>
 
 
@@ -298,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786338.jpg" />
+  <img src="Z:/picture/008/save_picture_786338.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786180.jpg" />
+  <img src="Z:/picture/008/save_picture_786180.jpg" />
 </div>
 
 
@@ -353,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786159.jpg" />
+  <img src="Z:/picture/008/save_picture_786159.jpg" />
 </div>
 
 
@@ -379,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786153.jpg" />
+  <img src="Z:/picture/008/save_picture_786153.jpg" />
 </div>
 
 
@@ -407,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786128.jpg" />
+  <img src="Z:/picture/008/save_picture_786128.jpg" />
 </div>
 
 
@@ -435,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785914.jpg" />
+  <img src="Z:/picture/008/save_picture_785914.jpg" />
 </div>
 
 
@@ -461,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785802.jpg" />
+  <img src="Z:/picture/008/save_picture_785802.jpg" />
 </div>
 
 
@@ -487,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785797.jpg" />
+  <img src="Z:/picture/008/save_picture_785797.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785466.jpg" />
+  <img src="Z:/picture/008/save_picture_785466.jpg" />
 </div>
 
 
@@ -540,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785461.jpg" />
+  <img src="Z:/picture/008/save_picture_785461.jpg" />
 </div>
 
 
@@ -566,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785444.jpg" />
+  <img src="Z:/picture/008/save_picture_785444.jpg" />
 </div>
 
 
@@ -592,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785438.jpg" />
+  <img src="Z:/picture/008/save_picture_785438.jpg" />
 </div>
 
 
@@ -603,85 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7451E1E91D0794A678F260128556D815A4B6C4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204198   (785344) от 04.02.2018
-
-Фиоль Швайпольт (изд.) | Подборка книг [4 книги] (1491-1493) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785344.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представлены первые общеславянские печатные книги кирилловского шрифта, вышедшие в типографии издателя и предпринимателя Фиоля Швайпольта в Кракове в 1491 - 1493 годах для жителей Великого Княжества Литовского, Руского, жамойтского и др.
-Швайпольт Фиоль (нем. Schweipolt Fiol) — основатель славянского книгопечатания кириллическим шрифтом. По происхождению (   Читать дальше...   )Жанр: Богослужебные книгиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362D443131A7D817C5FAA84DE217114EC2B30F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388818   (785161) от 08.06.2020
-
-М.В. Строганова (сост.) | Троицкий Цветник (2011) [FB2, EPUB, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подвиги насельников Троице-Сергиевой Лавры известны всему миру; подвижники монастыря поистине являются примером богоугодной жизни для каждого христианина. Во все времена благочестивые миряне и монашествующие искали духовных советов и наставлений иноков Троицкой обители, с неизменным тщанием и прилежностью слушали поучения, проповеди и рассказы святых подвижников. (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC2D7A4698FD7C78DFC4FB8C46864DD15801EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204214   (784974) от 05.02.2018
-
-Православный подвижник (изд.) | Святые отцы о молитве. Беседы. Наставления. Советы (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784974.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Как солнце — свет для тела, так молитва — для души». Эти слова святителя Иоанна Златоуста как нельзя лучше отражают насущную необходимость в молитве для каждого человека. Как холодно и темно всему живому без солнечного света, так и человеческие души ходят в потёмках, не имея света молитвы. Надеемся, что эта книга призывающая к молитве всякого читающего её, поможет (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3340B9F3A4CCF65CC0AAD8C11FCFE5599A4328C
 ```
 
 https://mybot314.ru/tekegram_catalog/

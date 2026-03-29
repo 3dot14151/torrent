@@ -6,7 +6,7 @@ Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Linger
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228530.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Simon Bisley | Артбук Библия / La Biblia (2005) [CBR] [ES]
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225235.jpg" />
+  <img src="Z:/picture/005/save_picture_225235.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Paolo Eleuteri Serpieri | Артбук Одержимость / Serpieri Obsessi
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219197.jpg" />
+  <img src="Z:/picture/005/save_picture_219197.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ John Workman | Артбук с обложками журнала Heavy Metal з�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216108.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Paolo Eleuteri Serpieri | Артбук Одержимость / Serpieri Obsessi
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215778.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215524.jpg" />
+  <img src="Z:/picture/005/save_picture_215524.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212894.jpg" />
+  <img src="Z:/picture/005/save_picture_212894.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Capcom | Артбук по играм Marvel vs. Capcom / Marvel VS Capcom: Offi
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211300.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kari Fry, Ryan Novak | Артбук по игре Hollow Knight / Hollow Knight 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211295.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209579.jpg" />
+  <img src="Z:/picture/005/save_picture_209579.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Crystal Dynamics | Артбук по игре Rise of the Tomb Raider / Rise of 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209505.jpg" />
+  <img src="Z:/picture/005/save_picture_209505.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Eidos Montreal | Артбук по игре Shadow of the Tomb Raider / Shadow o
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209481.jpg" />
+  <img src="Z:/picture/005/save_picture_209481.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ CD Projekt RED | Артбук по серии игр Ведьмак / The World 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209235.jpg" />
+  <img src="Z:/picture/005/save_picture_209235.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Amy Ratcliffe | Артбук по игре God of War: Рагнарёк / The Ar
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207709.jpg" />
+  <img src="Z:/picture/005/save_picture_207709.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Mosaik | Digedags Bei Den Indianern (1983) [JPG] [Изд. 4-е] [DE]
 >>Комиксы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207096.jpg" />
+  <img src="Z:/picture/005/save_picture_207096.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206682.jpg" />
+  <img src="Z:/picture/005/save_picture_206682.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202722.jpg" />
+  <img src="Z:/picture/004/save_picture_202722.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202577.jpg" />
+  <img src="Z:/picture/004/save_picture_202577.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202576.jpg" />
+  <img src="Z:/picture/004/save_picture_202576.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202550.jpg" />
+  <img src="Z:/picture/004/save_picture_202550.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mundfish | Артбук по игре Atomic Heart / The World of Atomic Heart (
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202494.jpg" />
+  <img src="Z:/picture/004/save_picture_202494.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Mundfish | Артбук по игре Atomic Heart / The World of Atomic Heart (
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202361.jpg" />
+  <img src="Z:/picture/004/save_picture_202361.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Square Enix | Артбук по игре Final Fantasy XIV: Endwalker / Final Fa
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201557.jpg" />
+  <img src="Z:/picture/005/save_picture_201557.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Amy Ratcliffe | Артбук Звёздные войны: Край галакт�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201474.jpg" />
+  <img src="Z:/picture/005/save_picture_201474.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Acme Archives | Артбук Звёздные войны: Видения / Star 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201455.jpg" />
+  <img src="Z:/picture/005/save_picture_201455.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Mundfish | Артбук по игре Atomic Heart / The World of Atomic Heart (
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200201.jpg" />
+  <img src="Z:/picture/005/save_picture_200201.jpg" />
 </div>
 
 

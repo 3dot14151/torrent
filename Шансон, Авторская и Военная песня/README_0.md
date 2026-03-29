@@ -1,3 +1,61 @@
+###  Публикация: 1856756   (1059190) от 02.03.2026
+
+iSenin - Ветры (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ветры [00:03:48]
+02 - Крестьянский сын [00:03:50]
+03 - Видно так заведено навеки (remake) [00:03:48]
+04 - Не вернусь я в отчий дом (chanson-rock) [00:04:14](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A68C9EB9C36E5DD83463A49D111A95059666BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855246   (1058927) от 27.02.2026
+
+Владимир Кудрявый - Сразу в ЗАГС (2026) AI-generated content [MP3|320 Kbps] <Pop, Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сразу в ЗАГС [00:01:59]
+02 - Душа в рубашке [00:03:09]
+03 - Мимо, мимо ты идёшь [00:03:01]
+04 - Чёрные ресницы [00:02:52](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2514D149D3EC606151D72068D16ABB86E2ED811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855243   (1058926) от 27.02.2026
 
 Виктор Ударцев - А мы в России-дома (2026) AI-generated content [MP3|320 Kbps] <Военная песня>
@@ -6,7 +64,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058926.jpg" />
+  <img src="Z:/picture/005/save_picture_1058926.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058925.jpg" />
+  <img src="Z:/picture/005/save_picture_1058925.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058498.jpg" />
+  <img src="Z:/picture/005/save_picture_1058498.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057673.jpg" />
+  <img src="Z:/picture/005/save_picture_1057673.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ VA - Александр Асмолов - Старый рубль (2026) AI-gener
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057655.jpg" />
+  <img src="Z:/picture/005/save_picture_1057655.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ VA - Красивый шансон (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055460.jpg" />
+  <img src="Z:/picture/005/save_picture_1055460.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055459.jpg" />
+  <img src="Z:/picture/005/save_picture_1055459.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - Новые хитовые песни 2026, Часть 1 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055314.jpg" />
+  <img src="Z:/picture/005/save_picture_1055314.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ VA - Русский Шансон_ Сборник крутых песен otKOSTE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055313.jpg" />
+  <img src="Z:/picture/005/save_picture_1055313.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Самые новые песни о любви 12 (2026) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055312.jpg" />
+  <img src="Z:/picture/005/save_picture_1055312.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Шансон премьера 2026 январь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055310.jpg" />
+  <img src="Z:/picture/005/save_picture_1055310.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054012.jpg" />
+  <img src="Z:/picture/005/save_picture_1054012.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 K
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054010.jpg" />
+  <img src="Z:/picture/005/save_picture_1054010.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Cha
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054008.jpg" />
+  <img src="Z:/picture/005/save_picture_1054008.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052801.jpg" />
+  <img src="Z:/picture/005/save_picture_1052801.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Vayper - Песни на стихи Юнны Мориц (2025) [MP3|~190 Kbps (V
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051443.jpg" />
+  <img src="Z:/picture/005/save_picture_1051443.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Vayper - Песни на стихи Николая Рубцова (Volume 1) (20
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051442.jpg" />
+  <img src="Z:/picture/005/save_picture_1051442.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Дискотека радио шансон (2025) [FLAC|Lossless|WEB-DL|tra
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051038.jpg" />
+  <img src="Z:/picture/005/save_picture_1051038.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Шансон новое 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051037.jpg" />
+  <img src="Z:/picture/005/save_picture_1051037.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Шансон премьера 2025 (Лучшие песни) (2025) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051036.jpg" />
+  <img src="Z:/picture/005/save_picture_1051036.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Vayper - Песни на стихи Н. Гумилева (2025) [MP3|~190 Kbps (
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050838.jpg" />
+  <img src="Z:/picture/005/save_picture_1050838.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - 50 песен радио шансон, Часть 9 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050346.jpg" />
+  <img src="Z:/picture/005/save_picture_1050346.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050345.jpg" />
+  <img src="Z:/picture/005/save_picture_1050345.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050344.jpg" />
+  <img src="Z:/picture/005/save_picture_1050344.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E05826E7E247FA374695020203284ABE57E8C1E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845053   (1050343) от 29.12.2025
-
-Зиновий Бельский - Шансон лучшее №1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Две порции любви (4:16)
-02.  Назови меня по имени (3:47)
-03.  Будь моей любимой (3:42)
-04.  В ресторане (3:54)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72504FD1D2F7F2A39E351F6CEFBE00DB8644C031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845054   (1050341) от 29.12.2025
-
-Зиновий Бельский - Шансон лучшее №2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Осенняя женщина (4:00)
-02.  Та которая ждет (3:14)
-03.  Руки (3:33)
-04.  Так бывает (3:31)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FA01BEA973583C26270C68D60034E15705DE51
 ```
 
 https://mybot314.ru/tekegram_catalog/

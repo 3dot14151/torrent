@@ -1,3 +1,29 @@
+###  Публикация: 809379   (587272) от 01.08.2014
+
+Форт Росс: В поисках приключений (2014) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_587272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрыта одна из главных интриг российской истории! Как вышло, что в XIX веке Россия навсегда лишилась своих земель в Северной Америке? Ведь ей принадлежала огромная территория от Аляски до Северной Калифорнии! В поисках ответа группа тележурналистов — интеллектуал Дмитрий, простодушный Фимка и красавица Марго — путешествуют во времени и пространстве, попадая то (   Читать дальше...   )Производство: Россия, Dreamteam MediaЖанр: ПриключенияРежиссер: Юрий МорозАктеры: Максим Матвеев, Анна Старшенбаум, Лайа Коста, Алексей Кирсанов, Максим Виноградов, Артём Ткаченко, Илья Соболев, Александр Петров, Маруся Климова, Кирилл ПлетнёвПеревод: Не требуетсяПродолжительность: 01:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDD1532ECD0CD5AFEB14260BBE6F80B047F7B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357358   (587044) от 01.07.2011
 
 Воспитание жестокости у женщин и собак (1992) DVDRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587044.jpg" />
+  <img src="Z:/picture/008/save_picture_587044.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585617.jpg" />
+  <img src="Z:/picture/008/save_picture_585617.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585581.jpg" />
+  <img src="Z:/picture/008/save_picture_585581.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584931.jpg" />
+  <img src="Z:/picture/008/save_picture_584931.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584907.jpg" />
+  <img src="Z:/picture/008/save_picture_584907.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584859.jpg" />
+  <img src="Z:/picture/008/save_picture_584859.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583532.jpg" />
+  <img src="Z:/picture/008/save_picture_583532.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583228.jpg" />
+  <img src="Z:/picture/008/save_picture_583228.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583095.jpg" />
+  <img src="Z:/picture/008/save_picture_583095.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582914.jpg" />
+  <img src="Z:/picture/008/save_picture_582914.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582818.jpg" />
+  <img src="Z:/picture/008/save_picture_582818.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Weekend (Уик-Энд) (2014) WEB-DLRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582690.jpg" />
+  <img src="Z:/picture/008/save_picture_582690.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582555.jpg" />
+  <img src="Z:/picture/008/save_picture_582555.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582369.jpg" />
+  <img src="Z:/picture/008/save_picture_582369.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581978.jpg" />
+  <img src="Z:/picture/008/save_picture_581978.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581690.jpg" />
+  <img src="Z:/picture/008/save_picture_581690.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581417.jpg" />
+  <img src="Z:/picture/008/save_picture_581417.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580362.jpg" />
+  <img src="Z:/picture/008/save_picture_580362.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580344.jpg" />
+  <img src="Z:/picture/008/save_picture_580344.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579783.jpg" />
+  <img src="Z:/picture/008/save_picture_579783.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ All inclusive, или Всё включено (2011) DVDRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579498.jpg" />
+  <img src="Z:/picture/008/save_picture_579498.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ All inclusive, или Всё включено (2011) [H.264] DVDRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579431.jpg" />
+  <img src="Z:/picture/008/save_picture_579431.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579280.jpg" />
+  <img src="Z:/picture/008/save_picture_579280.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579250.jpg" />
+  <img src="Z:/picture/008/save_picture_579250.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579114.jpg" />
+  <img src="Z:/picture/008/save_picture_579114.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5663FE52BCEC48A77A34F058E8A0F2452F3D202D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042380   (579113) от 12.08.2016
-
-Танцуй со мной (2016) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторые учатся танцевать, а другие рождены для этого. То же самое и в любви. Итальянский режиссер Лука Маретти приезжает в Россию, чтобы снять танцевальный фильм о своей первой любви. Выбирая исполнительницу главной роли, Лука влюбляется в молодую актрису Катю. Катя же влюбляется в Никиту — исполнителя роли молодого Луки — известного танцора и обольстителя. Теперь (   Читать дальше...   )Производство: РоссияЖанр: Мелодрама, КомедияРежиссер: Михаил ШевчукАктеры: Анастасия Новикова, Лука Саббиони, Юрий Кригер, Нонна Гришаева, Лукерья Ильяшенко, Анар Халилов, Василий Ракша, Александр Резалин, Александра Киршина, Екатерина Шмакова и др.Перевод: ОригиналПродолжительность: 01:40:54Реклама: присутствуют аудио и видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7E5D98E80431597190DDC1A6450222126744BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

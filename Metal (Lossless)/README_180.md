@@ -1,3 +1,90 @@
+###  Публикация: 954470   (340096) от 08.11.2015
+
+Unleashed - Warrior (1997) [FLAC|image +.cue]<Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Warmachine
+02 In Hellfire
+03 Mediawhore
+04 Down Under Ground(   Читать дальше...   )Жанр: Death Metal, MetalcoreПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FB6219BB6F7B0E39D2CB9DEF31F4B9FEBF5049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419485   (339986) от 28.10.2020
+
+Summoning - Stronghold (1999) [FLAC|Lossless|tracks + .cue] <Black Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhûn (3:24)
+02. Long Lost To Where No Pathway Goes (7:21)
+03. The Glory Disappears (7:48)
+04. Like Some Snow-white Marble Eyes (7:18)(   Читать дальше...   )Жанр: Black Metal, Symphonic MetalПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1CF6F8F36E6648398C49F77385367A2D8B57F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419489   (339863) от 28.10.2020
+
+Summoning - Oath Bound (2006) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Dungeon Synth, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bauglir (2:57)
+02. Across the Streaming Tide (10:18)
+03. Mirdautas Vras (8:12)
+04. Might and Glory (8:24)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Dungeon Synth, Viking MetalПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A3D44764215A15FD3D68071AC6FF0229DFF045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074047   (339799) от 18.11.2016
 
 Metallica - Hardwired...To Self-Destruct (2016) Deluxe [FLAC|Lossless|tracks] <Thrash metal>
@@ -6,7 +93,7 @@ Metallica - Hardwired...To Self-Destruct (2016) Deluxe [FLAC|Lossless|tracks] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339799.jpg" />
+  <img src="Z:/picture/008/save_picture_339799.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Lacuna Coil - Black Anima (Deluxe Edition) (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338984.jpg" />
+  <img src="Z:/picture/008/save_picture_338984.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Seven Thorns - Symphony Of Shadows (2018) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338686.jpg" />
+  <img src="Z:/picture/008/save_picture_338686.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Molotov Solution - Insurrection (2011) [FLAC|Lossless]<Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_338047.jpg" />
+  <img src="Z:/picture/005/save_picture_338047.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Unleashed - Sworn Allegiance (2004) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337630.jpg" />
+  <img src="Z:/picture/008/save_picture_337630.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Ektomorf - Aggressor (2015) [FLAC|image+.cue]<Groove / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337488.jpg" />
+  <img src="Z:/picture/008/save_picture_337488.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Brainless - Ruler Of Everthing (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336620.jpg" />
+  <img src="Z:/picture/008/save_picture_336620.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ Carnal Ruin - Soulless I Remain (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336618.jpg" />
+  <img src="Z:/picture/008/save_picture_336618.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Bridg3s - Aria; Asunder (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern, Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336617.jpg" />
+  <img src="Z:/picture/008/save_picture_336617.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Atrophia Red Sun - Fears (1997) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336614.jpg" />
+  <img src="Z:/picture/008/save_picture_336614.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Brainless - Brainless World (1992) Remastered, 2017, Battle Cry Records [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336613.jpg" />
+  <img src="Z:/picture/008/save_picture_336613.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Black Debbath - 11 Albums (1999-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336492.jpg" />
+  <img src="Z:/picture/008/save_picture_336492.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Decapitated - Collection 9CD (2000 - 2022) [FLAC|Lossless|image + .cue] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336489.jpg" />
+  <img src="Z:/picture/008/save_picture_336489.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Carceri - From Source to End (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336302.jpg" />
+  <img src="Z:/picture/008/save_picture_336302.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ RavenHeart - Valley Of The Damned (2008) [APE|Lossless|image + .cue] <Melodic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336236.jpg" />
+  <img src="Z:/picture/008/save_picture_336236.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ Septagon - Deadhead Syndicate (2016) [FLAC|Lossless|image + .cue] <Speed Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336227.jpg" />
+  <img src="Z:/picture/008/save_picture_336227.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Asylum Pyre - Spirited Away (2015) [FLAC|Lossless|image + .cue] <Power Metal, Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336130.jpg" />
+  <img src="Z:/picture/008/save_picture_336130.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Dark Tranquillity - Atoma (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336019.jpg" />
+  <img src="Z:/picture/008/save_picture_336019.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Arx Atrata  - Oblivion (2013) [FLAC|image+.cue]<Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335413.jpg" />
+  <img src="Z:/picture/008/save_picture_335413.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Algebra - Chiroptera (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334866.jpg" />
+  <img src="Z:/picture/008/save_picture_334866.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Ancestor of Kaos - Ancestor of Kaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334865.jpg" />
+  <img src="Z:/picture/008/save_picture_334865.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Corpse Garden - Entheogen (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334864.jpg" />
+  <img src="Z:/picture/008/save_picture_334864.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ Mara - Loka Mær (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334862.jpg" />
+  <img src="Z:/picture/008/save_picture_334862.jpg" />
 </div>
 
 
@@ -664,93 +751,6 @@ Mara - Loka Mær (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A038E18597923E3E6DB9701ABA344E3E3DC2395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579471   (334731) от 28.09.2022
-
-H-Bomb - Attaque (1984) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attaque 0:32
-02. Exterminateurs 3:56
-03. Dressé À Tuer 3:13
-04. Gwendoline 4:46(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F24B34F7CE9CF866AC073ECD97E84F8FDC2A6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579590   (334728) от 28.09.2022
-
-Legion - Labyrinth Of Problems (1992) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Beyond Betrayal	[04:51]
-02.	Route To Madness [03:38]
-03.	A Matter Of Greed [05:18]
-04.	Bag Full Of Meat [02:53](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6B70F884E3A43D43A3319D68EB31771E873787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579725   (334726) от 28.09.2022
-
-Certa Mortis - Ab Inferno Ad Astra (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Castle of Damnation (05:06)
-02 - Under a Silence of Ice and Snow (05:09)
-03 - Bloodstained Banner (04:49)
-04 - Ab Inferno Ad Astra (07:25)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CD40CA9649C95FD13D6B4BC9CDFE7CF6E791BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

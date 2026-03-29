@@ -1,3 +1,401 @@
+###  Публикация: 1364497   (935693) от 03.03.2020
+
+Экшены - GraphicRiver - Embroidery Sticker - Photoshop Action - 25804960 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Embroidery Sticker - Превратите свои изображения, логотип, тексты в реалистичную накладку-вышивку на джинсовый текстиль всего за пару секунд. Любой цвет для швов! И рваный-рваный край!Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746BF6C6D986035149A556D8F18BF490D9398AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364453   (935648) от 03.03.2020
+
+3D модели - 3DDD - DECORATION SET - 3D Models - 3dskyPro - Volume 3 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 95 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2767F719F414DCEFE765AD3872FA38A0DAF4BCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093186   (935014) от 14.01.2017
+
+Шрифты - Snow For Santa / Снег для Санты [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Количество: 2
+Разработчик: Medina Gregory
+
+Поддержка кириллицы: Есть (Русская, Украинская, Белорусская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FCEF3DEF95C605F3615073316D586C5D4DFC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985487   (934923) от 11.02.2016
+
+Футажи - VideoHive - Crossing Hearts [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фон, логотип, интро, баннер, сайт, меню DVD, презентация, видео переход. Так на оф.сайте характеризуют область применения данных футажей. Подойдут для Дня Святого Валентина, свадеб.Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85800632817DA70F2B29D88867FF143B5EC4AAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985529   (934919) от 11.02.2016
+
+Футажи - VideoHive - Heart 2 With Alpha Channel [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футаж анимированные сердечки. Для использования в романтических клипах.Формат: MOVРазрешение файлов: 1920×1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17186A4BA92830348EEB26A0EDC14BF5064DD7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985440   (934837) от 11.02.2016
+
+Шаблоны - Embassy Powerpoint Presentation [PPT, PPTX]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественный бизнес-шаблон для PowerPoint,
+более 2900 слайдов в нескольких цветовых решениях.
+Шаблон имеет как стандартное разрешение 16:9, так и 4:3.
+Дополнительный клипарт в данный шаблон включен.Формат: PPT, PPTXРазрешение файлов: 1920х1080 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091E89FAFB8512D3E3140B7E4CA4F521C581D4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364619   (934740) от 04.03.2020
+
+Растровый клипарт - Tomas Veselovsky - Deeezy - Free Neon Style Colorful 3D Lettering - 10915 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в виде неоновых ламп. Материал раздается с официальной документацией.Разработчик: Tomas VeselovskyФормат: PNGРазрешение файлов: 900 x 900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67AAF8209F3BADF09DDECB9BC77597379D011FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364629   (934732) от 04.03.2020
+
+Растровый клипарт - Tomas Veselovsky - Deeezy - Marquee - 9164 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в виде рекламных вывесок. Материал раздается с официальной документацией.Разработчик: Tomas VeselovskyФормат: PNGРазрешение файлов: 900 x 900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C231DDA864118C9522C28DDA44176999D0AF2D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364609   (934725) от 04.03.2020
+
+Растровый клипарт - Deeezy - Free Toy Bricks 3D Lettering - 443 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в виде кубиков Lego. Материал раздается с официальной документацией.Разработчик: Deeezy TeamФормат: PNGРазрешение файлов: 1000 x 1000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863CEAF1378FEA898448CFB852C5D8B4E064AF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364603   (934720) от 04.03.2020
+
+Растровый клипарт - Tomas Veselovsky - Deeezy - Free Colorful Rings 3D Lettering - 12519 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в виде цветных колечек с цифрами, знаками препинания и т.п.  Материал раздается с официальной документацией.Разработчик: Tomas VeselovskyФормат: PNGРазрешение файлов: 3900 x 3900 - 6000 x 6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1957041FC84C876AAFC6C8D0EEEEBD78B281201A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364604   (934657) от 04.03.2020
+
+Растровый клипарт - Deeezy - Free Overlay & Artistic 3D Lettering - 11494 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в 4-х вариантах с цифрами, знаками препинания и т.п. Материал раздается с официальной документацией.Разработчик: Tomas VeselovskyФормат: PNGРазрешение файлов: 3900 x 3900 - 6000 x 6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46866ADB20DCE54350EDD25DBDA1329E09E998D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364736   (934644) от 04.03.2020
+
+Экшены - GraphicRiver - Posterized Portrait Abstract Effect - 25657458 [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Posterized Portrait Abstract Effect - действие фотошоп с эффектом современной абстракции для вашего творчества. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88BA1AC660E5C580C0E378021793B944D430AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364697   (934469) от 04.03.2020
+
+Экшены - GraphicRiver - Quick Watercolor Urban Sketcher Photoshop Action - 25875786 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quick Watercolor Urban - Работайте как профессионал и превращайте свои фотографии и изображения в шедевр искусства всего за несколько секунд, все, что вам нужно, это просто открыть фотографию и провести кистью по области, на которую вы хотите применить эффект, а затем воспроизвести действие, вот и все.
+После завершения действия конечный результат будет полностью (   Читать дальше...   )Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF102C1750E3169C67A4CD7A7D40F3D6B00CCBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364739   (934423) от 04.03.2020
+
+Экшены - GraphicRiver - Vectorial Photoshop Action - 25663304 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vectorial - это профессиональное действие, которое преобразует ваши изображения в векторное искусство с подходящим фоном, хорошо работает с портретами и изображениями животных. Вы получите 5 векторных фонов, идеально подходящих для эффекта, легко настраиваемых и редактируемых после завершения эффекта, а также редактируемые цвета.  (от автора)Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80896FB55267E839A74943430ADD7595E438B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753876   (934348) от 06.02.2014
+
+Растровый клипарт - Девушки c номерами раундов / Boxing Rounds Card Girls [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушки c номерами раундовФормат: JPEGРазрешение файлов: 3900х3900-6600х6600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA2EA4031B95F97F13234AB9DF24E00C10452F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753914   (934279) от 06.02.2014
 
 Растровый клипарт - Девушки Диско / Disco Girls [JPEG]
@@ -6,7 +404,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934279.jpg" />
 </div>
 
 
@@ -32,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933550.jpg" />
 </div>
 
 
@@ -58,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933548.jpg" />
 </div>
 
 
@@ -84,7 +482,7 @@ NNM-Club Sound Cleaner's - Collection of Soundtracks (Cleared from the Watermark
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933082.jpg" />
 </div>
 
 
@@ -111,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932821.jpg" />
 </div>
 
 
@@ -137,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932751.jpg" />
 </div>
 
 
@@ -163,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932128.jpg" />
 </div>
 
 
@@ -189,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932097.jpg" />
 </div>
 
 
@@ -218,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932061.jpg" />
 </div>
 
 
@@ -244,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931881.jpg" />
 </div>
 
 
@@ -270,7 +668,7 @@ NNM-Club Sound Cleaner's - Collection of Soundtracks (Cleared from the Watermark
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931809.jpg" />
 </div>
 
 
@@ -282,398 +680,6 @@ NNM-Club Sound Cleaner's - Collection of Soundtracks (Cleared from the Watermark
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0027E483A506E598461166FD1ECF3BEF616197AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365186   (931806) от 06.03.2020
-
-Шаблоны - Creative Market - Female Basic Dress Mockup Set - 4347345 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор женских базовых моделей одежды, созданный специально для дизайнеров тканей и узоров, и состоящий из 10 тщательно подготовленных PSD-файлов.Формат: PSDРазрешение файлов: 3241x4862-3415x5122
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD67E314E7C3A6FFEF80B3581B7F594BBCDB93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365180   (931804) от 06.03.2020
-
-Стили - GraphicRiver - 8 Graffiti Text Effects - 8 PSD Templates Vol.2 - 25033075 [PSD, ASL, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Граффити - это следы, царапины или рисунки, сделанные на поверхности в общественных местах. Это часто создается с краской или аэрозольной краской (краска, которая распыляется из банки). Отдельный знак можно назвать граффито, но обычно используется слово граффити, означающее, что существует более 1 знака. Граффити может принимать форму искусства, рисунков или слов. (   Читать дальше...   )Формат: PSD, ASL, ABRРазрешение файлов: 3500×2500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8D83FB21A5A3C39D7452DA9ACD0C62AB604787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985996   (931718) от 13.02.2016
-
-Футажи - Hearts Collection - II [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть сборника футажей с сердечками от различных авторов. Всего 50 файлов.Формат: MOVРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00A9673345F5056E22D19C5BE7249AEE5AD5F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986005   (931710) от 13.02.2016
-
-Футажи - VideoHive - Chains of Love [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот замечательный анимированный фон цвета красного вина показывает стекловидные цепочки с сердечками, выполненными в 3D. Данный фон высокой четкости в формате 1080p может быть использован для проектов свадьбы или дня Святого Валентина.Формат: MOVРазрешение файлов: 1920×1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1C13DBB99D65B511D3F81184B89E6883BBC1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365202   (931645) от 06.03.2020
-
-Шрифты - Creative Market - Asia Tiger Brush Font - 4634041 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asia Tiger - это свежий современный шрифт, элегантный и современный набор символов. Шрифт включает полный набор прописных и строчных букв, штрихи, цифры и знаки препинания.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6574E59F4F4F8895DDE1BC13956600032F35A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365187   (931639) от 06.03.2020
-
-Шрифты - Creative Market - Retro Thunders - Retro Font - 3491573 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет Всем ! Это наш новейший продукт, вдохновленный ретро- стилем. Retro Thunders идеально подходит для любого ретро-проекта, плаката, логотипа, этикетки, одежды, обложки музыкального альбома и многих других. Поставляется с цельным и экструдированным стилем, вы можете легко использовать этот шрифт и сэкономить много времени при создании. (от автора)Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAA00B0FB064B0433F8C20A97738AD55922B732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365281   (931503) от 06.03.2020
-
-Шрифты - Creative Market - Signation - Handlettering Font - 4193473 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Signation - С основным стилем рукописного письма будет очень примечательный, если к нему добавить различные варианты (заглавные буквы), а также стилистические наборы, которые очень подходят. Signation очень подходит для использования в различных средствах массовой информации, таких как: упаковка, логотипы, этикетки, плакаты, дизайн рубашки, цитаты мудрости, бюллетени, (   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA0DE897287F041978607CCFD078A61E4B03E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365173   (931492) от 06.03.2020
-
-3D модели - 3DDD - Wardrobe & Cabinets - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 50 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8486E2E57C90C037D78A2B2B63E1E3AABBEF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365177   (931483) от 06.03.2020
-
-3D модели - 3DDD - DECORATION SET - 3D Models - 3dskyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 99 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC44B142A8A2084031F60B792A085E9191AB80AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194463   (931386) от 06.03.2020
-
-Футажи - Video3D - «Салюты» Fireworks 02RU  [MOV, AVI]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для создания привлекательных зрелищных эффектов, при монтаже свадебного фильма не обойтись от компьютерных спецэффектов с разнообразными салютами, фейерверками и световыми вспышками. Профессиональное звуковое сопровождение качественное исполнение видеороликов с альфа каналом, создадут праздничную атмосферу в Вашем фильме. В основном на дисках представлены завершённые (   Читать дальше...   )Формат: MOV, AVIРазрешение файлов: 720x576
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82EE2822B55B800BA5CB93F04DDC2061CF598C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754659   (931200) от 08.02.2014
-
-Сборник - Открытки на смотрины / Baby shower card [JPEG,PSD,EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открытки на смотрины (обмывание ножек)Формат: JPEG,PSD,EPS,AIРазрешение файлов: 6000х6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDECF81EF2C7DC44E96DE50F24E85ECBA2847EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754537   (931133) от 08.02.2014
-
-Растровый клипарт - Анатомия человека,органы,вирусы / Human anatomy,viruses and internal [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатомия человека и всякие страшностиФормат: JPEGРазрешение файлов: 2700х2600-3300х3200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC70E8CBFE468CE3F686B10DDD9275B475E9910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754776   (931126) от 08.02.2014
-
-Векторный клипарт - Красочные неоновые рамки / Colorful Neon Frames [AI,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочные неоновые рамкиФормат: AI,EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383CEB065FEB0C75FBB611D16A576F92F7304A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986580   (930284) от 14.02.2016
-
-Текстуры - Wooden backgrounds with elements of cut and boards [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930284.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 деревянных текстур для вашего творчества.Формат: JPGРазрешение файлов: 2483х2483 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4E79371B1EA506516E56DF99B1853C9BA24E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365400   (930151) от 07.03.2020
-
-Экшены - GraphicRiver - Style Paints Photoshop Action - 25674415 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Style Paints - действие фотошоп превратит ваши изображения в акварельное полотно. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D4BDB4BEA228BE65C311DE130A3C2102CF8F10
 ```
 
 https://mybot314.ru/tekegram_catalog/

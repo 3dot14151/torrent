@@ -1,3 +1,29 @@
+###  Публикация: 1496747   (869799) от 19.09.2021
+
+Новые Танцы (2021) WEBRip [H.264/1080p] (Сезон 1, выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое танцевальное шоу! Лучшие танцовщики страны снова выходят на сцену. Теперь не будет наставников и их команд, а только очные танцевальные поединки между участниками в четырёх категориях: соло, дуэты, дети и команды. Оценивать выступления участников будет Мигель совместно с двумя приглашенными гостями. Компанию неизменной ведущей Ляйсан Утяшевой составит Ульяна (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF5CDE704C039595C48194149B0EED45E95F420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998774   (868508) от 20.03.2016
 
 Голос. Дети (2016.03.18) HDTVRip [H.264/720p-LQ] (сезон 3, выпуск 5)
@@ -6,7 +32,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868508.jpg" />
+  <img src="Z:/picture/008/save_picture_868508.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868320.jpg" />
+  <img src="Z:/picture/008/save_picture_868320.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868149.jpg" />
+  <img src="Z:/picture/008/save_picture_868149.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868000.jpg" />
+  <img src="Z:/picture/008/save_picture_868000.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867997.jpg" />
+  <img src="Z:/picture/008/save_picture_867997.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867859.jpg" />
+  <img src="Z:/picture/008/save_picture_867859.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864268.jpg" />
+  <img src="Z:/picture/008/save_picture_864268.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859115.jpg" />
+  <img src="Z:/picture/008/save_picture_859115.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859070.jpg" />
+  <img src="Z:/picture/008/save_picture_859070.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857910.jpg" />
+  <img src="Z:/picture/008/save_picture_857910.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857799.jpg" />
+  <img src="Z:/picture/008/save_picture_857799.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857665.jpg" />
+  <img src="Z:/picture/008/save_picture_857665.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857165.jpg" />
+  <img src="Z:/picture/008/save_picture_857165.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856054.jpg" />
+  <img src="Z:/picture/008/save_picture_856054.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855062.jpg" />
+  <img src="Z:/picture/008/save_picture_855062.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854918.jpg" />
+  <img src="Z:/picture/008/save_picture_854918.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852076.jpg" />
+  <img src="Z:/picture/008/save_picture_852076.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852016.jpg" />
+  <img src="Z:/picture/008/save_picture_852016.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851904.jpg" />
+  <img src="Z:/picture/008/save_picture_851904.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850359.jpg" />
+  <img src="Z:/picture/008/save_picture_850359.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850136.jpg" />
+  <img src="Z:/picture/008/save_picture_850136.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847501.jpg" />
+  <img src="Z:/picture/008/save_picture_847501.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846436.jpg" />
+  <img src="Z:/picture/008/save_picture_846436.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846171.jpg" />
+  <img src="Z:/picture/008/save_picture_846171.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846042.jpg" />
+  <img src="Z:/picture/008/save_picture_846042.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:864C690BF4152396130EF6519C3B37168D1A1EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362152   (845795) от 25.04.2020
-
-Голос. Дети (2020) HDTV [H.264/1080i] (сезон 7, выпуски 1-11 из 11)
-
->>След.
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845795.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" представляет премьеру шестого сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. Первым этапом для участников, прошедших предварительный (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: ~01:30:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7AC72B19FE7C99DF8838C43939128FBD813AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

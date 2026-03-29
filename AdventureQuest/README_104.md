@@ -1,3 +1,81 @@
+###  Публикация: 1793561   (20304) от 25.04.2025
+
+The Empty Desk (2025) [Ru/Multi] (1.0.04) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20304.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Empty Desk - первая глава серии Detective Bennett: Solved Cases - психологический триллер с элементами повествовательного приключения и налётом ужаса. Игрок погружается в историю, основанную на реальных преступлениях, исследуя последствия для сознания, застрявшего в цикле повторений и эмоционального выгорания. В этом первом эпизоде опытному детективу Томасу Х. (   Читать дальше...   )Тип издания: RepackРазработчик: CheesecakeGamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819BA89678AB9BEB31F58C39A1A6940B581028B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793566   (20298) от 25.04.2025
+
+Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20298.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989-й год. Тебя зовут Генри, и ты уехал от тяжелой жизни в леса Вайоминга, чтобы работать там дозорным. Расположившись на самой вершине горы, ты должен следить за сохранностью окружающей природы. Особо жаркое, сухое лето заставляет всех беспокоиться. Твой начальник, женщина по имени Делайла, всегда поддерживает с тобой контакт с помощью небольшой ручной рации - (   Читать дальше...   )Тип издания: RepackРазработчик: Campo SantoЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1686744D6D2E8AE082D9461AC918989B7057C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771178   (20256) от 26.04.2025
+
+Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпущенная легендарной инди-студией Cyan Worlds в 1997 году игра Riven моментально стала хитом — и в 2024 году ключевые члены команды разработки оригинальной версии любовно переосмыслили свое творение, чтобы подарить поклонникам новый взгляд на хорошо знакомую вселенную Myst. Я знаю, что он делает. Он следит за тобой». Вас ждет Ривен — прекрасный и загадочный мир (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan Worlds IncЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793757   (20230) от 26.04.2025
 
 Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +84,7 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20230.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Firmament (2023) [Ru/Multi] (2.0.8) Repack Let'sРlay [The Keepers' Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20226.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ True Fear: Forsaken Souls Part 3 (2025) [Ru/Multi] (1.1.1:11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20105.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20083.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19990.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19986.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19985.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19982.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19947.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19925.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ House of Lost Souls (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19899.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ BLACKSHARD (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19884.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Post Trauma (2025) [Ru/Multi] (1.05.02) Repack Let'sРlay [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19831.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7:2369) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19788.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19777.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Raft: The Final Chapter (2018) [Ru/Multi] (1.1.03 Beta/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19727.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Moroi (2025) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19538.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19518.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19516.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19498.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19487.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19485.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ BrokenLore: DON'T WATCH (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19405.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ DON'T WATCH - это психологический хоррор от перво
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5EDF521909EA6EC9B8EC26671226CFA4591A377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795368   (19380) от 04.05.2025
-
-Inspector Schmidt - The Ebbing (2025) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inspector Schmidt - The Ebbing помещает пользователя в роль Валентина Шмидта, государственного служащего, прибывающего на отдых в приморский город Хавштедт приблизительно в 1870 году, но его планы меняются из-за местных событий. Обнаружение тела Бенте Хансена возле телеграфной станции побуждает Шмидта расследовать обстоятельства смерти, что требует исследования окружения (   Читать дальше...   )Тип издания: SceneРазработчик: Active Fungus StudiosЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32BAFF23C757C9982911871D0FBDD8FD4154535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795371   (19330) от 05.05.2025
-
-Back: Fade (2025) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Back: Fade представляет собой хоррор с живыми актерами, использующий полноэкранное видео для погружения игрока. Вы управляете персонажем Жэнь Син после его побега из опасной обстановки, показанной в предыдущей части. Продолжение отправляет Жэнь Син в неизведанное место, наполненное сверхъестественными явлениями и пугающими событиями. Содержание тайтла требует от (   Читать дальше...   )Тип издания: SceneРазработчик: MYSTERY CROWNЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Китайский (упрощенный)Язык субтитров: Русский, Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Японский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5AF53B5248EA88D36DE103CC9578E797822341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780669   (19305) от 05.05.2025
-
-Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack FitGirl [Soundtrack Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое нарративное путешествие от создателей Life is Strange. Снимите собственный фильм про лето 1995 года, которое вашей новой компании запомнится на всю жизнь. Двадцать семь лет спустя всем вам придется вновь столкнуться с мрачными секретами, о которых вы договорились никогда не вспоминать.Тип издания: RepackРазработчик: DON'T NODЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DB777EBF81CAA11A959C5F7B5C1C09B5776F2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 599946   (209281) от 31.08.2022
+
+Андрей Заря - 6 альбомов (2003-2007) [MP3|320 kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 | Дед | 05:20
+02 | Кикос - матумба | 03:11
+03 | Колесо-колесико | 04:17
+04 | Оторвался листок зелёный | 04:53(   Читать дальше...   )Жанр: Шансон |Продолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A056B5F94B878E866B9BC2F147407A2D955061D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606848   (209201) от 24.01.2023
+
+Андрей Куряев - Не воюйте с русскими! (2022) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Не воюйте с русскими [00:03:58]
+02 - Русским быть [00:03:47]
+03 - Наших бьют [00:04:00]
+04 - Своих не бросаем [00:03:52](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E999935A11CFF3A3E5000E6E4CFE705EF651F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645799   (209200) от 11.07.2023
 
 Группа Колыма (Юрий Истомин) - 8 Альбомов (1998 - 2005) [MP3|320 Kbps] <Шансон>
@@ -6,7 +64,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209200.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Калина красная 22-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208673.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Калина красная 21-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204559.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202531.jpg" />
+  <img src="Z:/picture/004/save_picture_202531.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199691.jpg" />
+  <img src="Z:/picture/005/save_picture_199691.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ iSenin - Не воскрес (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185770.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184089.jpg" />
+  <img src="Z:/picture/004/save_picture_184089.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183786.jpg" />
+  <img src="Z:/picture/004/save_picture_183786.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179107.jpg" />
+  <img src="Z:/picture/005/save_picture_179107.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168226.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167210.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Калина красная 20•Песни, спетые сердцем (2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165189.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161967.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153117.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151451.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149439.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149273.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Шансон 2020 года (Музыкальный хит-парад) [MP3|
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147553.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145833.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145745.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142709.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141107.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141029.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140973.jpg" />
 </div>
 
 
@@ -699,61 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50F8336EB99779467F1BAD7730F4DD7BA99071D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272534   (140946) от 29.12.2018
-
-Сергей Куприк - Что есть счастье... (2018) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жена (4:16)
-02. Ну что тебе сказать про Сахалин? (3:39)
-03. Мама (4:31)
-04. Какая ты красивая (3:12)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD1AF112B9FCD1472D587995655DE37FD057CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520667   (140130) от 29.12.2021
-
-Иван Кучин - 17 Альбомов МР3 (1994 - 2018) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ШансонПродолжительность: 15:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF7C20CBD627338FF86E856C9D4404A12319582
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ hnrk - neonurban (2016) EP [MP3|320 Kbps] <Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843184.jpg" />
+  <img src="Z:/picture/008/save_picture_843184.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ATMSSPHERO - VCVBTRVP V (2014) [MP3|320 Kbps] <Experimental Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843182.jpg" />
+  <img src="Z:/picture/008/save_picture_843182.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843168.jpg" />
+  <img src="Z:/picture/008/save_picture_843168.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Allavsoft Video Downloader Converter 3.22.4.7420 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843141.jpg" />
+  <img src="Z:/picture/008/save_picture_843141.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Tidy Up 5 v5.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843137.jpg" />
+  <img src="Z:/picture/008/save_picture_843137.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843135.jpg" />
+  <img src="Z:/picture/008/save_picture_843135.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843123.jpg" />
+  <img src="Z:/picture/008/save_picture_843123.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Logistics - Electric Sun (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843121.jpg" />
+  <img src="Z:/picture/008/save_picture_843121.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843120.jpg" />
+  <img src="Z:/picture/008/save_picture_843120.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843117.jpg" />
+  <img src="Z:/picture/008/save_picture_843117.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843105.jpg" />
+  <img src="Z:/picture/008/save_picture_843105.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843057.jpg" />
+  <img src="Z:/picture/008/save_picture_843057.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ TinkerTool System 6 v.688 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843050.jpg" />
+  <img src="Z:/picture/008/save_picture_843050.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Photo Supreme 5.4.0.2834 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843049.jpg" />
+  <img src="Z:/picture/008/save_picture_843049.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ RapidWeaver 8 v8.6.2 (build 20836) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843047.jpg" />
+  <img src="Z:/picture/008/save_picture_843047.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Allavsoft Video Downloader Converter 3.22.4.7420 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843043.jpg" />
+  <img src="Z:/picture/008/save_picture_843043.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Apeaksoft Android Toolkit 1.1.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843041.jpg" />
+  <img src="Z:/picture/008/save_picture_843041.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ PeaZip 7.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843037.jpg" />
+  <img src="Z:/picture/008/save_picture_843037.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Apeaksoft iOS Toolkit 1.1.66 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843036.jpg" />
+  <img src="Z:/picture/008/save_picture_843036.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Things 3 v3.12.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843032.jpg" />
+  <img src="Z:/picture/008/save_picture_843032.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843026.jpg" />
+  <img src="Z:/picture/008/save_picture_843026.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Pidgin 2.10.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843021.jpg" />
+  <img src="Z:/picture/008/save_picture_843021.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Radiocent 3.5.0.85 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843018.jpg" />
+  <img src="Z:/picture/008/save_picture_843018.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Hard Disk Sentinel Pro 5.00 Build 8557 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843004.jpg" />
+  <img src="Z:/picture/008/save_picture_843004.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Hard Disk Sentinel Pro 5.00 Build 8557 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842995.jpg" />
+  <img src="Z:/picture/008/save_picture_842995.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Opera 68.0.3618.56 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842991.jpg" />
+  <img src="Z:/picture/008/save_picture_842991.jpg" />
 </div>
 
 

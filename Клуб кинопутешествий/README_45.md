@@ -1,3 +1,56 @@
+###  Публикация: 1183087   (312340) от 12.11.2017
+
+Орел и решка. Рай и ад-2 (2017.11.12) WEB-DL [H.264/1080p-LQ] (сезон 15: Фортелеза. Бразилия)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда проекта продолжит свои "райско-адские" путешествия по миру, но во второй части "Рая и ада" зрителей ждут изменения.
+Во-первых, немного поменяется концепция: теперь прекрасное и ужасное будут искать в каждом исследуемом городе. Во-вторых, в 15-м сезоне вместо ушедшей в отпуск Леси Никитюк путешествовать с Региной Тодоренко будет новый ведущий. (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36293CF50812017EF85FCB2413C1DF83278B54A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422459   (310616) от 08.11.2020
+
+Отражение гор. Алтай (2016) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горный Алтай – уникальный заповедник с необыкновенной природой и живописными пейзажами. Однако жизнь там не так проста, как кажется. В качестве заработка местные жители выбирают легкий, но опасный путь – браконьерство. Чтобы справиться с этой проблемой, Фонд WWF Россия и Citi Foundation создали программу «Устойчивое жизнеобеспечение населения на Алтае». Задача проекта (   Читать дальше...   )Производство: Россия, Украина, Великобритания, WWF, Citi Foundation, MAGIC PRODUCTION, Event Horisont, Светлые ИсторииЖанр: Документальный, познавательный, путешествияРежиссер: Александра МарченкоЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589E9263BCB94C64716F83BE9DF6013C70D72583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960366   (310068) от 27.11.2015
 
 Верю - не верю. Перу (27.11.2015) SATRip
@@ -6,7 +59,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310068.jpg" />
+  <img src="Z:/picture/008/save_picture_310068.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309390.jpg" />
+  <img src="Z:/picture/008/save_picture_309390.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309259.jpg" />
+  <img src="Z:/picture/008/save_picture_309259.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308734.jpg" />
+  <img src="Z:/picture/008/save_picture_308734.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308563.jpg" />
+  <img src="Z:/picture/008/save_picture_308563.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307885.jpg" />
+  <img src="Z:/picture/008/save_picture_307885.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307675.jpg" />
+  <img src="Z:/picture/008/save_picture_307675.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307671.jpg" />
+  <img src="Z:/picture/008/save_picture_307671.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307617.jpg" />
+  <img src="Z:/picture/008/save_picture_307617.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306789.jpg" />
+  <img src="Z:/picture/008/save_picture_306789.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306141.jpg" />
+  <img src="Z:/picture/008/save_picture_306141.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305126.jpg" />
+  <img src="Z:/picture/008/save_picture_305126.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304474.jpg" />
+  <img src="Z:/picture/008/save_picture_304474.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297436.jpg" />
+  <img src="Z:/picture/008/save_picture_297436.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297432.jpg" />
+  <img src="Z:/picture/008/save_picture_297432.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297156.jpg" />
+  <img src="Z:/picture/008/save_picture_297156.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296247.jpg" />
+  <img src="Z:/picture/008/save_picture_296247.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295025.jpg" />
+  <img src="Z:/picture/008/save_picture_295025.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294151.jpg" />
+  <img src="Z:/picture/008/save_picture_294151.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294086.jpg" />
+  <img src="Z:/picture/008/save_picture_294086.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293355.jpg" />
+  <img src="Z:/picture/008/save_picture_293355.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293013.jpg" />
+  <img src="Z:/picture/008/save_picture_293013.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291152.jpg" />
+  <img src="Z:/picture/008/save_picture_291152.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290748.jpg" />
+  <img src="Z:/picture/008/save_picture_290748.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA9C62523BB35E566441A3D72513D4004F7D65B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532115   (290514) от 10.12.2013
-
-Россия из окна поезда. Выпуски №1-10 из 10 (2012) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_290514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный российский фотограф Антон Ланге при поддержке ОАО «РЖД» совершил длительное путешествие через всю страну. Он сумел сфотографировать практически всю Россию – от южной её точки до Полярного круга. Вы увидите цикл фильмов, в котором лучшие снимки Антона Ланге оживут!Жанр: Документальный, путешествие, познавательныйФормат: XviDПродолжительность: ~ 00:25:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520976   (289181) от 18.11.2018
-
-80 островов вокруг света [выпуски 2-25] / Il Giro Del Mondo In 80 Isole (Around the World in 80 Days) (2011) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неординарный сериал, в котором соединились две потрясающие вещи: райская безмятежность экзотических островов и активный отдых – каноэ, виндсёрфинг, кайтсёрфинг, дайвинг. Те водные виды спорта, которые помогают путешественникам исследовать каждый из этих уникальных миров в полной мере. Зритель совершит поездку по восьмидесяти островам во все уголки земного шара. Невероятные (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 24X~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27587F07D6BD61B8D257F910D37553FF3B189314
 ```
 
 https://mybot314.ru/tekegram_catalog/

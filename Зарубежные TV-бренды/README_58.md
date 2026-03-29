@@ -1,3 +1,108 @@
+###  Публикация: 908904   (615855) от 23.06.2015
+
+Discovery. Ванная под ключ / King of Thrones (2013) HDTV [H.264/720p] [Серии 1-6 из 6]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615855.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ванной комнате мы проводим около четырнадцати дней в году — ничуть не меньше, чем в отпуске, здесь можно найти свой маленький оазис спокойствия и тишины. А если это самое сакральное место в доме напоминает скорее поле боя – пора вызывать Джеффа Хокси и Дэйва Куба, мастеров ремонта, которые даже из деревенской «дырки в полу» могут сотворить произведение искусства (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D71F412DF556A4156E3FD96CF2C530064714B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296042   (614928) от 15.04.2019
+
+NGW: Самые опасные животные Африки: Ботсвана / Africa's Deadliest (2019) HDTV [H.264/1080i-LQ] (Эпизоды 1-3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тех, кто живет среди самых опасных хищников Африки, опасность подстерегает буквально повсюду. В этом беспокойном мире способность быть быстрым или яростным может означать выбор между жизнью и смертью.Производство: Южная Африка, Aquavision TV Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кейт ФрэзерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: эпизоды х ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F342157C215BBE87DE0C7A9001AE4A263F91A771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295978   (614919) от 15.04.2019
+
+History Channel. Бойцовский клуб Юрского периода / Jurassic Fight Club (2008) HDTVRip [H.264/720p-LQ] (1-12 серии из 12)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они первые в истории бойцы! Самые страшные хищники! Находки палеонтологов и методы криминалистики позволят воссоздать доисторическое военное искусство динозавров. Это были войны Юрского периода!
+Это рассказ о самых свирепых бойцах доисторического мира - гигантских ящерах, населявших Землю миллионы лет назад. Как оказалось, мир хищников был гораздо сложнее и расчетливей, (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, палеонтология, динозавры, историяРежиссер: Крег ЛотербачПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 12 х ~ 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6E930D312B85775BAC3534CA4479E8DC2AAA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296111   (614916) от 15.04.2019
+
+NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614916.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Земле есть несколько мест, которых не коснулась история развития человечества. В полной темноте и безмолвии они хранят величайшие тайны Земли. Недоступные, как далекие планеты, они полны научных открытий. Одно из таких мест — Марианская впадина. Джеймс Кэмерон — самый известный и успешный режиссер в мире, еще и страстный исследователь океанов, ведомый мечтой всей (   Читать дальше...   )Производство: США, National Geographic Entertainment, Beyond Productions, Disruptive LA, Earthship Productions, Wight Expedition FilmsЖанр: Документальный, научно-познавательный, океанографияРежиссер: Джон Бруно, Рэй Квинт, Эндрю УайтПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE235221CDC2EA7992F576FA15432DD853A7198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295979   (614829) от 15.04.2019
 
 History Channel. Бойцовский клуб Юрского периода / Jurassic Fight Club (2008) HDTVRip (1-12 серии из 12)
@@ -6,7 +111,7 @@ History Channel. Бойцовский клуб Юрского периода / J
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614829.jpg" />
+  <img src="Z:/picture/008/save_picture_614829.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ NG: Суперсооружения: Мегазаводы. Бакарди / MegaS
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614733.jpg" />
+  <img src="Z:/picture/008/save_picture_614733.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Discovery: Выжить любой ценой [сезон 1] / Ultimate Survival
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614492.jpg" />
+  <img src="Z:/picture/008/save_picture_614492.jpg" />
 </div>
 
 
@@ -94,7 +199,7 @@ Animal Planet: Земля динозавров (Юрский период) / Whe
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614321.jpg" />
+  <img src="Z:/picture/008/save_picture_614321.jpg" />
 </div>
 
 
@@ -120,7 +225,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTV 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614152.jpg" />
+  <img src="Z:/picture/008/save_picture_614152.jpg" />
 </div>
 
 
@@ -146,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613841.jpg" />
+  <img src="Z:/picture/008/save_picture_613841.jpg" />
 </div>
 
 
@@ -172,7 +277,7 @@ BBC. Как устроена Земля / Earth Machine (Der rastlose Planet) (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613309.jpg" />
+  <img src="Z:/picture/008/save_picture_613309.jpg" />
 </div>
 
 
@@ -198,7 +303,7 @@ Animal Planet. Человек и львы (История одного сафа�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613301.jpg" />
+  <img src="Z:/picture/008/save_picture_613301.jpg" />
 </div>
 
 
@@ -224,7 +329,7 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613064.jpg" />
+  <img src="Z:/picture/008/save_picture_613064.jpg" />
 </div>
 
 
@@ -250,7 +355,7 @@ Discovery. Гаражное золото / Garage Gold (2013) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612511.jpg" />
+  <img src="Z:/picture/008/save_picture_612511.jpg" />
 </div>
 
 
@@ -276,7 +381,7 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612432.jpg" />
+  <img src="Z:/picture/008/save_picture_612432.jpg" />
 </div>
 
 
@@ -302,7 +407,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612354.jpg" />
+  <img src="Z:/picture/008/save_picture_612354.jpg" />
 </div>
 
 
@@ -328,7 +433,7 @@ BBC. История Жизни / Life Story (1-6 серии из 6)  (2014) BDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612350.jpg" />
+  <img src="Z:/picture/008/save_picture_612350.jpg" />
 </div>
 
 
@@ -354,7 +459,7 @@ Discovery: Скрытое - Самые страшные темницы / Hidden 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611427.jpg" />
+  <img src="Z:/picture/005/save_picture_611427.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ History Channel: Военная машина Гитлера / Hilter's War Machi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610939.jpg" />
+  <img src="Z:/picture/008/save_picture_610939.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ NG: Секретные материалы древности: Загадка М�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610862.jpg" />
+  <img src="Z:/picture/008/save_picture_610862.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest A
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610837.jpg" />
+  <img src="Z:/picture/008/save_picture_610837.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ History Channel: Вселенная. Глубокая заморозка / The U
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610829.jpg" />
+  <img src="Z:/picture/008/save_picture_610829.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610681.jpg" />
+  <img src="Z:/picture/008/save_picture_610681.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ BBC. В краю муссонов: Потоп / Wonders of the Monsoon: Deluge (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610563.jpg" />
+  <img src="Z:/picture/008/save_picture_610563.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610436.jpg" />
+  <img src="Z:/picture/008/save_picture_610436.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610433.jpg" />
+  <img src="Z:/picture/008/save_picture_610433.jpg" />
 </div>
 
 
@@ -573,110 +678,6 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3951B43C4E447E1BF402EE47A457B15820DA81E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672871   (610028) от 26.07.2016
-
-NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_610028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они одни из самых массивных пирамид на планете — миллионы тонн песка и камня, возвышающиеся над всем человечеством в необыкновенной мощи богатства и власти. Сегодня они составляют наследие древнего города Теотиуакан, первого оплота цивилизации Южной Америки. Пирамиды были построены более 2000 лет тому назад в Мексике людьми, чьи имена давно позабыты столетиями. Причина (   Читать дальше...   )Жанр: Документальный, научно-познавательный, историяПеревод: Двухголосый закадровый (профессиональный)Субтитры: вшитыеЯзык субтитров: русскийПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294637   (609930) от 18.04.2019
-
-NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609930.jpg" />
-</div>
-
-
-###  Подробнее
-
-В период после 6 июня союзники начали проникать в Европу через пляжи Нормандии. Нацисты тщательно охраняли свои морские военные базы в оккупированной Европе. Это истории отчаянных боев, которые велись за освобождение Европы от нацистского ярма.Производство: Канада, Parallax Film Productions, National GeographicЖанр: Документальный, война, история, исследованияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAE5E22933D9B365AD9FDEA652EAC26EAE7B35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143834   (609182) от 02.07.2017
-
-Animal Planet: 100 миль в неизвестность / 100 Miles from Nowhere (2015) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-5 из 8) (Обновляемая)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609182.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре событий документального сериала производства Animal Planet «100 миль в неизвестность» — опасные и захватывающие приключения известного атлета Мэтта Галланда и его лучших друзей Дэнни Брайсона и Блейка Джозефсона. В каждом эпизоде герои отправляются в самые отдаленные уголки нашей планеты, где в течение четырех дней им предстоит преодолеть более 160 км в (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, приключения, спортРежиссер: Эндрю ЭтингхаузенПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 5 х ~00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A27CAD9A1B840112B511A1EF1E695B3AD98BED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525121   (609051) от 20.07.2012
-
-NG: Суперсооружения: Мегазаводы. Грузовики Мерседес / MegaStructures. Megafactories: Mercedes Trucks (2011) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с новой версией грузовиков Mercedes "Актрос" который создается по заказу, при этом завод Мерседес-Бенс выпускает один грузовик каждые две минуты.Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0A797E2CDF1D46765DDA072C5FE22A091CFCEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

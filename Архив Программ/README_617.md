@@ -6,7 +6,7 @@ IDM UltraCompare Pro 18.00.0.47 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740847.jpg" />
+  <img src="Z:/picture/008/save_picture_740847.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bigasoft Video Downloader Pro 3.14.3.6319 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740809.jpg" />
+  <img src="Z:/picture/008/save_picture_740809.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ K-Lite Codec Pack Update 12.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740785.jpg" />
+  <img src="Z:/picture/008/save_picture_740785.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Bandicam 4.3.3.1498 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740776.jpg" />
+  <img src="Z:/picture/008/save_picture_740776.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Bat! Professional 8.8.0 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740775.jpg" />
+  <img src="Z:/picture/008/save_picture_740775.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Norton Internet Security 22.16.4.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740774.jpg" />
+  <img src="Z:/picture/008/save_picture_740774.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ SoftMaker Office Professional 2018 rev 946.0211 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740766.jpg" />
+  <img src="Z:/picture/008/save_picture_740766.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Avira Free Antivirus 15.0.36.137 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740740.jpg" />
+  <img src="Z:/picture/008/save_picture_740740.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Movavi PDF Editor 1.4.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740738.jpg" />
+  <img src="Z:/picture/008/save_picture_740738.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WinUtilities Professional Edition 12.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740695.jpg" />
+  <img src="Z:/picture/008/save_picture_740695.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Phase One Capture One Pro 12.0.2.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740675.jpg" />
+  <img src="Z:/picture/008/save_picture_740675.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Premiere Pro CC 2019 13.0.3.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740670.jpg" />
+  <img src="Z:/picture/008/save_picture_740670.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AusLogics BoostSpeed 10.0.8.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740650.jpg" />
+  <img src="Z:/picture/008/save_picture_740650.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Driver Easy Pro 5.6.1.14162 RePack (& Portable) by elchupacabra (05.04.2018) [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740646.jpg" />
+  <img src="Z:/picture/008/save_picture_740646.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ DriverEasy Pro 5.6.1.14162 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740643.jpg" />
+  <img src="Z:/picture/008/save_picture_740643.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ FxSound Enhancer 13.023 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740642.jpg" />
+  <img src="Z:/picture/008/save_picture_740642.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Auslogics BoostSpeed 10.0.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740640.jpg" />
+  <img src="Z:/picture/008/save_picture_740640.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ FxSound Enhancer 13.023 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740639.jpg" />
+  <img src="Z:/picture/008/save_picture_740639.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Chief Architect Premier X9 Build 19.2.0.39 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740552.jpg" />
+  <img src="Z:/picture/008/save_picture_740552.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ESET NOD32 Antivirus 11.1.42.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740540.jpg" />
+  <img src="Z:/picture/008/save_picture_740540.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740538.jpg" />
+  <img src="Z:/picture/008/save_picture_740538.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Photoshop CC 2018 (19.1.3) x86-x64 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740526.jpg" />
+  <img src="Z:/picture/008/save_picture_740526.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740492.jpg" />
+  <img src="Z:/picture/008/save_picture_740492.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.90.4200 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740488.jpg" />
+  <img src="Z:/picture/008/save_picture_740488.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Office 2016 Standard 16.0.4498.1000 RePack by KpoJIuK (2017.04) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740484.jpg" />
+  <img src="Z:/picture/008/save_picture_740484.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ IObit Driver Booster Pro 7.6.0.764 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740446.jpg" />
+  <img src="Z:/picture/008/save_picture_740446.jpg" />
 </div>
 
 

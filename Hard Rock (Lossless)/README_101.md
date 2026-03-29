@@ -1,3 +1,61 @@
+###  Публикация: 1773917   (71617) от 18.01.2025
+
+Landfall - Wide Open Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tree Of Life
+02. SOS
+03. When The Curtain Falls
+04. Running In Circles(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0689CF8B2A750C9216937647CE429DCF6363D839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773961   (71578) от 19.01.2025
+
+One Day Remains - Amongst Beasts & Animals (2025) [FLAC|Lossless|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blame [00:04:47]
+02. Blind Leading the Blind [00:05:07]
+03. Came Back Around (Revisited) [00:04:03]
+04. Down (Revisited) [00:04:32](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D5484A693CFE04D7A72A08E8A31BF819550A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774485   (71538) от 21.01.2025
 
 The New Roses - Attracted To Danger (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +64,7 @@ The New Roses - Attracted To Danger (2024) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71538.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Rosy Vista - Forty (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71477.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Ryder - Menagerie (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71127.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Leaf Hound - Once Bitten (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71053.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Marko Hietala - Roses From The Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70980.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Stud - Under Silver Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70882.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Glass Hearts Harmony Club - Misfit Love Letter (2025) [FLAC|Lossless|WEB-DL|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70503.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70480.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Crazy Lixx - Thrill of the Bite (2025) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70396.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Francesco Marras - Out Of The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70153.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ David Lee Roth - The Warner Recordings 1985–1994 (2025) 5xCD, Reissue, Compila
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69951.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69863.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Disturbed - The Sickness (2000) Reissue, 2025, Reprise Records, 25th Anniversary
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69701.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Dokken - Original Album Series (2009) Box Set, Reissue, Compilation, 2009, Rhino
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69679.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69444.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ AC/DC - The Fly Is Rockin' (2010) 2 x CD, Limited Edition, Numbered [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69192.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Stryper - Fallen (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69140.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Various - Only UFO Can Rock Me - A Tribute To UFO (2001) Compilation [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68971.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Def Leppard - Just Like 73 (Tom Morello Version) (2024) Japanese Edition [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68865.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Gotthard - Stereo Crush (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68863.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Balance - 2 Albums (1981, 1982) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68851.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ My Design Immortal - Ten Scars Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68478.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Nightstalker - Return From The Point of No Return (2025) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68474.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67966.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AC4FB70EE011B3F701D6918C2F17C90CC4AEE87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791303   (67867) от 13.04.2025
-
-Smith/Kotzen - Black Light / White Noise (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muddy Water
-02. White Noise
-03. Black Light
-04. Darkside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C111FF40D1C55EDF7E5FA10A8A7719C398546A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792392   (67658) от 19.04.2025
-
-The Quill - In Triumph (2006) Remastered and Expanded Edition, 2025, Metalville Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep the Circle Whole [00:03:34]
-02. Yeah [00:03:38]
-03. Slave Master [00:05:02]
-04. Broken Man [00:03:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1E6272288631BD2B9927E7DD18B26F40DC9C98
 ```
 
 https://mybot314.ru/tekegram_catalog/

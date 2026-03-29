@@ -6,7 +6,7 @@ VA - Bali Orange (Music to Chillout & Relax) (2019) [AAC|~323 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738170.jpg" />
+  <img src="Z:/picture/008/save_picture_738170.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Electro Swing Revolution, Vol. 5 (2014) [AAC|~325 Kbps] <Electro Swing,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738168.jpg" />
+  <img src="Z:/picture/008/save_picture_738168.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Paris Orange (Romantic French Vibes of the City) (2018) [AAC|~331 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738158.jpg" />
+  <img src="Z:/picture/008/save_picture_738158.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738131.jpg" />
+  <img src="Z:/picture/008/save_picture_738131.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738118.jpg" />
+  <img src="Z:/picture/008/save_picture_738118.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738111.jpg" />
+  <img src="Z:/picture/008/save_picture_738111.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738016.jpg" />
+  <img src="Z:/picture/008/save_picture_738016.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737905.jpg" />
+  <img src="Z:/picture/008/save_picture_737905.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Chilled Space (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737845.jpg" />
+  <img src="Z:/picture/008/save_picture_737845.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Cozy Lounge Grooves (2022) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737844.jpg" />
+  <img src="Z:/picture/008/save_picture_737844.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Subway Soundz Best Of 2021 (2022) [AAC|~322 Kbps] <Jump Up, Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737843.jpg" />
+  <img src="Z:/picture/008/save_picture_737843.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - FGX (10th Years Anniversary) (2021) [AAC|~337 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737839.jpg" />
+  <img src="Z:/picture/008/save_picture_737839.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Underground Soundz Best Of 2021 (2022) [AAC|~290 Kbps] <Jump Up, Drum & Bas
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737838.jpg" />
+  <img src="Z:/picture/008/save_picture_737838.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Urban Streets, No. 1: Urban Chillout Music (2022) [AAC|~329 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737837.jpg" />
+  <img src="Z:/picture/008/save_picture_737837.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Harmonic Lounge Music (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737835.jpg" />
+  <img src="Z:/picture/008/save_picture_737835.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Low Down Deep Best Of 2021 (2022) [AAC|~331 Kbps] <Jump Up, Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737828.jpg" />
+  <img src="Z:/picture/008/save_picture_737828.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Disco Peep's: Urban Soulful and Nu Disco Music (2022) [AAC|~313 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737827.jpg" />
+  <img src="Z:/picture/008/save_picture_737827.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Sleep over to Chill: Chillout Your Mind (2022) [AAC|~312 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737823.jpg" />
+  <img src="Z:/picture/008/save_picture_737823.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Поэт Михаил Гуцериев - Большая любовь (Лу�
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737818.jpg" />
+  <img src="Z:/picture/008/save_picture_737818.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Anti Stress Music (Instrumental sound and beats for your relaxing moments) 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737815.jpg" />
+  <img src="Z:/picture/008/save_picture_737815.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Ностальгия по настоящему (вечер музыки М�
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737805.jpg" />
+  <img src="Z:/picture/008/save_picture_737805.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737800.jpg" />
+  <img src="Z:/picture/008/save_picture_737800.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Sky Soul - Message from the Sun (2022) [AAC|~335 Kbps] <Psychill, Psybient, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737796.jpg" />
+  <img src="Z:/picture/008/save_picture_737796.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737782.jpg" />
+  <img src="Z:/picture/008/save_picture_737782.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737716.jpg" />
+  <img src="Z:/picture/008/save_picture_737716.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737715.jpg" />
+  <img src="Z:/picture/008/save_picture_737715.jpg" />
 </div>
 
 

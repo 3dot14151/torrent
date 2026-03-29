@@ -1,3 +1,55 @@
+###  Публикация: 1590698   (188357) от 15.11.2022
+
+Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Худшие опасения цивилизованных частей мира подтвердились. Гоблиноиды объединились в разношерстную орду и собираются захватить Десять городов. Массивные отряды орков и гоблинов верхом на воргах вот-вот обрушатся на город Таргос, и это всего лишь начало! Для того, чтобы защитить Десять городов от ужасной опасности, требуются герои. Готовы ли вы ответить на призыв к (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Isle StudiosЖанр: Ролевая игра, Сражения, ФэнтeзиЯзык озвучки: Русский, Немецкий, Английский, Французский и другиеЯзык субтитров: Русский, Немецкий, Английский, Французский и другиеЯзык интерфейса: Русский, Немецкий, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF88B60B35E991AD819C038760CFCE32D786BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661832   (188172) от 16.09.2023
+
+Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу врага (2005) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его единственная цель – достигнуть швейцарской границы. Все, на что он может положиться – находчивость, остроумие и инстинкт выживания. Его враги – жестокие немецкие солдаты, стреляющие без предупреждения. Пилот армии США Билл Фостер, сбитый на территории Германии зимой 1944 года, решается на отчаянный шаг – любой ценой выбраться из фашистского тыла, в то время как (   Читать дальше...   )Тип издания: LicenseРазработчик: Wide GamesЖанр: Стелс, Экшены, Шутеры, Ролевая игра от третьего лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7425F0061B64FD9F71C3163B9ECEDAEBE4B37AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827521   (187991) от 22.10.2025
 
 Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
@@ -6,7 +58,7 @@ Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187991.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187902.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Diablo II (2000) [En] (1.14d/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186086.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186077.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ FlatOut (2004) [Ru/En] (1.1) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185655.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184749.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184096.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184050.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182043.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181211.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181108.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181017.jpg" />
+  <img src="Z:/picture/005/save_picture_181017.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Game
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180618.jpg" />
+  <img src="Z:/picture/005/save_picture_180618.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Still Life (2005) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179616.jpg" />
+  <img src="Z:/picture/005/save_picture_179616.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Monkey Island 2: LeChuck’s Revenge (2010) [Multi] (2.0.0.10) License GOG [Spec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179602.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176429.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175912.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Tales of Monkey Island: Complete Season (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175882.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173449.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Search and Rescue: Vietnam Med Evac / Вьетнамский апокалипс�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172943.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171973.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171485.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170947.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168843.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AB447A5AFC8B004FDA90D8A0F77B9CE883F8DC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673705   (164059) от 02.11.2023
-
-Elasto Mania Remastered (2000) [En] (1.19) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elasto Mania Remastered представляет собой обновленную версию оригинального инди-симулятора Elma, который позволяет геймерам отправиться на гоночные испытания. Придется сесть за руль байка, что способен передвигаться по труднопроходимой местности и совершать высокие прыжки с разгона. Пользователи будут передвигаться по двухмерным картам с видом сбоку, где приходится (   Читать дальше...   )Тип издания: LicenseРазработчик: Balazs RozsaЖанр: Гонки, Симулятор, ВнедорожникиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE59C410569F38084FC06BB7B888A5AD16F91AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598034   (163723) от 17.12.2022
-
-Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pool of Radiance: Ruins of Myth Drannor - современная реинкарнация культовой саги Pool of Radiance. Действие игры, основанной на третьей редакции Dungeons & Dragons, разворачивается среди смертоносных руин Мит Драннора, легендарного города, который некогда вместе создавали эльфы и гномы. Это был величайший памятник красоте, любви и миру.Тип издания: LicenseРазработчик: Stormfront StudiosЖанр: RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415C23DA4CE236E04E3E1EAE96B9D42E18E2222B
 ```
 
 https://mybot314.ru/tekegram_catalog/

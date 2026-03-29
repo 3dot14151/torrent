@@ -1,3 +1,107 @@
+###  Публикация: 1578834   (343512) от 24.09.2022
+
+Фёдор Достоевский | Крокодил (2021) [MP3, Виталий Кузьмин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль по одноимённому рассказу Фёдора Михайловича Достоевского. Чиновника, Иван Матвеича проглатывает крокодил. К немалому удивлению окружающих, Иван Матвеич не только остается жив, но и совершенно доволен сложившимся положением дел. Понимая, что привлекает тем самым всеобщее внимание, пускается в фантазии о том, что теперь он сможет, вещая из крокодила, (   Читать дальше...   )Жанр: Классика, РадиоспектакльПродолжительность: 0:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A865666D58693476DD89308FDF2F72FD90CCE83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073030   (342672) от 17.11.2016
+
+Иван Бунин | В Париже (1995) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткий грустный рассказ о том как Он и Она встретились в Париже и полюбили друг друга...Жанр: КлассикаПродолжительность: 00:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289A86F1EB6E5D7F22C93F4470512510690C49E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330594   (339093) от 11.10.2019
+
+Любен Каравелов | Болгары старого времени (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Болгарская литература — одна из древнейших славянских литератур. Однако формирование ее как национальной художественной литературы происходит довольно поздно — лишь в прошлом столетии. Объясняется это тем, что еще на раннем этапе общественно-культурной жизни болгарского народа его естественное развитие прерывалось иноземным порабощением. В XI–XII веках это было византийское (   Читать дальше...   )Жанр: КлассикаПродолжительность: 04:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE12A316C8FA8C1BC19136E52F3E916D5FF6CEFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180766   (337359) от 05.11.2017
+
+Маркус Зузак | Книжный вор (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337359.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Книжный вор» — недлинная история, в которой, среди прочего, говорится: об одной девочке; о разных словах; об аккордеонисте; о разных фанатичных немцах; о еврейском драчуне; и о множестве краж. Это книга о силе слов и способности книг вскармливать душу.Жанр: Военный, драмаПродолжительность: 16:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9DA136F01385B463499ED1E8F484314511EF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579740   (334717) от 28.09.2022
 
 Николай Некрасов | Осенняя скука (1953) [MP3, Владимир Муравьёв и др.]
@@ -6,7 +110,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334717.jpg" />
+  <img src="Z:/picture/008/save_picture_334717.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333536.jpg" />
+  <img src="Z:/picture/008/save_picture_333536.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333346.jpg" />
+  <img src="Z:/picture/008/save_picture_333346.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332145.jpg" />
+  <img src="Z:/picture/008/save_picture_332145.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332006.jpg" />
+  <img src="Z:/picture/008/save_picture_332006.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332001.jpg" />
+  <img src="Z:/picture/008/save_picture_332001.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331849.jpg" />
+  <img src="Z:/picture/008/save_picture_331849.jpg" />
 </div>
 
 
@@ -197,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331715.jpg" />
+  <img src="Z:/picture/008/save_picture_331715.jpg" />
 </div>
 
 
@@ -223,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329988.jpg" />
+  <img src="Z:/picture/008/save_picture_329988.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329986.jpg" />
+  <img src="Z:/picture/008/save_picture_329986.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329926.jpg" />
+  <img src="Z:/picture/008/save_picture_329926.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329763.jpg" />
+  <img src="Z:/picture/008/save_picture_329763.jpg" />
 </div>
 
 
@@ -329,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328526.jpg" />
+  <img src="Z:/picture/008/save_picture_328526.jpg" />
 </div>
 
 
@@ -357,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328057.jpg" />
+  <img src="Z:/picture/008/save_picture_328057.jpg" />
 </div>
 
 
@@ -383,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327893.jpg" />
+  <img src="Z:/picture/008/save_picture_327893.jpg" />
 </div>
 
 
@@ -409,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327890.jpg" />
+  <img src="Z:/picture/008/save_picture_327890.jpg" />
 </div>
 
 
@@ -436,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327839.jpg" />
+  <img src="Z:/picture/008/save_picture_327839.jpg" />
 </div>
 
 
@@ -462,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327698.jpg" />
+  <img src="Z:/picture/008/save_picture_327698.jpg" />
 </div>
 
 
@@ -489,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327558.jpg" />
+  <img src="Z:/picture/008/save_picture_327558.jpg" />
 </div>
 
 
@@ -515,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327546.jpg" />
+  <img src="Z:/picture/008/save_picture_327546.jpg" />
 </div>
 
 
@@ -541,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327488.jpg" />
+  <img src="Z:/picture/008/save_picture_327488.jpg" />
 </div>
 
 
@@ -567,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327375.jpg" />
+  <img src="Z:/picture/008/save_picture_327375.jpg" />
 </div>
 
 
@@ -578,117 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB631336681318E12EB5C7C49B16EF3DA705F996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415150   (326727) от 25.11.2011
-
-Михаил Булгаков | Собачье сердце (2005) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения, Русская классика.
-Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик отечественной литературы ХХ столетия.
-Три сатирические повести, представленные в аудиокниге, обращены к одной и той же реальности – Москве 1920-х годов. Рассказывая о полярных силах того времени, автор как бы развертывает человеческую антропологию, (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Студия «АРДИС»Продолжительность: 11:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209B2E5AADBF5104333A1075D60A78CA572A7014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415070   (326615) от 25.11.2011
-
-Михаил Булгаков | Мастер и Маргарита (в сокращении) (2004) [MP3, Вениамин Смехов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Михаил Булгаков. Лучшее.
-Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик отечественной литературы ХХ столетия.
-Роман «Мастер и Маргарит» это история, обнажающая вечные темы любви, борьбы добра со злом, смерти и бессмертия. Главные герои защищают неоспоримую ценность любви, верности, милосердия, самопожертвования в противовес предательству (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Издательский дом «Союз»Продолжительность: 07:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE03756FA33A0650FDDF6AF5AE981F4194D82E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842423   (326576) от 20.11.2014
-
-Федор Достоевский  | Село Степанчиково и его обитатели (2007) [MP3, Игорь Ильинский, Михаил Царёв и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиокомпозиция по повести Ф.М. Достоевского, в которой описывается помещичья усадьба. Герои в основном принадлежат к характерному для Достоевского типу - неудовлетворенные, борющиеся за лучшую жизнь и зачастую попадающие при этом в еще более тяжелые или комичные ситуации. Запись 1960 года.Жанр: КлассикаИздательство: Звуковая книга, ГостелерадиофондПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93AAF0097BCFE025CE8A92FA4245A2513627747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415051   (326553) от 25.11.2011
-
-Михаил Булгаков | Мастер и Маргарита (Радиоспектакль) (2002) [MP3, Николай Черкасов, Эраст Гарин и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика.
-Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик отечественной литературы ХХ столетия.
-Роман «Мастер и Маргарита», создававшийся писателем в течение многих лет, посвящен общечеловеческим вопросам жизни, смерти, любви, красоты.
-Это – самый загадочный из романов за всю историю отечественной литературы XX в. Это – роман, который (   Читать дальше...   )Жанр: Русская литература, классика, романВ ролях: Эраст Гарин, Михаил Жаров, Людмила Касаткина, Юрий Яковлев, Алла Демидова и др.Издательство: Парадигма С&ТПродолжительность: 13:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8F775CA86EBCED8FF93CF675B992894F7035D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

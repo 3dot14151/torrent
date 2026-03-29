@@ -1,3 +1,111 @@
+###  Публикация: 421242   (295235) от 10.12.2011
+
+Эрих Мария Ремарк | Три товарища (2005) [MP3, Максим Пинскер]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена.
+Роман «Три товарища» Эриха Марии Ремарка, вышедший в 1937 году, является заключительной частью трилогии, которую автор посвятил Первой мировой войне и теме «потерянного поколения» - судьбе солдат, прошедших войну (первые две книги: «На Западном фронте без перемен», «Возвращение».
+Главные герои всех трех романов, вернувшись с войны, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: СоюзПродолжительность: 16:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E8BFAE2649566F3BB6A3A786AE9C54B261D339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079141   (294258) от 04.12.2016
+
+Саша Черный | Иероглифы. Храбрая женщина (2007) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радио России представляет два рассказа Саши Черного, которые были написаны в стиле своеобразного анекдотически-бытового реализма.Жанр: Классика, юмор, рассказПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1CB3C103EA911F933E8041605F96B6D0629318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 422810   (288018) от 14.12.2011
+
+Александр Иванович Герцен | Былое и думы (2011) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288018.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Былое и думы» — литературное произведение, написанное Александром Ивановичем Герценом в жанре воспоминаний. Отдельные главы писались автором в разные годы и между некоторыми из них разрыв в несколько лет. Опубликовано в 1868 году. Написанию книги предшествовала тяжелая полоса в жизни Герцена: рушились не только его революционные воззрения, но и семья.
+Герцен посвятил (   Читать дальше...   )Жанр: воспоминанияИздательство: Нигде не купишьПродолжительность: 75:36:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 422885   (287873) от 14.12.2011
+
+И.А. Гончаров | Обломов (Радиоспектакль) (2007) [MP3, Юрий Яковлев, Александр Лазарев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у микрофона. Из фондов «Радио России».
+Роман «Обломов» – «Золотая классика» русской литературы. Оригинальная, неоднозначная книга, которую считают и эталоном критического реализма, и романом откровенно сатирическим... Но все критики единодушны в том, что «Обломов» – гениальнейшее и блистательнейшее явление отечественной прозы, явление, не утратившее (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио РоссииПродолжительность: 03:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75770DE835A7CA805257CA4E5B55E69E095DCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335151   (287556) от 02.11.2019
 
 Генри Грэм Грин | Комедианты (2019) [MP3]
@@ -6,7 +114,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287556.jpg" />
+  <img src="Z:/picture/008/save_picture_287556.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284026.jpg" />
+  <img src="Z:/picture/008/save_picture_284026.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280752.jpg" />
+  <img src="Z:/picture/008/save_picture_280752.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280338.jpg" />
+  <img src="Z:/picture/008/save_picture_280338.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279197.jpg" />
+  <img src="Z:/picture/008/save_picture_279197.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279005.jpg" />
+  <img src="Z:/picture/008/save_picture_279005.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278926.jpg" />
+  <img src="Z:/picture/008/save_picture_278926.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278902.jpg" />
+  <img src="Z:/picture/008/save_picture_278902.jpg" />
 </div>
 
 
@@ -215,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278074.jpg" />
+  <img src="Z:/picture/008/save_picture_278074.jpg" />
 </div>
 
 
@@ -242,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277989.jpg" />
+  <img src="Z:/picture/008/save_picture_277989.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276973.jpg" />
+  <img src="Z:/picture/008/save_picture_276973.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274672.jpg" />
+  <img src="Z:/picture/008/save_picture_274672.jpg" />
 </div>
 
 
@@ -325,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273733.jpg" />
+  <img src="Z:/picture/008/save_picture_273733.jpg" />
 </div>
 
 
@@ -353,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273666.jpg" />
+  <img src="Z:/picture/008/save_picture_273666.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273654.jpg" />
+  <img src="Z:/picture/008/save_picture_273654.jpg" />
 </div>
 
 
@@ -407,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273366.jpg" />
+  <img src="Z:/picture/008/save_picture_273366.jpg" />
 </div>
 
 
@@ -434,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272610.jpg" />
+  <img src="Z:/picture/008/save_picture_272610.jpg" />
 </div>
 
 
@@ -461,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272602.jpg" />
+  <img src="Z:/picture/008/save_picture_272602.jpg" />
 </div>
 
 
@@ -487,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272590.jpg" />
+  <img src="Z:/picture/008/save_picture_272590.jpg" />
 </div>
 
 
@@ -515,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272565.jpg" />
+  <img src="Z:/picture/008/save_picture_272565.jpg" />
 </div>
 
 
@@ -542,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272495.jpg" />
+  <img src="Z:/picture/008/save_picture_272495.jpg" />
 </div>
 
 
@@ -569,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272490.jpg" />
+  <img src="Z:/picture/008/save_picture_272490.jpg" />
 </div>
 
 
@@ -581,112 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1A0FF6EF21649485AB79B15B2DBDD3007F81BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273634   (272422) от 24.12.2010
-
-И.С. Тургенев | Записки охотника. Повести. Стихотворения (2008) [MP3, Олег Исаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272422.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Школьная библиотека" предлагает вам послушать цикл рассказов "Записки охотника", оказавший заметное влияние на русскую литературу и ставший одним из самых заметных произведений в творчестве Тургенева. Благодаря "Запискам" автор получил мировую известность, с них же началось его сотрудничество с "Современником" Н. А. Некрасова. (   Читать дальше...   )Жанр: Рассказ, повесть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E743D3854E62510A314FFF982B5C18EF95281D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274235   (272343) от 24.12.2010
-
-Александр Дюма (отец) | Трилогия о Генрихе Наваррском (Книга 3). Сорок пять (2001) [MP3, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272343.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сорок пять» написан в 1847 и является последним романом трилогии Александра Дюма о Генрихе Наваррском и о гугенотских войнах (Религиозные или гугенотские войны — серия затяжных гражданских войн между католиками и протестантами (гугенотами), куда входят «Королева Марго» и «Графиня де Монсоро».
-События, воскрешенные в романе «Сорок пять», относятся к 1585 году, когда (   Читать дальше...   )Жанр: Исторический, классика, приключения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9125E372106FA159493F0C17393762D6AB7BDDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338417   (269758) от 15.11.2019
-
-Фаддей Булгарин и др. | Классика русского рассказа. [Выпуск №6] (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269758.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередном выпуске литературного аудиоальманаха «Классика русского рассказа № 6» вас ждут аудиоверсии произведений лучших писателей конца XVIII начала XX веков.Жанр: КлассикаПродолжительность: 08:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1B49B948D6302F81C298C035F1ED4D38B9812B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 275926   (269533) от 27.12.2010
-
-Уильям Сомерсет Моэм | Острие бритвы (2003) [MP3, Александр Балакирев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Зарубежная проза.
-Роман «Острие бритвы» – один из лучших произведений У.С. Моэма, написан в 1944 году. Это не просто роман, а подлинная «школа нравов» английской богемы начала XX века. За взаимоотношениями персонажей, страстей и натур у Сомерсета Моэма отчетливо проступает художественно-философский анализ «вечных» тем мировой литературы: смысл (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Мария ЛориеИздательство: Студия «АРДИС»Продолжительность: 11:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B96ECF16A40A2044DB848F1776C5F0E7AE7BB08
 ```
 
 https://mybot314.ru/tekegram_catalog/

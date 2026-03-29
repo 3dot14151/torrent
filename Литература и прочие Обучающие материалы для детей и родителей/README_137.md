@@ -1,3 +1,139 @@
+###  Публикация: 1124747   (785594) от 12.04.2017
+
+Анна Матвеева | Интенсивный курс подготовки. Через три месяца в школу (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой интенсивный курс подготовки к школе. Выполняя увлекательные творческие задания, дошколята будут играть с буквами и цифрами, решать логические задачки на развитие мышления, памяти и внимания, научатся анализировать, сравнивать, рассказывать, объяснять.
+
+Для дошкольного возраста.Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5342A6A26480C0FD3C98620C156113395FAA3DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124821   (785557) от 12.04.2017
+
+Самиздат | Развивающие раскраски цифры в стишках для самых маленьких (2016) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски цифр для детей в стишках и картинках, помогут Вам дать ребёнку первые азы в освоении математического счёта.
+Многие оценят их по достоинству.Жанр: РаскраскаФормат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D948EE7EBDE0AFD3C0E0D0BF7D250FCB459E3D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124815   (785543) от 12.04.2017
+
+Самиздат | Раскраски по цифрам 2 (2016) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785543.jpg" />
+</div>
+
+
+###  Подробнее
+
+На первый взгляд в раскраске по цифрам нет ничего необычного. Рисунок поделен на области с малозаметными номерками. Ориентируясь на цифры, соответствующие определенному цвету, ребенок по частям раскрашивает изображение. Рисунки простые и понятные, с четкими контурами, небольшим количеством оттенков.
+Каждая раскраска – мудрый «воспитатель». Недаром этот метод применял (   Читать дальше...   )Жанр: РаскраскаФормат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A00F208B2839EEBE6B044048281F0BAF700ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124730   (785538) от 12.04.2017
+
+Кикунори Синохара | Оригами для мозгов. Японская система развития интеллекта ребенка: 8 игр и 5 привычек (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785538.jpg" />
+</div>
+
+
+###  Подробнее
+
+«На лекциях меня часто спрашивают: «Почему у моего ребенка плохие оценки? Правда ли, что успеваемость определяется наследственностью?» Так начинает свою книгу японский нейробиолог Кикунори Синохара. Все родители хотят видеть своего ребенка умным. Но кто этот умный ребенок? Чем он отличается от своих сверстников? И можно ли стать умным в любом возрасте?
+
+Эта книга (   Читать дальше...   )Жанр: Настольные игрыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADA83B8F70C59AA3FFD11DF0E9A6804B23F44DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204007   (785464) от 04.02.2018
+
+А. Алтаев | Старая песня яблонь (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B131BC0E4478C35DDCEA27CB180B3CF1A676608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204013   (785388) от 04.02.2018
 
 Иван Билибин (илл.) | Былина о Добрыне Никитиче (1911) [PDF]
@@ -6,7 +142,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785388.jpg" />
+  <img src="Z:/picture/008/save_picture_785388.jpg" />
 </div>
 
 
@@ -34,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785387.jpg" />
+  <img src="Z:/picture/008/save_picture_785387.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785354.jpg" />
+  <img src="Z:/picture/008/save_picture_785354.jpg" />
 </div>
 
 
@@ -87,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785352.jpg" />
+  <img src="Z:/picture/008/save_picture_785352.jpg" />
 </div>
 
 
@@ -113,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785279.jpg" />
+  <img src="Z:/picture/008/save_picture_785279.jpg" />
 </div>
 
 
@@ -139,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785276.jpg" />
+  <img src="Z:/picture/008/save_picture_785276.jpg" />
 </div>
 
 
@@ -165,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784904.jpg" />
 </div>
 
 
@@ -191,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784894.jpg" />
 </div>
 
 
@@ -217,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784890.jpg" />
 </div>
 
 
@@ -243,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784888.jpg" />
 </div>
 
 
@@ -269,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784885.jpg" />
 </div>
 
 
@@ -296,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784876.jpg" />
 </div>
 
 
@@ -322,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784813.jpg" />
 </div>
 
 
@@ -348,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784795.jpg" />
 </div>
 
 
@@ -374,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784651.jpg" />
 </div>
 
 
@@ -400,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784626.jpg" />
 </div>
 
 
@@ -426,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784471.jpg" />
 </div>
 
 
@@ -452,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784389.jpg" />
 </div>
 
 
@@ -479,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784348.jpg" />
 </div>
 
 
@@ -505,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784307.jpg" />
 </div>
 
 
@@ -531,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784306.jpg" />
 </div>
 
 
@@ -542,139 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A36F162B239334FD9C543FE65E37820C4485EBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204788   (784271) от 07.02.2018
-
-Юрий Ревич | Азбука электроники (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784271.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге читатель знакомится с основой современной электроники – микроконтроллерами на примере популярной любительской платформы Arduino. Начиная с простых схем, управляющих свечением светодиода, читатель постепенно переходит к более сложным устройствам: бытовой автоматике, часам и измерительным приборам, элементам конструкции механических устройств. Последовательно (   Читать дальше...   )Жанр: Радиоэлектроника, Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F767865116DE93BF8AAE49ADA25EB53869EE8C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389487   (784191) от 11.06.2020
-
-БУКВА-ЛЕНД | Раскраска-пропись. Изучаю формы и фигуры (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраска пропись «Изучаю формы и фигуры» — отличный вариант для тех родителей, которые привыкли окружать своего малыша только лучшими и качественными вещами. За такой книжкой ваш ребёнок проведёт время с пользой и удовольствием, узнает много нового и интересного.Жанр: РаскраскаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4550961AC388B225BD992C099634E54977F636ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389704   (783946) от 12.06.2020
-
-Т. Чижевская, Л. Гирская | Тишкин огород (1991) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как объяснить ребёнку «Почему поросята, домашние взрослые свиньи и дикие кабаны роют землю?» В интересной и сказочной форме это объясняется в детской книжке Татьяны Чижевской «Тишкин огород».Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16677E13ABC6F5163DC096D37BC4C6B92569B68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389929   (783834) от 12.06.2020
-
-Эл Свейгарт | Программируй в Minecraft. Строй выше, выращивай быстрее, копай глубже и автоматизируй всю скучную работу! (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для всех любителей игры Minecraft от автора мировых бестселлеров-самоучителей по программированию Эла Свейгарта. Благодаря своему многолетнему опыту, Свейгарт умеет в увлекательной игровой форме подать даже самую непростую информацию и заинтересовать даже тех маленьких читателей, которых чтение не интересует. Самая популярная у детей во всем мире игра станет (   Читать дальше...   )Жанр: Программирование и электроника для детейПеревод: Михаил РайтманФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D02467EC48244C964162563EA98949F685C9243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205397   (783768) от 09.02.2018
-
-Марина Дробкова | Техноведьма [3 книги] (2016-2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня девочка Аня Пчёлкина, со смешным прозвищем – Насекомое, живет в интернате на загадочном острове Светлоярск. И всё бы ничего, но она загадочное техно – с помощью свиста и пения, умеющая управлять механизмами.
-- Имперский марш (2016)
-- Правило четырёх (2016)
-- Мастер дверей (2017)Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB3310B647F56FABBE7851605741B113852354C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427345.jpg" />
+  <img src="Z:/picture/008/save_picture_427345.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Dualers - Palm Trees and 80 Degrees (2019) [MP3|320 Kbps] <Funk, Ska, Reggae
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427331.jpg" />
+  <img src="Z:/picture/008/save_picture_427331.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nekby - Алхимия (2015) [MP3|320 кб/с]<Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427304.jpg" />
+  <img src="Z:/picture/008/save_picture_427304.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Public Enemy - What You Gonna Do When The Grid Goes Down? (2020) [MP3|320 Kbps] 
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427289.jpg" />
+  <img src="Z:/picture/008/save_picture_427289.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jahmal TGK, Регион снега - Бархатный сезон (2020) [MP3|
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425475.jpg" />
+  <img src="Z:/picture/008/save_picture_425475.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425192.jpg" />
+  <img src="Z:/picture/008/save_picture_425192.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419090.jpg" />
+  <img src="Z:/picture/008/save_picture_419090.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415037.jpg" />
+  <img src="Z:/picture/008/save_picture_415037.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Fort Minor - The Rising Tied (2005) Limited Edition [FLAC|Lossless|tracks + .cue
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414184.jpg" />
+  <img src="Z:/picture/008/save_picture_414184.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413603.jpg" />
+  <img src="Z:/picture/008/save_picture_413603.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bahh Tee - Осенний Блюз (2011) [MP3|320 kbps]<Rap, Hip-Hop, Lirycs>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413563.jpg" />
+  <img src="Z:/picture/008/save_picture_413563.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410201.jpg" />
+  <img src="Z:/picture/008/save_picture_410201.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Mr.Fables - Melodic Snaps Vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Instrumen
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409988.jpg" />
+  <img src="Z:/picture/008/save_picture_409988.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408441.jpg" />
+  <img src="Z:/picture/008/save_picture_408441.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408439.jpg" />
+  <img src="Z:/picture/008/save_picture_408439.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408423.jpg" />
+  <img src="Z:/picture/008/save_picture_408423.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Pra(Killa'Gramm) - УЛИЦА ГОВОРИТ (2020) [MP3|320 Kbps] <Hip-Hop, Rap
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408194.jpg" />
+  <img src="Z:/picture/008/save_picture_408194.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408096.jpg" />
+  <img src="Z:/picture/008/save_picture_408096.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407976.jpg" />
+  <img src="Z:/picture/008/save_picture_407976.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Cypress Hill - Elephants on Acid (2018) [FLAC|Lossless|tracks + .cue] <Rap, Hip-
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407684.jpg" />
+  <img src="Z:/picture/008/save_picture_407684.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Chillhop Essentials - Fall (2017) [FLAC|Lossless|Web-DL|tracks] <Chillhop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390473.jpg" />
+  <img src="Z:/picture/008/save_picture_390473.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Noize MC - Коррозия хип-хопа (2017) Single [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386794.jpg" />
+  <img src="Z:/picture/008/save_picture_386794.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Uratsakidogi - Black Hop (2018) bonus track edition [FLAC|Lossless|image + .cue]
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385122.jpg" />
+  <img src="Z:/picture/008/save_picture_385122.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Ram & Kommo - Starscream (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383766.jpg" />
+  <img src="Z:/picture/008/save_picture_383766.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383624.jpg" />
+  <img src="Z:/picture/008/save_picture_383624.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Plc - Новый (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383619.jpg" />
+  <img src="Z:/picture/008/save_picture_383619.jpg" />
 </div>
 
 

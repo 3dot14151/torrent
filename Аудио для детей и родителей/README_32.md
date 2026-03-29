@@ -1,3 +1,83 @@
+###  Публикация: 1399161   (734338) от 29.07.2020
+
+Варвара Еналь | Живые. Эра драконов. Пустыня Всадников. Книга 1. (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэши всю жизнь прожила в окруженном скалами Третьем Городе. Но однажды она вместе со своим отцом покидает безопасные стены и отправляется в дальний путь. Впереди Мэши ждут опасные приключения, когда древние легенды оказываются реальностью, а исконные враги совершенно неожиданно приходят на помощь. Почему во всем мире осталось всего девять Городов? Какие двери открывают (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 10:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079F0C1F7BC6F17C9D8F096EB4198E7565B07D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711268   (734261) от 29.07.2020
+
+Хью Лофтинг | Путешествия Доктора Дулиттла (1992) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктора Айболита знают и любят все. По крайней мере, те, кто когда-то был советским ребенком. Но есть ещё совсем другогой доктор, родившийся на несколько лет раньше Айболита. Зовут его Дулиттл. Он приходится внучатым племянником мистеру Пиквику — добродушному упитанному путешественнику, всеобщему любимцу и правдоискателю. А придумал его простой ирландский инженер (   Читать дальше...   )Жанр: СказкиПродолжительность: 10:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEE83E04A8FA44FB83D17007600DA2F9AA50485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444921   (734150) от 29.07.2020
+
+Валентин Постников | Карандаш и Самоделкин в деревне Козявкино (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734150.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном небольшом, но очень красивом городе живут два маленьких веселых человечка. Зовут их Карандаш и Самоделкин. Они – самые настоящие волшебники. Карандаш – художник, у которого вместо носа волшебный карандаш. Все, что он нарисует, превращается в настоящее.
+А его друг Самоделкин – железный человечек, который умеет мастерить разные невероятные машины.
+Веселые истории (   Читать дальше...   )Жанр: СказкаПродолжительность: 03:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D4E717F066C248CA1A2E452416943A6415CE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399337   (733888) от 30.07.2020
 
 Эмма Кэрролл | Небесные преследователи (2019) [MP3]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733888.jpg" />
+  <img src="Z:/picture/008/save_picture_733888.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733887.jpg" />
+  <img src="Z:/picture/005/save_picture_733887.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733882.jpg" />
+  <img src="Z:/picture/008/save_picture_733882.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733468.jpg" />
+  <img src="Z:/picture/005/save_picture_733468.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733467.jpg" />
+  <img src="Z:/picture/008/save_picture_733467.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733462.jpg" />
+  <img src="Z:/picture/005/save_picture_733462.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733454.jpg" />
+  <img src="Z:/picture/005/save_picture_733454.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733167.jpg" />
+  <img src="Z:/picture/008/save_picture_733167.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732966.jpg" />
+  <img src="Z:/picture/008/save_picture_732966.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732957.jpg" />
+  <img src="Z:/picture/008/save_picture_732957.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732951.jpg" />
+  <img src="Z:/picture/008/save_picture_732951.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732833.jpg" />
+  <img src="Z:/picture/008/save_picture_732833.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732818.jpg" />
+  <img src="Z:/picture/008/save_picture_732818.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732736.jpg" />
+  <img src="Z:/picture/008/save_picture_732736.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732732.jpg" />
+  <img src="Z:/picture/008/save_picture_732732.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732729.jpg" />
+  <img src="Z:/picture/008/save_picture_732729.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732726.jpg" />
+  <img src="Z:/picture/008/save_picture_732726.jpg" />
 </div>
 
 
@@ -451,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732722.jpg" />
+  <img src="Z:/picture/008/save_picture_732722.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732561.jpg" />
+  <img src="Z:/picture/008/save_picture_732561.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729801.jpg" />
+  <img src="Z:/picture/008/save_picture_729801.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728364.jpg" />
+  <img src="Z:/picture/008/save_picture_728364.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727748.jpg" />
+  <img src="Z:/picture/008/save_picture_727748.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727544.jpg" />
+  <img src="Z:/picture/008/save_picture_727544.jpg" />
 </div>
 
 
@@ -599,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FA64BCE5ACB5A2B4F1A83981DBF50AB0028DBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284526   (727534) от 22.02.2019
-
-Людмила Петрановская | Лекция по психологии «Родительский невроз» (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгие годы родители растили детей, не задумываясь о том, как на них отражаются действия, поступки, эмоциональное состояние. Но сегодня все совсем не так – ребенка нужно принимать, понимать, идти навстречу его потребностям, принимать его чувства… В результате, современные родители боятся сказать своему ребенку что-то не так, травмировать или недолюбить. Такое состояние (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 01:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52CA9D79FC6CF312304AA87FB400CFC270372564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326516   (725561) от 21.04.2011
-
-VA - Любимому малышу. (2010) [MP3|128-256 kbps]<Классика  для детей>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Shelcunchik - Tanec Fei Drazhe
-02 Shelcunchik - Vals cvetov
-03 Lebedinoe ozero - Tanec malenkih lebedey
-04 Album for the Young - Zimnee utro(   Читать дальше...   )Жанр: Классика  для детейПродолжительность: 03:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791CA385C71769647614D8892E704FFEF95F7A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399860   (725238) от 02.08.2020
-
-Евгения Кретова | Истории о Маше Димкиной и Димке Гречкине (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы думаете, что нелепые случайности и неприятные истории могут случаться только в жизни заядлых двоешников и хулиганов, то вы сильно ошибаетесь. И вот вам доказательство – истории о Маше Димкиной и Диме Гречкине, четвероклассниках и отличниках. Они строят космические модели будильников, инновационно лепят снеговиков и попадают в истории, выйти из которых им (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B075DAA3346E177F47CE80CD445167C2C30D8768
 ```
 
 https://mybot314.ru/tekegram_catalog/

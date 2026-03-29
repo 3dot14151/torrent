@@ -1,3 +1,90 @@
+###  Публикация: 1395273   (757266) от 09.07.2020
+
+Литл Бэйби Бам - Кем я хочу стать (2020) [MP3|192-320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Идём к стоматологу
+02. Русалочка
+03. Кем ты хочешь стать когда вырастешь?
+04. Все мы разные(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2810926B8302A4593BD454F98F028CA33A3B541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395270   (757263) от 09.07.2020
+
+Литл Бэйби Бам - Время играть! Играем с друзьями (2020) [MP3|192-320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Будьте добрыми к друг другу
+02. Корова Дэйзи
+03. Славный,славный мальчик мой сын Джон
+04. Деловая Мэри(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F382C8D0967281A4B7FCEE07B24EFC21345D3706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395278   (757185) от 09.07.2020
+
+Юрий Кудинов - 100 детских песен на бис!!! (2014) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757185.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алина - Радостная
+002. Клоун Плюх - Велосипед
+003. Алина - Камешки
+004. Клоун Плюх - Дуся(   Читать дальше...   )Жанр: Детские песниПродолжительность: 04:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C790A18098F314D3CBE4F7A2A05A82C2A2DC2B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522138   (756775) от 08.01.2022
 
 Тамара Крюкова | Блог Кото-Сапиенса. Книга 2 (2021) [MP3, Максимов Вадим]
@@ -6,7 +93,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756775.jpg" />
+  <img src="Z:/picture/008/save_picture_756775.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ Volker Rosin - 40 Albums (2003-2011) [MP3|192-320 kbps]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756719.jpg" />
+  <img src="Z:/picture/008/save_picture_756719.jpg" />
 </div>
 
 
@@ -61,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756507.jpg" />
+  <img src="Z:/picture/008/save_picture_756507.jpg" />
 </div>
 
 
@@ -87,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755578.jpg" />
+  <img src="Z:/picture/008/save_picture_755578.jpg" />
 </div>
 
 
@@ -116,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755569.jpg" />
+  <img src="Z:/picture/008/save_picture_755569.jpg" />
 </div>
 
 
@@ -145,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755066.jpg" />
+  <img src="Z:/picture/008/save_picture_755066.jpg" />
 </div>
 
 
@@ -171,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754000.jpg" />
+  <img src="Z:/picture/008/save_picture_754000.jpg" />
 </div>
 
 
@@ -199,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753953.jpg" />
+  <img src="Z:/picture/008/save_picture_753953.jpg" />
 </div>
 
 
@@ -227,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753827.jpg" />
+  <img src="Z:/picture/008/save_picture_753827.jpg" />
 </div>
 
 
@@ -256,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753298.jpg" />
+  <img src="Z:/picture/008/save_picture_753298.jpg" />
 </div>
 
 
@@ -285,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752545.jpg" />
+  <img src="Z:/picture/005/save_picture_752545.jpg" />
 </div>
 
 
@@ -320,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752356.jpg" />
+  <img src="Z:/picture/005/save_picture_752356.jpg" />
 </div>
 
 
@@ -346,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752209.jpg" />
+  <img src="Z:/picture/008/save_picture_752209.jpg" />
 </div>
 
 
@@ -375,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752129.jpg" />
+  <img src="Z:/picture/008/save_picture_752129.jpg" />
 </div>
 
 
@@ -404,7 +491,7 @@ VA - Jugando a imaginar (2000) [MP3|192 kbps]<Мексиканские детс�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751932.jpg" />
+  <img src="Z:/picture/008/save_picture_751932.jpg" />
 </div>
 
 
@@ -433,7 +520,7 @@ Raimond Lap - A Baby CD – Music To Settle And Relax Your Baby — Part 1: Soot
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751920.jpg" />
+  <img src="Z:/picture/005/save_picture_751920.jpg" />
 </div>
 
 
@@ -462,7 +549,7 @@ VA - Les 100 plus belles chansons et mélodies d'enfants (2000) [MP3|192 kbps]<�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751919.jpg" />
+  <img src="Z:/picture/008/save_picture_751919.jpg" />
 </div>
 
 
@@ -491,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751566.jpg" />
+  <img src="Z:/picture/008/save_picture_751566.jpg" />
 </div>
 
 
@@ -520,7 +607,7 @@ VA - Перлини класичної музики. Співають діти (
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751454.jpg" />
+  <img src="Z:/picture/008/save_picture_751454.jpg" />
 </div>
 
 
@@ -549,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751447.jpg" />
+  <img src="Z:/picture/008/save_picture_751447.jpg" />
 </div>
 
 
@@ -576,7 +663,7 @@ VA  - Колыбельные - Музыка для самых маленьких
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751446.jpg" />
+  <img src="Z:/picture/008/save_picture_751446.jpg" />
 </div>
 
 
@@ -605,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748678.jpg" />
+  <img src="Z:/picture/008/save_picture_748678.jpg" />
 </div>
 
 
@@ -634,7 +721,7 @@ VA - Мульти-Пульти. Лучшие песенки из мультфи�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748112.jpg" />
+  <img src="Z:/picture/008/save_picture_748112.jpg" />
 </div>
 
 
@@ -648,93 +735,6 @@ VA - Мульти-Пульти. Лучшие песенки из мультфи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A4CF73E76754F6B73811750A67546DC5E0C5ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385510   (748106) от 14.07.2020
-
-VA - 300 лучших хитов. Детское радио FM (2009) [MP3|128 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748106.jpg" />
-</div>
-
-
-###  Подробнее
-
-001_Лев и Брадобрей
-002_Золушка
-003_Деревянные Лошадки
-004_Подарки(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 09:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF807563D695AFC0EB3218BF505B43CDD500EFCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206676   (747452) от 03.06.2010
-
-VA - Злодейские песенки (2001) [FLAC|Lossless]<Музыка для детей>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня Шапокляк 			(01:16)
-02. Песня "Диких гитар" 		(01:31)
-03. Песня злого Пирата 			(01:46)
-04. Дуэт черного Кота и злого Пирата 	(01:41)(   Читать дальше...   )Жанр: Музыка для детейПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376222   (746840) от 15.07.2020
-
-VA - C'est La Fete (2000) [MP3|320 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vive La Compagnie
-2. Sur Le Pont D'avignon
-3. Le Pont De Londres
-4. Il Pleut Il Mouille(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C775F91A32DC9D64A6E310A52DEFBE0B0A51844
 ```
 
 https://mybot314.ru/tekegram_catalog/

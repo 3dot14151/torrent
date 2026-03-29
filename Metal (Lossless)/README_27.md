@@ -1,3 +1,90 @@
+###  Публикация: 1462771   (1020827) от 16.04.2021
+
+Megadeth - Set The World On Fire (1991) (CD Bootleg-Live 1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 	Set The World On Fire 			6:04
+	02 	Hook In Mouth 				4:34
+	03 	Wake Up Dead 				3:32
+	04 	The Conjuring 				5:13(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8876E64681CC9F488FE5421618D92D338F655B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463112   (1020699) от 17.04.2021
+
+Sun 'N' Steel - Wheel Of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungry Eyes
+02. Heading For Tomorrow
+03. Wheel Of Time
+04. The Last Crusade(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54820D526BF4589FA3C8266F19AACA9C91F65EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463232   (1020696) от 17.04.2021
+
+Bewitcher - Cursed Be Thy Kingdom (2021) [FLAC|Lossless|WEB-DL|tracks] <Blackened Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashe
+02. Death Returns...
+03. Satanic Magick Attack
+04. Electric Phantoms(   Читать дальше...   )Жанр: Blackened Speed MetalПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33759BB09D6C104069FB6BC2CECCB0F155488260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463383   (1020505) от 18.04.2021
 
 Echoes Of Eternity - As Shadows Burn (2009) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Echoes Of Eternity - As Shadows Burn (2009) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020505.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Zarpa - Imperia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020338.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Zarpa - El Loco (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020337.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Wizard - 10 Studio Albums (1999-2021) 11xCD [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020327.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Bewitcher - Under The Witching Cross (2019) [FLAC|Lossless|WEB-DL] <Blackened Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020321.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Orden Ogan - 7 Studio Albums (2008-2021) 8xCD [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020318.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Rage - Secrets In A Weird World (1989) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020170.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Rage - Reflections Of A Shadow (1990) [FLAC|Lossless|image + .cue] <Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020166.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Motus Tenebrae - Deathrising (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020149.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Rage - XIII (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020022.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Armaggedon - Trumpets of Christian Holocaust (2021) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020020.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Rage - Black In Mind (1995) [FLAC|Lossless|image + .cue] <Power Metal, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020019.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Rage - Unity (2002) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020017.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Rage - Soundchaser (2003) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020016.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Rage - 10 Years In Rage: The Anniversary Album (1994) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020015.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Beastcraft - The Nechronology of Ungodly Beastial Craft 2004-2017 (2020) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020007.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Rage - Welcome To The Other Side (2001) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020000.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Rage - Ghosts (1999) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019999.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Rage - Reign Of Fear (1986) Repress, 1989, Noise International [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019938.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Lantlôs (Lantlos) - Melting Sun (2014) Limited Edition [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019839.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Lantlôs (Lantlos) - .neon (2010) [FLAC|Lossless|tracks + .cue] <Depressive Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019838.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Lantlôs (Lantlos) - Agape (2011) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Depr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019834.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Rage - Speak Of The Dead (2006) [FLAC|Lossless|image + .cue] <Power Metal, Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019833.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Rage - Speak Of The Dead (2006) [FLAC|Lossless|image + .cue] <Power Metal, Speed
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:146754E4512EF3C6690792D1FE97CD8FC7D74233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464580   (1019828) от 22.04.2021
-
-Lantlôs (Lantlos) - Lantlôs (2008) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Post Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. þinaz Andawlitjam (9:04)
-02. Mittsommerregen (8:09)
-03. Ruinen (8:34)
-04. Kalte Tage (6:59)(   Читать дальше...   )Производство: De Tenebrarum Principio – DTP008Жанр: Depressive Black Metal, Post Black Metal, Post RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02903DA595C581B339EC8D1AAC43E93588BD7186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464518   (1019826) от 22.04.2021
-
-FireWing - Resurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude: Moonlight Of Despair
-02. Obscure Minds
-03. Chapter I: Acheron's Ritual
-04. Demons Of Society(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BA068AB84FE4BEF1B8FA8A33F7FF18F73BC133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464510   (1019810) от 22.04.2021
-
-Feanor - Power Of The Chosen One (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise Of The Dragon
-02. Power Of The Chosen One
-03. This You Can Trust
-04. Metal Land(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAD8BCF4A77B6A6A47442053AC0004FB9B03050
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,86 @@
+###  Публикация: 400753   (120027) от 31.01.2024
+
+Александр Пушкин | Руслан и Людмила (2006) [MP3, Степан Старчиков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Мир удивительных историй.
+Поэму А.С. Пушкина «Руслан и Людмила» с одинаковым удовольствием читают взрослые и дети. Поэт удивительным образом соединил загадочное волшебство с романтической историей любви, почти детективную таинственность с рассказом о верности и предательстве, создав литературный шедевр, по праву вошедший в сокровищницу русской литературы. (   Читать дальше...   )Жанр: Русская литература для детей, классика, поэмаИздательство: ЭлитайлПродолжительность: 02:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73490CAD54ADB76AF8486EF227B677A733066E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464670   (120026) от 31.01.2024
+
+Александр Пушкин | Сказки. У Лукоморья (2004) [MP3, Владимир Самойлов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+В детстве больше всего мы любим слушать сказки, и среди всего многообразия сказок произведения Александра Сергеевича Пушкина (1799–1837) занимают особое место. Это целый сказочный мир, без знакомства с которым мы уже не мыслим свою жизнь, свое духовное развитие. В сборник вошли самые лучшие сказки великого поэта.
+Текст прочитан по (   Читать дальше...   )Жанр: Русская литература, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 04:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1102241E308E078B9ADEF79B83F8FDC0E77305C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 398425   (120004) от 31.01.2024
+
+Александр Пушкин | Сказка о рыбаке и рыбке (2001) [MP3, Анатолий Иванов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Стихи и сказки.
+Каждому русскому человеку знакомы замечательные сказки Александра Сергеевича Пушкина (1799–1837), удивительные по сюжету и литературному слогу.
+Дети любят слушать сказки – волшебные истории с приключениями и превращениями. А если сказка сложена в стихах, язык ее певучий и мелодичный, то волшебства в ней становится в два раза больше. А (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Creative Attraction, Детское издательство «Елена»Продолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1AB3592E7871D5832EDC8446633A2D55B669F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695978   (119959) от 31.01.2024
 
 Александр Пушкин | Сказки Пушкина (2008) [MP3, Михаил Козаков, Александр Калягин и др.]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119959.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119933.jpg" />
 </div>
 
 
@@ -62,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119894.jpg" />
 </div>
 
 
@@ -90,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119892.jpg" />
 </div>
 
 
@@ -117,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119860.jpg" />
 </div>
 
 
@@ -146,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119858.jpg" />
 </div>
 
 
@@ -174,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119857.jpg" />
 </div>
 
 
@@ -201,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119836.jpg" />
 </div>
 
 
@@ -227,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119552.jpg" />
 </div>
 
 
@@ -254,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119418.jpg" />
 </div>
 
 
@@ -281,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119385.jpg" />
 </div>
 
 
@@ -308,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119071.jpg" />
 </div>
 
 
@@ -335,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119033.jpg" />
 </div>
 
 
@@ -362,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118916.jpg" />
 </div>
 
 
@@ -390,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118909.jpg" />
 </div>
 
 
@@ -416,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118906.jpg" />
 </div>
 
 
@@ -444,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118735.jpg" />
 </div>
 
 
@@ -471,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118732.jpg" />
 </div>
 
 
@@ -498,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118704.jpg" />
 </div>
 
 
@@ -525,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118593.jpg" />
 </div>
 
 
@@ -551,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118540.jpg" />
 </div>
 
 
@@ -578,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118535.jpg" />
 </div>
 
 
@@ -606,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118531.jpg" />
 </div>
 
 
@@ -619,90 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A7B886502CD91044884C4E020C8EC048BE9CB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344981   (118512) от 09.02.2024
-
-Виталий Бианки | Сказки (2007) [MP3, Николай Литвинов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Audiobook.
-Виталий Валентинович Бианки (1894-1959) – известный писатель, классик советской детской литературы. На его книгах выросло не одно поколение детей в нашей стране. За свою жизнь он написал более 300 рассказов, сказок, повестей.
-
-«Я всегда старался писать свои сказки и рассказы так, чтобы они были доступны и взрослым. А теперь понял, что всю жизнь (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: ИДДКПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5BF7AA38500570945AE6AF4EB706FB5C27D010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344973   (118502) от 09.02.2024
-
-Виталий Бианки | Приключения Муравьишки и другие сказки (2008) [MP3, Екатерина Семёнова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Виталий Валентинович Бианки (1894–1959) – русский писатель, автор детских книг о природе. Свои рассказы для самых маленьких Бианки называл «сказками–несказками».
-Несмотря на то, что в них много неправдоподобного, они знакомят детей с удивительным и разнообразным миром природы. Главная цель писателя – заинтересовать ребят жизнью окружающей (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Студия «АРДИС»Продолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749F1D5E40ADD8B71721D0E297C2AA4ED79284E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698543   (118417) от 09.02.2024
-
-Виталий Бианки | Лесные домишки (2016) [MP3, Елизавета Крупина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виталий Валентинович Бианки (1894–1959) – известный писатель, классик советской детской литературы. На его книгах выросло не одно поколение детей в нашей стране. За свою жизнь он написал более 300 рассказов, сказок, повестей. В его произведениях воссоздан удивительный мир живой природы, в котором столько необычного, чудесного.
-Виталий Бианки, как никто другой, умеет (   Читать дальше...   )Жанр: Русская литература для детей, рассказы о природеИздательство: Нигде не купишьПродолжительность: 02:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34DE25C694A2786FCE4518D71D4F31E26D91700D
 ```
 
 https://mybot314.ru/tekegram_catalog/

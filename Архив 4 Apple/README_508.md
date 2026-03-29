@@ -1,3 +1,112 @@
+###  Публикация: 1559640   (240128) от 26.06.2022
+
+SiteSucker 5.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240128.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2022Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B3A7C87B1BFEC7C827C038CE12A0292676B857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621424   (240127) от 24.03.2023
+
+Vellum 3.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
+Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2023Разработчик: © 2022 180gПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ED41FA343042048B169A324BA573B771A91A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466434   (240119) от 29.04.2021
+
+EagleFiler 1.9.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240119.jpg" />
+</div>
+
+
+###  Подробнее
+
+EagleFiler - приложение, позволяющая собирать, организовывать и архивировать почту, веб-страницы, текстовые документы, изображения, PDF другие файлы из различных источников. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. А для безопасности всю эту библиотеку файлов можно зашифровать.
+EagleFiler позволяет создавать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.04.2021Разработчик: C-Command Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793DDD291F8F0ECA76674C3EEBBF75DFA4909CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415572   (240105) от 12.10.2020
+
+iShowU Studio 2 v2.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
+
+iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2020Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C44ED9CB9A79F10CE9BFB1C0996008BB65E0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466345   (240102) от 29.04.2021
 
 Reflect Studio 3.0 [En]
@@ -6,7 +115,7 @@ Reflect Studio 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240102.jpg" />
+  <img src="Z:/picture/004/save_picture_240102.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ Dash 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240094.jpg" />
+  <img src="Z:/picture/004/save_picture_240094.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ Debookee v8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240088.jpg" />
+  <img src="Z:/picture/004/save_picture_240088.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ Permute 3 v3.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240081.jpg" />
+  <img src="Z:/picture/004/save_picture_240081.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240079.jpg" />
+  <img src="Z:/picture/004/save_picture_240079.jpg" />
 </div>
 
 
@@ -137,7 +246,7 @@ FontBook 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240075.jpg" />
+  <img src="Z:/picture/004/save_picture_240075.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ Exhibeo 2 v2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240067.jpg" />
+  <img src="Z:/picture/004/save_picture_240067.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ LensFlare Studio 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240063.jpg" />
+  <img src="Z:/picture/004/save_picture_240063.jpg" />
 </div>
 
 
@@ -216,7 +325,7 @@ AnyTrans for iOS 8.8.0.20201009 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240056.jpg" />
+  <img src="Z:/picture/004/save_picture_240056.jpg" />
 </div>
 
 
@@ -244,7 +353,7 @@ PDF Checkpoint 1.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240044.jpg" />
+  <img src="Z:/picture/004/save_picture_240044.jpg" />
 </div>
 
 
@@ -270,7 +379,7 @@ Metadatics 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240027.jpg" />
+  <img src="Z:/picture/004/save_picture_240027.jpg" />
 </div>
 
 
@@ -297,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240013.jpg" />
+  <img src="Z:/picture/004/save_picture_240013.jpg" />
 </div>
 
 
@@ -323,7 +432,7 @@ Dropzone 4 Pro v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240012.jpg" />
+  <img src="Z:/picture/004/save_picture_240012.jpg" />
 </div>
 
 
@@ -350,7 +459,7 @@ Wondershare AllMyMusic 3.0.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240009.jpg" />
+  <img src="Z:/picture/004/save_picture_240009.jpg" />
 </div>
 
 
@@ -377,7 +486,7 @@ EazyDraw 10.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239996.jpg" />
+  <img src="Z:/picture/004/save_picture_239996.jpg" />
 </div>
 
 
@@ -403,7 +512,7 @@ Pixelmator Classic 3.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239986.jpg" />
+  <img src="Z:/picture/004/save_picture_239986.jpg" />
 </div>
 
 
@@ -429,7 +538,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239984.jpg" />
+  <img src="Z:/picture/004/save_picture_239984.jpg" />
 </div>
 
 
@@ -455,7 +564,7 @@ MetaImage  2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239977.jpg" />
+  <img src="Z:/picture/004/save_picture_239977.jpg" />
 </div>
 
 
@@ -482,7 +591,7 @@ Amadine 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239972.jpg" />
+  <img src="Z:/picture/004/save_picture_239972.jpg" />
 </div>
 
 
@@ -510,7 +619,7 @@ SuperDuper! 3.5 beta1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239969.jpg" />
+  <img src="Z:/picture/004/save_picture_239969.jpg" />
 </div>
 
 
@@ -536,7 +645,7 @@ Markster 2.12.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239962.jpg" />
+  <img src="Z:/picture/004/save_picture_239962.jpg" />
 </div>
 
 
@@ -562,7 +671,7 @@ AirFoil+Airfoil Satellite 5.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239960.jpg" />
+  <img src="Z:/picture/004/save_picture_239960.jpg" />
 </div>
 
 
@@ -573,112 +682,6 @@ AirFoil – специальное программное обеспечение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40B622D90098838B9C61A702A514010D88194999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564506   (239951) от 19.07.2022
-
-Metadatics 1.6.8 CR2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metadatics является мощным и продвинутым редактором аудио метаданных. Поддерживает пакетное редактирование наиболее распространенных типов аудио файлов, включая MP3, M4A, AIFF, WAV, FLAC, APE, OGG, WMA, и многие другие.
-Metadatics предоставляет возможности поиска метаданных из интернет-источников, переименование файлов на основе метаданных, или манипулировать метаданными, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2020 Mark VerstraeteПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7678948262B1364BABB027B2CC0B7E47B7642B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466928   (239941) от 01.05.2021
-
-BluePlum Home Inventory 4 v4.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239941.jpg" />
-</div>
-
-
-###  Подробнее
-
-BluePlum Home Inventory - наиболее полное приложение для инвентаризации дома, которое поможет вам составлять и поддерживать инвентарь для любой собственности, какой вы владеете. Оно позволяет вам организовать свои вещи в коллекциях, комнатах, местах и ​​/ или присвоить каждому из них один или несколько тегов. ПО позволяет добавлять фотографии, видео, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2021Разработчик: Blue Plum SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5DEF6958D0AF2568F4F71F38CDB565BE34ECE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466729   (239931) от 01.05.2021
-
-AYVY 1.14.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239931.jpg" />
-</div>
-
-
-###  Подробнее
-
-С AYVY вы, наконец, можете прекратить поиски красивой, простой, быстрой и удобной программы просмотра мультимедиа. Мы сделали все, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 30.04.2021Разработчик: Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E34615DDF92FBED896F871D4C34D90302B9AB88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565333   (239925) от 23.07.2022
-
-Alfred PowerPack 5.0.1 Pre-release [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2022 Running with Crayons LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771705EE8F8EE2500D9BBCC7D3EE2060FFFF57D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

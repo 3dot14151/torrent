@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2015.016.20039 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770104.jpg" />
+  <img src="Z:/picture/008/save_picture_770104.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Lasso Pro 8.9.8.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770103.jpg" />
+  <img src="Z:/picture/008/save_picture_770103.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Daum PotPlayer 1.6.60136 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770070.jpg" />
+  <img src="Z:/picture/008/save_picture_770070.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JetBrains WebStorm 2016.1.2 Build #WS-145.971 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770069.jpg" />
+  <img src="Z:/picture/008/save_picture_770069.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ TeamViewer 11.0.59518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770033.jpg" />
+  <img src="Z:/picture/008/save_picture_770033.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Acrobat XI Pro 11.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770009.jpg" />
+  <img src="Z:/picture/008/save_picture_770009.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PowerISO 6.2 DC 08.04.2015 RePacK by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769969.jpg" />
+  <img src="Z:/picture/008/save_picture_769969.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ CoolUtils Total Image Converter 5.1.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769962.jpg" />
+  <img src="Z:/picture/008/save_picture_769962.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ PowerISO 6.2 DC 08.04.2015 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769934.jpg" />
+  <img src="Z:/picture/008/save_picture_769934.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PowerISO 6.2 DC 08.04.2015 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769932.jpg" />
+  <img src="Z:/picture/008/save_picture_769932.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NXPowerLite Desktop 6.2.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769929.jpg" />
+  <img src="Z:/picture/008/save_picture_769929.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Icecream PDF Split and Merge Pro 2.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769899.jpg" />
+  <img src="Z:/picture/008/save_picture_769899.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Privacy Eraser Free 5.0 Build 3532 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769882.jpg" />
+  <img src="Z:/picture/008/save_picture_769882.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ HyperSnap 8.05.01 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769859.jpg" />
+  <img src="Z:/picture/008/save_picture_769859.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ R-Drive Image 6.3 Build 6304 + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769850.jpg" />
+  <img src="Z:/picture/008/save_picture_769850.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Vivaldi 3.1.1929.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769838.jpg" />
+  <img src="Z:/picture/008/save_picture_769838.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Opera 28.0.1750.51 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769828.jpg" />
+  <img src="Z:/picture/008/save_picture_769828.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Internet Download Manager 6.37 Build 15 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769812.jpg" />
+  <img src="Z:/picture/008/save_picture_769812.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Insofta 3D Text Commander 5.6.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769809.jpg" />
+  <img src="Z:/picture/008/save_picture_769809.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Malwarebytes Windows Firewall Control 6.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769803.jpg" />
+  <img src="Z:/picture/008/save_picture_769803.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ PeaZip 7.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769801.jpg" />
+  <img src="Z:/picture/008/save_picture_769801.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ UnHackMe 11.80.0.980 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769800.jpg" />
+  <img src="Z:/picture/008/save_picture_769800.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Text Editor Pro 9.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769797.jpg" />
+  <img src="Z:/picture/008/save_picture_769797.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Alcohol 120% 2.0.3.7520 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769791.jpg" />
+  <img src="Z:/picture/008/save_picture_769791.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ MetaProducts Offline Explorer Enterprise 7.8.4653 RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769764.jpg" />
+  <img src="Z:/picture/008/save_picture_769764.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Malwarebytes Windows Firewall Control 6.2.0.0 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769758.jpg" />
+  <img src="Z:/picture/008/save_picture_769758.jpg" />
 </div>
 
 

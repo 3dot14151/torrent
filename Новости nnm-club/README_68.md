@@ -1,3 +1,107 @@
+###  Публикация: 1007805   (817311) от 17.04.2016
+
+Японский космический аппарат Akatsuki приступает к изучению Венеры
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_817311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предполагалось, что исследовательский космический аппарат Akatsuki, запущенный японским космическим агентством JAXA весной 2010 года, должен был добраться и выйти на орбиту вокруг Венеры в декабре 2010 года. Однако, из-за отказа двигателей этот аппарат в буквальном смысле промазал мимо своей цели и направился в космос, двигаясь по орбите вокруг Солнца. Момента, благоприятного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008105   (817305) от 17.04.2016
+
+Ученым впервые удалось восстановить подвижность конечностей парализованного человека при помощи имплантата
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_817305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Около четырех лет назад с американцем Ианом Берхартом (Ian Burkhart), которому нынче 24 года, во время подводного погружения произошел несчастный случай. Берхарт получил травму позвоночника, повлекшую повреждение спинного мозга, которое парализовало все его тело. Но благодаря работе группы исследователей из университета Огайо (Ohio State University), Иан Берхарт (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197203   (816883) от 06.01.2018
+
+Опубликованы подробности уязвимостей Meltdown и Spectre
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_816883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cтали доступны подробности об уязвимостях, получивших названия Meltdown (CVE-2017-5754) и Spectre (CVE-2017-5753, CVE-2017-5715).Как сообщают исследователи из команды Google Project Zero, Meltdown позволяет повысить привилегии на системе и из пространства пользователя прочитать содержимое любой области памяти, в том числе память ядра и чужой памяти в системах паравиртуализации (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197062   (816871) от 06.01.2018
+
+Davinci Resolve Studio 14.2.0.012 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_816871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если верить описанию разработчика, то программа DaVinci Resolve мощная система как отвечающая за цветокоррекцию так и за профессиональный нелинейный монтаж. Если вам нужно понятными инструментами выполнить монтаж, поиграть с цветовыми параметрами, выполнить обработку конечного продукта в едином интерфейсе, то вероятно данная разработка будет вам полезна. Опять, возвращаясь (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA9981F91D5B317B1B4D14B506173D68F52C00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197153   (816744) от 06.01.2018
 
 Буфера в космосе / Space Boobs in Space (2017) WEB-DLRip [MVO] [AD]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816744.jpg" />
+  <img src="Z:/picture/008/save_picture_816744.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ uTorrent 3.5.1 build 44332 Pro Portable by Коля3Д79 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816741.jpg" />
+  <img src="Z:/picture/008/save_picture_816741.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816739.jpg" />
+  <img src="Z:/picture/008/save_picture_816739.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816738.jpg" />
+  <img src="Z:/picture/008/save_picture_816738.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Windows 10 Enterprise LTSB x86 x64 Matros 01 2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816736.jpg" />
+  <img src="Z:/picture/008/save_picture_816736.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816713.jpg" />
+  <img src="Z:/picture/008/save_picture_816713.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Undertale (2015) [Ru] (1.0.3) Repack ARMENIAC
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816710.jpg" />
+  <img src="Z:/picture/008/save_picture_816710.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_816534.jpg" />
+  <img src="Z:/picture/005/save_picture_816534.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Skype 7.34.32.102 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816401.jpg" />
+  <img src="Z:/picture/008/save_picture_816401.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Autodesk AutoCAD 2018 x86-x64 RUS-ENG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816380.jpg" />
+  <img src="Z:/picture/008/save_picture_816380.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.06) Repack R.G. Catalyst [Ult
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816270.jpg" />
+  <img src="Z:/picture/008/save_picture_816270.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Pillars of Eternity (2015) [Ru/Multi] (1.0.2.0508/dlc) Repack R.G. Механи�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816268.jpg" />
+  <img src="Z:/picture/008/save_picture_816268.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815644.jpg" />
+  <img src="Z:/picture/008/save_picture_815644.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815643.jpg" />
+  <img src="Z:/picture/008/save_picture_815643.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ Parallels Desktop for Mac 9.0.24229 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815642.jpg" />
+  <img src="Z:/picture/008/save_picture_815642.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ BBC: Грета Тунберг. Год, чтобы изменить мир / Gre
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815551.jpg" />
+  <img src="Z:/picture/008/save_picture_815551.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Universal Media Creation Tool 20.10.2021 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815404.jpg" />
+  <img src="Z:/picture/008/save_picture_815404.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815229.jpg" />
+  <img src="Z:/picture/008/save_picture_815229.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814948.jpg" />
+  <img src="Z:/picture/008/save_picture_814948.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ Poweramp 2.0.9 Build 529 + Skins - Музыкальный плеер (05.2013) <
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814944.jpg" />
+  <img src="Z:/picture/008/save_picture_814944.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ Life is Strange: Before the Storm (2017) [Ru/Multi] (1.0/dlc) SteamRip R.G. Orig
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814866.jpg" />
+  <img src="Z:/picture/008/save_picture_814866.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814862.jpg" />
+  <img src="Z:/picture/008/save_picture_814862.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D05009997EC39A915417273B6C1E2DCFC1320774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197425   (814861) от 07.01.2018
-
-AAct Network v1.0.1 Portable by Ratiborus [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814861.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013, 2016. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. Программе (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25FAC81DCA7A65C321E48B54FB078DBAF385A265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197417   (814852) от 07.01.2018
-
-KMS Tools Portable 07.01.2018 by Ratiborus [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814852.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FF4FC928FC060CFE227B27A13D47276F93B810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194015   (814850) от 07.01.2018
-
-TNod User & Password Finder 1.6.4.0 Final + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814850.jpg" />
-</div>
-
-
-###  Подробнее
-
-TNOD User & Password Finder – это программа, которая при каждом запуске системы или по требованию пользователя, ныряет в интернет и ищет ключи для ESET NOD32 Smart Security и ESET NOD32 Antivirus всех версий 2.5.x, 2.7.x, 3.x, 4.x, 5.x, 6.x, 7.x, 8.x, 9.x, 10.x y 11.0; и автоматически вставляет их. Также в программе есть возможность сохранить найденные ключи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1FA405F1FA23216E6BF7E436E8AF24498F31C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008446   (814816) от 18.04.2016
-
-Проекты - VideoHive - The Journey of Memories - 3101820 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114A7E460A8D35CEF671E85A42F3ADCE8B3D0BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

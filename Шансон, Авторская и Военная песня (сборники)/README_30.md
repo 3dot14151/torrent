@@ -1,3 +1,108 @@
+###  Публикация: 477841   (98658) от 04.04.2012
+
+VA - Гуляночка блатного радио (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98658.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Александр Закшевский - Гуляем (3:29)
+2. Сергей Рыбачев - Ресторанчик (2:54)
+3. Лукьяновка - А мне бы все забыть (3:32)
+4. Палыч - Мадам (4:07)
+5. Светлана Калина и группа ЖАrА - Сигареточка (3:46)
+6. Маша Вакс - Жига (3:44)
+7. Владимир Утёсов - Сирень (3:18)
+8. Александр Дюмин - Пили Водочку (3:24)
+9. С. Михайлов - Родная (3:38)
+10. И.Круг - Милая зайка моя (3:13)2012Жанр: ШансонПродолжительность: 06:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29651C9206FBB1D8BE097806A725157DB6A26D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475994   (98212) от 31.03.2012
+
+VA - Водочку пьём! Баллады любимому напитку (2011) [MP3|320 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Валерий Курас - Давайте выпьем за здоровый образ жизни
+02. Михаил Круг - Водочку пьём
+03. Вика Цыганова - За мужчин
+04. Бутырка - Без баб и водки
+05. Слава Бобков - За всё хорошее
+06. Беломорканал - Питерский кабак
+07. Жека - Рюмка водки на столе
+08. Елена Ваенга - Наливай
+09. Константин Беляев - Выпьем за мировую
+10. Евгений Кемеровский - Ой, где был я вчера(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608900861502653C66BD9640AAF1ECB47783D763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474334   (97903) от 28.03.2012
+
+VA - Авторитетный Хит 11 (2012) [MP3|256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Дюмин - Журавли
+02. Кабриолет - А Душа Моя
+03. Г. Лепс И А. Розенбаум - Ша, Братва
+04. Кабриолет - А Мне Не Больно
+05. А. Дюмин - Цветы Увяли
+06. А. Маршал - Поплакала
+07. С. Трофимов - Не Ищи
+08. Жека - Моя Любовь
+09. Р. Рай - Отпускала В Небо
+10. С. Трофимов - Нет, Я Не Стал(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1ABBA223963F09B35DF02877770BD296D4138D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472468   (97698) от 25.03.2012
 
 VA - Гуляй братан! Песни шансона (2012) [MP3|256 кб/с]<Шансон>
@@ -6,7 +111,7 @@ VA - Гуляй братан! Песни шансона (2012) [MP3|256 кб/с]
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97698.jpg" />
 </div>
 
 
@@ -41,7 +146,7 @@ VA - Муз-треки Блатного радио Vol-2 (2012) [MP3|256 кб/с
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97652.jpg" />
 </div>
 
 
@@ -76,7 +181,7 @@ VA - Бездна Party (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97649.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ VA - Шоферской Хит 6 (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96078.jpg" />
 </div>
 
 
@@ -146,7 +251,7 @@ VA - Любовь Жива. Песни для души (2012) [MP3|256 кб/с]<
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89190.jpg" />
 </div>
 
 
@@ -181,7 +286,7 @@ VA - Топ 100-ка блатных песен (2012) [MP3|256 кб/с]<Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88342.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ VA - Реальный Блатняк (2012) [MP3|192-320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88189.jpg" />
 </div>
 
 
@@ -251,7 +356,7 @@ VA - Музыка для хорошей компании (2012) [MP3|256 кб/с
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87736.jpg" />
 </div>
 
 
@@ -286,7 +391,7 @@ VA - Шансон Года Часть 4 (2012) [MP3|256-320 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87337.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ VA - Шансон Десятилетия 3 CD(2012) [MP3|320 кб/с]<Шансо
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87322.jpg" />
 </div>
 
 
@@ -356,7 +461,7 @@ VA - Малина Красная №12 Весна (2012) [MP3|128 kbps]<Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86718.jpg" />
 </div>
 
 
@@ -391,7 +496,7 @@ VA - Шансон без тормозов 16 (2012) [MP3|256 кб/с]<Шансо
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86501.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ VA - Кто создал тебя такую. Часть 5 (2012) [MP3|256 кб/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86156.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ VA - Шоферские Истории (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85684.jpg" />
 </div>
 
 
@@ -496,7 +601,7 @@ VA - Эх, Разгуляй! Весна (2012) [MP3|128 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85528.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ VA - Стас Михайлов поздравляет (2012) [MP3|128 kbps]<Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85520.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ VA - Лучший Русский Шансон (2012) [MP3|256 кб/с]<Шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85494.jpg" />
 </div>
 
 
@@ -601,7 +706,7 @@ VA - XXXL Братва на воле (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84433.jpg" />
 </div>
 
 
@@ -636,7 +741,7 @@ VA - 100% Хиты Радио Шансон (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84249.jpg" />
 </div>
 
 
@@ -671,7 +776,7 @@ VA - Блатной Хит. Только лучшее (2012) [MP3|192 кб/с]<�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83827.jpg" />
 </div>
 
 
@@ -706,7 +811,7 @@ VA - Дорожный патруль. Музыка в дорогу (2012) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83322.jpg" />
 </div>
 
 
@@ -741,7 +846,7 @@ VA - Душевная музыка (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83035.jpg" />
 </div>
 
 
@@ -776,7 +881,7 @@ VA - Песни, Спетые Сердцем! (2012) [MP3|256 кб/с]<Шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82995.jpg" />
 </div>
 
 
@@ -796,93 +901,6 @@ VA - Песни, Спетые Сердцем! (2012) [MP3|256 кб/с]<Шанс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA248FD68C8224C2E9FF79B013ECEC81F89A902E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807088   (65222) от 19.07.2025
-
-Юрий Сучков - Коллекция (1994-2025) [MP3|~245 Kbps (V0)] <Chanson, Post-Punk, Monolog>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Коллекция: 1994 - 2025. Total Time: 31 CD, 28:63:07:
-16 Albums. Дата выпуска: 1994 - 2020. Total Time: 16 CD, 18:55:52:
-1994 Гитара(   Читать дальше...   )Жанр: Chanson, Post-Punk, MonologПродолжительность: 31CD, 28:63:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09A2DD0D39C0A20D4B34088011ACDAE67E7BD6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728811   (53791) от 10.06.2024
-
-Игорь Тальков - Коллекция (2022) [MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник лучших композиций поэта и композитора Игоря Талькова. Многим сейчас не хватает такой настоящей поэзии в музыке, ироничной, умной, смысловой и лиричной. Всюду завалено всё пустой безликой и в большинстве бездарной попсой. Созданной для самолюбования и отупения молодёжи. Все треки взяты с фирменных CD изданий, без ремастеринга и всяких вмешательств. Оригинальное (   Читать дальше...   )01. Солнце уходит на запад
-02. Друзья-товарищи
-03. Летний дождь
-04. Звезда(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 04:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510F91A01C7FCEB7C819DEA01BC5A70FADCF7837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759966   (36968) от 17.11.2024
-
-VA - Да здравствуют музы! (2009) [MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Олег Митяев-Дорожные жалобы [00:02:51]
-02 - Марина Есипенко, Вениамин Смехов-Из Евгения Онегина [00:00:50]
-03 - Вениамин Смехов-Простите верные дубравы [00:01:00]
-04 - Марина Есипенко-Паж, или пятнадцатый год [00:01:37](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DDFB0E622BA6DC860A6CD8FB1A1B5BD0A1F183
 ```
 
 https://mybot314.ru/tekegram_catalog/

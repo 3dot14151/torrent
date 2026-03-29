@@ -1,3 +1,57 @@
+###  Публикация: 1144341   (629156) от 21.06.2017
+
+Марьяна Сурикова | Пленница. В оковах магии (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже собственная магическая сила не в состоянии спасти, когда в игру вступают чувства, когда презрение к той, кто ниже по происхождению, вдруг оборачивается губительной одержимостью. Аристократ и плебейка, ректор с сильнейшим магическим даром и обыкновенная целительница, чья сила лишь в том, чтобы спасать жизни других людей. Говорят, любовь не купишь, но что, если (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC506FCEB810458AC2936000FD22F5FC99E39B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144392   (629150) от 21.06.2017
+
+Иэн Бэнкс | Эксцессия (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман из цикла «Культура».
+
+Идиранская война, длившаяся пятьдесят лет и унесшая сотни миллиардов жизней, завершилась несколько веков назад. Культура – содружество продвинутых цивилизаций и искусственных интеллектов, – являясь наиболее мощной силой во Вселенной, опекает более примитивные расы. В числе таких подопечных и обитатели газовых гигантов, известные как Хамы, (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастика, Социальная фантастикаПеревод: Кирилл ФальковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF96721FD86647C7F34EF3FA9BF5F543E055A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035444   (628306) от 16.07.2016
 
 Кира Измайлова | Драконьи истории [сборник] (2016) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628306.jpg" />
+  <img src="Z:/picture/008/save_picture_628306.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628136.jpg" />
+  <img src="Z:/picture/008/save_picture_628136.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628115.jpg" />
+  <img src="Z:/picture/008/save_picture_628115.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627974.jpg" />
+  <img src="Z:/picture/008/save_picture_627974.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627969.jpg" />
+  <img src="Z:/picture/008/save_picture_627969.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627856.jpg" />
+  <img src="Z:/picture/008/save_picture_627856.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627850.jpg" />
+  <img src="Z:/picture/008/save_picture_627850.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627571.jpg" />
+  <img src="Z:/picture/008/save_picture_627571.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627451.jpg" />
+  <img src="Z:/picture/008/save_picture_627451.jpg" />
 </div>
 
 
@@ -252,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627361.jpg" />
+  <img src="Z:/picture/008/save_picture_627361.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627145.jpg" />
+  <img src="Z:/picture/008/save_picture_627145.jpg" />
 </div>
 
 
@@ -307,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627097.jpg" />
+  <img src="Z:/picture/008/save_picture_627097.jpg" />
 </div>
 
 
@@ -333,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626374.jpg" />
+  <img src="Z:/picture/008/save_picture_626374.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626233.jpg" />
+  <img src="Z:/picture/008/save_picture_626233.jpg" />
 </div>
 
 
@@ -389,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626082.jpg" />
+  <img src="Z:/picture/008/save_picture_626082.jpg" />
 </div>
 
 
@@ -415,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625632.jpg" />
+  <img src="Z:/picture/008/save_picture_625632.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625631.jpg" />
+  <img src="Z:/picture/008/save_picture_625631.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625227.jpg" />
+  <img src="Z:/picture/008/save_picture_625227.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625109.jpg" />
+  <img src="Z:/picture/008/save_picture_625109.jpg" />
 </div>
 
 
@@ -524,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624573.jpg" />
+  <img src="Z:/picture/008/save_picture_624573.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624532.jpg" />
+  <img src="Z:/picture/008/save_picture_624532.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624515.jpg" />
+  <img src="Z:/picture/008/save_picture_624515.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624492.jpg" />
+  <img src="Z:/picture/008/save_picture_624492.jpg" />
 </div>
 
 
@@ -634,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624479.jpg" />
+  <img src="Z:/picture/008/save_picture_624479.jpg" />
 </div>
 
 
@@ -647,61 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B848A5E56541F563A030EBD181FBC3902DD85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035977   (624390) от 18.07.2016
-
-Андрей Амельянович | Зона навсегда. Гладиаторы поневоле (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из межавторского цикла «S.T.A.L.K.E.R.».
-
-В окрестностях Зоны Отчуждения бесследно исчезают люди. Дабы разобраться в ситуации, правительство посылает за Периметр своего лучшего бойца – лейтенанта Николая Гордеева. Но, выполнив задание, лейтенант попадает в аномалию и теряет память.
-(   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235F1EDBC1AD82EC84601F11641D8B8C82B121C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035951   (624386) от 18.07.2016
-
-Нил Гейман | Не паникуй! История создания книги «Автостопом по Галактике» (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия из пяти книг, известная под общим названием «Автостопом по Галактике», английского писателя-фантаста Дугласа Адамса давно приобрела статус «культовой». Мысль о создании путеводителя по Вселенной пришла автору в 18 лет, когда он сам путешествовал по Европе без гроша в кармане. Сначала идея воплотилась в сценарий радиопостановки, за которой последовали телевизионный (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастика, Юмористическая фантастика, Зарубежная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A88A9A1C43173A37D1BC4DCC8B6763178A3990
 ```
 
 https://mybot314.ru/tekegram_catalog/

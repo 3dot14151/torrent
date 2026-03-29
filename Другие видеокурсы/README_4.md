@@ -1,3 +1,32 @@
+###  Публикация: 1122702   (793310) от 06.04.2017
+
+top3travel | Путешествие в Камбоджу (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасные пляжи, 1000-летние храмы кхмерской империи, нетронутая природа.
+А самое главное – цены на отели, еду и транспорт на порядок ниже, чем в соседних странах
+Автор видеогида – Максим Шаинский – опытный путешественник, который объездил более 70 стран.
+Автор многих видеогидов, путеводителей и телепередач про путешествия.(   Читать дальше...   )Производство: top3travelЖанр: Путешествие, видеогидПродолжительность: 05:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB5FC1F0AF87EDE39BE047CB603705EC97A525F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122578   (793252) от 06.04.2017
 
 top3travel | Самостоятельное путешествие на Бали (2014) PCRec
@@ -6,7 +35,7 @@ top3travel | Самостоятельное путешествие на Бали
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793252.jpg" />
+  <img src="Z:/picture/008/save_picture_793252.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ top3travel | Самостоятельное путешествие в Таила
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793242.jpg" />
+  <img src="Z:/picture/008/save_picture_793242.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ top3travel | Самостоятельное путешествие на Шри-�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793185.jpg" />
+  <img src="Z:/picture/008/save_picture_793185.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ top3travel | Путешествие во Вьетнам (2015) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792417.jpg" />
+  <img src="Z:/picture/008/save_picture_792417.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Surgical Techniques in Ophthalmology | Хирургические техники
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790428.jpg" />
+  <img src="Z:/picture/008/save_picture_790428.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ top3travel | Самостоятельное путешествие в Рим (20
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786333.jpg" />
+  <img src="Z:/picture/008/save_picture_786333.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ top3travel | Самостоятельное путешествие в Барсе
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786327.jpg" />
+  <img src="Z:/picture/008/save_picture_786327.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ top3travel | Самостоятельное путешествие в Париж
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786318.jpg" />
+  <img src="Z:/picture/008/save_picture_786318.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ top3travel | Самостоятельное путешествие в Итали
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786282.jpg" />
+  <img src="Z:/picture/008/save_picture_786282.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ top3travel | Путешествие в Стамбул (2015) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786113.jpg" />
+  <img src="Z:/picture/008/save_picture_786113.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785585.jpg" />
+  <img src="Z:/picture/008/save_picture_785585.jpg" />
 </div>
 
 
@@ -317,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784790.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782184.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770955.jpg" />
+  <img src="Z:/picture/008/save_picture_770955.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770300.jpg" />
+  <img src="Z:/picture/008/save_picture_770300.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765289.jpg" />
+  <img src="Z:/picture/008/save_picture_765289.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_747280.jpg" />
+  <img src="Z:/picture/005/save_picture_747280.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745275.jpg" />
+  <img src="Z:/picture/008/save_picture_745275.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742552.jpg" />
+  <img src="Z:/picture/008/save_picture_742552.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730878.jpg" />
+  <img src="Z:/picture/008/save_picture_730878.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730732.jpg" />
+  <img src="Z:/picture/008/save_picture_730732.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728410.jpg" />
+  <img src="Z:/picture/008/save_picture_728410.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Skillbox, Борис Куприянов и др. | Как выбирать кн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728330.jpg" />
+  <img src="Z:/picture/008/save_picture_728330.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727292.jpg" />
+  <img src="Z:/picture/008/save_picture_727292.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726247.jpg" />
+  <img src="Z:/picture/008/save_picture_726247.jpg" />
 </div>
 
 
@@ -697,34 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC633991724D41151642E9E762D30CA9A37389B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 133101   (722432) от 25.02.2019
-
-Шикин А.С., Кyпов В.В. и др. | БОЕВАЯ СТРЕЛЬБА ИЗ ПИСТОЛЕТА. Фильм 3 [2006] DVDRip
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722432.jpg" />
-</div>
-
-
-###  Подробнее
-
-В третий видефильм цикла "БОЕВАЯ СТРЕЛЬБА ИЗ ПИСТОЛЕТА" вошли следующие части:
-ЧАСТЬ 5 - "...Обоснования, требования к изготовке для стрельбы с колена. Варианты для изготовок на среднем уровне. Действия на атаку по фронту, с флангов, с тыла. Первичная "ЗМЕЙКА" на среднем уровне."
-ЧАСТЬ 6 - "...Пейнтбольные тренировки.Методика учебной (   Читать дальше...   )Жанр: боевые искусстваПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0447F12233E23E00B3D569944A8F00060D41EC29
 ```
 
 https://mybot314.ru/tekegram_catalog/

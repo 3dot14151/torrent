@@ -1,3 +1,107 @@
+###  Публикация: 1002600   (846208) от 01.04.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) Blu-ray [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный  (iTunes)Язык субтитров: Русский, английскийПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250EF3F26EC0C23F955BC3EF02717CB35E5244C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002606   (846198) от 01.04.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный  (iTunes)Язык субтитров: Русский (forced на титры и речь пришельцев, iTunes, notabenoid),, английскийПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44B1E35F32576F4399769ECF9AE5568C5D3F921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994880   (846193) от 01.04.2016
+
+Resident Evil / Biohazard HD Remaster (2015) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти. Боеприпасов (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9293BD0A5FDE2FD4E6A5AB46F2485E70BB7F0C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999532   (846191) от 01.04.2016
+
+Полицейский с Рублёвки (2016) DVB [H.264] (серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846191.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Полицейский с Рублёвки» — это история о Грише Измайлове, полицейском, который призван охранять покой и порядок в самом элитном районе России, где живут невероятно богатые люди. Ему приходится расследовать дела, в которые впутываются жители Рублевки, и делает он это нередко превышая свои полномочия. Грише около 30 лет, он красив, одинок, богат, циничен, азартен и (   Читать дальше...   )Производство: Россия / "АВ Контент" по заказу  тнтЖанр: драма, комедияРежиссер: Илья КуликовАктеры: Александр Петров, Александра Бортич, Сергей Бурунов, Татьяна Бабенкова, Софья Каштанова, Роман Попов, Ростислав Гулбис, Анастасия Стежко, Лилия Лаврова, Виктория Тарасова, Анна Котова, Сергей Калашников, Сергей Штатнов, Владимир РузановПродолжительность: ~ 00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B683FCDF09770AF5AAC0C0FCA246001ECCB2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002843   (846188) от 01.04.2016
 
 Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846188.jpg" />
+  <img src="Z:/picture/008/save_picture_846188.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Mozilla Firefox 52.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846149.jpg" />
+  <img src="Z:/picture/008/save_picture_846149.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_846129.jpg" />
+  <img src="Z:/picture/005/save_picture_846129.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ V Центурия. В поисках зачарованных сокровищ 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846106.jpg" />
+  <img src="Z:/picture/008/save_picture_846106.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_846019.jpg" />
+  <img src="Z:/picture/005/save_picture_846019.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Pink Floyd - Meddle (2016) 1971 [DTS 5.1 CD-DA|44.1/16|image+cue|BD-Audio] <Prog
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846013.jpg" />
+  <img src="Z:/picture/008/save_picture_846013.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.004) License FAIRLIGHT
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845597.jpg" />
+  <img src="Z:/picture/008/save_picture_845597.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845595.jpg" />
+  <img src="Z:/picture/008/save_picture_845595.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845124.jpg" />
+  <img src="Z:/picture/008/save_picture_845124.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845089.jpg" />
+  <img src="Z:/picture/008/save_picture_845089.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844892.jpg" />
+  <img src="Z:/picture/008/save_picture_844892.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844570.jpg" />
+  <img src="Z:/picture/008/save_picture_844570.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844351.jpg" />
+  <img src="Z:/picture/008/save_picture_844351.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ DAEMON Tools Ultra 4.1.0.0489 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844350.jpg" />
+  <img src="Z:/picture/008/save_picture_844350.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ CrossOver Linux 15.1.0 [x86-x64] (deb, rpm, bin)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844348.jpg" />
+  <img src="Z:/picture/008/save_picture_844348.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844337.jpg" />
+  <img src="Z:/picture/008/save_picture_844337.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Windows 10 PE (x64) v.4.5.1 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844336.jpg" />
+  <img src="Z:/picture/008/save_picture_844336.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844258.jpg" />
+  <img src="Z:/picture/008/save_picture_844258.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844212.jpg" />
+  <img src="Z:/picture/008/save_picture_844212.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_844130.jpg" />
+  <img src="Z:/picture/005/save_picture_844130.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ CyberLink PowerDVD Ultra 2020 v20.0.1519.62 repack activated by Anonymous [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844008.jpg" />
+  <img src="Z:/picture/008/save_picture_844008.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843996.jpg" />
+  <img src="Z:/picture/008/save_picture_843996.jpg" />
 </div>
 
 
@@ -572,114 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F3E5D23C54CB8833E9DED80DAC4D08C02D3631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377847   (843993) от 26.04.2020
-
-foxminded | Java Start (2020) PCRec [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы решили сделать свой собственный курс, в котором ограничиться только тем, что абсолютно необходимо. Сделать стартовую ступеньку для наших будущих студентов максимально простой и понятной.Жанр: Программирование, JavaПродолжительность: 04:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88AE5B5C258EB40F38C5D72C472B958C0452AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308530   (843769) от 14.03.2011
-
-BitDefender Internet Security 2011 14.0.23.312 х86 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_843769.jpg" />
-</div>
-
-
-###  Подробнее
-
-BitDefender Internet Security - решает все задачи по обеспечению безопасности при работе в интернете. Он обеспечивает защиту от вирусов, шпионов, спама, попыток фишинга, вторжений и вредоносного веб-контента.
-Антивирус. Гарантирует обнаружение и удаление всех вирусов, находящихся в обращении. Использует мощные сканирующие механизмы, сертифицированные ICSA, Virus Bulletin, Checkmark, CheckVir и TUV.
-Брандмауэр. Фильтрует сетевой трафик и контролирует время доступа пользователей в интернет и разрешения на запуск приложений. Режим Стелс позволяет «скрыть» ваш компьютер от вредоносного программного обеспечения и хакеров.
-Антишпион. Отслеживает и предупреждает потенциальную возможность проникновения шпионских объектов в режиме реального времени до того, как они нанесут вред вашей системе. Используя обширную базу известных сигнатур шпионских объектов, ваш компьютер останется защищенным от шпионов.
-Родительский контроль. Модуль Родительского контроля BitDefender блокирует доступ к веб-сайтам, которые вы расцениваете (   Читать дальше...)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846989   (843371) от 14.03.2015
-
-Звёздные войны: Повстанцы / Star Wars: Rebels (2014-2015) WEB-DLRip [1080p] (Сезон 1, серий 14 из 14) (LostFilm)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миновало 14 лет с того момента, как канцлер Палпатин отдал "Приказ 66", спровоцировавший Великое истребление джедаев. Кейнан Джаррус, один из последних адептов светлой стороны Силы, вынужден объединить усилия с молодым воришкой, опытным головорезом, экспертом по взрывчатке, ворчливым дроидом и пилотом космического корабля «Призрак» в борьбе против Империи. (   Читать дальше...   )Производство: США, Lucasfilm Ltd, DisneyXDЖанр: Фантастика, мультсериал, приключенияРежиссер: Стюарт Ли, Дэйв Филони, Стивен Дж. ЛиПерсонажи: Фредди Принц-младший (Кейнан Джаррус), Тейлор Грэй (Эзра Бриджер), Стивен Блум (Зеб Ореллиос), Тия Сиркар (Сабина Рен), Ванесса Маршалл (Гера Синдулла), Дэвид Ойелово (агент Каллус), Джейсон Айзекс (Инквизитор)Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: студия "LostFilm"Продолжительность: каждая ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB57EB8B71681A1BEA82E8F4DBD3DD58F91FFF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003392   (843127) от 03.04.2016
-
-Марсоход Opportunity взял самый крутой подъем за всю историю исследований Марса
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_843127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсианский ветеран, небезызвестный марсоход Opportunity, двигаясь к цели очередных научных исследований, совершил подъем на самый крутой склон, который когда-либо был "взят" любым марсианским исследовательским аппаратом за всю историю. К сожалению, марсоходу так и не удалось добраться до намеченной цели и сейчас этот аппарат уже направляется к следующей (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

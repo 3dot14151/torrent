@@ -1,3 +1,119 @@
+###  Публикация: 1604561   (1045323) от 14.01.2023
+
+VA - Planeta Mix Hits 2023: Winter Edition (2023) CD, Compilation [MP3|320 Kbps] <Electro, Club, Progressive, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Be My Lover
+02. FLGTT - Carnaval de Paris
+03. Rene Rodrigezz - Feel Good
+04. Deep Emotion - I Know You Want It(   Читать дальше...   )Жанр: Electro, Club, Progressive, Future HouseПродолжительность: 01:22:17 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD40834629B8EA948F8C7A7D75EBAF8427FF2CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606157   (1044450) от 22.01.2023
+
+VA - Armada Chill - Winter 2023 [MP3|320 Kbps] <Progressive House, Organic House, Melodic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autograf & Blonde Maze - Revolves Around You (Extended Mix) (4:47)
+02. Ben Hemsley - Erase Me (Creamfields Sunset Mix) (4:42)
+03. Pablo Nouvelle - Vulnerability (Original Mix) (3:45)
+04. Lufthaus & Robbie Williams - Soul Seekers (Club Mix) (6:06)(   Читать дальше...   )Жанр: Progressive House, Organic House, Melodic HouseПродолжительность: 03:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEEAD838877FC353AB42037641D93AF52BEDD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606283   (1044164) от 25.01.2023
+
+VA - Black Hole House Music 01-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Atkinson, Gary Go - If I Spoke Your Language (Grum Extended Remix) [06:15]
+02. Michael Feiner - Follow (Club Mix) [03:39]
+03. Siskin - Always You (Extended Mix) [08:48]
+04. Betweenus & VJS - Floating (Extended Mix) [05:13](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1927FCA016E35ED9C8FA6C2E425A115CC2AC19E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608518   (1043629) от 30.01.2023
+
+VA - Kontor Top Of The Clubs 2023.01 (2023) [MP3|320 Kbps] <House, Club, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. southstar - Miss You (Extended Mix) [5:08]
+02. Jérome x Hedara - Blow Ur Mind (Extended Mix) [3:53]
+03. Felix Jaehn & Ray Dalton - Call It Love (Extended Mix) [3:34]
+04. DJane HouseKat & Blümchen x KYANU - Luv With U (Original Mix) [2:34](   Читать дальше...   )Жанр: House, Club, Progressive, DanceПродолжительность: 07:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4A6D528CE8C00F74F83704F1E400AEC27C248B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610063   (1042669) от 06.02.2023
 
 VA - Move Ibiza Radio Annual: Progressive House (2023) [MP3|320 Kbps] <House, Progressive House>
@@ -6,7 +122,7 @@ VA - Move Ibiza Radio Annual: Progressive House (2023) [MP3|320 Kbps] <House, Pr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042669.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Motivation Training Music 2021 Explicit [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042270.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Winter 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042193.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Running Music 2021 Explicit [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041707.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Pogo House Classics Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Soulful,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041677.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Hit Factory Vol. 1 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041652.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Milk & Sugar Winter Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041420.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Ultra Jogging Platinum Hits 2021 Fitness Session [MP3|320 Kbps] <House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040111.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039286.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038374.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - DanceClub Beats Compilation (2023) CD, Compilation [MP3|320 Kbps] <Groove, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037579.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Armada Music - Miami 2023 [MP3|320 Kbps] <Progressive House, Melodic House 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037273.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036987.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036896.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Deep House On The Beach (2023) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036716.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Miami House Week 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036443.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Ballaton Nightlife (2023) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035854.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Alternative EDM Party 2023 (2023) [MP3|320 Kbps] <Dance, Electronic, Club, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035610.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - By the Way...Sounds Good, Size Two (2023) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035583.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Deep House Summer Hits (2023) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035570.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Summer Melody: Best Of 2020 (Mixed Version With Full Compilation DJ Mix) (2
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035455.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Training Motivation 2021 [MP3|320 Kbps] <House, Dance, Pop>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033979.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Training Motivation 2021 [MP3|320 Kbps] <House, Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC70022736C209697F510D082335DCA32E5DA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619104   (1033399) от 14.03.2023
-
-VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Noise - Devil's Army (Radio Edit) (3:35)
-02. Markii - Shatter (Radio Edit) (3:45)
-03. Max Stellar - The Prophecy (Radio Edit) (3:13)
-04. Moonrider - Resurrection (Radio Edit) (3:39)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBD8EA2FDD75FE248C7D7F0886384E467C6820A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619372   (1032964) от 16.03.2023
-
-VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicagoboy - Come and Get It (4:37)
-02. Mr Brackets - Spate (5:33)
-03. Roxy Dawn - Who'll Stop the Rain (Midnight Rework) (4:51)
-04. Plastic Thomas Orchestra - Hungabunga List Nr. 2 (Pto Remix) (3:18)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D7433D6B6EB8443DC04073891175E3CFF33E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619269   (1032960) от 16.03.2023
-
-VA - House Clubhits Megamix 2023 (2023) [MP3|320 Kbps] <Dance, Club, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaun Baker - Do It All Night [02:29]
-02. FSDW - Tell Me Now [03:04]
-03. Diseptix - Move Bounce [02:34]
-04. Kid Massive - Around Me [03:03](   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 02:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97E0302B165E6A8406C5B8B31D4963AD6099FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621444   (1030955) от 25.03.2023
-
-VA - 50 DJ Tracks 2023 Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicco & Music For Humans - Love Locks (Original Mix) [2:58]
-02. Andrew Spencer - Love Me (ANSP Extended Mix) [3:50]
-03. Alex Megane - Friday I'm In Love (Extended Mix) [3:14]
-04. Brooklyn Bounce - Bass, Beats & Melody (Giovi Extended Remix) [4:10](   Читать дальше...   )Жанр: House, Dance, Club, ElectronicПродолжительность: 03:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C094F88E1E85C734773F94E703F34B90485E7E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

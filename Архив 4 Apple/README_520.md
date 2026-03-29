@@ -1,3 +1,110 @@
+###  Публикация: 1639265   (237278) от 12.06.2023
+
+System Dashboard Pro 1.4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237278.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Dashboard Pro — это современная интерпретация системной панели, предлагающая больше информации, чем когда-либо. Приложение было полностью переработано и оптимизировано для новейших операционных систем.Тип издания: macOS SoftwareРелиз состоялся: 11.06.2023Разработчик: © 2023 Sascha SimonПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A5C07F66596A827A63F930EB0A4893A99E6152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360359   (237271) от 15.02.2020
+
+ExpanDrive 7 v7.4.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
+
+Эта программа позволяет монтировать удалённые хранилища информации (FTP, WebDAV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2020Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD1504C4A6D4785F8A803C837EB1084CA128D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452190   (237266) от 05.03.2021
+
+OmniOutliner Pro 5 v5.8.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237266.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniOutliner - удобное и чрезвычайно доступное средство создания схем. Оно идеально подходит для людей, которым требуется комфортная среда для создания структурированных текстов, отличный уровень поддержки и регулярность обновлений. В версии Essentials имеются привлекательные темы оформления, режимы печатной машинки и концентрации, функция статистики документа и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2021Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B007E2941887CB382ED31D16F1CE0370A0AFC474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503002   (237258) от 16.10.2021
+
+Xliff Editor 2.9.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
+Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2021Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6480E57695BFDD7BC5F65D8AA471CFB32C4200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502799   (237252) от 16.10.2021
 
 Nevercenter CameraBag Pro 2021.2.1 [En]
@@ -6,7 +113,7 @@ Nevercenter CameraBag Pro 2021.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237252.jpg" />
+  <img src="Z:/picture/005/save_picture_237252.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Script Debugger 8 v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237245.jpg" />
+  <img src="Z:/picture/005/save_picture_237245.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Permute 3 v3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237243.jpg" />
+  <img src="Z:/picture/005/save_picture_237243.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237232.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ Sketch 96.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237220.jpg" />
+  <img src="Z:/picture/005/save_picture_237220.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Principle 6.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237213.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ BetterDisplay Pro for Mac 1.4.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237202.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ PopChar X 8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237195.jpg" />
+  <img src="Z:/picture/005/save_picture_237195.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ Vidmore Video Converter 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237162.jpg" />
+  <img src="Z:/picture/005/save_picture_237162.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ ArchCommander 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237158.jpg" />
+  <img src="Z:/picture/005/save_picture_237158.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ Exhibeo 2 v.2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237140.jpg" />
+  <img src="Z:/picture/005/save_picture_237140.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ System Dashboard 4.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237132.jpg" />
+  <img src="Z:/picture/005/save_picture_237132.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ beaTunes 5 v.5.2.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237088.jpg" />
+  <img src="Z:/picture/005/save_picture_237088.jpg" />
 </div>
 
 
@@ -351,7 +458,7 @@ TG Pro (Temperature Gauge Pro) 2.82[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237087.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ PCalc 4.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237086.jpg" />
+  <img src="Z:/picture/005/save_picture_237086.jpg" />
 </div>
 
 
@@ -405,7 +512,7 @@ Downie 4 v4.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237081.jpg" />
+  <img src="Z:/picture/005/save_picture_237081.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ Aiseesoft Mac Data Recovery  1.6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237070.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ Amadeus Pro 2.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237065.jpg" />
+  <img src="Z:/picture/005/save_picture_237065.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ Native Instruments Traktor Pro Plus 3.9.0.90 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237057.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ Acorn 7 v.7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237053.jpg" />
+  <img src="Z:/picture/005/save_picture_237053.jpg" />
 </div>
 
 
@@ -539,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237044.jpg" />
+  <img src="Z:/picture/005/save_picture_237044.jpg" />
 </div>
 
 
@@ -565,7 +672,7 @@ Smultron 12 v12.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237034.jpg" />
+  <img src="Z:/picture/005/save_picture_237034.jpg" />
 </div>
 
 
@@ -577,112 +684,6 @@ Smultron - простой и удобный редактор. Smultron - про�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6991400BD1159FC6994079A791C4A207824E8F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608029   (237029) от 28.01.2023
-
-Bigasoft Video Downloader Pro for Mac 3.25.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bigasoft Video Downloader Pro - это популярный одношаговый онлайн-загрузчик и конвертер видео, который помогает быстро загружать и конвертировать видеофайлы для воспроизведения на персональном компьютере, портативном устройстве, мобильном телефоне, mp4-плеере, Apple телевидении и т. д. Мощный инструмент Video Downloader может сохранять онлайн-видео в формате HD, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.012023Разработчик: © 2022 Bigasoft CorporationПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BC4E52EB8A836E028F95336AF98FDE390CC739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607924   (237020) от 28.01.2023
-
-CADintosh X 8.8.3 Beta [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237020.jpg" />
-</div>
-
-
-###  Подробнее
-
-CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2023Разработчик: © 2002-2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7425B26973C0637C51CE102482018D65227ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452613   (237009) от 07.03.2021
-
-Display Maid 3.3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Maid позволяет сохранять и восстанавливать расположение окон в зависимости от конфигурации дисплея. Если у вас есть ноутбук, который вы используете с одним или несколькими внешними дисплеями, и вам надоело переставлять окна каждый раз при подключении / отключении дисплея, тогда Display Maid для вас.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2021Разработчик: Funk-iSoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56958A0E993CA529D7834B01517D589414C4433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608005   (236999) от 28.01.2023
-
-Bigasoft Audio Converter for Mac 5.7.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bigasoft Audio Converter для Mac, все-в-одном аудио преобразователь для Мас, предоставляет легкий путь для преобразования всех популярных аудиоформатов, включая WMA, MP3, APE, M4A, AAC, AC3, WAV, OGG, AUD, AIFF, CAF, FLAC, и другие дляMac OS X Lion, Snow Leopard, Tiger, и Leopard.
-Извлечение аудиодорожек из видеофайлов разных форматов.
-Например, MP4, MOV, AVI, MPEG, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2023Разработчик: © 2021 Bigasoft CorporationПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20470B8B0719622DC45630B5AB63672C969863EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

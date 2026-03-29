@@ -1,3 +1,57 @@
+###  Публикация: 1390743   (782233) от 17.06.2020
+
+Microsoft Windows 10.0.18362.900 Version 1903 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.900.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37331C9BC5A9BB72ED2FCCC01288125D1B8141F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390745   (782227) от 17.06.2020
+
+Microsoft Windows 10.0.18363.900 Version 1909 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.900.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5A8C4D70FE503D1E8BBA49E159A13C9CBFBDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390744   (782223) от 17.06.2020
 
 Microsoft Windows 10.0.18362.900 Version 1903 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -6,7 +60,7 @@ Microsoft Windows 10.0.18362.900 Version 1903 (June 2020 Update) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782223.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Windows Server, Version 2004 (10.0.19041.329) (June 2020 Update) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782205.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Microsoft Windows 10.0.18363.900 Version 1909 (June 2020 Update) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782204.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Microsoft Windows 10.0.19041.329 Version 2004 (June 2020 Update) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782194.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.1884 (Updated Fe
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780003.jpg" />
+  <img src="Z:/picture/008/save_picture_780003.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Microsoft Windows 10.0.17763.253 Version 1809 (January 2019 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775486.jpg" />
+  <img src="Z:/picture/008/save_picture_775486.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Recovery HDD/USB-flash for Acer Aspire V3-772G / Windows 8.1 х64 [Fr]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773866.jpg" />
+  <img src="Z:/picture/008/save_picture_773866.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Microsoft Windows 10 Multiple Editions 10.0.15063.0 Version 1703 (Updated March 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772725.jpg" />
+  <img src="Z:/picture/008/save_picture_772725.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Microsoft Windows 10 Home Single Language 10.0.16299.125 Version 1709 (December 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767963.jpg" />
+  <img src="Z:/picture/008/save_picture_767963.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ Windows Home Server 2011 [MSDN] [Ru]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760987.jpg" />
+  <img src="Z:/picture/008/save_picture_760987.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755561.jpg" />
+  <img src="Z:/picture/005/save_picture_755561.jpg" />
 </div>
 
 
@@ -307,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751627.jpg" />
+  <img src="Z:/picture/008/save_picture_751627.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ Microsoft Windows 10 Education 10.0.10586 Version 1511 (Updated Apr 2016) - Ор
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747578.jpg" />
+  <img src="Z:/picture/008/save_picture_747578.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ Microsoft Windows 10 Multiple Editions 10.0.10586 Version 1511 (Updated Apr 2016
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747574.jpg" />
+  <img src="Z:/picture/008/save_picture_747574.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ Microsoft Windows 10 Enterprise 10.0.10586 Version 1511 (Updated Apr 2016) - О�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747572.jpg" />
+  <img src="Z:/picture/008/save_picture_747572.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ Microsoft Windows 10 (Education / Pro) 10.0.10586 Version 1511 (Updated Apr 2016
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741486.jpg" />
+  <img src="Z:/picture/008/save_picture_741486.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ Microsoft Windows 10 10.0.10586 Version 1511 (Updated Apr 2016) - Оригина
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741482.jpg" />
+  <img src="Z:/picture/008/save_picture_741482.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ Microsoft Windows 10.0.18362.959 Version 1903 (Updated July 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737522.jpg" />
+  <img src="Z:/picture/008/save_picture_737522.jpg" />
 </div>
 
 
@@ -493,7 +547,7 @@ Microsoft Windows 10.0.17763.1339 Version 1809 (Updated July 2020) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737514.jpg" />
+  <img src="Z:/picture/008/save_picture_737514.jpg" />
 </div>
 
 
@@ -520,7 +574,7 @@ Microsoft Windows 10.0.18363.959 Version 1909 (Updated July 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737479.jpg" />
+  <img src="Z:/picture/008/save_picture_737479.jpg" />
 </div>
 
 
@@ -547,7 +601,7 @@ Microsoft Windows 10.0.18362.959 Version 1903 (Updated July 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737470.jpg" />
+  <img src="Z:/picture/008/save_picture_737470.jpg" />
 </div>
 
 
@@ -574,7 +628,7 @@ Microsoft Windows 10.0.17763.1339 Version 1809 (Updated July 2020) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737468.jpg" />
+  <img src="Z:/picture/008/save_picture_737468.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ Windows Server, Version 2004 (10.0.19041.388) (Updated July 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737432.jpg" />
+  <img src="Z:/picture/008/save_picture_737432.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ Microsoft Windows 10.0.19041.388 Version 2004 (Updated July 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736951.jpg" />
+  <img src="Z:/picture/008/save_picture_736951.jpg" />
 </div>
 
 
@@ -639,59 +693,6 @@ Microsoft Windows 10.0.19041.388 Version 2004 (Updated July 2020) - Оригин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0FF266F6C587F5E74BAFF3229FA932192380C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283690   (730721) от 19.02.2019
-
-Раздел восстановления (Recovery) для ноутбука HP Pavilion tx2550er (Vista HP x86 SP1) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ снимался программой Acronis True Image 2015. Предназначен для восстановления заводского состояния ноутбука HP Pavilion tx2550er. Содержит раздел восстановления с ОС Vista HP x86 SP1Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1631A0F79A571FCE761557AA12090E7B3FF1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284246   (728386) от 21.02.2019
-
-Microsoft Windows 10.0.17763.316 Version 1809 ( February 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.316 (Updated February 2019).
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084A363BF05BB903F598A2AD022C43300FA8E647
 ```
 
 https://mybot314.ru/tekegram_catalog/

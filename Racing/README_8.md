@@ -6,7 +6,7 @@ New York Race / Погоня за 5 элементом [Ru] (L) 2001
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461886.jpg" />
+  <img src="Z:/picture/008/save_picture_461886.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ F1 2012 [Ru] (L) 2012 | FairLight
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459264.jpg" />
+  <img src="Z:/picture/008/save_picture_459264.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Super Street: The Game (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458686.jpg" />
+  <img src="Z:/picture/008/save_picture_458686.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.32.3s/dlc) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445957.jpg" />
+  <img src="Z:/picture/008/save_picture_445957.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Carmageddon: Reincarnation (2015) [Ru/Multi] (1.2.0.7673) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443668.jpg" />
+  <img src="Z:/picture/008/save_picture_443668.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mantis Burn Racing (2016) [En] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441200.jpg" />
+  <img src="Z:/picture/008/save_picture_441200.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Need for Speed: Most Wanted / Modify [En/Ru] (Repack/Mod) 2005/2010 | SSAD
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440606.jpg" />
+  <img src="Z:/picture/005/save_picture_440606.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Crash Time 5: Undercover [En/Ge] (L) 2012 | RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_432808.jpg" />
+  <img src="Z:/picture/005/save_picture_432808.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ F1 2017 (2017) [Ru/Multi] (1.6/dlc) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432117.jpg" />
+  <img src="Z:/picture/008/save_picture_432117.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429215.jpg" />
+  <img src="Z:/picture/008/save_picture_429215.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Automobilista (2016) [Multi] (1.5.24/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429015.jpg" />
+  <img src="Z:/picture/008/save_picture_429015.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dakar 18 (2018) [Multi] (1.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428061.jpg" />
+  <img src="Z:/picture/008/save_picture_428061.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BAJA: Edge of Control HD (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427736.jpg" />
+  <img src="Z:/picture/008/save_picture_427736.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Distance (2018) [En] (1.4) License HI2U
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425086.jpg" />
+  <img src="Z:/picture/008/save_picture_425086.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Need for Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423251.jpg" />
+  <img src="Z:/picture/008/save_picture_423251.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Moto Racer (1997) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421099.jpg" />
+  <img src="Z:/picture/008/save_picture_421099.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ MegaRace 3 (2001) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421098.jpg" />
+  <img src="Z:/picture/008/save_picture_421098.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Formula1 2012 / F1 2012 [Ru] (RePack/1.1) 2012 | Audioslave
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420795.jpg" />
+  <img src="Z:/picture/008/save_picture_420795.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Moto Racer 2 (1998) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419071.jpg" />
+  <img src="Z:/picture/008/save_picture_419071.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.4/dlc) Repack R.G. Catal
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417269.jpg" />
+  <img src="Z:/picture/008/save_picture_417269.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Need for Speed: The Run (2011) [Ru] (1.1.0.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416302.jpg" />
+  <img src="Z:/picture/008/save_picture_416302.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408333.jpg" />
+  <img src="Z:/picture/008/save_picture_408333.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Road Redemption (2017) [Ru/Multi] (20181003/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407572.jpg" />
+  <img src="Z:/picture/008/save_picture_407572.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ WRC 3 FIA World Rally Championship [En] (RePack) 2012 l YelloSOFT
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405692.jpg" />
+  <img src="Z:/picture/008/save_picture_405692.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404718.jpg" />
+  <img src="Z:/picture/008/save_picture_404718.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404532.jpg" />
+  <img src="Z:/picture/008/save_picture_404532.jpg" />
 </div>
 
 

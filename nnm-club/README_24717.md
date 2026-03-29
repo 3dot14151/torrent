@@ -1,22 +1,22 @@
-###  Публикация: 1792746   (67646) от 20.04.2025
+###  Публикация: 1786327   (69023) от 20.03.2025
 
-Журнал | Тайны ХХ века №16 (1162) (апрель 2025) [PDF]
+Журнал | Небосвод №5 (май 2025) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+Журнал "Небосвод" расскажет вам новости из мира астрономии. В журнале вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будете в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: НебосводФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C942A06CFD4ACB352E46DFC8DCB246A8262F4817
+magnet:?xt=urn:btih:1BB532919AB760C5D222C451F2FA39CE32E7ADDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792549   (67645) от 20.04.2025
+###  Публикация: 1786043   (69022) от 20.03.2025
 
-JoJo no Kimyou na Bouken Part 5: Ougon no Kaze | Невероятные Приключения ДжоДжо Часть 5: Золотой ветер (1995) [17 томов, 155 глав] [Манга] [Русский] [PNG] [Complete]
+Grateful Dead - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <Rock>
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Место действия переносится в Италию. Джорно Джованна - паренёк, пробивающийся на место крёстного отца главной итальянской мафии. А в мафии почему-то опять все главные люди со способностями, а у некоторых даже волшебные стрелы имеются...Жанр: боевик, мистика, сёнэн, сверхъестественноеФормат: PNGПродолжительность: 28 ноября 1995 - 23 марта 1999
+01 - Don't Ease Me In (Live) [00:03:38]
+02 - Sugar Magnolia (Live) [00:04:50]
+03 - Brokedown Palace (Live) [00:05:43]
+04 - Bertha (Live) [00:05:51](   Читать дальше...   )Жанр: RockПродолжительность: 02:15:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAC9890498768800BC4FD31F97244C19B077EA57
+magnet:?xt=urn:btih:01076B990961A075963A2D1B9B7AD477B382CB01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792706   (67644) от 20.04.2025
+###  Публикация: 1786416   (69021) от 20.03.2025
 
-Формула 1. Сезон 2025. Этап 5. Гран-при Саудовской Аравии. Квалификация (19.04.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+Шрифты - Denis Serebryakov - MyFonts - Appetite Pro Rounded [OTF]
 
->>Спорт и активный отдых
->>Формула 1
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 апреля 2025, суббота 20:00 МСК. Этап 5, Джидда. Гран-при Саудовской Аравии. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:25:56
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBCA9C56048B4A561B6D0EE5385C21D0EBB01905
+magnet:?xt=urn:btih:6314A366BD673C38F9BB8132A3689118DC5C02B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +80,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792545   (67643) от 20.04.2025
+###  Публикация: 1786308   (69020) от 20.03.2025
 
-Gwihwanja-ui Mabeop-eun Teukbyeol-haeya Hamnida | Магия Вернувшегося должна быть особенной (2018) [5 сезонов, 268 глав + Эпилог] [Манга] [Русский] [JPG] [Complete]
+Шрифты - Denis Serebryakov - Behance - Taler - 127688031 [OTF]
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Теневой Лабиринт — самая страшная катастрофа, с которой когда-либо сталкивалось человечество. Дезир Арман – один из шести выживших людей. Попытка очистить последний уровень лабиринта провалилась, и теперь мир близится к своему концу. Однако, когда Дезир готовится встретить свою кончину, то, что открывается перед ним — это... мир, что был 13 лет назад?! Дезир возвращается (   Читать дальше...   )Жанр: боевик, романтика, фэнтези, школа, сёнэн, драма, комедияФормат: JPGПродолжительность: 19 мая 2018 - 22 июня 2024
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB6A2C81665B6FB6FD8C9D736E9F5FF3C9731137
+magnet:?xt=urn:btih:0DF8BE3C675BB878406349EE68C3143839A391C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,28 +107,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792808   (67642) от 20.04.2025
+###  Публикация: 1786299   (69019) от 20.03.2025
 
-VA - Chill Out Tempel (Ambient Chill Out Tunes), Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Ambient>
+Шрифты - Denis Serebryakov - MyFonts - Displace 2.0 [TTF, WOFF, WOFF2, EOT]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Manuel Garcia - Outro (03:52)
- 02.  Living Room - Aether (Pearldiver's Ambient Dub) (03:38)
- 03.  Ve-Room - Deep Nature (Bajon 'No Beat' Version) (04:34)
- 04.  Bahramji & Beach Messiah - Back to the Source (07:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, AmbientПродолжительность: 02:18:30
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: TTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4D3278937FE72BDCA456AFAA54F6337DEA7F006
+magnet:?xt=urn:btih:B83B3B9019484857D19DF357977885C1CB0FE7B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,82 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792637   (67641) от 20.04.2025
+###  Публикация: 1785988   (69018) от 20.03.2025
 
-Лион Фейхтвангер | Москва 1937 (2021) [MP3, Александр Харитонов]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание знаменитой книги Лиона Фейхтвангера «Москва 1937», в которой писатель рассказывает о своих впечатлениях после поездки в СССР в 1937 году.
-Автору показывали образцовые социалистические стройки, устраивали встречи с людьми, автор присутствовал на показательном процессе Пятакова и Радека.
-«Воздух, которым дышат на Западе, – это нездоровый, отработанный воздух. (   Читать дальше...   )Жанр: Публицистика, историяИздательство: аудиокнига своими рукамиПродолжительность: 04:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AB2E1BF03840DDE34CEAD5DB4C9ADCAC4C5263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792744   (67640) от 20.04.2025
-
-Журнал | Тайны ХХ века №14 (1160) (апрель 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67640.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575664595A3D31CD60D9A27227632854341A175A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792778   (67639) от 20.04.2025
-
-VA - Grew Up in the 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>>
+Digitalo - Love Dance Cosmos (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Christopher Cross - Arthur's Theme (Best That You Can Do) (03:54)
-002 Fleetwood Mac - Everywhere (2018 Remaster) (03:43)
-003 John Parr - St. Elmo's Fire (Man in Motion) (04:12)
-004 Tina Turner - What's Love Got to Do with It (03:50)(   Читать дальше...   )Жанр: Pop, Rock, Dance>Продолжительность: 06:52:33
+01. Hi There Woman (4:09)
+02. My Baby (3:53)
+03. Milky Way (3:53)
+04. Summer Time Lover (3:56)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EADEB37074CB2C03E0D07B5C06FB466FD638359
+magnet:?xt=urn:btih:8D41C7CBAF0AF371257813C6C9118137DD48B946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,28 +163,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792647   (67638) от 20.04.2025
+###  Публикация: 1786422   (69017) от 20.03.2025
 
-Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
+Шрифты - Denis Serebryakov - MyFonts - Appetite Pro [OTF]
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Концерт группы, который состоялся на стадионе «Метеор» в Днепропетровске. Именно с него начался гастрольный тур Scooter по Украине в 1999 году.01. Keyser soze / Watch out
-02. Faster Harder Scooter
-03. I'm raving
-04. The age of love(   Читать дальше...   )Производство: УкраинаЖанр: Techno, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Axel CoonПродолжительность: 01:10:12
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:330AA1F0E74DFDFF4F1756863BB3DBFA69EB77A4
+magnet:?xt=urn:btih:B1DDADD6FFD47BDFFE036ACF4B386CDB394F8665
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,25 +190,230 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792797   (67637) от 20.04.2025
+###  Публикация: 1786468   (69016) от 20.03.2025
 
-Анджей Сапковский | Повести (Случай в Мисчиф-Крик, Тандарадай, La Maladie, Музыканты) (2025) [MP3, Роман Ильин]
+Bestial Warlust - Blood & Valour (1995) Reissue, 2005, Black Ace Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69016.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blood & Valour (02:51)
+A2. Death Rides Out (02:28)
+A3. Prelude: Descention / Hells Blood (05:27)
+A4. Barbaric Horde (04:46)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F066AEAE3B7C97DAE60EAB82A8A2AE427BAB073F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786343   (69015) от 20.03.2025
+
+...And Oceans - A.M.G.O.D (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Black Metal, Industrial, Electronic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69015.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intelligence Is Sexy
+A2 White Synthetic Noise
+A3 Tears Have No Name
+A4 Esprit De Corps(   Читать дальше...   )Жанр: Symphonic Black Metal, Industrial, Electronic MetalПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B34AE6B6D8339B66F6FE0605D7DCE0EF96B34B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786365   (69014) от 20.03.2025
+
+Project G-7 - Tribute to Wes Montgomery, Vol.1 (1993) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impressions [4:21]
+02. Remembering Wes [6:53]
+03. Groove Yard [4:49]
+04. Canadian Sunset [5:58](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7DBEED32EDB0103C46A5FBD91EDE271629F10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786369   (69013) от 20.03.2025
+
+Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Blues for Wes [4:28]
+02. Bock to Bock [6:35]
+03. For Heaven's Sake [6:27]
+04. Montgomery Blue [6:09](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F32767B59B0B07D2C912FFDBFF8C0C89EED537E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786362   (69012) от 20.03.2025
+
+Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Man, Blind Man [8:19]
+02. A Tribute to Someone [8:46]
+03. King Cobra [6:55]
+04. The Pleasure Is Mine [4:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A018DF0FC5615C9F7D8219DA0C1042966657C2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786364   (69011) от 20.03.2025
+
+Accu§er (Accuser; ex-Breaker; ex-Scartribe) - Studio Albums (15 releases) (1985-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Accu§er - немецкая метал-группа. Основана в 1986 году в Зигене. В 1985 году выпустила альбом под именем Breaker. В период с 2002 по 2008 год носила название Scartribe.1985 - Dead Rider (as Breaker)
+1987 - The Conviction/Experimental Errors
+1989 - Who Dominates Who
+1991 - Double TalkЖанр: Thrash/Groove MetalПродолжительность: 12:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EAD40EA9348A5B6E42D04C7126F048D99681F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786366   (69010) от 20.03.2025
+
+High Spirits - Hard to Stop (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Since You've Been Gone
+02. Restless
+03. Face To Face
+04. Hearts Will Burn(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF2857DFEA9842CB06A7B3D8AF0132B112D94BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786282   (69009) от 20.03.2025
+
+Лев Толстой | Плоды просвещения (Радиопостановка) (1992) [MP3, Александр Борисов, Сергей Паршин и др.]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повести, написанные Сапковским в период с 1989 по 1999 г.Жанр: Рассказ, ПовестьИздательство: Аудиокнига своими рукамиПродолжительность: 05:06:57
+Серия/Цикл: Звучащая библиотека.
+Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
+«Плоды просвещения» – комедия в четырёх действиях Л.Н. Толстого, написанная в 1890 году для домашнего спектакля. Действие комедии начинается поздним утром в передней московского дома помещика Звездинцева. Господа только что пробуждаются (   Читать дальше...   )Жанр: Русская литература, классика, комедияИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:52:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B1845AB75AEEE9E0F91958CD0F73BFD91BC0437
+magnet:?xt=urn:btih:DA2D37E2500F1C9CD1F9F55B364CA7B72710325E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,25 +421,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792794   (67636) от 20.04.2025
+###  Публикация: 1786278   (69008) от 20.03.2025
 
-TuneIn Radio Pro v38.2 Mod by Balatan [Ru/Multi]
+Лев Толстой | Семейное счастье (1978) [MP3, Мария Петрова]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении. Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на вас впечатление.Тип издания: Paid / Mod ExtraРелиз состоялся: 20.04.2025Разработчик: TuneIn IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Серия/Цикл: Звучащая библиотека.
+Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
+Роман Л.Н. Толстого «Семейное счастье» был первым опубликованным романом мастера. До этого свет увидели его повести «Детство. Отрочество. Юность», «Два гусара», «Утро помещика» и знаменитые «Севастопольские рассказы», но за большую (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 03:01:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:522F0BB92FA5F98CA3274B1154A5BFB1A597BC10
+magnet:?xt=urn:btih:11D10E0CA93456A2F5824E0041829388FBEC39E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,28 +449,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792771   (67635) от 20.04.2025
+###  Публикация: 1786283   (69007) от 20.03.2025
 
-T. Rex - Bolan B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Лев Толстой | Плоды просвещения (Радиоспектакль) (1952) [MP3, Виктор Станицын, Лидия Коренева, Ангелина Степанова и др.]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cadilac [03:53]
-02. Baby Strange [03:06]
-03. Lady [02:15]
-04. Thunderwing [03:46](   Читать дальше...   )Жанр: RockПродолжительность: 01:14:47
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
+Толстой начал работать над комедией в ноябре 1886 года, ещё не завершив окончательно «Власть тьмы». Затем работа над комедией была приостановлена и возобновлена в 1889 году, когда молодежь – дети Толстого и их друзья – попросила (   Читать дальше...   )Жанр: Русская литература, классика, комедияИздательство: ГостелерадиофондПродолжительность: 02:54:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C2B3FC64293E713EEA25F9CA013395AF866A71A
+magnet:?xt=urn:btih:E63E5FA61ED5E5BA603EB34461DABA7F9BCA82B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,80 +477,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792548   (67634) от 20.04.2025
+###  Публикация: 1786331   (69006) от 20.03.2025
 
-Gunslinger Girl | Школа убийц (2002) [15 томов, 100 глав] [Манга] [Русский] [PNG, TIF] [18+] [Complete]
-
->>Манга и Арт
->>Манга, Манхва, Маньхуа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то у этих девочек было счастливое детство, любящие родители и радужное будущее… Но всё это исчезло в один миг. Жестокий мир лишил их не только семьи, но даже и собственных тел. Теперь они - секретное оружие на службе у правительства, полулюди, запрограммированные на уничтожение особо опасных преступников и террористов. Модифицированные искусственные тела, специальные (   Читать дальше...   )Жанр: боевик, драма, научная_фантастика, психология, трагедияФормат: PNG, TIFПродолжительность: 21 мая 2002 - 27 сентября 2012
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2922018BBA3452142B3CAA5FE67393EA33469AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792757   (67633) от 20.04.2025
-
-VA - Italian Restaurant Chill Music Vol. 3 (Beats to relax) (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik - Tac (3:49)
-02. Bodyles - Washington (3:35)
-03. Papik - Gente Come Noi (4:25)
-04. Cristiana Polegri - Cocktail D'Amore (3:39)(   Читать дальше...   )Жанр: Nu Jazz, Broken Beat, Lounge, Chill OutПродолжительность: 01:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F513EE6523DD0DE7DED2D0F18290D253556FBA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792687   (67632) от 20.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Groovy Lilly Pulitzer Hippie Mug Wrap Sublimation Design [PNG]
+Шрифты - Monotype Imaging Inc. - Apta [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сублимационный дизайн для кружек.Формат: PNGРазрешение файлов: 2925 × 1425
+Apta — это шрифт без засечек, исследующий пересечение гуманистических и геометрических дизайнов. Он черпает вдохновение из монолинейного гуманистического подхода Джонстона (Эдвард Джонстон, 1913) и геометрической строгости Futura (Пол Реннер, 1927).
+
+Кириллица не поддерживается.Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09E4AB99F98EBCE48F1B79621CD880C3AB22FA5B
+magnet:?xt=urn:btih:6429E00EEDC0D6CAD933E38ACF6DEDE46ABC451F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,54 +505,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792183   (67631) от 20.04.2025
+###  Публикация: 1786458   (69005) от 20.03.2025
 
-Ильдар Южный - Песни из чуланчика (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Да гори оно огнём [00:04:28]
-02 - А память над годами проплывает [00:03:37]
-03 - Прощание с вором [00:04:29]
-04 - Земля измучена войной [00:04:02](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B601C3CC43808379D0D40C25D7417312576004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792683   (67630) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Pastel Ombre Digital Papers [JPG]
+Шрифты - Auguste Sans & Serif [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные узоры пастельных тонов.Формат: JPGРазрешение файлов: 3600 x 3600
+Первоначальным источником для Auguste послужила надпись на старой керамической бутылке, отличающаяся очевидным разрушением трафарета из-за чрезмерного использования. Первоначальным намерением Макгилла было точное перерисовывание, сохраняющее своеобразное сочетание качеств как Serif, так и Sans-Serif.
+
+Кириллица не поддерживается.Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F468B84B72B8200823498C78E76E8DF87701FCD4
+magnet:?xt=urn:btih:33B30E02D2049A9369C6740D968751F4E5F6BCAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,25 +533,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792684   (67629) от 20.04.2025
+###  Публикация: 1786433   (69004) от 20.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Splatters Seamless Patterns [JPG]
+Александр Грибоедов | Горе от ума (История одной любви) (2022) [MP3, Геннадий Богачёв, Вячеслав Захаров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Александр Сергеевич Грибоедов (1795–1829) – русский писатель и дипломат.
+Комедия А.С. Грибоедова «Горе от ума» по праву занимает ведущее место, принесшее автору мировую известность и славу.
+Радиоспектакль «История одной любви» по страницам комедии в стихах А.С. Грибоедова «Горе от ума».(   Читать дальше...   )Жанр: Русская литература, классика, комедияИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90D5988D67050F28296FD5F93D990DC49D95E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786429   (69003) от 20.03.2025
+
+Александр Грибоедов | Горе от ума (Радиоспектакль) (2009) [MP3, Михаил Царёв и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Александр Сергеевич Грибоедов (1795–1829) – русский писатель и дипломат.
+Комедия А.С. Грибоедова «Горе от ума» была завершена в 1824 году. Она создавалась в период смены одного мировоззрения другим, и вольнодумство в те времена уже имело место. Ярким завершением этого процесса стало восстание декабристов в 1825 году. Передовая (   Читать дальше...   )Жанр: Русская литература, классика, комедияИздательство: ИДДК, ГостелерадиофондПродолжительность: 02:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC477152299096D9FA2E8C05C0792236E4E60DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786616   (69002) от 21.03.2025
+
+Василь Быков | Западня (2014) [OPUS, Валерий Стельмащук]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из эпизодов Великой Отечественной войны, о сложной судьбе героя повести.
+"Первая атака сорвалась. Охватив подковой высоту, рота пробовала ворваться в траншею на самой её вершине, но не дошла даже до середины склона. Шквальный огонь немецких пулемётов заставил автоматчиков залечь на голом, скованном утренним морозом косогоре. Вскоре бойцы поняли, что здесь (   Читать дальше...   )Жанр: Военная прозаИздательство: Аудиокнига своими рукамиПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED587DA2CB47CA30DCBA430F53212C500B54312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786693   (69001) от 21.03.2025
+
+Шрифты - Creative Market - CS Escape – Inktrap Font - 290846357 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшовные узоры - абстрактные брызги.Формат: JPGРазрешение файлов: 3600 x 3600
+Острые, чистые линии для профессионального вида Дизайн CS Escape выделяется своими чистыми и четкими линиями, что придает ему гладкий и отполированный вид.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:521E63D5A7F70A6AB16C472EE96FC70945C836B2
+magnet:?xt=urn:btih:9185065C227F11A2D406EBC1AA9AA613D51B8522
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,109 +645,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792682   (67628) от 20.04.2025
+###  Публикация: 1786568   (69000) от 21.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Floral Seamless Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветочные бесшовные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE6B93DCE607669CFACE7D11963766976ABD1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792499   (67627) от 20.04.2025
-
-Ice on Fire - Nine Shades of Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect World [00:06:59]
-02. Dry Your Tears [00:04:34]
-03. A Dream for My Mind [00:05:20]
-04. To Live Is to Die [00:04:41](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A133A32B21672B2F731D1CCA12728CD74F3F99CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792676   (67626) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Mother's Day Floral Butterfly Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узоры в виде цветов и бабочек. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697C2826316737732C867AF5D2AD3425FF04D0DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792148   (67625) от 20.04.2025
-
-Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
+Леонид Фёдоров & Игорь Крутоголов - В солнечном блеске (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Fighting The World
-A2. Blow Your Speakers
-A3. Carry On
-A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:47
+1. В солнечном блеске
+2. Если солнце село в лужу
+3. Ворон к ворону
+4. Альбатрос(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
+magnet:?xt=urn:btih:12DDFF8E92E103D343E413802F3775C14B45C159
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,25 +674,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792678   (67624) от 20.04.2025
+###  Публикация: 1786649   (68999) от 21.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Needle Plush Felt Flowers Patterns [JPG]
+VA - Night'n Day Music Tracks (Expanded Edition) (Mike Mareen and His Music Productions) (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветочные бесшовные узоры. Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
+01. Trappy Toxic - Shuffle Mix (2:05)
+02. Mike Mareen - Here I Am (Megatrain-Mix) (7:27)
+03. Rocco Caruso amp Children's Voice - Tirami Su (Maxi Version) (5:38)
+04. Dj's Project - How Are You (Maxi Version) (7:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:50:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB92DB96E6C80301DA7766518BA56773895B89B2
+magnet:?xt=urn:btih:4C793B32592C8BA5A91527F0869F5273B5D33B54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,83 +703,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792631   (67623) от 20.04.2025
+###  Публикация: 1786533   (68997) от 21.03.2025
 
-Лев Биноклев | Солнечные зайчики и таинственное ограбление. (2025) [MP3, Данил Сидорин]
+Сборник | Время. События. Люди. Биология и медицина. Загадки познания (2019) [MP3, Всеволод Кузнецов]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В квартире старого дома, прямо в чудесной хрустальной вазе, живут Солнечные зайчики. Целое семейство радует хозяев: родители-зайчики мерцают в бокалах, а малыши носятся вокруг новогодней ёлки. Но всё меняется с приходом грабителей: из квартиры исчезает хрустальная ваза, а вместе с ней и солнечные малыши. Героям придется постараться, чтобы спасти семейную реликвию. (   Читать дальше...   )Жанр: детская литература, детектив, приключения.Язык озвучки: РусскийИздательство: Издательские решенияПродолжительность: 00:59:50
+Порой прописные истины, в которые верили на протяжении десятилетий, оказываются напрочь неверны. Яркий пример тому являет психология. Здесь смутные догадки легко находят себе подтверждение, а факты вписываются в выстроенную вами гипотезу. Обремененная ими она становится теорией. Ее воспринимают как непререкаемую правду. Она с легкостью интерпретирует любые человеческие (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: СОЮЗПродолжительность: 05:05:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99C025C8DB746B88721C5CD264829266DC24ADA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792764   (67622) от 20.04.2025
-
-Чудо техники с Сергеем Малозёмовым (20.04.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотреть больно! Виноват ли компьютер в сухости глаз и как бороться с этой проблемой? Работают ли очки с дырочками или стоит покупать особые линзы, чтобы защитить глаза?
- Честная битва кухонной техники: какие устройства — напрасная трата денег, а какие могут неожиданно удивить?
- Британские инноваторы создали самоохлаждающуюся банку для напитков .
- Шапочка для мыться (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720DC49E682622FBCAA5288A5AE74CCD5BC6D7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792775   (67621) от 20.04.2025
-
-Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67621.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-742617000027
-A2-(Sic)
-A3-Eyeless
-A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
+magnet:?xt=urn:btih:C36DEA42A17CF9FD33546F51DD2B0CEA0938C8FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

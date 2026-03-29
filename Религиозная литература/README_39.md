@@ -1,3 +1,81 @@
+###  Публикация: 1087276   (740052) от 07.04.2018
+
+Иаков Ворагинский | Золотая легенда [2 Тома] (2017 - 2018) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_740052.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине XIII века доминиканский богослов Иаков Ворагинский (Якопо да Варацце) создал книгу «Легенда о святых», собрав в ней сказания о мучениках, подвижниках веры и великих христианских праздниках. Его сочинение стало одной из самых популярных книг Средневековья и получило название «Золотая легенда» (Legenda Aurea). Уже в XIV веке латинский текст «Золотой легенды» (   Читать дальше...   )Жанр: Жития святыхФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8AE890F9C45DC1642AFB8A345264318F2ABB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397490   (739868) от 21.07.2020
+
+Прп. Паисий Святогорец, Свт. Нектарий Эгинский и др. | Непрестанно молитесь. Советы и мысли святых отцов и современных греческих проповедников (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_739868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как научиться молиться непрестанно? Возможно ли это среди многих житейских забот и повседневной суеты? На страницах сборника «Непрестанно молитесь» святые отцы и современные греческие духовники доступными словами расскажут о молитве и о том, как преображается жизнь человека, приступающего к ней.Жанр: Православие. Духовно-просветительское изданиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7EED8CE2279F88D9E281874BA2951869129CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 786631   (737626) от 15.05.2014
+
+Б. П. Кандидов | Легенда о христе в классовой борьбе (1930) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737626.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются методы внедрения легенды о христе в народное сознание через систему воспитания и искусство. Автор доказывает, что религия способствовала угнетению трудящихся масс. В последней части работы рассмотрен вопрос о значении праздников рождества и пасхи в СССР.Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AD60546EDC9A111CC147A473AFA19A709EC561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397623   (737014) от 23.07.2020
 
 В.Л. Пантелеев | Четвероевангелие атеиста (2019) [FB2]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737014.jpg" />
+  <img src="Z:/picture/008/save_picture_737014.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735858.jpg" />
+  <img src="Z:/picture/008/save_picture_735858.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734732.jpg" />
+  <img src="Z:/picture/008/save_picture_734732.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734022.jpg" />
+  <img src="Z:/picture/008/save_picture_734022.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733828.jpg" />
+  <img src="Z:/picture/008/save_picture_733828.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733326.jpg" />
+  <img src="Z:/picture/005/save_picture_733326.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732710.jpg" />
+  <img src="Z:/picture/008/save_picture_732710.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731994.jpg" />
+  <img src="Z:/picture/008/save_picture_731994.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731133.jpg" />
+  <img src="Z:/picture/008/save_picture_731133.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729864.jpg" />
+  <img src="Z:/picture/008/save_picture_729864.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726625.jpg" />
+  <img src="Z:/picture/008/save_picture_726625.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726562.jpg" />
+  <img src="Z:/picture/008/save_picture_726562.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726462.jpg" />
+  <img src="Z:/picture/008/save_picture_726462.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726459.jpg" />
+  <img src="Z:/picture/008/save_picture_726459.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724923.jpg" />
+  <img src="Z:/picture/008/save_picture_724923.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724777.jpg" />
+  <img src="Z:/picture/008/save_picture_724777.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724617.jpg" />
+  <img src="Z:/picture/008/save_picture_724617.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722772.jpg" />
+  <img src="Z:/picture/008/save_picture_722772.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722372.jpg" />
+  <img src="Z:/picture/008/save_picture_722372.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721837.jpg" />
+  <img src="Z:/picture/008/save_picture_721837.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721738.jpg" />
+  <img src="Z:/picture/008/save_picture_721738.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721731.jpg" />
+  <img src="Z:/picture/008/save_picture_721731.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ A.A. Кострюков | Русская Зарубежная Церковь в 
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720580.jpg" />
+  <img src="Z:/picture/008/save_picture_720580.jpg" />
 </div>
 
 
@@ -603,86 +681,6 @@ A.A. Кострюков | Русская Зарубежная Церковь в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAB5EBFAEFAB0757D5534865980641B0134C0D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669147   (720095) от 17.06.2013
-
-Старчество [1997 (Репринт 1910)] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мысли Святых Отцов о необходимости и пользе старческого руководства в духовной жизни. По творениям преподобного Германа Зосимовского.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DC498C00A7FEE58D9A318B7E2C254C38CA9671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669491   (719864) от 17.06.2013
-
-Преподобный Макарий Египетский | Духовные беседы [1994] (Репринт 1904) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Макарий родился около 300 года в Нижнем Египте в селении Птинапор. В раннем возрасте по желанию родителей вступил в брак, но рано овдовел. После смерти жены Макарий углубился в изучение Священного Писания. Похоронив родителей Макарий удалился в ближайшую к селению пустыню и стал послушником при проживавшем там старце-отшельнике. Проезжавший через Птинапор (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3A80ED470A84DF72DB56A8D48D2DA30D0F6B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023936   (719820) от 07.06.2016
-
-Г.Е. Бесстремянная | Христианство и Библия в Японии [2 книги] (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование посвящено проникновению христианства в Японию и переводам Библии на японский язык.
-В первой части работы рассказывается о миссионерской деятельности и истории переводов римо-католической церкви, протестантских церквей и Русской Духовной Миссии в Японии в XVI —XX веках.
-Прослеживается история возникновения каждого из православных богослужебных текстов (   Читать дальше...   )Жанр: МонографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781FF60666435F37DE1E61DE8C1567368039F55F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 953312   (348833) от 04.11.2015
+
+Агенты А.Н.К.Л. / The Man from U.N.C.L.E. (2015) WEBRip [H.264] [MP4|960х400]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наполеон Соло — агент ЦРУ, на счету которого огромное количество успешно проведенных операций. Он считается одним из лучших секретных агентов во всем мире, и с ним может сравниться только один человек — самый молодой и перспективный агент КГБ, Илья Курякин. Их противостояние переросло в настоящую войну, в которой никто не собирается уступать. Однако обстоятельства (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Боевик, Приключения, КомедияРежиссер: Гай РичиАктеры: Генри Кавилл, Арми Хаммер, Алисия Викандер, Элизабет Дебики, Хью Грант, Лука Кальвани, Сильвестр Грот, Джаред Харрис, Кристиан Беркель, Миша КузнецовПеревод: Дублированный (iTunes Russia)Продолжительность: 01:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483A4CA721531B51496CD84082B62A6E562C3225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953160   (348832) от 04.11.2015
 
 Table Tennis Touch v2.0.1102.1 [En]
@@ -6,7 +32,7 @@ Table Tennis Touch v2.0.1102.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348832.jpg" />
+  <img src="Z:/picture/008/save_picture_348832.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Droplets 2.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_347984.jpg" />
+  <img src="Z:/picture/005/save_picture_347984.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Slender Man Chapter 2: Survive v1.05 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346714.jpg" />
+  <img src="Z:/picture/008/save_picture_346714.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346685.jpg" />
+  <img src="Z:/picture/008/save_picture_346685.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Slender: The Corridors v1.02 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346621.jpg" />
+  <img src="Z:/picture/008/save_picture_346621.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Reckless Racing 1.0.0 [3D] [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_345663.jpg" />
+  <img src="Z:/picture/005/save_picture_345663.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ QuickSave v2.3.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345609.jpg" />
+  <img src="Z:/picture/008/save_picture_345609.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Talon for Twitter 5.5.5 + Patched + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345550.jpg" />
+  <img src="Z:/picture/008/save_picture_345550.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344543.jpg" />
+  <img src="Z:/picture/008/save_picture_344543.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Ninja Turtles Street Showdown v1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344260.jpg" />
+  <img src="Z:/picture/008/save_picture_344260.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ The Lion King Immortality v1.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344156.jpg" />
+  <img src="Z:/picture/008/save_picture_344156.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Clone Camera 2.0 Full v2.2 [Ru/En]  - Приложение для клониро
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343828.jpg" />
+  <img src="Z:/picture/008/save_picture_343828.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Mortal Kombat Quadrilogy 1.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343819.jpg" />
+  <img src="Z:/picture/008/save_picture_343819.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ LEGO® Creationary [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343314.jpg" />
+  <img src="Z:/picture/005/save_picture_343314.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ City Navigator North America NT 2014.30 [Карта] (Garmin)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342564.jpg" />
+  <img src="Z:/picture/008/save_picture_342564.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342552.jpg" />
+  <img src="Z:/picture/008/save_picture_342552.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Chester Cheetah Adventure 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342147.jpg" />
+  <img src="Z:/picture/008/save_picture_342147.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_342103.jpg" />
+  <img src="Z:/picture/005/save_picture_342103.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Weaponlord 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342000.jpg" />
+  <img src="Z:/picture/008/save_picture_342000.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341930.jpg" />
+  <img src="Z:/picture/008/save_picture_341930.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Donald Duck in Maui Mallard v1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341791.jpg" />
+  <img src="Z:/picture/008/save_picture_341791.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Hotel Transylvania 2 v1.1.32 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341685.jpg" />
+  <img src="Z:/picture/008/save_picture_341685.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Word Surf v2.9.1 [Ru/Multi] - Игра в слова & Кроссворд
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341642.jpg" />
+  <img src="Z:/picture/008/save_picture_341642.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Tiki Towers 1.2.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340785.jpg" />
+  <img src="Z:/picture/005/save_picture_340785.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Private Place Secret SMS CALLS 2.3.3.15.B70 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340362.jpg" />
+  <img src="Z:/picture/008/save_picture_340362.jpg" />
 </div>
 
 
@@ -647,35 +673,6 @@ Private Place Secret SMS CALLS 2.3.3.15.B70 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C4F64CB86F545261431354ABBDDFB54BF5E7CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128580   (340312) от 28.10.2018
-
-Судоку / Судокурс 0.4 [Ru/Multi] (Авторская раздача)
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная версия игры в судоку.
-Встроено более 10 000 судоку различной сложности.
-Встроенные судоку минимально заполнены (17-18 цифр).
-Содержит генератор судоку и решатель.  Есть справка и подсказки.(   Читать дальше...   )Тип издания: FreeРелиз состоялся: 04.10.2018Разработчик: PolmaПоддерживаемая ОС: Android 4 и вышеЖанр: Puzzle — Logic (Паззл, Головоломка)Язык интерфейса: Русский, английский, немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A8DF0AE7B6ACD90A0981C2C8003DAE3CFD2DB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1535108   (688693) от 05.03.2022
+
+Palantir - Chasing A Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing A Dream
+02. Queen Of The Moon
+03. Astral Prison
+04. Among The Stars(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62532295DD21328FA0CB1CA9F3905A434C690E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534962   (688608) от 05.03.2022
+
+Saxon - Carpe Diem (2022) Japanese Edition [WavPack|Lossless|image + .cue] <Heavy Metal, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carpe Diem (Seize The Day)
+02. Age Of Steam
+03. The Pilgrimage
+04. Dambusters(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96B09CF191E63147753B8BAA93224A341721A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289255   (688266) от 15.03.2019
+
+Dream Theater - Distance Over Time (2019) 2CD, Japanese Edition [FLAC|Lossless] <Heavy Metal, Progressive Metal >
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688266.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 | Untethered Angel  | 06:14
+02 | Paralyzed  | 04:17
+03 | Fall into the Light  | 07:04(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 02:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3BDA2C39473DAEBA9B1F092F59773F41A5DDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289482   (686757) от 16.03.2019
 
 Asthma Castle - Mount Crushmore (2019) [FLAC|Lossless|tracks + .cue] <Metal>
@@ -6,7 +93,7 @@ Asthma Castle - Mount Crushmore (2019) [FLAC|Lossless|tracks + .cue] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686757.jpg" />
+  <img src="Z:/picture/008/save_picture_686757.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dust Bolt - Trapped in Chaos (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686754.jpg" />
+  <img src="Z:/picture/008/save_picture_686754.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ King Diamond - Songs for the Dead - Live (2019) 2CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686629.jpg" />
+  <img src="Z:/picture/008/save_picture_686629.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Rotting Christ - The Heretics (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686628.jpg" />
+  <img src="Z:/picture/008/save_picture_686628.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Vathos - Underwater (2020) [FLAC|Lossless|image + .cue] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686592.jpg" />
+  <img src="Z:/picture/008/save_picture_686592.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Entombed A.D. - 4 Studio Albums (2014-2019) 4xCD [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686591.jpg" />
+  <img src="Z:/picture/008/save_picture_686591.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ KMFDM - In Dub (2020) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686458.jpg" />
+  <img src="Z:/picture/008/save_picture_686458.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Avatar - Hunter Gatherer (2020) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686450.jpg" />
+  <img src="Z:/picture/008/save_picture_686450.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Beast in Black - From Hell with Love (2019) Japan [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686346.jpg" />
+  <img src="Z:/picture/008/save_picture_686346.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Soreption - Deterioration Of Minds (2010) [FLAC|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685309.jpg" />
+  <img src="Z:/picture/008/save_picture_685309.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Metаllica - The $5.98 E.P. - Gаrаge Dауs Re-Revisited (1987) 2018, Remaster
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685165.jpg" />
+  <img src="Z:/picture/008/save_picture_685165.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Rammstein - Paris (2017) Live [FLAC|Lossless|WEB-DL|tracks + .cue] <Industrial>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684571.jpg" />
+  <img src="Z:/picture/008/save_picture_684571.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Taraxacum - Rainmaker (2003) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684530.jpg" />
+  <img src="Z:/picture/008/save_picture_684530.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Saurom Lamderth - Legado de juglares (2004) 2CD [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684529.jpg" />
+  <img src="Z:/picture/008/save_picture_684529.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Ages - Uncrown (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684528.jpg" />
+  <img src="Z:/picture/008/save_picture_684528.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Sinister - The Blood Past (2009) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684526.jpg" />
+  <img src="Z:/picture/008/save_picture_684526.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Volbeat - Let's Boogie! Live From Telia Parken (2018) 2CD [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684406.jpg" />
+  <img src="Z:/picture/008/save_picture_684406.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Stray Gods - Storm The Walls (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684314.jpg" />
+  <img src="Z:/picture/008/save_picture_684314.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Venom - 6 Studio Albums (2011-2020) 7xCD [FLAC|Lossless|image + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684174.jpg" />
+  <img src="Z:/picture/008/save_picture_684174.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Doom:VS - 2 albums (2006-2008) [FLAC|Lossless] <Funeral / Death Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_683792.jpg" />
+  <img src="Z:/picture/005/save_picture_683792.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Candlemass - Psalms For The Dead (2012) [FLAC|Lossless] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_683693.jpg" />
+  <img src="Z:/picture/005/save_picture_683693.jpg" />
 </div>
 
 
@@ -623,7 +710,7 @@ Tobias Sammet (Edguy & Avantasia) - 18 Albums, 3 Compilations, 3 Lives, 6 Single
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683512.jpg" />
+  <img src="Z:/picture/008/save_picture_683512.jpg" />
 </div>
 
 
@@ -652,7 +739,7 @@ Stream of Passion - Darker Days (2011) Japanese Edition [FLAC|Lossless]<Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_683456.jpg" />
+  <img src="Z:/picture/005/save_picture_683456.jpg" />
 </div>
 
 
@@ -668,105 +755,6 @@ Stream of Passion - Darker Days (2011) Japanese Edition [FLAC|Lossless]<Symphoni
 08. Broken
 09. This Moment
 10. Closer(   Читать дальше...   )Жанр: Symphonic Gothic Metal / Progressive / Female VocalПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135124   (682898) от 18.05.2017
-
-Voyager - Ghost Mile (2017) [FLAC|Lossless|tracks] <Melodic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascension
-02. Misery Is Only Company
-03. Lifeline
-04. The Fragile Serene(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA393A802F31C7CC95D703045C40C735A9ECF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213090   (682736) от 26.06.2010
-
-Ozzy Osbourne - Scream [Japanese Edition] (2010) [FLAC|Lossless]<Heavy Metal/Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Die (6:07)
-02. Let Me Hear Your Scream (3:26)
-03. Soul Sucker (4:35)
-04. Life Won't Wait (5:07)
-05. Diggin' Me Down (6:04)
-06. Crucify (3:30)
-07. Fearless (3:42)
-08. Time (5:32)
-09. I Want It More (5:37)
-10. Latimer's Mercy (4:27)(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506056   (682617) от 08.06.2012
-
-Pain of Salvation - 13 albums (1997-2011) [FLAC/WavPack|Lossless] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Salt Theme (00:44)
-02. Softly She Cries (04:16)
-03. Conditioned (04:15)
-04. Healing Now (04:29)
-05. To the Shoreline (03:03)
-06. Break Darling Break (Bonus track) (02:22)
-07. Eleven (06:55)
-08. 1979 (02:52)
-09. Of Salt (Bonus track) (02:36)
-10. The Deeper Cut (06:07)(   Читать дальше...   )1997-2011Жанр: Progressive Metal, Progressive RockПродолжительность: 00:58:40
 
 ## Скачать торент
 ```bash

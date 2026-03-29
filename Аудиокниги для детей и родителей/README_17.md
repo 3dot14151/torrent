@@ -1,3 +1,85 @@
+###  Публикация: 1113182   (839781) от 10.03.2017
+
+Андрей Жвалевский, Евгения Пастернак | Время всегда хорошее (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что будет, если девчонка из 2018 года вдруг окажется в 1980 году? А мальчик из 1980 года перенесется на ее место? Где лучше? И что такое «лучше»? Где интереснее играть: на компьютере или во дворе? Что важнее: свобода и раскованность в чате или умение разговаривать, глядя в глаза друг другу? И самое главное — правда ли, что «время тогда было другое»?
+А может быть, (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 05:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC0D38CEF837B8F8C42A597DF0EEB6B3CCB6587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193875   (838363) от 20.04.2010
+
+Ганс Христиан Андерсен | Русалочка (2007) [MP3, Борис Плотников и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Печальная история неземной любви Русалочки к принцу волнует и детей и взрослых. Может быть потому, что сам Ганс Христиан Андерсен утверждал, что "Русалочка - единственная из моих работ, которая трогала меня самого".
+23 августа 1913 года в столице Дании Копенгагене был открыт памятник Русалочке - героине сказки Г.Х. Андерсена. Бронзовая скульптура считается (   Читать дальше...   )Жанр: СказкаИздательство: СоюзПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501184   (838239) от 08.10.2021
+
+Александр Карапац | Ижик (2021) [MP3, Марина Усачёва, Роман Кулешов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка о том, что никакие, даже самые фантастические устройства, не сделают добра больше, чем сам человек.
+
+Рекомендуемый возраст: 10+Жанр: Детская литература. СказкаПродолжительность: 00:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE9B6D9FCCADF9A53EA191CCABC8B26EADB4F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004596   (838057) от 06.04.2016
 
 Александр Раскин | Как папа был маленьким (2016) [MP3]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838057.jpg" />
+  <img src="Z:/picture/008/save_picture_838057.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837558.jpg" />
+  <img src="Z:/picture/008/save_picture_837558.jpg" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835262.jpg" />
+  <img src="Z:/picture/008/save_picture_835262.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833742.jpg" />
 </div>
 
 
@@ -115,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833322.jpg" />
 </div>
 
 
@@ -141,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831219.jpg" />
 </div>
 
 
@@ -168,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830955.jpg" />
 </div>
 
 
@@ -195,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829741.jpg" />
 </div>
 
 
@@ -221,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828490.jpg" />
 </div>
 
 
@@ -247,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828485.jpg" />
 </div>
 
 
@@ -273,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828159.jpg" />
 </div>
 
 
@@ -299,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826763.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826754.jpg" />
 </div>
 
 
@@ -351,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826642.jpg" />
 </div>
 
 
@@ -377,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826356.jpg" />
 </div>
 
 
@@ -403,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825300.jpg" />
 </div>
 
 
@@ -429,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825256.jpg" />
 </div>
 
 
@@ -456,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825151.jpg" />
 </div>
 
 
@@ -483,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825136.jpg" />
 </div>
 
 
@@ -510,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825035.jpg" />
 </div>
 
 
@@ -537,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824777.jpg" />
 </div>
 
 
@@ -563,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824746.jpg" />
 </div>
 
 
@@ -589,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824742.jpg" />
 </div>
 
 
@@ -601,87 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE95860A7B9BEEF6E94F493F09E73CCB1D151762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007232   (823486) от 14.04.2016
-
-Павел Мисько | Новоселы (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о детях и для детей. О том, как нелегко быть маленьким. На каждом шагу обязательно что-нибудь случается, и только для взрослых всё это мелочи, не стоящие внимания. И так вот попадаешь из истории в историю, а жизнь, как нарочно, подсовывает всё новые испытания: расти, учись, умней. В будущем это ох как пригодится!
-Герои этой повести и учатся познавать себя, (   Читать дальше...   )Жанр: Детская литература, повестьПродолжительность: 06:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185BDD5E5ED36231DD799CE09741A2A5777A5D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543408   (823217) от 14.04.2016
-
-Кир Булычев | Вампир Полумракс (2008) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823217.jpg" />
-</div>
-
-
-###  Подробнее
-
-В институте палеогенетики стали выводить вымерших животных. И скоро этих животных стало так много, что для них решили сделать специальный заповедник — Палеоозо на шотландском острове Элис, на котором стоит старинный замок. А потом в подвалах замка были обнаружены частички существ эпохи легенд. И решили палеогенетики их возродить. Лучше бы они это не делали...Жанр: Детская фантастикаПродолжительность: 06:29:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542583   (823127) от 14.04.2016
-
-Кир Булычев | Золотой медвежонок. Королева пиратов на планете сказок (2008) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823127.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каких только приключениях не участвует героиня фантастической повести Алиса Селезнева! Она переносится на машине времени в прошлое,
-становится принцессой средневекового королевства, объявляет войну космическим пиратам.
-Эта девочка из будущего совершает столько необыкновенного, что, по нашим понятиям, под силу только лишь какому-то супермену...Жанр: Детская фантастикаПродолжительность: 03:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A8F9EBD17B80CE2D618B966D05F4CCAFF6DF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1566037   (211889) от 26.07.2022
+
+Джеймс Мэй: Наш человек в Италии / James May: Our Man in Italy (2022) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6) [EN / RU, EN Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_211889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Мэй путешествует по одной из своих любимых стран: Италии. Начав c сицилийской столицы Палермо и закончив в Доломитовых Альпах, он посетит почти все регионы Италии. Культура, еда, промышленность и даже немного спорта — все это будет происходить на фоне самых потрясающих городских и сельских пейзажей в мире. Для Джеймса Италия всегда казалась страной, в которой (   Читать дальше...   )Производство: Великобритания, Amazon Prime VideoЖанр: документальный, комедия, приключенияРежиссер: Билл Бэйли, Том УайтерПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские, английские, датские, французские, немецкие, индийские, итальянские, норвежские, польские, португальские, испанские, шведские, тамильские, греческие, венгерские, корейские, японские, китайские, арабские, амхарскиеПродолжительность: серии x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E51938610075EBFE013EB86694A995C9A24069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638850   (211843) от 10.06.2023
+
+Поедем, поедим! Круиз Сочи — Турция: город шафрана, курица в гранатовом соусе, скальный монастырь (10.06.2023) WEB-DL [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди отправился в морской круиз из Сочи по городам Турции. На каждой остановке круизного лайнера итальянец отправлялся на поиски приключений: в Стамбуле он побывал в Голубой мечети и купил чудодейственный чай на местном рынке специй. В старинном городе шафрана попробовал кофе с древесной смолой, в Трабзоне посетил монастырь, который высечен на высоте (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F748555CEF938AEBF05497055C6C6AA359CC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638976   (211829) от 10.06.2023
 
 RTG. Путешествие по Валдайскому краю (2014) HDTV [H.264/1080i]
@@ -6,7 +58,7 @@ RTG. Путешествие по Валдайскому краю (2014) HDTV [H.
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211829.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211795.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211166.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210534.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210341.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ RTG. Усадьба Архангельское (2013) HDTV [H.264/1080i] (сер
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210288.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ RTG. Исторические адреса Санкт-Петербурга (2013
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210251.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209969.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209897.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209879.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ RTG. Прогулка по Владивостоку (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209747.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209124.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209044.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208870.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208818.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208608.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208596.jpg" />
+  <img src="Z:/picture/005/save_picture_208596.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208522.jpg" />
+  <img src="Z:/picture/005/save_picture_208522.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207507.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206453.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206057.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205757.jpg" />
+  <img src="Z:/picture/005/save_picture_205757.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205107.jpg" />
+  <img src="Z:/picture/004/save_picture_205107.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204681.jpg" />
+  <img src="Z:/picture/004/save_picture_204681.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41A1E948F62D4BC03BB05E61A046A276B2C91B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603378   (204280) от 09.01.2023
-
-Архипелаг Земля (2023) IPTV [H.264]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи морских миль на корабле, экстремальные погодные условия, реальная научная работа, морские млекопитающие и птицы Северного Ледовитого океана, абсолютная изолированность от внешнего мира - лишь только часть обстоятельств, в которых окажутся участники фильма. Опытные учёные и исследователи, уже не раз бывавшие за Полярным кругом, и вчерашние студенты, первый (   Читать дальше...   )Производство: Россия, Студия 7LЖанр: документальный, история, путешествияРежиссер: Антон ЛегатЯзык озвучки: русскийСубтитры: русские (Культура, ВГТРК)Продолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5A964A871FCC75066C15C9999ED93664B6B120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615485   (202230) от 26.02.2023
-
-Юджин Леви: Путешественник поневоле / The Reluctant Traveler with Eugene Levy (2023) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-8 из 8) [EN / RU, UKR, EN Sub]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прирождённый домосед, актёр и комик Юджин Леви отправляется в кругосветное путешествие со своими новыми друзьями. Он путешествует от полярного круга до Мальдивских островов, чтобы познакомиться с миром и столкнуться со своими страхами. Юджин увидит вулкан, станет судьёй на схватке сумоистов, отправится на финскую рыбалку и выполнит кучу других уникальных дел. По (   Читать дальше...   )Производство: Великобритания, Apple Studios, TwofourЖанр: документальный, история, путешествияРежиссер: Дэвид Бриндли, Джеймс КаллумУчастники: Юджин ЛевиПеревод: субтитрамиЯзык озвучки: английскийСубтитры: английские, русские, украинскиеПродолжительность: 8x ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879D43AC2C2579DD44C6383D0F056F3E80488B4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

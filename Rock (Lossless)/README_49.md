@@ -1,3 +1,145 @@
+###  Публикация: 1126398   (765485) от 18.04.2017
+
+The Ryszard Kramarski Project - Music Inspired By The Little Prince (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Android B-612 (4:13)
+02. The Little Prince (5:12)
+03. The Rose With Four Thorns (6:33)
+04. Galaxy Freaks (6:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B301CFB94EB0C0B51803CBF2A780A436A3F37ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126314   (765437) от 18.04.2017
+
+Jon English - Beating The Boards (1982) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Classic RockПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E725F782658A956B671AEEBA4745209617F1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214064   (764899) от 21.03.2018
+
+Free - All Right Now: The Essential (2018) 3CD [FLAC|Lossless|tracks] <Rock, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Free - британская рок-группа, образовавшаяся в 1968 году в Лондоне, Англия и всемирную известность получившая в 1970 благодаря хиту "All Right Now".  Free выпустили шесть студийных альбомов, которые (согласно Allmusic) способствовали подъёму и развитию хард-рока. Пол Роджерс после распада Free в 1973 вместе с Саймоном Кирком образовал "Bad Company". (   Читать дальше...   )CD1:
+01.  All Right Now  5:33
+02.  Fire And Water  3:57
+03.  Mr. Big  5:53(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 02:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC4C9A21504D5C02CFC8EB0AF4B5343869EB325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279745   (764594) от 31.01.2019
+
+Artificial Silence - Negative Space (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin Deep (06:23)
+02. Latency (04:26)
+03. Innocent (3:50)
+04. In the Midst of a Dream (06:42)(   Читать дальше...   )Жанр: Alternative Rock, Progressive rockПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB0FE3E2FC54A24D67CE47F93A5A33652BE401B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279716   (764538) от 31.01.2019
+
+Soft Machine - Hidden Details (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Psychedelic rock, Prog Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden Details (07:36)
+02. The Man Who Waved At Trains (05:00)
+03. Graund Lift (05:21)
+04. Heart Off Guard (02:30)(   Читать дальше...   )Жанр: Psychedelic rock, Prog Rock, Jazz RockПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE4C7D3FDCE8C83760475220E393AF96E1337CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279688   (764531) от 31.01.2019
 
 Simple Minds - Walk Between Worlds (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave>
@@ -6,7 +148,7 @@ Simple Minds - Walk Between Worlds (2018) Deluxe Edition [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764531.jpg" />
+  <img src="Z:/picture/008/save_picture_764531.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ VA - Rock Milestones (2020) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763710.jpg" />
+  <img src="Z:/picture/008/save_picture_763710.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ Bear Hands - You'll Pay For This (2016) [FLAC|Lossless|tracks] <Experimental Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763258.jpg" />
+  <img src="Z:/picture/008/save_picture_763258.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ Hotei - Strangers (2015) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763035.jpg" />
+  <img src="Z:/picture/008/save_picture_763035.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ Joe Cocker - Heart & Soul (2004) US Version [FLAC|Lossless|image + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762952.jpg" />
+  <img src="Z:/picture/008/save_picture_762952.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ Middle Of The Road - The Collection (1996) Unofficial Release [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762136.jpg" />
+  <img src="Z:/picture/008/save_picture_762136.jpg" />
 </div>
 
 
@@ -180,7 +322,7 @@ The Alan Parsons Project  - Eye In The Sky (1982) 1983, Arista Records [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761378.jpg" />
+  <img src="Z:/picture/008/save_picture_761378.jpg" />
 </div>
 
 
@@ -209,7 +351,7 @@ Arena - 10 albums, 13 CD (1995-2018) [FLAC|Lossless|image + .cue | tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760334.jpg" />
+  <img src="Z:/picture/008/save_picture_760334.jpg" />
 </div>
 
 
@@ -238,7 +380,7 @@ Buddy Holly - Memorial Collection - (2008)3CD [FLAC|Lossless]<Rock'n'roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759815.jpg" />
+  <img src="Z:/picture/008/save_picture_759815.jpg" />
 </div>
 
 
@@ -264,7 +406,7 @@ Jack White - Boarding House Reach (2018) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759718.jpg" />
+  <img src="Z:/picture/008/save_picture_759718.jpg" />
 </div>
 
 
@@ -293,7 +435,7 @@ Percewood's Onagram - Collection (4CD) (1969-1974) [FLAC|Lossless]<Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759058.jpg" />
+  <img src="Z:/picture/008/save_picture_759058.jpg" />
 </div>
 
 
@@ -322,7 +464,7 @@ VA - Rock 'n' Roll Party - The Absolutely Essential (2015) [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757466.jpg" />
+  <img src="Z:/picture/005/save_picture_757466.jpg" />
 </div>
 
 
@@ -351,7 +493,7 @@ Zakk Wylde - Book Of Shadows II (2016) [FLAC|Lossless|image + .cue] <Southerh Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757455.jpg" />
+  <img src="Z:/picture/008/save_picture_757455.jpg" />
 </div>
 
 
@@ -380,7 +522,7 @@ David Gilmour - Live In Gdansk (2006) 2 CD, 2008, Warner Music [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757313.jpg" />
+  <img src="Z:/picture/005/save_picture_757313.jpg" />
 </div>
 
 
@@ -409,7 +551,7 @@ Gregg Allman - Laid Back (1973) Reissue, 1987, Polydor [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756903.jpg" />
+  <img src="Z:/picture/008/save_picture_756903.jpg" />
 </div>
 
 
@@ -438,7 +580,7 @@ VA - Classic Rock Only (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754938.jpg" />
+  <img src="Z:/picture/008/save_picture_754938.jpg" />
 </div>
 
 
@@ -467,7 +609,7 @@ Cross & Quinn - Cold Sky Blue (2016) [FLAC|Lossless|image + .cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754096.jpg" />
+  <img src="Z:/picture/008/save_picture_754096.jpg" />
 </div>
 
 
@@ -496,7 +638,7 @@ Brian Wilson And Friends - A Sound Stage Special Event (2016) [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754087.jpg" />
+  <img src="Z:/picture/008/save_picture_754087.jpg" />
 </div>
 
 
@@ -525,7 +667,7 @@ Joe Cocker - Across From Midnight (1997) [APE|Lossless|image + .cue] <Rock, Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753941.jpg" />
+  <img src="Z:/picture/008/save_picture_753941.jpg" />
 </div>
 
 
@@ -554,7 +696,7 @@ Bob Dylan - Fallen Angels (2016) [FLAC|Lossless|image + .cue] <Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753725.jpg" />
+  <img src="Z:/picture/008/save_picture_753725.jpg" />
 </div>
 
 
@@ -583,7 +725,7 @@ Joe Cocker - Hymn For My Soul (2007) [APE|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752251.jpg" />
+  <img src="Z:/picture/008/save_picture_752251.jpg" />
 </div>
 
 
@@ -597,155 +739,6 @@ Joe Cocker - Hymn For My Soul (2007) [APE|Lossless|image + .cue] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:688715113F48DB7C2778ACA6F8C0A8C743863B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018992   (752100) от 22.05.2016
-
-Joe Cocker - Respect Yourself (2002) [APE|Lossless|tracks + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can't Have My Heart
-02. Love Not War
-03. You Took It So Hard
-04. Never Tear Us Apart(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036E764FB2340C5CC3D8A7DA0FCC8A986A5A81BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781952   (750451) от 01.05.2014
-
-VA - Billboard Top Rock'n'Roll Hits (1955-1959) 5CD /1988-1989 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750451.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
-А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1955
-Продoлжитeльность: 00:26:14
-Трeклиcт:
-01. Bill Haley & His Comets - Rock Around The Clock  (2:13)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA11AE036D3387CBF38BDC43257B67C37105FEC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782540   (750449) от 01.05.2014
-
-VA - Billboard Top Rock'n'Roll Hits (1965-1969)  5CD /1988 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750449.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
-А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1965
-Продoлжитeльность: 00:28:18
-Трeклиcт:
-01. Shirley Ellis - The Name Game  (3:03)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:958C2F8521F423440901E417DE23C5C857DFB36E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781989   (750421) от 01.05.2014
-
-VA - Billboard Top Rock'n'Roll Hits (1960-1964) 5CD  /1993 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750421.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
-А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1960
-Продoлжитeльность: 00:23:41
-Трeклиcт:
-01. Joe Jones - You Talk Too Much  (2:31)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DDF2813562C0765BD495942C69F0340B4B1209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782551   (750406) от 01.05.2014
-
-VA - Billboard Top Rock'n'Roll Hits (1970-1972, 1974) 4CD /1989 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750406.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
-А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1970
-Продoлжитeльность: 00:32:06
-Трeклиcт:
-01. Shocking Blue - Venus  (3:05)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF58D61E8F9A7CB7D5B615DB79E77E46FD0197EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

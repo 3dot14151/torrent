@@ -1,3 +1,102 @@
+###  Публикация: 607673   (989991) от 29.01.2013
+
+Женя Белоусов - Звездная серия (2003) [MP3|256-320 кб/с]<pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Подожди меня 04:14
+ 2. Вечером на лавочке 04:15
+ 3. Ночное такси 04:50
+ 4. Девчонка-девчоночка 04:49
+ 5. Алешка 03:54
+ 6. Голуби целуются 04:30
+ 7. Карина 03:59
+ 8. Слушай, девчонка 04:59
+ 9. Вечерок 05:24
+ 10. Облако волос 05:31(   Читать дальше...   )Жанр: popПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8B3DA68B010965A1F7101B159B032C401EB57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354888   (986109) от 24.01.2020
+
+Elvira T - На кухне (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986109.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бриллианты
+2. Я хочу домой
+3. Наивный возраст
+4. На кухне(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADF9630CD0A4B931EDA4667877FFDC6898C436B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165242   (982657) от 10.01.2010
+
+Балаган Лимитед - Танцуют все (2009) [MP3|320 kbps]<Pop/Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мальчик из Нальчика
+2. Яблонька (feat dj Neomaster)
+3. Че ты хошь (feat dj Kirill Clash)
+4. Снег-снежок (feat dj Kirill Clash)
+5. Брошу-полюблю. Дуэт с Алисой Мон
+6. Чтоб тебя (feat dj Kirill Clash)
+7. Елочка (feat dj Kirill Clash)
+8. Канарейка (feat dj Kirill Clash)
+9. Три часа (feat dj NeoMaster)
+10. Сон мой. Дуэт с Органической леди(   Читать дальше...   )Жанр: Pop/FolkПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972858   (980608) от 07.01.2016
 
 Егор Крид - Холостяк (2015) Deluxe Edition [MP3|320 кб/с] <Pop>
@@ -6,7 +105,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980608.jpg" />
 </div>
 
 
@@ -35,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979832.jpg" />
 </div>
 
 
@@ -70,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977948.jpg" />
 </div>
 
 
@@ -99,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977371.jpg" />
 </div>
 
 
@@ -134,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977047.jpg" />
 </div>
 
 
@@ -163,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974804.jpg" />
 </div>
 
 
@@ -198,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969692.jpg" />
 </div>
 
 
@@ -227,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969558.jpg" />
 </div>
 
 
@@ -256,7 +355,7 @@ Artik & Asti - 7 (Part 2) (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969482.jpg" />
 </div>
 
 
@@ -285,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961986.jpg" />
 </div>
 
 
@@ -314,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961939.jpg" />
 </div>
 
 
@@ -343,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961922.jpg" />
 </div>
 
 
@@ -372,7 +471,7 @@ Reflex - Сойти С Ума (2002) [MP3|320 Kbps] <Pop, Europop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961888.jpg" />
 </div>
 
 
@@ -401,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961844.jpg" />
 </div>
 
 
@@ -430,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961813.jpg" />
 </div>
 
 
@@ -459,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961807.jpg" />
 </div>
 
 
@@ -488,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961786.jpg" />
 </div>
 
 
@@ -517,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952227.jpg" />
 </div>
 
 
@@ -546,7 +645,7 @@ IOWA - #людимаяки (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952178.jpg" />
 </div>
 
 
@@ -575,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950342.jpg" />
 </div>
 
 
@@ -610,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948113.jpg" />
 </div>
 
 
@@ -639,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946580.jpg" />
 </div>
 
 
@@ -668,7 +767,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946568.jpg" />
 </div>
 
 
@@ -682,93 +781,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7506ACF63F2AC74F6B0235D045BE8054B26A8BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361326   (946565) от 25.02.2020
-
-Акула - Акула (2010) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Утро без тебя (3:23)
-02. Непонятно, почему (3:16)
-03. Она (3:13)
-04. Слова (3:21)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540DAFFBCE5D43549C01256393F4B990656B3C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361323   (946536) от 25.02.2020
-
-Малолетка (Акула) - Где-то звёзды (1999) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночь (4:26)
-02. Увидимся (dj zoomer club mix) (4:09)
-03. Дождь (4:04)
-04. Я люблю тебя (4:27)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88ED192CC7C4E53A5098B2B52068C85AB5AC542D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 26359   (945442) от 07.01.2017
-
-VA - Союз 18 (1996) [MP3|320 Kbps] <Pop>
-
->>След.
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник студии звукозаписи "Союз" № 1801. Профессор Лебединский - Лимбо-бимбо (4:32)
-02. Таня Буланова - Ясный мой свет (3:28)
-03. Михаил Шуфутинский - Иллюзия (3:55)
-04. Наталья Ветлицкая - Шила я платье (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212A06FA584228A6560EE610D0AC447D53B8E653
 ```
 
 https://mybot314.ru/tekegram_catalog/

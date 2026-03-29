@@ -1,3 +1,32 @@
+###  Публикация: 1745761   (104976) от 28.08.2024
+
+Omar and The Howlers - Aggressive Country (2024) [MP3|320 Kbps] <Blues Rock, Country Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Little Woman [00:02:01]
+02 - Last of the Hub City Cowboys [00:01:55]
+03 - Brain Cloudy Blues [00:03:41]
+04 - Haunted House [00:02:40](   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56121856EE549E01CB1AA0AAC829B80C2553CED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822724   (104454) от 09.10.2025
 
 Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -6,7 +35,7 @@ Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104454.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nuno Mindelis - Brazilian Blues (2013) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103960.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Joe Bonamassa - Different Shades Of Blue - Overdrive (2014) Reissue, 2024, 10th 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103709.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrys
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103193.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Marvin Gaye - Greatest Hits Live (1974) Remaster, 2024, Cult Legends [MP3|320 Kb
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101533.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Mick Martin and the Blues Rockers - Way Down South (2006) [MP3|320 кб/с]<Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99135.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ VA - Bottleneck Blues Anthology (2011) 2CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98731.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Ruthie Foster - Let It Burn (2012) [MP3|~245 кб/с (V0)]<Blues, Gospel, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97145.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ Danny Thurmer & The Uptown Road House Devils - A Rockin Blues Album (2012) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96556.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ Big Shanty - Collection (2011) (2 Disc Set) [MP3|320 кб/с]<Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96555.jpg" />
 </div>
 
 
@@ -317,7 +346,7 @@ Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93853.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Big Joe Turner - All The Classic Hits 1938-1952 (2003) 5 CD BoxSet [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90789.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ Buck 69 - When She Whispers Your Name (2007) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81788.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ Ray Charles - Singular Genius: The Complete ABC Singles (2011) 5CD [MP3|320 kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72105.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ Mourning [A] BLKstar - Flowers For The Living (2025) [MP3|320 Kbps] <Soul, afrof
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66464.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ Anthony Krizan - Cool Shade of Blue (2025) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65731.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65328.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ Jeff Michaels - 3 Albums (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56767.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ Slash - Orgy of the Damned (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56347.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ Blues Dudes - Organ Blues (2013) [MP3|320 Kbps] <Blues, Organ, Instrumental>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54675.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ Van Morrison - Marin, San Francisco, Sept 71 (2024) [MP3|320 Kbps] <Jazz, Funk, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43669.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ Layla Zoe - Into the Blue (2024) Live in Concert [MP3|320 Kbps] <Hard Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43131.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ Beth Hart - You Still Got Me (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39599.jpg" />
 </div>
 
 
@@ -712,7 +741,7 @@ KAT Blue & The True Believers - Start Believin'... (2024) [MP3|320 Kbps] <Blues,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31704.jpg" />
 </div>
 
 
@@ -741,7 +770,7 @@ Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30780.jpg" />
 </div>
 
 
@@ -755,35 +784,6 @@ Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F9C6D15A46B3ECF63D428B98050237DE70CF3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799008   (16827) от 26.05.2025
-
-Gary Moore - Gary Moore Live From Baloise Session (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, Pretty Woman (Live) [05:19]
-02. Since I Met You Baby (Live) [05:04]
-03. Thirty Days (To Come Back Home) (Live) [03:57]
-04. I Love You More Than You'll Ever Know (Live) [12:25](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A575F286BE0ADD0B3D1D9F643ED294751455E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,64 @@
+###  Публикация: 546841   (477070) от 14.09.2012
+
+VA - Trance Tattoe #23 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akira Kayosa & Bevan Miller fe - Phase 3 (Original Mix)
+02. Bartlett Bros., Matt Loki & Ti - Sweet Child (Fabio XB Rework)
+03. Cathy Burton & Omnia - Hearts Connected (Original Mix
+04. Dave Silcox feat. Amy Pearson - This Is Love
+05. Ehren Stowers - Enigma
+06. Faruk Sabanci & Mark Sixma - Starburst (Original Mix)
+07. MaRLo - Megalodon (Original Mix)
+08. Nash & Pepper pres. Ostrega - First Scream (Mike Foyle Remix
+09. Protoculture - Cobalt (Original Mix)
+10. Ralphie B. - Massive (James Dymond Rework)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A91E5526F783E8C524978E24503E4455A169FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547047   (477069) от 14.09.2012
+
+DJ Decibel - Be_Progressive (2006) [MP3|320 кб/с]<Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477069.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: Progressive TranceПродолжительность: 01:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4A4B3825DD3CD273BE4505A39D96033DED9FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547044   (477058) от 14.09.2012
 
 VA - Битва DJ: Beauty vs. Bruno (2007) [MP3|320 кб/с]<Electro, Techno, Tech House>
@@ -6,7 +67,7 @@ VA - Битва DJ: Beauty vs. Bruno (2007) [MP3|320 кб/с]<Electro, Techno, T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477058.jpg" />
+  <img src="Z:/picture/008/save_picture_477058.jpg" />
 </div>
 
 
@@ -41,7 +102,7 @@ VA - DJ Tapolsky - Drum and Bass vol.6 (2002) [MP3|320 кб/с]<Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476901.jpg" />
+  <img src="Z:/picture/008/save_picture_476901.jpg" />
 </div>
 
 
@@ -76,7 +137,7 @@ VA - Night Flight (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476778.jpg" />
+  <img src="Z:/picture/008/save_picture_476778.jpg" />
 </div>
 
 
@@ -111,7 +172,7 @@ VA - DJ Anna Lee - 7 Days Of Love (2005) [MP3|320 кб/с]<Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476766.jpg" />
+  <img src="Z:/picture/008/save_picture_476766.jpg" />
 </div>
 
 
@@ -146,7 +207,7 @@ VA - RM Electro Sensation Vol.33 (2012) [MP3|320 кб/с]<Electro House, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476298.jpg" />
+  <img src="Z:/picture/008/save_picture_476298.jpg" />
 </div>
 
 
@@ -181,7 +242,7 @@ VA - Lounge At The Seashore 17 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476238.jpg" />
+  <img src="Z:/picture/008/save_picture_476238.jpg" />
 </div>
 
 
@@ -210,7 +271,7 @@ VA - Summer Trance Confession United (2017) [MP3|320 Kbps] <Trance, Melodic, Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476180.jpg" />
+  <img src="Z:/picture/008/save_picture_476180.jpg" />
 </div>
 
 
@@ -239,7 +300,7 @@ VA - South Beach Vocal Trance Party (2015) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475814.jpg" />
+  <img src="Z:/picture/008/save_picture_475814.jpg" />
 </div>
 
 
@@ -268,7 +329,7 @@ VA - Music compilation September (2015) [MP3|320 кб/с]<House, Electro, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475795.jpg" />
+  <img src="Z:/picture/008/save_picture_475795.jpg" />
 </div>
 
 
@@ -297,7 +358,7 @@ VA - Infectious Sounds: Bass Line (2016) [MP3|188-320 Kbps] <Drum and Bass, Dubs
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475347.jpg" />
+  <img src="Z:/picture/008/save_picture_475347.jpg" />
 </div>
 
 
@@ -326,7 +387,7 @@ VA - Neon Glow: Techno Sound Party (2019) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475199.jpg" />
+  <img src="Z:/picture/008/save_picture_475199.jpg" />
 </div>
 
 
@@ -355,7 +416,7 @@ VA - Trance Hits: Next Generation (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475194.jpg" />
+  <img src="Z:/picture/008/save_picture_475194.jpg" />
 </div>
 
 
@@ -384,7 +445,7 @@ VA - Record Super Chart 551 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474094.jpg" />
+  <img src="Z:/picture/008/save_picture_474094.jpg" />
 </div>
 
 
@@ -413,7 +474,7 @@ VA - GNO: Top Tunes Disco Mix (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474004.jpg" />
+  <img src="Z:/picture/008/save_picture_474004.jpg" />
 </div>
 
 
@@ -442,7 +503,7 @@ VA - Herbst Chillout (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473584.jpg" />
+  <img src="Z:/picture/008/save_picture_473584.jpg" />
 </div>
 
 
@@ -471,7 +532,7 @@ VA - Chill Cakes Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473580.jpg" />
+  <img src="Z:/picture/008/save_picture_473580.jpg" />
 </div>
 
 
@@ -500,7 +561,7 @@ VA - Wait For Your Heart (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473579.jpg" />
+  <img src="Z:/picture/008/save_picture_473579.jpg" />
 </div>
 
 
@@ -529,7 +590,7 @@ VA - Deluxe Chilling Songs (2015) [MP3|320 кб/с]<Electronic, Downtempo, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473576.jpg" />
+  <img src="Z:/picture/008/save_picture_473576.jpg" />
 </div>
 
 
@@ -558,7 +619,7 @@ VA - Beatport Trance Pack  (29.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473431.jpg" />
+  <img src="Z:/picture/008/save_picture_473431.jpg" />
 </div>
 
 
@@ -587,7 +648,7 @@ VA - Remember Me Smiling (2015) [MP3|320 кб/с]<Trance, Psytrance, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473337.jpg" />
+  <img src="Z:/picture/008/save_picture_473337.jpg" />
 </div>
 
 
@@ -616,7 +677,7 @@ VA - Trance Flaming Beautiful (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473301.jpg" />
+  <img src="Z:/picture/008/save_picture_473301.jpg" />
 </div>
 
 
@@ -645,7 +706,7 @@ VA - The Best Of Miсrofunk [Compiled by Zebyte] (2016) [MP3|320-416 Kbps] <Miс
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473183.jpg" />
+  <img src="Z:/picture/008/save_picture_473183.jpg" />
 </div>
 
 
@@ -674,7 +735,7 @@ Nic ZigZag - Winter Road Mix (2012) [MP3|320 кб/с]<Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472424.jpg" />
+  <img src="Z:/picture/008/save_picture_472424.jpg" />
 </div>
 
 
@@ -709,7 +770,7 @@ VA - Hardtrance Worldwide (2012) [MP3|320 кб/с]<Hard Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472419.jpg" />
+  <img src="Z:/picture/008/save_picture_472419.jpg" />
 </div>
 
 
@@ -729,64 +790,6 @@ VA - Hardtrance Worldwide (2012) [MP3|320 кб/с]<Hard Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CFDB565970BA3446CCC88ADD58FCE689C096218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057835   (472332) от 29.09.2016
-
-VA - Record Russian Mix Top 100 Сентябрь 2016 (2016) [MP3|320 Kbps] <Club House, Pop-Dance, Electro House, House, Dance, Remixes>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472332.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.AlunaGeorge & DJ Kuba & Neitan - Mean What I Mean (DJ Vadim Adamov Mash Up)
-002.Andrey Keyton, Deepjack Feat. Irina GI - Give it Back (Original Mix)
-003.Andy Wait vs Dirty South - Let It Body (DJ Kapuzen & Steve Kauf Bootleg)
-004.Armand Van Helden vs. Marco Van Bassken vs. Serebro - I Want Your Mama (DJ Kirillich Mashup)(   Читать дальше...   )Жанр: Club House, Pop-Dance, Electro House, House, Dance, RemixesПродолжительность: 07:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC53C9C9371CCD2A58568537876DBE22C2C5D870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058127   (471433) от 30.09.2016
-
-VA - Beatport Trance Pack  (30.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaimo K - Peek-A-Boo (Original Mix)  7:08
-02. Chris Metcalfe - Stardust (Original Mix)  6:27
-03. Dennis Sheperd - Dare To Dream (NoMosk Remix)  6:16
-04. Richard Durand - Dark Rising  6:09(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 05:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C792A9883F71BF33D444212F27F3D551DBDEE09
 ```
 
 https://mybot314.ru/tekegram_catalog/

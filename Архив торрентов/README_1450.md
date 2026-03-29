@@ -6,7 +6,7 @@ Black Hole - The Best Of (2018) [MP3|320 Kbps] <Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724463.jpg" />
+  <img src="Z:/picture/008/save_picture_724463.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724460.jpg" />
+  <img src="Z:/picture/008/save_picture_724460.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ ScreenToGif 2.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724435.jpg" />
+  <img src="Z:/picture/008/save_picture_724435.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FileZilla Server 1.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724432.jpg" />
+  <img src="Z:/picture/008/save_picture_724432.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Waterfox Current G4.0.7 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724424.jpg" />
+  <img src="Z:/picture/008/save_picture_724424.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724415.jpg" />
+  <img src="Z:/picture/008/save_picture_724415.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724413.jpg" />
+  <img src="Z:/picture/008/save_picture_724413.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Armin van Buuren - A State of Trance 766 (2016) [MP3|320 кб/с] <progressive t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724406.jpg" />
+  <img src="Z:/picture/008/save_picture_724406.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724404.jpg" />
+  <img src="Z:/picture/008/save_picture_724404.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Phaeleh - All That Remains (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724398.jpg" />
+  <img src="Z:/picture/008/save_picture_724398.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Internet Download Manager 6.28 Build 7 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724364.jpg" />
+  <img src="Z:/picture/008/save_picture_724364.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Govinda - Decadence (2016) [MP3|320 Kbps] <Dubstep, Psy Chill, Glitch Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724356.jpg" />
+  <img src="Z:/picture/008/save_picture_724356.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ CloZee - Harmony (2017) [MP3|320 Kbps] <Bass, Glitch Hop, World Music>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724355.jpg" />
+  <img src="Z:/picture/008/save_picture_724355.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gekijou Ban Perusona 3 Dai Ichi Shou / Persona 3 The Movie: Spring of Birth / П
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724344.jpg" />
+  <img src="Z:/picture/008/save_picture_724344.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Macrium Reflect v 7.2.4063 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724326.jpg" />
+  <img src="Z:/picture/008/save_picture_724326.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ JetBrains ReSharper Ultimate 2018.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724324.jpg" />
+  <img src="Z:/picture/008/save_picture_724324.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Dj TiM - Pr Trance 79 HAPPILY (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724290.jpg" />
+  <img src="Z:/picture/008/save_picture_724290.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ventoy 1.0.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724268.jpg" />
+  <img src="Z:/picture/008/save_picture_724268.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Soft4Boost Any Audio Record 4.9.7.399 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724257.jpg" />
+  <img src="Z:/picture/008/save_picture_724257.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Soft4Boost Any Audio Grabber 5.9.7.399 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724256.jpg" />
+  <img src="Z:/picture/008/save_picture_724256.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Soft4Boost AMPlayer 3.8.3.295 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724252.jpg" />
+  <img src="Z:/picture/008/save_picture_724252.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ ZD Soft Screen Recorder 9.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724246.jpg" />
+  <img src="Z:/picture/008/save_picture_724246.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724244.jpg" />
+  <img src="Z:/picture/008/save_picture_724244.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Dollar - Shooting Stars (1979) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Synth
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724235.jpg" />
+  <img src="Z:/picture/008/save_picture_724235.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ GreenCloud Printer Pro 7.8.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724234.jpg" />
+  <img src="Z:/picture/008/save_picture_724234.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724196.jpg" />
+  <img src="Z:/picture/008/save_picture_724196.jpg" />
 </div>
 
 

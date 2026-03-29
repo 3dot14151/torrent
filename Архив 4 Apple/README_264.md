@@ -6,7 +6,7 @@ Together 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712716.jpg" />
+  <img src="Z:/picture/008/save_picture_712716.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ CalendarPro for Google 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712705.jpg" />
+  <img src="Z:/picture/008/save_picture_712705.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ BookMacster 2.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712704.jpg" />
+  <img src="Z:/picture/008/save_picture_712704.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ File Juicer 4.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712703.jpg" />
+  <img src="Z:/picture/008/save_picture_712703.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ SiteSucker 2.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712690.jpg" />
+  <img src="Z:/picture/008/save_picture_712690.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Dragon Responsive Email Designer 2.50.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712541.jpg" />
+  <img src="Z:/picture/008/save_picture_712541.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ LensFlare Studio 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712536.jpg" />
+  <img src="Z:/picture/008/save_picture_712536.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Leap 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712461.jpg" />
+  <img src="Z:/picture/008/save_picture_712461.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ BusyCal 3.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712441.jpg" />
+  <img src="Z:/picture/008/save_picture_712441.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ OmniGraffle Pro 7.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712403.jpg" />
+  <img src="Z:/picture/008/save_picture_712403.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ OmniFocus Pro 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712350.jpg" />
+  <img src="Z:/picture/008/save_picture_712350.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Wondershare Filmora 8.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712276.jpg" />
+  <img src="Z:/picture/008/save_picture_712276.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Serial Box 06-2014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712196.jpg" />
+  <img src="Z:/picture/008/save_picture_712196.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Carbon Copy Cloner 4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712137.jpg" />
+  <img src="Z:/picture/008/save_picture_712137.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Logic Pro X 10.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711667.jpg" />
+  <img src="Z:/picture/008/save_picture_711667.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Xliff Editor 2.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711657.jpg" />
+  <img src="Z:/picture/008/save_picture_711657.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SQLPro Studio 2020.68 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711646.jpg" />
+  <img src="Z:/picture/008/save_picture_711646.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Scrutiny 9 v9.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711640.jpg" />
+  <img src="Z:/picture/008/save_picture_711640.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ eBookBinder 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711635.jpg" />
+  <img src="Z:/picture/008/save_picture_711635.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SoundSource 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711631.jpg" />
+  <img src="Z:/picture/008/save_picture_711631.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Integrity Plus 9.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711626.jpg" />
+  <img src="Z:/picture/008/save_picture_711626.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ SyncTime 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711615.jpg" />
+  <img src="Z:/picture/008/save_picture_711615.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ImageRanger Pro Edition 1.7.5.1604 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711603.jpg" />
+  <img src="Z:/picture/008/save_picture_711603.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Cinemagraph Pro 2.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711574.jpg" />
+  <img src="Z:/picture/008/save_picture_711574.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ SizeMyPics 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711526.jpg" />
+  <img src="Z:/picture/008/save_picture_711526.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ PDF Search 10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711522.jpg" />
+  <img src="Z:/picture/008/save_picture_711522.jpg" />
 </div>
 
 

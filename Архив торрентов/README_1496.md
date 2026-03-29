@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712944.jpg" />
+  <img src="Z:/picture/008/save_picture_712944.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712936.jpg" />
+  <img src="Z:/picture/008/save_picture_712936.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ USB Safely Remove 5.3.8.1233 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712933.jpg" />
+  <img src="Z:/picture/008/save_picture_712933.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4678.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712919.jpg" />
+  <img src="Z:/picture/008/save_picture_712919.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe Premiere Pro CC 2018 12.1.0.186 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712916.jpg" />
+  <img src="Z:/picture/008/save_picture_712916.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712894.jpg" />
+  <img src="Z:/picture/008/save_picture_712894.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wise Care 365 Pro 5.2.7.522 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712878.jpg" />
+  <img src="Z:/picture/008/save_picture_712878.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ DMG Audio – Plugins Bundle (2019.2.2) VST, VST3, AAX, RTAS (x86/x64) RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712876.jpg" />
+  <img src="Z:/picture/008/save_picture_712876.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Google Chrome 72.0.3626.121 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712864.jpg" />
+  <img src="Z:/picture/008/save_picture_712864.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ HWiNFO x32/x64 6.02-3670 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712854.jpg" />
+  <img src="Z:/picture/008/save_picture_712854.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712853.jpg" />
+  <img src="Z:/picture/008/save_picture_712853.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ DSP pack 1.41 (Winamp / Aimp3) RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712848.jpg" />
+  <img src="Z:/picture/008/save_picture_712848.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712833.jpg" />
+  <img src="Z:/picture/008/save_picture_712833.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712823.jpg" />
+  <img src="Z:/picture/008/save_picture_712823.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712822.jpg" />
+  <img src="Z:/picture/008/save_picture_712822.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712819.jpg" />
+  <img src="Z:/picture/008/save_picture_712819.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712815.jpg" />
+  <img src="Z:/picture/008/save_picture_712815.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ XMind 6 Pro 3.5.2 Build 201504270119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712811.jpg" />
+  <img src="Z:/picture/008/save_picture_712811.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712810.jpg" />
+  <img src="Z:/picture/008/save_picture_712810.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712805.jpg" />
+  <img src="Z:/picture/008/save_picture_712805.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712801.jpg" />
+  <img src="Z:/picture/008/save_picture_712801.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Fullmoon Trance Sensation Vol.1 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712794.jpg" />
+  <img src="Z:/picture/008/save_picture_712794.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712790.jpg" />
+  <img src="Z:/picture/008/save_picture_712790.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - True Uplifting Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712787.jpg" />
+  <img src="Z:/picture/008/save_picture_712787.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Balabolka 2.15.0.812 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712784.jpg" />
+  <img src="Z:/picture/008/save_picture_712784.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_712754.jpg" />
+  <img src="Z:/picture/005/save_picture_712754.jpg" />
 </div>
 
 

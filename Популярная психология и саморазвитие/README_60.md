@@ -1,3 +1,83 @@
+###  Публикация: 1310487   (546832) от 24.06.2019
+
+Павел Федоренко, Илья Качай | ВСДейка. Азбука невротика (2019) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546832.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей книге подробно и доступно раскрываются глубинные причины так называемой вегетососудистой дистонии и прочих тревожных состояний. Работа освещает влияние убеждений, в которые мы верим, на качество нашей жизни. В книге также можно обнаружить самый настоящий словарь, описывающий самые частые и актуальные проблемы, с которыми сталкивается тревожный невротик. (   Читать дальше...   )Жанр: Общая психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002C7D582A5DA1F24D6BF5CACA88032BF937E66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048373   (546268) от 02.09.2016
+
+Эндрю Лэй | Харизма. Искусство производить сильное и незабываемое впечатление (2013) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффект харизмы – это умение нацелить все свои способности на то, чтобы произвести сильное, неизгладимое впечатление на окружающих, оказывая на них эмоциональное и интеллектуальное влияние, то есть воздействуя на их мысли, отношение и поведение.
+
+Принято думать, что лишь немногие обладают харизмой. Как будто речь идет о мистических, волшебных качествах, дарованных (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, достижение успехаФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43450AD1B4CF02F1FE955EB3918B5D5B3CC73802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048515   (545471) от 03.09.2016
+
+Аллан Пиз, Барбара Пиз | Почему мужчины хотят секса, а женщины любви (2011) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни для кого не секрет, что в одинаковых ситуациях мужчины и женщины чаще всего ведут себя совершенно по-разному. Когда же дело касается интимной жизни, различия в поведении и в отношении к одним и тем же вещам могут достигать просто космических масштабов, что отнюдь не способствует укреплению взаимопонимания и, более того, реально мешает получать удовольствие от (   Читать дальше...   )Жанр: Самосовершенствование, психология сексуальностиФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA2475BE166E686587B42F84182D6FE1ED2DCB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048848   (545470) от 03.09.2016
 
 Мария Владимирова | Трансформация массового сознания под воздействием средств массовой информации (2011) [PDF]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545470.jpg" />
+  <img src="Z:/picture/008/save_picture_545470.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545454.jpg" />
+  <img src="Z:/picture/008/save_picture_545454.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545272.jpg" />
+  <img src="Z:/picture/008/save_picture_545272.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545109.jpg" />
+  <img src="Z:/picture/008/save_picture_545109.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544350.jpg" />
+  <img src="Z:/picture/008/save_picture_544350.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544270.jpg" />
+  <img src="Z:/picture/008/save_picture_544270.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543719.jpg" />
+  <img src="Z:/picture/008/save_picture_543719.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543327.jpg" />
+  <img src="Z:/picture/008/save_picture_543327.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543320.jpg" />
+  <img src="Z:/picture/008/save_picture_543320.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543097.jpg" />
+  <img src="Z:/picture/008/save_picture_543097.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542111.jpg" />
+  <img src="Z:/picture/008/save_picture_542111.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540832.jpg" />
+  <img src="Z:/picture/008/save_picture_540832.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540824.jpg" />
+  <img src="Z:/picture/008/save_picture_540824.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540777.jpg" />
+  <img src="Z:/picture/008/save_picture_540777.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540644.jpg" />
+  <img src="Z:/picture/008/save_picture_540644.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538993.jpg" />
+  <img src="Z:/picture/008/save_picture_538993.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538855.jpg" />
+  <img src="Z:/picture/008/save_picture_538855.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538640.jpg" />
+  <img src="Z:/picture/008/save_picture_538640.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538578.jpg" />
+  <img src="Z:/picture/008/save_picture_538578.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538454.jpg" />
+  <img src="Z:/picture/008/save_picture_538454.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538375.jpg" />
+  <img src="Z:/picture/008/save_picture_538375.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538159.jpg" />
+  <img src="Z:/picture/008/save_picture_538159.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537978.jpg" />
+  <img src="Z:/picture/008/save_picture_537978.jpg" />
 </div>
 
 
@@ -597,88 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E6FF9FDBB42BB4B5B768C567769E641CB939D7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557142   (537373) от 17.06.2022
-
-Джеффри Муссайефф Массон | Когда уходит друг. Как пережить потерю любимого питомца (2021) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537373.jpg" />
-</div>
-
-
-###  Подробнее
-
-У миллионов людей есть домашние питомцы, но общество до сих пор не вывело какой-либо формулы, позволяющей нам проявлять свои чувства, проживать и облегчать боль, которую мы испытываем, потеряв любимца. Эта книга заполняет пробел в знании, как смириться с этой потерей.
-
-Автор рассказывает о собаках, котах, лошадях, птицах, вомбатах и других животных, ставших для своих (   Читать дальше...   )Жанр: Популярная психологияФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4439B705F43E3B82AA198FE620DBB75161C2354B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239642   (536710) от 06.08.2018
-
-Клейтон Кристенсен и др. | Стратегия жизни (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему так часто погоня за должностями и зарплатами не приносит счастья? Почему близкие не понимают нас? Почему цели, к которым мы стремимся, часто не приносят ничего, кроме разочарования? Эти и многие другие вопросы возникли у гуру менеджмента Клейтона Кристенсена после нескольких встреч выпускников Гарвардской школы бизнеса. Он обнаружил, что за внешними атрибутами (   Читать дальше...   )Жанр: Личная эффективность, Саморазвитие/личностный рост, Советы от гуруФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132BBC7E421C89D25F3E448366D71525ABB1713C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239632   (536571) от 06.08.2018
-
-Сергей Фаер | Траблшутинг: Как решать нерешаемые задачи, посмотрев на проблему с другой стороны (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежедневно мы сталкиваемся с десятками задач, большинство из которых просто не замечаем: однажды мы их решили и при повторных ситуациях действуем по шаблону. По-настоящему думать мы начинаем, когда сталкиваемся с задачей, не имеющей однозначного решения. Такие ситуации выбивают нас из колеи.
-
-Говорят, что правильно поставленная задача – это половина успеха. На самом (   Читать дальше...   )Жанр: Личная эффективностьФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6C67DD92F83F0EF5026A74773A2A5B999AAE13
 ```
 
 https://mybot314.ru/tekegram_catalog/

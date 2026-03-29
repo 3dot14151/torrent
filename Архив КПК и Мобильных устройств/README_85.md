@@ -1,3 +1,29 @@
+###  Публикация: 1206761   (291071) от 17.11.2018
+
+Journey - дневник, журнал v2.7.0C [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встаньте на путь самосовершенствования, повышая качество жизни, любви и здоровья. Фиксируйте события, удачи и маленькие секреты вашей жизни, и вспоминайте эти прекрасные моменты вместе с Journey. Нам доверяют миллионы пользователей! Journey - идеальный компаньон, который сохранит ваши личные воспоминания на всю жизнь.Тип издания: Пиратка (разблокированная)Релиз состоялся: 16.11.2018Разработчик: Two App Studio Pte. Ltd.Поддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882C1EC6151549A9AF47146B9CD8C24B290F166B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185305   (291033) от 22.11.2017
 
 My Pretend Construction Workers - Little Builders [apk] v1.2 [En]
@@ -6,7 +32,7 @@ My Pretend Construction Workers - Little Builders [apk] v1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291033.jpg" />
+  <img src="Z:/picture/008/save_picture_291033.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ HD Widgets v4.4.1 [Ru/Multi] - погодные виджеты для планш
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290696.jpg" />
+  <img src="Z:/picture/008/save_picture_290696.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290659.jpg" />
+  <img src="Z:/picture/008/save_picture_290659.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290318.jpg" />
+  <img src="Z:/picture/008/save_picture_290318.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289185.jpg" />
+  <img src="Z:/picture/008/save_picture_289185.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Speeding Ball 1.01 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288793.jpg" />
+  <img src="Z:/picture/008/save_picture_288793.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Cinema FV-5 v1.52 [Ru/Multi] - Видео камера с расширенным
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288625.jpg" />
+  <img src="Z:/picture/008/save_picture_288625.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ File Commander - File Manager Premium 3.9.14732  [Ru] - Файловый мен�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287219.jpg" />
+  <img src="Z:/picture/008/save_picture_287219.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287074.jpg" />
+  <img src="Z:/picture/008/save_picture_287074.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ MyGDZ 1.0.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286090.jpg" />
+  <img src="Z:/picture/008/save_picture_286090.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Zedge Ringtones & Wallpapers 5.8.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286080.jpg" />
+  <img src="Z:/picture/008/save_picture_286080.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Bloody Harry 2.1.4 + Mod [Money/Ammo] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285890.jpg" />
+  <img src="Z:/picture/008/save_picture_285890.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Zaycev.net 4.3.5.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285887.jpg" />
+  <img src="Z:/picture/008/save_picture_285887.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ eReader Prestigio 5.9.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285710.jpg" />
+  <img src="Z:/picture/008/save_picture_285710.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Children TV 37 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284618.jpg" />
+  <img src="Z:/picture/008/save_picture_284618.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284461.jpg" />
+  <img src="Z:/picture/008/save_picture_284461.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ KAKTAM? v1.4.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284286.jpg" />
+  <img src="Z:/picture/008/save_picture_284286.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Flightradar24 - Flight Tracker 6.5.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282510.jpg" />
+  <img src="Z:/picture/008/save_picture_282510.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ MobiTV v2.3 [En] - просмотр телеканалов со всего ми�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282144.jpg" />
+  <img src="Z:/picture/008/save_picture_282144.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ DiskUsage 3.7.1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282136.jpg" />
+  <img src="Z:/picture/008/save_picture_282136.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Sword Of Xolan 1.0.9 Mod [Money] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280275.jpg" />
+  <img src="Z:/picture/008/save_picture_280275.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Shh!.Premium 1.1.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280166.jpg" />
+  <img src="Z:/picture/008/save_picture_280166.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Death Worm 1.65 Mod [Unlocked] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278512.jpg" />
+  <img src="Z:/picture/008/save_picture_278512.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277986.jpg" />
+  <img src="Z:/picture/008/save_picture_277986.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277867.jpg" />
+  <img src="Z:/picture/008/save_picture_277867.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238228   (277510) от 25.11.2018
-
-Ghosts Room v1.2 [Ru/En] Лучшие фильмы ужасов в одном приложении
-
->>След.
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghosts Room - это приложение, которое позволяет просматривать десятки фильмов ужасов прямо на своем мобильном устройстве Android и полностью бесплатно. В коллекции собраны по возможности лучшие подборки фильмов, плюс приложение оптимизировано для наименьшего потребления вашего интернет трафика.Тип издания: FreeРелиз состоялся: 26.07.2018Разработчик: ShostBoxПоддерживаемая ОС: Android: 4.1 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0037901C0F2AE43BFC1634DB8EBD78C2C887CF22
 ```
 
 https://mybot314.ru/tekegram_catalog/

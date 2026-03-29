@@ -1,3 +1,148 @@
+###  Публикация: 1086824   (602377) от 29.04.2022
+
+VA - Where Legends Live (2005) Музыкальное приложение к журналу Classic ROCK № 4-5 (37) [APE|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Idol - Scream
+02. Stereophonics - Superman
+03. Paradise Lost - All You Leave Behind
+04. The Datsuns - Girls Best Friend(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15182AC9280621883E972DEA54FB2BDA2ACAC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547813   (602045) от 30.04.2022
+
+Demonauta - Low Melodies About Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinto
+02. Ashes
+03. Evil Minds
+04. Garbage Breeder(   Читать дальше...   )Жанр: Stoner Rock, Doom Metal, Heavy Fuzz RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969B6045E4EFD02C7F10F9519B880936E4B32AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547797   (601987) от 30.04.2022
+
+The William Loveday Intention - Early Demos, Vol. 1 (Vipers Tongue) (2022) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock, Psychedelic, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Die (Take 1) [00:02:44]
+02. Cave [00:02:41]
+03. I'm Hanging By a Tenuous Thread [00:03:30]
+04. I Don't Like the Man I Am (Take 1) [00:04:03](   Читать дальше...   )Жанр: Garage Rock, Psychedelic, Blues RockПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E30C00066961A359FCC638AE956FFE80018E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298377   (601837) от 27.04.2019
+
+Queen - Innuendo (1991) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innuendo (06:32)
+02. I'm Going Slightly Mad (04:22)
+03. Headlong (04:38)
+04. I Can't Live With You (04:33)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969242059347B8258326851A09432CEC6A0198B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298404   (601836) от 27.04.2019
+
+Queen - Made in Heaven (1995) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Beautiful Day (02:32)
+02. Made in Heaven (05:25)
+03. Let Me Live (04:46)
+04. Mother Love (04:49)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136047EB01BDEEF07F158649F7424A7C59979146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298682   (601769) от 28.04.2019
 
 Prefab Sprout - The Gunman and Other Stories (2001) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop, Country>
@@ -6,7 +151,7 @@ Prefab Sprout - The Gunman and Other Stories (2001) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601769.jpg" />
+  <img src="Z:/picture/008/save_picture_601769.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Red Sand - Forsaken (2019) [FLAC|lossless|image + .cue] <Progressive Rock, Symph
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601623.jpg" />
+  <img src="Z:/picture/008/save_picture_601623.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Queen - Flаsh Gоrdоn: Original Soundtrack (1980) Japanese Edition, 2019 [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601606.jpg" />
+  <img src="Z:/picture/008/save_picture_601606.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Queen - Queen II (1974) Japanese Edition, 2018 [FLAC|lossless|image + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601587.jpg" />
+  <img src="Z:/picture/008/save_picture_601587.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Alan Parsons - The Secret (2019) [FLAC|Lossless|tracks + .cue] <Rock, Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601574.jpg" />
+  <img src="Z:/picture/008/save_picture_601574.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Queen - Greatest Hits (2001) Japanese Edition, 2019 [FLAC|lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601553.jpg" />
+  <img src="Z:/picture/008/save_picture_601553.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ This Raging Silence - Broken Oceans (2022) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601015.jpg" />
+  <img src="Z:/picture/008/save_picture_601015.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Emerson, Lake & Palmer - Once Upon A Time In South America (2015)  (4CD) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601000.jpg" />
+  <img src="Z:/picture/008/save_picture_601000.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Queen - Queen (1973) Japanese Edition, 2018 [FLAC|lossless| image + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600744.jpg" />
+  <img src="Z:/picture/008/save_picture_600744.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Siberian Tusk - Reapers By Trade (2022) [FLAC|Lossless|WEB-DL|tracks] <Physical,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600254.jpg" />
+  <img src="Z:/picture/008/save_picture_600254.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Marillion - Best Of Both Worlds (1997) [FLAC|Lossless]<Symphonic Rock, Classic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_598816.jpg" />
+  <img src="Z:/picture/005/save_picture_598816.jpg" />
 </div>
 
 
@@ -323,7 +468,7 @@ VA - Magna Carta Guitar Greats Volume 1 (2007) Licensed From – Magna Carta [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598376.jpg" />
+  <img src="Z:/picture/008/save_picture_598376.jpg" />
 </div>
 
 
@@ -352,7 +497,7 @@ The Gathering - Beautiful Distortion (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598219.jpg" />
+  <img src="Z:/picture/008/save_picture_598219.jpg" />
 </div>
 
 
@@ -381,7 +526,7 @@ Susie Ahern - Women Are Different (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598194.jpg" />
+  <img src="Z:/picture/008/save_picture_598194.jpg" />
 </div>
 
 
@@ -410,7 +555,7 @@ VA - Dazed & Confused - A Stoned-Out Salute to Led Zeppelin (2016) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597790.jpg" />
+  <img src="Z:/picture/008/save_picture_597790.jpg" />
 </div>
 
 
@@ -439,7 +584,7 @@ Tenebra - Moongazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596276.jpg" />
+  <img src="Z:/picture/008/save_picture_596276.jpg" />
 </div>
 
 
@@ -468,7 +613,7 @@ Glaswald - Gamechanger (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596275.jpg" />
+  <img src="Z:/picture/008/save_picture_596275.jpg" />
 </div>
 
 
@@ -497,7 +642,7 @@ Greg Howe - Greg Howe (1988) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596056.jpg" />
+  <img src="Z:/picture/008/save_picture_596056.jpg" />
 </div>
 
 
@@ -526,7 +671,7 @@ George Harrison - The Best Of George Harrison (1976) /EMI C2 46682/ [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595462.jpg" />
+  <img src="Z:/picture/005/save_picture_595462.jpg" />
 </div>
 
 
@@ -552,7 +697,7 @@ George Harrison - Best Of Dark Horse 1976-1989 (1989) Japan 22P2-3071 [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595447.jpg" />
+  <img src="Z:/picture/005/save_picture_595447.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Cats In Space - Daytrip To Narnia (2019) [FLAC|Lossless|tracks + .cue] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594840.jpg" />
+  <img src="Z:/picture/008/save_picture_594840.jpg" />
 </div>
 
 
@@ -597,151 +742,6 @@ Cats In Space - Daytrip To Narnia (2019) [FLAC|Lossless|tracks + .cue] <Classic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A77768489DD0B291F741CD5CB56C76B30DAAD06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300165   (594837) от 04.05.2019
-
-Hozier - Wasteland, Baby! (2019) [FLAC|lossless|image + .cue] <Rock, Indie Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Cried Power (Featuring Mavis Staples) (03:45)
-02. Almost (Sweet Music) (03:37)
-03. Movement (03:57)
-04. No Plan (05:31)(   Читать дальше...   )Жанр: Rock, Indie Rock, Blues RockПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E143567F464D1C57A80FA553FD9CF987B2878ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300071   (594530) от 04.05.2019
-
-Focus - 11 Albums, 1 Box Set (1970 - 2019) 24 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландская группа "Focus" начала работать в конце 60-х годов в следующем составе: Тийс Ван Леер (р. 31 марта 1948; орган, флейта), Мартин Дресден (бас) и Ханс Клевер (ударные). Эти музыканты хотели замутить что-нибудь в духе британской команды "Traffic", но вышло несколько иначе. Сначала коллектив оказался задействованным в постановке голландской (   Читать дальше...   )Список альбомов:
-1970 - In And Out Of Focus
-1971 - Moving Waves
-1972  - Focus 3Жанр: Progressive RockПродолжительность: 20:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36E51F9B783BE9FDF25E6CABAD2BAC9085D15FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039562   (594502) от 02.08.2016
-
-VA - Stars Of Rockabilly (2016) 3CD [FLAC|Lossless|image + .cue] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Cochran - Jeanie Jeanie Jeanie
-02. Gene Vincent - Who Slapped John?
-03. Wanda Jackson - Fujiyama Mama
-04. Johnny Horton - Honky Tonk Man(   Читать дальше...   )Жанр: RockabillyПродолжительность: 02:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A95A810D198AD67DF281EFAE4A055513403122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549237   (594021) от 06.05.2022
-
-Syberia - Statement on Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stolen Childhood (00:08:35)
-02 - Ain't.Care.About.Bullets (00:09:50)
-03 - Breathe (00:08:43)
-04 - Nothing Inside (00:07:06)(   Читать дальше...   )Жанр: Post-Rock, Post-MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4E95AB2A758D9DD54886B1BB5220CC5CBD2FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040060   (593656) от 03.08.2016
-
-Mashu - Elephants In Your Head? (1996) [WavPack|Lossless|image + .cue] <Сanterbury Scene, Prog Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжая давние традиции кентербери-супергрупп, Mashu родилась из десятилетнего сотрудничества Хью Хоппера и Марка Хюинса на почве импровизаций с широким использованием электрических инструментов и технологий Midi. С приходом Шьямала Мэйтры (Gong), родившегося, к слову, в Индии, к их музыке добавился совершенно новый, экзотический аромат, хотя она по-прежнему основывалась (   Читать дальше...   )1. Used To (5:42)
-2. Chariot (7:18)
-3. Sea Beyond (3:32)
-4. Jus De Peche (3:08)(   Читать дальше...   )Жанр: Сanterbury Scene, Prog Rock, Jazz RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D31A2AB0EA692969DB62DC428AE2B40977F575E
 ```
 
 https://mybot314.ru/tekegram_catalog/

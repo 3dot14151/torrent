@@ -1,3 +1,90 @@
+###  Публикация: 1518062   (161199) от 18.12.2021
+
+Akroasis - Ilion (2021) [FLAC|Lossless|image + .cue] <Thrash, MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulysses' Fate (05:26)
+02. Master of the Gods (05:13)
+03. Doomed (05:49)
+04. Human Sacrifice (04:45)(   Читать дальше...   )Жанр: Thrash, MDMПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BD868236B8FD562C0528D273CBB9533AE8AF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518073   (161175) от 18.12.2021
+
+Times Of Grace - The Hymn Of A Broken Man (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strength In Numbers (4:17)
+02. Fight For Life (3:37)
+03. Willing (3:24)
+04. Where The Spirit Leads Me (3:37)(   Читать дальше...   )Жанр: Alternative Rock, Heavy Metal, MetalcoreПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9E9FAA0B6353B18E41E3112A9224372DE5A440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517987   (161150) от 18.12.2021
+
+Blo.Torch - Blo.Torch (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spanish Sun [06:06]
+02. Mount Ygman [04:47]
+03. King Of Karnage [05:51]
+04. Inkblack Sky [05:23](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0B14108643FB65D75A0C50051330F6AA8AEA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518079   (161126) от 18.12.2021
 
 Times Of Grace - Songs Of Loss And Separation (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Heavy Metal, Metalcore>
@@ -6,7 +93,7 @@ Times Of Grace - Songs Of Loss And Separation (2021) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161126.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Acrid - Amalgamate (1999) Reissue, 2017, Self-released [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160873.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Fleurety - Min Tid Skal Komme (1995) Remastered 2019 [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160871.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Skarz - What Remains (2020) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160700.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ HateFrame - Sign of Demise (2005) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160699.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Red Harvest - New World Rage Music (2001) Promo CD [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160697.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Red Harvest - Sick Transit Gloria Mundi (2002) Promo CD [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160694.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Granada - Prisionego (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160693.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ WiszdomStone - Rise (2009) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160692.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Guillotine - Metal in the Vein (2007) [WavPack|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160691.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Celestial Crown - Rebirth (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160690.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Prestige - Reveal the Ravage (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160688.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Wizard - Head Of The Deceiver (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160687.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160685.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160684.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160683.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160682.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160678.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160677.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Angel Dust - Of Human Bondage (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160676.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Darkside of Innocence - Infernum Liberus Est (2010) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160675.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Evemaster - MMIV Lacrimae Mundi (2005) [FLAC|Lossless|image + .cue] <Melodic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160673.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Bethlehem - Lebe Dich Leer (2019) 2CD [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160671.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Bethlehem - Lebe Dich Leer (2019) 2CD [FLAC|Lossless|image + .cue] <Dark Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AF72A738FAB7FBDAAACFBC1EF232F35D7EC4840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674872   (160662) от 07.11.2023
-
-Necrophagia - The Divine Art Of Torture (2003) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blaspheme The Body
-02.  Upon Frayed Lips Of Silence
-03.  Parasite Eve
-04.  Maim Attraction(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36L52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E249E29CD2152E84013C53ADA12BAAFF3AFE4DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674854   (160654) от 07.11.2023
-
-Angel Dust - Border Of Reality (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Border Of Reality
-02. No More Faith
-03. Nightmare
-04. Centuries(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B0C7698CA6D14929429F6C4241EF6336CFD72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674864   (160648) от 07.11.2023
-
-Red Harvest - Cold Dark Matter (2000) Promo CD [APE|Lossless|image + .cue] <Industrial Metal, Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omnipotent
-02. Last Call
-03. Absolut Dunkel:heit
-04. Cold Dark Matter(   Читать дальше...   )Жанр: Industrial Metal, Death Metal, Thrash MetalПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F56C75C3BF3C33F446B51BAA6B2252B3DD0F3DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

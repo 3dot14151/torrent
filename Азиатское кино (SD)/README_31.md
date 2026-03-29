@@ -1,3 +1,29 @@
+###  Публикация: 1045224   (558981) от 23.08.2016
+
+Спасти мистера Ву / Jie jiu Wu xian sheng / Saving Mr. Wu (2015) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях, которые произошли с китайским актёром в 2004 году. Трое мужчин, переодетые в форму полицейских, выкрали актёра и потребовали выкуп в три миллиона юаней.Производство: КитайЖанр: боевик, триллер, драма, криминалРежиссер: Дин ШэнАктеры: Энди Лау, Лю Е, Цяньюан Ванг, Рафу Ву, Ксиорай Джау, Лу ПенгПеревод: Двухголосый закадровый, любительский (DeadSno & den904)Язык субтитров: АнглийскийПродолжительность: 01:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD647011915BA320D9BB3A0EC72680DE7F9805F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924248   (558862) от 03.08.2015
 
 Кулак дракона / Long quan / Dragon Fist (1979) BDRip
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558862.jpg" />
+  <img src="Z:/picture/008/save_picture_558862.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557315.jpg" />
+  <img src="Z:/picture/008/save_picture_557315.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556822.jpg" />
+  <img src="Z:/picture/008/save_picture_556822.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556706.jpg" />
+  <img src="Z:/picture/008/save_picture_556706.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554776.jpg" />
+  <img src="Z:/picture/008/save_picture_554776.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553430.jpg" />
+  <img src="Z:/picture/008/save_picture_553430.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552087.jpg" />
+  <img src="Z:/picture/008/save_picture_552087.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549470.jpg" />
+  <img src="Z:/picture/008/save_picture_549470.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548370.jpg" />
+  <img src="Z:/picture/008/save_picture_548370.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548369.jpg" />
+  <img src="Z:/picture/008/save_picture_548369.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548022.jpg" />
+  <img src="Z:/picture/008/save_picture_548022.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547755.jpg" />
+  <img src="Z:/picture/008/save_picture_547755.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547368.jpg" />
+  <img src="Z:/picture/008/save_picture_547368.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547326.jpg" />
+  <img src="Z:/picture/008/save_picture_547326.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542911.jpg" />
+  <img src="Z:/picture/008/save_picture_542911.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542694.jpg" />
+  <img src="Z:/picture/008/save_picture_542694.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541871.jpg" />
+  <img src="Z:/picture/008/save_picture_541871.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541128.jpg" />
+  <img src="Z:/picture/008/save_picture_541128.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540233.jpg" />
+  <img src="Z:/picture/008/save_picture_540233.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540021.jpg" />
+  <img src="Z:/picture/008/save_picture_540021.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536945.jpg" />
+  <img src="Z:/picture/008/save_picture_536945.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536941.jpg" />
+  <img src="Z:/picture/008/save_picture_536941.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536926.jpg" />
+  <img src="Z:/picture/008/save_picture_536926.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536447.jpg" />
+  <img src="Z:/picture/008/save_picture_536447.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536365.jpg" />
+  <img src="Z:/picture/008/save_picture_536365.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E93D34E200E16FD5C439AA3B74C744ED76EB363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049154   (536285) от 09.09.2016
-
-Смерть и слава в Чандэ / Die Xue Gu Cheng / Death and Glory in Changde (2010) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536285.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Смерть и слава в Чандэ» является единственным китайским фильмом, посвящённым 65-летию великой победы над фашизмом, который вышел на экраны страны в 2010 году. Эта военная драма рассказывает об эпической битве в ноябре 1943 года, в которой 9 тысяч бойцов Гоминьдана героически сражались против 30-тысячной японской армии и задержали ее продвижение на юг Китая. (   Читать дальше...   )Производство: Китай, China Film Group Corporation (CFGC)Жанр: Военный, ДрамаРежиссер: Донг ШенАктеры: Рэй Луи, Юань Вэнькан, Ади Ань, Се Мэнвэй, Фань Лэй, Ян Цзы, Юй Чэнвань, Ван Цин, Фэн Баохуа, Ер Ху, Ан Исюан, Зи ЯнгПеревод: Одноголосый закадровыйПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B3188EFD56E2716D89E950A0FEB4BF926D955C
 ```
 
 https://mybot314.ru/tekegram_catalog/

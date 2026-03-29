@@ -1,3 +1,159 @@
+###  Публикация: 1705989   (60001) от 12.04.2024
+
+MInstAll v.10.03.2024 By Andreyonohov (ISO) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами обновленный 10 Марта 2024 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC38152EEECB1CF360F87DC883AD64290D904127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714983   (59995) от 12.04.2024
+
+Позывной «Пассажир» (2024) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59995.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 год. Молодой писатель Николай Рябинин живет в столице, проводит вечера в модных заведениях и не особо интересуется повесткой дня, пока не узнает от родителей, что его брат, с которым он давно рассорился, пропал без вести на Донбассе. Николай отправляется на поиски, не подозревая, что эта миссия навсегда изменит его жизнь.Производство: Россия / ВВП Альянс / Кинокомпания АльянсЖанр: драмаРежиссер: Илья КазанковАктеры: Антон Шагин, Виталий Кищенко, Сергей Горобченко, Алексей Шевченков, Александр Михайлов, Надежда Маркина, Сослан Фидаров, Никита Тезин, Алексей Дмитриев, Вадим РадченкоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC52F7B112783D2C6517FFA0974556D6D28D52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936732   (59989) от 12.04.2024
+
+Нарки / Нарко / Барыги / Narcos (2015) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начав с продажи первых скромных партий белого порошка, переправленных мелкими контрабандистами в Майами, никому не известный колумбийский жулик Пабло Эскобар за каких-то пару лет умудрился поставить на колени этот жадный до развлечений город. Тем временем местные органы правопорядка оказались вынуждены бросить все свои силы в борьбу с наркотрафиком, чтобы хоть как-то (   Читать дальше...   )Производство: США, Gaumont International TelevisionЖанр: драма, криминалРежиссер: Жозе Падилья, Гильермо НаварроАктеры: Вагнер Моура, Морис Комт, Джоанна Кристи, Бойд Холбрук, Педро Паскаль, Стефани Сигман, Роберто Урбина, Ана де ла Регера, Даниэль Кеннеди, Диего Катаньо и др.Перевод: Многоголосый профессиональный | LostFilmЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:57:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82142439207AE4866A9ECC834D8BB6ED01808576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714104   (59891) от 13.04.2024
+
+Avast Premium Security 24.3.6108 RePack by xetrin [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avast Premium Security – комплексный антивирус "все-в-одном", теперь еще более быстрый и эффективный благодаря переносу вычислительных процессов в облачное пространство. Крупнейшая в мире сеть обнаружения угроз, искусственный интеллект на основе облачных технологий и молниеносно быстрый анализ поведения выделяют наш антивирус среди всех остальных.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112CA90EDE224EF8C84AF4A0CD161C1C5FCBCE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714982   (59888) от 13.04.2024
+
+Фоллаут / Fallout (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) [EN / RU, EN, Multi Sub]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в далеком будущем в Лос-Анджелесе, через сотни лет после ядерной войны, уничтожившей или сильно видоизменившей все живое на планете. В подземных убежищах, построенных корпорацией «Волт-Тек», долгие десятилетия живут мирные граждане, которые скрываются от радиации, мутантов и бандитов. Однажды они отправляют на поверхность разведчицу Люси, (   Читать дальше...   )Производство: США / Kilter Films, Bethesda Game Studios, Amazon MGM StudiosЖанр: фантастика, боевик, драма, приключенияРежиссер: Джонатан Нолан, Клер Килнер, Фред Туа, Дэниэл Грэй Лонгино, Уэйн ЙипАктеры: Элла Пернелл, Аарон Мотен, Уолтон Гоггинс, Кайл МакЛахлен, Майк Дойл, Мойзес Ариас, Дэйл Дики, Майкл Эмерсон, Крис Парнелл, Зак Черри, Лесли Уггамс, Сарита ЧоудхуриПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (full, SDH) и др.Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9593379747DABDF215F65BB1BF7D6E87612B2169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714584   (59886) от 13.04.2024
+
+Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20685 (2024.04) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDA364E21D8A98B22D30BB2B7517CB116F9B3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675661   (59884) от 13.04.2024
 
 Слово пацана. Кровь на асфальте (2023) WEBRip [H.264/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-8 из 8)
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59884.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59789.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 04.2024 by OVGorskiy
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59781.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59780.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59687.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59658.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59584.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59460.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59371.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59246.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59057.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59047.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59046.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58953.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58943.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ FarCry по-русски (2015) [Ru] (1.1) Mod
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58941.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58933.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58815.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58533.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58525.jpg" />
 </div>
 
 
@@ -514,168 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85B74F50E2AD8F489838A6A4CD89B7DC1894082B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130832   (58523) от 26.04.2024
-
-Американские боги / American Gods (2017) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) Студия «Нота», LostFilm, AlexFilm, NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тень — человек с прошлым. Но теперь единственное, чего он хочет — это жить тихой и спокойной жизнью со своей женой в стороне от проблем. Пока он не узнает о её гибели в результате несчастного случая. По пути на похороны домой, когда сильнейший шторм сотрясает самолёт, ему представляется странный человек с соседнего кресла. Он называет себя мистер Среда. И он знает (   Читать дальше...   )Производство: США, Canada Film Capital, Fremantle Media North AmericaЖанр: фэнтези, драма, детективРежиссер: Дэвид Слэйд, Адам Кэйн, Винченцо НаталиАктеры: Рики Уиттл, Эмили Браунинг, Брюс Лэнгли, Йетиде Бадаки, Пабло Шрайбер, Иэн МакШейн, Криспин Гловер, Джиллиан Андерсон, Клорис Личмен, Петер Стормаре и др.Перевод: дублированный (Студия «Нота»); многоголосый профессиональный (LostFilm, AlexFilm (ненормативная лексика), NewStudio (ненормативная лексика))Язык озвучки: Русский, английскийСубтитры: русские, английские
-
-ВНИМАНИЕ! Присутствует ненормативная лексика.Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F4D960345F6FE54490C3D96990534A20005306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718217   (58422) от 27.04.2024
-
-Adobe Photoshop 2024 25.7.0.504 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2024 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC15FBA0A7423AAE81B4653C4146A8826D784E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719115   (58328) от 28.04.2024
-
-F-Secure VPN 19.4 (online installation) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обеспечьте безопасность и конфиденциальность своих цифровых моментов повсюду. Перед тем как устанавливать данный VPN настоятельно рекомендуется ознакомиться более подробно с его функциями на официальном сайте.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E22277FC7DF10CCA8CFDCA56D8BFF13CE3ECA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715418   (58316) от 28.04.2024
-
-Navitel / Навител: Официальные карты релиза Q2 2024 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58316.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Карты только для версий 9.13...(от 41 по 74)
-• Это первое обновление карт за 2024г.
-• Вышли они в свободный доступ 11.04.2024.
-• Карты для Навител обновляются несколько раз в год.(   Читать дальше...   )Релиз состоялся: 10.04.2024Разработчик: NavitelПоддерживаемая ОС: Android, WinCE, LinuxЯзык интерфейса: Ru/Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130913EA0719D17B997C048231F28A8A02F3ADB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718115   (58314) от 28.04.2024
-
-Горький 53 (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58314.jpg" />
-</div>
-
-
-###  Подробнее
-
-1953 год. Из-за массовой амнистии в СССР напряженная криминальная обстановка. В это же время в родной город Горький возвращается освободившийся из тюрьмы Иван Астафьев, бывший командир разведвзвода. И тут же становится жертвой нападения бандитов, а затем и ложного обвинения в избиении нападавших. Из беды выручает довоенный знакомый Ивана — капитан Шведов, который (   Читать дальше...   )Производство: Россия | «Кинокомпания ТРОМЕДИА»Жанр: Детектив, криминалРежиссер: Сергей КоротаевАктеры: Андрей Фролов, Алексей Барабаш, Екатерина Климова, Катерина Шпица, Александр Балуев, Алексей Макаров, Михаил Евланов, Александр Семчев, Любовь Константинова, Владимир БирюковСубтитры: РусскиеПродолжительность: ~00:49:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF98A9CBC52BDC52FBCD6ED6E4D3B39A33CE325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785568   (58310) от 28.04.2024
-
-Остаться в живых / Lost (2004-2010) BDRemux [H.264/1080p] (сезоны 1-6, серии 1-121 из 121) Первый канал
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавец-лайнер, совершающий полет из Сиднея в Лос-Анджелес, неожиданно терпит крушение. 48 пассажиров оказываются на пустынном острове посреди океана. Люди в панике. Надежда быть найденными довольно призрачна. Поэтому остается только одно: собраться с силами и постараться выжить на острове, начиненном множеством опасностей...Производство: США / Bad Robot, Touchstone Television, ABC SignatureЖанр: фантастика, детектив, фэнтези, триллер, драма, приключенияРежиссер: Джек Бендер, Стивен Уильямс, Пол А. ЭдвардсАктеры: Мэттью Фокс, Эванджелин Лилли, Джош Холлоуэй, Терри О’Куинн, Навин Эндрюс, Хорхе Гарсиа, Майкл Эмерсон, Эмили де Рэвин, Ким Юн-джин
-Дэниэл Дэ КимПеревод: Дублированный (Первый канал)Язык озвучки: Русский, английскийСубтитры: Русские (Forced - диалоги на корейском и надписи, Full), английскиеПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788A9D0D42E1FD7C67F3486D69DB3FF9275D067B
 ```
 
 https://mybot314.ru/tekegram_catalog/

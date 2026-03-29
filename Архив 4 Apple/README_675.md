@@ -1,3 +1,109 @@
+###  Публикация: 1704151   (114468) от 03.03.2024
+
+Serial Box & SerialSeeker 03-2024 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114468.jpg" />
+</div>
+
+
+###  Подробнее
+
+База серийных номеров проекта iSerial.
+В ней содержится информация по активации (серийные номера, информация о других методах активации) как для программ платформы PowerPC, так и Intel.
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: ©2002-2021 The Three MonkeysПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3671C90E58F78A51C6D640188D7AA5130A788D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704172   (114466) от 03.03.2024
+
+Navicat for SQLite on Mac 16.3.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиент Navicat для SQLite от PremiumSoft — это интегрированный инструмент с графическим пользовательским интерфейсом, позволяющий упростить администрирование SQLite и разработку баз данных. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F43540AC0645623C98C882D57068DC5E2B8F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704161   (114464) от 03.03.2024
+
+Navicat Charts Creator for Mac 1.2.16 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Charts Creator преобразует ваши данные в эффективные визуализации для выявления тенденций, закономерностей и выбросов. Упростите анализ данных и поделитесь своим рабочим пространством с коллегами, чтобы лучше поддерживать ваши бизнес-решения и стратегии.Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20E8727340AA94C92B691587F3111E14A57F546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704167   (114463) от 03.03.2024
+
+Navicat for MySQL for Mac 16.3.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat для MySQL Client от PremiumSoft — это интегрированный инструмент с графическим интерфейсом, позволяющий упростить администрирование MySQL и разработку баз данных. Расширенные функции позволяют создавать модели данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять локальным или удаленным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B0037725FEC6074A2C7642B4390ABEE602ADFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704285   (114461) от 03.03.2024
 
 Navicat for SQL Server on Mac 16.3.6 [Multi/Ru]
@@ -6,7 +112,7 @@ Navicat for SQL Server on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114461.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Navicat Charts Viewer for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114459.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ PullTube 1.8.5.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114458.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Text Workflow 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114457.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ Tenorshare 4uKey - Password Manager 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114442.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Screen Studio for Mac ARM/iNTEL 2.20.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114321.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Syncovery for Mac 10.12.4 ARM/iNTEL [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114314.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ Desktop Stickers 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114311.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ WatsGo for Mac 8.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114307.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ StopTheMadness 40.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114302.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ Feeder 4 v.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114294.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ EdgeView 4 v.4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114292.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ Codepoint for Mac 1.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114289.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ OmniReader Pro for Mac 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114285.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ Adobe Photoshop for Mac 2024 v.25.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114275.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ iA Writer 7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114140.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ TechSmith Camtasia 2023 Studio 2023.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114137.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114131.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ Text Workflow 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114119.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ ForkLift 4 v.4.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114118.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114116.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ Boxy SVG 4.25.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114113.jpg" />
 </div>
 
 
@@ -571,112 +677,6 @@ Boxy SVG 4.25.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D18FAC4F0343357567DE356AE87F758DE3FE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704555   (114104) от 05.03.2024
-
-Alfred PowerPack 5.5 Beta 2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 2024 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAD3165D36D1776B9CC9DA4138CCE822A43985D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704930   (114014) от 06.03.2024
-
-Dropshare 5 v.5.48 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114014.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB8B1ABC9E9C9631B8DA62B894483F01C3D7D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704809   (114013) от 06.03.2024
-
-ForkLift 4 v.4.1 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114013.jpg" />
-</div>
-
-
-###  Подробнее
-
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента. На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 BinaryNights LLCПоддерживаемая ОС: macOS X 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889E03F41E8D2894AE03FEE85EAD0B3D66477D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704988   (114011) от 06.03.2024
-
-ForkLift 4 v.4.1.1 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114011.jpg" />
-</div>
-
-
-###  Подробнее
-
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента. На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 BinaryNights LLCПоддерживаемая ОС: macOS X 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DE9040D1950FB1DD3F6D6A8DFA7B53BFAA0E7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1404659   (491474) от 26.08.2020
+
+Dead Warrior - Abismos (2013) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_491474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Las Puertas Al Abismo
+02. Cosecha De Sangre
+03. En Orbitas De Fuego
+04. Nox Aeterna(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47CCD2BE12F665C3E967CC439B574E3328809FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404655   (491472) от 26.08.2020
+
+Fuck Off - Hell on Earth II (Revisited & Faster) (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_491472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell on earth
+02. Blasphemy
+03. Whom you have never to say his name
+04. Rider from hell(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515E40B998BC55F73280C26C462640AE4CB46EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404638   (491471) от 26.08.2020
+
+Riot City - Burn the Night (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_491471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Warrior Of Time 5:49
+02 Burn The Night 3:37
+03 In The Dark 5:15
+04 Livin' Fast 2:55(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855FADDD729561B1EEE33C3AF6D0A648EC3532C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404674   (491311) от 26.08.2020
 
 Andy James - C.S.I.L (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Shred Metal, Instrumental>
@@ -6,7 +93,7 @@ Andy James - C.S.I.L (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Sh
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491311.jpg" />
+  <img src="Z:/picture/008/save_picture_491311.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Powerwolf - Best Of The Blessed (2020) 2CD [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491186.jpg" />
+  <img src="Z:/picture/008/save_picture_491186.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Phylactery - Aeber (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490510.jpg" />
+  <img src="Z:/picture/008/save_picture_490510.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Enforcer - Live By Fire II (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490437.jpg" />
+  <img src="Z:/picture/008/save_picture_490437.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Howard Jones (Devil You Know, Light The Torch) - Сollection (2014-2021) 5CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490425.jpg" />
+  <img src="Z:/picture/008/save_picture_490425.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Wolfheart - Shadow World (2015) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490185.jpg" />
+  <img src="Z:/picture/008/save_picture_490185.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Fear Factory - Genexus (2015) Japanese Edition [FLAC|image+.cue]<Industrial Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490168.jpg" />
+  <img src="Z:/picture/008/save_picture_490168.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Rob Zombie - Mondo Sex Head (2012) Compilation & Remixes [FLAC|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490118.jpg" />
+  <img src="Z:/picture/008/save_picture_490118.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Territory - Killer Instinct (2011) [FLAC|Lossless]<Heavy/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489903.jpg" />
+  <img src="Z:/picture/008/save_picture_489903.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Rammstein - New Collection (2008) Compilation[FLAC|image + .cue]<Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489392.jpg" />
+  <img src="Z:/picture/008/save_picture_489392.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Northlane - Alien (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metalcore, I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488870.jpg" />
+  <img src="Z:/picture/008/save_picture_488870.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Raydead - End in Sight (1993) [FLAC|Lossless|tracks] <Thrash, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488448.jpg" />
+  <img src="Z:/picture/008/save_picture_488448.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Infamous & Gratzug - Infamous & Gratzug (Split) (2016) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488432.jpg" />
+  <img src="Z:/picture/008/save_picture_488432.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Poison - Into The Abyss (Demo) (1987) Reissued, 2019, F.O.A.D. Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488423.jpg" />
+  <img src="Z:/picture/008/save_picture_488423.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Pleurisy - Experience The Sacrilege (1999) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488417.jpg" />
+  <img src="Z:/picture/008/save_picture_488417.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Lordi - Monstereophonic (Theaterror vs. Demonarchy) (2016) [FLAC|Lossless|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488412.jpg" />
+  <img src="Z:/picture/008/save_picture_488412.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Poison - Further Down into the Abyss (2006) Compilation, Iron Pegasus Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488408.jpg" />
+  <img src="Z:/picture/008/save_picture_488408.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Preludio Ancestral - Oblivion (2018) Japan [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488287.jpg" />
+  <img src="Z:/picture/008/save_picture_488287.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Lizzy Borden - My Midnight Things (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488282.jpg" />
+  <img src="Z:/picture/008/save_picture_488282.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Hansen & Friends - XXX - Three Decades In Metal (2016) Japanese Limited Edition 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488170.jpg" />
+  <img src="Z:/picture/008/save_picture_488170.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Necrophagia - Ready For Death (1986) Reissued, Xtreem Music, 2021 [APE|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486522.jpg" />
+  <img src="Z:/picture/008/save_picture_486522.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Templars - King of Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486517.jpg" />
+  <img src="Z:/picture/008/save_picture_486517.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Snake Eyes - No One Left To Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486516.jpg" />
+  <img src="Z:/picture/008/save_picture_486516.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Snake Eyes - No One Left To Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:575E3DD88EEFDE840E5C284D277BF78B1400D0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566047   (486394) от 27.07.2022
-
-Sacral Night - Le Diademe D'argent (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Les miroirs de la lune (00:03:59)
-02 - Par dela les lueurs sepulcrales (00:01:26)
-03 - L'archange aux yeux de feu (00:03:57)
-04 - Conquerant des lumieres (00:04:21)(   Читать дальше...   )Жанр: Heavy, Death MetalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5CA94BDE7446071D4DF3FDE43DF456AA629126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566042   (486390) от 27.07.2022
-
-Riptide - Masters of the Apocalypse (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smoke (00:04:51)
-02 - Masters of the Apocalypse (00:06:33)
-03 - Fatal Retribution (00:06:04)
-04 - Cage of Regret (00:07:25)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227A69C18C11C23262D6556101FA9495E11AA835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319167   (486342) от 10.08.2019
-
-Slipknot - We Are Not Your Kind (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insert Coin (01:40)
-02. Unsainted (04:21)
-03. Birth of the Cruel (04:36)
-04. Death Because of Death (01:20)(   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0F780070E5BBC4EDE7B7524FA1E77F294DE904
 ```
 
 https://mybot314.ru/tekegram_catalog/

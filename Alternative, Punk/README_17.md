@@ -6,7 +6,7 @@ Sophia (Robin Proper-Sheppard) - As We Make Our Way (Unknown Harbours) (2016) [M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578384.jpg" />
+  <img src="Z:/picture/008/save_picture_578384.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cabin Boy Jumped Ship - 3 Albums (2016-2022) [MP3|320 Kbps] <Post-hardcore, Meta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577896.jpg" />
+  <img src="Z:/picture/008/save_picture_577896.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Five Finger Death Punch - Afterlife (2022) [MP3|209-221 kbps VBR (V0)] <Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577489.jpg" />
+  <img src="Z:/picture/008/save_picture_577489.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Winter Moon - Make Real, Make Believe (2019) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574443.jpg" />
+  <img src="Z:/picture/008/save_picture_574443.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Our Last Night - Younger Dreams (2015) [MP3|320 кб/с]<Post-Hardcore, Alt. Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571509.jpg" />
+  <img src="Z:/picture/008/save_picture_571509.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blue Stahli - The Devil (Remixes) (2018) [MP3|320 Kbps] <Industrial Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570903.jpg" />
+  <img src="Z:/picture/008/save_picture_570903.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Richy Nix - Fearless (2015) [MP3|320 кб/с]<Alternative, Post Hardcore, Rap Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569874.jpg" />
+  <img src="Z:/picture/008/save_picture_569874.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bobaflex - Anything That Moves (2015) [MP3|320 кб/с]<Alternative, Nu Metal, H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569872.jpg" />
+  <img src="Z:/picture/008/save_picture_569872.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Useless ID - The Lost Broken Bones (2015) [MP3|320 кб/с]<Pop Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569864.jpg" />
+  <img src="Z:/picture/008/save_picture_569864.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Killswitch Engage - Live at the Palladium (2022) [MP3|320 Kbps] <Alternative, Me
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568916.jpg" />
+  <img src="Z:/picture/008/save_picture_568916.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Memphis May Fire - Remade In Misery (2022) [MP3|320 kbps] <Metalcore, Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568738.jpg" />
+  <img src="Z:/picture/008/save_picture_568738.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Big Talk - Straight In No Kissin’ (2015) [OGG| 492-540 кб/с]<Alternative, I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568215.jpg" />
+  <img src="Z:/picture/008/save_picture_568215.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567273.jpg" />
+  <img src="Z:/picture/008/save_picture_567273.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Foster the People - Sacred Hearts Club (2017) [MP3|320 Kbps] <Alternative Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567076.jpg" />
+  <img src="Z:/picture/008/save_picture_567076.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Alesana - Confessions (2015) [MP3|320 кб/с]<Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566608.jpg" />
+  <img src="Z:/picture/008/save_picture_566608.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Mary Lou Lord - Backstreet Angels (2015) [OGG| 415-510 кб/с]<Alternative, Fol
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566602.jpg" />
+  <img src="Z:/picture/008/save_picture_566602.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Kopecky - Drug For The Modern Age (2015) [OGG|430-505 кб/с]<Alternative, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564625.jpg" />
+  <img src="Z:/picture/008/save_picture_564625.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Placebo - B-Sides (2015) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564486.jpg" />
+  <img src="Z:/picture/008/save_picture_564486.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Saint Asonia - Saint Asonia (2015) [MP3|320 кб/с]<Alt. Metal, Modern Hard Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564386.jpg" />
+  <img src="Z:/picture/008/save_picture_564386.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kopecky Family Band - Kids Raising Kids (2012) [OGG| 441-506 кб/с]<Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562846.jpg" />
+  <img src="Z:/picture/008/save_picture_562846.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The Cranberries - Дискография [78 релизов] (1991-2012) [MP3|32
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562293.jpg" />
+  <img src="Z:/picture/008/save_picture_562293.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Blur (Seymour) - 21 (Limited Edition, Box Set) (2012) [MP3|320 kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560733.jpg" />
+  <img src="Z:/picture/008/save_picture_560733.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Finger Eleven - Five Crooked Lines (2015) [MP3|320 кб/с]<Alternative Rock, Po
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560645.jpg" />
+  <img src="Z:/picture/008/save_picture_560645.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Barb Wire Dolls - Rub My Mind (2017) Silver Lining Music, Motörhead Music [MP3|
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558664.jpg" />
+  <img src="Z:/picture/008/save_picture_558664.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555933.jpg" />
+  <img src="Z:/picture/008/save_picture_555933.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555925.jpg" />
+  <img src="Z:/picture/008/save_picture_555925.jpg" />
 </div>
 
 

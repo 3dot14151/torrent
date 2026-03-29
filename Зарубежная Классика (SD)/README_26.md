@@ -1,3 +1,83 @@
+###  Публикация: 647285   (854320) от 24.04.2013
+
+Как украсть миллион / How to Steal a Million (1966) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Николь, парижский антиквар Шарль Бонне купается в деньгах и славе. Картина Сезанна из его коллекции только что ушла с аукциона по неслыханной цене, музей "Клебер Лафайет" выставляет принадлежащую ему статуэтку Венеры работы Челлини как главный экспонат открывающейся выставки. Венера бесценна, но музейные правила требуют застраховать ее, приглашены (   Читать дальше...   )Производство: США / World Wide ProductionsЖанр: Мелодрама, Комедия, КриминалРежиссер: Уильям УайлерАктеры: Одри Хепберн, Питер О’Тул, Илай Уоллак, Хью Гриффит, Шарль Буайе, Фернан Гравей, Марсель Далио, Жак Марен, Мусташ, Роже ТревильПеревод: Советский дубляж; профессиональный многоголосыйПродолжительность: 02:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE20F2E20207400347CC755EFD85BA16608343D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498608   (854276) от 28.09.2021
+
+Мое последнее танго / Mi ultimo tango (1960) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая певица Марта Андреу обладает чарующим голосом и желает стать популярной и известной, но, работая в мюзик-холле на вторых ролях трудно сразу этого добиться. Волей случая, на одном из выступлений она заменяет примадонну, и слава в одночасье делает её звездой. Но судьба не любит, когда всё идёт гладко ...Производство: Испания / Producciones Benito Perojo S.A., Suevia Films - Cesareo GonzalezЖанр: ДрамаРежиссер: Луис Сесар АмадориАктеры: Морис Роне, Сара Монтьель, Исабель Гарсес, Лаура Гранадос, Мило Куэсада, Луиса де Кордоба, Альфонсо Года, Рафаэль Бардем, Хуан КортесПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3802CEA7F82AB33691C3F041E19D5BDDD8E7D56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768018   (854172) от 23.03.2014
+
+Близнец / Le Jumeau (1984) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация по произведению Дональда Э. Уэстлейка
+Проигравшись в карты, Ришар приезжает к другу в курортное местечко, где знакомится с красивой блондинкой-американкой, наследницей огромного состояния, Лиз Кернер.
+У Лиз оказалась сестра-близнец, Бетти, а Ришар после любви зачем-то брякнул, что у него тоже есть брат-близнец. Будучи игроком по натуре, он продолжил игру (   Читать дальше...   )Производство: Франция / Fideline Films, Les Productions de la GuévilleЖанр: КомедияРежиссер: Ив РоберАктеры: Пьер Ришар, Жан-Пьер Кальфон, Камилла Мор, Кэри Мор, Жак Франц, Франсуаза Дорнер, Жан-Пьер Кастальди, Поль Ле Персон, Изабель Страва, Жан-Клод БуйоПеревод: Многоголосый закадровыйПродолжительность: 01:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057DCFED31ED67762971F1AAF690B85106CC3744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110160   (853694) от 02.03.2017
 
 Мистер Питкин. Просто так повезло / Just My Luck (1957) DVDRip
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853694.jpg" />
+  <img src="Z:/picture/008/save_picture_853694.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853598.jpg" />
+  <img src="Z:/picture/008/save_picture_853598.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852635.jpg" />
+  <img src="Z:/picture/008/save_picture_852635.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852327.jpg" />
+  <img src="Z:/picture/008/save_picture_852327.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852029.jpg" />
+  <img src="Z:/picture/008/save_picture_852029.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851969.jpg" />
+  <img src="Z:/picture/008/save_picture_851969.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851953.jpg" />
+  <img src="Z:/picture/008/save_picture_851953.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851871.jpg" />
+  <img src="Z:/picture/008/save_picture_851871.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851809.jpg" />
+  <img src="Z:/picture/008/save_picture_851809.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851765.jpg" />
+  <img src="Z:/picture/008/save_picture_851765.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851063.jpg" />
+  <img src="Z:/picture/008/save_picture_851063.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851007.jpg" />
+  <img src="Z:/picture/008/save_picture_851007.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850266.jpg" />
+  <img src="Z:/picture/008/save_picture_850266.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850252.jpg" />
+  <img src="Z:/picture/008/save_picture_850252.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850247.jpg" />
+  <img src="Z:/picture/008/save_picture_850247.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850244.jpg" />
+  <img src="Z:/picture/008/save_picture_850244.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850206.jpg" />
+  <img src="Z:/picture/008/save_picture_850206.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850192.jpg" />
+  <img src="Z:/picture/008/save_picture_850192.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850026.jpg" />
+  <img src="Z:/picture/008/save_picture_850026.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850016.jpg" />
+  <img src="Z:/picture/008/save_picture_850016.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849273.jpg" />
+  <img src="Z:/picture/008/save_picture_849273.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848490.jpg" />
+  <img src="Z:/picture/008/save_picture_848490.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848313.jpg" />
+  <img src="Z:/picture/008/save_picture_848313.jpg" />
 </div>
 
 
@@ -599,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7672D4F58773F91C8B8CF335D3A1577B1FF41A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 192265   (848081) от 14.04.2010
-
-Сверкающие седла / Blazing Saddles (1974) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Железная дорога должна пройти через городок Рок Ридж. Но как выгнать местных жителей из города, если хочешь украсть у них землю? Заслать самую отчаянную банду головорезов… и назначить нового чернокожего шерифа, который протянет не больше суток.
-Пародия на вестерн, снятая с участием обычных актёров труппы  Мела Брукса. По заключению Американского института кино, входит (   Читать дальше...   )Производство: США, Crossbow Productions, Warner Bros. PicturesЖанр: Комедия, ВестернРежиссер: Мел БруксАктеры: Кливон Литтл, Джин Уайлдер, Слим Пикенс, Харви Кормен, Мэдлин Кан, Мэл Брукс, Бертон Гиллиам, Алекс Кэррас, Дэвид ХаддлсПеревод: Многоголосый закадровыйПродолжительность: 1:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E94512A8D064AAAC3BC66B9775D406D6EFE0CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371640   (847790) от 24.04.2020
-
-Леди из Шанхая / The Lady from Shanghai (1947) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по роману Шервуда Кинга.
-На пустынной ночной аллее нью-йоркского Сентрал Парка Майкл О`Хара расшвыривает бандитов, напавших на Розали Баннистер. Гигант с лицом ребёнка, безработный моряк, он привлекает её своей первобытной мощью, и она предлагает Майклу работу на яхте мужа, преуспевающего адвоката, искалеченного полиомелитом калеки.
-Сражённый наповал роковой (   Читать дальше...   )Производство: США / Columbia Pictures, Mercury ProductionsЖанр: Фильм-нуар, триллер, драма, криминал, детективРежиссер: Орсон УэллсАктеры: Рита Хэйворт, Орсон Уэллс, Эверет Слоун, Гленн Андерс, Тед де Корсия, Эрскин Сэнфорд, Гас Шиллинг, Карл Фрэнк, Луис Мэрилл, Эвелин Эллис, Гарри Шэннон, Эвелин Эллис и др.Перевод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6079D8E541DD04F35795B07402F436802026E208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767798   (847248) от 27.03.2014
-
-Пощечина / La gifle (1974) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847248.jpg" />
-</div>
-
-
-###  Подробнее
-
-С каждым такое бывает — наступит вдруг черная полоса в жизни, когда все, чего не коснись, плохо. Вот и на Жана Дулеана, преподавателя географии в лицее, неприятности посыпались одна за другой. В полиции на него завели дело (избил двух стражей закона, защищая студента) и ему грозит увольнение, любовница, с которой прекрасно ладил много лет, вдруг ушла, обожаемая 18-летняя (   Читать дальше...   )Производство: Франция, Италия | Euro International Film (EIA), Gaumont, Production 2000Жанр: Драма, мелодрама, комедияРежиссер: Клод ПинотоАктеры: Лино Вентура, Анни Жирардо, Изабель Аджани, Николь Курсель, Франсис Перрен, Жак Списсер, Мишель Омон, Роберт Харди, Натали Бэй, Ксавье Желен, Жорж Вильсон, Анник Алан, Пол Бисцилиа, Робер Дальбан, Франсис Лемэр, Жак Мори, Жанин СушонПеревод: Двуголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92419BC916ED6A22D55E40CC136C742DFFED332E
 ```
 
 https://mybot314.ru/tekegram_catalog/

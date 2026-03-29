@@ -1,3 +1,140 @@
+###  Публикация: 1394521   (763411) от 05.07.2020
+
+Beonmax | Курс ВЕБ-разработчик 2019 - с нуля до результата! (2019) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освой современные инструменты и технологии разработки сайтов и начни зарабатывать на этом!
+На практике научитесь создавать веб-сайты и веб-приложения с применением полученной в курсе всей необходимой теории. Дополнительных знаний не требуется. Все нужные программы установим и настроим в процессе обучения. Курс соответствует современным трендам и стандартам. Основные (   Читать дальше...   )Жанр: Программирование, HTML5, CSS3, Bootstrap 4, JavaScriptПродолжительность: 23:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251FEDFDBA966DD2390D007ED8B2BD35BE78061F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394544   (763406) от 05.07.2020
+
+Beonmax | Курс Linux / GIT (2019) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн курс LINUX и GIT для начинающих — видео уроки Linux / Git с нуля.
+В видео-курсе Вы изучите основы работы с терминалом LINUX для создания и настройки сервера для Ваших веб-сайтов. Освоите систему контроля версий кода GIT для профессиональной командной работы.
+Получите профессиональные знания в онлайн уроках по Linux и Git!Жанр: Система контроля версий GitПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D521C004088520528B323446FF78C469C108F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394611   (763404) от 05.07.2020
+
+Beonmax | Курс WordPress – с нуля до Профи! (2018) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763404.jpg" />
+</div>
+
+
+###  Подробнее
+
+WordPress – одна из самых популярных CMS для создания веб сайтов. С помощью Вордпресс вы можете создавать сайты с нуля разной сложности и функционала — простые одностраничные сайты-лендинги, сайт-визитку, личный блог, сайты услуг или сложные многостраничные онлайн магазины.
+Курс для тех, кто хочет быстро научиться делать крутые сайты, управлять ими и продвигать их. (   Читать дальше...   )Жанр: WordPressПродолжительность: 14:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB86A46F0F60B0AD8245432A44C68EB41523836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394460   (763401) от 05.07.2020
+
+Beonmax | Курс PHP / MySQL (2019) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивный онлайн курс PHP программирования сайтов для начинающих — Онлайн обучение PHP с нуля
+В видео-курсе Вы изучите основы языка PHP для создания веб-сайтов, познакомитесь с объектно-ориентированным программированием, научитесь работать с базами данных MySQL, освоите популярные библиотеки, работу с парсерами и многое другое.
+Изучите онлайн уроки программирования (   Читать дальше...   )Жанр: Программирование, PHP, MySQLПродолжительность: 04:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030975175FDFAC76833D0D1E836DB080F6A4A9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394618   (763394) от 05.07.2020
+
+Beonmax | Курс Полный курс Python для начинающих – с нуля до специалиста (2019) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное руководство по Python 3 - от новичка до специалиста — Изучи Python с нуля и стань востребованным разработчиком во всем мире!
+Полный курс Python состоит из 9 разделов, обучение от простого к сложному. Подходит для новичков, которые никогда не программировали. И для опытных программистов, которые хотят стать разработчиками на Python.Жанр: Программирование, PythonПродолжительность: 17:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7B14B71A3DD44DA840514999ACD6E5F9FD608A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214639   (762739) от 23.03.2018
 
 Олег Молчанов | Практический курс парсинга сайтов  на Python (2018) PCRec [H.264]
@@ -6,7 +143,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762739.jpg" />
+  <img src="Z:/picture/008/save_picture_762739.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762306.jpg" />
+  <img src="Z:/picture/008/save_picture_762306.jpg" />
 </div>
 
 
@@ -61,7 +198,7 @@ ITVDN | Онлайн курс Golang (2018) PCRec [H.265]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761473.jpg" />
+  <img src="Z:/picture/008/save_picture_761473.jpg" />
 </div>
 
 
@@ -87,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760672.jpg" />
+  <img src="Z:/picture/008/save_picture_760672.jpg" />
 </div>
 
 
@@ -116,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753332.jpg" />
+  <img src="Z:/picture/008/save_picture_753332.jpg" />
 </div>
 
 
@@ -144,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752953.jpg" />
+  <img src="Z:/picture/008/save_picture_752953.jpg" />
 </div>
 
 
@@ -172,7 +309,7 @@ ITVDN | HTML5 И CSS3 STARTER (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752513.jpg" />
+  <img src="Z:/picture/008/save_picture_752513.jpg" />
 </div>
 
 
@@ -198,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751568.jpg" />
+  <img src="Z:/picture/008/save_picture_751568.jpg" />
 </div>
 
 
@@ -227,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751461.jpg" />
+  <img src="Z:/picture/008/save_picture_751461.jpg" />
 </div>
 
 
@@ -254,7 +391,7 @@ OTUS | Pазработчик BigData (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749459.jpg" />
+  <img src="Z:/picture/008/save_picture_749459.jpg" />
 </div>
 
 
@@ -280,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748036.jpg" />
+  <img src="Z:/picture/008/save_picture_748036.jpg" />
 </div>
 
 
@@ -306,7 +443,7 @@ GeekBrains | Основы сетей передачи данных. Модель
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746404.jpg" />
+  <img src="Z:/picture/008/save_picture_746404.jpg" />
 </div>
 
 
@@ -335,7 +472,7 @@ Cybrary | Advanced Penetration Testing (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746148.jpg" />
+  <img src="Z:/picture/008/save_picture_746148.jpg" />
 </div>
 
 
@@ -363,7 +500,7 @@ Udemy | The Complete Android Oreo Developer Course - Build 23 Apps! (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746144.jpg" />
+  <img src="Z:/picture/008/save_picture_746144.jpg" />
 </div>
 
 
@@ -391,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744256.jpg" />
+  <img src="Z:/picture/008/save_picture_744256.jpg" />
 </div>
 
 
@@ -417,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744249.jpg" />
+  <img src="Z:/picture/008/save_picture_744249.jpg" />
 </div>
 
 
@@ -445,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744247.jpg" />
+  <img src="Z:/picture/008/save_picture_744247.jpg" />
 </div>
 
 
@@ -473,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743407.jpg" />
+  <img src="Z:/picture/008/save_picture_743407.jpg" />
 </div>
 
 
@@ -502,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743193.jpg" />
+  <img src="Z:/picture/008/save_picture_743193.jpg" />
 </div>
 
 
@@ -531,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743191.jpg" />
+  <img src="Z:/picture/008/save_picture_743191.jpg" />
 </div>
 
 
@@ -560,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743190.jpg" />
+  <img src="Z:/picture/008/save_picture_743190.jpg" />
 </div>
 
 
@@ -573,147 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9F202C19E3FB1DD823EE6EA744DC62370B05E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020658   (742868) от 27.05.2016
-
-Специалист | CEH4. Руководитель службы информационной безопасности и защиты от хакерских атак (2016) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс готовит руководителей верхнего уровня в области информационной безопасности.
-
-Цель курса – получить знания и навыки, необходимые для успешного применения принципов управления информационной безопасностью.Производство: СпециалистЖанр: Информационная безопасностьПродолжительность: 21:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C10A503DF94608F614D790DC8ADCB11DEF7FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020110   (742866) от 27.05.2016
-
-Фёдор Самородов | М10962А Расширенные возможности Windows PowerShell (2015) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742866.jpg" />
-</div>
-
-
-###  Подробнее
-
-10962A: Advanced Automated Administration with Windows PowerShell
-На курсе детально изучается сложные программные возможности технологии PowerShell версии 3.0.
-PowerShell – средство автоматизации, позволяющее упростить решение большинства административных задач.
-Курс предназначен для: администраторов Windows Server и серверного ПО от MicrosoftПроизводство: СпециалистЖанр: Администрирование, Windows PowerShellПродолжительность: 04:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36D6EBC3AD01A493BE569BA05C48D8559E7EAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890751   (742783) от 21.04.2015
-
-PentestIT | Тестирование на проникновение с использованием Metasploit Framework (2013) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Константин Левин, инструктор из компании PentestIT, расскажет о работе с профессиональным инструментом пентестеров - фреймворком Metasploit. Будут продемонстрированы практически все этапы тестирования на проникновение: от разведки и сбора информации до написания собственных модулей, эксплойтов, используя Metasploit Framefork.Жанр: Компьютерная безопасностьПродолжительность: 12:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8448DE4E1706389C3C3477BB7DAC8D4E45D699C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397148   (742478) от 18.07.2020
-
-TeamLead | Confluence. Базовый тренинг для администраторов (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный тренинг по работе с Atlassian Confluence, в том числе работа с пространствами, страницами, blueprints, интеграция с Jira и многое другое.
-Тренинг состоит из 1,5 часов теории, самостоятельного выполнения домашних заданий на индивидуальном стенде и разбора заданий с тренеров.
-После прохождения тренинга вы научитесь:
-Управлять пользователями.(   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 02:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BA52845C673BD549BF97ED361866CC178D4F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524659   (741876) от 17.01.2022
-
-HTML Academy | React. Разработка сложных клиентских приложений (2021) WEB-DL [Сентябрь-ноябрь 2021] [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс разработан для тех, кто хочет сменить профессию и стать высокооплачиваемым профессионалом. Он подойдёт для работающих людей, у которых мало времени.
-
-Почему курс профессиональный:
-На этом курсе вы научитесь делать настоящие проекты, такие же по уровню сложности, как в индустрии. И будете делать их правильно, чтобы после обучения выдавать результат высокого уровня, (   Читать дальше...   )Производство: HTML AcademyЖанр: ПрограммированиеПродолжительность: 23:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F9058E473098266B9B7C2C8D5D44B33BAE0574
 ```
 
 https://mybot314.ru/tekegram_catalog/

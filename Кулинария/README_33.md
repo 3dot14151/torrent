@@ -1,3 +1,29 @@
+###  Публикация: 918582   (586844) от 15.07.2015
+
+Галина Кизима | Консервирование и лучшие кулинарные рецепты опытных садоводов и огородников (2015) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рецепты заготовок, представленные в этой книге, выбраны автором – известным садоводом-любителем Галиной Александровной Кизимой неспроста. Дело в том, что все они отвечают главным критериям дачников, которые хотят сохранить выращенный своими руками урожай – быстро, вкусно и безопасно. Многие рецепты были присланы автору ее читателями, но большинство она апробировала (   Читать дальше...   )Жанр: КулинарияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43554B8637F90CFA055E2A82D3954EA0E3D0F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358116   (586221) от 02.07.2011
 
 П. И. Румянцев | 100 рецептов блюд из курицы [1989] [DJVU]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586221.jpg" />
+  <img src="Z:/picture/008/save_picture_586221.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586219.jpg" />
+  <img src="Z:/picture/008/save_picture_586219.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585818.jpg" />
+  <img src="Z:/picture/008/save_picture_585818.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585802.jpg" />
+  <img src="Z:/picture/008/save_picture_585802.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584332.jpg" />
+  <img src="Z:/picture/008/save_picture_584332.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583973.jpg" />
+  <img src="Z:/picture/008/save_picture_583973.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583961.jpg" />
+  <img src="Z:/picture/008/save_picture_583961.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583915.jpg" />
+  <img src="Z:/picture/008/save_picture_583915.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583896.jpg" />
+  <img src="Z:/picture/008/save_picture_583896.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583098.jpg" />
+  <img src="Z:/picture/008/save_picture_583098.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583056.jpg" />
+  <img src="Z:/picture/008/save_picture_583056.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583007.jpg" />
+  <img src="Z:/picture/008/save_picture_583007.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582991.jpg" />
+  <img src="Z:/picture/008/save_picture_582991.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582594.jpg" />
+  <img src="Z:/picture/008/save_picture_582594.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582059.jpg" />
+  <img src="Z:/picture/008/save_picture_582059.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581897.jpg" />
+  <img src="Z:/picture/008/save_picture_581897.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581672.jpg" />
+  <img src="Z:/picture/008/save_picture_581672.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580955.jpg" />
+  <img src="Z:/picture/008/save_picture_580955.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580784.jpg" />
+  <img src="Z:/picture/008/save_picture_580784.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578956.jpg" />
+  <img src="Z:/picture/008/save_picture_578956.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577553.jpg" />
+  <img src="Z:/picture/008/save_picture_577553.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575971.jpg" />
+  <img src="Z:/picture/008/save_picture_575971.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575469.jpg" />
+  <img src="Z:/picture/008/save_picture_575469.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575421.jpg" />
+  <img src="Z:/picture/008/save_picture_575421.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574420.jpg" />
+  <img src="Z:/picture/008/save_picture_574420.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C34EB447E9BE34AFD072F2F5EDDB25C00F057974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921795   (573633) от 26.07.2015
-
-Галина Кизима | Заготовки и соленья (2015) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малиновое варенье, овощные соленья, моченые яблоки, маринованный виноград и квашеная капуста – уже от одних названий разыгрывается аппетит. Чтобы все эти вкусности были на столе зимой, нужно потрудиться летом. В эту жаркую пору нелегко приходится хозяйкам. Не до отдыха. Но кухонный ад можно исключить из дачной программы, если выбрать именно те способы заготовки, (   Читать дальше...   )Жанр: КулинарияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980C30E611FCF64FBD90A1BF5CE99AD59D2FE1D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

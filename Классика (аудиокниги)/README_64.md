@@ -1,3 +1,116 @@
+###  Публикация: 1692623   (122388) от 17.01.2024
+
+Николай Гоголь | Вечера на хуторе близ Диканьки (2003) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Николай Васильевич Гоголь (1809–1852) – великий русский писатель, прозаик, драматург, поэт, критик, публицист.
+Сборник «Вечера на хуторе близ Диканьки» (1831-1832) насыщен украинским этнографическим материалом, веселостью, романтическими настроениями, лиризмом и юмором.
+(   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 10:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA12E3FE5B6F5B6673135B36AF9E68E4D570105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457536   (122260) от 18.01.2024
+
+Николай Гоголь | Повести в исполнении мастеров художественного слова (2011) [MP3, Осип Абдулов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Театр у микрофона.
+Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
+Предлагаем вашему вниманию любимые всеми повести Н.В. Гоголя в исполнении мастеров художественного слова Осипа Абдулова, Игоря Ильинского, Веры Пашенной и Сергея Балашова.Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 02:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5CE012193C7172B86AF919C32C9D99C3CBD9AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692832   (122174) от 18.01.2024
+
+Николай Гоголь | Ночь перед Рождеством. Вий (2011) [MP3, Александр Андриенко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
+«Ночь перед Рождеством» – одна из лучших повестей сборника «Вечера на хуторе близ Диканьки», до сих пор не утратившая свежести и обаяния рождественской сказки, насыщенная добрым юмором и лиризмом. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ИД «Равновесие»Продолжительность: 03:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AB8AC3B4CBC4DB5F3EF0965387EC43F2165257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692847   (122173) от 18.01.2024
+
+Николай Гоголь | Петербургские повести (2010) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
+«Петербургские повести» это Петербург мелких чиновников, мещан, военных и ремесленников. Со знанием дела и большой долей юмора описывает он мир мещанских интересов, взяточничества и бюрократического (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 09:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24FAE78429C23CF2ED121C72416C3033BE8D265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693470   (121728) от 21.01.2024
 
 Николай Васильевич Гоголь | Вий (2023) [MP3, Александр Шаронов, Алла Булгакова и др]
@@ -6,7 +119,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121728.jpg" />
 </div>
 
 
@@ -34,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121384.jpg" />
 </div>
 
 
@@ -61,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121373.jpg" />
 </div>
 
 
@@ -88,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121366.jpg" />
 </div>
 
 
@@ -114,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121363.jpg" />
 </div>
 
 
@@ -141,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121270.jpg" />
 </div>
 
 
@@ -168,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121267.jpg" />
 </div>
 
 
@@ -195,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121223.jpg" />
 </div>
 
 
@@ -223,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121203.jpg" />
 </div>
 
 
@@ -251,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121151.jpg" />
 </div>
 
 
@@ -279,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121136.jpg" />
 </div>
 
 
@@ -308,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121131.jpg" />
 </div>
 
 
@@ -337,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121130.jpg" />
 </div>
 
 
@@ -365,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121129.jpg" />
 </div>
 
 
@@ -394,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121127.jpg" />
 </div>
 
 
@@ -422,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121089.jpg" />
 </div>
 
 
@@ -449,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121082.jpg" />
 </div>
 
 
@@ -478,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121003.jpg" />
 </div>
 
 
@@ -505,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120992.jpg" />
 </div>
 
 
@@ -533,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120965.jpg" />
 </div>
 
 
@@ -561,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120859.jpg" />
 </div>
 
 
@@ -587,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120790.jpg" />
 </div>
 
 
@@ -598,115 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F6B9C90F514C0ABAD6C4953A8159EE055F382C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695533   (120301) от 29.01.2024
-
-Эрих Мария Ремарк | Женщина с золотыми глазами (2024) [MP3, YoWayYo]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120301.jpg" />
-</div>
-
-
-###  Подробнее
-
-В театре, во время перерыва после первого акта, он заметил золотисто-карие глаза и сразу понял, что это именно та женщина, о которой он мечтал с молодости. После спектакля она сказала ему своим прекрасным голосом: "Идем домой"...Жанр: Классика, РассказИздательство: Аудиокнига своими рукамиПродолжительность: 00:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56FDA06F6BF7833951D64E7566375127CC51864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357649   (120216) от 30.01.2024
-
-Карло Гольдони | Слуга двух господ (Радиоспектакль) (2010) [MP3, Лев Дуров и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театральный фонограф.
-Забавная история случившаяся 250 лет тому назад, началась с убийства богатого сеньора Федерико, за которого венецианский купец Панталоне обещал выдать свою дочь Клариче. И тогда пришлось Панталоне отдать свою дочь за Сильвио, сына местного доктора. Однако в день помолвки молодых, в дом Панталоне вдруг является убитый Федерико. Только (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияВ ролях: Лев Дуров, Татьяна Божок, Александр Макаров, Дмитрий Кобряков, Екатерина Дурова, Владимир Феофанов, Владимир Ершов, Татьяна Ошуркова, Виктор Поляков и Андрей ЗенинИздательство: АрМир (аудио)Продолжительность: 02:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE347AF5503DEAB66BF15E1122F2F11E3045711B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357716   (120199) от 30.01.2024
-
-Карло Гольдони | Бабьи сплетни (Радиоспектакль) [2003] [MP3, Юрий Яковлев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Всемирная аудиобиблиотека
-Блистательная комедия Карло Гольдони, полная юмора и сарказма, в очередной раз доказывает правоту устоявшихся мнений, что «женщины, безусловно, умеют хранить тайну, но сообща» и, «что дружба двух женщин – всегда заговор против третьей»…
-
-Запись 1957 года из архива «Гостелерадиофонда».Жанр: Классика, комедияВ ролях: Юрий Яковлев, Николай Светловидов, Ростислав Плятт, Ольга Якунина, Борис Иванов, Ангелина СтепановаИздательство: ИД «Союз»Продолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F91B2ED06017A4C14F15710A5C9516DC157887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357653   (120197) от 30.01.2024
-
-Карло Гольдони | Трактирщица (Радиоспектакль) (2009) [MP3, Светлана Письмеченко и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Гольдони написал «Трактирщицу» в 1753 году, а на русский язык пьеса была переведена в середине XIX века. В начале прошлого столетия в переводе Федора Комиссаржевского она получила название «Хозяйка гостиницы». Главная героиня пьесы, Мирандолина – владелица преуспевающего отеля, которая, ловко манипулируя своими постояльцами, доказывает (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияВ ролях: Светлана Письмеченко, Александр Лыков, Сергей Кузнецов, Вячеслав Захаров и Евгений БарановИздательство: «Радио России Санкт-Петербург»Продолжительность: 01:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51792652C27F5958B4FC9ADCDF8E1BEC76ABC35E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1190044   (266588) от 10.12.2017
+
+При покупках в интернет-магазинах теперь могут потребовать ИНН.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266588.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 декабря 2017 года российская таможня приступила к эксперименту с новыми правилами оформления покупок из иностранных интернет-магазинов. Теперь таможенники будут требовать от большинства операторов доставки не только паспортные данные покупателя, но и его индивидуальный номер налогоплательщика (ИНН). Кроме того, необходимо указать гиперссылку на приобретенный товар. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190498   (266532) от 10.12.2017
+
+Adguard Premium 6.2.437.2171 RePack by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866DF882D6DD9CC110EA1712583AD4507419CCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189829   (266520) от 10.12.2017
+
+Adobe Photoshop CC 2018 19.0.1.190 [x86] Linux (cxarchive)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2018 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Russian, English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F0E8886F8CA768598410291EE8B32EED16E13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266977   (266457) от 06.12.2018
+
+Бесплатный отпуск: как отдохнуть за счет работодателя ?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поездка на курорт за счет работодателя скоро станет доступной для многих россиян. С первого января меняется законодательство, и компании, оплачивающие сотрудникам отдых на российских курортах, получат налоговые льготы. Кто и где сможет отдохнуть бесплатно — в материале РИА Новости.Выгодная льготаЗакон, вступающий в силу первого января 2019 года, позволит компаниям, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250728   (266285) от 06.12.2018
+
+Shenmue I & II (2018) [Ru/Multi] (1.07) Repack West4it
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое желанное переиздание всех времен от SEGA наконец-то приходит на новое поколение. Shenmue рассказывает эпическую историю в уникальном открытом мире, который все еще не превзойден по своей глубине и проработке. Вернитесь в величественную сагу, которая предопределила современные тенденции в играхТип издания: RepackРазработчик: D3TЖанр: Action, Adventure, RPG, 3DЯзык озвучки: Русский (только первая часть), АнглийскийЯзык субтитров: Русский (только первая часть), Английский и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F090B5E67A2D4A927A22B2BC6825F8DD618AC73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183867   (266219) от 29.12.2011
+
+Остров проклятых / Shutter Island (2010) DVDRip [Дубляж]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два американских судебных пристава отправляются на один из островов в штате Массачусетс, чтобы расследовать исчезновение пациентки клиники для умалишенных преступников. При проведении расследования им придется столкнуться с паутиной лжи, обрушившимся ураганом и смертельным бунтом обитателей клиники, которые бросают их на острове, как в ловушке...Производство: СШАЖанр: Триллер, Драма, ДетективРежиссер: Мартин СкорсезеАктеры: Леонардо ДиКаприо, Марк Руффало, Бен Кингсли, Макс фон Сюдов, Мишель Уильямс, Эмили Мортимер, Патриция Кларксон, Джеки Эрл Хейли, Тед Левайн, Джон Кэрролл ЛинчПеревод: ДублированныйПродолжительность: 02:12:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339006   (265960) от 19.11.2019
 
 Обновление от Google для Chrome вызвало «белый экран смерти». Пострадали компании по всему миру
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265960.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265696.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265611.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ KMS Tools Portable 01.12.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265445.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Trondheim Solistene - Divertimenti (2008) [LPCM 2.0, 5.1 192/24 |Blu-ray]<Classi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265444.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265441.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ Windows 7x86x64 Ultimate UralSOFT v.8.12
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264651.jpg" />
 </div>
 
 
@@ -194,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264564.jpg" />
 </div>
 
 
@@ -220,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264534.jpg" />
 </div>
 
 
@@ -247,7 +403,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/En] (101.101.32708.0.911/dlc) R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264489.jpg" />
 </div>
 
 
@@ -273,7 +429,7 @@ VideoHive - Videolancer's Transitions - Original Seamless Transitions Pack (v.6)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264484.jpg" />
 </div>
 
 
@@ -300,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264340.jpg" />
 </div>
 
 
@@ -326,7 +482,7 @@ foobar2000 1.3.15 DarkOne + DUIFoon Portable by MC Web (12.12.2017) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264338.jpg" />
 </div>
 
 
@@ -352,7 +508,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.1.0 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264319.jpg" />
 </div>
 
 
@@ -378,7 +534,7 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack Mizantrop1337 [Game of the Year Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264318.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264315.jpg" />
 </div>
 
 
@@ -430,7 +586,7 @@ Acronis True Image 2020 Build 22510 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264151.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264086.jpg" />
 </div>
 
 
@@ -482,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264029.jpg" />
 </div>
 
 
@@ -511,7 +667,7 @@ Final Cut Pro X 10.4 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264028.jpg" />
 </div>
 
 
@@ -524,162 +680,6 @@ Final Cut Pro X включает основные функции аудиомо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A8E7BD2A6B9C60B56681C8C84F180EF4250F07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191404   (264027) от 14.12.2017
-
-Maxon CINEMA 4D Studio R19.024 build RB209858 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinema 4D является профессиональным редактором 3D графики, как раз для ваших потребностей. Если вы профессионально работаете с 3D графикой и хотите быстро и с легкостью достичь потрясающего результата, то это - ваш выбор. Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745C06ED33CCAE1DCE29B6241B2D0B9E2A3BEA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191217   (264026) от 14.12.2017
-
-Что делать, когда Tor заблокировали в вашей стране
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цензоры блокируют Tor двумя способами: они могут блокировать соединения с IP-адресами известных ретрансляторов Tor, и они могут анализировать сетевой трафик (глубокий анализ пакетов - DPI), чтобы обнаружить такой трафик и заблокировать его. Мосты - это секретные реле Tor, они не отображаются в каком-либо публичном списке, поэтому цензор не знает, какие адреса ему (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136810   (264025) от 14.12.2017
-
-Твин Пикс / Twin Peaks (2017) WEBRip (сезон 3, серии 1-18 из 18) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264025.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 лет назад жители маленького городка Твин Пикс были ошеломлены загадочным убийством королевы школы Лоры Палмер. Но история еще не закончена, события давно минувших дней дают о себе знать.Производство: США / Rancho Rosa Partnership, Showtime NetworksЖанр: триллер, драма, криминал, детективРежиссер: Дэвид ЛинчАктеры: Медкен Эмик, Дэна Эшбрук, Шерил Ли, Кайл МакЛоклен, Эверет МакГилл, Кимми Робертсон, Расс Тэмблин, Рэй Уайз, Грейс Забриски, Эми Шилз и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: русские, английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B26D2A204F00F751B604A06871725E1E676E887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191329   (264024) от 14.12.2017
-
-Autodesk Artcam Premium 2018 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk Inc., мировой лидер в области программного обеспечения для 3D-дизайна для развлечений, природных ресурсов, производства, проектирования, строительства и гражданской инфраструктуры, объявила о выпуске ArtCAM 2018 - это единое решение для проектирования и производства в деревообрабатывающей промышленности. Его простой интерфейс и простые в использовании инструменты (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр. (мультиязычный пакет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13A407192003E80587D977A0C70EF98FE04CA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340220   (263794) от 23.11.2019
-
-⚡ Американские врачи впервые в истории начали вводить пациентов в анабиоз
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие живые существа способны впадать при неблагоприятных для жизни условиях в состояние, близкое к смерти, но ей не являющееся. При этом дыхание, сердцебиение и другие процессы жизнедеятельности замедленны настолько, что могут быть обнаружены только с помощью специальной аппаратуры. Это состояние носит название анабиоз. И группа ученых из США начала применять искусственное (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191956   (263634) от 15.12.2017
-
-Набор обновлений UpdatePack7R2 для Windows 7 SP1 и Server 2008 R2 SP1 17.12.15
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8764635974B31ECF789050B4E256F573E3AA2619
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,70 @@
+###  Публикация: 579255   (350102) от 22.11.2012
+
+Krokus - Original Album Classics (1980-1982) Remastered 3CD Box Set /2012, Sony Music/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_350102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+1980 - Metal Rendez-Vous
+1981 - Hardware
+1982 - One Vice At A Time01. Heatstrokes (04:01)
+02. Bedside Radio (03:22)
+03. Come On (04:30)
+04. Streamer (06:45)
+05. Shy Kid (02:34)
+06. Tokyo Nights (05:55)
+07. Lady Double Dealer (03:14)
+08. Fire (06:07)
+09. No Way (04:03)
+10. Back-Seat Rock 'N' Roll (03:15)Жанр: Hard RockПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072537   (349720) от 14.11.2016
+
+Dorothy - Rockisdead (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss It (2:33)
+02. Dark Nights(3:10)
+03. Raise Hell(3:02)
+04. Wicked Ones(2:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1986D7532CC7253609024F76049C0065C918BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418260   (349294) от 24.10.2020
 
 Pride Of Lions - Lion Heart (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +73,7 @@ Pride Of Lions - Lion Heart (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349294.jpg" />
+  <img src="Z:/picture/008/save_picture_349294.jpg" />
 </div>
 
 
@@ -35,7 +102,7 @@ Krokus -  12 Альбомов (1977 - 2003) Non-remastered, 1st Press [WavPack|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347507.jpg" />
+  <img src="Z:/picture/008/save_picture_347507.jpg" />
 </div>
 
 
@@ -70,7 +137,7 @@ The Winery Dogs - Hot Streak (2015) [FLAC|image+.cue]<Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346833.jpg" />
+  <img src="Z:/picture/008/save_picture_346833.jpg" />
 </div>
 
 
@@ -99,7 +166,7 @@ Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346803.jpg" />
+  <img src="Z:/picture/008/save_picture_346803.jpg" />
 </div>
 
 
@@ -128,7 +195,7 @@ Geordie - Don't Be Fooled By The Name (1974) Japanese Edition /2006, Archive/ [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346718.jpg" />
+  <img src="Z:/picture/008/save_picture_346718.jpg" />
 </div>
 
 
@@ -157,7 +224,7 @@ Tony Mills - Streets of Chance (2017) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345857.jpg" />
+  <img src="Z:/picture/008/save_picture_345857.jpg" />
 </div>
 
 
@@ -186,7 +253,7 @@ House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345832.jpg" />
+  <img src="Z:/picture/008/save_picture_345832.jpg" />
 </div>
 
 
@@ -215,7 +282,7 @@ Kissin' Dynamite - Ecstasy (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345660.jpg" />
+  <img src="Z:/picture/008/save_picture_345660.jpg" />
 </div>
 
 
@@ -244,7 +311,7 @@ Deep Purple - Time For Bedlam (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345443.jpg" />
+  <img src="Z:/picture/008/save_picture_345443.jpg" />
 </div>
 
 
@@ -273,7 +340,7 @@ B52 - 2 Albums (2017-2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343547.jpg" />
+  <img src="Z:/picture/008/save_picture_343547.jpg" />
 </div>
 
 
@@ -302,7 +369,7 @@ Purpendicular - Venus To Volcanus (2017) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343538.jpg" />
+  <img src="Z:/picture/008/save_picture_343538.jpg" />
 </div>
 
 
@@ -331,7 +398,7 @@ Kings Of Mercia - Kings Of Mercia (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343535.jpg" />
+  <img src="Z:/picture/008/save_picture_343535.jpg" />
 </div>
 
 
@@ -360,7 +427,7 @@ Talas - 1985 (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343525.jpg" />
+  <img src="Z:/picture/008/save_picture_343525.jpg" />
 </div>
 
 
@@ -389,7 +456,7 @@ Tom Keifer Band (ex-Cinderella) - Rise (2019) [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343522.jpg" />
+  <img src="Z:/picture/008/save_picture_343522.jpg" />
 </div>
 
 
@@ -418,7 +485,7 @@ Scream Taker - Kill The Beautiful (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343192.jpg" />
+  <img src="Z:/picture/008/save_picture_343192.jpg" />
 </div>
 
 
@@ -447,7 +514,7 @@ Tony Carey - Live In Sweden 2006 Volume 1 (2006) [FLAC|image+.cue]<Classic Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342384.jpg" />
+  <img src="Z:/picture/008/save_picture_342384.jpg" />
 </div>
 
 
@@ -476,7 +543,7 @@ Jeff LaBar (Cinderella) - One For The Road (2014) [APE|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342330.jpg" />
+  <img src="Z:/picture/008/save_picture_342330.jpg" />
 </div>
 
 
@@ -505,7 +572,7 @@ Tony Carey - Just Rock (2012) [FLAC|image +.cue]<Classic Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342014.jpg" />
+  <img src="Z:/picture/008/save_picture_342014.jpg" />
 </div>
 
 
@@ -534,7 +601,7 @@ Scorpions - Acoustica (2001) [FLAC|Lossless]<Hard Rock, Acoustic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341940.jpg" />
+  <img src="Z:/picture/008/save_picture_341940.jpg" />
 </div>
 
 
@@ -563,7 +630,7 @@ Fatal Vision - Once (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341094.jpg" />
+  <img src="Z:/picture/008/save_picture_341094.jpg" />
 </div>
 
 
@@ -593,7 +660,7 @@ Liar - Sunset Plaza Drive (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Classi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341093.jpg" />
+  <img src="Z:/picture/008/save_picture_341093.jpg" />
 </div>
 
 
@@ -622,7 +689,7 @@ Band Of Spice - How We Play The Game (2022) [FLAC|Lossless|WEB-DL|tracks] <Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341091.jpg" />
+  <img src="Z:/picture/008/save_picture_341091.jpg" />
 </div>
 
 
@@ -651,7 +718,7 @@ Purpendicular & Ian Paice - Human Mechanic (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341083.jpg" />
+  <img src="Z:/picture/008/save_picture_341083.jpg" />
 </div>
 
 
@@ -680,7 +747,7 @@ Liar - Set The World On Fire (1978) Reissue, 2020, Escape Music [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340944.jpg" />
+  <img src="Z:/picture/008/save_picture_340944.jpg" />
 </div>
 
 
@@ -694,64 +761,6 @@ Liar - Set The World On Fire (1978) Reissue, 2020, Escape Music [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49AE236CB887DB14F507AD4C66E5010CE1D147E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954671   (339731) от 08.11.2015
-
-Billy Gibbons And The BFGs - Perfectamundo (2015) [FLAC|tracks|WEB-DL]<Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got Love If You Want It (4:18)
-02. Treat Her Right (2:24)
-03. You're What's Happenin', Baby (6:07)
-04. Sal Y Pimiento (3:13)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B7EAB142006187BFCAEBBFF263A8EB4A0A9306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418741   (339585) от 28.10.2020
-
-Irish Coffee - 5 albums (1971-2020) [FLAC|Lossless|image + .cue | tracks+.cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их называли "Бельгийский Deep Purple". Эта группа из Алста, Восточная Фландрия, Бельгия была сформирована в 1970 году. Музыка группы представляла собой сочетание хард-рока и блюз-рока с яркими партиями соло-гитары и сильным вокалом. Из-за недостаточного менеджмента им было тяжело конкурировать с британскими и американскими исполнителями. Успех долго им (   Читать дальше...   )--------------------------
-
-01. Tobacco Fields (3:38)
-02. Take Me Home (4:09)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 03:48:54 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5061D7861EDE2E32CB0ED51070A8FDD4B48F47
 ```
 
 https://mybot314.ru/tekegram_catalog/

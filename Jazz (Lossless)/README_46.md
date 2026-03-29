@@ -1,3 +1,119 @@
+###  Публикация: 1104243   (880296) от 15.02.2017
+
+Mel Torme - Comin' Home Baby! (1962) Remaster, 1988, Atlantic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Comin' Home Baby! [02:45]
+ 02.Dat Dere [02:59]
+ 03.The lady’s In Love With You [03:00]
+ 04.Hi-Fly [03:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B0566FBEB4E7842DFBECF26B89509096F5B1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104575   (880294) от 15.02.2017
+
+The Frank Wess - Quartet (1960) 2004, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's So Peaceful In The Country [04:02]
+ 02.Rainy Afternoon [08:27]
+ 03.Star Eyes [03:55]
+ 04.Stella By Starlight [05:11](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DECD7AB38CE424F1532DACC384E2163DEB1D0C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104311   (880290) от 15.02.2017
+
+Steve Gut - Mr. C.T. (1995) Remaster, 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.On The Road [04:45]
+ 02.Some Memories [05:53]
+ 03.Summer Afternoon [06:10]
+ 04.Black Triangle [06:07](   Читать дальше...   )Жанр: Post-Bop, Modern Big BandПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63BFB89EA7FE435A51CD5051E81E46EC8414C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104047   (880281) от 15.02.2017
+
+Tete Montoliu & Jordi Sabates - Vampyria (1974) 2007, Nuevos Medios [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Canco De Bressol 1 [01:43]
+ 02.Ligeia [06:46]
+ 03.Stonehenge [06:11]
+ 04.Mirando Al Caballo Claro [02:33](   Читать дальше...   )Жанр: Jazz Fusion, Piano JazzПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF036B1D833DC01CE62C27EAAF019B59EDDC0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104045   (880275) от 15.02.2017
 
 Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <Jump Jive, Neo Swing>
@@ -6,7 +122,7 @@ Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880275.jpg" />
+  <img src="Z:/picture/005/save_picture_880275.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ McCoy Tyner Quartet - New York Reunion (1991) Chesky Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880264.jpg" />
+  <img src="Z:/picture/005/save_picture_880264.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Elisabeth Melander - Reflections Of A Voice (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880263.jpg" />
+  <img src="Z:/picture/005/save_picture_880263.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Bert Kaempfert - Let's Swing (1995) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Eas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880250.jpg" />
+  <img src="Z:/picture/005/save_picture_880250.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Electro Deluxe - Circle (2016) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880247.jpg" />
+  <img src="Z:/picture/005/save_picture_880247.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Gabor Szabo - Gypsy '66 (1965) Remaster, 2005, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880243.jpg" />
+  <img src="Z:/picture/005/save_picture_880243.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dave Weckl - Master Plan (1990) GRP Records [FLAC|Lossless|tracks + .cue] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880240.jpg" />
+  <img src="Z:/picture/005/save_picture_880240.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Kenny G - I'm in the Mood for Love: The Most Romantic Melodies Of All Time (2006
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879976.jpg" />
+  <img src="Z:/picture/005/save_picture_879976.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Brian Simpson - Out Of A Dream (2015) [FLAC|Lossless|WEB-DL|tracks]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879420.jpg" />
+  <img src="Z:/picture/005/save_picture_879420.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Miles Davis - Blue Moods (1956-1984) 2001, Sony Music[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879401.jpg" />
+  <img src="Z:/picture/005/save_picture_879401.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Milt Jackson - Three Classic Albums (1958) 2CD, 2011, Real Gone [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878997.jpg" />
+  <img src="Z:/picture/005/save_picture_878997.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Afro Cuban All Stars - A Toda Cuba Le Gusta (1999) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878525.jpg" />
+  <img src="Z:/picture/005/save_picture_878525.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Don Cherry - Relativity Suite (1973) Trio Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878298.jpg" />
+  <img src="Z:/picture/005/save_picture_878298.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Don Cherry Quintets - Copenhagen 1963 & Hilversum 1966 (2010) FreeFactory [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878293.jpg" />
+  <img src="Z:/picture/005/save_picture_878293.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Yuji Ohno with Friends - Boss Piano (2012) VAP Inc.[FLAC|Lossless|image+.cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877671.jpg" />
+  <img src="Z:/picture/005/save_picture_877671.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Harry Allen - A Night at Birdland, Vol. 2 (1995) Nagel–Heyer Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876979.jpg" />
+  <img src="Z:/picture/005/save_picture_876979.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Al Jarreau - Accentuate The Positive (2004) [FLAC|Lossless|image + .cue] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876891.jpg" />
+  <img src="Z:/picture/005/save_picture_876891.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Thad Jones & Mel Lewis - Quartet (1977) 1989, A&M Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876745.jpg" />
+  <img src="Z:/picture/005/save_picture_876745.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Denny Zeitlin - Zeitgeist (1967) Remaster, 2015, Sony Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876744.jpg" />
+  <img src="Z:/picture/005/save_picture_876744.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Art Pepper - Modern Art, Vol.2 (1956, 1957) 1988, Blue Note [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876743.jpg" />
+  <img src="Z:/picture/005/save_picture_876743.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Art Pepper - The Art Of Pepper, Vol.3 (1957) 1988, Blue Note [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876742.jpg" />
+  <img src="Z:/picture/005/save_picture_876742.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Art Pepper - The Return Of Art Pepper, Vol. 1 (1956, 1957) 1988, Blue Note [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876739.jpg" />
+  <img src="Z:/picture/005/save_picture_876739.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Art Pepper - The Return Of Art Pepper, Vol. 1 (1956, 1957) 1988, Blue Note [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1153B701FDC88A0B5EB12E9468D41238D5525BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105694   (876635) от 17.02.2017
-
-Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Alright With Me (8:59)
-02. Only The Lonely (7:21)
-03. Don't Interrupt The Sorrow (4:58)
-04. River (6:35)(   Читать дальше...   )Жанр: Soul, Vocal JazzПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB55B3EFCAEF4AE43999ECAEAD2821D358744B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104894   (876415) от 17.02.2017
-
-Yussef Kamaal - Black Focus (2016) [FLAC|Lossless|tracks + .cue] <Experimental, Broken Beat, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Focus (4:34)
-02. Strings of Light (8:29)
-03. Remembrance (9:01)
-04. Yo Chavez (3:59)(   Читать дальше...   )Жанр: Experimental, Broken Beat, Acid JazzПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD6CF0D90C807A5701EBBB5035FBC204592FDD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495940   (876041) от 15.09.2021
-
-Roy Hargrove & Mulgrew Miller - In Harmony (2006, 2007) 2CD, 2021, Resonance Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876041.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. What Is This Thing Called Love? [9:11]
-02. This Is Always [8:25]
-03. I Remember Clifford [8:36](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12ABFD4C6DE1551C5B2D0284F1904040905D8783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997251   (875830) от 16.03.2016
-
-Scott Henderson, Jeff Berlin, Dennis Chambers - HBC (2012) Mascot Label Group[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Actual Proof [10:17]
- 02.Mysterious Traveller [06:59]
- 03.Footprints [08:46]
- 04.D Flat Waltz [11:58](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194DC436DACB852FAF46CE5996D9313595C8F335
 ```
 
 https://mybot314.ru/tekegram_catalog/

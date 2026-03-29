@@ -1,3 +1,119 @@
+###  Публикация: 1294661   (244409) от 08.04.2019
+
+Povarovo - Tchernovik (2007) Reissue, 2012, Denovali  [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Dark Ambient, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Going (3:30)
+02. Dumb and Short (1:42)
+03. After Breake (5:12)
+04. Methro Nome (3:25)(   Читать дальше...   )Производство: Denovali Records - DEN083Жанр: Dark Jazz, Dark Ambient, Future JazzПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11D611E9F1F88ADADEF6630A7705A2D304ACDA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072164   (244401) от 12.11.2016
+
+The Jimmy Giuffre 3 - Trav'lin' Light (1958) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Trav'lin' Light [04:27]
+ 02.The Swamp People [05:37]
+ 03.The Green Country (New England Mood) [03:08]
+ 04.Forty-Second Street [06:18](   Читать дальше...   )Жанр: CoolПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A3340462DE75D9CEB78A5A15ED4BBC0291E2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625705   (244381) от 11.04.2023
+
+McCoy Tyner - Sama Layuca (1974) 2002, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sama Layuca [8:38]
+02. Above the Rainbow [3:03]
+03. La Cubana [10:27]
+04. Desert Cry [4:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17ED47254D1211043B80D7D1AC5D332AD9B81B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072290   (244361) от 12.11.2016
+
+Peter Fernandes - The New Me (2011) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Minute To Midnight (Intro) [1:07]
+02. The New Wave [6:15]
+03. Twitch [6:35]
+04. Casionometry [7:10](   Читать дальше...   )Жанр: FusionПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFDA8DFA187C13FF98BCACC0E423D980A6DC836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072170   (244337) от 12.11.2016
 
 Laurent Coq Trio - Spinnin' (2005) Cristal Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Laurent Coq Trio - Spinnin' (2005) Cristal Records[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244337.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Thelonious Monk - The Best of Thelonious Monk (1955 - 1960) 2004, Riverside Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244336.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Tony Kofi Quartet - The Silent Truth (2008) Specific Jazz[FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244330.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Guido Manusardi Trio - No More No Less (2006) SoundHills Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244313.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Count Basie & Joe Williams - Count Basie Swings, Joe Williams Sings (1955) 1993,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244307.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Louie Bellson And His Big Band - Live From New York (1994) Telarc [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244304.jpg" />
+  <img src="Z:/picture/004/save_picture_244304.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Nancy Wilson - Hollywood-My Way (1963) 2006, Capitol Jazz[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244300.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dj Para - Fallen On Def Ears (2009) [FLAC|Lossless|tracks + .cue] <Funk, Nu Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244287.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Francisco "Paquito" Hechavarria - Frankly (2009) [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244279.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Steve Khan - Backlog (2017) Tone Center [FLAC|Lossless|tracks + .cue] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244274.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Tony Kofi Quartet - Plays Monk (2004) Specific Jazz[FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244266.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Gary Burton - Country Roads & Other Places (1969) 1998, Koch Jazz[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244236.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Pamela Rose & The Nate Ginsberg Trio - On the Jazzy Side of Blue (1993) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244190.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Ladies In Blue (1934 - 1954) 2CD, 2005, Nocturne [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244185.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Jay Migliori And Dick Twardzik - Jazz Workshop Quintet (1954) 2020, Fresh Sound 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244177.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Benny Carter - 4 Albums From The MusicMasters Catalogue - Set 2 (1990-1995) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244175.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Lou Mecca - Bridging The Gap (1999) 2003, Jazzbank [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244173.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Nancy Wilson - From Broadway With Love & Tender Loving Care (1966) 1993, EMI[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244167.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Nancy Wilson - The Sound Of Nancy Wilson & Nancy (1968, 1969) 2013, SoulMusic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244154.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Dave Grusin - Discovered Again (1976), Mountain Dance (1979), 2CD [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244098.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Rob Van Bavel, Vincent Koning, Frans Van Geest - Trilogy: The Ghost, The King & 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244090.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Mammoth - Deviations (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244080.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Mammoth - Deviations (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2AFB406DF705D9A0CC47D0D45483350A2F4AE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454063   (244054) от 14.03.2021
-
-John Coltrane with Mal Waldron - The Dealers: The Complete Sessions (1957) 2CD, 2014, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244054.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pot Pourri [6:41]
-02. J.M.'s Dream Doll [8:42]
-03. Don't Explain [7:02](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF61CB43EEECDE6EFEEBC92ECAD905686F4760E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074444   (244038) от 19.11.2016
-
-Bella Wolf - Bella Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil You Know
-02. Saqsaywaman
-03. Turn Up
-04. Look Up(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A28C40FB27746FD3A3A9A1D7F765306466129F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074436   (243943) от 19.11.2016
-
-Jimi Tenor - Saxentric (2016) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid Jazz, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cap De Creus
-02. Full House
-03. My Baby Is Coming
-04. Vortex(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, Future JazzПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEA7A43B55FD9C792C23128A9B505C48CA9360C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611333   (243937) от 11.02.2023
-
-Louis Armstrong - The Complete Louis Armstrong Columbia And RCA Victor Studio Sessions (1946 - 1966) 7CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243937.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Long Long Journey [4:33]
-02. Snafu [4:14]
-03. Linger in My Arms a Little Longer [2:59](   Читать дальше...   )Жанр: Swing, Dixieland, New Orleans JazzПродолжительность: 09:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34CC9C8597CC228D40EE89A48A65D995A230854
 ```
 
 https://mybot314.ru/tekegram_catalog/

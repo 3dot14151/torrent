@@ -1,3 +1,111 @@
+###  Публикация: 1050113   (540364) от 07.09.2016
+
+BitPerfect 3.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540364.jpg" />
+</div>
+
+
+###  Подробнее
+
+BitPerfect - простой, легкий в использовании, музыкальный плеер аудиофильского класса, который работает с iTunes, чтобы получить максимально возможное качество звука.
+
+Особенности:
+- Ненавязчивый, минимальный пользовательский интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 сентября 2016Разработчик: BitPerfect Sound Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED81D9241C0F43158FDB7B1AC391CE307C902933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239097   (540357) от 04.08.2018
+
+iMazing 2.6.4 (9261) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540357.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: DigiDNAПоддерживаемая ОС: 10.8+Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5D680F05452BB14D8EA79563D30530A9730ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235279   (540298) от 21.07.2011
+
+MAMP Pro 2.0.1 [Eng]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540298.jpg" />
+</div>
+
+
+###  Подробнее
+
+MAMP Pro позволяет создавать несколько виртуальных серверов, его графические конфигураторы впечатляют. Ближайший известный аналог для Windows – Denwer – не может похвастаться аналогичной конфигурационной утилитой. А по функционалу они весьма близки.Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098868   (540194) от 04.08.2018
+
+The Long Dark 1.35 (License GOG) [Moded] [macOS WineSkin]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540194.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Long Dark – это новый симулятор выживания в суровых зимних условиях. Играете вы за пилота Вили Маккензи, который терпит крушение из-за странной геомагнитной бури в бескрайних лесах Северной Канады. Теперь главная ваша задача – выжить как можно дольше, а для этого исследуйте окружающую местность, найдите и используйте различные предметы для выживания, укройтесь (   Читать дальше...   )Тип издания: macOS WineSkinРелиз состоялся: 1 августа 2017Разработчик: Hinterland Studio Inc.Поддерживаемая ОС: 10.11+Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A637C86D1F5732A170C381CDFEBB788AB02A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050267   (540010) от 07.09.2016
 
 WiFi Explorer 2.2 [Multi]
@@ -6,7 +114,7 @@ WiFi Explorer 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540010.jpg" />
+  <img src="Z:/picture/008/save_picture_540010.jpg" />
 </div>
 
 
@@ -35,7 +143,7 @@ NetWorker - Advanced Network Information App 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539279.jpg" />
+  <img src="Z:/picture/008/save_picture_539279.jpg" />
 </div>
 
 
@@ -63,7 +171,7 @@ Canary Mail 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539089.jpg" />
+  <img src="Z:/picture/008/save_picture_539089.jpg" />
 </div>
 
 
@@ -92,7 +200,7 @@ Clearview 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538860.jpg" />
+  <img src="Z:/picture/008/save_picture_538860.jpg" />
 </div>
 
 
@@ -119,7 +227,7 @@ Path Finder 8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538845.jpg" />
+  <img src="Z:/picture/008/save_picture_538845.jpg" />
 </div>
 
 
@@ -145,7 +253,7 @@ This Is the Police 2 v.1.0.4 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538711.jpg" />
+  <img src="Z:/picture/008/save_picture_538711.jpg" />
 </div>
 
 
@@ -171,7 +279,7 @@ Life Is Strange (Episode 1-2-3-4) v.1.0.0 (2015) [Ru/En] [OS X WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538636.jpg" />
+  <img src="Z:/picture/008/save_picture_538636.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ IP Scanner Pro 3.50 (3.50.5) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538426.jpg" />
+  <img src="Z:/picture/008/save_picture_538426.jpg" />
 </div>
 
 
@@ -225,7 +333,7 @@ AnyTrans 5.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538267.jpg" />
+  <img src="Z:/picture/008/save_picture_538267.jpg" />
 </div>
 
 
@@ -252,7 +360,7 @@ Watermark Plus 1.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538164.jpg" />
+  <img src="Z:/picture/008/save_picture_538164.jpg" />
 </div>
 
 
@@ -280,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537777.jpg" />
+  <img src="Z:/picture/008/save_picture_537777.jpg" />
 </div>
 
 
@@ -306,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537769.jpg" />
+  <img src="Z:/picture/008/save_picture_537769.jpg" />
 </div>
 
 
@@ -332,7 +440,7 @@ Serial 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537198.jpg" />
+  <img src="Z:/picture/008/save_picture_537198.jpg" />
 </div>
 
 
@@ -360,7 +468,7 @@ ProPresenter 6.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537122.jpg" />
+  <img src="Z:/picture/008/save_picture_537122.jpg" />
 </div>
 
 
@@ -387,7 +495,7 @@ Trim Enabler Pro 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537072.jpg" />
+  <img src="Z:/picture/008/save_picture_537072.jpg" />
 </div>
 
 
@@ -414,7 +522,7 @@ NoteBurner M4V Converter Plus 4.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536998.jpg" />
+  <img src="Z:/picture/008/save_picture_536998.jpg" />
 </div>
 
 
@@ -442,7 +550,7 @@ Serial Box 08-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536884.jpg" />
+  <img src="Z:/picture/008/save_picture_536884.jpg" />
 </div>
 
 
@@ -471,7 +579,7 @@ iSoftPhone Pro 4.1202 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536745.jpg" />
+  <img src="Z:/picture/008/save_picture_536745.jpg" />
 </div>
 
 
@@ -498,7 +606,7 @@ DMG Canvas 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536588.jpg" />
+  <img src="Z:/picture/008/save_picture_536588.jpg" />
 </div>
 
 
@@ -525,7 +633,7 @@ LensFlare Studio 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536581.jpg" />
+  <img src="Z:/picture/008/save_picture_536581.jpg" />
 </div>
 
 
@@ -554,7 +662,7 @@ Super PhotoCut 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536573.jpg" />
+  <img src="Z:/picture/008/save_picture_536573.jpg" />
 </div>
 
 
@@ -580,7 +688,7 @@ VueScan Pro 9.5.56 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536449.jpg" />
+  <img src="Z:/picture/008/save_picture_536449.jpg" />
 </div>
 
 
@@ -591,112 +699,6 @@ VueScan — программа для работы со сканерами HP, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:448AA8DBDD0CDA7433D17E9B64963849221F5F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050882   (536096) от 09.09.2016
-
-Люди Икс: Апокалипсис / X-Men: Apocalypse (2016) WEB-DL [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536096.jpg" />
-</div>
-
-
-###  Подробнее
-
-События «Дней Минувшего Будущего» оказали колоссальное влияние на мир, где мутанты и люди борются за свое место под Солнцем. В это нелегкое время Людям Икс предстоит столкнуться со своим самым опасным противником — древним мутантом Апокалипсисом, существом, схватка с которым может стать последней не только для мутантов, но и в принципе для всего человечества. В поисках (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, приключенияРежиссер: Брайан СингерАктеры: Джеймс МакЭвой, Майкл Фассбендер, Дженнифер Лоуренс, Николас Холт, Оскар Айзек, Роуз Бирн, Эван Питерс, Джош Хелман, Софи Тернер, Тай ШериданПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Русские, АнглийскиеПродолжительность: 02:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8C2D6A6FEB23588F86D33FA360296A047BED46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050541   (536077) от 09.09.2016
-
-Отмель / The Shallows (2016) WEB-DLRip [480p] iPod
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бескрайний океан, безлюдный пляж и идеальная погода для серфингистов в поисках хорошей волны. Казалось бы, ничто не предвещает беды для очаровательной любительницы серфинга в одиночку. Разве что свидание тет-а-тет с гигантской акулой, которая загонит спортсменку на песчаную отмель и не отступит до тех пор, пока не получит своё.Производство: СШАЖанр: Ужасы, триллер, драмаРежиссер: Хауме Кольет-СерраАктеры: Блейк Лайвли, Оскар Хаэнада, Бретт Каллен, Седона Ледже, Пабло Кальва, Диего Эспехель, Джанелл Бэйли, Ава Дин, Челси Муди, Салли СигаллПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Русские, АнглийскиеПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94C06A446F64270340EF55A134BAB5F7236A701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051106   (535025) от 10.09.2016
-
-iSoftPhone Pro 4.1203 (4.1.2) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535025.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSoftPhone - удобный клиент для IP-телефонии
-iSoftPhone - программа представляет весьма оригинальный VoIP-клиент для Mac OS X. Интерфейс программы выполнен в виде телефона. iSoftPhone обеспечивает отличное качество голосовой связи. При этом программа довольно проста в настройке, имеет встроеную адресную книгу, а так же позволяет создавать виртуальную частную телефонную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 сентября 2016Разработчик: Xnet CommunicationsПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7892EF3E5581DFC7660BAC50381843CC2E09A627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051108   (534447) от 10.09.2016
-
-MacX Video Converter Pro 5.9.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534447.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
-MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным гаджетам, включая даже смартфоны и планшеты не самой первой «свежести». (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 сентября 2016Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DFB70DECE4CDCBCE3D0A8536F1B52A2FC17DB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

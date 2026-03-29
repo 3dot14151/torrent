@@ -6,7 +6,7 @@ Microsoft Windows 10 Enterprise 10.0.14295 Insider Preview - Оригиналь�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846210.jpg" />
+  <img src="Z:/picture/008/save_picture_846210.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 10 Multiple Editions 10.0.14295 Insider Preview - Оригин
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846205.jpg" />
+  <img src="Z:/picture/008/save_picture_846205.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual Studio 2015 14.0.25123.00 Update 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846192.jpg" />
+  <img src="Z:/picture/008/save_picture_846192.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846178.jpg" />
+  <img src="Z:/picture/008/save_picture_846178.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846165.jpg" />
+  <img src="Z:/picture/008/save_picture_846165.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846156.jpg" />
+  <img src="Z:/picture/008/save_picture_846156.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ EASEUS Partition Master 14.0 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846146.jpg" />
+  <img src="Z:/picture/008/save_picture_846146.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Topaz Video Enhance AI 1.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846136.jpg" />
+  <img src="Z:/picture/008/save_picture_846136.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846131.jpg" />
+  <img src="Z:/picture/008/save_picture_846131.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Manjaro Linux 0.8.5.1 (Arch + XFCE) [i686, x86-64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846084.jpg" />
+  <img src="Z:/picture/008/save_picture_846084.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846083.jpg" />
+  <img src="Z:/picture/008/save_picture_846083.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846081.jpg" />
+  <img src="Z:/picture/008/save_picture_846081.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846064.jpg" />
+  <img src="Z:/picture/008/save_picture_846064.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Freemake Video Converter 4.1.13.93 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846041.jpg" />
+  <img src="Z:/picture/008/save_picture_846041.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ HiBit System Information 2.0.30 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846037.jpg" />
+  <img src="Z:/picture/008/save_picture_846037.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846029.jpg" />
+  <img src="Z:/picture/008/save_picture_846029.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846023.jpg" />
+  <img src="Z:/picture/008/save_picture_846023.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Manjaro Linux 0.8.5.1 (Arch + openbox, net) [i686, x86-64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845987.jpg" />
+  <img src="Z:/picture/008/save_picture_845987.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845965.jpg" />
+  <img src="Z:/picture/008/save_picture_845965.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845951.jpg" />
+  <img src="Z:/picture/008/save_picture_845951.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ SamDrivers 21.9 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845928.jpg" />
+  <img src="Z:/picture/008/save_picture_845928.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VueScan Pro 9.7.66 (DC 02.09.2021) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845927.jpg" />
+  <img src="Z:/picture/008/save_picture_845927.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ GOM Player Plus 2.3.69.5333 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845924.jpg" />
+  <img src="Z:/picture/008/save_picture_845924.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wise Registry Cleaner Pro 10.5.1.696 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845921.jpg" />
+  <img src="Z:/picture/008/save_picture_845921.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ ByClick Downloader Premium 2.3.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845920.jpg" />
+  <img src="Z:/picture/008/save_picture_845920.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ HiBit Uninstaller 2.6.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845916.jpg" />
+  <img src="Z:/picture/008/save_picture_845916.jpg" />
 </div>
 
 

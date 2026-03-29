@@ -1,3 +1,119 @@
+###  Публикация: 1026402   (704165) от 15.06.2016
+
+Seby Burgio - Bounce (2015) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Me [06:08]
+ 02. Coffee Time [06:10]
+ 03. Etnia [05:29]
+ 04. Polkadots and Moonbeams [06:42](   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D43EB4D793EC49BDE2AA5482C7440AB67E9F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026418   (704163) от 15.06.2016
+
+Tete Montoliu Trio - Secret Love (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Secret Love [10:51]
+ 02.Airegin [05:35]
+ 03.Confirmation [07:35]
+ 04.Four [08:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3002A2B64EC4035F1384419336E3429D49914C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026424   (704162) от 15.06.2016
+
+Rein de Graaff Trio - Tenor Conclave (1992) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Perdido / Wahoo [13:45]
+ 02.Old Folks [04:33]
+ 03.Out Of Nowhere [12:12]
+ 04.Loverman [04:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12998A562A5685D1CD16C0BF1063982C0982B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402119   (703947) от 13.08.2020
+
+Hampton Hawes - Three Classic Albums Plus (1955 - 1956) 2013, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703947.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jordu [7:10]
+02. Groovin' High [5:48]
+03. Takin' Care [8:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7761F3660296ABCA29C8A9F60BAFC7CDC6823F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402262   (703931) от 13.08.2020
 
 Frances Madden - Beautiful World (2020) [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Frances Madden - Beautiful World (2020) [FLAC|Lossless|image + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703931.jpg" />
+  <img src="Z:/picture/008/save_picture_703931.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ John Zorn - Baphomet (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703928.jpg" />
+  <img src="Z:/picture/008/save_picture_703928.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Dave Frishberg - Lookin Good (1977, 1989) 2CD, 2001, Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703200.jpg" />
+  <img src="Z:/picture/008/save_picture_703200.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ Eric Alexander - Nightlife In Tokyo (2003) Milestone [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703197.jpg" />
+  <img src="Z:/picture/008/save_picture_703197.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ The Three Sounds - Here We Come (1960) Remaster, 2015, Universal[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702528.jpg" />
+  <img src="Z:/picture/008/save_picture_702528.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ Johnny Griffin & Matthew Gee - Soul Groove (1963) Remaster, 2012, Warner[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702520.jpg" />
+  <img src="Z:/picture/008/save_picture_702520.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Joe Lovano & Dave Douglas - Sound Prints (2015) Blue Note[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702518.jpg" />
+  <img src="Z:/picture/008/save_picture_702518.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Rosemary Clooney - Eight Classic Albums (1955 - 1961) 4CD, 2013, Real Gone Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702457.jpg" />
+  <img src="Z:/picture/008/save_picture_702457.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Brian Melvin featuring Jaco Pastorius - Night Food (1985) Remaster, 2015, Solid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702439.jpg" />
+  <img src="Z:/picture/008/save_picture_702439.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Renee Rosnes - Art & Soul (1999) Blue Note [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701975.jpg" />
+  <img src="Z:/picture/008/save_picture_701975.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ KAVver. - Antonio (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Jazz, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701974.jpg" />
+  <img src="Z:/picture/008/save_picture_701974.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Renee Rosnes - Life On Earth (2001) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701973.jpg" />
+  <img src="Z:/picture/008/save_picture_701973.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Renee Rosnes - Ancestors (1996) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701972.jpg" />
+  <img src="Z:/picture/008/save_picture_701972.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Renee Rosnes - Without Words (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701971.jpg" />
+  <img src="Z:/picture/008/save_picture_701971.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Ella Fitzgerald - The Harold Arlen Songbook (1961) 1988, 2CD, Verve [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701967.jpg" />
+  <img src="Z:/picture/008/save_picture_701967.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Jackie Gleason - Jackie Gleason Presents Riff Jazz and Lazy Lively Love (2020) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701961.jpg" />
+  <img src="Z:/picture/008/save_picture_701961.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ KAVver. - Hollow/In (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701887.jpg" />
+  <img src="Z:/picture/008/save_picture_701887.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Paul Williams - Colours of Joy (2020) [FLAC|Lossless|tracks + .cue] <Jazz, Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701836.jpg" />
+  <img src="Z:/picture/008/save_picture_701836.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Louis Armstrong - The Ultimate Collection (1994) Remastered [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701773.jpg" />
+  <img src="Z:/picture/008/save_picture_701773.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Louis Armstrong - Hello Louis! (1990) 2CD [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701772.jpg" />
+  <img src="Z:/picture/008/save_picture_701772.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Sentimental Midnight Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701766.jpg" />
+  <img src="Z:/picture/008/save_picture_701766.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Lionel Hampton - Reunion At Newport 1967 (1993) Bluebird [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701282.jpg" />
+  <img src="Z:/picture/008/save_picture_701282.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Lionel Hampton - Reunion At Newport 1967 (1993) Bluebird [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74F930145D3294A96F65C62815095A583CD3158F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132472   (701276) от 09.05.2017
-
-Wild Bill Davis - Swing & Shout: Americans Swinging In Paris (1977) 2002, Black And Blue [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stick Up The Band [07:14]
-02. Lullaby Of Birdland [09:50]
-03. Indiana [06:57]
-04. Body And Soul [05:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3045DF59CF11C8E6D94532F1DBCC04ADFE885275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132479   (701270) от 09.05.2017
-
-Pepper Adams - Plays Charlie Mingus (1963) 2003, Fresh Sounds Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fables of Faubus [04:28]
-02. Black light [03:42]
-03. Song with orange [02:38]
-04. Carolyn [05:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93C3B76D0C69A0E9E779158EF6664EF70977C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132478   (701160) от 09.05.2017
-
-Smoking Time Jazz Club - Ain't We Fortunate! (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Orleans Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Downtown Doin's (2:55)
-02. Snag It (4:19)
-03. Southern Sunsets (3:14)
-04. Copenhagen (2:42)(   Читать дальше...   )Жанр: New Orleans Jazz, Big Band, SwingПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095D02DF7C0EBB9C5B01986439E5A1D790532452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132471   (700778) от 09.05.2017
-
-Andy Bey - Tuesdays in Chinatown (2001) Warlock Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tuesdays in Chinatown [06:53]
-02. Fragile [04:51]
-03. Bridges [04:59]
-04. Saidas E Bandeiras [05:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693648499A52D168534488A83268FAF31F1FB736
 ```
 
 https://mybot314.ru/tekegram_catalog/

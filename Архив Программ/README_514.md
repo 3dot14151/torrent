@@ -6,7 +6,7 @@ Comodo Dragon 55.0.2883.59 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786111.jpg" />
+  <img src="Z:/picture/008/save_picture_786111.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cacheman 10.10.0.9 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786093.jpg" />
+  <img src="Z:/picture/008/save_picture_786093.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows and Office ISO Download Tool 4.31 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786086.jpg" />
+  <img src="Z:/picture/008/save_picture_786086.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Futuremark 3DMark 2.3.3682 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786085.jpg" />
+  <img src="Z:/picture/008/save_picture_786085.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Viber 6.7.0.1095 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786084.jpg" />
+  <img src="Z:/picture/008/save_picture_786084.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786075.jpg" />
+  <img src="Z:/picture/008/save_picture_786075.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Futuremark 3DMark 2.3.3682 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786074.jpg" />
+  <img src="Z:/picture/008/save_picture_786074.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DiskDigger 1.12.5.2081 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786062.jpg" />
+  <img src="Z:/picture/008/save_picture_786062.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sound Normalizer 7.6 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786052.jpg" />
+  <img src="Z:/picture/008/save_picture_786052.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ foobar2000 1.3.15 Stable RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786033.jpg" />
+  <img src="Z:/picture/008/save_picture_786033.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ashampoo Snap 10.0.1 Portable punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785947.jpg" />
+  <img src="Z:/picture/008/save_picture_785947.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ashampoo Snap 10.0.1 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785941.jpg" />
+  <img src="Z:/picture/008/save_picture_785941.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ashampoo Snap 10.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785935.jpg" />
+  <img src="Z:/picture/008/save_picture_785935.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Paint.NET 4.0.14 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785930.jpg" />
+  <img src="Z:/picture/008/save_picture_785930.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Paint.NET 4.0.14 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785912.jpg" />
+  <img src="Z:/picture/008/save_picture_785912.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ XnConvert 1.74 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785911.jpg" />
+  <img src="Z:/picture/008/save_picture_785911.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Ashampoo Snap 10.0.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785907.jpg" />
+  <img src="Z:/picture/008/save_picture_785907.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Stellarium 0.12.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785900.jpg" />
+  <img src="Z:/picture/008/save_picture_785900.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ XnViewMP 0.85 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785896.jpg" />
+  <img src="Z:/picture/008/save_picture_785896.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ W10Privacy 2.3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785891.jpg" />
+  <img src="Z:/picture/008/save_picture_785891.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ AIMP 4.13 Build 1893 DC 07.04.2017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785884.jpg" />
+  <img src="Z:/picture/008/save_picture_785884.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Acronis True Image 2017 New Generation Build 6206 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785869.jpg" />
+  <img src="Z:/picture/008/save_picture_785869.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Adobe Acrobat XI Pro 11.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785863.jpg" />
+  <img src="Z:/picture/008/save_picture_785863.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ uTorrent 3.5.0 Build 43580 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785859.jpg" />
+  <img src="Z:/picture/008/save_picture_785859.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Paint.NET 4.0.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785763.jpg" />
+  <img src="Z:/picture/008/save_picture_785763.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Ashampoo Burning Studio 18.0.4.15 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785762.jpg" />
+  <img src="Z:/picture/008/save_picture_785762.jpg" />
 </div>
 
 

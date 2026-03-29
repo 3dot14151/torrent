@@ -1,3 +1,138 @@
+###  Публикация: 1687072   (126009) от 25.12.2023
+
+Udemy, Colt Steele | JavaScript Pro: Mastering Advanced Concepts and Techniques (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите ваши базовые знания JavaScript в уровень эксперта с этим новым обширным курсом, разработанным для тех, кто готов сделать следующий большой шаг в своей карьере программиста. Если вы когда-либо чувствовали себя запуганным более сложными возможностями JavaScript или испытывали трудности с пониманием его тонких концепций, этот курс создан именно для вас. Если (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 19:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC142E9094188A76327222B05CE70143B3435F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823684   (125868) от 12.10.2025
+
+1С Учебный центр №1, Лада Люзинелли | Ведение бухгалтерского учета в 1С Предприятие 8 (2024) WEBRip [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен: для пользователей как небольших, так и крупных предприятий, желающих освоить работу с программой «1С:Бухгалтерия 8» в актуальной редакции 3.0 при ведении учета на общей системе налогообложения.
+
+Базовый курс построен в виде сквозной задачи, при решении которой слушатель выполняет практикумы вместе с преподавателем. Учебная задача построена на примере (   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 29:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7B560D37A4F694AE515088752C1E2639562C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823591   (125826) от 12.10.2025
+
+Инфостарт, Вера Пикурен | Практические аспекты внедрения регламентированного учета и расчета себестоимости в 1С:ERP на крупных промышленных предприятиях (2024) WEBRip [RU] [с учетом новых возможнос ...
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс рассчитан для подготовки экспертов по регламентированному учету и учету затрат для внедрения на крупных промышленных предприятиях с «исторически сложившимся» учетом.
+
+Основная задача курса - дать практические навыки работы с программой «1С:ERP Управление предприятием 2.5», логику работы программы, способы разбора ошибок, практику закрытия периода.
+Говорить будем (   Читать дальше...   )Производство: ИнфостартЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 29:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823212   (125810) от 11.10.2025
+
+1С Учебный центр №1, Екатерина Кусаева  | Торгово-складской функционал в УТ, КА и 1С:ERP на базе «1С:Управление торговлей 8» (2025) WEB-DL [RU] [11.5, версия ПРОФ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для тех, кто желает освоить работу в конфигурации «1С:Управление торговлей 8 ПРОФ», изучить основные возможности программы, а также научиться эффективно их использовать на практике. Курс подходит как для новичков, ранее не работавших в программе, так и для опытных пользователей, поскольку позволяет изучить методику работы в программе и систематизировать (   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 13:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5CBFF9474EA3E97DFC7A671945D97B5301E3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823223   (125793) от 11.10.2025
+
+1С Учебный центр №1, Игорь Поважный  | Профессиональная работа в программе "1С:Документооборот 8" (2025) WEB-DL [RU] [Редакция 3.0]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125793.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1С:Документооборот» – универсальная система автоматизации документооборота, процессорного учета и совместной работы. В программе предусмотрено 13 больших функциональных блоков и более 1000 интерфейсов. От того, насколько умело вы будете пользоваться этим богатством, зависит эффективность вашей повседневной работы и вашего предприятия в целом.Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 22:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160293EC4021B9D5431BE4ED53254711E460C270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823372   (125791) от 11.10.2025
 
 Нетология, Дарья Татькова, Регина Гатауллина, Виктор Кузьмин | 1C-аналитик: Расширенный курс (2025) WEBRip [RU]
@@ -6,7 +141,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125791.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125277.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124979.jpg" />
 </div>
 
 
@@ -88,7 +223,7 @@ Udemy, Neil Cummings | Build a Microservices app with .Net and NextJS from scrat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124952.jpg" />
 </div>
 
 
@@ -114,7 +249,7 @@ Udemy, Manik (Cloudaffle) | TypeScript Design Patterns And SOLID Principles (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124950.jpg" />
 </div>
 
 
@@ -140,7 +275,7 @@ Udemy, Marat Zhman | React Animation Project SCSS (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124947.jpg" />
 </div>
 
 
@@ -167,7 +302,7 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124938.jpg" />
 </div>
 
 
@@ -195,7 +330,7 @@ Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124819.jpg" />
 </div>
 
 
@@ -221,7 +356,7 @@ IAmTimCorey, Tim Corey | C# Mastercourse (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124722.jpg" />
 </div>
 
 
@@ -249,7 +384,7 @@ Udemy, Virtual Pair Programmers, Richard Chesterwood, Prageeth Warnak | Kubernet
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124706.jpg" />
 </div>
 
 
@@ -276,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124125.jpg" />
 </div>
 
 
@@ -303,7 +438,7 @@ Stepik, Renat Lotfullin | Microsoft Excel - Продвинутый пользо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124119.jpg" />
 </div>
 
 
@@ -329,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123894.jpg" />
 </div>
 
 
@@ -355,7 +490,7 @@ Stepik, Renat Lotfullin | Excel VBA – Программирование мак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123893.jpg" />
 </div>
 
 
@@ -384,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123867.jpg" />
 </div>
 
 
@@ -411,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123866.jpg" />
 </div>
 
 
@@ -440,7 +575,7 @@ Linkedin Learning, Liam Cleary | Metasploit Essential Training (2022) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123850.jpg" />
 </div>
 
 
@@ -466,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123840.jpg" />
 </div>
 
 
@@ -495,7 +630,7 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123192.jpg" />
 </div>
 
 
@@ -521,7 +656,7 @@ IAmTimCorey, Tim Corey | Blazor From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123165.jpg" />
 </div>
 
 
@@ -547,7 +682,7 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123163.jpg" />
 </div>
 
 
@@ -558,141 +693,6 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:626692F0C9D31A65FB0B7C0A951A5C7F7020A9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691825   (123142) от 13.01.2024
-
-SparkCertCourse, Florian Roscheck | Apache Spark Certification Training (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apache Spark является ключевым навыком в области данных - вот как вы можете доказать, что владеете им!
-Изучите Apache Spark с нуля и продемонстрируйте свои знания с помощью сертификации Databricks Associate Developer для Apache Spark. Этот курс превратит вас в профессионала PySpark и подготовит к успешной сдаче популярной сертификации Databricks Spark.
-Присоединяйтесь (   Читать дальше...   )Производство: SparkCertCourseЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 15:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657B94D5F6194AF9482BAD52014DB5CCA233B3A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691963   (123018) от 14.01.2024
-
-Евгений Паромов | FSD - полный курс (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123018.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе собран весь мой опыт работы с FSD, best practises, архитектурные принципы, которые лежат в основе и много примеров разной сложности. Начнём с базовых абстрактных понятий, закончим конкретными решениями задач на самых популярных технологиях.
-Что такое FSD?Это стандартизированный набор архитектурных практик, которые позволяют:
-✅Ускорить разработку
-✅Упростить (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 12:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DC510C3D55EC3B06433007981D217979A97E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692062   (123016) от 14.01.2024
-
-Онлайн школа RealManual, Василий Егоров | Kubernetes RKE2 (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123016.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы научитесь разворачивать k8s и его компоненты, собирать шаблоны Proxmox, пользоваться Cloud-init, балансировать трафик с помощью Traefik, хранить данные в NFS и различать RKE2 и RKE. Обучение будет проходить на реальных кейсах, без лишней теории, и вы узнаете множество других интересных твиков.Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691859   (123015) от 14.01.2024
-
-Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого этот буткемп? Опытные разработчики желающие перейти на Rust.Изучите язык будущего. Ваше время ценно (буквально, $148,688/год). Изучайте Rust БЫСТРО с помощью буткемпа, вместо того чтобы копаться в ресурсах низкого качества. Студенты/Выпускники в поисках работы. Изучение Rust - отличное дополнение к резюме. Выделитесь среди других кандидатов. Станьте компетентным (   Читать дальше...   )Производство: Let's Get RustyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 09:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691905   (123014) от 14.01.2024
-
-frontcat1 | Грокаем собеседования. Frontend developer (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123014.jpg" />
-</div>
-
-
-###  Подробнее
-
-А как узнать что уже можно искать работу? Никак. Ваш мозг будет шептать вам: давай еще немного поучимся, ты еще плохо знаешь. Ведь так страшно идти в новое. Я сама прошла через это. Если вы понимаете асинхронность. Знаете react/vue/angular, можете решать задачи на codewar хотя бы 7 kyu и у вас есть пет проект сложнее калькулятора, который написан вами. Значит вы (   Читать дальше...   )Производство: frontcat1Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 15:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5961035E352E3065C0BAF4B469F184E62E100A
 ```
 
 https://mybot314.ru/tekegram_catalog/

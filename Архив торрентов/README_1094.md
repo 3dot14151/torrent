@@ -6,7 +6,7 @@ Visual Studio Code 1.62.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798234.jpg" />
+  <img src="Z:/picture/008/save_picture_798234.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PowerISO 8.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798222.jpg" />
+  <img src="Z:/picture/008/save_picture_798222.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Total Commander 10.00 Extended 21.11 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798198.jpg" />
+  <img src="Z:/picture/008/save_picture_798198.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SnapMotion 5.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798167.jpg" />
+  <img src="Z:/picture/008/save_picture_798167.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ SiteSucker 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798166.jpg" />
+  <img src="Z:/picture/008/save_picture_798166.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Bookends 14.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798165.jpg" />
+  <img src="Z:/picture/008/save_picture_798165.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ GlueMotion 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798164.jpg" />
+  <img src="Z:/picture/008/save_picture_798164.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ DropDMG 3.6.2 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798163.jpg" />
+  <img src="Z:/picture/008/save_picture_798163.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ MacPilot 13 v13.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798162.jpg" />
+  <img src="Z:/picture/008/save_picture_798162.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ NCH Express Accounts Plus 9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798157.jpg" />
+  <img src="Z:/picture/008/save_picture_798157.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ NCH Express Animate 6.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798156.jpg" />
+  <img src="Z:/picture/008/save_picture_798156.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798154.jpg" />
+  <img src="Z:/picture/008/save_picture_798154.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Invisor - Media File Inspector 3.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798152.jpg" />
+  <img src="Z:/picture/008/save_picture_798152.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ iFlicks 3.8 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798147.jpg" />
+  <img src="Z:/picture/008/save_picture_798147.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ PhotosRevive 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798146.jpg" />
+  <img src="Z:/picture/008/save_picture_798146.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ DetectX Swift 1.0981 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798132.jpg" />
+  <img src="Z:/picture/008/save_picture_798132.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Exposure Software Eye Candy 7 v7.2.3.176 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798131.jpg" />
+  <img src="Z:/picture/008/save_picture_798131.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ K-Lite Codec Pack Update 16.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798129.jpg" />
+  <img src="Z:/picture/008/save_picture_798129.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Airflow 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798119.jpg" />
+  <img src="Z:/picture/008/save_picture_798119.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Auburn Sounds - Panagement 2 2.4.0 (FULL) VST, VST3, AAX (x86/x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798113.jpg" />
+  <img src="Z:/picture/008/save_picture_798113.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ R-Wipe & Clean 20.0.2336 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798101.jpg" />
+  <img src="Z:/picture/008/save_picture_798101.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Streamlabs OBS 1.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798095.jpg" />
+  <img src="Z:/picture/008/save_picture_798095.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ SiSoftware Sandra Lite 2021.11.31.53 (R8 31.53) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798094.jpg" />
+  <img src="Z:/picture/008/save_picture_798094.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Adobe Character Animator 2022 22.0.0.111 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798089.jpg" />
+  <img src="Z:/picture/008/save_picture_798089.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ StartAllBack 3.0.5 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798075.jpg" />
+  <img src="Z:/picture/008/save_picture_798075.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Adobe InDesign 2022 17.0.0.096 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798053.jpg" />
+  <img src="Z:/picture/008/save_picture_798053.jpg" />
 </div>
 
 

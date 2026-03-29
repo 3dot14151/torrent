@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1861208   (1062638) от 
+
+Книжная серия | 100 великих романов [33 книги] (2015-2024) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062638.jpg" />
+</div>
+
+
+###  Подробнее
+
+«100 великих романов» - это новая книжная серия, запущенная в 2015 году, рассказывает о самых знаменитых романах, оказавших влияние на мировую культуру нескольких столетий. Каждый из них отражает свою эпоху, свою национальную культуру и одновременно обращен к будущим поколениям всего мира.Жанр: БеллетристикаИздательство: ВечеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BB597DD8CAD2081047D282F6B45BEC0A636785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861063   (1062621) от 
+
+Книжная серия | Урал - батюшка [40 книг] (2018-2025) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия исторических романов и повестей, связанных с Уральскими горами и окружающими землями. Уральские горы — Каменный пояс — издавна привлекали наших предков, привыкших к вольным просторам Русской равнины, своим грозным и таинственным видом и многочисленными легендами о богатствах недр. А когда пала Казань, ничто уже не могло сдержать русских первопроходцев, подавшихся (   Читать дальше...   )Жанр: Приключения, историяИздательство: ВечеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596DB5ED4A0F57593F15B4E1C082431D143611CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860689   (1062043) от 
+
+Книжная серия | Спецназ. Группа Антитеррор [164 книги] (2005-2018) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Терроризм угрожает… Постоянно происходит что-то неблагоприятное: заложники, теракты… Но есть те, кто борется с этим, имя им - группа Антитеррор. Они реагируют быстро, они атакуют внезапно, они защищают доблестно.Жанр: Приключения, боевик, детективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4EB5A7921345695EB6FD147CBC62AD54402709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860592   (1061886) от 
+
+Книжная серия | Современный фантастический бoевик [342 книги] (2012-2025) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061886.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии печатаются книги самых разных направлений по тематике - попаданцы, звёздные войны, параллельные миры, галактические империи...Жанр: Боевая фантастика, попаданцы, космоопераИздательство: Издательский дом «Ленинград», АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14476CF0E8C883EA6110BEE544683FD4C3AA37E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860335   (1061647) от 
 
 Книжная серия | Криминальный переплет [6 книг] (2024-2026) [FB2]
@@ -7,7 +111,7 @@ https://t.me/izofen
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061647.jpg" />
+  <img src="Z:/picture/005/save_picture_1061647.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061301.jpg" />
+  <img src="Z:/picture/005/save_picture_1061301.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057333.jpg" />
+  <img src="Z:/picture/005/save_picture_1057333.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057195.jpg" />
+  <img src="Z:/picture/005/save_picture_1057195.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056310.jpg" />
+  <img src="Z:/picture/005/save_picture_1056310.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056308.jpg" />
+  <img src="Z:/picture/005/save_picture_1056308.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055916.jpg" />
+  <img src="Z:/picture/005/save_picture_1055916.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055911.jpg" />
+  <img src="Z:/picture/005/save_picture_1055911.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055202.jpg" />
+  <img src="Z:/picture/005/save_picture_1055202.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054355.jpg" />
+  <img src="Z:/picture/005/save_picture_1054355.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054350.jpg" />
+  <img src="Z:/picture/005/save_picture_1054350.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053588.jpg" />
+  <img src="Z:/picture/005/save_picture_1053588.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053347.jpg" />
+  <img src="Z:/picture/005/save_picture_1053347.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053236.jpg" />
+  <img src="Z:/picture/005/save_picture_1053236.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053235.jpg" />
+  <img src="Z:/picture/005/save_picture_1053235.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053234.jpg" />
+  <img src="Z:/picture/005/save_picture_1053234.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053233.jpg" />
+  <img src="Z:/picture/005/save_picture_1053233.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053232.jpg" />
+  <img src="Z:/picture/005/save_picture_1053232.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053143.jpg" />
+  <img src="Z:/picture/005/save_picture_1053143.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053139.jpg" />
+  <img src="Z:/picture/005/save_picture_1053139.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053138.jpg" />
+  <img src="Z:/picture/005/save_picture_1053138.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053135.jpg" />
+  <img src="Z:/picture/005/save_picture_1053135.jpg" />
 </div>
 
 
@@ -564,114 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4018D542B9DF0B601A3AC9E577543CCE886FB099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848599   (1052869) от 18.01.2026
-
-Книжная серия | В сводках не сообщалось [42 книги] (2016-2024) [PDF, FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052869.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В сводках не сообщалось" - серия приключенческих книг о войне и шпионах. В серии публикуются, в основном, ранее не издававшиеся книги в жанре военно-приключенческой прозы.
-В годы Великой Отечественной войны советские контрразведчики раскрыли и предотвратили террористическую акцию гитлеровских спецслужб против Верховного главнокомандования Красной армии. (   Читать дальше...   )Жанр: военное, приключенияИздательство: ВечеФормат: PDF, FB2Качество: Изначально электронное (ebook), Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C80008D35EA45729A44B8767100A07C78A3B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848276   (1052794) от 16.01.2026
-
-Книжная серия | Имена. Российская проза [12 книг] (2024-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг «Имена. Российская проза», выпускаемая издательством «Азбука», представляет собой собрание современных отечественных романов.
-Основная тематика и особенности серии:
-Охват эпох: Действие книг охватывает широкий временной диапазон — от исторических событий (революционный Петроград 1918 года, борьба со старообрядчеством в 1920-х) до современных геополитических (   Читать дальше...   )Жанр: ПрозаИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFFBE5C8114473EA15AC8FD82FA2B0C12E0D5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848274   (1052793) от 16.01.2026
-
-Книжная серия | Имена. Зарубежная проза [13 книг] (2024-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг «Имена. Зарубежная проза», выпускаемая издательством «Азбука», представляет собой коллекцию современной интеллектуальной прозы зарубежных авторов.
-Содержание: Серия знакомит читателей с новыми именами в мировой литературе и актуальными произведениями современных прозаиков. Жанровое наполнение разнообразно: от психологических и семейных драм до вдохновляющих (   Читать дальше...   )Жанр: ПрозаИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C990BE7C432EAA3340225644AE1FBD0EEA3F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848310   (1052767) от 17.01.2026
-
-Книжная серия | Самосбор (Гигахрущ) [310 книг] (2018-2025) [FB2, EPUB]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052767.jpg" />
-</div>
-
-
-###  Подробнее
-
-О франшизах S.T.A.L.K.E.R и МЕТРО-2033, наверное, слышали все. А вот о мире САМОСБОРА знают не многие. Тем не менее, у этой новой игровой системы уже достаточно много фанатов. Что же это такое? Самосбор – это мир гигантской хрущёвки, сколько в ней этажей никто точно не знает. «Хрущ» или «Гигахрущ» разделён на блоки и в каждом своя жизнь. В бесконечном здании имеется (   Читать дальше...   )Жанр: ФантастикаИздательство: РазличныеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C4C0204F0F54108A26ECCF7EF5FAAE6AFD0E66
 ```
 
 https://mybot314.ru/tekegram_catalog/

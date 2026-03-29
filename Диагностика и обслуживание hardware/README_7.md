@@ -1,3 +1,211 @@
+###  Публикация: 1623849   (200370) от 03.04.2023
+
+RAMexpert + Portable 1.23.0.47 [Multi]
+
+>>След.
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200370.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAMExpert дает вам простое отображение спецификации вашей RAM (оперативной памяти). Затем он рекомендует обновить, если это необходимо.Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8483BE254154E27F6B14EB791953FB7F2889BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629815   (199199) от 27.04.2023
+
+NVIDIA Inspector 1.9.8.7 Beta [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199199.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA Inspector - это небольшая утилита, предназначенная для разгона, мониторинга и получения сведений о характеристиках видеокарт на базе GPU nVidia. Программа позволяет контролировать частоту GPU, памяти, скорости вращения вентиляторов, напряжения, и т.д.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7241B2C7E35D40BA3A76D4FDF7F2816FE5F5BAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632513   (198586) от 10.05.2023
+
+MemTest86 10.4 Build 1000 Pro by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198586.jpg" />
+</div>
+
+
+###  Подробнее
+
+MemTest86 - программа позволяющая проверить оперативную память компьютера или ноутбука на наличие ошибок и проблем в работе. MemTest86 запускается с загрузочного USB носителя и выполняет полную проверку работоспособности ОЗУ.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5C9FA2C340C2BF41305AF8FF1549D531328813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639198   (197104) от 14.06.2023
+
+GoldMemory PRO 7.98 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197104.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoldMemory - программное обеспечение, работающее в режиме DOS (с загрузочного носителя - USB или CD), с помощью которого можно тщательно протестировать вашe ОЗУ на наличие ошибок.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56CBC7A32C5A189DA3A9496C85DE2FDDAD16B821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641138   (196729) от 21.06.2023
+
+Atrise Lutcurve 4.1.1 [En/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Калибровка без калибратора. Программа поможет вам откалибровать ваш жидкокристаллический (LCD) или CRT монитор, причем без каких-либо специальных устройств, под следующие технические параметры: Гамма (Gamma): 0.1-5.0. Рекомендуется 2.2, Цветовая температура: 6500K, Уровень светимости: 80 кд./м2, Цветовое пространство (Color Space): установки монитора, обычно sRGB. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3730BE06B77776A970F45DB1C5014681932EBD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828315   (193521) от 24.10.2025
+
+OCCT 15.0.4 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1607F16C06CE6F9FE7874844A66667A9C462692B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827724   (193350) от 23.10.2025
+
+IObit Smart Defrag Pro 11.1.0.466 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3262E26DD8B5135CE61365D05401D3FEB1A0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658131   (191838) от 06.09.2023
+
+Geekbench Free 6.1.0 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench - кроссплатформенная программа для проведения тестов производительности процессора. Приложение может быть установлено без особых хлопот на Вашем компьютере и Вы можете начать тестирование возможностей Вашего процессора и всех компонентов системы.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA22149C06E6E4D1BE79902559045850AC3EDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658097   (191759) от 06.09.2023
 
 Corona Benchmark 10.0.0.20034 [En]
@@ -6,7 +214,7 @@ Corona Benchmark 10.0.0.20034 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191759.jpg" />
 </div>
 
 
@@ -35,7 +243,7 @@ AOMEI NTFS to FAT32 Converter 2.0 Free [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191505.jpg" />
+  <img src="Z:/picture/004/save_picture_191505.jpg" />
 </div>
 
 
@@ -62,7 +270,7 @@ V-Ray benchmark 5.02.01 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191475.jpg" />
 </div>
 
 
@@ -91,7 +299,7 @@ CPUID HWMonitor Pro 1.53 (x64) Portable by zeka.k [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190798.jpg" />
 </div>
 
 
@@ -117,7 +325,7 @@ Core Temp 1.18.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185724.jpg" />
 </div>
 
 
@@ -143,7 +351,7 @@ MiniTool Partition Wizard / Enterprise / Ultimate / Server / Technician 12.7 ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182829.jpg" />
 </div>
 
 
@@ -169,7 +377,7 @@ MiniTool Partition Wizard Free 12.7 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182208.jpg" />
 </div>
 
 
@@ -196,7 +404,7 @@ ChimbaBench v2.5 (3.5.2.0) [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178904.jpg" />
 </div>
 
 
@@ -222,7 +430,7 @@ System Ninja Pro 4.0 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177358.jpg" />
 </div>
 
 
@@ -248,7 +456,7 @@ ValiDrive 1.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174980.jpg" />
 </div>
 
 
@@ -276,7 +484,7 @@ Core Temp 1.19.5 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173576.jpg" />
 </div>
 
 
@@ -302,7 +510,7 @@ System Ninja 4.0.1 + Plugins [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172774.jpg" />
 </div>
 
 
@@ -328,7 +536,7 @@ System Ninja Pro 4.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172248.jpg" />
 </div>
 
 
@@ -354,7 +562,7 @@ System Ninja Pro 4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171143.jpg" />
 </div>
 
 
@@ -380,7 +588,7 @@ O&O Defrag Professional + Server 30.0 Build 1069 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170944.jpg" />
 </div>
 
 
@@ -408,7 +616,7 @@ SiSoftware Sandra Lite 20/21 R25 (версия 31.137) [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164925.jpg" />
 </div>
 
 
@@ -435,7 +643,7 @@ EASEUS Partition Master 10.8 Technician Edition WinPE [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158334.jpg" />
 </div>
 
 
@@ -461,7 +669,7 @@ Abelssoft SSD Fresh Plus 2015 Retail [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155287.jpg" />
 </div>
 
 
@@ -472,216 +680,6 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB254455247F167DF8155F0147C6B0ACF012006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825865   (150995) от 18.10.2025
-
-OCCT 15.0.2 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EFD396B9A014C14D11FE0BA2979063C6E39547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435523   (143336) от 28.12.2020
-
-MiniTool Partition Wizard Technician 12.3 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143336.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Partition Wizard Technician - мощный менеджер для работы с разделами жесткого диска. С его помощью можно изменять размер раздела, создавать новые разделы на жестком диске, удалять и форматировать уже существующие разделы. Partition Wizard обладает удобным интерфейсом, который будет понятным большинству более-менее подготовленных пользователей, MiniTool Partition (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9F2FE11551B442B4CA845A794A061A01945006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087886   (141588) от 29.12.2016
-
-Paragon Drive Copy 15 Professional 10.1.25.779 + Boot Medias [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Disk Copy 15 программное решение для миграции данных на новый жесткий диск и перемещения данных и приложений онлайн. С помощью программы Paragon Drive Copy можно легко и быстро создать копию жесткого диска или его отдельных разделов и выполнить немало иных операций, связанных с жестким диском. В программе Paragon Drive Copy реализован достаточно высокий уровень (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09C0330B181448DB22C9700BAC6C6A7AF404826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824718   (136957) от 15.10.2025
-
-SIW 2025 Technician 15.9.1009 [Multi]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136957.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIW (System Info For Windows) - системная программа для отображения детальной информации об аппаратной, сетевой и программной части вашей системы. Программа позволяет собирать детальную информацию о всех ваших системных настройках и параметрах и отображает эту информацию чрезвычайно понятным пользователю способом. По своим возможностям данная утилита аналогична популярным (   Читать дальше...   )Язык интерфейса: Английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AD3C75AFA3EE824639FE9AE35F3E3878F358E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825373   (136777) от 17.10.2025
-
-O&O Defrag Professional 30.0 Build 1069 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136777.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
-При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3613DF625AE54B1119CEE2E3AC2EBF6A887650CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825374   (136776) от 17.10.2025
-
-OCCT 15.0.1 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85071952902E1781B4341F7372916F60EC2E949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825375   (136775) от 17.10.2025
-
-FurMark 2.10.0.0 + Portable [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136775.jpg" />
-</div>
-
-
-###  Подробнее
-
-FurMark 2 является преемником почтенного FurMark 1.. и представляет собой очень интенсивный стресс-тест графического процессора. Это также быстрый графический тест OpenGL и Vulkan с онлайн-оценками. FurMark 2 имеет улучшенную поддержку командной строки и создан с помощью GeeXLab.
-В настройках можно задавать разрешение экрана, активировать оконный или полноэкранный (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364DFD7D9A8537900BF7E260D6C827D7F585479D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594607   (133325) от 26.12.2012
-
-Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Portable.ru [Русский]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами набор программ, которые идеально подойдут для обслуживания ваших жестких дисков на персональном компьютере. Вы получите все самые необходимые инструменты для того, чтобы управлять вашими жесткими дисками. Данная разработка позволит вам выполнять всевозможные операции с разделами жесткого диска, можно будет работать с резервными архивами, можно клонировать (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 631332   (924846) от 17.03.2013
+
+Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72C028D6923FAF7725E773D4C769EBFCA5DEF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631280   (923621) от 18.03.2013
+
+Blank & Jones - The Videos (2007) [H.264] DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance
+
+Официальный сборник видеоклиповПродолжительность: 01:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91ED5D03B5EB58CB5860DF1C7BCABB855BF9DE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632150   (923002) от 18.03.2013
+
+Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2CA0A30CE6831CDD84B91C1B2402F6A67A0B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366407   (922344) от 12.03.2020
 
 Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Gothic Metal, Industrial>
@@ -6,7 +86,7 @@ Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Goth
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922344.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921728.jpg" />
 </div>
 
 
@@ -64,7 +144,7 @@ Lasgo feat. Taylor Jones - Something (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920013.jpg" />
 </div>
 
 
@@ -90,7 +170,7 @@ Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919808.jpg" />
 </div>
 
 
@@ -116,7 +196,7 @@ Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919480.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_919358.jpg" />
+  <img src="Z:/picture/008/save_picture_919358.jpg" />
 </div>
 
 
@@ -171,7 +251,7 @@ The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919301.jpg" />
 </div>
 
 
@@ -200,7 +280,7 @@ VA - Дискохит 90-х (большая коллекция клипов) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918119.jpg" />
 </div>
 
 
@@ -229,7 +309,7 @@ Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917960.jpg" />
 </div>
 
 
@@ -255,7 +335,7 @@ Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917829.jpg" />
 </div>
 
 
@@ -281,7 +361,7 @@ Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917326.jpg" />
 </div>
 
 
@@ -307,7 +387,7 @@ Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915656.jpg" />
 </div>
 
 
@@ -336,7 +416,7 @@ Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915255.jpg" />
 </div>
 
 
@@ -365,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915092.jpg" />
 </div>
 
 
@@ -394,7 +474,7 @@ Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912961.jpg" />
 </div>
 
 
@@ -420,7 +500,7 @@ Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912944.jpg" />
 </div>
 
 
@@ -446,7 +526,7 @@ Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912782.jpg" />
 </div>
 
 
@@ -472,7 +552,7 @@ Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912642.jpg" />
 </div>
 
 
@@ -498,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910682.jpg" />
 </div>
 
 
@@ -524,7 +604,7 @@ Stooshe - Slip (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909706.jpg" />
 </div>
 
 
@@ -550,7 +630,7 @@ Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909525.jpg" />
 </div>
 
 
@@ -576,7 +656,7 @@ Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909505.jpg" />
 </div>
 
 
@@ -602,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909481.jpg" />
 </div>
 
 
@@ -613,88 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635441   (909438) от 26.03.2013
-
-Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635343   (909339) от 26.03.2013
-
-London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990820   (909286) от 26.02.2016
-
-VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клипов для любителей рок и метал.
-Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
-A Sound of Thunder - Murderous Horde.avi
-AC-DC - Are You Ready.avi
-AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
 ```
 
 https://mybot314.ru/tekegram_catalog/

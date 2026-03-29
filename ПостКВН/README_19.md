@@ -1,3 +1,81 @@
+###  Публикация: 1329352   (353956) от 04.10.2019
+
+Однажды в России (02.10.2019) WEB-DL [H.264/720p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Игорь Ласточкин, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342E9A5D0520AEB4F55533C4163B7107850145B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072812   (349612) от 14.11.2016
+
+Stand Up (2016.11.13) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 6)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CB1A61C79FD3523D3C55A62EF9604DB410ACA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418226   (348660) от 24.10.2020
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2020.10.23) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348660.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D709A46A518050340E1FDDDCEB9F1C73CADDD0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418375   (348242) от 24.10.2020
 
 Азбука Уральских пельменей. Т (23.10.2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348242.jpg" />
+  <img src="Z:/picture/008/save_picture_348242.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345387.jpg" />
+  <img src="Z:/picture/008/save_picture_345387.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Stand Up (05.10.2019) WEB-DLRip (сезон 7, выпуск 7)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345126.jpg" />
+  <img src="Z:/picture/008/save_picture_345126.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344921.jpg" />
+  <img src="Z:/picture/008/save_picture_344921.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344454.jpg" />
+  <img src="Z:/picture/008/save_picture_344454.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344327.jpg" />
+  <img src="Z:/picture/008/save_picture_344327.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Stand Up (25.10.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 9)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344197.jpg" />
+  <img src="Z:/picture/008/save_picture_344197.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342362.jpg" />
+  <img src="Z:/picture/008/save_picture_342362.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340838.jpg" />
+  <img src="Z:/picture/008/save_picture_340838.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339881.jpg" />
+  <img src="Z:/picture/008/save_picture_339881.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339519.jpg" />
+  <img src="Z:/picture/008/save_picture_339519.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339505.jpg" />
+  <img src="Z:/picture/008/save_picture_339505.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Stand Up. Сезон 3. Выпуск №8 (2015.11.08) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337027.jpg" />
+  <img src="Z:/picture/008/save_picture_337027.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336780.jpg" />
+  <img src="Z:/picture/008/save_picture_336780.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336369.jpg" />
+  <img src="Z:/picture/008/save_picture_336369.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333267.jpg" />
+  <img src="Z:/picture/008/save_picture_333267.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332427.jpg" />
+  <img src="Z:/picture/008/save_picture_332427.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332358.jpg" />
+  <img src="Z:/picture/008/save_picture_332358.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331517.jpg" />
+  <img src="Z:/picture/008/save_picture_331517.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Stand Up (01.11.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 10)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331124.jpg" />
+  <img src="Z:/picture/008/save_picture_331124.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330606.jpg" />
+  <img src="Z:/picture/008/save_picture_330606.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Stand Up. Сезон 3. Выпуск №9 (2015.11.15) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328248.jpg" />
+  <img src="Z:/picture/008/save_picture_328248.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328242.jpg" />
+  <img src="Z:/picture/008/save_picture_328242.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CCA6A74A79C612483333100818471BAFC115283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582083   (324203) от 08.10.2022
-
-Азбука Уральских пельменей. Ъ (07.10.2022) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324203.jpg" />
-</div>
-
-
-###  Подробнее
-
-То, что осталось за кадром! Цикл выпусков с невошедшими миниатюрами и скетчами. А также самые смешные ляпы и оговорки!Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DA1A8E70119DE34D0CE491FD835371F952B42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259195   (323023) от 02.11.2018
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2018.11.02) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323023.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512B2EBB2DA9D7F6D88F5C4B07C4BF7AD52A2826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182232   (319323) от 09.11.2017
-
-Однажды в России (2017.11.08) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 11)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3142DA31A3D220F252101699EA43DDFCB0C88C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

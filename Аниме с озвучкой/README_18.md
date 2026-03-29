@@ -1,3 +1,29 @@
+###  Публикация: 1202395   (790227) от 28.01.2018
+
+Highlander: The Search for Vengeance | Горец: В поисках мести [2007, Movie] WEBRip 480i rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постапокалиптическое анимэ, рассказывающее о бесконечных странствиях Колина МакЛауда, одержимого единственной целью — отомстить своему врагу Марку Октавию за гибель любимой женщины много веков назад.Производство: Япония, Madhouse StudiosЖанр: Приключения, фантастикаРежиссер: Ёсиаки Кавадзири, Хироси ХамадзакиЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE59FB964F4954DEDA42AEA7C20DC23EEE4D1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388046   (789963) от 04.06.2020
 
 Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] BDRip 1036p raw+rus
@@ -6,7 +32,7 @@ Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789963.jpg" />
+  <img src="Z:/picture/008/save_picture_789963.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Evangelion. 2.22 You Can [Not] Advance | Евангелион. 2.22 Ты (не) 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789960.jpg" />
+  <img src="Z:/picture/008/save_picture_789960.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789613.jpg" />
+  <img src="Z:/picture/008/save_picture_789613.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Zero no Tsukaima F| Подручный Бездарной Луизы: Финал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786862.jpg" />
+  <img src="Z:/picture/008/save_picture_786862.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Zero no Tsukaima: Princess no Rondo | Подручный Бездарной Лу
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786854.jpg" />
+  <img src="Z:/picture/008/save_picture_786854.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ True Tears | Настоящие Слезы [2008, TV, 13 ep + 8 Specials] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786617.jpg" />
+  <img src="Z:/picture/008/save_picture_786617.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786615.jpg" />
+  <img src="Z:/picture/008/save_picture_786615.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Tokyo Magnitude 8.0 | Токийское Восьмибалльное [2009, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786614.jpg" />
+  <img src="Z:/picture/008/save_picture_786614.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ No Guns Life | Жизнь без оружия [TV-1] [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786613.jpg" />
+  <img src="Z:/picture/008/save_picture_786613.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786612.jpg" />
+  <img src="Z:/picture/008/save_picture_786612.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786611.jpg" />
+  <img src="Z:/picture/008/save_picture_786611.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Godzilla. Kessen Kidou Zoushoku Toshi | Годзилла. Город на Гра
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786492.jpg" />
+  <img src="Z:/picture/008/save_picture_786492.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Godzilla. Hoshi wo Kuu Mono | Годзилла. Пожиратель звёзд 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786491.jpg" />
+  <img src="Z:/picture/008/save_picture_786491.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Godzilla. Kaijuu Wakusei  | Годзилла. Планета Чудовищ [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786490.jpg" />
+  <img src="Z:/picture/008/save_picture_786490.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786486.jpg" />
+  <img src="Z:/picture/008/save_picture_786486.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Youjo Senki / Saga of Tanya the Evil / Военная хроника мален�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785680.jpg" />
+  <img src="Z:/picture/008/save_picture_785680.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Chaos;Child / Хаос; Дитя [2017, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785495.jpg" />
+  <img src="Z:/picture/008/save_picture_785495.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Shirobako | Белая Коробка [2014, TV, 24 ep + 2 Specials] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785041.jpg" />
+  <img src="Z:/picture/008/save_picture_785041.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Non Non Biyori | Деревенская Глубинка [TV-1] [2013, TV, 12 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785040.jpg" />
+  <img src="Z:/picture/008/save_picture_785040.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Kidou Senshi Gundam F91 | Mobile Suit Gundam F91 | Мобильный воин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784692.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые Ведьмы: Оп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784427.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Anime-Gataris | Аниме Истории [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784426.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Denpa Teki na Kanojo | Электромагнитная Подружка [2009, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784425.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Yagate Kimi ni Naru | В Конечном Счёте я Стану Твоей [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784423.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Go-Toubun no Hanayome | Пять Невест [TV-1] [2019, TV, 12 ep] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784422.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Go-Toubun no Hanayome | Пять Невест [TV-1] [2019, TV, 12 ep] BDRip 108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90621A8CDC4226594A9351BFB64085255E109930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204780   (784224) от 07.02.2018
-
-Gokudou-kun Manyuuki | Gokudo | Путешественник Гокудо [1999, TV, 26 из 26] DVDRip 480p raw + rus + eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будь у Лины Инверс сын или племянник, его точно бы звали Гокудо Юкотт Киканский! Этот нахальный блондинчик 17 лет не отягощен ни моралью, ни принципами, а хочет от жизни лишь одного – денег, славы и девочек. Он и старушку-гадалку ограбить может – нечего предсказывать всякую ерунду. Отсюда начинается цепочка приключений, в ходе которых к эгоисту-цинику Гокудо присоединяются (   Читать дальше...   )Производство: студия TransartsЖанр: приключения, комедия, фэнтезиРежиссер: Сугисима КунихисаПеревод: русские субтитры Vik Pol; английские субтитры Discotech MediaЯзык озвучки: Русский, Японский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 26 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD32941BC346DA0F689284F036F3C42BA16AAA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

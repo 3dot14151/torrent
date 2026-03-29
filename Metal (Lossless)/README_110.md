@@ -1,3 +1,90 @@
+###  Публикация: 1541689   (643132) от 04.04.2022
+
+Petrification - Hollow Of The Void (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_643132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Prelude
+02.Arachne Exsanguine
+03.Technological Assimilation
+04.Summon Horrendous Destruction(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E697CBA0E23F0657FC4A15F2F57AF83DEAA8B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142458   (642982) от 14.06.2017
+
+Tiluland - Axes Of The Universe (2011) [FLAC|Lossless|tracks + .cue] <Power Metal, Shred, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (To the Kings)  (01:22) 
+02. Tilu of the Kings  (04:36) 
+03. March of Immortals  (04:06) 
+04. Heroes  (03:49) (   Читать дальше...   )Жанр: Power Metal, Shred, InstrumentalПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E007C1B6B88DBB9BEC4851CF79DAC54EEE20B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541789   (642617) от 04.04.2022
+
+Cobra Spell - Anthems Of The Night (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addicted To The Night
+02. The Midnight Hour
+03. Steal My Heart Away
+04. AccelerateЖанр: Heavy MetalПродолжительность: 00:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D491342991D45191472F471C992A96AD35EF47F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032775   (642113) от 09.07.2016
 
 Waken Eyes - Exodus (2015) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
@@ -6,7 +93,7 @@ Waken Eyes - Exodus (2015) [FLAC|Lossless|image + .cue] <Progressive Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642113.jpg" />
+  <img src="Z:/picture/008/save_picture_642113.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Heaven Rain - Second Sun (2012) [FLAC|Lossless]<Symphonic Progressive / Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641528.jpg" />
+  <img src="Z:/picture/005/save_picture_641528.jpg" />
 </div>
 
 
@@ -70,7 +157,7 @@ Allele - Next To Parallel (2011) [FLAC|Lossless]<Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641455.jpg" />
+  <img src="Z:/picture/005/save_picture_641455.jpg" />
 </div>
 
 
@@ -105,7 +192,7 @@ Ringarë (Ringare) - Under Pale Moon (2019) [FLAC|Lossless|tracks + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641385.jpg" />
+  <img src="Z:/picture/008/save_picture_641385.jpg" />
 </div>
 
 
@@ -134,7 +221,7 @@ Malakhim - II (2019) EP [FLAC|Lossless|tracks + .cue] <Rock, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641376.jpg" />
+  <img src="Z:/picture/008/save_picture_641376.jpg" />
 </div>
 
 
@@ -163,7 +250,7 @@ Pulchra Morte - Divina Autem Et Aniles (2019) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641363.jpg" />
+  <img src="Z:/picture/008/save_picture_641363.jpg" />
 </div>
 
 
@@ -192,7 +279,7 @@ Dream Widow, Foo Fighters - Dream Widow (2022) [FLAC|Lossless|WEB-DL|tracks] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641104.jpg" />
+  <img src="Z:/picture/008/save_picture_641104.jpg" />
 </div>
 
 
@@ -221,7 +308,7 @@ Pandemic - Global Collapse (Disease X) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640870.jpg" />
+  <img src="Z:/picture/008/save_picture_640870.jpg" />
 </div>
 
 
@@ -250,7 +337,7 @@ Kissin' Dynamite - Megalomania (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640285.jpg" />
+  <img src="Z:/picture/008/save_picture_640285.jpg" />
 </div>
 
 
@@ -279,7 +366,7 @@ Kissin' Dynamite - Generation Goodbye (2016) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640214.jpg" />
+  <img src="Z:/picture/008/save_picture_640214.jpg" />
 </div>
 
 
@@ -308,7 +395,7 @@ Mech - Painkiller - Original Soundtrack (2004) Promo [FLAC|Lossless|tracks] <Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640004.jpg" />
+  <img src="Z:/picture/008/save_picture_640004.jpg" />
 </div>
 
 
@@ -337,7 +424,7 @@ Adrenaline Mob - Dearly Departed (2015) EP [FLAC|image+.cue]<Heavy Metal / Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639912.jpg" />
+  <img src="Z:/picture/008/save_picture_639912.jpg" />
 </div>
 
 
@@ -366,7 +453,7 @@ Shattered Skies - Muted Neon (2018) [FLAC|Lossless|image + .cue] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639327.jpg" />
+  <img src="Z:/picture/008/save_picture_639327.jpg" />
 </div>
 
 
@@ -395,7 +482,7 @@ Emissary - The Wretched Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639230.jpg" />
+  <img src="Z:/picture/008/save_picture_639230.jpg" />
 </div>
 
 
@@ -424,7 +511,7 @@ Prospekt - The Illuminated Sky (2017) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639208.jpg" />
+  <img src="Z:/picture/008/save_picture_639208.jpg" />
 </div>
 
 
@@ -453,7 +540,7 @@ Caligula's Horse - The Tide, The Thief & River’s End (2013) [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639206.jpg" />
+  <img src="Z:/picture/008/save_picture_639206.jpg" />
 </div>
 
 
@@ -482,7 +569,7 @@ Vola - Applause of a Distant Crowd (2018) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639205.jpg" />
+  <img src="Z:/picture/008/save_picture_639205.jpg" />
 </div>
 
 
@@ -511,7 +598,7 @@ Flotsam and Jetsam - The End of Chaos (2019) Japan [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639198.jpg" />
+  <img src="Z:/picture/008/save_picture_639198.jpg" />
 </div>
 
 
@@ -540,7 +627,7 @@ Good Tiger - A Head Full Of Moonlight (2016) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639190.jpg" />
+  <img src="Z:/picture/008/save_picture_639190.jpg" />
 </div>
 
 
@@ -569,7 +656,7 @@ Accept - Russian Roulette (1986) [FLAC|image + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637623.jpg" />
+  <img src="Z:/picture/008/save_picture_637623.jpg" />
 </div>
 
 
@@ -598,7 +685,7 @@ Dragonforce - Reaching into Infinity (2017) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637068.jpg" />
+  <img src="Z:/picture/008/save_picture_637068.jpg" />
 </div>
 
 
@@ -627,7 +714,7 @@ Manowar - The Lord Of Steel [Hammer Edition] (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636830.jpg" />
+  <img src="Z:/picture/005/save_picture_636830.jpg" />
 </div>
 
 
@@ -662,7 +749,7 @@ Vinnie Moore - Aerial Visions (2015) [FLAC|Lossless|image + .cue] <Neoclassical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636144.jpg" />
+  <img src="Z:/picture/008/save_picture_636144.jpg" />
 </div>
 
 
@@ -676,93 +763,6 @@ Vinnie Moore - Aerial Visions (2015) [FLAC|Lossless|image + .cue] <Neoclassical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D8B461836D6314D0C4CD411DB2A423260C750AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681575   (636021) от 20.07.2013
-
-Manowar - Warriors of the World (2002) 10th Anniversary Remastered Edition / 2013, Magic Circle Records / [FLAC|Lossless]<Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	 Call to Arms
-02.	 The Fight for Freedom
-03.	 Nessun Dorma
-04.	 Valhalla(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143321   (635534) от 18.06.2017
-
-Mood - Volume 1 (1996) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	The Shell 03:28
-02.	Demons from the Inside Pocket 05:12
-03.	Plastic Man 03:04
-04.	Four Winds Are Blowing 06:42(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5001453C58AC4C43CFC8533A07371A62B9B9ADC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143335   (635531) от 18.06.2017
-
-Mood - Wombocosmic (1999) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Intro 01:17
-02.	I the Bloodstained Embyro 03:42
-03.	The Untold 02:04
-04.	Circles 05:39(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6591B6E821D96D17A5D87E0E14A91EAB343F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

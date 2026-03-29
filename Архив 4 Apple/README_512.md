@@ -1,3 +1,109 @@
+###  Публикация: 1423919   (239361) от 14.11.2020
+
+TextSoap 8 v8.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239361.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextSoap для Mac OS - Поможет подчистить текстовые документы различных форматов. TextSoap удалит из текста ненужные символы, пробелы и отступы. Грамотно отформатирует параграфы и устранит множество других проблем и ошибок в оформлении, позволив придать документу желаемый, опрятный вид. TextSoap автоматически исправляет множество проблем и ошибок в тексте, экономя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Unmarked Software, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D39FC185EE6C625920EBC5E3E5ED218FB3EC0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423815   (239338) от 14.11.2020
+
+Downcast 2.9.58 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downcast , популярное приложение подкаста iOS теперь доступно для OS X! Загрузка, проигрывание и синхронизация ** Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
+
+Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Enterprises LLCПоддерживаемая ОС: macOS 10.13.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E31FA0B77F7F2992A7A402F43E88B91C618F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638310   (239337) от 07.06.2023
+
+Infuse PRO 7.5.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 07.07.2023Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99916EB93AD9914C38A86982065DB19128026E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423850   (239324) от 14.11.2020
+
+Middle 1.5.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E99E0979CFB52263C5117BFC3E182577A5F4673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423802   (239318) от 14.11.2020
 
 Storyist 4 v4.2.1 [Multi]
@@ -6,7 +112,7 @@ Storyist 4 v4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239318.jpg" />
+  <img src="Z:/picture/004/save_picture_239318.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ iconStiX 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239302.jpg" />
+  <img src="Z:/picture/004/save_picture_239302.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Caffeinated 1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239295.jpg" />
+  <img src="Z:/picture/004/save_picture_239295.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ PhotoMill X 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239283.jpg" />
+  <img src="Z:/picture/004/save_picture_239283.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239275.jpg" />
+  <img src="Z:/picture/005/save_picture_239275.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ BusyCal 3 v3.12.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239266.jpg" />
+  <img src="Z:/picture/004/save_picture_239266.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ Omni Recover 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239262.jpg" />
+  <img src="Z:/picture/005/save_picture_239262.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ Subtitle Studio 1.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239259.jpg" />
+  <img src="Z:/picture/004/save_picture_239259.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ Mp3tag 1.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239257.jpg" />
+  <img src="Z:/picture/005/save_picture_239257.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ CollageIt 3 Pro v3.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239252.jpg" />
+  <img src="Z:/picture/004/save_picture_239252.jpg" />
 </div>
 
 
@@ -276,7 +382,7 @@ BusyContacts 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239244.jpg" />
+  <img src="Z:/picture/004/save_picture_239244.jpg" />
 </div>
 
 
@@ -303,7 +409,7 @@ Sketch 97 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239236.jpg" />
+  <img src="Z:/picture/004/save_picture_239236.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ Caffeinated 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239234.jpg" />
+  <img src="Z:/picture/005/save_picture_239234.jpg" />
 </div>
 
 
@@ -355,7 +461,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239227.jpg" />
+  <img src="Z:/picture/005/save_picture_239227.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ GraphicConverter for Mac 12.0.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239212.jpg" />
+  <img src="Z:/picture/005/save_picture_239212.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ GoodNotes 5.6.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239204.jpg" />
+  <img src="Z:/picture/004/save_picture_239204.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ ProPresenter 7.13.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239203.jpg" />
+  <img src="Z:/picture/004/save_picture_239203.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ Yate 6.2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239197.jpg" />
+  <img src="Z:/picture/004/save_picture_239197.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ Soulver 3 v.3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239196.jpg" />
+  <img src="Z:/picture/004/save_picture_239196.jpg" />
 </div>
 
 
@@ -518,7 +624,7 @@ VideoProc Converter 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239190.jpg" />
+  <img src="Z:/picture/004/save_picture_239190.jpg" />
 </div>
 
 
@@ -544,7 +650,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239173.jpg" />
+  <img src="Z:/picture/005/save_picture_239173.jpg" />
 </div>
 
 
@@ -570,7 +676,7 @@ FotoJet Photo Editor 1.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239167.jpg" />
+  <img src="Z:/picture/004/save_picture_239167.jpg" />
 </div>
 
 
@@ -581,113 +687,6 @@ FotoJet Photo Editor позволяет каждому в кратчайшие �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10D2D3B155B9A697FB69E588B8DDC5BB6DABBCC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438160   (239159) от 07.01.2021
-
-Mic Drop 1.3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mic Drop позволяет пользователям отключать и включать микрофон с помощью настраиваемого глобального сочетания клавиш. С Mic Drop вы всегда знаете, включен ваш микрофон или нет, что помогает избежать неловких ситуаций. Он идеально подходит для удаленных сотрудников, учителей, подкастеров, исследователей или всех, кто проводит много времени на видеовстречах. Работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.01.2021Разработчик: Octopus ThinkПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58AD84A1D9CF6D579825AE67D6418B1DD367804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438284   (239152) от 07.01.2021
-
-Filmage Converter-ConvertVideo 1.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmage Converter - это быстрый и простой в использовании видео конвертер. Для использования этого конвертера не требуется никаких настроек и технических знаний.
-Filmage Converter позволяет конвертировать видео, извлекать аудио из видео, редактировать видео, обрезать и обрезать видео и многое другое с помощью расширенных инструментов редактирования.
-Filmage Converter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2021Разработчик: PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F0BE39477E14C735F11F50FA3C0CEC08271433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438122   (239145) от 07.01.2021
-
-Find Any File (FAF) 2.3.b1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.01.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872E4F871A15F3B6765020D612F5644C0537C9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577190   (239135) от 17.09.2022
-
-Yoink 3.6.83 U2B [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yoink представляет собой посредника, который позволяет упростить доступность файлов. После установки приложения в левой части экрана появляется панель Yoink. Теперь если необходимо переместить файл с одного стола в окно открытое на другом, можно просто перетащить его в панель Yoink. Соответственно не перейдя на другой рабочий стол, просто перетягиваем файл из панели. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2022Разработчик: © 2011-2022, Eternal Storms SoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E37F320BE61DDC2B8C2504F1FC54939CF92119
 ```
 
 https://mybot314.ru/tekegram_catalog/

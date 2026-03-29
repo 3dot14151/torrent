@@ -1,3 +1,61 @@
+###  Публикация: 1048758   (545735) от 03.09.2016
+
+Artur Mena - Sabia Medicina (2013) [MP3|192 Kbps] <World: South American>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabia Medicina (Chuntunqul) [3:28]
+02. Canta Sirenita (Carnaval) [4:02]
+03. Canta Ayaymama (Huayno Cancion) [5:12]
+04. Aguita de Puqulo (San Juanito) [3:29](   Читать дальше...   )Жанр: World: South AmericanПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D262544E6A28FF8D541F07E00A4C7B5FC7627541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049051   (545598) от 03.09.2016
+
+Stive Morgan - Flights In Dream (2016) [MP3|320 Kbps] <New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygen Music (4:19)
+02. Window To Paradise (6:56)
+03. Global Transformation (5:57)
+04. Flights In Dream (7:04)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D511CACD621DB88FBE2F838B8ECACF260C4BF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238633   (545449) от 31.07.2018
 
 Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <country, southern rock>
@@ -6,7 +64,7 @@ Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545449.jpg" />
+  <img src="Z:/picture/008/save_picture_545449.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|25
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544847.jpg" />
+  <img src="Z:/picture/008/save_picture_544847.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Medwyn Goodall - Kissed by the Sun (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544784.jpg" />
+  <img src="Z:/picture/008/save_picture_544784.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544605.jpg" />
+  <img src="Z:/picture/008/save_picture_544605.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Simon Daum - Of One Heart (2018) [MP3|320 Kbps] <Instrumental, Piano, New age>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544603.jpg" />
+  <img src="Z:/picture/008/save_picture_544603.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Zack Hemsey - (Discography) (2006-2014) [FLAC|Lossless|WEB-DL|tracks]<Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544542.jpg" />
+  <img src="Z:/picture/008/save_picture_544542.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <L
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543810.jpg" />
+  <img src="Z:/picture/008/save_picture_543810.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543764.jpg" />
+  <img src="Z:/picture/008/save_picture_543764.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Ivonne Alexander - Benevolence (2015) [MP3|320 кб/с]<Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543086.jpg" />
+  <img src="Z:/picture/008/save_picture_543086.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543031.jpg" />
+  <img src="Z:/picture/008/save_picture_543031.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|W
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542654.jpg" />
+  <img src="Z:/picture/008/save_picture_542654.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542653.jpg" />
+  <img src="Z:/picture/008/save_picture_542653.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542536.jpg" />
+  <img src="Z:/picture/008/save_picture_542536.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Latino Brazilian Party (Top Hits) (2017) [MP3|320 Kbps] <Latin Music>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542524.jpg" />
+  <img src="Z:/picture/008/save_picture_542524.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Simon Daum - Awaited (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542424.jpg" />
+  <img src="Z:/picture/008/save_picture_542424.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542289.jpg" />
+  <img src="Z:/picture/008/save_picture_542289.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542043.jpg" />
+  <img src="Z:/picture/008/save_picture_542043.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ Astor Piazzolla - Edicion Critica (2005) 7CD [FLAC|Lossless]<Latihin, Tango>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541830.jpg" />
+  <img src="Z:/picture/008/save_picture_541830.jpg" />
 </div>
 
 
@@ -543,7 +601,7 @@ Ocean Waves For Sleep - Collection Of Ocean Sounds (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541573.jpg" />
+  <img src="Z:/picture/008/save_picture_541573.jpg" />
 </div>
 
 
@@ -572,7 +630,7 @@ Kaan Luum - Potala Mousse (2015) [MP3|320 кб/с]<New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541322.jpg" />
+  <img src="Z:/picture/008/save_picture_541322.jpg" />
 </div>
 
 
@@ -601,7 +659,7 @@ Claude Ciari - Sentimental (2003) [FLAC|Lossless]<Instrumental, Guitar>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541109.jpg" />
+  <img src="Z:/picture/008/save_picture_541109.jpg" />
 </div>
 
 
@@ -630,7 +688,7 @@ VA - LOVE Instrumentals (2002) [FLAC|image+.cue]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541102.jpg" />
+  <img src="Z:/picture/008/save_picture_541102.jpg" />
 </div>
 
 
@@ -659,7 +717,7 @@ Timothy Olson - Bedtime (2016) [MP3|320 Kbps] <Electronic, Easy Listening, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540756.jpg" />
+  <img src="Z:/picture/008/save_picture_540756.jpg" />
 </div>
 
 
@@ -688,7 +746,7 @@ Stefano Mocini - A Cat Playing (2011) [MP3|128-256 кб/с]<Relax,New Age,Melodi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540733.jpg" />
+  <img src="Z:/picture/008/save_picture_540733.jpg" />
 </div>
 
 
@@ -708,64 +766,6 @@ Stefano Mocini - A Cat Playing (2011) [MP3|128-256 кб/с]<Relax,New Age,Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5112353AC2F21E3A9C31509A6F0FA74EC16B767A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050290   (540515) от 07.09.2016
-
-VA - Angels of Hope (An Angelic Compilation) (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gandalf - Angel of Light [00:04:44]
-02. Kevin Kern - And the Light is Forever [00:03:23]
-03. Peter Kater - Heaven’s Window [00:08:00]
-04. Omar Akram - Angel of Hope [00:03:33](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB18F932CAA51BB53CB2A0FFA030A8CF214FEF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050159   (540378) от 07.09.2016
-
-Valentina Babor - Piano Princess (2015) [FLAC|Lossless|tracks + .cue] <Instrumental, Classical, Piano Solo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children 4:21
-02. Nobody Does It Better 3:27
-03. I Believe I Can Fly 4:16
-04. When The Rain Begins To Fall 3:49(   Читать дальше...   )Жанр: Instrumental, Classical, Piano SoloПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819712ABBE8C36FBA8818C5FC2C18C3FC8117F83
 ```
 
 https://mybot314.ru/tekegram_catalog/

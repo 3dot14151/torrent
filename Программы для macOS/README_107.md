@@ -1,3 +1,139 @@
+###  Публикация: 1073900   (342839) от 17.11.2016
+
+Delineato Pro 1.2.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красиво оформленный, простой и гибкий, Delineato Pro представляет собой инновационный инструмент для построения схем и мозговых штурмов.
+
+Delineato Pro является профессиональным изданием Delineato - итальянское слово для "наброски".
+Разработанный с использованием парадигмы WYSIWYN - вы видите, что вам нужно - это  приложение ориентировано на создание простых (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 ноября 2016Разработчик: Systems Informatica Lda.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0D97BF799864C23CD4CE20C0D53571F25CDD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073851   (342824) от 17.11.2016
+
+Chrono Plus – Time Tracker & Timesheet with Billing 1.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chrono Plus - удобный менеджер задач и инструмент для отслеживания времени с множеством удобных функций. Chrono Plus подходит для тех, кто нуждается более  эффективно управлять временем и задачами. Утилита будет полезна  для любого фрилансера или профессионала с почасовой оплатой.  Chrono Plus имеет интуитивно понятный интерфейс для управления задачами, расчет затрат (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2016Разработчик: XwavesoftПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F483D2B083FADE097D558EC7FFA19B8F252F341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073947   (342670) от 17.11.2016
+
+Timing 1.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timing — следи за своим временем
+Приложение, которое разработал Thomas Osthege, будет особенно полезно фрилансерам и людям, которые много работают за компьютером. Уже давно не секрет, что многие пользователи ПК отвлекаются от работы для того, чтобы посмотреть любимый сериал или почитать Twitter. Но сколько на самом деле времени вы тратите на перерывы? Узнать это (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 ноября 2016Разработчик: Thomas Osthege und Daniel AlmПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7960FA514E6D42982D3A93B42C47500B7DACE75F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073849   (342656) от 17.11.2016
+
+Pro Paint 3.5.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Paint  - реалистичное полифункциональное программное обеспечение цифрового искусства, которое используется для живописи, редактирования изображений, векторной графики, кадрирования, редактирования альфа-канала и более специализированных задач. Программа обеспечивает высокое качество обработки изображений предлагая инструменты для создания оригинальных произведений. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2016Разработчик: Art StudioПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147E94CC0BB178B2D2F5C657F730D4CC7C8CAEC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419316   (342303) от 27.10.2020
+
+ShottyBlur 1.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342303.jpg" />
+</div>
+
+
+###  Подробнее
+
+ShottyBlur - Яркие скриншоты со Слоями. Сделайте скриншоты ваших окон с ярким размытым эффектом на отдельных слоях. Перетащите скриншоты в графическое приложение, чтобы продолжить работу с ними
+Перетащите скриншоты в Finder, чтобы сохранить документы в PSD или PNG форматах.
+Организуйте свои скриншоты - сохраняйте их в документах Shotty.Тип издания: macOS SoftwareРелиз состоялся: 25.09.2019Разработчик: Image Studio ProductionПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2579FD4B7F06C185710D2CC4ACCF6775876A0536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419211   (342198) от 27.10.2020
 
 JixiPix Spektrel Art 1.1.9 [En]
@@ -6,7 +142,7 @@ JixiPix Spektrel Art 1.1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342198.jpg" />
+  <img src="Z:/picture/008/save_picture_342198.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ JixiPix Hand Tint Pro 1.0.16 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342197.jpg" />
+  <img src="Z:/picture/008/save_picture_342197.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ JixiPix PuzziPix Pro 1.0.13 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342196.jpg" />
+  <img src="Z:/picture/008/save_picture_342196.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ Malwarebytes for Mac Premium 3.1.1.505 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342078.jpg" />
+  <img src="Z:/picture/008/save_picture_342078.jpg" />
 </div>
 
 
@@ -112,7 +248,7 @@ Topaz Plugins Bundle (17.11.2016) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341992.jpg" />
+  <img src="Z:/picture/008/save_picture_341992.jpg" />
 </div>
 
 
@@ -138,7 +274,7 @@ Amphetamine 5.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341919.jpg" />
+  <img src="Z:/picture/008/save_picture_341919.jpg" />
 </div>
 
 
@@ -164,7 +300,7 @@ Ample Sound Ample Guitar Twelve v3.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341863.jpg" />
+  <img src="Z:/picture/008/save_picture_341863.jpg" />
 </div>
 
 
@@ -190,7 +326,7 @@ Capture One Pro 10 v10.2.1.39 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341845.jpg" />
+  <img src="Z:/picture/008/save_picture_341845.jpg" />
 </div>
 
 
@@ -217,7 +353,7 @@ Affinity Designer 1.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341841.jpg" />
+  <img src="Z:/picture/008/save_picture_341841.jpg" />
 </div>
 
 
@@ -246,7 +382,7 @@ FL Studio Producer Edition 12.1.3 [En] [OS X WineSkin]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341257.jpg" />
+  <img src="Z:/picture/008/save_picture_341257.jpg" />
 </div>
 
 
@@ -272,7 +408,7 @@ Vill Q 1.2.12 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341212.jpg" />
+  <img src="Z:/picture/008/save_picture_341212.jpg" />
 </div>
 
 
@@ -299,7 +435,7 @@ Movavi Video Editor 15 Business v15.5.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341003.jpg" />
+  <img src="Z:/picture/008/save_picture_341003.jpg" />
 </div>
 
 
@@ -325,7 +461,7 @@ Mountain 1.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340439.jpg" />
+  <img src="Z:/picture/008/save_picture_340439.jpg" />
 </div>
 
 
@@ -352,7 +488,7 @@ Cyberduck 6.8.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340409.jpg" />
+  <img src="Z:/picture/008/save_picture_340409.jpg" />
 </div>
 
 
@@ -378,7 +514,7 @@ DockShelf 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340145.jpg" />
+  <img src="Z:/picture/008/save_picture_340145.jpg" />
 </div>
 
 
@@ -405,7 +541,7 @@ Copy'em Paste (Clipboard Mgr.) 2.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340030.jpg" />
+  <img src="Z:/picture/008/save_picture_340030.jpg" />
 </div>
 
 
@@ -434,7 +570,7 @@ Unibox 1.8.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339741.jpg" />
+  <img src="Z:/picture/008/save_picture_339741.jpg" />
 </div>
 
 
@@ -461,7 +597,7 @@ Exposure X6 Bundle v6.0.1.86 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339714.jpg" />
+  <img src="Z:/picture/008/save_picture_339714.jpg" />
 </div>
 
 
@@ -487,7 +623,7 @@ Nik Software Dfine 2.112 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339624.jpg" />
+  <img src="Z:/picture/005/save_picture_339624.jpg" />
 </div>
 
 
@@ -519,7 +655,7 @@ Nik Software Sharpener Pro 3.010 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339609.jpg" />
+  <img src="Z:/picture/005/save_picture_339609.jpg" />
 </div>
 
 
@@ -549,7 +685,7 @@ Nik Software Viveza 2.009 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339497.jpg" />
+  <img src="Z:/picture/005/save_picture_339497.jpg" />
 </div>
 
 
@@ -566,151 +702,6 @@ Viveza 2 – плагин, расширяющий функциональност
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419419   (339451) от 28.10.2020
-
-Commander One PRO 2.5.2 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
-
-Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEED7FC740E18CD9F932D286D935B6195D0224B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581142   (339385) от 26.11.2012
-
-Nik Software Silver Efex Pro 2.006 [Eng]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Silver Efex Pro — превосходный плагин для Adobe Photoshop, позволяющий фотохудожникам выполнять стилизацию современных цифровых изображений под стильные черно-белые снимки. В автоматическом режиме, программа преобразует цветное изображение в черно-белое. После этого пользователь может выполнить более тонкую настройку, например, выбрать один из двух десятков готовых стилей, воспользоваться фильтрами цветности и другими инструментами.
-Возможности плагина:
-● Быстрая стилизация цветных изображений в черно-белые в автоматическом режиме
-● Использование встроенных фильтров цветности
-● Настройка яркости, контраста и структуры изображения
-● Использование готовых пресетов
-В последней версии:
-● Добавлена поддержка Lightroom 4
-● Решена проблема с экспортом нескольких пресетов
-● Устранен потенциальный конфликт с Photoshop.Название программы: Silver Efex Pro 2Релиз состоялся: август 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258251   (338673) от 29.10.2018
-
-iCalamus 2 v2.18 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338673.jpg" />
-</div>
-
-
-###  Подробнее
-
-iCalamus - настольное издательское решение для Mac OS X.
-iCalamus это профессиональная программа, используемая для подготовки к печати различных публикаций. Приложение поддерживает Uniocode, предоставляет множество специализированных инструментов, позволяющих достичь простым способом интересных эффектов.
-iCalamus предлагает простой подход к АКДС и является отличным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2018Разработчик: invers SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2C2F7E766AB1ABCD864934F7CF2E8B54C74791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258281   (338671) от 29.10.2018
-
-Aeon Timeline 2 v2.3.13 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aeon Timeline: программный инструмент для создания временных событий.
-Есть множество профессий, в работе которых требуется точное соблюдение временных интервалов. Писатель, журналист, ученый объединены исследованием истории или временных последовательностей, которые необходимо заранее выстроить в один ряд, в несколько слоев, связать с людьми и их возрастом, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2018Разработчик: Aeon TimelineПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C10AF4AFDB2CB85F028CEB8B89200A3DC19D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258258   (338519) от 29.10.2018
-
-Aiseesoft Mac Video Converter Ultimate 9.2.18 (79982) [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2018Разработчик: Aiseesoft StudioПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDE37E4C9EE1D09DEEDAE624F7CC7FF343C181B
 ```
 
 https://mybot314.ru/tekegram_catalog/

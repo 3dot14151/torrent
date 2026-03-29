@@ -1,3 +1,111 @@
+###  Публикация: 1837286   (256720) от 16.11.2025
+
+Книжная серия | Медицинский атлас (2009-2025) [PDF, FB2, DJVU]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Годами поколения студентов убеждали нас, что читатель лучше вникает в суть анатомии и физиологии, когда осознает связь между структурой и функцией, которую она выполняет. Принципы комплексного изучения анатомии и физиологии, актуальное освещение спорных аспектов медицины, качественные иллюстрации и понятная микрографика - все это делает книги серии "Медицинский (   Читать дальше...   )Жанр: Медицина и здоровьеИздательство: ЭксмоФормат: PDF, FB2, DJVUКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ED663EC57E5547540F72615599FEA04AF946B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499339   (256502) от 21.05.2012
+
+Книжная серия | Путешествия. Приключения. Фантастика (74 книги) [1957-1970] [RTF, FB2, DJVU, PDF]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествия. Приключения. Фантастика - замечательная серия середины прошлого века, включающая в себя огромное количество интересных приключенческих книг.
+Здесь и путешествия по диким, неизведанным местам, охота на животных-людоедов, исследования подводных и подземных глубин, художественные приключенческие и фантастические произведения. И это при том, что серия является букинистической.
+Здесь представлена серия издательств Географгиз и Мысль. Характерная особенность серии - земной шар, опоясанный тремя ленточками с надписями серии.1957-1970Жанр: Фантастика. ПриключениеФормат: RTF, FB2, DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B073D3D5CE2AB9F600E251BF341F5D19F2535C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499322   (256481) от 21.05.2012
+
+Ежегодники Фантастика (Молодая гвардия) (30 книг) [1962-1991] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодники Фантастика - сборники фантастических произведений, которые выпускались издательством «Молодая гвардия» в период с 1962 по 1991 годЖанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A060E530FCC4A371F5FB62DD774F1AF933D243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499240   (256400) от 21.05.2012
+
+Книжная серия | "CPFantastika" [2011-2012] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256400.jpg" />
+</div>
+
+
+###  Подробнее
+
+CPFantastika - серия фантастических триллеров от «Центрполиграфа». В ней выходят романы как молодых, так и уже довольно известных авторов, в том числе и награжденные различными премиями. Все произведения публикуются на русском языке впервые.
+ Художественный редактор серии - И.А. Озерова
+ Отвественный редактор — Л.И. Глебовская2011-2012Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A155200E53A0CF96BB46E7560439DDE931F016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499099   (256195) от 20.05.2012
 
 Книжная серия | Классика Fantasy  (66 книг) [2002-2007] [FB2]
@@ -6,7 +114,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256195.jpg" />
+  <img src="Z:/picture/005/save_picture_256195.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256129.jpg" />
+  <img src="Z:/picture/005/save_picture_256129.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256128.jpg" />
+  <img src="Z:/picture/005/save_picture_256128.jpg" />
 </div>
 
 
@@ -89,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256120.jpg" />
+  <img src="Z:/picture/005/save_picture_256120.jpg" />
 </div>
 
 
@@ -123,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255948.jpg" />
+  <img src="Z:/picture/005/save_picture_255948.jpg" />
 </div>
 
 
@@ -153,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255938.jpg" />
+  <img src="Z:/picture/005/save_picture_255938.jpg" />
 </div>
 
 
@@ -179,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255826.jpg" />
+  <img src="Z:/picture/005/save_picture_255826.jpg" />
 </div>
 
 
@@ -207,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255776.jpg" />
+  <img src="Z:/picture/005/save_picture_255776.jpg" />
 </div>
 
 
@@ -236,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254758.jpg" />
+  <img src="Z:/picture/005/save_picture_254758.jpg" />
 </div>
 
 
@@ -262,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254319.jpg" />
+  <img src="Z:/picture/005/save_picture_254319.jpg" />
 </div>
 
 
@@ -289,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253998.jpg" />
+  <img src="Z:/picture/005/save_picture_253998.jpg" />
 </div>
 
 
@@ -316,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253524.jpg" />
+  <img src="Z:/picture/005/save_picture_253524.jpg" />
 </div>
 
 
@@ -344,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253482.jpg" />
+  <img src="Z:/picture/005/save_picture_253482.jpg" />
 </div>
 
 
@@ -371,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252596.jpg" />
+  <img src="Z:/picture/005/save_picture_252596.jpg" />
 </div>
 
 
@@ -397,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252316.jpg" />
+  <img src="Z:/picture/004/save_picture_252316.jpg" />
 </div>
 
 
@@ -423,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251916.jpg" />
+  <img src="Z:/picture/004/save_picture_251916.jpg" />
 </div>
 
 
@@ -449,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251594.jpg" />
+  <img src="Z:/picture/004/save_picture_251594.jpg" />
 </div>
 
 
@@ -475,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251265.jpg" />
+  <img src="Z:/picture/004/save_picture_251265.jpg" />
 </div>
 
 
@@ -501,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251043.jpg" />
 </div>
 
 
@@ -527,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250609.jpg" />
+  <img src="Z:/picture/004/save_picture_250609.jpg" />
 </div>
 
 
@@ -553,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250142.jpg" />
+  <img src="Z:/picture/004/save_picture_250142.jpg" />
 </div>
 
 
@@ -581,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249322.jpg" />
+  <img src="Z:/picture/004/save_picture_249322.jpg" />
 </div>
 
 
@@ -593,115 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA936ADC74D9E2A1FD078CEECDFA0882F944DD5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493935   (249309) от 09.05.2012
-
-Книжная серия "Приказано выжить" (30 книг) [1999-2003] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приказано выжить - серия боевиков, детективов, криминальных триллеров, военных приключений от российских производителей...
-В смысле - производителей романов, а не преступлений. Хотя некоторые авторы пишут с таким знанием дела...1999-2003Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F867A4A2C78BE896076090017EFA5775F2F511B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493476   (248974) от 08.05.2012
-
-Библиотека исторических романов в 74 томах [1994] [ FB2, DJVU, FBD, JPG, EPUB, PDF]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемые читатели, мы предлагаем вам библиотеку исторических романов. В нее вошли книги разных серий и разных писателей. Но все они объединены одной темой. Это художественные произведения, рассказывающие об наиболее значимых исторических событиях и о самых выдающихся неординарных исторических личностях, независимо от того какую роль они сыграли - положительную или отрицательную, оставивших яркий след в истории.
-Комплект составлен из наиболее интересных произведений современных отечественных и зарубежных писателей. В него вошли серии: "Романовы. Династия в романах", "Рюриковичи", "Сподвижники и фавориты", "Смутное время", "Временное правительство".
-
-От себя:Жанр: Исторические романыФормат: FB2, DJVU, FBD, JPG, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004EC52BC7EB1B7D9AC46716D048DC2C324EBA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492718   (248288) от 06.05.2012
-
-Книжная серия "Мастера военных приключений" (13 томов) [2005-2011] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серию составили лучшие произведения признанных мастеров военно-приключенческого жанра, изданные в рамках суперпроекта Военные приключения с 2005 года — книги Александра Авдеенко, Александра Насибова, Георгия Свиридова, Георгия Брянцева, Генриха Гофмана, Василия Веденеева, Александра Щелокова, Игоря Болгарина, Виктора Смирнова и др.
-Каждый том (кроме одного) состоит из двух романов.2005-2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB36365C41E21428A6EEBD3E0D958EAA51AEEDE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492471   (248116) от 05.05.2012
-
-Библиотека «Альтернативная история» в 1056-ти томах [1968-2012] [FB2,DOC,RTF,TXT]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альтернативная история — жанр фантастики, посвящённый изображению реальности, которая могла бы быть, если бы история, в один из своих переломных моментов (точек бифуркации, или точек развилки) пошла по другому пути. Не следует путать данный литературный жанр с альтернативными историческими теориями, которые предлагают считать картину прошлого, изображаемую исторической (   Читать дальше...   )Жанр: ФантастикаИздательство: Лениздат, Ленат, СамИздат, Амфора, Молодая гвардия и др.Формат: FB2,DOC,RTF,TXTКачество: ebook
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD76805485F5987F7F0348563CB05F3305F2C733
 ```
 
 https://mybot314.ru/tekegram_catalog/

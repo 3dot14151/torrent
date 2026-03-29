@@ -1,3 +1,107 @@
+###  Публикация: 1347211   (154409) от 22.12.2019
+
+Type Fu 4.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип Fu 4.6.0 научит вас, как печатать быстрее, не глядя на клавиатуру, позволяя вам отточить свои навыки набора текста.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: Jaroslaw FoksaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459EABBED9B56F75D6E76AE84286DF99CBC3BBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518583   (154403) от 20.12.2021
+
+Stats 2.6.24 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2021Разработчик: © 2021 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78BDF36B5EC70D6B2208F0225D5D59F0EB2BA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601039   (154402) от 29.12.2022
+
+Deliver Express 2.7.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver Express - это автоматическое решение для быстрой отправки и обмена файлами через Интернет и локальные сети. Deliver Express обрабатывает файлы автоматически из горячих папок и предлагает автоматические уведомления по электронной почте, многоцелевой трансфер, подробную историю доставки и многое другое. Deliver Express подходит как для корпоративного решения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2010-2022 Zevrix SolutionsПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB21F3D7F012EBAE4BBAD69000D399A88BDCCDCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433788   (154396) от 22.12.2020
+
+McAfee Endpoint Security for Mac 10.7.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Защитите себя и всю вашу семью от новейших программ-вымогателей, шпионских и вредоносных программ, обеспечивая безопасность вашей конфиденциальности и личных данных.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: McAfee, IncorporatedПоддерживаемая ОС: macOS 10.15.6+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D656F261E48BFD39D0FD3F62638F64FF2F81B0BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518674   (154394) от 20.12.2021
 
 4K Stogram Pro for Mac 4.2.0 [Multi/Ru]
@@ -6,7 +110,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154394.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Mitti 1.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154388.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154378.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ PowerPhotos 2.1.3b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154370.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ iCash 7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154356.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ A Better Finder Rename 11 v.11.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154354.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154352.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Movavi Screen Recorder 10.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154326.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Records 1.6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154320.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Downie 4 v4.0 (beta) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154308.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154301.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Pixelmator Pro 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154282.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ VisualDiffer 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154277.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ ColorSnapper 2 v1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154264.jpg" />
 </div>
 
 
@@ -382,7 +486,7 @@ TunesKit AceMovi Video Editor 4.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154259.jpg" />
 </div>
 
 
@@ -408,7 +512,7 @@ Permute 3 v.3.9.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154258.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ HitPaw Watermark Remover 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154237.jpg" />
 </div>
 
 
@@ -460,7 +564,7 @@ Task Office 6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154223.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154207.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ Wondershare Recoverit Video Repair 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154183.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ AltTab 6.51.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154179.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ Vinegar 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154175.jpg" />
 </div>
 
 
@@ -576,112 +680,6 @@ YouTube5 был расширением Safari, когда Flash был еще в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3C0F7AA653C2DD2C071C17C1FDF97008EFC8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518692   (154144) от 20.12.2021
-
-FoneDog Toolkit – iOS Data Recovery 2.1.56 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффективное программное обеспечение iOS Data Recovery поможет вам восстановить удаленные данные с iPhone, iPad и iPod. Поддержка iPhone XS, XR, 8 и последней версии iOS.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: © 2021 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824F16F44B67CDA1116862A4E59CF36E5D86CBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600960   (154137) от 29.12.2022
-
-Loop Mash Up Pro 1.2.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте профессиональную музыку с помощью Loop Mash Up. Это приложение представляет собой мощный сэмплер с множеством циклов и пресетов. Все образцы были созданы профессиональными музыкантами и диджеями. Наслаждайтесь созданием мощных ударов, просто нажав на «pads» и получите мгновенный результат!Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 Music TopiaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0EED179B3CDC31F7F31DCAD8034F4C584E76E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600954   (154131) от 29.12.2022
-
-Downie 4 v.4.6.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0469B96D167F76681628C266EF0A8BBB749D2C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518603   (154121) от 20.12.2021
-
-Wipr – Ad and Tracker Blocker 1.31 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wipr блокирует всю рекламу, трекеры, майнеры криптовалюты, файлы cookie ЕС и уведомления GDPR, а также другие неприятности, поэтому вы можете сосредоточиться на важном для вас контенте при использовании Safari.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2021Разработчик: © 2021 Giorgio CalderollaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D54FE697B7CA7693DF04DAFB996EC6193252C14
 ```
 
 https://mybot314.ru/tekegram_catalog/

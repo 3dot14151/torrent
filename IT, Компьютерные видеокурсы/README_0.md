@@ -1,3 +1,137 @@
+###  Публикация: 1851894   (1055717) от 05.02.2026
+
+OTUS, Владимир Денисов, Николай Медведев, Григорий Гартинский | Функциональный архитектор 1С (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное проектирование и управление архитектурой информационных систем на 1С.
+OTUS, Олег Каратаев | Архитектор 1С (2025) PCRecПроизводство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 44:35:42Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9575C28A1B96FB09C324B357AEE6D3144E84FE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851563   (1055213) от 03.02.2026
+
+Специалист, Дмитрий Гончаров |  Обеспечение безопасности объектов с помощью систем IP - видеонаблюдения (2022) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую возникает необходимость видеонаблюдения на небольшом объекте, таком как квартира, коттедж, розничная торговая точка, предприятие общественного питания, автоматическая заправочная станция, предприятие складского хозяйства и т.д. Системы IP-видеонаблюдения позволяют осуществлять мониторинг таких объектов, не только при нахождении операторов или сотрудников (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61298EB7891EE3B24DFCF56AD3550F2AFC543FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851110   (1055090) от 01.02.2026
+
+РедСофт, Юлия Немыкина | Расширенное администрирование RedOS (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись онлайн курса "Расширенное администрирование RedOS", включая презентации и приложенные платформой электронные книги в формате pdf. Также подойдет тем кто просто желает улучшить свои навыки администратора Linux систем.Производство: РедСофтЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 20:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3573E01FC05E295AB1C21FDD509C7123C6371476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851203   (1055074) от 01.02.2026
+
+РедСофт, Николай Краев | Основы администрирования RedOS (2025) PCRec [RU]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс основ администрирования RedOS, подойдет эникеям и начинающим сисадминам.
+
+1. Введение
+2. Установка RedOS(   Читать дальше...   )Производство: РедСофтЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6E00E21224BEABED9485527502F667E8331C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850761   (1054874) от 31.01.2026
+
+Специалист, Сергей Шуйков | Программирование на С++ (2024) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования С++ был создан в начале 1980-х годов, когда сотрудник компании Bell Labs Бьёрн Страуструп внедрил ряд улучшений в язык C для своих целей. В настоящее время, C++ широко применяется для разработки программного обеспечения и является одним из наиболее популярных языков программирования. Его использование охватывает создание операционных систем, (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 20:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987DE411D259552ADBE9E3B14C9B35E72A2A2D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850939   (1054784) от 31.01.2026
 
 Udemy, Андрей Кудлай | Laravel 11. Теория и практика работы с PHP-фреймворком (2024) PCRec [RU]
@@ -6,7 +140,7 @@ Udemy, Андрей Кудлай | Laravel 11. Теория и практика 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054784.jpg" />
+  <img src="Z:/picture/005/save_picture_1054784.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053886.jpg" />
+  <img src="Z:/picture/005/save_picture_1053886.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053885.jpg" />
+  <img src="Z:/picture/005/save_picture_1053885.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ Web Dev Simplified | tRPC (2024) PCRec [EN, RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053884.jpg" />
+  <img src="Z:/picture/005/save_picture_1053884.jpg" />
 </div>
 
 
@@ -112,7 +246,7 @@ karpov.courses, Евгений Ермаков и др. | Инженер данн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053882.jpg" />
+  <img src="Z:/picture/005/save_picture_1053882.jpg" />
 </div>
 
 
@@ -141,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053790.jpg" />
+  <img src="Z:/picture/005/save_picture_1053790.jpg" />
 </div>
 
 
@@ -167,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053556.jpg" />
+  <img src="Z:/picture/005/save_picture_1053556.jpg" />
 </div>
 
 
@@ -195,7 +329,7 @@ Golang School, Михаил Непряхин | Обучение языку Go и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053547.jpg" />
+  <img src="Z:/picture/005/save_picture_1053547.jpg" />
 </div>
 
 
@@ -223,7 +357,7 @@ R&D-лаборатория Devhands, Алексей Рыбак | Системн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053546.jpg" />
+  <img src="Z:/picture/005/save_picture_1053546.jpg" />
 </div>
 
 
@@ -251,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053539.jpg" />
+  <img src="Z:/picture/005/save_picture_1053539.jpg" />
 </div>
 
 
@@ -277,7 +411,7 @@ OTUS, Кирилл Федченко, Павел Ершов, Сергей Пот�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053429.jpg" />
+  <img src="Z:/picture/005/save_picture_1053429.jpg" />
 </div>
 
 
@@ -305,7 +439,7 @@ Udemy, Stephen Grider | Redis: полное руководство разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052824.jpg" />
+  <img src="Z:/picture/005/save_picture_1052824.jpg" />
 </div>
 
 
@@ -334,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052014.jpg" />
+  <img src="Z:/picture/005/save_picture_1052014.jpg" />
 </div>
 
 
@@ -363,7 +497,7 @@ ProFinansy, Наталья Котовская | Искусственный ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052013.jpg" />
+  <img src="Z:/picture/005/save_picture_1052013.jpg" />
 </div>
 
 
@@ -389,7 +523,7 @@ Skillbox, Ренат Шагабутдинов, Евгений Намоконов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052010.jpg" />
+  <img src="Z:/picture/005/save_picture_1052010.jpg" />
 </div>
 
 
@@ -415,7 +549,7 @@ Cпециалист | Kaspersky Security Center. Управление систе
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051951.jpg" />
+  <img src="Z:/picture/005/save_picture_1051951.jpg" />
 </div>
 
 
@@ -441,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051705.jpg" />
+  <img src="Z:/picture/005/save_picture_1051705.jpg" />
 </div>
 
 
@@ -468,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051479.jpg" />
+  <img src="Z:/picture/005/save_picture_1051479.jpg" />
 </div>
 
 
@@ -494,7 +628,7 @@ Udemy | Full Kaspersky Training [Endpoint SEC, Hybrid Cloud, EDR] (2022) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051470.jpg" />
+  <img src="Z:/picture/005/save_picture_1051470.jpg" />
 </div>
 
 
@@ -520,7 +654,7 @@ Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051023.jpg" />
+  <img src="Z:/picture/005/save_picture_1051023.jpg" />
 </div>
 
 
@@ -549,7 +683,7 @@ Self Made Engineer, Tiago Taquelim | Complete Microservices with Go (2025) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050639.jpg" />
+  <img src="Z:/picture/008/save_picture_1050639.jpg" />
 </div>
 
 
@@ -562,138 +696,6 @@ Self Made Engineer, Tiago Taquelim | Complete Microservices with Go (2025) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD49C60BBB59CE6AEACDE94AD9AB807D0D4DDBF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844926   (1050407) от 28.12.2025
-
-OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rust используется в веб-разработке, в разработке системного ПО, мобильной разработке, разработке встраиваемых систем и даже в анализе данных.
-А ещё — в блокчейне и машинном обучении.
-На этом курсе вы изучите особенности работы с низкоуровневым ПО, подходы к разработке безопасного и отказоустойчивого ПО, а также основные библиотеки Rust.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 64:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC536E50A01EF13BD3281277BD09DFDE4C884832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844924   (1050406) от 28.12.2025
-
-OTUS, Владимир Елфимов | LLM Driven Development. Разработка и эксплуатация AI: полный курс для профессионалов (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс охватывает полный цикл разработки и внедрения больших языковых моделей — от основ архитектуры AI и подготовки данных до тонкостей MLOps, мониторинга и оптимизации. Программа основана на реальных кейсах и инструментах, которые уже сейчас востребованы в индустрии.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 51:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FEAD2DD7A36721F9EE7210800A7586FB548E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844620   (1050260) от 27.12.2025
-
-OTUS, Андрей Вилков | GitOps (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс сосредоточен на применении Git в качестве единственного источника для управления как инфраструктурой, так и приложениями. Ключевые аспекты: автоматизация развертывания, управление конфигурациями и мониторинг посредством использования Argo CD и Flux. Практическая часть подразумевает создание и настройку Git-репозиториев для инфраструктурного управления, а также (   Читать дальше...   )Производство: OtusЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 33:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D9F36FDBCF0FE88418218950ACF33CC97B833A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844664   (1050256) от 27.12.2025
-
-OTUS, Вячеслав Федосеев | CICD на основе GitLab (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс посвящён практическому применению CI/CD и DevOps-подходов с использованием GitLab как ключевого инструмента автоматизации. Программа ориентирована на специалистов, которые хотят осознанно использовать CI/CD в реальных проектах: от базовой настройки до построения сложных, безопасных и масштабируемых пайплайнов.Производство: OTUSЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 24:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEB19EF0C872FD6548D98654E97D8086A4F03B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844650   (1050244) от 27.12.2025
-
-Специалист, Павел Монахов | Администрирование Astra Linux 1.8 AL-1801/AL-1802/AL-1822/AL-1803/AL-1804/AL-1805 (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор официальных курсов по Astra Linux 1.8 от "для пользователя" до "для защиты информации".Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 68:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F7ACA66754F98D50C5C68332889E69A3F1A8CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

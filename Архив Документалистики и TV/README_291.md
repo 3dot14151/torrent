@@ -1,3 +1,165 @@
+###  Публикация: 964799   (281061) от 12.12.2015
+
+Обзор. Чемпионат Англии 2015-16. 14-15 тура. Обзор тура (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Англии 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:26 + 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7454F129C1D04E090AC9F595B457B939D2F5073B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964905   (281059) от 12.12.2015
+
+Обзор. Все на матч! Обзор Матчей Лига Европы 2015-16. 6 тур. (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный обзор игр группового этапа Лиги Европы 2015-16.Телекомпания: Матч ТВ HDЖанр: Спорт, ТелепередачаПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5F90BBB43D8013AEEF46BFE78ECD32D3369C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964784   (280937) от 12.12.2015
+
+Биатлон. Кубок Мира 2015-2016. 1 Этап. Эстерсунд (Швеция) (29.11.2015-06.12.2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступление ноября многие любители спорта ожидали с особым трепетом, ведь именно в этом месяце стартуют этапы Кубка мира по биатлону. Сезон 2015-2016 начался с этапа в Эстерсунде (Швеции) с 29 ноября по 6 декабря.Телекомпания: НТВ+ HD Спорт / Матч ТВ HDЖанр: СпортПродолжительность: 1. Смешанная эстафета (Супермикст)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02DA5D1CACDB86E4CC9612AD66126DA41BD5CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964543   (280936) от 12.12.2015
+
+Биатлон с Дмитрием Губерниевым. Сезон 2015-2016. Выпуск 2. HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280936.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске: - Почему Симон Фуркад забыл один раз выстрелить на стойке в смешанной эстафете, и как его за это наказывали?
+- Как правильно приглашать на Чемпионат Мира по биатлону? Норвежская версия;
+- Почему и куда ушла из российской сборной Кристина Ильченко?
+- Учим русский язык вместе с Рико Гроссом;(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: ТелепередачаПродолжительность: 00:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD221A33CDF1FC422EB69E18ED73DF2E59AD7F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964787   (280931) от 12.12.2015
+
+Обзор. Лига Чемпионов 2015-16. 6 тур. 1 и 2 день. Обзор матчей за 08-09.12.2015 (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обсуждение группового этапа Лиги Чемпионов 2015-2016 6-го тура.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:31:43 + 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D9B537C9F0D799E7538422C8CC21A3650F03E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187196   (280777) от 28.11.2017
+
+Бобслей. Кубок мира 2017-2018. 3-й Этап. Уистлер (Канада). Женщины (24.11.2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280777.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 ноября 2017 года, суббота. 05:00 МСК
+Бобслей. Кубок мира 2017-2018. 3-й Этап. Уистлер (Канада)
+Женщины. 1-я и 2-я попытка
+Стадион: Уистлер Слидинг Центр (Уистлер, Канада)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0294A734F9CB52C2089EF90F47A7068B837DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187143   (280774) от 28.11.2017
 
 Бобслей. Кубок мира 2017-2018. 3-й Этап. Уистлер (Канада). Мужчины. Двойки (24.11.2017) WEB-DL [H.264/720p-LQ] [EN]
@@ -6,7 +168,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280774.jpg" />
+  <img src="Z:/picture/008/save_picture_280774.jpg" />
 </div>
 
 
@@ -35,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280773.jpg" />
+  <img src="Z:/picture/008/save_picture_280773.jpg" />
 </div>
 
 
@@ -64,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280740.jpg" />
+  <img src="Z:/picture/008/save_picture_280740.jpg" />
 </div>
 
 
@@ -93,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280504.jpg" />
+  <img src="Z:/picture/008/save_picture_280504.jpg" />
 </div>
 
 
@@ -119,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279522.jpg" />
+  <img src="Z:/picture/008/save_picture_279522.jpg" />
 </div>
 
 
@@ -148,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279285.jpg" />
+  <img src="Z:/picture/008/save_picture_279285.jpg" />
 </div>
 
 
@@ -175,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278972.jpg" />
+  <img src="Z:/picture/008/save_picture_278972.jpg" />
 </div>
 
 
@@ -204,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278971.jpg" />
+  <img src="Z:/picture/008/save_picture_278971.jpg" />
 </div>
 
 
@@ -232,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278970.jpg" />
+  <img src="Z:/picture/008/save_picture_278970.jpg" />
 </div>
 
 
@@ -261,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278969.jpg" />
+  <img src="Z:/picture/008/save_picture_278969.jpg" />
 </div>
 
 
@@ -290,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278965.jpg" />
+  <img src="Z:/picture/008/save_picture_278965.jpg" />
 </div>
 
 
@@ -319,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278246.jpg" />
+  <img src="Z:/picture/008/save_picture_278246.jpg" />
 </div>
 
 
@@ -348,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277912.jpg" />
+  <img src="Z:/picture/008/save_picture_277912.jpg" />
 </div>
 
 
@@ -377,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277911.jpg" />
+  <img src="Z:/picture/008/save_picture_277911.jpg" />
 </div>
 
 
@@ -406,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277910.jpg" />
+  <img src="Z:/picture/008/save_picture_277910.jpg" />
 </div>
 
 
@@ -435,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277909.jpg" />
+  <img src="Z:/picture/008/save_picture_277909.jpg" />
 </div>
 
 
@@ -464,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277908.jpg" />
+  <img src="Z:/picture/008/save_picture_277908.jpg" />
 </div>
 
 
@@ -493,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277837.jpg" />
+  <img src="Z:/picture/008/save_picture_277837.jpg" />
 </div>
 
 
@@ -522,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277836.jpg" />
+  <img src="Z:/picture/008/save_picture_277836.jpg" />
 </div>
 
 
@@ -551,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277828.jpg" />
+  <img src="Z:/picture/008/save_picture_277828.jpg" />
 </div>
 
 
@@ -565,174 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C64854EC35CD9FD08FF8A7A54AA9927E760CD7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082361   (277570) от 13.12.2016
-
-Шорт-трек. Кубок Мира 2016-2017. Шанхай (Китай). 3-й Этап (2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок Мира 2016-2017. Шанхай (Китай)
-3-й Этап. 2-й и 3-й день соревнованийТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 03:19:58 + 03:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD7B2115A38718F2ABC95630083684C7BA4FBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336848   (277524) от 08.11.2019
-
-Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Нью-Йорк Айлендерс (07.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [ENG]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277524.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 ноября 2019 года, пятница 03:00 МСК
-Стадион: Барклейс-центр (Нью-Йорк, США), 12 613 зрителей (80 % при вместимости 15 795)
-Главный судья: Пьер Ламберт (Канада); Главный судья: Дэн О'Хэллоран (Эссекс, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADAADDA5760090E1E7C421EAD01C669DDC5476D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187800   (277395) от 30.11.2017
-
-Горные лыжи. Кубок мира 2017–2018. 2-й Этап. Лейк-Луиc (Канада). Мужчины. Супергигантский слалом (26.11.2017) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277395.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 ноября 2017 года
-Кубок мира по горнолыжному спорту сезона 2017-2018 года.
-2-й Этап. Лейк-Луиc (Канада).
-Мужчины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85325BB93A4DBC6B04518B1E0BB498627E18C046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187824   (277393) от 30.11.2017
-
-Фигурное катание. Гран-при 2017-2018. 6-й Этап. Скейт Америка 2017. Лейк-Плэсид (США). Женщины. Короткая программа (25.11.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277393.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 ноября 2017 года, воскресенье. 05:23 МСК
-Серия Гран-при по фигурному катанию сезона 2017-2018.
-«Skate America 2017» — 6-й Этап Гран-при. Лейк-Плэсид (США)
-Женщины. Короткая программа(   Читать дальше...   )Телекомпания: TeleSport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5539D752C12B5B7667DA4B8D5E73396F40F96D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187820   (277392) от 30.11.2017
-
-Фигурное катание. Гран-при 2017-2018. 6-й Этап. Скейт Америка 2017. Лейк-Плэсид (США). Танцы на льду. Короткий танец (25.11.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277392.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 ноября 2017 года, воскресенье. 03:36 МСК
-Серия Гран-при по фигурному катанию сезона 2017-2018.
-«Skate America 2017» — 6-й Этап Гран-при. Лейк-Плэсид (США)
-Танцы на льду. Короткий танец(   Читать дальше...   )Телекомпания: TeleSport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4A2B3057CA22D36BD79057F9FB65F692AE0A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187717   (277291) от 30.11.2017
-
-Virgin Australia Supercars Championship. Сезон 2017. Coates Hire Newcastle 500. Гонка 2. Этап 14 (26.11.2017) HDTVRip [H.264/720p-LQ] [VO]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2017 года - Этап 14Жанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 02:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476FE1B4150C1F6FD064EE8FF839E5713C0F2216
 ```
 
 https://mybot314.ru/tekegram_catalog/

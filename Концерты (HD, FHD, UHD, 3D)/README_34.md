@@ -1,3 +1,88 @@
+###  Публикация: 1623554   (243327) от 02.04.2023
+
+Квартирник у Маргулиса. Группа «Рекорд Оркестр» (01.04.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд Оркестр — рок-группа из города Владимир, основана в 2009-м году. В дальнейшем до 2019-го года группа выпускала только синглы, один из которых, «Лада Седан», стал национальным хитом и прославил коллектив на всю страну.00:00:06  Больше не будет горя и слез
+00:06:04  Во мрак
+00:13:27  Мир самых добрых людей
+00:21:26  Баба, дай!(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE9471AC6B9D669C4DA53260404FC96596EFD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539801   (243126) от 27.03.2022
+
+Квартирник у Маргулиса. Группа Курара (26.03.2022) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243126.jpg" />
+</div>
+
+
+###  Подробнее
+
+О рок-группе «Курара» впервые заговорили в 2004: коллектив появился на развалинах группы «Шаманы», их необычный микс из рока и шаманских ритмов сразу привлек внимание. За время своего существования группа записала девять студийных альбомов, при этом каждый новый отличается от предыдущего, но сохраняет привычный стиль музыкантов. В гостях у Евгения Маргулиса участники (   Читать дальше...   )00:00:05 Протуберанцы
+00:06:47 Не моё пальто
+00:13:54 Пятна
+00:22:06 Где-то там(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F061B5D845A9B5ADEFD2F65EE7EAF88F3ACED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627660   (242712) от 20.04.2023
+
+МузЛофт / МузLoft. Ваня Дмитриенко (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242712.jpg" />
+</div>
+
+
+###  Подробнее
+
+МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
+Ваня Дмитриенко. Про дружбу с Лепсом, свое совершеннолетие и критику от звезд. Сегодня у нас в гостях самый юный гость! Но при этом у Вани уже множество историй, потрясающая харизма и завораживающий голос. Ваня Дмитриенко, это юная звезда нашего шоу-бизнеса, которая (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B712BEF77347D25F09C50DB841F2AC012E785B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625182   (241930) от 09.04.2023
 
 Квартирник у Маргулиса. День цыган (08.04.2023) WEBRip [H.264/1080p]
@@ -6,7 +91,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241930.jpg" />
+  <img src="Z:/picture/004/save_picture_241930.jpg" />
 </div>
 
 
@@ -36,7 +121,7 @@ Delain - Hunter's Moon (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241178.jpg" />
+  <img src="Z:/picture/005/save_picture_241178.jpg" />
 </div>
 
 
@@ -63,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240345.jpg" />
+  <img src="Z:/picture/004/save_picture_240345.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238924.jpg" />
+  <img src="Z:/picture/005/save_picture_238924.jpg" />
 </div>
 
 
@@ -122,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237606.jpg" />
+  <img src="Z:/picture/004/save_picture_237606.jpg" />
 </div>
 
 
@@ -151,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236904.jpg" />
+  <img src="Z:/picture/005/save_picture_236904.jpg" />
 </div>
 
 
@@ -178,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236474.jpg" />
+  <img src="Z:/picture/005/save_picture_236474.jpg" />
 </div>
 
 
@@ -204,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235764.jpg" />
 </div>
 
 
@@ -230,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235753.jpg" />
+  <img src="Z:/picture/004/save_picture_235753.jpg" />
 </div>
 
 
@@ -259,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235684.jpg" />
+  <img src="Z:/picture/004/save_picture_235684.jpg" />
 </div>
 
 
@@ -288,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234785.jpg" />
 </div>
 
 
@@ -317,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234708.jpg" />
 </div>
 
 
@@ -343,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233799.jpg" />
 </div>
 
 
@@ -370,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233394.jpg" />
 </div>
 
 
@@ -399,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233260.jpg" />
+  <img src="Z:/picture/004/save_picture_233260.jpg" />
 </div>
 
 
@@ -428,7 +513,7 @@ Depeche Mode: 101 (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232765.jpg" />
+  <img src="Z:/picture/005/save_picture_232765.jpg" />
 </div>
 
 
@@ -454,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232034.jpg" />
+  <img src="Z:/picture/004/save_picture_232034.jpg" />
 </div>
 
 
@@ -483,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231460.jpg" />
+  <img src="Z:/picture/004/save_picture_231460.jpg" />
 </div>
 
 
@@ -512,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230764.jpg" />
+  <img src="Z:/picture/004/save_picture_230764.jpg" />
 </div>
 
 
@@ -541,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230391.jpg" />
+  <img src="Z:/picture/004/save_picture_230391.jpg" />
 </div>
 
 
@@ -567,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229441.jpg" />
+  <img src="Z:/picture/004/save_picture_229441.jpg" />
 </div>
 
 
@@ -593,7 +678,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228900.jpg" />
+  <img src="Z:/picture/004/save_picture_228900.jpg" />
 </div>
 
 
@@ -623,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227672.jpg" />
+  <img src="Z:/picture/005/save_picture_227672.jpg" />
 </div>
 
 
@@ -637,86 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2195144A2A934803BEC1CD06EBCFC56A4B4D04A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586705   (225637) от 09.12.2012
-
-Metallica - Quebec Magnetic (2012) BDRip [720]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Metallica, снятое их старым другом и коллегой Wayne Isham в канадском Квебеке в 2009 году.
-
-Среди сетлиста нашлось место супер-хитам команды, среди которых “‘Master of Puppets”, “Battery” и “Seek and Destroy”. Также стоит отметить, что за данный выпуск проголосовало более 35 тысяч поклонников группы.Жанр: трэш-метал, концертПеревод: ОтсутствуетПродолжительность: 02:14:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965307   (225411) от 14.12.2015
-
-Концерт Ирины Аллегровой в Олимпийском (2015) HDTVRip [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет телевизионную версию концертного шоу, которое стало одним из самых ярких событий в мире российского шоу-бизнеса 2015. Народная артистка России Ирина Аллегрова представляет на суд широкой аудитории свою новую программу "Перезагрузка". В 2012-м Аллегрова объявила о своем уходе со сцены, но у творчества свои законы и именно вскоре (   Читать дальше...   )Производство: Россия, Первый каналЖанр: Музыка,КонцертПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7CBAFD995BE198DCCE7E36647C863FCA8283C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342222   (225199) от 01.12.2019
-
-Квартирник НТВ у Маргулиса. ДиДюЛя (30.11.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этого выпуска — композитор, аранжировщик, музыкальный продюсер и лидер группы «ДиДюЛя» Валерий Михайлович Дидюля. В атмосферной студии гитарист-виртуоз рассказал истории из жизни, поделился впечатлениями о ярких гастролях, а также исполнил любимые композиции поклонников.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AFB10F978001E6DEE83659F04E149CB13AF3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

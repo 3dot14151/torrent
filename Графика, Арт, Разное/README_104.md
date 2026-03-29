@@ -1,3 +1,31 @@
+###  Публикация: 562264   (405964) от 18.10.2012
+
+[Wallpapers] Нравятся! Сотня № 074 (1920х1080-2560х1600)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Большое спасибо неизвестным авторам этих работ.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20EC259CC97C1C1BBE7E6E53D7CCCC285446FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562270   (405959) от 18.10.2012
 
 [Wallpapers] Нравятся! Сотня № 076 (1920х1080-2560х1600)
@@ -6,7 +34,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405959.jpg" />
+  <img src="Z:/picture/008/save_picture_405959.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405957.jpg" />
+  <img src="Z:/picture/008/save_picture_405957.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405954.jpg" />
+  <img src="Z:/picture/008/save_picture_405954.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405876.jpg" />
+  <img src="Z:/picture/008/save_picture_405876.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405865.jpg" />
+  <img src="Z:/picture/008/save_picture_405865.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ Frans Mensink [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405706.jpg" />
+  <img src="Z:/picture/008/save_picture_405706.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405635.jpg" />
+  <img src="Z:/picture/008/save_picture_405635.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405632.jpg" />
+  <img src="Z:/picture/008/save_picture_405632.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405615.jpg" />
+  <img src="Z:/picture/008/save_picture_405615.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405512.jpg" />
+  <img src="Z:/picture/008/save_picture_405512.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405481.jpg" />
+  <img src="Z:/picture/008/save_picture_405481.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405265.jpg" />
+  <img src="Z:/picture/008/save_picture_405265.jpg" />
 </div>
 
 
@@ -336,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405225.jpg" />
+  <img src="Z:/picture/008/save_picture_405225.jpg" />
 </div>
 
 
@@ -362,7 +390,7 @@ Pixiv Artist - Mii~ina [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404914.jpg" />
+  <img src="Z:/picture/008/save_picture_404914.jpg" />
 </div>
 
 
@@ -388,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404903.jpg" />
+  <img src="Z:/picture/008/save_picture_404903.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404775.jpg" />
+  <img src="Z:/picture/008/save_picture_404775.jpg" />
 </div>
 
 
@@ -440,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404766.jpg" />
+  <img src="Z:/picture/008/save_picture_404766.jpg" />
 </div>
 
 
@@ -466,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404761.jpg" />
+  <img src="Z:/picture/008/save_picture_404761.jpg" />
 </div>
 
 
@@ -492,7 +520,7 @@ Herika Noronha [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404753.jpg" />
+  <img src="Z:/picture/008/save_picture_404753.jpg" />
 </div>
 
 
@@ -518,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404691.jpg" />
+  <img src="Z:/picture/008/save_picture_404691.jpg" />
 </div>
 
 
@@ -544,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404649.jpg" />
+  <img src="Z:/picture/008/save_picture_404649.jpg" />
 </div>
 
 
@@ -570,7 +598,7 @@ Artworks by Derek Jones [Графика]
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404638.jpg" />
+  <img src="Z:/picture/008/save_picture_404638.jpg" />
 </div>
 
 
@@ -596,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404637.jpg" />
+  <img src="Z:/picture/008/save_picture_404637.jpg" />
 </div>
 
 
@@ -622,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404635.jpg" />
+  <img src="Z:/picture/008/save_picture_404635.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404569.jpg" />
+  <img src="Z:/picture/008/save_picture_404569.jpg" />
 </div>
 
 
@@ -659,34 +687,6 @@ Cyber-X Icons PackРазрешение файлов: ~ 128x128
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E933C86A78EB759777EA939834CCB5B7FDDD696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562272   (404021) от 22.10.2012
-
-[Wallpapers] Нравятся! Сотня № 078 (1920х1080-2560х1600)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...Разрешение файлов: от 1920х1080 до 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCE1CFFD21448D8607EAF70C6BBD3C0371F5F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

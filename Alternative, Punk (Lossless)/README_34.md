@@ -1,3 +1,32 @@
+###  Публикация: 1315959   (511076) от 22.07.2019
+
+Travis - Singles (2004) Compilation [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock, Brit Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_511076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sing (3:49)
+ 02. Driftwood (3:34)
+ 03. Writing to reach you (3:43)
+ 04. Why does it always rain on me? (4:25)(   Читать дальше...   )Жанр: Indie Rock, Pop Rock, Brit PopПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2E074595B4BD2DEF5E64F7D6AC646DCB0CCB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315927   (510987) от 22.07.2019
 
 Biffy Clyro - Only Revolutions (2009) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -6,7 +35,7 @@ Biffy Clyro - Only Revolutions (2009) Japan [FLAC|Lossless|tracks + .cue] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510987.jpg" />
+  <img src="Z:/picture/008/save_picture_510987.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Oxford Collapse - Some Wilderness (2004) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508903.jpg" />
+  <img src="Z:/picture/008/save_picture_508903.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Craig Finn - Faith in the Future (2015) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508897.jpg" />
+  <img src="Z:/picture/008/save_picture_508897.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Craig Finn - We All Want The Same Things (2017) [FLAC|Lossless|tracks + .cue] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508838.jpg" />
+  <img src="Z:/picture/008/save_picture_508838.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Craig Finn - I Need a New War (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508837.jpg" />
+  <img src="Z:/picture/008/save_picture_508837.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Biffy Clyro - MTV Unplugged (2018) Live at Roundhouse London [FLAC|Lossless|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508830.jpg" />
+  <img src="Z:/picture/008/save_picture_508830.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Biffy Clyro - Ellipsis (2016) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508828.jpg" />
+  <img src="Z:/picture/008/save_picture_508828.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508075.jpg" />
+  <img src="Z:/picture/008/save_picture_508075.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Crazy Town - 3 Альбома, 5 Синглов (1999-2015) [FLAC|Lossless]<Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507964.jpg" />
+  <img src="Z:/picture/008/save_picture_507964.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nick Cave - Seven Psalms (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507129.jpg" />
+  <img src="Z:/picture/008/save_picture_507129.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Raz Ohara And The Odd Orchestra - Raz Ohara And The Odd Orchestra (2007) [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506923.jpg" />
+  <img src="Z:/picture/008/save_picture_506923.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Hurula - Klass (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505971.jpg" />
+  <img src="Z:/picture/008/save_picture_505971.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Amongst Liars - Amongst Liars (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505476.jpg" />
+  <img src="Z:/picture/008/save_picture_505476.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Molotov - Con Todo Respeto (2004) [FLAC|Lossless|image + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505385.jpg" />
+  <img src="Z:/picture/008/save_picture_505385.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Senses Fail - Hell Is In Your Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503821.jpg" />
+  <img src="Z:/picture/008/save_picture_503821.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ True North - Out Loud (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502760.jpg" />
+  <img src="Z:/picture/008/save_picture_502760.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502756.jpg" />
+  <img src="Z:/picture/008/save_picture_502756.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502704.jpg" />
+  <img src="Z:/picture/008/save_picture_502704.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ black midi - Hellfire (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde, Progres
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500653.jpg" />
+  <img src="Z:/picture/008/save_picture_500653.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Skillet - Victorious (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500281.jpg" />
+  <img src="Z:/picture/008/save_picture_500281.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ British India - Nothing Touches Me (2015) [FLAC|Lossless]<Rock, Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499456.jpg" />
+  <img src="Z:/picture/008/save_picture_499456.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Hail The Ghost - Forsaken (2015) [FLAC|Lossless|WEB-DL]<alternative rock, indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499404.jpg" />
+  <img src="Z:/picture/008/save_picture_499404.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Circa Waves - Young Chasers (2015) [FLAC|Lossless|WEB-DL]<Alternetive Rock, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498415.jpg" />
+  <img src="Z:/picture/008/save_picture_498415.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Glass Tides - Wake Me Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497734.jpg" />
+  <img src="Z:/picture/008/save_picture_497734.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ The Breeders - All Nerve (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496099.jpg" />
+  <img src="Z:/picture/008/save_picture_496099.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ The Breeders - All Nerve (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B187ABDC4F3CAA163733FB46540D3803D67A879A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242655   (496028) от 25.08.2018
-
-Stereophonics - Decade in the Sun: The Best of Stereophonics (2008) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, British Trad Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madame Helga (3:54)
-02. Bank Holiday Monday (3:12)
-03. Rewind (4:27)
-04. My Friends (3:36)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, British Trad Rock |Продолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3AAC67C21EE8671C95867D079545430D4959375
 ```
 
 https://mybot314.ru/tekegram_catalog/

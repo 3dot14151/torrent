@@ -1,3 +1,32 @@
+###  Публикация: 1751195   (42691) от 23.09.2024
+
+Вольница, Андрей Шкиль | BLNDR 6.0 Новая эра. Тариф Базовый (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс сформирован таким образом, чтобы студент нарабатывал авторский контент с первых занятий, практикуясь на типовых задачах студий и фриланса.
+Все для того, чтобы у вас было целостное портфолио, востребованные навыки и оформленные кейсы на Behance.
+BLNDR v.6 записывается на актуальных версиях Blender (4.0, 4.1 и 4.2)
+Каждую неделю вы будете углубляться в возможности (   Читать дальше...   )Производство: ВольницаЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 46:50:18Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594424955596FB83237093996E08787D25E0FDD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757242   (39252) от 26.10.2024
 
 VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
@@ -6,7 +35,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39252.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ VFX Grace | Blender Creature Effects - The Complete WorkFlow - Modeling (2024) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39230.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Udemy, Yassine Larayedh | Master Simulations Using Geometry Nodes in Blender (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37033.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ Ruslan Sharipov | Изи навыки - (UX) (2024) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35674.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ Thehousefx, Will Wallace |  Destruction Training with Thinking Particles (2014) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33278.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ StableDif, Олег Конюков | Курс по ComfyUI. От основ, д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32381.jpg" />
 </div>
 
 
@@ -173,7 +202,7 @@ CGBoost, Jim Morren | Master 3D Characters in Blender (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30921.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ Procreateschool | Postcard Профи (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30581.jpg" />
 </div>
 
 
@@ -231,7 +260,7 @@ CGMA, David Mooy | Intro to Maya (2020) WEBRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30275.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ Rebelway, Sina Mehralinia | Advanced Shading in Redshift (2024) WEBRip [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30036.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27886.jpg" />
 </div>
 
 
@@ -316,7 +345,7 @@ Udemy, Knowledge Hub | Adobe Illustrator 2025 Top Gear Master Course; Basic To P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27045.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ Udemy, Leszek Pyrka | Master Camera movements in Blender - Create Awesome Videos
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26945.jpg" />
 </div>
 
 
@@ -370,7 +399,7 @@ Udemy, Krishan pathirana | Learn D5 Render Advance 2025 (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26917.jpg" />
 </div>
 
 
@@ -396,7 +425,7 @@ The Gnomon Workshop, Josh Docherty | Modeling For Film & TV Hard-Surface Vehicle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26403.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ Abe Leal 3D | Complete Guide to Retopology (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26167.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ Udemy, Edward Harding | Learn Architectural Design & Animation With Blender (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26110.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25805.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Coloso., LouLL_AroLL | 30 Days from 0 Skill to Pro 3D Artist with Daz & Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25707.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Udemy, Logan Wiesen | Realistic 3D Character Creation By Logan Wiesen (2025) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25558.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Udemy, Marwan Sufyan | AutoCAD Architectural 3D Modeling (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25552.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Udemy, Ag Motion Designs | Cinema 4D & Redshift: Looping Animation Mastery (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25372.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Domestika, Jonas Pfeiffer | Abstract Portrait Animation with Cinema 4D (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25354.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Udemy, Rob Tuytel | Creating snow environments for Blender & Unreal (2025) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24947.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Udemy, 3D Tudor | 3D Trees with Blender Geometry Nodes (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24688.jpg" />
 </div>
 
 
@@ -681,32 +710,6 @@ Udemy, 3D Tudor | 3D Trees with Blender Geometry Nodes (2025) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8939A1E8381DFBAEDA0C15F5C6AE047FB383291A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785043   (24687) от 14.03.2025
-
-Udemy, 3DRedBox Studio | Eco Bike 3D Modeling and Rendering: 3Ds Max to Vray | Corona (2025) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечтаете о карьере 3D-художника в автомобильной или продуктовой индустрии дизайна? Хотите овладеть навыками создания потрясающих фотореалистичных моделей, готовых для вашего портфолио? Не ищите дальше! Этот всеобъемлющий видеоурок по эко-велосипеду шаг за шагом проведет вас через весь процесс моделирования, развертки, текстурирования и рендеринга высококачественного (   Читать дальше...   )Производство: Udemy, 3DRedBox StudioЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 05:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E668C821E94AC02AE764648D3BAE890767CFE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 1238691   (544511) от 01.08.2018
+
+AnyToISO Pro 3.9.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_544511.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyToISO - это минималистское приложение для macOS, которое предназначено для решения трёх основных задач, сгруппированных во вкладках окна приложения:
+- конвертация архивов в ISO-образы и извлечение содержимого архива в каталог;
+- создание ISO-образов из дисков CD/DVD/Blue-ray;
+- создание ISO-образов из файлов и каталогов на вашем локальном дискеТип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CrystalIDEA SoftwareПоддерживаемая ОС: 10.7+Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF854AA4C820457E84E26456758C83CD828E261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238868   (544434) от 01.08.2018
+
+Sketch 51.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_544434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch от Bohemian Coding — один из лучших векторных редакторов под Mac OS X!
+Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698133F35C7319ADBF11B6E4CAA1DC6C0209D6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238685   (544348) от 01.08.2018
+
+OmniGraffle Pro 7.8.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_544348.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Omni GroupПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816BD2DA8B7749D26741E46841622B593364BA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049582   (543869) от 05.09.2016
+
+World Clock 1.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543869.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Clock - простые и одновременно мощные часы, которые покажут время во всем мире.
+
+• Добавляйте города и часовые поясов, как по Гринвичу так и UTC
+• Преобразовывайте международное время(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 августа 2016Разработчик: Komarov MobileПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C4854B0389203035A6952D24A26524124F7DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049558   (543863) от 05.09.2016
 
 Short Menu 2.3 [En]
@@ -6,7 +117,7 @@ Short Menu 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543863.jpg" />
+  <img src="Z:/picture/008/save_picture_543863.jpg" />
 </div>
 
 
@@ -35,7 +146,7 @@ iSkysoft iMedia Converter Deluxe 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543844.jpg" />
+  <img src="Z:/picture/008/save_picture_543844.jpg" />
 </div>
 
 
@@ -63,7 +174,7 @@ Carbon Copy Cloner 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543767.jpg" />
+  <img src="Z:/picture/008/save_picture_543767.jpg" />
 </div>
 
 
@@ -92,7 +203,7 @@ Vaporum (patch 11#22594) (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543714.jpg" />
+  <img src="Z:/picture/008/save_picture_543714.jpg" />
 </div>
 
 
@@ -118,7 +229,7 @@ CleanMyMac X 4.0.0b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543629.jpg" />
+  <img src="Z:/picture/008/save_picture_543629.jpg" />
 </div>
 
 
@@ -147,7 +258,7 @@ Colibri - Native Lossless Audio 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542781.jpg" />
+  <img src="Z:/picture/008/save_picture_542781.jpg" />
 </div>
 
 
@@ -176,7 +287,7 @@ News Explorer 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542484.jpg" />
+  <img src="Z:/picture/008/save_picture_542484.jpg" />
 </div>
 
 
@@ -205,7 +316,7 @@ Themes for Keynote 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542393.jpg" />
+  <img src="Z:/picture/008/save_picture_542393.jpg" />
 </div>
 
 
@@ -233,7 +344,7 @@ iSoftPhone Pro 4.1110 (4.1.1) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542373.jpg" />
+  <img src="Z:/picture/008/save_picture_542373.jpg" />
 </div>
 
 
@@ -260,7 +371,7 @@ A Better Finder Rename 10.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542349.jpg" />
+  <img src="Z:/picture/008/save_picture_542349.jpg" />
 </div>
 
 
@@ -287,7 +398,7 @@ Flume Pro 2.8.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542275.jpg" />
+  <img src="Z:/picture/008/save_picture_542275.jpg" />
 </div>
 
 
@@ -314,7 +425,7 @@ Chasm v.1.02с (2018) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542273.jpg" />
+  <img src="Z:/picture/008/save_picture_542273.jpg" />
 </div>
 
 
@@ -343,7 +454,7 @@ iOS 8.4 [12H143] [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542256.jpg" />
+  <img src="Z:/picture/008/save_picture_542256.jpg" />
 </div>
 
 
@@ -369,7 +480,7 @@ Wondershare PDFelement with OCR 5.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542245.jpg" />
+  <img src="Z:/picture/008/save_picture_542245.jpg" />
 </div>
 
 
@@ -395,7 +506,7 @@ Dash 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541210.jpg" />
+  <img src="Z:/picture/008/save_picture_541210.jpg" />
 </div>
 
 
@@ -422,7 +533,7 @@ Fidelia 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541207.jpg" />
+  <img src="Z:/picture/008/save_picture_541207.jpg" />
 </div>
 
 
@@ -449,7 +560,7 @@ SmartAlbums 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541119.jpg" />
+  <img src="Z:/picture/008/save_picture_541119.jpg" />
 </div>
 
 
@@ -478,7 +589,7 @@ Trim Enabler Pro 4.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541046.jpg" />
+  <img src="Z:/picture/008/save_picture_541046.jpg" />
 </div>
 
 
@@ -505,7 +616,7 @@ Cinemagraph Pro 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541000.jpg" />
+  <img src="Z:/picture/008/save_picture_541000.jpg" />
 </div>
 
 
@@ -531,7 +642,7 @@ goPanel 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540754.jpg" />
+  <img src="Z:/picture/008/save_picture_540754.jpg" />
 </div>
 
 
@@ -560,7 +671,7 @@ Currencier 1.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540636.jpg" />
+  <img src="Z:/picture/008/save_picture_540636.jpg" />
 </div>
 
 
@@ -589,7 +700,7 @@ SmartAlbums 2.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540502.jpg" />
+  <img src="Z:/picture/008/save_picture_540502.jpg" />
 </div>
 
 
@@ -603,114 +714,6 @@ SmartAlbums является революционным программным �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6790C012A421C14D70C2F8133A15380A2E5FF1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050113   (540364) от 07.09.2016
-
-BitPerfect 3.1.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540364.jpg" />
-</div>
-
-
-###  Подробнее
-
-BitPerfect - простой, легкий в использовании, музыкальный плеер аудиофильского класса, который работает с iTunes, чтобы получить максимально возможное качество звука.
-
-Особенности:
-- Ненавязчивый, минимальный пользовательский интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 сентября 2016Разработчик: BitPerfect Sound Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED81D9241C0F43158FDB7B1AC391CE307C902933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239097   (540357) от 04.08.2018
-
-iMazing 2.6.4 (9261) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540357.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: DigiDNAПоддерживаемая ОС: 10.8+Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5D680F05452BB14D8EA79563D30530A9730ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235279   (540298) от 21.07.2011
-
-MAMP Pro 2.0.1 [Eng]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540298.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAMP Pro позволяет создавать несколько виртуальных серверов, его графические конфигураторы впечатляют. Ближайший известный аналог для Windows – Denwer – не может похвастаться аналогичной конфигурационной утилитой. А по функционалу они весьма близки.Язык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098868   (540194) от 04.08.2018
-
-The Long Dark 1.35 (License GOG) [Moded] [macOS WineSkin]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540194.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark – это новый симулятор выживания в суровых зимних условиях. Играете вы за пилота Вили Маккензи, который терпит крушение из-за странной геомагнитной бури в бескрайних лесах Северной Канады. Теперь главная ваша задача – выжить как можно дольше, а для этого исследуйте окружающую местность, найдите и используйте различные предметы для выживания, укройтесь (   Читать дальше...   )Тип издания: macOS WineSkinРелиз состоялся: 1 августа 2017Разработчик: Hinterland Studio Inc.Поддерживаемая ОС: 10.11+Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A637C86D1F5732A170C381CDFEBB788AB02A6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

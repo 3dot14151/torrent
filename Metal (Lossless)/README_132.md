@@ -1,3 +1,90 @@
+###  Публикация: 925629   (537116) от 08.08.2015
+
+Fear Factory - Genexus (2015) Deluxe Edition [FLAC|tracks+.cue]<Death / Groove / Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autonomous Combat System
+02. Anodized
+03. Dielectric
+04. Soul Hacker(   Читать дальше...   )Жанр: Death / Groove / Industrial MetalПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01652E8C721FA5F11B91B5ABDC743D506101C376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239561   (536980) от 06.08.2018
+
+Nakkiga - Amaieraren Hasiera (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eromenaren mendietan
+02. Simonen ametzak
+03. Heriotzaren hegalak (Sofonisba)
+04. Eadneren odeia(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222CB720F16FE73B68BC9F4BEAC0868700EE75D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239553   (536978) от 06.08.2018
+
+Dantalion - Return to Deep Lethargy (2012) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pain and Lethargy
+02. Onward to Darkness
+03. Until My Time Comes
+04. The Arrival of Silence(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CBB7F58518DDC4909D4BA54A1F4396AAC01167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239558   (536977) от 06.08.2018
 
 Hatecraft - Finally Free (2004) [APE|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +93,7 @@ Hatecraft - Finally Free (2004) [APE|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536977.jpg" />
+  <img src="Z:/picture/008/save_picture_536977.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Lostregos - Alzamento No Norte (2016) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536976.jpg" />
+  <img src="Z:/picture/008/save_picture_536976.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Sweet & Lynch - Unified (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536974.jpg" />
+  <img src="Z:/picture/008/save_picture_536974.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Profundis Tenebrarum - Disciples of Venomous Death (2017) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536973.jpg" />
+  <img src="Z:/picture/008/save_picture_536973.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Agressor - Rebirth (2018) (2CD) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536971.jpg" />
+  <img src="Z:/picture/008/save_picture_536971.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Cryptopsy - None So Vile (1999) Japan [FLAC|Lossless|image + .cue] <Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536969.jpg" />
+  <img src="Z:/picture/008/save_picture_536969.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Monument - Hellhound (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536968.jpg" />
+  <img src="Z:/picture/008/save_picture_536968.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Solution .45 - Nightmares In The Waking State Pt.II (2016) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536747.jpg" />
+  <img src="Z:/picture/008/save_picture_536747.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Twilight Force - Heroes Of Mighty Magic (2016) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536451.jpg" />
+  <img src="Z:/picture/008/save_picture_536451.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Midwinter - Enthrone in Blizzard (2006) Reissue, 2011 [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535935.jpg" />
+  <img src="Z:/picture/008/save_picture_535935.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Carrie - Secrets (1986) Reissue, 2020, Earthshaker Records [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535838.jpg" />
+  <img src="Z:/picture/008/save_picture_535838.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Nita Strauss - Controlled Chaos (2018) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535669.jpg" />
+  <img src="Z:/picture/008/save_picture_535669.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Wolverine - Still (2006) [FLAC|Lossless|image + .cue] <Progressive Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535489.jpg" />
+  <img src="Z:/picture/008/save_picture_535489.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Cult Cinema - Cosmic Horror II (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Crus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535486.jpg" />
+  <img src="Z:/picture/008/save_picture_535486.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Wolverine - Fervent Dream (1999) EP, Remaster, 2001, Emerald Factory [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535485.jpg" />
+  <img src="Z:/picture/008/save_picture_535485.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Cult Cinema - Cosmic Horror I (2016) Single [FLAC|Lossless|WEB-DL|tracks] <Crust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535420.jpg" />
+  <img src="Z:/picture/008/save_picture_535420.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Bassinvaders - Hellbassbeaters (2008) [APE|Lossless|image + .cue] <Heavy, Power,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535414.jpg" />
+  <img src="Z:/picture/008/save_picture_535414.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Chain Collector - Unrestrained (2008) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535251.jpg" />
+  <img src="Z:/picture/008/save_picture_535251.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Glenn Tipton - Baptizm Of Fire (1997) Japan [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534495.jpg" />
+  <img src="Z:/picture/008/save_picture_534495.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Hate Eternal - Upon Desolate Sands (2018) [FLAC|Lossless|WEB-DL|tracks] <Death m
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533758.jpg" />
+  <img src="Z:/picture/008/save_picture_533758.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Cult Cinema - Iscariot (2011) [FLAC|Lossless|WEB-DL|tracks] <Crust, Hardcore, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533625.jpg" />
+  <img src="Z:/picture/008/save_picture_533625.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Saor - Roots (2013) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533620.jpg" />
+  <img src="Z:/picture/008/save_picture_533620.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Odyssey - Odyssey (1999) EP [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533619.jpg" />
+  <img src="Z:/picture/008/save_picture_533619.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Odyssey - Odyssey (1999) EP [FLAC|Lossless|image + .cue] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B28C33344E388CA9A733E48EB56F3A8068C3F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155408   (533615) от 03.08.2017
-
-Vanden Plas - The Seraphic Clockwork (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frequency (6:17)
-02. Holes In The Sky (5:26)
-03. Scar Of An Angel (7:27)
-04. Sound Of Blood (6:47)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296A29E80105D41185A0122B018C069E06179E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155421   (533609) от 03.08.2017
-
-Vanden Plas - The Seraphic Live Works (2017) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Postcard to God (9:00)
-2. Rush of Silence (10:52)
-3. Holes in the Sky (5:41)
-4. Far off Grace (8:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB6CFC00D6CC9F8EFB8F1ACA64B0A0D9065F348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155494   (533529) от 03.08.2017
-
-Dan Swano - Moontower (1998) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533529.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sun of the Night (5:15)
-2. Patchworks (4:59)
-3. Uncreation (5:41)
-4. Add Reality (6:17)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961FA9E06BC9153FF39AAAC0666B01BA4C7F83D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

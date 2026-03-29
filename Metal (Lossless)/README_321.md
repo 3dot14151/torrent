@@ -1,3 +1,90 @@
+###  Публикация: 1690478   (123923) от 07.01.2024
+
+Orphaned Land - A Heaven You May Create (30th Anniversary / Live In Tel-Aviv) (2023) [FLAC|Lossless|image + .cue] <Doom, Death, Folk Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mabool (The Flood)
+02. The Storm Still Rages Inside
+03. Like Orpheus
+04. Sapari(   Читать дальше...   )Жанр: Doom, Death, Folk Metal, Progressive MetalПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809E360CBD772739D144C62DC1D0161C3192C2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690540   (123907) от 07.01.2024
+
+Luzbel - Anthología Perdida I (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Ángel De La Lujuria
+02. El Loco
+03. La Gran Ciudad
+04. Esta Noche Es Nuestra(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6CA90815E476156EBE3E010FC17B2DFAA83505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690527   (123905) от 07.01.2024
+
+After Apocalypse - After Apocalypse (2015) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Apocalypse  03:36
+02. World Of Marzipan  04:14
+03. Dark Side  07:03
+04. Glorious Way  03:15(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E958E52C52D8C912D84BAA60C7CEA978D98E0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690382   (123904) от 07.01.2024
 
 Cancer Christ - God is Violence (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crust, Hardcore>
@@ -6,7 +93,7 @@ Cancer Christ - God is Violence (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123904.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Even Vast - Teach Me How to Bleed (2007) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123903.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Without Face - Astronomicon (2002) [FLAC|Lossless|image + .cue] <Progressive Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123902.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Omicron - Entropic Entity (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123901.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Cain's Dinasty - Hollow Earth (2015) Reissued 2017 Japan Edition [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123795.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Suffocation - Hymns from the Apocrypha (2023) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123672.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Hauntologist - Hollow (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123646.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Andrew W. Boss - Strength (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap-Metal, Alt.M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123633.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Rat Mass - Time Pulls the Trigger (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123632.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ TodoMal - Ultracrepidarian (2021) [FLAC|Lossless|tracks] <Atmospheric Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123629.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Andrew W. Boss - The Arrival (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap-Metal, Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123628.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Euphoriall - Dasos (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123511.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Regime - Demo 1991 + 3 (2013) Compilation [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123403.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Sad Whisperings - Sensitive to Autumn (1993) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123402.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Sad Whisperings - Return to Autumn (2023) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123401.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Primordial Serpent - Ancient Myths and Legends (2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123399.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Acid Enema - A Faint Light At The End Of The World (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123239.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Emil Bulls - Love Will Fix It (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123106.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Temperance - Of Jupiter and Moons (2018) Japanese Edition, Avalon [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123092.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Temperance - Limitless (2015) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123069.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Temperance - The Earth Embraces Us All (2016) Japanese Edition, Rubicon Music [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123067.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Serocs - And When the Sky Was Opened (2015) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123055.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Serocs - Oneirology (2012) Demo [FLAC|Lossless|tracks] <Brutal Technical Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123054.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Serocs - Oneirology (2012) Demo [FLAC|Lossless|tracks] <Brutal Technical Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F3482CA9218C48BC9FAAE0438EF47DA474C2793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691616   (123053) от 13.01.2024
-
-Serocs - The Next (2013) [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Next
-02. The Variable
-03. Urban Terror
-04. Weakness Fed The Fear(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA52F5B3329F5D1C42A6755080A0D885910D0377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691676   (123046) от 13.01.2024
-
-Serocs - The Phobos / Deimos Suite (2018) [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Being
-02. Nihilus
-03. Thanatophobia
-04. REM(nants)(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00: 46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05B146D9D07DBE5E9BE407E4A9F87A117320FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691678   (123045) от 13.01.2024
-
-Serocs - Vore (2020) EP [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthropic
-02. Building A Shrine Upon Vanishing Sands
-03. Shallow Vaults
-04. The Temple Of Knowledge(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4D90933D013602E798A7051B3A64B5429C9C99
 ```
 
 https://mybot314.ru/tekegram_catalog/

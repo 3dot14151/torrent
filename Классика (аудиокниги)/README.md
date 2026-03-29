@@ -1,4 +1,84 @@
 https://t.me/izofen
+###  Публикация: 1861584   (1062680) от 
+
+Лао Шэ | Рикша (2026) [MP3, Игорь Гмыза]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший роман Лао Шэ и классика китайской прозы. «Рикша» считается наиболее известным романом писателя и входит в число ключевых произведений китайской литературы XX века.
+Сильная социальная драма о «маленьком человеке». История Сянцзы соединяет живые детали быта с жесткой критикой общества, где честный труд не гарантирует ни уважения, ни будущего.
+«Рикша» – один (   Читать дальше...   )Жанр: классикаИздательство: АСТПродолжительность: 09:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7D1FECF52A28FF7FC8F07BC3E46ACE204A49CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861165   (1062655) от 
+
+Эрнст Теодор Амадей Гофман | Ночные этюды (Сборник) (2026) [MP3, Юрий Гуржий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из важнейших готических сборников XIX века: «Ночные этюды» закрепили за Гофманом репутацию мастера мрачной романтики и повлияли на развитие европейской литературы ужаса и мистики. В свой знаменитый сборник «Ночные этюды», о котором Гейне сказал: «Дьяволу не написать ничего более дьявольского», Гофман включил восемь мистических рассказов, которые погрузят читателя (   Читать дальше...   )Жанр: Классика, фэнтези, мистика, ужасыИздательство: Аудиокнига (АСТ)Продолжительность: 13:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75964E8E077818E74074829A10F0FFEF5B29A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861170   (1062592) от 
+
+Натаниель Готорн | Алая буква (2026) [MP3, Сергей Нафронович]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый известный роман Натаниеля Готорна и его magnum opus, классика американской литературы в переводе Марии Николенко. Это история запретной любви, раскрывающая нравы и образ жизни пуританского общества, обитателей Новой Англии середины XVII века. Сюжет «Алой буквы» по праву считается одним из самых драматичных и напряженных в литературе. Роман входит в университетскую (   Читать дальше...   )Жанр: Зарубежная классика, Социальный реализм, ДрамаИздательство: ЭксмоПродолжительность: 08:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CEC1D9EFC6BB5933737C68E1A97C9BB92FD3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860195   (1061750) от 
 
 Мэри Элизабет Брэддон | Потерянный для любви (2025) [MP3, Екатерина Радостева]
@@ -7,7 +87,7 @@ https://t.me/izofen
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061750.jpg" />
+  <img src="Z:/picture/005/save_picture_1061750.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061725.jpg" />
+  <img src="Z:/picture/005/save_picture_1061725.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061141.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059961.jpg" />
+  <img src="Z:/picture/009/save_picture_1059961.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057450.jpg" />
+  <img src="Z:/picture/005/save_picture_1057450.jpg" />
 </div>
 
 
@@ -143,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057414.jpg" />
+  <img src="Z:/picture/005/save_picture_1057414.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056952.jpg" />
+  <img src="Z:/picture/005/save_picture_1056952.jpg" />
 </div>
 
 
@@ -197,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056325.jpg" />
+  <img src="Z:/picture/005/save_picture_1056325.jpg" />
 </div>
 
 
@@ -223,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056323.jpg" />
+  <img src="Z:/picture/005/save_picture_1056323.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055980.jpg" />
+  <img src="Z:/picture/005/save_picture_1055980.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054595.jpg" />
+  <img src="Z:/picture/005/save_picture_1054595.jpg" />
 </div>
 
 
@@ -304,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054593.jpg" />
+  <img src="Z:/picture/005/save_picture_1054593.jpg" />
 </div>
 
 
@@ -333,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054427.jpg" />
+  <img src="Z:/picture/005/save_picture_1054427.jpg" />
 </div>
 
 
@@ -359,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054426.jpg" />
+  <img src="Z:/picture/005/save_picture_1054426.jpg" />
 </div>
 
 
@@ -386,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054238.jpg" />
+  <img src="Z:/picture/005/save_picture_1054238.jpg" />
 </div>
 
 
@@ -415,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054032.jpg" />
+  <img src="Z:/picture/005/save_picture_1054032.jpg" />
 </div>
 
 
@@ -441,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053385.jpg" />
+  <img src="Z:/picture/005/save_picture_1053385.jpg" />
 </div>
 
 
@@ -467,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053384.jpg" />
+  <img src="Z:/picture/005/save_picture_1053384.jpg" />
 </div>
 
 
@@ -493,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053383.jpg" />
+  <img src="Z:/picture/005/save_picture_1053383.jpg" />
 </div>
 
 
@@ -519,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053324.jpg" />
+  <img src="Z:/picture/005/save_picture_1053324.jpg" />
 </div>
 
 
@@ -546,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053166.jpg" />
+  <img src="Z:/picture/005/save_picture_1053166.jpg" />
 </div>
 
 
@@ -574,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052769.jpg" />
+  <img src="Z:/picture/005/save_picture_1052769.jpg" />
 </div>
 
 
@@ -600,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052596.jpg" />
+  <img src="Z:/picture/005/save_picture_1052596.jpg" />
 </div>
 
 
@@ -611,84 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A5E838AEEF1E749B4C2FD820981E940EDA1C651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848093   (1052590) от 16.01.2026
-
-Николай Лейкин | На побывке (2025) [MP3, Геннадий Постригайло]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это произведение известного отечественного писателя конца XIX – начала XX века Николая Александровича Лейкина – изящный перевертыш. Его герои хотят, чтобы у них все было как в романах: и сентиментальные жесты, и несметное богатство, которым одаривают достойного, – а получается всё, как в жизни. За каждым действием молодого человека, приехавшего в деревню к родителям (   Читать дальше...   )Жанр: Классика, СатираИздательство: Аудиокнига своими рукамиПродолжительность: 09:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF724B5B62689DF75025D4A1F0B6A092F5859D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848100   (1052586) от 16.01.2026
-
-Элизабет Гаскелл | Под покровом ночи (2025) [MP3, Ирина Воробьёва]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Под покровом ночи» (1863) на русском языке публикуется впервые. Действие разворачивается в провинциальном городке небольшого английского графства, на фоне панорамного изображения викторианских нравов и социальных предрассудков минувшего времени. Тонкий психологизм сочетается с захватывающим сюжетом, пружиной которого становится непредумышленное убийство, совершенное (   Читать дальше...   )Жанр: Социальный реализм, Драма, КлассикаИздательство: Нигде не купишьПродолжительность: 07:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72EF3DDF9B7A8D21E72A38737DB76500ABF0F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848153   (1052522) от 16.01.2026
-
-Джеффри Чосер | Кентерберийские рассказы (2026) [MP3, Роман Ильин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052522.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Джеффри Чосер - "отец английской поэзии" - жил в XIV веке, когда родина его была очень далека от Возрождения, которое в Англии заставило себя ждать еще чуть ли не два столетия. Вплоть до Спенсера и Марло в английской поэзии не было ничего не только равного, но просто соизмеримого с "Кентерберийскими рассказами" Чосера. Поэму можно назвать (   Читать дальше...   )Жанр: Поэзия, историяИздательство: Аудиокнига своими рукамиПродолжительность: 05:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CDA52AD14610D221CB2968581962AD46E1138D
 ```
 
 https://mybot314.ru/tekegram_catalog/

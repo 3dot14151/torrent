@@ -1,3 +1,55 @@
+###  Публикация: 1835744   (251914) от 07.11.2025
+
+Георгий Плеханов |   Дистанционный курс по ремонту холодильников (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический онлайн-курс, созданный мастером с многолетним опытом — Георгием Плехановым. Подходит для новичков и тех, кто уже сталкивался с ремонтом бытовой техники. Обучение построено просто и доступно: шаг за шагом от теории устройства холодильников до самостоятельного устранения любых неисправностей.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53E668DD3760FDEA7737F1E1A1E99DAC9C4592C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835777   (251896) от 07.11.2025
+
+ОВКЭС, Игорь Гончаров, Дмитрий HVAC | Эксперт кондиционирования (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите актуальные знания опытных монтажников сплит-систем и работайте по четким алгоритмам.Производство: ОВКЭСЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 19:08:56Реклама: наложение на видео и в презентации (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785DB8E93E2C24D5180B3750D5C3B7F451199EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835576   (251253) от 06.11.2025
 
 TrueDO, Александра Фалендуш | Деревянная игрушка (2021) WEB-DL [AD] [RU]
@@ -6,7 +58,7 @@ TrueDO, Александра Фалендуш | Деревянная игруш�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251253.jpg" />
+  <img src="Z:/picture/004/save_picture_251253.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ TrueDO, Виталий Кудряшов | Основы сварочного де
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250986.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ TrueDO, Сергей Дёмкин | Основы столярного дела (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250984.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ TrueDO, Ольга Танана | Основы кожевенного дела (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250982.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ TrueDO, Сергей Дёмкин | Основы работы ручным фр�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250980.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ TrueDO, Александра Катайцева | Основы бытовой р
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250978.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ TrueDO, Александра Катайцева | Продвинутая быт�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250967.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250623.jpg" />
+  <img src="Z:/picture/004/save_picture_250623.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250601.jpg" />
+  <img src="Z:/picture/004/save_picture_250601.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Bravo Chef! Французская кухня [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242751.jpg" />
+  <img src="Z:/picture/005/save_picture_242751.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240212.jpg" />
+  <img src="Z:/picture/004/save_picture_240212.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239229.jpg" />
+  <img src="Z:/picture/004/save_picture_239229.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ mj_home.kz | Курс по гипсу "От и до" (2022) WEB-DL [AD] [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238855.jpg" />
+  <img src="Z:/picture/005/save_picture_238855.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233617.jpg" />
+  <img src="Z:/picture/005/save_picture_233617.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Cut&Sew | Курс Нижнее бельё 2.0 (2022) WEB-DL
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233120.jpg" />
+  <img src="Z:/picture/005/save_picture_233120.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232914.jpg" />
+  <img src="Z:/picture/005/save_picture_232914.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230953.jpg" />
+  <img src="Z:/picture/005/save_picture_230953.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230758.jpg" />
+  <img src="Z:/picture/004/save_picture_230758.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230348.jpg" />
+  <img src="Z:/picture/005/save_picture_230348.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ Vikisews, Виктория Ракуса | Немарафон по пошиву �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229765.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ Lextorium, Михаил Церковников, Владимир Прохоре�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227295.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227123.jpg" />
+  <img src="Z:/picture/005/save_picture_227123.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227041.jpg" />
+  <img src="Z:/picture/005/save_picture_227041.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ Dystlab, Виталий Артемов | Видеокурс ''Основы ди�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213657.jpg" />
+  <img src="Z:/picture/005/save_picture_213657.jpg" />
 </div>
 
 
@@ -639,61 +691,6 @@ Dystlab, Виталий Артемов | Видеокурс ''Основы ди�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B8E8782F15B43C8685515CC1081ED31B9287890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557935   (213250) от 18.06.2022
-
-Udemy, Зоя Теммерман | 3Д моделирование в SketchUp (2020) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы получаете четкий и пошаговый алгоритм действий.
-Мы изучаем «инструменты программы».
-Функции и возможности SketchUp.
-7 подробных видео уроков, проектирование с нуля.(   Читать дальше...   )Производство: UdemyЖанр: 3D-моделированиеЯзык озвучки: РусскийПродолжительность: 02:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EE740B4C02249AD6E47023CF5472B85F7D0260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604627   (210008) от 14.01.2023
-
-Александр Терехов | Путь к комфортному дому (2015) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из каких материалов строить Дом? Какие сделать перекрытия в коттедже? Сроки строительства дома? Как удешевить строительство дома? Какой приобрести Проект? Может проектировать самому? С кем строить? Критерии выбора Подрядчика? А как их контролировать? Где взять нормы расхода? Как избежать не нужных затрат? Можно уменьшить затраты на организацию строительства? Сократить (   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 09:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109E60260C1913409B260C2E9781BF78BC0FC644
 ```
 
 https://mybot314.ru/tekegram_catalog/

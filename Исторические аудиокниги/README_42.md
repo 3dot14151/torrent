@@ -1,3 +1,84 @@
+###  Публикация: 1714852   (111687) от 10.04.2024
+
+Рафаэль Сабатини | Любовь и оружие (2015) [MP3, Светлана Раскатова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рафаэль Сабатини (1875–1950), английский писатель итальянского происхождения, прославившийся приключенческими историческими романами.
+Герцогство Баббьяно на грани краха, на него положил глаз Чезаре Борджия, постепенно подчиняющий себе государства Италии, есть два пути спасения: поставить вместо Джан-Мария Скорце, герцога Баббьяно запустившего дела, популярного в (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Нигде не купишьПродолжительность: 08:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B0AA77FF1893EA3B285876230989B6A380BCAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714840   (111683) от 10.04.2024
+
+Рафаэль Сабатини | Скарамуш (2015) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рафаэль Сабатини (1875–1950), английский писатель итальянского происхождения, прославившийся приключенческими историческими романами.
+Франция, канун Великой Французской революции. Андре-Луи – приёмыш в семье дворянина, сам однако остающийся простолюдином. После того как заносчивый аристократ маркиз Латур Д'Азир беспричинно убивает друга героя и получает обещание (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Нигде не купишьПродолжительность: 13:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8A5C6E78DD96713B7FFB635DF830ECF1A4B956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714888   (111681) от 10.04.2024
+
+Рафаэль Сабатини | Венецианская маска (2009) [MP3, Вадим Цымбалов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рафаэль Сабатини (1875–1950), английский писатель итальянского происхождения, прославившийся приключенческими историческими романами.
+Действие романа происходит в Италии, раздробленной в те времена на множество мелких государств. Читатель найдет здесь все атрибуты классического приключенческого романа — поединки, путешествия, интриги, предательство, борьбу за власть (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Нигде не купишьПродолжительность: 11:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19322C335A43D150E59EC012D8B0F38FDFA75E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715059   (111625) от 11.04.2024
 
 Александр Пушкин | История Пугачевского бунта (2009) [MP3, Илья Прудовский]
@@ -6,7 +87,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111625.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109995.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109237.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109114.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109113.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109015.jpg" />
 </div>
 
 
@@ -169,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108997.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108410.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107622.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106864.jpg" />
 </div>
 
 
@@ -279,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106862.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106021.jpg" />
 </div>
 
 
@@ -333,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105856.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105407.jpg" />
 </div>
 
 
@@ -387,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104776.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104607.jpg" />
 </div>
 
 
@@ -439,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104284.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104248.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103234.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103162.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102983.jpg" />
 </div>
 
 
@@ -574,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101262.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85938.jpg" />
 </div>
 
 
@@ -612,92 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18C2C1DA886BD89B7105C87B74C4FF875D42A858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476268   (85533) от 31.03.2012
-
-Плутарх | Сравнительные жизнеописания. Том 1 [2008] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плутарх сравнивает биографии выдающихся деятелей Греции и Рима попарно: это легендарные основатели Афин и Рима Тесей и Ромул, законодатели Ликург и Нума Помпилий, политики Перикл и Фабий Максим, а также Солон и Попликола, Фемистокл и Камилл, военачальники Тимолеонт и Эмилий Павел, Алкивиад и Гай Марций.
-В сочинении много сведений о частной жизни персонажей, анекдотов и остроумных изречений, и После каждой пары биографий Плутарх называет общие черты своих героев и различия между ними,  приводит философское осмысление их деятельности; при этом он пытается охарактеризовать скорее саму личность великого человека, нежели его поступки или убеждения.
-«Подобно тому, как художники, мало обращая внимания на прочие части тела, добиваются сходства благодаря точному изображению лица и выражения глаз, в которых проявляется характер человека, так и нам пусть будет позволено углубиться в изучение признаков, отражающих душу человек; и на основании этого составлять каждое жизнеописание, предоставив другим воспевать великие дела (   Читать дальше...   )2008Жанр: Биографии
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EB5154B9DEBFEC2A47C611969222EEFF59B0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475930   (85510) от 31.03.2012
-
-Николай Соколов | Убийство царской семьи [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85510.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мне выпало на долю производить расследование об убийстве Государя Императора Николая II и его семьи. В пределах права я старался сделать все возможное, чтобы найти истину и соблюсти ее для будущих поколений. Я не думал, что мне самому придется говорить о ней, надеясь, что ее установит своим авторитетным приговором русская национальная власть. Но суровая действительность (   Читать дальше...   )Жанр: История, мемуары
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF20A99961197A95C138BDA9F604BC530554185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476120   (85500) от 31.03.2012
-
-С. С. Уолкер | Чингиз-хан [2008] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85500.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии рассказывается о выдающемся монгольском правителе и полководце - Чингиз-хане. Книга охватывает все периоды его жизни.
-Автор подробно анализирует ход военных походов, боевое искусство и причины побед монголов. Особое внимание уделяется анализу хронологии
-излагаемых событий.
-Пожалуй, не найдется человека, не знакомого с именем Чингиз-хана, а среди знающих историю ни одного, кто бы не изумлялся величию его деяний,
-оказавших огромное влияние на историю Азии и Европы. Необыкновенная, притягательная, страшная, незабываемая в поколениях людей личность,
-которой завидовали и у которой учились потомки. Даже великий хромец Тимур возводил свой род к Чингиз-хану, стремясь связать историю своей
-семьи с историей жизни великого завоевателя.Жанр: История, биография
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842645238041A132799A6FDF223905E68BF48D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

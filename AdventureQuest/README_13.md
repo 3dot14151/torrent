@@ -1,3 +1,81 @@
+###  Публикация: 1098381   (909652) от 29.01.2017
+
+Fahrenheit: Indigo Prophecy - Remastered (2015) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909652.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу переиздания легла нецензурированная версия игры, разработчики говорят об улучшенной визуальной составляющей с возможностью переключения между оригинальной картинкой и обновленной графикой на лету и полной поддержке геймпада. Рядовой сотрудник нью-йоркского банка убивает в туалете ист-эндской забегаловки абсолютно незнакомого мужчину.Тип издания: RepackРазработчик: Quantic Dream, AspyrЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0C99C2541854156A32A7FA25477DFBF1E96EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330155   (908257) от 20.03.2020
+
+Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.8244/dlc) Repack West4it
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trine 4: The Nightmare Prince – очередная часть в серии логических платформеров Trine. Присоединяйтесь к тройке ключевых героев из предыдущих частей игры (рыцарю Понтию, воровке Зои и магу Амадею) и отправляйтесь в новое сказочное приключение, чтобы спасти мир от теней Принца Кошмаров.Тип издания: RepackРазработчик: FrozenbyteЖанр: Action, Adventure, PlatformerЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E89EB6250E5F0099C192140CAA692055FC005D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080600   (907884) от 30.01.2017
+
+The Walking Dead: Season Two (2013-2014) [Multi] (3.00) License GOG [A Telltale Games Series]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907884.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Walking Dead: Season Two - продолжение первого сезона The Walking Dead. Это эпизодическая видеоигра по принципу point-and-click системы, в жанре графической приключенческой игры по мотивам комикса Роберта Киркмана «Ходячие мертвецы». Игра разрабатывалась студией Telltale Games. Второй сезон игры продолжает историю Клементины, девочки из Атланты, осиротевшей во (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FD6D112935B1302C313A1C7A2F050DB8CD7393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491919   (906733) от 27.08.2021
 
 Tormented Souls (2021) [Ru/Multi] (7256155) License CODEX
@@ -6,7 +84,7 @@ Tormented Souls (2021) [Ru/Multi] (7256155) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906733.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (7059951) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906615.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Myst (2021) [Multi] (1.4.0) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906591.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0.0.1) Repack R.G. Revenants [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906048.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Morels: The Hunt (2019) [Ru/Multi] (1.11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904661.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.284152) Repack Seraph1 [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904374.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ CAYNE (2017) [Ru/Multi] (1.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904230.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Spakoyno: Back to the USSR 2.0 (2016) [Ru/En] (1.0) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903527.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Mage's Initiation: Reign of the Elements (2019) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903036.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Grim Fandango Remastered (2015) [Multi] (1.4.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903029.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Last Light (2021) [Multi] (7245562) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901945.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Soul Axiom (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901876.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ UnderDread (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901850.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Welcome to PINEHILLS (2021) [Ru/En] (Jule20) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901821.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Beholder (2016) [Ru/Multi] (1.0/upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900641.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900415.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Insurmountable (2021) [Multi] (1.3.1) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900202.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.25) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899481.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898952.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Husk (2017) [Ru/Multi] (4.13) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898714.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Agatha Christie's The ABC Murders (2016) [Ru/En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898490.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896956.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896826.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C25BD4D12A2961DC49D21D4215D60E5E53004844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993306   (896781) от 04.03.2016
-
-The Interactive Adventures of Dog Mendonça & Pizzaboy (2016) [Ru/Multi] (1.0.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра основана на графических новеллах, не раз удостоенных наград, опубликованных Dark Horse. Данные новеллы раскрывают сверхъестественные тайны потустороннего Лиссабона. Получайте контроль над Pizzaboy и приступайте к изучению совершенно новой истории во вселенной Dog Mendonça!Тип издания: LicenseРазработчик: OKAM StudioЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACB62D18773E36603A24125F529DD65E963AEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684633   (895400) от 12.02.2015
-
-Amnesia. The Dark Descent / Амнезия. Призрак прошлого (2010) [Ru/Multi] (1.3.1/dlc) SteamRip Let'sPlay
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой игры Даниэль приходит в себя в старинном замке, не понимая, кто он, как сюда попал и что произошло. Единственное, что он испытывает, — леденящее чувство тревоги, как будто что-то преследует его и время, отведённое ему, уходит. И лишь из найденной записки, подписанной его собственным именем, он узнаёт, что сам предпочёл забыть прошлое и тем самым избавиться (   Читать дальше...   )Тип издания: SteamRipРазработчик: Frictional GamesЖанр: Adventure / 3D / HorrorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Итальянский, Испанский, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Итальянский, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3A22CC8728E27CFDB31EB81380A265E3D090BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993654   (895009) от 05.03.2016
-
-Jotun (2015) [Ru/Multi] (1.0 u#2) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jotun - масштабная action-adventure, выполненная в древнескандинавском сеттинге, с графикой и анимацией, полностью нарисованной вручную. Вы управляете скандинавской воительницей по имени Тора, которая погибла бесславной смертью, и теперь хочет доказать Богам, что она достойна попасть в Валгаллу! Придется очень постараться, чтобы впечатлить Высшие силы!Тип издания: RepackРазработчик: Thunder Lotus GamesЖанр: AdventureЯзык озвучки: ИсландскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CD130BA6B97C7BA9451CE9FC15BDC8F16BFBA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

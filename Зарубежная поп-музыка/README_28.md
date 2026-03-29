@@ -6,7 +6,7 @@ VA - Move on Up – Dance Music (2017) [MP3|320 Kbps] <RnB, Soul, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710667.jpg" />
+  <img src="Z:/picture/008/save_picture_710667.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gina T. - 3 Albums (1991-2011) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710517.jpg" />
+  <img src="Z:/picture/008/save_picture_710517.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - Radio Italia Spring (2018) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709950.jpg" />
+  <img src="Z:/picture/008/save_picture_709950.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Top Easy Listening Hits (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708985.jpg" />
+  <img src="Z:/picture/008/save_picture_708985.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ ABBA - Classic ABBA (2005) Compilation, Remastered [MP3|320 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708967.jpg" />
+  <img src="Z:/picture/008/save_picture_708967.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Nick Straker Band - The Very Best Of (1997) CD [MP3|320 Kbps] <Electronic, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706190.jpg" />
+  <img src="Z:/picture/008/save_picture_706190.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Lucky Star - Who's Foolin' Who (1978) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706186.jpg" />
+  <img src="Z:/picture/008/save_picture_706186.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ My Indigo - My Indigo (2018) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705996.jpg" />
+  <img src="Z:/picture/008/save_picture_705996.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Geoff Love And His Orchestra - Star Wars And Other Space Themes / Close Encounte
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704413.jpg" />
+  <img src="Z:/picture/008/save_picture_704413.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Electronic Butterflies - Skylab (1977) LP [MP3|320 Kbps] <Electronic, Disco, Exp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703692.jpg" />
+  <img src="Z:/picture/008/save_picture_703692.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PLS PLS - LP LP (2013) [MP3|256 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703190.jpg" />
+  <img src="Z:/picture/008/save_picture_703190.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ PLS PLS - Jet Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703060.jpg" />
+  <img src="Z:/picture/008/save_picture_703060.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Alyzee - My Life (2017) [MP3|320 Kbps] <Alternative Pop, Ethnic Electronic Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702654.jpg" />
+  <img src="Z:/picture/008/save_picture_702654.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - DMC Dance Extra Mixes 168 (2021) [MP3|320 Kbps] <Electronic, Funk / Soul, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701557.jpg" />
+  <img src="Z:/picture/008/save_picture_701557.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Lola Coca - The Only Child (2017) [MP3|320 Kbps] <Pop, Britpop, Alternative Hip 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700841.jpg" />
+  <img src="Z:/picture/008/save_picture_700841.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Lisa Stansfield (Лиза Стэнсфилд) - Affection (1989) Arista [MP3|320
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700664.jpg" />
+  <img src="Z:/picture/008/save_picture_700664.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Cascades - Hits And Rarities (1993) [MP3|320 кб/с] <60's Pop, Oldies>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700337.jpg" />
+  <img src="Z:/picture/008/save_picture_700337.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Ben Westwood - Coming Up For Air (2019) [MP3|320 Kbps] <Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699877.jpg" />
+  <img src="Z:/picture/008/save_picture_699877.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - So Fresh The Hits Of Summer 2019 + The Best Of 2018 (2018) 2CD [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699759.jpg" />
+  <img src="Z:/picture/008/save_picture_699759.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Danielle Bradbery (Даниэль Брэдбери) - The Voice: The Complete Se
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698803.jpg" />
+  <img src="Z:/picture/008/save_picture_698803.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Danielle Bradbery (Даниэль Брэдбери) - Danielle Bradbery (2013) R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698802.jpg" />
+  <img src="Z:/picture/008/save_picture_698802.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Babe - 3 Studio Albums (1980-1983) LP [MP3|320 Kbps] <Electronic, Europop, Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698608.jpg" />
+  <img src="Z:/picture/008/save_picture_698608.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Bobby Farrell - The Best of Boney M. (2001) CD [MP3|320 Kbps] <Electronic, Europ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698517.jpg" />
+  <img src="Z:/picture/008/save_picture_698517.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Masquerade - The Sound of Masquerade (1984) CD [MP3|320 Kbps] <Electronic, Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697008.jpg" />
+  <img src="Z:/picture/008/save_picture_697008.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Dennis Garcia - Jive To Stay Alive (1977) LP [MP3|320 Kbps] <Electronic,  Synth-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695143.jpg" />
+  <img src="Z:/picture/008/save_picture_695143.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Carrie Rodriguez & The Sacred Hearts - Lola (2016) [MP3|320 кб/с] <Pop, Folk,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694842.jpg" />
+  <img src="Z:/picture/008/save_picture_694842.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1105694   (876635) от 17.02.2017
+
+Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Alright With Me (8:59)
+02. Only The Lonely (7:21)
+03. Don't Interrupt The Sorrow (4:58)
+04. River (6:35)(   Читать дальше...   )Жанр: Soul, Vocal JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB55B3EFCAEF4AE43999ECAEAD2821D358744B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104894   (876415) от 17.02.2017
+
+Yussef Kamaal - Black Focus (2016) [FLAC|Lossless|tracks + .cue] <Experimental, Broken Beat, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Focus (4:34)
+02. Strings of Light (8:29)
+03. Remembrance (9:01)
+04. Yo Chavez (3:59)(   Читать дальше...   )Жанр: Experimental, Broken Beat, Acid JazzПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD6CF0D90C807A5701EBBB5035FBC204592FDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495940   (876041) от 15.09.2021
+
+Roy Hargrove & Mulgrew Miller - In Harmony (2006, 2007) 2CD, 2021, Resonance Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876041.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. What Is This Thing Called Love? [9:11]
+02. This Is Always [8:25]
+03. I Remember Clifford [8:36](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12ABFD4C6DE1551C5B2D0284F1904040905D8783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997251   (875830) от 16.03.2016
+
+Scott Henderson, Jeff Berlin, Dennis Chambers - HBC (2012) Mascot Label Group[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_875830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Actual Proof [10:17]
+ 02.Mysterious Traveller [06:59]
+ 03.Footprints [08:46]
+ 04.D Flat Waltz [11:58](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194DC436DACB852FAF46CE5996D9313595C8F335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 643379   (875633) от 13.04.2013
 
 Gabin - TAD|Replay (2012) [FLAC|Lossless]<Nu Jazz, Jazzy Lounge>
@@ -6,7 +122,7 @@ Gabin - TAD|Replay (2012) [FLAC|Lossless]<Nu Jazz, Jazzy Lounge>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875633.jpg" />
+  <img src="Z:/picture/005/save_picture_875633.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Frank Rosolino - The Last Recording (1978) 2006, See Breeze Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875174.jpg" />
+  <img src="Z:/picture/005/save_picture_875174.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Bill Cosby - Hello, Friend: To Ennis with Love (1997) Verve [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875173.jpg" />
+  <img src="Z:/picture/005/save_picture_875173.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Karizma - Dreams Come True (1998) Creatchy Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875172.jpg" />
+  <img src="Z:/picture/008/save_picture_875172.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Andrew Hill - But Not Farewell (1990) Blue Note [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875166.jpg" />
+  <img src="Z:/picture/005/save_picture_875166.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Benny Goodman - The Real... Benny Goodman (2012) 3 CD [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875081.jpg" />
+  <img src="Z:/picture/005/save_picture_875081.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Andrea Motis - Emotional Dance (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875039.jpg" />
+  <img src="Z:/picture/008/save_picture_875039.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Art Pepper - Taste of Pepper: Art Pepper Meets The Rhythm Section & Mucho Calor 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874986.jpg" />
+  <img src="Z:/picture/005/save_picture_874986.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Fall Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874648.jpg" />
+  <img src="Z:/picture/008/save_picture_874648.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ V.A. - Smooth Jazz n Chill, Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874640.jpg" />
+  <img src="Z:/picture/005/save_picture_874640.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jane Monheit - The Heart Of The Matter (2013) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873920.jpg" />
+  <img src="Z:/picture/008/save_picture_873920.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Peggy Lee & Quincy Jones - The Complete Legendary 1961 Sessions: Blues Cross Cou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873850.jpg" />
+  <img src="Z:/picture/008/save_picture_873850.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Barbra Lica - I'm Still Learning (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873827.jpg" />
+  <img src="Z:/picture/008/save_picture_873827.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Max Greger und sein Orchester - Juke Box Hits (2007) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873822.jpg" />
+  <img src="Z:/picture/005/save_picture_873822.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Al Di Meola - Scenario (1983) Japanese Edition [FLAC|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873821.jpg" />
+  <img src="Z:/picture/008/save_picture_873821.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Paul Chambers - Bass On Top (1957) 1986,Toshiba-EMI [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873511.jpg" />
+  <img src="Z:/picture/008/save_picture_873511.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ The Chick Corea Elektric Band - The Chick Corea Elektric Band (1986) [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873115.jpg" />
+  <img src="Z:/picture/008/save_picture_873115.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Clark Terry - The Happy Horns of Clark Terry & It's What's Happenin' (1965/1967)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872126.jpg" />
+  <img src="Z:/picture/008/save_picture_872126.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Kylie Auldist - Still Life (2012) Tru Thoughts[FLAC|Lossless|tracks + .cue] <Fem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872097.jpg" />
+  <img src="Z:/picture/008/save_picture_872097.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ The Jazz Modes - The Most Happy Fella (1957) /2013 Remastered/ [FLAC|Lossless]<C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871828.jpg" />
+  <img src="Z:/picture/008/save_picture_871828.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Slide Hampton - Mellow-Dy (1968) 1992, LRC Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871806.jpg" />
+  <img src="Z:/picture/008/save_picture_871806.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871805.jpg" />
+  <img src="Z:/picture/008/save_picture_871805.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7660C865C1C49C74F17B6C28C68B6E2C6C9D6228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106144   (871675) от 20.02.2017
-
-Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peel Me A Grape
-02. The Moon Is Swinging On A Line
-03. She Ain't The Kinda' Girl
-04. You're My Thrill(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE713D80C7F28F6C918DE758776512447673E380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106782   (871674) от 20.02.2017
-
-Joyce Cooling - Playing It Cool (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Imagine That [04:11]
- 02.Savannah [05:03]
- 03.After Hours [03:54]
- 04.Another Time [05:02](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6416BE46CDEDD3A4101E6494D6872489E3539CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106816   (871671) от 20.02.2017
-
-Duke Ellington - The Real... Duke Ellington (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. It Don't Mean a Thing If It Ain't Got That Swing
-2. Lazy Rhapsody
-3. Blue Tune(   Читать дальше...   )Жанр: JazzПродолжительность: 03:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783298A0B17F2549E71A5FBF6445A46661DECB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106485   (871660) от 20.02.2017
-
-Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Easy Living
-2. All Of Me
-3. God Bless The Child(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

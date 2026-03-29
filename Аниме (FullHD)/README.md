@@ -1,4 +1,164 @@
 https://t.me/izofen
+###  Публикация: 1861176   (1062669) от 
+
+Bungou Stray Dogs 5 | Великий из бродячих псов 5 [2023, TV, 11 эп.] BDRip HEVC 10-bit 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062669.jpg" />
+</div>
+
+
+###  Подробнее
+
+После воплощения коварного плана Достоевского «Вооружённое детективное агентство» было признанно террористической организацией и вынуждено вести дела из тени. Чтобы избавиться от преследования «Ищеек», доказать невиновность организации и спасти мир от хаоса, детектив Рампо Эдогава разработал план по захвату Камуи — лидера террористической организации «Смерть небожителей». (   Читать дальше...   )Производство: Япония, BONESЖанр: приключения, комедия, мистика, детективРежиссер: Такуя ИгарасиЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 11 серий по 24 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280682DD34A8A51E7D2D8C0EE888A728020CC424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861278   (1062508) от 
+
+Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?): Next Shine! SP | У меня нет любовницы! (А, может, и есть?!) SP [2025, Special, 5 эп.] WebRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэнако Амаори стремится оставить позади своё неловкое и одинокое существование в средней школе, чтобы стать нормальной девушкой и завести подруг в старшей школе. Эффектная и уверенная Май Оудзука — полная противоположность Рэнако. Она богатая, общительная и, буквально, фотомодель. Вопреки всему, между девочками мгновенно образуется связь. Рэнако думает, что нашла (   Читать дальше...   )Производство: Япония, MotherЖанр: Комедия, романтика, сёдзё-айРежиссер: Нацуми УтинумаПеревод: HomuraTLЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 5 серий по 24 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99215C1749E41BABF25428E45697D2647DD18560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861439   (1062417) от 
+
+Ao no Hako | Blue Box | Голубая шкатулка [ТВ-1] [2024, TV, 25 эп.] BDRip HEVC 10-bit 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062417.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Каждое утро... есть один человек, которого я всегда очень хочу увидеть»
+Тайки Иномата учится в школе со спортивным уклоном «Эймэй» и состоит в команде по бадминтону. Каждое утро Тайки стремится первым попасть в спортзал, который всегда открыт для желающих лишний раз потренироваться, но, как бы он ни старался, там всегда есть, кому поприветствовать его. Когда-то (   Читать дальше...   )Производство: Япония, Telecom Animation FilmЖанр: романтика, спортРежиссер: Яно ЮйтироПеревод: Endy & Xvlsz (Манипулятор)Язык озвучки: ЯпонскийСубтитры: Русские, Японские (SDH), Китайские (SCJP/TCJP Asia BD)Продолжительность: 25 серий по 24 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9D82AD5E051B874076B5C97D5FE7E04648871D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860991   (1062313) от 
+
+Bungou Stray Dogs 4 | Великий из бродячих псов 4 [2023, TV, 13 эп.] BDRip HEVC 10-bit 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый сезон вернёт зрителя в прошлое и поведает историю возникновения «Вооружённого детективного агентства» и знакомства первых двух его членов: Юкити Фукудзавы, на тот момент никому неизвестного телохранителя и частного детектива, и совсем ещё юного Рампо Эдогавы одинокого парня, который даже не подозревает о своей «супердедукции».
+
+Волею судеб герои встречаются, (   Читать дальше...   )Производство: Япония, BONESЖанр: Сэйнэн, экшен, тайнаРежиссер: Такуя ИгарасиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887FC850E5F21ACDF9FBA11C17BE89A5E12B7E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860962   (1062312) от 
+
+Sekirei | Wagtail | Сэкирэй [2008, TV, 12 эп. + 1 OVA] BDRip 1080p 10-bit raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минато Сахаши очень умён, однако, из-за своей неспособности справляться со стрессами и внешним давлением, дважды провалил вступительные экзамены в колледж. В результате многие наклеили ему ярлык идиота и неудачника.
+Однажды, после разговора со своей вновь разочаровавшейся матерью, он сталкивается с девушкой по имени Мусуби, которую кто-то преследует. Девушка бежит, (   Читать дальше...   )Производство: Япония, Seven ArcsЖанр: Комедия, романтика, мистика, этти, сэйнэн, экшенРежиссер: Кусакава КэйдзёПеревод: Hollow & WillyЯзык озвучки: #1: Английский; #2: Японский;Субтитры: Русские, АнглийскиеПродолжительность: 12 серий по 24 мин + 1 OVA 11 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FD7D4AD086205B4887CC0F0C5E00DD55D75351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860670   (1062058) от 
+
+Hibi wa Sugiredo Meshi Umashi | Food for the Soul | Дни проходят, а еда по-прежнему хороша [2025, TV, 1 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повествование о пяти юных девушках, начинающих свой путь в университете. В центре их повседневной жизни — дружба, учёба и страсть к вкусной еде. Одна из героинь, Маки Каваи, видит в кулинарии не просто способ утолить голод, но и средство создать связи и подарить радость. Её блюда напоминают о тёплых вечерах с семьёй или об уютных встречах с друзьями. Вместе девушки (   Читать дальше...   )Производство: P.A. WorksЖанр: Повседневность, комедия, кулинария, студенческая жизнь.Режиссер: Кавацура СинъяПеревод: AniSlovo (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AFDC3E62B4886FF6ED3B5E3D882CB34C5558F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860192   (1061755) от 
 
 Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
@@ -7,7 +167,7 @@ Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061755.jpg" />
+  <img src="Z:/picture/005/save_picture_1061755.jpg" />
 </div>
 
 
@@ -34,7 +194,7 @@ Steins;Gate | Врата Штейна [ТВ] [2011, TV, 24 эп.] BDRip 1080p 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061381.jpg" />
+  <img src="Z:/picture/005/save_picture_1061381.jpg" />
 </div>
 
 
@@ -60,7 +220,7 @@ Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060519.jpg" />
+  <img src="Z:/picture/005/save_picture_1060519.jpg" />
 </div>
 
 
@@ -89,7 +249,7 @@ Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты жив
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060518.jpg" />
+  <img src="Z:/picture/005/save_picture_1060518.jpg" />
 </div>
 
 
@@ -117,7 +277,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga | M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060093.jpg" />
+  <img src="Z:/picture/009/save_picture_1060093.jpg" />
 </div>
 
 
@@ -143,7 +303,7 @@ ChaO | Чао [2025, Movie] WEBRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059343.jpg" />
+  <img src="Z:/picture/005/save_picture_1059343.jpg" />
 </div>
 
 
@@ -169,7 +329,7 @@ Chou Kaguya-hime! / Cosmic Princess Kaguya! / Суперпринцесса Ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058580.jpg" />
+  <img src="Z:/picture/005/save_picture_1058580.jpg" />
 </div>
 
 
@@ -196,7 +356,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058154.jpg" />
+  <img src="Z:/picture/005/save_picture_1058154.jpg" />
 </div>
 
 
@@ -222,7 +382,7 @@ Haikara-san ga Tooru | Smart-san | Современная девушка | Го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058005.jpg" />
+  <img src="Z:/picture/005/save_picture_1058005.jpg" />
 </div>
 
 
@@ -249,7 +409,7 @@ Shounan Bakusouzoku | Bomber Bikers of Shonan | Сёнанские байкер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057998.jpg" />
+  <img src="Z:/picture/005/save_picture_1057998.jpg" />
 </div>
 
 
@@ -275,7 +435,7 @@ Alma-chan wa Kazoku ni Naritai | Alma-chan Wants to Be a Family! | Альма х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057983.jpg" />
+  <img src="Z:/picture/005/save_picture_1057983.jpg" />
 </div>
 
 
@@ -301,7 +461,7 @@ Attack No.1 | Attack Number One | Mila Superstar | Лучшая подача [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057947.jpg" />
+  <img src="Z:/picture/005/save_picture_1057947.jpg" />
 </div>
 
 
@@ -327,7 +487,7 @@ Tensei Akujo no Kurorekishi | The Dark History of the Reincarnated Villainess | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055859.jpg" />
+  <img src="Z:/picture/005/save_picture_1055859.jpg" />
 </div>
 
 
@@ -353,7 +513,7 @@ Little Witch Academia | Академия ведьмочек (фильм перв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055200.jpg" />
+  <img src="Z:/picture/005/save_picture_1055200.jpg" />
 </div>
 
 
@@ -379,7 +539,7 @@ Momotarou: Umi no Shinpei | Momotaro Sacred Sailors | Momotaro's Divine Sea Warr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054050.jpg" />
+  <img src="Z:/picture/005/save_picture_1054050.jpg" />
 </div>
 
 
@@ -406,7 +566,7 @@ Kumo to Tulip | Spider and Tulip | Паук и тюльпан [1943, Movie] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053853.jpg" />
+  <img src="Z:/picture/005/save_picture_1053853.jpg" />
 </div>
 
 
@@ -435,7 +595,7 @@ Eiga Kobayashi-san Chi no Maidragon: Samishigariya no Ryuu | Miss Kobayashi's Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053387.jpg" />
+  <img src="Z:/picture/005/save_picture_1053387.jpg" />
 </div>
 
 
@@ -461,7 +621,7 @@ Undead Unluck: Winter Hen | Undead Unluck: Winter Arc | Нежить и Неуд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052533.jpg" />
+  <img src="Z:/picture/005/save_picture_1052533.jpg" />
 </div>
 
 
@@ -487,7 +647,7 @@ Tasokare Hotel | Отель Тасокарэ [2025, TV, 1 из 12] WEB-DL 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051310.jpg" />
+  <img src="Z:/picture/005/save_picture_1051310.jpg" />
 </div>
 
 
@@ -513,7 +673,7 @@ Nukitashi the Animation - Special | Нукитаси - Спэшл [2025, SP, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051052.jpg" />
+  <img src="Z:/picture/005/save_picture_1051052.jpg" />
 </div>
 
 
@@ -527,162 +687,6 @@ Nukitashi the Animation - Special | Нукитаси - Спэшл [2025, SP, 4 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5793F4754CA5C0FF1E16C18067B6C7207DA9F602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843598   (1049531) от 21.12.2025
-
-Shuumatsu no Walkure III | Record of Ragnarok III | Повесть о конце света 3 [2025, ONA, 15 эп.] WEBRip 1080p eng+raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представ перед гневом божественного собрания, человечество получило шанс избежать полного истребления. Лучшие воины рода людского выступили против существ высшей расы в грандиозном противостоянии ожесточённого турнира «Рагнарёк». Миновали первые бои, и по окончании шестого круга счёт в смертельном состязании сравнялся. Теперь малейшее содрогание чаш судьбы может (   Читать дальше...   )Производство: студия Yumeta Company / ゆめ太カンパニーЖанр: Сэйнэн, Экшен, Дрaма, ФэнтезиРежиссер: Хацуми КойтиПеревод: NetflixЯзык озвучки: #1: Английский; #2: Японский;Субтитры: Русские; Украинские; АнглийскиеПродолжительность: 15 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9CAC7347A6D13ECD1C20A6F77DC34EC38887F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841919   (1048368) от 13.12.2025
-
-New Panty and Stocking with Garterbelt | Панти, Стокинг и Гартербелт 2 [2025, TV] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Между небом и преисподней раскинулся огромный Датэн-сити, где миллионы людей живут обычной жизнью – помаленьку грешат, помаленьку страдают, в меру сил ищут счастья и удовольствия. Вот только в людскую жизнь постоянно вмешиваются злобные духи, на которых нет решительно никакой управы – кроме горячей молитвы, разумеется. И Небеса откликнулись, послав на помощь страждущим (   Читать дальше...   )Производство: Япония, студия TriggerЖанр: комедия, пародияРежиссер: Имаиси ХироюкиПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E457EDB5C4E9D9B3F84E5A9839950167AC873DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841256   (1047880) от 10.12.2025
-
-Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Человек-бензопила. Фильм: История Резе [2025, Movie] WEB-DL 2160p HEVC 10-bit HDR raw+rus
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэндзи, который уже некоторое время работает в Бюро общественной безопасности, целыми днями только и думает о том, как стать ближе к Макиме — не только его начальнице, но и объекту его воздыханий. Дэндзи уверен в искренности своих чувств и даже не допускает мысли, что кто-то может затмить красоту и очарование его возлюбленной. По крайней мере, он так думал, пока (   Читать дальше...   )Производство: студия MAPPAЖанр: приключенияРежиссер: Фудзимото ТацукиПеревод: Архив Субтитров (Donate & Тэнши) + МАНИПУЛЯТОР (Пельмеш & Pinger)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8F33DFD5355EB7A1D9B00E9091DD16E874FF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841121   (1047839) от 09.12.2025
-
-Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Человек-бензопила. Фильм: История Резе [2025, Movie] WEBRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэндзи, который уже некоторое время работает в Бюро общественной безопасности, целыми днями только и думает о том, как стать ближе к Макиме — не только его начальнице, но и объекту его воздыханий. Дэндзи уверен в искренности своих чувств и даже не допускает мысли, что кто-то может затмить красоту и очарование его возлюбленной. По крайней мере, он так думал, пока (   Читать дальше...   )Производство: Япония, студия MappaЖанр: экшен, приключенияРежиссер: Тацуя ЁсихараПеревод: iTunes (Екатерина Левина)Язык озвучки: Английский, ЯпонскийСубтитры: Английские, Русские (srt)Продолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F140FF842D9B102DD278DA552A7F244C0D19A481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840183   (1047154) от 04.12.2025
-
-Medalist | Медалистка [2025, TV, 13 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taнцы нa льдy — coвceм нe тo, к чeмy cтpeмилcя Цyкaca Aкэypaджи, кoгдa peшил пoкopить миp фигypнoгo кaтaния. Oднaкo имeннo здecь oн и oкaзaлcя, пocкoлькy «нaчaл cлишкoм пoзднo», чтoбы cтaть ycпeшным oдинoчникoм. Пятиклaccницa Инopи Юицyкa тaк oтчaяннo xoтeлa кaтaтьcя нa кoнькax, чтo тaйнo тpeниpoвaлacь нa кaткe, кyдa Цyкaca пpишёл ycтpaивaтьcя пoмoщникoм тpeнepa. (   Читать дальше...   )Производство: Студия EngiЖанр: спортРежиссер: Ямамото ЯсутакаПеревод: Архив Субтитров (Donate, Тэнши)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по ~23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509360B9D2EFD4574847A7A94B3A4C752AC69E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587162   (1046410) от 01.01.2023
-
-Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex | Дочь моей мачехи - моя бывшая девушка [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мизуто Иридо и Юме Аяи были парой в средней школе, поначалу всё шло хорошо, но чем дальше, тем отношения становились хуже, и к моменту окончания средней школы они расстались. Но за день до поступления в старшую школу они вновь встретились самым неожиданным образом: их родители объявляют о браке, а Мизуто и Юме становятся сводными братом и сестрой. Ставя чувства и (   Читать дальше...   )Производство: студия Project No.9Жанр: комедия, романтика, повседневностьРежиссер: Янаги СинсукэПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3645F224A0FFBAF8E8E9583F97EC7E738ABC131D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 1254881   (370972) от 15.10.2018
+
+BetterZip 4.2 (1434) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_370972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой-архиватором, например, утилитой BetterZip.
+
+Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2018Разработчик: MacItBetterПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0FBCE2A2C5C3041A4B25BBE0BBE51705D25D286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254812   (370970) от 15.10.2018
+
+SQLPro Studio 1.0.309 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_370970.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CB881562B523E7229721968EBC8FBBED3D37EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254890   (370960) от 15.10.2018
+
+iTubeDownloader 6 v6.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_370960.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTubeDownloader 6 теперь имеет очередь загрузки. Очередь загрузки позволит вам добавить несколько видео. Программа заботиться о выполнении их в определенном порядке. Кроме того, вы можете выполнить загрузку одновременно.
+
+С iTubeDownloader 6 мы добавили новые функции, чтобы сделать просмотр YouTube проще. iTubeDownloader 6 делает загрузку видео с YouTube еще более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AlphaSoftПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EA4B90B9232125DA1216DD56C9E38FC2BD5E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254745   (370956) от 15.10.2018
+
+MediaHuman YouTube Downloader 3.9.9.7 (1310) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_370956.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+Закачка нескольких файлов одновременно
+Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: MediaHumanПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7F2ADCB72DCA7D4AD1840A47127DC8370B3AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254894   (370952) от 15.10.2018
 
 iPulse 3 v3.0.4 [En]
@@ -6,7 +117,7 @@ iPulse 3 v3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370952.jpg" />
+  <img src="Z:/picture/008/save_picture_370952.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Artstudio Pro 1.3.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370824.jpg" />
+  <img src="Z:/picture/008/save_picture_370824.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ Librarian Pro 4 v4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370823.jpg" />
+  <img src="Z:/picture/008/save_picture_370823.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ Algoriddim djay Pro 2 (Complete FX Pack) 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370822.jpg" />
+  <img src="Z:/picture/008/save_picture_370822.jpg" />
 </div>
 
 
@@ -110,7 +221,7 @@ Alarm Clock Pro 11.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370816.jpg" />
+  <img src="Z:/picture/008/save_picture_370816.jpg" />
 </div>
 
 
@@ -138,7 +249,7 @@ MacPilot 10 v10.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370815.jpg" />
+  <img src="Z:/picture/008/save_picture_370815.jpg" />
 </div>
 
 
@@ -165,7 +276,7 @@ EazyDraw 8 v8.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370814.jpg" />
+  <img src="Z:/picture/008/save_picture_370814.jpg" />
 </div>
 
 
@@ -191,7 +302,7 @@ AirRadar 4 v4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370812.jpg" />
+  <img src="Z:/picture/008/save_picture_370812.jpg" />
 </div>
 
 
@@ -219,7 +330,7 @@ Movist 2 v2.0.0 b22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370807.jpg" />
+  <img src="Z:/picture/008/save_picture_370807.jpg" />
 </div>
 
 
@@ -247,7 +358,7 @@ Adobe Audition CC 2017 (10.0.0) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370730.jpg" />
+  <img src="Z:/picture/008/save_picture_370730.jpg" />
 </div>
 
 
@@ -273,7 +384,7 @@ Pacifist 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370673.jpg" />
+  <img src="Z:/picture/008/save_picture_370673.jpg" />
 </div>
 
 
@@ -302,7 +413,7 @@ Photos Exif Editor 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370672.jpg" />
+  <img src="Z:/picture/008/save_picture_370672.jpg" />
 </div>
 
 
@@ -331,7 +442,7 @@ Screenium 2.1.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_370549.jpg" />
+  <img src="Z:/picture/005/save_picture_370549.jpg" />
 </div>
 
 
@@ -358,7 +469,7 @@ Adobe InDesign CC 2017 (12.0.0.81) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370453.jpg" />
+  <img src="Z:/picture/008/save_picture_370453.jpg" />
 </div>
 
 
@@ -384,7 +495,7 @@ Delicious Library 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370138.jpg" />
+  <img src="Z:/picture/008/save_picture_370138.jpg" />
 </div>
 
 
@@ -410,7 +521,7 @@ Pixave 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370136.jpg" />
+  <img src="Z:/picture/008/save_picture_370136.jpg" />
 </div>
 
 
@@ -436,7 +547,7 @@ AnyToISO Pro 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370133.jpg" />
+  <img src="Z:/picture/008/save_picture_370133.jpg" />
 </div>
 
 
@@ -465,7 +576,7 @@ AudioFinder 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369867.jpg" />
+  <img src="Z:/picture/008/save_picture_369867.jpg" />
 </div>
 
 
@@ -492,7 +603,7 @@ Yate 6.0.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369865.jpg" />
+  <img src="Z:/picture/008/save_picture_369865.jpg" />
 </div>
 
 
@@ -521,7 +632,7 @@ Typinator 8 v8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369857.jpg" />
+  <img src="Z:/picture/008/save_picture_369857.jpg" />
 </div>
 
 
@@ -550,7 +661,7 @@ MacX Video Converter Pro 6.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369850.jpg" />
+  <img src="Z:/picture/008/save_picture_369850.jpg" />
 </div>
 
 
@@ -577,7 +688,7 @@ Cardhop 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369841.jpg" />
+  <img src="Z:/picture/008/save_picture_369841.jpg" />
 </div>
 
 
@@ -590,118 +701,6 @@ Cardhop 1.0.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA24FDF433AF54F35D42CAB777018BD3CE4D83D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176630   (369835) от 22.10.2017
-
-Fenetre 0.4.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Держите окно открытым, всегда поверх всего остального.
-Картинка в картинке теперь доступно на вашем Mac.
-Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17 октября 2017Разработчик: Yoann MoinetПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06B8FC01D8AAD97CD647590403713570C9679E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254721   (369796) от 15.10.2018
-
-Dropshare 5.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369796.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2018Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1EFF5DBCFC376ECEEEE94CA06338DC10E276704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950461   (369742) от 26.10.2015
-
-Hands Off! 3.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hands Off! - контроль доступа в Интернет
-Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2015Разработчик: One Periodic Inc.Поддерживаемая ОС: Mac OS X 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D546C667BDD1C43D0666356CC8B31C496E29C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176542   (369646) от 22.10.2017
-
-Navicat Premium 12.0.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.
-
-Navicat Premium совмещает в себе функции других приложений Navicat. При наличии соединений, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2017Разработчик: PremiumSoftПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB361382957F7E4C9B87E9066D4940D195A0C488
 ```
 
 https://mybot314.ru/tekegram_catalog/

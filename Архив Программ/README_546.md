@@ -6,7 +6,7 @@ Process Lasso Pro 9.0.0.440 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774291.jpg" />
+  <img src="Z:/picture/008/save_picture_774291.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 65.0.3325.162 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774284.jpg" />
+  <img src="Z:/picture/008/save_picture_774284.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FolderSizes 8.2.137 Enterprise Edition [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774279.jpg" />
+  <img src="Z:/picture/008/save_picture_774279.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Registry Cleaner 9.17.591 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774264.jpg" />
+  <img src="Z:/picture/008/save_picture_774264.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CocCoc 77.0.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774237.jpg" />
+  <img src="Z:/picture/008/save_picture_774237.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MKVToolNix 30.1.0 Portable by Joo Seng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774232.jpg" />
+  <img src="Z:/picture/008/save_picture_774232.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Aiseesoft Screen Recorder 2.1.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774223.jpg" />
+  <img src="Z:/picture/008/save_picture_774223.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ XnViewMP 0.90 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774211.jpg" />
+  <img src="Z:/picture/008/save_picture_774211.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ K-Lite Codec Pack Update 12.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774193.jpg" />
+  <img src="Z:/picture/008/save_picture_774193.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ DesktopOK 4.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774189.jpg" />
+  <img src="Z:/picture/008/save_picture_774189.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ FolderSizes 8.2.137 Enterprise RePack by Kopejkin [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774182.jpg" />
+  <img src="Z:/picture/008/save_picture_774182.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ R-Studio 8.0 Build 164541 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774179.jpg" />
+  <img src="Z:/picture/008/save_picture_774179.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mozilla Firefox 46.0.1 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774176.jpg" />
+  <img src="Z:/picture/008/save_picture_774176.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Telegram Desktop 1.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774157.jpg" />
+  <img src="Z:/picture/008/save_picture_774157.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774147.jpg" />
+  <img src="Z:/picture/008/save_picture_774147.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ System Ninja 3.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774143.jpg" />
+  <img src="Z:/picture/008/save_picture_774143.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774142.jpg" />
+  <img src="Z:/picture/008/save_picture_774142.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Opera 58.0.3135.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774140.jpg" />
+  <img src="Z:/picture/008/save_picture_774140.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ CleanMyPC 1.9.0.1280 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774136.jpg" />
+  <img src="Z:/picture/008/save_picture_774136.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Magic Uneraser 4.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774132.jpg" />
+  <img src="Z:/picture/008/save_picture_774132.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Reg Organizer 8.05 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774120.jpg" />
+  <img src="Z:/picture/008/save_picture_774120.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ SoftMaker Office Professional 2018 rev 928.0313 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774118.jpg" />
+  <img src="Z:/picture/008/save_picture_774118.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Internet Download Manager 6.25 Build 17 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774114.jpg" />
+  <img src="Z:/picture/008/save_picture_774114.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Anvir Task Manager 8.0.5 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774109.jpg" />
+  <img src="Z:/picture/008/save_picture_774109.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Anvir Task Manager 8.1.0 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774107.jpg" />
+  <img src="Z:/picture/008/save_picture_774107.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Opera 58.0.3135.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774096.jpg" />
+  <img src="Z:/picture/008/save_picture_774096.jpg" />
 </div>
 
 

@@ -1,3 +1,91 @@
+###  Публикация: 204088   (562836) от 07.06.2022
+
+Bon Jovi: Live at Madison Square Garden (2008) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный релиз от Bon Jovi, снятый 23 камерами высокого разрешения. Это возвращение в Madison Square Garden, самое знаковое место в Нью-Йорке, где группа выступала 19 лет назад. Концерт прошел в рамках исторического Lost Highway Tour, официально крупнейшего тура на планете в 2008 году.
+Bon Jovi — легендарная американская рок-группа из Нью Джерси, одни из основателей (   Читать дальше...   )01. Lost Highway
+02. Born To Be My Baby
+03. Blaze Of Glory
+04. It's My Life(   Читать дальше...   )Жанр: Музыка, Rock, Pop Rock, Soft Rock, Glam Rock, Pop RockРежиссер: Mercury Records Ltd (London)Актеры: Джон Бон Джови, Ричи Самбора, Дэвид Брайен, Тико Торрес, Хью МакДональдПродолжительность: 02:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C51355E7C5294CEA1AFEE60660FC90D52BB315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923585   (562616) от 01.08.2015
+
+Lynyrd Skynyrd - One More For The Fans (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Lynyrd Skynyrd в Fox Theatre города Атланты (США) 12 ноября 2014 года.01. Whiskey Rock A Roller – performed by Randy Houser
+02. You Got That Right – performed by Robert Randolph & Jimmy Hall
+03. Saturday Night Special – performed by Aaron Lewis
+04. Working For MCA – performed by Blackberry Smoke(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 01:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365FBDF516C818DCEB385C01305A0C6D42957A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235022   (561921) от 10.07.2018
+
+Rammstein - In Amerika (2015) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561921.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAMMSTEIN выпустили концерт «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке.Соединив зажигательное выступление немецких индастриал-металлистов с продуманной визуальной концепцией, полуторачасовое шоу записывалось на 14 камер.01. Rammlied
+02. B*********
+03. Waidmanns Heil
+04. Keine Lust(   Читать дальше...   )Жанр: Industrial MetalАктеры: RammsteinПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6EFAABF27B4515D219DC6259BE176C8D6E1538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 691073   (561731) от 19.08.2013
 
 Aerosmith - Rock For The Rising Sun (2011/2013) [1080i] Blu-Ray
@@ -6,7 +94,7 @@ Aerosmith - Rock For The Rising Sun (2011/2013) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561731.jpg" />
+  <img src="Z:/picture/008/save_picture_561731.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ Dragonforce - In The Line Of Fire ... Larger Than Live (2015) BDRip [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560803.jpg" />
+  <img src="Z:/picture/008/save_picture_560803.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ Cliff Richard - Still Reelin' and A-Rockin' (Live at Sydney Opera House) (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560600.jpg" />
+  <img src="Z:/picture/008/save_picture_560600.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558963.jpg" />
+  <img src="Z:/picture/008/save_picture_558963.jpg" />
 </div>
 
 
@@ -122,7 +210,7 @@ Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557402.jpg" />
+  <img src="Z:/picture/008/save_picture_557402.jpg" />
 </div>
 
 
@@ -151,7 +239,7 @@ The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556798.jpg" />
+  <img src="Z:/picture/008/save_picture_556798.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556270.jpg" />
+  <img src="Z:/picture/008/save_picture_556270.jpg" />
 </div>
 
 
@@ -206,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555916.jpg" />
+  <img src="Z:/picture/008/save_picture_555916.jpg" />
 </div>
 
 
@@ -232,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555802.jpg" />
+  <img src="Z:/picture/008/save_picture_555802.jpg" />
 </div>
 
 
@@ -259,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555800.jpg" />
+  <img src="Z:/picture/008/save_picture_555800.jpg" />
 </div>
 
 
@@ -285,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555798.jpg" />
+  <img src="Z:/picture/008/save_picture_555798.jpg" />
 </div>
 
 
@@ -312,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555795.jpg" />
+  <img src="Z:/picture/008/save_picture_555795.jpg" />
 </div>
 
 
@@ -338,7 +426,7 @@ Queen - We Are The Champions: Final Live In Japan (1985/2019) Blu-ray [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554554.jpg" />
+  <img src="Z:/picture/008/save_picture_554554.jpg" />
 </div>
 
 
@@ -367,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554427.jpg" />
+  <img src="Z:/picture/008/save_picture_554427.jpg" />
 </div>
 
 
@@ -393,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553209.jpg" />
+  <img src="Z:/picture/008/save_picture_553209.jpg" />
 </div>
 
 
@@ -419,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553198.jpg" />
+  <img src="Z:/picture/008/save_picture_553198.jpg" />
 </div>
 
 
@@ -445,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552618.jpg" />
+  <img src="Z:/picture/008/save_picture_552618.jpg" />
 </div>
 
 
@@ -471,7 +559,7 @@ Hatebreed - Live Dominance (2008) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551377.jpg" />
+  <img src="Z:/picture/008/save_picture_551377.jpg" />
 </div>
 
 
@@ -500,7 +588,7 @@ Just Play - Концерт в клубе "Вермель" (2017) WEBRip [H.264/1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549262.jpg" />
+  <img src="Z:/picture/008/save_picture_549262.jpg" />
 </div>
 
 
@@ -529,7 +617,7 @@ Santana & McLaughlin: Live at Montreux - Invitation to Illumination 2011 (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548168.jpg" />
+  <img src="Z:/picture/008/save_picture_548168.jpg" />
 </div>
 
 
@@ -558,7 +646,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547305.jpg" />
+  <img src="Z:/picture/008/save_picture_547305.jpg" />
 </div>
 
 
@@ -587,7 +675,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547303.jpg" />
+  <img src="Z:/picture/008/save_picture_547303.jpg" />
 </div>
 
 
@@ -616,7 +704,7 @@ Kiss. Rocks Vegas 2014 (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545551.jpg" />
+  <img src="Z:/picture/008/save_picture_545551.jpg" />
 </div>
 
 
@@ -631,87 +719,6 @@ Kiss. Rocks Vegas 2014 (2016) HDTV [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E786CA7ACFB77C1DA50CBC08409729DB954504E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048917   (545464) от 03.09.2016
-
-Kiss - Rocks Vegas (2016) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oчередной подарок от Eagles Rock: Kiss качают Вегас! Запись сделана в том же самом зале The Joint в Hard Rock отеле в Лас-Вегасе, Невада. Антураж был сделан в классическом стиле середины 70-х, начиная с костюмов и кончая сценическими штучками. Было всё - извергание огня, вознесение под крышу, полёты на невидимых верёвочках, стрельба фейерверками посредством гитарного (   Читать дальше...   )01. Detroit Rock City
-02. Creatures Of The Night
-03. Psycho Circus
-04. Parasite(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:28:12 + 00:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AFD1500CF1D41945F63748B1ED870CFA36DA7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310772   (545136) от 26.06.2019
-
-Сплин - Unplugged. Усадьба Jazz (22.06.2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545136.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году группе СПЛИН исполняется 25 лет. За прошедшую четверть века они обрели всенародную популярность: некоторые их песни стали саундтреком к жизни уже нескольких поколений и вошли в каноны русской рок-музыки, а сама группа успела неоднократно выступить на самых значимых фестивальных площадках страны. Группа серьезно подошла к подготовке и сделала специальную (   Читать дальше...   )Производство: РоссияЖанр: Альтернативный рок, арт-рок, фолк-рок, инди-рок, поп-рокСубтитры: ОтсутствуютПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BEB83765C5C8ED7A484D5B148272CD64E54DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311259   (543325) от 28.06.2019
-
-Жара в Дубае (2019) WEBRip [H.264/1080p-LQ] (части 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозный фестиваль ЖАРА расширяет границы! Тысячи зрителей, десятки популярных артистов и несколько часов только хитов.Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:15:38 + 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C9282B948F026D78909DE44679B52880FE9D70
 ```
 
 https://mybot314.ru/tekegram_catalog/

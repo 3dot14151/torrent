@@ -1,3 +1,111 @@
+###  Публикация: 1377847   (843993) от 26.04.2020
+
+foxminded | Java Start (2020) PCRec [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_843993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы решили сделать свой собственный курс, в котором ограничиться только тем, что абсолютно необходимо. Сделать стартовую ступеньку для наших будущих студентов максимально простой и понятной.Жанр: Программирование, JavaПродолжительность: 04:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88AE5B5C258EB40F38C5D72C472B958C0452AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308530   (843769) от 14.03.2011
+
+BitDefender Internet Security 2011 14.0.23.312 х86 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_843769.jpg" />
+</div>
+
+
+###  Подробнее
+
+BitDefender Internet Security - решает все задачи по обеспечению безопасности при работе в интернете. Он обеспечивает защиту от вирусов, шпионов, спама, попыток фишинга, вторжений и вредоносного веб-контента.
+Антивирус. Гарантирует обнаружение и удаление всех вирусов, находящихся в обращении. Использует мощные сканирующие механизмы, сертифицированные ICSA, Virus Bulletin, Checkmark, CheckVir и TUV.
+Брандмауэр. Фильтрует сетевой трафик и контролирует время доступа пользователей в интернет и разрешения на запуск приложений. Режим Стелс позволяет «скрыть» ваш компьютер от вредоносного программного обеспечения и хакеров.
+Антишпион. Отслеживает и предупреждает потенциальную возможность проникновения шпионских объектов в режиме реального времени до того, как они нанесут вред вашей системе. Используя обширную базу известных сигнатур шпионских объектов, ваш компьютер останется защищенным от шпионов.
+Родительский контроль. Модуль Родительского контроля BitDefender блокирует доступ к веб-сайтам, которые вы расцениваете (   Читать дальше...)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846989   (843371) от 14.03.2015
+
+Звёздные войны: Повстанцы / Star Wars: Rebels (2014-2015) WEB-DLRip [1080p] (Сезон 1, серий 14 из 14) (LostFilm)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_843371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миновало 14 лет с того момента, как канцлер Палпатин отдал "Приказ 66", спровоцировавший Великое истребление джедаев. Кейнан Джаррус, один из последних адептов светлой стороны Силы, вынужден объединить усилия с молодым воришкой, опытным головорезом, экспертом по взрывчатке, ворчливым дроидом и пилотом космического корабля «Призрак» в борьбе против Империи. (   Читать дальше...   )Производство: США, Lucasfilm Ltd, DisneyXDЖанр: Фантастика, мультсериал, приключенияРежиссер: Стюарт Ли, Дэйв Филони, Стивен Дж. ЛиПерсонажи: Фредди Принц-младший (Кейнан Джаррус), Тейлор Грэй (Эзра Бриджер), Стивен Блум (Зеб Ореллиос), Тия Сиркар (Сабина Рен), Ванесса Маршалл (Гера Синдулла), Дэвид Ойелово (агент Каллус), Джейсон Айзекс (Инквизитор)Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: студия "LostFilm"Продолжительность: каждая ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB57EB8B71681A1BEA82E8F4DBD3DD58F91FFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003392   (843127) от 03.04.2016
+
+Марсоход Opportunity взял самый крутой подъем за всю историю исследований Марса
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_843127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианский ветеран, небезызвестный марсоход Opportunity, двигаясь к цели очередных научных исследований, совершил подъем на самый крутой склон, который когда-либо был "взят" любым марсианским исследовательским аппаратом за всю историю. К сожалению, марсоходу так и не удалось добраться до намеченной цели и сейчас этот аппарат уже направляется к следующей (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002484   (842724) от 03.04.2016
 
 «Роскомсвобода» дойдёт до Верховного суда, если ей запретят говорить о VPN, Tor и прокси
@@ -6,7 +114,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_842724.jpg" />
+  <img src="Z:/picture/005/save_picture_842724.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_842542.jpg" />
+  <img src="Z:/picture/005/save_picture_842542.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Battlefield: Bad Company 2 (2010) [Ru] (1.0.1/dlc/multiplayer) Repack LEON
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842488.jpg" />
+  <img src="Z:/picture/008/save_picture_842488.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842427.jpg" />
+  <img src="Z:/picture/008/save_picture_842427.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ Edens Zero | Нулевой Эдем [2021, TV, 25 эп.] HDTVRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842204.jpg" />
+  <img src="Z:/picture/008/save_picture_842204.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842032.jpg" />
+  <img src="Z:/picture/008/save_picture_842032.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841802.jpg" />
+  <img src="Z:/picture/008/save_picture_841802.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841801.jpg" />
+  <img src="Z:/picture/008/save_picture_841801.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Maxthon 2.5.12.4586 [Русский] (Updated 18.04.2010) (TechnicsKuzya mod)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841404.jpg" />
+  <img src="Z:/picture/008/save_picture_841404.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ Hai to Gensou no Grimgar / Grimgar of Fantasy and Ash / Гримгар фант�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840934.jpg" />
+  <img src="Z:/picture/008/save_picture_840934.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ The Walking Dead: Michonne - Episode 1-2 (2016) [Ru/Multi] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840933.jpg" />
+  <img src="Z:/picture/008/save_picture_840933.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840909.jpg" />
+  <img src="Z:/picture/008/save_picture_840909.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840908.jpg" />
+  <img src="Z:/picture/008/save_picture_840908.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840844.jpg" />
+  <img src="Z:/picture/008/save_picture_840844.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_840823.jpg" />
+  <img src="Z:/picture/005/save_picture_840823.jpg" />
 </div>
 
 
@@ -399,7 +507,7 @@ Total Commander 10.00 LitePack & PowerPack & ExtremePack + Portable 2021.10 by S
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840816.jpg" />
+  <img src="Z:/picture/008/save_picture_840816.jpg" />
 </div>
 
 
@@ -425,7 +533,7 @@ Alan Wake Remastered (2021) [Ru/En] (Build 33793/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840808.jpg" />
+  <img src="Z:/picture/008/save_picture_840808.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840771.jpg" />
+  <img src="Z:/picture/008/save_picture_840771.jpg" />
 </div>
 
 
@@ -477,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840768.jpg" />
+  <img src="Z:/picture/008/save_picture_840768.jpg" />
 </div>
 
 
@@ -503,7 +611,7 @@ Windows XP SP3 Standard Edition 03.2011 CD [Только русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840509.jpg" />
+  <img src="Z:/picture/008/save_picture_840509.jpg" />
 </div>
 
 
@@ -529,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840497.jpg" />
+  <img src="Z:/picture/008/save_picture_840497.jpg" />
 </div>
 
 
@@ -555,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840495.jpg" />
+  <img src="Z:/picture/008/save_picture_840495.jpg" />
 </div>
 
 
@@ -563,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 
 События игры происходят на фестивале MotorStorm в Долине монументов. Цель игры состоит в том, чтобы выиграть серию внедорожных гонок и стать победителем на фестивале. Игрокам предоставляется возможность управлять семью различными типами транспортных средств: раллийные автомобили, грузовики, мотоциклы, квадроциклы, трагги, багги. В некоторых гонках можно выбрать любой класс, а в других есть классовые ограничения.
 Гоночный фестиваль MotorStorm ураганом пронесся по Долине Монументов, тихоокеанскому острову и арктическим просторам.Тип издания: ЛицензияЖанр: RacingЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309715   (840491) от 16.03.2011
-
-ABBYY FineReader 8.0  Professional Edition (Portable) [русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840491.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY FineReader 8.0 Professional Edition - профессиональная версия от мирового лидера в области систем распознавания. С её помощью можно быстро и точно переводить бумажные документы, PDF-файлы и цифровые фотографии документов в редактируемые форматы с возможностью поиска по тексту. Программа сохраняет внешний вид даже сложно оформленных документов, даёт возможность контролировать процесс распознавания. ABBYY FineReader 8.0 Professional Edition незаменим для тех, кто часто распознаёт документы. ABBYY FineReader 8.0 Professional Edition незаменим для тех, кто часто распознает документы. Эта версия будет полезна как дома, так и в офисе небольшой компании.
-Данная версия не требует установки и может работать с флешки.Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878838   (840260) от 16.03.2015
-
-Grim Dawn (2013) [En] (0.3.3.3b24) Unofficial 3DM [Early Access]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grim Dawn - мрачный рассвет нового века, где железо заменило золото в качестве валюты и обыкновенная соль приобрела такую цену, что ее перестали использовать в еде. Небольшие разрозненные анклавы оставшихся в живых существуют по всему миру, скрываясь в убежищах. Наблюдая, как враждующие захватчики грызут друг другу глотки, люди начали изучать слабые и сильные стороны (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Crate EntertainmentЖанр: Action/RPG (Hack and slash)Язык озвучки: Отсутствует, музыкальное сопровождениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7DEE24575AF9D2B8D4F0FE206ECBBD7EC48217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112958   (839537) от 10.03.2017
-
-Исследователи компании IBM создали первый образец "атомарного" жесткого диска
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_839537.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недрах телефона, лежащего в заднем кармане ваших брюк, заключено в миллионы раз больше информации, нежели могло вместиться в устройство хранения, размером с холодильник, более десятилетия-двух назад. За прошедшее время технологии хранения данных и устройства на их основе постепенно уменьшались в размерах, увеличивая одновременно с этим информационную емкость. И (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500839   (839479) от 07.10.2021
-
-Нобелевская премия по физике: за моделирование климата и хаотических систем. Главные научные новости сегодняшнего дня
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_839479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нобелевская премия по физике присуждена Сюукуро Манаде (США) и Клаусу Хассельману (Германия) «за физическое моделирование климата Земли, количественную оценку изменчивости и надежное предсказание глобального потепления» и Джорджо Париси (Италия) «за исследование взаимодействия беспорядка и флуктуаций в физических системах — от атомарного до планетарного масштаба». (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

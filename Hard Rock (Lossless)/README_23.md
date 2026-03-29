@@ -1,3 +1,61 @@
+###  Публикация: 1503259   (819492) от 19.10.2021
+
+The Wildhearts - 21st Century Love Songs (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21st Century Love Songs
+02. Remember These Days
+03. Splitter
+04. Institutional Submission(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8F480A3FBE874B38B3640C1A9C71F03A62D08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196904   (819063) от 05.01.2018
+
+Hard Action - Hot Wired Beat (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Fall
+02. Nothing Ever Changed
+03. Hostile Street
+04. The Losing Side(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B5EF3440F64519053305C2714D2AE9852BE6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007966   (818009) от 17.04.2016
 
 Trancemission - Paranoia (2015) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
@@ -6,7 +64,7 @@ Trancemission - Paranoia (2015) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818009.jpg" />
+  <img src="Z:/picture/008/save_picture_818009.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Agent Cooper - Beginner's Mind (2005) [FLAC|Lossless|image + .cue] <Hard Rock,  
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817724.jpg" />
+  <img src="Z:/picture/008/save_picture_817724.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Derwood - Renegade (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815490.jpg" />
+  <img src="Z:/picture/008/save_picture_815490.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Sweet Mary Jane - Winter In Paradise (2017) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815477.jpg" />
+  <img src="Z:/picture/008/save_picture_815477.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Wayward Sons - Even Up The Score (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814199.jpg" />
+  <img src="Z:/picture/008/save_picture_814199.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Osukaru - Starbound (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812367.jpg" />
+  <img src="Z:/picture/008/save_picture_812367.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Alcatrazz - V (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812306.jpg" />
+  <img src="Z:/picture/008/save_picture_812306.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Jeff Scott Soto - The Duets Collection, Vol. 1 (2021) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812286.jpg" />
+  <img src="Z:/picture/008/save_picture_812286.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ DeWolff - Roux-Ga-Roux (2016) [FLAC|Lossless|image + .cue] <Psychedelic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812058.jpg" />
+  <img src="Z:/picture/008/save_picture_812058.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Imperium - Dreamhunter (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811928.jpg" />
+  <img src="Z:/picture/008/save_picture_811928.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Night Ranger  - Don't Let Up (2017) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809159.jpg" />
+  <img src="Z:/picture/008/save_picture_809159.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Geordie - Greatest Hits (2012) 2CD [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807789.jpg" />
+  <img src="Z:/picture/008/save_picture_807789.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ ZZ Top - 9 альбомов (1970-2003) [FLAC|Lossless]<Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807669.jpg" />
+  <img src="Z:/picture/008/save_picture_807669.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ Winter Rose - Winter Rose (1989) Japanese Edition, Reissue, 1997, Victor [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806512.jpg" />
+  <img src="Z:/picture/008/save_picture_806512.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ Rainbow - The Singles Box Set 1975-1986 (2014) 19CD, Compilation, Limited Editio
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805558.jpg" />
+  <img src="Z:/picture/008/save_picture_805558.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Say Never - Lies! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804555.jpg" />
+  <img src="Z:/picture/008/save_picture_804555.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ Ottoman - Heretic (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804465.jpg" />
+  <img src="Z:/picture/008/save_picture_804465.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ John Diva & The Rockets Of Love - American Amadeus (2021) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804460.jpg" />
+  <img src="Z:/picture/008/save_picture_804460.jpg" />
 </div>
 
 
@@ -533,7 +591,7 @@ Franklin Zoo - Red Skies (2016) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804364.jpg" />
+  <img src="Z:/picture/008/save_picture_804364.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Asoka - 3 albums (1971-2009) [FLAC|Lossless|tracks + .cue] <Prog Rock, Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802952.jpg" />
+  <img src="Z:/picture/008/save_picture_802952.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Marshall - Old Rockers Never Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802942.jpg" />
+  <img src="Z:/picture/008/save_picture_802942.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Sweet - The Lost Singles (2017) [FLAC|Lossless|image + .cue] <Rock, Glam-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802716.jpg" />
+  <img src="Z:/picture/008/save_picture_802716.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Hardline - Heart, Mind And Soul (2021) Japanese Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801741.jpg" />
+  <img src="Z:/picture/008/save_picture_801741.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ King Company - Trapped (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801736.jpg" />
+  <img src="Z:/picture/008/save_picture_801736.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ King Company - Trapped (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E4B272FB7FB0EE24BEF854B284F206F67252796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502838   (799881) от 31.10.2021
-
-Creedence Clearwater Revival - 39 albums, 1 Box sets, 95CD (1968-2021) [FLAC|Lossless|image + .cue | tracks + .cue ] <Classic Rock, Country>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creedence Clearwater Revival (CCR) — американская рок-группа, образовавшаяся в 1967 году и за пять лет существования добившаяся всемирного успеха и признания критиками. CCR, возникшие в Сан-Франциско, с самого начала находились под влиянием свомп-блюза. В ранних песнях («Born On The Bayou» и др.) CCR создали своего рода легенду «простых парней со старого доброго (   Читать дальше...   )--------------------------
-
-01. Born On The Bayou (5:33)
-02. Green River (3:16)(   Читать дальше...   )Жанр: Roots Rock, Swamp Rock, Southern Rock, Classic Rock, Country |Продолжительность: 80:02:49 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB3DF420E7EEAD45F5AADD778671C8D93E6A900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506809   (799560) от 01.11.2021
-
-The Feckers - Courage of Conviction, Pt. I: Picking up the Pieces (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinners & Saints (05:53)
-02. Moments in Time (08:07)
-03. No Hard Feelings (05:52)
-04. Fall into Line (04:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8EDB112902A56E911B1118AA6CC027F58FF91E
 ```
 
 https://mybot314.ru/tekegram_catalog/

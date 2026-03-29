@@ -1,3 +1,177 @@
+###  Публикация: 1051675   (530998) от 12.09.2016
+
+VA - Now Thats What I Call Drivetime (Pre-Release) (2016) [MP3|128-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mark Ronson feat. Bruno Mars - Uptown Funk
+02.  Fleur East - Sax
+03. Clean Bandit feat Jess Glynne- Rather Be
+04. Mike Posner-In Ibiza (Seeb Remi)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF3170F4984850BA97D837638A7BC4B971E2AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051767   (530578) от 12.09.2016
+
+VA - Музыкальные Новинки Интернета Осенний Выпуск (2016) [MP3|177~320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Smash  -  Feel The Summer  1:09
+002. Полина Смолова  -  Тонкой Ниточкой  2:47
+003. DJ Polique feat. Mohombi  -  Turn me on  3:04
+004. Fun Factory  -  Turn It Up  2:52(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 16:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A98605D96D1851FF14EB62E3E896B56DD634A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052344   (529069) от 13.09.2016
+
+VA - Только хиты Хит FM 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529069.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scooter Feat. Maidwell  -  Stargazer  3:34
+002. Aisha  -  Новое Поколение  3:49
+003. Макsим  -  Хорошо  3:34
+004. Ellie Goulding  -  Don't Need Nobody  3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F322EC4393C0BBB2286C60D4E0E4926314F82E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156173   (528486) от 06.08.2017
+
+VA - German Top 100 Single Charts 04.08.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito (feat. Daddy Yankee)
+002. Axwell Λ Ingrosso – More Than You Know
+003. Imagine Dragons – Thunder
+004. Robin Schulz – OK (feat. James Blunt)(   Читать дальше...   )Жанр: PopПродолжительность: 05:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAC8798A34F44244813FC964790768B632517F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313082   (528240) от 07.07.2019
+
+VA - German Top 100 Single Charts 12.07.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528240.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Capital Bra x Samra - Tilidin (2:52)
+2.Shawn Mendes & Camila Cabello - Señorita (3:11)
+3.Shirin David, Maître Gims - ON OFF (3:11)
+4.UFO361, Data Luv - Shot (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34447D23381FE505F89DF28A7607B08E38A3120E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 228706   (527887) от 07.07.2019
+
+VA - Хит Парад 90-х (2008) [MP3|320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Комиссар - Ты скажешь да
+02. Женя Белоусов - Девочка моя синеглазая
+03. Кар-Мэн - В Багдаде все спокойно
+04. Комбинация - Russian Girls(   Читать дальше...   )Жанр: PopПродолжительность: 06:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31024BFCE3D4BDC5061FEDC4E182370450FF55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053053   (526479) от 16.09.2016
 
 VA - Хиты 90-х. Зарубежные (2016) [MP3|128-320 Kbps] <Pop, Dance, Disco>
@@ -6,7 +180,7 @@ VA - Хиты 90-х. Зарубежные (2016) [MP3|128-320 Kbps] <Pop, Dance,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526479.jpg" />
+  <img src="Z:/picture/008/save_picture_526479.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - 44 Hits Summer (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526006.jpg" />
+  <img src="Z:/picture/008/save_picture_526006.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - German Top 100 Single Charts 10.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524538.jpg" />
+  <img src="Z:/picture/008/save_picture_524538.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Hedkandi Summer (2019) [MP3|320 Kbps] <Dance, Pop, Electro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524455.jpg" />
+  <img src="Z:/picture/008/save_picture_524455.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Acoustic Hour - We Are Independent Vol.2 (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524375.jpg" />
+  <img src="Z:/picture/008/save_picture_524375.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Новички в попсе Vol 13 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524148.jpg" />
+  <img src="Z:/picture/008/save_picture_524148.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Summer Euro Fest (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523711.jpg" />
+  <img src="Z:/picture/008/save_picture_523711.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ Garou - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523424.jpg" />
+  <img src="Z:/picture/008/save_picture_523424.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ Mark Ashley - Сборник песен (2015) [MP3|320 кб/с]<Synth Pop, Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522529.jpg" />
+  <img src="Z:/picture/008/save_picture_522529.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - Популярный музыкайф новинок (2015) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522520.jpg" />
+  <img src="Z:/picture/008/save_picture_522520.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - Summer Trip (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522088.jpg" />
+  <img src="Z:/picture/008/save_picture_522088.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ Alpine - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative Dance, Indie Syn
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521781.jpg" />
+  <img src="Z:/picture/008/save_picture_521781.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521699.jpg" />
+  <img src="Z:/picture/008/save_picture_521699.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - Ukrainian Hits - 33 Tracks (Volume 12) (EN) (2019) [MP3|320 Kbps] <Pop, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521212.jpg" />
+  <img src="Z:/picture/008/save_picture_521212.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Ukrainian Hits - 33 Tracks (Volume 13) (RU) (2019) [MP3|320 Kbps] <Pop, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521208.jpg" />
+  <img src="Z:/picture/008/save_picture_521208.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - Ukrainian Hits - 33 Tracks (Volume 14) (RU) (2019) [MP3|320 Kbps] <Pop, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521105.jpg" />
+  <img src="Z:/picture/008/save_picture_521105.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - Top 100 Зайцев.Нет Июль 2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521055.jpg" />
+  <img src="Z:/picture/008/save_picture_521055.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Попсовая соточка MTV 50/50 (2015) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520549.jpg" />
+  <img src="Z:/picture/008/save_picture_520549.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ VA - Italo Boot Mix vol. 1-16 (1983-1991)  [MP3 | 256 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520470.jpg" />
+  <img src="Z:/picture/008/save_picture_520470.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - German Top 100 Single Charts 19.07.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519377.jpg" />
+  <img src="Z:/picture/008/save_picture_519377.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ VA - German Top 100 Single Charts 19.07.2019 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D1785181F5D5727307D48EFCA3CA27C4856AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929229   (519356) от 19.08.2015
-
-VA - Самые сочные русские хиты (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Копей Лана - Лето
-002. A - Dessa - Раненая птица
-003. Голубев Олег - Это ты
-004. SERPO - В горе и в радости (serpo prod.)(   Читать дальше...   )Жанр: PopПродолжительность: 05:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14ED08FF0B09349965C45BE35368183E18AD6A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929835   (517310) от 21.08.2015
-
-VA - Самые горячие летние хиты (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Светлана Лобода - Не Нужна
-02. Алина Гросу - Твоей Навеки
-03. Анастасия Приходько - Зацелована
-04. Олег Винник - Русалка(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF5BD231D8FFCC0E191F313E4FC3F7D5765D781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561114   (516589) от 03.07.2022
-
-Tanita Tikaram - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twist In My Sobriety
-02. Make The Day
-03. Something New
-04. This Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA78F17E3DA49D6F0A17D6FCCD46E004AEA13DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930193   (516303) от 22.08.2015
-
-VA - Летние super новинки. Часть 5. 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516303.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rufus - You Were Right (03:58)
-002. Ярослав Ромашов - Отдыхай (02:57)
-003. Hoodie Allen - Overtime (03:23)
-004. Nuteki - Дни Километры (03:51)(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD18617DAE6BF47D8FA331D25D6E54E06A2C04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930224   (516296) от 22.08.2015
-
-VA - Летние super новинки. Часть 4. 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516296.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Los Locos & El 3mendo - Carnaval (03:20)
-002. Север - Давай Живи (03:30)
-003. Jessica Mauboy - Can I Get A Moment (03:25)
-004. A-Sen Feat. Dj Nejtrino & Dj Baur - Я Рисую (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9010544002D4BA9C198B797E776D08FC8F1ABA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930165   (516265) от 22.08.2015
-
-VA - Летние super новинки. Часть 6. 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. София Тарасова - Восьмое Чудо (03:01)
-002. Kick The Habit - Buttons (04:05)
-003. Bahh Tee - Неужели Ты Моя (03:18)
-004. T-Pain - Coming Home (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826180F2CAD4E16950BF450A6352B37FEB76A62B
 ```
 
 https://mybot314.ru/tekegram_catalog/

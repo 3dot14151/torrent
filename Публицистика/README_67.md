@@ -1,3 +1,84 @@
+###  Публикация: 1185054   (297038) от 19.11.2017
+
+Джошуа Купер Рамо | Седьмое чувство. Под знаком предсказуемости: как прогнозировать и управлять изменениями в цифровую эпоху (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые теория, рассматривающая труднопрогнозируемые редкие события и их влияние на окружающую действительность, была описана Нассимом Талебом в книге "Чёрный лебедь. Под знаком непредсказуемости" еще в 2007 году.
+Спустя 10 лет эта тема по-прежнему актуальна. Мир охвачен террористической угрозой, волны беженцев наводняют Европу, нестабильная экономическая (   Читать дальше...   )Жанр: Социология. Обществознание, ЭкономикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E65016D766295A92F0154FE9D6176F1600F03FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962235   (295062) от 04.12.2015
+
+Игорь Осовин | Шестое вымирание. XXI век катастроф (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295062.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последние 30 лет количество природных катастроф выросло на 430%. Наша планета все больше похожа на перегретый котел, готовый вот-вот взорваться, или на аварийный реактор с отказавшей защитой.
+Можно ли остановить эту цепную реакцию катаклизмов – или жизнь на Земле обречена на очередное Великое вымирание? Когда взорвется Йеллоустоунский супервулкан и чем это грозит (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10072AB797FDA73F392D67190CA500294450448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185146   (295021) от 20.11.2017
+
+Леонид Млечин | 26 главных разведчиков России (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295021.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны портреты 26 руководителей советской и российской политической разведки, начиная с первого начальника иностранного отдела ВЧК и заканчивая нынешним директором СВР.
+Среди них есть такие известные персонажи, как Артур Артузов, Павел Судоплатов, Владимир Крючков, Леонид Шебаршин и Евгений Примаков, так и те, чьи достижения и провалы ведомы только профессионалам. (   Читать дальше...   )Жанр: Cпецслужбы, Биографии и Мемуары, ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F5578F975BF45011353BB991ECA842447ECC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185151   (294899) от 20.11.2017
 
 Дмитрий Соколов | Мистика и философия спецслужб: спецоперации в непознанном (2017) [FB2, EPUB]
@@ -6,7 +87,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294899.jpg" />
+  <img src="Z:/picture/008/save_picture_294899.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294889.jpg" />
+  <img src="Z:/picture/008/save_picture_294889.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294814.jpg" />
+  <img src="Z:/picture/008/save_picture_294814.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294013.jpg" />
+  <img src="Z:/picture/008/save_picture_294013.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294001.jpg" />
+  <img src="Z:/picture/008/save_picture_294001.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293502.jpg" />
+  <img src="Z:/picture/008/save_picture_293502.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293494.jpg" />
+  <img src="Z:/picture/008/save_picture_293494.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293357.jpg" />
+  <img src="Z:/picture/008/save_picture_293357.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293337.jpg" />
+  <img src="Z:/picture/008/save_picture_293337.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291380.jpg" />
+  <img src="Z:/picture/008/save_picture_291380.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291160.jpg" />
+  <img src="Z:/picture/008/save_picture_291160.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290237.jpg" />
+  <img src="Z:/picture/008/save_picture_290237.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290021.jpg" />
+  <img src="Z:/picture/008/save_picture_290021.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289926.jpg" />
+  <img src="Z:/picture/008/save_picture_289926.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289743.jpg" />
+  <img src="Z:/picture/008/save_picture_289743.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289487.jpg" />
+  <img src="Z:/picture/008/save_picture_289487.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289058.jpg" />
+  <img src="Z:/picture/008/save_picture_289058.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288275.jpg" />
+  <img src="Z:/picture/008/save_picture_288275.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288256.jpg" />
+  <img src="Z:/picture/008/save_picture_288256.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288242.jpg" />
+  <img src="Z:/picture/008/save_picture_288242.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287587.jpg" />
+  <img src="Z:/picture/008/save_picture_287587.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286448.jpg" />
+  <img src="Z:/picture/008/save_picture_286448.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286342.jpg" />
+  <img src="Z:/picture/008/save_picture_286342.jpg" />
 </div>
 
 
@@ -603,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B7A4AA8589661B03B008E1D19AE88D9F7D42D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335560   (286338) от 03.11.2019
-
-Б. Тихомиров | Рабочий класс под игом белогвардейщины 1918-1920 гг. (1928) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этой брошюры заключается в том, чтобы просто и понятно рассказать историю "рабочего" законодательства белогвардейских правительств.
-
-Автор старался в самой сжатой форме дать рабочему читателю и о классовой сущности отдельных белогвардейских правительств, так как ею определялась характеристика "рабочего" законодательства. В основу работы легла (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B887A1CD89595E5A220626818CDA4F1B33437B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335562   (286186) от 03.11.2019
-
-И. Сверчков (ред.) | Русские революционеры [2 части] (1927) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрестоматия «Русские революционеры» в первых двух частях содержит 18 биографий наиболее ярких представителей русского революционного движения XIX века.Жанр: История, политология, публицистика, биография, социологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CD9706F843B56A9590D928D92AED16611824C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335516   (286182) от 03.11.2019
-
-Юрий  Супруненко | Проклятые места: реки и болота, руины и подземелья, горы и пещеры (2007) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит много интересных историй о таинственных происшествиях, загадках и тайнах, которые хранят пещеры, озера и горные вершины.
-В первой главе книги рассказывается об исследовательских экспедициях, ищущих потаенные ходы в потусторонние миры, о старинных шаманских обрядах, о мистических свойствах пещер, о том, с какой целью была создана тайная лаборатория (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1552E891FCC43748D7064C26E7231CD2DBB12F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1047742   (548923) от 30.08.2016
+
+Assault Suit Leynos (2016) [En/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика жанра, игра Assault Suit Leynos появилась в высоком разрешении! Приготовьтесь погрузиться в войну роботов и стереть чужаков в пух и прах, ведь любимая фанатами игра Sega Mega Drive выходит с новой потрясающей графикой в HD!Тип издания: RepackРазработчик: Dracue SoftwareЖанр: Action, 3D, 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1279159CED232C9E294DBA55B3CCD7D0811C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047866   (548032) от 31.08.2016
 
 Blamdown: Udder Fury (2016) [En] (1.0) License PLAZA
@@ -6,7 +32,7 @@ Blamdown: Udder Fury (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548032.jpg" />
+  <img src="Z:/picture/008/save_picture_548032.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ The Final Station (2016) [Ru/Multi] (1.2) Repack MasterDarkness
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547980.jpg" />
+  <img src="Z:/picture/008/save_picture_547980.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Super Bomberman R (2018) [Ru/Multi] (1.1) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547822.jpg" />
+  <img src="Z:/picture/008/save_picture_547822.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mega Man X Legacy Collection (2018) [Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547756.jpg" />
+  <img src="Z:/picture/008/save_picture_547756.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547062.jpg" />
+  <img src="Z:/picture/008/save_picture_547062.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Pan-Pan (2016) [Ru/Multi] (1.0.2) License GOG [Planetary Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547057.jpg" />
+  <img src="Z:/picture/008/save_picture_547057.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546175.jpg" />
+  <img src="Z:/picture/008/save_picture_546175.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ My Friend Pedro (2019) [Ru/Multi] Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545922.jpg" />
+  <img src="Z:/picture/008/save_picture_545922.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4/dlc) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545224.jpg" />
+  <img src="Z:/picture/008/save_picture_545224.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Brigador: Up-Armored Edition (2017) [Ru/Multi] (1.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545215.jpg" />
+  <img src="Z:/picture/008/save_picture_545215.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Prehistorik 2 (1993) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540323.jpg" />
+  <img src="Z:/picture/008/save_picture_540323.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Prehistorik (1991) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540318.jpg" />
+  <img src="Z:/picture/008/save_picture_540318.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06/dlc) Repack Other s [Gold Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539672.jpg" />
+  <img src="Z:/picture/008/save_picture_539672.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538201.jpg" />
+  <img src="Z:/picture/008/save_picture_538201.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ A Story About My Uncle (2014) [Ru/Multi] (build 3717) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534823.jpg" />
+  <img src="Z:/picture/008/save_picture_534823.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ MachiaVillain (2018) [Ru/Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534761.jpg" />
+  <img src="Z:/picture/008/save_picture_534761.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Lara Croft and the Temple of Osiris (2014) [Ru/En] (1.1.240.4/dlc) Repack R.G. �
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534689.jpg" />
+  <img src="Z:/picture/008/save_picture_534689.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Flipping Death (2018) [Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534623.jpg" />
+  <img src="Z:/picture/008/save_picture_534623.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Dead Cells (2018) [Ru/Multi] (1.0/dlc) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534607.jpg" />
+  <img src="Z:/picture/008/save_picture_534607.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ A Story About My Uncle (2014) [Multi] (1.0.8767.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534029.jpg" />
+  <img src="Z:/picture/008/save_picture_534029.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Seasons after Fall (2016) [Ru/Multi] (25913) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533792.jpg" />
+  <img src="Z:/picture/008/save_picture_533792.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Ghostly Matter (2018) [En/Fr/It] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533064.jpg" />
+  <img src="Z:/picture/008/save_picture_533064.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Oddworld Abe's Oddysee [Ru] (RePack) 1997 | Kirill Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531767.jpg" />
+  <img src="Z:/picture/008/save_picture_531767.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Basingstoke (2018) [En] (101_built_842018_54725_pm) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531130.jpg" />
+  <img src="Z:/picture/008/save_picture_531130.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530475.jpg" />
+  <img src="Z:/picture/008/save_picture_530475.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051893   (530198) от 12.09.2016
-
-Mother Russia Bleeds (2016) [Ru/Multi] (1.0.1) Repack GAMER [Dealer Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mother Russia Bleeds – брутальный beat em' up, действия которого разворачиваются в альтернативной реальности 80-х годов в бывшем Советском Союзе. Вам предстоит выступить в роли зависимого от наркотиков антигероя, в прошлом профессионального боксера по имени Сергей. Он был заключен в тюрьму и приговорен к смертной казни, за якобы преступления против матушки России.Тип издания: RepackРазработчик: Le Cartel StudioЖанр: Action, Arcade, Beat em' up, 2DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5DAFDD060A8134E06644B11BB165DE32E16714
 ```
 
 https://mybot314.ru/tekegram_catalog/

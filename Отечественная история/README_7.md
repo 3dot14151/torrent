@@ -1,3 +1,29 @@
+###  Публикация: 1031150   (668649) от 03.07.2016
+
+Тайны Века: Вильям Фишер. Легенда Советской разведки (2003) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен столетию со дня рождения выдающегося советского разведчика Вильяма Генриховича Фишера, более известного под именем Рудольфа Абеля. Именно он разработал и осуществил спецоперацию, в результате которой СССР стал обладателем сверхсекретной информации по атомному проекту США. Автора программы больше интересует личность Фишера: почему он выбрал службу в (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Максим ЯкунинПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CD4115BBD5E3C9C0C4FE41B2FBBF3DAB784BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031148   (668593) от 03.07.2016
 
 Агент Сфера или 10 миллиардов сребреников (2014) WEBRip [H.264]
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668593.jpg" />
+  <img src="Z:/picture/008/save_picture_668593.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659209.jpg" />
+  <img src="Z:/picture/008/save_picture_659209.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646436.jpg" />
+  <img src="Z:/picture/008/save_picture_646436.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645562.jpg" />
+  <img src="Z:/picture/008/save_picture_645562.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639741.jpg" />
+  <img src="Z:/picture/008/save_picture_639741.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637628.jpg" />
+  <img src="Z:/picture/008/save_picture_637628.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637196.jpg" />
+  <img src="Z:/picture/008/save_picture_637196.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626709.jpg" />
+  <img src="Z:/picture/008/save_picture_626709.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624727.jpg" />
+  <img src="Z:/picture/008/save_picture_624727.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624726.jpg" />
+  <img src="Z:/picture/008/save_picture_624726.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624725.jpg" />
+  <img src="Z:/picture/008/save_picture_624725.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624724.jpg" />
+  <img src="Z:/picture/008/save_picture_624724.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624723.jpg" />
+  <img src="Z:/picture/008/save_picture_624723.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624717.jpg" />
+  <img src="Z:/picture/008/save_picture_624717.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624716.jpg" />
+  <img src="Z:/picture/008/save_picture_624716.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624714.jpg" />
+  <img src="Z:/picture/008/save_picture_624714.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622760.jpg" />
+  <img src="Z:/picture/008/save_picture_622760.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622745.jpg" />
+  <img src="Z:/picture/008/save_picture_622745.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622640.jpg" />
+  <img src="Z:/picture/008/save_picture_622640.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619143.jpg" />
+  <img src="Z:/picture/008/save_picture_619143.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618636.jpg" />
+  <img src="Z:/picture/008/save_picture_618636.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617402.jpg" />
+  <img src="Z:/picture/008/save_picture_617402.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615736.jpg" />
+  <img src="Z:/picture/008/save_picture_615736.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612053.jpg" />
+  <img src="Z:/picture/008/save_picture_612053.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612030.jpg" />
+  <img src="Z:/picture/008/save_picture_612030.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BC5DFF4A8E9B1E9F3D9772BBC21CB17BF6DB3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031710   (611523) от 25.07.2016
-
-В обстановке особой секретности (2016) SATRip (серия 1-4 из 4)
-
->>След.
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская программа Виктора Правдюка о событиях, предшествовавших началу Великой Отечественной войны. Об обстановке, сложившейся в политической, экономической жизни Советского Союза накануне войны.Телекомпания: Россия, ЗАО «СИГМА-ВИДЕО»Жанр: ДокументальныйПродолжительность: 4 х ~ 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924ABDB546B4E32B5A3C1B75DD5C3681ED7DF43F
 ```
 
 https://mybot314.ru/tekegram_catalog/

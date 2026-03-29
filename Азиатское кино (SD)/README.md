@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861355   (1062544) от 
+
+Рождённый вором / Вор в законе / Zong heng si hai / Once a Thief (1991) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джим, Джо и Чери вместе росли и вместе учились воровать. Теперь они уже профессионалы самого высокого класса, специализирующиеся на краже картин. Красавица Чери уговаривает друзей завязать и начать спокойную жизнь. Они обещают, что идут на последнее дело, чтобы хорошенько заработать, но, удачливые до этого момента, преступники попадают в засаду...Производство: Гонконг / Golden Princess Film Production Limited, John Woo Film Production, Milestone PicturesЖанр: комедия, криминал, боевик, триллерРежиссер: Джон ВуАктеры: Юнь-Фат Чоу, Лесли Чун, Чери Чунг, Кон Чу, Кеннет Цан, Фанг Ву, Лейла Тонг, Деклан Вонг, Джон Ву, Дэвид ВуПеревод: профессиональный многоголосый (R5), авторский (Визгунов; Володарский; Кузнецов)Язык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 01:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7CEC3FFDB1A4CF2863460862F1D9011E40BD52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857048   (1059393) от 04.03.2026
 
 Город грешников / Bad City (2022) HDRip [H.264] [MVO]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059393.jpg" />
+  <img src="Z:/picture/005/save_picture_1059393.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058513.jpg" />
+  <img src="Z:/picture/005/save_picture_1058513.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058469.jpg" />
+  <img src="Z:/picture/005/save_picture_1058469.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058294.jpg" />
+  <img src="Z:/picture/005/save_picture_1058294.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058293.jpg" />
+  <img src="Z:/picture/005/save_picture_1058293.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057955.jpg" />
+  <img src="Z:/picture/005/save_picture_1057955.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057811.jpg" />
+  <img src="Z:/picture/005/save_picture_1057811.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057620.jpg" />
+  <img src="Z:/picture/005/save_picture_1057620.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057550.jpg" />
+  <img src="Z:/picture/005/save_picture_1057550.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057468.jpg" />
+  <img src="Z:/picture/005/save_picture_1057468.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056443.jpg" />
+  <img src="Z:/picture/005/save_picture_1056443.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056066.jpg" />
+  <img src="Z:/picture/005/save_picture_1056066.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054710.jpg" />
+  <img src="Z:/picture/005/save_picture_1054710.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052716.jpg" />
+  <img src="Z:/picture/005/save_picture_1052716.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052507.jpg" />
+  <img src="Z:/picture/005/save_picture_1052507.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052333.jpg" />
+  <img src="Z:/picture/005/save_picture_1052333.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050736.jpg" />
+  <img src="Z:/picture/005/save_picture_1050736.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050359.jpg" />
+  <img src="Z:/picture/005/save_picture_1050359.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049815.jpg" />
+  <img src="Z:/picture/005/save_picture_1049815.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049526.jpg" />
+  <img src="Z:/picture/005/save_picture_1049526.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047362.jpg" />
+  <img src="Z:/picture/005/save_picture_1047362.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046896.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046340.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046083.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045988.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3CF115019E3E12E350D2E4FCD048B8675B34204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603615   (1045618) от 10.01.2023
-
-Похищение Радена Салеха / Mencuri Raden Saleh (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа отчаянной молодёжи планирует похитить из президентского дворца бесценное полотно «Арест принца Дипонегоро» художника Радена Салеха.Производство: Индонезия, Малайзия / Astro Shaw, Blibli, Jagartha, Visinema PicturesЖанр: боевик, драмаРежиссер: Ангга Двимас СасонгкоАктеры: Iqbaal Dhiafakhri Ramadhan, Angga Yunanda, Рэйчел Аманда, Umay Shahab, Агхнини Хакуе, Ari Irham, Ганиндра Бимо, Андреа Дайн, Тио Пакусодево, Мухаммад КханПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3618DB40254F4BBD8688B86F884F3EBB3938BC5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

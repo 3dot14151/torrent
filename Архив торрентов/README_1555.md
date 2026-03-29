@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698566.jpg" />
+  <img src="Z:/picture/008/save_picture_698566.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698565.jpg" />
+  <img src="Z:/picture/008/save_picture_698565.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698564.jpg" />
+  <img src="Z:/picture/008/save_picture_698564.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698563.jpg" />
+  <img src="Z:/picture/008/save_picture_698563.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698562.jpg" />
+  <img src="Z:/picture/008/save_picture_698562.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698556.jpg" />
+  <img src="Z:/picture/008/save_picture_698556.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698537.jpg" />
+  <img src="Z:/picture/008/save_picture_698537.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Advanced Installer 14.8 Build 281f49a4fb RePack by Alex Zaguzin [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698515.jpg" />
+  <img src="Z:/picture/008/save_picture_698515.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698509.jpg" />
+  <img src="Z:/picture/008/save_picture_698509.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Light Image Resizer 5.1.3.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698506.jpg" />
+  <img src="Z:/picture/008/save_picture_698506.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698504.jpg" />
+  <img src="Z:/picture/008/save_picture_698504.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Jihosoft File Recovery 8.0.9 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698496.jpg" />
+  <img src="Z:/picture/008/save_picture_698496.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698483.jpg" />
+  <img src="Z:/picture/008/save_picture_698483.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - A State Of Trance Radio Top 20 May / June 2016 (2016) [MP3|320 кб/с] <Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698472.jpg" />
+  <img src="Z:/picture/008/save_picture_698472.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ XMedia Recode 3.3.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698470.jpg" />
+  <img src="Z:/picture/008/save_picture_698470.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698467.jpg" />
+  <img src="Z:/picture/008/save_picture_698467.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698461.jpg" />
+  <img src="Z:/picture/008/save_picture_698461.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698460.jpg" />
+  <img src="Z:/picture/008/save_picture_698460.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698459.jpg" />
+  <img src="Z:/picture/008/save_picture_698459.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Wondershare Filmora 8.6.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698407.jpg" />
+  <img src="Z:/picture/008/save_picture_698407.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ K-Lite Codec Pack 13.1.6 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698392.jpg" />
+  <img src="Z:/picture/008/save_picture_698392.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Red Giant Trapcode Suite 14.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698385.jpg" />
+  <img src="Z:/picture/008/save_picture_698385.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ WinRAR 5.60 Beta 3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698381.jpg" />
+  <img src="Z:/picture/008/save_picture_698381.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ummy Video Downloader 1.7.2.9 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698374.jpg" />
+  <img src="Z:/picture/008/save_picture_698374.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Free Studio 6.6.22.617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698368.jpg" />
+  <img src="Z:/picture/008/save_picture_698368.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698364.jpg" />
+  <img src="Z:/picture/008/save_picture_698364.jpg" />
 </div>
 
 

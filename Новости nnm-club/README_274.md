@@ -1,3 +1,159 @@
+###  Публикация: 1689946   (61361) от 30.03.2024
+
+Mahou Shoujo ni Akogarete | Вoсхищaясь дeвушкaми-вoлшeбницaми | Становясь волшебницей| Gushing Over Magical Girls [2024, TV, 13 из 13] WEBRip 1080p rus+raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утэна Хираги всегда восхищалась девушками-волшебницами и мечтала стать крутой героиней, которая борется со злом. Поэтому когда она встречает существо, утверждающее, что у Утэны есть скрытая магическая сила, тут же решает, что её мечта сбылась. Но всё рушится из-за внезапного поворота событий: она превращается в злодейку! Не заинтересованная в союзе с силами зла, (   Читать дальше...   )Производство: Япония, студия Asahi ProductionЖанр: комедия, фэнтези, эттиРежиссер: Оцуки АцусиЯзык озвучки: Русский закадровый (Dream Cast), (AniDub Online), (AniLibria.TV), (Senkuro)Субтитры: Русские надписи, русские (софтсаб), Multi-4Продолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA174B8A14E4A3888D0841E2B3921A99CF5A38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702237   (61355) от 30.03.2024
+
+Созвездие / Constellation (2024) WEB-DL [H.264/720p] (сезон 1, серии 1-8 из 8) LostFilm, NewComers, HDRezka Studio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в двух временных линиях. В одной астронавт Джо Эрикссон терпит бедствие на Международной космической станции. В результате аварии система жизнеобеспечения и одна из спасательных капсул оказываются повреждены, и Джо нужно в одиночку, отправив свою команду на Землю, починить капсулу и вернуться самой. В другом временном периоде оправляющаяся (   Читать дальше...   )Производство: США, Великобритания, Франция / Turbine Studios, Haut Et Court TvЖанр: фантастика, триллерРежиссер: Мишель Макларен, Джозеф Седар, Оливер ХиршбигельАктеры: Нуми Рапас, Ребекка Скроггс, Клэр-Хоуп Эшити, Джонатан Бэнкс, Михель Диркс, Джеймс Д’Арси, Davina Coleman, Rosie Coleman, Уильям Кэтлетт, Барбара ЗуковаПеревод: Многоголосый профессиональный (LostFilm, NewComers, HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Forced, Full, SDH), французские, испанские, немецкие, итальянскиеПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AF8DF5E3A1932D9860E31331B4B26692D85483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710472   (61344) от 30.03.2024
+
+Зафиксировано замедление Гольфстрима
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые Университета Мэриленда в США зафиксировали значительное замедление глобальных течений, в том числе Гольфстрима, из-за изменения климата. Результаты исследования опубликованы в журнале Frontiers in Marine Science.Специалисты проанализировали данные об Атлантической меридиональной опрокидывающей циркуляции (AMOC) — системе океанических течений, переносящих тепло (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666315   (61260) от 31.03.2024
+
+Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Шангри-Ла [ТВ-1] [2023, TV, 25 эп.] WebRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Ракуро Хидзутомэ заинтересован только в одном — поиске и прохождении недоработанных и глючных VR-игр. Его игровые навыки не имеют себе равных, и ни одна игра не может быть слишком плохой для него. После прохождения одной особенно убогой игры он решает попробовать что-то новое, «божественную» ААА-игру под названием «Фронтир Шангри-Ла». Начав, он первым (   Читать дальше...   )Производство: студия C2CЖанр: пpиключения, фэнтезиРежиссер: Кубоока ТосиюкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D993A6A3A57DD2E3D0F77F458D554A48AB522716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346738   (61041) от 02.04.2024
+
+Ведьмак / The Witcher (2019-2021) WEB-DLRip (сезон 1-2, серии 1-16 из 16) Пифагор
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведьмак Геральт, мутант и убийца чудовищ, изо всех сил старается найти свое место в мире, где люди часто оказываются намного хуже монстров.Производство: Польша, США / NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: фэнтези, боевик, драма, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Аллан, Аня Чалотра, Мими Дивени, Анна Шаффер, Бэзил Айденбенц, Ясен Атор, Грэм Мактавиш, Саймон Кэллоу, Лиз КаррПеревод: Дублированный - ПифагорЯзык озвучки: Русский, английскийСубтитры: Русские (форсированные, полные), английские (отдельно)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558133AFE2A4ECB3D437EE3EC35CFF9C0674F25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712486   (60949) от 03.04.2024
+
+Пенсионер из Липецка задержан за взлом Sony PlayStation 3
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Липецке задержали 65-летнего пенсионера, который занимался взломом и прошивкой игровых консолей PlayStation. Мужчине грозит крупный штраф или срок в тюрьме.Пенсионер подозревается в незаконном взломе консолей Sony PlayStation 3. По данным правоохранительных органов, Аркадий оказывал услуги по взлому консолей, используя специальное программное обеспечение для обхода (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347600   (60934) от 03.04.2024
 
 Ведьмак / The Witcher (2019) WEB-DLRip (сезон 1, серии 1-8 из 8) Lostfilm
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60934.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60926.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60833.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Autodesk 3ds Max 2025 RePack by xetrin [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60832.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60831.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60730.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ SpaceX запустила две ракеты Falcon 9 менее чем за ч
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60688.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60618.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Shaman King Flowers | Король-шаман: Цветы [2024, TV, 13 эп.] W
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60605.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60599.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60519.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60414.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60412.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60411.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60409.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60311.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3447]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60216.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ Windows 7 PE SE NVDA Paragon-HDM-15 USB 3.0 аварийный для незря
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60204.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60202.jpg" />
 </div>
 
 
@@ -515,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60094.jpg" />
 </div>
 
 
@@ -526,162 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBDFBB6137BD1CCF43305D45B2B39D535197C3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705989   (60001) от 12.04.2024
-
-MInstAll v.10.03.2024 By Andreyonohov (ISO) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами обновленный 10 Марта 2024 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC38152EEECB1CF360F87DC883AD64290D904127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714983   (59995) от 12.04.2024
-
-Позывной «Пассажир» (2024) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59995.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 год. Молодой писатель Николай Рябинин живет в столице, проводит вечера в модных заведениях и не особо интересуется повесткой дня, пока не узнает от родителей, что его брат, с которым он давно рассорился, пропал без вести на Донбассе. Николай отправляется на поиски, не подозревая, что эта миссия навсегда изменит его жизнь.Производство: Россия / ВВП Альянс / Кинокомпания АльянсЖанр: драмаРежиссер: Илья КазанковАктеры: Антон Шагин, Виталий Кищенко, Сергей Горобченко, Алексей Шевченков, Александр Михайлов, Надежда Маркина, Сослан Фидаров, Никита Тезин, Алексей Дмитриев, Вадим РадченкоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC52F7B112783D2C6517FFA0974556D6D28D52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936732   (59989) от 12.04.2024
-
-Нарки / Нарко / Барыги / Narcos (2015) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начав с продажи первых скромных партий белого порошка, переправленных мелкими контрабандистами в Майами, никому не известный колумбийский жулик Пабло Эскобар за каких-то пару лет умудрился поставить на колени этот жадный до развлечений город. Тем временем местные органы правопорядка оказались вынуждены бросить все свои силы в борьбу с наркотрафиком, чтобы хоть как-то (   Читать дальше...   )Производство: США, Gaumont International TelevisionЖанр: драма, криминалРежиссер: Жозе Падилья, Гильермо НаварроАктеры: Вагнер Моура, Морис Комт, Джоанна Кристи, Бойд Холбрук, Педро Паскаль, Стефани Сигман, Роберто Урбина, Ана де ла Регера, Даниэль Кеннеди, Диего Катаньо и др.Перевод: Многоголосый профессиональный | LostFilmЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:57:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82142439207AE4866A9ECC834D8BB6ED01808576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714104   (59891) от 13.04.2024
-
-Avast Premium Security 24.3.6108 RePack by xetrin [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Premium Security – комплексный антивирус "все-в-одном", теперь еще более быстрый и эффективный благодаря переносу вычислительных процессов в облачное пространство. Крупнейшая в мире сеть обнаружения угроз, искусственный интеллект на основе облачных технологий и молниеносно быстрый анализ поведения выделяют наш антивирус среди всех остальных.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112CA90EDE224EF8C84AF4A0CD161C1C5FCBCE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714982   (59888) от 13.04.2024
-
-Фоллаут / Fallout (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) [EN / RU, EN, Multi Sub]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в далеком будущем в Лос-Анджелесе, через сотни лет после ядерной войны, уничтожившей или сильно видоизменившей все живое на планете. В подземных убежищах, построенных корпорацией «Волт-Тек», долгие десятилетия живут мирные граждане, которые скрываются от радиации, мутантов и бандитов. Однажды они отправляют на поверхность разведчицу Люси, (   Читать дальше...   )Производство: США / Kilter Films, Bethesda Game Studios, Amazon MGM StudiosЖанр: фантастика, боевик, драма, приключенияРежиссер: Джонатан Нолан, Клер Килнер, Фред Туа, Дэниэл Грэй Лонгино, Уэйн ЙипАктеры: Элла Пернелл, Аарон Мотен, Уолтон Гоггинс, Кайл МакЛахлен, Майк Дойл, Мойзес Ариас, Дэйл Дики, Майкл Эмерсон, Крис Парнелл, Зак Черри, Лесли Уггамс, Сарита ЧоудхуриПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (full, SDH) и др.Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9593379747DABDF215F65BB1BF7D6E87612B2169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714584   (59886) от 13.04.2024
-
-Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20685 (2024.04) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDA364E21D8A98B22D30BB2B7517CB116F9B3BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

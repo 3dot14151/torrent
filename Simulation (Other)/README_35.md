@@ -1,3 +1,29 @@
+###  Публикация: 1791974   (21148) от 17.04.2025
+
+Space for Sale (2025) [Ru/Multi] (2024.11.25.10.55/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Space for Sale — межпланетный симулятор управления космической недвижимостью с видом сверху, где упор сделан на решение проблем и исследование мира. Вы можете играть как в одиночку, так и с другом, преобразуя дикие, незаселенные земли в развитые жилые районы! Вы только что открыли собственную франшизу по продаже космической недвижимости, к которой прилагается новый (   Читать дальше...   )Тип издания: RepackРазработчик: Mirage Game StudiosЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4398B1A6D22433DCB7795DC0E89ED3C63F068DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792151   (21145) от 17.04.2025
 
 Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +32,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21145.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Storage Guys (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21023.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ UBOAT (2019) [Ru/Multi] (2025.1.1 Patch 1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20963.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.0 #39095/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20949.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Space for Sale (2024) [Ru/Multi] (2024.11.25.10.55) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20828.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.2-CL30128/dlc) Repack Other s [Deluxe Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20763.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Creepy Shift: House For Sale (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20722.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20623.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20615.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20544.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20542.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20478.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Sunset Motel (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20412.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20104.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Medieval Blacksmith (2024) [Ru/Multi] (1.6.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20078.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Viking Frontiers (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20001.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Garry's Mod (2006) [Ru/Multi] (2025.04.30) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19718.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Sports: Renovations (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19544.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.1.2)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19539.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Pocket and Zooom (2025) [Multi] (1.0.1.1841) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19479.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (build 18316498/dlc) Repack sel
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19461.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ My Party Needs An Alchemist (2025) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19450.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (30.04.2025/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19427.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Human Fast Food (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19284.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ SubwaySim 2 (2025) [Multi] (2153) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19200.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ SubwaySim 2 (2025) [Multi] (2153) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F11E75C47ECDC21731044562083EB0FCAC80855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705035   (19103) от 07.05.2025
-
-Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack Decepticon [Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pacific Drive - это атмосферное автомобильное приключение на выживание в зоне отчуждения. Здесь вы не найдете привычных гоночных трасс, но зато вас будут поджидать сверхъестественные опасности, которые заставят вас сильно напрячься. Единственный шанс на спасение - ваша машина, которую придется укреплять и улучшать на протяжении всей игры. Придется искать ресурсы (   Читать дальше...   )Тип издания: RepackРазработчик: Ironwood StudiosЖанр: Экшены, Приключенческие игры, Гонки, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25677E6CEC19747FF1EDA235F74B3FF40E8AC1AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

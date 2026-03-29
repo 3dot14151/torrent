@@ -1,3 +1,61 @@
+###  Публикация: 1618311   (249958) от 12.03.2023
+
+VA - Lilja 4-ever OST (2002) [FLAC|Lossless|tracks + .cue] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rammstein - Mein Herz Brennt (Film-remix) 01:52
+02 - Via Gra - Bomba 3:27
+03 - Fläskkvartetten - O Virtus Sapientie 4:49
+04 - Nathan Larson - The Bridge 1:19(   Читать дальше...   )Жанр: OSTПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96C476FEB9AE9B59D42C0901560ADCD8D1A754A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618732   (249939) от 12.03.2023
+
+VA - Enigma-Forest-Transit 10 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostradamus - The Whisper of an Angel
+02. Delerium - Incantation
+03. Praise - Only You
+04. Robbie Robertson & The Re Road Ensemble - Mahk Ichi(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A15539F982D9B6996486351CD089DDF242CAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618727   (249908) от 12.03.2023
 
 Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
@@ -6,7 +64,7 @@ Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249908.jpg" />
+  <img src="Z:/picture/004/save_picture_249908.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249642.jpg" />
+  <img src="Z:/picture/004/save_picture_249642.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249639.jpg" />
+  <img src="Z:/picture/004/save_picture_249639.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Enigma-Forest-Transit 12 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249519.jpg" />
+  <img src="Z:/picture/004/save_picture_249519.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Fausto Papetti - Somethin' Saxy (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249481.jpg" />
+  <img src="Z:/picture/004/save_picture_249481.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Fausto Papetti - I Remember (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249476.jpg" />
+  <img src="Z:/picture/004/save_picture_249476.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Francisco Garcia - Romantic Guitar Hits (3CD) (1993) [MP3|320 кб/с]<Instrumen
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249236.jpg" />
+  <img src="Z:/picture/004/save_picture_249236.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_249210.jpg" />
+  <img src="Z:/picture/005/save_picture_249210.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ Various Artists - Музыка миров Fallout и BioShock (1920-1960) [MP3|1
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248943.jpg" />
+  <img src="Z:/picture/004/save_picture_248943.jpg" />
 </div>
 
 
@@ -285,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248289.jpg" />
+  <img src="Z:/picture/004/save_picture_248289.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_246615.jpg" />
+  <img src="Z:/picture/005/save_picture_246615.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, N
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246489.jpg" />
+  <img src="Z:/picture/004/save_picture_246489.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_246380.jpg" />
+  <img src="Z:/picture/005/save_picture_246380.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Uncle Noking - Время историй (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245702.jpg" />
+  <img src="Z:/picture/004/save_picture_245702.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Teufelstanz - Camera Obscura (2017) [FLAC|Lossless|image + .cue] <Medieval Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245601.jpg" />
+  <img src="Z:/picture/004/save_picture_245601.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Mystera III (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244567.jpg" />
+  <img src="Z:/picture/004/save_picture_244567.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Mystera (1998) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244522.jpg" />
+  <img src="Z:/picture/004/save_picture_244522.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243866.jpg" />
+  <img src="Z:/picture/004/save_picture_243866.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Enigma - The Cross Of Changes (1993) [OGG Vorbis|630 Kbps] <New Age, Downtempo, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243594.jpg" />
+  <img src="Z:/picture/004/save_picture_243594.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Japanese Relaxation and Meditation - Reiki Japanese Meditation: Remove All Energ
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243130.jpg" />
+  <img src="Z:/picture/004/save_picture_243130.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Frantz Amathy - In the Presence of Angels (2008) [FLAC|Lossless|tracks + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243121.jpg" />
+  <img src="Z:/picture/004/save_picture_243121.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Restless Heart - Greatest Hits (1998) [FLAC|Lossless|WEB-DL|tracks] <Folk, World
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242996.jpg" />
+  <img src="Z:/picture/005/save_picture_242996.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Moods: A World Of Emotions (2014) 2CD, Compilation [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242786.jpg" />
+  <img src="Z:/picture/005/save_picture_242786.jpg" />
 </div>
 
 
@@ -708,7 +766,7 @@ Tanzwut - Silberne Hochzeit (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Neue Deutsche
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242782.jpg" />
+  <img src="Z:/picture/005/save_picture_242782.jpg" />
 </div>
 
 
@@ -722,64 +780,6 @@ Tanzwut - Silberne Hochzeit (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Neue Deutsche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9C4E84DB129BD9D42065EE252044169333985E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541035   (242694) от 03.04.2022
-
-Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over and Over
-02. You're Gone
-03. Starfish Blues (Bottom of the Sea)
-04. Open up Your Mind(   Читать дальше...   )Жанр: Modern Hard Rock, Southern RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62800AE88428CE9CE7F0846DBF83D81CFE801BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362591   (242474) от 24.02.2020
-
-Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242474.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:07| 01. Bad News
-|02:02| 02. Revelation
-|01:03| 03. SOS
-|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB4666B1A660480C134C899FB351B0A0914EA10
 ```
 
 https://mybot314.ru/tekegram_catalog/

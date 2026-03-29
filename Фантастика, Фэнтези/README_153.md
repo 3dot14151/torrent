@@ -1,3 +1,59 @@
+###  Публикация: 940143   (470810) от 23.09.2015
+
+Джон Толкин | Хоббит (2014) [PDF]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Рональд Руэл Толкин – писатель, поэт, филолог, профессор Оксфордского университета, родоначальник современной фэнтези. В 1937 году был написан «Хоббит», а в середине 1950-х годов увидели свет три книги «Властелина колец», повествующие о Средиземье – мире, населенном представителями волшебных рас со сложной культурой, историей и мифологией.
+
+В последующие годы (   Читать дальше...   )Жанр: ФэнтезиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CF4DB503790A676A80B44DAC96D830855F7870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406689   (470583) от 05.09.2020
+
+Ричард Матесон | Куда приводят мечты (2016) [PDF, FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе, что вы умерли! Но, как выясняется, жизнь продолжается и за порогом смерти. Более того, впереди ждет бесконечное странствие по неизведанным мирам и вселенным. Именно в такое путешествие суждено отправиться Крису Нильсену, чтобы спастись от отчаяния и вновь обрести надежду и любовь.
+
+Сразу же после публикации роман Р. Матесона стал бестселлером и (   Читать дальше...   )Жанр: Литература 20 века, МистикаПеревод: Ирина В. ИванченкоФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D09B13689C0D9BC9660AC646F41A35D593AC91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406941   (470497) от 05.09.2020
 
 Роберт Силверберг | Замок лорда Валентина (2020) [FB2]
@@ -6,7 +62,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470497.jpg" />
+  <img src="Z:/picture/008/save_picture_470497.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470482.jpg" />
+  <img src="Z:/picture/008/save_picture_470482.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470470.jpg" />
+  <img src="Z:/picture/008/save_picture_470470.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470466.jpg" />
+  <img src="Z:/picture/008/save_picture_470466.jpg" />
 </div>
 
 
@@ -117,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469463.jpg" />
+  <img src="Z:/picture/008/save_picture_469463.jpg" />
 </div>
 
 
@@ -146,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469335.jpg" />
+  <img src="Z:/picture/008/save_picture_469335.jpg" />
 </div>
 
 
@@ -172,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469269.jpg" />
+  <img src="Z:/picture/008/save_picture_469269.jpg" />
 </div>
 
 
@@ -199,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469176.jpg" />
+  <img src="Z:/picture/008/save_picture_469176.jpg" />
 </div>
 
 
@@ -227,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468751.jpg" />
+  <img src="Z:/picture/008/save_picture_468751.jpg" />
 </div>
 
 
@@ -255,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468662.jpg" />
+  <img src="Z:/picture/008/save_picture_468662.jpg" />
 </div>
 
 
@@ -283,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468635.jpg" />
+  <img src="Z:/picture/008/save_picture_468635.jpg" />
 </div>
 
 
@@ -312,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468553.jpg" />
+  <img src="Z:/picture/008/save_picture_468553.jpg" />
 </div>
 
 
@@ -340,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468520.jpg" />
+  <img src="Z:/picture/008/save_picture_468520.jpg" />
 </div>
 
 
@@ -369,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468436.jpg" />
+  <img src="Z:/picture/008/save_picture_468436.jpg" />
 </div>
 
 
@@ -397,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468329.jpg" />
+  <img src="Z:/picture/008/save_picture_468329.jpg" />
 </div>
 
 
@@ -425,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468320.jpg" />
+  <img src="Z:/picture/008/save_picture_468320.jpg" />
 </div>
 
 
@@ -454,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468287.jpg" />
+  <img src="Z:/picture/008/save_picture_468287.jpg" />
 </div>
 
 
@@ -480,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468231.jpg" />
+  <img src="Z:/picture/008/save_picture_468231.jpg" />
 </div>
 
 
@@ -507,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468122.jpg" />
+  <img src="Z:/picture/008/save_picture_468122.jpg" />
 </div>
 
 
@@ -535,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467540.jpg" />
+  <img src="Z:/picture/008/save_picture_467540.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467377.jpg" />
+  <img src="Z:/picture/008/save_picture_467377.jpg" />
 </div>
 
 
@@ -590,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467164.jpg" />
+  <img src="Z:/picture/008/save_picture_467164.jpg" />
 </div>
 
 
@@ -616,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466887.jpg" />
+  <img src="Z:/picture/008/save_picture_466887.jpg" />
 </div>
 
 
@@ -644,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466809.jpg" />
+  <img src="Z:/picture/008/save_picture_466809.jpg" />
 </div>
 
 
@@ -657,60 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B9F6DE353B56E3C54B124D85100A8B994B0975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940704   (466425) от 25.09.2015
-
-Антон Орлов | «Сонхийский цикл» [4 книги] (2009-2015) [FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разборки между могущественными магами привели к катастрофе: мир Сонхи остался без своего бога-хранителя — Стража Мира. Началась эпоха упадка, из всех щелей лезут потусторонние существа и демоны, чудовищный Живодер терроризирует целую страну, угрожая превратиться в божество насильственной смерти. Простые люди смирились и живут в бессильном страхе, некоторые тщетно (   Читать дальше...   )Жанр: Боевое фэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EB72C5A65D54CEC0D145206FF07502E83FA528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940569   (466413) от 25.09.2015
-
-Николай Батин | Косморазведчик. Ковчег (2015) [FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Косморазведчик».
-
-После ликвидации угрозы для всего живого, связанной с Машинным Разумом, Странник получает предложение от Предтеч возглавить экспедицию в иную Вселенную на их новейшем звездолете «Ковчег». Цель экспедиции – разведка и выяснение причин, по которым в этой Вселенной не появился высокоорганизованный Разум…Жанр: Боевая фантастикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79946326BC909BFB60DB536D57E8C67EAAC0E91
 ```
 
 https://mybot314.ru/tekegram_catalog/

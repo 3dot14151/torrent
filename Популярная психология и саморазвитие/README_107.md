@@ -1,3 +1,83 @@
+###  Публикация: 1721964   (109908) от 09.05.2024
+
+Вера Якупова | Шипы родительской любви. Понять поступки родителей и дать себе все, что недополучил в детстве (2023) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психотерапевт Вера Якупова разбирает основные детские травмы и предлагает инструменты, которые помогут понять мотивы родителей, справиться с эмоциональными барьерами и психологически повзрослеть.
+«Мне уже 30 лет, а родители до сих пор пытаются контролировать мою жизнь». «Я даже не представляю, что нужно сделать, чтобы мама осталась довольна». «Отца никогда не было (   Читать дальше...   )Жанр: Саморазвитие / личностный рост, Популярная психологияИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D5C5699F229EACA0D2D656AD2FD4ACFA4B0E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721905   (109907) от 09.05.2024
+
+Кэтрин Морган Шафлер | Лучшая во всем. Как добиться совершенства, не добивая себя (2023) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновляющее и практичное руководство от психолога Google, которое поможет превратить перфекционизм из врага в союзника и получать удовлетворение от своей жизни.
+Вы пытаетесь качественно сделать свою работу, а окружающие, вместо того чтобы вам помочь, упрекают вас в перфекционизме, советуют «расслабиться» и «не принимать все так близко к сердцу»? Не слушайте их. (   Читать дальше...   )Жанр: Популярная психология Саморазвитие / личностный ростПеревод: Екатерина ПетроваИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E30F9762EC24157F9C07E31BFD66AD25BFD97F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722192   (109847) от 10.05.2024
+
+Памела Фуллер, Марк Мерфи, Энни Чоу | Лидер без предрассудков. Как избавиться от неосознанных предпочтений и стать эффективнее (2023) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предпочтения и предрассудки – естественная составляющая человеческой природы. Как бы мы ни старались мыслить рационально и оставаться непредвзятыми, предпочтения незаметно, но значительно влияют на наши оценки, решения и поступки. Это касается и деятельности организации: предпочтения лидеров и рядовых сотрудников влияют на корпоративную культуру, внутренние политики (   Читать дальше...   )Жанр: Саморазвитие / личностный ростПеревод: Оксана КириченкоИздательство: Альпина ПаблишерФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA2F051370BE2A6D81020CEA1F149DCC68B93E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822669   (101709) от 07.10.2025
 
 Дж.Ф. Мастерсон | Поиск реального Я. Личностные расстройства нашего времени (2023) [PDF, DOCX]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101709.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99928.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88336.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70648.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63709.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62434.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61935.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61873.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61013.jpg" />
 </div>
 
 
@@ -247,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60976.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60971.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60961.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60954.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60890.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60889.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60850.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60639.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60493.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60456.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60357.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60336.jpg" />
 </div>
 
 
@@ -565,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60325.jpg" />
 </div>
 
 
@@ -591,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59184.jpg" />
 </div>
 
 
@@ -602,87 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B80285D7C776C9B01131A45279AD1ADF629150E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717766   (59008) от 21.04.2024
-
-Вероника Степанова | Психология без запретов! Сумасшедшие темы. Честные ответы (2017) [PDF, FB2, RTF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто вам казалось, что вы сошли с ума, а вокруг все такие нормальные и хорошие люди? Или наоборот, что делать, когда вокруг люди с кучей «тараканов» в голове? Как не попасть в множество ловушек, которые подсовывает жизнь?
-В этой книге собраны не только самые острые и «запретные» для большинства людей вопросы, но и ответы на них. Обо всем самом важном и наболевшем, (   Читать дальше...   )Жанр: Популярная психологияИздательство: Издательство АСТФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80315D5C168556777EFC08AED050A96B04D15400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718109   (58775) от 23.04.2024
-
-Вероника Степанова | Вся правда о неврозах. Без печалей и тревог (2020) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга будет полезна в первую очередь для психологов и для тех, кто хочет разобраться во всевозможных проявлениях неврозов. В книге собрано более 70 тем, включая но не ограничиваясь: обсессивно-компульсивное расстройство, истерия, детские неврозы, деперсонализация, психотравмы, психосоматика, анорексия и булимия, различные фобии и страхи, зависимости и созависимость, (   Читать дальше...   )Жанр: Популярная психологияИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC09B05047417102C1A3742A7057DD61AE81110B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718277   (58708) от 24.04.2024
-
-Вероника Степанова | Энциклопедия жизни (2021) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдёте ответы на самые важные и актуальные для вас вопросы. Всё происходящее в вашей жизни станет очень прозрачным и понятным, а жизненно важные задачи будут эффективно решаться.
-
-С любовью, ваша ВероникаЖанр: Популярная психологияИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264FFBAE431F990AEA75AC6347045B7E150421DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

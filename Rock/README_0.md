@@ -1,3 +1,32 @@
+###  Публикация: 1605438   (1044876) от 18.01.2023
+
+Eric Clapton - Pilgrim (1998) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|480 Kbps] <Rock, Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Father's Eyes
+02. River of Tears
+03. Pilgrim
+04. Broken Hearted(   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F31FF7D52275E4909EBE3022213F553CE20D406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605197   (1044861) от 18.01.2023
 
 Eric Clapton - Journeyman (1989) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|480 Kbps] <Rock, Pop Rock, Classic Rock>
@@ -6,7 +35,7 @@ Eric Clapton - Journeyman (1989) Reissue, Remastered, 2014, Audio Fidelity [OGG 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044861.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Eric Clapton - Time Pieces - The Best Of Eric Clapton (1982) Remastered, 2014, A
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044811.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Billy Preston - The Collection (1988) [MP3|320 Kbps] <Funk, Soul>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044642.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nightwish - Angels Fall First (1997) [OGG Vorbis|600 Kbps] <Rock, Symphonic Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044621.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Richard Marx, Matt Scannell - Duo (2008) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044564.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Journey - Escape (1981) Reissue, 2000, Columbia [OGG Vorbis|450 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044552.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Dire Straits - Love Over Gold (1982) Reissue, Remastered, 2011, Vertigo [OGG Vor
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044525.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Scorpions - Blackout (1982) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044475.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Rainbow - Difficult To Cure (1981) Reissue, 2013, Polydor [OGG Vorbis|450 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044442.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Bonnie Tyler - 3 Original Classics Box Set (1992) [MP3|320 Kbps] <Pop Rock, Soft
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044441.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Reissue, 2014, Polydor [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044305.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Silt - The Hazmat Game (2022) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044084.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044080.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Skrizhali - В холодном свете (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044068.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The One - Sunrise (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043965.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Eric Clapton - Behind The Sun (1985) Reissue, Remastered, 2014, Audio Fidelity [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043964.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Overhead - Telepathic Minds (2023) [MP3|320 Kbps] <Progressive Rock, Crossover P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043963.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Davide Ronfetto - Enlightening Nights, Darkening Days (2023) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043960.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Steve Vai - Vai/Gash (2023) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043941.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Green Day - Nimrod (1997) 25th Anniversary Edition, 2023, Reprise Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043798.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Deep Purple - Live On The BBC (2004) [OGG Vorbis|500 Kbps] <Rock, Classic Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043737.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Pink Floyd - Wish You Were Here (1975) Reissue, Remastered, 2011, EMI [OGG Vorbi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043715.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) Reissue, Remastered, 2003, Capitol
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043697.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Rainbow - Long Live Rock ‘n’ Roll (1977) Reissue, Remastered, 2010, Polydor 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043552.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Pink Floyd - Animals (2018 Remix) (1977) Reissue, Remastered, 2022, Pink Floyd R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043438.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Pink Floyd - Animals (2018 Remix) (1977) Reissue, Remastered, 2022, Pink Floyd R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DD1D49858D458B85851B795E79ACF77B9A6B6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608930   (1043247) от 03.02.2023
-
-Nightwish - Wishmaster (2000) Reissue, 2004, Back On Black [OGG Vorbis|700 Kbps] <Rock, Symphonic Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Is My Sin
-02. The Kinslayer
-03. Come Cover Me
-04. Wanderlust(   Читать дальше...   )Жанр: Rock, Symphonic Metal, Power MetalПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E60B228345DFC08C5BA36E397F9D1D6A9CDA79
 ```
 
 https://mybot314.ru/tekegram_catalog/

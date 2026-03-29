@@ -1,3 +1,30 @@
+###  Публикация: 1790569   (13469) от 25.06.2025
+
+Непостижимая Ахарэн [ТВ-2] | Aharen-san wa Hakarenai Season 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэйна Ахарэн и Райдо Мацубоши уже сделали немало шагов навстречу друг другу, но новый учебный год точно преподнесёт немало вызовов их социальной неловкости.
+Учитывая поистине непостижимую открытость Ахарэн, а также невероятную способность Райдо делать самые необычные выводы из самых обычных вещей, нас снова ждёт целая вереница милых, забавных и чуточку абсурдных (   Читать дальше...   )Производство: Япония / Студия Felix FilmЖанр: Комедия, романтика, повседневность, школаРежиссер: Ямамото ЯсутакаЯзык озвучки: Русский (AniLibria); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66E5457511FD0D8CE46B9044857A025C7C9EA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790966   (13431) от 26.06.2025
 
 Сила гориллы | Gorilla no Kami kara Kago Sareta Reijou wa Ouritsu Kishidan de Kawaigarareru | The Gorilla God's Go-To Girl [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +33,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13431.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13419.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13287.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13196.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13121.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13091.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12814.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12757.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12578.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12502.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ Sentai Dai Shikkaku 2 | Go! Go! Loser Ranger! 2 | Боевой отряд «По
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12375.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11806.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11634.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11323.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11098.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11097.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11065.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10376.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9989.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9888.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9827.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд В�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9022.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7955.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7756.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5285.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7BA7DDF0FB87CB23DAD3BB78D007F1DE5F5D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804283   (4839) от 01.09.2025
-
-Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcist in Another World | Перерождение сильнейшего экзорциста [2023, TV, 13 из 13 эп.] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харуёси — сильнейший онмёдзи (предсказатель) в своём мире. Его предали друзья, и, находясь на грани смерти, он хочет быть счастливым в следующей жизни. Затем он пытается применить секретное заклинание реинкарнации. Заклинание срабатывает, и он перевоплощается , но каким-то образом оказывается в другом мире. Он перерождается в выдающейся семье волшебников, но считается, (   Читать дальше...   )Производство: Studio Blanc.Жанр: приключения, фэнтезиРежиссер: Нагаяма НобуёсиПеревод: CrunchyRollОзвучка: Original (Commentary) (ep. 01, 02)Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 13 эп по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E35FC3D7A90EFAABC5B047F4D9376356D75C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

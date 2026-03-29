@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731156.jpg" />
+  <img src="Z:/picture/008/save_picture_731156.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Big Room Bass Vol.2 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731152.jpg" />
+  <img src="Z:/picture/008/save_picture_731152.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Trancespotting Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731151.jpg" />
+  <img src="Z:/picture/008/save_picture_731151.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Trance With Sunglasses (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731150.jpg" />
+  <img src="Z:/picture/008/save_picture_731150.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731146.jpg" />
+  <img src="Z:/picture/008/save_picture_731146.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - EDM Base Vol.2 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731140.jpg" />
+  <img src="Z:/picture/008/save_picture_731140.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731137.jpg" />
+  <img src="Z:/picture/008/save_picture_731137.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Quiver: The Programmer's Notebook 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731134.jpg" />
+  <img src="Z:/picture/008/save_picture_731134.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sublime Text 3 Dev (3130) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731132.jpg" />
+  <img src="Z:/picture/008/save_picture_731132.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Pudgee - King Of New York (1995) Limited Edition, 2017, Back2DaSource Records [F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731128.jpg" />
+  <img src="Z:/picture/008/save_picture_731128.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Direct Message for Instagram Pro 4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731127.jpg" />
+  <img src="Z:/picture/008/save_picture_731127.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731123.jpg" />
+  <img src="Z:/picture/008/save_picture_731123.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731114.jpg" />
+  <img src="Z:/picture/008/save_picture_731114.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731113.jpg" />
+  <img src="Z:/picture/008/save_picture_731113.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Anjunadeep Spring Collection 01 (2011) [MP3|320 kbps]<Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731090.jpg" />
+  <img src="Z:/picture/008/save_picture_731090.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731074.jpg" />
+  <img src="Z:/picture/008/save_picture_731074.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ ProFind 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731065.jpg" />
+  <img src="Z:/picture/008/save_picture_731065.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - aux4415 (2019) mindcolormusic [FLAC|Lossless|WEB-DL|tracks] <Acid, IDM, Amb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731062.jpg" />
+  <img src="Z:/picture/008/save_picture_731062.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ FontXChange 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731058.jpg" />
+  <img src="Z:/picture/008/save_picture_731058.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Mountain Duck 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731057.jpg" />
+  <img src="Z:/picture/008/save_picture_731057.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Scrutiny 8 v8.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731056.jpg" />
+  <img src="Z:/picture/008/save_picture_731056.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731054.jpg" />
+  <img src="Z:/picture/008/save_picture_731054.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Money Pro 2.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731040.jpg" />
+  <img src="Z:/picture/008/save_picture_731040.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Photo Supreme 4.3.3.1951 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731036.jpg" />
+  <img src="Z:/picture/008/save_picture_731036.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731033.jpg" />
+  <img src="Z:/picture/008/save_picture_731033.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Mirror for Philips TV 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731023.jpg" />
+  <img src="Z:/picture/008/save_picture_731023.jpg" />
 </div>
 
 

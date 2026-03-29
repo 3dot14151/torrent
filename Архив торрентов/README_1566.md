@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696018.jpg" />
+  <img src="Z:/picture/008/save_picture_696018.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696006.jpg" />
+  <img src="Z:/picture/008/save_picture_696006.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Smart Converter Pro 3 v3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695993.jpg" />
+  <img src="Z:/picture/008/save_picture_695993.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ File Cabinet Pro 8.4.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695991.jpg" />
+  <img src="Z:/picture/008/save_picture_695991.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PullTube 1.7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695990.jpg" />
+  <img src="Z:/picture/008/save_picture_695990.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Duplicate Photos Fixer Pro 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695988.jpg" />
+  <img src="Z:/picture/008/save_picture_695988.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Music Converter Pro 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695986.jpg" />
+  <img src="Z:/picture/008/save_picture_695986.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695979.jpg" />
+  <img src="Z:/picture/008/save_picture_695979.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Sketch 84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695978.jpg" />
+  <img src="Z:/picture/008/save_picture_695978.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ David Guetta & MORTEN - Tomorrowland One World Radio Future Friday 2020-08-07 [M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695949.jpg" />
+  <img src="Z:/picture/008/save_picture_695949.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Sue McLaren - Unbroken-The Best Of (2020) [MP3|320 Kbps] <Trance, VocalTran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695948.jpg" />
+  <img src="Z:/picture/008/save_picture_695948.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ RegCool 1.126 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695943.jpg" />
+  <img src="Z:/picture/008/save_picture_695943.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cookie 5 v 5.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695930.jpg" />
+  <img src="Z:/picture/008/save_picture_695930.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Twixl Publisher 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695924.jpg" />
+  <img src="Z:/picture/008/save_picture_695924.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Antipop Consortium - Tragic Epilogue (2000) [FLAC|Lossless|tracks + .cue] <Hip-H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695923.jpg" />
+  <img src="Z:/picture/008/save_picture_695923.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4833.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695921.jpg" />
+  <img src="Z:/picture/008/save_picture_695921.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695920.jpg" />
+  <img src="Z:/picture/008/save_picture_695920.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4833.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695919.jpg" />
+  <img src="Z:/picture/008/save_picture_695919.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Siemens Solid Edge ST8 108.00.00.091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695910.jpg" />
+  <img src="Z:/picture/008/save_picture_695910.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ AdminPE 3.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695908.jpg" />
+  <img src="Z:/picture/008/save_picture_695908.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ K-Lite Codec Pack Update 16.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695885.jpg" />
+  <img src="Z:/picture/008/save_picture_695885.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ PDF Reader Pro Edition 2.8.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695871.jpg" />
+  <img src="Z:/picture/008/save_picture_695871.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Wise Care 365 Pro 6.1.9.606 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695870.jpg" />
+  <img src="Z:/picture/008/save_picture_695870.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Reg Organizer 8.86 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695864.jpg" />
+  <img src="Z:/picture/008/save_picture_695864.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Revo Uninstaller Pro 4.5.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695863.jpg" />
+  <img src="Z:/picture/008/save_picture_695863.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Stereoscopic Player v1.7.1 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695846.jpg" />
+  <img src="Z:/picture/008/save_picture_695846.jpg" />
 </div>
 
 

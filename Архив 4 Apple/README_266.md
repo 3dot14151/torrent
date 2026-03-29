@@ -6,7 +6,7 @@ Qbserve 1.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709107.jpg" />
+  <img src="Z:/picture/008/save_picture_709107.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Macsome iTunes Converter 2.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709013.jpg" />
+  <img src="Z:/picture/008/save_picture_709013.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ NoteBurner iTunes DRM Audio Converter 2.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709012.jpg" />
+  <img src="Z:/picture/008/save_picture_709012.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ MediaInfo 0.7.95 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709008.jpg" />
+  <img src="Z:/picture/008/save_picture_709008.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Sidify Apple Music Converter 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709006.jpg" />
+  <img src="Z:/picture/008/save_picture_709006.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Duplicates Expert 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709005.jpg" />
+  <img src="Z:/picture/008/save_picture_709005.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ CloudTV 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709001.jpg" />
+  <img src="Z:/picture/008/save_picture_709001.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Wallpaper Wizard 2 v2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708977.jpg" />
+  <img src="Z:/picture/008/save_picture_708977.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Gemini 2: The Duplicate Finder 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708973.jpg" />
+  <img src="Z:/picture/008/save_picture_708973.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708788.jpg" />
+  <img src="Z:/picture/008/save_picture_708788.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ MyBrushes - Sketch, Paint, Design 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708688.jpg" />
+  <img src="Z:/picture/008/save_picture_708688.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Battery Health 2 v1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708682.jpg" />
+  <img src="Z:/picture/008/save_picture_708682.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ One Chat - All in one Messenger 4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708620.jpg" />
+  <img src="Z:/picture/008/save_picture_708620.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Airmail 3 v3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708240.jpg" />
+  <img src="Z:/picture/008/save_picture_708240.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ FilePane 1.9.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708209.jpg" />
+  <img src="Z:/picture/008/save_picture_708209.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Calendarique 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708122.jpg" />
+  <img src="Z:/picture/008/save_picture_708122.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Data Rescue Pro 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708118.jpg" />
+  <img src="Z:/picture/008/save_picture_708118.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Default Folder X 5.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708106.jpg" />
+  <img src="Z:/picture/008/save_picture_708106.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Downie 3.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708101.jpg" />
+  <img src="Z:/picture/008/save_picture_708101.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Super MOV Converter  6.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708014.jpg" />
+  <img src="Z:/picture/008/save_picture_708014.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ iTranslate 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707945.jpg" />
+  <img src="Z:/picture/008/save_picture_707945.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Affinity Designer 1.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707935.jpg" />
+  <img src="Z:/picture/008/save_picture_707935.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sublime Text 3 (3163) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707903.jpg" />
+  <img src="Z:/picture/008/save_picture_707903.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Affinity Photo 1.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707841.jpg" />
+  <img src="Z:/picture/008/save_picture_707841.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Drop - Color Picker 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707811.jpg" />
+  <img src="Z:/picture/008/save_picture_707811.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Middle 1.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707808.jpg" />
+  <img src="Z:/picture/008/save_picture_707808.jpg" />
 </div>
 
 

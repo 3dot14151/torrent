@@ -1,3 +1,292 @@
+###  Публикация: 1761492   (36731) от 20.11.2024
+
+Corona Renderer 12 update 1 for 3ds Max 2016-2025 [En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это популярный рендер-движок для 3ds Max и Cinema 4D. Хорошая альтернатива V-ray.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC19CB5F9282FA4FF9B21C6CBD6FB953080EAD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761482   (36722) от 20.11.2024
+
+inPixio Photo Focus Pro 4.3.8623 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36722.jpg" />
+</div>
+
+
+###  Подробнее
+
+InPixio Photo Focus предлагает особые инструменты, чтобы помочь вам сделать четкие и резкие снимки высокого разрешения. Сделайте размытые фотографии чистыми и ясными. Увеличьте глубину центра Ваших изображений, добавляя точность, мягкий центр и создавая четкое различие между фоном и центром изображения.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DC7F9B77E6A44C6453361F244B8E21412E63DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761518   (36701) от 20.11.2024
+
+WizFile 3.10 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36701.jpg" />
+</div>
+
+
+###  Подробнее
+
+WizFile простая в использовании программа для поиска файлов, которая также пригодится, чтобы выяснить, какие файлы и папки занимают больше всего места на диске, и навести порядок на жестком диске. Установка программы занимает считанные секунды. Плюс доступна портативная версия, которую не нужно устанавливать и можно использовать с внешнего носителя на разных компьютерах.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23D718D883FFC71076CF1BAC39B87983E34A976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761461   (36699) от 20.11.2024
+
+Display Driver Uninstaller 18.0.8.6 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC5DE8F2F275B9742E09BC433F874B59210E1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761474   (36693) от 20.11.2024
+
+UltraSearch Professional 4.6.0.1091 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36693.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraSearch Professional находит файлы и папки на локальных дисках NTFS и представляет результаты поиска за считанные секунды. Программа не работает с индексом, хранящимся на жестком диске, но достигает высокой скорости благодаря работе напрямую с главной файловой таблицей (MFT) разделов NTFS. Может идентифицировать даже жесткие ссылки в NTFS. Просто введите имя (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE02B87186F8E51C3272C6444EB4373769A6F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761450   (36686) от 20.11.2024
+
+Ultimaker Cura 5.9.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultimaker Cura - популярный слайсер для 3d-печати. Отлично подходит как для начинающих домашних пользователей, так и для небольших офисных работ. Имеет готовые шаблоны для печати и дружелюбный интерфейс.Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F5F37E9752E77828C10C8BB04D4DE460EE3746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761433   (36685) от 20.11.2024
+
+FastFlix 5.8.2 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36685.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastFlix - это простой и дружественный графический интерфейс для кодирования видео. Программа сохраняет метаданные HDR10 для x265, NVEncC HEVC и VCEEncC HEVC, которые также будут расширены до библиотек AV1, когда они станут доступны. Для тяжелой работы ему необходим FFmpeg (версия 4.3 или выше, при первом запуске вам предложат его загрузить), который может работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5777BE0A8E597CDD7740636ACB90C719EE0305CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761540   (36672) от 20.11.2024
+
+Light Image Resizer 7.1.1.61[Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894160BE9735E09EC5A563E257472CBCD2816C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761522   (36664) от 20.11.2024
+
+Microsoft Visual Studio 2022 Enterprise 17.12.1 (Offline Cache) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E32053240218B4A813CCA294FAD92D66B4173D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761612   (36649) от 21.11.2024
+
+Psiphon 3 build 184 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DACB06BB83B0515506D66D961EA4CAC2F0BF1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761501   (36648) от 21.11.2024
+
+GoodbyeDPI 0.2.3rc3 Launcher 9.4 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
+Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
+
+Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский и английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064572126126E77D8BCCD48B3C05338202CABAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761666   (36632) от 21.11.2024
 
 Office Installer & Office Installer+ 1.19 by Ratiborus [Ru]
@@ -6,7 +295,7 @@ Office Installer & Office Installer+ 1.19 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36632.jpg" />
 </div>
 
 
@@ -32,7 +321,7 @@ qBittorrent 5.0.2 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36630.jpg" />
 </div>
 
 
@@ -59,7 +348,7 @@ Caramba Switcher 2024.11.20 Test [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36597.jpg" />
 </div>
 
 
@@ -85,7 +374,7 @@ Free Hex Editor Neo 7.50.01.8790 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36580.jpg" />
 </div>
 
 
@@ -112,7 +401,7 @@ Exif Pilot 6.26.1 + Batchplugin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36579.jpg" />
 </div>
 
 
@@ -138,7 +427,7 @@ Windows 11 PRO 24H2 26100.2314 Update 9 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36547.jpg" />
 </div>
 
 
@@ -167,7 +456,7 @@ Windows 11 PRO 23H2 22631.4460 Update 13 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36545.jpg" />
 </div>
 
 
@@ -196,7 +485,7 @@ Microsoft® Windows® 11 x64 Ru 24H2 4in1 Upd 11.2024 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36533.jpg" />
 </div>
 
 
@@ -222,7 +511,7 @@ Vivaldi 7.0.3495.18 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36510.jpg" />
 </div>
 
 
@@ -248,7 +537,7 @@ OneCommander Pro 3.93.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36497.jpg" />
 </div>
 
 
@@ -275,7 +564,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r25 Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36443.jpg" />
 </div>
 
 
@@ -304,7 +593,7 @@ Adobe Illustrator 2025 29.1.0.142 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36436.jpg" />
 </div>
 
 
@@ -331,7 +620,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 11.2024 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36428.jpg" />
 </div>
 
 
@@ -357,7 +646,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v22 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36420.jpg" />
 </div>
 
 
@@ -386,7 +675,7 @@ Adobe InDesign 2025 20.0.1.32 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36409.jpg" />
 </div>
 
 
@@ -397,300 +686,6 @@ Adobe InDesign — профессиональный продукт для про
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBD94B12DE46812E0E51959967EBD7271BA0EC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761977   (36388) от 23.11.2024
-
-Topaz Video AI 5.5.0 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595F817B5F30E122BD71DD0853C2E261D1AFEDED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761924   (36387) от 23.11.2024
-
-AAF Family DCH Audio Realtek 10.11.9757.1 Mod by AlanFinotty [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36387.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAF Optimus DCH Audio Driver Realtek Mod, аудио драйвер — всё в одном. При установке AAF Optimus DCH Audio Driver Realtek Mod есть варианты установки; Realtek Audio Console, Sound Blaster, Dolby, Nahimic, Sonic Studio. Цель проекта AAF DCH Optimus Audio Realtek Mod - извлекать превосходное качество звука из музыки, фильмов, игр или другого контента под управлением (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75305BC6729E28B24B4BCFB2D0AAAF76682686E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762013   (36384) от 23.11.2024
-
-JetBrains RustRover 2024.3 (x64-arm64) Repack by Sitego [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36384.jpg" />
-</div>
-
-
-###  Подробнее
-
-RustRover - это мощная и удобная среда разработки, которая значительно упрощает процесс создания программ на Rust. Благодаря широкому набору функций и интуитивно понятному интерфейсу, RustRover помогает разработчикам всех уровней повысить продуктивность и качество кода.
-Если вы планируете изучать Rust или уже работаете с этим языком, RustRover может стать отличным (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A250BB985F4DB14DCE3977E8A944992D4F5071B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762005   (36352) от 23.11.2024
-
-Яндекс Браузер 24.10.4.703 (x32) / 24.10.4.705 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567BF89D4A60A1500FC649DB267B15D850676692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762088   (36351) от 23.11.2024
-
-Telegram Desktop 5.8.3 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, английский, Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB2F14A3B125B802F72888D6EC9968E5C959F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761978   (36348) от 23.11.2024
-
-Display Driver Uninstaller 18.0.8.7 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3075874F506F9F77134B09B1280D3A8AC50225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761861   (36345) от 23.11.2024
-
-Blender 4.3.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAF45C303766CF5629B55B2A9C8C5B18BD21ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762161   (36341) от 24.11.2024
-
-uTorrent Pro 3.6.0 Build 47168 Stable RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36341.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent - популярный клиент пиринговых p2p-сетей (протокол BitTorrent), который благодаря своей функциональности и небольшому размеру заслуженно является лидером среди программ данной категории. К достоинствам uTorrent можно отнести многопоточную загрузку файлов, распределение полосы пропускания, установку ограничения загрузки/раздачи, удаленное управление через (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7BACAC23E345D7D2C3A3F5926CF48BABCCCCBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762333   (36313) от 24.11.2024
-
-SoftMaker Office Professional 2024 rev. S1220.1116 RePack (& portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный офисный пакет Softmaker Office 2024, основная разработка компании Softmaker GmbH, является отличной заменой для Microsoft Office. Пакет офисных программ в том или ином составе необходим и в организациях и дома на персональном компьютере для улучшения, оптимизации, облегчения процессов документирования, контроля и учета, автоматизации офисной работы. Вы, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C744E98E82CBBAF1FB2B034D47765B7D1F6B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762127   (36309) от 24.11.2024
-
-Windows 10 (v22h2) x64 HSL/PRO by KulHunter v22 (esd) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_22h2_
-updated_nov_2024_x64_dvd_3eeacab9.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABDB5666CC769F3256E1323699145AEE134D19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762158   (36308) от 24.11.2024
-
-Adobe Photoshop 2025 26.1.0.121 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2025 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED571BB87ABADE41CA29B5B4FE6808E1CC61E6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

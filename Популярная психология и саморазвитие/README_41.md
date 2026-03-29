@@ -1,3 +1,85 @@
+###  Публикация: 1023186   (725530) от 04.06.2016
+
+Эль Луна | Между надо и хочу. Найди свой путь и следуй ему (2016) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркая книга, которая вдохновит вас на то, чтобы найти свое истинное призвание и следовать ему.
+
+Кто из нас не задавался вопросом: «Как мне найти свое истинное призвание?» Эль Луна характеризует его как перекресток между «надо» и «хочу». «Надо» — это то, что мы должны делать, как нам кажется, или что от нас ожидают другие. «Хочу» — то, о чем мы мечтаем в глубине души. (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48D6C5A8501BACFA4C194DA777E48F819B49655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891460   (725256) от 23.04.2015
+
+Аннет Прен, Кьелд Фреденс | Музыка мозга (2015) [PDF, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как лучше понять себя и достичь своих целей в карьере и жизни? Сочетая в себе музыкальное мышление и актуальные исследования работы мозга, эта книга способна вдохновить вас на успешные перемены в жизни. Ваш мозг и только он — ключ к успеху. То, что происходит внутри него, определяет, насколько успешно вы контролируете свою жизнь. Основная задача этой книги — продемонстрировать (   Читать дальше...   )Жанр: личностный ростФормат: PDF, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D804635719E116F38A51D0A46953D1631F7433D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218268   (725025) от 08.04.2018
+
+Мария Рыбина | Сейчастье. 52 идеи заботы о себе (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть люди «сейчас»ные, а есть «потом»ные. Одни живут воспоминаниями и мечтами о призрачном будущем, а другие — в настоящем моменте. Их успех — не результат какого-то озарения или тайных секретных практик, а умение делать маленькие шаги, ведущие к большим результатам. Если вы чувствуете себя опустошенным и выдохшимся, книга для вас.
+
+В ней два смысловых раздела: один (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C043E90D96FE38DDB789C6BE8C2A63D6239A2958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285092   (724330) от 24.02.2019
 
 Дэйв Креншоу | Миф о многозадачности. К чему приводит стремление успеть все (2010) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +88,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724330.jpg" />
+  <img src="Z:/picture/008/save_picture_724330.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724322.jpg" />
+  <img src="Z:/picture/008/save_picture_724322.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724318.jpg" />
+  <img src="Z:/picture/008/save_picture_724318.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722447.jpg" />
+  <img src="Z:/picture/008/save_picture_722447.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721068.jpg" />
+  <img src="Z:/picture/008/save_picture_721068.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721066.jpg" />
+  <img src="Z:/picture/008/save_picture_721066.jpg" />
 </div>
 
 
@@ -163,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721062.jpg" />
+  <img src="Z:/picture/008/save_picture_721062.jpg" />
 </div>
 
 
@@ -191,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721049.jpg" />
+  <img src="Z:/picture/008/save_picture_721049.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720928.jpg" />
+  <img src="Z:/picture/008/save_picture_720928.jpg" />
 </div>
 
 
@@ -243,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720818.jpg" />
+  <img src="Z:/picture/008/save_picture_720818.jpg" />
 </div>
 
 
@@ -269,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719504.jpg" />
+  <img src="Z:/picture/008/save_picture_719504.jpg" />
 </div>
 
 
@@ -295,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718584.jpg" />
+  <img src="Z:/picture/008/save_picture_718584.jpg" />
 </div>
 
 
@@ -321,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716342.jpg" />
+  <img src="Z:/picture/008/save_picture_716342.jpg" />
 </div>
 
 
@@ -347,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716334.jpg" />
+  <img src="Z:/picture/008/save_picture_716334.jpg" />
 </div>
 
 
@@ -373,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716318.jpg" />
+  <img src="Z:/picture/008/save_picture_716318.jpg" />
 </div>
 
 
@@ -399,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715340.jpg" />
+  <img src="Z:/picture/008/save_picture_715340.jpg" />
 </div>
 
 
@@ -425,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715139.jpg" />
+  <img src="Z:/picture/008/save_picture_715139.jpg" />
 </div>
 
 
@@ -451,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714757.jpg" />
+  <img src="Z:/picture/008/save_picture_714757.jpg" />
 </div>
 
 
@@ -478,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714664.jpg" />
+  <img src="Z:/picture/008/save_picture_714664.jpg" />
 </div>
 
 
@@ -504,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714618.jpg" />
+  <img src="Z:/picture/008/save_picture_714618.jpg" />
 </div>
 
 
@@ -530,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713412.jpg" />
+  <img src="Z:/picture/008/save_picture_713412.jpg" />
 </div>
 
 
@@ -556,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713387.jpg" />
+  <img src="Z:/picture/008/save_picture_713387.jpg" />
 </div>
 
 
@@ -584,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713179.jpg" />
+  <img src="Z:/picture/008/save_picture_713179.jpg" />
 </div>
 
 
@@ -597,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA72F45B9FB5D0278C6EDDD84EEEE82E315D994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219526   (711570) от 15.04.2018
-
-Лео Борманс (ред.) | Lykke. Секреты самых счастливых людей (2018) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слово СЧАСТЬЕ на всех языках звучит по-разному, но означает одни и те же чувства - благополучия и радости от жизни.
-
-Эксперты из 50 стран мира, говорящие на разных языках - ученые, психологи, социологи и экономисты и журналисты, объединились, чтобы раскрыть 100 секретов, которые делают людей счастливыми по всему миру.
-(   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F602455D4B1193B28E795476E89142FD32B409C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286718   (710751) от 03.03.2019
-
-Филип Тетлок, Дэн Гарднер | Думай медленно – предсказывай точно. Искусство и наука предвидеть опасность (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новую работу Филипа Тетлока, известного психолога, специалиста в области психологии политики, созданную в соавторстве с известным научным журналистом Дэном Гарднером, уже называют "самой важной книгой о принятии решений со времен "Думай медленно - решай быстро" Дэниеля Канемана". На огромном, остро актуальном материале современной геополитики (   Читать дальше...   )Жанр: Зарубежная психология, Личная эффективность, Саморазвитие/личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D897DBADF3623811311D115D73D1B7263A4053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893850   (710710) от 30.04.2015
-
-Николас Эпли | Интуиция. Как понять, что чувствуют, думают и хотят другие люди (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как понять, о чем думают другие люди и чего они хотят? Подчас мы неосознанно делаем об этом выводы, полагаясь на житейский опыт, информированность и «внутренний голос». Как же на самом деле работает загадочный механизм под названием «интуиция»? Опираясь на данные научных исследований, психолог Николас Эпли объясняет, как действует наш мозг и почему мы способны читать чужие мысли. Он рассказывает, как с помощью интуиции избежать заблуждений и традиционных ловушек мышления. Прочитав эту книгу, вы узнаете, как (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E060A8D9B089CFE72B8CD30460F0051B8D8213
 ```
 
 https://mybot314.ru/tekegram_catalog/

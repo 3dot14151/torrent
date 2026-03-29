@@ -1,3 +1,135 @@
+###  Публикация: 1469834   (1016071) от 14.05.2021
+
+Хаим Шапира | Восемь этюдов о бесконечности. Математическое приключение (2021) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Математические формулы – такое же чудо, как и гениальные произведения великих композиторов и писателей, утверждает автор нескольких бестселлеров, математик и философ Хаим Шапира. Всем, кто желает расширить свой кругозор, он предлагает познакомиться с математическими теориями, касающимися самой красивой из концепций, когда-либо созданных человечеством, – концепцией (   Читать дальше...   )Жанр: Математика, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF10A349B2A114B60309EFE98AA11B305390362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470202   (1015941) от 15.05.2021
+
+Менно Схилтхёйзен | Дарвин в городе: как эволюция продолжается в городских джунглях (2021) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голуби, белки, жуки, одуванчики – на первый взгляд городские флора и фауна довольно скучны. Но чтобы природа заиграла новыми красками, не обязательно идти в зоопарк или включать телевизор. Надо просто знать, куда смотреть и чему удивляться. В этой книге нидерландский эволюционный биолог Менно Схилтхёйзен собрал поразительные примеры того, как от жизни в городе меняются (   Читать дальше...   )Жанр: Естествознание, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D388334E374397CE126882C651D04E2DA6C70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474445   (1012965) от 02.06.2021
+
+Улдис Заринс | Форма головы и шеи / Form of the Head and Neck (2021) [PDF] [En]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мышцы лица, как вы, вероятно, обнаружили, не имеют почти никакого отношения к окончательной форме лица. Эта книга объясняет не только анатомию, но и взаимосвязь между анатомией и формой.Жанр: АнатомияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85C7698BA6C64551367F903A5EBC74D8F9ECAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475065   (1012371) от 06.06.2021
+
+Владимир Бубнов | Информатика и информация: знаково-символьный аспект (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012371.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу данной работы положено представление о том, что информация – это содержание символа, изображенного различными графическими конструкциями. В монографии обсуждаются все аспекты измерения и переработки информации посредством анализа графических символьных конструкций.
+Книга может быть использована студентами и аспирантами высших учебных заведений при изучении (   Читать дальше...   )Жанр: Учебные пособияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1727B8D1E50DE712DD097764DA7AFD47237D605B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480796   (1008666) от 30.06.2021
+
+Хосе Луис Кордейро, Дэвид Вуд | Смерть должна умереть. Наука в борьбе за наше бессмертие (2021) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008666.jpg" />
+</div>
+
+
+###  Подробнее
+
+90 % жителей развитых стран умирают из-за старения организма. Связанные со старением процессы провоцируют развитие сердечно-сосудистых и онкологических заболеваний и деменции. Однако так будет не всегда.
+Авторы книги – инженер и ученый Хосе Луис Кордейро и пионер индустрии смартфонов, соучредитель Symbian инженер Дэвид Вуд, возглавляющие международную организацию (   Читать дальше...   )Жанр: Научно-популярная литература,  Биология и эволюцияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E714C39043DDFA235C9FF83AE50617EE604CB81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481267   (1008420) от 02.07.2021
 
 Анри Пуанкаре | Теорема века. Мир с точки зрения математики (2020) [FB2]
@@ -6,7 +138,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008420.jpg" />
 </div>
 
 
@@ -34,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006834.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006721.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005408.jpg" />
 </div>
 
 
@@ -114,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003418.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000800.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000362.jpg" />
 </div>
 
 
@@ -195,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994449.jpg" />
 </div>
 
 
@@ -221,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990139.jpg" />
 </div>
 
 
@@ -250,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984830.jpg" />
 </div>
 
 
@@ -278,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983425.jpg" />
 </div>
 
 
@@ -306,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980598.jpg" />
 </div>
 
 
@@ -334,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977986.jpg" />
 </div>
 
 
@@ -360,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975825.jpg" />
 </div>
 
 
@@ -386,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972022.jpg" />
 </div>
 
 
@@ -412,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968823.jpg" />
 </div>
 
 
@@ -438,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966999.jpg" />
 </div>
 
 
@@ -464,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966500.jpg" />
 </div>
 
 
@@ -490,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964608.jpg" />
 </div>
 
 
@@ -516,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964557.jpg" />
 </div>
 
 
@@ -542,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963571.jpg" />
 </div>
 
 
@@ -553,151 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5B22F9C5EC18C0EA5114786C52EC699DA22450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978495   (963431) от 23.01.2016
-
-Т. М. Воробьева (ред.) | Бельгия. Справочная карта (1980) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963431.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Бельгии с административным делением (масштаб 1:500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CA32469F618CCA07BA756F067FD0714B3511AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977865   (963370) от 23.01.2016
-
-Н. Н. Федотова, Т. А. Романова (ред.) | Бангладеш. Справочная карта (1979) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963370.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Бангладеш с административным делением (масштаб 1:1 000 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BAF8DF2A2563B15AD5C0A3AEC67FA6E93EAA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979214   (959686) от 26.01.2016
-
-В. Н. Пенькова, Д. А. Коваленко (ред.) | Бенин. Справочная карта (1986) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Бенина с административным делением (масштаб 1:1 000 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510BE457E4FB689ECA03E276538E42A72EEC9F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978818   (959661) от 26.01.2016
-
-А. Г. Чимшидова (ред.)| Бельгия. Справочная карта (2003) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959661.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Бельгии с административным делением (масштаб 1:500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF23220E8AB4BC9B9F9694301D5627C56EA0A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979841   (955834) от 29.01.2016
-
-К. И. Махрова, З. П. Пехова (ред.) | Бирма. Справочная карта (1983) [JPG]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Бирмы с административным делением (масштаб 1:2 000 000).
-2) Указатель географических названий в алфавитном порядке (утерян).
-3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F4D9A9FA8C4D70C2F17967BFA0ADE3A1A5665B
 ```
 
 https://mybot314.ru/tekegram_catalog/

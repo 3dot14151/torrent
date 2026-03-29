@@ -1,3 +1,29 @@
+###  Публикация: 1040067   (588300) от 03.08.2016
+
+Картинки - Digital Wallpapers Vol.6 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_588300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция картинок на различную тематику.Формат: JPGРазрешение файлов: 1600х1000 - 3840х2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1AD3D744D13DE219588A08383FB63A9AFFE2837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918237   (587999) от 14.07.2015
 
 Обои - Автомобиль Lexus [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587999.jpg" />
+  <img src="Z:/picture/008/save_picture_587999.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587942.jpg" />
+  <img src="Z:/picture/008/save_picture_587942.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587865.jpg" />
+  <img src="Z:/picture/008/save_picture_587865.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587839.jpg" />
+  <img src="Z:/picture/008/save_picture_587839.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Wallpapers - Ретро автомобили 1920-1970 [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587758.jpg" />
+  <img src="Z:/picture/008/save_picture_587758.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587718.jpg" />
+  <img src="Z:/picture/008/save_picture_587718.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587682.jpg" />
+  <img src="Z:/picture/008/save_picture_587682.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586831.jpg" />
+  <img src="Z:/picture/008/save_picture_586831.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586821.jpg" />
+  <img src="Z:/picture/008/save_picture_586821.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586609.jpg" />
+  <img src="Z:/picture/008/save_picture_586609.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585998.jpg" />
+  <img src="Z:/picture/008/save_picture_585998.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585964.jpg" />
+  <img src="Z:/picture/008/save_picture_585964.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585951.jpg" />
+  <img src="Z:/picture/008/save_picture_585951.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585741.jpg" />
+  <img src="Z:/picture/008/save_picture_585741.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585683.jpg" />
+  <img src="Z:/picture/008/save_picture_585683.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584723.jpg" />
+  <img src="Z:/picture/008/save_picture_584723.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584664.jpg" />
+  <img src="Z:/picture/008/save_picture_584664.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584163.jpg" />
+  <img src="Z:/picture/008/save_picture_584163.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584095.jpg" />
+  <img src="Z:/picture/008/save_picture_584095.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584088.jpg" />
+  <img src="Z:/picture/008/save_picture_584088.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584070.jpg" />
+  <img src="Z:/picture/008/save_picture_584070.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583786.jpg" />
+  <img src="Z:/picture/008/save_picture_583786.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583647.jpg" />
+  <img src="Z:/picture/008/save_picture_583647.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582736.jpg" />
+  <img src="Z:/picture/008/save_picture_582736.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582712.jpg" />
+  <img src="Z:/picture/008/save_picture_582712.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2896374C579E001B3D145127D643D8DCB4F782C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919367   (582619) от 19.07.2015
-
-Современное искусство - Josephine Wall / Жозефин Уолл [JPG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картины замечательной английской художницы Жозефин Уолл в стиле фэнтези отличаются невероятным обилием деталей и яркими необычными сочетаниями цветов, которые стали своеобразным брендом художницы. Такие полотна можно рассматривать часами. Жозефин Уолл работает в основном с акриловыми красками, которые позволяют ей рисовать быстро и создавать множество текстурных (   Читать дальше...   )Формат: JPGРазрешение файлов: 663х900 — 1990х1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA5383B502F040BEE920F40508EF2C96AB3BB17
 ```
 
 https://mybot314.ru/tekegram_catalog/

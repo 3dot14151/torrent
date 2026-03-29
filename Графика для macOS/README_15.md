@@ -1,3 +1,30 @@
+###  Публикация: 1252618   (407901) от 06.10.2018
+
+Adobe Type Manager Deluxe 4.6.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это последняя версия, после которой, к сожалению, поддержка, раздача и т.д. официально уже не осуществляется (с июля 2002-го).
+  Работает с PS, TTF, OTF шрифтами, позволяет создавать наборы шрифтов (внутри программы),  "на лету" включать-выключать шрифты или целые наборы, формировать "shortlist" с превью установленных шрифтов для печати для каждого (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: AdobeПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0B300E768AAE3B3D5F6D761E3A5B746506079F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252707   (407689) от 06.10.2018
 
 Vertus Fluid Mask 3.3.18 [Multi]
@@ -6,7 +33,7 @@ Vertus Fluid Mask 3.3.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407689.jpg" />
+  <img src="Z:/picture/008/save_picture_407689.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Sketch 58 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407282.jpg" />
+  <img src="Z:/picture/008/save_picture_407282.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Passport Photo 1.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401329.jpg" />
+  <img src="Z:/picture/008/save_picture_401329.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ DxO OpticsPro Elite 11.4.3 (build 71) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399361.jpg" />
+  <img src="Z:/picture/008/save_picture_399361.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Priime Styles 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391957.jpg" />
+  <img src="Z:/picture/008/save_picture_391957.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Intaglio 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381772.jpg" />
+  <img src="Z:/picture/008/save_picture_381772.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ Color Finale Pro 2 v2.2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380458.jpg" />
+  <img src="Z:/picture/008/save_picture_380458.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Watercolor Studio Pro 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379527.jpg" />
+  <img src="Z:/picture/008/save_picture_379527.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Icon Plus - Icon & Logo Design 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379404.jpg" />
+  <img src="Z:/picture/008/save_picture_379404.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Red Giant Shooter Suite 13.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375000.jpg" />
+  <img src="Z:/picture/008/save_picture_375000.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ PictureCode Photo Ninja 1.3.8b [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374511.jpg" />
+  <img src="Z:/picture/008/save_picture_374511.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373974.jpg" />
+  <img src="Z:/picture/008/save_picture_373974.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ Capture One Pro 8.3.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367219.jpg" />
+  <img src="Z:/picture/008/save_picture_367219.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Photo Size Optimizer (was IMAGEmini) 1.71 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366777.jpg" />
+  <img src="Z:/picture/008/save_picture_366777.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ Adobe Photoshop CC 2018 v19.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364685.jpg" />
+  <img src="Z:/picture/008/save_picture_364685.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ MyBrushes - Sketch, Paint, Design 2.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361187.jpg" />
+  <img src="Z:/picture/008/save_picture_361187.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ Image2Icon Pro 2.9.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361040.jpg" />
+  <img src="Z:/picture/008/save_picture_361040.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ Topaz Sharpen AI 1.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360658.jpg" />
+  <img src="Z:/picture/008/save_picture_360658.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ Super Eraser Pro 2.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359033.jpg" />
+  <img src="Z:/picture/008/save_picture_359033.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ Vector Magic Desktop Edition 1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357566.jpg" />
+  <img src="Z:/picture/008/save_picture_357566.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ Vector Magic Desktop Edition 1.20 (+fix for macOS 10.12) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356222.jpg" />
+  <img src="Z:/picture/008/save_picture_356222.jpg" />
 </div>
 
 
@@ -567,7 +594,7 @@ GraphicConverter 11 v.11.6.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354822.jpg" />
+  <img src="Z:/picture/008/save_picture_354822.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ Magic Retouch Pro 4.3 - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353570.jpg" />
+  <img src="Z:/picture/008/save_picture_353570.jpg" />
 </div>
 
 
@@ -621,7 +648,7 @@ DesiGN Brochures Templates 2.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353556.jpg" />
+  <img src="Z:/picture/008/save_picture_353556.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ Artstudio Pro 4.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352321.jpg" />
+  <img src="Z:/picture/008/save_picture_352321.jpg" />
 </div>
 
 
@@ -660,32 +687,6 @@ Artstudio Pro 4.1.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6336CFF2F0B9D22B82CE162E8A8FEB242F35C65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256796   (351994) от 23.10.2018
-
-Artistry Photo Pro: Photo Edit 3.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте скрытый потенциал на ваших фотографиях с помощью этого мощного редактора фотографий. Благодаря встроенным более 100 эффектам, более 90 типов настроек для настройки фотографий с цветовой обработки на гамма и корректировки кривой тона, наши инструменты редактирования дают пользователям возможность применить эффект или несколько эффектов для всей фотографии. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2018Разработчик: It's About Time ProductsПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04077FC75EFC2C2E611D44C3295FAE7070D7A7A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

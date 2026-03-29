@@ -1,3 +1,81 @@
+###  Публикация: 1766573   (33669) от 19.12.2024
+
+Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33669.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Uptown Funk» (UpTown Funk!) — песня британского автора-исполнителя и продюсера Марка Ронсона при участии американского певца Бруно Марса, изданная 10 ноября 2014 года в качестве первого сингла с его четвёртого студийного альбома Uptown Special на лейбле Sony Music Entertainment. Видеоклип вышел 17 ноября 2014 года, а 19 ноября появился на каналах Vevo и YouTube.Жанр: Фанк, Буги, Minneapolis soundПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5BFF7A3D51C18FFF21C822FD9ED3DDBF995292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766572   (33664) от 19.12.2024
+
+Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33664.jpg" />
+</div>
+
+
+###  Подробнее
+
+«24K Magic» («twenty-four karat magic») — песня американского певца Бруно Марса с его третьего одноимённого студийного альбома 24K Magic (2016). Музыкальное видео вышло 7 октября 2016.Жанр: Синтипоп, фанк, диско, R&BПродолжительность: 00:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2DDCD390F84FC9C0EFDDD4BC444F740A817F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766575   (33660) от 19.12.2024
+
+Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33660.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girl on Fire» - песня, записанная американской певицей-песенницей Алишей Киз для ее пятого одноименного студийного альбома. В версию Inferno была включена Ники Минаж, которая написала и исполнила два новых куплета. Видео на версию Inferno было загружено на VEVO 2 ноября 2012 года.Жанр: R&BПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4375468AD041D7CFA987313F10E74FFF226A4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766576   (33654) от 19.12.2024
 
 The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +84,7 @@ The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33654.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33650.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32746.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32721.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29259.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29258.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29119.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28242.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28042.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28030.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ NЮ – Некуда бежать (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27835.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27831.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21260.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20815.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17884.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17691.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ STAYC - BEBE (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12171.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ Girls' Generation - Paparazzi (2012) WEBRip [H.265/2160p] [60fps, AI Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12157.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ Seogi - Nap (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12148.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9573.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7509.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7480.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7453.jpg" />
 </div>
 
 
@@ -600,84 +678,6 @@ NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:851E22A593097DD0B077146B49FCC53CE2391AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812826   (7434) от 16.08.2025
-
-HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CC34264F01B59116051E426F3CBB47CFBE05FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812798   (7433) от 16.08.2025
-
-STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2FDBC0E3CC77839345F53E927EBBBE813FCEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814095   (6282) от 23.08.2025
-
-Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE58F2695AA1FFD8E58A835182BD93AE6FC992D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

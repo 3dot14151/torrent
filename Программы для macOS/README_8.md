@@ -1,3 +1,136 @@
+###  Публикация: 1454966   (1026026) от 17.03.2021
+
+Cardhop 1.3.8 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026026.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2021Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8130D5F9F63F60CB1CFDAF35F6710053A060F32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455002   (1026018) от 17.03.2021
+
+KCNcrew Pack 03-15-21 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026018.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.03.2021Разработчик: iSerialПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F656E124918E74C7B31F14FEB14AA050D301D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454976   (1026008) от 17.03.2021
+
+Duplicate Music Cleaner 1.4.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Music Cleaner - это мощный инструмент для поиска дубликатов, который сканирует ваш жесткий диск на наличие аудиофайлов и удаляет повторяющиеся файлы. Можно просматривать результаты сканирования и автоматически отмечать дубликаты файлов в соответствии с предоставленными параметрами.Тип издания: macOS SoftwareРелиз состоялся: 04.06.2020Разработчик: CluBees TechПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23933B67FC1FA3F14DCC7E6C993D3BB233266E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455007   (1025997) от 17.03.2021
+
+Kit for Affinity-Templates 1.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор шаблонов для  Affinity Designer, Affinity Photo и Affinity Publisher.
+Все файлы имеют формат .afdesign, вы можете настраивать их с помощью приложения Affinity Designer или Affinity Photo. Шаблоны представлены в легко редактируемых форматах Affinity, поэтому вы можете легко изменять, модифицировать, настраивать элементы и слои для достижения идеального дизайна (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2021Разработчик: Splash Colors MChJПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2B8F12DF1ACBCD7C8F8E71570C22962C389E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455017   (1025951) от 17.03.2021
+
+TotalFinder 1.13.10 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025951.jpg" />
+</div>
+
+
+###  Подробнее
+
+TotalFinder – это набор полезных утилит, расширяющих исходную функциональность файлового менеджера Mac OS X Finder. Главной особенностью предлагаемого продукта является поддержка вкладок, в которых могут открываться отдельные окна «проводника».
+Приложение TotalFinder обладает исключительной производительностью, удобным пользовательским интерфейсом, компактными размерами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.03.2021Разработчик: BinaryageПоддерживаемая ОС: OS X 10.15 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D43BC50F7676F2CA63C016E86F1F13D1345D7BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455231   (1025857) от 18.03.2021
 
 Acorn 6 v6.6.4 [En]
@@ -6,7 +139,7 @@ Acorn 6 v6.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025857.jpg" />
 </div>
 
 
@@ -33,7 +166,7 @@ WidsMob ImageConvert - JPG/PNG 2.17 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025840.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ Easy Translation 1.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025817.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ WidsMob Portrait Pro 2.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025803.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ Allegorithmic Substance Designer 2021.1.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025797.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ Paragon Firewall - Network Monitor for Mac 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025789.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ BetterZip 5 v5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025754.jpg" />
 </div>
 
 
@@ -190,7 +323,7 @@ Wondershare PDFelement Pro 7.6.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025751.jpg" />
 </div>
 
 
@@ -216,7 +349,7 @@ Mountain Duck 4.5.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025594.jpg" />
 </div>
 
 
@@ -244,7 +377,7 @@ Adobe Prelude 2021 v10.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025442.jpg" />
 </div>
 
 
@@ -270,7 +403,7 @@ BatChmod for Mac 17b5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025432.jpg" />
 </div>
 
 
@@ -297,7 +430,7 @@ Windows Grid 1.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025307.jpg" />
 </div>
 
 
@@ -323,7 +456,7 @@ Native Instruments Kontakt 6 v6.5.2 STANDALONE, VSTi, AU [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025235.jpg" />
 </div>
 
 
@@ -349,7 +482,7 @@ Screencast 1.9.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025136.jpg" />
 </div>
 
 
@@ -375,7 +508,7 @@ NoteBurner Netflix Video Downloader 1.2.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024922.jpg" />
 </div>
 
 
@@ -401,7 +534,7 @@ Planner 5D 4.4.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024882.jpg" />
 </div>
 
 
@@ -427,7 +560,7 @@ Topaz Products Unlock Kit 2 for Mac [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024822.jpg" />
 </div>
 
 
@@ -453,7 +586,7 @@ Rsync Server Basic Edition 2018.08.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024633.jpg" />
 </div>
 
 
@@ -479,7 +612,7 @@ TurboCAD Pro 12.0.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024586.jpg" />
 </div>
 
 
@@ -505,7 +638,7 @@ Allegorithmic Substance Painter 2021.1.1  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024575.jpg" />
 </div>
 
 
@@ -531,7 +664,7 @@ NoteBurner Spotify Music Converter 2.1.3 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024552.jpg" />
 </div>
 
 
@@ -542,140 +675,6 @@ NoteBurner Spotify Music Converter - это хорошо продуманный 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B764E1FD4FB69465E133FE8B649139977D18269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457691   (1024451) от 26.03.2021
-
-Artboard 2.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artboard – инструмент создания векторных иллюстраций для Mac OS. Приложение Artboard тесно интегрируется с современными технологиями, отличается поддержкой планшетных средств ввода, кривых Безье, мощными средствами для работы с текстом, обширной библиотекой готовых стилей и объектов «clip art», включающей в себя более 1600 элементов и поддержкой высоких разрешений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2021Разработчик: Mapdiva, Pty LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB40BFA8AEA32EE2968070DE94E5E96FBA45246A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457445   (1024443) от 26.03.2021
-
-EditReady 2.7.2 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
-Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
-
-Поддерживает контейнеры:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24.03.2021Разработчик: DivergentmediaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9B556D41129F84AF700CFE1E8CF66AEE9BFFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457419   (1024438) от 26.03.2021
-
-WidsMob Image Viewer 2.14 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повысьте качество просмотра фотографий с помощью приложения WidsMob Image Viewer, которое позволяет просматривать одно, несколько изображений или изображения на основе папок на вашем Mac с исключительно высокой скоростью одним щелчком мыши.
-Интуитивное управление изображениями - WidsMob Viewer - единственный органайзер и менеджер фотографий, который вам нужен для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4278BDAB69BE6D4D2A13645158BA17BB2C75030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457418   (1024394) от 26.03.2021
-
-WidsMob Portrait Pro 4.10 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024394.jpg" />
-</div>
-
-
-###  Подробнее
-
-WidsMob Portrait интеллектуально определяет и украшает каждый аспект портретного изображения. Комплексный и интуитивно понятный контроль над лицом, глазами, щеками, шумом, зубами, блеском, кожей и другими аспектами макияжа. Программное обеспечение для ретуширования портретов также обеспечивает удаление пятен и мешков одним щелчком мыши.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FC35D65EE494E7593BCDEDC2C0E66F5A2469A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457412   (1024387) от 26.03.2021
-
-Sharks 3D 2.0.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кого миллионы людей никогда не встречали в живой природе? О ком сняты леденящие душу триллеры? Каким живым существам больше 400 миллионов лет? Всё это об акулах. Запустите Акулы 3D и наблюдайте за жизнью акул в естественной среде.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: 3PlanesoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8773D20D8657AB2BDE03E734BCC1DD9C7541880
 ```
 
 https://mybot314.ru/tekegram_catalog/

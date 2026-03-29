@@ -1,3 +1,61 @@
+###  Публикация: 978694   (960941) от 25.01.2016
+
+VA - Зимний Муз-драйв 100-ка популярной музыки (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NikitA - Вдыхай
+02. Sasha Lopez - Moments ft Ale Blake & Broono (Extended Club Mix)
+03. Дима Билан - Неделимые
+04. Alex Kafer & Lera Feat. Ural Djs - Алешка(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126BB984306825319E14C44DA370626654966C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979272   (959653) от 26.01.2016
+
+VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ева Польна - Мало
+02. Ёлка - Праздник К Нам Приходит!
+03. Kristina Si - Не Обижай Меня
+04. Milki - Лапочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 748527   (957306) от 23.01.2014
 
 Joy - 25 Best Songs (2012) [MP3|~245 кб/с]<Eurodance>
@@ -6,7 +64,7 @@ Joy - 25 Best Songs (2012) [MP3|~245 кб/с]<Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957306.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955709.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955510.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Romantic Souls: Popular Lyric Collection (2020) [MP3|320 Kbps] <Pop, Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955405.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Discoteka 2016 Dance Club. New Year's release (2016) [MP3|320 Kbps] <House,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955145.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Стопудовые зимние хиты. Сборник № 2 (2016) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954023.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Отрывайся с лучшими хитами. Выпуск № 7 (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954021.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Начинаем отмечать! №4 (2016) [MP3|192-256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953915.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Зимний драйв 50/50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953913.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Начинаем отмечать! №3 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953910.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Полный отрыв. Зимние хиты. Сборник № 2 (2016)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953897.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Mark Ashley - Best Of Mark Ashley (2015) [MP3|320 Kbps] <Disco,  Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953788.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Зимний TOP 100. Зарубежный выпуск (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953773.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Взрывной хит-парад. Сборник № 5 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953761.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Звездная вечеринка. Зарядись хитами. Сбо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953753.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Новогодние чарты FM радиостанций (2016) [MP3|64-
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953749.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Зимние мега хиты. Версия 50/50 (2016) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953705.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Снежный коктейль. Зарубежная версия (2016) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953692.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Музыкальные новинки. Only Best Hits. Сборник № 4
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953690.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Начинаем отмечать! №2 (2016) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953610.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Танцевальная зима. Снежная 100-ка. Часть № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953184.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Зайцев нет. Январский топ 100 (2016) [MP3|256 - 320 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952536.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Зарубежные хиты экспресс. Версия № 2 (2016) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951898.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Hit 200 Zaycev: Popular Dance Mix (2017) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951731.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Hit 200 Zaycev: Popular Dance Mix (2017) [MP3|256-320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A45C5E29D20A741BC7FD1F47ABD01178D830E509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084915   (951379) от 03.01.2017
-
-VA - Pioneer Studio 33,5 - Disco CCCP 3 (Переиздание) (2016) [MP3|320 Kbps] <Disco, EuroDisco, Dance, Electronic, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yur An & Alex - Солнечное регги (Sunshine Reggae by Laid Back)
-02. Alex Neo & Antony Ganion - Неизвестная дорога (Cant Get Enough by Modern Talking)
-03. Modern Tracking - Замки из стекла (House Of Mystic Lights by C.C. Catch)
-04. Modern Tracking - Вампир (Vampire by Blue System)(   Читать дальше...   )Жанр: Disco, EuroDisco, Dance, Electronic, PopПродолжительность: 02:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B812ACD82A39C5903BCB7F8F2514AFDFBCCD09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089455   (950699) от 04.01.2017
-
-VA - Русский зимний музобоз (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adil Karaca - Музыка 3:52
-002. Лена Максимова - Счастье Внутри 3:50
-003. Саша Жемчугова - Кто-То За Нас 4:06
-004. Мулат - Включила Заднюю 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

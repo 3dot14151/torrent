@@ -6,7 +6,7 @@ VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130308.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130302.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Michael Simon - Salama (2022) [AAC|~311 Kbps] <Deep House, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130298.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Peace Garden (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130292.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Deep Relaxation 2k22 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130279.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Shanti People - Urban Mantras (2015) [AAC|~295 Kbps] <Folk, EDM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130278.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Sun & Chill, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130277.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ For Found Future - Ambient Story (An Electronic Downbeat Journey from Chill to L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130276.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Pure Deluxe 3 (2014) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130273.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Sun & Chill, Vol. 4 (2019) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130271.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Sun & Chill, Vol. 3 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130269.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - 5 Years of Nazca compilation (2022) [AAC|~335 Kbps] <Organic House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130016.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - The Best of Transensations 2021 (2022) [AAC|~332 Kbps] <Progressive House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130015.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - A 40 Track Compilation: New York (2022) [AAC|~332 Kbps] <Progressive House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130014.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Guitar Chillout Lounge 3 (2013) [AAC|~316 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130010.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Guitar Chillout Lounge 2 (2015) [AAC|~348 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130003.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Guitar Chillout Lounge 4 (2015) [AAC|~339 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129997.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Birds ov Paradise - Memorial (2022) [AAC|~343 Kbps] <Atmospheric Techno, Deep Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129979.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Guitar Chillout Lounge 1 (2007) [AAC|~323 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129975.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129946.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Du
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129933.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129930.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Ambiental Journey: Chillout Your Mind (2022) [AAC|~343 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129556.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Lofi Evening (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Lo-Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129552.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Reggaeton World, Vol. 5 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129518.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Guenter Haas - Famous People (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129515.jpg" />
 </div>
 
 

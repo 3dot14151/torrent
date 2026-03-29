@@ -1,3 +1,85 @@
+###  Публикация: 1114741   (831846) от 15.03.2017
+
+Игорь Кохановский (сост.) | «Всё не так, ребята…» Владимир Высоцкий в воспоминаниях друзей и коллег (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Высоцкий давно стал легендой. Актер, поэт, кумир…
+
+В этой книге впервые под одной обложкой собраны воспоминания тех, с кем он дружил, кого любил, с кем выходил на подмостки. Юрий Петрович Любимов и коллеги-актеры: Алла Демидова, Валерий Золотухин, Вениамин Смехов, одноклассник Игорь Кохановский и однокашники по Школе-студии МХАТ, кинорежиссеры Александр (   Читать дальше...   )Жанр: Биографии и Мемуары, Документальная литература, Кинематограф, театр, МузыкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A6C2367A15D8620933EDECCAB607BDA8DB41D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380808   (831442) от 04.05.2020
+
+Гарольд Шехтер | Принцесса ада (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831442.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 1902 по 1908 год в различных штатах США бесследно исчезали мужчины: состоятельные холостяки, простые рабочие…
+А в 1908 году их тела были найдены на ферме благоприличной вдовы Белль Ганнесс – в выгребной яме, разрубленными на части…
+Кем же была она – самая жестокая женщина-убийца в истории США? Какая судьба постигла в действительности ее детей, официально считавшихся (   Читать дальше...   )Жанр: Популярно об истории, ПублицистикаПеревод: Е. РубинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFC76CD92122AC95D1600A626BCA87B30F6B123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380968   (829755) от 05.05.2020
+
+Э. А. Курбатов (сост.) | Каратель живет в Клифтоне [О фашистских приспешниках, укрывающихся в США] (1985) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — сборник очерков, написанных на основе документального материала, о тех, кто во время Великой Отечественной войны совершил тягчайшие преступления против советского народа и, избежав справедливого возмездия, нашел пристанище за океаном. Власти США, укрывая этих преступников, препятствуя преданию их суду, нарушают международные правовые нормы, — ведь на (   Читать дальше...   )Жанр: История, политология, правоведение, документалистика, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C04B22563161031D0514EDAA42DA334D7C448E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006343   (828894) от 11.04.2016
 
 Валерий Слезин | Россия — страна нормальных людей (2016) [FB2]
@@ -6,7 +88,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828894.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828868.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828482.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827967.jpg" />
 </div>
 
 
@@ -113,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827737.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827578.jpg" />
 </div>
 
 
@@ -165,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827165.jpg" />
 </div>
 
 
@@ -191,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826893.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824477.jpg" />
 </div>
 
 
@@ -243,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824242.jpg" />
 </div>
 
 
@@ -269,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824238.jpg" />
 </div>
 
 
@@ -297,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822507.jpg" />
 </div>
 
 
@@ -323,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822235.jpg" />
+  <img src="Z:/picture/008/save_picture_822235.jpg" />
 </div>
 
 
@@ -349,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821063.jpg" />
+  <img src="Z:/picture/008/save_picture_821063.jpg" />
 </div>
 
 
@@ -375,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820757.jpg" />
+  <img src="Z:/picture/008/save_picture_820757.jpg" />
 </div>
 
 
@@ -402,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820607.jpg" />
+  <img src="Z:/picture/008/save_picture_820607.jpg" />
 </div>
 
 
@@ -428,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820511.jpg" />
+  <img src="Z:/picture/008/save_picture_820511.jpg" />
 </div>
 
 
@@ -454,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819158.jpg" />
+  <img src="Z:/picture/008/save_picture_819158.jpg" />
 </div>
 
 
@@ -480,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817852.jpg" />
+  <img src="Z:/picture/008/save_picture_817852.jpg" />
 </div>
 
 
@@ -506,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817752.jpg" />
+  <img src="Z:/picture/008/save_picture_817752.jpg" />
 </div>
 
 
@@ -532,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815922.jpg" />
+  <img src="Z:/picture/008/save_picture_815922.jpg" />
 </div>
 
 
@@ -558,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815443.jpg" />
+  <img src="Z:/picture/008/save_picture_815443.jpg" />
 </div>
 
 
@@ -584,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815442.jpg" />
+  <img src="Z:/picture/008/save_picture_815442.jpg" />
 </div>
 
 
@@ -596,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60F01C754F82AA2D0E1DEB65C75283D0C4AD0EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383038   (815439) от 13.05.2020
-
-Микки Нокс | Меня зовут Джеффри Дамер. Подлинная история серийного убийцы (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815439.jpg" />
-</div>
-
-
-###  Подробнее
-
-История самого известного в мире «высокоактивного психопата». Коэффициент интеллекта Джеффри Дамера – высочайший среди серийных убийц и один из самых высоких в истории Штатов. Обладая внешностью актера и интеллектом гения, он работал на заводе и бредил мыслями о создании армии зомби. Когда полиция поймала его, он был счастлив, потому как сознавал, что попросту не (   Читать дальше...   )Жанр: Биографии и мемуары, Криминология, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD955842670F9963A401204FDE07CE2ADDF8EACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383041   (815311) от 13.05.2020
-
-Валерий Шамбаров | «Пятая колонна» и Русская Церковь. Век гонений и расколов (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда рухнул СССР, один из главных организаторов этой операции Збигнев Бжезинский заявил: «У нас теперь один враг – Русская Православная Церковь». Хотя она и от коммунистических властей терпела гонения! Парадокс? Нет. Западные правительства, спецслужбы и «закулиса» во все времена нацеливались разрушить не политическую систему в нашей стране, а историческую Россию (   Читать дальше...   )Жанр: История Православной Церкви, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD1FB12CEA212E4D901CFBD5C203396BDE6A644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008396   (815249) от 18.04.2016
-
-Николай Стариков | 1917. Разгадка «русской» революции (2012) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гибель Российской империи в 1917 году не была случайностью, как не случайно рассыпался и Советский Союз. В обоих случаях мощная внешняя сила инициировала распад России, используя подлецов и дураков, которые за деньги или красивые обещания в итоге разрушили свою собственную страну.
-
-История этой величайшей катастрофы до сих пор во многом загадочна, и вопросов здесь (   Читать дальше...   )Жанр: История, Публицистика, Социальная психологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DC814EC3FE94F3261EA3AF94DEE290994BE836
 ```
 
 https://mybot314.ru/tekegram_catalog/

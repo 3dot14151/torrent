@@ -1,3 +1,61 @@
+###  Публикация: 1171893   (394845) от 06.10.2017
+
+Elizabeth Cook - This Side of the Moon (2004) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_394845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cupid (2:50)
+02 - Funny Side of Love (2:07)
+03 - Before I Go That Far (3:21)
+04 - Here's to You (2:59)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D80FDF50B194D7923921ABB46906D809608E263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172075   (394842) от 06.10.2017
+
+Roger Subirana - The Round Dimension (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_394842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlantis (04:01)
+02. Vikings (03:59)
+03. As the Rain (04:26)
+04. Spheres (04:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC79164D03FD232B4FA9DCE4A96449813417D54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172131   (393924) от 07.10.2017
 
 Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [FLAC|Lossless|WEB-DL|tracks] <Score>
@@ -6,7 +64,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393924.jpg" />
+  <img src="Z:/picture/008/save_picture_393924.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по ле�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393706.jpg" />
+  <img src="Z:/picture/008/save_picture_393706.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392902.jpg" />
+  <img src="Z:/picture/008/save_picture_392902.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_391971.jpg" />
+  <img src="Z:/picture/005/save_picture_391971.jpg" />
 </div>
 
 
@@ -127,7 +185,7 @@ Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391533.jpg" />
+  <img src="Z:/picture/008/save_picture_391533.jpg" />
 </div>
 
 
@@ -162,7 +220,7 @@ Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391239.jpg" />
+  <img src="Z:/picture/008/save_picture_391239.jpg" />
 </div>
 
 
@@ -191,7 +249,7 @@ Meldis - Грани Миров (2013) [FLAC|Lossless|image + .cue] <Folk, Celtic
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391230.jpg" />
+  <img src="Z:/picture/008/save_picture_391230.jpg" />
 </div>
 
 
@@ -220,7 +278,7 @@ VA - Latino Hits Power (2017) [MP3|320 Kbps] <Latin Music, Reggaeton>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391153.jpg" />
+  <img src="Z:/picture/008/save_picture_391153.jpg" />
 </div>
 
 
@@ -249,7 +307,7 @@ Medwyn Goodall - Medicine Woman (The Lost Tracks) (2017) [FLAC|Lossless|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391149.jpg" />
+  <img src="Z:/picture/008/save_picture_391149.jpg" />
 </div>
 
 
@@ -278,7 +336,7 @@ Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390696.jpg" />
+  <img src="Z:/picture/008/save_picture_390696.jpg" />
 </div>
 
 
@@ -313,7 +371,7 @@ Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390602.jpg" />
+  <img src="Z:/picture/008/save_picture_390602.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389891.jpg" />
+  <img src="Z:/picture/008/save_picture_389891.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389699.jpg" />
+  <img src="Z:/picture/008/save_picture_389699.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Eshana - Kalpana (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Spiritual
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387755.jpg" />
+  <img src="Z:/picture/008/save_picture_387755.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Charles Segal - When You're in Trouble (2020) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387707.jpg" />
+  <img src="Z:/picture/008/save_picture_387707.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Tantric Music Masters - Fertility Energy of Couple’s Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387414.jpg" />
+  <img src="Z:/picture/008/save_picture_387414.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387405.jpg" />
+  <img src="Z:/picture/008/save_picture_387405.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387288.jpg" />
+  <img src="Z:/picture/008/save_picture_387288.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psyched
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387256.jpg" />
+  <img src="Z:/picture/008/save_picture_387256.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387235.jpg" />
+  <img src="Z:/picture/008/save_picture_387235.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387183.jpg" />
+  <img src="Z:/picture/008/save_picture_387183.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Wychazel - Ashram (2019) [MP3|320 Kbps] <New Age, Mantra>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386993.jpg" />
+  <img src="Z:/picture/008/save_picture_386993.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385551.jpg" />
+  <img src="Z:/picture/008/save_picture_385551.jpg" />
 </div>
 
 
@@ -695,7 +753,7 @@ Anthony Greninger - A Light in Darkness (2018) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385456.jpg" />
+  <img src="Z:/picture/008/save_picture_385456.jpg" />
 </div>
 
 
@@ -709,64 +767,6 @@ Anthony Greninger - A Light in Darkness (2018) [FLAC|Lossless|WEB-DL|tracks] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91BE4FA2BDF17544841C730557F3E7BED13B1405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253057   (385447) от 08.10.2018
-
-Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385447.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Perfect Silence (6:44)
- 2. Behind the Veil (6:16)
- 3. Eternal Journey (8:11)
- 4. Always and Forever (6:19)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED39D546628565D7ADC423A93766599A11082CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252981   (385347) от 08.10.2018
-
-Junichi Kamiyama - The Best Musics for Overcoming Anxiety and the Stress Management (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kokoro No Tsubasa
-02. Kagayaki No Naka De
-03. Resilience
-04. Courage(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF0744CFAB5B72C909E1FBD43991399690CE494
 ```
 
 https://mybot314.ru/tekegram_catalog/

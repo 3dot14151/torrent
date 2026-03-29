@@ -1,3 +1,90 @@
+###  Публикация: 1600468   (158731) от 27.12.2022
+
+Apex - Hollow (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hollow
+02 - Christ Complex
+03 - Wildlife
+04 - FAA(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A77CA1D0398D7F86479A96A0277BE99FA71C96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600453   (158730) от 27.12.2022
+
+Feelingless - Metal Against Animal Cruelty (2022) [FLAC|Lossless|WEB-DL|tracks] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelingless (feat. Bjorn Strid, Lawrence Dinamarca & Soilwork)
+02. Anguish (feat. Lawrence Dinamarca, Jon Howard, Gavin Iedema, Threat Signal & Neroargento)
+03. Peace (feat. Lawrence Dinamarca, Mikael Sehlin, Engel & Degradead)
+04. Love (feat. Ettore Rigott, Claudio R & Disarmonia Mundi)(   Читать дальше...   )Жанр: MDMПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F3E6E8E746CC02337853C09FF81DAB755203F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346654   (157905) от 20.12.2019
+
+Timo Tolkki - Classical Variations And Themes (1994) Reissue, 1996, NEMS Enterprises [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lord Of The Rings (5:41)
+02. Fire Dance Suite (4:58)
+03. Guitar Concerto (2:53)
+04. Northen Lights (2:18)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98A69EFBB1A36DB2A301F8C1BEB2CE5564B277B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600461   (157869) от 27.12.2022
 
 Kate Nord - Compass to Your Heart's Desire (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Fantasy Metal, Female Vocal>
@@ -6,7 +93,7 @@ Kate Nord - Compass to Your Heart's Desire (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157869.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157809.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Kampf - Nothing But Wrath (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157803.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Bethzaida - War Vol. II (1999) Split [FLAC|Lossless|image + .cue] <Death, Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157792.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Bethzaida - LXXVIII (1998) [FLAC|Lossless|image + .cue] <Deathб Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157788.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157782.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Dies Irae - Ethereal (1998) Remastered-2019 [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157767.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ Unheilig - Frohes Fest (2002) [FLAC|Lossless|image + .cue] <Industrial Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157762.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Unheilig - Phosphor (2001) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157753.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Unheilig - Zelluloid (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157735.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Unheilig - Moderne Zeiten (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157667.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Arrogant Destruktor - Written In Blood From The Blade (2023) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157529.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Riot - Rock World-Rare & Unreleased 87-95 (2020) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157362.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157345.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Riot - Archives Volume 5 : 1992-2005 (2020) 2CD [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157209.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Gates of Ishtar - At Dusk and Forever (1998) Japanese Ed. [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157023.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Royal Hunt - 15 Albums, 3 Compilations, 5 Lives, 6 Singles & EP (1992-2020) 36CD
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156924.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ AkiaveL - Veni Vidi Vici (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156167.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Spleen - Ocaso (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156113.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Hoax - Conscience (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Thrash, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156104.jpg" />
 </div>
 
 
@@ -581,7 +668,7 @@ Death Angel - The Bastard Tracks (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156071.jpg" />
 </div>
 
 
@@ -610,7 +697,7 @@ Act of Denial - Negative (2021) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156015.jpg" />
 </div>
 
 
@@ -639,7 +726,7 @@ Them - Manor of the Se7en Gables (2018) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155973.jpg" />
 </div>
 
 
@@ -653,93 +740,6 @@ Them - Manor of the Se7en Gables (2018) [FLAC|Lossless|image + .cue] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF2EADE2BDA5F1BD7136CA520DC53D3016DE275A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676651   (155907) от 14.11.2023
-
-Dark Reality - Blossom of Mourning (1995) [FLAC|Lossless|image + .cue] <Death, Folk Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Am Ende Des Weges (05:41)
-02. Ants Under Glass (05:16)
-03. In The Cathedral (07:22)
-04. Sint Lumbi Vestri (02:49)(   Читать дальше...   )Жанр: Death, Folk Metal, RockПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97699F4E62CF93712497FFA2824E80AE75DA0FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518435   (155902) от 19.12.2021
-
-The Grandmaster - Skywards (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunar Water (4:36)
-02. The Tempest (4:28)
-03. Someday Somehow (4:45)
-04. Dead Bond (3:30)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AEF2F19BF580954DCBBAFE2209D960B1D5ED56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676653   (155899) от 14.11.2023
-
-Dark Reality - Oh Precious Haze Pervade the Pain (1997) [FLAC|Lossless|image + .cue] <Death, Folk Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silberstreif (04:02)
-02. Rain Orison (05:22)
-03. Skytied (04:59)
-04. Spingono I Vecchi Giorni (03:35)(   Читать дальше...   )Жанр: Death, Folk Metal, RockПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB1050425ECB69965480CDA62771FC38EBD541D
 ```
 
 https://mybot314.ru/tekegram_catalog/

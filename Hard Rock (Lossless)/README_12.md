@@ -1,3 +1,61 @@
+###  Публикация: 1479686   (1009319) от 26.06.2021
+
+Rock-Out - Stand Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Rock'n'Roll Tonight
+02. Miss You
+03. Rolling Thunder
+04. Living on the Limit(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCC981C8C8E8450063CAE2ADF20041E42E59BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479714   (1009318) от 26.06.2021
+
+King Company - Trapped (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Be Here
+02. Trapped In Heart
+03. Stephanie
+04. Dangerous Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B63230F39017C876F165932A6AB45B1710C11E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479709   (1009297) от 26.06.2021
 
 Fargo - Strangers D'Amour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Fargo - Strangers D'Amour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009297.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Paul Gilbert - Werewolves Of Portland (2021) [FLAC|Lossless|tracks + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009164.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Steel Rangers - Scarred for Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008688.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Kenny Mcgee - Heartless Daze Two (2021) [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008332.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Midnite City - Itch You Can't Scratch (2021) [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008037.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Jakob Samuel - CoExist (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008035.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Band Of Brothers - Band Of Brothers (2017) [FLAC|Lossless|tracks + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008027.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Spearfish - The English Project (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007465.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Sonic Weapon - Vanity (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007458.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ American Crush - American Crush (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007325.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Kikimora - Dirty Nails (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007313.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Hardline - Heart, Mind And Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007311.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ The Ivory Lies - The Ivory Lies (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007181.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Waysted - The Harsh Reality (2007) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007179.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Reverend Jack - A Mile from Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007026.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - The Many Faces Of KISS: A Journey Through The Inner World Of KISS (2017) [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006861.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Appice - Sinister (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006672.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Escape Lane - The Ineluctable Truth (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006536.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Resurrection Kings - Skygazer (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006407.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Walk The Walk - Walk The Walk (2021) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006405.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Shotgun Mistress - Shotgun Mistress (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006296.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ The Dead Daisies - Holy Ground (2021) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006288.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Strykenine - Strykenine I (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006160.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Orlando Martins - Esses Homens De Guerra (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006158.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Orlando Martins - Esses Homens De Guerra (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:013DD6A4E18E8FC2C1FE3E36224AB2C42D343AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484818   (1005839) от 22.07.2021
-
-Dellacoma - Blood (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrenaline 03:49
-02. Defiance 02:55
-03. Kill Your Idols 03:16
-04. Akashic Memory 03:56(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECADE1A9A95C22AB0AB41D25492B5219D553AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484989   (1005744) от 23.07.2021
-
-Hardline - Heart, Mind And Soul (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuel To The Fire
-02. Surrender
-03. If I Could I Would
-04. Like That(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC502AC33BB322C80AAB9A580E00631874D3B8A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

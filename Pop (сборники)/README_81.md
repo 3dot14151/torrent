@@ -1,3 +1,183 @@
+###  Публикация: 1060337   (455314) от 07.10.2016
+
+VA - Заключительная осенняя дискотека (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455314.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Modestep & Funtcase - Damien
+002. Бьянка - Никто Кроме Ты
+003. Елена Темникова Feat. Natan - Наверно
+004. Alex Maxwell - No Flight(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1316EDB7AD4E19C9CE08FBAEA08DCE27078FF441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060573   (455311) от 07.10.2016
+
+VA - Осенняя позитивная сотка - 3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455311.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jochen Miller - Cephalon
+002. Елена Темникова - Ревность
+003. Little Mix - Omg
+004. Макsим - Хорошо(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507726E6FD76A382E173DB4CCB86D38BBBCB499C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060343   (455297) от 07.10.2016
+
+VA - Попсовая лихорадка осени. Сборник 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455297.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Пономарев - Я Так Хочу
+002. White Sea - Yesterday
+003. Авиатор - По Небу
+004. Sara Hartman - Satellite(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171C0A277E72BB9952FEED3813F35BF6BFC5DC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060345   (455037) от 07.10.2016
+
+VA - Мега хиты хорошего настроения. Сборник 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455037.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алекса Пол - Все Хорошо
+002. Colbie Caillat - Never Gonna Let You Down
+003. Kissлород - Розово
+004. Madfeel & Neo Anthony Digest - Love Is Blind(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C7DA02D5658ABABDAFFCFD56B28DBF801FB4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321743   (454800) от 26.08.2019
+
+VA - German Top 100 Single Charts 30.08.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shawn Mendes & Camila Cabello - Senorita
+02. Loredana - Eiskalt (feat. Mozzik)
+03. Luciano - Yeah
+04. DJ Snake, J Balvin, Tyga - Loco Contigo(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C051E31359068493617BCA7FBC928CAAE5F9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389695   (454268) от 19.09.2011
+
+VA - Самый Свежак DFM (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алисия & П. Есенин И Hi-Fi - Ангелы Вечны
+002. Shahzoda - Все Только Начинается
+003. Ika - Дорогой Мой
+004. Инфинити - Ты Мой Герой (Original)
+005. Е. Терлеева - Боль
+006. Потап И Н. Каменских - Если Вдруг
+007. Спа-Сити - Малолетняя Дочь (DJ Viduta Remix)
+008. Д. Суворова - Звезды Кому-То Нужны
+009. Чи-Ли - Ромашковое Поле (Snake Edit)
+010. 5ivesta Family - Тук-Тук(   Читать дальше...   )2011Жанр: PopПродолжительность: 11:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E1E197BE617F2B1D849EA931D841F68F56A64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942577   (453564) от 01.10.2015
 
 Patricia Kaas - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
@@ -6,7 +186,7 @@ Patricia Kaas - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453564.jpg" />
+  <img src="Z:/picture/008/save_picture_453564.jpg" />
 </div>
 
 
@@ -35,7 +215,7 @@ Whitney Houston - Good Songs (2015) [MP3|224 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453561.jpg" />
+  <img src="Z:/picture/008/save_picture_453561.jpg" />
 </div>
 
 
@@ -64,7 +244,7 @@ VA - 100 пудовый хит. Выпуск 50/50 (2012) [MP3|256 кб/с]<Pop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453446.jpg" />
+  <img src="Z:/picture/008/save_picture_453446.jpg" />
 </div>
 
 
@@ -99,7 +279,7 @@ Mylene Farmer - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453234.jpg" />
+  <img src="Z:/picture/008/save_picture_453234.jpg" />
 </div>
 
 
@@ -128,7 +308,7 @@ VA - Русский Свежачок Сезона (2012) [MP3|256 кб/с]<Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453109.jpg" />
+  <img src="Z:/picture/008/save_picture_453109.jpg" />
 </div>
 
 
@@ -163,7 +343,7 @@ VA - Shazam Хит-парад Russia Top 100 Август (2019) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452204.jpg" />
+  <img src="Z:/picture/008/save_picture_452204.jpg" />
 </div>
 
 
@@ -192,7 +372,7 @@ Lara Fabian - Good Songs (2015) [MP3|160 кб/с]<Pop, Female vocalists>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451500.jpg" />
+  <img src="Z:/picture/008/save_picture_451500.jpg" />
 </div>
 
 
@@ -221,7 +401,7 @@ Vanessa Paradis - Good Songs (2015) [MP3|320 кб/с]<Pop, Dance pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451499.jpg" />
+  <img src="Z:/picture/008/save_picture_451499.jpg" />
 </div>
 
 
@@ -250,7 +430,7 @@ Samantha Fox - Good Songs (2015) [MP3|256 кб/с]<Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451491.jpg" />
+  <img src="Z:/picture/008/save_picture_451491.jpg" />
 </div>
 
 
@@ -279,7 +459,7 @@ Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451188.jpg" />
+  <img src="Z:/picture/008/save_picture_451188.jpg" />
 </div>
 
 
@@ -308,7 +488,7 @@ VA - К чёрту любовь. Суперсборник хитов (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450984.jpg" />
+  <img src="Z:/picture/008/save_picture_450984.jpg" />
 </div>
 
 
@@ -337,7 +517,7 @@ VA - XXXL Клубничка MTV №30 50/50 (2012) [MP3|256 кб/с]<Pop, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450952.jpg" />
+  <img src="Z:/picture/008/save_picture_450952.jpg" />
 </div>
 
 
@@ -372,7 +552,7 @@ VA - 80s Respect Magic Liberty (2016) [MP3|128-320 Kbps] <Electro Pop, Eurodance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450618.jpg" />
+  <img src="Z:/picture/008/save_picture_450618.jpg" />
 </div>
 
 
@@ -401,7 +581,7 @@ VA - Зайцев.нет. Осенний топ №8 (2016) [MP3|256~320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450611.jpg" />
+  <img src="Z:/picture/008/save_picture_450611.jpg" />
 </div>
 
 
@@ -430,7 +610,7 @@ Demis Roussos - Hits (2016) Presents: Elgujakviso [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450493.jpg" />
+  <img src="Z:/picture/008/save_picture_450493.jpg" />
 </div>
 
 
@@ -459,7 +639,7 @@ VA - Самые Горячие Хиты Авторадио 50/50 (2012) [MP3|224
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450423.jpg" />
+  <img src="Z:/picture/008/save_picture_450423.jpg" />
 </div>
 
 
@@ -494,7 +674,7 @@ Mireille Mathieu - Good Songs (2015) [MP3|128 кб/с]<Pop, Female vocalists>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449435.jpg" />
+  <img src="Z:/picture/008/save_picture_449435.jpg" />
 </div>
 
 
@@ -523,7 +703,7 @@ VA - Schlager Hits Total: Remix Edition (2022) [MP3|320 Kbps] <Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449415.jpg" />
+  <img src="Z:/picture/008/save_picture_449415.jpg" />
 </div>
 
 
@@ -552,7 +732,7 @@ VA - Turbo дискотека NRJ (2015) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449256.jpg" />
+  <img src="Z:/picture/008/save_picture_449256.jpg" />
 </div>
 
 
@@ -581,7 +761,7 @@ VA - Популярный драйвовый хитовичок. Часть 5 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449163.jpg" />
+  <img src="Z:/picture/008/save_picture_449163.jpg" />
 </div>
 
 
@@ -595,186 +775,6 @@ VA - Популярный драйвовый хитовичок. Часть 5 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75FE5233046F548938F06FFB376C865CCAAF7A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943219   (449127) от 03.10.2015
-
-Boney M - Good Songs (2015) [MP3|192 кб/с]<Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449127.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 10000 Lightyears (1984)
-002. A Moment Of Love (2006)
-003. A Woman Can Change A Man (1977)
-004. African Moon (1981)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 08:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC40D84A3687BEC50B1711A9AA12BF46D17D9492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943071   (449118) от 03.10.2015
-
-ABBA - Good Songs (ABBA) [MP3|160 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ah, Vilka Tider
-002. Al Andar
-003. Andante, Andante
-004. Angeleyes(   Читать дальше...   )Жанр: PopПродолжительность: 08:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F55240B2D33CBF80962CB50739E60E3C0F7A6E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061359   (448869) от 10.10.2016
-
-VA - Звёзды Радио Эфиров Осень (2016) [MP3|256~320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448869.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Макс Барских - Я Люблю Тебя  3:56
-002. Мот - 92 Дня  3:06
-003. Денис Майданов - Что Оставит Ветер  4:17
-004. Natan - Твои Глаза  3:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4D8390C0B93FE0802E0470440885A31F93D2EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061511   (448512) от 10.10.2016
-
-VA - Сто хитов на Hit FM. Русский сборник (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448512.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Росси - Наугад
-002. Катя Наумова - Небеса
-003. Сергей Сумачаков - Похожи
-004. Stereo Isterika - Малая(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E09211E1732AF401FCF4DDFA95CD35F7E8C977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552482   (448410) от 26.09.2012
-
-VA - Сладкая парочка.Только лучшие треки (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иракли и Даша Суворова - Нелюбовь
-02. Игорь Николаев и Юлия Проскурякова - Что-то в этом есть
-03. Владимир Пресняков и Наталья Подольская - Дождь
-04. Татьяна Овсиенко и Лолита - Танго двух подруг
-05. Лолита и Александр Маршал - Две любви
-06. Фристайл и Белорусские Песняры - Это все тебе кажется
-07. Вика Дайнеко и T - Killah - Мира мало
-08. Виктор Рыбин и Наталья Сенчукова - Дело к ночи
-09. Кай Метов и Натали Катэрлин - Солнышко мое
-10. Катя Нова - Что Такое Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1604160272D965429E374507FEBB75D4DE32FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163758   (448284) от 06.09.2017
-
-VA - US Dance Airplay Hot 50 September 2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker – Tired Ftg Gavin James 03:12
-02. Phantoms Ftg Verite – Just a Feeling 04:44
-03. Afrojack & David Guetta Ftg Ester Dean – Another Life 03:28
-04. Axwell  Ingrosso – More Than You Know 03:22(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7314596A564BA1F1075406FC5CD6214B068553BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

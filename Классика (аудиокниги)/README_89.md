@@ -1,3 +1,114 @@
+###  Публикация: 414401   (46553) от 17.08.2024
+
+Чингиз Айтматов | Плаха (2008) [MP3, Пётр Коршунков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная библиотека.
+Чингиз Тоpекулович Айтматов (1928–2008) – киргизский писатель, писавший на киргизском и русском языках. Член редакционного совета «Библиотеки всемирной литературы».
+«Школьная библиотека» продолжает знакомить своих слушателей с творчеством Чингиза Айтматова – живого классика русской и киргизской литературы.
+«Плаха» – роман-крик, одно (   Читать дальше...   )Жанр: Классика советской литературы, романИздательство: Аудиокнига (АСТ)Продолжительность: 14:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CEE4ADBBEBE3A1D289E9B5C8DC377C44D57AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 414451   (46526) от 17.08.2024
+
+Чингиз Айтматов | Плач перелетной птицы (1994) [MP3, Чингиз Айтматов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Современная русская проза
+Чингиз Тоpекулович Айтматов (1928–2008) – советский писатель, писавший на киргизском и русском языках. Член редакционного совета «Библиотеки всемирной литературы».
+Во избежание сурового наказания за дезертирство Исмаил прячется в горах недалеко от родного аула и иногда тайком ночью пробирается домой, где его всякий раз ждет жена (   Читать дальше...   )Жанр: Классика советской литературы, повесть-притчаИздательство: ФабулаПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58BBDF524B770367C7B13DA9814B3BC9C1E3459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 409413   (46439) от 18.08.2024
+
+Николай Гоголь | Записки сумасшедшего (2009) [MP3, Виктор Раков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
+Блестящий талант Гоголя с необычайной достоверностью раскрывает тот мир, где реальность и фантасмагорична, и одновременно достоверна до мельчайших бытовых деталей. В каком бы жанре не выступал Гоголь, о чем бы не писал – это (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: СиДиКом, ЭлитайлПродолжительность: 02:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC83337581F75FA5696DE1CEC3EC279C45C2208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 418004   (46416) от 18.08.2024
+
+Вера Панова | Спутники (Радиоспектакль) (2009) [MP3, Всеволод Якут и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр FM с Мариной Багдасарян. Из архива «Гостелерадиофонда».
+Повесть Веры Федоровны Пановой (1905–1973) «Спутники» является классикой советской прозы о Великой Отечественной войне. В ней воссоздан подвиг советских людей на фронте и в тылу, глубоко раскрыты нравственные истоки победы над фашизмом. Во время войны Панова совершила в военно-санитарном поезде (   Читать дальше...   )Жанр: Классика советской литературы, повестьВ ролях: Всеволод Якут, Федор Корчагин, Семен Гушанский и др.Продолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF005829E8741E61039F8A8670617EBA32B5D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 349992   (45936) от 23.08.2024
 
 Сигизмунд Кржижановский | Сказки для вундеркиндов (2008) [MP3, Владимир Рыбальченко]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45936.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45913.jpg" />
 </div>
 
 
@@ -63,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45898.jpg" />
 </div>
 
 
@@ -90,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45890.jpg" />
 </div>
 
 
@@ -118,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45885.jpg" />
 </div>
 
 
@@ -146,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45828.jpg" />
 </div>
 
 
@@ -174,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45806.jpg" />
 </div>
 
 
@@ -201,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45798.jpg" />
 </div>
 
 
@@ -228,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45495.jpg" />
 </div>
 
 
@@ -256,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45488.jpg" />
 </div>
 
 
@@ -284,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45487.jpg" />
 </div>
 
 
@@ -311,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45134.jpg" />
 </div>
 
 
@@ -340,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44476.jpg" />
 </div>
 
 
@@ -368,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44364.jpg" />
 </div>
 
 
@@ -395,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44340.jpg" />
 </div>
 
 
@@ -422,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43620.jpg" />
 </div>
 
 
@@ -449,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43511.jpg" />
 </div>
 
 
@@ -475,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42992.jpg" />
 </div>
 
 
@@ -503,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42771.jpg" />
 </div>
 
 
@@ -532,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42473.jpg" />
 </div>
 
 
@@ -560,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42461.jpg" />
 </div>
 
 
@@ -588,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42412.jpg" />
 </div>
 
 
@@ -600,115 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B707085CE5174C67D798C2CD74175878DE3047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379893   (42364) от 26.09.2024
-
-Михаил Лермонтов | С небом гордая вражда (2011) [MP3, Леонид Кареев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
-Моноспектакль «С небом гордая вражда», по произведениям Михаила Юрьевича Лермонтова в исполнении Леонида Ивановича Кареева – едва ли не первая попытка представить слушателю истинный, неискаженный облик поэта, истинную, а не общеизвестную (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, историческое исследованиеИздательство: МедиаКнигаПродолжительность: 01:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8D7FC1C92DB8C1ED1C2F742D83A239C283C54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380983   (41860) от 01.10.2024
-
-Даниэль Дефо | Робинзон Крузо (2008) [MP3, Александр Андриенко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная библиотека.
-Даниэль Дефо (1660–1731) – английский романист, журналист и памфлетист, автор около четырехсот сочинений, в том числе журнальных статей, трактатов, проектов, биографий, книги путевых заметок, создатель первого классического приключенческого романа «Робинзон Крузо».
-Легенда мировой приключенческой литературы, не устаревшая и не утратившая (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: Аудиокнига (АСТ)Продолжительность: 12:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A5B4EBC52633260B85F043A56D2457EF34FFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381006   (41838) от 01.10.2024
-
-Даниэль Дефо | Счастливая куртизанка или Роксана (2006) [MP3, Инна Сытник]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Дефо (1660–1731) – английский романист, журналист и памфлетист, автор около четырехсот сочинений, в том числе журнальных статей, трактатов, проектов, биографий, книги путевых заметок, создатель первого классического приключенческого романа «Робинзон Крузо».
-«Счастливая куртизанка, или Роксана» – последний роман Даниэля Дефо, открыл тему женщины-авантюристки, (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романПеревод: Татьяна ЛитвиноваИздательство: БиблиофоникаПродолжительность: 15:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8203508AEE8CF1DDD9AD551DF0914E83FECF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752641   (41773) от 01.10.2024
-
-Даниэль Дефо | Дневник чумного года (2021) [MP3, Иван Забелин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Дефо (1660–1731) – знаменитый английский писатель и публицист рубежа XVII-XVIII вв., чьи произведения до сих пор остаются самыми читаемыми и любимыми по всему миру.
-Роман «Дневник чумного года» – своего рода страшная антиутопия, потрясшая современников холодной и даже немного чёрной ироничностью. Перед читателем предстаёт дневник очевидца Чумы и всех её страшных (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 09:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9AA4733ED6A52566634CB89B00F07A71111F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,172 @@
+###  Публикация: 1410181   (438343) от 20.09.2020
+
+Квартирник НТВ у Маргулиса. Группа Куртки Кобейна (19.09.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438343.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Куртки Кобейна» — музыкальный продюсерский проект Шуры из «Би-2», который был создан два года назад. Коллектив не придерживается каких-то строгих жанровых рамок, так как все участники — представители разных музыкальных направлений. В прошлом году группа выпустила дебютный альбом, в записи которого приняли участие известные исполнители, например, Леонид Агутин, группы (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73004D1BA18B9BEF4546F77457B0729DA2B5333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554069   (438150) от 30.09.2012
+
+Blackmore's Night - A Knight In York (2012) [1080p] Blu Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ренессанс-рок-группа BLACKMORE'S NIGHT, которую создали Ричи Блэкмор (Ritchie Blackmore) и его жена Кэндис Найт (Candice Night), выпускает концертник "A Knight In York" на Blu-ray. Когда 30 сентября прошлого года BLACKMORE'S NIGHT приехали в Йорк, жар глодал средневековые улицы и стены старого города купались в лучах солнца. А в Grand Opera House Ричи Блэкмор, Кэндис Найт и их группа разожгли свой огонь, уведя преданных поклонников в музыкальное путешествие сквозь века, исполняя песни с двух своих последних альбомов "Secret Voyage" и "Autumn Sky", такие как "Locked Within The Crystal Ball", "Darkness" и новую версию "First Of May" — редко исполняемой баллады, написанной BEE GEES. Для общего эффекта в котел были брошены песни с ранних альбомов, — особого упоминания заслуживает классическая "Fires At Midnight". Blackmore’s Night - A Knight In York был снят и записан во время тура по Великобритании в York Grand Opera House 30 сентября 2011 года. (   Читать дальше...   )01 Locked Within The Crystal Ball
+02 Guilded Cage
+03 The Circle
+04 Journeyman
+05 World Of Stone
+06 The Peasant's Promise
+07 Toast To Tomorrow
+08 Fire's At Midnight
+09 Barbara Allen
+10 Darkness(   Читать дальше...   )Жанр: Концерт, rock, folk rockПеревод: отсутствуетПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707361   (437601) от 05.10.2013
+
+Black Sabbath - Live in O2 Academy Birmingham (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437601.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках подготовки к их чрезвычайно ожидаемому выступлению на Download Festival в 2012 году, Black Sabbath объявили о возвращении на родину в O2 Academy в Бирмингеме. Это было первое выступление Black Sabbath в их родном городе в течение 11 лет - и их первый концерт с 2005 года.01 Intro
+02 Into the Void
+03 Under the Sun
+04 Snowblind(   Читать дальше...   )Жанр: Концерт, Heavy MetalПродолжительность: 01:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE154A00612916C70E33B2AF5A131236DF1CF3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554354   (437113) от 01.10.2012
+
+Mr Saik - Lights Out (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C9392E3B7DE548B9BC5E556FCB3522DDD57741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554358   (437096) от 01.10.2012
+
+Cabin Crew - Star To Fall (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F947A493E203FF73ACA901A666D18546DC2519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062674   (437075) от 15.10.2016
+
+Сказка за сказкой - Белое и чёрное (1984) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль Ленинградского телевидения из цикла передач "Сказка за сказкой". По мотивам грузинских сказок.
+Передача "Сказка за сказкой" выходила в эфир с 1979 по 1998 год не только в Ленинграде, но и в других городах Советского Союза, а также в Польше и Чехословакии. Это были телевизионные постановки сказок народов мира.Производство: СССР, Ленинградское телевидениеЖанр: Спектакль, детский, сказкаРежиссер: Глеб СелянинАктеры: Анатолий Равикович, Ольга Волкова, Анатолий Пузырев, Валерий Кузин, Инна Слободская, Ильгиз Булгаков, Агния ЕлекоеваПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE249E960A2877832380152D84FC8FF74D720F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062531   (436947) от 15.10.2016
 
 Сказка за сказкой - Волшебное кольцо (1985) TVRip
@@ -6,7 +175,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436947.jpg" />
+  <img src="Z:/picture/008/save_picture_436947.jpg" />
 </div>
 
 
@@ -33,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436934.jpg" />
+  <img src="Z:/picture/008/save_picture_436934.jpg" />
 </div>
 
 
@@ -59,7 +228,7 @@ Eric Clapton - Crossroads Guitar Festival (2004) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436911.jpg" />
+  <img src="Z:/picture/008/save_picture_436911.jpg" />
 </div>
 
 
@@ -88,7 +257,7 @@ Basshunter - Dream on the Dancefloor (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436815.jpg" />
+  <img src="Z:/picture/008/save_picture_436815.jpg" />
 </div>
 
 
@@ -114,7 +283,7 @@ Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436672.jpg" />
+  <img src="Z:/picture/008/save_picture_436672.jpg" />
 </div>
 
 
@@ -140,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436613.jpg" />
+  <img src="Z:/picture/008/save_picture_436613.jpg" />
 </div>
 
 
@@ -166,7 +335,7 @@ David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436437.jpg" />
+  <img src="Z:/picture/008/save_picture_436437.jpg" />
 </div>
 
 
@@ -192,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436372.jpg" />
+  <img src="Z:/picture/008/save_picture_436372.jpg" />
 </div>
 
 
@@ -218,7 +387,7 @@ Santana - Hymns for Peace, Live at Montreux (2004) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436037.jpg" />
+  <img src="Z:/picture/008/save_picture_436037.jpg" />
 </div>
 
 
@@ -253,7 +422,7 @@ Smokie  Greatest Hits 1975-1979 (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435838.jpg" />
+  <img src="Z:/picture/008/save_picture_435838.jpg" />
 </div>
 
 
@@ -288,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435711.jpg" />
+  <img src="Z:/picture/008/save_picture_435711.jpg" />
 </div>
 
 
@@ -314,7 +483,7 @@ Nazareth - Video Collection(1972-2007) (2012) DVDRip.TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435702.jpg" />
+  <img src="Z:/picture/008/save_picture_435702.jpg" />
 </div>
 
 
@@ -350,7 +519,7 @@ W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433672.jpg" />
+  <img src="Z:/picture/008/save_picture_433672.jpg" />
 </div>
 
 
@@ -385,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431958.jpg" />
+  <img src="Z:/picture/008/save_picture_431958.jpg" />
 </div>
 
 
@@ -411,7 +580,7 @@ Cinnamon Chasers (2012) [1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431781.jpg" />
+  <img src="Z:/picture/008/save_picture_431781.jpg" />
 </div>
 
 
@@ -437,7 +606,7 @@ Axel Rudi Pell live - Rockpalast (2018) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430966.jpg" />
+  <img src="Z:/picture/008/save_picture_430966.jpg" />
 </div>
 
 
@@ -466,7 +635,7 @@ Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429167.jpg" />
+  <img src="Z:/picture/008/save_picture_429167.jpg" />
 </div>
 
 
@@ -492,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427866.jpg" />
+  <img src="Z:/picture/005/save_picture_427866.jpg" />
 </div>
 
 
@@ -520,7 +689,7 @@ Boney M - Live In Concert (1979) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427804.jpg" />
+  <img src="Z:/picture/008/save_picture_427804.jpg" />
 </div>
 
 
@@ -549,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427406.jpg" />
+  <img src="Z:/picture/008/save_picture_427406.jpg" />
 </div>
 
 
@@ -560,178 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53180654EC8F468B2D5264D354EE81D03B9C661C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946524   (427054) от 13.10.2015
-
-VA - Осенний марафон № 197 / Видеоклипы (Дискотека с Размахом) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (13.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Adam Lambert - Another Lonely Night (Official Video) (00:03:30)
-02. Becky G - Break A Sweat (Official Video) (00:03:32)
-03. Carlos Baute - Perdimos El Control (Official Video) (00:03:34)
-04. Dj Layla ft. Sianna - I Need Love (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, SoulПродолжительность: 01:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE72411455E2166BABBAD5AB0AB6344D6D717279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246780   (426337) от 17.10.2010
-
-Муз ТВ -  Мы умеем зажигать! Часть №1 (16.10.2010) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие хиты сезона в исполнении любимых звезд, показ последних модных коллекций, супердекорации и грандиозное световое шоу!01. Сергей Лазарев «Alarm»
-02. Таня Терешина «Радио гагага»
-03. Доминик Джокер «Бомба бит»
-04. Фабрика «Я тебя зацелую»(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 829189   (426260) от 12.10.2014
-
-Марица (1985) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыкальный, КомедияРежиссер: Александр БелинскийАктеры: Наталья Андрейченко, Тимофей Спивак, Вера Сотникова, Мария Миронова ст., Владимир Зельдин, Игорь Скляр. Инна МакароваПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7834D51B94F360F301C14439192AE859AD0BE708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555312   (425771) от 05.10.2012
-
-Красная плесень / Красная плесень - Аленький цветочек (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитейшая экранизация одноименного панк-мюзикла Красной Плесени «Аленький цветочек», ставшая классикой не только постсоветского, но и мирового панк-рока. Сказка повествует о жизни и приключениях купца и его доченьки Настеньки. Так же на диске вы найдете, ни когда ранее не выходившие на DVD клипы и живое видео вашей любимой группы.01. Аленький цветочек 1 (Ария опупевшей Настеньки)
-02. Аленький цветочек 2 (Ария припухшего купца)
-03. Аленький цветочек 3 (Как же я цветочку рад)
-04. Смерть фашизму
-05. 23 февраля
-06. Шизанутая жаба
-07. Памяти всех ушедших
-08. Альбом мы писали
-09. Оба оба
-10. Губки срантиком(   Читать дальше...   )Жанр: Мьюзикл, Юмор, Панк-мюзиклПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A088BFCED8A726A36D28BB9D0EAF60483E4351B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409166   (425381) от 26.09.2020
-
-Bad Wolves - Zombie (Official Video) (2018) WEBRip [VP9/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незадолго до своей смерти Долорес О'Риордан собиралась записать новую версию "Zombie" вместе с группой Bad Wolves.
-В память о ней, Bad Wolves выпустили этот кавер, вся прибыль от которого была отдана детям певицы.Производство: © 2018 Eleven Seven Music GroupЖанр: Rock, AlternativeРежиссер: Уэйн ИшамАктеры: Томми Векст, Док Койл, Джон Беклин и другиеПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC5F5F4B9E44A1CD21F8F4F1B718296F536CE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323451   (425095) от 09.09.2019
-
-Артур Пирожков - Алкоголичка (2019) [H.264/1080p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно Александр Ревва, больше известный под творческим псевдонимом Артур Пирожков, выпустил новый хит «Алкоголичка», который за 10 дней собрал больше 20 миллионов просмотров в YouTube.Жанр: PopПродолжительность: 00:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEC8F76A0534998771DFE9EAC25CA8EE77FD057
 ```
 
 https://mybot314.ru/tekegram_catalog/

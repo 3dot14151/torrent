@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704436.jpg" />
+  <img src="Z:/picture/008/save_picture_704436.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - 10 Progressive House Tunes (29.04.2011) [MP3|320 kbps]<Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704431.jpg" />
+  <img src="Z:/picture/008/save_picture_704431.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Зарубежные клубные новинки vol.3 (2011) [MP3|320 kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704428.jpg" />
+  <img src="Z:/picture/008/save_picture_704428.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ A Force & Adrian - Continental Chaos (2003) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704423.jpg" />
+  <img src="Z:/picture/008/save_picture_704423.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704420.jpg" />
+  <img src="Z:/picture/008/save_picture_704420.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17512) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704404.jpg" />
+  <img src="Z:/picture/008/save_picture_704404.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704398.jpg" />
+  <img src="Z:/picture/008/save_picture_704398.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Aero (2011) [MP3|320 kbps]<Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704355.jpg" />
+  <img src="Z:/picture/008/save_picture_704355.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Things 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704324.jpg" />
+  <img src="Z:/picture/008/save_picture_704324.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704323.jpg" />
+  <img src="Z:/picture/008/save_picture_704323.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ USDownloader 1.3.5.9 Portable (17.04.2018) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704321.jpg" />
+  <img src="Z:/picture/008/save_picture_704321.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704254.jpg" />
+  <img src="Z:/picture/008/save_picture_704254.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704234.jpg" />
+  <img src="Z:/picture/008/save_picture_704234.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704233.jpg" />
+  <img src="Z:/picture/008/save_picture_704233.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704232.jpg" />
+  <img src="Z:/picture/008/save_picture_704232.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Coolmuster Android Assistant 4.2.63 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704211.jpg" />
+  <img src="Z:/picture/008/save_picture_704211.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Krita 4.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704208.jpg" />
+  <img src="Z:/picture/008/save_picture_704208.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ MyDraw 2.2.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704200.jpg" />
+  <img src="Z:/picture/008/save_picture_704200.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704198.jpg" />
+  <img src="Z:/picture/008/save_picture_704198.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Readiris Corporate 16.0.2 Build 11398 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704194.jpg" />
+  <img src="Z:/picture/008/save_picture_704194.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Amber D - D Day (2010) [MP3|320 kbps]<Hard House, Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704177.jpg" />
+  <img src="Z:/picture/008/save_picture_704177.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704171.jpg" />
+  <img src="Z:/picture/008/save_picture_704171.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704170.jpg" />
+  <img src="Z:/picture/008/save_picture_704170.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704169.jpg" />
+  <img src="Z:/picture/008/save_picture_704169.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704168.jpg" />
+  <img src="Z:/picture/008/save_picture_704168.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704164.jpg" />
+  <img src="Z:/picture/008/save_picture_704164.jpg" />
 </div>
 
 

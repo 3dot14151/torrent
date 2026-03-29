@@ -1,3 +1,107 @@
+###  Публикация: 1190433   (266595) от 10.12.2017
+
+Цепной пёс / Bullet Head (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже у самого верного дела возможны разные варианты завершения. Матерые преступники, пытаясь по наводке обчистить полицейский склад, оказываются в ловушке с разъяренным сторожевым псом по кличке ДеНиро. Счастливый финал кажется все более призрачным…Производство: Болгария, США / Millennium Media, Nu Boyana Film Studios, Principato-Young EntertainmentЖанр: Криминал, Драма, ТриллерРежиссер: Пол СолетАктеры: Эдриан Броуди, Рори Калкин, Антонио Бандерас, Джон Малкович, Александра Дину, Кристина Сеговиа, Ори Феффер, Оуэн Дэвис, Велизар Бинев, Кит Д. ЭвансПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F74B41310D4A5F5C02EAE6B8CAE758516099E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267496   (266301) от 06.12.2018
+
+Веном / Venom (2018) BDRip [H.264/720p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что если в один прекрасный день в тебя вселяется существо-симбиот, которое наделяет тебя сверхчеловеческими способностями? Вот только Веном — симбиот совсем недобрый, и договориться с ним невозможно. Хотя нужно ли договариваться?.. Ведь в какой-то момент ты понимаешь, что быть плохим вовсе не так уж и плохо. Так даже веселее. В мире и так слишком много супергероев! (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, 	Marvel Entertainment, Sony Pictures EntertainmentЖанр: Боевик, Фантастика, Триллер, УжасыРежиссер: Рубен ФляйшерАктеры: Том Харди, Мишель Уильямс, Марчелла Браджио, Вуди Харрельсон, Дженни Слейт, Риз Ахмед, Мак Брандт, Рон Сепас Джонс, Мишель Ли, Мелора УолтерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русский (полные от Focs), АнглийскийПродолжительность: 01:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511F4245656F77418A5B9630CDAC575B5EC5CA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190933   (265768) от 11.12.2017
+
+мама! / mother!  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения молодой пары оказываются под угрозой, когда, нарушая безмятежное существование супругов, в их дом заявляются незваные гости.Производство: США / Protozoa PicturesЖанр: ужасы, драма, детективРежиссер: Даррен АронофскиАктеры: Дженнифер Лоуренс, Хавьер Бардем, Эд Харрис, Мишель Пфайффер, Донал Глисон, Брин Глисон, Кристен Уиг, Йован Адепо, Стивен МакХэтти, Аманда Чиу, Патриция Саммерсетт, Эрик ДэвисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанские, португальскиеПродолжительность: 02:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BF3817B4E8D2CA8FB57966D1DB2F87CB022A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267735   (265640) от 07.12.2018
+
+Опасный пассажир / Ride (2018) BDRemux [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Джеймс, водитель Uber, и его пассажирка Джессика остановились, чтобы подвезти харизматичного Бруно, они не знали, что этот спокойный вечер обернётся для них гонкой на выживание.Производство: США / Unified Pictures, Look to the Sky FilmsЖанр: ТриллерРежиссер: Джереми АнгарАктеры: Белла Торн, Джесси Ашер, Уилл Брилл, Байрон Л. Хопкинс, Хейли Кеанна Лаутенбах, Сара ЛиндсейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9BA042AD83FE15D52A8C586AC9177FCCB30127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191087   (264988) от 12.12.2017
 
 Сильнее / Stronger  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264988.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264882.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264801.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264420.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264413.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264347.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264342.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263828.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263675.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263381.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263355.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263018.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262742.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262716.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262431.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262375.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261879.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261857.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261726.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261573.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261476.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259877.jpg" />
+  <img src="Z:/picture/005/save_picture_259877.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE53453F2F3D2EB1C0C9463733CDC32A4F81CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838160   (258049) от 21.11.2025
-
-Семейный план 2 / The Family Plan 2 (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь, когда дни наемного убийцы Дэна остались позади, все, чего он хочет на Рождество, — это провести время со своими детьми. Но когда он узнает, что у его дочери свои планы, он заказывает семейную поездку в Лондон — ставит их всех под прицел неожиданного врага.Производство: США, Великобритания / Apple Original Films, Skydance ProductionsЖанр: боевик, комедия, семейныйРежиссер: Саймон Селлан ДжонсАктеры: Марк Уолберг, Мишель Монахэн, Кит Харингтон, Зои Маргарет Коллетти, Ван Кросби, Peter Lindsay, Theodore Lindsay, Реда Эльазуар, Сидсе Бабетт Кнудсен, Санджив БхаскарПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (forced, full, SDH)Продолжительность: 01:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE518AC8DD991097D41882F7C84BF6829DE4E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838040   (257791) от 20.11.2025
-
-Проблемы с шампанским / Champagne Problems (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исполнительный директор отправляется во Францию, чтобы до Рождества обеспечить приобретение известного бренда шампанского, но ее планы рушатся, когда она влюбляется в очаровательного парижанина, который, как выясняется, является сыном основателя компании.Производство: США / FullDawa Films, Grumpy EntertainmentЖанр: мелодрама, комедияРежиссер: Марк Стивен ДжонсонАктеры: Том Возничка, Минка Келли, Флула Борг, Завьер Сэмюэл, Мэйв Куртье-Лилли, Тибо де Монталембер, Астрид Ветналл, Митчелл Маллен, Шон Эмсинг, Floran RoyerПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A308C556803ADE4C21788571838EA69BE5AF9AC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836728   (254112) от 12.11.2025
-
-Рождество с бывшим / A Merry Little Ex-Mas (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт и Эверетт собираются в последний раз отпраздновать Рождество как одна семья и цивилизованно развестись. Однако всё усложняется из-за новых симпатий и старых чувств.Производство: США / Hartbreak FilmsЖанр: мелодрама, комедияРежиссер: Стив КаррАктеры: Алисия Сильверстоун, Пирсон Фод, Мелисса Джоан Харт, Оливер Хадсон, Джамила Джамил, Тимоти Иннес, Линда Кэш, Эмили ХоллПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0C3AE3FD88D7936779BD48A527974253B81FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836148   (252497) от 09.11.2025
-
-Манго / Mango (2025) WEB-DL [H.264/1080p] [EN, DA / RU, EN, DA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амбициозная сотрудница сети отелей и ее недовольная дочь отправляются в Малагу, где в тихом манговом саду находят то, что искали.Производство: Дания / Nordisk Film, Drive Studios, Rocket Road PicturesЖанр: комедия, драма, мелодрамаРежиссер: Мехди АвазАктеры: Йозефин Парк, Дар Салим, Йосефине Хёйбьерг, Сара Хименес, Паприка Стеэн, Андерс В. Бертельсен, Себастьян Йессен, Лизе Бааструп, Ninton Sánchez, Логан Коннор КэлвертПеревод: СубтитрыЯзык озвучки: Английский, ДатскийСубтитры: Русские, Английские (forced, full, SDH), Датские (forced, full, SDH)Продолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BD3921A953146496D8C6012CF54CA6370AC6B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

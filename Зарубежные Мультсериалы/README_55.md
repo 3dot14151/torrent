@@ -1,3 +1,56 @@
+###  Публикация: 1702609   (115727) от 25.02.2024
+
+Лазурные сказания / The Tale of Blue (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-5 из 5) DEEP
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правители народа Акул собираются воскресить своего героя, чтобы навсегда стать хозяевами семи морей. Их единственный выход — добыть кровь династии Короля Дельфинов.
+Они похищают последнюю выжившую представительницу королевского рода, чтобы заманить в ловушку её брата Блю, который не догадывается о своем истинном происхождении и силах.Производство: ИранЖанр: мультфильм, драма, приключенияРежиссер: Махди ФаллаПеревод: Дублированный (DEEP)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D4D0BE4748DCAD1EE56DBAC948DF0FA56EE6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335742   (115652) от 26.02.2024
+
+Отель Хазбин / Hazbin Hotel (2019-2024) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 0-8 из 8) NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о Чарли, принцессе ада, и её стремлении открыть отель для реабилитации демонов.Производство: США, A24, SpindleHorse Toons See moreЖанр: Мультсериал, комедия, драма, фэнтези, мюзиклРежиссер: Вивьен МедраноАктеры: Джилл Харрис, Элси Лавлок, Моника Франко, Майкл Ковач, Сет Аткинсон, Эдвард БоскоПеревод: Многоголосый профессиональный  (NewStation) - присутствует ненормативная лексикаСубтитры: (на пилотную серию вшитые субтитры только на надписи и песни), на остальные полные: русские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0348988B3CC550D72005CE762A69CE060E1C386C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702736   (115366) от 27.02.2024
 
 Спригган / Spriggan (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Jaskier
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115366.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115069.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114573.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114397.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105802.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104027.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102349.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100908.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98597.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94747.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89729.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89543.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86763.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86263.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85730.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82261.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82174.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78633.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76637.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74356.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71484.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69543.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67797.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66623.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0C1404CF660810443C0AF407B9346C191B129F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801573   (66194) от 12.06.2025
-
-Герои в масках / PJ Masks (2015) WEB-DL [H.264/1080p] (сезон 1, cерии 1-26 из 26) Кипарис
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три 6-летних друга — супергерои. Стоит им активировать свой браслет, и они переносятся на секретную базу. Меняется и их внешность, и ребята превращаются в альтернативных личностей в суперкостюмах. К тому же герои получают особенные силы: совиное зрение, кошачий слух и быстроту геккона. Но это дается им не просто так — друзья должны посвятить себя миссии по спасению (   Читать дальше...   )Производство: Франция, Великобритания, Канада, СШАЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кристиан Де Вита, Мерли-Энн Ридли, Уилсон Дос СантосАктеры: Джейкоб Роберт Эванюк, Кайл Харрисон Брейткопф, Эддисон Холли, Алекс Торн, Грэй Гриффин, Трек Буччино, Брианна Дагуанно, Джули Лемье, Рон Пардо, Тристан СэмюэлПеревод: Дублированный (Кипарис)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6314EF4F4B98DC118B3BD8BBB623BD47FE4F0B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801623   (66183) от 12.06.2025
-
-Герои в масках / PJ Masks (2018) WEB-DL [H.264/1080p] (cезон 2, cерии 1-26 из 26) Кипарис
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три 6-летних друга — супергерои. Стоит им активировать свой браслет, и они переносятся на секретную базу. Меняется и их внешность, и ребята превращаются в альтернативных личностей в суперкостюмах. К тому же герои получают особенные силы: совиное зрение, кошачий слух и быстроту геккона. Но это дается им не просто так — друзья должны посвятить себя миссии по спасению (   Читать дальше...   )Производство: Франция, Великобритания, Канада, СШАЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кристиан Де Вита, Мерли-Энн Ридли, Уилсон Дос СантосАктеры: Джейкоб Роберт Эванюк, Кайл Харрисон Брейткопф, Эддисон Холли, Алекс Торн, Грэй Гриффин, Трек Буччино, Брианна Дагуанно, Джули Лемье, Рон Пардо, Тристан СэмюэлПеревод: Дублированный (Кипарис)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF204C25EAE4520606E564D12553B619A676E7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

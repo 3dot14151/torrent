@@ -1,3 +1,85 @@
+###  Публикация: 902717   (660029) от 29.05.2015
+
+Олег Ершов | Витрувианский Человек или Загадки Вселенной (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная теория была создана на основе знаменитого рисунка Великого Леонардо да Винчи. Это изображение и вообще вся теория о бесконечности жизни пришли автору во сне, где он увидел данное изображение в виде объёмной скульптуры, которая содержит в себе все символы всех вероисповеданий. Пройдет время, и, возможно, ученые разных стран подтвердят данную теорию. Время – (   Читать дальше...   )Жанр: Публицистика: прочееФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7EDEDE52BA4694F1B08069B8068CA8871E5D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902711   (660015) от 29.05.2015
+
+Владимир Квачков | Спецназ России (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автором анализируется история, теория и практика специальных действий в военном искусстве дореволюционной России (начиная от доордынских времён), в советское время. Целый раздел («Теория специальных операций») посвящён современному состоянию дел в этой отрасли военного искусства.
+
+Многие книги Квачкова уже стали бестселлерами.Жанр: Публицистика: прочее, Военное дело, спецслужбыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81783220D91098327F02160451E3B6CB2C794E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225600   (659572) от 16.05.2018
+
+Владимир Бушин | Пятый сезон Путина. Шоу продолжается… (2018) [FB2]
+
+>>След.
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Сергеевич Бушин, автор более пятидесяти книг, многие из которых стали бестселлерами, представляет вашему вниманию свое новое публицистическое произведение. Оно отличается свойственными автору меткостью наблюдений, остроумием и сарказмом в оценках высшего руководства России.
+
+Главным героем книги является Владимир Путин, который начинает свой «пятый сезон» (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0C583BA747819D64F0D5662F22B1C8707AB61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902966   (659050) от 30.05.2015
 
 Н. Ю. Беспалова | Британская империя (2015) [FB2, EPUB]
@@ -6,7 +88,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659050.jpg" />
+  <img src="Z:/picture/008/save_picture_659050.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658957.jpg" />
+  <img src="Z:/picture/008/save_picture_658957.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658902.jpg" />
+  <img src="Z:/picture/008/save_picture_658902.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658895.jpg" />
+  <img src="Z:/picture/008/save_picture_658895.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658591.jpg" />
+  <img src="Z:/picture/008/save_picture_658591.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657941.jpg" />
+  <img src="Z:/picture/008/save_picture_657941.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657084.jpg" />
+  <img src="Z:/picture/008/save_picture_657084.jpg" />
 </div>
 
 
@@ -188,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656442.jpg" />
+  <img src="Z:/picture/008/save_picture_656442.jpg" />
 </div>
 
 
@@ -214,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655457.jpg" />
+  <img src="Z:/picture/008/save_picture_655457.jpg" />
 </div>
 
 
@@ -240,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655105.jpg" />
+  <img src="Z:/picture/008/save_picture_655105.jpg" />
 </div>
 
 
@@ -266,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654595.jpg" />
+  <img src="Z:/picture/008/save_picture_654595.jpg" />
 </div>
 
 
@@ -292,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653331.jpg" />
+  <img src="Z:/picture/008/save_picture_653331.jpg" />
 </div>
 
 
@@ -318,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652988.jpg" />
+  <img src="Z:/picture/008/save_picture_652988.jpg" />
 </div>
 
 
@@ -346,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652662.jpg" />
+  <img src="Z:/picture/008/save_picture_652662.jpg" />
 </div>
 
 
@@ -374,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652653.jpg" />
+  <img src="Z:/picture/008/save_picture_652653.jpg" />
 </div>
 
 
@@ -402,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652597.jpg" />
+  <img src="Z:/picture/008/save_picture_652597.jpg" />
 </div>
 
 
@@ -430,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652504.jpg" />
+  <img src="Z:/picture/008/save_picture_652504.jpg" />
 </div>
 
 
@@ -458,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651794.jpg" />
+  <img src="Z:/picture/008/save_picture_651794.jpg" />
 </div>
 
 
@@ -486,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651478.jpg" />
+  <img src="Z:/picture/008/save_picture_651478.jpg" />
 </div>
 
 
@@ -512,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651434.jpg" />
+  <img src="Z:/picture/008/save_picture_651434.jpg" />
 </div>
 
 
@@ -540,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651012.jpg" />
+  <img src="Z:/picture/008/save_picture_651012.jpg" />
 </div>
 
 
@@ -568,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650502.jpg" />
+  <img src="Z:/picture/008/save_picture_650502.jpg" />
 </div>
 
 
@@ -596,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650144.jpg" />
+  <img src="Z:/picture/008/save_picture_650144.jpg" />
 </div>
 
 
@@ -608,87 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:931B1F101A99233FEB17673217050379D8B0C871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290341   (648630) от 28.03.2019
-
-Владимир Фурзиков | Иван... Грозный? Трагедия великой личности (2016) [DOC]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительные Главы 7 и Заключение из книги Фурзикова «Иван Грозный. Трагедия великой личности. Исследование природы власти».
-В книге рассматриваются выдающиеся личности нашей и зарубежной истории, необычные и малоизвестные факты, «законы власти» на примерах с незапамятных времен и до нашего времени.
-Можно ли назвать их законами? Я не знаю.
-Может быть так: люди (   Читать дальше...   )Жанр: публицистикаФормат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42A931306A1BC3CACB62B6A207B2B26EC53158D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227345   (648356) от 25.05.2018
-
-Эдуард Лимонов | Сводка новостей. Путин – отец, Макрон – сын, Собчак – дочь (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдуард Лимонов считает себя человеком действия, а не литератором. Потому статьи его всегда остры и даже резки. Самые важные мировые проблемы: выборы, войны, теракты – никогда не проходят мимо его внимания.Жанр: Публицистика, Современное политическое положениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775056F6E5F54A4AC63F790D1F4A1EB767FB167D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032129   (647767) от 06.07.2016
-
-Дмитрий Володихин | Патриарх Гермоген (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патриарх Гермоген - одна из ключевых фигур нашей истории. В эпоху Великой Смуты начала XVII века, когда Московская держава едва не исчезла с карты мира, именно его воля помогла удержать российскую государственность от окончательного краха. И очень может быть, что ни Первого, ни Второго земских ополчений, ни освобождения Москвы от поляков, ни восшествия на престол (   Читать дальше...   )Жанр: Православие, Жития Святых и священнослужителейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2F4592A46031531E1990AB4589C26683758AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

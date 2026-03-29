@@ -1,3 +1,56 @@
+###  Публикация: 1085448   (214454) от 21.12.2016
+
+Леонид Волков | Физические способности детей и подростков (1981) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214454.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены вопросы о формировании физических способностей, развития и воспитания таковых у детей и подростков. Центральное место в книге занимает вопрос распределения средств педагогического воздействия на разных этапах возрастного развития.
+Книга ориентирована на инструкторов физической культуры, тренеров, учителей, врачей-специалистов.Жанр: Физкультура, СпортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82529B3F36111DD8B40C90C7A00A84EAA4F0CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529167   (213237) от 19.06.2022
+
+Грегуар Гибо | Главное движение. 10 ключей для здорового и красивого тела (2021) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто-то хочет похудеть при помощи спорта, но, не увидев желаемый результат через месяц, сдается и бросает занятия. Кто-то боится, что физические нагрузки плохо скажутся на суставах и спровоцируют их болезни. А некоторые не могут найти в себе силы хотя бы на 15-минутную прогулку или легкую гимнастику, потому что эмоциональное состояние оставляет желать лучшего. Грегуар (   Читать дальше...   )Жанр: Здоровье, Спорт / фитнесПеревод: Денис БондаревскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5FB76C00B301613E6DB645C38FACF4FA1E9BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647540   (208568) от 19.07.2023
 
 Лидьярд Артур, Гилмор Гарт | Бег с Лидьярдом (2021) [PDF, FB2, EPUB]
@@ -6,7 +59,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208568.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208469.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207881.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Jeff Cavaliere (AthleanX) | The Bicep Black Book (2020) [PDF] [EN]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_198939.jpg" />
+  <img src="Z:/picture/005/save_picture_198939.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Charles Glass | The Fundamentals of Bodybuilding (2020) [PDF] [EN]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198853.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Arnold Schwarzenegger | Olympia Training Secrets of the Oak (2017) [PDF]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198391.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190176.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190142.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189964.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189961.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187030.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186808.jpg" />
 </div>
 
 
@@ -326,13 +379,13 @@ B.U.F.F. DUDES | Dumbbell only 12 week plan (2018) [PDF] [EN]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-﻿У вас есть доступ только к паре гантелей? Тогда у нас для вас есть B.U.F.F. DUDES Dumbbell only 12 week plan
+У вас есть доступ только к паре гантелей? Тогда у нас для вас есть B.U.F.F. DUDES Dumbbell only 12 week plan
 
 Dumbbell only 12 week plan на 54 страницах - это ваше идеальное руководство по тренировкам с гантелями.
 12-недельный план только с гантелями разделен на 4 этапа, каждый продолжительностью 3 недели(   Читать дальше...   )Жанр: Спорт, Бодибилдинг, ФитнесЯзык: АнглийскийИздательство: B.U.F.F. DUDESФормат: PDFКачество: Изначально электронное (ebook)
@@ -355,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168188.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167974.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159168.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158359.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157884.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157698.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156862.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155527.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154164.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153447.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152786.jpg" />
 </div>
 
 
@@ -632,62 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B19CA7AE3E83465C4936394F8C15447385DC4E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086786   (149214) от 25.12.2016
-
-Н.Г. Цед, В.М. Андрейчук | Первый шаг к кунг-фу (1990) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана мастером спорта Н.Г. Цедом и мастером спорта В.И. Андрейчуком, призером всесоюзных и республиканских соревнований по самбо и дзюдо, одним из авторов учебника "Рукопашный Бой".
-В книге рассматриваются физические упражнения Боевых видов Искусств Восточных Единоборств; описываются принципы приемов и действий; содержатся рекомендации, с чего (   Читать дальше...   )Жанр: Учебно-методическое пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949D3B9FC897E367BDDC64AEB01E18D6DED9B01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195425   (141686) от 29.12.2017
-
-Томас Фьютрелл | Обзор бокса или наука обороны руками (2017) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное название: «Обзор бокса или наука обороны руками, представленный рациональными принципами, комплексным описанием основных боксеров с самого раннего периода Броутена, до наших дней.
-
-Целью автора  данной книги является отстоять позиции бокса и показать его практичность на рациональных принципах, и он даже  готов  к  негативной критике  в сою сторону.
-Как говорит (   Читать дальше...   )Жанр: Боевые искусства, БоксФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB4DDBB17601B0921B539A3ED463D08EE4DB80C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1387433   (791791) от 01.06.2020
+
+Всего одна жизнь /  Bare et liv - historien om Fridtjof Nansen (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791791.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положены наиболее значительные этапы жизни Фритьофа Нансена — известного полярного исследователя и путешественника: путешествие на пароходе «Фрам» к Северному полюсу, борьба на дипломатическом поприще за независимость Норвегии, деятельность в Лиге Наций.Производство: СССР, Норвегия / Ленфильм, Norsk Film A/SЖанр: драма, приключенияРежиссер: Сергей МикаэлянАктеры: Евгений Евстигнеев, Арне Аас, Янис Грантиньш, Кнут Уигерт, Веслемой Хаслунд, Рольф Сэнд, Йоахим Кальмейер, Джек ФьелдстадЯзык озвучки: русскийСубтитры: отсутствуетПродолжительность: 01:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7517E84C9059D1CDD4AAF05860A9A49458862A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388041   (790044) от 04.06.2020
+
+Пассажир (1975) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790044.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа И. Назарова "Были великой реки".
+Юноша Игорь во время аварии на барже не растерялся и проявил мужество.Производство: СССР | НовосибирсктелефильмЖанр: киноповесть, экранизация, короткометражныйРежиссер: Вадим ГнедковАктеры: Светлана Полуэктова, Игорь Корсаков, Сергей Авдеев, Евгений Лемешонок, Михаил Стрелков, Анастасия Гаршина, Альберт Дорожко, Вадим Наймушин, Валерий Чумичев, Михаил Манюнин, Дмитрий Бутенко, Станислав Байков, Игорь Баранов, Евгений СтригунСубтитры: ОтсутствуютПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7E1344F7566D2EA72C8B6736F107DFCF9DFBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202774   (789460) от 30.01.2018
 
 Иркутская история (1973) SATRip (серии 1-2 из 2)
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789460.jpg" />
+  <img src="Z:/picture/008/save_picture_789460.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789385.jpg" />
+  <img src="Z:/picture/008/save_picture_789385.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788910.jpg" />
+  <img src="Z:/picture/008/save_picture_788910.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788463.jpg" />
+  <img src="Z:/picture/008/save_picture_788463.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787053.jpg" />
+  <img src="Z:/picture/008/save_picture_787053.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786952.jpg" />
+  <img src="Z:/picture/008/save_picture_786952.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785717.jpg" />
+  <img src="Z:/picture/008/save_picture_785717.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785286.jpg" />
+  <img src="Z:/picture/008/save_picture_785286.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783320.jpg" />
+  <img src="Z:/picture/008/save_picture_783320.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783193.jpg" />
+  <img src="Z:/picture/008/save_picture_783193.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782491.jpg" />
+  <img src="Z:/picture/008/save_picture_782491.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782475.jpg" />
+  <img src="Z:/picture/008/save_picture_782475.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780743.jpg" />
+  <img src="Z:/picture/008/save_picture_780743.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780707.jpg" />
+  <img src="Z:/picture/008/save_picture_780707.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780528.jpg" />
+  <img src="Z:/picture/008/save_picture_780528.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780225.jpg" />
+  <img src="Z:/picture/008/save_picture_780225.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780084.jpg" />
+  <img src="Z:/picture/008/save_picture_780084.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779939.jpg" />
+  <img src="Z:/picture/008/save_picture_779939.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778835.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778832.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778831.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778664.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778499.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778076.jpg" />
 </div>
 
 
@@ -622,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2B7782D0AD5D5F71E60739C7A040A2826C10D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535743   (774626) от 23.05.2013
-
-Сирано Де Бержерак (1989) VHSRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноименной пьесе Эдмона Ростана.
-Талантливый поэт Сирано де Бержерак считает, что его отталкивающая внешность не дает ему право открыть свою любовь прекрасной Роксане, которую он давно предано любит. Благородный и самоотверженный человек, он помогает своему молодому другу завоевать сердце девушки, надеясь, что это принесет счастье Роксане.Жанр: ДрамаРежиссер: Наум БирманАктеры: Григорий Гладий, Ольга Кабо, Андрей Подошьян, Валерий Ивченко, Виктор Степанов, Сергей Мигицко, Михаил Светин, Ирина Губанова, Сергей Бехтерев, Игорь ДмитриевПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10584CF289FD9A1CFD18294FF4B51A1288DA3AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213116   (773080) от 15.03.2018
-
-Такси-блюз (1990) WEB-DLRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодраматическая история о том, как жизнь соединила двоих ни в чем не схожих людей — практичного таксиста и безвольного спившегося музыканта.Производство: СССР, ФранцияЖанр: Драма, комедияРежиссер: Павел ЛунгинАктеры: Петр Мамонов, Петр Зайченко, Наталья Коляканова, Елена Сафонова, Владимир Кашпур, Хол Сингер, Сергей Газаров, Евгений Герчаков, Дмитрий Пригов, Игорь Золотовицкий, Валерий ХлевинскийСубтитры: ОтсутствуютПродолжительность: 01:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BC199A1B0E594E4C52783E9F63978302974C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

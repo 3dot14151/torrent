@@ -1,3 +1,107 @@
+###  Публикация: 1492966   (895323) от 03.09.2021
+
+Другая свадьба / Ddo hanbeoneui wueiding / The Wedding Planner / Drama Special: Another Wedding (2012) WEBRip [H.264/720p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чха Ха Гён работает организатором свадеб и совершенно не думает о собственной личной жизни, когда вдруг, как снег на голову, сваливается очередной заказ. Будущее торжество нужно организовать как можно более тщательно, ведь замуж выходит дочка крупного японского инвестора. Однако эта свадьба будет большим сюрпризом для Ха Гён, так как жених – не кто иной, как…Производство: Южная Корея, KBS2Жанр: Драма, мелодрама, комедияРежиссер: Чхве Чжи ЁнАктеры: Хон Су Хён, Джин Ли Хан, Фуджий Мина, Ким Сыль Ги, Ким Мин Гё, Чхве Хи-со, Ким Бо-ёнПеревод: Двуголосый любительский (АрхиAsia)Субтитры: РусскиеПродолжительность: 01:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E954BA8F0C99E3B8052AB2B21F875F01107C6C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370621   (895155) от 28.03.2020
+
+История Мари и трех щенков / Mari to koinu no monogatari / A Tale of Mari and Three Puppies (2007) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895155.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшом посёлке Ямакоси, к несказанной радости своих маленьких хозяев, Аи и Риоты, собака, по имени Мари, производит на свет трех очаровательных щенков. Эти животные становятся бальзамом для раненых детских душ, ведь мама Аи и Риоты умерла, и дети отчаянно тосковали по ней. Жизнь детей снова наполнилась радостью, но впереди их ждало серьёзное испытание.Производство: Япония / Amuse Soft Entertainment, Chukyo TV Broadcasting Company (CTV), Fukuoka BroadcastingЖанр: ДрамаРежиссер: Рюити ИноматаАктеры: Ёсикадзу Эбису, Эйитиро Фунакоси, Рёхэй Хирота, Юкидзиро Хотару, Мао Кобаяси, Акико Мацумото, Хироки Миякэ, Кэндзиро Насимото, Такэхико Оно, Мао СасакиПеревод: Двуголосый любительский (Joss, Gela)Субтитры: Русские, английские, китайскиеПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEDA10F356A3B3D70A41FF342DDF4086CADE667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993632   (894953) от 05.03.2016
+
+Крадущийся тигр, затаившийся дракон: Меч судьбы / Crouching Tiger, Hidden Dragon: Sword of Destiny (2016) WEB-DLRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894953.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об утраченной любви, юной любви, легендарном мече и единственном шансе на спасение.Производство: США / China Film Group, Netflix, Pegasus Taihe EntertainmentЖанр: Фэнтези, Боевик, Драма, ПриключенияРежиссер: Юэнь Воо-пинАктеры: Донни Ен, Мишель Йео, Гарри Шам мл., Джейсон Скотт Ли, Евгения Йуан, Жужу Чан, Крис Пэнг, Дэррил Квон, Роджер Йуан...Перевод: Многоголосый закадровый, любительскийЯзык субтитров: Английские, голландские, французские, немецкие, итальянскиеПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437D8DC00E4A509F2C22866857F7F9CB81EC5C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493649   (893861) от 04.09.2021
+
+Слезы для тебя / Nada so so / Nada sou sou / Tears for You (2006) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история о сводных брате и сестре Йотаро и Каору. Йотаро недавно исполнился 21 год, он много работает, чтобы заботиться о своей сестре, которая живёт в маленькой деревушке на острове, и чтобы исполнить мечту — открыть свой ресторан. Забот у него становится вдвое больше когда к нему в Окинаву приезжает сестра, чтобы жить с ним и учиться в хорошей средней школе.Производство: Япония, Amuse, Horipro, Mainichi Broadcasting System (MBS)Жанр: Драма, мелодрамаРежиссер: Нобухиро ДоиАктеры: Сатоси Цумабуки, Масами Нагасава, Кумико Асо, Эйитиро Фунакоси, Исао Хасидзумэ, Рёхэй Хирота, Кёко Коидзуми, Аико Морисита, Тацуя Накамура, Нао ОмориПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английскиеПродолжительность: 01:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D770FAD2DCE7E6A5E6345BA0BD646EE68B99570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494020   (891804) от 05.09.2021
 
 Ассасин: Битва миров / A Writer's Odyssey: Assassin in red / Ci sha xiao shuo jia  (2021) BDRemux [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891804.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891584.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889924.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889741.jpg" />
+  <img src="Z:/picture/005/save_picture_889741.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889277.jpg" />
+  <img src="Z:/picture/005/save_picture_889277.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889176.jpg" />
+  <img src="Z:/picture/005/save_picture_889176.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888734.jpg" />
+  <img src="Z:/picture/005/save_picture_888734.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887137.jpg" />
+  <img src="Z:/picture/005/save_picture_887137.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886840.jpg" />
+  <img src="Z:/picture/005/save_picture_886840.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886806.jpg" />
+  <img src="Z:/picture/005/save_picture_886806.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886593.jpg" />
+  <img src="Z:/picture/005/save_picture_886593.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886503.jpg" />
+  <img src="Z:/picture/005/save_picture_886503.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886422.jpg" />
+  <img src="Z:/picture/005/save_picture_886422.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885809.jpg" />
+  <img src="Z:/picture/005/save_picture_885809.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885669.jpg" />
+  <img src="Z:/picture/005/save_picture_885669.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885403.jpg" />
+  <img src="Z:/picture/005/save_picture_885403.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884690.jpg" />
+  <img src="Z:/picture/005/save_picture_884690.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884675.jpg" />
+  <img src="Z:/picture/005/save_picture_884675.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884584.jpg" />
+  <img src="Z:/picture/005/save_picture_884584.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884379.jpg" />
+  <img src="Z:/picture/005/save_picture_884379.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883784.jpg" />
+  <img src="Z:/picture/005/save_picture_883784.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883348.jpg" />
+  <img src="Z:/picture/005/save_picture_883348.jpg" />
 </div>
 
 
@@ -563,111 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A19706E2103D86E17A4C160A8F049FF81B5C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495236   (882382) от 11.09.2021
-
-Радуга над островом Цзиньмынь / Kinmonto ni kakeru hashi / Rainbow Over Kinmon (1962) WEB-DL [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осень 1958 года. Доктор Такэй стоит на палубе грузового судна, наблюдая вдалеке тёмные очертания острова Цзиньмынь. В его голове бурлит поток воспоминаний трёхлетней давности, когда он работал в госпитале в Токио и лечил раненых солдат с линии фронта Корейской войны. Он вспоминает, как встретил женщину по имени Ли Чун, которая приехала с Тайваня, чтобы увидеть своего (   Читать дальше...   )Производство: Япония, Nikkatsu, Central Motion PicturesЖанр: Боевик, военный, драма, история, мелодрамаРежиссер: Акинори МацуАктеры: Юдзиро Исихара, Ва Ян, Идзуми Асикава, Хидэаки Нитани, Тан Баоюнь, Сиро Осака, Чиа Чи Ву, Кэн Яманоути, Йинг Ли, Коон-Чунг ЛиПеревод: Авторский (Олег Воротилин)Субтитры: АнглийскиеПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E7144B223106E48C8E346DCEEB827ED09D8124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495227   (882260) от 11.09.2021
-
-Врата дракона / Long men fei jia / The Flying Swords of Dragon Gate (2011) BDRip [H.264/1080p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно древней легенде каждые 60 лет сильнейшая песчаная буря смывает песок, под которым спрятан Золотой город, полный сокровищ. В ожидании бури в гостинице Врата Дракона собирается разномастная компания охотников за сокровищами Золотого города. Тут и император одной из китайских провинций и тайный министр другой провинции и две банды наемных убийц. Все они жаждут (   Читать дальше...   )Производство: Китай / Beijing Liangzi Group, Beijing Poly-bona Film Publishing Co. LtdЖанр: Боевик, ПриключенияРежиссер: Цуй ХаркАктеры: Джет Ли, Чжоу Сюнь, Чэнь Кунь, Луньмэй Квай, Юйчунь Ли, Мевис Фэн, Фан Сю-Вонг, Цзя-Хуэй Лю, Цзянькуй Сунь, Чиэнь ШэнПеревод: ДублированныйСубтитры: английскиеПродолжительность: 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F3D53136263C0EDBA636244C88346085CB53FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372858   (881442) от 05.04.2020
-
-Зверь / Biseuteu (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двум детективам, которые терпеть друг друга не могут, приходится действовать сообща, чтобы расследовать шокирующее убийство.Производство: Корея Южная / Next Entertainment World, Studio & NewЖанр: Детектив, боевик, криминал, триллерРежиссер: Ли Джон-хоАктеры: Ли Сон-мин, Ю Джэ-мён, Чон Хе-джин, Чхве Даниель, Ким Хо-джон, Ким Бён-чхун, Ан Щи-ха, Ли Сан-хи, Ким Хон-пха, Ок Ча-ёнПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 02:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC86CBCAF76588FDA5AF31EAAE9C0AA2E0160CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996207   (880631) от 13.03.2016
-
-Отверженные / Fong juk (2006) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макао, 1998 год. Власть в Макао переходит от португальских колониальных властей к правительству КНР. Остров становится ареной ожесточенной борьбы за сферы влияния между местной мафией и бандитскими группировками с материка.
-На фоне этих событий и разворачивается центральный конфликт фильма: двое гонконгских киллеров прибывают на Макао, чтобы по заданию босса расправится (   Читать дальше...   )Производство: Гонконг / Media Asia Films, Milky Way Image CompanyЖанр: Боевик, Триллер, КриминалРежиссер: Джонни ТоАктеры: Энтони Вонг Чау-Санг, Френсис Нг, Саймон Ям, Ник Чунг, Ричи Рен, Рой Чунг, Джози Хо, Сует Лам, Ка Танг Лам, Сиу-Фай ЧунгПеревод: Авторский, Профессиональный (многоголосый, закадровый)Субтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D61DD3AAE249063F8B4B62CA2D84A6CF75FF73
 ```
 
 https://mybot314.ru/tekegram_catalog/

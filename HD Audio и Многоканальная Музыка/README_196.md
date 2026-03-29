@@ -1,3 +1,235 @@
+###  Публикация: 1790658   (68025) от 10.04.2025
+
+Dee Brown - Mister Smooth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mister Smooth (3:38)
+02.  Wes 8Mile (4:09)
+03.  The Thing Is... (4:00)
+04.  We Are Family (3:50)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA68FD6C75743B4A341F81267C8AC349F3F558C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790720   (68023) от 10.04.2025
+
+Bellwether Breaks - Prove It To Me (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prove It To Me (4:58)
+02. Balls And Chains (3:20)
+03. About A Girl (3:37)
+04. Mr. Stupid Shoes (5:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AE322F30238537B9BAE148238D0FFDAC598A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790654   (68021) от 10.04.2025
+
+Dave Mason - A Shade Of Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Joe Bonamassa - Use It, Or Lose It (4:08)
+02.  Come Home In My Kitchen (3:00)
+03.  MICHAEL MCDONALD - It's Just You And Me (3:13)
+04.  Cocaine Blues (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EE5B31790CCA68E16C849DA0074CB5B2EC0B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790747   (68016) от 10.04.2025
+
+Nicolas Santana - Bathe In The Sun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Dystopia (4:15)
+02. Non-Existence (4:03)
+03. You Don't Need Me Anymore (4:31)
+04. I'm Not Sad For Your Departure (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDC6FDF806B74B4FDFBE82DB3FF529B33CBBE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790727   (68009) от 10.04.2025
+
+FeProject - Love Changes The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Changes The World (4:16)
+02. The Option (3:41)
+03. Parallel (4:28)
+04. Believe (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5F89065D709EFB308E4B50D5857E3403199294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790742   (68008) от 10.04.2025
+
+Marvin J. Galaxy - Mild Revelation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mild Revelation (2:44)
+02. Plastic Roof (2:44)
+03. Shame (2:44)
+04. Your Grey Wounds (2:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81D287C8DE1DF4191769A948E795C453649ACAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790741   (68007) от 10.04.2025
+
+Liam Harter Leao - Settle in Chaos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Settle in Chaos 2 (4:00)
+02. Settle in Chaos (2:54)
+03. I Can't Save You (2:58)
+04. I Know You Can't Break My Heart But I'll Shatter Yours (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5937393D2640627515045D7EAF889D11E68C4CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790725   (68006) от 10.04.2025
+
+Donatas Petreikis - Northern Dream (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alaus Alaus (8:49)
+02. Halling (6:04)
+03. Hargalaten (6:08)
+04. Kalevalainen Runosavelma (6:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED97F9735D5708D50EA7300465EE19E751F7D700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790756   (68004) от 10.04.2025
 
 Zephyr Pilots - Zephyr Pilots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +238,7 @@ Zephyr Pilots - Zephyr Pilots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68004.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Daniel Meade - Hip Hip Hooray!! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68003.jpg" />
 </div>
 
 
@@ -61,7 +293,7 @@ Sewing Jar - Classic Hoots (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68002.jpg" />
 </div>
 
 
@@ -90,7 +322,7 @@ Blue Stalk - Roller Coaster (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68000.jpg" />
 </div>
 
 
@@ -119,7 +351,7 @@ Vincent Ryder - Way Too Quiet (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67999.jpg" />
 </div>
 
 
@@ -148,7 +380,7 @@ Elusive (Norway) - Studio Albums (3 releases) (2001-2007) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67998.jpg" />
 </div>
 
 
@@ -176,7 +408,7 @@ Empire Of The Sun - Ask That God (2024) Remixes, 2025, EMI Recorded[FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67994.jpg" />
 </div>
 
 
@@ -205,7 +437,7 @@ Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67978.jpg" />
 </div>
 
 
@@ -234,7 +466,7 @@ Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sym
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67975.jpg" />
 </div>
 
 
@@ -263,7 +495,7 @@ Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67970.jpg" />
 </div>
 
 
@@ -292,7 +524,7 @@ Steven Hufalar - Memento Mori (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67957.jpg" />
 </div>
 
 
@@ -321,7 +553,7 @@ Macbeth (Germany) - Studio Albums (5 releases) (2006-2020) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67955.jpg" />
 </div>
 
 
@@ -351,7 +583,7 @@ Chvrches - The Bones Of What You Believe (2013) 10th Anniversary Edition, 2023, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67947.jpg" />
 </div>
 
 
@@ -380,7 +612,7 @@ Metallica - Reload (1997) Reissue, 2015, Blackened [FLAC|24/192|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67920.jpg" />
 </div>
 
 
@@ -409,7 +641,7 @@ Epica - Aspiral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic-Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67898.jpg" />
 </div>
 
 
@@ -438,7 +670,7 @@ Macbeth (Italy) - Studio Albums (5 releases) (1998-2014) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67888.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Ryoji Shinomoto - Children of Bushido (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67887.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ Sunwalter - Rebuilding The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67885.jpg" />
 </div>
 
 
@@ -510,238 +742,6 @@ Sunwalter - Rebuilding The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA2ADB9B5B5D9B2597B0756FAE87D1D0C790091C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791260   (67882) от 12.04.2025
-
-Alex Okami - Strange As Angels (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk, Gothic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Dark [00:03:13]
-02. Telarañas [00:03:48]
-03. Under My Skin [00:03:22]
-04. Monster [00:03:36](   Читать дальше...   )Жанр: Darkwave, Post-Punk, Gothic RockПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7306BA225FCA50E532DDA060BC7AA76629AA8044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791208   (67875) от 12.04.2025
-
-Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One :
-01. All Men Play On 10
-02. Animals
-03. Thor (The Powerhead)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3377F5E3AADEEB80833FAF0FF89130877AAD1B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791185   (67870) от 12.04.2025
-
-Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mechanize
-02. Industrial Discipline
-03. Fear Campaign
-04. Powershifter(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791116   (67869) от 12.04.2025
-
-Within Destruction - Animetal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Metalcore, Electronic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Animetal (00:03:53)
-02 - Demon Child (00:02:55)
-03 - Kanashibari (00:03:30)
-04 - Bitter Embrace (00:03:34)(   Читать дальше...   )Жанр: Nu Metal, Metalcore, Electronic RockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F9F30CE99E0F9945AE9D55B60A9B1AB26F2AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791298   (67824) от 13.04.2025
-
-Destinity - Ascension (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascension (1:18)
-02. Light up Your Sky (3:45)
-03. Dying Light (3:56)
-04. Crimson Portrait (4:27)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E1F73DEB171678C4E9FE07651D20D22E614B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791482   (67806) от 14.04.2025
-
-Elvenking - Reader Of The Runes - Luna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Metal, Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Season Of The Owl [5:20]
-02 - Luna [3:08]
-03 - Gone Epoch [4:58]
-04 - Stormcarrier (feat. Mathias Lillmåns) [4:53](   Читать дальше...   )Жанр: Folk Metal, Melodic Power MetalПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6E8F4715B914EE8D52F1A523689F149549960A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791467   (67802) от 14.04.2025
-
-Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (Live In Helsinki 2023) [2:09]
-02 - Circus of Doom (Live In Helsinki 2023) [4:42]
-03 - Straight to the Heart (Live In Helsinki 2023) [4:17]
-04 - Familiar Hell (Live In Helsinki 2023) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1236B5A84CE414CECC53A30120E8E11702559742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791765   (67777) от 15.04.2025
-
-Mentalist - Earthbreaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Intro
-02 – Earthbreaker
-03 – March On Legionnaire
-04 – Event Horizon(   Читать дальше...   )Жанр: Melodic Power, Heavy MetalПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18471EEC3707571A46382FC4196386ADDA077B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

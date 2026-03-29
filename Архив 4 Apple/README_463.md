@@ -1,3 +1,114 @@
+###  Публикация: 1185665   (291736) от 22.11.2017
+
+KeyKey 2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291736.jpg" />
+</div>
+
+
+###  Подробнее
+
+KeyKey — учимся слепому набору
+Слепая десятипальцевая печать — штука полезная. Даже если вы пишите только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
+
+Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: Sergiy VynnychenkoПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Украинский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789D5A268790A51DABCA7E03B297F4BDC37EB9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185664   (291726) от 22.11.2017
+
+iExplorer 4.1.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
+
+iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 ноября 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E40625EEF72CE5637732C1493531B86FF02822F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185663   (291723) от 22.11.2017
+
+AnyTrans 6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291723.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans - Управляем своими файлами вместе с AnyTrans
+AnyTrans - файловый менеджер, который отвечает за перемещение файлов с персонального компьютера на устройство iOS. Для более легкого обучения пользования всеми функциями менеджера предусмотрен специальный режим легкого и быстрого обучения "iWizard", который последовательно проведет вас через необходимые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FBCB376F4C20D19BA2EEF2B87D31224FAF2623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334784   (291680) от 31.10.2019
+
+Art Files 3 v3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Files идеально подходит для иллюстраторов и художников или тех, кто работает с графическими файлами и нуждается в отправке документов другим лицам для редактирования или печати.
+Программа собирает все данные о .ai файлах (Adobe illustrator) - данные о шрифтах, других файлах, которые относятся к Вашему проекту. Также Art Files обладает уникальной способностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Code LineПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3E4CF03042F081E4518E5484B6CE9A81B750A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334950   (291679) от 31.10.2019
 
 Cascadea 1.4.4 [En]
@@ -6,7 +117,7 @@ Cascadea 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291679.jpg" />
+  <img src="Z:/picture/008/save_picture_291679.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ AudioSwitcher 2.99.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291678.jpg" />
+  <img src="Z:/picture/008/save_picture_291678.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ Get Backup Pro 3 v3.4.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291673.jpg" />
+  <img src="Z:/picture/008/save_picture_291673.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ Currencier 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291672.jpg" />
+  <img src="Z:/picture/008/save_picture_291672.jpg" />
 </div>
 
 
@@ -113,7 +224,7 @@ PDFpen Pro 11.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291671.jpg" />
+  <img src="Z:/picture/008/save_picture_291671.jpg" />
 </div>
 
 
@@ -139,7 +250,7 @@ Downie 3 v3.8.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291668.jpg" />
+  <img src="Z:/picture/008/save_picture_291668.jpg" />
 </div>
 
 
@@ -167,7 +278,7 @@ WonderPen 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291580.jpg" />
+  <img src="Z:/picture/008/save_picture_291580.jpg" />
 </div>
 
 
@@ -195,7 +306,7 @@ GrandTotal 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291573.jpg" />
+  <img src="Z:/picture/008/save_picture_291573.jpg" />
 </div>
 
 
@@ -223,7 +334,7 @@ DxO PhotoLab 3 ELITE Edition 3.0.1(build 23) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291530.jpg" />
+  <img src="Z:/picture/008/save_picture_291530.jpg" />
 </div>
 
 
@@ -251,7 +362,7 @@ MediaInfo 19.09 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291505.jpg" />
+  <img src="Z:/picture/008/save_picture_291505.jpg" />
 </div>
 
 
@@ -277,7 +388,7 @@ Folder Designer 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291414.jpg" />
+  <img src="Z:/picture/008/save_picture_291414.jpg" />
 </div>
 
 
@@ -303,7 +414,7 @@ Boinx FotoMagico Pro 5 v5.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291396.jpg" />
+  <img src="Z:/picture/008/save_picture_291396.jpg" />
 </div>
 
 
@@ -331,7 +442,7 @@ Swinsian 1.11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291336.jpg" />
+  <img src="Z:/picture/008/save_picture_291336.jpg" />
 </div>
 
 
@@ -358,7 +469,7 @@ Grids for Instagram 5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291330.jpg" />
+  <img src="Z:/picture/008/save_picture_291330.jpg" />
 </div>
 
 
@@ -385,7 +496,7 @@ UniConverter 11.5.1.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291314.jpg" />
+  <img src="Z:/picture/008/save_picture_291314.jpg" />
 </div>
 
 
@@ -413,7 +524,7 @@ Inboard 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291162.jpg" />
+  <img src="Z:/picture/008/save_picture_291162.jpg" />
 </div>
 
 
@@ -442,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291135.jpg" />
+  <img src="Z:/picture/008/save_picture_291135.jpg" />
 </div>
 
 
@@ -469,7 +580,7 @@ Gemini 2: The Duplicate Finder 2.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291128.jpg" />
+  <img src="Z:/picture/008/save_picture_291128.jpg" />
 </div>
 
 
@@ -497,7 +608,7 @@ MAMP & MAMP PRO 5.2 (rel2)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291070.jpg" />
+  <img src="Z:/picture/008/save_picture_291070.jpg" />
 </div>
 
 
@@ -523,7 +634,7 @@ Audiobook Builder 1.5.4 (115) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290984.jpg" />
+  <img src="Z:/picture/008/save_picture_290984.jpg" />
 </div>
 
 
@@ -551,7 +662,7 @@ Transmit 5 v5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290731.jpg" />
+  <img src="Z:/picture/008/save_picture_290731.jpg" />
 </div>
 
 
@@ -579,7 +690,7 @@ Autodesk AutoCAD 2018 (O.48.M.294) for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290623.jpg" />
+  <img src="Z:/picture/008/save_picture_290623.jpg" />
 </div>
 
 
@@ -590,120 +701,6 @@ AutoCAD является мировым лидером среди решений
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1643DB713AA41EB157A5873A095AB1FD09DEF354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080331   (290415) от 06.12.2016
-
-Letter Templates for Pages 4.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Letter Templates – это новый вид ваших документов, созданных в Pages.
-Новый взгляд ваших писем! Современный Letter Templates включает в себя 213 узнаваемых проектов, которые были адаптированы из различных шаблонов Jumsoft для Apple Mail.
-
-Как и его эквиваленты Mail, Letter Templates for Pages представляет исключительную коллекцию писем для бизнеса и личного пользования, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0749BC69BC08ABE91A3CAEDB7C5205AA6A2C8B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080336   (290393) от 06.12.2016
-
-Shredo 1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shredo - красивая и функциональная утилита удаления файлов.
-Уничтожение данных — последовательность операций, предназначенных для осуществления программными или аппаратными средствами необратимого удаления данных, в том числе остаточной информации.
-Shredo поддерживает внешние диски и флэш-накопители.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 ноября 2016Разработчик: mymixapps.comПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8478C7B4D73926E40D4A065A06CD4BB2C72F44B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080260   (290324) от 06.12.2016
-
-Watts 2.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watts - инструмент для управления батареей и помощник в её калибровке.
-Приложение меню-бара, которое, помимо обычной информации о батарее (какой источник питания используется, ток заряда батареи и оставшееся время), предоставляет дополнительные данные для получения максимальной производительности батареи. Работает на любой модели MacBook® (MacBook®, MacBook Air®, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08 ноября 2016Разработчик: Binary TricksПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8381D475FC7F6034EC447F11045FD77D169BF92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080421   (290321) от 06.12.2016
-
-PDF Expert 2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290321.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - многофункциональная утилита для работы с PDF
-PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
-
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06 декабря 2016Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF505CF567C90A58C63AE27B9CA9ADAD188BBC3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1598714   (162023) от 20.12.2022
+
+Lesbian Bed Death - The Plague Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Book Of The Dead 03:31
+02. Halloween 03:32
+03. Death By Stereo 03:53
+04. Evil Never Dies 04:14(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1B8B59EFAF5D5E834E9EC9A1982B3D1E358143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598741   (162006) от 20.12.2022
+
+Sonum X - Metamorpher (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro.Version [00:02:06]
+02. Metamorpher [00:03:12]
+03. X.@.n.@.X. [00:03:31]
+04. Dust n' bones [00:04:41](   Читать дальше...   )Жанр: Heavy Psych, StonerПродолжительность: 00:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D7816CDF46F7BC0BD2EB9123F5D75D0BCEEF5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598713   (161936) от 20.12.2022
 
 Lesbian Bed Death - The Witching Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
@@ -6,7 +64,7 @@ Lesbian Bed Death - The Witching Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161936.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Bacchus Baracus - All Art Is Theft (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161445.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Pussies On The Dancefloor - Rumors (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161001.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Bon Jovi - These Days (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Soft Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160989.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Beyond the Flames - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160295.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Skid Row - 6 Albums, 3 EP, 1 Compilation (1989 - 2022) 15 CD [Lossless|FLAC|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159679.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Howard - Event Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159651.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Black Sabbath - 19 Studio Albums, 7 Live Albums, 17 Compilations, 12 Singles EPs
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159463.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ In And Out - In And Out (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159390.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159055.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Jared James Nichols - 3 Albums (2014-2023) [FLAC|Lossless|image + .cue|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158877.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Pretty Maids - 22 albums, 48 CD (1983-2023) Discography [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158733.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Kingdom Come - In Your Face (1989) Japanese Edition, 2013,  Polydor [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158682.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Deep Purple - Machine Head (1972) /1987, Warner Bros. Records/ [FLAC|Lossless]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158023.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ Mastedon - 3 альбома Collection (1989-2009) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157883.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ Bon Jovi - Slippery When Wet (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Sof
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157828.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ Landfall - The Turning Point (2020) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157325.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ Electric Mob - Discharge (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157251.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ Black Sabbath - The End (2017) Live, 3CD, Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157078.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ Airbourne - 7 аlbums, 1 Box set, 13 CD (2004-2019) [FLAC|Lossless|image + .cue 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156773.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ Def Leppard - Limited Edition CD Singles Collector's Box (1993) 4CD [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156472.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Six Bar Break - Ghost Town (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155818.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Emerald Rain - 6 альбомов Discography (1997-2005) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154319.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ THAL (The Heathens Are Loose) - Swarm the Mandala (2022) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154278.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ THAL (The Heathens Are Loose) - Swarm the Mandala (2022) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02E418B70E582CEB614728CED4648C533ED07FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347085   (154253) от 22.12.2019
-
-Degreed - 4 альбома Discography (2010-2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2010 - Life Love Loss
-2013 - We Don't Belong
-2015 - Dead But Not Forgotten(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 03:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19BD7FD917CD56773A1FAA9C6EA8A026F59313D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577838   (154243) от 22.12.2020
-
-Gotthard - Firebirth (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlight
-02. Give me real
-03. Remember it´s me
-04. Fight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA877CD3496F976D01664D01F45DDC6BD7E4036F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Stats 2.6.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808437.jpg" />
+  <img src="Z:/picture/008/save_picture_808437.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Switch 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808436.jpg" />
+  <img src="Z:/picture/008/save_picture_808436.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TunesKit AceMovi Video Editor 4.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808433.jpg" />
+  <img src="Z:/picture/008/save_picture_808433.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Affinity Photo 1.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808427.jpg" />
+  <img src="Z:/picture/008/save_picture_808427.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808426.jpg" />
+  <img src="Z:/picture/008/save_picture_808426.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808405.jpg" />
+  <img src="Z:/picture/008/save_picture_808405.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808404.jpg" />
+  <img src="Z:/picture/008/save_picture_808404.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ iTubeDownloader 6.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808403.jpg" />
+  <img src="Z:/picture/008/save_picture_808403.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808397.jpg" />
+  <img src="Z:/picture/008/save_picture_808397.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808371.jpg" />
+  <img src="Z:/picture/008/save_picture_808371.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808370.jpg" />
+  <img src="Z:/picture/008/save_picture_808370.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808369.jpg" />
+  <img src="Z:/picture/008/save_picture_808369.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808368.jpg" />
+  <img src="Z:/picture/008/save_picture_808368.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808367.jpg" />
+  <img src="Z:/picture/008/save_picture_808367.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808366.jpg" />
+  <img src="Z:/picture/008/save_picture_808366.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - #Tranceforlife Vol. 3 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808365.jpg" />
+  <img src="Z:/picture/008/save_picture_808365.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808364.jpg" />
+  <img src="Z:/picture/008/save_picture_808364.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Trance Line Vol.5 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808360.jpg" />
+  <img src="Z:/picture/008/save_picture_808360.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Best Of First 50 (Compiled & Mixed by Stephane Badey & Arrakeen) (2015) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808354.jpg" />
+  <img src="Z:/picture/008/save_picture_808354.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - We Are Trance Vol. 2 (Mixed by Pierre Pienaar) (2016) [MP3|320 кб/с] <Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808353.jpg" />
+  <img src="Z:/picture/008/save_picture_808353.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Bazzookas - Ska.World (2016) [FLAC|Lossless|WEB-DL|tracks] <Ska, Altertative>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808352.jpg" />
+  <img src="Z:/picture/008/save_picture_808352.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Affinity Designer 1.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808350.jpg" />
+  <img src="Z:/picture/008/save_picture_808350.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Blocs 4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808347.jpg" />
+  <img src="Z:/picture/008/save_picture_808347.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Timeline 3D 5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808339.jpg" />
+  <img src="Z:/picture/008/save_picture_808339.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Reeder 5 v5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808336.jpg" />
+  <img src="Z:/picture/008/save_picture_808336.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Boards Of Canada - 9 Альбомов (1996 - 2006) [FLAC|Lossless] <IDM, Downte
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808325.jpg" />
+  <img src="Z:/picture/008/save_picture_808325.jpg" />
 </div>
 
 

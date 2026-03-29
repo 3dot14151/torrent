@@ -1,3 +1,107 @@
+###  Публикация: 1375255   (301517) от 12.11.2020
+
+Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301517.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем мир изнывает от войн, коррупции и ужасной экологии, поэтому влиятельные корпорации разработали программу Genesis в отчаянной попытке спасти человечество. Вам предстоит стать капитаном космического корабля Genesis и отправиться в неизведанные космические глубины с важнейшей задачей. Стройте космические корабли и управляйте ими, производите ресурсы, (   Читать дальше...   )Тип издания: LicenseРазработчик: Radiation BlueЖанр: Экшн, Ролевая игра, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4867FEED2B4EF94E897231A783655C56657005B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184523   (300659) от 17.11.2017
+
+Hollow (2017) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300659.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Hollow вы - один из пилотов, перевозящих ресурсы с корабля «Шахтер-1» на Землю. Однажды вы просыпаетесь в спасательной капсуле, дрейфующей рядом с добывающим комплексом. Вы не помните, кто вы и как вы сюда попали... Все, что осталось в памяти - стыковочный код автопилота для капсульного дока номер 6. Как только вы стыкуетесь с «Шахтером-1», становится ясно: (   Читать дальше...   )Тип издания: LicenseРазработчик: MMEUЖанр: Action, Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FFE975525C9DC457C8695ABFFF95A59A0A9A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664973   (298993) от 03.12.2014
+
+Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.05/2dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: RePackРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Итальянский, Французский, Немецкий, Польский, Бразильский, ЯпонскийЯзык интерфейса: Русский, Английский, Испанский, Итальянский, Французский, Немецкий, Польский, Бразильский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61017256AE79ACADD8EF78842E58B45AA9BA549C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184717   (298439) от 18.11.2017
+
+Hollow (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298439.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Hollow вы - один из пилотов, перевозящих ресурсы с корабля «Шахтер-1» на Землю. Однажды вы просыпаетесь в спасательной капсуле, дрейфующей рядом с добывающим комплексом. Вы не помните, кто вы и как вы сюда попали... Все, что осталось в памяти - стыковочный код автопилота для капсульного дока номер 6. Как только вы стыкуетесь с «Шахтером-1», становится ясно: (   Читать дальше...   )Тип издания: RepackРазработчик: MMEUЖанр: Action, Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879826A00DD2695472BAD59FAD2429CA8498553F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184675   (298435) от 18.11.2017
 
 Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
@@ -6,7 +110,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298435.jpg" />
+  <img src="Z:/picture/008/save_picture_298435.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298430.jpg" />
+  <img src="Z:/picture/008/save_picture_298430.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298331.jpg" />
+  <img src="Z:/picture/008/save_picture_298331.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Maize (2016) [En] (1300) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297278.jpg" />
+  <img src="Z:/picture/008/save_picture_297278.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296375.jpg" />
+  <img src="Z:/picture/008/save_picture_296375.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Betrayer (2014) [Multi] (1.8.5816) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295247.jpg" />
+  <img src="Z:/picture/008/save_picture_295247.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Generation Zero (2019) [Ru/Multi] (Build 20191028/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294331.jpg" />
+  <img src="Z:/picture/008/save_picture_294331.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Borderlands (2009) [Ru] (1.5.0/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292597.jpg" />
+  <img src="Z:/picture/008/save_picture_292597.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292538.jpg" />
+  <img src="Z:/picture/008/save_picture_292538.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291220.jpg" />
+  <img src="Z:/picture/008/save_picture_291220.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290756.jpg" />
+  <img src="Z:/picture/008/save_picture_290756.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290706.jpg" />
+  <img src="Z:/picture/008/save_picture_290706.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290627.jpg" />
+  <img src="Z:/picture/008/save_picture_290627.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289639.jpg" />
+  <img src="Z:/picture/008/save_picture_289639.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289284.jpg" />
+  <img src="Z:/picture/008/save_picture_289284.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Awe of Despair (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288868.jpg" />
+  <img src="Z:/picture/008/save_picture_288868.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288862.jpg" />
+  <img src="Z:/picture/008/save_picture_288862.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Call of Duty: Advanced Warfare (2014) [Ru/En] (1.22.0.1/upd12/dlc) Rip R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285388.jpg" />
+  <img src="Z:/picture/008/save_picture_285388.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0upd5) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285240.jpg" />
+  <img src="Z:/picture/008/save_picture_285240.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Borderlands Game of the Year Enhanced (2019) [Ru] (1.5.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285224.jpg" />
+  <img src="Z:/picture/008/save_picture_285224.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Root Of Evil: The Tailor (2016) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283632.jpg" />
+  <img src="Z:/picture/008/save_picture_283632.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Battlefield: Bad Company 2 (2010) [Ru/En] (795745) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283356.jpg" />
+  <img src="Z:/picture/008/save_picture_283356.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Battlefield: Bad Company 2 (2010) [Ru/En] (795745) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EB986B7E30D9E0A3AEA57E7528B56786D50C761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081586   (282132) от 10.12.2016
-
-Signal Ops (2013) [En] (1.0.5361) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы - вошь на голове террориста. Мы - прыщик на заднице повстанца. Мы - гроза всех кто не с нами! Мы - сверх-засекреченная группа правительственных агентов. Мы настолько засекречены что даже не знаем где мы находимся! Но знаем мы одно - мы блюдём порядок в этой стране. Да умрёт повстанец, да будет наказан хакер! Во имя Тёмного Отца!Тип издания: LicenseРазработчик: Space Bullet Dynamics CorporationЖанр: Action (Tactical, Shooter), 3D, 1st Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065C3BD3DF78E298BAF07AA2496552424E373C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082704   (276687) от 13.12.2016
-
-Killing Room (2016) [Ru/Multi] (1.37.7) Repack Seraph1
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Killing Room – шутер от первого лица с элементами непредсказуемой ролевой игры и пародии на реалити-шоу. Вы – (не)везучий участник Killing Room, популярного в разлагающемся 22 веке реалити-шоу. Вы знаете, что отсюда два выхода – слава или смерть, причем смерть наступает в 99 из 100 случаев.Тип издания: RepackРазработчик: Alda GamesЖанр: Action (Shooter), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDDE1D402751727C39A5964A0119E11F4A28868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078933   (276627) от 13.12.2016
-
-Maize (2016) [En] (1.0.1310) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maize – приключение с видом от первого лица, рассказывающее о событиях, причиной которых стало неправильное понимание заметки от правительства США двумя учеными. В результате был выведен сорт разумной кукурузы, и эта самая кукуруза – не самое нелепое, что есть в игре. Игрокам предстоит исследовать заброшенную ферму и не столь уж и заброшенную подземную исследовательскую (   Читать дальше...   )Тип издания: LicenseРазработчик: Finish Line GamesЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A1A2FD5B14A4AEC30F9CEF70ED45E9F3412DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 118000   (276180) от 26.11.2018
-
-Outlaws (1997) [En] (1.0) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276180.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дом честного и, конечно, бедного начальника полицейского участка напали бандиты: достал он их своей честностью и принципиальностью. Бандиты убили жену полицейского, сожгли его дом и похитили единственную дочь – Сару. Безутешный отец и муж (в его роли – Джеймс Андерсон) решил, что ему больше нечего терять, и пошел мочить бандитов направо и налево.Тип издания: LicenseРазработчик: Lucas ArtsЖанр: Action, 3DЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB01038EF184C8D11840BFA4BA3F87AE17E8E3A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

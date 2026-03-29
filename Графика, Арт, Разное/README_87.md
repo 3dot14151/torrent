@@ -1,3 +1,29 @@
+###  Публикация: 540228   (504799) от 28.08.2012
+
+Maple Yuan [Графика]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_504799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maple Yuan
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A5512D0DD4D0CA1DA107C78FAD811F4706C7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540222   (504737) от 28.08.2012
 
 Artworks by Cyril Van Der Haegen [Графика]
@@ -6,7 +32,7 @@ Artworks by Cyril Van Der Haegen [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504737.jpg" />
+  <img src="Z:/picture/008/save_picture_504737.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504673.jpg" />
+  <img src="Z:/picture/008/save_picture_504673.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504596.jpg" />
+  <img src="Z:/picture/008/save_picture_504596.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504492.jpg" />
+  <img src="Z:/picture/008/save_picture_504492.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504489.jpg" />
+  <img src="Z:/picture/008/save_picture_504489.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504405.jpg" />
+  <img src="Z:/picture/008/save_picture_504405.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504398.jpg" />
+  <img src="Z:/picture/008/save_picture_504398.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504388.jpg" />
+  <img src="Z:/picture/008/save_picture_504388.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504382.jpg" />
+  <img src="Z:/picture/008/save_picture_504382.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Artworks by Jeff Wack [Рисованая графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504289.jpg" />
+  <img src="Z:/picture/008/save_picture_504289.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504153.jpg" />
+  <img src="Z:/picture/008/save_picture_504153.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504151.jpg" />
+  <img src="Z:/picture/008/save_picture_504151.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504150.jpg" />
+  <img src="Z:/picture/008/save_picture_504150.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504143.jpg" />
+  <img src="Z:/picture/008/save_picture_504143.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504133.jpg" />
+  <img src="Z:/picture/008/save_picture_504133.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Max Sauco (Макс Сауко). Фото-сюрреализм [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504105.jpg" />
+  <img src="Z:/picture/008/save_picture_504105.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504085.jpg" />
+  <img src="Z:/picture/008/save_picture_504085.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504056.jpg" />
+  <img src="Z:/picture/008/save_picture_504056.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503555.jpg" />
+  <img src="Z:/picture/008/save_picture_503555.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503477.jpg" />
+  <img src="Z:/picture/008/save_picture_503477.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503287.jpg" />
+  <img src="Z:/picture/008/save_picture_503287.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503216.jpg" />
+  <img src="Z:/picture/008/save_picture_503216.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503180.jpg" />
+  <img src="Z:/picture/008/save_picture_503180.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Digital Art Collection (29.08.2012) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502436.jpg" />
+  <img src="Z:/picture/008/save_picture_502436.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502314.jpg" />
+  <img src="Z:/picture/008/save_picture_502314.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E03253DB5793910244A22D830A005F1868980E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317127   (502302) от 30.07.2019
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (259) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FE9A06603DEDCE6C5620565A27C4631B87591E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,121 @@
+###  Публикация: 1505787   (801738) от 29.10.2021
+
+Короли Кухни - VII (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801738.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:26] 01. Поэт и стриптизерша
+[2:30] 02. Big Love
+[3:02] 03. Мой мужчина
+[2:52] 04. Чёрно-белое фото(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5A9D05AA0DC21EACB4B2A6B30829E06E012413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384750   (801675) от 21.05.2020
+
+7раса - Avidya (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801675.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я выбираю альтернативу
+2. Жёлтое пламя
+3. Масло
+4. Слёзы(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A92CA70C88F5B10444F12009ED9A095EA74120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505991   (801661) от 29.10.2021
+
+VA - Ещё Громче (Тараканы! Трибьют) (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801661.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. BRAMA - Нам не нравятся те, кому не нравимся мы
+2. Азон - Анестезия
+3. Саня Болт - Поезд в сторону Арбатской
+4. Мира - Кто же теперь будет спать со мной(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49601203C40669BA59176B45A4D6DC2D862CFBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506066   (801507) от 29.10.2021
+
+XXX $ Горы - Барышни (2021) Single [MP3|320 Kbps] <Rock, Trip-Hop, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801507.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь предстоящего Хеллоуина мы приготовили душераздирающий подарок — клип на сингл «Барышни» от группы XXX $ Горы, продюсером и инициатором которой является Шура Би-2 🤟
+Вас ждёт дикий фрик-карнавал, бесстыдный тверк, жесткий речитатив и адский разгром в клубе. Сингл, который станет вашим лучшим кошмаром. Вечеринка, с которой невозможно уйти
+XXX $ Горы (   Читать дальше...   )1. Барышни (XXX $ Горы feat. Би-2, Найк Борзов, Комсомольск, SHOOVAL, Jukebox Trio)
+2. Барышни (Dick White remix)
+3. Барышни (P. PAT remix)
+4. Барышни (JIGIT remix)(   Читать дальше...   )Жанр: Rock, Trip-Hop, SoulПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA2740D786147A4254C6B31A04442C8C84F0FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505985   (801459) от 29.10.2021
 
 Эпидемия - Призраки и тени (2021) [MP3|320 Kbps] <Power Metal>
@@ -6,7 +124,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801459.jpg" />
+  <img src="Z:/picture/008/save_picture_801459.jpg" />
 </div>
 
 
@@ -35,7 +153,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801193.jpg" />
+  <img src="Z:/picture/008/save_picture_801193.jpg" />
 </div>
 
 
@@ -64,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800414.jpg" />
+  <img src="Z:/picture/008/save_picture_800414.jpg" />
 </div>
 
 
@@ -90,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800403.jpg" />
+  <img src="Z:/picture/008/save_picture_800403.jpg" />
 </div>
 
 
@@ -119,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800361.jpg" />
+  <img src="Z:/picture/008/save_picture_800361.jpg" />
 </div>
 
 
@@ -148,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800352.jpg" />
+  <img src="Z:/picture/008/save_picture_800352.jpg" />
 </div>
 
 
@@ -177,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800342.jpg" />
+  <img src="Z:/picture/008/save_picture_800342.jpg" />
 </div>
 
 
@@ -206,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800332.jpg" />
+  <img src="Z:/picture/008/save_picture_800332.jpg" />
 </div>
 
 
@@ -232,7 +350,7 @@ Babooshka - Православный Аватар (2020) [MP3|320 Kbps] <Punk Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800201.jpg" />
+  <img src="Z:/picture/008/save_picture_800201.jpg" />
 </div>
 
 
@@ -261,7 +379,7 @@ Kruger - Созвездия фар (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799841.jpg" />
+  <img src="Z:/picture/008/save_picture_799841.jpg" />
 </div>
 
 
@@ -290,7 +408,7 @@ MARGENTA - Династия посвящённых (2007) (320 kbps) (Кипел
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799758.jpg" />
+  <img src="Z:/picture/008/save_picture_799758.jpg" />
 </div>
 
 
@@ -319,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799570.jpg" />
+  <img src="Z:/picture/005/save_picture_799570.jpg" />
 </div>
 
 
@@ -348,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799553.jpg" />
+  <img src="Z:/picture/005/save_picture_799553.jpg" />
 </div>
 
 
@@ -377,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799512.jpg" />
+  <img src="Z:/picture/005/save_picture_799512.jpg" />
 </div>
 
 
@@ -406,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799472.jpg" />
+  <img src="Z:/picture/005/save_picture_799472.jpg" />
 </div>
 
 
@@ -437,7 +555,7 @@ Fugu Quartet - Sisyphus (2016) Demo EP [MP3|320 Kbps] <post-metal, sludge, darkj
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799238.jpg" />
+  <img src="Z:/picture/008/save_picture_799238.jpg" />
 </div>
 
 
@@ -465,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799236.jpg" />
+  <img src="Z:/picture/008/save_picture_799236.jpg" />
 </div>
 
 
@@ -494,7 +612,7 @@ The Dartz - Небывалое путешествие (2017) [MP3|320 Kbps] <Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799209.jpg" />
+  <img src="Z:/picture/008/save_picture_799209.jpg" />
 </div>
 
 
@@ -523,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798765.jpg" />
+  <img src="Z:/picture/008/save_picture_798765.jpg" />
 </div>
 
 
@@ -553,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798754.jpg" />
+  <img src="Z:/picture/008/save_picture_798754.jpg" />
 </div>
 
 
@@ -582,7 +700,7 @@ Animal ДжаZ - Легенды Русского Рока (2018) [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798704.jpg" />
+  <img src="Z:/picture/008/save_picture_798704.jpg" />
 </div>
 
 
@@ -611,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798478.jpg" />
+  <img src="Z:/picture/008/save_picture_798478.jpg" />
 </div>
 
 
@@ -625,122 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CA40FB4CD204141F4DFF18D02772D3D0E1E293A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011138   (797634) от 26.04.2016
-
-Площадь Восстания - Estrada (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797634.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ESTRADA» – это честная рок-н-рольная лирика. Девять предельно откровенных историй, в которых так легко увидеть себя...1. Буду там
-2. Прости. Спасибо. Люблю
-3. Только пой (Брату)
-4. Декабрь(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFAEE0586F4125766BB52250628B89277B098DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199834   (797500) от 18.01.2018
-
-Метанойя - Гомункул (2012) [MP3|320 Kbps] <Art Rock, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: ещё есть
-02. Водолазы облаков
-03. Офелия
-04. Харон(   Читать дальше...   )Жанр: Art Rock, Art PunkПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47712ACE54D586C2BA0649C819F56C786C9AD94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199959   (797485) от 18.01.2018
-
-Аркона - Храм (2018) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мантра (Intro)
-2. Шторм
-3. Целуя жизнь
-4. Ребенок без имени(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 1:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF46BBCAD6A74BF9822AAFB3430AA7BB27A091E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508543   (797400) от 08.11.2021
-
-Стас Намин и группа «Цветы» - Летать (2021) [MP3|320 Kbps] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797400.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Другой мир
-2. Любовь
-3. Время на моей стороне
-4. Шар голубой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D17DAED0CA7955A935C923068CA469F1E8E8D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

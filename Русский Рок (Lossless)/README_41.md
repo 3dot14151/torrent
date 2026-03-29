@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259890.jpg" />
+  <img src="Z:/picture/005/save_picture_259890.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258853.jpg" />
+  <img src="Z:/picture/005/save_picture_258853.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258687.jpg" />
+  <img src="Z:/picture/005/save_picture_258687.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257179.jpg" />
+  <img src="Z:/picture/005/save_picture_257179.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256878.jpg" />
+  <img src="Z:/picture/005/save_picture_256878.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ DvärG (DvarG) - Скала (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256865.jpg" />
+  <img src="Z:/picture/005/save_picture_256865.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256499.jpg" />
+  <img src="Z:/picture/005/save_picture_256499.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - КИНОпробы - tribute Виктор Цой (2000)[APE|lossless]<rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255573.jpg" />
+  <img src="Z:/picture/005/save_picture_255573.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255547.jpg" />
+  <img src="Z:/picture/005/save_picture_255547.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255543.jpg" />
+  <img src="Z:/picture/005/save_picture_255543.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255121.jpg" />
+  <img src="Z:/picture/005/save_picture_255121.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255092.jpg" />
+  <img src="Z:/picture/005/save_picture_255092.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255089.jpg" />
+  <img src="Z:/picture/005/save_picture_255089.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254919.jpg" />
+  <img src="Z:/picture/005/save_picture_254919.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Various Artists - Любэ 35. Всё опять начинается. Триб�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252523.jpg" />
+  <img src="Z:/picture/005/save_picture_252523.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252074.jpg" />
+  <img src="Z:/picture/004/save_picture_252074.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251859.jpg" />
+  <img src="Z:/picture/004/save_picture_251859.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251246.jpg" />
+  <img src="Z:/picture/004/save_picture_251246.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250400.jpg" />
+  <img src="Z:/picture/004/save_picture_250400.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250065.jpg" />
+  <img src="Z:/picture/004/save_picture_250065.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Glory Hunters - We Play Muzik (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249815.jpg" />
+  <img src="Z:/picture/004/save_picture_249815.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249813.jpg" />
+  <img src="Z:/picture/004/save_picture_249813.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249810.jpg" />
+  <img src="Z:/picture/004/save_picture_249810.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249807.jpg" />
+  <img src="Z:/picture/004/save_picture_249807.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Brave Rockets - Привет (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249798.jpg" />
+  <img src="Z:/picture/004/save_picture_249798.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249777.jpg" />
+  <img src="Z:/picture/004/save_picture_249777.jpg" />
 </div>
 
 

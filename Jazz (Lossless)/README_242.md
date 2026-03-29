@@ -1,3 +1,119 @@
+###  Публикация: 1454063   (244054) от 14.03.2021
+
+John Coltrane with Mal Waldron - The Dealers: The Complete Sessions (1957) 2CD, 2014, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244054.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pot Pourri [6:41]
+02. J.M.'s Dream Doll [8:42]
+03. Don't Explain [7:02](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF61CB43EEECDE6EFEEBC92ECAD905686F4760E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074444   (244038) от 19.11.2016
+
+Bella Wolf - Bella Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil You Know
+02. Saqsaywaman
+03. Turn Up
+04. Look Up(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A28C40FB27746FD3A3A9A1D7F765306466129F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074436   (243943) от 19.11.2016
+
+Jimi Tenor - Saxentric (2016) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cap De Creus
+02. Full House
+03. My Baby Is Coming
+04. Vortex(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, Future JazzПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEA7A43B55FD9C792C23128A9B505C48CA9360C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611333   (243937) от 11.02.2023
+
+Louis Armstrong - The Complete Louis Armstrong Columbia And RCA Victor Studio Sessions (1946 - 1966) 7CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243937.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Long Long Journey [4:33]
+02. Snafu [4:14]
+03. Linger in My Arms a Little Longer [2:59](   Читать дальше...   )Жанр: Swing, Dixieland, New Orleans JazzПродолжительность: 09:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34CC9C8597CC228D40EE89A48A65D995A230854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632683   (243935) от 11.05.2023
 
 Kenny Dorham - Una Mas (1963) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Kenny Dorham - Una Mas (1963) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243935.jpg" />
+  <img src="Z:/picture/004/save_picture_243935.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Luciana Souza - Speaking In Tongues (2015) [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243907.jpg" />
+  <img src="Z:/picture/004/save_picture_243907.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Abdullah Ibrahim - Cape Town Songs: The Very Best Of Abdullah Ibrahim (1979- 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243841.jpg" />
+  <img src="Z:/picture/004/save_picture_243841.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Larry Bartley - Along This Way (2003) [FLAC|Lossless|image + .cue] <Avant-Garde 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243838.jpg" />
+  <img src="Z:/picture/004/save_picture_243838.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charles Davis - For The Love Of Lori (2014) Reade Street Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243837.jpg" />
+  <img src="Z:/picture/004/save_picture_243837.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Eric Reed - Black, Brown, and Blue (2023) Smoke Sessions Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243835.jpg" />
+  <img src="Z:/picture/004/save_picture_243835.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Chico Hamilton - The Complete Remastered Recordings On Black Saint & Soul Note (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243834.jpg" />
+  <img src="Z:/picture/004/save_picture_243834.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Stan Getz - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Cool, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243797.jpg" />
+  <img src="Z:/picture/005/save_picture_243797.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243702.jpg" />
+  <img src="Z:/picture/004/save_picture_243702.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243680.jpg" />
+  <img src="Z:/picture/004/save_picture_243680.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Grover Washington, Jr. - Next Exit (1992) [FLAC|Lossless|image + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243629.jpg" />
+  <img src="Z:/picture/004/save_picture_243629.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Harry James - 1939 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243622.jpg" />
+  <img src="Z:/picture/005/save_picture_243622.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Oscar Brown, Jr. - Between Heaven and Hell 1962 (2010) SuperBird [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243621.jpg" />
+  <img src="Z:/picture/004/save_picture_243621.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ June Christy - June's Got Rhythm (1958 - 1960) 2005, Capitol Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243604.jpg" />
+  <img src="Z:/picture/004/save_picture_243604.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Pasadena Roof Orchestra - Lullaby Of Broadway, The Best Of The Pasadena Roof
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243579.jpg" />
+  <img src="Z:/picture/004/save_picture_243579.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ One For All - Optimism (1998) Sharp Nine Records [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243491.jpg" />
+  <img src="Z:/picture/004/save_picture_243491.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Kjellerbandet - Pa plate (2000) Self-Released [FLAC|Lossless|tracks + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243490.jpg" />
+  <img src="Z:/picture/004/save_picture_243490.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Debbie Poryes, Hein van de Geyn, Hans Eykenaar - Trio (1982) Remaster, 2015, Sol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243489.jpg" />
+  <img src="Z:/picture/004/save_picture_243489.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Oliver Lake - Compilation (1990) Bluemoon Recordings[APE|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243483.jpg" />
+  <img src="Z:/picture/004/save_picture_243483.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Pat Martino - Strings! (1967) 1991, Original Jazz Classics [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243482.jpg" />
+  <img src="Z:/picture/004/save_picture_243482.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Billy Drummond & Freedom Of Ideas - Valse Sinistre (2022) Cellar Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243481.jpg" />
+  <img src="Z:/picture/005/save_picture_243481.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Paris Jazz Big Band - Paris 24H (2004) Cristal Production[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243477.jpg" />
+  <img src="Z:/picture/004/save_picture_243477.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Paris Jazz Big Band - Paris 24H (2004) Cristal Production[FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:879A69FEB7266003DF49A2859CA5B0D6D635A17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633233   (243473) от 14.05.2023
-
-Alexis Cole - Nearer The Sun (2004) Canopy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [3:47]
-02. Night Train [4:29]
-03. My Funny Valentine [5:10]
-04. East of the Sun [5:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BD0D43A8CE57AC06BCCD4FA131F6757E619835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077716   (243469) от 01.12.2016
-
-National Youth Jazz Orchestra - Cottoning On (1995) [FLAC|Lossless|image + .cue] <Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Island Samba (9:32)
-02. Miss Malfatti, I Presume (5:12)
-03. Cottoning On (6:05)
-04. A Lady Can Tell (4:09)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07E8FFD82C568AF1E4F15A3BB8A677980ADDDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077581   (243458) от 01.12.2016
-
-Michel Camilo Trio - Suntan (1986) 1992, Evidence[FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.We Three [07:58]
- 02.Tombo in 7/4 [10:26]
- 03.Las Olas [05:58]
- 04.(Used to Be a) Cha-Cha [12:17](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B7EB9BDD896DE4800161BB7E737C4CE70C07E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456051   (243451) от 21.03.2021
-
-Peggy Lee - The Lost '40s & '50s Capitol Masters (1944 - 1952) 2CD, 2008, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243451.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ain't Goin' No Place (with The Capitol Jazzmen) [3:03]
-02. A Cottage for Sale [2:56]
-03. Don't Be So Mean to Baby (alternate take) [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BEB1C72A36EF46461A4D4811D8C7942262F1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

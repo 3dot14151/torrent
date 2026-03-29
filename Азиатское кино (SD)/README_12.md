@@ -1,3 +1,29 @@
+###  Публикация: 295778   (879122) от 22.02.2011
+
+2046 / 2046 (2004) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был писателем. Он думал, что пишет о будущем, но на самом деле это оказывалось прошлым. В его романе таинственный поезд отправляется в 2046-й год снова и снова. У всех, кто садится в него, цель одна: возродить свои потерянные воспоминания. Говорят, что в 2046-ом ничего никогда не меняется, но никто не знает наверняка, правда это или нет, потому что все, кто отправлялся (   Читать дальше...   )Производство: Гонконг, Китай, Франция, Италия, Германия / Jet Tone Films, Shanghai Film Group Corporation, Orly Films, arte France Cinema, Classic, France 3 Cinema, Paradis Films, Precious Yield, ZDF/ArteЖанр: Фантастика, Фэнтези, Драма, МелодрамаРежиссер: Вонг Кар-ВайАктеры: Тони Люн Чу Вай, Гун Ли, Фэй Вонг, Такуя Кимура, Чжан Цзыи, Карина Лау, Чан Чэнь, Цзэ Дун, Мэгги Чун, Тончай МакИнтайрПеревод: Многоголосый закадровыйПродолжительность: 02:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715D270BDE52066297211EAAB2B9CD524ACF3B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495644   (878931) от 13.09.2021
 
 Сакура / Sakura (2020) BDRip [DVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878931.jpg" />
+  <img src="Z:/picture/005/save_picture_878931.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878086.jpg" />
+  <img src="Z:/picture/005/save_picture_878086.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876576.jpg" />
+  <img src="Z:/picture/005/save_picture_876576.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876563.jpg" />
+  <img src="Z:/picture/005/save_picture_876563.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875820.jpg" />
+  <img src="Z:/picture/005/save_picture_875820.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872860.jpg" />
+  <img src="Z:/picture/008/save_picture_872860.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872451.jpg" />
+  <img src="Z:/picture/008/save_picture_872451.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872340.jpg" />
+  <img src="Z:/picture/008/save_picture_872340.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872201.jpg" />
+  <img src="Z:/picture/008/save_picture_872201.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870598.jpg" />
+  <img src="Z:/picture/008/save_picture_870598.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870509.jpg" />
+  <img src="Z:/picture/008/save_picture_870509.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869788.jpg" />
+  <img src="Z:/picture/008/save_picture_869788.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ J2: J Возмездие / J2: J Retribusi (2021) WEB-DLRip [AVO]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869656.jpg" />
+  <img src="Z:/picture/008/save_picture_869656.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868833.jpg" />
+  <img src="Z:/picture/008/save_picture_868833.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868616.jpg" />
+  <img src="Z:/picture/008/save_picture_868616.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867681.jpg" />
+  <img src="Z:/picture/008/save_picture_867681.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867275.jpg" />
+  <img src="Z:/picture/008/save_picture_867275.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867192.jpg" />
+  <img src="Z:/picture/008/save_picture_867192.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867106.jpg" />
+  <img src="Z:/picture/008/save_picture_867106.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866948.jpg" />
+  <img src="Z:/picture/008/save_picture_866948.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866111.jpg" />
+  <img src="Z:/picture/008/save_picture_866111.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865625.jpg" />
+  <img src="Z:/picture/008/save_picture_865625.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865612.jpg" />
+  <img src="Z:/picture/008/save_picture_865612.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865610.jpg" />
+  <img src="Z:/picture/008/save_picture_865610.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865494.jpg" />
+  <img src="Z:/picture/008/save_picture_865494.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18AE5D482E70F0F6B6AE7C5F91CE3F922B476BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375523   (865489) от 14.04.2020
-
-Сыр в мышеловке / Chijeu in deo teuraep / Cheese in the Trap (2018) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная студентка Хон Соль вынуждена подрабатывать, чтобы оплачивать учебу. А вот старшему студенту Ю-джону повезло иметь богатую семью, и вообще, парень кажется идеальным — высокий, красивый, обходительный. Но девушка чувствует себя рядом с ним не в своей тарелке, когда Ю-джон вдруг приглашает её на свидание.Производство: Южная Корея, Mountain Movement StoryЖанр: Мелодрама, комедияРежиссер: Ким Джэ-ёнАктеры: Пак Хэ-джин, О Ён-со, Пак Ки-ун, О Джон-хёк, Ю Ин-ён, Сандара Пак, Мун Джи-юн, Ким Хён-джин, На Хе-ми, Ли Сок-чунПеревод: Многоголосый любительский; любительский двухголосыйСубтитры: отсутствуютПродолжительность: 01:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A6B124955FD7D40F5CC706B393771135E863A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

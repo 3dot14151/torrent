@@ -1,3 +1,107 @@
+###  Публикация: 780785   (760026) от 26.04.2014
+
+Журнал | Любимая дача [Украина] №5 (81) (май 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_760026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55544ADC6AC87C7208B2A67968529FE12482D567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780813   (759798) от 26.04.2014
+
+Журнал | Дом в саду. Спецвыпуск №6 "Садовая земляника" (Май 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении  высокого урожая а также комфортного пребывания на своих дачных участках.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1542DC8A7C44DCBC8FA3D79AAB9D83F17EE8146B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017731   (759273) от 18.05.2016
+
+Журнал | Народный доктор. Спецвыпуск №2 (26) (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крещение. Исповедь. Причащение...С каждым верующим когда-то это случается впервые. И сразу возникает множество вопросов: как подготовиться ? В чем состоит смысл того или иного церковного Таинства? Кто может стать крестным для взрослого человека и для ребенка? Что делать, если исповедь не принесла морального удовлетворения? Как вести себя во время Таинства Причащения?..Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFF4FCE5A3AD636133E95EACE71752D37A1A3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017941   (759183) от 18.05.2016
+
+Журнал | Приусадебное хозяйство №5 [+ Приложения] (май 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B5288F25538E488CAC7FB1BE027D2248EA6E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 887612   (759114) от 12.04.2015
 
 Журнал | Elite. Территория интерьера №3 (109) (март 2015) [PDF]
@@ -6,7 +110,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759114.jpg" />
+  <img src="Z:/picture/008/save_picture_759114.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759111.jpg" />
+  <img src="Z:/picture/008/save_picture_759111.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759105.jpg" />
+  <img src="Z:/picture/008/save_picture_759105.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759104.jpg" />
+  <img src="Z:/picture/008/save_picture_759104.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759103.jpg" />
+  <img src="Z:/picture/008/save_picture_759103.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759091.jpg" />
+  <img src="Z:/picture/008/save_picture_759091.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758795.jpg" />
+  <img src="Z:/picture/008/save_picture_758795.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757403.jpg" />
+  <img src="Z:/picture/008/save_picture_757403.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757339.jpg" />
+  <img src="Z:/picture/008/save_picture_757339.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757284.jpg" />
+  <img src="Z:/picture/008/save_picture_757284.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757037.jpg" />
+  <img src="Z:/picture/005/save_picture_757037.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756599.jpg" />
+  <img src="Z:/picture/008/save_picture_756599.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756598.jpg" />
+  <img src="Z:/picture/008/save_picture_756598.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756591.jpg" />
+  <img src="Z:/picture/008/save_picture_756591.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756458.jpg" />
+  <img src="Z:/picture/008/save_picture_756458.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756442.jpg" />
+  <img src="Z:/picture/008/save_picture_756442.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755943.jpg" />
+  <img src="Z:/picture/008/save_picture_755943.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755814.jpg" />
+  <img src="Z:/picture/008/save_picture_755814.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755729.jpg" />
+  <img src="Z:/picture/008/save_picture_755729.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755467.jpg" />
+  <img src="Z:/picture/008/save_picture_755467.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755259.jpg" />
+  <img src="Z:/picture/008/save_picture_755259.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754638.jpg" />
+  <img src="Z:/picture/008/save_picture_754638.jpg" />
 </div>
 
 
@@ -563,112 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A39FC5206A381164C2FA55C146A9769EB25765D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781850   (754636) от 29.04.2014
-
-Газета | Сезон у дачи. Спецвыпуск №5 (69) (Апрель 2014) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о садоводстве, огородничестве, цветоводстве. Очень много интересной и
-полезной информации. В спецвыпусках журнала "Сезон у дачи" обсуждаются самые
-востребованные темы среди читателей журнала, вопросы по которым они задают авторам журнала.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6161EBD094183885A12A1C16C18616BB56DFEB0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888585   (753748) от 15.04.2015
-
-Журнал | Сад своими руками №5 (май 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753748.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад своими руками» - ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических решений для вашего сада.Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F69C81B72E646D32B5E08C477CE6F6AAC50209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281023   (753485) от 07.02.2019
-
-Газета | Сезон у дачи №1(278) (Январь 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F0C9CEB2AB73E66A7EEFB69A4F623F380483E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281025   (753484) от 07.02.2019
-
-Газета | Сезон у дачи №2(279) (Январь 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E111CACA64FAD6C589C45A7A13A5CD18B9599B69
 ```
 
 https://mybot314.ru/tekegram_catalog/

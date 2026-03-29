@@ -1,3 +1,30 @@
+###  Публикация: 1624767   (126711) от 22.12.2023
+
+Доктор Стоун [ТВ-3] | Доктор Стоун: Новый Мир | Доктор Стоун: Новый Свет | Dr. Stone: New World [2023, TV, 22 из 22] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди-статуи по-прежнему спят, но гениальному учёному Сэнку отдыхать некогда: в Каменном мире с его легкой руки начинается эпоха Великих географических открытий. Команда пополняется новыми участниками, и корабль капитана Рюсуя отправляется в плавание на поиски первопричины окаменения. Впереди героев ждёт загадочный остров, хранящий тайны прошлого, и ещё больше увлекательных (   Читать дальше...   )Производство: Япония / Студия TMS Entertainment, Die4studioЖанр: Приключения, комедияРежиссер: Мацусита СюхэйЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Ados, MyAska, WhiteCrow (AniLibria.TV)Субтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 22 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62C5D6A077BBEB15DAFCD9AB6A101FF156E9C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686607   (126490) от 23.12.2023
 
 Стесняшка [ТВ-1] | Shy [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +33,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126490.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126387.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126366.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126295.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126253.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | �
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125794.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125721.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125613.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125547.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125476.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125446.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125373.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Сил
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125344.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125342.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125278.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125224.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125206.jpg" />
 </div>
 
 
@@ -464,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125082.jpg" />
 </div>
 
 
@@ -491,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125052.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124931.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124598.jpg" />
 </div>
 
 
@@ -571,7 +598,7 @@ TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не мо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124566.jpg" />
 </div>
 
 
@@ -598,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124444.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124275.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ Scott Pilgrim Takes Off | Скотт Пилигрим жмёт на газ [2023
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124261.jpg" />
 </div>
 
 
@@ -662,32 +689,6 @@ Scott Pilgrim Takes Off | Скотт Пилигрим жмёт на газ [2023
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:631FC97FD472DAD0046C7EC943E2C03071D2CFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583041   (123888) от 08.01.2024
-
-Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | Восхождение Героя щита [ТВ-2] [2022, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наофуми Иватани — самый обычный, ничем не примечательный студент. Точнее, он был им — ровно до тех пор, пока его вместе с ещё тремя юношами не призвали в иной мир. Мелромарк нуждается в героях, ведь грядут «волны» — страшные катаклизмы, которые сметут всё живое на своём пути. Казалось бы, теперь-то Наофуми заживёт, вот только... Мало того, что стал Героем Щита и (   Читать дальше...   )Производство: Kinema Citrus, Dr. MovieЖанр: приключения, фэнтезиРежиссер: Дзимбо МасатоЯзык озвучки: Японский, русский (AniLibria, AniFilm, Crunchyroll, JAM Club)Субтитры: Русские (Crunchyroll, SovetRomantica, Alvakarp)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60874EC3BCA734C55D8F053070B362ECF74BB9CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

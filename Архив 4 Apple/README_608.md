@@ -1,3 +1,110 @@
+###  Публикация: 1597167   (167352) от 13.12.2022
+
+Adguard 2.9.2 nightly [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 AdguardПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E8E2317DBC98842AA2602BEEA4C2E11214DEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673024   (167351) от 30.10.2023
+
+Magic Disk Cleaner 2.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Disk Cleaner находит и удаляет временные файлы, которые занимают много места. Приложение работает молниеносно и мгновенно освобождает место на диске.Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2022-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987936D3CD3E954CD2A7C083E5E36B27F8BA4511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673020   (167319) от 30.10.2023
+
+Disk Xray 4.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Xray - утилита для просмотра статистки о жестком диске, поиска дубликатов файлов и содержит в себе инструменты для очистки.
+Folder scanner - визуально анализирует диск / папку и позволяет определить большие файлы и папки на жестком диске (дисках).
+• Сканирование любого из ваших дисков (локальный, удаленный, сетевые или портативные), или просто папку.
+• Создает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2023Разработчик: © Naraak StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C27F3CC121B2C363C86DF7299C74255AF38B4DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597165   (167317) от 13.12.2022
+
+Navicat Premium 16.1.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762E7C89407510F140F38A86AB3B11EA3FDD4A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672897   (167283) от 30.10.2023
 
 Soulver 3 v.3.9.2 [Multi/Ru]
@@ -6,7 +113,7 @@ Soulver 3 v.3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167283.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Scrivener 3 v3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167262.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Downie 4 v.4.6.33 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167251.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ CloudMounter 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167186.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ VueScan Pro for Mac 9.8.20 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167145.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ Permute 3 v3.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167054.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ Yate 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167030.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ Deliver Express 2.6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167026.jpg" />
 </div>
 
 
@@ -221,7 +328,7 @@ SQLPro for SQLite 2021.110 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167010.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ Deliver 2.6.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167005.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ Jettison 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167000.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ Ink2Go 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166996.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ UltraCompare 22.00.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166994.jpg" />
 </div>
 
 
@@ -356,7 +463,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166989.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ System Toolkit 5.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166986.jpg" />
 </div>
 
 
@@ -408,7 +515,7 @@ SiteSucker 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166976.jpg" />
 </div>
 
 
@@ -436,7 +543,7 @@ Resize Sense - Flexible batch image processing 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166971.jpg" />
 </div>
 
 
@@ -462,7 +569,7 @@ FigrCollage 3.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166969.jpg" />
 </div>
 
 
@@ -488,7 +595,7 @@ Swift Publisher 5 v5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166965.jpg" />
 </div>
 
 
@@ -514,7 +621,7 @@ EdgeView 2 v2.910 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166964.jpg" />
 </div>
 
 
@@ -540,7 +647,7 @@ BBEdit 13 v13.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166960.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ NXPowerLite Desktop 9 v9.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166953.jpg" />
 </div>
 
 
@@ -578,113 +685,6 @@ NXPowerLite Desktop 9 v9.1.2 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CE17641E548FBEAAD49B821CA353890E663F801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431579   (166950) от 14.12.2020
-
-Watermark Sense - Flexible batch watermarking 1.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Защитите свою интеллектуальную собственность, продвигайте свой бренд, добавляйте информационные наложения, и обрабатывайте одновременно много изображений.
-Watermark Sense - инструмент с минимальными настройками для пакетной обработки изображения. Это позволяет достичь больших творческих результатов в пакетном режиме, экономя много времени на выполнение повторяющихся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2020Разработчик: VeprITПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F107D7C1ABB6C574C04D36FFAEC7C1CAF876F12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431660   (166944) от 14.12.2020
-
-Art Text 4.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Text - красивое текстовое приложение под Mac OS для тех кому часто нужно рисовать высококачественную графику: тексты заголовков, кнопки, баннеры, логотипы, иконки и тому подобное. ПО позволяет преобразовать любой текст или векторное изображение в яркую графику высочайшего качества.
-Благодаря поддержке слоев, обширной векторной библиотеке и более 700 примитивов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2020Разработчик: BeLight Software Ltd.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A5C338C05AA27E99C168D7E6F60E721324370C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672938   (166913) от 30.10.2023
-
-MAMP PRO 6 v.6.8.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любому веб-разработчику в процессе создания того или иного сайта необходимо проверять его работоспособность. Делать это удобнее всего на локальном веб-сервере, поднятом на своем компьютере. Преимущества этого способа в том, что нет ограничений ни на размер сайта, ни на использование процессорного времени или оперативной памяти сервера, а главное – то, что любое сохранение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2023Разработчик: 2004 - 2023 MAMP GmbHПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E432B064A63C151D0FF61406103EA0E78CBCDD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516130   (166865) от 10.12.2021
-
-Serviio Pro 2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166865.jpg" />
-</div>
-
-
-###  Подробнее
-
-DLNA медиа-сервер, позволяющий передавать мультимедийные файлы (музыку, видео или изображения), между устройствами в домашней сети.
-Перед вами версия известного медиа-сервера, которая позволит вам при небольших знаниях начать транслировать медиафайлы (это относится к музыке, фотографиям, видео и так далее ) на разные устройства, например на ваш телевизор, Blu-ray (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2021Разработчик: Petr NejedlyПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FDCC6C4F4413AB10AFEA22E4E5072708718031
 ```
 
 https://mybot314.ru/tekegram_catalog/

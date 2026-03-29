@@ -1,3 +1,109 @@
+###  Публикация: 1090257   (947216) от 06.01.2017
+
+Хорошие дети / Good Kids  (2016) BDRip [H.264/720p] [EN / Sw, Da, Fin, No  Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947216.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре внимания оказываются сразу четыре выпускника старшей школы. Каждый из них на хорошем счету в данном заведении, поскольку они все эти годы отличались отличной учебой и прилежным поведением. Конечно же, каждый выпускник всегда думает, что после выпуска его ожидает новая взрослая жизнь, в которой все будет идти как по маслу.
+Но как они глубоко ошибаются. Совсем (   Читать дальше...   )Производство: СШАЖанр: комедияРежиссер: Крис МакКойАктеры: Зои Дойч, Эшли Джадд, Вирджиния Гарднер, Джулия Гарнер, Николас Браун, Израэль Бруссар, Демиан Бишир, Стефани Фантоцци, Джон Ротмен, Кевин Чэпмен, Рэнди Кутюр, Матео АриасПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: шведский, датский, финский, норвежскийПродолжительность: 01:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66464004F908266CD47D9035CBF586241D00D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090473   (947210) от 06.01.2017
+
+Зачинщики / Masterminds  (2016) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший клерк банка вместе со своей любовницей проворачивает дерзкое ограбление инкассаторской машины и забирает 17 миллионов баксов. Но по неопытности преступники-дебютанты оставляют на месте преступления столько следов и улик, что вряд ли смогут получить удовольствие от добычи.Производство: СШАЖанр: боевик, комедия, криминалРежиссер: Джаред ХессАктеры: Зак Галифианакис, Оуэн Уилсон, Кристен Уиг, Джейсон Судейкис, Кейт МакКиннон, Лесли Джонс, Мэри Элизабет Эллис, Кен Марино, Девин Рэтрей, Джон Дэйли, Рода Гриффис, Росс КимбеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57D840761807C53D2DB37340772B9844447D3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090469   (947208) от 06.01.2017
+
+Зачинщики / Masterminds  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший клерк банка вместе со своей любовницей проворачивает дерзкое ограбление инкассаторской машины и забирает 17 миллионов баксов. Но по неопытности преступники-дебютанты оставляют на месте преступления столько следов и улик, что вряд ли смогут получить удовольствие от добычи.Производство: СШАЖанр: боевик, комедия, криминалРежиссер: Джаред ХессАктеры: Зак Галифианакис, Оуэн Уилсон, Кристен Уиг, Джейсон Судейкис, Кейт МакКиннон, Лесли Джонс, Мэри Элизабет Эллис, Кен Марино, Девин Рэтрей, Джон Дэйли, Рода Гриффис, Росс КимбеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED104CED615F6BCF4225C231846FB8B5BCAC342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090261   (947109) от 06.01.2017
+
+Хорошие дети / Good Kids  (2016) BDRip [H.264/1080p] [EN / Sw, Da, Fin, No Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947109.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре внимания оказываются сразу четыре выпускника старшей школы. Каждый из них на хорошем счету в данном заведении, поскольку они все эти годы отличались отличной учебой и прилежным поведением. Конечно же, каждый выпускник всегда думает, что после выпуска его ожидает новая взрослая жизнь, в которой все будет идти как по маслу.
+Но как они глубоко ошибаются. Совсем (   Читать дальше...   )Производство: СШАЖанр: комедияРежиссер: Крис МакКойАктеры: Зои Дойч, Эшли Джадд, Вирджиния Гарднер, Джулия Гарнер, Николас Браун, Израэль Бруссар, Демиан Бишир, Стефани Фантоцци, Джон Ротмен, Кевин Чэпмен, Рэнди Кутюр, Матео АриасПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: шведский, датский, финский, норвежскийПродолжительность: 01:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D62B2D6CF95E42E8F12FF9054E32726A2131EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090253   (947060) от 06.01.2017
 
 Трансформация / Rupture  (2016) BDRip [H.264/720p] [EN]
@@ -6,7 +112,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947060.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947028.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947024.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946938.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946928.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946919.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944137.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942742.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942726.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941125.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940122.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939947.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935659.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935360.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933830.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933144.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931485.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929839.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929738.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928779.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928654.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927618.jpg" />
 </div>
 
 
@@ -564,113 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92219DD1B1B104EC76F1EA37F992BA51D9066384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987129   (927437) от 16.02.2016
-
-Американский герой / American Hero  (2015) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелвин - супергерой поневоле, который живёт только ради лёгких денег, женщин и наркотиков. Но однажды он понимает, что единственный способ наладить отношения со своим единственным сыном - встать на путь исправления.Производство: США, Vertigo FilmsЖанр: фантастика, боевик, комедияРежиссер: Ник ЛавАктеры: Стивен Дорфф, Эдди Гриффин, Андреа Коэн, Луис Да Силва мл., Кина Фергюсон, Рэден Грир, Грэйсон Килпэтрик, Йоханс Майлс, Т. Джоэль Смит, Мишель ТабораПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9843D90AAE138BF13B5A22E3EBB914EDD88742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987118   (927333) от 16.02.2016
-
-Лунная афера / Moonwalkers  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайный агент ЦРУ отправляется в Лондон, чтобы разыскать там Стэнли Кубрика и заказать ему фильм про высадку астронавтов на лунную поверхность на случай провала реальной миссии. Но вместо Кубрика агент нарывается на афериста Джонни, который устраивает съемки сверхсекретного видео на стремной студии порнофильмов, где невесомость достигается благодаря крепкому косяку...Производство: Франция, Nexus Factory, Partizan Films, Potemkin ProductionsЖанр: комедияРежиссер: Антуан Бардо-ЖакеАктеры: Руперт Гринт, Рон Перлман, Роберт Шиэн, Стивен Кэмпбелл Мур, Том Ауденарт, Кевин Бишоп, Эрик Лёмпарт, Эрика Сэйнт, Джей Бенедикт, Джон Фландерс, Дэн Пул, Эндрю БлюментальПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCF7AED014DF5DA2F2A707704CDAC68D8F13F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862554   (927106) от 25.01.2015
-
-Эверли / Everly (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина пытается выжить в схватке с бойцами якудзы, чтобы спасти своих мать и дочь.
-Действие всего фильма происходит в стенах одной квартирыПроизводство: США |  Crime Scene Pictures, Vega, Baby!, Anonymous ContentЖанр: Боевик, ТриллерРежиссер: Джо ЛинчАктеры: Сальма Хайек, Дженнифер Бланк, Того Игава, Кэролайн Чикези, Габриэлла Райт,
-Энди МакДермотт, Аки Котабе, Уки Сертич, Масаси Фудзимото, Елена ГавриловичПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BF7B650B50FD95ACDAC777C0C479B2AA1EAD24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862563   (926939) от 25.01.2015
-
-Унижение / The Humbling (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный и знаменитый, одарённый, но уже «навсегда уставший» и утративший вдохновение актер в предвкушении финала карьеры пытается покончить с собой. Любовь и отношения с девушкой значительно моложе его, кардинально меняют вектор сведения счетовПроизводство: США |  Ambi Pictures, Hammerton ProductionsЖанр: Драма, КомедияРежиссер: Барри ЛевинсонАктеры: Аль Пачино, Грета Гервиг, Дайэнн Уист, Кира Седжвик, Дилан Бейкер,
-Чарльз Гродин, Дэн Хедайя, Нина Арианда, Виктор Круз, Мария Ди АнджелисПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD8F954F9F6F9CC1E387991BC2219EF599711ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

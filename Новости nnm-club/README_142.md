@@ -1,3 +1,160 @@
+###  Публикация: 922645   (567797) от 29.07.2015
+
+Windows 10 Manager 1.0.0 Final [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Manager - программа-оптимизатор все в одном, полное решение для отличной оптимизации, продуманной настройки и качественной очистки операционных систем Windows 10. Программа включает более 30 утилит которые улучшают и ускоряют работу системы, повышают её стабильность, устойчивость и безопасность. Windows 10 Manager позволяет получить доступ к нескольким (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A15EE676ED4AD3AA22C02D85BBFCB794D875C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922867   (567790) от 29.07.2015
+
+Adobe Photoshop Lightroom 6.1.1 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233B2C174D5FEF9D6AFAA61D150EC0B6F821D6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916856   (567785) от 29.07.2015
+
+Terraria (2011) [Ru/Multi] (1.3.0.7) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Копайте, сражайтесь, исследуйте, стройте! Нет ничего невозможного в этой насыщенной событиями приключенческой игре. Весь мир — ваше полотно, а вся земля — ваши краски!
+Хватайте инструменты и вперед!Тип издания: ЛицензияРазработчик: Re-LogicЖанр: Двухмерный платформер-песочница с открытым миромЯзык озвучки: -/-Язык интерфейса: Русский*, Английский, Французский, Немецкий, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DD1FF404C9F6DE66F7FA72978DE4098FE7FCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234589   (567611) от 07.07.2018
+
+Европарламент отклонил Директиву о копирайт-цензуре
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_567611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радикальная реформа авторского права в Европарламенте на сей раз не прошла. Проект директивы, обязывающей онлайн-платформы проверять соблюдение авторских прав пользователями и платить издателям новостного контента за ссылки на него, набрал всего 278 голосов «за», 318 — «против», при 31 воздержавшемся. Голосование отменяет ранее принятое профильным комитетом решение (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234338   (567200) от 07.07.2018
+
+Total Commander 9.20 Final [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0DF23B0C6F2531B3CA87CE0A6F6EB2B4A152C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233599   (567187) от 07.07.2018
+
+Udemy | Взламываем соседский Wi-Fi (2017) PCRec [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс рассчитан на новичков, которые никогда ранее не занимались тестированием на проникновение (пентестингом). Курс построен таким образом, что вы пройдетесь через основы сетей и познакомитесь с тем как клиенты обмениваются информацией друг с другом, затем речь пойдет о том как мы можем воспользоваться этим методом обмена информации в наших корыстных целях.Производство: UdemyЖанр: Тестирование на проникновениеПродолжительность: 05:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E2497B24187ECFC272EC6173D7DE5468078115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 287655   (566664) от 15.07.2011
 
 WINDOWS SERVER 2008 R2 SP1 - "RED SENSATION" by neige [Server 2008 R2 SP1] [Английский]
@@ -6,7 +163,7 @@ WINDOWS SERVER 2008 R2 SP1 - "RED SENSATION" by neige [Server 2008 R2 SP1] [Ан
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566664.jpg" />
+  <img src="Z:/picture/008/save_picture_566664.jpg" />
 </div>
 
 
@@ -39,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566437.jpg" />
+  <img src="Z:/picture/008/save_picture_566437.jpg" />
 </div>
 
 
@@ -65,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566385.jpg" />
+  <img src="Z:/picture/008/save_picture_566385.jpg" />
 </div>
 
 
@@ -91,7 +248,7 @@ ESET NOD32 Antivirus 8.0.319.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565933.jpg" />
+  <img src="Z:/picture/008/save_picture_565933.jpg" />
 </div>
 
 
@@ -117,7 +274,7 @@ Spyshelter Firewall 10.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565925.jpg" />
+  <img src="Z:/picture/008/save_picture_565925.jpg" />
 </div>
 
 
@@ -143,7 +300,7 @@ Portal Stories: Mel (2015) [Ru/En] (1.02) RePack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565919.jpg" />
+  <img src="Z:/picture/008/save_picture_565919.jpg" />
 </div>
 
 
@@ -169,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_564761.jpg" />
+  <img src="Z:/picture/005/save_picture_564761.jpg" />
 </div>
 
 
@@ -195,7 +352,7 @@ Movavi Video Editor Plus 22.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564613.jpg" />
+  <img src="Z:/picture/008/save_picture_564613.jpg" />
 </div>
 
 
@@ -221,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564596.jpg" />
+  <img src="Z:/picture/008/save_picture_564596.jpg" />
 </div>
 
 
@@ -247,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564553.jpg" />
+  <img src="Z:/picture/008/save_picture_564553.jpg" />
 </div>
 
 
@@ -273,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564552.jpg" />
+  <img src="Z:/picture/008/save_picture_564552.jpg" />
 </div>
 
 
@@ -299,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_564253.jpg" />
+  <img src="Z:/picture/005/save_picture_564253.jpg" />
 </div>
 
 
@@ -326,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564152.jpg" />
+  <img src="Z:/picture/008/save_picture_564152.jpg" />
 </div>
 
 
@@ -352,7 +509,7 @@ KMSAuto Net 2015 1.3.6 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564149.jpg" />
+  <img src="Z:/picture/008/save_picture_564149.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_563263.jpg" />
+  <img src="Z:/picture/005/save_picture_563263.jpg" />
 </div>
 
 
@@ -405,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_562752.jpg" />
+  <img src="Z:/picture/005/save_picture_562752.jpg" />
 </div>
 
 
@@ -431,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562733.jpg" />
+  <img src="Z:/picture/008/save_picture_562733.jpg" />
 </div>
 
 
@@ -458,7 +615,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack YelloSOFT [Digital
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562621.jpg" />
+  <img src="Z:/picture/008/save_picture_562621.jpg" />
 </div>
 
 
@@ -484,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562609.jpg" />
+  <img src="Z:/picture/008/save_picture_562609.jpg" />
 </div>
 
 
@@ -510,7 +667,7 @@ Dark Orbit: Reloaded 3D (2015) [Ru/En] (10.0.4463) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562608.jpg" />
+  <img src="Z:/picture/008/save_picture_562608.jpg" />
 </div>
 
 
@@ -521,163 +678,6 @@ Dark Orbit: Reloaded 3D - это огромная игровая вселенн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A364EB04F2AA6D61341F531AD94CC394D5FD11E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764275   (562604) от 21.08.2016
-
-Android Weather & Clock Widget v3.9.0.2 Ad-Free и v5.9.0.2 Free + Mod [Ru/Multi] - быстрый и точный прогноз погоды
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Android Weather & Clock Widget, быстрый и точный прогноз приложение, оно предоставляет подробную Погода для всех городов мира, он ищет ваш адрес и быстро находит городов, а также предоставляет текущую температуру, текущее состояние погоды, влажности и скорости и направления ветра, кроме того, пять , за десять дней и прогноз почасовая погода. Android-Погода, на (   Читать дальше...   )Тип издания: Free / Ad-Free / ModРелиз состоялся: 20.08.2016Разработчик: © Devexpert.netПоддерживаемая ОС: Android 2.2+Язык интерфейса: Мульти / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1D88070EFE530D370551E92B8E5D4F4618A0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896160   (562218) от 01.08.2015
-
-Освобожденная Европа (2015) SATRip (Серии 1-10 из 10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сентября 1939 года внезапным нападением нацистской Германии на Польшу началась Вторая мировая война. В течение двух лет коричневая чума поглотила Европу почти полностью. Флаги со свастикой развевались от Норвегии до греческих островов. 22 июня 1941 года Германия нарушила договор о ненападении, начав военные действия против СССР.
-На стороне Германии против СССР (   Читать дальше...   )Телекомпания: Беларусь, ОНТЖанр: Документальный, война, историяПродолжительность: 10 х ~ 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C4B3A75A40DB9F44F6BAD8ADAD0D91579B3A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923880   (562214) от 01.08.2015
-
-Красотки в бегах / Hot Pursuit (2015) BDRip [1080p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562214.jpg" />
-</div>
-
-
-###  Подробнее
-
-История об офицере полиции и заключенной, которые волей судьбы оказываются в бегах в Техасе.Производство: США, Warner Bros. Pictures, New Line Cinema, Metro-Goldwyn-Mayer (MGM), Pacific StandardЖанр: Боевик, Комедия, КриминалРежиссер: Энн ФлетчерАктеры: Риз Уизерспун, София Вергара, Мэттью Дель Негро, Майкл Мосли, Роберт Казински, Ричард Т. Джонс, Бенни Нивз, Майкл Рэй Эскамиллья, Хоакин Косио, Джон Кэрролл ЛинчПеревод: Дублированный (Чистый звук)Продолжительность: 01:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A76EE802C7DFB47638B872E688AD8F4372C8707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923534   (562213) от 01.08.2015
-
-Убрать из друзей / Unfriended (2015) WEB-DL [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный вечер после школы. К скайпу влюбленных Блэр и Митча подключаются друзья — Адам, Джес, Кен и Вэл… и кто-то седьмой с ником Billy227. Все уверены, что это компьютерный глюк, пока неизвестный не начинает им писать. Билли хочет знать, кто выложил в Сеть скандальное видео с их одноклассницей Лорой Барнс, из-за которого девушка покончила с собой. И он готов выяснить (   Читать дальше...   )Производство: США, Россия, Bazelevs Production, Blumhouse ProductionsЖанр: Ужасы, ТриллерРежиссер: Леван ГабриадзеАктеры: Шелли Хенниг, Моусес Сторм, Рени Олстэд, Уилл Пельтц, Джейкоб Высоцки, Кортни, Хэлверсон, Хезер Соссамэн, Мэттью Борер, Мики Ривер, Кэл БарнсПеревод: Дублированный (iTunes)Продолжительность: 01:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DE1F8617F32188DAEBE7D19FC54650CBB4E09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923525   (562189) от 01.08.2015
-
-Adobe After Effects CC 2015 (v13.5.1) RUS/ENG Update 1
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe After Effects CC 2015 - популярная программа для редактирования видео и динамических изображений, создания композиций, различных эффектов и анимации. Наиболее часто ее используют для обработки видеоматериалов (постпродакшн), создания музыкальных клипов, рекламных роликов, анимации, титров, а также множества других элементов, для которых необходимы цифровые (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE5D80679F29C32D4ECB691424183708579E79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530092   (562183) от 02.08.2012
-
-Грызущий ногти / Nailbiter (2012) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562183.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования семья Магуров, состоящая из матери алкоголички Жанет и ее трех дочерей, которые следуют в аэропорт за отцом семейства, прибывшем из-за границы. Ухудшившаяся погода и грозящий торнадо заставляют их укрыться в подземном убежище. Вскоре они обнаруживают, что там еще кто-то есть...Жанр: УжасыРежиссер: Патрик РиАктеры: Джейсон Коффман, Том Сонрой, Мишель Дэвидсон, Йен Демпси, Бен Джеффри, Зейн МартинПеревод: Одноголосый закадровый, любительский (den904)Продолжительность: 01:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F07D7646F21BF1A9ACD5E62E2F117210A3E43D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

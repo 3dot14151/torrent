@@ -1,3 +1,73 @@
+###  Публикация: 562146   (405623) от 19.10.2012
+
+VA - Juicy House Beats Vol. 1 (2012) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405623.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:47] 01. SL Curtiz, Domovnik - Timeline (Edy Valiant Remix)
+[06:26] 02. Futuristic Polar Bears, Danny Howard - Red Man Rising (Miami 2012 Edit)
+[06:12] 03. DJ Ortzy, Nico Hamuy - Lose Control (feat. Alex Peace) (Original Mix)
+[06:37] 04. A.C.N. - Epic (Original Mix)
+[06:44] 05. Muzzaik - The Rhythm of Life (feat. Stephan Parker) (Belocca Remix)
+[07:39] 06. Francesco Diaz, Young Rebels - Fiesta (Original Mix)
+[06:04] 07. Lucas Reyes, Peter Brown - We Shall Overcome (Original Mix)
+[07:20] 08. David Costa, Nick Fisher - Sunshine (Club Mix)
+[05:39] 09. Funky Truckerz - Work It (Original Mix)
+[06:45] 10. Futuristic Polar Bears, Jonathan Ulysses - Want You Back (In My Life) (feat. Pryce Oliver) (Vox Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C194F73A4BC9F3C3BF2E66B237381B148814E8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562280   (405613) от 19.10.2012
+
+VA - Loco – Carnivorous Attack (2012) [MP3|320 кб/с]<Ragga Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Potential Badboy – Lock Em Off
+ 2. Dirty Dubsters – One Big Road
+ 3. Marcus Visionary & Tippa Irie – Wicked & Wild (Dancehall Style)
+ 4. Dj Shi – Swan Bwoy Por fumar RMX
+ 5. Serial Killaz – Rude Boy Style
+ 6. Dijeyow – Pumpking
+ 7. Dublinjah – Dublinjah & Steppa Style (Natural Rmx)
+ 8. Spliff Unit – Precious
+ 9. Benny Page – Crying Out (Serial Killaz Remix)
+ 10. Serial Killaz, Run Tingz, Tenor Fly, Blackout JA – Murder Ya Sound (UK Jungle Mix)(   Читать дальше...   )Жанр: Ragga JungleПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECD6E21024141FFFBE9C277E072DF86004843F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563019   (405297) от 20.10.2012
 
 VA - Lounge Paradise: The Pure Music Selection (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
@@ -6,7 +76,7 @@ VA - Lounge Paradise: The Pure Music Selection (2012) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405297.jpg" />
+  <img src="Z:/picture/008/save_picture_405297.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ VA - Creative Music Box 3 (2012) [MP3|320 кб/с]<Dub Step/Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405279.jpg" />
+  <img src="Z:/picture/008/save_picture_405279.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ VA - The Best Of Trance 60 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404996.jpg" />
+  <img src="Z:/picture/008/save_picture_404996.jpg" />
 </div>
 
 
@@ -105,7 +175,7 @@ VA - Лучшая клубная музыка AndrS vol.28 (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404760.jpg" />
+  <img src="Z:/picture/008/save_picture_404760.jpg" />
 </div>
 
 
@@ -140,7 +210,7 @@ Depeche Mode - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404125.jpg" />
+  <img src="Z:/picture/008/save_picture_404125.jpg" />
 </div>
 
 
@@ -169,7 +239,7 @@ VA - Empire Records - Sound Clinic 6 (2017) [MP3|320 Kbps] <House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404104.jpg" />
+  <img src="Z:/picture/008/save_picture_404104.jpg" />
 </div>
 
 
@@ -198,7 +268,7 @@ VA - Ibiza Deep Groove Squad (2017) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404062.jpg" />
+  <img src="Z:/picture/008/save_picture_404062.jpg" />
 </div>
 
 
@@ -227,7 +297,7 @@ VA - In Da Club Vol.66 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404024.jpg" />
+  <img src="Z:/picture/008/save_picture_404024.jpg" />
 </div>
 
 
@@ -262,7 +332,7 @@ Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403247.jpg" />
+  <img src="Z:/picture/008/save_picture_403247.jpg" />
 </div>
 
 
@@ -291,7 +361,7 @@ Pet Shop Boys - 25 Best Songs (2012) [MP3|227 - 266 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403245.jpg" />
+  <img src="Z:/picture/008/save_picture_403245.jpg" />
 </div>
 
 
@@ -320,7 +390,7 @@ Duran Duran - 25 Best Songs (2012) [MP3|233 - 266 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403241.jpg" />
+  <img src="Z:/picture/008/save_picture_403241.jpg" />
 </div>
 
 
@@ -349,7 +419,7 @@ Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403231.jpg" />
+  <img src="Z:/picture/008/save_picture_403231.jpg" />
 </div>
 
 
@@ -378,7 +448,7 @@ A-ha - 25 Best Songs (2012) [MP3|320 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403204.jpg" />
+  <img src="Z:/picture/008/save_picture_403204.jpg" />
 </div>
 
 
@@ -407,7 +477,7 @@ Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403175.jpg" />
+  <img src="Z:/picture/008/save_picture_403175.jpg" />
 </div>
 
 
@@ -436,7 +506,7 @@ VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403142.jpg" />
+  <img src="Z:/picture/008/save_picture_403142.jpg" />
 </div>
 
 
@@ -465,7 +535,7 @@ VA - Music For Racing (2017) [MP3|320 Kbps] <Hands Up, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403116.jpg" />
+  <img src="Z:/picture/008/save_picture_403116.jpg" />
 </div>
 
 
@@ -494,7 +564,7 @@ VA - Astro Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403032.jpg" />
+  <img src="Z:/picture/008/save_picture_403032.jpg" />
 </div>
 
 
@@ -529,7 +599,7 @@ VA - Pacific Trance Vol.09 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401589.jpg" />
+  <img src="Z:/picture/008/save_picture_401589.jpg" />
 </div>
 
 
@@ -558,7 +628,7 @@ Camouflage - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401567.jpg" />
+  <img src="Z:/picture/008/save_picture_401567.jpg" />
 </div>
 
 
@@ -587,7 +657,7 @@ Laid Back - 25 Best Songs (2012) [MP3|204 - 257 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401529.jpg" />
+  <img src="Z:/picture/008/save_picture_401529.jpg" />
 </div>
 
 
@@ -616,7 +686,7 @@ VA - Лучшая клубная музыка AndrS vol.29 (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399937.jpg" />
+  <img src="Z:/picture/008/save_picture_399937.jpg" />
 </div>
 
 
@@ -651,7 +721,7 @@ VA - Record Super Chart #505 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399410.jpg" />
+  <img src="Z:/picture/008/save_picture_399410.jpg" />
 </div>
 
 
@@ -680,7 +750,7 @@ VA - Hypomania: Original Techno Mix (2017) [MP3|320 Kbps] <Techno, Minimal, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398678.jpg" />
+  <img src="Z:/picture/008/save_picture_398678.jpg" />
 </div>
 
 
@@ -709,7 +779,7 @@ VA - Global DJ Broadcast Top 20 October (2012) [MP3|~269 кб/с ]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398310.jpg" />
+  <img src="Z:/picture/008/save_picture_398310.jpg" />
 </div>
 
 
@@ -729,64 +799,6 @@ VA - Global DJ Broadcast Top 20 October (2012) [MP3|~269 кб/с ]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F07C9C4E45251E0FCE7BB7854768D14873826EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171089   (397775) от 03.10.2017
-
-VA - Mirror Of Illusion: 100 Psychedelic Trance (2017) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397775.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Antidote - Vedrasonic (Original Mix)
-002. Gravitech - Fractures (Original Mix)
-003. Kiraz - The Upside Down
-004. Rubix Qube - Chief Whip (Feat. Zyloss)(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12 :00 :58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F50E59A34FA12C7B3607637B71397A65FE212D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171093   (397683) от 03.10.2017
-
-VA - Deep House Collection Vol.138 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2owl & Wizzi - Raindrops (Original Mix) 5:12
-02. A-mase - Only You (Namatria Remix) 6:35
-03. Alesya Light - Glass (Original Mix) 4:02
-04. Alex Kunnari, Tim Hilberts - Wake Me Up (Daun Lou Remix) 4:56(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E9E2C2705D35AA496C9A32D5048A50E40F1F1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

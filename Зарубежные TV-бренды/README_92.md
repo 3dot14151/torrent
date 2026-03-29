@@ -1,3 +1,107 @@
+###  Публикация: 1418155   (350659) от 23.10.2020
+
+Доисторические миры / Prehistoric Worlds (2019) HDTV [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять раз Земля сталкивалась с катаклизмами, уничтожавшими почти все формы жизни. И всё же некоторые виды выживали, создавая новый мир. Как выглядели эти доисторические миры? Какие катастрофы привели к их исчезновению? Как нашим далеким предкам удалось пережить пять массовых вымираний, от которых страдала Земля, и, наконец, дать начало миру, который мы знаем сегодня? (   Читать дальше...   )Производство: Франция, ZED, CuriosityStream, NHK Japan Broadcasting CorporationЖанр: Документальный, познавательный, научно-популярныйРежиссер: Алексис де ФавитскиПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BC8293464037552C12AF3C2BA8241FF8CD4DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578046   (349889) от 21.09.2022
+
+Духи джунглей / Spirits of the Rainforest (1994) VHSRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349889.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Духи тропического леса» — это художественный документальный фильм, действие которого происходит в отдаленных тропических лесах Амазонки в Национальном парке Ману на юго-востоке Перу. В фильме рассказывается о переплетающихся историях нескольких исследователей, изучающих ара с блестящим оперением и прожорливых гигантских выдр, а также американского антрополога - (   Читать дальше...   )Производство: США, Discovery Productions Worldwide, SuperFlow CorporationЖанр: документальный, природа, флора, фаунаРежиссер: Джинджер КатренсПеревод: одноголосый профессиональный (Александр Новиков)Субтитры: отсутствуютПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C70C4EC808D0546C8D8D7B9C3C68FF6A1FFBF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257087   (349750) от 24.10.2018
+
+NG. Мумии, застывшие во времени / Mummies. Frozen in Time (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В западных степях Китая одна примечательная находка поставила под вопрос существующую теорию происхождения китайской нации. В болотах северной Европы рабочие, занимавшиеся торфоразработками, наткнулись при раскопках на сотни хорошо сохранившихся мумий со следами страшных увечий. Среди них были обнаружены три прекрасно сохранившихся мумии детей, которых очевидно выбрали (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Дэвид Шадрак СмитПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164835725F2DF35340FFCFBBD3FF4D88952C8DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329839   (349706) от 06.10.2019
+
+BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Think (2016) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задумайтесь на минуту, одни ли мы во Вселенной? Пожалуй, это самый важный вопрос, что мы задавали. Разумно предположить, что где-то в космосе есть мощная сверхчеловеческая цивилизация. Возможно они уже миллионы лет наблюдают за Землёй. Завершив долгую и блестящую карьеру в авангарде космологии, английский астроном Мартин Риз (Martin Rees) занялся поиском внеземной (   Читать дальше...   )Производство: British Broadcasting Corporation (BBC)Жанр: Документальный, КосмосРежиссер: Tom Hewitson (as Thomas Hewitson)Актеры: Peter Capaldi, Martin ReesПеревод: Двуголосый профессиональный (Видеофильм ТВ)Продолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD03F4CEA72D99EBA948CFBDCAF29AA63F7AC66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329716   (349700) от 06.10.2019
 
 BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.264/1080p]
@@ -6,7 +110,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349700.jpg" />
+  <img src="Z:/picture/008/save_picture_349700.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348538.jpg" />
+  <img src="Z:/picture/008/save_picture_348538.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347430.jpg" />
+  <img src="Z:/picture/008/save_picture_347430.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347212.jpg" />
+  <img src="Z:/picture/008/save_picture_347212.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Discovery. Юпитер: близкий контакт / Jupiter: Close Encounte
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347154.jpg" />
+  <img src="Z:/picture/008/save_picture_347154.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346588.jpg" />
+  <img src="Z:/picture/008/save_picture_346588.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Затерянный храм империи инков / Lost Temple of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346446.jpg" />
+  <img src="Z:/picture/008/save_picture_346446.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Затерянный храм империи инков / Lost Temple of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346438.jpg" />
+  <img src="Z:/picture/008/save_picture_346438.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG. Франциск-бунтарь / Rebel Pope (2016) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345657.jpg" />
+  <img src="Z:/picture/008/save_picture_345657.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345283.jpg" />
+  <img src="Z:/picture/008/save_picture_345283.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Discovery: Мятежники ледяного озера / Ice Lake Rebels (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344058.jpg" />
+  <img src="Z:/picture/008/save_picture_344058.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DL [H.264/1080p] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343944.jpg" />
+  <img src="Z:/picture/008/save_picture_343944.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DLRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343942.jpg" />
+  <img src="Z:/picture/008/save_picture_343942.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343842.jpg" />
+  <img src="Z:/picture/008/save_picture_343842.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343119.jpg" />
+  <img src="Z:/picture/008/save_picture_343119.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342982.jpg" />
+  <img src="Z:/picture/008/save_picture_342982.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342936.jpg" />
+  <img src="Z:/picture/008/save_picture_342936.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NG: Чудеса инженерии / Big Bigger Biggest (2008-2009) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342925.jpg" />
+  <img src="Z:/picture/008/save_picture_342925.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342922.jpg" />
+  <img src="Z:/picture/008/save_picture_342922.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342921.jpg" />
+  <img src="Z:/picture/008/save_picture_342921.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342782.jpg" />
+  <img src="Z:/picture/008/save_picture_342782.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NGW. Дикий Нил / Wild Nile (2014) HDTVRip [H.264/720p-LQ] (1-3 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342116.jpg" />
+  <img src="Z:/picture/008/save_picture_342116.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ NGW. Дикий Нил / Wild Nile (2014) HDTVRip [H.264/720p-LQ] (1-3 сери�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C31A79A1988F578C15DD3AB35C470002282911D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180279   (341948) от 03.11.2017
-
-NG: Топ 10 Мегамонстры / Top 10 Biggest Beasts Ever (2015) HDTVRip [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательный рассказ о самых поразительных гигантах которые жили на планете Земля.
-Этот интересный и весьма незаурядный документальный фильм привлекает внимание в первую очередь тем, что действительно масштабирование в эволюции шло гигантскими шагами. В фильме показывают, что до того как миром стали править люди, земля была планетой гигантов. Змеи длиной с автобус, (   Читать дальше...   )Производство: США, Produced By Blink Films UK LTD For National Geographic ChannelЖанр: Документальный, познавательный, палеонтологияРежиссер: Оливер ТвинчПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91172C0AE57EE892990878F1E3A64ED46D1412DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953221   (341796) от 07.11.2015
-
-Discovery. Путешествие в неизвестность с Эдом Стаффордом / Ed Stafford: Into the Unknown (2015) HDTVRip (cезон 1, серии 3-? )
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эд Стаффорд прошел пешком вдоль Амазонки, выживал в самых диких местах планеты без снаряжения и даже без одежды, а теперь он отправится в новое экстремальное путешествие, чтобы разгадать шесть удивительных тайн нашей планеты, одна из которых спрятана в горах Восточной Сибири! Маршруты нового проекта «Путешествие в неизвестность с Эдом Стаффордом» созданы на основе (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, приключения, экстрим, природаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B222928D03F2FA559DCC99C69FDAB2B95E3B6678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953227   (341688) от 07.11.2015
-
-Discovery: Путешествие в неизвестность с Эдом Стаффордом / Ed Stafford: Into the Unknown (2015) HDTV [H.264/720p-LQ] (cезон 1, серии 3-? )
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эд Стаффорд прошел пешком вдоль Амазонки, выживал в самых диких местах планеты без снаряжения и даже без одежды, а теперь он отправится в новое экстремальное путешествие, чтобы разгадать шесть удивительных тайн нашей планеты, одна из которых спрятана в горах Восточной Сибири! Маршруты нового проекта «Путешествие в неизвестность с Эдом Стаффордом» созданы на основе (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, приключения, экстрим, природаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F788D2DE79A111A9375A5E2B0C2975917574FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419298   (341638) от 27.10.2020
-
-Тайные города / An Art Lovers' Guide (2017) DVB (сезон 1, серии 5 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341638.jpg" />
-</div>
-
-
-###  Подробнее
-
-От парящих башен до шедевров живописи, от народных гуляний до современного искусства. У каждого великого города свои уникальные и знаменитые сокровища, и, конечно, свои тайны, история и характер. А куда бы хотели отправится вы? В этих программах Янина Рамирес и Алистер Сук рассказывают о городах, покоривших их своей красотой, архитектурой и удивительной историей. (   Читать дальше...   )Производство: Великобритания, BBC StudiosЖанр: Документальный, путешествия, архитектура, искусствоРежиссер: Колин РотбартПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 5 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C9A3206402ECA30F3F077B4BCBD10650845FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

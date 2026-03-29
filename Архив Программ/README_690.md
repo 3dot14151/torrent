@@ -6,7 +6,7 @@ Autodesk AutoCAD Architecture 2017 HF3 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701442.jpg" />
+  <img src="Z:/picture/008/save_picture_701442.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe XD 31.3.12.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701422.jpg" />
+  <img src="Z:/picture/008/save_picture_701422.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.70 build 2224 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701416.jpg" />
+  <img src="Z:/picture/008/save_picture_701416.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ K-Lite Codec Pack Update 16.8.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701374.jpg" />
+  <img src="Z:/picture/008/save_picture_701374.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701309.jpg" />
+  <img src="Z:/picture/008/save_picture_701309.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AOMEI Partition Assistant Technician Edition 8.9 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701303.jpg" />
+  <img src="Z:/picture/008/save_picture_701303.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PrivaZer 4.0.41 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701296.jpg" />
+  <img src="Z:/picture/008/save_picture_701296.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ XYplorer 22.90.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701291.jpg" />
+  <img src="Z:/picture/008/save_picture_701291.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FolderSizes 9.5.379 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701255.jpg" />
+  <img src="Z:/picture/008/save_picture_701255.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Image Uploader 1.3.2-RC Build 4713 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701223.jpg" />
+  <img src="Z:/picture/008/save_picture_701223.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Auslogics Driver Updater 1.20.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701219.jpg" />
+  <img src="Z:/picture/008/save_picture_701219.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ IObit Smart Defrag Pro 6.2.0.138 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701218.jpg" />
+  <img src="Z:/picture/008/save_picture_701218.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ FontExpert 2019 16.0 Release 1 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701212.jpg" />
+  <img src="Z:/picture/008/save_picture_701212.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ YouTube By Click Premium 2.2.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701210.jpg" />
+  <img src="Z:/picture/008/save_picture_701210.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Mirillis Splash v2.6.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701206.jpg" />
+  <img src="Z:/picture/008/save_picture_701206.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DriverPack Solution 17.10.14 Полная версия (DP 20071) [Multi/Ru] (О
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701177.jpg" />
+  <img src="Z:/picture/008/save_picture_701177.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701171.jpg" />
+  <img src="Z:/picture/008/save_picture_701171.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Vivaldi 1.0.167.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701155.jpg" />
+  <img src="Z:/picture/008/save_picture_701155.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ IObit Smart Defrag Pro 7.4.0.114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701151.jpg" />
+  <img src="Z:/picture/008/save_picture_701151.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ WSCC (Windows System Control Center) 7.0.0.8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701138.jpg" />
+  <img src="Z:/picture/008/save_picture_701138.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ MediaHuman YouTube Downloader 3.9.9.68 (0302) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701135.jpg" />
+  <img src="Z:/picture/008/save_picture_701135.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Tag&Rename 3.9 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701127.jpg" />
+  <img src="Z:/picture/008/save_picture_701127.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Image Uploader 1.3.1 Build 4317 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701124.jpg" />
+  <img src="Z:/picture/008/save_picture_701124.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ One Commander 3.4.37.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701122.jpg" />
+  <img src="Z:/picture/008/save_picture_701122.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ IObit Uninstaller 4.3.0.122 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701117.jpg" />
+  <img src="Z:/picture/008/save_picture_701117.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ ASCOMP BackUp Maker 7.405 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701083.jpg" />
+  <img src="Z:/picture/008/save_picture_701083.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1151317   (568706) от 21.07.2017
+
+Александра Николаевна Бахметева | Рассказы из русской церковной истории. Часть 2 (2017) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия АРДИС предлагает вашему вниманию книгу Александры Николаевны Бахметевой, популярной в XIX веке писательницы. Она была дружна с Гоголем и Тургеневым, Станкевичем и Огаревым, состояла почётным членом Общества любителей российской словесности, много занималась благотворительностью. Сочинения Бахметевой многократно переиздавались до 1917 г., она известна как талантливый (   Читать дальше...   )Жанр: История православной церквиПродолжительность: 12:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DFA3DEBC78228DCC8626953110E6F49D9D2A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151278   (568698) от 21.07.2017
+
+Александра Николаевна Бахметева | Рассказы из русской церковной истории. Часть 1 (2017) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия АРДИС предлагает вашему вниманию книгу Александры Николаевны Бахметевой, популярной в XIX веке писательницы. Она была дружна с Гоголем и Тургеневым, Станкевичем и Огаревым, состояла почётным членом Общества любителей российской словесности, много занималась благотворительностью. Сочинения Бахметевой многократно переиздавались до 1917 г., она известна как талантливый (   Читать дальше...   )Жанр: История православной церквиПродолжительность: 15:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657985D8DAF1FACE26F56C68DC960444E4537669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046335   (549854) от 29.08.2016
 
 Ник Вуйчич | Неудержимый. Невероятная сила веры в действии (2016) [MP3]
@@ -6,7 +58,7 @@
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549854.jpg" />
+  <img src="Z:/picture/008/save_picture_549854.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540358.jpg" />
+  <img src="Z:/picture/008/save_picture_540358.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519689.jpg" />
+  <img src="Z:/picture/008/save_picture_519689.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516653.jpg" />
+  <img src="Z:/picture/008/save_picture_516653.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516070.jpg" />
+  <img src="Z:/picture/008/save_picture_516070.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514456.jpg" />
+  <img src="Z:/picture/008/save_picture_514456.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504527.jpg" />
+  <img src="Z:/picture/008/save_picture_504527.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440218.jpg" />
+  <img src="Z:/picture/008/save_picture_440218.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436244.jpg" />
+  <img src="Z:/picture/008/save_picture_436244.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421128.jpg" />
+  <img src="Z:/picture/008/save_picture_421128.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327535.jpg" />
+  <img src="Z:/picture/008/save_picture_327535.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317421.jpg" />
+  <img src="Z:/picture/008/save_picture_317421.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314118.jpg" />
+  <img src="Z:/picture/008/save_picture_314118.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306024.jpg" />
+  <img src="Z:/picture/008/save_picture_306024.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300009.jpg" />
+  <img src="Z:/picture/008/save_picture_300009.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298054.jpg" />
+  <img src="Z:/picture/008/save_picture_298054.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282167.jpg" />
+  <img src="Z:/picture/008/save_picture_282167.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269909.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246163.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244448.jpg" />
+  <img src="Z:/picture/004/save_picture_244448.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244407.jpg" />
+  <img src="Z:/picture/004/save_picture_244407.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239459.jpg" />
+  <img src="Z:/picture/004/save_picture_239459.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235623.jpg" />
+  <img src="Z:/picture/004/save_picture_235623.jpg" />
 </div>
 
 
@@ -623,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219642.jpg" />
+  <img src="Z:/picture/005/save_picture_219642.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421F557269167CF47B7D22C612157F95D2080253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562913   (212688) от 11.07.2022
-
-Библия в современном русском переводе. Аудиоверсия (2022) [MP3, Никита Семенов-Прозоровский]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание нового русского перевода Библии — совместный проект ББИ и Института перевода Библии в Заокском. Новый перевод осуществлялся под эгидой Института перевода Библии в Заокском группой ведущих российских ученых – библеистов и филологов, принадлежащих разным христианским конфессиям. Именно этот совместный труд дал возможность сделать перевод свободным от узко-конфессиональных (   Читать дальше...   )Жанр: Священное ПисаниеПродолжительность: 122:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCF11DBADE584F57BD504BAFF183F75FC104600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831006   (212155) от 28.10.2025
-
-Алексей Корнелюк, Владимир Древс | На плохом счету у бога (2025) [MP3, Александр Кремнев]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три истории. Три трагедии. Книга-головоломка. Книга-раскаяние. Читая, не перестаёшь удивляться, как связаны герои и ты вместе с ними. Детские травмы, Бог и отрицание этот коктейль чувств вызовет и гнев, и любовь. Сюжет как американские горки: прокатит от первой до последней страницы, оставив приятное послевкусие. Доехав до конца, вы поймёте, как распутать клубок (   Читать дальше...   )Жанр: Вдохновляющие книги, духовная литератураИздательство: СамиздатПродолжительность: 05:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C849A12D148343E288B2A87C8E54BF9233DAD42
 ```
 
 https://mybot314.ru/tekegram_catalog/

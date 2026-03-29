@@ -1,3 +1,107 @@
+###  Публикация: 516013   (654274) от 27.06.2012
+
+DV: Невероятное вокруг нас. Осязание [17 из 28] / Totally Phenomenal. The Sense of Touch (Tactile Sense) (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290C80D8635CB2151C37561593B5FAE7B3E15B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515994   (654230) от 27.06.2012
+
+DV: Невероятное вокруг нас. Мистер Джонас исследует глубины [2 из 28] / Totally Phenomenal. Mr. Jonas dives into the Depths (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EA21C351B689217C760DF1147BB1C0BC8642D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516021   (654229) от 27.06.2012
+
+DV: Невероятное вокруг нас. Вкус [18 из 28] / Totally Phenomenal. The Sense of Taste (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AF65105F583C67FAA3939571F358CAA9DF9D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516024   (654228) от 27.06.2012
+
+DV: Невероятное вокруг нас. Вулканы [20 из 28] / Totally Phenomenal. Volcanoes (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82D5C0AF6A6591D03CF1CEBABBE0D757F2190EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516023   (654224) от 27.06.2012
 
 DV: Невероятное вокруг нас. Ледники [19 из 28] / Totally Phenomenal. Glaciers (2012) SATRip
@@ -6,7 +110,7 @@ DV: Невероятное вокруг нас. Ледники [19 из 28] / To
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654224.jpg" />
+  <img src="Z:/picture/008/save_picture_654224.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ DV: Невероятное вокруг нас. Рентгеновские лу�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654223.jpg" />
+  <img src="Z:/picture/008/save_picture_654223.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ DV: Невероятное вокруг нас. Потоки энергии [3 �
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654220.jpg" />
+  <img src="Z:/picture/008/save_picture_654220.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ DV: Невероятное вокруг нас. Нервная система [2
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654219.jpg" />
+  <img src="Z:/picture/008/save_picture_654219.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG. Криминальная Британия / Britain's underworld (2010) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654204.jpg" />
+  <img src="Z:/picture/008/save_picture_654204.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Дикая природа Калифорнии / Дикая Нижняя К�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653843.jpg" />
+  <img src="Z:/picture/008/save_picture_653843.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW: Дикая природа Чили / Wild Chile (2017) DVB [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653581.jpg" />
+  <img src="Z:/picture/008/save_picture_653581.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653414.jpg" />
+  <img src="Z:/picture/008/save_picture_653414.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG. Монстр млечного пути / Cosmic Monsters (2007) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653089.jpg" />
+  <img src="Z:/picture/008/save_picture_653089.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ BBC. В краю муссонов: В ожидании дождя / Wonders of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653088.jpg" />
+  <img src="Z:/picture/008/save_picture_653088.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Discovery. Загадки планеты Земля / What on Earth? (2015) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653054.jpg" />
+  <img src="Z:/picture/008/save_picture_653054.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ BBC: Horizon. Самая экстремальная погода во Вселе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651958.jpg" />
+  <img src="Z:/picture/008/save_picture_651958.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ BBC Прогулки с морскими чудовищами / Sea Monsters: A 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650846.jpg" />
+  <img src="Z:/picture/008/save_picture_650846.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ BBC. Horizon. Наблюдая звёзды / Horizon. Seeing Stars (2011) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649419.jpg" />
+  <img src="Z:/picture/008/save_picture_649419.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG. Убийственная скорость / Speed Kills (2012) HDTVRip [3 с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649413.jpg" />
+  <img src="Z:/picture/005/save_picture_649413.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Discovery. Кодекс Мафии: Взгляд Изнутри / Inside the Gan
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649218.jpg" />
+  <img src="Z:/picture/008/save_picture_649218.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC. Horizon. Можно ли верить своим глазам? / Horizon. I
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649206.jpg" />
+  <img src="Z:/picture/008/save_picture_649206.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ History Channel. Древнеегипетская Книга Мертвых / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649201.jpg" />
+  <img src="Z:/picture/008/save_picture_649201.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NG. Великая Китайская стена / China's Great Wall (2007) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649197.jpg" />
+  <img src="Z:/picture/008/save_picture_649197.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG: Суперсооружения: Мегазаводы. Мак-Трак / Mega
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648990.jpg" />
+  <img src="Z:/picture/008/save_picture_648990.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NGW: Дикая природа Аргентины. Водное царство /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648473.jpg" />
+  <img src="Z:/picture/008/save_picture_648473.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ History Channel: Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648469.jpg" />
+  <img src="Z:/picture/008/save_picture_648469.jpg" />
 </div>
 
 
@@ -564,112 +668,6 @@ History Channel: Американская книга тайн / America's Book o
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBFBF3CC332EC1EC589C58FE1152F6C6D299926A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227274   (648361) от 25.05.2018
-
-History Channel: Американская книга тайн / America's Book of Secrets (2013) HDTVRip (2 сезон: 9 серий из 12) (Обновляемая)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая часть американской истории тщательно задокументирована и доступна широкой публике. Но у Америки есть свои тайны, которые не разгаданы до сих пор. Некоторые люди верят в существование особой книги. Книги, в которой записаны самые тщательно охраняемые секреты Соединенных Штатов Америки. Книги, о самом существовании которой знают только немногие. Но если такая (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 9 x ~ 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3DDA7223098E615457967539A4D20F1FE26610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707898   (647270) от 06.07.2016
-
-Загадка кода Да Винчи / Beyond The Da Vinci Code (2005) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этой тайне 2000 лет... Она опровергает известную легенду о Святом граале. Какие события легли в основу романа "Код Да Винчи" и скандальной версии отношений Иисуса и Марии Магдалины? Ключи к разгадке зашифрованы в шедеврах Леонардо Да Винчи, среди роз, вырезанных на сводах шотландской часовни, и в застывших изваяниях средневековых рыцарей. Одна из парижских (   Читать дальше...   )Жанр: Документальный, история, тайныПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE3834723D4C1FBA05870F8EB9674119A2C0A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905934   (647014) от 07.06.2015
-
-BBC: Магия грибов (Тайная жизнь грибов) / The Magic of Mushrooms (2014) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из всего живого на Земле есть нечто загадочное, а также и жизненно необходимое для нашего существования... Он стремительно размножается, большая часть его жизни проходит под землёй и только под конец своего жизненного цикла он показывается на поверхности. Это - гриб.
-Многие люди считают грибы съедобными и они известны нам по народным сказкам но это далеко от истины. (   Читать дальше...   )Телекомпания: BBCЖанр: Документальный, научно-познавательныйРежиссер: Russell LevenПеревод: Одноголосый закадровый, профессиональный, компания Видеофильм ТВПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9BEE8E591F8DC9D090AF50EF9261483E23F5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517612   (646874) от 01.07.2012
-
-NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как наш мозг создает иллюзию непрерывной реальности, в которой мы с вами существуем? Эти интересные эксперименты дают возможность заглянуть во внутренние механизмы, обеспечивающие работу мозга, а самые выдающиеся исследователи в этой области объяснят зрителям, как и почему работают эти механизмы. Мы получим возможность увидеть самые современные лаборатории, оснащенные по последнему слову техники, и познакомиться с удивительными людьми, которых природа наделила необычными способностями мозга.
-Список серий:Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182008BF939A49D32B32D948E57974B065FCBCAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Labyrinths of the World 10: Fools Gold (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490682.jpg" />
+  <img src="Z:/picture/008/save_picture_490682.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fear For Sale 10: Hidden in the Darkness / Страх на продажу 10: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489957.jpg" />
+  <img src="Z:/picture/008/save_picture_489957.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mystic Legacy: The Great Ring [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489803.jpg" />
+  <img src="Z:/picture/008/save_picture_489803.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Apocalipsis (2018) [Ru/Multi] (1.0/upd1/dlc) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489465.jpg" />
+  <img src="Z:/picture/008/save_picture_489465.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487540.jpg" />
+  <img src="Z:/picture/008/save_picture_487540.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fatal Evidence 3: Art of Murder (2020) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487032.jpg" />
+  <img src="Z:/picture/008/save_picture_487032.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Beyond 2: Star Descendant / Извне 2: Звездный потомок (2016)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483912.jpg" />
+  <img src="Z:/picture/008/save_picture_483912.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Bathory: The Bloody Countess / Батори: Кровавая графиня (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483722.jpg" />
+  <img src="Z:/picture/008/save_picture_483722.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Haunted Hotel 18: Room 18 / Проклятый отель 18: Комната 18 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482960.jpg" />
+  <img src="Z:/picture/008/save_picture_482960.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Weeping Skies (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479881.jpg" />
+  <img src="Z:/picture/008/save_picture_479881.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Myths of the World 7: The Whispering Marsh (2015) [En] Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479873.jpg" />
+  <img src="Z:/picture/008/save_picture_479873.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ League of Light 3: Silent Mountain (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479794.jpg" />
+  <img src="Z:/picture/008/save_picture_479794.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Where Angels Cry 2: Tears of the Fallen (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479793.jpg" />
+  <img src="Z:/picture/008/save_picture_479793.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Riddles of Fate 2: Into Oblivion / Загадки судьбы: Забвение
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479565.jpg" />
+  <img src="Z:/picture/008/save_picture_479565.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Riddles of Fate: Wild Hunt / Загадки судьбы: Дикая охота 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479558.jpg" />
+  <img src="Z:/picture/008/save_picture_479558.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Riddles of Fate 3: Memento Mori / Загадки судьбы. Помни о с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479451.jpg" />
+  <img src="Z:/picture/008/save_picture_479451.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Maze: Subject 360 / Лабиринт: Объект 360 (2015) [Ru] Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479257.jpg" />
+  <img src="Z:/picture/008/save_picture_479257.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Ghost Files 2: Memory of a Crime (2019) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479231.jpg" />
+  <img src="Z:/picture/008/save_picture_479231.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Alice: Madness Returns Storybook (2011) [Ru] (1.0) Unofficial Pamplemousse [Flas
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477694.jpg" />
+  <img src="Z:/picture/008/save_picture_477694.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sea of Lies: Burning Coast / Море лжи: Горящий берег (2015) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477415.jpg" />
+  <img src="Z:/picture/008/save_picture_477415.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Great Perhaps (2019) [Ru/Multi] (1.32.14) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476855.jpg" />
+  <img src="Z:/picture/008/save_picture_476855.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Haunted Hotel 12: Silent Waters / Проклятый отель 12: Тихие �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476795.jpg" />
+  <img src="Z:/picture/008/save_picture_476795.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sister's Secrecy: Arcanum Bloodlines / Секреты Белль: Культ Т�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474957.jpg" />
+  <img src="Z:/picture/008/save_picture_474957.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Haunted Legends 15: The Scars of Lamia (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474952.jpg" />
+  <img src="Z:/picture/008/save_picture_474952.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Margrave 4: The Blacksmiths Daughter. Collectors Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474289.jpg" />
+  <img src="Z:/picture/008/save_picture_474289.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Nevertales 6: Forgotten Pages Collectors Edition / Несказки 6: Забы�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473903.jpg" />
+  <img src="Z:/picture/008/save_picture_473903.jpg" />
 </div>
 
 

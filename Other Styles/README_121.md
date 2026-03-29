@@ -1,3 +1,61 @@
+###  Публикация: 1254437   (372993) от 14.10.2018
+
+Roberto Danova - Panpipe moods (2001) [FLAC|Lossless|image + .cue] <Pop, Instrumental, Pan Flute, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What A Wonderful World
+02. Don't Cry For Me Argentina
+03. Misty
+04. Killing Me Softly With His Song(   Читать дальше...   )Жанр: Instrumental, Pan Flute, Easy ListeningПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F29D0A3368ED00E4971A0A0E9CC8A999399DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254373   (372992) от 14.10.2018
+
+Chris Piorkowski - Piano: Romantic Collection (2011) [MP3|320 Kbps] <Instrumental Pop, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belle Amitie (2:35)
+02. Celibataire (2:56)
+03. Le Piano (2:50)
+04. Reconnaissant (2:56)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2F51464A9BA26DF6962F23EA1B98931257A551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254510   (372657) от 14.10.2018
 
 VA - Popular Melodies of Russia (2011) [MP3|192 Kbps] <Other, Instrumental, Soundtrack>
@@ -6,7 +64,7 @@ VA - Popular Melodies of Russia (2011) [MP3|192 Kbps] <Other, Instrumental, Soun
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372657.jpg" />
+  <img src="Z:/picture/008/save_picture_372657.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Great American Songbook: 66 American Standards (2018) [MP3|320 Kbps] <P
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372639.jpg" />
+  <img src="Z:/picture/008/save_picture_372639.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371566.jpg" />
+  <img src="Z:/picture/008/save_picture_371566.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370985.jpg" />
+  <img src="Z:/picture/008/save_picture_370985.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368682.jpg" />
+  <img src="Z:/picture/008/save_picture_368682.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Mannerpension Die Musik Zum Film (1996) Soundtrack [FLAC|Lossless|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368298.jpg" />
+  <img src="Z:/picture/008/save_picture_368298.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368216.jpg" />
+  <img src="Z:/picture/008/save_picture_368216.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - The Best Of Me - Original Motion Picture Soundtrack (2015) [FLAC|tracks + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367890.jpg" />
+  <img src="Z:/picture/008/save_picture_367890.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Mariah Carey - The Star (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367474.jpg" />
+  <img src="Z:/picture/008/save_picture_367474.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367406.jpg" />
+  <img src="Z:/picture/008/save_picture_367406.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367283.jpg" />
+  <img src="Z:/picture/008/save_picture_367283.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366531.jpg" />
+  <img src="Z:/picture/008/save_picture_366531.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Mod
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366232.jpg" />
+  <img src="Z:/picture/008/save_picture_366232.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366159.jpg" />
+  <img src="Z:/picture/008/save_picture_366159.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366059.jpg" />
+  <img src="Z:/picture/008/save_picture_366059.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ VA - Lady Bird (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366052.jpg" />
+  <img src="Z:/picture/008/save_picture_366052.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366029.jpg" />
+  <img src="Z:/picture/008/save_picture_366029.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|ima
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366028.jpg" />
+  <img src="Z:/picture/008/save_picture_366028.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (19
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365816.jpg" />
+  <img src="Z:/picture/005/save_picture_365816.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365543.jpg" />
+  <img src="Z:/picture/008/save_picture_365543.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365490.jpg" />
+  <img src="Z:/picture/008/save_picture_365490.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - Арабские ночи (Инструментальная музыка 2 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365268.jpg" />
+  <img src="Z:/picture/005/save_picture_365268.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Andreas Vollenweider - Quiet Places (2020) [FLAC|Lossless|image + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364963.jpg" />
+  <img src="Z:/picture/008/save_picture_364963.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ L'One - 1985 (2017) Из т/с «Чернобыль 2. Зона отчужден
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364908.jpg" />
+  <img src="Z:/picture/008/save_picture_364908.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ L'One - 1985 (2017) Из т/с «Чернобыль 2. Зона отчужден
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4727897424319DDB90ABBBCCBD7A231DDEDB352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416077   (364609) от 17.10.2020
-
-Peder B. Helland - Sunny Mornings (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Nature, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Rose (6:51)
- 02. Thoughtful (11:34)
- 03. Sunny Mornings (10:16)
- 04. Sunny Days (10:19)(   Читать дальше...   )Жанр: New Age, Instrumental, Nature, RelaxПродолжительность: 01:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B96F1C516940B4CADBECB9650E50F51AE9FFFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070901   (364329) от 08.11.2016
-
-Gregorian - Live! Masters Of Chant - Final Chapter Tour (2016) [FLAC|Lossless|image+.cue] <New Age, Enigmatic, Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masters Of Chant
-02. Still Haven't Found What I’m Looking For - Only You
-03. Stay
-04. Join Me(   Читать дальше...   )Жанр: New Age, Enigmatic, RockПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F657DFD3B9A04616CC8BD48141F778D2CAE5C6B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sumatra PDF 3.4.14114 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880390.jpg" />
+  <img src="Z:/picture/005/save_picture_880390.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mirillis Action! 4.21.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880371.jpg" />
+  <img src="Z:/picture/008/save_picture_880371.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BELOFF [dp] 2021.09.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880360.jpg" />
+  <img src="Z:/picture/005/save_picture_880360.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880357.jpg" />
+  <img src="Z:/picture/005/save_picture_880357.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nitro Pro 10.5.8.44 RePack by D!akov  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880356.jpg" />
+  <img src="Z:/picture/005/save_picture_880356.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Axtone House Party (2020) [MP3|320 Kbps] <Electro House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880347.jpg" />
+  <img src="Z:/picture/005/save_picture_880347.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ MediaHuman YouTube Downloader 3.9.9.35 (0204) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880334.jpg" />
+  <img src="Z:/picture/005/save_picture_880334.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ DxO PhotoLab 3 ELITE Edition 3.2.1 (build 51) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880333.jpg" />
+  <img src="Z:/picture/005/save_picture_880333.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880332.jpg" />
+  <img src="Z:/picture/008/save_picture_880332.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ iSkysoft iTube Studio 7.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880331.jpg" />
+  <img src="Z:/picture/005/save_picture_880331.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880325.jpg" />
+  <img src="Z:/picture/005/save_picture_880325.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880306.jpg" />
+  <img src="Z:/picture/005/save_picture_880306.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_100) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880302.jpg" />
+  <img src="Z:/picture/005/save_picture_880302.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Between the Stars (2019) [Multi] (0.5.2.6f) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880292.jpg" />
+  <img src="Z:/picture/005/save_picture_880292.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880291.jpg" />
+  <img src="Z:/picture/005/save_picture_880291.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Mountain Duck 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880284.jpg" />
+  <img src="Z:/picture/005/save_picture_880284.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ uTorrent 3.5.5 Build 46096 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880267.jpg" />
+  <img src="Z:/picture/005/save_picture_880267.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SSH Copy 17.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880252.jpg" />
+  <img src="Z:/picture/005/save_picture_880252.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Microsoft .NET Framework 3.5 SP-1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880244.jpg" />
+  <img src="Z:/picture/005/save_picture_880244.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jack Action - Рикошет (2019) [MP3|320 Kbps] <Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880229.jpg" />
+  <img src="Z:/picture/005/save_picture_880229.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ XMedia Recode 3.4.9.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880228.jpg" />
+  <img src="Z:/picture/005/save_picture_880228.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Viber 12.7.1.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880223.jpg" />
+  <img src="Z:/picture/005/save_picture_880223.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Mirror for LG TV 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880212.jpg" />
+  <img src="Z:/picture/005/save_picture_880212.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ KCNcrew Pack 02-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880189.jpg" />
+  <img src="Z:/picture/005/save_picture_880189.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ TinkerTool System 5.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880177.jpg" />
+  <img src="Z:/picture/005/save_picture_880177.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ ExactScan Pro 17.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880175.jpg" />
+  <img src="Z:/picture/005/save_picture_880175.jpg" />
 </div>
 
 

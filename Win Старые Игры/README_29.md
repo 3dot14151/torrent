@@ -1,3 +1,55 @@
+###  Публикация: 1633291   (198400) от 14.05.2023
+
+Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legacy of Kain: Defiance – атмосферный слэшер, выполненный в жанре приключенческого экшена с элементами фэнтези. Данная игра является пятой частью из целой серии ролевых игр. Данная игра повествует нам о событиях, которые происходят сразу же после окончания предыдущей главы «Legacy of Kain: Soul Reaver 2». Мотивы главного героя Каина стали более разумными и понятными. (   Читать дальше...   )Тип издания: LicenseРазработчик: Crystal DynamicsЖанр: Экшны, От третьего лицаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B7B3A1E1485DA9312E1430814890B51E40A5D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637721   (197402) от 06.06.2023
+
+Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пошаговая стратегия, действия которой происходят в параллельной технологической вселенной. Под вашим управлением находится несколько отрядов Ультрамаринов. Грамотно распоряжайтесь ресурсами и дайте отпор красной армии Хаоса и космическому десанту Несущих Слова. Исследуйте карту, уничтожайте соперников и захватывайте как можно больше территории, ведь она богата полезными (   Читать дальше...   )Тип издания: LicenseРазработчик: Random Games Inc.Жанр: Стратегия, Пошаговая, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DA4327C2E06DCE431EC86164C5A932FEF8493F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637715   (197385) от 06.06.2023
 
 An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
@@ -6,7 +58,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197385.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197372.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196908.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196461.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Velaya - Geschichte einer Kriegerin / Велая - сказание о воит�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196131.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196123.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196051.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196018.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195891.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195737.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ European Air War (1998) [En] (1.20) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195703.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195688.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195565.jpg" />
+  <img src="Z:/picture/004/save_picture_195565.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195511.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195241.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195204.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194991.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194929.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194927.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194136.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193466.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Diablo: Hellfire - The Hell 2 (2019) [En] (1.2504) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191189.jpg" />
+  <img src="Z:/picture/004/save_picture_191189.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189547.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA175059B9FC5D3C3B46DD5026DE7CD67ACEB1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590698   (188357) от 15.11.2022
-
-Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Худшие опасения цивилизованных частей мира подтвердились. Гоблиноиды объединились в разношерстную орду и собираются захватить Десять городов. Массивные отряды орков и гоблинов верхом на воргах вот-вот обрушатся на город Таргос, и это всего лишь начало! Для того, чтобы защитить Десять городов от ужасной опасности, требуются герои. Готовы ли вы ответить на призыв к (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Isle StudiosЖанр: Ролевая игра, Сражения, ФэнтeзиЯзык озвучки: Русский, Немецкий, Английский, Французский и другиеЯзык субтитров: Русский, Немецкий, Английский, Французский и другиеЯзык интерфейса: Русский, Немецкий, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF88B60B35E991AD819C038760CFCE32D786BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661832   (188172) от 16.09.2023
-
-Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу врага (2005) [Ru] (1.0) License
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его единственная цель – достигнуть швейцарской границы. Все, на что он может положиться – находчивость, остроумие и инстинкт выживания. Его враги – жестокие немецкие солдаты, стреляющие без предупреждения. Пилот армии США Билл Фостер, сбитый на территории Германии зимой 1944 года, решается на отчаянный шаг – любой ценой выбраться из фашистского тыла, в то время как (   Читать дальше...   )Тип издания: LicenseРазработчик: Wide GamesЖанр: Стелс, Экшены, Шутеры, Ролевая игра от третьего лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7425F0061B64FD9F71C3163B9ECEDAEBE4B37AD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

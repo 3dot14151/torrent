@@ -1,3 +1,30 @@
+###  Публикация: 1588215   (191698) от 03.11.2022
+
+Игорь Манн и др. | Слайдхаки. 84 рабочих приема для лучших презентаций (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные деловые люди получают по несколько презентаций в день и лишь бегло их пролистывают. Качество презентации зачастую служит первым критерием отбора: «Сначала пришлите презентацию, а потом поговорим о встрече». Внимание – ресурс ограниченный, и борьба за него становится все жестче.
+Выехать на харизме, набросав простенькие слайды, и обаять собеседника на встрече (   Читать дальше...   )Жанр: Маркетинг, личная эффективностьФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870B56AD989BCA4ECC4F108F39BC19DD4E465259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588297   (191545) от 04.11.2022
 
 Брайан Трейси | Делай больше денег (2021) [EPUB]
@@ -6,7 +33,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191545.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191487.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191247.jpg" />
+  <img src="Z:/picture/004/save_picture_191247.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190260.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189910.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189622.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189313.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189287.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189283.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188634.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187709.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187668.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187129.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ Harvard Business Review (HBR) | Трансформация бизнес-моде
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185813.jpg" />
+  <img src="Z:/picture/004/save_picture_185813.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185791.jpg" />
+  <img src="Z:/picture/004/save_picture_185791.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185712.jpg" />
+  <img src="Z:/picture/004/save_picture_185712.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185073.jpg" />
+  <img src="Z:/picture/004/save_picture_185073.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184969.jpg" />
+  <img src="Z:/picture/004/save_picture_184969.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184913.jpg" />
+  <img src="Z:/picture/004/save_picture_184913.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183116.jpg" />
+  <img src="Z:/picture/004/save_picture_183116.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182088.jpg" />
+  <img src="Z:/picture/005/save_picture_182088.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ ITIL. Поддержка Услуг [Service Support]
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181271.jpg" />
+  <img src="Z:/picture/005/save_picture_181271.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180583.jpg" />
+  <img src="Z:/picture/005/save_picture_180583.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179064.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178940.jpg" />
+  <img src="Z:/picture/005/save_picture_178940.jpg" />
 </div>
 
 
@@ -652,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4542324D5055C498A03A244AC21AB3BEB09188EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428631   (178921) от 03.12.2020
-
-Меб Фабер | Глобальное распределение активов. Лучшие мировые инвестиционные стратегии (2021) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как использовать мощь современных финансовых рынков, чтобы позволить инвестору построить портфель с глобальной диверсификацией? Именно этому посвящена книга Меба Фабера, известного инвестора и управляющего фондом.
-Книга начинается с обзора исторической доходности популярных активов вроде акций, облигаций и денежных средств. Автор рассматривает влияние инфляции на (   Читать дальше...   )Жанр: Менеджмент, Ценные бумаги, инвестицииПеревод: Вячеслав ИоновФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7357842CB7B632F411DAE07A8B0377273D381198
 ```
 
 https://mybot314.ru/tekegram_catalog/

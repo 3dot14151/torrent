@@ -6,7 +6,7 @@ Icaros 2.3.0 RC1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709161.jpg" />
+  <img src="Z:/picture/008/save_picture_709161.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709138.jpg" />
+  <img src="Z:/picture/008/save_picture_709138.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709114.jpg" />
+  <img src="Z:/picture/008/save_picture_709114.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709113.jpg" />
+  <img src="Z:/picture/008/save_picture_709113.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709112.jpg" />
+  <img src="Z:/picture/008/save_picture_709112.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VA - Trance Trackz (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709110.jpg" />
+  <img src="Z:/picture/008/save_picture_709110.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Qbserve 1.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709107.jpg" />
+  <img src="Z:/picture/008/save_picture_709107.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709090.jpg" />
+  <img src="Z:/picture/008/save_picture_709090.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ BestReminder v2019.03.04.11 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709085.jpg" />
+  <img src="Z:/picture/008/save_picture_709085.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ DiskDigger 1.20.10.2731 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709080.jpg" />
+  <img src="Z:/picture/008/save_picture_709080.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ K-Lite Codec Pack Update 11.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709077.jpg" />
+  <img src="Z:/picture/008/save_picture_709077.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Avira AntiVirus Free 2015 15.0.9.504 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709065.jpg" />
+  <img src="Z:/picture/008/save_picture_709065.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709059.jpg" />
+  <img src="Z:/picture/008/save_picture_709059.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Microsoft Visual C++ 14.28.29115.0 Runtimes AIO (x86-x64) Repack by @ricktendo64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709042.jpg" />
+  <img src="Z:/picture/008/save_picture_709042.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Suanda Music Radio Top 20 (April 2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709019.jpg" />
+  <img src="Z:/picture/008/save_picture_709019.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Macsome iTunes Converter 2.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709013.jpg" />
+  <img src="Z:/picture/008/save_picture_709013.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NoteBurner iTunes DRM Audio Converter 2.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709012.jpg" />
+  <img src="Z:/picture/008/save_picture_709012.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ MediaInfo 0.7.95 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709008.jpg" />
+  <img src="Z:/picture/008/save_picture_709008.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sidify Apple Music Converter 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709006.jpg" />
+  <img src="Z:/picture/008/save_picture_709006.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Duplicates Expert 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709005.jpg" />
+  <img src="Z:/picture/008/save_picture_709005.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CloudTV 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709001.jpg" />
+  <img src="Z:/picture/008/save_picture_709001.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Aiseesoft Video Downloader 6.0.76 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708999.jpg" />
+  <img src="Z:/picture/008/save_picture_708999.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ StrokesPlus.net 0.5.6.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708988.jpg" />
+  <img src="Z:/picture/008/save_picture_708988.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Aphex Twin - Windowlicker (1999/2017) Warp Records [FLAC|Lossless|WEB-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708978.jpg" />
+  <img src="Z:/picture/008/save_picture_708978.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Wallpaper Wizard 2 v2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708977.jpg" />
+  <img src="Z:/picture/008/save_picture_708977.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Gemini 2: The Duplicate Finder 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708973.jpg" />
+  <img src="Z:/picture/008/save_picture_708973.jpg" />
 </div>
 
 

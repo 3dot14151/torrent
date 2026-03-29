@@ -6,7 +6,7 @@ Discovery: Неизвестная история Египта / The Hidden Histo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526032.jpg" />
+  <img src="Z:/picture/008/save_picture_526032.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTVRip (�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522285.jpg" />
+  <img src="Z:/picture/008/save_picture_522285.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Фальсификация: Дональд Трамп / Donald Trump:
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521818.jpg" />
+  <img src="Z:/picture/008/save_picture_521818.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Византия: Утраченная Империя / Byzantium: Th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520840.jpg" />
+  <img src="Z:/picture/008/save_picture_520840.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Discovery: Путешествие в Малайзию / Passage To Malaysia: Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520671.jpg" />
+  <img src="Z:/picture/008/save_picture_520671.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Discovery: Хроники Эйфелевой башни / La Legende Vraie de la
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520226.jpg" />
+  <img src="Z:/picture/008/save_picture_520226.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Discovery: Аляска. Семья из леса / Alaskan Bush People (2014) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520203.jpg" />
+  <img src="Z:/picture/008/save_picture_520203.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Discovery: Человеческое Тело: Грани Возможного / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519872.jpg" />
+  <img src="Z:/picture/008/save_picture_519872.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519166.jpg" />
+  <img src="Z:/picture/008/save_picture_519166.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Discovery. Возвращение суперзмеи-людоеда / Devoured: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518075.jpg" />
+  <img src="Z:/picture/008/save_picture_518075.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Discovery: Пираты / Pirates (1998) DVDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517686.jpg" />
+  <img src="Z:/picture/008/save_picture_517686.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Discovery. Челюсти наносят ответный удар / Jaws Strike
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516841.jpg" />
+  <img src="Z:/picture/008/save_picture_516841.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Discovery: Секреты и Заговоры / Codes and Conspiracies (2014) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516204.jpg" />
+  <img src="Z:/picture/008/save_picture_516204.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Discovery: Секреты и Заговоры / Discovery: Codes and Conspiracie
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516151.jpg" />
+  <img src="Z:/picture/008/save_picture_516151.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery. Вот это странно Корабль-призрак / Weird or
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516141.jpg" />
+  <img src="Z:/picture/008/save_picture_516141.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Discovery. Вот это странно. Кокаиновые мумии / Weird
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516135.jpg" />
+  <img src="Z:/picture/008/save_picture_516135.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTVRip (1 с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514839.jpg" />
+  <img src="Z:/picture/008/save_picture_514839.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTV [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513794.jpg" />
+  <img src="Z:/picture/008/save_picture_513794.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery. Нашествие гигантских медуз / Attack of The Gi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513727.jpg" />
+  <img src="Z:/picture/008/save_picture_513727.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Discovery: Джек Потрошитель. Первый серийный уби
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509719.jpg" />
+  <img src="Z:/picture/008/save_picture_509719.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery: Призрак большой белой / Great Whaite Abyss (2018) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506829.jpg" />
+  <img src="Z:/picture/008/save_picture_506829.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Discovery. Сквозь червоточину с Морганом Фримен�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504039.jpg" />
+  <img src="Z:/picture/008/save_picture_504039.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503704.jpg" />
+  <img src="Z:/picture/008/save_picture_503704.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499343.jpg" />
+  <img src="Z:/picture/008/save_picture_499343.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip  [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499092.jpg" />
+  <img src="Z:/picture/008/save_picture_499092.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498847.jpg" />
+  <img src="Z:/picture/008/save_picture_498847.jpg" />
 </div>
 
 

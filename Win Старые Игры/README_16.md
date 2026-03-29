@@ -1,3 +1,55 @@
+###  Публикация: 533378   (532188) от 10.08.2012
+
+Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kirill Games
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Различные формы изменения человеческого сознания такие как медитация, наркотики или телевидение - всё это остается в прошлом. Выведена новая формула - электронная смесь галлюцинаций и сновидений которая растворит зыбкую грань между мирами. Мы назвали её ЛИАТ. Лиат - это чистый квест, где действие происходит в сказочном мире. Технологии в этой игре немного отличаются от традиционных квестовых 'движков' - переходы между фонами теперь объединяются движущейся камерой. Следовательно, когда игрок перемещается в сцене, переход на следующий экран достоверно изображается перелётом (не скроллинг!) камеры для того, чтобы создать полностью связанную картину игры. Разрешение 640x480 точек позволяет показать все авторские детали и фотореализм фонов, чтобы вы смогли поверить в реальность этого мира.Тип издания: RePackЖанр: Квест, ПриключениеЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063463   (531956) от 04.07.2019
+
+Transport Giant (2004) [Ru/Multi] (2.30) License PROPHET [Steam Edition]
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transport Giant - компьютерная игра, экономическая стратегия в реальном времени. Игрок выступает в качестве управляющего транспортной компании и пытается получить максимальную прибыль за счёт доставки пассажиров и грузов различными видами транспорта. Ремейк игры Transport Tycoon.Середина XIX века - эпоха стремительного развития промышленности и торговли, время роста (   Читать дальше...   )Тип издания: LicenseРазработчик: JoWooD Studio EbenseeЖанр: Strategy (RTS)Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:869A0434665E34568287E48A9D097074760EFB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533496   (530475) от 11.08.2012
 
 Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kirill Games
@@ -6,7 +58,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530475.jpg" />
+  <img src="Z:/picture/008/save_picture_530475.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530220.jpg" />
+  <img src="Z:/picture/008/save_picture_530220.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530150.jpg" />
+  <img src="Z:/picture/008/save_picture_530150.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530043.jpg" />
+  <img src="Z:/picture/008/save_picture_530043.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529464.jpg" />
+  <img src="Z:/picture/008/save_picture_529464.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529462.jpg" />
+  <img src="Z:/picture/008/save_picture_529462.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528954.jpg" />
+  <img src="Z:/picture/008/save_picture_528954.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528399.jpg" />
+  <img src="Z:/picture/008/save_picture_528399.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526296.jpg" />
+  <img src="Z:/picture/008/save_picture_526296.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525109.jpg" />
+  <img src="Z:/picture/008/save_picture_525109.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524748.jpg" />
+  <img src="Z:/picture/008/save_picture_524748.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524692.jpg" />
+  <img src="Z:/picture/008/save_picture_524692.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523041.jpg" />
+  <img src="Z:/picture/008/save_picture_523041.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ NASCAR Racing 3 (1999) [En] (1.2.1.7/dlc) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521551.jpg" />
+  <img src="Z:/picture/008/save_picture_521551.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521020.jpg" />
+  <img src="Z:/picture/008/save_picture_521020.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520860.jpg" />
+  <img src="Z:/picture/008/save_picture_520860.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519858.jpg" />
+  <img src="Z:/picture/008/save_picture_519858.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Syberia / Сибирь [Русификатор] (2002) [ui/dub] License 1С (Л�
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519259.jpg" />
+  <img src="Z:/picture/008/save_picture_519259.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ The Original Strife: Veteran Edition (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518955.jpg" />
+  <img src="Z:/picture/008/save_picture_518955.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518206.jpg" />
+  <img src="Z:/picture/008/save_picture_518206.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ BioShock (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516758.jpg" />
+  <img src="Z:/picture/008/save_picture_516758.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515814.jpg" />
+  <img src="Z:/picture/008/save_picture_515814.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514801.jpg" />
+  <img src="Z:/picture/008/save_picture_514801.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513366.jpg" />
+  <img src="Z:/picture/008/save_picture_513366.jpg" />
 </div>
 
 
@@ -613,62 +665,6 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 
 Игра напоминает смесь из Return Fire и Wild Metal Country.  Тоже вертолётики и машинки, а также какие-то ещё странные передвижные средства.  Среди всех прочих игр жанра SWIV 3D выделяется интересным ландшафтом, красивыми спецэффектами и занятным геймплеем, от которого порой тяжело оторваться.
 (   Читать дальше...   )Тип издания: RePackЖанр: Аркадный экшен, вертолетная аркада, авто экшенЯзык озвучки: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536948   (513226) от 19.08.2012
-
-The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG games/Pilotus
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513226.jpg" />
-</div>
-
-
-###  Подробнее
-
-...Несколько тысяч лет назад Глава Богов и Священник Дьяволов боролись вожесточенной борьбе. И в результате этого Армагеддона пострадали обе стороны. С тех пор Глава Богов заморожен и превращен в Замороженный Марс.
- Только пять реликвий: Священный Посох, Меч Тьмы, Снежный Лук и Перчатка Жизни, собранные вместе, смогут спасти мир...
-Отряд героев (Берссеркер, Рыцарь, Лучник и Женщина-Воин), которые поклялись найти реликвии, должен пройти через Заброшенные Земли: Мир Железа, Мир Лесов, Мир Тьмы и Ледяной храм, чтобы объединить реликвии и объединить Заброшенные земли!Тип издания: RePackЖанр: action-rpgЯзык озвучки: -/-Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826A0E4E894AD737394999FBE4BDB030EE2F5F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536945   (513193) от 19.08.2012
-
-State of War / Военное положение [Ru/En] (RePack) 2001 | RG Games/Pilotus
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513193.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 год. Объединенная Федерация Континентов создает глобальную оборонительную систему "Супермозг". Сверхмощная программа искусственного интеллекта контролирует 22 военные базы, в полной боевой готовности ожидающие своего часа в малонаселенных зонах земного шара. И все было хорошо. До того момента, пока влиятельной секте Бехо-Сунн не вздумалось захватить власть над всей планетой...
-"Военное положение" - новая стратегия в реальном времени: ваша задача - раздавить воинствующих фанатиков и в освободить военные базы, которые должны защищать людей, а не уничтожать их.
-(   Читать дальше...   )Тип издания: RePackЖанр: Стратегия в реальном времениЯзык озвучки: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash

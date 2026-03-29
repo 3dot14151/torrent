@@ -1,3 +1,119 @@
+###  Публикация: 1759039   (103321) от 06.11.2024
+
+Charlie Byrd - Midnight Guitar (1957) 1994, Nippon [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for Night People [20:32]
+02. Blues My Naughty Sweetie Gave to Me [3:42]
+03. Blue Prelude [5:23]
+04. This Can't Be Love [2:43](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B5DFCAA61CC6AEDBD2D415F4AA979D72CA4247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759579   (103272) от 09.11.2024
+
+Anita O'Day - My Funny Valentine: Live (1955 - 1959) 2012, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Brothers [1:56]
+02. Love Me or Leave Me [1:40]
+03. As Long As I Live [4:12]
+04. You're The Top [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A7AA3F38AAA47CA35F38E51C26F837FB006F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759668   (103243) от 10.11.2024
+
+Frank Sinatra & Bing Crosby - The Golden Era Of Jazz Vol. 1 (2006) 2CD [WavPack|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dinah
+ 02. Can't we talk it over?
+ 03. Shine
+ 04. Paradise(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40438A7DA03D68E6A82062AA8CE289837DA180B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759713   (103237) от 10.11.2024
+
+VA - Jazz Guitar Ultimate Collection, , Vol.1 (1947 - 1960) 10CD, 2024, Fermata [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brasilia [2:19]
+02. I'll Remember April [2:36]
+03. Lonely Lament [2:38]
+04. Carnival [1:46](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, CoolПродолжительность: 10:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A104260354D1AD1417258B020828CDD1463B4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759794   (103236) от 10.11.2024
 
 Spyro Gyra - Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Smooth Jazz>
@@ -6,7 +122,7 @@ Spyro Gyra - Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103236.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103196.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Ken Colyer - Boston Church Service (1972) 1998, GHB Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103185.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Kenny Barron - 1+1+1 (1986) BlackHawk Records [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103183.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Larry Willis Trio - Just In Time (1989) SteepleChase [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103173.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Michel Sardaby - Blue Sunset (1967) 1990, Mantra [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103172.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103140.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.1 (1952, 1953) Blue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103129.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Don Ellis - Three Classic Albums Plus (1959 - 1962) 2CD, 2018, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103105.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Marian McPartland Trio - Live At Shanghai Jazz (2002) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103068.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103067.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102935.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102934.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102918.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Fusion Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102901.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Hubert Laws - The Rite Of Spring (1971) 1991, CBS [WavPack|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102895.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Bobby Hutcherson - Mirage (1991) Landmark Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102891.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Duke Jordan - Three Classic Albums Plus (1955 -1962) 2CD, 2014, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102887.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Bobby Hutcherson - Skyline (1999) Verve Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102864.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Hubert Laws - Carnegie Hall (1973) 2002, CTI Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102833.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Jazz Sabbath - The 1968 Tapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102827.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Jane Monheit - Jane Monheit (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102804.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Jane Monheit - Jane Monheit (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7694EB1CF4B32CF492FBABAB7B5180C605D12FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763436   (102794) от 01.12.2024
-
-Jackie McLean - It's Time! (1964) 2006, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cancellation [7:45]
-02. Das' Dat [6:27]
-03. It's Time [6:35]
-04. Revillot [7:51](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115D1A5EC8253ED97492DF855BBD8D37291B6D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763803   (102781) от 03.12.2024
-
-Jimmy Raney & Sonny Clark - Together! (1954) 1994, Xanadu Records [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once in a While [4:33]
-02. Pennies from Heaven [3:18]
-03. Yesterdays [3:04]
-04. There Will Never Be Another You [4:30](   Читать дальше...   )Жанр: Bop, Guitar Jazz, Piano JazzПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973DD203C8D565F616B6F947B2761775482FCCD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763824   (102779) от 03.12.2024
-
-VA - Fusion Funk Excursions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AdrianoMaria - Trio Elètrico (7:51)
-02. AdrianoMaria - Isn't She Lovely (6:29)
-03. Afronauti - Ghost Friends (4:26)
-04. Apollo Beat - Luna 22 (2:50)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, FunkПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52AF3CB6A0A75D716ADCE41055A077E2745299E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763857   (102778) от 03.12.2024
-
-Michael Lington - Everything Must Change (2002) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off the Hook (3:57)
-02. In the Shade (4:26)
-03. Through the Fire (4:44)
-04. The Moment (4:03)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E342F1DEA326AB0DBB188589B1057EB08E843322
 ```
 
 https://mybot314.ru/tekegram_catalog/

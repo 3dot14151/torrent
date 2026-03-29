@@ -6,7 +6,7 @@ Movavi Video Editor Plus 20.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878248.jpg" />
+  <img src="Z:/picture/005/save_picture_878248.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mountain Duck 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878213.jpg" />
+  <img src="Z:/picture/005/save_picture_878213.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878211.jpg" />
+  <img src="Z:/picture/005/save_picture_878211.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878207.jpg" />
+  <img src="Z:/picture/005/save_picture_878207.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Radio Record Танцевальная ночь 2 50/50 (2011) [MP3|256 kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_878190.jpg" />
+  <img src="Z:/picture/009/save_picture_878190.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Resistor 2.1.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878185.jpg" />
+  <img src="Z:/picture/005/save_picture_878185.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878177.jpg" />
+  <img src="Z:/picture/005/save_picture_878177.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ FreeCAD 0.18.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878175.jpg" />
+  <img src="Z:/picture/005/save_picture_878175.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ AVG Remover 1.0.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878123.jpg" />
+  <img src="Z:/picture/005/save_picture_878123.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Allavsoft Video Downloader Converter 3.13.8.6256 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878122.jpg" />
+  <img src="Z:/picture/005/save_picture_878122.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Ultra Adware Killer 5.6.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878119.jpg" />
+  <img src="Z:/picture/005/save_picture_878119.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Zentimo xStorage Manager 1.10.1.1259 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878117.jpg" />
+  <img src="Z:/picture/005/save_picture_878117.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Wise Disk Cleaner 9.43.659 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878113.jpg" />
+  <img src="Z:/picture/005/save_picture_878113.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878112.jpg" />
+  <img src="Z:/picture/005/save_picture_878112.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_878102.jpg" />
+  <img src="Z:/picture/009/save_picture_878102.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_878099.jpg" />
+  <img src="Z:/picture/009/save_picture_878099.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ IObit Driver Booster Pro 7.4.0.721 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878079.jpg" />
+  <img src="Z:/picture/005/save_picture_878079.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Autodesk AutoCAD Mechanical 2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878064.jpg" />
+  <img src="Z:/picture/005/save_picture_878064.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878057.jpg" />
+  <img src="Z:/picture/005/save_picture_878057.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878025.jpg" />
+  <img src="Z:/picture/005/save_picture_878025.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Artweaver Free 6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878023.jpg" />
+  <img src="Z:/picture/005/save_picture_878023.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Dr.Web Remover 11.1.2.201701230 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878014.jpg" />
+  <img src="Z:/picture/005/save_picture_878014.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878013.jpg" />
+  <img src="Z:/picture/005/save_picture_878013.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ SILKYPIX Developer Studio Pro 8E 8.0.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878012.jpg" />
+  <img src="Z:/picture/005/save_picture_878012.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Display Driver Uninstaller 17.0.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878010.jpg" />
+  <img src="Z:/picture/005/save_picture_878010.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Movavi Video Editor Plus 20.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877981.jpg" />
+  <img src="Z:/picture/005/save_picture_877981.jpg" />
 </div>
 
 

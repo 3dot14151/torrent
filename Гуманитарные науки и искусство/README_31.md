@@ -1,3 +1,31 @@
+###  Публикация: 1274651   (793055) от 07.01.2019
+
+А. Принс | Преступность и репрессия: уголовно-юридический очерк (1898) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие автора:
+
+Труд этот, как о том свидетельствует его заглавие, представляет собой научное исследование. Я не претендую на то, чтоб написать книгу, основанную на практике и опыте. Моя цель более скромная; я просто желаю привлечь внимание законодателя к великим вопросам, которые некогда стояли на первом плане общественных забот и ныне находятся, к несчастью, (   Читать дальше...   )Жанр: История, политология, криминология, криминалистика, социология, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5B2B980EE0E64CA8D6236391BE7BCBB2728133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509954   (792747) от 14.11.2021
 
 Дина Хапаева | Занимательная смерть. Развлечения эпохи постгуманизма (2021) [FB2]
@@ -6,7 +34,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792747.jpg" />
+  <img src="Z:/picture/008/save_picture_792747.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792388.jpg" />
+  <img src="Z:/picture/008/save_picture_792388.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792240.jpg" />
+  <img src="Z:/picture/008/save_picture_792240.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791921.jpg" />
+  <img src="Z:/picture/008/save_picture_791921.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791795.jpg" />
+  <img src="Z:/picture/008/save_picture_791795.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791785.jpg" />
+  <img src="Z:/picture/008/save_picture_791785.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791777.jpg" />
+  <img src="Z:/picture/008/save_picture_791777.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791770.jpg" />
+  <img src="Z:/picture/008/save_picture_791770.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791055.jpg" />
+  <img src="Z:/picture/008/save_picture_791055.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791029.jpg" />
+  <img src="Z:/picture/008/save_picture_791029.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791023.jpg" />
+  <img src="Z:/picture/008/save_picture_791023.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791017.jpg" />
+  <img src="Z:/picture/008/save_picture_791017.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791011.jpg" />
+  <img src="Z:/picture/008/save_picture_791011.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790942.jpg" />
+  <img src="Z:/picture/008/save_picture_790942.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790745.jpg" />
+  <img src="Z:/picture/008/save_picture_790745.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790494.jpg" />
+  <img src="Z:/picture/008/save_picture_790494.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789945.jpg" />
+  <img src="Z:/picture/008/save_picture_789945.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789944.jpg" />
+  <img src="Z:/picture/008/save_picture_789944.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789943.jpg" />
+  <img src="Z:/picture/008/save_picture_789943.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789942.jpg" />
+  <img src="Z:/picture/008/save_picture_789942.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789938.jpg" />
+  <img src="Z:/picture/008/save_picture_789938.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789934.jpg" />
+  <img src="Z:/picture/008/save_picture_789934.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789923.jpg" />
+  <img src="Z:/picture/008/save_picture_789923.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789911.jpg" />
+  <img src="Z:/picture/008/save_picture_789911.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789797.jpg" />
+  <img src="Z:/picture/008/save_picture_789797.jpg" />
 </div>
 
 
@@ -654,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF91B4179EE55E0EF2FFCA980806EA5E2F0812CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203043   (789093) от 31.01.2018
-
-А. Нежный (сост.) | Неуслышанные голоса [2 Тома] (2003) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своим поистине огненным содержанием эта книга способна опалить душу. Послания Патриарха Тихона, с пророческой силой обличающие преступления советской власти, яростные "Окаянные дни" первого русского Нобелевского лауреата по литературе Ивана Бунина, "Философия неравенства" одного их крупнейших отечественных мыслителей минувшего столетия Николая (   Читать дальше...   )Жанр: Философия, историяФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1032BECBD4130430F522F726D6F17FF584E28975
 ```
 
 https://mybot314.ru/tekegram_catalog/

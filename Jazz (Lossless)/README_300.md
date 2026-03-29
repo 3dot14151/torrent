@@ -1,3 +1,119 @@
+###  Публикация: 1683744   (128217) от 12.12.2023
+
+VA - Luxury Relaxing Lounge Comfort Smooth Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Fade into the Sunset (4:44)
+02. Konstantin Klashtorni - Nice and Easy (5:12)
+03. eJazz Artistry - No Rhyme, No Reason (3:48)
+04. Kool&Klean - Down Our Memory Lane (4:32)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53E616CEFB801146497F9B358BAF7BDB5A72EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683747   (128211) от 12.12.2023
+
+VA - Meditative, Romantic and Stylish Jazz for the Quiet Times (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - The Way You Look Tonight (5:06)
+02. Chillaxing Jazz Kollektion - A New Day (4:44)
+03. Love Suggestions - Clarity (4:36)
+04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC427F85EA72390E6EAADF86E03668CCD05B0D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683750   (128208) от 12.12.2023
+
+VA - Sad Girl Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Holiday - I'll Never Smile Again (3:26)
+02. Ella Fitzgerald - Get Out Of Town (3:23)
+03. Chet Baker - I Fall In Love Too Easily (3:20)
+04. Tord Gustavsen Trio - Vær sterk, min sjel (3:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0410E2EFA3DC9BCF66A3399E47B553BF77D70F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683973   (128127) от 13.12.2023
+
+Fourplay - Between The Sheets (1993) 2023 30th Anniversary Remastered Edition [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chant
+02. Monterey
+03. Between the Sheets
+04. Li'l Darlin'(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5CFD278A6F01113AD2ECFCB7B3CEDCAC2A6C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683866   (128099) от 13.12.2023
 
 VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -6,7 +122,7 @@ VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128099.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128086.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128085.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Dave McKenna - Christmas Ivory (1997) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128080.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127958.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127956.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127939.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Monty Alexander - Facets (1979) 1991, Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127777.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127774.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127773.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Toshiko Akiyoshi - Finesse (1978) 1990, Concord Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127766.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Erotic Jazz Music Ensemble, Erotic Stimulation Academy - Jazz for Erotic Night (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127612.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Monty Alexander - Solo (1980, 1987) 1998, Kingston World [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127556.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Bill Evans Quintet - Interplay (1962) 1996, Riverside [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127545.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Howard Alden Trio - Snowy Morning Blues (1990) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127543.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Ted Rosenthal - The 3 B's: Plays the Music of Bud Powell, Bill Evans, Beethoven 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127419.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Art Pepper - Tokyo Debut (1977) 1995, Fantasy [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127372.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Ahmad Jamal - Four Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127371.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Bob Brookmeyer New Art Orchestra - New Works: Celebration (1997) 1999, Challenge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127354.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Charles Mingus - Blues & Roots (1959) 2007, Warner Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127353.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Monty Alexander - The River (1985) 1990, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127349.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Sexual Piano Jazz Collection, Jazz Erotic Lounge Collective - Jazz Erotic Backgr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127267.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Sexual Piano Jazz Collection, Jazz Erotic Lounge Collective - Jazz Erotic Backgr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A15D5374C79A53566608ADDEDB394B2E0BE60EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685321   (127242) от 18.12.2023
-
-VA - The Best Of Acid Jazz Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black & Brown - Cool Affair (5:23)
-02. Italian Secret Service - Not the Same (4:30)
-03. The Soultrend Orchestra - Live For Funk (3:38)
-04. 2 Men 4 Soul - Spread Your Sax (5:16)(   Читать дальше...   )Жанр: Jazz, Funk, Acid JazzПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37797344E733E673EF7F1A2BEE2C886E209AAF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685319   (127229) от 18.12.2023
-
-VA - The Best Bossa Nova Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Bossa Nova, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12 Fingers - Viagem (7:06)
-02. Silvia Donati - Parece Vortice (3:36)
-03. Hammond Express - Esoterico (5:21)
-04. Bebo Best - Billie's Feet (Brazilectro Remix) (3:40)(   Читать дальше...   )Жанр: Smooth Jazz, Bossa Nova, LoungeПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B596CA476C958532E8CE3473BB21A03DB2FB8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685289   (127224) от 18.12.2023
-
-Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [2:25]
-02. Santa Claus Is Coming to Town [2:21]
-03. Have Yourself a Merry Little Christmas [2:58]
-04. What Are You Doing New Year's Eve? [3:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBE6042A32E4D6A2A676FA5DBAC4F172393F17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685292   (127223) от 18.12.2023
-
-Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks + .cue] <CCD32122>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love? [6:22]
-02. La Bonita [5:32]
-03. Seven Steps to Heaven [5:50]
-04. St. Thomas [7:17](   Читать дальше...   )Жанр: CCD32122Продолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
 ```
 
 https://mybot314.ru/tekegram_catalog/

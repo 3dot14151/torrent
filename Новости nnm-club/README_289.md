@@ -1,3 +1,166 @@
+###  Публикация: 1764845   (34576) от 11.12.2024
+
+Новый удар по Intel. Производители настольных ПК переходят на процессоры с архитектурой ARM
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производители настольных компьютеров с Windows начали разработку моделей на процессорах с архитектурой ARM. До этого данная ниша почти полностью была занята х86-чипами, и большую часть рынка удерживала Intel. Аналогичные процессы уже происходят в сегментах ноутбуков и серверов. Для Intel это очередной удар, так как ARM-процессоры во всем лучше и современнее, чем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765274   (34570) от 11.12.2024
+
+Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2605 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_24h2_x64_dvd_f9b9b5d6
+ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F17E6CDA5936D305465497EE9EC841DB666333E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765261   (34464) от 12.12.2024
+
+Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5247 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_sep_2024_x64_dvd_c38bd9db
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94397BC0D03C9392041D27E876ADB009BEFFD9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765107   (34371) от 13.12.2024
+
+Новый квантовый процессор Google достиг прорывной точности
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксперимент, проведенный исследователями из Google, показал, что с помощью правильно подобранных техник коррекции ошибок квантовые компьютеры могут выполнять вычисления с повышенной точностью. Пройдя стандартный тест на выборку случайных целей,  квантовый процессор Willow на 105 кубитов за пять минут решил задачу, на которую лучшие суперкомпьютеры мира потратили бы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765655   (34258) от 14.12.2024
+
+Сто лет одиночества / Cien Anos de Soledad / One Hundred Years of Solitude (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) HDRezka
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация литературного шедевра лауреата Нобелевской премии Габриэля Гарсиа Маркеса. В существующем вне времени городке Макондо семь поколений семьи Буэндиа познают любовь, забвение и неизбежность прошлого — и своей судьбы.Производство: Колумбия / DynamoЖанр: Фэнтези, драма, историяРежиссер: Алекс Гарсия Лопес, Лаура Мора ОртегаАктеры: Джино Монтесинос, Руджеро Паскарелли, Марлейда Сото, Эдуардо Де Лос Рейес, Клаудио Катаньо, Жеронимо Барон, Марко Гонзалес, Леонардо Сото, Сусана Моралес, Элла БесерраПеревод: Многоголосый профессиональный (HDRezka)Язык озвучки: Русский, испанскийСубтитры: Испанские (full, SDH), английские (full, SDH)Продолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D66FBD9DE7A31047C524B9E377D0DC682AB0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221122   (34251) от 14.12.2024
+
+Тени исчезают в полдень (1971) DVDRip (сезон 1, серии 1-7 из 7)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34251.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённому роману Анатолия Иванова.
+Потомки знатного рода Константин и Серафима селятся под чужими именами в глухой таежной деревушке после того, как царская власть потерпела поражение в Гражданской войне. В картине прослеживаются судьбы нескольких поколений обитателей советской деревни Зеленый Дол. На фоне переломных событий, разрывающих страну на части, разыгрывается (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Владимир Краснопольский, Валерий УсковАктеры: Пётр Вельяминов, Нина Русланова, Галина Польских, Иван Рыжов, Сергей Яковлев, Александра Завьялова, Борис Новиков, Валерий Гатаев, Элеонора Шашкова, Лев ПоляковЯзык озвучки: русскийКачество: DVDRipПродолжительность: 08:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD55420A67BE8FEEC92B0D1BBA9BA80CF03B14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765258   (34160) от 15.12.2024
 
 YouTube  научился переводить видео
@@ -6,7 +169,7 @@ YouTube  научился переводить видео
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34160.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34146.jpg" />
 </div>
 
 
@@ -58,7 +221,7 @@ Google Play отключает российских разработчиков �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34053.jpg" />
 </div>
 
 
@@ -84,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34040.jpg" />
 </div>
 
 
@@ -110,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33920.jpg" />
 </div>
 
 
@@ -136,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33845.jpg" />
 </div>
 
 
@@ -162,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33837.jpg" />
 </div>
 
 
@@ -188,7 +351,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.83/dlc) Repack Decepticon [Digital C
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33734.jpg" />
 </div>
 
 
@@ -214,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33715.jpg" />
 </div>
 
 
@@ -240,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33634.jpg" />
 </div>
 
 
@@ -266,7 +429,7 @@ Dan Da Dan | Дандадан [2024, TV, 12 из 12] WEBRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33626.jpg" />
 </div>
 
 
@@ -292,7 +455,7 @@ Windows 11 Pro x64 Version 24H2 Build 26100.2605 by Igors_VL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33531.jpg" />
 </div>
 
 
@@ -318,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33425.jpg" />
 </div>
 
 
@@ -345,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33313.jpg" />
 </div>
 
 
@@ -371,7 +534,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.15.24357.8705766150) License GOG (обно
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33311.jpg" />
 </div>
 
 
@@ -397,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33273.jpg" />
 </div>
 
 
@@ -424,7 +587,7 @@ Max Payne: Anthology / Max Payne: Антология (2001-2012) (1.05/1.01/1.0.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33209.jpg" />
 </div>
 
 
@@ -450,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33120.jpg" />
 </div>
 
 
@@ -476,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33091.jpg" />
 </div>
 
 
@@ -502,7 +665,7 @@ Microsoft® Windows® 11 Professional VL x64 24H2 RU by OVGorskiy 12.2024
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33002.jpg" />
 </div>
 
 
@@ -513,164 +676,6 @@ Microsoft® Windows® 11 Professional VL x64 24H2 RU by OVGorskiy 12.2024
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD292C379C1BACC4D8A1059B7BB9077A4F32F17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230866   (33001) от 26.12.2024
-
-Книжная серия | Любовь внеземная [70 книг] (2017-2024) [FB2] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия любовно-фантастических романов, в которых действие развивается на космическом корабле или же на планете иной, чуждой для героини, расы. Выпускаются как отдельные романы, так и циклы.
-***
-Бесчисленное множество миров, и каждый из них – загадка. Десятки жизней, и каждая из них – уникальна. Мириады вариаций будущего, но лишь один исход… Лейлит Атанис отправляется (   Читать дальше...   )Жанр: Любовно-фантастические романы, Космическая фантастикаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB25671203348A83A51F37521E6444B3A16E8DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839434   (32997) от 26.12.2024
-
-Межавторские циклы | «S.T.A.L.K.E.R.» и «СТАЛКЕР» [351 книга] (2007-2024) [FB2] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ад раскрылся внезапно. В начале XXI века после нового мощного взрыва на Чернобыльской АЭС окружающая ее территория стала враждебной человеку Зоной, наполненной хищными мутантами и смертельно опасными ловушками. Однако местные физические аномалии порождают артефакты — невероятно ценные предметы, за которые мировые научные центры готовы платить целое состояние. Самые (   Читать дальше...   )Жанр: Боевая фантастика, ПостапокалипсисИздательство: Эксмо (2007-2009); АСТ (2009-2021)Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303FC90E499544754A9CFB82296B9035288D8A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768024   (32995) от 26.12.2024
-
-В Беларуси создали новую технологию изготовления чипов для космоса
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32995.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Беларуси создали новую технологию изготовления чипов для космоса, она запатентована, сообщили БЕЛТА в Евразийском патентном ведомстве.Технология более эффективная и менее затратная по сравнению с аналогами, запатентована в Евразийском патентном ведомстве. Ее разработчики - специалисты Государственного научного учреждения "Объединенный институт машиностроения (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768812   (32989) от 26.12.2024
-
-Крепость детской водки повысят до 30 градусов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32989.jpg" />
-</div>
-
-
-###  Подробнее
-
-По многочисленным просьбам родителей Минздрав совместно с Роспотребнадзором утвердили новый ГОСТ на производство детской водки. Согласно документу, крепость напитка увеличится с традиционных 20 до 30 градусов для «плавного вхождения подрастающего поколения во взрослую жизнь».Лабораторные исследования подтвердили, что современные российские дети значительно лучше (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768103   (32908) от 27.12.2024
-
-Землю «лихорадит»: появился прогноз катастроф на 2025 год
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никогда прежде в нашем веке ученые не предрекали столько катастроф, сколько ожидается в следующем году. И это лишь начало. Человечество может столкнуться с сильными наводнениями, землетрясениями и извержениями подводных вулканов.Планета посылает нам ясные предупреждения о надвигающихся ненастьях. Вероятно, негативное воздействие оказывают усилившаяся солнечная активность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754899   (32801) от 28.12.2024
-
-Maou 2099 / Demon Lord 2099 / Повелитель демонов 2099 [2024, TV, 12] WEBRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие paзвopaчивaeтcя, кaк нecлoжнo дoгaдaтьcя, в 2099 гoдy в Cиндзюкy, нa пepвый взгляд пpoцвeтaющeм, но нa caмoм дeлe пpoгнившeм. Имeннo здecь вoзвpaщaeтcя к жизни мoгyчий пoвeлитeль дeмoнoв Beлтoл, и цeль y нeгo вcё тa жe — захватить миp.Жанр: приключения, фэнтези, фантастика.Режиссер: Андо РёЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4244E8480452FB74357F54586559CC1F94D0A135
 ```
 
 https://mybot314.ru/tekegram_catalog/

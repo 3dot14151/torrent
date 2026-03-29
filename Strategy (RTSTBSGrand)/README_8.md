@@ -1,3 +1,29 @@
+###  Публикация: 1066029   (566573) от 24.05.2019
+
+War For The Overworld (2015) [Ru/Multi] (2.0.7/dlc) Repack R.G. Catalyst [Underlord Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устали захватывать чужие подземелья? Вы до смерти устали вспарывать животы сотням плохих парней, лишь бы заработать чуток золота да найти ботинки получше? Вы начинаете думать, что жизнь героя - это не для вас? Добро пожаловать в War for the Overworld! War for the Overworld берет лучшее из двух жанров - стратегии в реальном времени и симулятора бога - и позволяет (   Читать дальше...   )Тип издания: RepackРазработчик: Subterranean GamesЖанр: Strategy (God Sim, Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09371733EFA0049ABBEF378190DC488F8EFBDCAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175068   (566557) от 24.05.2019
 
 Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
@@ -6,7 +32,7 @@ Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566557.jpg" />
+  <img src="Z:/picture/008/save_picture_566557.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_564565.jpg" />
+  <img src="Z:/picture/005/save_picture_564565.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack R.G. Ca
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562738.jpg" />
+  <img src="Z:/picture/008/save_picture_562738.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Stellaris (2016) [Ru/Multi] (1.2.5.24012/dlc) Repack от Let'sPlay [Galaxy Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562622.jpg" />
+  <img src="Z:/picture/008/save_picture_562622.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Aggression: Reign over Europe / Агрессия (2007) [Ru] (1.23) Repack R.G. 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560308.jpg" />
+  <img src="Z:/picture/008/save_picture_560308.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557956.jpg" />
+  <img src="Z:/picture/008/save_picture_557956.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Iron Heart (2019) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555603.jpg" />
+  <img src="Z:/picture/008/save_picture_555603.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ The Hive (2016) [En] (1.01) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552586.jpg" />
+  <img src="Z:/picture/008/save_picture_552586.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Warparty (2019) [Ru/Multi] (1.0.9) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551766.jpg" />
+  <img src="Z:/picture/008/save_picture_551766.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Re-Legion (2019) [Ru/Multi] (1.3.1.314) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547505.jpg" />
+  <img src="Z:/picture/008/save_picture_547505.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd8) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547495.jpg" />
+  <img src="Z:/picture/008/save_picture_547495.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.16.3/dlc) License HI2U
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544355.jpg" />
+  <img src="Z:/picture/008/save_picture_544355.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543378.jpg" />
+  <img src="Z:/picture/008/save_picture_543378.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542208.jpg" />
+  <img src="Z:/picture/008/save_picture_542208.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Sudden Strike 3: Arms for Victory (2007) [Multi] (1.4) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542196.jpg" />
+  <img src="Z:/picture/008/save_picture_542196.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Victoria 2 / Виктория 2 + DLC [En/Ru] (L) 2010
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539286.jpg" />
+  <img src="Z:/picture/008/save_picture_539286.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533842.jpg" />
+  <img src="Z:/picture/008/save_picture_533842.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Command & Conquer - Generals: Zero Hour (2009) [Ru] (1.00) Mod/Portable [Multipl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531330.jpg" />
+  <img src="Z:/picture/008/save_picture_531330.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530220.jpg" />
+  <img src="Z:/picture/008/save_picture_530220.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Total War: ROME II (2013) [Multi] (2.4.0/dlc) License CODEX [Emperor Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529535.jpg" />
+  <img src="Z:/picture/008/save_picture_529535.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Hearts of Iron: Trilogy / День Победы: Трилогия (2002-2009) [E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529319.jpg" />
+  <img src="Z:/picture/008/save_picture_529319.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524748.jpg" />
+  <img src="Z:/picture/008/save_picture_524748.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524692.jpg" />
+  <img src="Z:/picture/008/save_picture_524692.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Crusader Kings II (2012) [Ru/Multi] (2.4.1/dlc) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524691.jpg" />
+  <img src="Z:/picture/008/save_picture_524691.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Pike and Shot: Campaigns 1494-1698 (2015) [En/Multi] License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523000.jpg" />
+  <img src="Z:/picture/008/save_picture_523000.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Pike and Shot Campaigns 1494-1698 - ожидаемое расширение дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:554EF53BE2E36E47E5B61A6E5821463A0953D051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313700   (522692) от 10.07.2019
-
-Kingdom Wars 2: Definitive Edition (2019) [Ru/Multi] (1.0) License HOODLUM
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522692.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Kingdom Wars 2: Definitive Edition» — это увлекательная стратегическая игра, сюжет которой разворачивается в мире темного фэнтези с орками, эльфами и драконами. Она сочетает в себе лучшие признаки жанров выживания среди зомби и градостроительства. В ней вам предстоит выживать, мастерить предметы и возводить города, а также вступать в яростные схватки, превращая (   Читать дальше...   )Тип издания: LicenseРазработчик: Reverie World StudiosЖанр: Strategy (Real-time), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B0A0AB3CE6A78E8DB8BB4F021B00F74818CC83
 ```
 
 https://mybot314.ru/tekegram_catalog/

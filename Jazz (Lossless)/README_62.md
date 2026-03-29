@@ -1,3 +1,119 @@
+###  Публикация: 1117303   (819267) от 22.03.2017
+
+Miles Davis - Porgy & Bess / Miles: The New Miles Davis Quintet & Blue Haze (1955, 1956, 1958) 2CD, 2010, Not Now Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819267.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Porgy And Bess:
+01.Buzzard Song [04:13]
+02.Bess, You Is My Woman Now [05:17]
+03.Gone [03:43](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEB86B2D2B8D11EFB1210F274EE27D269F8CD2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117340   (819250) от 22.03.2017
+
+Jack Jezzro - Sinatra On Guitar (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly With Me
+02. You Make Me Feel So Young
+03. Strangers In The Night
+04. Fly Me To The Moon(   Читать дальше...   )Жанр: Smooth Jazz, GuitarПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF5C91B434F5DC5E032BC1599C4CA908857CC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196923   (819213) от 05.01.2018
+
+John Frigo And His Quintet - I Love John Frigo, He Swings (1957) 2004, Universal [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What a Difference a Day Made [02:31]
+02. Polka Dots and Moonbeams [04:19]
+03. Blow Fiddle Blow [02:50]
+04. Blue Orchids [03:02](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5916B988D1C8F868F4E376B852427DB34919BAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196921   (819202) от 05.01.2018
+
+Frank Wess & Harry Edison Orchestra - Dear Mr. Basie (1989) Concrod Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpin' At The Woodside [03:54]
+02. The Very Thought Of You [05:05]
+03. Blue On Blue [04:27]
+04. All Riled Up [04:47](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6844A14FAFDDE4E18223D65BAE0A4D7E2620F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196920   (819197) от 05.01.2018
 
 Peggy Lee - Sings Leiber & Stoller (1952 - 1969) 2002, Hip-O Select [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Peggy Lee - Sings Leiber & Stoller (1952 - 1969) 2002, Hip-O Select [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819197.jpg" />
+  <img src="Z:/picture/008/save_picture_819197.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Jazz Covers 80s Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819140.jpg" />
+  <img src="Z:/picture/008/save_picture_819140.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ David Reinhardt Trio - Colombe (2011) Cristal Records[APE|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818103.jpg" />
+  <img src="Z:/picture/008/save_picture_818103.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Gonzalo Rubalcaba - XXI Century (2011) SPassion[FLAC|Lossless|tracks + .cue] <Af
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818100.jpg" />
+  <img src="Z:/picture/008/save_picture_818100.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Joe Henderson - Page One (1963) 2009, Analogue Productions[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818099.jpg" />
+  <img src="Z:/picture/008/save_picture_818099.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Brother Jack McDuff - Do It Now! (1967) Remaster, 2013, Warner[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818095.jpg" />
+  <img src="Z:/picture/008/save_picture_818095.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Sadao Watanabe - I'm With You (2016) Red River [FLAC|Lossless|tracks + .cue] <Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817891.jpg" />
+  <img src="Z:/picture/008/save_picture_817891.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Vincent Ingala - Fire & Desire (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817795.jpg" />
+  <img src="Z:/picture/008/save_picture_817795.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Wild Bill Davison - Pretty Wild & With Strings Attached (1956, 1957) 2000, Arbor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817730.jpg" />
+  <img src="Z:/picture/008/save_picture_817730.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Eddie 'Lockjaw' Davis - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817726.jpg" />
+  <img src="Z:/picture/008/save_picture_817726.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Maynard Ferguson & Chris Connor - Two's Company 1961 (1996) Roulette Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817690.jpg" />
+  <img src="Z:/picture/008/save_picture_817690.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Maynard Ferguson - Storm 1982 (2015) Omnivore Recordings [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817675.jpg" />
+  <img src="Z:/picture/008/save_picture_817675.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Louis Armstrong - The Silver Collection (1984) [FLAC|Lossless|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817578.jpg" />
+  <img src="Z:/picture/008/save_picture_817578.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Zoot Sims - The Modern Art Of Jazz 1956 (1998) Dawn [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817545.jpg" />
+  <img src="Z:/picture/008/save_picture_817545.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Dave Brubeck - S' Wonderful (2003) Tyrolis Musik [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817347.jpg" />
+  <img src="Z:/picture/008/save_picture_817347.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Ken Peplowski Quartet - Memories Of You (2007) Venus Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817339.jpg" />
+  <img src="Z:/picture/008/save_picture_817339.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tundra Art Ensemble - Sessions 2020 [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Mo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816131.jpg" />
+  <img src="Z:/picture/008/save_picture_816131.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sadao Watanabe & Richard Bona - One for You: Sadao & Bona Live (2006) JVC [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816079.jpg" />
+  <img src="Z:/picture/008/save_picture_816079.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Kaylene Peoples - My Man (2015) Boogsey Music[FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816037.jpg" />
+  <img src="Z:/picture/008/save_picture_816037.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Norah Jones - I Dream Of Christmas (2021) Japanese Edition [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815969.jpg" />
+  <img src="Z:/picture/008/save_picture_815969.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Geri Allen - Maroons (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815919.jpg" />
+  <img src="Z:/picture/008/save_picture_815919.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815918.jpg" />
+  <img src="Z:/picture/008/save_picture_815918.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC456B9BEC8B9BE354687A3F16B1901E03BB166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197410   (815916) от 07.01.2018
-
-Geri Allen - Grand River Crossings: Motown & Motor City Inspirations (2013) Membran [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin' [02:22]
-02. Tears of a Clown [05:32]
-03. That Girl [06:06]
-04. Grand River Crossings I [00:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A52C12BCFC22B0ACB4B1A5D851620A62CC2DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197406   (815912) от 07.01.2018
-
-Blue Mitchell - Stablemates (1977) 2006, Candid [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stablemates [06:01]
-02. Portrait Of Jennie [07:40]
-03. There Will Never Be Another You [07:06]
-04. Getting Sentimental Over Blue [07:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA1D3BC57BE427ECA2D301D9E29079B7A071222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197485   (815817) от 07.01.2018
-
-Eric Alexander - Chicago Fire (2014) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Your Love For Me [07:44]
-02. The Bee Hive [09:11]
-03. Eddie Harris [06:20]
-04. Just One of Those Things [05:15](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106A55615278D670BE88BE21C96EEA165FE6ECB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008590   (815794) от 18.04.2016
-
-Julie London - The Ultimate Collection (2014) 3CD Box Set [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cry Me A River 02:50
-02.Diamonds Are A Girl's Best Friend 01:59
-03.My Heart Belongs To Daddy 02:40
-04.September In The Rain 01:40(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00E8E518A8DC8B5006A4F4DD7922F09A4E388DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

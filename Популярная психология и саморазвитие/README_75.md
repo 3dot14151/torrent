@@ -1,3 +1,84 @@
+###  Публикация: 1414742   (383030) от 09.10.2020
+
+Артур Фримен, Роуз Девульф | Почему умные люди совершают глупости, и как не попасть в капкан привычек (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_383030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы часто действуем привычным для нас образом, даже не задумываясь. В результате получаем совсем не то, что ожидали, и удивляемся: как же так? Эта схема мышления срабатывает бессознательно и портит многое в отношениях и результатах, на которые мы рассчитываем. Как научиться обходить шаблоны мышления, понимать бессознательные действия, не совершать глупых ошибок, рассказывают (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Лариса ЦарукФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EF0E7285ACE986CD8D3739D18CFC9FA4224D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414770   (383023) от 09.10.2020
+
+Джоко Виллинк, Лейф Бабин | Экстремальная воля. Принципы, спасающие жизнь, карьеру и брак (2020) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_383023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как обрести контроль над своей жизнью и карьерой, стать более успешным и добиться того, о чем всегда мечтал? Джоко Виллинк и Лейф Бабин в своей книге, сразу после выхода ставшей бестселлером, предлагают универсальные для любой сферы принципы, которые гарантированно изменят вашу жизнь и решат проблемы, казавшиеся непреодолимыми. Начните читать и убедитесь сами!Жанр: Зарубежная деловая литература, Личная эффективность, Саморазвитие / личностный ростФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEB844A34033D648708F7D535FCA17AF7D67874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174830   (382835) от 16.10.2017
+
+Геннадий Старшенбаум | Трудные характеры. Как с ними справиться? (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_382835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем приходится иметь дело с трудными людьми. Узнайте, как справиться с разными ситуациями, возникающими при общении с конфликтными, враждебно настроенными, склонными к манипулированию и вообще невыносимыми людьми.
+Эта книга поможет вам:
+• узнать, что делает людей трудными во взаимодействии и как лучше всего обращаться с ними;
+• разработать стратегии, позволяющие (   Читать дальше...   )Жанр: ПсихологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065EF902C032C77441983A1DAF3DA3CD33360CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175060   (382717) от 16.10.2017
 
 Хайди Грант Хэлворсон | Меня никто не понимает! Почему люди воспринимают нас не так, как нам хочется, и что с этим делать (2017) [FB2, EPUB]
@@ -6,7 +87,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382717.jpg" />
+  <img src="Z:/picture/008/save_picture_382717.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382549.jpg" />
+  <img src="Z:/picture/008/save_picture_382549.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382547.jpg" />
+  <img src="Z:/picture/008/save_picture_382547.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382543.jpg" />
+  <img src="Z:/picture/008/save_picture_382543.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382521.jpg" />
+  <img src="Z:/picture/008/save_picture_382521.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381491.jpg" />
+  <img src="Z:/picture/008/save_picture_381491.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380906.jpg" />
+  <img src="Z:/picture/008/save_picture_380906.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380775.jpg" />
+  <img src="Z:/picture/008/save_picture_380775.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380646.jpg" />
+  <img src="Z:/picture/008/save_picture_380646.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380611.jpg" />
+  <img src="Z:/picture/008/save_picture_380611.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380340.jpg" />
+  <img src="Z:/picture/008/save_picture_380340.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379263.jpg" />
+  <img src="Z:/picture/008/save_picture_379263.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379197.jpg" />
+  <img src="Z:/picture/008/save_picture_379197.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378859.jpg" />
+  <img src="Z:/picture/008/save_picture_378859.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378739.jpg" />
+  <img src="Z:/picture/008/save_picture_378739.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378471.jpg" />
+  <img src="Z:/picture/008/save_picture_378471.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378324.jpg" />
+  <img src="Z:/picture/008/save_picture_378324.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378199.jpg" />
+  <img src="Z:/picture/008/save_picture_378199.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377142.jpg" />
+  <img src="Z:/picture/008/save_picture_377142.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377129.jpg" />
+  <img src="Z:/picture/008/save_picture_377129.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376886.jpg" />
+  <img src="Z:/picture/008/save_picture_376886.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376599.jpg" />
+  <img src="Z:/picture/008/save_picture_376599.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376374.jpg" />
+  <img src="Z:/picture/008/save_picture_376374.jpg" />
 </div>
 
 
@@ -601,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C9347DE4957EBA1150E5FE7F78408C3E7E5AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175829   (376260) от 19.10.2017
-
-Крис Хелдер | Искусство влиять и побеждать (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные способы продаж и ведения дел отличаются от прежних. Мировой бизнес вступил в цифровую эпоху. Активней, чем когда-либо, для продвижения товара и увеличения продаж предприниматели используют средства электронного общения и интернет-коммуникаций. Эта книга о том, как оказывать влияние на людей в новой реальности. Техники и инструменты, предлагаемые автором, (   Читать дальше...   )Жанр: Психология, О бизнесе популярноФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BEE9EAEDDD21AEF6D5D3F7E1DF25BA5E5A8702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327255   (376209) от 24.09.2019
-
-Джон Ким | Это жизнь, чувак! Как повзрослеть и не облажаться, если ты мужчина (2019) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто мужчинам сложно оставаться всегда правыми, уверенными в себе, хладнокровными и неуязвимыми. Хорошая новость – быть таким супергероем вовсе не обязательно! А значит, можно измениться и стать другим: не картинкой с афиши, а настоящим человеком. Обращаясь к личному опыту и историям своих клиентов, психотерапевт Джон Ким разбивает любые стереотипы сильного (   Читать дальше...   )Жанр: Практическая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892D6AF1BF8FD54B8837401DD5248BB9E9C62FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175843   (375995) от 19.10.2017
-
-Виктор Шейнов | Путь победителя. От неуверенности к успеху (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робеете в присутствии важных для вас людей? Стесняетесь задать вопрос незнакомым? Попросить начальника о прибавке к зарплате – это для вас нереальный подвиг?
-Известный психолог Виктор Шейнов поделится собственным опытом преодоления неуверенности и настроя себя на путь победителя. В книге представлены способы избавления от неуверенности как черты характера и приемы (   Читать дальше...   )Жанр: ПсихологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52F8CB6A9C30CB10EDE8FE034C61AA23CF7495E
 ```
 
 https://mybot314.ru/tekegram_catalog/

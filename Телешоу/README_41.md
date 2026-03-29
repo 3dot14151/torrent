@@ -1,3 +1,30 @@
+###  Публикация: 1079248   (296120) от 03.12.2016
+
+Ледниковый период. Новый сезон (2016.12.03) SATRip (выпуск 10)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое красочное и искрометное ледовое шоу возвращается после двухлетнего перерыва в эфир Первого канала.
+Звезды театра, кино, телевидения и спорта примерят коньки и сразятся за оценки беспристрастных судей во главе с Татьяной Анатольевной Тарасовой. Где, как не в жесткой борьбе, лучше всего раскрываются характеры звездных героев?Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 02:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9222139A76273CBB6D2046ED8007FFF36F494BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185271   (295054) от 20.11.2017
 
 Где логика? (2017.11.20) SATRip (сезон 5, выпуск 15)
@@ -6,7 +33,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295054.jpg" />
+  <img src="Z:/picture/008/save_picture_295054.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294357.jpg" />
+  <img src="Z:/picture/008/save_picture_294357.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294201.jpg" />
+  <img src="Z:/picture/008/save_picture_294201.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293625.jpg" />
+  <img src="Z:/picture/008/save_picture_293625.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293600.jpg" />
+  <img src="Z:/picture/008/save_picture_293600.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293480.jpg" />
+  <img src="Z:/picture/008/save_picture_293480.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293341.jpg" />
+  <img src="Z:/picture/008/save_picture_293341.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292153.jpg" />
+  <img src="Z:/picture/008/save_picture_292153.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292060.jpg" />
+  <img src="Z:/picture/008/save_picture_292060.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291924.jpg" />
+  <img src="Z:/picture/008/save_picture_291924.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290738.jpg" />
+  <img src="Z:/picture/008/save_picture_290738.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290408.jpg" />
+  <img src="Z:/picture/008/save_picture_290408.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290338.jpg" />
+  <img src="Z:/picture/008/save_picture_290338.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289830.jpg" />
+  <img src="Z:/picture/008/save_picture_289830.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289828.jpg" />
+  <img src="Z:/picture/008/save_picture_289828.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288255.jpg" />
+  <img src="Z:/picture/008/save_picture_288255.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288254.jpg" />
+  <img src="Z:/picture/008/save_picture_288254.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286635.jpg" />
+  <img src="Z:/picture/008/save_picture_286635.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286563.jpg" />
+  <img src="Z:/picture/008/save_picture_286563.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286203.jpg" />
+  <img src="Z:/picture/008/save_picture_286203.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285999.jpg" />
+  <img src="Z:/picture/008/save_picture_285999.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284890.jpg" />
+  <img src="Z:/picture/008/save_picture_284890.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283897.jpg" />
+  <img src="Z:/picture/008/save_picture_283897.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283032.jpg" />
+  <img src="Z:/picture/008/save_picture_283032.jpg" />
 </div>
 
 
@@ -632,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283008.jpg" />
+  <img src="Z:/picture/008/save_picture_283008.jpg" />
 </div>
 
 
@@ -643,33 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EAA726A920389E49E23588FAE2F4C9DC0BB952D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081717   (282903) от 10.12.2016
-
-Ледниковый период. Новый сезон (2016.12.10) SATRip (выпуск 11)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое красочное и искрометное ледовое шоу возвращается после двухлетнего перерыва в эфир Первого канала.
-Звезды театра, кино, телевидения и спорта примерят коньки и сразятся за оценки беспристрастных судей во главе с Татьяной Анатольевной Тарасовой. Где, как не в жесткой борьбе, лучше всего раскрываются характеры звездных героев?Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 02:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5BADD076665149D7B215C525CF5BFBA099EAF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

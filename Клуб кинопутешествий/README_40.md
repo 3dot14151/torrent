@@ -1,3 +1,55 @@
+###  Публикация: 1175488   (378820) от 18.10.2017
+
+Орел и решка. Кругосветка (2016.11.07) WEB-DL [H.264/1080p-LQ] (сезон 12, выпуск 40: Кордова, Испания)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378820.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FA9CAA85F82AF0095232A2231CE16BB2EBF961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175486   (378817) от 18.10.2017
+
+Орел и решка. Кругосветка (2016.10.24) WEB-DL [H.264/1080p-LQ] (сезон 12, выпуск 38: Порту. Португалия)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378817.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137C78C8E31920F1E5708CB0967EC1C72D2AF723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175490   (378743) от 18.10.2017
 
 Орел и решка. Перезагрузка (2017.10.17) WEB-DLRip (сезон 14: Дублин. Ирландия)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378743.jpg" />
+  <img src="Z:/picture/008/save_picture_378743.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_378066.jpg" />
+  <img src="Z:/picture/005/save_picture_378066.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377127.jpg" />
+  <img src="Z:/picture/008/save_picture_377127.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377064.jpg" />
+  <img src="Z:/picture/008/save_picture_377064.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376622.jpg" />
+  <img src="Z:/picture/008/save_picture_376622.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376455.jpg" />
+  <img src="Z:/picture/008/save_picture_376455.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376454.jpg" />
+  <img src="Z:/picture/008/save_picture_376454.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372756.jpg" />
+  <img src="Z:/picture/008/save_picture_372756.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372453.jpg" />
+  <img src="Z:/picture/008/save_picture_372453.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372153.jpg" />
+  <img src="Z:/picture/008/save_picture_372153.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371394.jpg" />
+  <img src="Z:/picture/008/save_picture_371394.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369992.jpg" />
+  <img src="Z:/picture/008/save_picture_369992.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369829.jpg" />
+  <img src="Z:/picture/008/save_picture_369829.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369657.jpg" />
+  <img src="Z:/picture/008/save_picture_369657.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369643.jpg" />
+  <img src="Z:/picture/008/save_picture_369643.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369637.jpg" />
+  <img src="Z:/picture/008/save_picture_369637.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367498.jpg" />
+  <img src="Z:/picture/008/save_picture_367498.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365661.jpg" />
+  <img src="Z:/picture/008/save_picture_365661.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365568.jpg" />
+  <img src="Z:/picture/008/save_picture_365568.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364144.jpg" />
+  <img src="Z:/picture/008/save_picture_364144.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362848.jpg" />
+  <img src="Z:/picture/008/save_picture_362848.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361789.jpg" />
+  <img src="Z:/picture/008/save_picture_361789.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360761.jpg" />
+  <img src="Z:/picture/008/save_picture_360761.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360415.jpg" />
+  <img src="Z:/picture/008/save_picture_360415.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580085749B3066EEBACA55622070C83C24A887F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417208   (360402) от 19.10.2020
-
-Город на берегу. Сальвадор (Бразилия) / Waterfront Cities Of The World. Salvador de Bahia (2012) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сальвадор - столица бразильского штата Баия, является третьим по величине городом Бразилии. Сальвадор сохраняет позиции богатого сельскохозяйственного и индустриального района. Столица штата славится своей португальской архитектурой колониального периода, культурой, сочетающей африканские и бразильские традиции и тропическими пляжами.Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183A213F41DE2C0839A7595DFB8FA47419F2673C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417197   (360377) от 19.10.2020
-
-Подводный мир Эксумы / Exuma (2013) HDTV [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Багамские острова известны своими достопримечательностями и незабываемыми местами, архипелаг Эксума - как раз одно из них. Познакомьтесь с историей и многообразием подводной жизни Эксумы – одного из архипелагов в составе Багамских островов, который благодаря своим удивительным рифам и пещерам представляет необычайный интерес для дайверов.Производство: СШАЖанр: Документальный, познавательный, путешествияРежиссер: Колин РуджероПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49351F3F924B28D6786DABC6374064D3465415F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

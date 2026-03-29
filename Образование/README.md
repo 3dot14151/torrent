@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994373.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938236.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ TeachShop | Микроэкономика [2010] [ISO]
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919857.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879232.jpg" />
+  <img src="Z:/picture/005/save_picture_879232.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756965.jpg" />
+  <img src="Z:/picture/008/save_picture_756965.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755906.jpg" />
+  <img src="Z:/picture/008/save_picture_755906.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673940.jpg" />
+  <img src="Z:/picture/008/save_picture_673940.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551635.jpg" />
+  <img src="Z:/picture/008/save_picture_551635.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533864.jpg" />
+  <img src="Z:/picture/008/save_picture_533864.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Twitmoney | Twittir PRO. Мы знаем как заработать 162 000 р�
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430839.jpg" />
+  <img src="Z:/picture/008/save_picture_430839.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392476.jpg" />
+  <img src="Z:/picture/008/save_picture_392476.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290485.jpg" />
+  <img src="Z:/picture/008/save_picture_290485.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196841.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193505.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186690.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182126.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181191.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171510.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56530.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32897.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ HTML Academy | Профессия «Javascript-разработчик». Тар�
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30295.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ HTML Academy | Доступность веб-интерфейсов (2025) [unpa
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10010.jpg" />
 </div>
 
 

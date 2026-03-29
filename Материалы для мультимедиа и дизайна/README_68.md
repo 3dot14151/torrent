@@ -1,3 +1,395 @@
+###  Публикация: 1370495   (896509) от 27.03.2020
+
+3D модели - Cubebrush - Coconut Palm Trees Asset 1 [FBX, BLEND, OBJ, 3DS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cocos nucifera, также называется кокосовой пальмой, используется практически во всех тропических местах по всему миру. Наиболее широко расположены в южной Азии и на востоке до островов центральной части Тихого океана.Формат: FBX, BLEND, OBJ, 3DS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8458DF21455ACA46B4BFBCD2DB8EA0265CC5BB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370506   (896508) от 27.03.2020
+
+Текстуры - Creative Market - Qluwr | Abstract Background Kit Vol1 - 1691884 [PNG, ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Математическая красота цветов, ритма и повторения в самой прекрасной композиции. Алгоритмическое искусство ... созданное сотнями слоев, тысячами задач Photoshopa и часами работы.Формат: PNG, ATNРазрешение файлов: 1811x2024-4000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41666F3E8221E035100309FE0E3F4043E9BE9B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370522   (896446) от 27.03.2020
+
+Стили - Creative Market - Mega Bundle 250+ 3D Text Styles - 1978530 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здравствуйте, это MEGA Bundle 250+ реалистичных 3D-стилей.Формат: PSDРазрешение файлов: 3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D907BA440A4B6E7070DD180DBB9B4BFA39F8A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370514   (896443) от 27.03.2020
+
+3D модели - Cubebrush - Retro Mid Century Mod Props VOL.1 [UE4+Raw] [UASSET, UPROJECT, OBJ, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проект включает в себя все текстуры со всеми моделями, картами, материалами, и эффектами, созданными в Unreal Engine. Каждый ресурс был создан для реалистичного качества, стиля.Формат: UASSET, UPROJECT, OBJ, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E9A47FAF6528CF0B7CBA5EC423DCA1BA6982B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370511   (896441) от 27.03.2020
+
+3D модели - Cubebrush - Abandoned Post Apoc Apartment Game Props [UE4+Raw] [UPROJECT, UASSET, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проект включает в себя все текстуры со всеми моделями, картами, материалами, и эффектами, созданными в Unreal Engine. Каждый ресурс был создан для реалистичного качества, стиля.Формат: UPROJECT, UASSET, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F53046C1981E286FFABCF5A7F1CDF1060C51438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370338   (896440) от 27.03.2020
+
+3D модели - CGTrader - Cartoon Castle Scene [MB, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сцена замок в мультяшном стиле.Формат: MB, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5467E0A386020296F6A73F73C7157C9CA5CE68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370526   (896266) от 27.03.2020
+
+3D модели - CGTrader - Basemesh Set - Adam and Eve [ZTL, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высоком разрешении для ZBrush с детальной мускулатурой женского и мужского тела. TPose & Posed Model присутствую. Эти модели идеально подходят для тех, кто хочет поднять свое понимание анатомии и формы на новый уровень. Сетка имеет чистую топологию, граничные петли и равномерно распределенные четырехугольники, которые идеально подходят для лепки в ZBrush. Я создал (   Читать дальше...   )Формат: ZTL, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39396FA69668C6A009AEE07276A3A8475E3B7008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761464   (895790) от 28.02.2014
+
+Сборник - Корабли и кораблики / Ships & small ships [JPEG,PSD,EPS,CDR]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корабли и корабликиФормат: JJPEG,PSD,EPS,CDRРазрешение файлов: 600х400-7000х7000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94699491102DAC4394B0840BBFF64F3C3DFF1E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101464   (895684) от 06.02.2017
+
+Шаблоны - Funny cartoon characters with blank sign [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасные рисованные персонажи держащие в своих руках бланк для вашей рекламы.
+Отличительное качество содержимого обусловлено тем, что помимо высокого разрешения превью содержит и векторный формат eps.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A2D5557CAF4194FE8A80F42088B351C7534F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101383   (895531) от 06.02.2017
+
+Экшены - GraphicRiver - Animated Double Exposure Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Animated Double Exposure - данный экшен создаёт циклический повтор двойной экспозиции, который можно экспортировать как GIF или видео. Двойной эффект воздействия создается путем смешивания стандартных образов.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0001127F8B1D90C5A93EC5C64FBC7E4B93124D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486623   (895317) от 03.09.2021
+
+Растровый клипарт - Сборник клипарта #47 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 222x640-4259x3217
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DF134E7630570399F2B4CBB4196A0909012E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493468   (895140) от 03.09.2021
+
+Экшены - GraphicRiver - 8 in 1 Photoshop Action Bundle - 31643720 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающий набор действий фотошоп превратят ваши изображения в настоящий мультяшный эффект с помощью всего одного клика и работают практически с любыми видами изображений, обеспечивая вашим изображениям наилучший результат. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077BAFC574275F64C9CB192639DBC55E49DAF98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370618   (894957) от 28.03.2020
+
+Звуковые библиотеки - In Session Audio - Drumatic Creator [Kontakt, OGG, MID]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте, контролируйте и генерируйте свой эпический барабанный звук.
+Bass. Toms. Ловушки. Ансамбли этих типов барабанов часто используются, чтобы поддержать музыку для ориентированных на действие фильмов во всех жанрах. Drumatic Creator - это виртуальная библиотека сэмплов инструментов, разработанная для того, чтобы представить эти инструменты новым, более широким (   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKC, NKX, NKR, NKA, NKI; OGG, MID
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303AE9BF5EB82CE0491ACB5DE70D31BBA471B357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370793   (894814) от 28.03.2020
+
+3D модели - Hum3D - Peterbilt 330 Chassis Truck 3-axle 2003 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894814.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки PeterbiltФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C831227B46D18540D07B395067A84946F3B719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370703   (894806) от 28.03.2020
+
+3D модели - TurboSquid - Maserati Levante S Q4 GranSport 2019 - 1341071 [V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894806.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки  MaseratiФормат: V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D77D7D70B9BFE210DEC31D9A09B93F1F69AB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370813   (894801) от 28.03.2020
 
 3D модели - Hum3D - Peterbilt 340 Dump Truck 2009 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
@@ -6,7 +398,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894801.jpg" />
 </div>
 
 
@@ -32,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894776.jpg" />
 </div>
 
 
@@ -58,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893922.jpg" />
 </div>
 
 
@@ -84,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893652.jpg" />
 </div>
 
 
@@ -110,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893483.jpg" />
 </div>
 
 
@@ -136,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893381.jpg" />
 </div>
 
 
@@ -162,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893293.jpg" />
 </div>
 
 
@@ -188,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893284.jpg" />
 </div>
 
 
@@ -214,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893282.jpg" />
 </div>
 
 
@@ -241,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893281.jpg" />
 </div>
 
 
@@ -267,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893276.jpg" />
 </div>
 
 
@@ -278,402 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29982AD7A50A4ECA07BB883A4909165CDABC0C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371070   (893252) от 29.03.2020
-
-3D модели - Hum3D - GMC Topkick C8500 Regular Cab Tanker Truck 2004 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893252.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки GMCФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170C7016E06257A9A5B93641A8185A476B091A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371076   (893182) от 29.03.2020
-
-3D модели - Hum3D - Volvo VAH (630) Tractor Truck 2012 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893182.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки VolvoФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26342DB0DE8D239AD90508828CF3EB6341E7F901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994045   (893181) от 06.03.2016
-
-Текстуры - 66 Wood Texture Background Vol.1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том содержащий 66 текстур дерева в двух видах. Old wood и Wood plank - две папки, включающие 31 и 35 текстур для вашего творчества.Формат: JPGРазрешение файлов: 3648х5472 - 5377х3585 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AADB158FD0C791D10296EF3FBEA4DA72171BD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371136   (893100) от 29.03.2020
-
-3D модели - KitBash3D - Ancient Temples [MAX, MA, OBJ, FBX, BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте выветрившиеся храмы Южной Америки из прошлого или постройте таинственные чужеродные земли с помощью многочисленных храмовых фасадов, сооружений, жилищ, арок, колонн и многого другого. Если вы хотите построить цивилизацию майя или научно-фантастические инопланетные миры, трещины в этом наборе, украшенные патиной, сделают ваш воображаемый мир настоящим!.Формат: MAX, MA, OBJ, FBX, BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC25B67C6CB02BF162490476118759EFAD3D21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639428   (892196) от 04.04.2013
-
-3 Премиум шаблона для Dle 9.7
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык интерфейса: русский
-
-				- Перед публикацией шаблоны проверялись и устраняются все известные ошибки
-				- Имеются PSD файлы (логотип) редактируются в программе Photoshop
-				- DLE (Админцентр > Список всех разделов > Шаблоны сайта) редактор шаблонов
-
-				В раздаче 3 самых качественных премиум шаблонов DLE, особенно интересен Вам думаю будет шаблон
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90B73B104A825DA7E2F7289DFE584BD4CAFE9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493871   (891983) от 05.09.2021
-
-Экшены - GraphicRiver - Watercolor Magic - 32869854 [ATN, CSH, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Magic - с помощью этого действия фотошоп вы можете применять удивительные акварельные эффекты к своим фотографиям. Действие создает хорошо организованные слои, 6 вариаций эффекта акварели, 8 цветовых эффектов и 5 текстур бумаги.Формат: ATN, CSH, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B58C732026371BA31F7E20F7D97E2E6DF53D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493868   (891976) от 05.09.2021
-
-Экшены - Creative Market - Halloween Sketch Photoshop Action - 6415908 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Halloween Sketch - Это действие предназначено для того, чтобы превратить вашу фотографию в настоящий эскиз Хэллоуина. С помощью этого профессионального пакета вы можете превратить ваши обычные фотографии в необычные изображения. Простота настройки, неразрушающий эффект. В этом действии вы получите 10 различных цветовых вариантов.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8800F65905583F6CE82B7183303C77194519D8E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493867   (891885) от 05.09.2021
-
-Экшены - Creative Market - Vector Cartoon Maker Action - 6000408 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vector Cartoon Maker - картина маслом, без особого усилия данное действие фотошоп превратит ваши фото в шедевр художественного полотна. Лёгкость в настройках для улучшения конечного результата.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE8C807E4BB9D385A347849B5DCD29C1C37A666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371394   (891551) от 30.03.2020
-
-Экшены - GraphicRiver - Lighting Photoshop Actions Bundle - 25882789 [ATN, ABR, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный многофункциональный пакет для Photoshop превращает ваш текст, векторную форму, смарт-объект, группу слоев в классные блестящие надписи. Неоновые трубки! Лампочки!, как фото с выдержкой! PDF файл справки присутствует.Формат: ATN, ABR, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A950FE8630B7E7263D2817D6E128B0767E567B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371311   (891489) от 30.03.2020
-
-Плагины - GraphicRiver - Animator Photoshop Plug-in for Animated Effects v0.5 - 25403011 [JSX, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891489.jpg" />
-</div>
-
-
-###  Подробнее
-
-ANIMATOR Photoshop Plug-in - это профессиональный многоцелевой пакет из более 100 пресетов, который может ускорить рабочий процесс в Photoshop. ANIMATOR - лучшее решение для пользователей, которым нужны красивые анимации для творческих проектов. Этот плагин Photoshop содержит множество полезных элементов в разных стилях. Вы можете легко добавить анимацию в свой дизайн (   Читать дальше...   )Формат: JSX, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E32892BBA4B1C841D9795985B0A68A141D22894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371269   (891448) от 30.03.2020
-
-Плагины - GraphicRiver - Mixan Photoshop Plugin for Animated Backgrounds and Overlays - 25872475 [GIF, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891448.jpg" />
-</div>
-
-
-###  Подробнее
-
-MIXAN - полный модных и захватывающих анимированных фонов и оверлеев, которые дают вашим проектам новую жизнь. Создавайте стилизованные анимированные изображения для демонстрации своих дизайнов. Анимации могут быть полностью настроены, и вы можете получить потрясающие конечные результаты всего за несколько кликов. Так что повышайте свою креативность с этим пакетом (   Читать дальше...   )Формат: GIF, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0920BC36E30D8A33DA7DB025977C1D8F5AB3E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994314   (890991) от 07.03.2016
-
-Растровый клипарт - GraphicRiver - Vintage Heraldry Elements [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор геральдики для Вашего творчества.Формат: PSDРазрешение файлов: 1000x2443 pix
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6960F88F85343A5F25F52AA6BDB59EA94800A1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994374   (890710) от 07.03.2016
-
-Растровый клипарт - Shutterstock - Blank Banners [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор иллюстраций с различными баннерами, постерами для Вашего творчества.Формат: JPGРазрешение файлов: 3717х5244 - 8400х5040 (300 dpi)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77458EF9E9D6FA01F715CB2145E09316730DF4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102391   (890580) от 09.02.2017
-
-Паттерны - CreativeMarket - Impressionist Masters Color Blends [PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это шикарный сборник паттернов, который включает в себя 175 PreFAB цветов, тщательно отобранные и созданные из актуальных картин мастеров импрессионизма. Были взяты отдельные цвета из небольших участков известных работ для создания цветовых смесей, таких как Клод Моне, Винсент ван Гог, Пьер-Огюст Ренуар, и Эдгар Дега и другие.Формат: PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F2CA826E7310172F304F00566B435864EEED8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102181   (890559) от 09.02.2017
-
-Скрипты - VideoHive - Carousel Creator [JSXBIN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carousel Creator - вспомните о тех временах, когда вы должны были показать список предметов, услуг, брендов и т.д. Хотите создать карусель для ваших клиентов или для себя? Да, карусель, вы не ослышались, она является одним из наиболее востребованных видов анимации и, откровенно говоря, создание ее очень раздражает и отнимает много времени, особенно если у вас есть (   Читать дальше...   )Формат: JSXBIN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35279E1B03A5DE772F30470EC8CC2CBA4DD04294
 ```
 
 https://mybot314.ru/tekegram_catalog/

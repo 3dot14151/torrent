@@ -6,7 +6,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739545.jpg" />
+  <img src="Z:/picture/008/save_picture_739545.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737937.jpg" />
+  <img src="Z:/picture/008/save_picture_737937.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737930.jpg" />
+  <img src="Z:/picture/008/save_picture_737930.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737527.jpg" />
+  <img src="Z:/picture/008/save_picture_737527.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736294.jpg" />
+  <img src="Z:/picture/008/save_picture_736294.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736007.jpg" />
+  <img src="Z:/picture/008/save_picture_736007.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734530.jpg" />
+  <img src="Z:/picture/008/save_picture_734530.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730227.jpg" />
+  <img src="Z:/picture/008/save_picture_730227.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ eXeL@B | Хакерство, реверсинг, программировани�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727167.jpg" />
+  <img src="Z:/picture/008/save_picture_727167.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Triada | Большая DVD Энциклопедия Медицина [2004] [MD
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721843.jpg" />
+  <img src="Z:/picture/005/save_picture_721843.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_720105.jpg" />
+  <img src="Z:/picture/005/save_picture_720105.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718179.jpg" />
+  <img src="Z:/picture/008/save_picture_718179.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717566.jpg" />
+  <img src="Z:/picture/008/save_picture_717566.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717314.jpg" />
+  <img src="Z:/picture/005/save_picture_717314.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ DVD приложение к книге "AutoCAD 2019. Полное руково�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716343.jpg" />
+  <img src="Z:/picture/008/save_picture_716343.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ xakep.ru | Python для хакера. Серия статей. Изучаем P
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716072.jpg" />
+  <img src="Z:/picture/008/save_picture_716072.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ AlexSoft | Государственная Третьяковская галер�
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715885.jpg" />
+  <img src="Z:/picture/008/save_picture_715885.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715653.jpg" />
+  <img src="Z:/picture/008/save_picture_715653.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ CHIP | DVD приложение к журналу CHIP №6 (Июнь 2016) [unp
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715447.jpg" />
+  <img src="Z:/picture/008/save_picture_715447.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713913.jpg" />
+  <img src="Z:/picture/008/save_picture_713913.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713879.jpg" />
+  <img src="Z:/picture/008/save_picture_713879.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ TradeLikeaPro | Бинарные опционы для «Чайников» (201
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713264.jpg" />
+  <img src="Z:/picture/008/save_picture_713264.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709918.jpg" />
+  <img src="Z:/picture/008/save_picture_709918.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703410.jpg" />
+  <img src="Z:/picture/008/save_picture_703410.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Javabegin | Профессиональный код на ООП в Java (2019) [
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703010.jpg" />
+  <img src="Z:/picture/008/save_picture_703010.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ DVD приложение к журналу CHIP №5 Май (2017) [unpacked]
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702415.jpg" />
+  <img src="Z:/picture/008/save_picture_702415.jpg" />
 </div>
 
 

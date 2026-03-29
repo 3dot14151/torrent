@@ -1,3 +1,57 @@
+###  Публикация: 1618473   (197002) от 14.06.2023
+
+Гриффины / Family Guy (2022) WEBRip [H.264/1080p-LQ] (сезон 21, серии 1-20 из 20)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_197002.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / 20th Century Fox Television, Film Roman Productions, Fuzzy Door Productions, Hands Down EntertainmeЖанр: мультфильм, комедияРежиссер: Джеймс Пурдум, Доминик Бьянчи, Питер ШинАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Дэнни Смит, Патрик Варбертон, Джон Винер, Алек Салкин, Ральф ГарменПеревод: Профессиональный многоголосый закадровый Zone Vision, TVShowsЯзык озвучки: русский, английскийСубтитры: русские (Full), английские (SDH)Продолжительность: ~00:21:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009A75FAE748A04CE662D2B979E8E8A6E648CF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402089   (196741) от 20.06.2023
+
+Конь БоДжек / BoJack Horseman (2014-2020) WEB-DL [H.264/1080p-LQ] (сезон 1-6, серии 1-77 из 77) Невафильм
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в мире населенном антропоморфными животными и людьми. Большая часть сюжета происходит в Лос-Анджелесе. БоДжек — звезда ситуационной комедии, популярной в конце 80-х — начале 90-х годов, на момент времени происходящего в сериале, БоДжек переживает кризис среднего возраста. В попытках вернуть былую популярность и любовь публики, БоДжек пытается (   Читать дальше...   )Производство: США | Tornante Company, NetFlix, ShadowMachine FilmsЖанр: мультфильм, драма, комедия, для взрослых
+
+Режиссер: Эми Уинфри, JC Gonzalez, Аарон ЛонгПеревод: Дублированный (Невафильм)Субтитры: Русские, английские и др.Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EEAD6CBA0C33CF7E51A1A53E20721C800EDDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042803   (196235) от 02.07.2023
 
 Приключения Кота в сапогах / The Adventures of Puss in Boots (2016) WEBRip (сезон 3, серии 1-13 из 13) NewStudio
@@ -6,7 +60,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196235.jpg" />
+  <img src="Z:/picture/004/save_picture_196235.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196001.jpg" />
+  <img src="Z:/picture/004/save_picture_196001.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195919.jpg" />
+  <img src="Z:/picture/004/save_picture_195919.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195912.jpg" />
+  <img src="Z:/picture/004/save_picture_195912.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195757.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195649.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195458.jpg" />
+  <img src="Z:/picture/004/save_picture_195458.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195428.jpg" />
+  <img src="Z:/picture/004/save_picture_195428.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195426.jpg" />
+  <img src="Z:/picture/004/save_picture_195426.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195163.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193926.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192508.jpg" />
+  <img src="Z:/picture/004/save_picture_192508.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192493.jpg" />
+  <img src="Z:/picture/004/save_picture_192493.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192478.jpg" />
+  <img src="Z:/picture/004/save_picture_192478.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192408.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192064.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192020.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191533.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191531.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191446.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191438.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190776.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190767.jpg" />
 </div>
 
 
@@ -604,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190494.jpg" />
 </div>
 
 
@@ -615,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5EE775530A6B46E071C89668C0E25A157B5C8DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575485   (190484) от 08.11.2022
-
-Пантеон / Pantheon (2022) WEB-DLRip (сезон 1, серии 1-8 из 8) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка начинает получать сообщения от неизвестного номера, который утверждает, что это ее умерший отец. Пытаясь выяснить правду, она натыкается на большой заговор, связанный с сингулярностью.Производство: США, AMC StudiosЖанр: мультфильм, фантастика, драмаРежиссер: Крейг СилверстайнАктеры: Пол Дано, Уильям Хёрт, Тейлор Шиллинг, Лара Пулвер, Мод Апатоу, Скут МакНэйри, Аарон Экхарт, Дэниэл Дэ КимПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:41:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC83B3BA31367B17E3C4BAF34FB8B68851669EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575483   (190479) от 08.11.2022
-
-Пантеон / Pantheon (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка начинает получать сообщения от неизвестного номера, который утверждает, что это ее умерший отец. Пытаясь выяснить правду, она натыкается на большой заговор, связанный с сингулярностью.Производство: США, AMC StudiosЖанр: мультфильм, фантастика, драмаРежиссер: Крейг СилверстайнАктеры: Пол Дано, Уильям Хёрт, Тейлор Шиллинг, Лара Пулвер, Мод Апатоу, Скут МакНэйри, Аарон Экхарт, Дэниэл Дэ КимПеревод: Многоголосый профессиональный (NewStation)Субтитры: английскиеПродолжительность: ~00:41:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3E3FC801AE56D8B9F1830DF6B7BE689132238A
 ```
 
 https://mybot314.ru/tekegram_catalog/

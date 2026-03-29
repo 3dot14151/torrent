@@ -1,3 +1,107 @@
+###  Публикация: 1347455   (152413) от 23.12.2019
+
+NeoFinder Business 7.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для катологизации мультимедийного контента, хранящегося на локальных и внешних дисках, CD/DVD-дисках и других носителях. NeoFinder каталогизирует все данные, что позволяет полностью контролировать коллекцию файлов.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2019Разработчик: West-Forest-SystemsПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECE0B8C6B234E75ECACACD35BBB611AF253A2F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271208   (152395) от 22.12.2018
+
+Wirecast Pro 11.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. В приложение интегрирована поддержка карт захвата Blackmagic. Кроме того, программное обеспечение поддерживает высококачественные видео форматы Main Concept H.264 и On2 VP6 Flash. «Чтобы производить и транслировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2018Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76972FEED722C64EC5F4560381F5F6417B8510C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347535   (152370) от 23.12.2019
+
+Navicat Premium 15.0.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: PremiumSoft CyberTech Ltd.Поддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Английский, немецкий, испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8712ED0921A5357972298F28E9E680AF23F300EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518837   (152357) от 21.12.2021
+
+Screaming Frog SEO Spider 16.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screaming Frog SEO Spider Tool - программа для проведения подробного SEO анализа любого сайта. С помощью нее вы сможете проверить все внутренние ссылки, исходящие ссылки, метаописания каждой страницы, теги h1-h6 веб ресурса. С помощью Screaming Frog SEO Spider вы без труда обнаружите все ошибки в СЕО оптимизации вашего веб ресурса и сможете их устранить до их появления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Screaming Frog Ltd.Поддерживаемая ОС: macOS 10.7.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71DE4B5D02C3132CA95C47FEA3D7235FFAF6B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347509   (152330) от 23.12.2019
 
 Backgrounds 7.4 [En]
@@ -6,7 +110,7 @@ Backgrounds 7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152330.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ EaseUS Todo Backup for Mac 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152291.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Downie 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152269.jpg" />
 </div>
 
 
@@ -90,7 +194,7 @@ Adguard 2.3.2 (704) (CL-1.5.155) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152243.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ Combo Cleaner Antivirus Premium 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152154.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ BluePlum Home Inventory 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152091.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ Movavi PDF Editor 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152084.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ iLock 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152071.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ Net Worth Pro 2 v3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152061.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ URL Manager Pro 5.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152052.jpg" />
 </div>
 
 
@@ -277,7 +381,7 @@ Luminar 3 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152021.jpg" />
 </div>
 
 
@@ -305,7 +409,7 @@ Cisdem Duplicate Finder 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152006.jpg" />
 </div>
 
 
@@ -332,7 +436,7 @@ MovieSherlock 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151971.jpg" />
 </div>
 
 
@@ -360,7 +464,7 @@ Duplicate Finder and Remover 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151940.jpg" />
 </div>
 
 
@@ -386,7 +490,7 @@ Noizio — focus, relax, sleep 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151879.jpg" />
 </div>
 
 
@@ -412,7 +516,7 @@ PDF Merge & PDF Splitter + 6.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151858.jpg" />
 </div>
 
 
@@ -438,7 +542,7 @@ Airtool 2 v2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151848.jpg" />
 </div>
 
 
@@ -464,7 +568,7 @@ Hands Off! 4.4.1 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151826.jpg" />
 </div>
 
 
@@ -491,7 +595,7 @@ Stockfolio - Stocks, Real-Time Stock Portfolio 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151805.jpg" />
 </div>
 
 
@@ -517,7 +621,7 @@ NCH PhotoPad Image Editor Pro 6.74 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151792.jpg" />
 </div>
 
 
@@ -545,7 +649,7 @@ Movavi Screen Recorder 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151681.jpg" />
 </div>
 
 
@@ -571,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151563.jpg" />
 </div>
 
 
@@ -582,112 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD292D6C64C59DF5C71DB97AB78F4993E9CC725D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519020   (151528) от 22.12.2021
-
-Downie 4 v4.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E41E91F7745DB217E4CD1C09DDE07AF82A970C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519114   (151502) от 22.12.2021
-
-Dash 6.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Bogdan PopescuПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA1867DEEC31BAB879F1CF83E774C7AB0753EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347528   (151486) от 23.12.2019
-
-Movavi Video Editor Plus 2020 20.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этой программе есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов. Попробуйте программу прямо сейчас!Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Movavi Software LimitedПоддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BAC4C2A53E71BA29D1B382EB088E6E5FF44188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519113   (151412) от 22.12.2021
-
-Typora 1.0.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Typora дает вам безупречный опыт как читателя, так и писателя. Приложение удаляет окно предварительного просмотра, переключатель режимов, синтаксические символы исходного кода и все другие ненужные отвлекающие факторы, заменяя их предварительным просмотром в реальном времени, чтобы помочь вам сосредоточиться на самом контенте.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 TyporaПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17DF133C7AEBE26510B5DC14561C093081A473A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

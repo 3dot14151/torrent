@@ -1,3 +1,32 @@
+###  Публикация: 1620104   (245831) от 19.03.2023
+
+VA - Now Yearbook Extra '79 (67 More Essential Hits From 1979) (2022) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Crazy Little Thing Called Love
+02. The Police - Message In A Bottle
+03. Blondie - Union City Blue
+04. The Pretenders - Kid(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 03:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C873EB9CBB79A04C1F27769E882215ABEF94085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620821   (245826) от 22.03.2023
 
 VA - Italo Dance Classics Volume 4 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco>
@@ -6,7 +35,7 @@ VA - Italo Dance Classics Volume 4 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245826.jpg" />
+  <img src="Z:/picture/004/save_picture_245826.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gerard Joling - No More Boleros (1989) [MP3|320 Kbps] <Рор>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245534.jpg" />
+  <img src="Z:/picture/004/save_picture_245534.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Mellow Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245162.jpg" />
+  <img src="Z:/picture/004/save_picture_245162.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Megahits 2019 - Die Erste (2018) 2CD [MP3|320 Kbps] <Pop, Indie, Alternativ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245056.jpg" />
+  <img src="Z:/picture/004/save_picture_245056.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - W9 Hits 2019 (2018) 4CD Multipack [MP3|320 Kbps] <Pop, Dance, Rap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245027.jpg" />
+  <img src="Z:/picture/004/save_picture_245027.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244712.jpg" />
+  <img src="Z:/picture/004/save_picture_244712.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Romantic Collection: Woman In Love (2000) [OGG Vorbis|480 Kbps] <Electronic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244623.jpg" />
+  <img src="Z:/picture/004/save_picture_244623.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Ballermann Opening Party Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244539.jpg" />
+  <img src="Z:/picture/004/save_picture_244539.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - That 70’s Summer (2023) [MP3|320 Kbps] <Pop, Soft Rock, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244487.jpg" />
+  <img src="Z:/picture/004/save_picture_244487.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - USA Top Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244464.jpg" />
+  <img src="Z:/picture/004/save_picture_244464.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Mega Hits 2010 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244298.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Mega Hits 2016 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244064.jpg" />
+  <img src="Z:/picture/004/save_picture_244064.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Disco Made Me Do It Vol. 6 (2023) [MP3|320 Kbps] <Electronic, Nu-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244060.jpg" />
+  <img src="Z:/picture/004/save_picture_244060.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - New Sounds of Brazil (2023) [MP3|320 Kbps] <Pop, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244044.jpg" />
+  <img src="Z:/picture/004/save_picture_244044.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - 80s Disco - The Ibiza Gold Collection (2000) 2 CD [OGG Vorbis|480 Kbps] <El
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243875.jpg" />
+  <img src="Z:/picture/004/save_picture_243875.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - 100 Hits 80s Rewind (2011) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Power Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243584.jpg" />
+  <img src="Z:/picture/004/save_picture_243584.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Menderes - Sieger der Herzen (Das Beste aus 20 Jahren) (2023) [MP3|320 Kbps] <Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243245.jpg" />
+  <img src="Z:/picture/004/save_picture_243245.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - 100 Hits Pure 80s (100 Original Classics From The Decade) (2016) Box Set: 5
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243228.jpg" />
+  <img src="Z:/picture/004/save_picture_243228.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - 70s Music Explosion - 70s One-Hit Wonders (2005) 2 CD [OGG Vorbis|480 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242897.jpg" />
+  <img src="Z:/picture/005/save_picture_242897.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Slay Queen! (2023) [MP3|320 Kbps] <Pop, Rock, RnB,>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242882.jpg" />
+  <img src="Z:/picture/005/save_picture_242882.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - 100 Greatest Throwback Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242758.jpg" />
+  <img src="Z:/picture/005/save_picture_242758.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Mega Hits 2014 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242423.jpg" />
+  <img src="Z:/picture/005/save_picture_242423.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242255.jpg" />
+  <img src="Z:/picture/004/save_picture_242255.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242111.jpg" />
+  <img src="Z:/picture/004/save_picture_242111.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Poom - 2016 (2016) [MP3|320 Kbps] <Synthpop, Dance-Pop, Post Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242082.jpg" />
+  <img src="Z:/picture/004/save_picture_242082.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Poom - 2016 (2016) [MP3|320 Kbps] <Synthpop, Dance-Pop, Post Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C35C7F14DA76748ED047B592F36D092F0EF14F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372161   (242050) от 03.04.2020
-
-VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Lady GaGa - Paparazzi (3:28)
-2. June - A Little Messed Up (2:48)
-3.Christina Aguilera and Lil' Kim and Mya and P!nk - Lady Marmalade (From "Moulin Rouge" Soundtrack) (4:24)
-4.EMMA WAHLIN - Make A Move (Pt. 2) (3:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E25960509CC2223B7904AC7BF6D69199D7ED4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

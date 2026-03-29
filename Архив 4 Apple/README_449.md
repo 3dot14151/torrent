@@ -1,3 +1,113 @@
+###  Публикация: 959956   (312254) от 26.11.2015
+
+Disk Drill Entreprise 2.4.435 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill Pro. Универсальная утилита для восстановления данных
+Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: Mac OS X softwareРелиз состоялся: 10 ноября 2015Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Польский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB3091A0C0759BB952088E31E5ADEE6E452E89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183152   (312202) от 12.11.2017
+
+Disk Diet - Clean your drive 5.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Diet - Очистите жесткий диск
+Освободите место на любом диске с помощью одного щелчка мыши.
+С более чем 5000 высшими международными оценками и поддержкой мирового уровня, это необходимый инструмент для каждого пользователя Mac
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 ноября 2017Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332397AE82F88DE4329B6A262F62FCD1A02AE48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260319   (312174) от 07.11.2018
+
+DropDMG 3.5.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
+Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66266F5D0AF6AC9D39D4E7FC31530EBA4BA9E594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183169   (312078) от 12.11.2017
+
+Sublime Text 3 (3154) Dev [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6303A4CDF338BAAF9B85A126BD32058EADB8094F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959982   (311928) от 26.11.2015
 
 PhoneClean Pro 4.0.0 (20151126) [Multi]
@@ -6,7 +116,7 @@ PhoneClean Pro 4.0.0 (20151126) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311928.jpg" />
+  <img src="Z:/picture/008/save_picture_311928.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ MetaMovie 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311850.jpg" />
+  <img src="Z:/picture/008/save_picture_311850.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ DMG Canvas 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311826.jpg" />
+  <img src="Z:/picture/008/save_picture_311826.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ Stacks (RapidWeaver plugin) 3.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311818.jpg" />
+  <img src="Z:/picture/008/save_picture_311818.jpg" />
 </div>
 
 
@@ -112,7 +222,7 @@ Squash — Web Image Compression 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311736.jpg" />
+  <img src="Z:/picture/008/save_picture_311736.jpg" />
 </div>
 
 
@@ -141,7 +251,7 @@ Blackmagic Design Fusion Studio 16.1 (build 18) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311305.jpg" />
+  <img src="Z:/picture/008/save_picture_311305.jpg" />
 </div>
 
 
@@ -167,7 +277,7 @@ Paragon NTFS for Mac 15.5.65 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311141.jpg" />
+  <img src="Z:/picture/008/save_picture_311141.jpg" />
 </div>
 
 
@@ -195,7 +305,7 @@ Logic Pro X (with Additional Content) 10.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310594.jpg" />
+  <img src="Z:/picture/008/save_picture_310594.jpg" />
 </div>
 
 
@@ -221,7 +331,7 @@ Forecast Bar 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310204.jpg" />
+  <img src="Z:/picture/008/save_picture_310204.jpg" />
 </div>
 
 
@@ -251,7 +361,7 @@ Amadeus Pro 2.6.2 (2219) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309879.jpg" />
+  <img src="Z:/picture/008/save_picture_309879.jpg" />
 </div>
 
 
@@ -277,7 +387,7 @@ Paste 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309876.jpg" />
+  <img src="Z:/picture/008/save_picture_309876.jpg" />
 </div>
 
 
@@ -303,7 +413,7 @@ FigrCollage 2 Home Edition v2.5.16 (22) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309875.jpg" />
+  <img src="Z:/picture/008/save_picture_309875.jpg" />
 </div>
 
 
@@ -329,7 +439,7 @@ Swinsian 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309872.jpg" />
+  <img src="Z:/picture/008/save_picture_309872.jpg" />
 </div>
 
 
@@ -358,7 +468,7 @@ iA Writer 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309871.jpg" />
+  <img src="Z:/picture/008/save_picture_309871.jpg" />
 </div>
 
 
@@ -384,7 +494,7 @@ Kodak Preps 7.1.5 (118) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309824.jpg" />
+  <img src="Z:/picture/008/save_picture_309824.jpg" />
 </div>
 
 
@@ -410,7 +520,7 @@ iReal Pro 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309790.jpg" />
+  <img src="Z:/picture/008/save_picture_309790.jpg" />
 </div>
 
 
@@ -439,7 +549,7 @@ JixiPix Pastello Pro 1.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309721.jpg" />
+  <img src="Z:/picture/008/save_picture_309721.jpg" />
 </div>
 
 
@@ -465,7 +575,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309690.jpg" />
+  <img src="Z:/picture/008/save_picture_309690.jpg" />
 </div>
 
 
@@ -491,7 +601,7 @@ Commander One PRO 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309644.jpg" />
+  <img src="Z:/picture/008/save_picture_309644.jpg" />
 </div>
 
 
@@ -520,7 +630,7 @@ OmmWriter 1.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309569.jpg" />
+  <img src="Z:/picture/008/save_picture_309569.jpg" />
 </div>
 
 
@@ -549,7 +659,7 @@ TechSmith Snagit 2020 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309566.jpg" />
+  <img src="Z:/picture/008/save_picture_309566.jpg" />
 </div>
 
 
@@ -575,7 +685,7 @@ TechSmith Camtasia Studio 2019.0.5 (109441 )[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309565.jpg" />
+  <img src="Z:/picture/008/save_picture_309565.jpg" />
 </div>
 
 
@@ -586,111 +696,6 @@ Camtasia for Mac — эффективное приложение для созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9634F5022D9ED70ADF6BF4581290ED1BB0AB6CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332869   (309563) от 22.10.2019
-
-ON1 Photo RAW 2020 v14.0.0.7975 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309563.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Photo RAW 2020 включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFA837AA6B879D75BB821EA6758BF9B7060A010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332967   (309548) от 22.10.2019
-
-Sketch 59.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2019Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.13.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB895B84B4DCDF8630FB80E1C2CB26B1A148DED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332800   (309545) от 22.10.2019
-
-Readiris Corporate 17.1.2 (build 79b) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Readiris – это мощная система оптического распознавания символов, предназначенная как для домашних, так и для профессиональных пользователей. Благодаря данной OCR-системе вы сможете быстро и качественно конвертировать бумажные документы, PDF-файлы и фотоизображения в оцифрованный текст с сохранением исходного форматирования. OCR-ядро Readіrіs Рro оптимизировано для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: I.R.I.S. Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A97F25A175895BBADC6DAB81A435F084086E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332866   (309530) от 22.10.2019
-
-OmniGraffle Pro 7 v7.11.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309530.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2019Разработчик: Omni GroupПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD871A53FC6039867404E48EEE8AD3B74F172F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1547872   (602031) от 30.04.2022
+
+АЛЬТАВИСТА - Редкий зверь (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602031.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Киров-Сыктывкар
+2. Одному никак
+3. Кожа
+4. Все могут друг без друга(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2018EF44A13987C2E856EEC0E6E2F116B6AAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298426   (601883) от 27.04.2019
+
+МультFильмы (Мультфильмы) - Романтика-2 (2019) [MP3|320 kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Романтика-2 (02:20)
+02. Стой! Это не любовь (03:17)
+03. Расстаться (03:08)
+04. Play (02:58)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3802AD9613B15FB55995FF42662ABA24A2CEAA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298206   (601833) от 27.04.2019
+
+VA - Булат 95 Tribute. К 95-летию Булата Окуджавы. Part I (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вадим Самойлов - Мы за ценой не постоим (03:06)
+02 - Сергей Бобунец - Песенка о ночной Москве (03:27)
+03 - Громыка - Марья Петровна идет за селёдочкой… (03:42)
+04 - Пикник - Грузинская песня (04:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9698C230AED1C287E21C3D1707B25AD259F311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298483   (601740) от 28.04.2019
+
+Мураками - Без даты (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Невыносим
+02 - Вали домой
+03 - В Белом море
+04 - Музыка по венам(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE6472E73DCBF6E5A7D2ACF5BBEB6AA38B90C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298535   (601711) от 28.04.2019
 
 Вячеслав Бутусов и Екатерина Мечетина - Концерт-спектакль: Пробужденная радость (2016) [MP3|~245 Kbps (V0)] <Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601711.jpg" />
+  <img src="Z:/picture/008/save_picture_601711.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601546.jpg" />
+  <img src="Z:/picture/008/save_picture_601546.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600766.jpg" />
+  <img src="Z:/picture/008/save_picture_600766.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Emerald Night - 2 альбома (2012, 2015) [MP3|320 кб/с]<Melodic Black Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600170.jpg" />
+  <img src="Z:/picture/008/save_picture_600170.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600141.jpg" />
+  <img src="Z:/picture/008/save_picture_600141.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600069.jpg" />
+  <img src="Z:/picture/008/save_picture_600069.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Radio Tapok - Старик и братья (2018) Single [MP3|320 Kbps] <Punk Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599921.jpg" />
+  <img src="Z:/picture/008/save_picture_599921.jpg" />
 </div>
 
 
@@ -205,7 +321,7 @@ VA - Булат 95 Tribute. К 95-летию Булата Окуджавы. Part
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599751.jpg" />
+  <img src="Z:/picture/008/save_picture_599751.jpg" />
 </div>
 
 
@@ -234,7 +350,7 @@ Para bellvm - Лесной царь (2016) [MP3|320 Kbps] <Dark Rock, Gothic Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599534.jpg" />
+  <img src="Z:/picture/008/save_picture_599534.jpg" />
 </div>
 
 
@@ -263,7 +379,7 @@ Advent - Advent (2015) [MP3|320 кб/с]<Doom/Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598572.jpg" />
+  <img src="Z:/picture/008/save_picture_598572.jpg" />
 </div>
 
 
@@ -292,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598368.jpg" />
+  <img src="Z:/picture/008/save_picture_598368.jpg" />
 </div>
 
 
@@ -321,7 +437,7 @@ The Faceless Hunter - One Minute to Midnight (2022) [MP3|320 Kbps] <Modern Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598366.jpg" />
+  <img src="Z:/picture/008/save_picture_598366.jpg" />
 </div>
 
 
@@ -350,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598122.jpg" />
+  <img src="Z:/picture/008/save_picture_598122.jpg" />
 </div>
 
 
@@ -379,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598040.jpg" />
+  <img src="Z:/picture/008/save_picture_598040.jpg" />
 </div>
 
 
@@ -405,7 +521,7 @@ Untold Grief - X Years Of Climbing Up The Moebius Ladder (2022) [MP3|320 Kbps] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598032.jpg" />
+  <img src="Z:/picture/008/save_picture_598032.jpg" />
 </div>
 
 
@@ -434,7 +550,7 @@ V-EGO - Отречение (2012) [MP3|320 кб/с]<Dark Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597650.jpg" />
+  <img src="Z:/picture/005/save_picture_597650.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597413.jpg" />
+  <img src="Z:/picture/008/save_picture_597413.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595648.jpg" />
+  <img src="Z:/picture/008/save_picture_595648.jpg" />
 </div>
 
 
@@ -536,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594998.jpg" />
+  <img src="Z:/picture/008/save_picture_594998.jpg" />
 </div>
 
 
@@ -562,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593539.jpg" />
+  <img src="Z:/picture/008/save_picture_593539.jpg" />
 </div>
 
 
@@ -591,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593378.jpg" />
+  <img src="Z:/picture/008/save_picture_593378.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593183.jpg" />
+  <img src="Z:/picture/008/save_picture_593183.jpg" />
 </div>
 
 
@@ -631,119 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:273AADB715B34EA695AB1D63B7F44B837962AC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 8835   (593182) от 29.06.2018
-
-Машина Времени - 11 альбомов (1989, 1994, 1998-2002) [mp3|192 Kbps]
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Русский РокПродолжительность: 07:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120A8020F4E8C0B91B127C3A472F516DA91CE7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300714   (592764) от 07.05.2019
-
-Павел Пиковский & группа Хьюго - Сказки Хьюго (2014) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592764.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Антивоенный джаз
-2. Кали-юга
-3. Хьюго
-4. Края моей раны(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EECEE047FBC2C9F3D3B0ECC8CDFF37C12A97048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915317   (591954) от 06.07.2015
-
-Fferyllt - Achanterez (2015) [MP3|320 кб/с]<Folk Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Call Of The Wild
-2. Disciples Of War
-3. A Sprengisandi
-4. The Final Sunrise(   Читать дальше...   )Жанр: Folk Metal, Symphonic MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A63EE90AD82002312F66113AB478A42C3DF31A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915437   (591901) от 06.07.2015
-
-Море Fиджи - Твоя Эволюция (2015) [MP3|320 кб/с]<Rock, Grunge, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Привет
-02. Твоя Эволюция
-03. Темный Снег
-04. Вернусь(   Читать дальше...   )Жанр: Rock, Grunge, AlternativeПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9029C994DE14294FE3CA7F55ABE7D90EE1C05027
 ```
 
 https://mybot314.ru/tekegram_catalog/

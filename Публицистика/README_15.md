@@ -1,3 +1,81 @@
+###  Публикация: 1371737   (888590) от 01.04.2020
+
+В. И. Лебедев-Кумач и др. | Мы не простим [Слово ненависти к гитлеровским убийцам] (1941) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888590.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение почти двух лет, начиная с сентября 1939 года, области Западной Украины развивались и хозяйственно крепли быстрыми темпами. В пять раз увеличилось количество школ и научных учреждений. Возникли новые фабрики, а в ранее существовавших удесятерилось число рабочих. Открылись новые больницы, амбулатории, детские ясли. Сеть библиотек охватила города и села. В (   Читать дальше...   )Жанр: История, политология, документалистика, журналистика, поэзия, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188A9F0FB3FF18FFA0FC6DFA895572DF3E285EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371846   (888585) от 01.04.2020
+
+Алексей Челноков | Ксения Собчак. Проект «Против всех» (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие тайны скрывает Ксения Собчак? О «светской львице», журналисте, а теперь еще и кандидате в президенты России Ксении Собчак и так уже многое известно. В детстве она – домашний тиран с косичками, неистощимый источник каверз в школе, головная боль для телохранителей отца – мэра Санкт-Петербурга. Во взрослой жизни – источник неприятностей для родственников и жареных (   Читать дальше...   )Жанр: Политология, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2481DF6D7D8CA47C3578B9CC7517B19F64DB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371752   (888578) от 01.04.2020
+
+А. В. Прямков (ред.) | Подвиги чекистов (1942) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888578.jpg" />
+</div>
+
+
+###  Подробнее
+
+О славных чекистах — героях Великой Отечественной войны — рассказывается в этой брошюре, об их подвигах, мужестве и отваге.Жанр: История, политология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8BB75B6AA09855DE40F8DF5A620C1AE4017159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371748   (888475) от 01.04.2020
 
 Т. Сосницкий (отв. ред.) | Что говорят пленные немецкие, румынские и финские солдаты о войне с Советским союзом [По материалам нашей печати] (1941) [PDF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888475.jpg" />
+  <img src="Z:/picture/005/save_picture_888475.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886986.jpg" />
+  <img src="Z:/picture/005/save_picture_886986.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886842.jpg" />
+  <img src="Z:/picture/005/save_picture_886842.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886516.jpg" />
+  <img src="Z:/picture/005/save_picture_886516.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886181.jpg" />
+  <img src="Z:/picture/005/save_picture_886181.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885907.jpg" />
+  <img src="Z:/picture/005/save_picture_885907.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885795.jpg" />
+  <img src="Z:/picture/005/save_picture_885795.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884737.jpg" />
+  <img src="Z:/picture/005/save_picture_884737.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884653.jpg" />
+  <img src="Z:/picture/005/save_picture_884653.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883176.jpg" />
+  <img src="Z:/picture/005/save_picture_883176.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882482.jpg" />
+  <img src="Z:/picture/005/save_picture_882482.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882466.jpg" />
+  <img src="Z:/picture/005/save_picture_882466.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882297.jpg" />
+  <img src="Z:/picture/005/save_picture_882297.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881985.jpg" />
+  <img src="Z:/picture/005/save_picture_881985.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881212.jpg" />
+  <img src="Z:/picture/005/save_picture_881212.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880643.jpg" />
+  <img src="Z:/picture/005/save_picture_880643.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879287.jpg" />
+  <img src="Z:/picture/005/save_picture_879287.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877320.jpg" />
+  <img src="Z:/picture/005/save_picture_877320.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876831.jpg" />
+  <img src="Z:/picture/005/save_picture_876831.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876817.jpg" />
+  <img src="Z:/picture/005/save_picture_876817.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876723.jpg" />
+  <img src="Z:/picture/005/save_picture_876723.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876586.jpg" />
+  <img src="Z:/picture/005/save_picture_876586.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876420.jpg" />
+  <img src="Z:/picture/005/save_picture_876420.jpg" />
 </div>
 
 
@@ -600,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D01B600386C8F4048AADA51DD83EFF6B209435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997227   (875589) от 16.03.2016
-
-Э. М. Арнольди | Жизнь и сказки Уолта Диснея (1968) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875589.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о том, какие успехи и неудачи постигали величайшего художника-мультипликатора на его трудном пути. Как создавались его персонажи и полнометражные фильмы, ставшие настоящим произведением киноискусства.Жанр: История, искусство, киноискусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769E08B9B89E3E69426F80E9BD7C32AE995A105E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374304   (874710) от 09.04.2020
-
-Людмила Гурченко | Аплодисменты (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которую вы держите в руках, – это не просто история девчонки, ставшей знаменитостью, это правдивая история уникальной женщины во всей сложности и противоречивости ее духовной жизни. Все было на тернистом пути актрисы: и любовь, и отчаяние, и разочарования, и надежды. Это был непростой путь, но кто знает, взошла бы такая яркая звезда и сформировались бы такой (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220D352A3C0F8B8152E6BBCF056B9BAD56F5D0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374309   (874418) от 09.04.2020
-
-Раймон де Рувер | Возвышение и упадок Банка Медичи. Столетняя история наиболее влиятельной в Европе династии банкиров (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представители семейства Медичи широко известны благодаря своей выдающейся роли в итальянском Возрождении. Однако их деятельность в качестве банкиров и торговцев мало изучена. Хотя именно экономическая власть позволила им захватить власть политическую и монопольно вести дела в Европе западнее Рейна. Обширный труд Раймонда де Рувера создан на основе редчайших архивных (   Читать дальше...   )Жанр: Биографии и мемуары, История экономики, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32041B46D9E7828D9FAF7B2CB29AA8BA45856316
 ```
 
 https://mybot314.ru/tekegram_catalog/

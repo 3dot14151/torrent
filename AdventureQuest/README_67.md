@@ -1,3 +1,81 @@
+###  Публикация: 1087618   (144142) от 28.12.2016
+
+Amnesia: The Dark Descent / Амнезия: Призрак прошлого (2010) [Ru/Multi] (1.3/dlc) License PROPHET
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой игры Даниэль приходит в себя в старинном замке, не понимая, кто он, как сюда попал и что произошло. Единственное, что он испытывает, — леденящее чувство тревоги, как будто что-то преследует его и время, отведённое ему, уходит.Тип издания: LicenseРазработчик: Frictional GamesЖанр: Adventure, 3D, HorrorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DE54F5CDA097992E93FE8191C2130A4630122C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087634   (144025) от 28.12.2016
+
+Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий дракон (2003) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джорджу Стоббарду и Николь Коллар вновь предстоит отправиться в кругосветное путешествие, преодолевая опасности, собрать все улики и раскрыть тайну Спящего дракона. Зло стремится овладеть древней силой невероятной мощи, и наши герои оказываются втянутыми в этот заговор. Обстоятельства, таинственные совпадения и сама судьба сводят их вместе, и теперь они должны дать (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution SoftwareЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3D76222F28ADA0DD058227C11B77D774DA9DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087616   (143856) от 28.12.2016
+
+The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139. Включает в себя доступ ко всем трём эпизодам этого нового минисериала (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087700   (143815) от 28.12.2016
 
 Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел смерти (2006) [Ru/Multi] (1.0) License GOG
@@ -6,7 +84,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143815.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143059.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Nerved (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142931.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Tormented Souls (2021) [Ru/Multi] (Build 7622656) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142673.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Californium (2016) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141981.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Amnesia: The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141764.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141095.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139961.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138735.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138343.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137875.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137360.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137259.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137217.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137073.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137013.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136844.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Mundaun (2021) [Ru/Multi] (1.0.444) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134434.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134104.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134063.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Slender: The Arrival (2013) [Ru/Multi] (3.0.46.992) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134053.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132978.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132863.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Tourist Trap в царстве виртуальных приключений в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30CE6ED92F1208A632DD5AB4398785AE3ADEB3C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680000   (132824) от 02.12.2023
-
-Another Day (2023) [Ru/En] (1.0.3) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Another Day — это психологический хоррор, с графикой приближенный к реализму. Иван отправляется в заброшенную больницу города Ольхов, где исчез его брат Толя, после того, как тот стал свидетелем чего-то ужасного, из-за чего перестал выходить на связь.Тип издания: RepackРазработчик: TrivioraGamesЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010A65937D0F138C60269BEE1A7B26E37B588027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681693   (132161) от 04.12.2023
-
-The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните путешествие в роли Рика Граймса, что проснулся один в больнице в окружении мертвецов. Собирайте союзников и прокладывайте путь сквозь засилье ходячих в культовых локациях сериала The Walking Dead, среди которых Атланта, ферма семьи Гринов, тюрьма и Вудбери. В переломные моменты выбора вы навсегда будете определять судьбу команды из персонажей сериала. Герои (   Читать дальше...   )Тип издания: RepackРазработчик: Flux GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B1C7B417879ED7948816C009DA577ABE04F1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673848   (130648) от 09.12.2023
-
-Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Three Minutes To Eight - это интригующая двухмерная адвенчура от независимого разработчика, которая бросает вызов вашему восприятию реальности и держит вас в напряжении. В отличие от любой другой приключенческой игры в стиле пиксель-арт, она погружает вас на место главного героя, которому суждено погибнуть ровно в 07:57 вечера. Однако в этой истории есть нечто большее, (   Читать дальше...   )Тип издания: LicenseРазработчик: Chaosmonger StudioЖанр: Приключение, КвестЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57B508E4043AAF8F81F7D3C147C1201E28EC1D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

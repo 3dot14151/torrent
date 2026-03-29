@@ -1,3 +1,35 @@
+###  Публикация: 532343   (538554) от 07.08.2012
+
+Divin' Ducks - 5 albums (1992 - 1998) [MP3|224-320 кб/с]<Hard Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_538554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+1992 - Rapes The World
+1994 - An Eye For An Eye..A Tooth For A Tooth
+1995 - Gutter Rhymes
+1998 - Both Ends Burning
+1998 - Brewed And Bottled - Alive!(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 03:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E942B885A6F8D40A7C9A2FB2B1C2BD51451D7F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925943   (537276) от 08.08.2015
 
 The Pentones - Don't Leave Nothin' Behind (2015) [MP3|320 кб/с]<Blues Rock>
@@ -6,7 +38,7 @@ The Pentones - Don't Leave Nothin' Behind (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537276.jpg" />
+  <img src="Z:/picture/008/save_picture_537276.jpg" />
 </div>
 
 
@@ -35,7 +67,7 @@ Wendy Rich - Driver (2015) [MP3|320 кб/с]<Country, Blues Soul, Americana>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537272.jpg" />
+  <img src="Z:/picture/008/save_picture_537272.jpg" />
 </div>
 
 
@@ -64,7 +96,7 @@ Seasick Steve - Sonic Soul Surfer (2015) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536580.jpg" />
+  <img src="Z:/picture/008/save_picture_536580.jpg" />
 </div>
 
 
@@ -93,7 +125,7 @@ Trudy Lynn - I'll Sing The Blues For You (2016) [MP3|320 Kbps] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535315.jpg" />
+  <img src="Z:/picture/008/save_picture_535315.jpg" />
 </div>
 
 
@@ -122,7 +154,7 @@ Detroit Blues Band - Real Life (1990) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535303.jpg" />
+  <img src="Z:/picture/008/save_picture_535303.jpg" />
 </div>
 
 
@@ -151,7 +183,7 @@ VA - Pillow Talk (2018) [MP3|320 Kbps] <Soul, Boogie, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535094.jpg" />
+  <img src="Z:/picture/008/save_picture_535094.jpg" />
 </div>
 
 
@@ -180,7 +212,7 @@ Shaun Murphy - 4 Альбома (2009-2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532427.jpg" />
+  <img src="Z:/picture/008/save_picture_532427.jpg" />
 </div>
 
 
@@ -210,7 +242,7 @@ VA - Blues Fusion - Electro Deluxe (2013) [MP3|320 Kbps] <Blues , Downtempo, Chi
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530788.jpg" />
+  <img src="Z:/picture/008/save_picture_530788.jpg" />
 </div>
 
 
@@ -239,7 +271,7 @@ Jeff Menteer - The Nature of My Dreams (2011) [MP3|256 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529275.jpg" />
+  <img src="Z:/picture/008/save_picture_529275.jpg" />
 </div>
 
 
@@ -268,7 +300,7 @@ Sly & The Family Stones - Les Genies du Rock - Back On The Right Track (1994) [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528759.jpg" />
+  <img src="Z:/picture/008/save_picture_528759.jpg" />
 </div>
 
 
@@ -297,7 +329,7 @@ The Shirelles - Les Genies du Rock - Will You Love Me Tomorrow (1993) [MP3|320 �
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528701.jpg" />
+  <img src="Z:/picture/008/save_picture_528701.jpg" />
 </div>
 
 
@@ -326,7 +358,7 @@ Sam & Dave, Solomon Burke - Les Genies du Rock - Hold On I'm Coming (1993) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528696.jpg" />
+  <img src="Z:/picture/008/save_picture_528696.jpg" />
 </div>
 
 
@@ -355,7 +387,7 @@ Monti Amundson - Somebody's Happened to Our Love (2006) [MP3|320 Kbps] <Modern E
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525224.jpg" />
+  <img src="Z:/picture/008/save_picture_525224.jpg" />
 </div>
 
 
@@ -384,7 +416,7 @@ Hurricane Ruth - Born On The River (2014) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523341.jpg" />
+  <img src="Z:/picture/008/save_picture_523341.jpg" />
 </div>
 
 
@@ -413,7 +445,7 @@ The Stella Vees - Don't Tell Me Your Name (2015) [MP3|320 кб/с]<Chicago & Wes
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523336.jpg" />
+  <img src="Z:/picture/008/save_picture_523336.jpg" />
 </div>
 
 
@@ -442,7 +474,7 @@ Jools Holland - Finding The Keys. The Best Of (2011) [MP3|320 kbps]<Blues, Jazz,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523060.jpg" />
+  <img src="Z:/picture/008/save_picture_523060.jpg" />
 </div>
 
 
@@ -471,7 +503,7 @@ Big Yuyu - Down South City (2022) [MP3|320 Kbps] <Blues Rock, Classic Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520810.jpg" />
+  <img src="Z:/picture/008/save_picture_520810.jpg" />
 </div>
 
 
@@ -500,7 +532,7 @@ Hill Country Revue - H C R III (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519285.jpg" />
+  <img src="Z:/picture/008/save_picture_519285.jpg" />
 </div>
 
 
@@ -529,7 +561,7 @@ Nakia - Blues Grifter (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518423.jpg" />
+  <img src="Z:/picture/008/save_picture_518423.jpg" />
 </div>
 
 
@@ -558,7 +590,7 @@ Grant Lyle - So There (2012) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517943.jpg" />
+  <img src="Z:/picture/008/save_picture_517943.jpg" />
 </div>
 
 
@@ -593,7 +625,7 @@ Cathy Jean - In the Remains (2011) [MP3|320 кб/с]<Blues, Modern Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517381.jpg" />
+  <img src="Z:/picture/008/save_picture_517381.jpg" />
 </div>
 
 
@@ -622,7 +654,7 @@ VA - Blues! - The Best Of The Best Part I - Part V (2003) Unofficial Release [MP
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514907.jpg" />
+  <img src="Z:/picture/008/save_picture_514907.jpg" />
 </div>
 
 
@@ -651,7 +683,7 @@ Big Willy - All In (2018) [MP3|320 Kbps] <Blues, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513993.jpg" />
+  <img src="Z:/picture/008/save_picture_513993.jpg" />
 </div>
 
 
@@ -680,7 +712,7 @@ Jimmy Lloyd Rea & The Switchmasters - Cruzin` For A Bloozin` (2007) [MP3|320 Kbp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513115.jpg" />
+  <img src="Z:/picture/008/save_picture_513115.jpg" />
 </div>
 
 
@@ -709,7 +741,7 @@ Erin Harpe & The Delta Swingers - Big Road (2017) [MP3|320 Kbps] <Electric Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513059.jpg" />
+  <img src="Z:/picture/008/save_picture_513059.jpg" />
 </div>
 
 
@@ -723,35 +755,6 @@ Erin Harpe & The Delta Swingers - Big Road (2017) [MP3|320 Kbps] <Electric Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F1DDC947BFE3FC61290B00A49CCCBBE2030863B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242777   (512982) от 24.08.2018
-
-Universal Hippies - Evolution of Karma (2018) [MP3|320 Kbps] <Heavy Psychedelic Blues Rock, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolution
-02. Wings of Pegasus
-03. Journey of the Impossible Hero
-04. Ophelia's Dream(   Читать дальше...   )Жанр: Heavy Psychedelic Blues Rock, InstrumentalПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE18873021A96623C7E2F53D15691F42A9CCC142
 ```
 
 https://mybot314.ru/tekegram_catalog/

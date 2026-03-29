@@ -1,3 +1,83 @@
+###  Публикация: 955023   (329372) от 15.11.2015
+
+Человек из Аламо / The Man from the Alamo (1953) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_329372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гленн Форд — в роли Джона Страуда, борца за независимость Техаса, который покидает свой пост в Аламо, чтобы предупредить родственников и друзей о приближении мексиканской армии. Но Джон прибывает слишком поздно… и с этого момента клянется отомстить двум наемникам-янки, которые, сражаясь на стороне мексиканцев, убили его жену и ребенка.
+В то же время, Страуд становится (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Бадд БоттичерАктеры: Гленн Форд, Джули Адамс, Чилл Уиллс, Хью О’Брайан, Виктор Джори, Невилл Брэнд, Джон Дахейм, Мира Марш, Джинн Купер, Марк КэвеллПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0043515CF23FFEF8CA3CEC4AAFC01FF1827AA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955821   (329258) от 15.11.2015
+
+Чайная церемония / The Teahouse of the August Moon (1956) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_329258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник Пурди крут и прямолинеен — жители оккупированной окинавской деревушки в Японии должны признать демократию американского образца. «Иначе я их всех перестреляю» — безаппеляционно заявляет он.
+Ответственным за проведение этого приказа в жизнь назначен капитан Фисби. Но придурковатый и рассеянный симпатяга Фисби сразу же попадает под тонкое, поначалу слабо (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: КомедияРежиссер: Дэниэл МаннАктеры: Марлон Брандо, Гленн Форд, Матико Кё, Эдди Альберт, Пол Форд, Дзюн Нэгами, Нидзико Киёкава, Мицуко Савамура, Гарри Морган, Джейн ЧунгПеревод: Двуголосый закадровый (DVD-Magic)Субтитры: ОтсутствуютПродолжительность: 02:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4123E031D6AE7BEA4F6658B6B2703ACB1DA5123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261368   (328672) от 22.11.2010
+
+Прощай, Эммануэль / Goodbye Emmanuelle (1977) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она была рьяной искательницей эротических приключений, никогда не прекращающей своей неистовой гонки за наслаждением. И вдруг произошло совершенно невероятное. Исполненная сексуальной свободы, Эммануэль попадает в классическую, но парадоксальную ситуацию — ситуацию Любви с большой буквы. Страстно и безоглядно она порывает с привычной жизнью, влекомая этим неведомым (   Читать дальше...   )Жанр: Мелодрама, классика эротикиРежиссер: Франсуа ЛетерьеАктеры: Сильвия Кристель, Умберто Орсини, Жан-Пьер Бувье, Александра Стюарт, Ольга Жорж-Пико, Шарлотт Александра, Кэролайн Лоренс, Сильви Феннеш, Эрик Колин, Джек АлленЯзык субтитров: Английские, голландскиеФормат: MKVПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F042B0ED736FE2C04478499BFE657B93E62B5115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956100   (328210) от 16.11.2015
 
 Лодка со стеклянным дном / The Glass Bottom Boat (1966) DVDRip [H.264] [VO]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328210.jpg" />
+  <img src="Z:/picture/008/save_picture_328210.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327702.jpg" />
+  <img src="Z:/picture/008/save_picture_327702.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327543.jpg" />
+  <img src="Z:/picture/008/save_picture_327543.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327373.jpg" />
+  <img src="Z:/picture/008/save_picture_327373.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327365.jpg" />
+  <img src="Z:/picture/008/save_picture_327365.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327123.jpg" />
+  <img src="Z:/picture/008/save_picture_327123.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326810.jpg" />
+  <img src="Z:/picture/008/save_picture_326810.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326564.jpg" />
+  <img src="Z:/picture/008/save_picture_326564.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326443.jpg" />
+  <img src="Z:/picture/008/save_picture_326443.jpg" />
 </div>
 
 
@@ -247,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326321.jpg" />
+  <img src="Z:/picture/008/save_picture_326321.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325710.jpg" />
+  <img src="Z:/picture/008/save_picture_325710.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325683.jpg" />
+  <img src="Z:/picture/008/save_picture_325683.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325627.jpg" />
+  <img src="Z:/picture/008/save_picture_325627.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325305.jpg" />
+  <img src="Z:/picture/008/save_picture_325305.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325130.jpg" />
+  <img src="Z:/picture/008/save_picture_325130.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324839.jpg" />
+  <img src="Z:/picture/008/save_picture_324839.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324719.jpg" />
+  <img src="Z:/picture/008/save_picture_324719.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324561.jpg" />
+  <img src="Z:/picture/008/save_picture_324561.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324297.jpg" />
+  <img src="Z:/picture/008/save_picture_324297.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324223.jpg" />
+  <img src="Z:/picture/008/save_picture_324223.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323372.jpg" />
+  <img src="Z:/picture/008/save_picture_323372.jpg" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322617.jpg" />
+  <img src="Z:/picture/008/save_picture_322617.jpg" />
 </div>
 
 
@@ -589,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321899.jpg" />
+  <img src="Z:/picture/008/save_picture_321899.jpg" />
 </div>
 
 
@@ -601,88 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8D78B33ED07DC8D8F32D995CC3F99E8195573F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416589   (321774) от 03.11.2020
-
-Северная звезда / L'etoile du Nord (1982) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдуар возвращается в Европу из Египта, где прожил в доме одной странноватой особы несколько лет, увозя от нее прощальный подарок - кольцо с драгоценным камнем, которое и является всем его состоянием, продав которое он рассчитывает обзавестись каким-нибудь бизнесом. На пароходе он знакомится с танцовщицей Сильви, знакомит ее с богатым египтянином Немродом.
-Пересев (   Читать дальше...   )Производство: Франция / Films A2, Sara FilmsЖанр: Триллер, Драма, КриминалРежиссер: Пьер Гранье-ДеферАктеры: Симона Синьоре, Филипп Нуаре, Фанни Коттансон, Жюли Жезекель, Лилиана Джераче, Гамиль Ратиб, Жан-Ив Шатле, Жан Дортрэмэ, Пьер Форгет, Жан-Пьер КлейнПеревод: Многоголосый профессиональный (R5)Субтитры: ОтсутствуютПродолжительность: 01:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E40D02F1E78527B2F14A22A77EC2D20A8F4969E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421028   (321764) от 03.11.2020
-
-Только для твоих глаз / For Your Eyes Only (1981) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321764.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз агенту 007 предстоит захватывающая дух гонка с русскими коллегами. Дело в том, что Британские военные умудрились утопить в Ионическом море абсолютно секретное оборудование. Если аппаратура попадет в руки советским разведчикам, это может привести к ужасающим для Великобритании и всего мира последствиям.
-Бонду приходится с безумной скоростью прокатиться (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Джон ГленАктеры: Роджер Мур, Кароль Буке, Тополь, Линн-Холли Джонсон, Джулиан Гловер, Джилл Беннетт, Джон Уаймэн, Лоис Максуэлл, Десмонд Ллевелин, Уолтер ГотеллПеревод: ДублированныйСубтитры: русские, английские (отдельными файлами)Продолжительность: 02:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9735433DD956EDD26627A45A04A431EC4C08DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415027   (321724) от 29.11.2011
-
-Строптивая девчонка / Cette sacree gamine (1956) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малышка Брижит не должна узнать о том, что ее папаша — жулик. Во всяком случае, Поль Латур старается делать так, чтобы девочка росла вдали от источников нежелательной информации.
-
-Но однажды полиция прижимает его к стенке. И Латур волей-неволей доверяет судьбу Брижит своему легкомысленному приятелю Жану Клери. Так встречаются он и она. Что же дальше?Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Мишель БуаронАктеры: Брижит Бардо, Миша Ауэр, Мишель Серро, Жан Лефевр, Франсуаз Фабиан, Жан Пуаре, Дарри Коул, Бернар Ланкре, Марсель Шарве, Люсьен РэмбурПеревод: Двуголосый закадровыйПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FB12842829C871DC58B06629F96BAE87736424
 ```
 
 https://mybot314.ru/tekegram_catalog/

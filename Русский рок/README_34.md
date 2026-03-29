@@ -1,3 +1,118 @@
+###  Публикация: 1125269   (768713) от 14.04.2017
+
+Легион - Двойная звезда (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танец огня
+02. Танго снов
+03. Смотри в небеса
+04. Сантьяго(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB170E84FC8F0C52A519ECAFC371767D62CF714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125437   (768675) от 14.04.2017
+
+Нуки (Слот) - Ау (2017) EP [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768675.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Продолжаем движение
+2. Временная
+3. АуЖанр: Alternative RockПродолжительность: 00:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C9B31BF7BF8E6AED74D47FAF3373EB292F4886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278597   (768459) от 26.01.2019
+
+Ландыши - 69 девок (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полустационар
+02. 69 девок
+03. 33 квадратных быдла
+04. Мойва(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E241E5F6872BA2E2550F3D37DDBDF1AF8A2303FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278747   (768353) от 26.01.2019
+
+Digimortal - Создатель (2019) [MP3|320 Kbps] <Industrial Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768353.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интродукция
+2. Перемирие завершено
+3. Система
+4. Новая эра(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4379B7708B795A994A4173B25186B592AF515650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213663   (768162) от 17.03.2018
 
 Год Змеи - Тринадцатый (2013) Переиздание, 2018 [MP3|320 Kbps] <Punk Rock, Rock>
@@ -6,7 +121,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768162.jpg" />
+  <img src="Z:/picture/008/save_picture_768162.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Cosmic Letdown - Pustoid (2020) [MP3|320 Kbps] <Psychedelic Rock, Space Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767771.jpg" />
+  <img src="Z:/picture/008/save_picture_767771.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767720.jpg" />
+  <img src="Z:/picture/008/save_picture_767720.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Electric Princesses - No Models (2017) [MP3|320 Kbps] <Indie Rock, Post-Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767128.jpg" />
+  <img src="Z:/picture/008/save_picture_767128.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ VA - Полигон Records. 2019. Всё самое лучшее. (2019) [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766851.jpg" />
+  <img src="Z:/picture/008/save_picture_766851.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766579.jpg" />
+  <img src="Z:/picture/008/save_picture_766579.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766444.jpg" />
+  <img src="Z:/picture/008/save_picture_766444.jpg" />
 </div>
 
 
@@ -215,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766234.jpg" />
+  <img src="Z:/picture/008/save_picture_766234.jpg" />
 </div>
 
 
@@ -244,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765709.jpg" />
+  <img src="Z:/picture/008/save_picture_765709.jpg" />
 </div>
 
 
@@ -273,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765405.jpg" />
+  <img src="Z:/picture/008/save_picture_765405.jpg" />
 </div>
 
 
@@ -302,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765328.jpg" />
+  <img src="Z:/picture/008/save_picture_765328.jpg" />
 </div>
 
 
@@ -331,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765267.jpg" />
+  <img src="Z:/picture/008/save_picture_765267.jpg" />
 </div>
 
 
@@ -357,7 +472,7 @@ Distemper - Best of Brass Time (2018) [MP3|320 Kbps] <Ska Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764894.jpg" />
+  <img src="Z:/picture/008/save_picture_764894.jpg" />
 </div>
 
 
@@ -386,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764638.jpg" />
+  <img src="Z:/picture/008/save_picture_764638.jpg" />
 </div>
 
 
@@ -415,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764440.jpg" />
+  <img src="Z:/picture/008/save_picture_764440.jpg" />
 </div>
 
 
@@ -444,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763970.jpg" />
+  <img src="Z:/picture/008/save_picture_763970.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763886.jpg" />
+  <img src="Z:/picture/008/save_picture_763886.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763523.jpg" />
+  <img src="Z:/picture/008/save_picture_763523.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763031.jpg" />
+  <img src="Z:/picture/008/save_picture_763031.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762998.jpg" />
+  <img src="Z:/picture/008/save_picture_762998.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ Shexna - Вы Завийте, Витерочики... (2016) [MP3|320 кб/с] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762946.jpg" />
+  <img src="Z:/picture/008/save_picture_762946.jpg" />
 </div>
 
 
@@ -615,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761287.jpg" />
+  <img src="Z:/picture/008/save_picture_761287.jpg" />
 </div>
 
 
@@ -629,123 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E5462461E4B5BBDDEF4FCA419A2BAD20642156B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395006   (758375) от 08.07.2020
-
-Ночные Снайперы - O2 (2020) Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758375.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. интро
-2. заметь (интро)
-3. заметь
-4. авиарежим (интро)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F09C9A533ECDB88330007D9E7C45FD40591AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215573   (757941) от 26.03.2018
-
-Good Times - Просто Сложно Понять (2018) [MP3|320 Kbps] <Ska, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:54)
- 02. Бельмондо (3:42)
- 03. Титьки (3:02)
- 04. Раз и навсегда (3:24)(   Читать дальше...   )Жанр: Ska, PunkПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB9069EF483EDC5CE5B298BEA110B5BD9ED4AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017237   (757245) от 19.05.2016
-
-Несчастный случай - 19 альбомов (1994 - 2014) [MP3|320 кб/с] <Рок, Рок-н-Ролл, Арт-Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несча́стный Слу́чай — советская и российская рок-группа, образованная Алексеем Кортневым и Валдисом Пельшем в 1982 году.
-В течение 2012—2013 гг. группа проводила масштабный гастрольный тур по России под названием «Тридцатилогия», посвященный своему 30-летию. Завершился тур 30 ноября 2013 г. большим юбилейным концертом в московском «Крокус Сити Холле». В (   Читать дальше...   )1994 - Троды Плудов
-1995 - Mein Lieber Tanz
-1996 - Межсезонье
-1997 - Это любовь(   Читать дальше...   )Жанр: Рок, Рок-н-Ролл, Арт-РокПродолжительность: 19:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AE920F27ED4E489BC177AFDB025F981BDD3EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395118   (757196) от 09.07.2020
-
-Save My Name - Дойти До Трёх (2020) [MP3|320 Kbps] <Symphonic Metal, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Буря (04:00)
- 02. Танцы на костях (04:28)
- 03. Время не ждёт (03:37)
- 04. Мечта (04:59)(   Читать дальше...   )Жанр: Symphonic Metal, Heavy Metal, Power MetalПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24214DFE95C266DAD34D36B599B186D593519CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

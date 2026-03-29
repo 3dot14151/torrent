@@ -1,3 +1,29 @@
+###  Публикация: 1220911   (698702) от 22.04.2018
+
+А. А. Жижиленко | Очерки по общему учению о наказании (1923) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышедшая в 1914 г. моя книга „Наказание. Его понятие и отличие от других правоохранительных средств" в настоящее время распродана; выпускать ее новым изданием без надлежащей переработки, в особенности в виду полного упразднения дореволюционного права и нарождения нового, находящегося еще в стадии становления, сейчас невозможно, между тем основные идеи, высказанные (   Читать дальше...   )Жанр: История, политология, правоведение, криминологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C97ED3DFC1DB76D55A45D9ED51B85654AF42AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220929   (698599) от 22.04.2018
 
 Н. А. Заровнядный (сост.) | Спутник самоучки [сборник статей и материалов в помощь начальному самообразованию] (1925) [PDF]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698599.jpg" />
+  <img src="Z:/picture/008/save_picture_698599.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698476.jpg" />
+  <img src="Z:/picture/008/save_picture_698476.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698474.jpg" />
+  <img src="Z:/picture/008/save_picture_698474.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698366.jpg" />
+  <img src="Z:/picture/008/save_picture_698366.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697809.jpg" />
+  <img src="Z:/picture/008/save_picture_697809.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697494.jpg" />
+  <img src="Z:/picture/008/save_picture_697494.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696799.jpg" />
+  <img src="Z:/picture/008/save_picture_696799.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696797.jpg" />
+  <img src="Z:/picture/008/save_picture_696797.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695828.jpg" />
+  <img src="Z:/picture/008/save_picture_695828.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694846.jpg" />
+  <img src="Z:/picture/008/save_picture_694846.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694071.jpg" />
+  <img src="Z:/picture/008/save_picture_694071.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693629.jpg" />
+  <img src="Z:/picture/008/save_picture_693629.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692875.jpg" />
+  <img src="Z:/picture/008/save_picture_692875.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692765.jpg" />
+  <img src="Z:/picture/008/save_picture_692765.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691658.jpg" />
+  <img src="Z:/picture/008/save_picture_691658.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691652.jpg" />
+  <img src="Z:/picture/008/save_picture_691652.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691557.jpg" />
+  <img src="Z:/picture/008/save_picture_691557.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691554.jpg" />
+  <img src="Z:/picture/008/save_picture_691554.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691482.jpg" />
+  <img src="Z:/picture/008/save_picture_691482.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691406.jpg" />
+  <img src="Z:/picture/008/save_picture_691406.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691291.jpg" />
+  <img src="Z:/picture/008/save_picture_691291.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691168.jpg" />
+  <img src="Z:/picture/008/save_picture_691168.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691067.jpg" />
+  <img src="Z:/picture/008/save_picture_691067.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689842.jpg" />
+  <img src="Z:/picture/008/save_picture_689842.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689673.jpg" />
+  <img src="Z:/picture/008/save_picture_689673.jpg" />
 </div>
 
 
@@ -656,34 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:259C3066303E31163E8A990C2815F9D8E1DFDF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221732   (689667) от 27.04.2018
-
-Л. А. Леонтьев | Начальный курс политической экономии: Капитализм [Часть 1] (1933) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга должна служить учебным пособием по политической экономии для низших звеньев сети партийного просвещения — марксистско-ленинских кружков и вечерних совпартшкол. Она является, таким образом, в известном смысле следующей ступенью после учебника политграмоты.
-
-Учебник разделяется на две части; Первая часть посвящена экономике капитализма, вторая часть (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F2D6C5DCB803865E6434D7B072CCC97DF2BC41
 ```
 
 https://mybot314.ru/tekegram_catalog/

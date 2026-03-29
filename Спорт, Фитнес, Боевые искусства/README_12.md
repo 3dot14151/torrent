@@ -1,3 +1,55 @@
+###  Публикация: 1163779   (445931) от 07.09.2017
+
+Франческо Альфиери | Искусство превосходного владения мечом (2017) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_445931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франческо Альфиери в своем трактате «Искусство превосходного владения мечом» изложил свою мысль о Фехтовании, привел множество способов и методов, преимуществ от изучения Искусства Оружия. Рассказал, как сделать искусство фехтования полезным и стать лучшим в этом деле. Этот рассказ написан таким способом, который через века передал всю мудрость использования оружия. (   Читать дальше...   )Жанр: Боевые искусства, ФехтованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D622915E2F863DDD5E3218D2FF7237AF8F21873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943966   (444424) от 05.10.2015
+
+Терри Лафлин, Джон Делвз | Полное погружение. Как плавать лучше, быстрее и легче (2014) [FB2]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умеете ли вы плавать? Не просто держаться на воде, а плыть как рыбы, не тратя лишних усилий и при этом быстро? Если нет, то самое время научиться! Терри Лафлин много лет тренирует спортсменов по собственной методике, которая называется Total Immersion. Люди, освоившие ее, поражают сочетанием медленных, плавных, экономичных, бесшумных движений и быстрого перемещения (   Читать дальше...   )Жанр: Хобби, спорт, плаваниеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4193CFA4E611C2C045BE4DC0779DE1410B0A0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944735   (437715) от 08.10.2015
 
 Эрл Монтегю | Багуачжан. Практическое применение тайных приемов (2003) [PDF]
@@ -6,7 +58,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437715.jpg" />
+  <img src="Z:/picture/008/save_picture_437715.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428567.jpg" />
+  <img src="Z:/picture/008/save_picture_428567.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428006.jpg" />
+  <img src="Z:/picture/008/save_picture_428006.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423347.jpg" />
+  <img src="Z:/picture/008/save_picture_423347.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422829.jpg" />
+  <img src="Z:/picture/008/save_picture_422829.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420062.jpg" />
+  <img src="Z:/picture/008/save_picture_420062.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419431.jpg" />
+  <img src="Z:/picture/008/save_picture_419431.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415472.jpg" />
+  <img src="Z:/picture/008/save_picture_415472.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413071.jpg" />
+  <img src="Z:/picture/008/save_picture_413071.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412125.jpg" />
+  <img src="Z:/picture/008/save_picture_412125.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410832.jpg" />
+  <img src="Z:/picture/008/save_picture_410832.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410822.jpg" />
+  <img src="Z:/picture/008/save_picture_410822.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403055.jpg" />
+  <img src="Z:/picture/008/save_picture_403055.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403020.jpg" />
+  <img src="Z:/picture/008/save_picture_403020.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402451.jpg" />
+  <img src="Z:/picture/008/save_picture_402451.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402234.jpg" />
+  <img src="Z:/picture/008/save_picture_402234.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401330.jpg" />
+  <img src="Z:/picture/008/save_picture_401330.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401317.jpg" />
+  <img src="Z:/picture/008/save_picture_401317.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398555.jpg" />
+  <img src="Z:/picture/008/save_picture_398555.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397449.jpg" />
+  <img src="Z:/picture/008/save_picture_397449.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394041.jpg" />
+  <img src="Z:/picture/008/save_picture_394041.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394038.jpg" />
+  <img src="Z:/picture/008/save_picture_394038.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394036.jpg" />
+  <img src="Z:/picture/008/save_picture_394036.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394031.jpg" />
+  <img src="Z:/picture/008/save_picture_394031.jpg" />
 </div>
 
 
@@ -631,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F360EE6A01B22F5FAC97342DA09837CCB0FC3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172038   (394030) от 07.10.2017
-
-О.Б. Лапшин | Теория и методика подготовки юных футболистов (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Методическое пособие, подготовленное известным специалистом в области юношеского футбола О.Б. Лапшиным, безусловно, является важным вкладом в данную сферу и рекомендуется к печати для дальнейшего использования в практике.
-В данном пособии охватываются основные этапы обучения и тренировки юных футболистов, раскрываются принципы данного процесса, приводятся примерные (   Читать дальше...   )Жанр: Педагогика спорта, ФутболФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D95AEC0F6DCD37AC389A3EAB24150D2479985C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172012   (393973) от 07.10.2017
-
-В.П. Губа | Теория и методика мини-футбола (футзала) (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник по мини-футболу (футзалу) является трудом, обобщающим теоретико-методический материал отечественных специалистов, и результаты многолетних исследований автора, в котором представлена методология организации учебно-тренировочного процесса. Прежде всего, курс лекций адресован слушателям «Академии футзала АМФР», ВШТ, студентам, аспирантам, преподавателям высших (   Читать дальше...   )Жанр: Педагогика спорта, ФутболФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D5B465EE26869D92ED6FABC256EEA007C6DBCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Google Chrome 51.0.2704.84 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721918.jpg" />
+  <img src="Z:/picture/008/save_picture_721918.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WifiInfoView 2.05 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721834.jpg" />
+  <img src="Z:/picture/008/save_picture_721834.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XYplorer 16.90 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721824.jpg" />
+  <img src="Z:/picture/008/save_picture_721824.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoolUtils PDF Combine 6.1.0.121 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721732.jpg" />
+  <img src="Z:/picture/008/save_picture_721732.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nitro4D NitroBlast v2.0 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721718.jpg" />
+  <img src="Z:/picture/008/save_picture_721718.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CSI Etabs 2015 Ultimate v15.2.0 build 1295 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721709.jpg" />
+  <img src="Z:/picture/008/save_picture_721709.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mozilla Firefox 47.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721705.jpg" />
+  <img src="Z:/picture/008/save_picture_721705.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AnyMP4 DVD Copy 3.1.28 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721632.jpg" />
+  <img src="Z:/picture/008/save_picture_721632.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mozilla Firefox 38.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721622.jpg" />
+  <img src="Z:/picture/008/save_picture_721622.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ O&O DiskImage Professional 12.1 Build 149 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721532.jpg" />
+  <img src="Z:/picture/008/save_picture_721532.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wise Disk Cleaner 9.7.3.690 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721528.jpg" />
+  <img src="Z:/picture/008/save_picture_721528.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721497.jpg" />
+  <img src="Z:/picture/008/save_picture_721497.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VLC media player 2.2.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721493.jpg" />
+  <img src="Z:/picture/008/save_picture_721493.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.41 (6/2/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721492.jpg" />
+  <img src="Z:/picture/008/save_picture_721492.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CDBurnerXP 4.5.5.5571 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721447.jpg" />
+  <img src="Z:/picture/008/save_picture_721447.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ pdfFactory Pro 6.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721402.jpg" />
+  <img src="Z:/picture/008/save_picture_721402.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ScanMyReg 3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721386.jpg" />
+  <img src="Z:/picture/008/save_picture_721386.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Display Driver Uninstaller 17.0.8.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721384.jpg" />
+  <img src="Z:/picture/008/save_picture_721384.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Process Hacker 2.34 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721323.jpg" />
+  <img src="Z:/picture/008/save_picture_721323.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ IsMyHdOK 1.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721321.jpg" />
+  <img src="Z:/picture/008/save_picture_721321.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Any Video Converter Ultimate 5.8.0 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721319.jpg" />
+  <img src="Z:/picture/008/save_picture_721319.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lunascape 6.9.6 (Standard/Full) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721236.jpg" />
+  <img src="Z:/picture/008/save_picture_721236.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AIMP 3.60 Build 1492 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721232.jpg" />
+  <img src="Z:/picture/008/save_picture_721232.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721223.jpg" />
+  <img src="Z:/picture/008/save_picture_721223.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ NETGATE Spy Emergency 15.0.205.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721220.jpg" />
+  <img src="Z:/picture/008/save_picture_721220.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Text Editor Pro 9.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721183.jpg" />
+  <img src="Z:/picture/008/save_picture_721183.jpg" />
 </div>
 
 

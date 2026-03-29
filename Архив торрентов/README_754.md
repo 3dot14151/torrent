@@ -6,7 +6,7 @@ ESET NOD32 Internet Security 13.1.21.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881320.jpg" />
+  <img src="Z:/picture/005/save_picture_881320.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881314.jpg" />
+  <img src="Z:/picture/005/save_picture_881314.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIDA64 Premium 1.71 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881304.jpg" />
+  <img src="Z:/picture/005/save_picture_881304.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881291.jpg" />
+  <img src="Z:/picture/005/save_picture_881291.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881290.jpg" />
+  <img src="Z:/picture/005/save_picture_881290.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881288.jpg" />
+  <img src="Z:/picture/005/save_picture_881288.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881285.jpg" />
+  <img src="Z:/picture/005/save_picture_881285.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - True Uplifting (Mixed by Mhammed El Alami) (2016) [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881278.jpg" />
+  <img src="Z:/picture/008/save_picture_881278.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - A State of Trance Radio Top 20 - February (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881275.jpg" />
+  <img src="Z:/picture/005/save_picture_881275.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ BBEdit 11.5.1 (3874) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881273.jpg" />
+  <img src="Z:/picture/005/save_picture_881273.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_881255.jpg" />
+  <img src="Z:/picture/009/save_picture_881255.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Tekken Takes Tokyo (2012) DVD5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881236.jpg" />
+  <img src="Z:/picture/008/save_picture_881236.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881234.jpg" />
+  <img src="Z:/picture/008/save_picture_881234.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ XnView 2.30 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881230.jpg" />
+  <img src="Z:/picture/005/save_picture_881230.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881207.jpg" />
+  <img src="Z:/picture/005/save_picture_881207.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Bobina - #Uplifting (2015) [FLAC|Lossless|tracks+.cue] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881202.jpg" />
+  <img src="Z:/picture/005/save_picture_881202.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Internet Download Manager 6.27 Build 5 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881194.jpg" />
+  <img src="Z:/picture/005/save_picture_881194.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Advanced Modern Mood Music Vol 1 (2016) [FLAC|tracks] <Downtempo, Lounge, C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881191.jpg" />
+  <img src="Z:/picture/005/save_picture_881191.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Best Of Trancer 2015 (Mixed by Nick Turner) (2016) [FLAC|Lossless|WEB-DL|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881188.jpg" />
+  <img src="Z:/picture/005/save_picture_881188.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881179.jpg" />
+  <img src="Z:/picture/005/save_picture_881179.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Adobe Flash Player 24.0.0.221 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881170.jpg" />
+  <img src="Z:/picture/005/save_picture_881170.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881124.jpg" />
+  <img src="Z:/picture/005/save_picture_881124.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Xara Photo & Graphic Designer 365 12.5.0.48392 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881092.jpg" />
+  <img src="Z:/picture/005/save_picture_881092.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881083.jpg" />
+  <img src="Z:/picture/005/save_picture_881083.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Technimatic - Flashbulb EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881081.jpg" />
+  <img src="Z:/picture/005/save_picture_881081.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Internet Download Manager 6.27 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881074.jpg" />
+  <img src="Z:/picture/005/save_picture_881074.jpg" />
 </div>
 
 

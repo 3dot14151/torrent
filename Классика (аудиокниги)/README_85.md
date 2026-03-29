@@ -1,3 +1,114 @@
+###  Публикация: 291186   (63320) от 11.03.2024
+
+Михаил Волконский | Брат герцога (2011) [MP3, Маргарита Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
+Историко–приключенческий роман «Брат герцога» Михаилом Николаевичем Волконским написан 1895 году, он рассказывает о триумфе и падении Густава Бирона – удачливого в службе, но несчастливого в любви генерал–аншефа, (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Нигде не купишьПродолжительность: 12:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD89B8C9DB3C137EF18E2A0FD1FEA336DBFFC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291500   (63312) от 11.03.2024
+
+Михаил Волконский | Кольцо императрицы (2009) [MP3, Юлия Мен]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Исторический авантюрный роман.
+Волконский Михаил Николаевич (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
+Роман «Кольцо императрицы» написан Михаилом Николаевичем Волконским в 1896 году, он состоит из двух произведений «Кольцо императрицы» и «Горсть бриллиантов». Роман «Кольцо (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 10:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE86597715F29507C2FA30CAB2D43307CE389F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291208   (63309) от 11.03.2024
+
+Михаил Волконский | Забытые хоромы (2007) [MP3, Галина Самойлова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Исторический авантюрный роман.
+Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
+Роман «Забытые хоромы» написан Михаилом Николаевичем Волконским в 1910 году. События романа «Забытые хоромы» разворачиваются через два года после восшествия на престол (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 04:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D41934537F15957A8512269D95F233F2682E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291495   (63299) от 11.03.2024
+
+Михаил Волконский | Князь Никита Фёдорович (2009) [MP3, Борис Хасанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Исторический авантюрный роман.
+Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
+Роман «Князь Никита Фёдорович» написан Михаилом Николаевичем Волконским в 1914 году. Князь Никита Фёдорович Волконский происходил из знатного рода князей Волконских (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 07:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4075CB2E8F3C6E96AB485991329FAB1D3C4F43F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291494   (63294) от 11.03.2024
 
 Михаил Волконский | Ищите и найдёте (2007) [MP3, Галина Самойлова]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63294.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63292.jpg" />
 </div>
 
 
@@ -62,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63258.jpg" />
 </div>
 
 
@@ -89,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62945.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62822.jpg" />
 </div>
 
 
@@ -143,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62796.jpg" />
 </div>
 
 
@@ -170,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62792.jpg" />
 </div>
 
 
@@ -197,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62402.jpg" />
 </div>
 
 
@@ -225,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62378.jpg" />
 </div>
 
 
@@ -251,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62375.jpg" />
 </div>
 
 
@@ -277,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62193.jpg" />
 </div>
 
 
@@ -305,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62185.jpg" />
 </div>
 
 
@@ -332,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62184.jpg" />
 </div>
 
 
@@ -358,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62170.jpg" />
 </div>
 
 
@@ -385,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62166.jpg" />
 </div>
 
 
@@ -411,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62164.jpg" />
 </div>
 
 
@@ -441,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62157.jpg" />
 </div>
 
 
@@ -467,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62156.jpg" />
 </div>
 
 
@@ -496,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62155.jpg" />
 </div>
 
 
@@ -523,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62154.jpg" />
 </div>
 
 
@@ -551,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62062.jpg" />
 </div>
 
 
@@ -578,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61751.jpg" />
 </div>
 
 
@@ -589,113 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7259926FDC77AC502C6907E46FD719D98B3B873A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422187   (61747) от 26.03.2024
-
-Владимир Одоевский | Русские ночи (2009) [MP3, Владимир Левашёв]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Федорович Одоевский (1804–1869) – выдающийся  русский писатель и философ, автор множества художественных произведений для детей, которые стали классикой детской литературы.
-Философский роман «Русские ночи» - значительное, итоговое произведение Владимира Федоровича Одоевского, русского писателя, философа, педагога, музыковеда и теоретика музыки. Роман состоит (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Терра-Книжный клубПродолжительность: 12:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE02E4622ADEDBC4FE98C447FB5325264FD5182E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335779   (61740) от 26.03.2024
-
-Владимир Одоевский | Княжна Мими. Живой мертвец (2009) [MP3, Савелий Гуреев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Федорович Одоевский (1803-1869) русский писатель, философ, князь, сенатор, директор Румянцевского музея (ныне ГМИИ им. Пушкина). Современники называли Одоевского «русским Гофманом», ибо в повестях его причудливо переплелись фантастика и меткая сатира, глубокая философичность и занимательность сюжета. Писатель этот по праву занимает одно из главных мест в (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-М (аудио)Продолжительность: 03:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5921B47D76438625A09115F9410834904B95F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335902   (61724) от 26.03.2024
-
-Владимир Одоевский | Русские ночи (2007) [MP3, Арина Ланская]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиобиблиотека школьника.
-Владимир Фёдорович Одоевский (1804–1869) – выдающийся  русский писатель и философ, автор множества художественных произведений для детей, которые стали классикой детской литературы.
-Издание содержит фантастические повести, входящие в гениальное произведение «Русские ночи» писателя Владимира Одоевского. Фантастические произведения (   Читать дальше...   )Жанр: Русская литература, классика, фантастическая повестьИздательство: ИДДК, БизнессофтПродолжительность: 05:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5F99FD98779E44D2416E3635678886169B37DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335774   (61714) от 26.03.2024
-
-Владимир Одоевский | Саламандра (2009) [MP3, Савелий Гуреев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Федорович Одоевский (1803-1869) русский писатель, философ, князь, сенатор, директор Румянцевского музея (ныне ГМИИ им. Пушкина). Современники называли Одоевского «русским Гофманом», ибо в повестях его причудливо переплелись фантастика и меткая сатира, глубокая философичность и занимательность сюжета. Писатель этот по праву занимает одно из главных мест в (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-М (аудио)Продолжительность: 03:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0230B53C858C11E3AEFB043AAE2F2424E3FD10D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

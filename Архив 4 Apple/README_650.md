@@ -1,3 +1,113 @@
+###  Публикация: 1271922   (144932) от 26.12.2018
+
+1Password 7 v7.2.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144932.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
+
+Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7205A8A8D7FDE618524418AB0234CCB7D1A6B3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087867   (144916) от 28.12.2016
+
+CopyClip 2 - Clipboard Manager v2.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144916.jpg" />
+</div>
+
+
+###  Подробнее
+
+CopyClip 2 - эффективный менеджер буфера обмена
+CopyClip - очень простой и эффективный менеджер буфера обмена для вашего Mac, значек которого после запуска, находиться в строке меню и всегда под рукой. Приложение хранит все, что вы скопировали или вырезали в прошлом, что позволяет быстро обнаружить нужный фрагмент текста, который вы так долго искали.Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00F6E1320F93C2C43A1EFF15774D37323A2CB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348321   (144901) от 27.12.2019
+
+Adguard 2.4.2.712 nightly (CL - 1.5.165) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4FD6B1FF91F305E7087EC4408F5F192CCC8364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272350   (144818) от 27.12.2018
+
+Postico 1.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой, но мощный менеджер PostgreSQL баз данных для Mac
+Цель - сделать работу с базами данных PostgreSQL немного проще с помощью коллекции интуитивно понятных инструментов в удобном интерфейсе. PostgreSQL является одним из самых мощных и комплексных систем управления базами данных, поэтому работать с ним не так просто, как может показаться.
+
+Postico - рациональный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2018Разработчик: Jakob EggerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76816A55289C3C5E73D8F2B3C960458DDC87FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272137   (144792) от 27.12.2018
 
 Xliff Editor 2.5.0.1 [En]
@@ -6,7 +116,7 @@ Xliff Editor 2.5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144792.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ Yate 6.2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144743.jpg" />
 </div>
 
 
@@ -63,7 +173,7 @@ Cookie 6.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144720.jpg" />
 </div>
 
 
@@ -90,7 +200,7 @@ PhotoMill X 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144696.jpg" />
 </div>
 
 
@@ -118,7 +228,7 @@ PullTube 1.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144646.jpg" />
 </div>
 
 
@@ -144,7 +254,7 @@ PCalc 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144609.jpg" />
 </div>
 
 
@@ -171,7 +281,7 @@ PhoneRescue 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144586.jpg" />
 </div>
 
 
@@ -197,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144542.jpg" />
 </div>
 
 
@@ -223,7 +333,7 @@ ToothFairy 2.4.8 (36)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144531.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ Qbserve 1.81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144524.jpg" />
 </div>
 
 
@@ -279,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144519.jpg" />
 </div>
 
 
@@ -306,7 +416,7 @@ Do Your Data Recovery Professional 8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144468.jpg" />
 </div>
 
 
@@ -334,7 +444,7 @@ EdgeView 4.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144383.jpg" />
 </div>
 
 
@@ -360,7 +470,7 @@ WonderPen 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144374.jpg" />
 </div>
 
 
@@ -386,7 +496,7 @@ Nevercenter CameraBag Photo 2024.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144362.jpg" />
 </div>
 
 
@@ -413,7 +523,7 @@ Dash 7.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144352.jpg" />
 </div>
 
 
@@ -439,7 +549,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144347.jpg" />
 </div>
 
 
@@ -466,7 +576,7 @@ BatchOutput PDF 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144327.jpg" />
 </div>
 
 
@@ -493,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144323.jpg" />
 </div>
 
 
@@ -520,7 +630,7 @@ NCH DreamPlan Plus 8.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144312.jpg" />
 </div>
 
 
@@ -549,7 +659,7 @@ Dropshare 5 v.5.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144306.jpg" />
 </div>
 
 
@@ -576,7 +686,7 @@ Clipboard Manager 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144252.jpg" />
 </div>
 
 
@@ -589,111 +699,6 @@ Clipboard Manager 2.5.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B29646DB6F1D028507AF3EFA6E2E5BBD0E2DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678686   (144229) от 22.11.2023
-
-FoneDog Toolkit for Android on Mac 2.1.10 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144229.jpg" />
-</div>
-
-
-###  Подробнее
-
-FoneDog Android Data Recovery специализируется на восстановлении удаленных контактов (номера телефонов, имена, электронные письма), текстовых сообщений (контент, номера телефонов, дата отправки / получения) и истории вызовов (имена, номера телефонов, тип вызова, продолжительность), WhatsApp (сообщения / вложения), фотографии, видео, аудио файлы и документы с устройств (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2016 - 2023 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64CF3ACD922518EFFA6E6E87607C26E0343BBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678749   (144165) от 22.11.2023
-
-FonesGo Location Changer for Mac 6.8.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имитируйте движение по GPS более реалистично на iOS/Android. FonesGo Location Changer — лучший партнер во время игры в Pokemon Go. Вы можете имитировать движение GPS с настраиваемой скоростью, например ходьбу, езду на велосипеде или вождение. Какой бы ни была причина, по которой вы застряли дома, вы всегда можете использовать этот инструмент, чтобы играть в Pokemon (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2023Разработчик: © 2023 FonesGoПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95CECF57103E92C9281C23D3677DF802D269B020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520362   (144058) от 27.12.2021
-
-TG Pro (Temperature Gauge Pro) 2.64 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144058.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8F3D8FFB5F05B5BDB687E8CC8BE4402BFEE7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520257   (144049) от 27.12.2021
-
-ColorWell 7.3.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144049.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре macOS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезная утилита в любом наборе инструментов хорошего веб-дизайнера и ее можно легко настроить для работы на панели инструментов или открыть при помощи глобальной горячей клавиши.Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABB32EB8FAD9779B4536830EBCE15E82A0ABA23
 ```
 
 https://mybot314.ru/tekegram_catalog/

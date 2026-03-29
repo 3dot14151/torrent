@@ -1,3 +1,90 @@
+###  Публикация: 923535   (562701) от 01.08.2015
+
+Kataklysm - Of Ghosts And Gods (2015) Limited Edition [FLAC|image+.cue]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaching The Asylum 4:40
+02. The Black Sheep 4:33
+03. Marching Through Graveyards 5:23
+04. Thy Serpents Tongue 3:57(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE963D8BFDA9F65AE51E07EBD3EDB9A52FEEF1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235118   (562274) от 10.07.2018
+
+Ossian - Kitores (1992) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legyen mienk az elet 4:18
+02. Ok nelkul lazado 4:02
+03. Bunosok es szentek 3:33
+04. Pokoli hajsza, 2020 4:59(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BC4D5FD6382AA8AF065F606CB9BE4CCD119695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235283   (562273) от 10.07.2018
+
+Angantyr - Ulykke (2018) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulykke er dit navn (07:45)
+02. Visdoms virke (08:19)
+03. Krageben (07:33)
+04. Træl af tomme ord (07:47)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68547D09A84BDAA2F4CA212730D931738FAC4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235188   (562272) от 10.07.2018
 
 Xystus - Equilibrio. A Rock Opera (2008) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Xystus - Equilibrio. A Rock Opera (2008) [FLAC|Lossless|tracks + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562272.jpg" />
+  <img src="Z:/picture/008/save_picture_562272.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Heavy Load - Metal Conquest (1981) 2017, Heavy Sounds [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561753.jpg" />
+  <img src="Z:/picture/008/save_picture_561753.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Hexicon - Leave It All Behind (2022) [FLAC|Lossless|tracks] <Doom,Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561665.jpg" />
+  <img src="Z:/picture/008/save_picture_561665.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Hexing - Welcome To Salem (2022) [FLAC|Lossless|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561656.jpg" />
+  <img src="Z:/picture/008/save_picture_561656.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Voiceless Void - Vampire - Another Side Of Death (2005) [FLAC|Lossless]<Gothic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561237.jpg" />
+  <img src="Z:/picture/008/save_picture_561237.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Chemical Breath - Values (1994) [FLAC|Lossless|image + .cue] <Death-Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560206.jpg" />
+  <img src="Z:/picture/008/save_picture_560206.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ DGM - The Passage (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559834.jpg" />
+  <img src="Z:/picture/008/save_picture_559834.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ W.A.S.P. - 22 albums, 20 singles, 83 CD (1984-2018) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559499.jpg" />
+  <img src="Z:/picture/008/save_picture_559499.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Stratovarius - Collector's Package (2015) 3 CD [FLAC|image+.cue]<Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559065.jpg" />
+  <img src="Z:/picture/008/save_picture_559065.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Xandria - Fire & Ashes (2015) EP [FLAC|image+.cue]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559059.jpg" />
+  <img src="Z:/picture/008/save_picture_559059.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Omen - Agymosas (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558751.jpg" />
+  <img src="Z:/picture/008/save_picture_558751.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Marthyrium - Beyond the Thresholds (2017) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558750.jpg" />
+  <img src="Z:/picture/008/save_picture_558750.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Angelus Apatrida - Cabaret de la guillotine (2018) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558749.jpg" />
+  <img src="Z:/picture/008/save_picture_558749.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Gruesome - Twisted Prayers (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558747.jpg" />
+  <img src="Z:/picture/008/save_picture_558747.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Stryper - God Damn Evil (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558746.jpg" />
+  <img src="Z:/picture/008/save_picture_558746.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ Temperance - Of Jupiter and Moons (2018) Japan [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558680.jpg" />
+  <img src="Z:/picture/008/save_picture_558680.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Hyperborean - Rising From The Dark Past (2014) [FLAC|Lossless|tracks] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558392.jpg" />
+  <img src="Z:/picture/008/save_picture_558392.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Indren - Of Time and Autumn Leaves (2022) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558388.jpg" />
+  <img src="Z:/picture/008/save_picture_558388.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Indus Valley Kings - Origin (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558387.jpg" />
+  <img src="Z:/picture/008/save_picture_558387.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Im Tode - In Diabolic Darkness (2022) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558310.jpg" />
+  <img src="Z:/picture/008/save_picture_558310.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Inebrians - Unnatural (2022) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558309.jpg" />
+  <img src="Z:/picture/008/save_picture_558309.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Evil Nerfal - Bellum Est Pater Omnium (2018) [FLAC|Lossless|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558306.jpg" />
+  <img src="Z:/picture/008/save_picture_558306.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ Evil Nerfal - Sons of Chaos (Anti-Kosmic Dissonance) (2021) [FLAC|Lossless|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558305.jpg" />
+  <img src="Z:/picture/008/save_picture_558305.jpg" />
 </div>
 
 
@@ -664,93 +751,6 @@ Evil Nerfal - Sons of Chaos (Anti-Kosmic Dissonance) (2021) [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A3658F4455AFD4502C083093B5CBB67B4DA6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153684   (558276) от 27.07.2017
-
-Вurning Witсhes - Вurning Witсhes (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Widow (4:05)
-02. Burning Witches (4:18)
-03. Bloody Rose (3:51)
-04. The Dark Companion (5:18)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5285541390B1C8695B6F97ECB6764D70E8D0E8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556526   (558229) от 10.06.2022
-
-Kreator - Hate Uber Alles (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergio Corbucci Is Dead
-02. Hate Über Alles
-03. Killer Of Jesus
-04. Crush The Tyrants(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B73A38E21C3880C7D33F5E2214250A28AF5E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556347   (558217) от 10.06.2022
-
-Bullet For My Valentine - Сollection (2005-2021) [FLAC|Lossless|image + .cue|tracks + .cue] <Melodic Metal Core, Alternative Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bullet For My Valentine — (в переводе с англ. — «Пуля для моей возлюбленной») — британская металкор-группа. Была сформирована в 1998 году в городе Бридженд под названием Jeff Killed John и состояла из Мэттью Така (вокал, ритм-гитара), Майкла Пэджета (соло-гитара), Ника Крэндли (бас-гитара) и Майкла Томаса (ударные). Первоначально её участники исполняли (   Читать дальше...   )Список альбомов:
-2005 - The Poison
-2008 - Scream Aim Fire
-2010 - Fever(   Читать дальше...   )Жанр: Melodic Metal Core, Alternative Metal, Heavy MetalПродолжительность: 09:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AEB558BE09E2E0E6B48B3441B6D56392B0E6D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

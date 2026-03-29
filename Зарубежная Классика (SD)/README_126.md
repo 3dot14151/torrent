@@ -1,3 +1,81 @@
+###  Публикация: 252078   (27169) от 19.02.2025
+
+Плата за страх / Le salaire de la peur (1952) DVDRip [Цветной]
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо храбрецов, застрявших без денег в крошечном городишке где-то в сердце Латинской Америки, берутся за самоубийственную работу. За плату в 2000 долларов нужно доставить 2 грузовика, груженных нитроглицерином, на нефтяные скважины, расположенные на расстоянии 300 миль от города. Там нитроглицерин полезен — его используют при тушении пожаров, но в пути он смертельно (   Читать дальше...   )Производство: Франция, Италия / Compagnie Industrielle et Commerciale Cinématographique (CICC), Filmsonor, Vera FilmsЖанр: триллер, драма, приключенияРежиссер: Анри-Жорж КлузоАктеры: Ив Монтан, Шарль Ванель, Фолько Люлли, Петер ван Эйк, Вера Клузо, Уильям Таббс, Дарио Морено, Йо Дест, Антонио Чента, Луиш ди ЛимаПеревод: советский дубляжСубтитры: отсутствуютПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5EA95DC5B9C97432B3CED90FFBEBBB06309E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268165   (26442) от 26.02.2025
+
+Безмолвная звезда / Der schweigende Stern (1959) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26442.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа Станислава Лема "Астронавты". На строительстве в пустыне Гоби был найден цилиндр, на котором в виде магнитных импульсов были записаны данные о химическом составе Земли. Изучая эту находку советский ученый, профессор Арсеньев, устанавливает, что она упала на Землю из потерпевшего аварию космического корабля, летевшего на нашу планету с (   Читать дальше...   )Жанр: ФантастикаРежиссер: Курт МетцигАктеры: Йоко Тани, Ольдржих Лукеш, Игнацы Маховский, Юлиус Онгеве, Майкл Н. Постников, Курт Ракельман, Гюнтер Зимон, Танг Хуа-Та, Люцина Винницка, Данута ШафларскаяПеревод: Дублированный + многоголосый + оригиналЯзык: RU / DEПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CDBFBBEB324F0EEF301E5C7A09275B3D6F63E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781727   (26194) от 28.02.2025
+
+Аттила завоеватель / Attila (1954) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древние пророчества гласили, что однажды появится человек, который сможет объединить племена свирепых воинов и бросить вызов непобедимой Римской империи, которая веками правила античным миром. Имя этого человека стало легендарным и навсегда вошло в историю человечества: Аттила - бесстрашный повелитель гуннов. Нам предстоит стать свидетелями противостояния двух самых (   Читать дальше...   )Производство: Италия, Франция / Compagnie Cinematographique de France, Lux Film S.p.a., Producciones Ponti-de LaurentiisЖанр: драма, военный, биография, историяРежиссер: Пьетро ФранчишиАктеры: Энтони Куинн, Софи Лорен, Анри Видаль, Клод Лейдю, Ирен Папас, Колетт Режис, Этторе Манни, Эдуардо Чианнелли, Жорж Бреа, Кристиан МарканПеревод: Авторский (Андрей Мудров)Язык озвучки: Русский, ИтальянскийСубтитры: ОтсутствуютПродолжительность: 01:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F6B06C2170CF5D03B84E38470761AC7D8AE14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782628   (25875) от 03.03.2025
 
 Представление / Performance (1970) BDRip [H.264] [AVO]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25875.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25601.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25258.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24712.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23958.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23784.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23480.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22243.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21963.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21648.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21359.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21177.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20772.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20589.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20560.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20504.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19723.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19462.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19238.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19115.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18259.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18129.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17700.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F2A11A5D257AB751D9F488CE343B36ECB70B7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796257   (17581) от 21.05.2025
-
-Город, похожий на Элис / A Town Like Alice (1956) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разбогатевшая молодая англичанка Джин Пэджет возвращается в Малайю, чтобы построить колодец для жителей деревни, которые помогали ей и её подругам по несчастью во время войны. Оглядываясь назад, она вспоминает, как японцы заставляли группу пленных женщин ходить пешком от лагеря к лагерю по всей стране, не давая им приюта. Среди невыносимых страданий и потерь одним (   Читать дальше...   )Производство: Великобритания / Vic Films Productions Ltd.Жанр: драма, мелодрама, военныйРежиссер: Джек ЛиАктеры: Вирджиния МакКенна, Питер Финч, Кэндзи Такаки, Трэн Ван Хе, Джин Андерсон, Мари Лор, Морин Суонсон, Рене Хьюстон, Нора Николсон, Эйлин МурПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: Русский, АнглийскийСубтитры: русские (songs, full) - отдельными файламиПродолжительность: 01:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5862993F5905FE1D07039C034E69B4E45981E0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798481   (17387) от 22.05.2025
-
-Стромболи, земля божья / Stromboli (Terra di Dio) (1950) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Литовская беженка Карин в ходе Второй мировой войны оказывается в итальянском лагере для перемещённых лиц и там, чтобы получить гражданство и вид на жительство, выходит замуж за рыбака Антонио. Супруги отправляются жить на малую родину Антонио остров Стромболи. Однако это удалённое от цивилизации местечко сразу же разочаровывает привыкшую к большим городам Карин. (   Читать дальше...   )Производство: Италия, США / Berit Films, RKO Radio Pictures Inc.Жанр: драмаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Марио Витале, Ренцо Чезана, Марио Спонцо, Джетано Фамуларо, Роберто ОноратиПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C545558CBA8928EE7E4B313F4B35CCA98B0F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 6601   (16498) от 29.05.2025
-
-Фантомас против Фантомаса / Fantomas contre Fantomas  (1949) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один безумный учёный, экспериментирующий с влиянием на сознание, зомбированием и лицевой пластикой, получив отказ от давно возлюбленной вдовы, имитирует суицид, а сам в подпольной лаборатории, обзаведясь «зомбированными» бугаями-работниками и услужливыми медсёстрами, начинает от имени Фантомаса шантажировать разных богачей и убивать их в случае отказа платить. Тем (   Читать дальше...   )Жанр: Триллер, детективРежиссер: Робер ВернэВ ролях: Марселль Шанталь, Эме Кларион, Александр Риньо, Роберт Арну, Берт Бови, Ив Фюре, Нора Кост, Антуан БальпетреПеревод: Любительский одноголосыйКачество: DVDRipПродолжительность: 01:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31AC84DF04982AD96ADB0B69696220B41C6AD03
 ```
 
 https://mybot314.ru/tekegram_catalog/

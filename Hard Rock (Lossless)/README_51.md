@@ -1,3 +1,61 @@
+###  Публикация: 1572259   (423679) от 26.08.2022
+
+Angeline - We Were Raised On Radio (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helpless
+02. Closer
+03. My Heart Won't Let You Go
+04. We Were Raised On Radio(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E4A8CE0ABD5E3C76AA863354AA05D3AB9B34D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572339   (423675) от 26.08.2022
+
+Santa Cruz - The Return Of The Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes The Revolution
+02. Take Me To America
+03. Under The Gun
+04. Disarm Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142FCC707B52121B88D61279C6A6A853B416C38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515588   (422421) от 27.09.2020
 
 White Lion - 8 Albums, 1 Box Set (1985 - 2020) 18 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock, Glam>
@@ -6,7 +64,7 @@ White Lion - 8 Albums, 1 Box Set (1985 - 2020) 18 CD [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422421.jpg" />
+  <img src="Z:/picture/008/save_picture_422421.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Hard Stuff / Bullet - 3 альбомa, 5CD (1972-2017) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421784.jpg" />
+  <img src="Z:/picture/008/save_picture_421784.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Janis Joplin (Big Brother & The Holding Co. feat. Janis Joplin) - 22 albums, 1 B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421041.jpg" />
+  <img src="Z:/picture/008/save_picture_421041.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ House Of X - House Of X (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420790.jpg" />
+  <img src="Z:/picture/008/save_picture_420790.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Blue Oyster Cult - The Symbol Remains (2020) [FLAC|Lossless|tracks + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420319.jpg" />
+  <img src="Z:/picture/008/save_picture_420319.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Acacia Avenue - Cold (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420203.jpg" />
+  <img src="Z:/picture/008/save_picture_420203.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Nazareth - Loud & Proud! Anthology (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419963.jpg" />
+  <img src="Z:/picture/008/save_picture_419963.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Josh Todd (of Buckcherry) & The Conflict - Year Of The Tiger (2017) [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419577.jpg" />
+  <img src="Z:/picture/008/save_picture_419577.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Revival Black - Under The Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419481.jpg" />
+  <img src="Z:/picture/008/save_picture_419481.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Sic Vikki - The Early Years (1985-1992) Compilation, Reissue, 2022, FnA Records 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419475.jpg" />
+  <img src="Z:/picture/008/save_picture_419475.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Alliance - Fire And Grace (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419467.jpg" />
+  <img src="Z:/picture/008/save_picture_419467.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Sunstorm - Brothers In Arms (2022) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419456.jpg" />
+  <img src="Z:/picture/008/save_picture_419456.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Restless Spirits - Second To None (2022) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419326.jpg" />
+  <img src="Z:/picture/008/save_picture_419326.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ July Reign - Here Comes The Flood (2016) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418585.jpg" />
+  <img src="Z:/picture/008/save_picture_418585.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Ohrenfeindt - Zwei Fauste Fur Rock'n'Roll (2017) [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417417.jpg" />
+  <img src="Z:/picture/008/save_picture_417417.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Ray Gillen - 5th Anniversary Memorial Tribute (1998) [APE|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417051.jpg" />
+  <img src="Z:/picture/008/save_picture_417051.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ The Volume - The Volume (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog, Psych,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415054.jpg" />
+  <img src="Z:/picture/008/save_picture_415054.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Pretty Maids - Kingmaker (2016) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414169.jpg" />
+  <img src="Z:/picture/008/save_picture_414169.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ KrazarK - KrazarK (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412752.jpg" />
+  <img src="Z:/picture/008/save_picture_412752.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Lugnet - Tales From The Great Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412380.jpg" />
+  <img src="Z:/picture/008/save_picture_412380.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Corey Taylor - CMFT (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412017.jpg" />
+  <img src="Z:/picture/008/save_picture_412017.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Def Leppard - Best Of (2004) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410344.jpg" />
+  <img src="Z:/picture/008/save_picture_410344.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Deep Purple - Fireball (1971) Anniversary Edition, Remastered, 1996, EMI [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410334.jpg" />
+  <img src="Z:/picture/008/save_picture_410334.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Deep Purple - In Rock (1970) Anniversary Edition, Remastered, 1995, EMI [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410254.jpg" />
+  <img src="Z:/picture/008/save_picture_410254.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Deep Purple - In Rock (1970) Anniversary Edition, Remastered, 1995, EMI [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E89C99940C67AB45B463B37061F89CF1A1A7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066591   (410084) от 27.10.2016
-
-Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until You're Gone 04:20
-02. Drift Away 03:33
-03. Deep End 03:41
-04. Out of My Heart 06:07(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0088C19CE6DBFC79195F8783876520187ECA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066593   (410083) от 27.10.2016
-
-Asphalt Valentine - Strip Rock Roll (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Lose It 04:09
-02. Dirty Little Secret 04:33
-03. It's Not Me 04:20
-04. Hard Life 05:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645D43AA6E1B0B7E016A1BE684B866BFF73AEC19
 ```
 
 https://mybot314.ru/tekegram_catalog/

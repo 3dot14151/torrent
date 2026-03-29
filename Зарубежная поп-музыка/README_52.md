@@ -1,3 +1,32 @@
+###  Публикация: 1250361   (426769) от 27.09.2018
+
+Cher - Dancing Queen (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dancing Queen
+2. Gimme! Gimme! Gimme! (A Man After Midnight)
+3. The Name of the Game
+4. SOS(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC56C166601723B8677E786B4150AAA8061C5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064576   (426236) от 20.10.2016
 
 Rebecca Ferguson - Superwoman (2016) [MP3|320 Kbps] <Pop, Funk, Soul>
@@ -6,7 +35,7 @@ Rebecca Ferguson - Superwoman (2016) [MP3|320 Kbps] <Pop, Funk, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426236.jpg" />
+  <img src="Z:/picture/008/save_picture_426236.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Liz Mitchell - Share The World (1999) ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425362.jpg" />
+  <img src="Z:/picture/008/save_picture_425362.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Melanie C - Version of Me (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423910.jpg" />
+  <img src="Z:/picture/008/save_picture_423910.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Cars - Heartbeat City (1984) [OGG Vorbis|485 Kbps] <Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423513.jpg" />
+  <img src="Z:/picture/008/save_picture_423513.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Technique - Michael Angelo (1983) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422650.jpg" />
+  <img src="Z:/picture/008/save_picture_422650.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Demi Lovato - Confident (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422486.jpg" />
+  <img src="Z:/picture/008/save_picture_422486.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Nino De Angelo - Samuraj (1989) LP [MP3|320 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421332.jpg" />
+  <img src="Z:/picture/008/save_picture_421332.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ John Newman - Revolve (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420125.jpg" />
+  <img src="Z:/picture/008/save_picture_420125.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Systems In Blue - There's No Heart (2018) Special 80's version, 12" [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420095.jpg" />
+  <img src="Z:/picture/008/save_picture_420095.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Celine Dion - Courage (2019) [OGG Vorbis|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419460.jpg" />
+  <img src="Z:/picture/008/save_picture_419460.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Rocky - Soft Machines (2016) [MP3|320 Kbps] <Alternative Pop, Soul, Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419098.jpg" />
+  <img src="Z:/picture/008/save_picture_419098.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418662.jpg" />
+  <img src="Z:/picture/008/save_picture_418662.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Mehdi - When Will I Be Famous (2008) Single, 2 Tracks Kleiner Preis [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418031.jpg" />
+  <img src="Z:/picture/008/save_picture_418031.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Thomas Anders - Songs Forever (2006) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417922.jpg" />
+  <img src="Z:/picture/008/save_picture_417922.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Agnetha & Frida - The Voice of ABBA (1994) Compilation [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417771.jpg" />
+  <img src="Z:/picture/008/save_picture_417771.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Gram Rabbit - RadioAngel & the RobotBeat (2007) [MP3|256 Kbps] <Alternative Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417037.jpg" />
+  <img src="Z:/picture/008/save_picture_417037.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Mylene Farmer - Ainsi Soit Je... (1988) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416890.jpg" />
+  <img src="Z:/picture/008/save_picture_416890.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ VA - RTL 2 It's fun - Oktoberfest (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416730.jpg" />
+  <img src="Z:/picture/008/save_picture_416730.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ VA - Die deutschen Disco Charts - Die ultimative Schlager Party (2019) 3CD [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416724.jpg" />
+  <img src="Z:/picture/008/save_picture_416724.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415498.jpg" />
+  <img src="Z:/picture/008/save_picture_415498.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ VA - Acoustic Music (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415492.jpg" />
+  <img src="Z:/picture/008/save_picture_415492.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414870.jpg" />
+  <img src="Z:/picture/008/save_picture_414870.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414481.jpg" />
+  <img src="Z:/picture/008/save_picture_414481.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Love Committee - 2 Albums (1978, 1980) [MP3|320 Kbps] <Funk-Soul, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412895.jpg" />
+  <img src="Z:/picture/008/save_picture_412895.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Ace Of Base - 25 Best Songs (2012) [MP3|320 кб/с]<Pop,Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410800.jpg" />
+  <img src="Z:/picture/008/save_picture_410800.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Ace Of Base - 25 Best Songs (2012) [MP3|320 кб/с]<Pop,Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F96B1D8829D5F31A7B6F37F627EACF3A1114BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066702   (410177) от 27.10.2016
-
-Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, Country Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The American Way
-02. Crown the K1ng (feat. Boots)
-03. College Girls
-04. Interlude (feat. Yung Peavy)(   Читать дальше...   )Жанр: Traditional American Pop, Country PopПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE53776A715B9C8191A2861959B3EF93A1AC150
 ```
 
 https://mybot314.ru/tekegram_catalog/

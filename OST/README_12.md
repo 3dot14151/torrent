@@ -6,7 +6,7 @@ Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602127.jpg" />
+  <img src="Z:/picture/008/save_picture_602127.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король м
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601750.jpg" />
+  <img src="Z:/picture/008/save_picture_601750.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599354.jpg" />
+  <img src="Z:/picture/008/save_picture_599354.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596889.jpg" />
+  <img src="Z:/picture/008/save_picture_596889.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594560.jpg" />
+  <img src="Z:/picture/008/save_picture_594560.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592772.jpg" />
+  <img src="Z:/picture/008/save_picture_592772.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Henry Jackman - Ralph Breaks the Internet / Ральф против интерн
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586254.jpg" />
+  <img src="Z:/picture/008/save_picture_586254.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ OST Трансформеры 3: Тёмная сторона Луны / Transform
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585771.jpg" />
+  <img src="Z:/picture/008/save_picture_585771.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585759.jpg" />
+  <img src="Z:/picture/008/save_picture_585759.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585090.jpg" />
+  <img src="Z:/picture/008/save_picture_585090.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584933.jpg" />
+  <img src="Z:/picture/008/save_picture_584933.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584798.jpg" />
+  <img src="Z:/picture/008/save_picture_584798.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584742.jpg" />
+  <img src="Z:/picture/008/save_picture_584742.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583406.jpg" />
+  <img src="Z:/picture/008/save_picture_583406.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582664.jpg" />
+  <img src="Z:/picture/008/save_picture_582664.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582178.jpg" />
+  <img src="Z:/picture/008/save_picture_582178.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Barry Goldberg & John Philip Shenale - Return of the Living Dead 3 (1993) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581056.jpg" />
+  <img src="Z:/picture/008/save_picture_581056.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572709.jpg" />
+  <img src="Z:/picture/008/save_picture_572709.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечнос�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572371.jpg" />
+  <img src="Z:/picture/008/save_picture_572371.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Mirror's Edge (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572309.jpg" />
+  <img src="Z:/picture/008/save_picture_572309.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Ennio Morricone - Once Upon A Time... (2 CD) (2007) [MP3|320 кб/с]<Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571042.jpg" />
+  <img src="Z:/picture/008/save_picture_571042.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Ramin Djawadi, VA - Game of Thrones / Игра престолов: Season 1-8 (C
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570180.jpg" />
+  <img src="Z:/picture/008/save_picture_570180.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568236.jpg" />
+  <img src="Z:/picture/008/save_picture_568236.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568053.jpg" />
+  <img src="Z:/picture/008/save_picture_568053.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567127.jpg" />
+  <img src="Z:/picture/008/save_picture_567127.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566849.jpg" />
+  <img src="Z:/picture/008/save_picture_566849.jpg" />
 </div>
 
 

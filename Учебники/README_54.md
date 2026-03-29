@@ -1,3 +1,56 @@
+###  Публикация: 1051069   (532580) от 11.09.2016
+
+Ю.А. Куликов | Переходные процессы в электрических системах (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены физические основы протекания электромагнитных и электромеханических переходных процессов в электрических системах. Приведены методы анализа токов короткого замыкания и устойчивости электрических систем, которые проиллюстрированы примерами расчета.
+Учебное пособие соответствует требованиям Государственного образовательного стандарта высшего профессионального (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86D68BEB1D2184981E8BD015A10C94312E62C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311919   (532461) от 04.07.2019
+
+В.Н. Острецов, А.В. Палицын | Электропривод и электрооборудование. Учебник и практикум (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532461.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике излагаются вопросы использования электроприводов и электрооборудования в сельскохозяйственном производстве. Первая часть описывает теоретические основы, устройство и принципы работы электрических двигателей, примеры их подбора для различных условий использования. Рассмотрены аварийные режимы работы электрооборудования, устройство, принципы работы и выбор (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A43DEBD2127DC267789F3F07A6AF8567B695AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311927   (532369) от 04.07.2019
 
 И.Г. Гниденко и др. | Технология разработки программного обеспечения (2019) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532369.jpg" />
+  <img src="Z:/picture/008/save_picture_532369.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532128.jpg" />
+  <img src="Z:/picture/008/save_picture_532128.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531623.jpg" />
+  <img src="Z:/picture/008/save_picture_531623.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531618.jpg" />
+  <img src="Z:/picture/008/save_picture_531618.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531369.jpg" />
+  <img src="Z:/picture/008/save_picture_531369.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528162.jpg" />
+  <img src="Z:/picture/008/save_picture_528162.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528116.jpg" />
+  <img src="Z:/picture/008/save_picture_528116.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528032.jpg" />
+  <img src="Z:/picture/008/save_picture_528032.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528016.jpg" />
+  <img src="Z:/picture/008/save_picture_528016.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527310.jpg" />
+  <img src="Z:/picture/008/save_picture_527310.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527264.jpg" />
+  <img src="Z:/picture/008/save_picture_527264.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526959.jpg" />
+  <img src="Z:/picture/008/save_picture_526959.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526947.jpg" />
+  <img src="Z:/picture/008/save_picture_526947.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525901.jpg" />
+  <img src="Z:/picture/008/save_picture_525901.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524644.jpg" />
+  <img src="Z:/picture/008/save_picture_524644.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524605.jpg" />
+  <img src="Z:/picture/008/save_picture_524605.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524603.jpg" />
+  <img src="Z:/picture/008/save_picture_524603.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524193.jpg" />
+  <img src="Z:/picture/008/save_picture_524193.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524176.jpg" />
+  <img src="Z:/picture/008/save_picture_524176.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523375.jpg" />
+  <img src="Z:/picture/008/save_picture_523375.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523374.jpg" />
+  <img src="Z:/picture/008/save_picture_523374.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523370.jpg" />
+  <img src="Z:/picture/008/save_picture_523370.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521768.jpg" />
+  <img src="Z:/picture/008/save_picture_521768.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521761.jpg" />
+  <img src="Z:/picture/008/save_picture_521761.jpg" />
 </div>
 
 
@@ -621,60 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27A36A4CB6487F5424B05D98075B9A4ABA6B64B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928530   (521759) от 17.08.2015
-
-Б.А. Никольский | Основы радиотехнических систем (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521759.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрены общие сведения о радиотехнических системах, основные методы радионавигационных измерений, методы формирования, передачи и приёма радиосигналов, несущих информацию, приведены примеры технической реализации различных систем.
- В тексте использован относительно простой математический аппарат и главное внимание обращено на физическую сторону рассматриваемых (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29629E02378AED18D8FF78C49FC16FE42BFCA5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928506   (521758) от 17.08.2015
-
-А.И. Меркулов, В.А. Меркулов | Основы конструирования интегральных микросхем (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные аспекты возникновения и развития микроэлектроники. Дается представление об уровне современной микроэлектроники, ее методах, средствах, проблемах и перспективах. Обосновывается выбор материалов и конструкций тонкопленочных, толстопленочных, гибридных и полупроводниковых интегральных микросхем.
- Рассмотрены методы проектирования и расчета конструктивных (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39C2C8E4C036C6003D747C1CE664323FE65D18F
 ```
 
 https://mybot314.ru/tekegram_catalog/

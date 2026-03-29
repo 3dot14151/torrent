@@ -6,7 +6,7 @@ MacFamilyTree 8.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757458.jpg" />
+  <img src="Z:/picture/008/save_picture_757458.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sketch 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757453.jpg" />
+  <img src="Z:/picture/008/save_picture_757453.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Gemini 2: The Duplicate Finder 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757371.jpg" />
+  <img src="Z:/picture/008/save_picture_757371.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Coda 2.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757205.jpg" />
+  <img src="Z:/picture/008/save_picture_757205.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ PhoneRescue for iOS 3.7.2.20190129 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757090.jpg" />
+  <img src="Z:/picture/008/save_picture_757090.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757081.jpg" />
+  <img src="Z:/picture/008/save_picture_757081.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Viper FTP 6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757034.jpg" />
+  <img src="Z:/picture/008/save_picture_757034.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Smooze Pro 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757033.jpg" />
+  <img src="Z:/picture/008/save_picture_757033.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ SQLPro for SQLite 2022.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757031.jpg" />
+  <img src="Z:/picture/008/save_picture_757031.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Feeder 4 v4.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757030.jpg" />
+  <img src="Z:/picture/008/save_picture_757030.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ IconJar 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757029.jpg" />
+  <img src="Z:/picture/008/save_picture_757029.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Permute 3 v3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757027.jpg" />
+  <img src="Z:/picture/008/save_picture_757027.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Get Backup Pro 3.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756981.jpg" />
+  <img src="Z:/picture/008/save_picture_756981.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Dropshare 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756977.jpg" />
+  <img src="Z:/picture/008/save_picture_756977.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Delicious Library 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756970.jpg" />
+  <img src="Z:/picture/008/save_picture_756970.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Data Guardian 7 v7.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756900.jpg" />
+  <img src="Z:/picture/008/save_picture_756900.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ XCOrganizer 1.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756899.jpg" />
+  <img src="Z:/picture/008/save_picture_756899.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Animated Wallpapers 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756895.jpg" />
+  <img src="Z:/picture/008/save_picture_756895.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bigasoft Audio Converter for Mac 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756892.jpg" />
+  <img src="Z:/picture/008/save_picture_756892.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Downie 4 v4.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756891.jpg" />
+  <img src="Z:/picture/008/save_picture_756891.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Bigasoft Total Video Converter for Mac 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756884.jpg" />
+  <img src="Z:/picture/008/save_picture_756884.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ AnyToISO Pro 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756794.jpg" />
+  <img src="Z:/picture/008/save_picture_756794.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VideoProc Converter 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756781.jpg" />
+  <img src="Z:/picture/008/save_picture_756781.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Infuse PRO 7 v7.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756779.jpg" />
+  <img src="Z:/picture/008/save_picture_756779.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ OmniPlayer Pro - Media Player 1.4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756776.jpg" />
+  <img src="Z:/picture/008/save_picture_756776.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VideoProc Converter 4K 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756771.jpg" />
+  <img src="Z:/picture/005/save_picture_756771.jpg" />
 </div>
 
 

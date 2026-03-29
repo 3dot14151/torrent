@@ -1,3 +1,81 @@
+###  Публикация: 1229351   (628223) от 05.06.2018
+
+Ксения Козлова | Святая Екатерина Сиенская – Лилия Христа Воскресшего (2018) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святая Екатерина Сиенская (1347 — 1380 гг.) — выдающаяся деятельница Церкви в позднесредневековой Италии, мистик, визионерка, духовная наставница и писательница, оказывавшая сильнейшее влияние на современников. Одна из четырех женщин, удостоенных высокого звания «Учителя Церкви».Жанр: ЖитиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F90A6B79F8374B2A88B8AE8BE9C333208014D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229204   (628221) от 05.06.2018
+
+Монастырь св. равноапостольной Марии Магдалины (изд.) | Рассказ о ковчеге со святыми мощами преподобномучениц великой княгини Елисаветы и инокини Варвары, прибывшем в Россию со Святой Земли [PDF, D ...
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о ковчеге со святыми мощами преподобномучениц великой княгини Елисаветы и инокини Варвары, прибывшем в Россию со Святой Земли - это простое изложение более или менее известных событий и комментарий к графике и живописи, нанесённых на серебряном и эмалевом украшении ковчега. Мы сочли уместным привести некоторые документы в их подлинном историческом виде - (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77387D1364F7E9D0BE5CC2C1E46AC6C1CE99E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229354   (628219) от 05.06.2018
+
+Преподобный Ефрем Сирин | Отречение от мира (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628219.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Столп Церкви, великий отец и вселенский учитель, пророк сирийский, солнце сирийское, духовный философ и глубокий учёный, витийственные уста и цитра Святого Духа» — так возвышенно отзывается о святом преподобном Ефреме Сирине его современник, святитель Григорий Нисский. В чтении его творений с древности и до наших дней православные люди, стремящиеся к духовному преуспеянию, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BA67FE7DB26DD7017BF9164CB3A006C9ED28D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229238   (628211) от 05.06.2018
 
 Епископ Митрофан (Баданин) | Духовные истоки русской революции (2018) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628211.jpg" />
+  <img src="Z:/picture/008/save_picture_628211.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628188.jpg" />
+  <img src="Z:/picture/008/save_picture_628188.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626404.jpg" />
+  <img src="Z:/picture/008/save_picture_626404.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626403.jpg" />
+  <img src="Z:/picture/008/save_picture_626403.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626399.jpg" />
+  <img src="Z:/picture/008/save_picture_626399.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626395.jpg" />
+  <img src="Z:/picture/008/save_picture_626395.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626291.jpg" />
+  <img src="Z:/picture/008/save_picture_626291.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626281.jpg" />
+  <img src="Z:/picture/008/save_picture_626281.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625790.jpg" />
+  <img src="Z:/picture/008/save_picture_625790.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624753.jpg" />
+  <img src="Z:/picture/008/save_picture_624753.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624580.jpg" />
+  <img src="Z:/picture/008/save_picture_624580.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624329.jpg" />
+  <img src="Z:/picture/008/save_picture_624329.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624327.jpg" />
+  <img src="Z:/picture/008/save_picture_624327.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624318.jpg" />
+  <img src="Z:/picture/008/save_picture_624318.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624065.jpg" />
+  <img src="Z:/picture/008/save_picture_624065.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623958.jpg" />
+  <img src="Z:/picture/008/save_picture_623958.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623947.jpg" />
+  <img src="Z:/picture/008/save_picture_623947.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623855.jpg" />
+  <img src="Z:/picture/008/save_picture_623855.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622713.jpg" />
+  <img src="Z:/picture/008/save_picture_622713.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622590.jpg" />
+  <img src="Z:/picture/008/save_picture_622590.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621094.jpg" />
+  <img src="Z:/picture/008/save_picture_621094.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621084.jpg" />
+  <img src="Z:/picture/008/save_picture_621084.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621081.jpg" />
+  <img src="Z:/picture/008/save_picture_621081.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A432F09902339657542CA04084DDDAFEE75C3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229926   (620965) от 09.06.2018
-
-О.В. Косик | «Кто нас разлучит от любви Божией?» Книга о священноисповеднике епископе Афанасии Ковровском : с приложением полного текста службы Всем святым, в земле Русской просиявшим (2017) [PDF,  ...
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620965.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Русь, Святая Русь, храни веру Православную...» — эти слова из стихиры службы Всем святым, в земле Русской просиявшим, не оставят равнодушным ни одного верующего человека. Составитель этой службы — епископ Ковровский Афанасий (Сахаров) — один из великих святителей нашего времени, которого не миновала ни одна из бурь, обрушившихся на Церковь в XX веке. Соратник патриарха (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6391EEB97C30EC3F1976DF36DA25ED683FA20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230024   (620773) от 09.06.2018
-
-Александр Павлович Лопухин | Толковая Библия [7 Томов] (2009) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется богословский труд, комментарий на все книги Святого Писания Ветхого и Нового Завета под редакцией профессора-библеиста Александра Павловича Лопухина.Жанр: БиблеистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423788C7AB49E752570A7A7BEA8757E7E72E6CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910706   (620365) от 21.06.2015
-
-Бахаулла | Китаб-и Икан (2001) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отечественному читателю впервые предлагается академический перевод с персидского языка на русский одного из основополагающих Писаний религии Ба-хаи — `Китаб-и Йкан`. Зародившись в XIX в., эта религия уступает по географической распространенности в мире лишь христианству. Общины Бахаи имелись в царской России и в СССР, где прекратили свое существование к 1938 г., (   Читать дальше...   )Жанр: Религиоведение, История религийПеревод: Ю. А. ИоаннесянФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B340F2E095B6F05D53E03E9EEE4CE5EEE20DC83
 ```
 
 https://mybot314.ru/tekegram_catalog/

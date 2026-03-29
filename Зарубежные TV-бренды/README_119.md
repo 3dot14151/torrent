@@ -1,3 +1,109 @@
+###  Публикация: 1688436   (125199) от 29.12.2023
+
+NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один знаменательный день, пять исторических героев и пять моментов высадки союзников в день «Д» - это те события, которые вы увидите глазами тех, кто принимал в то время критически важные решения. С помощью редких архивных материалов, драматических реконструкций тех событий, письменных свидетельств очевидцев и личных впечатлений пяти героев, вы впервые увидите День (   Читать дальше...   )Производство: Великобритания / RARE TV LTD, National GeographicЖанр: документальный, историяРежиссер: Хэрвард ПэллингПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EC919F1236AA030672730FEC26F0053BF35D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678590   (122819) от 15.01.2024
+
+Discovery: Паранормальная Ирландия / Spooked: Ireland (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) [VO]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вог Уильямс представляет документальный сериал о расследованиях паранормальных явлений. Бывшая модель, а ныне ведущая, возглавляет команду экспертов по паранормальным явлениям, исследующих самые известные паранормальные места Ирландии.Производство: Великобритания, Discovery+, Tern TelevisionЖанр: документальный, история, сверхъестественноеРежиссер: Рут Малкахи, Крис МакМилланУчастники: Вог Уильямс, Крис Флеминг, Эвелин Холлоу, Райан О’НиллПеревод: Одноголосый любительскийЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA1CD62C564F715FE2F81E63E9A1620D1FF4C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509796   (121791) от 21.01.2024
+
+Ангар-1: Архив НЛО / Hangar 1: The UFO Files (2015) WEB-DL [H.264/1080p] (сезон 2, серии 1-12 из 12)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная в 1969 году Всеобщая организация наблюдения за НЛО (MUFON) сегодня имеет свои представительства в 42 странах мира. В архиве MUFON — более 300 000 документов, связанных с НЛО. Все документы хранятся на закрытом для посторонних складе в Огайо, известном как «Ангар-1».
+Организация предоставила телеканалу неограниченный доступ в Ангар-1 ко всем хранящимся там (   Читать дальше...   )Производство: США, Go Go Luckey Productions, A&E Television Networks, LLC.Жанр: Документальный, история, расследованиеРежиссер: Джули Ауэрбах, Генри КапаннаУчастники: Дуайт Эквиц, Ян Харзан, Корнелл ВомакПеревод: Многоголосый профессиональный (H2)Субтитры: отсутствуютПродолжительность: серии x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75494E7E31F1D618A64A8ED3616D08426C4AFE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509795   (121787) от 21.01.2024
+
+Ангар-1: Архив НЛО / Hangar 1: The UFO Files (2014) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная в 1969 году Всеобщая организация наблюдения за НЛО (MUFON) сегодня имеет свои представительства в 42 странах мира. В архиве MUFON — более 300 000 документов, связанных с НЛО. Все документы хранятся на закрытом для посторонних складе в Огайо, известном как «Ангар-1».
+Организация предоставила телеканалу неограниченный доступ в Ангар-1 ко всем хранящимся там (   Читать дальше...   )Производство: США, Go Go Luckey Productions, A&E Television Networks, LLC.Жанр: Документальный, история, расследованиеРежиссер: Джули Ауэрбах, Генри КапаннаУчастники: Дуайт Эквиц, Ян Харзан, Корнелл ВомакПеревод: Многоголосый профессиональный (H2)Субтитры: отсутствуютПродолжительность: серии x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA11400155C69517836BDAFEA9C3DA2A30CA42EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823119   (117625) от 10.10.2025
 
 Взлом кодов / Cracking the Code (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
@@ -6,7 +112,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117625.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116954.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Discovery: Войны нашего столетия / The Century of Warfare (19
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116807.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ BBC: Семь периодов жизни звезды / Seven Ages of Starlight
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116768.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116765.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116305.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116283.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ History Channel. Как создавались империи / Engineering an E
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114757.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104030.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101689.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101683.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98561.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96091.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94499.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90484.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88912.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88855.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ History Channel: Секреты языка тела / Secrets of Body Language (
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87818.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87814.jpg" />
 </div>
 
 
@@ -513,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87555.jpg" />
 </div>
 
 
@@ -539,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87553.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87146.jpg" />
 </div>
 
 
@@ -576,112 +682,6 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477620   (86992) от 07.04.2012
-
-BBC: Век эгоизма. Часть 4 – Вся власть Хомячкам / The Century of the Self. Part 4 - Eight people sipping wine in Kettering (2002) TVRip (2002) TVRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86992.jpg" />
-</div>
-
-
-###  Подробнее
-
-О фильме:
-Это история о становлении идеи, которая стала доминирующей в нашем обществе. Идеи о том, что самое главное в жизни – удовлетворение своих желаний. В предыдущих эпизодах было показано, как бизнес сформировал и развил в обществе идею удовлетворения неосознанных желаний. Он использовал идеи Зигмунда Фрейда для разработки методов выявления скрытых желаний потребителей, и затем начал удовлетворять эти желания, предлагая соответствующие товары. В завершающем эпизоде мы расскажем о том, как идея эгоизма стала доминировать в политике. В нем рассказывается история о том, как левые политики в Америке и Великобритании обратились к этим методам, чтобы вернуть себе власть. Они верили, что создают новые и лучшие формы демократии, которая действительно отражает чаяния людей. Но они не понимали, что целью тех, кто создавал эти методы, было не освобождение людей, а создание новых средств их контроля в эпоху массовой демократии.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: нетПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356092D8AF308F04D3F31E970C78BA97E4E1EFF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475186   (86558) от 05.04.2012
-
-NG: Забытый соперник Египта / Egypt's lost rival (2010) IPTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Археологи воссоздают историю древнего города-государства Катна, некогда существовавшего на границе с Древним Египтом и остававшегося забытым более трех тысяч лет.Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0736B788E8666F06B7C1E8BAAA8E108B82C1396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475897   (85393) от 30.03.2012
-
-Загадки истории. Большая история НЛО. Вторжение пришельцев  (2012) SATRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадки истории. Большая история НЛО. Вторжение пришельцев
-Фильм расскажет нам о наиболее загадочных случаях, связанных с инопланетянами. Мы попробуем разобраться со многими аспектами изучения НЛО, ведь трудно судить о том, что в большинстве случаев даже не видел, о том какую роль играют инопланетяне в жизни человечества.Жанр: ДокументальныйПеревод: РусскийПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40644FDD790E6EC01EF06E47DAB0CB42B89DB965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475498   (85308) от 30.03.2012
-
-BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2010) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взаимоотношения человека с собакой воистину уникальны. Ни с одним животным на планете нам не удается контактировать более тесно. В настоящее время исследования в области кинологии набирают все большие обороты. Подвергаясь многочисленным исследованиям, собаки стремительно обретают славу шимпанзе, помогая человеку более глубоко познать самого себя. Но откуда появилась такая непреодолимая тяга человека к собаке? Шведским ученым удалось дать ответ на этот вопрос. Оказывается, наши отношения с собаками контролируются сильнейшим гормоном, схожим на тот, что отвечает за связь между матерью и младенцем. Но как собакам так хорошо удается читать наши мысли? Съемочная группа «Горизонт» приветствует Бетси, пожалуй, - самую умную собаку на планете, для того, чтобы сравнить ее умственные способности с детским интеллектом. Совсем недавно нашему лучшему другу удалось совершить еще один шаг вперед, - собаки научились выявлять гены, ответственные за человеческие болезни.Жанр: ДокументальныйПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

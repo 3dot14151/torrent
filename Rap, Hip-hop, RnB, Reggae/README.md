@@ -7,7 +7,7 @@ VA - Chillhop Essentials Spring (2026) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060469.jpg" />
+  <img src="Z:/picture/009/save_picture_1060469.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060339.jpg" />
+  <img src="Z:/picture/009/save_picture_1060339.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Gnarls Barkley - Atlanta (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Alter
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060251.jpg" />
+  <img src="Z:/picture/009/save_picture_1060251.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Bruno Mars - The Romantic (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Funk , Sou
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059080.jpg" />
+  <img src="Z:/picture/005/save_picture_1059080.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059070.jpg" />
+  <img src="Z:/picture/005/save_picture_1059070.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058794.jpg" />
+  <img src="Z:/picture/005/save_picture_1058794.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Mozzy - Not A Chance In Hell (2026) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058109.jpg" />
+  <img src="Z:/picture/005/save_picture_1058109.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Johnyboy - Холод 2 (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057451.jpg" />
+  <img src="Z:/picture/005/save_picture_1057451.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ TLC - Ooooooohhh…On the TLC T (1992) [FLAC|Lossless|tracks + .cue] <R&B, Funk 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057295.jpg" />
+  <img src="Z:/picture/005/save_picture_1057295.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The English Beat - Special Beat Service (1986) [FLAC|Lossless|tracks + .cue] <Re
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057294.jpg" />
+  <img src="Z:/picture/005/save_picture_1057294.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Icegergert - Глаз Бога (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057152.jpg" />
+  <img src="Z:/picture/005/save_picture_1057152.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056977.jpg" />
+  <img src="Z:/picture/005/save_picture_1056977.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052972.jpg" />
+  <img src="Z:/picture/005/save_picture_1052972.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Oxxxymiron - Национальность: нет (2025) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049026.jpg" />
+  <img src="Z:/picture/008/save_picture_1049026.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Oxxxymiron - Национальность: нет (2025) [FLAC 24/48|Lossless|WE
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049025.jpg" />
+  <img src="Z:/picture/008/save_picture_1049025.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048156.jpg" />
+  <img src="Z:/picture/008/save_picture_1048156.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048136.jpg" />
+  <img src="Z:/picture/008/save_picture_1048136.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048135.jpg" />
+  <img src="Z:/picture/008/save_picture_1048135.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Chillhop Essentials Winter (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047421.jpg" />
+  <img src="Z:/picture/005/save_picture_1047421.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Noize MC - Алхимия (2025) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047411.jpg" />
+  <img src="Z:/picture/005/save_picture_1047411.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Noize MC - Алхимия (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hi
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047410.jpg" />
+  <img src="Z:/picture/005/save_picture_1047410.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046976.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046975.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046425.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1046316.jpg" />
+  <img src="Z:/picture/005/save_picture_1046316.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046021.jpg" />
 </div>
 
 

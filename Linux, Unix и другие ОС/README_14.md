@@ -1,3 +1,55 @@
+###  Публикация: 1295011   (620083) от 12.04.2019
+
+OpenVPN Access Server 2.6.1 [En]
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620083.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenVPN Access Server (OpenVPN-AS) это набор инструментов для установки и настройки, которые упрощают быстрое развертывание VPN-сервера удаленного доступа. Он основывается на популярном программном обеспечении с открытым исходным кодом OpenVPN, позволяя работать с настроенным VPN-сервером при помощи кроссплатформенного клиентского ПО.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2B00F2A2710A0D5D7243C3D70340585B66B833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910869   (619959) от 21.06.2015
+
+Mageia 5 Cauldron [i586] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619959.jpg" />
+</div>
+
+
+###  Подробнее
+
+После года разработки доступен релиз Linux-дистрибутива Mageia 5, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), универсальная DVD-сборка (1 Гб), минималистичный образ для установки по сети (40 Мб) и набор Live-сборок на базе GNOME и KDE с различными наборами локализации. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DEE83BCFB324BE4B11BB90D803747A876B57EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910867   (619621) от 21.06.2015
 
 Mageia 5 Cauldron [x86-64] 1xDVD
@@ -6,7 +58,7 @@ Mageia 5 Cauldron [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619621.jpg" />
+  <img src="Z:/picture/008/save_picture_619621.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mageia 5 Cauldron Live [i586, x86-64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619615.jpg" />
+  <img src="Z:/picture/008/save_picture_619615.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ OpenVMS 8.4 [Alpha] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617439.jpg" />
+  <img src="Z:/picture/008/save_picture_617439.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Solus Linux (Budgie DE) 2017.04.18.0 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614324.jpg" />
+  <img src="Z:/picture/008/save_picture_614324.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Sabayon 17.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612649.jpg" />
+  <img src="Z:/picture/008/save_picture_612649.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Maplesoft Maple 2017.1a Build 1238644 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612533.jpg" />
+  <img src="Z:/picture/008/save_picture_612533.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Debian 9.0.0 [amd64] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609183.jpg" />
+  <img src="Z:/picture/008/save_picture_609183.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ PCLinuxOS 2017.06.20 (LXDE, MATE, XFCE, KDE) [x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609066.jpg" />
+  <img src="Z:/picture/008/save_picture_609066.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Linux Mint 18.2 Sonya (KDE, XFCE, Mate, Cinnamon) [32bit] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607191.jpg" />
+  <img src="Z:/picture/008/save_picture_607191.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Ctlos Linux Openbox/i3 v2.1 — iso образ, основанный на Arch L
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604012.jpg" />
+  <img src="Z:/picture/008/save_picture_604012.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Proxmox VE 5.0 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603807.jpg" />
+  <img src="Z:/picture/008/save_picture_603807.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Debian GNU/Linux 9.8.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601827.jpg" />
+  <img src="Z:/picture/008/save_picture_601827.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ OpenMandriva Lx 2014.2 [i586, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600981.jpg" />
+  <img src="Z:/picture/008/save_picture_600981.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Parrot Security OS Full Edition 1.9 [amd64] ISO
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600921.jpg" />
+  <img src="Z:/picture/008/save_picture_600921.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Debian GNU/Linux 9.9.0 + nonfree 9.9 [amd64] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600704.jpg" />
+  <img src="Z:/picture/008/save_picture_600704.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599473.jpg" />
+  <img src="Z:/picture/008/save_picture_599473.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ PDF Studio Pro 11.0.7 (13.04.17) [x86, amd64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597864.jpg" />
+  <img src="Z:/picture/008/save_picture_597864.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ Komodo Edit 10-2.2.17703 [x86, amd64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596327.jpg" />
+  <img src="Z:/picture/008/save_picture_596327.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Sabayon 15.07 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596293.jpg" />
+  <img src="Z:/picture/008/save_picture_596293.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Tor Browser for Linux 4.5.3 [x86/x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596103.jpg" />
+  <img src="Z:/picture/008/save_picture_596103.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ JonDo 0.9.83 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591375.jpg" />
+  <img src="Z:/picture/008/save_picture_591375.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586867.jpg" />
+  <img src="Z:/picture/008/save_picture_586867.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ KolibriOS 0.7.7.0 [i386] (2xCD)
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584685.jpg" />
+  <img src="Z:/picture/008/save_picture_584685.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ Microsoft Office 2007 Professional Plus SP3 12.0.6607.1000 Repack The Hacker [x8
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582558.jpg" />
+  <img src="Z:/picture/008/save_picture_582558.jpg" />
 </div>
 
 
@@ -642,59 +694,6 @@ Microsoft Office Профессиональный 2007 — исчерпываю�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EBA392C3B4828FE112741ACAC838C4A062AC8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920407   (580007) от 22.07.2015
-
-Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен Calculate Linux Desktop MATE (CLDM), третий десктоп в семействе Calculate Linux, предоставляющий полноценное рабочее место для применения, как в офисе, так и дома. Дистрибутив обратно совместим с Gentoo и кроме портежей использует общие репозитории Calculate Linux, которые на сегодняшний день насчитывают 2000 бинарных пакетов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94698E3F8F20796B41C99067822479E2CB2AEA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919537   (579851) от 22.07.2015
-
-Chromixium 1.5 [i386] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел стабильный выпуск проекта Chromixium, в рамках которого развивается Linux-дистрибутив, похожий по оформлению и принципам работы на ChromeOS, но основанный на пакетной базе Ubuntu Linux и позволяющий использовать все приложения из репозиториев Ubuntu 14.04 LTS наряду со свойственными ChromeOS web-приложениями.
-Из доступных в Chromixium 1.5 возможностей отмечается (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6650829A1F83F0CAAAA0F401FB2A7B6350827A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Macrorit Partition Expert 5.8.5 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798377.jpg" />
+  <img src="Z:/picture/008/save_picture_798377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CPUID HWMonitor 1.45 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798372.jpg" />
+  <img src="Z:/picture/008/save_picture_798372.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ESET NOD32 Internet Security 15.0.18.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798335.jpg" />
+  <img src="Z:/picture/008/save_picture_798335.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Edge 95.0.1020.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798277.jpg" />
+  <img src="Z:/picture/008/save_picture_798277.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Firefox Browser 94.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798276.jpg" />
+  <img src="Z:/picture/008/save_picture_798276.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Opera GX 80.0.4170.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798268.jpg" />
+  <img src="Z:/picture/008/save_picture_798268.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Opera 81.0.4196.31 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798266.jpg" />
+  <img src="Z:/picture/008/save_picture_798266.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ PDFsam Basic 4.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798263.jpg" />
+  <img src="Z:/picture/008/save_picture_798263.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ reaConverter Pro 7.683 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798261.jpg" />
+  <img src="Z:/picture/008/save_picture_798261.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Acoustica Premium Edition 7.3.22 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798260.jpg" />
+  <img src="Z:/picture/008/save_picture_798260.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Telegram Desktop 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798251.jpg" />
+  <img src="Z:/picture/008/save_picture_798251.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Mozilla FireFox 94.0.1.7977 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798250.jpg" />
+  <img src="Z:/picture/008/save_picture_798250.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ FinePrint Software (FinePrint 11.04 / pdfFactory Pro 8.04) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798241.jpg" />
+  <img src="Z:/picture/008/save_picture_798241.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Visual Studio Code 1.62.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798234.jpg" />
+  <img src="Z:/picture/008/save_picture_798234.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PowerISO 8.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798222.jpg" />
+  <img src="Z:/picture/008/save_picture_798222.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Total Commander 10.00 Extended 21.11 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798198.jpg" />
+  <img src="Z:/picture/008/save_picture_798198.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Caramba Switcher + Corporate + Lab 2021.04.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798194.jpg" />
+  <img src="Z:/picture/008/save_picture_798194.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ K-Lite Codec Pack Update 16.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798129.jpg" />
+  <img src="Z:/picture/008/save_picture_798129.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Auburn Sounds - Panagement 2 2.4.0 (FULL) VST, VST3, AAX (x86/x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798113.jpg" />
+  <img src="Z:/picture/008/save_picture_798113.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ R-Wipe & Clean 20.0.2336 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798101.jpg" />
+  <img src="Z:/picture/008/save_picture_798101.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Streamlabs OBS 1.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798095.jpg" />
+  <img src="Z:/picture/008/save_picture_798095.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ SiSoftware Sandra Lite 2021.11.31.53 (R8 31.53) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798094.jpg" />
+  <img src="Z:/picture/008/save_picture_798094.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Adobe Character Animator 2022 22.0.0.111 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798089.jpg" />
+  <img src="Z:/picture/008/save_picture_798089.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ StartAllBack 3.0.5 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798075.jpg" />
+  <img src="Z:/picture/008/save_picture_798075.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Ventoy 1.0.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798065.jpg" />
+  <img src="Z:/picture/008/save_picture_798065.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ StartAllBack 3.0.5 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798057.jpg" />
+  <img src="Z:/picture/008/save_picture_798057.jpg" />
 </div>
 
 

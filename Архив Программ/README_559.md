@@ -6,7 +6,7 @@ GPU-Z 1.19.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768750.jpg" />
+  <img src="Z:/picture/008/save_picture_768750.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2016 Standard 16.0.4666.1000 (2018.03) RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768725.jpg" />
+  <img src="Z:/picture/008/save_picture_768725.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Scanitto Pro 3.16.1 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768722.jpg" />
+  <img src="Z:/picture/008/save_picture_768722.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Internet Download Manager 6.28 Build 6 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768716.jpg" />
+  <img src="Z:/picture/008/save_picture_768716.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4666.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768714.jpg" />
+  <img src="Z:/picture/008/save_picture_768714.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cumulative Update KB4015219 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768652.jpg" />
+  <img src="Z:/picture/008/save_picture_768652.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cumulative Update KB4015221 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768651.jpg" />
+  <img src="Z:/picture/008/save_picture_768651.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768647.jpg" />
+  <img src="Z:/picture/008/save_picture_768647.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Soft Organizer 6.07 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768596.jpg" />
+  <img src="Z:/picture/008/save_picture_768596.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Universal-dvd 1.0 - Сборка популярных liveCD + Windows XP [Ру�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768578.jpg" />
+  <img src="Z:/picture/008/save_picture_768578.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_768567.jpg" />
+  <img src="Z:/picture/005/save_picture_768567.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Adobe components: Flash Player 25.0.0.148 + AIR 25.0.0.134 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768517.jpg" />
+  <img src="Z:/picture/008/save_picture_768517.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Cumulative Update KB4015217 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768515.jpg" />
+  <img src="Z:/picture/008/save_picture_768515.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Cumulative Update KB4015583 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768511.jpg" />
+  <img src="Z:/picture/008/save_picture_768511.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ FileZilla 3.40.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768476.jpg" />
+  <img src="Z:/picture/008/save_picture_768476.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768455.jpg" />
+  <img src="Z:/picture/008/save_picture_768455.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ TNod User & Password Finder 1.6.2 Beta 2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768454.jpg" />
+  <img src="Z:/picture/008/save_picture_768454.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768446.jpg" />
+  <img src="Z:/picture/008/save_picture_768446.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ PrivaZer 4.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768432.jpg" />
+  <img src="Z:/picture/008/save_picture_768432.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Glary Utilities Pro 5.145.0.171 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768430.jpg" />
+  <img src="Z:/picture/008/save_picture_768430.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Firefox Browser ESR 78.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768426.jpg" />
+  <img src="Z:/picture/008/save_picture_768426.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Any Video Converter Professional 7.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768421.jpg" />
+  <img src="Z:/picture/008/save_picture_768421.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Master PDF Editor 5.3.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768405.jpg" />
+  <img src="Z:/picture/008/save_picture_768405.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Malwarebytes Anti-Malware Premium 3.0.6.1469 DC 14.04.2017 RePack by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768395.jpg" />
+  <img src="Z:/picture/008/save_picture_768395.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ FireAlpaca 2.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768371.jpg" />
+  <img src="Z:/picture/008/save_picture_768371.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Firefox Browser 78.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768367.jpg" />
+  <img src="Z:/picture/008/save_picture_768367.jpg" />
 </div>
 
 

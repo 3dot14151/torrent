@@ -6,7 +6,7 @@ SSH Config Editor Pro 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790669.jpg" />
+  <img src="Z:/picture/008/save_picture_790669.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Carbon Copy Cloner 5 v5.1.18 (build 6009) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790665.jpg" />
+  <img src="Z:/picture/008/save_picture_790665.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ GPU Caps Viewer 1.45.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790656.jpg" />
+  <img src="Z:/picture/008/save_picture_790656.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Celemony Melodyne Studio 5 v5.0.1.003 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790653.jpg" />
+  <img src="Z:/picture/008/save_picture_790653.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Firefox Browser 77.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790652.jpg" />
+  <img src="Z:/picture/008/save_picture_790652.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AntiPlagiarism.NET 4.95.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790630.jpg" />
+  <img src="Z:/picture/008/save_picture_790630.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ iMazing 2.11.6 (build 13688) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790624.jpg" />
+  <img src="Z:/picture/008/save_picture_790624.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ CCleaner Browser 81.1.4223.141 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790620.jpg" />
+  <img src="Z:/picture/008/save_picture_790620.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Embarcadero RAD Studio 10.4 Sydney Architect 27.0.37889.9797 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790594.jpg" />
+  <img src="Z:/picture/008/save_picture_790594.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ TeamViewer 15.6.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790584.jpg" />
+  <img src="Z:/picture/008/save_picture_790584.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790562.jpg" />
+  <img src="Z:/picture/008/save_picture_790562.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Robert Rich - Live At The Gatherings 2015 (2017) Industry8 [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790556.jpg" />
+  <img src="Z:/picture/008/save_picture_790556.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Macgo Mac Blu-ray Player Pro 3.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790541.jpg" />
+  <img src="Z:/picture/008/save_picture_790541.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mozilla Thunderbird 52.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790525.jpg" />
+  <img src="Z:/picture/008/save_picture_790525.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Renamer 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790514.jpg" />
+  <img src="Z:/picture/008/save_picture_790514.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790503.jpg" />
+  <img src="Z:/picture/008/save_picture_790503.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ PullTube 0.11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790496.jpg" />
+  <img src="Z:/picture/008/save_picture_790496.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_790492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790492.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Wondershare Filmora 9.0.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790485.jpg" />
+  <img src="Z:/picture/008/save_picture_790485.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ LaunchBar 6.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790483.jpg" />
+  <img src="Z:/picture/008/save_picture_790483.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ $uicideboy$ - I Want To Die In New Orleans (2018) [FLAC|Lossless|Web-DL|tracks] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790480.jpg" />
+  <img src="Z:/picture/008/save_picture_790480.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Joey Purp - Quarterthing (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790479.jpg" />
+  <img src="Z:/picture/008/save_picture_790479.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790466.jpg" />
+  <img src="Z:/picture/008/save_picture_790466.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Coolmuster iOS Assistant 2.0.134 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790460.jpg" />
+  <img src="Z:/picture/008/save_picture_790460.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ YouTube By Click Premium 2.2.78 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790454.jpg" />
+  <img src="Z:/picture/008/save_picture_790454.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790442.jpg" />
+  <img src="Z:/picture/008/save_picture_790442.jpg" />
 </div>
 
 

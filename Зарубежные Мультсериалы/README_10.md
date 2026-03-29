@@ -1,3 +1,55 @@
+###  Публикация: 999830   (858743) от 25.03.2016
+
+Приключения Тайо / Tayo: The Little Bus (2010-2014) WEB-DLRip (сезон 1-2, серии 1-52 из 52)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_858743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайо - маленький синий автобус, который только начинает свою жизнь в большом городе. Он уже выучил ПДД, а теперь предстоит успешно сдать тест, прежде чем выехать на оживленные улицы и взять на себя ответственность за пассажиров. В автошколе он знакомится с желтым такси Нури, грузовичком Вруми, гоночной машинкой Спиди и другими участниками движения, которые также (   Читать дальше...   )Производство: Южная КореяЖанр: Компьютерная анимацияРежиссер: Мин-сунг КимПеревод: Дублированный(без рекламы)Продолжительность: 52 серии ~ 00:14:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE01F55357FAE5B227CC13D458BB825648DB3268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623457   (857946) от 22.04.2013
+
+Трон: Восстание / Tron: Uprising (2012-2013) [H.264/1080p] WEB-DLRip (1 сезон: эпизодов 19 из 19) (Disney)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой сериала - молодая компьютерная программа Бек возглавляет восстание против Клу, захватившего власть в системе и его подручного генерала Теслера. Бека тренирует Трон - величайший герой системы всех времён. Возмужавший под наставничеством Трона, Бек становится новым защитником системы и главным врагом Теслера и его войск.Жанр: Компьютерная анимация, ФантастикаРежиссер: Чарли БинПеревод: ДублированныйОзвучка / Автор перевода: • Профессиональный (дублированный) -Продолжительность: 19 х ~ 00:30:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497822   (857421) от 26.09.2021
 
 Звездные войны: Видения / Star Wars: Visions (2021) WEB-DL [H.264/1080p] (Сезон 1, серии 1-9 из 9) HDRezka Studio
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857421.jpg" />
+  <img src="Z:/picture/008/save_picture_857421.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857238.jpg" />
+  <img src="Z:/picture/008/save_picture_857238.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854061.jpg" />
+  <img src="Z:/picture/008/save_picture_854061.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ LEGO Marvel Супер Герои: Максимальная перегрузка
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853974.jpg" />
+  <img src="Z:/picture/008/save_picture_853974.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853234.jpg" />
+  <img src="Z:/picture/008/save_picture_853234.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851995.jpg" />
+  <img src="Z:/picture/008/save_picture_851995.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851855.jpg" />
+  <img src="Z:/picture/008/save_picture_851855.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850552.jpg" />
+  <img src="Z:/picture/008/save_picture_850552.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850329.jpg" />
+  <img src="Z:/picture/008/save_picture_850329.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848640.jpg" />
+  <img src="Z:/picture/008/save_picture_848640.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843373.jpg" />
+  <img src="Z:/picture/008/save_picture_843373.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842658.jpg" />
+  <img src="Z:/picture/008/save_picture_842658.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842619.jpg" />
+  <img src="Z:/picture/008/save_picture_842619.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842482.jpg" />
+  <img src="Z:/picture/008/save_picture_842482.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842473.jpg" />
+  <img src="Z:/picture/008/save_picture_842473.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841613.jpg" />
+  <img src="Z:/picture/008/save_picture_841613.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841610.jpg" />
+  <img src="Z:/picture/008/save_picture_841610.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839346.jpg" />
+  <img src="Z:/picture/008/save_picture_839346.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839211.jpg" />
+  <img src="Z:/picture/008/save_picture_839211.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837437.jpg" />
+  <img src="Z:/picture/008/save_picture_837437.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837349.jpg" />
+  <img src="Z:/picture/008/save_picture_837349.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835848.jpg" />
+  <img src="Z:/picture/008/save_picture_835848.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835283.jpg" />
+  <img src="Z:/picture/009/save_picture_835283.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_834990.jpg" />
+  <img src="Z:/picture/009/save_picture_834990.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B16A543BCCE283C193E60C4C139DEBA9B4942EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488944   (834780) от 10.10.2021
-
-Что, если...? / What If...? (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) TVShows
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834780.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Что если…?» (англ. What If…?) — американский анимационный сериал, созданный А.К. Брэдли для сервиса потокового вещания Disney+ и основанный на одноимённой серии комиксов Marvel. Четвёртый по счёту телесериал четвёртой фазы кинематографической вселенной Marvel. Каждый из эпизодов раскроет, что могло случиться, если бы ключевые события фильмов киновселенной произошли (   Читать дальше...   )Производство: США / Flying Bark Productions, Marvel Studios Inc.Жанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Брайан ЭндрюсПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Russian (Forced, Full), English (SDH) и другиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F8A2D7D8A87860DCBCA81EE4D048B12FDA5289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719043   (834258) от 03.04.2014
-
-Кролик Джазит / Rabbit of Dzhazit (2013) WEB-DL [H.264/720p-LQ] (Серии 01-12 из 52) [Обновляемая]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834258.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кролик Джазит» – красочный китайский мультсериал, населенный забавными и выразительными персонажами. Понравится любому ребенку от 3 лет. Вполне возможно, что и взрослые с удовольствием присоединятся к маленьким зрителям. «Кролик Джазит» погружает в мир музыки и удивительных приключений ушастого героя, который день за днем делает все новые открытия. Маленькому Кролику (   Читать дальше...   )Жанр: Компьютерная анимация, Приключения, ДетскийРежиссер: Чжан Юй / Cheung YuПерсонажи: Кролик Джазит и другиеПеревод: ДублированныйОзвучка / Автор перевода: Студия дубляжа «Back Board Cinema»
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C42C9A33ECF4D032B5114A9B88839D497A016E
 ```
 
 https://mybot314.ru/tekegram_catalog/

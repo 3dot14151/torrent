@@ -1,3 +1,30 @@
+###  Публикация: 1571906   (209784) от 24.08.2022
+
+Game Art Institute, Adam Skutt | Character Creation For Games with Adam Skutt (2016) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужской персонаж, героического типа, возрастом от 25 до 40. Создание бюста достойного персонажа. Персонаж должен быть выполнен в стиле реализма. Вы научитесь принимать решения, которые помогут лучше подать характер персонажа и его цель.
+Для первого проекта я займусь сбором референсов, составлю план и займусь хайполи моделирование в ZBrush и Maya.Производство: Game Art InstituteЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 45:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB9CA93B98B4D35A72234B73B414C1CD4FA4A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572149   (209726) от 25.08.2022
 
 SideFX, Paul Esteves | Houdini 19 Nodes (2021) PCRec [EN, RU]
@@ -6,7 +33,7 @@ SideFX, Paul Esteves | Houdini 19 Nodes (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209726.jpg" />
+  <img src="Z:/picture/005/save_picture_209726.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Gumroad, Frank Tzeng | Zbrush BPR RENDERING package (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209471.jpg" />
+  <img src="Z:/picture/005/save_picture_209471.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Schoolism, Nathan Fowkes | Environment Design Workout with Nathan Fowkes (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209436.jpg" />
+  <img src="Z:/picture/005/save_picture_209436.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ Granich.Design, Вадим Гранич | Графсистема Swiss (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209344.jpg" />
+  <img src="Z:/picture/005/save_picture_209344.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ Granich.Design, Вадим Гранич | Графсистемы Брутали�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209319.jpg" />
+  <img src="Z:/picture/005/save_picture_209319.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ Antipin-STUDIO, Виталий Антипин | Искусство портре�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209304.jpg" />
+  <img src="Z:/picture/005/save_picture_209304.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Udemy, David Bittorf | Substance Painter for Beginners - creating normal maps (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209297.jpg" />
+  <img src="Z:/picture/005/save_picture_209297.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ Pluralsight, Nathan Glemboski | Creating Hand Painted Textures in Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209291.jpg" />
+  <img src="Z:/picture/005/save_picture_209291.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ Artilike, Любовь Титова | Акварельный Новогодни�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209288.jpg" />
+  <img src="Z:/picture/005/save_picture_209288.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ Gumroad, Daniel Thiger | Substance Studies Tutorial Graphic Design (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209144.jpg" />
+  <img src="Z:/picture/005/save_picture_209144.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ Pluralsight, Dan Cox | Hard Surface Modeling a Modular Structure for Games in 3d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209140.jpg" />
+  <img src="Z:/picture/005/save_picture_209140.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ Pluralsight, Dan Cox | Sculpting Modular Structures in ZBrush (2016) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209107.jpg" />
+  <img src="Z:/picture/005/save_picture_209107.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 2 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209087.jpg" />
+  <img src="Z:/picture/005/save_picture_209087.jpg" />
 </div>
 
 
@@ -358,7 +385,7 @@ Epic Games, Kaye Vassey | Making the Most of Animation Blueprints (2018) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209079.jpg" />
+  <img src="Z:/picture/005/save_picture_209079.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ FlippedNormals, Tyler Smith | Creating a Realistic Ocean in UE4 (2022) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209058.jpg" />
+  <img src="Z:/picture/005/save_picture_209058.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ Exp-Points, Alex Beddows | Creating Fabric Materials in Substance Designer (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209046.jpg" />
+  <img src="Z:/picture/005/save_picture_209046.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ Levelup.Digital, Eric Wiley | Advanced Shape Creation in Substance Designer (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209045.jpg" />
+  <img src="Z:/picture/005/save_picture_209045.jpg" />
 </div>
 
 
@@ -464,7 +491,7 @@ Udemy, Nexttut, Hamidreza Afshari | Substance 3D Painter Advance Course (2022) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209034.jpg" />
+  <img src="Z:/picture/005/save_picture_209034.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ Artstation Learning, Jay Cummings | Substance Painter: Pushing Your Texturing Fu
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209003.jpg" />
+  <img src="Z:/picture/005/save_picture_209003.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208956.jpg" />
 </div>
 
 
@@ -547,7 +574,7 @@ sova.arty, Алина Сова | Иллюстратор 2.0 для телефо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208842.jpg" />
 </div>
 
 
@@ -576,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208785.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ Digital Tutors, Dan Cox | Rapidly Creating Stylized Game Assets in ZBrush (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208775.jpg" />
+  <img src="Z:/picture/005/save_picture_208775.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208752.jpg" />
 </div>
 
 
@@ -659,7 +686,7 @@ Hudozhnik Online, Анастасия Брагина | Скетчинг марк�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208713.jpg" />
 </div>
 
 
@@ -673,32 +700,6 @@ Hudozhnik Online, Анастасия Брагина | Скетчинг марк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F4780C253035B76F6B278EA67A8309E6CF54AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647505   (208590) от 19.07.2023
-
-Udemy, Eric Ebling | Houdini FX : Creating An Avalanche Rig (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите все шаги, необходимые для настройки установки Avalanche VFX высокого разрешения в Houdini и создания финальной композиции!Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 05:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB25383170995F49DAF65F023F2411876FC3235D
 ```
 
 https://mybot314.ru/tekegram_catalog/

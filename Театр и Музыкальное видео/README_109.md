@@ -1,3 +1,166 @@
+###  Публикация: 273832   (272327) от 24.12.2010
+
+Вера Брежнева - Любовь спасет мир (Подарочное издание) (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272327.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD с нового Альбома Веры Брежневой "Любовь спасет мир (Подарочное издание)Актеры: Вера БрежневаПеревод: ОригинальныйПродолжительность: (00:03:28+00:03:57+00:04:04+00:03:32+00:03:52)=00:17:73
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A84B8D42BA9AF192A022CC785F8D088FF2CA3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963379   (272273) от 12.11.2019
+
+Опасный поворот (1972) SATRip (3 серии)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272273.jpg" />
+</div>
+
+
+###  Подробнее
+
+По пьесе Дж. Пристли.
+Издатель Роберт Кэплен и его жена Фреда тепло принимают в своем загородном доме друзей и родственников. Эта "миленькая маленькая компания", по словам одной гостьи, весело беседует и обменивается сплетнями. Пока темой разговора не становится "правда". Вместе с героями фильма мы будем распутывать клубок взаимоотношений, развязывать (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Телеспектакль, драма, экранизацияРежиссер: Николай Досталь, Владимир Басов ст.Актеры: Владимир Басов ст., Антонина Шуранова, Юрий Яковлев, Валентина Титова, Александр Дик, Елена Валаева, Руфина НифонтоваПродолжительность: 03:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A558F6DDA97C768856B48FFBE63FB19CA52C95C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189018   (271999) от 04.12.2017
+
+Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Synchronicity II
+2 Spirits In The Material World
+3 Englishman in New York
+4 I Can't Stop Thinking About You(   Читать дальше...   )Производство: Deutsche GrammophonЖанр: Rock, Pop, New Wave, JazzРежиссер: Alexandre BuissonПродолжительность: 01:42:03+00:36:12 (Bonus)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AE9D6C4A3E3CD62707FBE6FDD5BF332FAB6453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 714595   (271830) от 30.11.2018
+
+Eric Clapton - Live at Montreux 1986 (2006) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Статус Эрика Клэптона, как Guitar Hero не имеет себе равных среди всех остальных. Тем не менее в его позднем подростковом возрасте поклонники прозвали его «Богом», и он до сих пор рассматривается с благоговением и почтением со стороны других гитаристов и любителей музыки. Этот концерт, в Монтре на фестивале в 1986 году, прошел незадолго до выхода одноимённого альбомаЖанр: Блюз-рок, Хард-рок, БлюзРежиссер: Thierry AmsallemПеревод: ОтсутствуетПродолжительность: 01:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509C0AC3C4B011B4B863E8FEE16314BF11942C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265896   (271812) от 30.11.2018
+
+Accept - Symphonic Terror: Live at Wacken 2017 (2018) 2xDVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления ACCEPT с симфоническим оркестром, состоявшегося 3 августа 2017 года на фестивале “Wacken Open Air” перед самой большой за всю карьеру группы аудиторией – 80 тыс. человек.Диск 1
+Part 1 - Accept
+01. Die by the Sword
+02. Restless and Wild(   Читать дальше...   )Производство: Nuclear BlastЖанр: Heavy MetalРежиссер: WOAСубтитры: отсутствуютПродолжительность: 00:58:21 + 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7997953D6B31B63E8D69F5D664AB3CC56DC12381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590078   (271645) от 30.11.2018
+
+Adriano Celentano - Adriano Live Il Concerto Arena di Verona - Rock Economy (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адриано Челентано - певец, актёр, режиссёр, телеведущий, продюсер, композитор, общественный деятель, автор песен. Презентация альбома Adriano Live состоялась 30 ноября 2012 года в театре Ristori в Вероне, где певец присутствовал лично. В качестве места проведения концерта артист выбрал знаменитый амфитеатр Арена ди ВеронаПроизводство: ClanЖанр: PopРежиссер: Серджио РубиноАктеры: Адриано Челентано, Габриэле Болоньези, Лука Коломбо, Джанни Далл’Альо, Карло Гаудьелло, Давид Гидони, Леле Мелотти, Дадо Нери, Микеле Пападья, Плачидо Саламоне, Джорджио Секко.Продолжительность: 01:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BFB5D167166A6FA87F3E3307C495B2491C5A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 694943   (271428) от 13.11.2019
 
 Карамазовы и ад (2003) SATRip (Современник)
@@ -6,7 +169,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271428.jpg" />
+  <img src="Z:/picture/008/save_picture_271428.jpg" />
 </div>
 
 
@@ -33,7 +196,7 @@ Def Leppard - Visualize, Video Archive (2001) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271125.jpg" />
+  <img src="Z:/picture/008/save_picture_271125.jpg" />
 </div>
 
 
@@ -62,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270329.jpg" />
+  <img src="Z:/picture/008/save_picture_270329.jpg" />
 </div>
 
 
@@ -92,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269953.jpg" />
 </div>
 
 
@@ -118,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269940.jpg" />
 </div>
 
 
@@ -145,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269833.jpg" />
 </div>
 
 
@@ -171,7 +334,7 @@ Slayer: The Repentless Killogy (2019) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269570.jpg" />
 </div>
 
 
@@ -198,7 +361,7 @@ Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269093.jpg" />
 </div>
 
 
@@ -227,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269038.jpg" />
 </div>
 
 
@@ -255,7 +418,7 @@ Extreme - Take Us Alive (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268732.jpg" />
 </div>
 
 
@@ -284,7 +447,7 @@ Bad Company - In Concert. Merchants of Cool (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268700.jpg" />
 </div>
 
 
@@ -313,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268541.jpg" />
 </div>
 
 
@@ -342,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268352.jpg" />
 </div>
 
 
@@ -370,7 +533,7 @@ The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268346.jpg" />
 </div>
 
 
@@ -399,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268340.jpg" />
 </div>
 
 
@@ -428,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268119.jpg" />
+  <img src="Z:/picture/008/save_picture_268119.jpg" />
 </div>
 
 
@@ -454,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267786.jpg" />
+  <img src="Z:/picture/008/save_picture_267786.jpg" />
 </div>
 
 
@@ -483,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267629.jpg" />
+  <img src="Z:/picture/008/save_picture_267629.jpg" />
 </div>
 
 
@@ -512,7 +675,7 @@ Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267605.jpg" />
+  <img src="Z:/picture/008/save_picture_267605.jpg" />
 </div>
 
 
@@ -541,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267537.jpg" />
+  <img src="Z:/picture/008/save_picture_267537.jpg" />
 </div>
 
 
@@ -552,171 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F917EDA2BD5D7D0A61E78EA68571DC345398F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333408   (267422) от 05.12.2018
-
-Портрет Дориана Грея (1969) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267422.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименного романа английского писателя О. Уайльда.
-
-Портрет Дориана Грея имел удивительное свойство: он принимал на себя все грехи «оригинала», а так же течение времени. В реальной жизни Дориан Грей не менялся, не старел, на лице его не появлялось ни одной морщины, а старел за него портрет...Жанр: Телеспектакль, драмаРежиссер: Н.МарусаловаФормат: AVIПродолжительность: 2:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782E3D787472A1C1DB24F0D2FE5E7F128CDBBEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266849   (267324) от 05.12.2018
-
-Сборник Русских клипов 2000 - 2016 от ALEXnROCK часть 3 (2018) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267324.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые достойные и хитовые поп клипы от музыкантов с постсоветского пространства с 2000 по 2016 год. Ремастеринг видео и звука. Это 3я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Вступление
-122 Reflex - Танцы
-123 Согдиана - Синее небо
-124 Дима Билан - Ты должна рядом быть(   Читать дальше...   )Жанр: PopПродолжительность: 02:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4352E27E601C618477DBF1EAF1BF2B29DE1529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190703   (266980) от 10.12.2017
-
-Квартирник на НТВ у Маргулиса. Ёлка (12.09.2017) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266980.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла певица, член жюри международного детского вокального конкурса "Ты супер!" Ёлка. Она рассказала о своем отношении к алкоголю, о безумных поступках в юности, об участии в КВН и любимой детской кукле. Лиза исполнила свои самые популярные треки: "Город обмана", "Хочу", "Мир открывается", "Навсегда", (   Читать дальше...   )Производство: Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C6B2ED43276CD6BC8AAA1E063E1FFC856490D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276467   (266810) от 30.12.2010
-
-Кен Хенсли / Ken Hensley With Live Fire / in concert Norway (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Marco Arndt at Membran A&RЖанр: RockПеревод: ОтсутствуетЯзык субтитров: ОтсутствуетФормат: DVD9Продолжительность: 01:32:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267341   (266562) от 06.12.2018
-
-Шерил Кроу - живой концерт в театре Capitol / Sheryl Crow - Live At The Capitol Theater (2018) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266562.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 ноября 2017 года, в историческом театре Капитолия в городе Порт-Честере, штата Нью-Йорк, Шерил Кроу выступила со своим заключительным концертом тура "Be Myself". Шерил Кроу была с новым превосходным составом и исполнила новые песни, которые вошли в восьмой студийный альбом.
- Она исполнила ''Be Myself'' и из совсем недавних - ''Halfway There'' и ''Atom (   Читать дальше...   )01. Every Day Is A Winding Road
- 02. A Change Would Do You Good
- 03. All I Wanna Do
- 04. My Favorite Mistake(   Читать дальше...   )Жанр: МузыкаРежиссер: Марк РичиПеревод: ОтсутствуетСубтитры: нетПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C81F96E7DDFD3A87BE16E06F2869B9733DAAF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267642   (265733) от 07.12.2018
-
-Квартирник на НТВ у Маргулиса. Pompeya (11.24.2018) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыканты new wave группы Pompeya исполнили свои лучшие композиции специально для зрителей НТВ. Евгений Маргулис признался, что эта музыкальная команда - вторая после Дэвида Брауна, поющая на английском языке. Солист коллектива Даниил Брод уточнил, что с детства хотел петь именно на иностранном языке. Ведущий и его гости обсудили музыкальные пристрастия участников (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84B2997E94759BC315431A0340E7656FE2D734D
 ```
 
 https://mybot314.ru/tekegram_catalog/

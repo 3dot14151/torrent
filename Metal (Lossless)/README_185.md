@@ -1,3 +1,90 @@
+###  Публикация: 1582583   (318926) от 11.10.2022
+
+Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trick Or Treat?
+02. Creepy Symphony
+03. Have A Nice Judgment Day
+04. Crazy(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6A5658BE1388F1C2F5F2590C594A8BFBB816E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582753   (318924) от 11.10.2022
+
+Fallujah - Empyrean (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bitter Taste Of Clarity
+02. Radiant Ascension
+03. Embrace Oblivion
+04. Into The Eventide(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB178A32C164046E606E7992E5AB273F127AADDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582584   (318915) от 11.10.2022
+
+Wolfheart - King Of The North (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyforger
+02. Ancestor
+03. Knell
+04. Desolated Land(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEC4FC02DD5D3993FA005D6FA1AB5EC948CBA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582510   (318909) от 11.10.2022
 
 Vended - 1 EP, 1 Single (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu-Metal>
@@ -6,7 +93,7 @@ Vended - 1 EP, 1 Single (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Nu-Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318909.jpg" />
+  <img src="Z:/picture/008/save_picture_318909.jpg" />
 </div>
 
 
@@ -33,7 +120,7 @@ Loudness - Tokuma Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318824.jpg" />
+  <img src="Z:/picture/008/save_picture_318824.jpg" />
 </div>
 
 
@@ -62,7 +149,7 @@ Loudness - Masters Of Loudness (1996) Japanese Edition 2CD Compilation [WavPack|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318820.jpg" />
+  <img src="Z:/picture/008/save_picture_318820.jpg" />
 </div>
 
 
@@ -91,7 +178,7 @@ Loudness - King Of Pain (2010) Japanese Edition [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318812.jpg" />
+  <img src="Z:/picture/008/save_picture_318812.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ Metallica - Master of Puppets (1986) Remastered, 2017 [FLAC|Lossless|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318792.jpg" />
+  <img src="Z:/picture/008/save_picture_318792.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ Mad Max - Wings Of Time (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318771.jpg" />
+  <img src="Z:/picture/008/save_picture_318771.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Iron Maiden - Live …Santiago, Chile 1996 (2022) 2xCD, Japanese Edition [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318619.jpg" />
+  <img src="Z:/picture/008/save_picture_318619.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ W.H.I.T.E (White) - Бий першим! (2007) [FLAC|lossless|image + .cue] <Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318520.jpg" />
+  <img src="Z:/picture/008/save_picture_318520.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Armored Saint -3 альбома (1985 - 1991) [WavPack|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_317815.jpg" />
+  <img src="Z:/picture/005/save_picture_317815.jpg" />
 </div>
 
 
@@ -271,7 +358,7 @@ On Thorns I Lay - Threnos (2020) [FLAC|Lossless|image + .cue] <Death Metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317764.jpg" />
+  <img src="Z:/picture/008/save_picture_317764.jpg" />
 </div>
 
 
@@ -300,7 +387,7 @@ Trivium - In Waves (2011) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317760.jpg" />
+  <img src="Z:/picture/008/save_picture_317760.jpg" />
 </div>
 
 
@@ -329,7 +416,7 @@ Steel Prophet - The God Machine (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317750.jpg" />
+  <img src="Z:/picture/008/save_picture_317750.jpg" />
 </div>
 
 
@@ -358,7 +445,7 @@ Nuclear Assault - Atomic Waste! Demos & Rehearsals (2012) [FLAC|Lossless]<Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_317726.jpg" />
+  <img src="Z:/picture/005/save_picture_317726.jpg" />
 </div>
 
 
@@ -393,7 +480,7 @@ Suspyria - The Valley Of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316943.jpg" />
+  <img src="Z:/picture/008/save_picture_316943.jpg" />
 </div>
 
 
@@ -422,7 +509,7 @@ Dim Vision - Epidermis (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316923.jpg" />
+  <img src="Z:/picture/008/save_picture_316923.jpg" />
 </div>
 
 
@@ -451,7 +538,7 @@ Agora - Silencio Acustico (2008) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316921.jpg" />
+  <img src="Z:/picture/008/save_picture_316921.jpg" />
 </div>
 
 
@@ -480,7 +567,7 @@ Agora - Zona De Silencio (2005) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316920.jpg" />
+  <img src="Z:/picture/008/save_picture_316920.jpg" />
 </div>
 
 
@@ -509,7 +596,7 @@ Echelon - Secret Power (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316834.jpg" />
+  <img src="Z:/picture/008/save_picture_316834.jpg" />
 </div>
 
 
@@ -538,7 +625,7 @@ Annihilator - For The Demented (2017) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316775.jpg" />
+  <img src="Z:/picture/008/save_picture_316775.jpg" />
 </div>
 
 
@@ -567,7 +654,7 @@ Trivium - Ember To Inferno (2003) Reissue, 2004, CD-Maximum [FLAC|Lossless|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315538.jpg" />
+  <img src="Z:/picture/008/save_picture_315538.jpg" />
 </div>
 
 
@@ -596,7 +683,7 @@ Trivium - Shogun (2008) Reissue, 2012, Roadrunner Records [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315439.jpg" />
+  <img src="Z:/picture/008/save_picture_315439.jpg" />
 </div>
 
 
@@ -625,7 +712,7 @@ Tetrafusion - Absolute Zero (2009) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314714.jpg" />
+  <img src="Z:/picture/008/save_picture_314714.jpg" />
 </div>
 
 
@@ -654,7 +741,7 @@ blessthefall - Hard Feelings (2018) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314690.jpg" />
+  <img src="Z:/picture/008/save_picture_314690.jpg" />
 </div>
 
 
@@ -668,93 +755,6 @@ blessthefall - Hard Feelings (2018) [FLAC|Lossless|tracks + .cue] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:241F015B1D7347641A14626BBA549B3AE5C81DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583232   (314650) от 13.10.2022
-
-Blind the Eye - The Lion of Lions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Lion of Lions (03:46)
-02 - Aquilifer (04:17)
-03 - As Vesta's Fire (05:21)
-04 - Tauroctony (04:38)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E16B534B062B8460143CC9C2226AD49BBD54264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259935   (314582) от 06.11.2018
-
-Voices From The Fuselage - Odyssey - The Destroyer of Worlds (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ortus (3:42)
-02.Inner Child (5:49)
-03.Fenestra (4:59)
-04.Meteorites (7:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88F9D3FF75AA1CB07EDD6A8E7E13CB9EB82B87D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583035   (314565) от 13.10.2022
-
-Heavy Metal Perse - Jumalia Paossa (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumalia Paossa [00:14:41]
-02. Kotikylää Kohti [00:03:47]
-03. Velhojen Vesuri [00:04:23]
-04. Aaltojen Valkoiset Hampaat [00:04:05](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0F61E29D371C974AA738474207AFF6253D46DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Ищу/Предлагаю Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049509.jpg" />
+  <img src="Z:/picture/005/save_picture_1049509.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ищу/Предлагаю Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1048188.jpg" />
+  <img src="Z:/picture/005/save_picture_1048188.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обсуждение Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521604.jpg" />
+  <img src="Z:/picture/008/save_picture_521604.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обсуждение Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13297.jpg" />
 </div>
 
 

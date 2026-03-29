@@ -1,3 +1,30 @@
+###  Публикация: 1034833   (632422) от 14.07.2016
+
+О.В. Аксакова | Горячие рыбные блюда (2008) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632422.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нашем издании представлены рецепты рыоных блюд, которые подаются горячими, а также полезные советы, которые позволят осуществить правильную кулинарную обработку рыбы. Блюда, которые мы предлагаем, оригинальны, вкусны, полезны и, в то же время, просты в приготовлении.
+Приятного вам аппетита!Жанр: КулинарияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01DEF5A647AF0427D93CF6D83F73C5FBF83FD7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034812   (632166) от 14.07.2016
 
 Оеткер Ферлаг | Из Европы с любовью. Выпечка от А до Я (2013) [PDF]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632166.jpg" />
+  <img src="Z:/picture/008/save_picture_632166.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630023.jpg" />
+  <img src="Z:/picture/008/save_picture_630023.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629781.jpg" />
+  <img src="Z:/picture/008/save_picture_629781.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626506.jpg" />
+  <img src="Z:/picture/008/save_picture_626506.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624624.jpg" />
+  <img src="Z:/picture/008/save_picture_624624.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624582.jpg" />
+  <img src="Z:/picture/008/save_picture_624582.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624391.jpg" />
+  <img src="Z:/picture/008/save_picture_624391.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623840.jpg" />
+  <img src="Z:/picture/008/save_picture_623840.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620721.jpg" />
+  <img src="Z:/picture/008/save_picture_620721.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620551.jpg" />
+  <img src="Z:/picture/008/save_picture_620551.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620516.jpg" />
+  <img src="Z:/picture/008/save_picture_620516.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618906.jpg" />
+  <img src="Z:/picture/008/save_picture_618906.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617917.jpg" />
+  <img src="Z:/picture/008/save_picture_617917.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617906.jpg" />
+  <img src="Z:/picture/008/save_picture_617906.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617804.jpg" />
+  <img src="Z:/picture/008/save_picture_617804.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616734.jpg" />
+  <img src="Z:/picture/008/save_picture_616734.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615948.jpg" />
+  <img src="Z:/picture/008/save_picture_615948.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615168.jpg" />
+  <img src="Z:/picture/008/save_picture_615168.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614135.jpg" />
+  <img src="Z:/picture/008/save_picture_614135.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611482.jpg" />
+  <img src="Z:/picture/008/save_picture_611482.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610057.jpg" />
+  <img src="Z:/picture/008/save_picture_610057.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604302.jpg" />
+  <img src="Z:/picture/008/save_picture_604302.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604266.jpg" />
+  <img src="Z:/picture/008/save_picture_604266.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604232.jpg" />
+  <img src="Z:/picture/008/save_picture_604232.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604230.jpg" />
+  <img src="Z:/picture/008/save_picture_604230.jpg" />
 </div>
 
 
@@ -647,33 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D0942FA59D2D52C9AF39752CF1596A1939C00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148304   (604207) от 05.07.2017
-
-Дэл Шруф | Китайское исследование. Простые и быстрые рецепты. Готовим один раз, едим всю неделю (2016) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питаться здоровой едой теперь станет намного проще и удобнее, чем когда-либо. Когда дело подходит к обеду или перекусу, вы выбираете между здоровым питанием и быстрыми вариантами? Смотрите ли вы в холодильник, пытаясь придумать, что можно приготовить за пару минут? Даже в самом плотном графике есть место для вкусной и полезной еды.
-Дэл Шруф разработал специальные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF9CFC4DC264C04EE904944F62F5F4DB5E76546
 ```
 
 https://mybot314.ru/tekegram_catalog/

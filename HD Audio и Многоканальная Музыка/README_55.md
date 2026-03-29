@@ -1,3 +1,235 @@
+###  Публикация: 1653299   (214043) от 17.08.2023
+
+ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214043.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Shine A Little Love
+A2 Confusion
+A3 Need Her Love
+A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Rock, Prog Rock, Symphonic RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342898   (213980) от 08.12.2019
+
+Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Speak To Me 1:12
+2. Breathe 2:44
+3. On The Run 3:35
+4. Time 7:06(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8A338EEA5B1C10C759FEF4DC3F42E42B1881AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661321   (213969) от 17.08.2023
+
+Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Or Hallelujah [4:06]
+02. Wall Of Sound [2:54]
+03. Freak [3:34]
+04. Back To The Stone Age [3:00](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEB28FEA7D153A67F73376AABE59CEDBDA1D44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586667   (213843) от 29.10.2022
+
+Gloria Gaynor/Глория Гейнор - Love Tracks/Пути Любви (1978/1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Funk, Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213843.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stoplight • Стоп-Сигнал
+A2 Anybody Wanna Party • Кто-Нибудь Хочет Повеселиться?
+A3 Please, Be There • Будь Там, Пожалуйста
+A4 Goin' Out Of My Head • Я Схожу С Ума(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCC3AD9183F07B42C3A2D754456B4F7D1CFB450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652921   (213671) от 18.08.2023
+
+Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213671.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Golden Age
+A2 Endorama
+A3 Shadowland
+B1 The Chosen Few(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06469C1096A26FC42BB87F979892593406538DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653979   (213667) от 18.08.2023
+
+Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213667.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Go
+A2 Voice Of America
+A3 Hard On Me
+A4 Wishing(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514865   (213660) от 05.12.2021
+
+Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Symphonic Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shed My Skin (4:30)
+02. The Purge (4:16)
+03. Entertain You (3:31)
+04. Shed My Skin (Instrumental) (4:30)(   Читать дальше...   )Жанр: Symphonic Metal, Alternative MetalПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9211FAC881F4F8591F674156A56E27D452602055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832287   (213540) от 30.10.2025
+
+Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pagan/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алконост — российская фолк-метал группа, образованная в Набережных Челнах,  Республика Татарстан в 1995 году.2004 - Between The Worlds
+2006 - Межмирье
+2006 - Путь Непройденный
+2007.1 - Песни Вечного ДреваЖанр: Pagan/Folk MetalПродолжительность: 11:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906218C82AA30C8B47261EEF2C3CEC4C1E1C6E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042647   (213390) от 13.06.2022
 
 Август - Ответный Удар (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
@@ -6,7 +238,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213390.jpg" />
+  <img src="Z:/picture/005/save_picture_213390.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Hea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213384.jpg" />
+  <img src="Z:/picture/005/save_picture_213384.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Brahms - Piano Quartet No. 1 Op. 25 · Schumann - Fantasiestücke Op. 88 (Martha
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212559.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Sweet - Легенды Зарубежного Рока (2000) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212054.jpg" />
+  <img src="Z:/picture/004/save_picture_212054.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Hiromi - Spectrum (2019) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Ja
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211987.jpg" />
+  <img src="Z:/picture/005/save_picture_211987.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211934.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211882.jpg" />
+  <img src="Z:/picture/005/save_picture_211882.jpg" />
 </div>
 
 
@@ -208,7 +440,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211804.jpg" />
 </div>
 
 
@@ -237,7 +469,7 @@ Massimo Farao And The Jazz Magicians Orchestra - Magic Swing: Tribute To The Mus
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211570.jpg" />
+  <img src="Z:/picture/005/save_picture_211570.jpg" />
 </div>
 
 
@@ -268,7 +500,7 @@ Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211473.jpg" />
 </div>
 
 
@@ -297,7 +529,7 @@ Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211409.jpg" />
 </div>
 
 
@@ -323,7 +555,7 @@ Lenny Kravitz - Greatest Hits (2000) Reissue, 2022, Virgin;Universal Music Hong 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211272.jpg" />
+  <img src="Z:/picture/005/save_picture_211272.jpg" />
 </div>
 
 
@@ -352,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211271.jpg" />
+  <img src="Z:/picture/005/save_picture_211271.jpg" />
 </div>
 
 
@@ -381,7 +613,7 @@ Alice Cooper - Легенды Зарубежного Рока (2000) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211108.jpg" />
 </div>
 
 
@@ -410,7 +642,7 @@ Gloria Estefan - Greatest Hits (1992) 2002 remix [DTS 5.1 CD-DA|44.1/16|image+.c
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211014.jpg" />
+  <img src="Z:/picture/005/save_picture_211014.jpg" />
 </div>
 
 
@@ -436,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210780.jpg" />
 </div>
 
 
@@ -465,7 +697,7 @@ Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Di
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210672.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210633.jpg" />
 </div>
 
 
@@ -510,235 +742,6 @@ Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642095   (210627) от 25.06.2023
-
-Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A New Day Yesterday
-02 - Jeffrey Goes To Leicester Square
-03 - Bourée
-04 - Back To The Family(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD111939237D4A3676690FF964DDE0C2703CD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642286   (210529) от 26.06.2023
-
-Paul McCartney – The McCartney Years (2007) 2 discs [DTS 5.1 CD-DA|44.1/16|image+.cue|DVD-Video] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210529.jpg" />
-</div>
-
-
-###  Подробнее
-
-disc1
-
-01. Tug Of War
-02. Say Say Say(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:13+01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349FD9B0854395EA92A047061EA399F363990FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642386   (210315) от 28.06.2023
-
-Леонид Агутин - Летний Дождь (1998) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Latin, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210315.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Не Унывай!
-A2 Летний Дождь
-A3 Полночи
-A4 Танцевали Пары(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603756   (210261) от 11.01.2023
-
-Шахерезада - Свадьба в Малиновке (1992) [WavPack 2.0|192/32|tracks|MB-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210261.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:03] 01. Берег Левый, берег Правый
-[3:47] 02. Командир Полка
-[5:18] 03. Цыганочка-Яночка
-[3:47] 04. Это не сон(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604028   (210213) от 12.01.2023
-
-VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210213.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Оркестр Джеймса Ласта – Скокиан
-А2 Оркестр Джеймса Ласта – Звезды В Твоих Глазах
-А3 Оркестр Джеймса Ласта – Жизнь Прекрасна
-А4 Оркестр Поля Мориа – Изадора(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643235   (210121) от 30.06.2023
-
-Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audio-DVD] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Tunguska (featuring Shpongle & David Gilmour)
-02. More Lost Without You (featuring P.J. Olsson)
-03. Mammagamma '04 (featuring Jeremy Parsons)
-04. We Play The Game (featuring The Crystal Method)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3262412E32FDD850A372D6CAF1105A062D682DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643702   (210000) от 02.07.2023
-
-Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|SACD-R] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thérèse Juel - Tiden bara går (R. Rönning)
-02. Stockholm Guitar Quartet - Invention No. 14 (J.S. Bach)
-03. Tomas Örnberg's Blue Five - Buddy Bolden Blus (Morton)
-04. Knoa - Unca's Flight (M. Lingedal)(   Читать дальше...   )Жанр: Jazz, Blues, Classical, Folk, World, & CountryПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3A1BBCC1C3EDA527A9C6DFB92BA2F6707BB187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571642   (209996) от 22.08.2022
-
-Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic Rock, Country Rock, Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Already GoneЖанр: Classic Rock, Country Rock, Folk RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D77F06C408DA47943BFADF7FE62F4D0F5B9912A
 ```
 
 https://mybot314.ru/tekegram_catalog/

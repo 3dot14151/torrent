@@ -6,7 +6,7 @@ Day One 2 Journal + Notes 2.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876467.jpg" />
+  <img src="Z:/picture/005/save_picture_876467.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Elmedia Video Player Pro 6.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876345.jpg" />
+  <img src="Z:/picture/005/save_picture_876345.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ CleanMyMac X 4.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876301.jpg" />
+  <img src="Z:/picture/005/save_picture_876301.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ ScreenFlow 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876289.jpg" />
+  <img src="Z:/picture/005/save_picture_876289.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Serial Box 03-2014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876192.jpg" />
+  <img src="Z:/picture/005/save_picture_876192.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ McNeel Rhinoceros 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876183.jpg" />
+  <img src="Z:/picture/005/save_picture_876183.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Grids for Instagram 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876116.jpg" />
+  <img src="Z:/picture/005/save_picture_876116.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ RapidWeaver 8 v8.6.1 (build 20831) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875103.jpg" />
+  <img src="Z:/picture/005/save_picture_875103.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ PullTube 1.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875100.jpg" />
+  <img src="Z:/picture/005/save_picture_875100.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ URL Manager Pro 5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875099.jpg" />
+  <img src="Z:/picture/005/save_picture_875099.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Artstudio Pro 2.3.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875097.jpg" />
+  <img src="Z:/picture/005/save_picture_875097.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ PullTube 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875096.jpg" />
+  <img src="Z:/picture/005/save_picture_875096.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ goPanel 2 v2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875095.jpg" />
+  <img src="Z:/picture/005/save_picture_875095.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ A Better Finder Rename 11 v11.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875092.jpg" />
+  <img src="Z:/picture/005/save_picture_875092.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875091.jpg" />
+  <img src="Z:/picture/005/save_picture_875091.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ NoteBurner iTunes DRM Audio Converter 2.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875090.jpg" />
+  <img src="Z:/picture/005/save_picture_875090.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ AnyTrans 5.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875078.jpg" />
+  <img src="Z:/picture/005/save_picture_875078.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Pastebot 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875060.jpg" />
+  <img src="Z:/picture/005/save_picture_875060.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Colibri - Native Lossless Audio 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875053.jpg" />
+  <img src="Z:/picture/005/save_picture_875053.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Squeed 1.12.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875050.jpg" />
+  <img src="Z:/picture/005/save_picture_875050.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ ExpanDrive 5.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875030.jpg" />
+  <img src="Z:/picture/005/save_picture_875030.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ NoteBurner Spotify Music Converter 1.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874721.jpg" />
+  <img src="Z:/picture/005/save_picture_874721.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wondershare DVD Creator 6.1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874716.jpg" />
+  <img src="Z:/picture/008/save_picture_874716.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ MediaHuman Youtube Downloader 3.9.9.35 (build 0604) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874714.jpg" />
+  <img src="Z:/picture/005/save_picture_874714.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Boom 2 v1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874512.jpg" />
+  <img src="Z:/picture/005/save_picture_874512.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ AdGuard 2.4.6.758 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874432.jpg" />
+  <img src="Z:/picture/005/save_picture_874432.jpg" />
 </div>
 
 

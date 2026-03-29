@@ -1,3 +1,139 @@
+###  Публикация: 1116490   (824650) от 19.03.2017
+
+oneSafe 2.1.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаетесь помнить все эти имена пользователей и пароли к банковским счетам, электронным почтам и социальным сетям? Расслабьтесь. oneSafe позаботиться об этом.
+На самом деле, oneSafe не только надежно хранит все ваши пароли и другую конфиденциальную информацию, но и синхронизирует все данные между вашими Mac, iPhone и iPad, так что вы можете иметь их под рукой, где (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 февраля 2017Разработчик: Lunabee Pte. Ltd.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAB8B73CB50381E479954B4ABF931B7945F4E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007048   (824624) от 13.04.2016
+
+Stellar Phoenix Mac Data Recovery 7.1.0.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellar Phoenix Data Recovery обеспечивает возможность быстрого и эффективного восстановления утраченных данных, которые были удалены в результате небрежных действий пользователей или пострадали от сбоя оборудования. Программа успешно распознает более 190 различных файловых форматов и позволяет восстановить данные с жестких дисков, а также с компакт-дисков, портативных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 марта 2016Разработчик: Stellar Information Technology Pvt. Ltd.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DF86C7FB542D604451F435048BEF4B9A40BF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115818   (824584) от 19.03.2017
+
+Panorama - Perspective Image Stitcher 1.1.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Panorama - профессиональное высококачественное программное обеспечение для создания панорам
+Panorama усовершенствовала технологию сопоставления изображений homograph, основное преимущество которой перед другими приложениями такого типа заключается в том, что она не деформирует горизонтальные края панорамы, что делает ее идеальной для фотографирования архитектурных (   Читать дальше...   )Тип издания: mac OSSoftwareРелиз состоялся: 14 марта 2017Разработчик: Limit Point LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59E41574C5065EB368FC8932A53A37DFF5165A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007003   (824525) от 13.04.2016
+
+Microsoft Office Standard 2016 v15.21.1 (with License/Serializer Installer) [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, OneNote и Outlook, сочетающие в себе знакомый интерфейс Office и уникальные возможности Mac, которые успели вам полюбиться.Тип издания: OS X SoftwareРелиз состоялся: 11 апреля 2016Разработчик: MicrosoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса программы зависит от дефолтного OS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA5EB55D043B0CBB3157EE697B0AF08E693E246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115824   (824366) от 19.03.2017
+
+Mosaic - Photo Collage, Blend and Tile 1.0.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mosaic - забавное приложение, которое создает коллажи, состоящие из плиток, расположенных в соответствии с широким разнообразием шаблонов компоновки. Поскольку шаблоны можно перетаскивать «в и из» приложения «из и в» Finder, вы можете делиться ими, хранить их, отправлять им по электронной почте и т. д.
+
+Мозаика содержит 48 встроенных шаблонов, но вы можете сделать (   Читать дальше...   )Тип издания: mac OSSoftwareРелиз состоялся: 03 января 2017Разработчик: Limit Point LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B852505BE6F4483F110165A7CEA16D3180BEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116450   (824225) от 19.03.2017
 
 Memory Cleaner 5.1 [Multi/Ru]
@@ -6,7 +142,7 @@ Memory Cleaner 5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824225.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ Movavi Screen Capture 4 v4.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824084.jpg" />
 </div>
 
 
@@ -64,7 +200,7 @@ Art Text 2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823225.jpg" />
 </div>
 
 
@@ -92,7 +228,7 @@ App Uninstaller 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823129.jpg" />
 </div>
 
 
@@ -120,7 +256,7 @@ Mirror for Panasonic TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822898.jpg" />
 </div>
 
 
@@ -149,7 +285,7 @@ Bartender 3 v3.1.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822649.jpg" />
 </div>
 
 
@@ -176,7 +312,7 @@ iCollections 7 v7.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821516.jpg" />
+  <img src="Z:/picture/008/save_picture_821516.jpg" />
 </div>
 
 
@@ -202,7 +338,7 @@ ArtRage 4.5.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820900.jpg" />
+  <img src="Z:/picture/008/save_picture_820900.jpg" />
 </div>
 
 
@@ -228,7 +364,7 @@ Live Interior 3D Pro 2.9.8 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820776.jpg" />
+  <img src="Z:/picture/008/save_picture_820776.jpg" />
 </div>
 
 
@@ -255,7 +391,7 @@ PDF Expert 2.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820439.jpg" />
+  <img src="Z:/picture/008/save_picture_820439.jpg" />
 </div>
 
 
@@ -284,7 +420,7 @@ Movavi Video Editor 5.2.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820416.jpg" />
+  <img src="Z:/picture/008/save_picture_820416.jpg" />
 </div>
 
 
@@ -310,7 +446,7 @@ Benvista PhotoZoom Pro 7.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820410.jpg" />
+  <img src="Z:/picture/008/save_picture_820410.jpg" />
 </div>
 
 
@@ -337,7 +473,7 @@ Boxy: email client for "Inbox by Gmail" 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819759.jpg" />
+  <img src="Z:/picture/008/save_picture_819759.jpg" />
 </div>
 
 
@@ -366,7 +502,7 @@ TextSoap 8 v8.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819686.jpg" />
+  <img src="Z:/picture/008/save_picture_819686.jpg" />
 </div>
 
 
@@ -392,7 +528,7 @@ PhoneRescue 2.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819647.jpg" />
+  <img src="Z:/picture/008/save_picture_819647.jpg" />
 </div>
 
 
@@ -418,7 +554,7 @@ BookReader 5.1 (AppStore) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819643.jpg" />
+  <img src="Z:/picture/008/save_picture_819643.jpg" />
 </div>
 
 
@@ -447,7 +583,7 @@ Typinator 8 v8.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819599.jpg" />
+  <img src="Z:/picture/008/save_picture_819599.jpg" />
 </div>
 
 
@@ -476,7 +612,7 @@ DrawnStrips Reader - The Best Comic Reader 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819558.jpg" />
+  <img src="Z:/picture/008/save_picture_819558.jpg" />
 </div>
 
 
@@ -505,7 +641,7 @@ Simplify 3.3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819557.jpg" />
+  <img src="Z:/picture/008/save_picture_819557.jpg" />
 </div>
 
 
@@ -532,7 +668,7 @@ AirFoil+Airfoil Satellite 5.10.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819493.jpg" />
+  <img src="Z:/picture/008/save_picture_819493.jpg" />
 </div>
 
 
@@ -558,7 +694,7 @@ Flux 6.0.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819447.jpg" />
+  <img src="Z:/picture/008/save_picture_819447.jpg" />
 </div>
 
 
@@ -569,143 +705,6 @@ Flux является передовым программным обеспече
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:260C23C20D4F299C4A6399A97A3297F12788862E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007901   (819313) от 16.04.2016
-
-Pomodoro Time Pro 1.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pomodoro Time Pro - Создание задач, настроить перерывы и отслеживать ваши успехи в течение дня, недели или произвольный промежуток.
-«Помидорная техника» планирования В основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
-Pomodoro Таймер: Сосредоточьтесь на производительности. Pomodoro Таймер поможет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 ноября 2015Разработчик: Denys YevenkoПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177E4E71C94263E467347F69771C801ED75C278F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382474   (819287) от 11.05.2020
-
-PriceWatcher 1.2.33 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819287.jpg" />
-</div>
-
-
-###  Подробнее
-
-PriceWatcher - это программное обеспечение, которое отслеживает изменения цен (Amazon, ...) и уведомляет вас о снижении цены.Тип издания: macOS X SoftwareРелиз состоялся: 06.02.2020Разработчик: Kevin QuereПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский, Французский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8D1D3DF522F41ECED74042D52D881B541219D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117228   (819263) от 22.03.2017
-
-PDFpenPro 8.3.3 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819263.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFpen Pro - Программа для создания и редактирования PDF-документов. С помощью PDFpen Pro вы сможете добавлять тексты, картинки, подписи, заполнять формы, делать исправления, добавлять, удалять и изменять порядок страниц. Помимо этого вы можете создавать собственные формы и таблицы контента.
-
-Так же PDFpen Pro умеет распознавать отсканированные документы для последующего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2017Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: OS X 10.10  +Язык интерфейса: Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0DEF489416B94C14750720CBDF9BBC8F3693A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117391   (819254) от 22.03.2017
-
-Accenssible 1.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Accessible - меню с простым доступом к любому из ваших любимых и наиболее важных файлов.
-Accessible позволяет обойти Finder или любое другое приложение для файловой системы и сосредоточиться на том, что действительно важно: добиться цели.
-
-Оптимизируйте рабочий процесс и уменьшите беспорядок, быстро открывая файлы и приложения, расположенные в любом месте вашего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 марта 2017Разработчик: Jonathan HannaПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6B6CFCC2D047DE6E9686720C685A0A71547367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197032   (819035) от 05.01.2018
-
-Diagrammix 2.16 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент для для построения любых видов диаграмм с минимальными услилиями с вашей стороны. Если вы студент, менеджер или руководитель, то с этим инструментом вы можете составить диаграмму любой сложности легко и просто. Такой инструмент пригодится для иллюстрирования отчетов и при подготовке презентаций. Он поможет вам схематично выразить свои мысли, обнаружить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2017Разработчик: Deep IT ProПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24C7B05EE7CBF50C134D56A58200690AF730DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

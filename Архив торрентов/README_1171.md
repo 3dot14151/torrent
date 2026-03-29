@@ -6,7 +6,7 @@ IObit Malware Fighter Pro 5.0.2.3788 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786272.jpg" />
+  <img src="Z:/picture/008/save_picture_786272.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ foobar2000 1.3.15 Stable Portable by LUR (07.04.17) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786270.jpg" />
+  <img src="Z:/picture/008/save_picture_786270.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SamDrivers 17.4 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786264.jpg" />
+  <img src="Z:/picture/008/save_picture_786264.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786262.jpg" />
+  <img src="Z:/picture/008/save_picture_786262.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786261.jpg" />
+  <img src="Z:/picture/008/save_picture_786261.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786249.jpg" />
+  <img src="Z:/picture/008/save_picture_786249.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786241.jpg" />
+  <img src="Z:/picture/008/save_picture_786241.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Nothing But... Trance Anthems Vol.8 (2017) [MP3|320 Kbps] <Trance, Upliftin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786219.jpg" />
+  <img src="Z:/picture/008/save_picture_786219.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Iris Dee Jay - Love Shines Through (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786217.jpg" />
+  <img src="Z:/picture/008/save_picture_786217.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Trancespotting Vol.3 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786201.jpg" />
+  <img src="Z:/picture/008/save_picture_786201.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Frumpy - All Will Be Changed (1970) 1991, Repertoire Records [WavPack|Lossless|i
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786198.jpg" />
+  <img src="Z:/picture/008/save_picture_786198.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Trance Invasion Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786187.jpg" />
+  <img src="Z:/picture/008/save_picture_786187.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786179.jpg" />
+  <img src="Z:/picture/008/save_picture_786179.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Allavsoft Video Downloader Converter 3.14.2.6304 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786174.jpg" />
+  <img src="Z:/picture/008/save_picture_786174.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ One Chat - All in one Messenger 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786173.jpg" />
+  <img src="Z:/picture/008/save_picture_786173.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ QLab Pro 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786168.jpg" />
+  <img src="Z:/picture/008/save_picture_786168.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Melodic Progressive Trance #01 - Armada Music (2017) [MP3|320 Kbps] <Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786150.jpg" />
+  <img src="Z:/picture/008/save_picture_786150.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786142.jpg" />
+  <img src="Z:/picture/008/save_picture_786142.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786131.jpg" />
+  <img src="Z:/picture/008/save_picture_786131.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ PicPick 4.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786127.jpg" />
+  <img src="Z:/picture/008/save_picture_786127.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Viber 6.7.0.1095 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786120.jpg" />
+  <img src="Z:/picture/008/save_picture_786120.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Vivaldi Browser 1.9.804.3 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786116.jpg" />
+  <img src="Z:/picture/008/save_picture_786116.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Comodo Dragon 55.0.2883.59 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786111.jpg" />
+  <img src="Z:/picture/008/save_picture_786111.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786101.jpg" />
+  <img src="Z:/picture/008/save_picture_786101.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Adobe Dreamweaver CC 2017 (17.0.2) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786096.jpg" />
+  <img src="Z:/picture/008/save_picture_786096.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Audirvana Plus 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786095.jpg" />
+  <img src="Z:/picture/008/save_picture_786095.jpg" />
 </div>
 
 

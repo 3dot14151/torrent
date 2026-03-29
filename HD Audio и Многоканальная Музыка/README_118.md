@@ -1,3 +1,235 @@
+###  Публикация: 1718027   (111059) от 22.04.2024
+
+U.D.O. - Holy (1999) [APE|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111059.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Holy
+A2 Raiders Of Beyond
+A3 Shout It Out
+A4 Recall The Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139FEEC517B52DD5EB5DA417F73536DA1ECDFE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717894   (111053) от 22.04.2024
+
+Mayinbo - Poetry in Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above All (4:06)
+02. In your Birthday (2:29)
+03. The Road has Lengthened (3:12)
+04. Precursor (1:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B940733843D946B56D55BC6E386176435465541B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718005   (111045) от 22.04.2024
+
+Die Ballista - Burial Bell (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <doommetal, doomdeath, sludge Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Their Bones [00:04:09]
+02. Master Reptile [00:05:34]
+03. Savage Till the End [00:05:26]
+04. Necroinspector [00:07:07](   Читать дальше...   )Жанр: doommetal, doomdeath, sludge MetalПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FB3EA036F6AB5423B931DAD4EDD06F62193F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717893   (111044) от 22.04.2024
+
+Guenna - Peak of Jin'Arrah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bongsai (5:22)
+02. Dimension X (9:03)
+03. Glastonbury Grove (2:12)
+04. Dark Descent (6:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665A1B8CE761B2593D7A558DB6B9F6EF410FA1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717890   (111043) от 22.04.2024
+
+Arne Skage - Rootwork (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tootie Ma (4:00)
+02. Thalulah (3:57)
+03. Keeping The Blues Alive (3:44)
+04. Nothing Is Made To Last (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DFF215C6C15C0BC570F1087B2FE5B17E835855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717898   (111040) от 22.04.2024
+
+Pontchartrain Shakers - Pontchartrain Shakers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time To Make A Change (5:57)
+02. Going Fishing (4:08)
+03. I Need A Creole Woman (6:28)
+04. Miss You Baby (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3401CE39426D2531A10957046952C48CF50F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717899   (111039) от 22.04.2024
+
+Praying Mantis - Defiance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Start (4:27)
+02. Defiance (4:06)
+03. Feelin' Lucky (3:46)
+04. I Surrender (3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425562556F4940EE9165BD89E6781DAA53A423CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717901   (111036) от 22.04.2024
+
+Vanessa Peters - Flying On Instruments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beauty Or Grace (5:10)
+02. Halfway Through (4:40)
+03. Blind Curves (5:23)
+04. Better (4:46)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E411F598519D6DF3EF527FB9BED14DDC2FBDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717891   (111035) от 22.04.2024
 
 Chicago Mike Beck - LOVE! It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +238,7 @@ Chicago Mike Beck - LOVE! It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111035.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111022.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Bronze - In Chains and Shadows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110982.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Scott H. Biram - The One & Only Scott H. Biram (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110980.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Nicholas Alexander - Lil Hoochie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110978.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Brian Stoltz - New World Rising (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110977.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110975.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Mike Fisher - 12 Days of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110974.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Grackles - Grackles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110972.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ The Roy Poulton Blues Band - Bluesbeard (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110971.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Jean-Jacques Milteau - Key To The Highway (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110970.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110968.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Brace For War - Chromium Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110965.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Shawn Kellerman - Kell's Kitchen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110961.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Accept - Humanoid (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110927.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Kickin Valentina - Star Spangled Fist Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110917.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ U.D.O. - Mastercutor (2007) Released, 2010, Night Of The Vinyl Dead Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110914.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Coal Chamber - Studio Albums (4 releases) (1997-2015) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110912.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Coal Chamber — ню-метал-группа из Лос-Анджелеса, о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41B72A56C833363BEBE51953C32867257415C412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718719   (110848) от 26.04.2024
-
-Lords Of Black - Studio Albums (6 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lords of Black — испанская хэви-метал группа, основанная в Мадриде в 2014 году гитаристом Тони Эрнандо и вокалистом Ронни Ромеро.2014 - Lords Of Black
-2016 - II
-2018 - Icons Of The New Days
-2020 - Alchemy Of Souls - Part I -Жанр: Heavy/Power MetalПродолжительность: 06:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213090019EF8466C5CBDDA023E97FD4FCFF9A511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718721   (110844) от 26.04.2024
-
-Justice - Hyperdrama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Synth-Pop, House, Electro House, Nu-Disco, Electroclash>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Neverender (04:26)
-2. Generator (04:42)
-3. Afterimage (04:05)
-4. One Night/All Night (04:36)(   Читать дальше...   )Жанр: Electronic, Synth-Pop, House, Electro House, Nu-Disco, ElectroclashПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B109C60F12C0BFDC288C007DD34E06DEBD9836F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718730   (110826) от 26.04.2024
-
-H.E.A.T. - Freedom Rock (2010) Remixed, 2023, H.e.a.t. [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Gonna Make It To The End (2023 remix) (3:50)
-02. Black Night (2023 remix) (4:29)
-03. I Can't Look The Other Way (2023 remix) (3:50)
-04. Shelter (2023 remix) (3:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F67DAA69602F6396361CE4A1B611D2377E0E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718727   (110825) от 26.04.2024
-
-Six by Six - Beyond Shadowland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wren (5:06)
-02. The Arms of a Word (5:35)
-03. Can't Live Like This (5:09)
-04. Obiliex (5:23)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97E46B93D2D50C34E32415D2C076A167547766A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718706   (110824) от 26.04.2024
-
-Giuffria - Giuffria (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Arena Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110824.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Do Me Right
-A2 Call To The Heart
-A3 Don't Tear Me Down
-A4 Dance(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F674647C58623CB1816A4780308B3CD99FEC2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718811   (110821) от 26.04.2024
-
-Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|24/96|tracks|Vinyl-Rip] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Legal Requirements
-02 Wrong Faith
-03 Meaningless Life
-04 Fire Below The Ash(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B6856692434CD8262EFA6E9E9F3B7089D8E247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718963   (110753) от 27.04.2024
-
-Diary Of Dreams & Philharmonie Leipzig - Under a timeless spell (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malum (Uats Version) [00:05:20]
-02. She and Her Darkness (Uats Version) [00:04:29]
-03. The Valley (Uats Version) [00:06:47]
-04. Hiding Rivers (Uats Version) [00:05:53](   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54661796A4C4419D7855C591120FC6D5E22EFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718934   (110747) от 27.04.2024
-
-Eric Clapton - To Save a Child (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Voice of a Child (00:03:31)
-02 - Tears in Heaven (00:04:31)
-03 - Layla (00:06:00)
-04 - Nobody Knows You When You're Down and Out (00:03:23)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4134EC532C40A5199869FC82AC2864C26D5415
 ```
 
 https://mybot314.ru/tekegram_catalog/

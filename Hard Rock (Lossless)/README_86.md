@@ -1,3 +1,61 @@
+###  Публикация: 1431986   (164348) от 17.12.2020
+
+Vega - Grit Your Teeth (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind (3:46)
+02. (I Don't Need) Perfection (4:11)
+03. Grit Your Teeth (3:41)
+04. Man On A Mission (3:24)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDF015F4F60F73E361ACDF5BDF6FF57B58218A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598098   (164252) от 17.12.2022
+
+Highway Horizon - Twilight Dimension (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blossom (04:32)
+02. Goodbye Paradise (03:56)
+03. Made of Rain (03:28)
+04. Where the Broken Angels Grow (04:30)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA714778BD5A87F712F39B5D948682804B6BF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346361   (163849) от 19.12.2019
 
 John Elefante - 4 альбома (1995-2013) Collection [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Progressive Rock>
@@ -6,7 +64,7 @@ John Elefante - 4 альбома (1995-2013) Collection [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163849.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jim Peterik And World Stage - Tigress - Women Who Rock The World (2021) Japanese
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163662.jpg" />
 </div>
 
 
@@ -66,7 +124,7 @@ Life Of A Hero - Letting Go (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163644.jpg" />
 </div>
 
 
@@ -95,7 +153,7 @@ Phenomena - 7 albums, 14 CD (1985-2020) [FLAC|Lossless|image + .cue | tracks+.cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163632.jpg" />
 </div>
 
 
@@ -124,7 +182,7 @@ The Yardbirds - 15 albums, 1 Box set, 27 CD (1963-2018) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163534.jpg" />
 </div>
 
 
@@ -153,7 +211,7 @@ Tony Iommi - 9 albums, 13 CD (1996-2012) [FLAC|Lossless|image + .cue | tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163522.jpg" />
 </div>
 
 
@@ -185,7 +243,7 @@ Lordi - Lordiversity (2021) Box Set, Limited Edition, 7xCD [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163513.jpg" />
 </div>
 
 
@@ -214,7 +272,7 @@ Ritual King - Ritual King (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163447.jpg" />
 </div>
 
 
@@ -243,7 +301,7 @@ Grim Comet - Winter of Hate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163443.jpg" />
 </div>
 
 
@@ -272,7 +330,7 @@ Sweet Hole - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163406.jpg" />
 </div>
 
 
@@ -301,7 +359,7 @@ C.I.T.A. - Heat Of Emotion (1996) Japan [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163364.jpg" />
 </div>
 
 
@@ -330,7 +388,7 @@ Balls Gone Wild - Stay Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162648.jpg" />
 </div>
 
 
@@ -359,7 +417,7 @@ Cirkus Prutz - Blues Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162640.jpg" />
 </div>
 
 
@@ -388,7 +446,7 @@ Sonic Dynamite - Another World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162626.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ Acceso Norte - Shadows of Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162624.jpg" />
 </div>
 
 
@@ -446,7 +504,7 @@ Black Hornet - Remove Before Flight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162621.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ Badery - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162582.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ Bad Montana - Rock City (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162574.jpg" />
 </div>
 
 
@@ -533,7 +591,7 @@ Magick Touch - Heads Have Got To Rock 'n' Roll (2020) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162366.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Stoneflower - Finally (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162347.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Unruly Child - Our Glass House (2020) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162302.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Drunken Buddha - II (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Classic Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162282.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Wildness - Ultimate Demise (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162255.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Godwatt - Vol. III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162154.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ Godwatt - Vol. III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD06575E40A68F2D0F30DE61FCFE4EDC78649F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598714   (162023) от 20.12.2022
-
-Lesbian Bed Death - The Plague Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Book Of The Dead 03:31
-02. Halloween 03:32
-03. Death By Stereo 03:53
-04. Evil Never Dies 04:14(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1B8B59EFAF5D5E834E9EC9A1982B3D1E358143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598741   (162006) от 20.12.2022
-
-Sonum X - Metamorpher (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro.Version [00:02:06]
-02. Metamorpher [00:03:12]
-03. X.@.n.@.X. [00:03:31]
-04. Dust n' bones [00:04:41](   Читать дальше...   )Жанр: Heavy Psych, StonerПродолжительность: 00:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D7816CDF46F7BC0BD2EB9123F5D75D0BCEEF5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

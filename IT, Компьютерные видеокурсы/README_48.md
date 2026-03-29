@@ -1,3 +1,142 @@
+###  Публикация: 1226131   (656350) от 19.05.2018
+
+Marlin | Самый понятный курс по php для начинающих (2018) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс особенно будет полезен каждому начинающему. А также застрявшим где-то на пути синтаксиса, утонувшим в океане под названием фреймворк (Laravel, Yii2 и т.д.). И тем кто потерялся в глухом городе под названием «Не вижу и не понимаю куда двигаться?». Всем тем, которые задаются вопросом А как это работает? Я же так повторить не смогу! И наконец тем, которые еще ни (   Читать дальше...   )Жанр: Программирование, PHPПродолжительность: 22:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB77C83244EE49AA9C82F2F44138C60CA81CC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226392   (655359) от 20.05.2018
+
+GeekUniversity | Вторая четверть. Разработка Backend-а интернет-магазина (2018) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта четверть полностью посвящена разработке backend-а. Вы разработаете свой собственный движок на PHP MVC, освоите базу данных MySql, погрузитесь вглубь операционной системы. Эти знания позволят вам написать полностью работающий интернет-магазин.Жанр: Программирование, PHPПродолжительность: 74:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6642C6D3F4FA31415120AF97123ED62C90D01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904268   (655072) от 02.06.2015
+
+GeekBrains | HTML/CSS Основы создания сайтов (2015) PCRec [H.264/720p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс HTML и CSS. Основы создания сайтов - это первая ступень в обучении профессии “Веб-разработчик”, так как без знания этих языков невозможно изучать веб-программирование. Поэтому данный курс рассчитан на людей, которые хотят научиться делать сайты, но не знают, что им для этого необходимо изучать.
+
+Обучение начнется с самых азов, т.е. с небольшой теоретической (   Читать дальше...   )Жанр: HTML, CSSПродолжительность: 19:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88985AB3C1BD78F527362B6761CBA6D2F49F37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515965   (654155) от 27.06.2012
+
+Специалист | Курс 50217 Планирование, развертывание и управление System Center Service Manager 2010 [2011] PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_654155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft System Center Service Manager — программный комплекс, входящий в состав решения по управлению ИТ-инфраструктурой Microsoft System Center. Данный продукт позволяет организовать управленческую деятельность по организации работы ИТ-службы предприятия в соответствии с лучшими практиками ITIL и методикой MOF v. 4.0.
+
+Курс актуален для руководителей ИТ-отделов, департаментов, ИТ-специалистов, занятых в службе поддержки, руководителей и аналитиков консалтинговой практики в области ИТ-услуг.
+
+По окончании курса Вы будете уметь:
+Развертывать, настраивать, конфигурировать и сопровождать Microsoft System Center Service Manager в соответствии с организацией ИТ-службы на основе лучших практик ITIL и методик MOF.
+
+Дополнительную информацию можно посмотреть на http://www.specialist.ru/course/m50217.Жанр: IT-менеджментПродолжительность: 11:31:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031310   (653059) от 03.07.2016
+
+foreven.ru | Конференция: Взгляд через объектив 2.0 (2016) WEB-DL
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если на семейных праздниках и в путешествиях Вы не выпускаете из рук фотоаппарат и видеокамеру, если Вы любите фотографировать и снимать на видео других людей, если Вы замечаете интересные вещи и видите необычное в обычном, если Вы мечтаете реализовать себя и воплотить свои творческие замыслы, если Вы давно хотели освоить творческую профессию и если Вы уже связаны (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 54:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F30E8913A936B6E28E7958ADB1D40CBA6D161FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031027   (652959) от 03.07.2016
 
 Geekbrains | SEO. Оптимизация и продвижение сайтов (2014) PCRec
@@ -6,7 +145,7 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652959.jpg" />
+  <img src="Z:/picture/008/save_picture_652959.jpg" />
 </div>
 
 
@@ -32,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652855.jpg" />
+  <img src="Z:/picture/008/save_picture_652855.jpg" />
 </div>
 
 
@@ -62,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652843.jpg" />
+  <img src="Z:/picture/008/save_picture_652843.jpg" />
 </div>
 
 
@@ -90,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_652841.jpg" />
+  <img src="Z:/picture/005/save_picture_652841.jpg" />
 </div>
 
 
@@ -117,7 +256,7 @@ IТVDN | АngulаrJS Еssеntiаl (2015) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652777.jpg" />
+  <img src="Z:/picture/008/save_picture_652777.jpg" />
 </div>
 
 
@@ -143,7 +282,7 @@ ITVDN | Entity Framework 6 (2015) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652755.jpg" />
+  <img src="Z:/picture/008/save_picture_652755.jpg" />
 </div>
 
 
@@ -169,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650660.jpg" />
+  <img src="Z:/picture/008/save_picture_650660.jpg" />
 </div>
 
 
@@ -195,7 +334,7 @@ GeekBrains | nginx Создание веб-серверов (2015) PCRec [H.264/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650648.jpg" />
+  <img src="Z:/picture/008/save_picture_650648.jpg" />
 </div>
 
 
@@ -221,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649609.jpg" />
+  <img src="Z:/picture/008/save_picture_649609.jpg" />
 </div>
 
 
@@ -247,7 +386,7 @@ HighLoad | Профессиональная конференция разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645052.jpg" />
+  <img src="Z:/picture/008/save_picture_645052.jpg" />
 </div>
 
 
@@ -276,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644802.jpg" />
+  <img src="Z:/picture/008/save_picture_644802.jpg" />
 </div>
 
 
@@ -302,7 +441,7 @@ CyberMarketing | Онлайн-конференция по SEO и веб-анал
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644257.jpg" />
+  <img src="Z:/picture/008/save_picture_644257.jpg" />
 </div>
 
 
@@ -328,7 +467,7 @@ ITVDN | Unity3D Создание Clicker (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643262.jpg" />
+  <img src="Z:/picture/008/save_picture_643262.jpg" />
 </div>
 
 
@@ -354,7 +493,7 @@ ITVDN | Разработка пользовательского граф. инт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643257.jpg" />
+  <img src="Z:/picture/008/save_picture_643257.jpg" />
 </div>
 
 
@@ -380,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643250.jpg" />
+  <img src="Z:/picture/008/save_picture_643250.jpg" />
 </div>
 
 
@@ -408,7 +547,7 @@ Tony Hillerson | Developing Android Applications with Java. Part 1. [2010] PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643208.jpg" />
+  <img src="Z:/picture/008/save_picture_643208.jpg" />
 </div>
 
 
@@ -441,7 +580,7 @@ Lynda.com | Foundation (2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640046.jpg" />
+  <img src="Z:/picture/008/save_picture_640046.jpg" />
 </div>
 
 
@@ -467,7 +606,7 @@ Lynda.com | HTML (2010-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639919.jpg" />
+  <img src="Z:/picture/008/save_picture_639919.jpg" />
 </div>
 
 
@@ -493,7 +632,7 @@ ITVDN | Unity3D Написание игрового сервера и созда
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639367.jpg" />
+  <img src="Z:/picture/008/save_picture_639367.jpg" />
 </div>
 
 
@@ -519,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639350.jpg" />
+  <img src="Z:/picture/008/save_picture_639350.jpg" />
 </div>
 
 
@@ -545,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639031.jpg" />
+  <img src="Z:/picture/008/save_picture_639031.jpg" />
 </div>
 
 
@@ -559,141 +698,6 @@ Python Intermediate - 03:36:36(   Читать дальше...   )Жанр: Ра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24645654BD6D53F568799856090736B4DCC49D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800846   (638061) от 30.06.2014
-
-Lynda.com | CSS (2009-2013) [PCRec] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сборник видеуроков от Lynda.com по CSS за 2009 - 2013 года. Сюда вошли 15 курсов от Lynda.com. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 55:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB78659193B728857725CED1F437EC3185EA2EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800863   (637963) от 30.06.2014
-
-Lynda.com | JavaScript (2011-2014) [PCRec] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сборник видеуроков от Lynda.com по JavaScript за 2011 - 2014 года. Сюда вошли 18 курсов от Lynda.com. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 39:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA395AFCE37D1D7CCB3056B0160409D395B5E0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143074   (636933) от 17.06.2017
-
-Виктор Стиннер | Оптимизации, сделавшие Python 3.6 быстрее Python 3.5 (2017) HDTV
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Различные оптимизации сделали Python 3.6 быстрее Python 3.5. Давайте разберём, что и как было сделано.
-
-Python 3.6 превосходит любую другу версию во многих тестах производительности. Мы познакомимся с результатами тестов на Python 2.7, 3.5 и 3.6.
-(   Читать дальше...   )Производство: PSFЖанр: ПрограммированиеПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CE43C689AAB04C74F584A475F8E6EF2C0E4C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143077   (636821) от 17.06.2017
-
-Реймонд Хеттинджер | Современные словари в Python: Сочетание дюжины отличных идей (2017) HDTV
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Словари в Питоне удивительно хороши. На протяжении многих лет различные идеи дополняли друг друга, чтобы образовать современную реализацию в Питоне 3.6.
-
-Этот рассказ в картинках и коде объяснит ключевые идеи и их развитие в течении времени, затронет темы разделяемых ключей, компактности и версионирования.Производство: PSFЖанр: ПрограммированиеПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECF8DE8F6BD84C513F604F6BBFF56507B720637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800975   (636190) от 01.07.2014
-
-Lynda.com | PHP (2012-2014) [PCRec] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сборник видеуроков от Lynda.com по PHP за 2012 - 2014 года. Сюда вошли 17 курсов от Lynda.com. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 51: 36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51FBCDE625F5756295F9C4BB0BE674D572348DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

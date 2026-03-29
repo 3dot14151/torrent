@@ -1,3 +1,139 @@
+###  Публикация: 1403864   (686028) от 22.08.2020
+
+[Udemy] Maximilian Schwarzmüller | Ускоренное обучение JavaScript / Accelerated JavaScript Training (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко погрузитесь в JavaScript, язык, который необходимо знать в веб-разработке, с практическим подходом, основанным на примерах.
+Изучите один из самых важных языков в веб-разработке - быстро и с нуля!
+JavaScript - одна из самых важных частей каждой современной, реактивной, удобной веб-страницы или приложения. Несмотря на этот факт, вы, возможно, знаете много руководств, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68BDBEA6478BEDB528F82FD5F2410D5D86ED948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403856   (685711) от 22.08.2020
+
+[Foxminded] Sergey Nemchinskiy | GRASP and GoF Design patterns Advanced On-line Course (2020) CamRip (re-encoded) (2020) CamRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паттерны – это именно те фичи, которые облегчают жизнь кодеру, они решают конкретную проблему каждый раз новым путём. Хочешь узнать как их применять, когда проектируешь приложения и не только? Тогда не упусти шанс прокачать свои скиллы уже здесь и сейчас. Проще говоря, ты сэкономишь своё время и силы, ведь паттерны это уже готовые решения, а тебе нужно будет лишь (   Читать дальше...   )Производство: FoxmindedЖанр: ПрограммированиеПродолжительность: 13:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD3EF3BADEC94C32BB311FE14574866E6F8DE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222371   (684560) от 29.04.2018
+
+Олег Арестов | PHP. Основы веб-разработки [Уровень 1] (2018) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684560.jpg" />
+</div>
+
+
+###  Подробнее
+
+PHP входит в тройку самых востребованных и популярных языков программирования в мире. Он широко применяется при создании динамически генерируемых веб-страниц. Большинство фрилансеров-программистов в мире используют язык PHP: он позволяет разрабатывать динамические сайты любой сложности и обладает большим набором встроенных средств для разработки веб-приложений.
+Курс (   Читать дальше...   )Производство: GeekBrainsЖанр: ITПродолжительность: 18:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16DC0DED29AEA8ADB3B8C03B03412536781B027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222375   (684454) от 29.04.2018
+
+Артем Шашков | JavaScript. Продвинутый курс [Уровень 2] (2018) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для тех, кто уже освоил базовые возможности языка JavaScript, и теперь хочет научиться делать реально крутые вещи. Каждый урок включает в себя как полезную теорию, так и эффективную практику. Насыщенный самыми актуальными знаниями и навыками, продвинутый курс от GeekBrains - это возможность быстро и надёжно стать профессиональным разработчиком JavaScript.Производство: GeekBrainsЖанр: ITПродолжительность: 17:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198C8AD54765DE2E43DD7B4E02D134985D952768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221883   (684443) от 29.04.2018
+
+Мефодий Келевра | Информационная безопасность (2018) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для людей с небольшими знаниями в области информационной безопасности. Требуется минимальное понимание устройства сетей и используемых в них протоколов. Приветствуется знание UNIX-подобных систем. Если этих знаний нет или их недостаточно, в курсе вы сможете их получить.
+
+Чему Вы научитесь:
+• Ключевым сетевым протоколам, принципам их работы;(   Читать дальше...   )Производство: GeekBrainsЖанр: ITПродолжительность: 17:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588F6B69973D71D4D6B82D2F7F27A05D76DCA739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 342624   (681049) от 16.06.2014
 
 Yandex.ru |  Курсы информационных технологий [2011] [RU] CAMRip
@@ -6,7 +142,7 @@ Yandex.ru |  Курсы информационных технологий [2011]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_681049.jpg" />
+  <img src="Z:/picture/005/save_picture_681049.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ Udemy, Aray Kaken | Основы DevOps (2021) HDRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680090.jpg" />
+  <img src="Z:/picture/008/save_picture_680090.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679772.jpg" />
+  <img src="Z:/picture/008/save_picture_679772.jpg" />
 </div>
 
 
@@ -88,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679758.jpg" />
+  <img src="Z:/picture/008/save_picture_679758.jpg" />
 </div>
 
 
@@ -114,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679041.jpg" />
+  <img src="Z:/picture/008/save_picture_679041.jpg" />
 </div>
 
 
@@ -142,7 +278,7 @@ Yandex.ru |  Второй Курс информационных технолог
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_679040.jpg" />
+  <img src="Z:/picture/005/save_picture_679040.jpg" />
 </div>
 
 
@@ -170,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678910.jpg" />
+  <img src="Z:/picture/008/save_picture_678910.jpg" />
 </div>
 
 
@@ -196,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677864.jpg" />
+  <img src="Z:/picture/008/save_picture_677864.jpg" />
 </div>
 
 
@@ -222,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677767.jpg" />
+  <img src="Z:/picture/008/save_picture_677767.jpg" />
 </div>
 
 
@@ -250,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677766.jpg" />
+  <img src="Z:/picture/008/save_picture_677766.jpg" />
 </div>
 
 
@@ -279,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677759.jpg" />
+  <img src="Z:/picture/008/save_picture_677759.jpg" />
 </div>
 
 
@@ -306,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676348.jpg" />
+  <img src="Z:/picture/008/save_picture_676348.jpg" />
 </div>
 
 
@@ -332,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671827.jpg" />
 </div>
 
 
@@ -360,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671568.jpg" />
+  <img src="Z:/picture/008/save_picture_671568.jpg" />
 </div>
 
 
@@ -386,7 +522,7 @@ ProfIT | Исключения - "серебряная пуля" для прог�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671215.jpg" />
+  <img src="Z:/picture/008/save_picture_671215.jpg" />
 </div>
 
 
@@ -414,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669749.jpg" />
+  <img src="Z:/picture/008/save_picture_669749.jpg" />
 </div>
 
 
@@ -442,7 +578,7 @@ Convert Monster | Google Adwords 2.0 (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663883.jpg" />
+  <img src="Z:/picture/008/save_picture_663883.jpg" />
 </div>
 
 
@@ -468,7 +604,7 @@ Oleg Lav | Как создать флешку восстановления Windo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658661.jpg" />
+  <img src="Z:/picture/008/save_picture_658661.jpg" />
 </div>
 
 
@@ -494,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658409.jpg" />
+  <img src="Z:/picture/008/save_picture_658409.jpg" />
 </div>
 
 
@@ -523,7 +659,7 @@ eXeLaB.ru | Курс видеоуроков КРЭКЕРСТВО + ПРОГРА�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657525.jpg" />
+  <img src="Z:/picture/008/save_picture_657525.jpg" />
 </div>
 
 
@@ -549,7 +685,7 @@ Marlin | Объектно-ориентированное программиро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656371.jpg" />
+  <img src="Z:/picture/008/save_picture_656371.jpg" />
 </div>
 
 
@@ -560,145 +696,6 @@ Marlin | Объектно-ориентированное программиро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D98231869F9E511E49D73BBADDE8145DDE71415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226131   (656350) от 19.05.2018
-
-Marlin | Самый понятный курс по php для начинающих (2018) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс особенно будет полезен каждому начинающему. А также застрявшим где-то на пути синтаксиса, утонувшим в океане под названием фреймворк (Laravel, Yii2 и т.д.). И тем кто потерялся в глухом городе под названием «Не вижу и не понимаю куда двигаться?». Всем тем, которые задаются вопросом А как это работает? Я же так повторить не смогу! И наконец тем, которые еще ни (   Читать дальше...   )Жанр: Программирование, PHPПродолжительность: 22:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB77C83244EE49AA9C82F2F44138C60CA81CC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226392   (655359) от 20.05.2018
-
-GeekUniversity | Вторая четверть. Разработка Backend-а интернет-магазина (2018) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта четверть полностью посвящена разработке backend-а. Вы разработаете свой собственный движок на PHP MVC, освоите базу данных MySql, погрузитесь вглубь операционной системы. Эти знания позволят вам написать полностью работающий интернет-магазин.Жанр: Программирование, PHPПродолжительность: 74:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6642C6D3F4FA31415120AF97123ED62C90D01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904268   (655072) от 02.06.2015
-
-GeekBrains | HTML/CSS Основы создания сайтов (2015) PCRec [H.264/720p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс HTML и CSS. Основы создания сайтов - это первая ступень в обучении профессии “Веб-разработчик”, так как без знания этих языков невозможно изучать веб-программирование. Поэтому данный курс рассчитан на людей, которые хотят научиться делать сайты, но не знают, что им для этого необходимо изучать.
-
-Обучение начнется с самых азов, т.е. с небольшой теоретической (   Читать дальше...   )Жанр: HTML, CSSПродолжительность: 19:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88985AB3C1BD78F527362B6761CBA6D2F49F37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515965   (654155) от 27.06.2012
-
-Специалист | Курс 50217 Планирование, развертывание и управление System Center Service Manager 2010 [2011] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft System Center Service Manager — программный комплекс, входящий в состав решения по управлению ИТ-инфраструктурой Microsoft System Center. Данный продукт позволяет организовать управленческую деятельность по организации работы ИТ-службы предприятия в соответствии с лучшими практиками ITIL и методикой MOF v. 4.0.
-
-Курс актуален для руководителей ИТ-отделов, департаментов, ИТ-специалистов, занятых в службе поддержки, руководителей и аналитиков консалтинговой практики в области ИТ-услуг.
-
-По окончании курса Вы будете уметь:
-Развертывать, настраивать, конфигурировать и сопровождать Microsoft System Center Service Manager в соответствии с организацией ИТ-службы на основе лучших практик ITIL и методик MOF.
-
-Дополнительную информацию можно посмотреть на http://www.specialist.ru/course/m50217.Жанр: IT-менеджментПродолжительность: 11:31:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031310   (653059) от 03.07.2016
-
-foreven.ru | Конференция: Взгляд через объектив 2.0 (2016) WEB-DL
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если на семейных праздниках и в путешествиях Вы не выпускаете из рук фотоаппарат и видеокамеру, если Вы любите фотографировать и снимать на видео других людей, если Вы замечаете интересные вещи и видите необычное в обычном, если Вы мечтаете реализовать себя и воплотить свои творческие замыслы, если Вы давно хотели освоить творческую профессию и если Вы уже связаны (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 54:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F30E8913A936B6E28E7958ADB1D40CBA6D161FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

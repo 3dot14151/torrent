@@ -1,3 +1,81 @@
+###  Публикация: 1407907   (415384) от 30.09.2020
+
+Пианист / The Pianist (2002) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по автобиографии Владислава Шпильмана, одного из лучших пианистов Польши 30-х годов прошлого века. Главный герой фильма — Владек — занимается искусством до тех пор, пока территорию Польши не занимают нацисты. Жизнь всех евреев меняется: их помещают в Варшавское гетто, запрещают работать, унижают, заставляют носить отличительные повязки, а через некоторое (   Читать дальше...   )Производство: Польша, Франция, Великобритания, Германия / StudioCanal, Agencja Produkcji Filmowej, Beverly Detroit, Canal+Жанр: Драма, Военный, Биография, МузыкаРежиссер: Роман ПоланскиАктеры: Эдриан Броуди, Эмилия Фокс, Даниэль Кальтаджироне, Эд Стоппард, Морин Липман, Фрэнк Финлей, Джессика Кейт Мейер, Джулия Рейнер, Томас Кречман, Михал ЖебровскийПеревод: ДублированныйСубтитры: Русские (форс., полные), Украинские (форс.), Английские (полные)Продолжительность: 02:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEFEA2E6F5641FB877F2722E84156C88DFDB16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407915   (415289) от 30.09.2020
+
+Кто подставил кролика Роджера / Who Framed Roger Rabbit (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив расследует загадочное преступление, в котором подозревается… мультипликационный персонаж кролик Роджер! Сыщик попадает в непредсказуемый мир, где его ожидают нарисованные злодеи с настоящими револьверами, говорящий автомобиль и соблазнительная мультяшная красотка. Наконец, на горизонте появляется мрачная фигура того, кто подставил кролика Роджера.Производство: США / Touchstone Pictures, Amblin Entertainment, Silver Screen Partners IIIЖанр: мультфильм, фэнтези, комедия, криминал, детективРежиссер: Роберт ЗемекисАктеры: Боб Хоскинс, Кристофер Ллойд, Джоанна Кэссиди, Чарльз Флейшер, Стабби Кэй, Элан Тилверн, Ричард ЛеПарментье, Лу Хирш, Бетси Брантли, Джоэль СильверПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB7CD68C92E4D7EA48FA34FD8769FB3E192951D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250509   (415164) от 02.10.2018
+
+Четыре мушкетера / The Four Musketeers (1974) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевские мушкетеры Д`Артаньян, Атос, Портос и Арамис — отнюдь не святые. Вино, женщины и тугой кошелек порой заставляют забыть о долге. Но о чести — никогда! Пока старые друзья вместе, любые происки коварных агентов кардинала будут разбиты, ведь девиз мушкетеров — «Один за всех и все за одного!»Производство: Испания, Панама / Alexander, Michael and Ilya Salkind Productions, Este Films, Film Trust S.A.Жанр: Приключения, ИсторияРежиссер: Ричард ЛестерАктеры: Оливер Рид, Рэкел Уэлч, Ричард Чемберлен, Майкл Йорк, Фрэнк Финлей, Кристофер Ли, Фэй Данауэй, Чарлтон Хестон, Джеральдин Чаплин, Жан-Пьер Кассель, Рой Киннер, Майкл Гозард, Николь Кальфан, Анхель дель ПозоПеревод: Многоголосый закадровый, двухголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368BBB86C3BB0637D9E100A7283A54190F84AB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164617   (414400) от 21.09.2017
 
 Кто есть кто? / Flic ou voyou (1979) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414400.jpg" />
+  <img src="Z:/picture/008/save_picture_414400.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414387.jpg" />
+  <img src="Z:/picture/008/save_picture_414387.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414234.jpg" />
+  <img src="Z:/picture/008/save_picture_414234.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413327.jpg" />
+  <img src="Z:/picture/008/save_picture_413327.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412527.jpg" />
+  <img src="Z:/picture/008/save_picture_412527.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412395.jpg" />
+  <img src="Z:/picture/008/save_picture_412395.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412215.jpg" />
+  <img src="Z:/picture/008/save_picture_412215.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412212.jpg" />
+  <img src="Z:/picture/008/save_picture_412212.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411757.jpg" />
+  <img src="Z:/picture/008/save_picture_411757.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411528.jpg" />
+  <img src="Z:/picture/008/save_picture_411528.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_411424.jpg" />
+  <img src="Z:/picture/005/save_picture_411424.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411190.jpg" />
+  <img src="Z:/picture/008/save_picture_411190.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410715.jpg" />
+  <img src="Z:/picture/008/save_picture_410715.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410632.jpg" />
+  <img src="Z:/picture/008/save_picture_410632.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409566.jpg" />
+  <img src="Z:/picture/008/save_picture_409566.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409529.jpg" />
+  <img src="Z:/picture/008/save_picture_409529.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409523.jpg" />
+  <img src="Z:/picture/008/save_picture_409523.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409077.jpg" />
+  <img src="Z:/picture/008/save_picture_409077.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408737.jpg" />
+  <img src="Z:/picture/008/save_picture_408737.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406614.jpg" />
+  <img src="Z:/picture/008/save_picture_406614.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406555.jpg" />
+  <img src="Z:/picture/008/save_picture_406555.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406279.jpg" />
+  <img src="Z:/picture/008/save_picture_406279.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405407.jpg" />
+  <img src="Z:/picture/008/save_picture_405407.jpg" />
 </div>
 
 
@@ -599,88 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682671E8E6CED52F048B56CB404B6F2AD16220D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562262   (405404) от 19.10.2012
-
-Звездные войны: Эпизод 5 - Империя наносит ответный удар / Star Wars: Episode V - The Empire Strikes Back (1980) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борьба за Галактику обостряется в пятом эпизоде космической саги. Войска Императора начинают массированную атаку на повстанцев и их союзников.
- Хан Соло и принцесса Лейя укрываются в Заоблачном Городе, в котором их и захватывает Дарт Вейдер, в то время как Люк Скайуокер находится на таинственной планете джунглей Дагобар.
- Там Мастер — джедай Йода обучает молодого рыцаря навыкам обретения Силы. Люк даже не предполагает, как скоро ему придется воспользоваться знаниями старого Мастера: впереди битва с превосходящими (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ПриключенияРежиссер: Ирвин Кершнер / Irvin KershnerАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Дэвид Праус, Питер Мейхью, Кенни Бейкер, Фрэнк Оз, Алек ГиннессПеревод: ДублированныйПродолжительность: 02:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87905203931B86DDDBD2A8FA3E4BD80AF7A007D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562239   (405403) от 19.10.2012
-
-Звездные войны: Эпизод 4 - Новая надежда / Star Wars: Episode IV - A New Hope (1977) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Татуин. Планета-пустыня. Уже постаревший рыцарь Джедай Оби Ван Кеноби спасает молодого Люка Скайуокера, когда тот пытается отыскать пропавшего дроида. С этого момента Люк осознает свое истинное назначение: он один из рыцарей Джедай. В то время как гражданская война охватила галактику, а войска повстанцев ведут бои против сил злого Императора, к Люку и Оби Вану присоединяется отчаянный пилот-наемник Хан Соло, и в сопровождении двух дроидов, R2D2 и C-3PO, этот необычный отряд отправляется на поиски предводителя (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ПриключенияРежиссер: Джордж Лукас / George LucasАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Питер Кашинг, Алек Гиннесс, Энтони Дэниелс, Кенни Бейкер, Питер Мейхью, Дэвид Праус, Джеймс Эрл ДжонсПеревод: ДублированныйПродолжительность: 02:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C052C48DC1F7FBF819C3607A4300D4451DBD0478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562325   (405400) от 19.10.2012
-
-Звездные войны: Эпизод 6 - Возвращение Джедая / Star Wars: Episode VI - Return of the Jedi (1983) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405400.jpg" />
-</div>
-
-
-###  Подробнее
-
-В заключительном шестом эпизоде «Звездных войн» Дарт Вейдер создает вторую «Звезду Смерти». Он объединяет все силы зла, чтобы с помощью этого смертоносного оружия нанести последний сокрушительный удар по повстанцам и их союзникам.
- Люк Скайуокер вместе с принцессой Лейей и верными дроидами R2D2 и C-3PO отправляется спасать своего друга Хана Соло, который попал в плен к отвратительному Джаббе Хатту — могущественному повелителю преступников.
- Повстанцы высаживаются на планету Эндор, чтобы оттуда вместе с Люком и (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ПриключенияРежиссер: Ричард Маркуэнд / Richard MarquandАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу, Иэн МакДайармид, Фрэнк Оз, Джеймс Эрл ДжонсПеревод: ДублированныйПродолжительность: 02:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E1C0CF794F61AC6931D6D99881B0C9C1275CF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

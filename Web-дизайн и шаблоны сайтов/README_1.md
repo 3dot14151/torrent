@@ -1,3 +1,57 @@
+###  Публикация: 1803824   (65779) от 25.06.2025
+
+Шаблон администратора - UI8 - ModoUI - Design System 2.0 [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modo UI — это интерактивная система дизайна, разработанная для оптимизации рабочего процесса занятых дизайнеров. Созданная в Figma, она предлагает полный набор функций для повышения эффективности и гибкости в процессе проектирования.Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0B44A6D0BB6BDED07BEDFB9FA43778AF258992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821326   (52264) от 01.10.2025
+
+Ui Kits - UI8 - Catmy - AI Chatbot Mobile App UI Kits [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот комплексный пакет дизайна включает в себя более 40 тщательно продуманных экранов, охватывающих все: от регистрации пользователя до расширенного взаимодействия в чате. Каждый экран в Catmy разработан с учетом индивидуальных особенностей, что позволяет легко адаптировать дизайн к уникальной идентичности вашего бренда.
+
+Адаптивная система макетов гарантирует единообразный (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2698609CCBF6890D5707DCF1395796DE78B45EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821475   (52046) от 02.10.2025
 
 Ui Kits - UI8 - Tasksy - UI kit for Productivity Mobile Apps [FIG, SKETCH]
@@ -6,7 +60,7 @@ Ui Kits - UI8 - Tasksy - UI kit for Productivity Mobile Apps [FIG, SKETCH]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52046.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37445.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22126.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Ui Kits - UI8 - Sublima UI (v3.0 ) - UI kit and Design system [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17457.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15881.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14766.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13389.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12560.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12554.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12544.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Ui Kits - Creative Market - Buttons and Switches - Mega UI V1 - 291442093 [PSD]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10890.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ Ui Kits - UI8 - SkrinUI - 1000+ Screen UI All Purpose [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9839.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Ui Kits - UI8 - Landing page Bundle [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9832.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ Ui Kits - UI8 - Core - Dashboard Builder [XD, FIG, SKETCH, HTML, CSS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9335.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ Ui Kits - UI8 - Fodidi - Food Ordering Apps For UI Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9214.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ Ui Kits - UI8 - Synapz - AI Task Collaboration App UI KIT [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9101.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ WordPress plugin - Elementor PRO 3.21.3 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8194.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ Ui Kits - UI8 -  ANXOE.AI – AI Personal Assistant Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7096.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ Ui Kits - UI8 - Lumine - Minimalistic Brand Guidelines [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5213.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ Ui Kits - UI8 - Dolphin VPN - VPN Mobile Mobile App UI Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4578.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ Ui Kits - UI8 - UI KIT | AI Art Generator App - bento & glassmorphism style [FIG
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4479.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ Ui Kits - UI8 - Akshan - Furniture E-Commerce UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4107.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ Ui Kits - UI8 - NutriMart - Grocery Shopping App UI Kit [FIG, XD, SKETCH]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3130.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ Ui Kits - UI8 - Lodgify - Hotel Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2776.jpg" />
 </div>
 
 
@@ -631,60 +685,6 @@ Lodgify — это премиальный и высококачественны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9F55110D4E08914219D419D7973DA7EC28A7624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818422   (2444) от 16.09.2025
-
-Ui Kits - UI8 - FRQNCY STUDIO [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frequency — это современный и минималистичный шаблон студии, созданный для агентств, дизайнеров и креативщиков, стремящихся эффектно представить свои работы. Благодаря ритмичным макетам, смелой типографике и захватывающей анимации этот шаблон обеспечивает плавный переход от домашней страницы к кейсам. Он включает в себя настраиваемые страницы для работы, студии, (   Читать дальше...   )Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA41C9BEEDF182DB6212B82DB72A65B1233EBD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818538   (2320) от 17.09.2025
-
-Ui Kits - UI8 - HotelQu - Booking Hotel Mobile App [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2320.jpg" />
-</div>
-
-
-###  Подробнее
-
-HotelQu — это UI-кит для мобильного приложения бронирования отелей, включающий 125+ высококачественных экранов с чистым, аккуратным и современным дизайном. Доступны светлая и тёмная темы оформления в Figma.
-
-Этот UI-кит можно бесплатно настроить под ваши нужды в любом проекте. HotelQu предлагает бесплатные шрифты, безупречный дизайн, поддержку организованных слоёв (   Читать дальше...   )Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA82937FA33A91026B4AF1C0520B2812BCB91C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

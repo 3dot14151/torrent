@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296547.jpg" />
+  <img src="Z:/picture/008/save_picture_296547.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295859.jpg" />
+  <img src="Z:/picture/008/save_picture_295859.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292033.jpg" />
+  <img src="Z:/picture/008/save_picture_292033.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288219.jpg" />
+  <img src="Z:/picture/008/save_picture_288219.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281112.jpg" />
+  <img src="Z:/picture/008/save_picture_281112.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279183.jpg" />
+  <img src="Z:/picture/008/save_picture_279183.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276722.jpg" />
+  <img src="Z:/picture/008/save_picture_276722.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275734.jpg" />
+  <img src="Z:/picture/008/save_picture_275734.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272847.jpg" />
+  <img src="Z:/picture/008/save_picture_272847.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271671.jpg" />
+  <img src="Z:/picture/008/save_picture_271671.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271626.jpg" />
+  <img src="Z:/picture/008/save_picture_271626.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270739.jpg" />
+  <img src="Z:/picture/008/save_picture_270739.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269524.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268057.jpg" />
+  <img src="Z:/picture/008/save_picture_268057.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267415.jpg" />
+  <img src="Z:/picture/008/save_picture_267415.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259431.jpg" />
+  <img src="Z:/picture/005/save_picture_259431.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259411.jpg" />
+  <img src="Z:/picture/005/save_picture_259411.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255025.jpg" />
+  <img src="Z:/picture/005/save_picture_255025.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252165.jpg" />
+  <img src="Z:/picture/004/save_picture_252165.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251235.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251210.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249621.jpg" />
+  <img src="Z:/picture/004/save_picture_249621.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249489.jpg" />
+  <img src="Z:/picture/004/save_picture_249489.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249384.jpg" />
+  <img src="Z:/picture/004/save_picture_249384.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246630.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242237.jpg" />
+  <img src="Z:/picture/005/save_picture_242237.jpg" />
 </div>
 
 

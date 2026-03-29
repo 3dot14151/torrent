@@ -6,7 +6,7 @@ IS: Infinite Stratos / Необъятные Небеса [ТВ-1] [2011, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698550.jpg" />
+  <img src="Z:/picture/008/save_picture_698550.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Seiken no Blacksmith / The Sacred Blacksmith / Божественный Кузн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696754.jpg" />
+  <img src="Z:/picture/008/save_picture_696754.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Crusher Joe: The OVA's / Крушила Джо OVA 1 и 2 [1989, OVA, 2] BDRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695039.jpg" />
+  <img src="Z:/picture/008/save_picture_695039.jpg" />
 </div>
 
 
@@ -83,6 +83,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674097   (694787) от 29.06.2013
+
+Senjou no Valkyria / Valkyria Chronicles / Хроники Валькирии [2009, TV, 26] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В альтернативном мире, похожем на Европу середины 30-х годов XX века, в борьбе за власть сошлись две сверхдержавы – Восточно-Европейский Имперский Союз и Атлантическая Федерация. Чтобы пополнить ресурсы, Империя вторгается в небольшое королевство Галлию, где в изобилии уникальное топливо – рагнит, «камень владык». Правящий дом Галлии слаб и давно утратил реальную власть, но народ решил стоять до конца. Городок Брюль в панике эвакуируется перед надвигающимся фронтом, и тут офицеру ополчения Алисии Мелькиотт докладывают, что у реки замечен шпион…
+
+Аниме расскажет о борьбе маленькой, но гордой Галлии против захватчиков, о боевых буднях 7-го сводного отряда, где служат главные герои, о том, что испытания открывают истинную сущность людей и помогают понять друг друга, несмотря на национальные, расовые и идеологические различия. Свою порцию удовольствия получат и любители масштабных сражений, и ценители политических интриг, и мистической «тайной истории».
+
+© Hollow, World ArtЖанр: приключения, военная тематика, романтика, комедия, драма.Режиссер: Ямамото ЯсутакаПродолжительность: 26 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525727882B42668619B4FC201BC4F25ADCE11D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 794854   (694217) от 10.06.2014
 
 Rozen Maiden Zuruckspulen | Rozen Maiden ~2013~ | Девы Розена (2013) [2013, TV, 13 эп.] BDrip 720p raw
@@ -91,7 +121,7 @@ Rozen Maiden Zuruckspulen | Rozen Maiden ~2013~ | Девы Розена (2013) [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694217.jpg" />
+  <img src="Z:/picture/008/save_picture_694217.jpg" />
 </div>
 
 
@@ -119,7 +149,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho | Muhyo & Roji's Bureau of Supernatur
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691982.jpg" />
+  <img src="Z:/picture/008/save_picture_691982.jpg" />
 </div>
 
 
@@ -145,7 +175,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691666.jpg" />
+  <img src="Z:/picture/008/save_picture_691666.jpg" />
 </div>
 
 
@@ -171,7 +201,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688109.jpg" />
+  <img src="Z:/picture/008/save_picture_688109.jpg" />
 </div>
 
 
@@ -197,7 +227,7 @@ Marie and Gali / Мари и Гали (второй сезон) [2010, TV, 30 ep
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686795.jpg" />
+  <img src="Z:/picture/008/save_picture_686795.jpg" />
 </div>
 
 
@@ -224,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684570.jpg" />
+  <img src="Z:/picture/008/save_picture_684570.jpg" />
 </div>
 
 
@@ -250,7 +280,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru | My Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684220.jpg" />
+  <img src="Z:/picture/008/save_picture_684220.jpg" />
 </div>
 
 
@@ -276,7 +306,7 @@ Terraformars: Revenge / Терраформеры [ТВ-2] [2016, TV, 13 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681758.jpg" />
+  <img src="Z:/picture/008/save_picture_681758.jpg" />
 </div>
 
 
@@ -303,7 +333,7 @@ Hundred / Хандред [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681626.jpg" />
+  <img src="Z:/picture/008/save_picture_681626.jpg" />
 </div>
 
 
@@ -329,7 +359,7 @@ Konosuba OVA | Kono Subarashii Sekai ni Shukufuku o! OVA | Этот замеча
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679986.jpg" />
+  <img src="Z:/picture/008/save_picture_679986.jpg" />
 </div>
 
 
@@ -355,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679774.jpg" />
+  <img src="Z:/picture/008/save_picture_679774.jpg" />
 </div>
 
 
@@ -383,7 +413,7 @@ Mahou Tsukai no Yome | The Ancient Magus' Bride | Невеста чародея 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678703.jpg" />
+  <img src="Z:/picture/008/save_picture_678703.jpg" />
 </div>
 
 
@@ -409,7 +439,7 @@ Kagewani: Shou [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677953.jpg" />
+  <img src="Z:/picture/008/save_picture_677953.jpg" />
 </div>
 
 
@@ -435,7 +465,7 @@ Kiznaiver [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677945.jpg" />
+  <img src="Z:/picture/008/save_picture_677945.jpg" />
 </div>
 
 
@@ -461,7 +491,7 @@ Bungou Stray Dogs | Бродячие псы литературы [2016, TV, 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677933.jpg" />
+  <img src="Z:/picture/008/save_picture_677933.jpg" />
 </div>
 
 
@@ -487,7 +517,7 @@ Kuma Miko / Жрица и медведь [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673925.jpg" />
+  <img src="Z:/picture/008/save_picture_673925.jpg" />
 </div>
 
 
@@ -513,7 +543,7 @@ High School Fleet / Hai-Furi / Морская школа [2016, TV, 12] HDTV 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673673.jpg" />
+  <img src="Z:/picture/008/save_picture_673673.jpg" />
 </div>
 
 
@@ -539,7 +569,7 @@ Tanaka-kun wa Itsumo Kedaruge / Всегда вялый Танака-кун [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671732.jpg" />
 </div>
 
 
@@ -565,7 +595,7 @@ Koutetsujou no Kabaneri | Kabaneri of the Iron Fortress [2016, TV, 12] HDTV 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671578.jpg" />
+  <img src="Z:/picture/008/save_picture_671578.jpg" />
 </div>
 
 
@@ -591,7 +621,7 @@ Mini Toji | Katana Maidens: Mini Toji | Мини-жрицы [2019, TV, 10 + SP] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670135.jpg" />
+  <img src="Z:/picture/008/save_picture_670135.jpg" />
 </div>
 
 
@@ -617,7 +647,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670128.jpg" />
+  <img src="Z:/picture/008/save_picture_670128.jpg" />
 </div>
 
 
@@ -643,7 +673,7 @@ Unhappy / Anne-Happy / Невезучие [2016, TV, 12] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669977.jpg" />
+  <img src="Z:/picture/008/save_picture_669977.jpg" />
 </div>
 
 
@@ -654,32 +684,6 @@ Unhappy / Anne-Happy / Невезучие [2016, TV, 12] HDTVRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6106E71D36F920A22DB7B8CE2E297712B46F8508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004388   (669903) от 02.07.2016
-
-Ragnastrike Angels / Ангелы Рагнастрайк [2016, TV, 12] WEB-DLRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация выходящей летом 2016г. игрушки для смартфонов и ПК про сражения 38-метровых девушек с пришельцами под названием Фиарему.Производство: Студия Satelight / サテライトЖанр: приключенияРежиссер: Вада ДзюнъитиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 30 сек.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6086FDEDADFED0D443B5B1DAD675A5122F0A58
 ```
 
 https://mybot314.ru/tekegram_catalog/

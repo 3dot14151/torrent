@@ -1,3 +1,61 @@
+###  Публикация: 1541960   (641215) от 05.04.2022
+
+The Hellacopters - Eyes Of Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reap A Hurricane (00:03:15)
+02 - Can It Wait (00:01:59)
+03 - So Sorry I Could Die (00:04:21)
+04 - Eyes Of Oblivion (00:03:59)(   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E78A37D0BB9BA3D3723D7C9202F64DCD5A0B889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541932   (641213) от 05.04.2022
+
+Caught In Action - Devil's Tango (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - New York City (00:03:51)
+02 - Miracle (00:04:32)
+03 - Devil`s Tango (00:04:05)
+04 - Simple Man (00:04:02)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B3FD3127D33D70D33D7BEEC5788A1F83AEE94C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518740   (641161) от 04.07.2012
 
 Lita Ford - Living Like A Runaway (2012) [FLAC|Lossless]<Hard Rock/Metal>
@@ -6,7 +64,7 @@ Lita Ford - Living Like A Runaway (2012) [FLAC|Lossless]<Hard Rock/Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641161.jpg" />
+  <img src="Z:/picture/005/save_picture_641161.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ Faithful Breath - Gold'N'Glory (1984) [FLAC|Lossless|image + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640213.jpg" />
+  <img src="Z:/picture/008/save_picture_640213.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ Kane Roberts - The New Normal (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639196.jpg" />
+  <img src="Z:/picture/008/save_picture_639196.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ Mark Slaughter - Reflections in a Rear View Mirror (2015) [FLAC|image+.cue]<Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637983.jpg" />
+  <img src="Z:/picture/008/save_picture_637983.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Europe - War Of Kings (2015) Japanese Edition [FLAC|image+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635721.jpg" />
+  <img src="Z:/picture/008/save_picture_635721.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ Aerosmith - Big Ones (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635496.jpg" />
+  <img src="Z:/picture/008/save_picture_635496.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ Nazareth - Greatest Hits (1993) Unofficial Release [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635228.jpg" />
+  <img src="Z:/picture/008/save_picture_635228.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Styx - The Mission (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635101.jpg" />
+  <img src="Z:/picture/008/save_picture_635101.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Treat - The Endgame (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635050.jpg" />
+  <img src="Z:/picture/008/save_picture_635050.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ First Signal - Closer To The Edge (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633680.jpg" />
+  <img src="Z:/picture/008/save_picture_633680.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Black Swan - Generation Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633672.jpg" />
+  <img src="Z:/picture/008/save_picture_633672.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Come Taste The Band - Reignition (2019) [FLAC|Lossless|tracks + .cue] <Rock, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633616.jpg" />
+  <img src="Z:/picture/008/save_picture_633616.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ The Lizards - Reptilicus Maximus (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632595.jpg" />
+  <img src="Z:/picture/008/save_picture_632595.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632593.jpg" />
+  <img src="Z:/picture/008/save_picture_632593.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Erika - Deaf Dumb & Blonde (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632518.jpg" />
+  <img src="Z:/picture/008/save_picture_632518.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Silvertone - Planet Chaser (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631372.jpg" />
+  <img src="Z:/picture/008/save_picture_631372.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Bill Ward (Black Sabbath) - Accountable Beasts (2015) [FLAC|image+.cue]<Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629898.jpg" />
+  <img src="Z:/picture/008/save_picture_629898.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Myland - Light Of A New Day (2011) [APE|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629329.jpg" />
+  <img src="Z:/picture/005/save_picture_629329.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ Beitthemeans - Crude Alabama Storytellers (2008) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629259.jpg" />
+  <img src="Z:/picture/008/save_picture_629259.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ Scorpions - Lovedrive (1979) Reissue, 1989, Mercury [FLAC|Lossless|tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629244.jpg" />
+  <img src="Z:/picture/008/save_picture_629244.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ Bonrud - Save Tomorrow (2012) Japan Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628671.jpg" />
+  <img src="Z:/picture/008/save_picture_628671.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ King James - MaXimus 2013 (2016) [FLAC|Lossless|image + .cue] <Christian Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628480.jpg" />
+  <img src="Z:/picture/008/save_picture_628480.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Fire - Could You Understand Me (1973) Reissue /2005, Skyf Zol/ [FLAC|image+.cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628198.jpg" />
+  <img src="Z:/picture/008/save_picture_628198.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ Star Mafia Boy - Permíteme Que Me Presente (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627962.jpg" />
+  <img src="Z:/picture/008/save_picture_627962.jpg" />
 </div>
 
 
@@ -696,64 +754,6 @@ Star Mafia Boy - Permíteme Que Me Presente (2022) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8A325AA5E4EA11100B436037AB6165A1C348F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543698   (627900) от 12.04.2022
-
-Leader Of Down - The Screwtape Letters (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cat's Eye Night
-02. Holloway Motel
-03. Hitman
-04. The Screwtape Letters(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8071BAD958568F391C20E6EAC90DE82B30BD5B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543717   (627589) от 12.04.2022
-
-Nazareth - Surviving The Law (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Days (03:22)
-02. You Gotta Pass It Around (03:21)
-03. Runaway (03:33)
-04. Better Leave It Out (03:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2643E037E0417703A8AB0EAE7B05B601EF0E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

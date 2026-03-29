@@ -1,3 +1,171 @@
+###  Публикация: 539151   (504062) от 28.08.2012
+
+True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_504062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Нью-Йорк, где вас ждет почти безграничная власть над улицами большого яблока. Ведь вы - Маркус Рид, бывший преступник, а ныне полицейский, использующий свои полномочия, чтобы найти и уничтожить убийцу своего наставника, а заодно очистить от отбросов общества кварталы Нью-Йорка от Гарлема до Чайнатауна. Тайное расследование заведет Маркуса в паутину лжи и преступности, выбраться из которой он сможет, только выжив в борьбе с уличными бандами, собственным прошлым и всем, что противопоставит ему (   Читать дальше...   )Тип издания: RePackРазработчик: Luxoflux CorpЖанр: Action (Shooter) / Arcade (Fighting) / Racing (Cars / Motorcycles) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский (Buka) / Русский (Unknown) / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721244CBC6CF1E61298CDF963B059C483B05D697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 234466   (501404) от 08.09.2010
+
+Conflict: Denied Ops / Конфликт: Секретные операции [Ru] (RePack) 2008 | R.G.Spieler
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows XP/Windows Vista (требуются права администратора)/Windows 7 (неизвестно)Тип издания: RePack (Перепакованная лицензия)Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542143   (498793) от 02.09.2012
+
+Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Расширенное издание [Ru/En] (RePack) 2011 l {AVG}
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498793.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2011 году разразилась Третья мировая война. Лишь немногим удалось укрыться в глубоких бункерах на военных базах и выжить после ядерного апокалипсиса.
+
+2035 год. Почти двадцать лет люди влачат существование в подземных убежищах. Когда страх смерти притупился, воспоминания о прошлой жизни обострились, а заточение стало невыносимым. Нечастные все сильнее страдают от приступов клаустрофобии, тяжелый сон превратился в кошмар наяву…
+
+Главный герой «Afterfall: Тень прошлого» — 36-летний Альберт Токай. Он входит в команду медиков, основная задача которых — поддерживать психическую стабильность обитателей бункера. Альберт специализируется на так называемом синдроме изоляции, однако и сам порой страдает от его симптомов. Поэтому когда вокруг разверзается кромешный ад всеобщего помешательства, он должен найти ответ на вопрос: что за всем этим стоит? В попытке выяснить, кто друг, а кто враг, герой будет не только противостоять врагам, но и бороться с собственными страхами и слабостями.
+
+«Afterfall: Тень прошлого» — психологический survival horror, предлагающий ценителям жанра пережить будоражащие кровь приключения в атмосфере всепоглощающего ужаса. Оказавшись в мрачных подземных бункерах, из которых нет выхода, игроки приподнимут завесу тайны, под которой скрывается нечто гораздо большее, чем просто безумие обитателей убежищ.
+
+В ходе расследования они столкнутся с непростыми загадками и вступят в противоборство с жестокими монстрами, им часто придется принимать трудные решения. Справиться же с крайне сложной и опасной задачей помогут не только рефлексы, но также способность мыслить логически и умение использовать дедуктивный метод.(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A0F3862E31420895CE15F53CF16F728A636709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537995   (498789) от 02.09.2012
+
+Binary Domain + 2 DLC [Ru] (RePack/u2) 2012 l Fenixx
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Командный шутер Binary Domain создан под руководством Тошихиро Нагоши (Toshihiro Nagoshi) — одного из авторов знаменитой серии Yakuza.
+
+Токио, 2080 год. На улицах мегаполиса в ожесточенных боях сошлись люди и роботы. Международный отряд миротворцев, присланный для стабилизации ситуации, сражается на территории заброшенных районов. Но в войне со столь необычным и, казалось бы, чуждым человеческой природе противником солдаты начинают задаваться вопросом: правильно ли то, что они делают? Неужели машины стали настолько человечны? Или это люди постепенно превращаются в роботов?
+
+Специально для Binary Domain создается инновационная система искусственного интеллекта. Противники смогут оценивать ситуацию на поле боя и чутко реагировать на ее изменения. Поэтому игрокам придется тщательно планировать свои действия и не забывать об осторожности. Лишь в этом случае они смогут добиться успеха!(   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987121A1C6D26AC65BC6F1067A8A53AD038AA260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542918   (496862) от 04.09.2012
+
+Transformers: Fall Of Cybertron / Трансформеры: Падение Кибертрона [Ru/En/Multi6] (RePack) 2012 l R.G. Catalyst
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сражение за планету Кибертрон вступает в решающую фазу. Жестокие Десептиконы и противостоящие им Автоботы готовятся к последнему удару, который должен поставить финальную точку в затянувшемся конфликте. Станьте свидетелем и непосредственным участником величайших событий в истории эпической саги о Трансформерах, управляя самыми популярными разумными машинами всех (   Читать дальше...   )Тип издания: RePackРазработчик: High Moon Studios и Mercenary TechnologyЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский, Немецкий, Испанский, Итальянский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDD7251F8A965BB9306FC5858BD72F10A42FE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235601   (496531) от 13.09.2010
+
+Heavy Metal : F.A.K.K. 2 [Ru] (L) 2000
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятная графика и завораживающее действие ждут вас в этой трехмерной игре в жанре экшн, основанной на культе классического Heavy Metal. Вы сыграете роль легендарной спасительницы Вселенной F.A.K.K.2 и отправитесь в невероятное путешествие, в котором смерть и опасности поджидают вас в самых неожиданных местах. Вы увидите огромные миры, населённые причудливыми созданиями, каждое из которых может оказаться как другом так и врагом...Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936200   (495403) от 11.09.2015
 
 Cross of the Dutchman (2015) [Ru/Multi] (1.0) License PLAZA
@@ -6,7 +174,7 @@ Cross of the Dutchman (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495403.jpg" />
+  <img src="Z:/picture/008/save_picture_495403.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ Resident Evil: Revelations / Biohazard Revelations UE (2013) [Ru/En] (1.4/dlc) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495345.jpg" />
+  <img src="Z:/picture/008/save_picture_495345.jpg" />
 </div>
 
 
@@ -58,7 +226,7 @@ Red Number: Prologue (2017) [Ru/En] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495141.jpg" />
+  <img src="Z:/picture/008/save_picture_495141.jpg" />
 </div>
 
 
@@ -84,7 +252,7 @@ Death to Spies / Смерть шпионам Дилогия  [Ru] (RePack) 2007-
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494942.jpg" />
+  <img src="Z:/picture/008/save_picture_494942.jpg" />
 </div>
 
 
@@ -116,7 +284,7 @@ Binary Domain [Ru/En] (RePack/u2) 2012 l R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494878.jpg" />
+  <img src="Z:/picture/008/save_picture_494878.jpg" />
 </div>
 
 
@@ -146,7 +314,7 @@ GEARGUNS - Tank offensive (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491778.jpg" />
+  <img src="Z:/picture/008/save_picture_491778.jpg" />
 </div>
 
 
@@ -172,7 +340,7 @@ Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механик
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491507.jpg" />
+  <img src="Z:/picture/008/save_picture_491507.jpg" />
 </div>
 
 
@@ -198,7 +366,7 @@ Fragmented (2017) [Ru/Multi] (17.8.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491269.jpg" />
+  <img src="Z:/picture/008/save_picture_491269.jpg" />
 </div>
 
 
@@ -224,7 +392,7 @@ Killer is Dead - Nightmare Edition (2014) [Ru/Multi] (1.0) Repack R.G. Games [Ni
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491228.jpg" />
+  <img src="Z:/picture/008/save_picture_491228.jpg" />
 </div>
 
 
@@ -250,7 +418,7 @@ Metal Wolf Chaos XD (2019) [Ru/Multi] (1.02.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488433.jpg" />
+  <img src="Z:/picture/008/save_picture_488433.jpg" />
 </div>
 
 
@@ -276,7 +444,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (4851) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487572.jpg" />
+  <img src="Z:/picture/008/save_picture_487572.jpg" />
 </div>
 
 
@@ -302,7 +470,7 @@ Deadpool / Дэдпул (2013) [Ru] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487411.jpg" />
+  <img src="Z:/picture/008/save_picture_487411.jpg" />
 </div>
 
 
@@ -328,7 +496,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.678.1/upd1.33) SteamRip Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487178.jpg" />
+  <img src="Z:/picture/008/save_picture_487178.jpg" />
 </div>
 
 
@@ -354,7 +522,7 @@ Pirates of the Caribbean: At World's End / Пираты Карибского м�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485399.jpg" />
+  <img src="Z:/picture/008/save_picture_485399.jpg" />
 </div>
 
 
@@ -380,7 +548,7 @@ Way of the Samurai 4 (2015) [En] (1.06/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485141.jpg" />
+  <img src="Z:/picture/008/save_picture_485141.jpg" />
 </div>
 
 
@@ -406,7 +574,7 @@ Volume (2015) [Ru/Multi] (1.1.04) Repack Let'sРlay [Triptych Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485134.jpg" />
+  <img src="Z:/picture/008/save_picture_485134.jpg" />
 </div>
 
 
@@ -432,7 +600,7 @@ Swordbreaker: Back to The Castle (2020) [Ru/En] (1.23) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484676.jpg" />
+  <img src="Z:/picture/008/save_picture_484676.jpg" />
 </div>
 
 
@@ -458,7 +626,7 @@ Medal Of Honor: Airborne (2007) [Ru] (1.3) Rip =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483172.jpg" />
+  <img src="Z:/picture/008/save_picture_483172.jpg" />
 </div>
 
 
@@ -484,7 +652,7 @@ Transformers: Fall of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482017.jpg" />
+  <img src="Z:/picture/008/save_picture_482017.jpg" />
 </div>
 
 
@@ -511,7 +679,7 @@ Conan Exiles (2018) [Ru/Multi] (1.0.104617) Repack R.G. Механики [Barbar
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481520.jpg" />
+  <img src="Z:/picture/008/save_picture_481520.jpg" />
 </div>
 
 
@@ -522,162 +690,6 @@ Conan Exiles — игра о выживании в открытом мире п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC9729C50C379DF6600DA52C297C6CDEA921605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055950   (480830) от 25.09.2016
-
-Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/dlc/upd2) Repack R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gat out of Hell - это самостоятельное дополнение к игре Saints Row IV от компании Deep Silver, которая продалась миллионными тиражами и получила множество наград. После космического абсурда Saints Row IV многие фанаты задавались вопросом, что бы мы могли сделать дальше... И вот ответ - пальнуть Дьяволу в рожу! Играйте как Джонни Гэт или Кинзи Кенсингтон и разорвите (   Читать дальше...   )Тип издания: RepackРазработчик: Volition, Inc, High Voltage SoftwareЖанр: Action (Shooter), Add-on (Standalone), 3D, 3rd PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A540DE3832DC58F6E8824AC06C426B9A732B52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319489   (480590) от 13.08.2019
-
-THE UNCLEARNESS (2019) [En] (1.0) License HOODLUM
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480590.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре THE UNCLEARNESS Вам предстоит испытать себя в роли частного детектива Стэна Инграма и попытаться раскрыть неоднозначное дело о самоубийстве.Тип издания: LicenseРазработчик: Orphic GamesЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1376EFFAE1AEABEE8C118D87039115B2D18F46CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159891   (479748) от 22.08.2017
-
-Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.01.1) SteamRip R.G. Origins
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающее путешествие кельтской воительницы - погружение в мифологию и безумие от создателей Heavenly Sword, Enslaved: Odyssey to the West и DmC: Devil May Cry. Действия игры происходят в эпоху викингов. Кельтская воительница, страдающая от душевной болезни, отправляется в захватывающее путешествие по миру мертвых, где будет бороться за душу своего погибшего (   Читать дальше...   )Тип издания: SteamRipРазработчик: Ninja TheoryЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D834CF9C4B73408C1A996D1C0E956809807C5D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567091   (475883) от 01.08.2022
-
-Zombie Shooting Star (2022) [Multi] (1.0) License TiNYiSO [16+]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zombie Shooting Star - это шутер от третьего лица с элементами платформера, в котором вы будете играть за прекрасную Руби. Сразитесь с полчищами зомби и найдите и уничтожьте ядро мутантов, пока оно не восстановило свою силу! Существует Ядро мутантов, которое заражает и поглощает живых существ, превращая их в кровожадных монстров. Планете Уния удается уничтожить ядро (   Читать дальше...   )Тип издания: LicenseРазработчик: Twins HaloЖанр: Шутеры, ПлатформерЯзык озвучки: КорейскийЯзык субтитров: Английский, Японский, Китайский, КорейскийЯзык интерфейса: Английский, Японский, Китайский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEBF37AF69858C73F3E25DADAAE9D83D3EF958E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223541   (475436) от 04.09.2018
-
-The Last DeadEnd (2018) [Ru/Multi] (1.1) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475436.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last DeadEnd(на рус."Последний Тупик") — игра в приключенческом жанре с элементами шутера и ужасов. Мы играем в роли молодого ученого Фархада Новрузова, который вернулся на родину, чтобы помочь в съемках кинофильма для международного телеканала. Здесь он сталкивается с необъяснимыми событиями, связанными с древней религией Зороастризма. Ученому предстоит (   Читать дальше...   )Тип издания: LicenseРазработчик: AzDimensionЖанр: Adventure (Horror), Action, 3D, 3rd Person, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Азербайджанский и другиеЯзык интерфейса: Русский, Английский, Азербайджанский  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FD0D6265B644FA0635E15D650D364315DCA589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547694   (473350) от 15.09.2012
-
-TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru/En] (RePack) 2010 | R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающий экшен «ТРОН: Эволюция» позволит вам погрузиться в мир виртуальной реальности, одержать впечатляющие победы с помощью разрушительного светового диска и освоить легендарный светоцикл. Игра раскроет события, предшествующие сюжету нового фильма «Трон: Наследие». Различные удары и комбо-приемы умело сочетаются с невероятной мобильностью персонажа – в передвижении среди башен и небоскребов задействованы элементы паркура. Поклонники сетевых сражений смогут сразиться с умелыми соперниками по Интернету, причем в каждой битве смогут принять участие до десяти человек. (   Читать дальше...   )Тип издания: RepackЖанр: Arcade (Platform) / Racing (Futuristic) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798657DCF3E85EB4E7856875C562BAD7EB561A25
 ```
 
 https://mybot314.ru/tekegram_catalog/

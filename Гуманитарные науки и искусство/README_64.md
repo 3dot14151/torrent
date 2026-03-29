@@ -1,3 +1,29 @@
+###  Публикация: 916474   (590949) от 08.07.2015
+
+С. А. Васильев, В. Е. Щелинский (ред.) | Древнейшие обитатели Кавказа и расселение предков человека в Евразии (2010) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике представлены тексты докладов, прозвучавших на состоявшейся в 2008 г. на Таманском полуострове Международной научной конференции, посвященной открытию неожиданно древних раннепалеолитических памятников. Новые открытия существенно изменяют сложившиеся представления о времени и путях первоначального освоения предками человека территории юга нашей страны. (   Читать дальше...   )Жанр: АрхеологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAD3045601526F735A4EB06B42B65E0C07C30F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916957   (589990) от 10.07.2015
 
 Э. В. Ильенков | Диалектика абстрактного и конкретного в «Капитале» Маркса (1960) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589990.jpg" />
+  <img src="Z:/picture/008/save_picture_589990.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589830.jpg" />
+  <img src="Z:/picture/008/save_picture_589830.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589806.jpg" />
+  <img src="Z:/picture/008/save_picture_589806.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589489.jpg" />
+  <img src="Z:/picture/008/save_picture_589489.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589449.jpg" />
+  <img src="Z:/picture/008/save_picture_589449.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589007.jpg" />
+  <img src="Z:/picture/008/save_picture_589007.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588673.jpg" />
+  <img src="Z:/picture/008/save_picture_588673.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587833.jpg" />
+  <img src="Z:/picture/008/save_picture_587833.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Martin J. Dougherty | Celts: The History and Legacy of One of the Oldest Culture
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587229.jpg" />
+  <img src="Z:/picture/008/save_picture_587229.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Henri Abraham CHATELAIN | Atlas historique ou nouvelle introduction a l'histoire
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587089.jpg" />
+  <img src="Z:/picture/008/save_picture_587089.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586669.jpg" />
+  <img src="Z:/picture/008/save_picture_586669.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586493.jpg" />
+  <img src="Z:/picture/008/save_picture_586493.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586491.jpg" />
+  <img src="Z:/picture/008/save_picture_586491.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585673.jpg" />
+  <img src="Z:/picture/008/save_picture_585673.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584003.jpg" />
+  <img src="Z:/picture/008/save_picture_584003.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583424.jpg" />
+  <img src="Z:/picture/008/save_picture_583424.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583374.jpg" />
+  <img src="Z:/picture/008/save_picture_583374.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583371.jpg" />
+  <img src="Z:/picture/008/save_picture_583371.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583368.jpg" />
+  <img src="Z:/picture/008/save_picture_583368.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583264.jpg" />
+  <img src="Z:/picture/008/save_picture_583264.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583201.jpg" />
+  <img src="Z:/picture/008/save_picture_583201.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583149.jpg" />
+  <img src="Z:/picture/008/save_picture_583149.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583072.jpg" />
+  <img src="Z:/picture/008/save_picture_583072.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582148.jpg" />
+  <img src="Z:/picture/008/save_picture_582148.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581803.jpg" />
+  <img src="Z:/picture/008/save_picture_581803.jpg" />
 </div>
 
 
@@ -665,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F3851C5BD844A587C30D629C738120C4E13E211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919508   (581116) от 21.07.2015
-
-П. С. Заботин | Преодоление заблуждения в научном познании (1979) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор монографического исследования, посвященного анализу малоразработанной проблемы заблуждений в научном познании, вскры­вает природу заблуждений в научном познании, выясняет содержание заблуждения как категории познания и соотношение ее с другими категориями. В книге характеризуются субъективные и объективные источники заблуждений, исследуются условия обнаружения (   Читать дальше...   )Жанр: История, философия, науковедениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE03A8AFF4EECC3F5A6D3799241DFF2484C2CF4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

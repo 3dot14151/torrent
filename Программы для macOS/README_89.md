@@ -1,3 +1,136 @@
+###  Публикация: 1245020   (475543) от 04.09.2018
+
+SEO Checker 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475543.jpg" />
+</div>
+
+
+###  Подробнее
+
+SEO Checker - эффективное приложение, которое предлагает инструменты SEO, которые помогут вам проанализировать ваши веб-сайты, все что вам нужно для повышения рейтинга и ускорения ваших веб-сайтов.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Global Web SRLПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80B4BCCC164F29E44A183F6ADBA83C69AB25D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057362   (475332) от 28.09.2016
+
+Diagrammix 2.13 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для для построения любых видов диаграмм с минимальными услилиями с вашей стороны. Если вы студент, менеджер или руководитель, то с этим инструментом вы можете составить диаграмму любой сложности легко и просто. Такой инструмент пригодится для иллюстрирования отчетов и при подготовке презентаций. Он поможет вам схематично выразить свои мысли, обнаружить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2016Разработчик: Deep IT ProПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FE4804359B3AD0CF99D5B65298E70376393DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057187   (475331) от 28.09.2016
+
+Cornerstone 3.0.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cornerstone — приложение по управлению версиями, построенное на Subversion.
+Управление версиями — одна из важнейших частей жизни любого разработчика. Об этом говорит даже число созданных для этого программ. Cornerstone относится к числу тех программ, чья функциональность настолько продумана даже в мелочах, что ее использование доставляет ни с чем не сравнимое удовольствие. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 сентября 2016Разработчик: Zennaware GmbHПоддерживаемая ОС: OS X 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEB82322161FE6A00FB1DA78303ADC1378D24F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057582   (475011) от 28.09.2016
+
+Net Monitor 4.9.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуализация сетевого трафика, сетевая активность, создание отчетов по истории и расчета трафика с течением времени. При первом запуске Net Monitor начинается мониторинг сети, которая в настоящее время активна, но вы можете легко переключаться на другие доступные сети с помощью  меню строки состояния. В главном окне Net Monitor можно визуализировать сведения о сети, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2016Разработчик: Guy MeyerПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DB966E6A986538FF5C333D45D992114C20BC81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406365   (474624) от 03.09.2020
+
+ABBYY Lingvo European 1.11.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте перевод незнакомого слова, значения устойчивых выражений, примеры употребления слов в контексте с помощью словаря ABBYY Lingvo Европейская для Mac. Это отличное приложение для тех, кто учит иностранный язык или сталкивается с переводом. Откройте мир с Lingvo!
+
+В приложение включены 112 словарей для 7 языков (русский, английский, французский, испанский, немецкий, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.08.2020Разработчик: ABBYYПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A473CC488D3F8681777F7C981CDEBB8B0F7010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567304   (474551) от 02.08.2022
 
 Large Files Finder 1.4.1 [En]
@@ -6,7 +139,7 @@ Large Files Finder 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474551.jpg" />
+  <img src="Z:/picture/008/save_picture_474551.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Filmographer 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474541.jpg" />
+  <img src="Z:/picture/008/save_picture_474541.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Easy Markdown 1.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474434.jpg" />
+  <img src="Z:/picture/008/save_picture_474434.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ Dato 4.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474428.jpg" />
+  <img src="Z:/picture/008/save_picture_474428.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ Smart File Renamer 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474425.jpg" />
+  <img src="Z:/picture/008/save_picture_474425.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ Speedy Duplicate Finder 1.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474421.jpg" />
+  <img src="Z:/picture/008/save_picture_474421.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ SyncMate Expert 8.5.504 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474420.jpg" />
+  <img src="Z:/picture/008/save_picture_474420.jpg" />
 </div>
 
 
@@ -191,7 +324,7 @@ All Remixes 1.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474418.jpg" />
+  <img src="Z:/picture/008/save_picture_474418.jpg" />
 </div>
 
 
@@ -217,7 +350,7 @@ Full Discography 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474417.jpg" />
+  <img src="Z:/picture/008/save_picture_474417.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ OnyX 4.2.2 for macOS Monterey 12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474241.jpg" />
+  <img src="Z:/picture/008/save_picture_474241.jpg" />
 </div>
 
 
@@ -270,7 +403,7 @@ Mailplane 3.7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474018.jpg" />
+  <img src="Z:/picture/008/save_picture_474018.jpg" />
 </div>
 
 
@@ -296,7 +429,7 @@ Microsoft Excel 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473889.jpg" />
+  <img src="Z:/picture/008/save_picture_473889.jpg" />
 </div>
 
 
@@ -323,7 +456,7 @@ Microsoft PowerPoint 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473884.jpg" />
+  <img src="Z:/picture/008/save_picture_473884.jpg" />
 </div>
 
 
@@ -350,7 +483,7 @@ Microsoft Word 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473875.jpg" />
+  <img src="Z:/picture/008/save_picture_473875.jpg" />
 </div>
 
 
@@ -377,7 +510,7 @@ Malwarebytes for Mac Premium 3.0.2.422 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473764.jpg" />
+  <img src="Z:/picture/008/save_picture_473764.jpg" />
 </div>
 
 
@@ -405,7 +538,7 @@ Feeder 3 v3.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473193.jpg" />
+  <img src="Z:/picture/008/save_picture_473193.jpg" />
 </div>
 
 
@@ -433,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472512.jpg" />
+  <img src="Z:/picture/008/save_picture_472512.jpg" />
 </div>
 
 
@@ -459,7 +592,7 @@ Rename Photos 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472463.jpg" />
+  <img src="Z:/picture/008/save_picture_472463.jpg" />
 </div>
 
 
@@ -487,7 +620,7 @@ Private Contact 3.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472381.jpg" />
+  <img src="Z:/picture/008/save_picture_472381.jpg" />
 </div>
 
 
@@ -513,7 +646,7 @@ Eon Timer 2.9.1 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472363.jpg" />
+  <img src="Z:/picture/008/save_picture_472363.jpg" />
 </div>
 
 
@@ -539,7 +672,7 @@ Klokki 1.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472251.jpg" />
+  <img src="Z:/picture/008/save_picture_472251.jpg" />
 </div>
 
 
@@ -550,140 +683,6 @@ Klokki - это отслеживание времени на основе пра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6994D67C6CB816789EC4AE8E8BEC860E1113FB40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567490   (472223) от 03.08.2022
-
-Athentech Perfectly Clear QuickDesk & QuickServer v4 4.1.2 [Multi/ Rus]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Perfectly Clear QuickDesk предназначено для лабораторий, обрабатывающих от 100 до 1000 фотографий в день. Оно может быть полностью автоматической или позволять индивидуальную проверку и настройку для получения наилучшего качества каждого изображения. ПО может автоматизировать ваш основной рабочий процесс коррекции цвета и экспозиции, а также значительно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC905CF94B166FE8955C133C53864DA474CEFCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567532   (472120) от 03.08.2022
-
-Disk Graph 2.4.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Graph - инструмент, который позволяет проверить ваш диск и легко найти файлы, какие занимают большую часть дискового пространства. С его красивым интерфейсом и его подобным кругу графиком, определение местоположения больших файлов никогда не было проще.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2022 DesairemПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B5A88D376089BEDB3467899B1B72D4D5DA4976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160834   (471774) от 26.08.2017
-
-LightWeaver 1.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффекты частиц для ваших фото …
-LightWeaver - это революционный фотоэффект, который бомбардирует ваши изображения частицами, обнаруживает края и контуры с различной степенью свободы и выразительности …
-
-Идеально подходит для портретных снимков или лиц: LightWeaver позволяет легко получить потрясающий профиль профиля в социальных сетях. Художники будут исследовать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 октября 2016Разработчик: Paul OllivierПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5600D2C5E765832A08F16DBBB282390AE2DA2832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057790   (470824) от 30.09.2016
-
-Face4Pass 1.18 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение, которое позволит вам легко создавать фотографии для документов (например, паспорта). Перетащите или откройте существующий файл, внесите необходимые корректировки (экспозиция, контраст, насыщенность, температуру, цвет, резкость и т.д.) и распечатайте полученный результат. Для оптимального определения размеров фото, вы можете использовать сетку и функцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2016Разработчик: Giuseppe CigalaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E687C2243CD0F28937F815E885ABCDC461386EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567697   (470319) от 04.08.2022
-
-SessionRestore for Safa3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение SessionRestore предназначено, чтобы помочь при работе с браузером Safari, работает как расширение.
-Сохраните сеанс просмотра, закройте все окна и начните новый сеанс. Восстановить сеанс, когда вам это понадобится, очень просто. Включите удобную функцию автосохранения, чтобы всегда иметь резервную копию.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DD26B6A7134AE8AC0AF58EE47C72E29E939F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,92 @@
+###  Публикация: 531353   (540593) от 06.08.2012
+
+Tempestuous Fall - The Stars Would Not Awake You (2012) [FLAC|Lossless]<Epic Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old & Grey (10:39)
+02. Beneath a Stone Grave (14:09)
+03. Marble Tears (13:16)
+04. The Stars Would Not Awake You (10:56)
+05. A Cold Stale Goodbye (14:33)Жанр: Epic Funeral Doom MetalПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239132   (540498) от 04.08.2018
+
+Liquid Tension Experiment - Liquid Tension Experiment 2 (1999) [FLAC|Lossless|image + .cue] <Instrumental Prog Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Liquid Tension Experiment — супергруппа из США, сайд-проект участников группы Dream Theater Майка Портного и Джона Петруччи. В проекте также принимали участие Тони Левин, бас-гитарист King Crimson и клавишник Dixie Dregs Джордан Рудесс. После выхода второго альбома Рудесс заменил Дерека Шериняна в группе Dream Theater.
+В 1997 году звукозаписывающая компания Magna (   Читать дальше...   )01. Acid Rain (6:36)
+02. Biaxident (7:41)
+03. 914 (4:01)
+04. Another Dimension (9:51)(   Читать дальше...   )Жанр: Instrumental Prog Rock, Heavy MetalПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3DB19FB2A6122365FB9C4F74EEE8FC42FA7086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311687   (540068) от 30.06.2019
+
+The Black Dahlia Murder - Deflorate (2009) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Valor (3:09)
+ 02. Necropolis (3:30)
+ 03. A Selection Unnatural (2:50)
+ 04. Denounced, Disgraced (3:43)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B6C315BD09CB9A2A2587CC89337CE7936CE2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311699   (540064) от 30.06.2019
 
 Behemoth - Demonica (2006) 2CD, Compilation, Limited Edition [FLAC|Lossless|tracks + .cue] <Black Metal>
@@ -6,7 +95,7 @@ Behemoth - Demonica (2006) 2CD, Compilation, Limited Edition [FLAC|Lossless|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540064.jpg" />
+  <img src="Z:/picture/008/save_picture_540064.jpg" />
 </div>
 
 
@@ -36,7 +125,7 @@ Majesty - Legends (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540063.jpg" />
+  <img src="Z:/picture/008/save_picture_540063.jpg" />
 </div>
 
 
@@ -65,7 +154,7 @@ Wolverine - Cold Light Of Monday (2003) [APE|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539281.jpg" />
+  <img src="Z:/picture/008/save_picture_539281.jpg" />
 </div>
 
 
@@ -94,7 +183,7 @@ Mooncitadel - Night's Scarlet Symphonies (2020) [FLAC|Lossless|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539275.jpg" />
+  <img src="Z:/picture/008/save_picture_539275.jpg" />
 </div>
 
 
@@ -123,7 +212,7 @@ Milopkl - Rust (2021) [FLAC|Lossless|tracks] <Speed, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539272.jpg" />
+  <img src="Z:/picture/008/save_picture_539272.jpg" />
 </div>
 
 
@@ -152,7 +241,7 @@ Miss May I - Deathless (2015) [FLAC|tracks|WEB-DL]<Melodic Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539111.jpg" />
+  <img src="Z:/picture/008/save_picture_539111.jpg" />
 </div>
 
 
@@ -181,7 +270,7 @@ Lanfear - This Harmonic Consonance (2012) [FLAC|Lossless]<Progressive Metal/Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538776.jpg" />
+  <img src="Z:/picture/008/save_picture_538776.jpg" />
 </div>
 
 
@@ -216,7 +305,7 @@ Pain - Coming Home (2016) [FLAC|Lossless|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537869.jpg" />
+  <img src="Z:/picture/008/save_picture_537869.jpg" />
 </div>
 
 
@@ -245,7 +334,7 @@ Morticide - One With The Darkness (2022) [FLAC|Lossless|tracks] <Death, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537522.jpg" />
+  <img src="Z:/picture/008/save_picture_537522.jpg" />
 </div>
 
 
@@ -274,7 +363,7 @@ Mortal Thrall - A Path to Fire (2022) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537519.jpg" />
+  <img src="Z:/picture/008/save_picture_537519.jpg" />
 </div>
 
 
@@ -303,7 +392,7 @@ Megadeth - Anthology: Set The World Afire (2008) 2 x CD, Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537376.jpg" />
+  <img src="Z:/picture/008/save_picture_537376.jpg" />
 </div>
 
 
@@ -332,7 +421,7 @@ Mind Odyssey - Time To Change It (2009) Japan 1st Press, 2009, Avalon [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537243.jpg" />
+  <img src="Z:/picture/008/save_picture_537243.jpg" />
 </div>
 
 
@@ -361,7 +450,7 @@ Wolverine - Machina Viva (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537242.jpg" />
+  <img src="Z:/picture/008/save_picture_537242.jpg" />
 </div>
 
 
@@ -390,7 +479,7 @@ Mind Odyssey - Nailed To The Shade (1998) Japan 1st Press, 1999, Victor [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537240.jpg" />
+  <img src="Z:/picture/008/save_picture_537240.jpg" />
 </div>
 
 
@@ -419,7 +508,7 @@ Mind Odyssey - Signs (1999) Japan 1st Press [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537239.jpg" />
+  <img src="Z:/picture/008/save_picture_537239.jpg" />
 </div>
 
 
@@ -448,7 +537,7 @@ Darkwater - Calling The Earth To Witness (2007) [APE|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537235.jpg" />
+  <img src="Z:/picture/008/save_picture_537235.jpg" />
 </div>
 
 
@@ -477,7 +566,7 @@ Mind Odyssey - Schizophenia (1995) Japan 1st Press, 1995, Victor [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537233.jpg" />
+  <img src="Z:/picture/008/save_picture_537233.jpg" />
 </div>
 
 
@@ -506,7 +595,7 @@ Mind Odyssey - Best Of - 15 Years (2008) Compilation [APE|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537232.jpg" />
+  <img src="Z:/picture/008/save_picture_537232.jpg" />
 </div>
 
 
@@ -535,7 +624,7 @@ Darkwater - Where Stories End (2010) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537231.jpg" />
+  <img src="Z:/picture/008/save_picture_537231.jpg" />
 </div>
 
 
@@ -564,7 +653,7 @@ Mind Odyssey - Keep It All Turning (1993) Japan 1st Press, 1994,  Noise Internat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537229.jpg" />
+  <img src="Z:/picture/008/save_picture_537229.jpg" />
 </div>
 
 
@@ -593,7 +682,7 @@ Der Bote - Morgenwelt (2013) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537228.jpg" />
+  <img src="Z:/picture/008/save_picture_537228.jpg" />
 </div>
 
 
@@ -622,7 +711,7 @@ Wolverine - The Windows Purpose (2001) Remaster, 2006, Earache Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537226.jpg" />
+  <img src="Z:/picture/008/save_picture_537226.jpg" />
 </div>
 
 
@@ -651,7 +740,7 @@ Chaos Divine - Colliding Skies (2015) [FLAC|tracks|WEB-DL]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537196.jpg" />
+  <img src="Z:/picture/008/save_picture_537196.jpg" />
 </div>
 
 
@@ -665,93 +754,6 @@ Chaos Divine - Colliding Skies (2015) [FLAC|tracks|WEB-DL]<Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F506763610A7C63422CA67428D571F92179FE369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925629   (537116) от 08.08.2015
-
-Fear Factory - Genexus (2015) Deluxe Edition [FLAC|tracks+.cue]<Death / Groove / Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autonomous Combat System
-02. Anodized
-03. Dielectric
-04. Soul Hacker(   Читать дальше...   )Жанр: Death / Groove / Industrial MetalПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01652E8C721FA5F11B91B5ABDC743D506101C376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239561   (536980) от 06.08.2018
-
-Nakkiga - Amaieraren Hasiera (2014) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eromenaren mendietan
-02. Simonen ametzak
-03. Heriotzaren hegalak (Sofonisba)
-04. Eadneren odeia(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222CB720F16FE73B68BC9F4BEAC0868700EE75D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239553   (536978) от 06.08.2018
-
-Dantalion - Return to Deep Lethargy (2012) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain and Lethargy
-02. Onward to Darkness
-03. Until My Time Comes
-04. The Arrival of Silence(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CBB7F58518DDC4909D4BA54A1F4396AAC01167
 ```
 
 https://mybot314.ru/tekegram_catalog/

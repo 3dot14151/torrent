@@ -1,3 +1,29 @@
+###  Публикация: 1532329   (714636) от 19.02.2022
+
+Пепел - самый чистый белый / Jiang hu er nu / Ash Is Purest White (2018) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714636.jpg" />
+</div>
+
+
+###  Подробнее
+
+2001 год, индустриальный округ Датун провинции Шаньси. Молодая танцовщица Цяо влюбляется в местного гангстера Биня. Во время одной из бандитских разборок, чтобы защитить любимого, девушка делает выстрел, и впоследствии садится в тюрьму на 5 лет. Выйдя из заключения, Цяо отправляется на поиски Биня.Производство: Китай, Франция, Япония, Arte France Cinéma, Beijing Runjin Investment, Enchant Film and Televisione CultureЖанр: Драма, мелодрама, криминалРежиссер: Цзя ЧжанкэАктеры: Чжао Тао, Ляо Фань, Дяо Инань, Дин Цзяли, Дун Цзыцзянь, Фэн Цзямэй, Фэн Сяоган, Кан Кан, Ли Сюань, Каспер ЛянПеревод: Двуголосый профессиональный (Студия "Позитив")Субтитры: Русские, английские, французскиеПродолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E33AEC41C91BE22D5A3EF3EDB61248D1805C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532410   (714524) от 19.02.2022
 
 Баллистический поцелуй / Ballistic Kiss (1998) DVDRip [VO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714524.jpg" />
+  <img src="Z:/picture/008/save_picture_714524.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711012.jpg" />
+  <img src="Z:/picture/008/save_picture_711012.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710695.jpg" />
+  <img src="Z:/picture/008/save_picture_710695.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710443.jpg" />
+  <img src="Z:/picture/008/save_picture_710443.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709734.jpg" />
+  <img src="Z:/picture/008/save_picture_709734.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708984.jpg" />
+  <img src="Z:/picture/008/save_picture_708984.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708935.jpg" />
+  <img src="Z:/picture/008/save_picture_708935.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707054.jpg" />
+  <img src="Z:/picture/008/save_picture_707054.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705615.jpg" />
+  <img src="Z:/picture/008/save_picture_705615.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705163.jpg" />
+  <img src="Z:/picture/008/save_picture_705163.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705020.jpg" />
+  <img src="Z:/picture/008/save_picture_705020.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704996.jpg" />
+  <img src="Z:/picture/008/save_picture_704996.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704675.jpg" />
+  <img src="Z:/picture/008/save_picture_704675.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703679.jpg" />
+  <img src="Z:/picture/008/save_picture_703679.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702491.jpg" />
+  <img src="Z:/picture/008/save_picture_702491.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700798.jpg" />
+  <img src="Z:/picture/008/save_picture_700798.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699833.jpg" />
+  <img src="Z:/picture/008/save_picture_699833.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699580.jpg" />
+  <img src="Z:/picture/008/save_picture_699580.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698948.jpg" />
+  <img src="Z:/picture/008/save_picture_698948.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698433.jpg" />
+  <img src="Z:/picture/008/save_picture_698433.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697509.jpg" />
+  <img src="Z:/picture/008/save_picture_697509.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697508.jpg" />
+  <img src="Z:/picture/008/save_picture_697508.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697284.jpg" />
+  <img src="Z:/picture/008/save_picture_697284.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695922.jpg" />
+  <img src="Z:/picture/008/save_picture_695922.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695182.jpg" />
+  <img src="Z:/picture/008/save_picture_695182.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F583376011CC13E17657C03FCB24CCCED038967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027766   (694048) от 20.06.2016
-
-Чёртова бабуля / Helmeoni (2015) WEB-DLRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проводится конкурс ругательств. Мастера бранного слова собираются для участия в конкурсе, чтобы определить, кто из них лучше составляет пятиэтажные оскорбления. И тут появляется бабуля...Производство: Южная КореяЖанр: КомедияРежиссер: Щин Хан СольАктеры: Ким Со-ми, Чон Ман-щик, Чон И-ран, Ли Джон-ын, Ким Джон-тхэ, Киль Хэ-ён, Ли Сын-джун, Ю Сун-унПеревод: Двуголосый закадровый, любительский (den904 & DeadSno) (ненормативная лексика)Субтитры: ОтсутствуютПродолжительность: 01:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BB7911B489E891122745685C0C5E98AFF8C1C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

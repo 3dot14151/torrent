@@ -1,3 +1,108 @@
+###  Публикация: 468187   (96745) от 15.03.2012
+
+Exodus - Exhibit B: The Human Condition (2010) Japanese Edition /2011/ [FLAC|Lossless]<Thrash Metal,Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_96745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad Of Leonard And Charles (07:14)
+02. Beyond The Pale (07:40)
+03. Hammer And Life (03:31)
+04. Class Dismissed (A Hate Primer) (07:15)
+05. Downfall (06:22)
+06. March Of The Sycophants (06:45)
+07. Nanking (07:22)
+08. Burn, Hollywood, Burn (04:06)
+09. Democide (06:36)
+10. The Sun Is My Destroyer (09:33)(   Читать дальше...   )2010 Japanese Edition /2011/Жанр: Thrash Metal,Groove MetalПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466204   (96364) от 11.03.2012
+
+Ambeon - Fate Of A Dreamer (2012) Expanded Edition [FLAC|Lossless]<Progressive Metal/Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_96364.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Album
+
+01. Estranged
+02. Ashes
+03. High
+04. Cold Metal
+05. Fate
+06. Sick Ceremony
+07. Lost Message
+08. Surreal(   Читать дальше...   )2012Жанр: Progressive Metal/AmbientПродолжительность: 01:56:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465101   (96090) от 09.03.2012
+
+Gun Barrel - 2 альбома (2003-2007) [FLAC|Lossless]<Heavy-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_96090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invasion Warning
+02. Front Killers
+03. Turn To Black
+04. Wanted Man
+05. The Redeemer
+06. Keep On Movin'
+07. Cheap, Wild & Nasty
+08. Brother To Brother
+09. Ghost Inside
+10. M.I.L.F.(   Читать дальше...   )2003-2007Жанр: Heavy-metalПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462845   (95653) от 05.03.2012
 
 Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
@@ -6,7 +111,7 @@ Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95653.jpg" />
+  <img src="Z:/picture/005/save_picture_95653.jpg" />
 </div>
 
 
@@ -40,7 +145,7 @@ Opera IX - Maledictae In Aeternum (2012) [FLAC|Lossless]<Black Metal,Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93228.jpg" />
 </div>
 
 
@@ -75,7 +180,7 @@ Caligula's Horse - Bloom (2015) Reissue, 2018, Inside Out Music [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91281.jpg" />
 </div>
 
 
@@ -104,7 +209,7 @@ Before the Dawn - Rise of the Phoenix (2012) [FLAC|Lossless]<Melodic Death/Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91018.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Prong - Carved into Stone (2012) [FLAC|Lossless]<Crossover/Thrash/Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90798.jpg" />
 </div>
 
 
@@ -174,7 +279,7 @@ Rammstein - 2 бутлега (2012) Bercy, Paris, France - 2012-03-07 + Birmingh
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86212.jpg" />
 </div>
 
 
@@ -209,7 +314,7 @@ Serenity - 3 альбома (2007 - 2011) [FLAC|Lossless]<Progressive Metal,Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85908.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Tacere - 2 альбома (2006 - 2007) [APE|Lossless]<Power Metal,Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85260.jpg" />
 </div>
 
 
@@ -279,7 +384,7 @@ Hysterica - The Art Of Metal (2012) [FLAC|lossless]<Heavy Metal / Female Vocal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84861.jpg" />
 </div>
 
 
@@ -314,7 +419,7 @@ Tomorrow's Outlook - 34613 (2012) [FLAC|Lossless]<Progressive/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84853.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ Meshuggah - Koloss (2012) [FLAC|Lossless]<Progressive Post-Thrash / Math Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83918.jpg" />
 </div>
 
 
@@ -384,7 +489,7 @@ Overkill - 15 альбомов (1988 - 2010) Japanese Edition [FLAC|Lossless]<Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83851.jpg" />
 </div>
 
 
@@ -419,7 +524,7 @@ Pythia - 2 альбома (2009 - 2012) [FLAC|Lossless]<Power Metal,Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83825.jpg" />
 </div>
 
 
@@ -462,7 +567,7 @@ Judas Priest - 16 Альбомов (1974-90) 2011 Remastered / 2012, Sony Music,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83149.jpg" />
 </div>
 
 
@@ -491,7 +596,7 @@ Soulfly - Enslaved (2012) [FLAC|Lossless]<Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82826.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ Soen - Cognitive (2012) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82813.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81211.jpg" />
 </div>
 
 
@@ -590,7 +695,7 @@ Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81162.jpg" />
 </div>
 
 
@@ -625,7 +730,7 @@ Nightwish - Lokikirja (2009) Box Set, 8CD / Spinefarm Records / [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79800.jpg" />
 </div>
 
 
@@ -654,7 +759,7 @@ Xandria - Neverworld's End (Limited Edition) (2012) [FLAC|Lossless]<Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79551.jpg" />
 </div>
 
 
@@ -689,7 +794,7 @@ Dio - Holy Diver (1983) /2012, Audio Fidelity [FLAC|Lossless]<Heavy Metal / Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79031.jpg" />
 </div>
 
 
@@ -718,7 +823,7 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77297.jpg" />
 </div>
 
 
@@ -753,7 +858,7 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76571.jpg" />
 </div>
 
 
@@ -764,93 +869,6 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447658   (74893) от 08.02.2012
-
-System of a Down - Mezmerize (2005) [FLAC|Lossless]<Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Soldier Side (Intro) (1:03)
-2. B.Y.O.B. (4:15)
-3. Revenga (3:47)
-4. Cigaro (2:11)(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABB90327B13AB76D8F3BBFFE39731FC077BDB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770544   (71973) от 02.01.2025
-
-Venom - Canadian Assault (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal, Speed, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warhead [00:03:20]
-02. Women [00:02:52]
-03. Seven Gates Of Hell [00:05:30]
-04. Die Hard (Live in Canada 1984) [00:03:27](   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed, Black MetalПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560F8AEFFD9525E242E02E4CD5377293F846A802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770846   (71943) от 03.01.2025
-
-Lord Agheros - Anhedonia (2025) [FLAC|Lossless|WEB-DL|tracks] <Italian ambient black metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament of the Lost [00:06:30]
-02. Harmony of Despair [00:03:45]
-03. Eclipse of Hope [00:04:34]
-04. Lost Dreams Ritual [00:05:02](   Читать дальше...   )Жанр: Italian ambient black metalПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B48A7553029B76FE0E4D0EC8767D510848404C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

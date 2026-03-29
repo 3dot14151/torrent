@@ -1,3 +1,83 @@
+###  Публикация: 1178846   (353969) от 29.10.2017
+
+А. А. Осипов | Откровенный разговор с верующими и неверующими: Размышления бывшего богослова (1978) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353969.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике избранных атеистических сочинений А. А. Осипова, порвавшего в 1959 году с религией и церковью, опубликованы его искренние, глубокие по содержанию и яркие по форме размышления о религии и атеизме. Они помогают решению задач научно-атеистического воспитания, пропаганде научных знаний среди населения.
+
+Книга адресована верующим и неверующим, пропагандистам (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33703767C2B48C47E9013E46FBF21665906F2F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178842   (353706) от 29.10.2017
+
+В. М. Кувенева | Критика ревизионистской фальсификации научного атеизма [2-е изд.] (1988) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353706.jpg" />
+</div>
+
+
+###  Подробнее
+
+В научно-популярной книге дан марксистский анализ ревизионистской фальсификации научного атеизма с конца XIX века до наших дней. Автор показывает осуществление принципов научного атеизма в практике социалистического и коммунистического строительства, развенчивает мифы буржуазно-клерикальной пропаганды о положении религии и церкви в СССР.Жанр: История, политология, религиоведение, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2262EC08C58897559B3D6D63B41075EBCC417E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952875   (353667) от 02.11.2015
+
+М.Ю. Реутин | Мистическое богословие Майстера Экхарта (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является первым русскоязычным исследованием творчества великого средневекового мистика и мыслителя Иоанна Экхарта из Хоххайма. Экхартовское богословие рассматривается на широком культурно-историческом фоне. При этом особое внимание уделено сопоставлению доктрины Экхарта с доктриной его современника идеолога византийского исихазма Григория Паламы. В приложении (   Читать дальше...   )Жанр: Философия, богословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4C50C46558B6537CB1D797C241BDE0A583164B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724328   (352968) от 19.11.2013
 
 И.А. Дворецкая, Н.В. Симонова (сост.) | Христианская Церковь в Высокое Средневековье (2011) [PDF]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352968.jpg" />
+  <img src="Z:/picture/008/save_picture_352968.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351672.jpg" />
+  <img src="Z:/picture/008/save_picture_351672.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351663.jpg" />
+  <img src="Z:/picture/008/save_picture_351663.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351479.jpg" />
+  <img src="Z:/picture/008/save_picture_351479.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351358.jpg" />
+  <img src="Z:/picture/008/save_picture_351358.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351357.jpg" />
+  <img src="Z:/picture/008/save_picture_351357.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350147.jpg" />
+  <img src="Z:/picture/008/save_picture_350147.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349699.jpg" />
+  <img src="Z:/picture/008/save_picture_349699.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349434.jpg" />
+  <img src="Z:/picture/008/save_picture_349434.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349169.jpg" />
+  <img src="Z:/picture/008/save_picture_349169.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347628.jpg" />
+  <img src="Z:/picture/008/save_picture_347628.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346961.jpg" />
+  <img src="Z:/picture/008/save_picture_346961.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346937.jpg" />
+  <img src="Z:/picture/008/save_picture_346937.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346804.jpg" />
+  <img src="Z:/picture/008/save_picture_346804.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345961.jpg" />
+  <img src="Z:/picture/008/save_picture_345961.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345747.jpg" />
+  <img src="Z:/picture/008/save_picture_345747.jpg" />
 </div>
 
 
@@ -427,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344764.jpg" />
+  <img src="Z:/picture/008/save_picture_344764.jpg" />
 </div>
 
 
@@ -453,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344708.jpg" />
+  <img src="Z:/picture/008/save_picture_344708.jpg" />
 </div>
 
 
@@ -479,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344665.jpg" />
+  <img src="Z:/picture/008/save_picture_344665.jpg" />
 </div>
 
 
@@ -505,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344650.jpg" />
+  <img src="Z:/picture/008/save_picture_344650.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344648.jpg" />
+  <img src="Z:/picture/008/save_picture_344648.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344516.jpg" />
+  <img src="Z:/picture/008/save_picture_344516.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343564.jpg" />
+  <img src="Z:/picture/008/save_picture_343564.jpg" />
 </div>
 
 
@@ -594,86 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEA165A701D84116EA1A4EBCC081B073DC6621C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073835   (343055) от 17.11.2016
-
-Нина Фортунатова | Мой огненный ангел (2000) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343055.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мой огненный ангел" - это история одной жизни, значительная часть которой прошла рядом с великим проповедником нашего времени - отцом Александром Менем. А в целом - это история целой эпохи церковной жизни в России.
-
-Уже столько о батюшке написано, что мой рассказ вряд ли что-то добавит. Но воспоминания не оставляют меня, и я решаюсь предложить вот эти (   Читать дальше...   )Жанр: МемуарыФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B653E6DDDBE1CE1B9A8550E05F869AC2AF9C5B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578735   (343003) от 24.09.2022
-
-Наталья Телепина | Откровение женщине от Бога, о последних временах (2013) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343003.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1994 году, одной женщине в России был показан сон-видение от Бога о последних временах. Ей было показано Господом то, что ожидает нас всех в недалеком будущем. Пророчества этой женщины совпадают с пророчествами, святого Иоанна Богослова и с пророчествами многих святых, живших в прошлом. Запись была обнародована в начале 2013 года. Этот текст был создан из аудиозаписи. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C41278394ED5063769AD8C7F8F3E711008C5D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580741   (342996) от 25.11.2012
-
-Триод Цветная [1648] [PDF] (Раритетное издание)
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Триодь (греч. Triodion), богослужебная книга, содержащая части богослужения с изменяемыми молитвословиями для подвижных дней года (в зависимости от празднования Пасхи, начиная с Недели о мытаре и фарисее и заканчивая Неделей всех святых). Название книги связано с тем, что каноны (вид церковного гимна), содержащиеся в ней, большей частью состоят из трех песней. Триодь Цветная содержит изменяемые части служб от первого дня Пасхи до Недели Всех святых. Электронная копия Триоди Цветной - один из старинных памятников церковно-славянской письменности. Его данные бесценны как для историков языка, так и для историков искусства. Оно отпечатано в Москве 17 марта 1648 года [01.09.7155 - 17.03.7156].Жанр: Раритеты, Духовная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA94CE33BF4C808844218E5A08681B7F4E7E435
 ```
 
 https://mybot314.ru/tekegram_catalog/

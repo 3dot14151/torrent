@@ -1,3 +1,107 @@
+###  Публикация: 1246389   (745947) от 11.02.2019
+
+Молодёжка. Лёд и пламя (2018) WEB-DLRip [H.264/720p-LQ] (сезон 6, серии 1-44 из 44)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745947.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бурые Медведи» получили шанс сыграть в КХЛ, и теперь команду ждут головокружительные перспективы и мировая знаменитость в лице канадского тренера. В новых условиях нет места прежнему тренеру Сергею Макееву, который остаётся без работы и карьерного роста. Помочь старому другу решает бессменный спонсор «Медведей» — Олег Иванович Калинин. Он предлагает Сергею вновь (   Читать дальше...   )Производство: РоссияЖанр: драмаРежиссер: Андрей ГоловковАктеры: Денис Никифоров, Андрей Мерзликин, Михаил Жигалов, Фёдор Бондарчук, Сергей Габриэлян, Владимир Зайцев, Сергей Комаров, Анатолий Кот, Анатолий Лобоцкий, Ксения Лаврова-Глинка и др.Продолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C0D2C40A6E7CDFB9B8D5FFDC9258901CE75E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003208   (745906) от 25.05.2016
+
+Банши / Banshee (2016) HDTVRip [H.264] (сезон 4, серии 1-8 из 8) Amedia, NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Banshee — бывший заключенный и профессиональный вор, который присваивает себе личность шерифа Банши (городка в Пенсильвании), где он продолжает нарушать закон, хотя ему не дают покоя гангстеры, которых он предал много лет назад.Производство: США, "Your Face Goes Here Entertainment", "Cinemax"Жанр: Боевик, Драма, Триллер, ДетективРежиссер: Оле Кристиан Мадсен, Грег Яйтанс, Лони ПеристерАктеры: Энтони Старр, Ивана Миличевич, Хун Ли, Рас Блэквелл, Триесте Келли Данн, Лили Симмонс, Фрэнки Фэйзон, Мэтт Сервитто, Деметриус Гросс, Ульрих Томсен, Райанн Шэйн, Бен Кросс, Энтони Руйвивар, Мэттью РойчПеревод: Многоголосый закадровый, профессиональный - Amedia / NewStudioСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFFF6E2E7F9B57899A24FD06BA70A0F14833870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216845   (745891) от 02.04.2018
+
+«Почта России»: доставка ... теперь и беспилотником (UPD)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_745891.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Почта России» 2 апреля намерена осуществить первую в своей истории доставку груза с помощью беспилотного летательного аппарата.Местом старта тестового рейса выбрана площадка отделения почтовой связи в 105 микрорайоне Улан-Удэ, сообщается на официальном сайте правительства Бурятии.Почтовый груз будет доставлен на беспилотнике в село Тарбагатай Тарбагатайского района. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 889983   (745696) от 19.04.2015
+
+Microsoft Office 2013 SP1 Professional Plus 15.0.4711.1000 (x64) RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере любого уважающего себя пользователя, который использует ПК не только для развлечений. Эффективные и удобные в использовании средства помогут (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3952803D931817881325E271B0AC152C1204519F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521988   (744640) от 15.01.2022
 
 Сергий против нечисти (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744640.jpg" />
+  <img src="Z:/picture/008/save_picture_744640.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Time Machine VR (2016) [En] (1.0.0.18931) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744417.jpg" />
+  <img src="Z:/picture/008/save_picture_744417.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744414.jpg" />
+  <img src="Z:/picture/008/save_picture_744414.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744410.jpg" />
+  <img src="Z:/picture/008/save_picture_744410.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.04.01 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744350.jpg" />
+  <img src="Z:/picture/008/save_picture_744350.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744344.jpg" />
+  <img src="Z:/picture/008/save_picture_744344.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_743788.jpg" />
+  <img src="Z:/picture/005/save_picture_743788.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Tetris Effect (2019) [Multi] (1.0.6) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743650.jpg" />
+  <img src="Z:/picture/008/save_picture_743650.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Adobe Photoshop 2020 21.2.1.265 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743649.jpg" />
+  <img src="Z:/picture/008/save_picture_743649.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ GoodbyeDPI 0.2.1. Launcher 5.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743192.jpg" />
+  <img src="Z:/picture/008/save_picture_743192.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743185.jpg" />
+  <img src="Z:/picture/008/save_picture_743185.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 01.2022 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743180.jpg" />
+  <img src="Z:/picture/008/save_picture_743180.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743155.jpg" />
+  <img src="Z:/picture/008/save_picture_743155.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743153.jpg" />
+  <img src="Z:/picture/008/save_picture_743153.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_743099.jpg" />
+  <img src="Z:/picture/005/save_picture_743099.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_742975.jpg" />
+  <img src="Z:/picture/005/save_picture_742975.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.3 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742963.jpg" />
+  <img src="Z:/picture/008/save_picture_742963.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ IT-курсы из «Бауманки» решили еще раз заблок�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_742931.jpg" />
+  <img src="Z:/picture/005/save_picture_742931.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742858.jpg" />
+  <img src="Z:/picture/008/save_picture_742858.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742852.jpg" />
+  <img src="Z:/picture/008/save_picture_742852.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742772.jpg" />
+  <img src="Z:/picture/008/save_picture_742772.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ Crysis 2 (2010) [Ru/En] (v.1.9) Repack R.G. Games [Maximum Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742765.jpg" />
+  <img src="Z:/picture/008/save_picture_742765.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ Crysis 2 (2010) [Ru/En] (v.1.9) Repack R.G. Games [Maximum Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A0264699DD6BCE834C78014C31971C6FE83940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665804   (742676) от 07.06.2013
-
-Самогонщики (1961) BDRip [1080p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трус, Балбес и Бывалый решают поставить на широкую ногу изготовление самогона — и снова фиаско…Жанр: Короткометражный, КомедияРежиссер: Леонид ГайдайАктеры: Евгений Моргунов, Георгий Вицин, Юрий Никулин, Владимир ПицекПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 00:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E47B6E7754ACCD9BE0F895FE1BD9FE24E53896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396167   (742353) от 18.07.2020
-
-Контрольный список / Watch List (2019) HDTVRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях рассказывает о безнаказанных убийствах на Филиппинах. Летом 2016 года в Маниле избранный президент Родриго Дутерте начал кампанию против торговли наркотиками под названием "Операция Токханг ( Убить Всех)" пообещав избирателям расправиться с наркоторговлей и криминалом. Теперь он претворяет страшное обещание в жизнь, охота (   Читать дальше...   )Производство: Филиппины, США, Канада / Bron Studios, Reality EntertainmentЖанр: Триллер, драма, криминалРежиссер: Бен РекхиАктеры: Артур Акуна, Алессандра де Росси, Джейк Макапагал, Джесс Мендоза, Анхели Баяни, Тимоти Мабалот, Микко Лауренте, Лу Велосо ...Перевод: Любительский одноголосый (datynet)Субтитры: ОтсутствуютПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC109F3E97E06186FE21A6F4350855FAAA6F70DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414193   (741875) от 17.01.2022
-
-Resident Evil 3 (2020) [Ru/Multi] (build 7599632/dlc) Repack West4it
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741875.jpg" />
-</div>
-
-
-###  Подробнее
-
-RESIDENT EVIL 3 – полностью обновленный ремейк хоррор-экшена Resident Evil 3: Nemesis, в котором вам вновь предстоит выступить в роли Джилл Валентайн и попытаться выбраться из города Раккун-сити, чтобы сбежать от безжалостного Немезиса. В RESIDENT EVIL 3 вас ждет графика высокого разрешения, обновленные механики геймплеяТип издания: RepackРазработчик: CAPCOMЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1CA949B854F67E1B2B7781FD3CE5735B062385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779401   (741872) от 17.01.2022
-
-Владимир Козин и Игорь Екимов | Сам себе электрик. Блок профи (2013) [unpacked]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите научиться самостоятельно исправлять неполадки в электропроводке, не вызывая электриков? Этот обучающий видеокурс научит Вас этому. Основная задача этого видеокурса – углубиться в технологии и уже оперировать сложными системами.Жанр: Обучающий видеокурсФормат: unpacked
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09B23A58BC7444D1F8854BCCF4361444CAC5648
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1254123   (374610) от 13.10.2018
+
+Зарядное устройство заставило iPhone забронировать президентский номер
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_374610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владелица iPhone из Китая пожаловалась на то, что устройство «живет своей жизнью» после подключения к зарядному кабелю. Согласно мисс Ян, она подключила смартфон к зарядному устройству и положила его на стол.Лишь потом владелица устройства обнаружила, что iPhone самостоятельно открыл приложение Ctrip (онлайн-турагент). В итоге iPhone сам умудрился забронировать президентский (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254138   (374607) от 13.10.2018
+
+Microsoft предоставила Linux-сообществу открытый доступ к 60000 своих патентов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_374607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft объявила о присоединении к инициативе патентной группы Open Invention Network (OIN), которая была создана в свое время для защиты ПО Linux от недобросовестных пользователей. В результате такого альянса участники OIN-сообщества получили открытый (бесплатный) доступ более чем к 60 000 патентов интернет-гиганта.Для справки, OIN – это, прежде всего, лицензионная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949820   (374250) от 24.10.2015
+
+Битва экстрасенсов. Сезон №16. Выпуск №6 (2015) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374250.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 сентября на ТНТ стартует 16-й сезон «Битвы экстрасенсов». В этом году среди желающих попасть на 16-й сезон «Битвы экстрасенсов» необычных людей было больше, чем когда-либо. Уже сейчас понятно: 16-я «Битва» будет ну очень запоминающейся! Их создатели пока держат в строжайшем секрете. Съемки уже идут, и экстрасенсы не должны узнать заранее, что для них готовят. (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D922868121FE770B12A61C3A958C6637CA92A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949195   (374132) от 24.10.2015
+
+Dr.Web Security Space 11.0.0.10191 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr.Web Security Space предлагает комплексное противодействие интернет-угрозам. Включает антивирус, антишпион, антируткит, превентивную защиту, антиспам, облачный веб-антивирус и родительский контроль в сочетании с дополнительной защитой от сетевых атак, благодаря встроенному фаерволу Dr.Web Firewall.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50397F8CE2BAEE198BFE0FBD59CD6E474834F35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949769   (374102) от 24.10.2015
+
+Microsoft Office 2013-2016 C2R Install 4.8 by Ratiborus [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Установщик Office 2016 позволяющий выбрать необходимые приложения и выполнить активацию.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A2970F2AC2076DB4D5F1BD16FF7CEE2157CE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949593   (374094) от 24.10.2015
+
+EasyBCD 2.3.0.207 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374094.jpg" />
+</div>
+
+
+###  Подробнее
+
+EasyBCD - менеджер загрузки операционных систем для Windows, позволяющий быстро настроить загрузку ОС и использовать несколько операционных систем на одном компьютере (поддерживаются все версии Windows, Linux, Mac OS X и BSD). С помощью EasyBCD можно установить и сконфигурировать загрузочные записи ОС, что позволит загружать любую из поддерживаемых операционных систем (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8486EF019FC50AD4434E0880CF0FDFE05CF507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327347   (373973) от 25.09.2019
 
 Acronis True Image 2020 Build 21400 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +162,7 @@ Acronis True Image 2020 Build 21400 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373973.jpg" />
+  <img src="Z:/picture/008/save_picture_373973.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_373701.jpg" />
+  <img src="Z:/picture/005/save_picture_373701.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373565.jpg" />
+  <img src="Z:/picture/008/save_picture_373565.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373564.jpg" />
+  <img src="Z:/picture/008/save_picture_373564.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ Windows 7 sp1 x64 Plus Office Release by StartSoft 01-2020 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373523.jpg" />
+  <img src="Z:/picture/008/save_picture_373523.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372969.jpg" />
+  <img src="Z:/picture/005/save_picture_372969.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ Parallels Desktop 6.0. ( 11826.611899 от 26 октября 2010 ) [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372935.jpg" />
+  <img src="Z:/picture/005/save_picture_372935.jpg" />
 </div>
 
 
@@ -200,7 +356,7 @@ Unlocker 1.9.2 Final RePack by Alker [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372686.jpg" />
+  <img src="Z:/picture/008/save_picture_372686.jpg" />
 </div>
 
 
@@ -226,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372678.jpg" />
+  <img src="Z:/picture/008/save_picture_372678.jpg" />
 </div>
 
 
@@ -252,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372478.jpg" />
+  <img src="Z:/picture/005/save_picture_372478.jpg" />
 </div>
 
 
@@ -279,7 +435,7 @@ MacDrive Pro 9 [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372341.jpg" />
+  <img src="Z:/picture/005/save_picture_372341.jpg" />
 </div>
 
 
@@ -305,7 +461,7 @@ Udemy, Dzianis Matveyenka | Spring (2022) WEB-DL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372299.jpg" />
+  <img src="Z:/picture/008/save_picture_372299.jpg" />
 </div>
 
 
@@ -334,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372247.jpg" />
+  <img src="Z:/picture/005/save_picture_372247.jpg" />
 </div>
 
 
@@ -360,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372208.jpg" />
+  <img src="Z:/picture/005/save_picture_372208.jpg" />
 </div>
 
 
@@ -387,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372116.jpg" />
+  <img src="Z:/picture/008/save_picture_372116.jpg" />
 </div>
 
 
@@ -413,7 +569,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.6.22002) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372109.jpg" />
+  <img src="Z:/picture/008/save_picture_372109.jpg" />
 </div>
 
 
@@ -439,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_371878.jpg" />
+  <img src="Z:/picture/005/save_picture_371878.jpg" />
 </div>
 
 
@@ -465,7 +621,7 @@ AusLogics BoostSpeed 8.1.0.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371844.jpg" />
+  <img src="Z:/picture/008/save_picture_371844.jpg" />
 </div>
 
 
@@ -491,7 +647,7 @@ SpyHunter 4.20.9.4533 RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371840.jpg" />
+  <img src="Z:/picture/008/save_picture_371840.jpg" />
 </div>
 
 
@@ -517,7 +673,7 @@ Adobe Premiere Pro CS4 4.2.020 [Multilingual]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371773.jpg" />
+  <img src="Z:/picture/008/save_picture_371773.jpg" />
 </div>
 
 
@@ -535,162 +691,6 @@ DVD (   Читать дальше...   )Язык интерфейса: Multilin
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950030   (371682) от 25.10.2015
-
-Windroye 2.8.4 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windroy – один из эмуляторов, который может похвастаться неплохой производительностью благодаря задействованию аппаратных ресурсов ПК. То есть, в отличие от других эмуляторов, Windroy не является эмулятором как таковым, а по сути, это полноценное портирование Android в Windows. Этот эмулятор обеспечивает высокую производительность благодаря скорости и тому, что он (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AAA26F90DBA2A785BC7447C446FC364260B329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949982   (371680) от 25.10.2015
-
-Windows 10 PE (x64) v.4.1 by Ratiborus [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEC49A549E0F420B820929EB518E71C92F13DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949971   (371678) от 25.10.2015
-
-Кривая линия / Поворот / Curve (2015) DVDRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэллори готовится выйти замуж, но накануне свадьбы ее терзают сомнения. Ее жених Брэд просит девушку перегнать его машину в другой город, и Мэллори пользуется этой поездкой, чтобы еще раз хорошенько все обдумать. В дороге она знакомится с Кристианом – вроде бы милым парнем, который помог ей «оживить» заглохший автомобиль. Но решение подвезти его до шоссе оказывается (   Читать дальше...   )Производство: СШАЖанр: Ужасы, ТриллерРежиссер: Иэн СофтлиАктеры: Джулианна Хаф, Тедди Сирс, Курт Брайант, Мэдалин Хорчер, Дрю РаушПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Алексей ТолмачевСубтитры: ОтсутствуютПродолжительность: 01:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF0E299ADBEDD66E4F07F1909DBB2EB56AE5D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949659   (371677) от 25.10.2015
-
-Just Dance 2016 (2015) [Wii] [PAL] [License] [En/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just Dance 2016 – продолжение популярной серии танцевальных игр, демонстрирующее совершенно новый подход к игровому процессу. Окунитесь в ритм песни Uptown Funk Марка Ронсона и Бруно Марса или оторвитесь по полной под звуки All About That Bass Меган Трейнор! Just Dance 2016 предлагает шикарную подборку музыки и как никогда захватывающий видеоряд. Более 100 миллионов (   Читать дальше...   )Тип издания: LicenseРазработчик: UbiSoft EntertainmentЖанр: DanceЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский, Голландский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Итальянский, Голландский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A107734BF8A323D27525B44F26585A158B73E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950156   (371670) от 25.10.2015
-
-Movavi Video Converter 16.0.2 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0466B864BF3F90BF8EF190EB19E07F1068A0928F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949393   (371665) от 25.10.2015
-
-Мистер Холмс / Mr. Holmes (2015) HDRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие развернётся в 1947 году, а речь в фильме пойдёт об отошедшем от дел Шерлоке Холмсе, живущем в сонной деревушке в Сассексе вместе с горничной миссис Манро и её сыном, который занимается сыском в качестве хобби. Несмотря на уединённый образ жизни, знаменитому сыщику с Бейкер-стрит по-прежнему не даёт покоя тайна так и нераскрытого 50 лет назад дела.Производство: Великобритания, США, AI-Film, See-Saw Films, Archer Gray, BBC Films, FilmNation EntertainmentЖанр: драма, криминал, детективРежиссер: Билл КондонАктеры: Иэн МакКеллен, Лора Линни, Майло Паркер, Хироюки Санада, Хэтти Морахэн, Патрик Кеннеди, Роджер Аллам, Филип Дэвис, Фрэнсис де ла Тур, Чарльз Мэддокс и др.Перевод: Любительский одноголосый закадровый - AndiПродолжительность: 01:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE3142DC96BCF7C5982BA1F07E0789C5F2C68FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 1419232   (341854) от 27.10.2020
+
+Boom 3D 1.3.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boom 3D является уникальным приложением для профессиональной обработки звука, которое радикально изменяет ваше восприятие музыки. Эта премиальная версия включает в себя бесплатные звуковые эффекты, обеспечивающие потрясающие ощущения. Приложение автоматически калибруется в соответствии с типом компьютера Mac, обеспечивая уникальное персонализированное звучание. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2020Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: macOS 10.10.3+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB024EA9DB31F2C59AF51FCEF43D837C8569556C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180226   (341834) от 03.11.2017
+
+Affinity Photo 1.6.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Photo — профессиональный фоторедактор для Mac OS X
+Программа Affinity Photo – это кульминация пятилетнего труда по объединению инструментов для ретуши изображений.
+
+Спектр доступных опций более чем солиден и включает в себя наборы линз, элементы управления масками и каналами, поддержку систем EXIF и ICC, широкие возможности для экспорта-импорта форматов. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 ноября 2017Разработчик: Serif (Europe) LtdПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: Русский,  Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93087BD3D24CC9EC45FEF023407380BC26326CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257917   (341438) от 28.10.2018
+
+GroupsPro 3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
+GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2018Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6A9E4CEE208AB411088A443F65DD0A44469626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954374   (341430) от 07.11.2015
+
+CleanMyMac 3.1.2 (a) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341430.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyMac 3 - Программа для очистки Мака
+Очищайте, оптимизируйте и обслуживайте ваш Мак с новым CleanMyMac 3. Он проверяет каждый уголок вашей системы, удаляет гигабайты мусора в два щелчка мышью и контролирует состояние вашего Мака.
+
+CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 ноября 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6978C0614E6FDB416631C3EC09CC6EB45426A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330423   (341396) от 10.10.2019
 
 Data Guardian 5 v5.0 [En]
@@ -6,7 +117,7 @@ Data Guardian 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341396.jpg" />
+  <img src="Z:/picture/008/save_picture_341396.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ GraphicConverter 11 v11.1 (4132) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341395.jpg" />
+  <img src="Z:/picture/008/save_picture_341395.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ Qbserve 1.79 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341347.jpg" />
+  <img src="Z:/picture/008/save_picture_341347.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ WebScraper 4.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341344.jpg" />
+  <img src="Z:/picture/008/save_picture_341344.jpg" />
 </div>
 
 
@@ -113,7 +224,7 @@ Fantastical 2 v2.5.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341311.jpg" />
+  <img src="Z:/picture/008/save_picture_341311.jpg" />
 </div>
 
 
@@ -142,7 +253,7 @@ Devonthink Pro Office 3 v3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341307.jpg" />
+  <img src="Z:/picture/008/save_picture_341307.jpg" />
 </div>
 
 
@@ -168,7 +279,7 @@ Movist Pro 2.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341305.jpg" />
+  <img src="Z:/picture/008/save_picture_341305.jpg" />
 </div>
 
 
@@ -196,7 +307,7 @@ Adguard 2.1.4.619 nightly (CL - 1.5.60)[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341291.jpg" />
+  <img src="Z:/picture/008/save_picture_341291.jpg" />
 </div>
 
 
@@ -222,7 +333,7 @@ Teorex Inpaint 8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341276.jpg" />
+  <img src="Z:/picture/008/save_picture_341276.jpg" />
 </div>
 
 
@@ -249,7 +360,7 @@ Photo Editor 6 Movavi v6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341270.jpg" />
+  <img src="Z:/picture/008/save_picture_341270.jpg" />
 </div>
 
 
@@ -277,7 +388,7 @@ Cisdem Video Converter 3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341214.jpg" />
+  <img src="Z:/picture/008/save_picture_341214.jpg" />
 </div>
 
 
@@ -304,7 +415,7 @@ MacX MediaTrans 6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341211.jpg" />
+  <img src="Z:/picture/008/save_picture_341211.jpg" />
 </div>
 
 
@@ -332,7 +443,7 @@ Coda 2 v2.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341141.jpg" />
+  <img src="Z:/picture/008/save_picture_341141.jpg" />
 </div>
 
 
@@ -359,7 +470,7 @@ MacFamilyTree 9 v9.0.9 MAS + iCloud [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341121.jpg" />
+  <img src="Z:/picture/008/save_picture_341121.jpg" />
 </div>
 
 
@@ -387,7 +498,7 @@ Logic Pro X 10.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340996.jpg" />
+  <img src="Z:/picture/008/save_picture_340996.jpg" />
 </div>
 
 
@@ -413,7 +524,7 @@ Mindjet MindManager 12 v12.1.190 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340841.jpg" />
+  <img src="Z:/picture/008/save_picture_340841.jpg" />
 </div>
 
 
@@ -439,7 +550,7 @@ Kiwi for Gmail 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340553.jpg" />
+  <img src="Z:/picture/008/save_picture_340553.jpg" />
 </div>
 
 
@@ -466,7 +577,7 @@ Allegorithmic Substance Painter 2018.2.3.2496 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340513.jpg" />
+  <img src="Z:/picture/008/save_picture_340513.jpg" />
 </div>
 
 
@@ -492,7 +603,7 @@ SSH Shell 16.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340443.jpg" />
+  <img src="Z:/picture/008/save_picture_340443.jpg" />
 </div>
 
 
@@ -521,7 +632,7 @@ iMazing 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340361.jpg" />
+  <img src="Z:/picture/008/save_picture_340361.jpg" />
 </div>
 
 
@@ -548,7 +659,7 @@ TextLab 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340279.jpg" />
+  <img src="Z:/picture/008/save_picture_340279.jpg" />
 </div>
 
 
@@ -574,7 +685,7 @@ PullTube 1.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340241.jpg" />
+  <img src="Z:/picture/008/save_picture_340241.jpg" />
 </div>
 
 
@@ -585,117 +696,6 @@ PullTube 1.5.9 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DC04F2D1C816C5CFC3B7F8BD83084FA4AEE6EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180280   (340137) от 04.11.2017
-
-Gestimer 1.1.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gestimer. Создавайте быстрые напоминания на OS X простым перетаскиванием курсора
-Вы постоянно проверяете время, потому что вы не хотите забыть, чтобы выйти из дома через 10 минут, чтобы забрать детей в 4 вечера или выключить плиту через 3 минуты? С Gestimer вы можете создавать такие краткосрочные напоминания быстро и легко.
-
-Gestimer красивое приложение для вашего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 ноября 2017Разработчик: Tuan Anh NguyenПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B9AA60E0B3E9BA763783CC57C1A4C46E4082F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419547   (340132) от 28.10.2020
-
-Xliff Editor 2.8.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff!
-
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский? Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC910B0404A7D97108E7C47988A748E0F53BF2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419544   (340131) от 28.10.2020
-
-Middle 1.5.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0B86FCB8450954CDCFEBE759CD720453ECDB47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419444   (340129) от 28.10.2020
-
-Posterino 3 v3.8.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
-
-Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CF7709D30CD881D25DD4D2A8F0790D2B7588A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

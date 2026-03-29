@@ -1,3 +1,86 @@
+###  Публикация: 1415891   (371769) от 14.10.2020
+
+WRC 2020: Этап 6. Ралли Италия Сардиния. Обзор (09-10.11.2020) / WRC 2020: Rally Italia Sardegna. WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_371769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по ралли (англ. World Rally Championship, WRC) — раллийная серия, проводимая Международной автомобильной федерацией (FIA) с 1973 года. Пришёл на смену Международному чемпионату по ралли для производителей, проводившемуся в 1970-1972 годах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEACB9F3A3F7F1C41343D104521D76EFDF843C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416479   (367664) от 16.10.2020
+
+Серия Кубков NASCAR 2020. Плей-офф. 32-й Этап. Шарлотт. Гонка / NASCAR Cup Series 2020. Playoffs. Round 32. Bank of America Roval 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
+11 октября 2020 года. Конкорд (штат Северная Каролина, США).
+32-й Этап. Шарлотт (Bank of America Roval 400)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB22DF2D34C075EDC09C4B01912EC08E3DF5F245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417100   (360539) от 19.10.2020
+
+MotoGP. Этап 10. Гран-При Испании. Гонка. (18.10.2020) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360539.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 октября 2020, воскресенье. 16:00 МСК
+Этап 10, Альканьис, Испания
+Гран-при Арагона (23 круга, 109.6 км)Жанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9756901CA3B18B69031E93CA75E02F14EE7A1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417326   (358263) от 20.10.2020
 
 Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Зольдер 2, Гонка 1-2 / DTM. Zolder 2, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
@@ -6,7 +89,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358263.jpg" />
+  <img src="Z:/picture/008/save_picture_358263.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358262.jpg" />
+  <img src="Z:/picture/008/save_picture_358262.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358075.jpg" />
+  <img src="Z:/picture/008/save_picture_358075.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358071.jpg" />
+  <img src="Z:/picture/008/save_picture_358071.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ MotoGP. Этап 15. Гран-при Арагона. Гонка (18.09.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357028.jpg" />
+  <img src="Z:/picture/008/save_picture_357028.jpg" />
 </div>
 
 
@@ -139,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353674.jpg" />
+  <img src="Z:/picture/008/save_picture_353674.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349289.jpg" />
+  <img src="Z:/picture/008/save_picture_349289.jpg" />
 </div>
 
 
@@ -191,7 +274,7 @@ MotoGP. Этап 11. Гран-При Арагона. Гонка. (25.10.2020) WE
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344549.jpg" />
+  <img src="Z:/picture/008/save_picture_344549.jpg" />
 </div>
 
 
@@ -219,7 +302,7 @@ MotoGP. Этап 16. Гран-при Японии. Квалификация (24.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343389.jpg" />
+  <img src="Z:/picture/008/save_picture_343389.jpg" />
 </div>
 
 
@@ -245,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342193.jpg" />
+  <img src="Z:/picture/008/save_picture_342193.jpg" />
 </div>
 
 
@@ -274,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342185.jpg" />
+  <img src="Z:/picture/008/save_picture_342185.jpg" />
 </div>
 
 
@@ -300,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342053.jpg" />
+  <img src="Z:/picture/008/save_picture_342053.jpg" />
 </div>
 
 
@@ -326,7 +409,7 @@ MotoGP. Этап 16. Гран-при Японии. Гонка (25.09.2022) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340976.jpg" />
+  <img src="Z:/picture/008/save_picture_340976.jpg" />
 </div>
 
 
@@ -352,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339992.jpg" />
+  <img src="Z:/picture/008/save_picture_339992.jpg" />
 </div>
 
 
@@ -378,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332546.jpg" />
+  <img src="Z:/picture/008/save_picture_332546.jpg" />
 </div>
 
 
@@ -407,7 +490,7 @@ MotoGP. Этап 17. Гран-при Таиланда. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330807.jpg" />
+  <img src="Z:/picture/008/save_picture_330807.jpg" />
 </div>
 
 
@@ -433,7 +516,7 @@ MotoGP. Этап 17. Гран-при Таиланда. Гонка (02.10.2022) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329828.jpg" />
+  <img src="Z:/picture/008/save_picture_329828.jpg" />
 </div>
 
 
@@ -459,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322103.jpg" />
+  <img src="Z:/picture/008/save_picture_322103.jpg" />
 </div>
 
 
@@ -485,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317647.jpg" />
+  <img src="Z:/picture/008/save_picture_317647.jpg" />
 </div>
 
 
@@ -511,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313400.jpg" />
+  <img src="Z:/picture/008/save_picture_313400.jpg" />
 </div>
 
 
@@ -540,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310808.jpg" />
+  <img src="Z:/picture/008/save_picture_310808.jpg" />
 </div>
 
 
@@ -569,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308683.jpg" />
+  <img src="Z:/picture/008/save_picture_308683.jpg" />
 </div>
 
 
@@ -595,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308682.jpg" />
+  <img src="Z:/picture/008/save_picture_308682.jpg" />
 </div>
 
 
@@ -606,91 +689,6 @@ MotoGP — главное престижное соревнование по ш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBFE49EC0432A95B5DA2420ECC5AADA974FCEA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422446   (308577) от 09.11.2020
-
-MotoGP. Этап 12. Гран-При Европы. Гонка. (08.11.2020) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308577.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 ноября 2020, воскресенье. 16:00 МСК
-Этап 12, Валенсия, Испания
-Гран-при Европы. Гонка (23 круга, 109.6 км)Жанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5B29B449A65C6FBC87C2A35E8011B467B14E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422643   (304283) от 11.11.2020
-
-Серия Индикар. Сезон 2020. Сент-Питерсберг / IndyCar Series-2020. Этап 14. St. Petersburg [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комментатор: Фёдор Бакулов
-
-Серия Индикар — главная серия гонок на машинах с открытыми колёсами в Северной Америке. Чемпионат был создан под именем Indy Racing League владельцем Индианаполис Мотор Спидвей Тони Джорджем, как более дешёвая и полностью американская альтернатива серии CART. Чемпионат проводится с 1996 года.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DD7BD5B9B2792531C7AD0354FE60C3B38C7664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423247   (302389) от 12.11.2020
-
-Серия Кубков NASCAR 2020. Плей-офф. 36-й Этап. Финал сезона 500. Гонка / NASCAR Cup Series 2020. Playoffs. Round 36. Season Finale 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года.
-08 ноября 2020 года. Эйвондейл (штат Аризона, США).
-36-й Этап. Финал сезона 500 (Season Finale 500)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1E169EC0BDD3DED6A4408DA4FFC692C056A12E
 ```
 
 https://mybot314.ru/tekegram_catalog/

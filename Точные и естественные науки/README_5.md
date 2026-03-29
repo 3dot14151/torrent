@@ -1,3 +1,138 @@
+###  Публикация: 986172   (930553) от 14.02.2016
+
+Л. Н. Колосова (ред.) | Гватемала, Белиз, Сальвадор, Гондурас, Никарагуа. Справочная карта (1987) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930553.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта пяти государств — Гватемалы, Белиза, Сальвадора, Гондураса и Никарагуа с административным делением (масштаб 1:1 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7393B96E959ACEC2F6670B2542DC297051F703F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986590   (929270) от 15.02.2016
+
+И. И. Шмальгаузен | Вопросы дарвинизма: Неопубликованные работы (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929270.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены статьи, заметки, выступления и рецензии И.И. Шмальгаузена в период дискуссии генетиков и эволюционистов с представителями «мичуринской» биологии (40-50-е годы). Даётся критический научный разбор лженаучных взглядов Т. Д. Лысенко и его сторонников по важным вопросам зволюционной теории и генетики: внутривидовая борьба, проблема целесообразности, (   Читать дальше...   )Жанр: История, биология, науковедение, естествознание, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B200B0FAF593DEDD99151EE92171C158C9536A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986582   (929174) от 15.02.2016
+
+И. И. Шмальгаузен | Происхождение наземных позвоночных (1964) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проблема происхождения наземных позвоночных относится к наиболее сложным и интересным разделам филогении, затрагивающим многие общие вопросы эволюции. Это связано с тем, что в этом случае произошла чрезвычайно резкая смена сред обитания, которая не могла не привести к полной перестройке всей организации. Если учесть всю глубину этой перестройки, то возможность перехода (   Читать дальше...   )Жанр: История, биология, науковедение, естествознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200413E8224B9750515333348398F7420A435B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986563   (929166) от 15.02.2016
+
+Р. Л. Берг | Генетика и эволюция. Избранные труды (1993) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929166.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли статьи по вопросам генетических закономерностей эволюции, опубликованные с 1937 по 1972 г., и не публиковавшаяся ра­нее статья «Случайна или закономерна эволюция?». Все статьи прониза­ны идеей закономерного строения живого компонента биосферы. С пози­ций генетика автор рисует приспособительную эволюцию живых систем как восхождение по степеням прогресса, (   Читать дальше...   )Жанр: История, биология, науковедение, генетика, цитологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1EA77DCE1FD35CCB4667D824F048B6695292547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986570   (929162) от 15.02.2016
+
+И. И. Шмальгаузен | Пути и закономерности эволюционного процесса (1983) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга включает монографию ведущего советского теоретика-эволюциониста «Пути и закономерности эволюционного процесса», а также три неопубли­кованные статьи, посвященные рассмотрению отдельных вопросов по той же тематике. Впервые эволюционный процесс представляется как самодвижущаяся, т. е. саморегулирующаяся, система.
+
+Предназначается биологам всех специальностей (   Читать дальше...   )Жанр: История, биология, науковедение, естествознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B302D6879C5DD005AD7FD949DE3970A75C33A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986554   (929034) от 15.02.2016
 
 И. В. Мичурин | Избранные сочинения (1948) [DJVU]
@@ -6,7 +141,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929034.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929026.jpg" />
 </div>
 
 
@@ -63,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928895.jpg" />
 </div>
 
 
@@ -91,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927675.jpg" />
 </div>
 
 
@@ -117,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927633.jpg" />
 </div>
 
 
@@ -146,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927630.jpg" />
 </div>
 
 
@@ -175,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926618.jpg" />
 </div>
 
 
@@ -201,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924588.jpg" />
 </div>
 
 
@@ -227,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924582.jpg" />
 </div>
 
 
@@ -255,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924431.jpg" />
 </div>
 
 
@@ -281,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924291.jpg" />
 </div>
 
 
@@ -310,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924252.jpg" />
 </div>
 
 
@@ -339,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924100.jpg" />
 </div>
 
 
@@ -367,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922565.jpg" />
 </div>
 
 
@@ -396,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922442.jpg" />
 </div>
 
 
@@ -425,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922379.jpg" />
 </div>
 
 
@@ -454,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921904.jpg" />
 </div>
 
 
@@ -480,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921063.jpg" />
 </div>
 
 
@@ -508,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920326.jpg" />
 </div>
 
 
@@ -535,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917054.jpg" />
 </div>
 
 
@@ -561,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912043.jpg" />
 </div>
 
 
@@ -572,140 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A04757B1578F86BCF5F6EBA88CC39DB72DF3C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990040   (911745) от 25.02.2016
-
-Кусраев А.Г., Кутателадзе С.С. | Введение в булевозначный анализ (2005) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Булевозначный анализ - один из наиболее разработанных разделов, представляющих современные нестандартные методы анализа. В монографии детально излагается техника спусков и подъемов для булевозначных моделей теории множеств, позволяющая существенно расширить объем и область применимости математических утверждений.
-Основное внимание уделено изучению булевозначных изображений (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486FE77B322C2F40FCA9B0E777DADF78D9315689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989412   (911728) от 25.02.2016
-
-Б. Г. Кузнецов | Беседы о теории относительности (1965) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911728.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой поистине уникальной книге, изданной Академией Наук СССР и выдержавшей 3 издания, изложение постулатов теории относительности, например, об "искривлении четырёхмерного пространства", удивительным образом соседствует с изложением принципов теории эфира, где буквально "на пальцах" (на примере пловца, корабля и озера) разъясняется теоретический (   Читать дальше...   )Жанр: История, науковедение, физикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2516369FE1E6FAC157EDE754B8222D6A25E32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989824   (911717) от 25.02.2016
-
-Андрей Гришаев | Этот «цифровой» физический мир (2010) [FB2, PDF, DOCX]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагедия многих талантливых одиночек, которые пытаются переосмыслить или даже подредактировать официальную физическую картину мира, заключается в том, что они основывают свои построения отнюдь не на экспериментальных реалиях. Талантливые одиночки читают учебники – наивно полагая, что в них изложены факты. Отнюдь: в учебниках изложены готовенькие интерпретации фактов, (   Читать дальше...   )Жанр: Физика, АльтернативаФормат: FB2, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B752D0D39FBDFACA7EE19160AF1BAB03547FFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989846   (911713) от 25.02.2016
-
-К. В. Ивлиева, В. Н. Пенькова (ред.) | Дания. Справочная карта (1984) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911713.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Дании с административным делением (масштаб 1:750 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A988C2641FDB0F6518BD979CF8BF9B7A99095FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989980   (911365) от 25.02.2016
-
-Чарлз Дарвин | Происхождение видов (2016) [FB2, DOCX]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911365.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Происхождение видов" - основополагающий труд английского натуралиста и путешественника Чарльза Дарвина. Одним из первых он выдвинул идею об эволюции видов и обосновал ее, главным же механизмом эволюции он признал естественный отбор. В 1859 году в "Происхождении видов" он подробно изложил всю суть своей теории и доказательства, на которых он ее (   Читать дальше...   )Жанр: Биология, Эволюция, ЕстествознаниеФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169A18636B18EEE1BC3A1DFFEF05118BC3B73306
 ```
 
 https://mybot314.ru/tekegram_catalog/

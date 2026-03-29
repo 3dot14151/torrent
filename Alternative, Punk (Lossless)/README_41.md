@@ -1,3 +1,32 @@
+###  Публикация: 1574800   (379356) от 08.09.2022
+
+Yungblud (Dominic Richard Harrison) - 7 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Punk, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Funeral [00:03:30]
+02. Tissues [00:03:35]
+03. Memories [00:02:35]
+04. King Charles [00:02:44](   Читать дальше...   )Жанр: Alternative Rock, Pop Punk, Hip-HopПродолжительность: 7CD, 03:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA43246B81B78F25B4DFF9C36B8FE89B5A2232B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575031   (379337) от 08.09.2022
 
 See Through You - Hollowed Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore>
@@ -6,7 +35,7 @@ See Through You - Hollowed Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379337.jpg" />
+  <img src="Z:/picture/008/save_picture_379337.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Psychostasy - Unworthy Grave (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379114.jpg" />
+  <img src="Z:/picture/008/save_picture_379114.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Every Hour Kills - Reawaken (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379112.jpg" />
+  <img src="Z:/picture/008/save_picture_379112.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bootblacks - Thin Skies (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379108.jpg" />
+  <img src="Z:/picture/008/save_picture_379108.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ DeadRise - DeadRise (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379106.jpg" />
+  <img src="Z:/picture/008/save_picture_379106.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Zao - Preface: Early Recordings (1995-1996), Compilation, Remastered, 2020, Stea
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379103.jpg" />
+  <img src="Z:/picture/008/save_picture_379103.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ A Vicious End - The Hills Will Burn (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378960.jpg" />
+  <img src="Z:/picture/008/save_picture_378960.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|tracks|WEB-DL]<Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377346.jpg" />
+  <img src="Z:/picture/008/save_picture_377346.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Until I Wake - Inside My Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377194.jpg" />
+  <img src="Z:/picture/008/save_picture_377194.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ One True Pairing - One True Pairing (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376851.jpg" />
+  <img src="Z:/picture/008/save_picture_376851.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Hatchie - Keepsake (2019) [FLAC|Lossless|tracks + .cue] <Dream Pop, Shoegaze, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376850.jpg" />
+  <img src="Z:/picture/008/save_picture_376850.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Chastity Belt - Chastity Belt (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376849.jpg" />
+  <img src="Z:/picture/008/save_picture_376849.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The New Pornographers - In the Morse Code of Brake Lights (2019) Scene [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376613.jpg" />
+  <img src="Z:/picture/008/save_picture_376613.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Smash Into Pieces - Disconnect (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375402.jpg" />
+  <img src="Z:/picture/008/save_picture_375402.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Moon Loves Honey - Bubbleburst (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374621.jpg" />
+  <img src="Z:/picture/008/save_picture_374621.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ XIII - 3 Albums: Sick; Impure; The Blood on the Wall (2018-2020) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374193.jpg" />
+  <img src="Z:/picture/008/save_picture_374193.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Kidneythieves - The Mend (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373684.jpg" />
+  <img src="Z:/picture/008/save_picture_373684.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Bastille - Doom Days (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372544.jpg" />
+  <img src="Z:/picture/008/save_picture_372544.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Goodbye Mr Mackenzie - Five (1993) [FLAC|Lossless|image + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372296.jpg" />
+  <img src="Z:/picture/008/save_picture_372296.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Behaviour - Simulate (2020) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Groove Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372012.jpg" />
+  <img src="Z:/picture/008/save_picture_372012.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ System Decay - Crown (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Modern Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371927.jpg" />
+  <img src="Z:/picture/008/save_picture_371927.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Girls (Christopher Owens) - 5 альбомов, 1 EP (2009 - 2015) [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371646.jpg" />
+  <img src="Z:/picture/008/save_picture_371646.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ The Horrors - 5 альбомов, 1 EP (2006 - 2017) [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371365.jpg" />
+  <img src="Z:/picture/008/save_picture_371365.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Billy Idol - Whiplash Smile (1986) [FLAC|Lossless|image + .cue] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371067.jpg" />
+  <img src="Z:/picture/008/save_picture_371067.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Evanescence - Synthesis Live (2018) Japanese Edition [FLAC|lossless|image + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370374.jpg" />
+  <img src="Z:/picture/008/save_picture_370374.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Evanescence - Synthesis Live (2018) Japanese Edition [FLAC|lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AE4F522DE214F0B9FC846DB83684DEB32758E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327773   (370113) от 27.09.2019
-
-Deftones - The Studio Album Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adrenaline
-01 Bored 4:06
-02 Minus Blindfold 4:04
-03 One Weak 4:29(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 06:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91B86BE8BC4B659778E8EB779A86B7820E41520
 ```
 
 https://mybot314.ru/tekegram_catalog/

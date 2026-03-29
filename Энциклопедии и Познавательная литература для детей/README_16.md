@@ -1,3 +1,56 @@
+###  Публикация: 1372921   (883396) от 04.04.2020
+
+Алексей Марков | Хулиганская экономика. Финансовые рынки для хулиганов и их родителей (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный учебник для подростков и их родителей, для тех, кто не любит учиться по скучным талмудам!
+Экономика – это очень скучно? Куча непонятных заумных слов и формул? Кто вам такое сказал? Не правда, экономика – это интересно и просто! Вы просто не знаете с какого бока к ней подступиться. Автор поможет во всем разобраться и вам не придется по сто раз перечитывать (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7933B65BE7911C254641C8A5B9BBD67143D7431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372698   (883391) от 04.04.2020
+
+Д.А. Лукашанец | Тело человека. Иллюстрированный путеводитель (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше с вами тело – фантастическое изобретение природы! Мы выносливы, умны, умеем защищаться от множества враждебных микробов и бактерий. Как же мы это делаем? В книге рассказывается обо всех органах и системах человеческого организма: о кровеносной системе, сердце, головном мозге, нервной системе, о нашем скелете. Вы узнаете, как работают наши органы, как мы приспосабливаемся (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25E967DE19613264F37E90FA11A35DD14A0066D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372813   (883142) от 04.04.2020
 
 Эксмо | Занимательная энциклопедия [23 книги] (2014-2018) [PDF]
@@ -6,7 +59,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883142.jpg" />
+  <img src="Z:/picture/005/save_picture_883142.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881091.jpg" />
+  <img src="Z:/picture/008/save_picture_881091.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879086.jpg" />
+  <img src="Z:/picture/005/save_picture_879086.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878364.jpg" />
+  <img src="Z:/picture/005/save_picture_878364.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878354.jpg" />
+  <img src="Z:/picture/005/save_picture_878354.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878264.jpg" />
+  <img src="Z:/picture/005/save_picture_878264.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866384.jpg" />
+  <img src="Z:/picture/008/save_picture_866384.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864514.jpg" />
+  <img src="Z:/picture/008/save_picture_864514.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862668.jpg" />
+  <img src="Z:/picture/008/save_picture_862668.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862407.jpg" />
+  <img src="Z:/picture/008/save_picture_862407.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859079.jpg" />
+  <img src="Z:/picture/008/save_picture_859079.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858890.jpg" />
+  <img src="Z:/picture/008/save_picture_858890.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858862.jpg" />
+  <img src="Z:/picture/008/save_picture_858862.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853269.jpg" />
+  <img src="Z:/picture/008/save_picture_853269.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848052.jpg" />
+  <img src="Z:/picture/008/save_picture_848052.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838186.jpg" />
+  <img src="Z:/picture/008/save_picture_838186.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837764.jpg" />
+  <img src="Z:/picture/008/save_picture_837764.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836429.jpg" />
+  <img src="Z:/picture/008/save_picture_836429.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830533.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827685.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824999.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816627.jpg" />
+  <img src="Z:/picture/008/save_picture_816627.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810419.jpg" />
+  <img src="Z:/picture/008/save_picture_810419.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809556.jpg" />
+  <img src="Z:/picture/008/save_picture_809556.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A58276E923C1E0D63C51B20F137CC60E382D4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357839   (809390) от 16.05.2020
-
-Дарья Варламова, Дмитрий Судаков (ред.) | Атлас новых профессий 3.0 (2020) [PDF, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выбирая будущую профессию, рискованно ориентироваться на то, что востребовано сейчас, — возможно, к моменту получения специальности ваши знания устареют или вашу работу уже будут выполнять роботы. «Атлас новых профессий 3.0» — это инструмент профориентации XXI века и альманах перспективных отраслей и профессий на ближайшие 15–20 лет. Это книга для старшеклассников (   Читать дальше...   )Жанр: Научно-популярная литература, СправочникиФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF94B19BE77C63587A1B883748B64E089A1C95FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010182   (803962) от 24.04.2016
-
-Л. Клюкин (пер.) | Все о Транспорте. Познавательная энциклопедия (1994) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что собой представляют канатные дороги? Что делает коробка передач? Зачем на шины наносят протектор? Как работает спутниковая навигационная система? Каким образом двигаются суда на подводных крыльях? Как работает атомная подлодка? Что такое дирижабль? - Ответы на эти и многие другие вопросы содержатся в данной энциклопедии. В легкой и доступной форме рассказывается (   Читать дальше...   )Жанр: Познавательная энциклопедияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4FC29D90CE5C554BB72C003FDA7CF79E7292F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

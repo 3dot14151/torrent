@@ -1,3 +1,30 @@
+###  Публикация: 1367513   (915366) от 16.03.2020
+
+Сретенская духовная семинария | Православные просветительские курсы (2014-2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915366.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Сретенской Духовной семинарии открылись еженедельные Православные просветительские курсы.
+На первое занятие собрались более 350 слушателей, в равном количестве мужчины и женщины, большинство – с высшим образованием. Средний возраст слушателей – 28 лет. Поскольку актовый зал семинарии не смог вместить всех желающих, лекция также транслировалась на экраны в трех (   Читать дальше...   )Жанр: ПравославиеПродолжительность: 292:98:72
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37BABE2AEA4CF53A9E18EAF6C3EB745F335F61FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 297043   (886976) от 18.02.2011
 
 Иван Хоменко (перевод) | Библия. Ветхий и Новый Завет (2006) [MP3] [Uk]
@@ -6,7 +33,7 @@
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886976.jpg" />
+  <img src="Z:/picture/005/save_picture_886976.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885921.jpg" />
+  <img src="Z:/picture/005/save_picture_885921.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877209.jpg" />
+  <img src="Z:/picture/005/save_picture_877209.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872381.jpg" />
+  <img src="Z:/picture/008/save_picture_872381.jpg" />
 </div>
 
 
@@ -124,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857927.jpg" />
+  <img src="Z:/picture/008/save_picture_857927.jpg" />
 </div>
 
 
@@ -150,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856076.jpg" />
+  <img src="Z:/picture/008/save_picture_856076.jpg" />
 </div>
 
 
@@ -179,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840795.jpg" />
+  <img src="Z:/picture/008/save_picture_840795.jpg" />
 </div>
 
 
@@ -206,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839020.jpg" />
+  <img src="Z:/picture/008/save_picture_839020.jpg" />
 </div>
 
 
@@ -233,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834166.jpg" />
+  <img src="Z:/picture/008/save_picture_834166.jpg" />
 </div>
 
 
@@ -259,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831889.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816796.jpg" />
+  <img src="Z:/picture/008/save_picture_816796.jpg" />
 </div>
 
 
@@ -311,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816780.jpg" />
+  <img src="Z:/picture/008/save_picture_816780.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813352.jpg" />
+  <img src="Z:/picture/008/save_picture_813352.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805467.jpg" />
+  <img src="Z:/picture/008/save_picture_805467.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805465.jpg" />
+  <img src="Z:/picture/008/save_picture_805465.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805300.jpg" />
+  <img src="Z:/picture/008/save_picture_805300.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797614.jpg" />
+  <img src="Z:/picture/008/save_picture_797614.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795339.jpg" />
+  <img src="Z:/picture/008/save_picture_795339.jpg" />
 </div>
 
 
@@ -499,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794494.jpg" />
+  <img src="Z:/picture/008/save_picture_794494.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788492.jpg" />
+  <img src="Z:/picture/008/save_picture_788492.jpg" />
 </div>
 
 
@@ -553,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774074.jpg" />
+  <img src="Z:/picture/008/save_picture_774074.jpg" />
 </div>
 
 
@@ -579,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765248.jpg" />
+  <img src="Z:/picture/008/save_picture_765248.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762994.jpg" />
+  <img src="Z:/picture/008/save_picture_762994.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762716.jpg" />
+  <img src="Z:/picture/008/save_picture_762716.jpg" />
 </div>
 
 
@@ -662,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760971.jpg" />
+  <img src="Z:/picture/008/save_picture_760971.jpg" />
 </div>
 
 
@@ -673,34 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7841056AB53104E1D1FA72913CF06C3B63B55FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204508   (759502) от 27.05.2010
-
-Анантачарйей | Жизнь Рамануджи [2010] [MP3]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основным источником сведений о жизни Рамануджйи является книга, которая называется Прапаннамрита; она написана на санскрите Анантачарйей, потомком Андхрапурны. Существуют некоторые разногласия относительно того, когда именно появилась эта книга. Некоторые ученые пытались доказать, что она написана уже в семнадцатом столетии, но большинство авторитетов сходятся на том, что ее автор был младшим современником Рамануджи и поэтому мог собрать материал «из первых рук».
-
-В Прапаннамрите сто двадцать шесть глав, первые шестьдесят восемь из которых описывают жизнь Рамануджачарйи. Остальные пятьдесят восемь относятся к жизни Йамуначарйи, Натхамуни и других вайшнавов южной Индии. На эту книгу ссылается Шрила Прабхупада, упоминая о жизни Рамануджачарйи в своих комментариях на Чайтанйа-чаритамрту.Жанр: Аудиокнига
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,234 @@
+###  Публикация: 1811758   (8350) от 11.08.2025
+
+Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tracks|Vinyl-Rip] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am The Black Wizards (06:26)
+02. Wrath Of The Tyrant (04:15)
+03. Night Of The Graveless Souls (03:15)
+04. Cosmic Keys To My Creations And Times (06:23)Жанр: Symphonic Black MetalПродолжительность: 00:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811891   (8248) от 12.08.2025
+
+Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dragony — пауэр-метал группа из Вены, Австрия, основана в 2010 году.2012 - Legends
+2015 - Shadowplay
+2017 - Lords Of The Hunt
+2018 - Masters Of The MultiverseЖанр: Melodic/Symphonic Power MetalПродолжительность: 05:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA94AFC95CEB0E71499F4CDA79861CB1AA975439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811904   (8231) от 12.08.2025
+
+DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8231.jpg" />
+</div>
+
+
+###  Подробнее
+
+DragonForce — британская пауэр-метал-группа из Лондона, образованная в 1999 году. Они известны своими длинными и быстрыми гитарными соло, текстами в стиле фэнтези и звучанием, вдохновлённым ретро-видеоиграми. Сами участники группы называют свою музыку «экстремальным пауэр-металом».2003 - Valley Of The Damned
+2004 - Sonic Firestorm
+2006 - Inhuman Rampage
+2008 - Ultra Beatdown(   Читать дальше...   )Жанр: Power MetalПродолжительность: 11:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D572DBFA481300F2FE41402915B0312E65DD530D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812114   (8116) от 13.08.2025
+
+Fade Numb - Fresh Start (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fresh Start (4:53)
+02.  Listen to That Engine (3:01)
+03.  Head Over Heels (3:58)
+04.  The Rain Has Passed (3:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F8BBEF8BB7D9B51B492D346CD87C24E91925AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812142   (8106) от 13.08.2025
+
+VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House, Italodance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Pearl feat.Zaradika - Celebrate
+02. Maxx - Power Of Love
+03. Odyssey - Winter Night(   Читать дальше...   )Жанр: Euro House, ItalodanceПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C2EE03AFD15369DE3FD346C3A0D2C62AA10E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812118   (8044) от 13.08.2025
+
+Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rave The Reqviem - индастриал-метал группа из Швеции, образована в 2011 году.2014 - Rave The Reqviem
+2016 - The Gospel of Nil
+2018 - FVNERALЖанр: Electronic, Industrial MetalПродолжительность: 03:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6555E68979BBAF3A9ECAC0CBBA86D5A6F560EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812133   (8026) от 13.08.2025
+
+Hendy FN - Karma (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All Is Gone (3:00)
+02.  Betrayed (3:26)
+03.  Blind Hope (2:59)
+04.  Brainwash (2:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF944D14007DD38B028A1D1715FC8CDF01693B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812107   (8012) от 13.08.2025
+
+Crooked Myth - Wrong Deal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wrong Deal (3:12)
+02.  Time Passes (3:35)
+03.  Roswell Kid (3:25)
+04.  The Preparation (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF1B3C41172B3136B7C808F6CFEC68A9F633176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812123   (8010) от 13.08.2025
 
 Forgotten Roadz - Everything in Between, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +237,7 @@ Forgotten Roadz - Everything in Between, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8010.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Fade Poet - Spirit of a Rebel (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8009.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Grit Slide - Hexed Ground (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8005.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Caden Morrowick - Total Spin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8004.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ Frost Drift - Let's Begin Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8002.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ Forestry Road - Forestry Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8001.jpg" />
 </div>
 
 
@@ -180,7 +411,7 @@ A-Z (Ray Alder, Mark Zonder (Fates Warning)) - Studio Albums (2 releases) (2022-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7999.jpg" />
 </div>
 
 
@@ -207,7 +438,7 @@ Colin Hay - Man @ Work Volume 2 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7996.jpg" />
 </div>
 
 
@@ -236,7 +467,7 @@ Bobby Messano - Still~Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7995.jpg" />
 </div>
 
 
@@ -265,7 +496,7 @@ Chapel Blues - Searchin' for the Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7990.jpg" />
 </div>
 
 
@@ -294,7 +525,7 @@ Daylight Ghostfist - Fleeing Fast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7989.jpg" />
 </div>
 
 
@@ -323,7 +554,7 @@ Bob Forte - Nureci Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7987.jpg" />
 </div>
 
 
@@ -352,7 +583,7 @@ Ember Tavistock - Grindin' Hustle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7985.jpg" />
 </div>
 
 
@@ -381,7 +612,7 @@ Greg James Ortbach - Somewhere Slow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7983.jpg" />
 </div>
 
 
@@ -410,7 +641,7 @@ Brice Harwin - Melancholy Meeting (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7978.jpg" />
 </div>
 
 
@@ -439,7 +670,7 @@ Eminent Steed - The Joy of June (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7977.jpg" />
 </div>
 
 
@@ -468,7 +699,7 @@ Beguiled - Rise of the Winged Demons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7976.jpg" />
 </div>
 
 
@@ -497,7 +728,7 @@ Bad Debts - Under Kalimna Skies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7974.jpg" />
 </div>
 
 
@@ -511,238 +742,6 @@ Bad Debts - Under Kalimna Skies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D57D16711D1890F7764221B91DC5132FB55D88AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812369   (7864) от 14.08.2025
-
-The Vesterbros - Smooth Soul Jazz Cafe, Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Velvet Skyline (4:57)
-02. Midnight Indigo (4:07)
-03. Smoke Rings (3:37)
-04. Lantern Glow (5:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D77B0406291FC7363CA1B3A15BD8AAA9B8D8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812366   (7845) от 14.08.2025
-
-Rudy Rock - Cool Licks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Crosswalk (5:09)
-02. Neon Boulevard (4:58)
-03. Last Train to Uptown (4:23)
-04. After Hours in Harlem (5:45)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A4296F057F97578CBB18D955697D5E13DB87F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812333   (7836) от 14.08.2025
-
-Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герман Франк — немецкий музыкант, гитарист, продюсер, известен своим участием в рок-группе Accept.2009 - Loyal To None
-2012 - Right In The Guts
-2016 - The Devil Rides Out
-2019 - Fight The FearЖанр: Heavy MetalПродолжительность: 05:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812636   (7692) от 15.08.2025
-
-The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Edition, Remastered 2020, 2025, Island Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ode To My Family (Remastered 2020) [4:31]
-02 - I Can't Be With You (Remastered 2020) [3:08]
-03 - Twenty One (Remastered 2020) [3:08]
-04 - Zombie (Remastered 2020) [5:06](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 02:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBE033FF1273B70A39416F165B58A895D8FD9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812607   (7691) от 15.08.2025
-
-Maroon 5 - Love Is Like (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hideaway
-02. Love Is Like
-03. All Night
-04. Yes I Did(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B38D5D0DECB891D2A3B46435A6F18D471A7DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812631   (7668) от 15.08.2025
-
-The Bluesmasters - The Bluesmasters featuring Cassie Taylor (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Downward Road
-02. Nobody’s Fault But Mine
-03. Sit Down Servant
-04. Wade In The Water(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D80B5823B42584CEDF2E663A808DD2EC1B6B006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812528   (7636) от 15.08.2025
-
-Redemption - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Redemption — американская прогрессив-метал-группа, созданная в 2001 году в городе Лос-Анджелес2003 - Redemption
-2005 - The Fullness Of Time
-2007 - The Origins Of Ruin
-2009 - Snowfall on Judgement DayЖанр: Progressive MetalПродолжительность: 10:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C991FE5192E0444494B3D78ECF0AC1BFA29E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812608   (7611) от 15.08.2025
-
-Tomarum - Ash in Realms of Stone Icons (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7611.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Introspection I (02:31)
-A2. Condemned to a Life of Grief (10:34)
-B1. In This Empty Space (08:45)
-B2. Introspection II (03:01)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EBBE5152FB11D4D0B58FE542DF45A5540CBC627
 ```
 
 https://mybot314.ru/tekegram_catalog/

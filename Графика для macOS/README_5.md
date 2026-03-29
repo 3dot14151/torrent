@@ -1,3 +1,30 @@
+###  Публикация: 1379247   (841207) от 28.04.2020
+
+liquivid Video Exposure and Effects 1.4.1 [En/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Liquivid Video Exposure and Effects — это простое в использовании приложение, которое позволяет изменять экспозицию клипа, а также баланс белого, и применять различные визуальные эффекты (также известные, как фильтры). Приложение позволяет выполнять импорт всех распространенных видеоформатов и кодеков любого разрешения (включая HD, 2K, 4K).
+Выполняет экспорт видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2020Разработчик: Razvan ChisuПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891CA03DEE0AAC378657B836576A3B40859FD316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878820   (840263) от 16.03.2015
 
 Esko Studio Web 14 + Visualizer 14.0.1 [En]
@@ -6,7 +33,7 @@ Esko Studio Web 14 + Visualizer 14.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840263.jpg" />
+  <img src="Z:/picture/008/save_picture_840263.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Reflect Studio 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838298.jpg" />
+  <img src="Z:/picture/008/save_picture_838298.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ Topaz ReMask Prime 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837750.jpg" />
+  <img src="Z:/picture/008/save_picture_837750.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ Capture One Pro 9.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833920.jpg" />
 </div>
 
 
@@ -117,7 +144,7 @@ WidsMob HDR 2.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831903.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Topaz DeNoise AI for Mac 3.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831741.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Nevercenter CameraBag 2021.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828406.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Helper for GoPro Files 2.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_825032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_825032.jpg" />
 </div>
 
 
@@ -224,7 +251,7 @@ Mosaic - Photo Collage, Blend and Tile 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824366.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ Art Text 2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823225.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ ArtRage 4.5.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820900.jpg" />
+  <img src="Z:/picture/008/save_picture_820900.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ Benvista PhotoZoom Pro 7.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820410.jpg" />
+  <img src="Z:/picture/008/save_picture_820410.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815966.jpg" />
+  <img src="Z:/picture/008/save_picture_815966.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ Polarr Photo Editor 1.4.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815688.jpg" />
+  <img src="Z:/picture/008/save_picture_815688.jpg" />
 </div>
 
 
@@ -389,7 +416,7 @@ Coolorus Mac & Coolorus for Fl and Ps 1.3.1, 2.0.1, 2.5.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814701.jpg" />
+  <img src="Z:/picture/008/save_picture_814701.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ Affinity Designer 1.5.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814628.jpg" />
+  <img src="Z:/picture/008/save_picture_814628.jpg" />
 </div>
 
 
@@ -447,7 +474,7 @@ Capture One 21 Pro Pro 4 v14.4.1.16 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813845.jpg" />
+  <img src="Z:/picture/008/save_picture_813845.jpg" />
 </div>
 
 
@@ -474,7 +501,7 @@ PhotoScissors 3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811792.jpg" />
+  <img src="Z:/picture/008/save_picture_811792.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ AKVIS Bundle 2016 (upd 20.04.2016) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810926.jpg" />
+  <img src="Z:/picture/008/save_picture_810926.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ PowerPhotos 1.9.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808351.jpg" />
+  <img src="Z:/picture/008/save_picture_808351.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ WidsMob HEIC for Mac 2.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808082.jpg" />
+  <img src="Z:/picture/008/save_picture_808082.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ Pixelmator Pro 2.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806300.jpg" />
+  <img src="Z:/picture/008/save_picture_806300.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ Peeler 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805847.jpg" />
+  <img src="Z:/picture/008/save_picture_805847.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.0 CR2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804553.jpg" />
+  <img src="Z:/picture/008/save_picture_804553.jpg" />
 </div>
 
 
@@ -662,7 +689,7 @@ Movavi Picverse 1.4.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802865.jpg" />
+  <img src="Z:/picture/008/save_picture_802865.jpg" />
 </div>
 
 
@@ -673,32 +700,6 @@ Movavi Picverse предназначен как для начинающих, т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6765E87B06134866F2019822064DCEDD73527BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506099   (801744) от 29.10.2021
-
-PhotosRevive 2.0.0 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801744.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: © NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54C4EE85CF3F9911CDCB3ADF219F40E6A87D6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

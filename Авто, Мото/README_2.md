@@ -1,3 +1,81 @@
+###  Публикация: 1463584   (1020316) от 19.04.2021
+
+Австралийский чемпионат суперкаров. Этап 3. Тасмания Суперспринт, Гонка 1-3 / Repco Supercars Championship. Beaurepaires Tasmania SuperSprint, Race 1-3 (17-18.04.2021) (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2021 года — Этап 3.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:22:04 + 01:15:19 + 01:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A51878168D25E2EED6A2C1D9AE185A79EFC11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463582   (1020315) от 19.04.2021
+
+Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Атланта 2 / AMA Supercross Championship. Atlanta 2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020315.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA62BC48466C1E21E9238C2BD149322E91102D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463586   (1020269) от 19.04.2021
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Португалии / MotoGP 2021. Portugal GP (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020269.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D4FBDC80A61B78BF8AD4C590F22CBE7304D8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463760   (1020137) от 20.04.2021
 
 Серия Индикар. Сезон 2021. Этап 1. Алабама / NTT Indycar Series 2021. Round 1. Honda Indy Grand Prix Of Alabama (18.04.2021) WEB-DL [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020137.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019994.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019991.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019491.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019304.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019145.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019140.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019139.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018647.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018607.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018095.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ MotoGP. Этап 04. Гран-При Испании. Квалификация. (
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018076.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017950.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017948.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017916.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017875.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017872.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ MotoGP. Этап 04. Гран-При Испании. Гонка. (02.05.2021) WE
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017854.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017754.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017572.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016918.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016747.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016742.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60992A34D85BACD778FD3396AC8EFF319EA1B426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469061   (1016591) от 11.05.2021
-
-Серия Кубков NASCAR 2021. Этап 12. Дарлингтон. Гонка / NASCAR Cup Series 2021. Goodyear 400 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: РусскийПродолжительность: 03:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFE728BC77D5E330B3DFB607D1FD5B70F43CE99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470377   (1015799) от 16.05.2021
-
-Серия Индикар. Сезон 2021. Этап 5. Индианаполис / NTT Indycar Series 2021. Round 5. GMR Grand Prix (15.05.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Индикар — главная серия гонок на машинах с открытыми колёсами в Северной Америке. Чемпионат был создан под именем Indy Racing League владельцем Индианаполис Мотор Спидвей Тони Джорджем, как более дешёвая и полностью американская альтернатива серии CART. Чемпионат проводится с 1996 года.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: РусскийПродолжительность: 03:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A5D6F3BA72277A1B567D64506AFAD8DE644F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470517   (1015740) от 16.05.2021
-
-Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Франции / MotoGP 2021. French GP (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015740.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFCE249CD3DAE13BAC047A2634AF890DE81CA5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

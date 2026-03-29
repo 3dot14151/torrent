@@ -1,3 +1,107 @@
+###  Публикация: 511573   (666901) от 16.06.2012
+
+Doom [En] (L) 1993
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_666901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doom — культовая компьютерная игра, выпущенная компанией id Software 10 декабря 1993 года, один из наиболее известных и популярных продуктов в жанре «шутер от первого лица». По некоторым оценкам, эту игру купило не менее 150—160 миллионов человек. Она во многом оказала определяющее идейное влияние на дальнейшее развитие жанра.Тип издания: ЛицензияРазработчик: id SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD543CA19AB05398C56A00510FB9E17EC7BEF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138639   (662940) от 30.05.2017
+
+TimeShift (2007) [Ru/Multi] (1.02) SteamRip Let'sPlay
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_662940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, полковник в отставке Майкл Свифт, выступает в роли испытателя двух величайших изобретений века — Квантового Костюма и Квантового Транспортера. Но тщательно подготовленный эксперимент летит в тартарары, когда за мгновение до его начала в лабораторию врывается вооруженный человек.Тип издания: SteamRipРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC58B0098A4A0495783CDA24063376F06D7F321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138765   (662934) от 30.05.2017
+
+Perception (2017) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_662934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perception – это сюжетный приключенческий хоррор от первого лица, рассказывающий историю слепой девушки по имени Кэсси, которая, полагаясь на свой исключительный слух и острый ум, пытается разгадать тайны заброшенного поместья из ее навязчивых снов. Потратив долгие месяцы на поиски, она, наконец, находит заброшенную миссию в Глостере, штат Массачусетс. В реальности (   Читать дальше...   )Тип издания: LicenseРазработчик: The Deep End GamesЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BACFEB66D18849DE7E2CBD8A44B36EE286B6A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138507   (662931) от 30.05.2017
+
+Putrefaction 2: Void Walker (2017) [Ru/En] (1.0а) License PLAZA
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_662931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Putrefaction 2: Void Walker это сиквел к шутеру Putrefaction, выпущенному мной в 2015, с гораздо более улучшенный и динамичным геймплеем и более приключенческой темой. Сюжет: после уничтожения древнего зла в первой части вы были перенесены в другую галактику и стали Ходящим в Пустоте - древним воином, ищущим зло по всей вселенной.Тип издания: LicenseРазработчик: Kazakov OlegЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAEBC4A770B5CF353487494CC72F1661F7C96D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225180   (661642) от 14.05.2018
 
 Dead Island + Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0upd2/dlc) Repack xatab [Definitive Collection]
@@ -6,7 +110,7 @@ Dead Island + Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0upd2/dlc) Repack xa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661642.jpg" />
+  <img src="Z:/picture/008/save_picture_661642.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Perception (2017) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660807.jpg" />
+  <img src="Z:/picture/008/save_picture_660807.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Secret Doctrine (2017) [Ru/En/Ch] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658798.jpg" />
+  <img src="Z:/picture/008/save_picture_658798.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (62662/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658750.jpg" />
+  <img src="Z:/picture/008/save_picture_658750.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656488.jpg" />
+  <img src="Z:/picture/008/save_picture_656488.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Bulletstorm (2011) [Ru/En] (1.0.7147/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656482.jpg" />
+  <img src="Z:/picture/008/save_picture_656482.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru/En]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655520.jpg" />
+  <img src="Z:/picture/008/save_picture_655520.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Conarium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655508.jpg" />
+  <img src="Z:/picture/008/save_picture_655508.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Depth Hunter (Lossless RePack/v1.10) [Multi5/+] 2011 | R.G. Catalyst и R.G. ExP
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655193.jpg" />
+  <img src="Z:/picture/008/save_picture_655193.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ AMOK (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653048.jpg" />
+  <img src="Z:/picture/008/save_picture_653048.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648908.jpg" />
+  <img src="Z:/picture/008/save_picture_648908.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.1.0) Repack R.G.Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647172.jpg" />
+  <img src="Z:/picture/008/save_picture_647172.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ Killing Floor 2 (2016) [Ru/Multi] (1078/dlc) License CODEX [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646332.jpg" />
+  <img src="Z:/picture/008/save_picture_646332.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Zeno Clash 2 (2013) [Ru/En] (1.04) SteamRip Let'sРlay [Special Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642949.jpg" />
+  <img src="Z:/picture/008/save_picture_642949.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Dead Island. Game of the Year Edition [Ru/En] (Steam-Rip/1.3) 2011 | R.G. Игр
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640479.jpg" />
+  <img src="Z:/picture/008/save_picture_640479.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.12.2/dlc) SteamRip Let'sPlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640381.jpg" />
+  <img src="Z:/picture/008/save_picture_640381.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ Dishonored (2013) [Ru/En] (1.4/dlc) Repack R.G. Механики [Game of the Ye
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640379.jpg" />
+  <img src="Z:/picture/008/save_picture_640379.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638817.jpg" />
+  <img src="Z:/picture/008/save_picture_638817.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12022) Repack xatab [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638587.jpg" />
+  <img src="Z:/picture/008/save_picture_638587.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ Dead Effect - Дилогия (2014-2016) [Ru/En] (1.4/1.0.3) Repack Mizantrop133
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637549.jpg" />
+  <img src="Z:/picture/008/save_picture_637549.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637235.jpg" />
+  <img src="Z:/picture/008/save_picture_637235.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637089.jpg" />
+  <img src="Z:/picture/008/save_picture_637089.jpg" />
 </div>
 
 
@@ -575,110 +679,6 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0309E5E1302DFBBC58FAAB0FAB90873F156758A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143339   (636812) от 17.06.2017
-
-Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636812.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпоху беспорядков и разложения темная организация, вынашивающая зловещие планы, накрывает своей тенью весь мир. Но когда заговор раскрывают, еще большее зло принуждает запутавшихся созданий принести в жертву саму реальность. Переполненный ненавистью и жаждой мщения, Калеб возвращается, чтобы снова столкнуться с культом Кабал и его приспешниками, но на этот раз (   Читать дальше...   )Тип издания: LicenseРазработчик: Monolith ProductionsЖанр: Шутер, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD39AEFBAD7001BD8FE08D86594E1F945C53423B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293371   (636780) от 03.04.2019
-
-House of Evil 2 (2019) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636780.jpg" />
-</div>
-
-
-###  Подробнее
-
-House of Evil 2 — survival horror с видом от первого лица, в котором вы можете проверить свои нервы на прочность. События происходят в особняке, который существует в действительности. Главный герой - Макс, после событий 2017 года, увольняется из спец службы и уделяет все свободное время расследованию пропажи его друзей, ему приснился сон где Михаил зовет на помощь, (   Читать дальше...   )Тип издания: RepackРазработчик: indie_games_studioЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB9CF9718F0630AA30C0A369DBCDBA4BD0F0EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484316   (636585) от 06.07.2012
-
-Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игровой процесс в R6 исключил все, что в Red Storm посчитали несерьезным. По аккуратно смоделированным уровням передвигались оживленные с помощью motion capture спецназовцы. Необходимые двери поддавались вскрытию, заложники — освобождению, террористы — умерщвлению. Сами спецназовцы не умели даже прыгать, и в этом не было никакого самодурства разработчиков — как вы вообще себе представляете прыжки в столь серьезных операциях? Простовата графика? Право, самое ли время отравлять свою тактическую схему лишними деталями! Будучи все же одним из первых тактических шутеров, R6 держал баланс между варгеймом и шутером от первого лица, сохраняя аутентичность в обеих своих половинках.Тип издания: RePackЖанр: Тактический шутер от первого лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293546   (635084) от 04.04.2019
-
-Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635084.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением во вселенную Borderlands! Палите из всех стволов и хватайте все, что плохо лежит, в совершенно новом приключении, которое буквально отправит вас в космос – на поверхность спутника планеты Пандора. События Borderlands: The Pre-Sequel!Тип издания: LicenseРазработчик: 2K Australia, Gearbox Software и Aspyr MediaЖанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619CBD8E08D902941CE72F7A164755B93B3E6B79
 ```
 
 https://mybot314.ru/tekegram_catalog/

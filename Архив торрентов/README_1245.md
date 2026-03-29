@@ -6,7 +6,7 @@ Alfred Powerpack 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773452.jpg" />
+  <img src="Z:/picture/008/save_picture_773452.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Omauha - Work Out (2016) [FLAC|Lossless|WEB|tracks] <Breaks>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773449.jpg" />
+  <img src="Z:/picture/008/save_picture_773449.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773444.jpg" />
+  <img src="Z:/picture/008/save_picture_773444.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Coda 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773443.jpg" />
+  <img src="Z:/picture/008/save_picture_773443.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773416.jpg" />
+  <img src="Z:/picture/008/save_picture_773416.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ JetBrains WebStorm 10.0 Build #WS-141.456 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773405.jpg" />
+  <img src="Z:/picture/008/save_picture_773405.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773400.jpg" />
+  <img src="Z:/picture/008/save_picture_773400.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Paint.NET 4.0.15 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773399.jpg" />
+  <img src="Z:/picture/008/save_picture_773399.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Roger Shah presents Sunlounger - Balearic Beauty (Deluxe Edition) (2016) [FLAC|L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773398.jpg" />
+  <img src="Z:/picture/008/save_picture_773398.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Microsoft Silverlight 5.1.50906.0 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773393.jpg" />
+  <img src="Z:/picture/008/save_picture_773393.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Sublime Text 3 Dev (3129) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773392.jpg" />
+  <img src="Z:/picture/008/save_picture_773392.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ AMD Radeon Software Crimson ReLive Edition 17.4.2 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773389.jpg" />
+  <img src="Z:/picture/008/save_picture_773389.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Xliff Editor 2.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773360.jpg" />
+  <img src="Z:/picture/008/save_picture_773360.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ DiskExpert Pro 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773359.jpg" />
+  <img src="Z:/picture/008/save_picture_773359.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Dash 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773358.jpg" />
+  <img src="Z:/picture/008/save_picture_773358.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ DjVuLibre DjView 4.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773339.jpg" />
+  <img src="Z:/picture/008/save_picture_773339.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773334.jpg" />
+  <img src="Z:/picture/008/save_picture_773334.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Paul Van Dyk - Touched By Heaven (2017) Single [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773324.jpg" />
+  <img src="Z:/picture/008/save_picture_773324.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Above & Beyond - Anjunabeats Volume 13 (2017) [FLAC|Lossless|tracks+.cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773322.jpg" />
+  <img src="Z:/picture/008/save_picture_773322.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Process Lasso Pro 9.0.0.286 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773319.jpg" />
+  <img src="Z:/picture/008/save_picture_773319.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Audirvana Plus 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773308.jpg" />
+  <img src="Z:/picture/008/save_picture_773308.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Pearl Jam - I Am Mine (2002) [FLAC|Lossless|tracks + .cue] <Single, Promo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773303.jpg" />
+  <img src="Z:/picture/008/save_picture_773303.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Ellen Band - 90% Post Consumer Sound (2001) [FLAC|Lossless|tracks + .cue] <Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773300.jpg" />
+  <img src="Z:/picture/008/save_picture_773300.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ExactScan Pro 19.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773298.jpg" />
+  <img src="Z:/picture/008/save_picture_773298.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - The May Releases (2016) [MP3|320 кб/с] <Trance, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773268.jpg" />
+  <img src="Z:/picture/008/save_picture_773268.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - Uplifting Trance Experience of Amsterdam (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773267.jpg" />
+  <img src="Z:/picture/008/save_picture_773267.jpg" />
 </div>
 
 

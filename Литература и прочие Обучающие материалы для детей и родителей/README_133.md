@@ -1,3 +1,134 @@
+###  Публикация: 1386787   (792639) от 31.05.2020
+
+Светлана Лаврова | Трилобиты не виноваты (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цивилизация под угрозой – надвигается всеобщее оледенение. Совет Двенадцати Магистров во главе с Безымянным высылает шпионский десант из лучших учеников секретной школы трилобитов. Цель: выяснить причины и предотвратить… ну… на самом-то деле никто не может предотвратить неизбежное. Потому что никто и ничто не может остановить эволюцию.
+Но на самом деле эта палеонтологическая (   Читать дальше...   )Жанр: Фантастика, Приключения для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB35902FDF2951FE1E199A4E4AE545051341CB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386791   (792585) от 31.05.2020
+
+Майкл Бакли | Сестры Гримм. Жили-были детективы (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792585.jpg" />
+</div>
+
+
+###  Подробнее
+
+В обычном городе, конечно, никогда бы такого не случилось. Но Феррипорт-Лэндинг обычным назвать нельзя. Более двухсот лет назад сюда переселились персонажи всех волшебных сказок и стали жить бок о бок с людьми. Сабрина и Дафна с трудом верят и в это, и в открывшуюся им тайну: они прапрапрапраправнучки сказочника Вильгельма Гримма. Кому-то может показаться, что жить (   Читать дальше...   )Жанр: Фэнтези, Приключения для детейПеревод: Галина ЕгороваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD15B1077E1FECE2CDACC73B0BB0AFC0125576A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387095   (792427) от 31.05.2020
+
+АСТ | Сказки нашего детства [сборник] (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792427.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли классические народные и авторские сказки про животных и людей. «Собака и волк», «Лиса, заяц и петух», а также «Три медведя» Л.Н. Толстого, сказка в стихах «Генерал Топтыгин» Н.А. Некрасова, «Айболит» К.И. Чуковского и многие другие поизведения в рисунках советского художника Михаила Карпенко. Хитрая лиса, страдалец-зайчишка, трудяга-воробей, мишка-генерал (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B542507A26854597DE02F6639B746C579ACB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201410   (792225) от 25.01.2018
+
+Вера Лукьянская, Елена Горбунова-Посадова (сост.) | Колобок (1910) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE27BA0BC560B0A95CC1D36F7ADF149079C18AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201414   (792167) от 25.01.2018
+
+Александр Сергеевич Пушкин | Сказка о царе Салтане (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка о царе Салтане, о сыне его славном и могучем богатыре князе Гвидоне Салтановиче и о прекрасной царевне Лебеди – вот полное название сказки Пушкина, знакомой нам с самого детства.Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47869F25A1BEF7CAE73D89AE65040B1CF794CF1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510114   (792145) от 15.11.2021
 
 Виктор Викторов | Музей беспорядка (1961) [PDF]
@@ -6,7 +137,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792145.jpg" />
+  <img src="Z:/picture/008/save_picture_792145.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791841.jpg" />
+  <img src="Z:/picture/008/save_picture_791841.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791840.jpg" />
+  <img src="Z:/picture/008/save_picture_791840.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791830.jpg" />
+  <img src="Z:/picture/008/save_picture_791830.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791824.jpg" />
+  <img src="Z:/picture/008/save_picture_791824.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791810.jpg" />
+  <img src="Z:/picture/008/save_picture_791810.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791574.jpg" />
+  <img src="Z:/picture/008/save_picture_791574.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791571.jpg" />
+  <img src="Z:/picture/008/save_picture_791571.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791458.jpg" />
+  <img src="Z:/picture/008/save_picture_791458.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791312.jpg" />
+  <img src="Z:/picture/008/save_picture_791312.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791080.jpg" />
+  <img src="Z:/picture/008/save_picture_791080.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791074.jpg" />
+  <img src="Z:/picture/008/save_picture_791074.jpg" />
 </div>
 
 
@@ -322,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791051.jpg" />
+  <img src="Z:/picture/008/save_picture_791051.jpg" />
 </div>
 
 
@@ -348,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791031.jpg" />
+  <img src="Z:/picture/008/save_picture_791031.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791022.jpg" />
+  <img src="Z:/picture/008/save_picture_791022.jpg" />
 </div>
 
 
@@ -400,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790997.jpg" />
+  <img src="Z:/picture/008/save_picture_790997.jpg" />
 </div>
 
 
@@ -426,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790913.jpg" />
+  <img src="Z:/picture/008/save_picture_790913.jpg" />
 </div>
 
 
@@ -452,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790886.jpg" />
+  <img src="Z:/picture/008/save_picture_790886.jpg" />
 </div>
 
 
@@ -478,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790865.jpg" />
+  <img src="Z:/picture/008/save_picture_790865.jpg" />
 </div>
 
 
@@ -506,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790845.jpg" />
+  <img src="Z:/picture/008/save_picture_790845.jpg" />
 </div>
 
 
@@ -532,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790732.jpg" />
+  <img src="Z:/picture/008/save_picture_790732.jpg" />
 </div>
 
 
@@ -543,140 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50469FA781B39333D046F5480FB2555330698ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202205   (790551) от 28.01.2018
-
-Михаил Круковский | Родная жизнь (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы о Родине, о земле нашей русской, о бескрайних просторах родного края.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4E2C74FDC64BE6DCF926CA2B9D442376534AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275227   (790510) от 11.01.2019
-
-Питер Грю | Письма на чердак (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чердак – это место забытых вещей и пыльных историй.
-
-Когда тебе грустно, напиши письмо на чердак, и призраки обязательно его прочитают. По дороге, усыпанной лунной пылью, они уведут тебя в Тёмный Уголок – мир-убежище, где ты забудешь о печали, где замки появляются из ниоткуда и где каждый может стать волшебником.
-(   Читать дальше...   )Жанр: Детская фантастика, Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB67F50278934BD4E827F7DE91641EBAAF27EE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202207   (790501) от 28.01.2018
-
-Русские народные сказки | Журавль и цапля (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русские народные сказки. Для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9265FAEFE81F41E01127F9FFF9BB5790A05D0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275187   (790470) от 11.01.2019
-
-О.Н. Кулешкова и др.  | Основы дизайна прически (2002) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даны основные понятия, принципы и правила подбора причесок. Изложены технологии выполнения различных видов работ: мытья и массажа головы, укладки волос холодным способом и феном, стрижки волос, бритья.
-Приведены сведения о химической завивке и современных методах ее выполнения. Учебное пособие вместе с альбомом «Основы дизайна прически» этих же авторов составляют (   Читать дальше...   )Жанр: Парикмахерское дело, обучениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF036CA900FDFE2614AAC72046A170C50CDD50DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202209   (790457) от 28.01.2018
-
-Иван Андреевич Крылов | Басни Крылова. Полное собрание (1911) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасный знаток и художник простого языка, к тому же склонный к насмешке и пессимизму, Иван Андреевич Крылов был просто создан для басни. В его баснях воплотилась мудрость отца европейской басни Эзопа, французский блеск ума Лафонтена и история становления самосознания русского народа в начале XIX века. Крылов является автором более 200 басен - они вышли в свет (   Читать дальше...   )Жанр: БасниФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73997CF16FDAA7030A80BE36589531E3FC69FF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

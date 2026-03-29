@@ -1,3 +1,29 @@
+###  Публикация: 1508378   (792540) от 14.11.2021
+
+Месть земли (Бесконечная глубина, Облачная гора) / Feng bao / Cloudy Mountain / Infinite Depth (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под воздействием глобальных геологических изменений надвигается серия геологических катастроф. Землетрясения, оползни, сели, провалы в земле угрожают жизни простых граждан. Также это может затронуть туннель, который возводили последние 10 лет.Производство: Китай, China Film Co. Ltd., Shanghai Film (Group) Co.Ltd, Tianjin Maoyan WeyingMedia Co. LtdЖанр: Боевик, приключения, драмаРежиссер: Ли ЦзуньАктеры: Чжу Илун, Хуан Чжичжун, Чэнь Шу, Цзяо Цзюньянь, Тайшэн Чэнь, Ван Гэ, Лу Сыюй, Хун Цзяньтао, Чжоу Сяооу, Бинь ЦзыПеревод: Многоголосый любительский (АрхиAsia)Субтитры: Английские, китайские (хардсаб)Продолжительность: 01:54:26Реклама: Видеоряд содержит в верхнем правом углу логотип РГ АрхиAsia
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703B8B4F46A97F11C8064931581CB862BED9A65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387016   (792516) от 31.05.2020
 
 Ойе-сан (О-Иэ-сан) / Oiesan / Oie-san (2014) HDTVRip [VO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792516.jpg" />
+  <img src="Z:/picture/008/save_picture_792516.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791803.jpg" />
+  <img src="Z:/picture/008/save_picture_791803.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791469.jpg" />
+  <img src="Z:/picture/008/save_picture_791469.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790903.jpg" />
+  <img src="Z:/picture/008/save_picture_790903.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790312.jpg" />
+  <img src="Z:/picture/008/save_picture_790312.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789581.jpg" />
+  <img src="Z:/picture/008/save_picture_789581.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789171.jpg" />
+  <img src="Z:/picture/008/save_picture_789171.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788983.jpg" />
+  <img src="Z:/picture/008/save_picture_788983.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787758.jpg" />
+  <img src="Z:/picture/008/save_picture_787758.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787394.jpg" />
+  <img src="Z:/picture/008/save_picture_787394.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786853.jpg" />
+  <img src="Z:/picture/008/save_picture_786853.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786670.jpg" />
+  <img src="Z:/picture/008/save_picture_786670.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786532.jpg" />
+  <img src="Z:/picture/008/save_picture_786532.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785227.jpg" />
+  <img src="Z:/picture/008/save_picture_785227.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784551.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783656.jpg" />
+  <img src="Z:/picture/008/save_picture_783656.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783334.jpg" />
+  <img src="Z:/picture/008/save_picture_783334.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783110.jpg" />
+  <img src="Z:/picture/008/save_picture_783110.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782244.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781024.jpg" />
+  <img src="Z:/picture/008/save_picture_781024.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780327.jpg" />
+  <img src="Z:/picture/008/save_picture_780327.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779440.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779434.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779415.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779338.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:775A6550563CBCFD642B6BC55198FBCB63D3E186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209393   (779321) от 26.02.2018
-
-Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779321.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стране Аместрис алхимия широко распространена как точная наука. Два брата Эдвард и Альфонс Элрики ещё детьми пытались при помощи алхимии воскресить мёртвую маму, но поплатились за это. Старший лишился руки и ноги, младший — всего тела, хотя и был в самый последний момент чудом спасен — брат привязывает его душу к стальным рыцарским доспехам. Теперь два брата — (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Боевик, фэнтези, приключенияРежиссер: Ясухиро Ириэ, Киёмицу Сато, Хироши ИкетомиАктеры: Рёске Ямада, Цубаса Хонда, Дин Фудзиока, Рюта Сато, Мисако Рэмбуцу, Ё Ойзуми, Кэндзиро Исимару, Ясуко Мацуюки, Синдзи Утияма, Каната ХонгоПеревод: Многоголосый закадровый (AlexFilm)Субтитры: русские (форсированные, полные), английские, + много других языков (см. MediaInfo)Продолжительность: 02:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4721A0E5BAA8C85C827650CCF62054583420E40
 ```
 
 https://mybot314.ru/tekegram_catalog/

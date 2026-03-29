@@ -1,3 +1,83 @@
+###  Публикация: 1028743   (686484) от 24.06.2016
+
+Наринэ Абгарян , Валентин Постников | Шоколадный дедушка (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию аудиокнигу «Шоколадный дедушка», записанную на студии АРДИС. Эта смешная, добрая, и очень вкусная сказочная повесть Наринэ Абгарян и Валентина Постникова обязательно понравится маленьким сластёнам и сладкоежкам. Ведь в ней полно волшебства, тайн и весёлых сладких приключений!
+
+В норвежском городе Бергене живёт самая обычная семья – мама, (   Читать дальше...   )Жанр: СказкаПродолжительность: 04:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B234BF0D9D356DDFE17253A280990CB9567176CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126779   (686168) от 22.08.2020
+
+Альберт Иванов | Хома и Суслик. Всё о Хоме и Суслике (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686168.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник известного писателя входят 8 сборников сказок приключениях знаменитого хвастуна — хомяка Хомы, его лучшего друга — пугливого мудреца Суслика, их осторожных приятелей и коварных врагов. Эти герои знакомы ребятам по нескольким книжкам и серии мультфильмов. В книге представлены и новые сказки, которые нигде раньше не публиковались..Жанр: СказкиПродолжительность: 13:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D3DF760D35A3E9E41B8791891265DF45CF07EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507294   (685999) от 07.06.2012
+
+И. А. Крылов | Басни (1996) [MP3, Игорь Ильинский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Андреевич Крылов – русский баснописец, драматург, журналист, автор более 200 басен. В баснях Крылов высмеивал общественные и человеческие пороки. В жизни – нарочито отстранялся от общества, подчеркивал собственные пороки: лень, чревоугодие, неряшливость, увлеченность картами. Современниками он часто воспринимался как литературный персонаж – был действующим лицом (   Читать дальше...   )Жанр: Басни, Детская литератураЯзык: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7941192B9A8D1502EEF1FB2F8DA234AB835293E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507339   (685585) от 07.06.2012
 
 Наталия Лансере - Четыре ёжика (2011) [MP3|256 кб/с]<Детская музыка>
@@ -6,7 +86,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685585.jpg" />
+  <img src="Z:/picture/008/save_picture_685585.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684892.jpg" />
+  <img src="Z:/picture/008/save_picture_684892.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684398.jpg" />
+  <img src="Z:/picture/008/save_picture_684398.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683419.jpg" />
+  <img src="Z:/picture/008/save_picture_683419.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683274.jpg" />
+  <img src="Z:/picture/008/save_picture_683274.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ VA - Злодейские песенки (2000) [MP3|246~255 кб/с (V3)]<Де�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683263.jpg" />
+  <img src="Z:/picture/008/save_picture_683263.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681219.jpg" />
+  <img src="Z:/picture/008/save_picture_681219.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680347.jpg" />
+  <img src="Z:/picture/008/save_picture_680347.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678315.jpg" />
+  <img src="Z:/picture/008/save_picture_678315.jpg" />
 </div>
 
 
@@ -251,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677088.jpg" />
+  <img src="Z:/picture/008/save_picture_677088.jpg" />
 </div>
 
 
@@ -277,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674304.jpg" />
+  <img src="Z:/picture/008/save_picture_674304.jpg" />
 </div>
 
 
@@ -304,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674233.jpg" />
+  <img src="Z:/picture/008/save_picture_674233.jpg" />
 </div>
 
 
@@ -330,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673196.jpg" />
+  <img src="Z:/picture/008/save_picture_673196.jpg" />
 </div>
 
 
@@ -357,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672085.jpg" />
 </div>
 
 
@@ -383,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670458.jpg" />
+  <img src="Z:/picture/008/save_picture_670458.jpg" />
 </div>
 
 
@@ -410,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669211.jpg" />
+  <img src="Z:/picture/008/save_picture_669211.jpg" />
 </div>
 
 
@@ -438,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669071.jpg" />
+  <img src="Z:/picture/008/save_picture_669071.jpg" />
 </div>
 
 
@@ -467,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669066.jpg" />
+  <img src="Z:/picture/008/save_picture_669066.jpg" />
 </div>
 
 
@@ -493,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667809.jpg" />
+  <img src="Z:/picture/008/save_picture_667809.jpg" />
 </div>
 
 
@@ -520,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667765.jpg" />
+  <img src="Z:/picture/008/save_picture_667765.jpg" />
 </div>
 
 
@@ -547,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666765.jpg" />
+  <img src="Z:/picture/008/save_picture_666765.jpg" />
 </div>
 
 
@@ -573,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665873.jpg" />
+  <img src="Z:/picture/008/save_picture_665873.jpg" />
 </div>
 
 
@@ -599,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665843.jpg" />
+  <img src="Z:/picture/008/save_picture_665843.jpg" />
 </div>
 
 
@@ -612,85 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457BB4F9ADA3783F226660EEE634B6C435B35B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340300   (664829) от 22.05.2011
-
-Олег Анофриев  |  Старинные русские сказки (1998) [MP3|192 Kbps]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664829.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом диске представлены памятники русского устного творчества времен Древнекиевской Руси, что само по себе интересно и познавательно. Но особый интерес вызывает исполнитель, он же автор инсценировки и музыки  -  великий артист и великолепный чтец - Олег Анофриев, представлять которого излишне. Старинные тексты в сочетании с музыкальными фрагментами погружают нас (   Читать дальше...   )1. Былина о Дунае, Добрыне и Владимире Красно Солнышко (38:46)
-2. Волшебное яблочко (24:56)Жанр: СказкиПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD07A754ECC5089741D8F270C750D4DC7EE7BD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340670   (663536) от 23.05.2011
-
-Владислав Крапивин | Дети синего фламинго (Радиоспектакль) (2008) [MP3, Михаил Ефремов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль для детей 6-12 лет по замечательной повести Владислава Крапивина «Дети синего фламинго».  Если ты смел и отважен, если готов прийти на помощь своим друзьям, что бы ни случилось – значит, ты Рыцарь! Да-да, именно Рыцарь. Неважно, сколько тебе лет, в какой стране и в какое время ты живешь: враги всегда коварны и подлы, но никакие козни им не помогут, (   Читать дальше...   )Жанр: Детская литература, повестьВ ролях: Михаил Ефремов, Татьяна Веселкина,  Ольга Кузнецова и др.Издательство: Эксмо-СидикомПродолжительность: 03:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1D74685811998A363A31CE52027F55E7AC6587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138630   (663093) от 30.05.2017
-
-Вильгельм Гауф | Карлик Нос (2008) [WavPack Lossless|image + .cue]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663093.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мелодия" продолжает реставрировать знаменитые и любимые многими слушателями записи, выходившие на пластинках в 60-80-е годы XX века. Меняется время, меняется государство, его устройство. Но люди - не меняются. И как во все времена и при любых правителях есть честность, преданность, щедрость, доброта, так всегда, к сожалению, будут идти с ними рядом жадность, (   Читать дальше...   )Жанр: Аудиоспектакль, Детская литература, СказкаПродолжительность: 0:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92712CA9870907D19957ED36FC320CF56B33D48D
 ```
 
 https://mybot314.ru/tekegram_catalog/

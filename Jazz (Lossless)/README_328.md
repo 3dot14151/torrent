@@ -1,3 +1,117 @@
+###  Публикация: 1730168   (107883) от 15.06.2024
+
+Vince Guaraldi & Bola Sete - Vince & Bola (1963, 1966) 2000, Fantasy [FLAC|Lossless|tracks + .cue] <Latin Jazz, Piano Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casaba [7:56]
+02. Mambossa [8:40]
+03. Star Song [4:48]
+04. Moon Rays [7:03](   Читать дальше...   )Жанр: Latin Jazz, Piano Jazz, Guitar JazzПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3AE209E8808C71ED2616971E0BD5DAA207F667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730486   (107876) от 16.06.2024
+
+The Jive Aces - Keeping The Show On The Road (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесспорные короли джайва и свинга The Jive Aces вернулись со своим новым альбомом Keeping the Show on the Road, 14 треков которого охватывают захватывающие живые выступления и непоколебимую страсть к музыке. The Jive Aces очаровывал публику по всему миру на протяжении десятилетий – от восхищения судей конкурса Britain's Got Talent до аншлага на первом в истории the (   Читать дальше...   )01. Rockin' Is Our Bizness (2:36)
+02. Clementine (3:07)
+03. It Don't Mean A Thing (If It Ain't Got That Swing) (3:18)
+04. The Pink Panther Theme (3:04)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC08A87764250C6B90DA8511F4E69C5770051E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730719   (107838) от 17.06.2024
+
+VA - Norman Granz' Jam Session #4 (1953) 2004, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, Lady Be Good [19:51]
+02. Blues for the Count [15:39]Жанр: Bop, Mainstream JazzПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0835DE257B5F3B1F2B56108D8A33150B576F049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730905   (107804) от 18.06.2024
+
+Jimmie Noone - Apex Blues (1928 - 1930) 1994, Decca Jazz [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know That You Know [2:57]
+02. Sweet Sue (Just You) [3:11]
+03. Four or Five Times [3:13]
+04. Every Evening (I Miss You) [2:38](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CF224CDA86CFC33FFD9B9D89944BCCF61CBF33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731066   (107786) от 19.06.2024
 
 Erroll Garner - The Erroll Garner Collection, Vol.4,5: Solo Time! (1954) 2CD, 1990, Emarcy [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
@@ -6,7 +120,7 @@ Erroll Garner - The Erroll Garner Collection, Vol.4,5: Solo Time! (1954) 2CD, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107786.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ Johnny Griffin - Masters Of Jazz (1964 - 1989) 2006, Storyville Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107737.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ Ben Tankard - The Godfather Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107710.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ Aretha Franklin - Bob Marley Performance Centre Jamaica 1982 Live (1982) Remaste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107683.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ Lowell Hopper - Precious Moments (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107680.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ Another 247 Production and Dayrod - Blast (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107659.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ Sonny Rollins - Silver City: A Celebration Of 25 Years On Milestone (1972 - 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107655.jpg" />
 </div>
 
 
@@ -209,7 +323,7 @@ Jimmy Haslip, Kevin Crockett & Richard D. Ruttenberg - Cold Fusion (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107654.jpg" />
 </div>
 
 
@@ -238,7 +352,7 @@ Christian Galvez - LEVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107653.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ Bill Banfield - Hybridity (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107652.jpg" />
 </div>
 
 
@@ -296,7 +410,7 @@ John Klemmer - Chateau Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107651.jpg" />
 </div>
 
 
@@ -325,7 +439,7 @@ Ervin Pope - Anomaly (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107650.jpg" />
 </div>
 
 
@@ -354,7 +468,7 @@ Antonio Sanchez - Channels Of Energy (2016) 2CD, 2018, CAM Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107588.jpg" />
 </div>
 
 
@@ -383,7 +497,7 @@ Sexy Lovers Music Collection - Good Morning Sex (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107570.jpg" />
 </div>
 
 
@@ -412,7 +526,7 @@ Barney Kessel - Contemporary Latin Rhythms! & Breakfast At Tiffany's (1957 - 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107512.jpg" />
 </div>
 
 
@@ -441,7 +555,7 @@ Sonny Rollins - A Night At The Village Vanguard: The Complete Masters (1957) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107496.jpg" />
 </div>
 
 
@@ -470,7 +584,7 @@ Harry James - The Chronological Classics: 1942-1944 (2002) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107480.jpg" />
 </div>
 
 
@@ -499,7 +613,7 @@ Helen Humes - 1948 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107460.jpg" />
 </div>
 
 
@@ -528,7 +642,7 @@ Lester Young With Count Basie - Classic Columbia, Okeh And Vocalion (1936 - 1940
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107455.jpg" />
 </div>
 
 
@@ -557,7 +671,7 @@ Red Norvo And His Orchestra - 1936 - 1937 (2000) Classics [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107436.jpg" />
 </div>
 
 
@@ -586,7 +700,7 @@ Louis Prima - 1937 - 1939 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107432.jpg" />
 </div>
 
 
@@ -615,7 +729,7 @@ Rex Stewart - 1948 - 1949 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107416.jpg" />
 </div>
 
 
@@ -629,122 +743,6 @@ Rex Stewart - 1948 - 1949 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A311031BE93FC9BC8EE653881301271363112742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732885   (107411) от 27.06.2024
-
-Betty Booom - Booombastic (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toxic (Electro Swing Mix) (3:31)
-02. J Fitz - Puttin' On the Ritz (Electro Swing Mix) (3:19)
-03. Bella Ciao (3:00)
-04. La PetitOrchestre - Mr. Sandman (Electro Swing Mix) (2:54)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ABDC5416A31B9CB861796F7EF9EF526C199E937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732865   (107395) от 27.06.2024
-
-Dolly Baker - All Waves (1993) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Very Thought of You [6:04]
-02. For All We Know [5:04]
-03. As Time Goes By [5:27]
-04. On the Sunny Side of the Street [3:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3100357996C190B6D80F916C4461B144AB023871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732894   (107384) от 27.06.2024
-
-VA - Roaring Halloween (Electro Swing 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley Slater - Ghostbusters (Electro Swing Mix) (3:06)
-02. BboP - Spooky Scary Skeletons (Future Swing Mix) (2:14)
-03. Betty Booom - Halloween Theme (Electro Swing Mix) (2:09)
-04. Ashley Slater - Friend Like Me (Electro Swing Mix) (2:59)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293FE2D19C3C4AE128602B4367DCD7F89701BBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732886   (107382) от 27.06.2024
-
-Masha Ray - Masha Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bei Mir Bistu Shein (Electro Swing Mix) (3:32)
-02. Levan Polka (Dancing Donkey Mix) (2:55)
-03. Sway (Neo Swing Mix) (2:47)
-04. Bang Bang (Electro Swing Mix) (3:19)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D88171450BDD26BAF4E8E6A0C8C4038FA7C79C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

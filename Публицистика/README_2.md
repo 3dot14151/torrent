@@ -1,3 +1,85 @@
+###  Публикация: 1443996   (1034866) от 31.01.2021
+
+Джордж Фридман | Американская империя. Прогноз 2020–2030 гг. (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждые 80 лет Америку потрясают политические кризисы, каждые 50 лет – социально-экономические. Поэтому события, которые мы наблюдаем сегодня, не новы и практически не отличаются от тех, что уже не раз происходили в истории США на фоне Войны за независимость, Великой депрессии и Второй мировой войны. Но хватит ли стране зрелости, чтобы не просто выйти из кризиса, (   Читать дальше...   )Жанр: Политология, ПублицистикаПеревод: Елена ЗегоноваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84493BF8BDDFE80D2294DB0D472B8448C0D4A992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444400   (1034615) от 01.02.2021
+
+Книжная серия | Большой научный проект [7 книг] (2018-2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Большой научный проект» затрагивает исследования отечественной истории XIX-XX вв. и литературоведения в целом как явления человеческой культуры.
+Авторы, известные публицисты и ученые, выражают актуальные темы, которые и сегодня являются одними из самых обсуждаемых в обществе.
+Для широкого круга читателей.Жанр: Биографии и мемуары, История, Культурология, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E55AC716598D1F7ACC814F172D51CB6659F0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444601   (1034444) от 02.02.2021
+
+Вера Инбер | Почти три года. Ленинградский дневник (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034444.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Оказывается, дома от газов взрывной волны меняют окраску: так человек меняется в лице от потрясения.»
+Дневниковые записи русской поэтессы и переводчицы Веры Инбер в полной мере передают трагизм блокадного Ленинграда. Подкосившиеся ноги – это от страха, когда разрывается бомба рядом. Смех и слезы – это от счастья, когда прибавили 75 граммов хлеба.
+«Обглоданы голодом» (   Читать дальше...   )Жанр: Биографии и мемуары, Книги о войне, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1BA22CD6B031B3CE308160B3923423FC1C959C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444604   (1034423) от 02.02.2021
 
 Евгений Примаков | На пороге перемен [сборник] (2021) [EPUB]
@@ -6,7 +88,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034423.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034411.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034407.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034340.jpg" />
 </div>
 
 
@@ -113,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034303.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033987.jpg" />
 </div>
 
 
@@ -165,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033973.jpg" />
 </div>
 
 
@@ -191,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033723.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033715.jpg" />
 </div>
 
 
@@ -244,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032722.jpg" />
 </div>
 
 
@@ -270,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032696.jpg" />
 </div>
 
 
@@ -297,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032561.jpg" />
 </div>
 
 
@@ -323,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032226.jpg" />
 </div>
 
 
@@ -349,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031882.jpg" />
 </div>
 
 
@@ -375,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031834.jpg" />
 </div>
 
 
@@ -401,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031378.jpg" />
 </div>
 
 
@@ -427,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031135.jpg" />
 </div>
 
 
@@ -454,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031123.jpg" />
 </div>
 
 
@@ -481,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030707.jpg" />
 </div>
 
 
@@ -507,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030681.jpg" />
 </div>
 
 
@@ -534,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030477.jpg" />
 </div>
 
 
@@ -560,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030439.jpg" />
 </div>
 
 
@@ -586,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030138.jpg" />
 </div>
 
 
@@ -597,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81C6A581C5704677FCBDC59B36402781B602EA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450867   (1028713) от 28.02.2021
-
-Кирилл Бенедиктов | Чёрный лебедь. Политическая биография Дональда Трампа (2016) [PDF, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год назад никто не воспринимал Дональда Трампа всерьёз. Его называли «шутом» и «клоуном». В российской политической журналистике было модно сравнивать его с Владимиром Жириновским.
-
-Между тем, Дональд Трамп оказался классическим «чёрным лебедем». «Чёрный лебедь», – это событие, которое является неожиданным для наблюдателя, имеет значительные последствия, но может (   Читать дальше...   )Жанр: биографии и мемуары, политология, публицистикаФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88BA3C1B456BACB4E8AEF9358547A97A4064141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451588   (1028156) от 03.03.2021
-
-Мария Бобылёва | Мы так говорим. Обидные слова и как их избежать (2021) [EPUB]
-
->>След.
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инвалид, бомж, колясочник, трансгендер – что не так с этими словами? Почему нельзя заболеть онкологией, лишиться девственности или сделать операцию по смене пола? Эти и многие другие слова и выражения или некорректны, или просто неверны. С помощью лингвистов, активистов, психологов и профильных специалистов автор Мария Бобылёва объясняет, что такое толерантная лексика, (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD75D6E6BF68B1277A886A729089D542BF8B39E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454823   (1026124) от 16.03.2021
-
-Светлана Замлелова | Александр Алехин: партия с судьбой (2021) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Алехин – гений комбинаций, рекордсмен по игре вслепую, единственный не побежденный при жизни чемпион мира. Человек с трудной и необычной судьбой, шахматист, обладающий уникальным по красоте стилем игры, он оставил после себя не имеющие аналогов блестящие литературные и аналитические труды.Жанр: Биографии и мемуары, Спорт, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2BC10554F193FE54AAC6D39C56C1C893CC27C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

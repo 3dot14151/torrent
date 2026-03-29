@@ -1,3 +1,111 @@
+###  Публикация: 1241291   (520250) от 17.08.2018
+
+Elmedia Video Player Pro 6.9.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Video Player - медиаплеер для macOS, который может воспроизводить практически все типы файлов, будь то - AVI, MP4, FLV, WMV, MKV, MP3, M4V и пр. Elmedia Video Player - это решение «все-в-одном», не требующее каких-либо дополнительных плагинов или кодеков.
+
+Этот плеер предлагает своим пользователям изумительное воспроизведение видео в формате HD благодаря (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2018Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C16B3496933D41610F7266739E395724DD40C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928981   (520204) от 18.08.2015
+
+Corel Painter 2016 (15.0.0.689) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая художественная мастерская у вас под рукой!
+Независимо от того, в каком направлении искусства вы работаете, в Corel® Painter®  вы сможете найти все необходимое, чтобы реализовать свой творческий потенциал. К вашим услугам сотни настраиваемых кистей, текстур бумаги, красок и сухих пигментных материалов, которые не отличаются от своих реальных аналогов! Технология (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 августа 2015Разработчик: Corel CorporationПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3469169D22FAFEC6706672AC90B4479BADEA5BD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560627   (519844) от 30.06.2022
+
+Integrity Plus 12.3.14 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_519844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Integrity - приложение в помощь Web-мастерам и предназначено для проверки наличия изображений и целостности ссылок на вашем сайте. Проверка начинается с главной страницы и будет продолжена внутрь сайта (от новых страниц к более старым) следуя внутренним связям ресурса.
+Досконально проверяется каждая ссылка и анализируется ответ сервера. Вся информация выводиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.06.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EF0BBA136B5679E3E51EEC69B9D176CCE6AAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560483   (519779) от 30.06.2022
+
+Disk Clean Pro 6.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_519779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Clean Pro - это приложение с высоким рейтингом, которое удаляет ненужные файлы и данные с вашего Mac. Он надежно очищает избыточные файлы и гарантирует, что ваши важные данные никогда не окажутся под угрозой.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2022Разработчик: © 2022 Systweak SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F07CF91926FCEC6A8E9A2AB5202C6019E41465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560676   (519777) от 30.06.2022
 
 EdgeView 3 v3.6.0 [En]
@@ -6,7 +114,7 @@ EdgeView 3 v3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519777.jpg" />
+  <img src="Z:/picture/008/save_picture_519777.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Steinberg Dorico 4 v4.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519771.jpg" />
+  <img src="Z:/picture/008/save_picture_519771.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Adobe Substance 3D Sampler 3.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519769.jpg" />
+  <img src="Z:/picture/008/save_picture_519769.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Luminar Neo 1.1.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519719.jpg" />
+  <img src="Z:/picture/008/save_picture_519719.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ Hands Off! 2.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519432.jpg" />
+  <img src="Z:/picture/008/save_picture_519432.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ CleanMyMac 3.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519135.jpg" />
+  <img src="Z:/picture/008/save_picture_519135.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Cisdem ContactsMate 6 v6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518873.jpg" />
+  <img src="Z:/picture/008/save_picture_518873.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ Screegle - Clean Screen Sharing 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518872.jpg" />
+  <img src="Z:/picture/008/save_picture_518872.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Allavsoft Video Downloader Converter 3.24.8.8216 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518856.jpg" />
+  <img src="Z:/picture/008/save_picture_518856.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ Rectangle Pro 2.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518854.jpg" />
+  <img src="Z:/picture/008/save_picture_518854.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ Grids for Instagram 8.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518792.jpg" />
+  <img src="Z:/picture/008/save_picture_518792.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ App Cleaner & Uninstaller Pro 7.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518725.jpg" />
+  <img src="Z:/picture/008/save_picture_518725.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ Adobe Substance 3D Painter 8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518719.jpg" />
+  <img src="Z:/picture/008/save_picture_518719.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ Pixelmator Pro 2.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518716.jpg" />
+  <img src="Z:/picture/008/save_picture_518716.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ Batman Arkham City Lockdown [4.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518677.jpg" />
+  <img src="Z:/picture/008/save_picture_518677.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ Fidelia 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518467.jpg" />
+  <img src="Z:/picture/008/save_picture_518467.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ A Better Finder Rename 10.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518429.jpg" />
+  <img src="Z:/picture/008/save_picture_518429.jpg" />
 </div>
 
 
@@ -456,7 +564,7 @@ Tri-BACKUP Pro 8.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518427.jpg" />
+  <img src="Z:/picture/008/save_picture_518427.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ Direct Message for Instagram Pro 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518418.jpg" />
+  <img src="Z:/picture/008/save_picture_518418.jpg" />
 </div>
 
 
@@ -508,7 +616,7 @@ Serial 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518400.jpg" />
+  <img src="Z:/picture/008/save_picture_518400.jpg" />
 </div>
 
 
@@ -536,7 +644,7 @@ CloudTV 3.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518362.jpg" />
+  <img src="Z:/picture/008/save_picture_518362.jpg" />
 </div>
 
 
@@ -563,7 +671,7 @@ Downie 3.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518357.jpg" />
+  <img src="Z:/picture/008/save_picture_518357.jpg" />
 </div>
 
 
@@ -577,114 +685,6 @@ Downie поддерживает более 1,100 популярных сайто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FA978448887020F63DCE8E38A5FCD17644F9973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929858   (518280) от 20.08.2015
-
-Gemini 1.5.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не заставят себя долго ждать. По окончании работы кольцо радостно позеленеет и появится предложение перейти к результатам сканиования.
-Gemini распределяет данные по типам, например (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 августа 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCB49EE701CCDE835A43282F80AC3291A604E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241272   (518224) от 19.08.2018
-
-CloudMounter 3.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518224.jpg" />
-</div>
-
-
-###  Подробнее
-
-CloudMounter - это централизованный сервис, который позволяет монтировать облачные хранилища как локальные диски и работать с онлайн файлами так же как с локальными. При этом сохраняя их защищенными от внешнего доступа. Приложение обеспечит Вам непосредственный доступ к онлайн данным на сервере, прямо из Finder на Вашем Mac, а так же позволит защитить их с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2018Разработчик: Eltima SoftwareПоддерживаемая ОС: MacOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426AEBA47481E9F03E49771E5F3DC52F10539279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929668   (517984) от 20.08.2015
-
-Affinity Designer 1.3.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Designer - векторный редактор
-Affinity Designer является самым быстрым, плавным, самым точным векторным графическим редактором. Работаете ли вы над графикой для маркетинговых материалов, веб-сайтов, иконками, дизайном пользовательского интерфейса или просто, как создание концепт-арт, Affinity Designer внесет революцию в Вашу работу.
-
-Affinity Designer  в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 августа 2015Разработчик: Serif (Europe) LtdПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: английский, испанский, немецкий, французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99341B732D075548409503F305CC8D18A010881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560926   (517804) от 02.07.2022
-
-Iridient Developer 3.7.0 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE6B5FAEE2CBE9DB14B1FDBE5DDBA2627AE1A24
 ```
 
 https://mybot314.ru/tekegram_catalog/

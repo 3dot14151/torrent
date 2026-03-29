@@ -1,3 +1,29 @@
+###  Публикация: 416554   (319222) от 30.11.2011
+
+Школьный вальс (1977) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодежная мелодрама о любви. Гоша и Зося (Цыплакова) полюбили друг друга. После окончания школы, когда замерли звуки школьного вальса, Зося сообщила любимому, что ждет ребенка, но тот предпочел уйти от ответственности. Парень он был здоровый и приятной наружности, так что его сразу заарканила лучшая подруга Зоси (Симонова). Но счастья не получилось...Жанр: МелодрамаРежиссер: Павел ЛюбимовАктеры: Елена Цыплакова, Евгения Симонова, Сергей Насибов, Наталья Вилькина, Юрий Соломин, Нина Меньшикова, Виктор Камаев, Екатерина Дурова, Виктор Проскурин, Елена Фетисенко, Л.Матасова, Р.Викшрайтис, Антонина Дмитриева, Сергей Багурский, В.БлаговидоваПродолжительность: 01:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E15CBFF509FBC8CB7E5EF8BE4055FED9816926A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 147218   (317883) от 25.11.2014
 
 Последняя реликвия / Viimne reliikvia (1969) DVDRip
@@ -6,7 +32,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_317883.jpg" />
+  <img src="Z:/picture/005/save_picture_317883.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_317782.jpg" />
+  <img src="Z:/picture/005/save_picture_317782.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_317778.jpg" />
+  <img src="Z:/picture/005/save_picture_317778.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317183.jpg" />
+  <img src="Z:/picture/008/save_picture_317183.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316080.jpg" />
+  <img src="Z:/picture/008/save_picture_316080.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_315758.jpg" />
+  <img src="Z:/picture/005/save_picture_315758.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315704.jpg" />
+  <img src="Z:/picture/008/save_picture_315704.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_315658.jpg" />
+  <img src="Z:/picture/005/save_picture_315658.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315136.jpg" />
+  <img src="Z:/picture/008/save_picture_315136.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315122.jpg" />
+  <img src="Z:/picture/008/save_picture_315122.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_313467.jpg" />
+  <img src="Z:/picture/005/save_picture_313467.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313293.jpg" />
+  <img src="Z:/picture/008/save_picture_313293.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313200.jpg" />
+  <img src="Z:/picture/008/save_picture_313200.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313187.jpg" />
+  <img src="Z:/picture/008/save_picture_313187.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313170.jpg" />
+  <img src="Z:/picture/008/save_picture_313170.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313168.jpg" />
+  <img src="Z:/picture/008/save_picture_313168.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313167.jpg" />
+  <img src="Z:/picture/008/save_picture_313167.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313101.jpg" />
+  <img src="Z:/picture/008/save_picture_313101.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313099.jpg" />
+  <img src="Z:/picture/008/save_picture_313099.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313098.jpg" />
+  <img src="Z:/picture/008/save_picture_313098.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313097.jpg" />
+  <img src="Z:/picture/008/save_picture_313097.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_313094.jpg" />
+  <img src="Z:/picture/005/save_picture_313094.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313093.jpg" />
+  <img src="Z:/picture/008/save_picture_313093.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313002.jpg" />
+  <img src="Z:/picture/008/save_picture_313002.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312665.jpg" />
+  <img src="Z:/picture/008/save_picture_312665.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EABD39AEB9B3566854C8555585EC1CE09A4DC0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181606   (311711) от 12.11.2017
-
-Семь стариков и одна девушка (1969) TVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпускнице физкультурного института Лене поручили вести «группу здоровья». Занятия проводятся на стадионе, где ей самой хочется ставить рекорды, а тут нужно смотреть, как алкоголики, партработники и просто дистрофики пытаются совершать телодвижения. Уволиться невозможно — могут только уволить. Для этого она и начинает мучить и пытать несчастных, которые почему-то (   Читать дальше...   )Производство: СССР, МосфильмЖанр: КомедияРежиссер: Евгений КареловАктеры: Анатолий Адоскин, Борис Новиков, Николай Парфенов, Алексей Смирнов, Валентин Смирнитский, Борис Чирков, Светлана Савелова, Евгений Весник, Георгий Вицин, Юрий Никулин, Евгений Моргунов, Анатолий ПапановПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A8ADC9496401BC23ED9E67DE219852FA6BB559
 ```
 
 https://mybot314.ru/tekegram_catalog/

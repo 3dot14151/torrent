@@ -1,3 +1,235 @@
+###  Публикация: 1708848   (112911) от 22.03.2024
+
+Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready?
+02. Love Hungry
+03. Burning Up
+04. The Fight Goes On(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25F32133441C14161B96E23F78C7A37EB878476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708784   (112907) от 22.03.2024
+
+Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Dangerzone" (Paul Samson, Chris Aylmer, Nicky Moore)
+02. "Stealing Away" (Samson, Aylmer, Moore)
+03. "Red Skies" (Samson, Bruce Dickinson, Aylmer, Thunderstick)
+04. "I'll Be 'Round" (Samson, Aylmer, Moore, Pete Jupp)(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 40:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D83ECF6FD7CFD859B0228D23AE51318C9E6D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709103   (112902) от 23.03.2024
+
+Михаил Муромов - № 1 (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ведьма (М. Рябинин) — 3.56
+02. Ариадна (А. Зубков, М. Муромов — Р. Казакова) — 6.03
+03. Между нами тонкий лед (А. Кришта) — 3.47(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709105   (112882) от 23.03.2024
+
+Надежда Чепрага - Только ты (1984) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Человеческий голос (Е. Дога — Р. Рождественский) — 3.18
+02. Симфония чувств (Ион Алдя Теодорович — Г. Виеру) — 3.54
+03. Только ты (А. Корач — С. Гимпу, русский текст И. Вадикова) — 3.34(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709097   (112873) от 23.03.2024
+
+Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Гималаи (А. Лукьянов)
+02. Клава (М. Дунаевский)
+03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709186   (112863) от 23.03.2024
+
+Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Timpul Întâilor
+A2 În Vieliștea Uitării
+B1 Descânt
+B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709183   (112860) от 23.03.2024
+
+Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112860.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jind De Tronuri
+A2 Flăcărarii
+B1 E-an-na
+B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709109   (112855) от 23.03.2024
+
+Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars Within (Intro)
+02. Abduction
+03. Soul Intruders
+04. Kill Devil Hill(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709141   (112852) от 23.03.2024
 
 Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
@@ -6,7 +238,7 @@ Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112852.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112844.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112823.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112801.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112763.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112744.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112740.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112733.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112719.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112662.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112656.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112643.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112585.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112497.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Frankie Goes To Hollywood - Liverpool (1986) 1989 [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112485.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Adelitas Way - Studio Albums (9 releases) (2009-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112223.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112151.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Royal Thunder - Studio Albums (5 releases) (2010-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112128.jpg" />
 </div>
 
 
@@ -513,236 +745,6 @@ Royal Thunder — американская рок-группа из Атлант
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F64DCFE912F31F8D9722A5BC60D2CEBE7B2CE434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607476   (111982) от 05.04.2024
-
-Crisix - Studio Albums (8 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная в Барселоне в 2008 году, группа CRISIX прошла путь от молодых талантливых трэш-металлистов, победив большинством голосов во всемирном конкурсе Metal Battle на легендарном немецком фестивале Wacken Open Air в 2009 году и став лучшим испанским новичком по версии журнала Rockzone в 2011 году, до одной из самых представительных метал-групп в Испании, а ее музыка (   Читать дальше...   )2011 - The Menace
-2013 - Rise...Then Rest
-2016 - From Blue To Black
-2018 - Against The Odds MMXVIIIЖанр: Thrash MetalПродолжительность: 05:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6158888609499D7474C497961D8C5A45CF0661D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713462   (111921) от 05.04.2024
-
-Corroded - Studio Albums (6 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corroded — хард-рок группа из Онге, Швеция.
-Музыкально Corroded вдохновлены Black Sabbath и Machine Head.2009 - Eleven Shades Of Black
-2010 - Exit To Transfer
-2012 - State Of Disgrace
-2017 - Defcon ZeroЖанр: Hard Rock, Groove MetalПродолжительность: 05:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BECAC875B3B4325247E73FF36E878F67BF03C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713739   (111894) от 06.04.2024
-
-Джоконда (DЖОКОНDА, Елена Минина) - Коллекция (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111894.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Джоконда» - российская рок-группа, главным образом работающая в жанре симфонического метала. Вокалисткой и лидером группы является Елена Минина.2021 - Каждый Охотник Желает Знать
-2024 - Последний законЖанр: Symphonic Metal/RockПродолжительность: 01:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA8D2A14151DCE3F81C3BDAE081E59736F9F63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713681   (111867) от 06.04.2024
-
-The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-punk Revival>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111867.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bravery — американская рок-группа из Нью-Йорка.2005 - The Bravery
-2008 - The Sun And The Moon Complete
-2009 - Stir the BloodЖанр: Post-punk RevivalПродолжительность: 02:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714072   (111773) от 08.04.2024
-
-Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Country, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111773.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hank Drank
-A2 Teenage Darling
-A3 Chain Gang
-A4 I Need A Girlfriend(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B167C450BBC6E684F1A75FDE03105DF41B7A2740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714647   (111668) от 10.04.2024
-
-«Joshua» (Joshua Perahia) - Surrender (1986) [FLAC 2.0|24/192|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111668.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Surrender Love
-A2 Heart Full Of Soul
-A3 Your Love Is Gone
-A4 Hold On(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A1ADDB93E540F98C41D3907E4604ADB9190AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714835   (111663) от 10.04.2024
-
-Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111663.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Innferd
-A2 Mellom Bakkar Og Berg
-A3 Haavard Hedde
-A4 Villemann(   Читать дальше...   )Жанр: Viking, Folk MetalПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803909040C1D0BD7241CE5C5CCE490680BBB9E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714946   (111605) от 11.04.2024
-
-Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Math Metal, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Periphery — американская группа, играющая в жанре прогрессивный метал. Возникла в 2005 году в городе Бетесда. Группа популяризовала современный прогрессивный метал, в особенности поджанр джент.2010 - Periphery
-2011 - Icarus (EP)
-2012 - Periphery II: This Time It's Personal
-2014 - Clear (EP)Жанр: Progressive/Math Metal, DjentПродолжительность: 08:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
 ```
 
 https://mybot314.ru/tekegram_catalog/

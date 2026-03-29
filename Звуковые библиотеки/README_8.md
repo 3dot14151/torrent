@@ -1,3 +1,29 @@
+###  Публикация: 785302   (739143) от 10.05.2014
+
+VideoCopilot - MotionPulse BlackBox & Shockwave [WAV, MOV]
+
+>>След.
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_739143.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotionPulse включает более 2000 составных звуковых эффектов (FX) в 25 категориях. Просто безумные многослойные звуковые FX для трейлеров фильмов, видео дизайна, специальных эффектов, готовые в любой момент захватить чьё-то внимание и встряхнуть зрителя! Это не стандартная коллекция звуковых эффектов, включающая шаги и крики, а специально созданная звуковая коллекция (   Читать дальше...   )Формат: WAV, MOV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876D04C451AC6B6348B124C1F333D3489A6A06C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 786530   (737870) от 14.05.2014
 
 Boom Library - MAGIC [WAV]
@@ -6,7 +32,7 @@ Boom Library - MAGIC [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737870.jpg" />
+  <img src="Z:/picture/008/save_picture_737870.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Boom Library - NATURE ESSENTIALS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737544.jpg" />
+  <img src="Z:/picture/008/save_picture_737544.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Boom Library - THUNDER & RAIN [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737533.jpg" />
+  <img src="Z:/picture/008/save_picture_737533.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737050.jpg" />
+  <img src="Z:/picture/008/save_picture_737050.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737048.jpg" />
+  <img src="Z:/picture/008/save_picture_737048.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736681.jpg" />
+  <img src="Z:/picture/008/save_picture_736681.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736150.jpg" />
+  <img src="Z:/picture/008/save_picture_736150.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736119.jpg" />
+  <img src="Z:/picture/008/save_picture_736119.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735700.jpg" />
+  <img src="Z:/picture/008/save_picture_735700.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735108.jpg" />
+  <img src="Z:/picture/008/save_picture_735108.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734760.jpg" />
+  <img src="Z:/picture/008/save_picture_734760.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734759.jpg" />
+  <img src="Z:/picture/008/save_picture_734759.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734753.jpg" />
+  <img src="Z:/picture/008/save_picture_734753.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734236.jpg" />
+  <img src="Z:/picture/008/save_picture_734236.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ NNM-Club Sound Cleaner Collection from melogo
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727414.jpg" />
+  <img src="Z:/picture/008/save_picture_727414.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ NNM-Club Sound Cleaner - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727176.jpg" />
+  <img src="Z:/picture/008/save_picture_727176.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718736.jpg" />
+  <img src="Z:/picture/008/save_picture_718736.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718636.jpg" />
+  <img src="Z:/picture/008/save_picture_718636.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718543.jpg" />
+  <img src="Z:/picture/008/save_picture_718543.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717243.jpg" />
+  <img src="Z:/picture/008/save_picture_717243.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716917.jpg" />
+  <img src="Z:/picture/008/save_picture_716917.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716913.jpg" />
+  <img src="Z:/picture/008/save_picture_716913.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Boom Library - CLOSE COMBAT [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715651.jpg" />
+  <img src="Z:/picture/008/save_picture_715651.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Boom Library - CINEMATIC TRAILERS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715536.jpg" />
+  <img src="Z:/picture/008/save_picture_715536.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710416.jpg" />
+  <img src="Z:/picture/008/save_picture_710416.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7E220EC8C15DEE26E39AA7B3B61F21B80FB9562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401513   (709055) от 10.08.2020
-
-Звуковые библиотеки - Boom Library - Trains [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709055.jpg" />
-</div>
-
-
-###  Подробнее
-
-TRAINS библиотека предоставляет вам огромный выбор чистых высококачественных звуковых эффектов. Она включает звуки практически любого поезда и двигателя. Тяжелые грузовые поезда, старые и современные пассажирские поезда с электрическими, паровыми и дизельными двигателями. Записи были сделаны в разных местах, таких как кабина, вагоны, машинные отделения, кабины и (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13776EF5BBA7EBFA1F5A4872AC097B9CE46D885E
 ```
 
 https://mybot314.ru/tekegram_catalog/

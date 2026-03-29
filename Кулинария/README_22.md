@@ -1,3 +1,30 @@
+###  Публикация: 1206163   (782463) от 13.02.2018
+
+Ю.А. Высоцкая | Большая кулинарная книга: лучшие рецепты (2010) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_782463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание — настоящий подарок для тех, кто готовит по рецептам телепрограммы «Едим Дома!», кто любит книги Юлии Высоцкой.
+Ставшие столь популярными рецепты объединены в один большой кулинарный сборник, в котором читатели найдут сотни рецептов на все случаи жизни: салаты, супы, блюда из овощей, мяса, птицы и рыбы, а также десерты, напитки и выпечку. «Для меня кулинария (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B2024729F8F7BB6EBDF45FA36E94F806116633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206653   (782054) от 14.02.2018
 
 Ю.А. Высоцкая | Новогодние рецепты (2010) [PDF]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782054.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781386.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781367.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780983.jpg" />
+  <img src="Z:/picture/008/save_picture_780983.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780737.jpg" />
+  <img src="Z:/picture/008/save_picture_780737.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777186.jpg" />
+  <img src="Z:/picture/008/save_picture_777186.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777179.jpg" />
+  <img src="Z:/picture/008/save_picture_777179.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776730.jpg" />
+  <img src="Z:/picture/008/save_picture_776730.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776719.jpg" />
+  <img src="Z:/picture/008/save_picture_776719.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775667.jpg" />
+  <img src="Z:/picture/008/save_picture_775667.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773750.jpg" />
+  <img src="Z:/picture/008/save_picture_773750.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773742.jpg" />
+  <img src="Z:/picture/008/save_picture_773742.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773711.jpg" />
+  <img src="Z:/picture/008/save_picture_773711.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773698.jpg" />
+  <img src="Z:/picture/008/save_picture_773698.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773685.jpg" />
+  <img src="Z:/picture/008/save_picture_773685.jpg" />
 </div>
 
 
@@ -399,13 +426,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772806.jpg" />
+  <img src="Z:/picture/008/save_picture_772806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-﻿Лето — благословенная пора. Земля под обнаженной ногой тепла от солнца, можно без зазрения совести питаться одними ягодами, садиться на старый велосипед и гнать до ближайшей речки, чтобы со смехом и бриллиантовыми брызгами прыгнуть в ласковые объятия воды. А  дома вас будет ждать невероятно ароматный вишневый пирог, черничные пирожки или целый торт с ананасом. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+Лето — благословенная пора. Земля под обнаженной ногой тепла от солнца, можно без зазрения совести питаться одними ягодами, садиться на старый велосипед и гнать до ближайшей речки, чтобы со смехом и бриллиантовыми брызгами прыгнуть в ласковые объятия воды. А  дома вас будет ждать невероятно ароматный вишневый пирог, черничные пирожки или целый торт с ананасом. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771979.jpg" />
+  <img src="Z:/picture/008/save_picture_771979.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ KENWOOD| Великолепные блюда из мяса и рыбы (2014) [P
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771971.jpg" />
+  <img src="Z:/picture/008/save_picture_771971.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771963.jpg" />
+  <img src="Z:/picture/008/save_picture_771963.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771897.jpg" />
+  <img src="Z:/picture/008/save_picture_771897.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771895.jpg" />
+  <img src="Z:/picture/008/save_picture_771895.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771887.jpg" />
+  <img src="Z:/picture/008/save_picture_771887.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771810.jpg" />
+  <img src="Z:/picture/008/save_picture_771810.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771429.jpg" />
+  <img src="Z:/picture/008/save_picture_771429.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771356.jpg" />
+  <img src="Z:/picture/008/save_picture_771356.jpg" />
 </div>
 
 
@@ -646,34 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58561BA27CB88CD640D1E2DA1C7A05E08B82029F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886264   (770731) от 08.04.2015
-
-Алексей Онегин | Моя кухня. Лучшие рецепты (2009) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770731.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вы держите в руках (точнее, рассматриваете на экране) мою первую кулинарную книгу. В нее вошли пять десятков рецептов, которые наверняка не оставят равнодушным любого, кто увлечен кулинарией: так же, как одержим ею я.
-
-И поскольку я глубоко убежден, что время, проведенное на кухне, в первую очередь должно приносить радость, все блюда из этой книги готовятся быстро и без труда, так что моими рецептами может воспользоваться даже начинающая хозяйка." Алексей ОнегинЖанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68228239041CDB2D64122F600968E64E8950EF85
 ```
 
 https://mybot314.ru/tekegram_catalog/

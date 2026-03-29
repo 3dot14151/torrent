@@ -1,3 +1,84 @@
+###  Публикация: 796509   (679196) от 17.06.2014
+
+Эта замечательная жизнь / It's a Wonderful Life (1946) BDRip [Colorized]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679196.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества ангелы на небесах обсуждают Джорджа Бэйли, жителя небольшого городка, доведенного бесчисленными проблемами до мысли о самоубийстве. Джордж честный, отзывчивый, любящий муж и отец, владелец небольшой страховой компании всегда хотел уехать из родного города, чтобы повидать мир, но пришлось пожертвовать своей мечтой ради образования брата. Потеря родным (   Читать дальше...   )Производство: США, Liberty Films (II)Жанр: Фэнтези, драма, семейныйРежиссер: Фрэнк КапраАктеры: Джеймс Стюарт, Донна Рид, Лайонел Бэрримор, Томас Митчелл, Генри Треверс, Бьюла Бонди, Фрэнк Фэйлен, Уорд Бонд, Глория Грэм, Х.Б. Уорнер, Фрэнк Альбертсон, Тодд Карнс, Сэмьюэл С. Хайндс, Мэри Трин, Вирджиния Паттон, Чарльз Уильямс, Сара Эдвардс, Уильям ЭдмундсПеревод: Профессиональный многоголосый (Ru, Ukr)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3A67DBBC0E62442876B3C225BD7813878C3C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131634   (678582) от 20.05.2017
+
+Миллионеры / The Millionairess (1960) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпифания — избалованная наследница миллионного состояния, по воли отца, может выйти замуж только за того, кто сможет превратить 500 фунтов в 15000 фунтов стерлингов за короткое время.
+Её миллионы прельщают многих мужчин, но происходит случайная встреча с бедным индийским доктором, и миллионерша не может думать ни о ком другом.
+ Только есть два «но»: первое, доктор (   Читать дальше...   )Производство: Великобритания / Dimitri De Grunwald ProductionЖанр: Драма, Мелодрама, КомедияРежиссер: Энтони ЭсквитАктеры: Софи Лорен, Питер Селлерс, Аластер Сим, Витторио Де Сика, Деннис Прайс, Гари Рэймонд, Элфи Бэсс, Мириам Карлин, Ноэл Пёрселл, Вирджиния ВернонПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1893237A7BDCFD9459BE2C3EEBB11763CE827B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505684   (678507) от 10.06.2012
+
+Зардоз / Zardoz (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678507.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 2293 году человечество разделилось на две обособленные группировки. Элита живет в роскоши, комфорте и спокойствии под неусыпной охраной высокотехнологичных средств подавления внешней агрессии. Оставшаяся часть населения планеты прозябает в нищете и поклоняется злобному языческому божеству Зардозу.
+У бедняков есть свои лидеры, обладающие более совершенным оружием, (   Читать дальше...   )Жанр: фантастика, фэнтезиРежиссер: Джон БурменАктеры: Шон Коннери, Шарлотта Рэмплинг, Сара Кестелмен, Джон Элдертон, Сэлли Энн Ньютон, Ниалл Багги, Боско Хоган, Джессика Свифт, Барбре Даулинг, Кристофер Кэссон, Реджинальд Джармен, Дэйзи Бурман, Джон Бурмен, Кэтрин Бурмен, Телше Бурмен…Перевод: Профессиональный многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED672F4D352BF5E1F45671FB7FD77590226190A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027124   (678087) от 28.06.2016
 
 Такой красивый маленький пляж / Une si jolie petite plage (1948) DVB
@@ -6,7 +87,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678087.jpg" />
+  <img src="Z:/picture/008/save_picture_678087.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678080.jpg" />
+  <img src="Z:/picture/008/save_picture_678080.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677976.jpg" />
+  <img src="Z:/picture/008/save_picture_677976.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677138.jpg" />
+  <img src="Z:/picture/008/save_picture_677138.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676802.jpg" />
+  <img src="Z:/picture/008/save_picture_676802.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676776.jpg" />
+  <img src="Z:/picture/008/save_picture_676776.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676652.jpg" />
+  <img src="Z:/picture/008/save_picture_676652.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676409.jpg" />
+  <img src="Z:/picture/008/save_picture_676409.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676395.jpg" />
+  <img src="Z:/picture/008/save_picture_676395.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676258.jpg" />
+  <img src="Z:/picture/008/save_picture_676258.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675932.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674993.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674969.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674940.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674731.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674628.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674030.jpg" />
+  <img src="Z:/picture/008/save_picture_674030.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674007.jpg" />
+  <img src="Z:/picture/008/save_picture_674007.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672805.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672118.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672073.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671964.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671844.jpg" />
 </div>
 
 
@@ -596,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:183C08D6460684DF397B74A0E0D06521B76B5BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 78048   (671171) от 02.07.2010
-
-Фантазм  / Phantasm (1979) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_671171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцатилетний Майк, только что потерявший родителей, имел неосторожность оказаться на похоронах друга своего старшего брата, где стал свидетелем того, как по окончанию похорон Высокий Человек извлек гроб из свежей могилы и забрал с собой. Проследив за таинственным великаном, Майк обнаружил, что тот управляет некими летающими сферами и занимается тем, что оживляет (   Читать дальше...   )Жанр: ужасы, мистикаРежиссер: Дон Коскарелли /Don Coscarelli/Продолжительность: 01:24:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132317   (670775) от 24.05.2017
-
-Нежный проходимец / Tendre voyou (1966) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бельмондо играет хронического ловеласа и повесу, живущего охмурением богатых дам. Он, перепрыгивая из одной дамской постели в другую, оставляет их мужей в дураках, а часто и без денег…Производство: Франция, Италия / Criterion Productions, Fono Roma, Sud-Pacifique FilmsЖанр: КомедияРежиссер: Жан БекерАктеры: Жан-Поль Бельмондо, Надя Тиллер, Жан-Пьер Марьель, Роберт Морли, Женевьев Паж, Марсель Далио, Мишлин Дэкс, Филипп Нуаре, Мария Паком, Мишель Жирардон, Пьер Торнад, Милен Демонжо, Стефания СандреллиПеревод: Многоголосый закадровый, авторскийСубтитры: РусскиеПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AA19C56840BBEA7FD014BECEA1F5C517C0AB37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487401   (670420) от 14.03.2022
-
-Лицо со шрамом / Scarface (1983) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем - «Лицо со шрамом»...Производство: США / Universal PicturesЖанр: Драма, КриминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель СаласарПеревод: Профессиональный многоголосый (Позитив-Мультимедиа, Премьер Видео Фильм)Продолжительность: 02:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8546F5E5AC2806A54012D72E3621FFE260405D
 ```
 
 https://mybot314.ru/tekegram_catalog/

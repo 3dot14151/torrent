@@ -1,3 +1,165 @@
+###  Публикация: 1537572   (249974) от 17.03.2022
+
+Shade: Wrath Of Angels / Гнев Ангелов (2004) [Ru/En] (1.2) Repack Vasy@n
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shade: Wrath of Angels - это леденящая кровь история, полная интриг, сюрпризов и неожиданных сюжетных поворотов. Вам предстоит оказаться в мире, где все является не тем, чем кажется на первый взгляд. Приготовьтесь к непосредственному участию в извечной битве добра и зла и будьте готовы взвалить на свои плечи тяжкий груз ответственности – исход битвы зависит от вас (   Читать дальше...   )Тип издания: RepackРазработчик: Black Element SoftwareЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1530DC39B06803EE8FD00B050F0CB690BE4415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491933   (248104) от 05.05.2012
+
+Resident Evil: Operation Raccoon City [Multi8\+] (L) 2012 | SKIDROW
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil: Operation Raccoon City — классический шутер от третьего лица, рассчитанный на совместное прохождение. Действие игры разворачивается в хорошо знакомой — темной и жестокой — вселенной Resident Evil. Игроки станут участниками событий Resident Evil 2 и Resident Evil 3, однако на этот раз они освещаются с нового ракурса. Сражения будут происходить в разнообразных декорациях, противостоять придется не только вражеским отрядам, но также зомби и биоорганическому оружию (Bio-Organic Weapons — B.O.W’s). Это привнесет в игру элемент неожиданности, а также потребует быстро анализировать ситуацию и искать подход к каждому врагу.
+
+Сентябрь 1998 года. Злополучный город Раккун-Сити переживает страшные последствия заражения смертельно опасным Т-вирусом, который был создан в лаборатории корпорации Umbrella и выпущен в городскую систему водоснабжения. Чтобы скрыть преступление, Umbrella посылает элитный отряд наемников уничтожить улики, доказывающие ее причастность к происходящему и, конечно, всех очевидцев. Узнав об этом плане, правительство США, в свою очередь, командирует в Раккун-Сити подразделение спецназа с целью раздобыть доказательства распространения вирусной инфекции и виновности в этом Umbrella…
+
+(   Читать дальше...   )Тип издания: лицензияРазработчик: Slant Six GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Голландский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4D32F350B40DAA46EFBDCA37A32A281A37D230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492404   (248086) от 05.05.2012
+
+Orcs Must Die / Бей орков + 5 DLC [Ru] (RePack/r14) 2011 | Fenixx
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орки наступают! Крепите оборону! В вашем распоряжении все необходимое, чтобы рубить, сплющивать, взрывать и испепелять зеленых наглецов в массовом количестве: это и хитроумные ловушки, и смертоносные заклинания, и разнообразное оружие. Веселитесь от души!
+Основная цель стратегического экшена четко отражена в его названии: игрокам придется заняться масштабной ликвидацией зеленой заразы — орд орков, пытающихся прорваться в наш мир через порталы в крепостях. В распоряжении защитников цитаделей впечатляющий арсенал средств для расправы с агрессорами: это и хитроумные ловушки, и смертоносные заклинания и разнообразное оружие. Рубить, сплющивать, взрывать и испепелять армии орков предстоит на протяжении более чем двадцати миссий.
+Orcs Must Die! – веселая смесь таких жанров, как экшен, стратегия и «башенки». События игры развиваются в вымышленном фэнтезийном мире, а в качестве главного героя выступает рыцарь, способный использовать меч, лук и различные магические заклинания.Тип издания: RePackЖанр: Action / Strategy (Real-time) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978904F1F5160C4E630D73208CE3DE4C24B79812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833757   (247737) от 02.11.2025
+
+Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247737.jpg" />
+</div>
+
+
+###  Подробнее
+
+В качестве таинственного Хитмана, вы должны использовать скрытность и разрешение тактических проблем, чтобы войти, выпонить и выйти с задания с минимальными вниманием и максимальной эффективностью. За определенную цену вы получите доступ к самым изощренным устройствам, но от того, как вы их используете, зависит, уйдете ли вы как миллионер или уйдете навсегда.Тип издания: LicenseРазработчик: IO InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B623F901792936E77F503324DC172A2C0A4C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639748   (247595) от 14.06.2023
+
+Evil West (2022) [Ru/Multi] (0.48) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зло не дремлет… но истекает кровью. Зловещая угроза нависла над Американской землей. Вы как один из последних агентов сверхсекретной организации по отлову вампиров — последняя надежда человечества перед закоренелым ужасом, что появляется из тьмы.Тип издания: LicenseРазработчик: Flying Wild HogЖанр: Action, TPSЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A87453AF87D830403AA73DB705D52FEEF232436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641078   (247450) от 21.06.2023
+
+Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack DjDI
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247450.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Aliens: Dark Descent вам предстоит взять под командование отряд опытных колониальных морпехов, чтобы остановить распространение жутких ксеноморфов на луне Лета. Управляйте своими солдатами в реальном времени, ведя их в бой с небезызвестными ксеноморфами, вышедшими из подчинения оперативниками алчной корпорации «Вейланд-Ютани» и ордой ужасающих существ, прежде (   Читать дальше...   )Тип издания: RepackРазработчик: Tindalos InteractiveЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7265DF008529B4235FDFE54F555F2A00AFC7F4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570839   (247105) от 08.07.2023
 
 Thymesia (2022) [Ru/Multi] (21.24723) License GOG [Digital Deluxe Edition]
@@ -6,7 +168,7 @@ Thymesia (2022) [Ru/Multi] (21.24723) License GOG [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247105.jpg" />
+  <img src="Z:/picture/004/save_picture_247105.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Resident Evil 0 / biohazard 0 HD Remaster (2016) [Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246249.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233127.jpg" />
+  <img src="Z:/picture/005/save_picture_233127.jpg" />
 </div>
 
 
@@ -84,7 +246,7 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231513.jpg" />
+  <img src="Z:/picture/005/save_picture_231513.jpg" />
 </div>
 
 
@@ -110,7 +272,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230578.jpg" />
 </div>
 
 
@@ -136,7 +298,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) License GOG [Director’s 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229945.jpg" />
+  <img src="Z:/picture/005/save_picture_229945.jpg" />
 </div>
 
 
@@ -162,7 +324,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228367.jpg" />
+  <img src="Z:/picture/005/save_picture_228367.jpg" />
 </div>
 
 
@@ -188,7 +350,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228210.jpg" />
 </div>
 
 
@@ -214,7 +376,7 @@ Inversion (2012) [Ru] (1.0.1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226744.jpg" />
 </div>
 
 
@@ -240,7 +402,7 @@ Yakuza 0 (2018) [En/Ja] (1.0) License CPY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225556.jpg" />
+  <img src="Z:/picture/005/save_picture_225556.jpg" />
 </div>
 
 
@@ -266,7 +428,7 @@ Fear the Dark Unknown (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220471.jpg" />
+  <img src="Z:/picture/005/save_picture_220471.jpg" />
 </div>
 
 
@@ -292,7 +454,7 @@ ArcRunner (2023) [Ru/Multi] (1.1.0.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220014.jpg" />
+  <img src="Z:/picture/005/save_picture_220014.jpg" />
 </div>
 
 
@@ -318,7 +480,7 @@ Dark Void (2010) [Ru/En] (1.0) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218514.jpg" />
+  <img src="Z:/picture/005/save_picture_218514.jpg" />
 </div>
 
 
@@ -344,7 +506,7 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.1.90663/dlc) License CODEX [Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216053.jpg" />
 </div>
 
 
@@ -370,7 +532,7 @@ Oddworld Stranger's Wrath HD (2010) [Ru/Multi] (1.5) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215417.jpg" />
+  <img src="Z:/picture/005/save_picture_215417.jpg" />
 </div>
 
 
@@ -396,7 +558,7 @@ LEMURIA (2022) [Ru/Multi] (1.2.5/dlc) License DOGE
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214969.jpg" />
+  <img src="Z:/picture/005/save_picture_214969.jpg" />
 </div>
 
 
@@ -422,7 +584,7 @@ Mafia II (2) (2010) [Ru/En] (1.0/dlc) Lossless Repack R.G. Catalyst [Enhanced Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214849.jpg" />
+  <img src="Z:/picture/005/save_picture_214849.jpg" />
 </div>
 
 
@@ -448,7 +610,7 @@ Valakas Story (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213928.jpg" />
+  <img src="Z:/picture/005/save_picture_213928.jpg" />
 </div>
 
 
@@ -474,7 +636,7 @@ Blades of Time (2012) [Ru/Multi] (1.0.0/dlc) Repack Other s [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213902.jpg" />
+  <img src="Z:/picture/005/save_picture_213902.jpg" />
 </div>
 
 
@@ -500,7 +662,7 @@ Alien Breed: Impact (2010) [Ru/Multi] (126) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212878.jpg" />
+  <img src="Z:/picture/005/save_picture_212878.jpg" />
 </div>
 
 
@@ -511,162 +673,6 @@ Alien Breed Impact - это взрывной научно-фантастичес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AFB15723E8602EA409AB817A430BBA76E99C1B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561100   (212877) от 03.07.2022
-
-Alien Breed 2: Assault (2010) [Ru/Multi] (118.6) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alien Breed 2: Assault - вторая глава в серии игр Alien Breed, представляющая собой взрывной научно-фантастический аркадный шутер с эпическим сюжетом, полчищами высокоинтеллектуальных инопланетных врагов, мощным оружием, детализированным и насыщенным окружением, разработанным с использованием Unreal Engine 3.Тип издания: LicenseРазработчик: Team17 SoftwareЖанр: Action, Shooter, ArcadeЯзык субтитров: Русский (неофициальная локализация), Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский (неофициальная локализация), Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68018862E1069667340871E546A8BE2F1A176814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561099   (212875) от 03.07.2022
-
-Alien Breed 3: Descent (2010) [Ru/Multi] (5.11) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alien Breed 3: Descent - заключительная взрывная глава в серии игр Alien Breed. Это научно-фантастический аркадный шутер с эпическим сюжетом, полчищами высокоинтеллектуальных инопланетных врагов, мощным оружием и потрясающим окружением, разработанный с использованием Unreal Engine 3.Тип издания: LicenseРазработчик: Team17 SoftwareЖанр: Шутeр, Action, ФантаcтикаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617948CBEBAC2D4C84A975094D7951D952BE5AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831391   (212424) от 28.10.2025
-
-Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Wanterlude [Director's Cut]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на ПК вы сможете пройти весь путь Дзина Сакая и получить максимум впечатлений с полной режиссёрской версией игры «Призрак Цусимы». В конце XIII века Монгольская империя уничтожает целые народы в стремлении подчинить себе Восток. Остров Цусима - единственное, что разделяет основную территорию Японии и огромный флот монголов под командованием коварного и безжалостного (   Читать дальше...   )Тип издания: RepackРазработчик: Sucker Punch Productions, Nixxes SoftwareЖанр: Action, AdventureЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3ED9367D8509F9DBBE4B9582EB735CF0A4C8518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586496   (211293) от 27.10.2022
-
-Deer Avenger / Олень-мститель (1.0/2.0/3.0/4.0) (1998—2001) [En] License [Антология]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211293.jpg" />
-</div>
-
-
-###  Подробнее
-
-В The Incredible Machine: Even More Contraptions игровой процесс идентичен The Return of the Incredible Machine: Contraptions. Игра содержит 250 головоломок (хотя 50 обучающих головоломок идентичны тем, что были в предыдущей игре).Тип издания: LicenseРазработчик: Hypnotix, Inc.Жанр: Action (Shooter)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF0F026FB4E370F50EE8E0964D903B3BDB06098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567698   (211176) от 04.08.2022
-
-Kane & Lynch 2: Dog Days (2010) [Ru/Multi] (1.2/dlc) License GOG [Complete Edition]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грязные улочки Шанхая – отличное местечко, чтобы забыть о кровавом угаре. Десять баксов, девочка под боком, и ты король мира. Но когда приезжает старый друг, все это ни черта не значит. И страсть как охота посидеть, вспомнить былые деньки – но на горизонте новые проблемы. А вот решать их придется по старинке. Ведь когда подонки зажимают в угол, так и тянет достать (   Читать дальше...   )Тип издания: LicenseРазработчик: IO InteractiveЖанр: 3rd Person, Action, ShooterЯзык озвучки: Русский (отдельно), Английский, Французский, Испанский и другиеЯзык субтитров: Русский (отдельно), Английский, Французский, Испанский и другиеЯзык интерфейса: Русский (отдельно), Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200670039482D6F49EF97CD314622E4CD49E8599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567685   (211161) от 04.08.2022
-
-Drunken Fist 2: Zombie Hangover (2022) [Ru/Multi] (1.0) License TiNYiSO
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Drunken Fist 2: Zombie Hangover с ее кровищем и потерями конечностей, изображенными в беззаботном низкополигональном стиле, представляет собой причудливый взгляд на жанр «ужас выживания», в котором физика «тряпичной куклы» приводит к действиям, которые ни один трезвый игрок не воспринял бы всерьез. Пришло время осушить как можно больше бухла, найти жрачку, которая (   Читать дальше...   )Тип издания: LicenseРазработчик: DEKLAZONЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC5278F060EA35AFC689D38E8A94086CB7D2603
 ```
 
 https://mybot314.ru/tekegram_catalog/

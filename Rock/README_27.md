@@ -1,3 +1,32 @@
+###  Публикация: 1395188   (757268) от 09.07.2020
+
+Brennen Sloan - Brennen Sloan (2020) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can t Stop Me (03:36)
+ 02. You on My Mind (03:47)
+ 03. Where the People Don t Go (04:10)
+ 04. Not My Friends (03:03)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261CD7A743AF21DEB64D156801923660CA48007F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395153   (757261) от 09.07.2020
 
 Ars Pro Vita - Peace (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog.>
@@ -6,7 +35,7 @@ Ars Pro Vita - Peace (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog.>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757261.jpg" />
+  <img src="Z:/picture/008/save_picture_757261.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756963.jpg" />
+  <img src="Z:/picture/005/save_picture_756963.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Resonance - The Time Machine (1976) LP [MP3|320 Kbps] <Electronic, Rock, Funk-So
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756608.jpg" />
+  <img src="Z:/picture/008/save_picture_756608.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nocona - Los Dos (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755659.jpg" />
+  <img src="Z:/picture/005/save_picture_755659.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Shiver - Under Skin (2002) Remastered Deluxe Edition, 2019, Shiver [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755293.jpg" />
+  <img src="Z:/picture/008/save_picture_755293.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755090.jpg" />
+  <img src="Z:/picture/008/save_picture_755090.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755085.jpg" />
+  <img src="Z:/picture/008/save_picture_755085.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rick Parfitt (Status Quo) - Over And Out (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754773.jpg" />
+  <img src="Z:/picture/008/save_picture_754773.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Silver Scrolls - Music for Walks (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753831.jpg" />
+  <img src="Z:/picture/008/save_picture_753831.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Veer Union - Decade II: Rock & Acoustic (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753479.jpg" />
+  <img src="Z:/picture/008/save_picture_753479.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mallet - Dance With The Devil (1982) Luzifer Records, Vinyl Rip [MP3|192 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753067.jpg" />
+  <img src="Z:/picture/008/save_picture_753067.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Rock Morning Mixtape 2022 Explicit [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751549.jpg" />
+  <img src="Z:/picture/008/save_picture_751549.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Mallet - Everybody Needs Somebody (1990) TRC Tanit ReCords [MP3|160 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751366.jpg" />
+  <img src="Z:/picture/008/save_picture_751366.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Stone Diamond - Phoenix (2015) [MP3|320 кб/с]<Retro-Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750121.jpg" />
+  <img src="Z:/picture/008/save_picture_750121.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Rock Covers (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749318.jpg" />
+  <img src="Z:/picture/008/save_picture_749318.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ken Hensley - Rare and Timeless (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749313.jpg" />
+  <img src="Z:/picture/008/save_picture_749313.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Heidi Happy - Golden Heart (2014) [MP3|320 кб/с]<Pop Rock, Indie Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748888.jpg" />
+  <img src="Z:/picture/008/save_picture_748888.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Myles Kennedy - Year Of The Tiger (2018) [MP3|320 Kbps] <Rock, Acoustic>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747849.jpg" />
+  <img src="Z:/picture/008/save_picture_747849.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ National Head Band - Albert 1 (1971) Remastered, 2008, Esoteric [MP3|320 кб/с
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746911.jpg" />
+  <img src="Z:/picture/008/save_picture_746911.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745895.jpg" />
+  <img src="Z:/picture/008/save_picture_745895.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Roger Waters - Live In Rome July 14 2018 (2019) Bootleg [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745152.jpg" />
+  <img src="Z:/picture/008/save_picture_745152.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Rock Covers (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744620.jpg" />
+  <img src="Z:/picture/008/save_picture_744620.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ RebelHot - RebelHot (2016) [MP3|320 кб/с] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743946.jpg" />
+  <img src="Z:/picture/008/save_picture_743946.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Marty Balin - Balin (1981) [MP3|320 кб/с] <Soft Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743795.jpg" />
+  <img src="Z:/picture/008/save_picture_743795.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Total-Empty - Novel Horizons (2014) EP Авторская раздача [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743492.jpg" />
+  <img src="Z:/picture/008/save_picture_743492.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Total-Empty - Novel Horizons (2014) EP Авторская раздача [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92188DF8B5E74D58A40D1958225C8B2FF271EE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397126   (742741) от 18.07.2020
-
-Kinetic Element - Live From New York (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Song (Live) (19:22)
- 02. Into the Lair (Live) (09:00)
- 03. Chasing the Lesser Light (Live) (20:45)
- 04. Epistle (Live) (06:37)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE29AA8EEE034C074E2FC7B8E01830FCDB39EBE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

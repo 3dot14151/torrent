@@ -1,3 +1,83 @@
+###  Публикация: 903654   (657864) от 31.05.2015
+
+Карл Барт | Послание к Римлянам (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_657864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикация "Послания к Римлянам" Карла Барта на русском языке -знаменательное событие для российского богословия. Именно эта книга обозначила решительный разрыв с либеральным богословием XIX столетия - богословием Шлейермахера и Гарнака - и произвела переворот в богословии XX века. Действие "богословской революции" Барта ощущается до сих пор: (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702A65BCFB8D7C747892BF90DC2AE8D7CE98D737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139873   (657814) от 04.06.2017
+
+М. Г. Левин и др. (сост.) | Религиозные верования народов СССР [2 тома] (1931) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_657814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый сборник составлен главным образом научными сотрудниками Центрального Музея Народоведения (ЦМН), как для целей марксистского изучения происхождения религии и ее ранних ступеней, так и для задач социалистического строительства и неразрывно связанной с ним антирелигиозной пропаганды среди нацменьшинств РСФСР и в Союзных республиках. Одна из задач сборника (   Читать дальше...   )Жанр: История, политология, религиоведение, этнография, социология, антропология, археологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2D9B403F39019D7DE7C4E61846AA4FDB491FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903675   (656876) от 01.06.2015
+
+А. Б. Ранович | Происхождение христианских таинств (1931) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вступление:
+
+Религиозная идеология — надстройка, очень далеко отстоящая от базы производственных отношений, и когда эта база рушится, религиозная надстройка, вопреки законам архитектуры, продолжает еще долгое время существовать на новой базе и даже оказывать на нее известное давление. Поэтому в борьбе с религией недостаточно еще содействовать скорейшему исчезновению (   Читать дальше...   )Жанр: история, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE684C060D313FF7B07A5A9608DB70E2745EFDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226352   (655850) от 20.05.2018
 
 Е. Поселянин | Преподобный Серафим, Саровский Чудотворец (1908) [PDF, DJVU]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655850.jpg" />
+  <img src="Z:/picture/008/save_picture_655850.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655649.jpg" />
+  <img src="Z:/picture/008/save_picture_655649.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654879.jpg" />
+  <img src="Z:/picture/008/save_picture_654879.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654872.jpg" />
+  <img src="Z:/picture/008/save_picture_654872.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654773.jpg" />
+  <img src="Z:/picture/008/save_picture_654773.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654282.jpg" />
+  <img src="Z:/picture/008/save_picture_654282.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653936.jpg" />
+  <img src="Z:/picture/008/save_picture_653936.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653930.jpg" />
+  <img src="Z:/picture/008/save_picture_653930.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653875.jpg" />
+  <img src="Z:/picture/008/save_picture_653875.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653874.jpg" />
+  <img src="Z:/picture/008/save_picture_653874.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653528.jpg" />
+  <img src="Z:/picture/008/save_picture_653528.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653459.jpg" />
+  <img src="Z:/picture/008/save_picture_653459.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653433.jpg" />
+  <img src="Z:/picture/008/save_picture_653433.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653387.jpg" />
+  <img src="Z:/picture/008/save_picture_653387.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653205.jpg" />
+  <img src="Z:/picture/008/save_picture_653205.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653203.jpg" />
+  <img src="Z:/picture/008/save_picture_653203.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652555.jpg" />
+  <img src="Z:/picture/008/save_picture_652555.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652366.jpg" />
+  <img src="Z:/picture/008/save_picture_652366.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652362.jpg" />
+  <img src="Z:/picture/008/save_picture_652362.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652203.jpg" />
+  <img src="Z:/picture/008/save_picture_652203.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652200.jpg" />
+  <img src="Z:/picture/008/save_picture_652200.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650503.jpg" />
+  <img src="Z:/picture/008/save_picture_650503.jpg" />
 </div>
 
 
@@ -590,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650501.jpg" />
+  <img src="Z:/picture/008/save_picture_650501.jpg" />
 </div>
 
 
@@ -601,87 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B2614E06F86739EE497A95F1B0B82747954DA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141430   (650434) от 10.06.2017
-
-С. Милов (сост.) | Призывай непрестанно Бога. По творениям преподобного Исаака Сирина (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа представляет собой сборник изречений преподобного Исаака Сирина о молитве, взятых из его подвижнических слов. В своих творениях святой Исаак ясно показывает, что суть подвига и опора жизни христианина - молитва - устремление души к Богу, а в идеале - Богообщение. Молитва зажигает любовь и достигает в совершенном христианине безмерности, исполняя его (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8B8AB6155529E1B0C90675195D8DB5A602C23A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141428   (650430) от 10.06.2017
-
-Скиния (изд.) | Святой Пантелеимон великомученик и целитель (1996) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святой Пантелеимон великомученик и целитель. Его жизнь, мученическая кончина и чудотворения, бывшие после его кончины. Изложено по руководству Четьих-Миней Святителя Димитрия Ростовского.
-
-Святой Пантелеимон почитается как покровитель воинов и одновременно как всемилостивый целитель.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B347A0FC1F6B048FEDA231A848082FEA96E6CCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141502   (650429) от 10.06.2017
-
-Галина Калинина (сост.) | Загробная жизнь и бессмертие души. Свидетельства и факты (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650429.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Загробная жизнь и бессмертие души" - книга, в которой рассматриваются различные аспекты смерти и посмертного бытия человеческой души. С позиций Православия в книге объясняется вера в бессмертие души, рассказывается об обрядах, которыми сопровождает Церковь смерть человека, о том, как помочь своим умершим близким, чтобы облегчить их посмертное существование, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAA88EB0A67A2C697D0B7C2480B41C87B3B9639
 ```
 
 https://mybot314.ru/tekegram_catalog/

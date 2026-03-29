@@ -1,3 +1,119 @@
+###  Публикация: 1564561   (499593) от 19.07.2022
+
+Нейро - С обратной стороны (2015) Remastered, 2022 [MP3|320 Kbps] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро [00:03:00]
+02 - С обратной стороны [00:03:50]
+03 - Жажда крови [00:03:29]
+04 - Когда она... [00:04:36](   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CCE82A089C03467BEDA068C05617757A3BF2BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235145   (499579) от 10.09.2010
+
+Чичерина - 6 Альбомов,  3 Сингла, 2 Концерта, Сборник Ремиксов(2000-2010) [MP3|128-320 кб/с]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юлия Дмитриевна Чичерина - российская певица, автор и исполнительница песен в жанре поп-рок. Относится к волне «Уральского рока», наряду с Сансарой и Смысловыми галлюцинациями.
+
+Чичерина родилась в 1978 году в Свердловске (ныне Екатеринбург), РСФСР, СССР. Потомок наркома иностранных дел Георгия Чичерина. В детстве пела в детском хоре «Горошинки». Занималась рисованием, пыталась поступить в институт искусствоведения. Кратковременно играла на гитаре и барабанах в разных группах, потом поступила в музыкальное училище по классу эстрадного вокала. Подрабатывала расклейкой афиш.
+В 1997 основала свой музыкальный коллектив, в который, помимо Юлии, вошли Азат Мухаметов, Александр Бурый и Александр «DrOff» Александров. 1 июня 1997 года состоялось первое выступление Чичериной в клубе «J-22».Жанр: Pop-RockПродолжительность: 08:50:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935248   (499406) от 08.09.2015
+
+АукцЫон - Бодун (1991) 2CD Remastered /2015, Геометрия/ [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Самолёт
+02. Немой
+03. Пионер
+04. Боюсь(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A181D95B30FD55413760231F8849274B13D2CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564728   (498581) от 20.07.2022
+
+YARuGA - Вайга (2020) [MP3|320 Kbps] <Ritual, Dark Pagan Folk Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вайга [00:04:24]
+02 - Славление Триглава [00:03:59]
+03 - Обряд [00:04:56]
+04 - Ведьма [00:03:34](   Читать дальше...   )Жанр: Ritual, Dark Pagan Folk Metal, Female VocalПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59882D06ECF3CADD4BDBB59FDF0F6F0B948CB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564750   (498580) от 20.07.2022
 
 Матвеев Сад - Матвеев Сад (2022) [MP3|320 Kbps] <Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498580.jpg" />
+  <img src="Z:/picture/008/save_picture_498580.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498578.jpg" />
+  <img src="Z:/picture/008/save_picture_498578.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498195.jpg" />
+  <img src="Z:/picture/008/save_picture_498195.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ White Palms - Хейтспич (2022) [MP3|320 Kbps] <Post Punk, Gothic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497653.jpg" />
+  <img src="Z:/picture/008/save_picture_497653.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497425.jpg" />
+  <img src="Z:/picture/008/save_picture_497425.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497260.jpg" />
+  <img src="Z:/picture/008/save_picture_497260.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494104.jpg" />
+  <img src="Z:/picture/008/save_picture_494104.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492182.jpg" />
+  <img src="Z:/picture/008/save_picture_492182.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492017.jpg" />
+  <img src="Z:/picture/008/save_picture_492017.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491676.jpg" />
+  <img src="Z:/picture/008/save_picture_491676.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491310.jpg" />
+  <img src="Z:/picture/008/save_picture_491310.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490211.jpg" />
+  <img src="Z:/picture/008/save_picture_490211.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489962.jpg" />
+  <img src="Z:/picture/008/save_picture_489962.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487896.jpg" />
+  <img src="Z:/picture/008/save_picture_487896.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487784.jpg" />
+  <img src="Z:/picture/008/save_picture_487784.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487195.jpg" />
+  <img src="Z:/picture/008/save_picture_487195.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Otto Dix - Автократор (2020) [MP3|320 Kbps] <Darkwave, Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487119.jpg" />
+  <img src="Z:/picture/008/save_picture_487119.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486040.jpg" />
+  <img src="Z:/picture/008/save_picture_486040.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485805.jpg" />
+  <img src="Z:/picture/008/save_picture_485805.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485082.jpg" />
+  <img src="Z:/picture/008/save_picture_485082.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483854.jpg" />
+  <img src="Z:/picture/008/save_picture_483854.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483834.jpg" />
+  <img src="Z:/picture/008/save_picture_483834.jpg" />
 </div>
 
 
@@ -629,128 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:715ABCA77219152BBAB478EA8B04F77187EDD3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822126   (483410) от 16.09.2014
-
-Король и Шут - Лучшее (2013) 2CD [MP3|320 кб/с]<Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ели мясо мужики   (2:18)
-02.  Камнем по голове   (2:38)
-03.  Дурак и молния   (1:55)
-04.  Прыгну со скалы   (3:13)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 02:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC5D380CBEBC0160AC918CE106ED0510D7C6599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546298   (480019) от 12.09.2012
-
-Кино - Войско лет (2012) [MP3|320 кб/с]<Русский Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Сосны на морском берегу (5:17)
-02.  Вопрос (3:46)
-03.  Правила детских игр (инстр.) (4:22)
-04.  Подросток (3:45)
-05.  Раньше в твоих глазах... (2:23)
-06.  Blood Type (4:47)
-07.  Атаман (4:11)
-08.  Невесёлая песня (5:49)
-09.  Нам с тобой (4:49)
-10.  Времена меняются (инстр.) (3:15)(   Читать дальше...   )Жанр: Русский РокПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81094708AE7158071F5D3EF2FCD2BBC37F25C097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056719   (479399) от 26.09.2016
-
-Маша Кудрявцева и Кудри Бэнд - Художник (2014) Self-Released, 2016 [MP3|320 Kbps] <Art Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игрушки
-02. Уносит течением
-03. На фоне белом
-04. А может, всё совсем не так(   Читать дальше...   )Жанр: Art Pop, RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B2CEA7CF86564DB14C0F5974E02C1326AF2CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406076   (479272) от 01.09.2020
-
-Василий К. - В борьбе за это (Найти человека II) (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479272.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Найти человека (electro)
-2. Самое лучшее (instrumental)
-3. Тень Тимофея
-4. Элегия(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20FAF6579A728C4BA9281C5607F7538532B9A06
 ```
 
 https://mybot314.ru/tekegram_catalog/

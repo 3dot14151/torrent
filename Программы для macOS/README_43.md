@@ -1,3 +1,135 @@
+###  Публикация: 1507942   (798117) от 06.11.2021
+
+MKVtools 3.7.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798117.jpg" />
+</div>
+
+
+###  Подробнее
+
+MKVtools - Программа для создания и редактирования видео в формате MKV на вашем Mac. С её помощью вы сможете конвертировать в MKV видео из форматов MP4 и AVI. Вставляйте в ваши видео субтитры, разбивайте видео на несколько файлов, объединяйте их воедино, извлекайте видео или аудио дорожку из MKV видеозаписи, а так же многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 EmmGunnПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8264DDA2F325C606C905B46BCEF60D1C9CC77E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508183   (797991) от 07.11.2021
+
+Stockfolio - Stocks, Real-Time Stock Portfolio 1.8.1 fix [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stockfolio - это инвестиционное приложение для Mac, которое поможет повысить доходность ваших инвестиций, позволяя вам исследовать и отслеживать интересные акции и криптовалюты. Его очень легко настроить, и это лучший способ управлять своим инвестиционным портфелем и следить за ним.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: StockfolioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB4A785F7F82520645E1FBB9D2F2BDFBD725B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508170   (797953) от 07.11.2021
+
+ACDSee Photo Studio 7 v7.1.2020 fix [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ACDSee Photo Studio — одно из лучших решений для работы с графическими изображениями в среде Mac. Качественная обработка фотоснимков, оптимизация всех аспектов рабочего процесса, экономия времени, усилий и финансов пользователей — все это обеспечивает ACDSee Photo Studio.
+Интерфейс программы позволяет проводить удобную для работы настройку. Его ориентация (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2021Разработчик: © 2021 ACD Systems International Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACC00DA32D4212237D5BE83E1E0AB7A235CE4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385412   (797814) от 24.05.2020
+
+MacPilot 11 v11.1.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёгкое включение и отключение скрытых функций Mac OS X, оптимизация и ремонт вашей системы, выполнение множества рутинных процедур по обслуживанию системы путём простого нажатия на кнопку!
+Независимо от того, профессионал вы или начинающий пользователь, теперь вы сможете повысить производительность компьютера несколькими кликами мыши. В приложении предусмотрено выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.05.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0402CC67C81B7A2A41CDB18AAC0EDDF4770E2128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385329   (797805) от 24.05.2020
+
+AnyMP4 MP3 Converter for Mac 8.2.16 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797805.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 MP3 Converter может преобразовать почти все видео и аудио в MP3, AAC, AIFF, ALAC, WAV и M4A молниеносно и без потерь качества. С этим замечательным MP3 Music Converter App, пользователи могут конвертировать любые аудио файлы, как OGG, FLAC, AC3, и больше других популярных аудио форматов. Кроме того, она позволяет пользователям извлекать аудио файлы из самых (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7198C61E7E914FC5873C3AE56093EA3DE691D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508555   (797561) от 08.11.2021
 
 CrystalDiffract 6 v6.9.3 [En]
@@ -6,7 +138,7 @@ CrystalDiffract 6 v6.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797561.jpg" />
+  <img src="Z:/picture/008/save_picture_797561.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ QuickLens 2.8 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797560.jpg" />
+  <img src="Z:/picture/008/save_picture_797560.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ Batteries 2.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797548.jpg" />
+  <img src="Z:/picture/008/save_picture_797548.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ Wondershare PDF Converter Pro 5.0.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797533.jpg" />
+  <img src="Z:/picture/008/save_picture_797533.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ Coherence X 4.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797517.jpg" />
+  <img src="Z:/picture/008/save_picture_797517.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ Paste 3.0.10 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797326.jpg" />
+  <img src="Z:/picture/008/save_picture_797326.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ External Editors For Photos 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797009.jpg" />
+  <img src="Z:/picture/008/save_picture_797009.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ Caato Time Tracker Pro 1.1.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796928.jpg" />
+  <img src="Z:/picture/008/save_picture_796928.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ ToothFairy 2.7.4 fix [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796874.jpg" />
+  <img src="Z:/picture/008/save_picture_796874.jpg" />
 </div>
 
 
@@ -245,7 +377,7 @@ HitPaw Watermark Remover 1.2.1 fix [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796864.jpg" />
+  <img src="Z:/picture/008/save_picture_796864.jpg" />
 </div>
 
 
@@ -271,7 +403,7 @@ PD (Progressive Downloader) 5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796862.jpg" />
+  <img src="Z:/picture/008/save_picture_796862.jpg" />
 </div>
 
 
@@ -297,7 +429,7 @@ On1 Photo 10.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796841.jpg" />
+  <img src="Z:/picture/008/save_picture_796841.jpg" />
 </div>
 
 
@@ -323,7 +455,7 @@ Ableton Live Suite 11 v11.0.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796692.jpg" />
+  <img src="Z:/picture/008/save_picture_796692.jpg" />
 </div>
 
 
@@ -349,7 +481,7 @@ ColorSquid 1.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796321.jpg" />
+  <img src="Z:/picture/008/save_picture_796321.jpg" />
 </div>
 
 
@@ -375,7 +507,7 @@ Fantastical 2.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796317.jpg" />
+  <img src="Z:/picture/008/save_picture_796317.jpg" />
 </div>
 
 
@@ -404,7 +536,7 @@ Dropzone 3.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796309.jpg" />
+  <img src="Z:/picture/008/save_picture_796309.jpg" />
 </div>
 
 
@@ -431,7 +563,7 @@ Sip Pro 4.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796247.jpg" />
+  <img src="Z:/picture/008/save_picture_796247.jpg" />
 </div>
 
 
@@ -458,7 +590,7 @@ dBpoweramp Music Converter 17.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796241.jpg" />
+  <img src="Z:/picture/008/save_picture_796241.jpg" />
 </div>
 
 
@@ -484,7 +616,7 @@ Check Off- A Task Manager 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796063.jpg" />
+  <img src="Z:/picture/008/save_picture_796063.jpg" />
 </div>
 
 
@@ -510,7 +642,7 @@ FILTERiT 4.6.3 plug-in for Adobe Illustrator [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796039.jpg" />
+  <img src="Z:/picture/008/save_picture_796039.jpg" />
 </div>
 
 
@@ -538,7 +670,7 @@ Librarian Pro 5 v5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795986.jpg" />
+  <img src="Z:/picture/008/save_picture_795986.jpg" />
 </div>
 
 
@@ -549,140 +681,6 @@ Librarian Pro 5 v5.1.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D191D57C7CBDA07D31163AF6878052315BA8F088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011622   (795894) от 28.04.2016
-
-Xtream Path 1.6.3.2 plug-in for Adobe Illustrator [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795894.jpg" />
-</div>
-
-
-###  Подробнее
-
-CValley Xtream Path  - Данный плагин включает в себя 36 инструментов, фильтров и эффектов, дающих вам гибкость и четкость при редактировании траекторий, которые вам необходимы при использовании Adobe Illustrator.
-Если вы используете изо дня в день Adobe Illustrator, то наверняка делаете по-меньшей мере несколько редактирований траекторий. Редактирование траекторий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: CValley, Inc.Поддерживаемая ОС: OS XЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEE20E7052B4CB430C8B39A39FB4720CBD83B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385862   (795877) от 27.05.2020
-
-Aegisub 3.2.2 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кроссплатформенный редактор субтитров с открытым исходным кодом. Популярен среди фансаберов. Имеет расширенные возможности по созданию караоке. Включает в себя проверку орфографии и редактор переводов. Поддерживает в качестве субтитров SRT, ASS, SSA, SUB, XSS, PSB и форматированный TXT. Для тайминга в неё можно загрузить аудиофайлы в форматах WAV, MP3, OGG Vorbis, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 7.12.2014Разработчик: Rodrigo Braz Monteiro, Niels Martin Hansen, Thomas Goyne et al.Поддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4ADD5B3F076DDD71F93BFA6864D4AB7F2D80BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385983   (795839) от 27.05.2020
-
-Smart Shooter 4 v4.16 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Shooter - приложение для работы с цифровыми фотографиями для привязанной съемки, удаленного захвата и расширенного управления камерой.
-
-Smart Shooter позволяет вам полностью контролировать свою камеру с вашего Mac, предоставляя вам свободу исследовать и экспериментировать, чтобы помочь получить идеальную картину. Автоматическая загрузка и отображение означает, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2020Разработчик: Kuvacode OyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E6320EC49F41489ABA494B1530AA7D459CAE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509269   (795618) от 11.11.2021
-
-Faxbot 2.6.2 fix [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795618.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Faxbot вы можете удобно отправлять факсы на Mac через FRITZ!Box.
-Faxbot предлагает вам широкие возможности для интеграции факсимильной связи в ваш лучший рабочий процесс. Вы можете открывать файлы PDF, PNG или JPEG в Faxbot и отправлять их, создавать факсимильные документы из любого приложения, которое предлагает вам диалоговое окно печати, писать и форматировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2021Разработчик: HOsy - intelligent softwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AAC2B11889EC03DCD55F0B268C6F9FDF460EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509267   (795616) от 11.11.2021
-
-CDpedia 6.2.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это эпоха цифровых загрузок, но это не значит, что компакт-диски исчезли из нашей жизни. Позвольте CDpedia помочь вам организовать их, приложение ищет информацию о ваших альбомах в «Интернете» и интегрируется с iTunes, чтобы вы могли получить лучшее из обоих миров.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 BrujiПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A12CC3C08EE4E01CE7DA35A93768F5D411B092F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869728.jpg" />
+  <img src="Z:/picture/008/save_picture_869728.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867424.jpg" />
+  <img src="Z:/picture/008/save_picture_867424.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853624.jpg" />
+  <img src="Z:/picture/008/save_picture_853624.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853352.jpg" />
+  <img src="Z:/picture/008/save_picture_853352.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839767.jpg" />
+  <img src="Z:/picture/008/save_picture_839767.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834074.jpg" />
+  <img src="Z:/picture/008/save_picture_834074.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826161.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823199.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801386.jpg" />
+  <img src="Z:/picture/008/save_picture_801386.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796846.jpg" />
+  <img src="Z:/picture/008/save_picture_796846.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792056.jpg" />
+  <img src="Z:/picture/008/save_picture_792056.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784875.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784857.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784839.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779938.jpg" />
+  <img src="Z:/picture/008/save_picture_779938.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779490.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777600.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777431.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772669.jpg" />
+  <img src="Z:/picture/008/save_picture_772669.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771158.jpg" />
+  <img src="Z:/picture/008/save_picture_771158.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769552.jpg" />
+  <img src="Z:/picture/008/save_picture_769552.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767485.jpg" />
+  <img src="Z:/picture/008/save_picture_767485.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764316.jpg" />
+  <img src="Z:/picture/008/save_picture_764316.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ BBC. Пилоты бомбардировщиков / Bomber Boys (2012) HDTVRip 
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755434.jpg" />
+  <img src="Z:/picture/008/save_picture_755434.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748205.jpg" />
+  <img src="Z:/picture/008/save_picture_748205.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747050.jpg" />
+  <img src="Z:/picture/008/save_picture_747050.jpg" />
 </div>
 
 

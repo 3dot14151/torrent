@@ -1,3 +1,55 @@
+###  Публикация: 726720   (335716) от 26.11.2013
+
+Ленин в Польше (1965) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художественно - документальное повествование о пребывании Владимира Ильича Ленина в эмиграции в Швейцарии.Производство: МосфильмЖанр: Исторический, БиографическийРежиссер: Сергей ЮткевичАктеры: Анна Лисянская (...Н.К.Крупская), Максим Штраух (...Ленин), Антонина Павлычева (...мать Крупской), Тадеуш Фиевский (...секретарь), Андрей Петров, Эдмунд Феттинг, И. Кусмерска, Кшиштоф Кальчинский, З. Скавроньский, Г. Люткевич, К. Рудцкий, Владимир Акимов, Николай Каширский, В. Монахов, Геннадий (Гений) Юхтин, Л. Бенуа, А. Скупень, Я. Стемповский, Э. Ежевская, В. (   Читать дальше...   )Продолжительность: 01:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EBAB6AED9FC181D8FBA608C71F190A7239ECCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840384   (335633) от 12.11.2014
+
+Родимое пятно (1986) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая комедия по рассказу Кира Булычева "Родимые пятна". Беда случилась часов в шесть вечера, но сначала никто не сообразил, что же произошло. Инопланетный корабль в лучах вечернего солнца казался облаком, лишенным четких форм, переливчатым и совершенно безопасным. В тот момент в доме находились Марья Степановна, ее дочь Леокадия и внучка Сашенька, (   Читать дальше...   )Жанр: фантастика, комедия, короткометражкаРежиссер: Леонид ГоровецАктеры: Владимир Николенко, Мария Виноградова, Ирина Пулина, Анна Андриянова, Юрий Потемкин, Кир БулычевПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D9F31E21AAE9AB5DD7000CE88FBD2A324592A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419984   (335352) от 30.10.2020
 
 Первый этаж (1990) DVDRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335352.jpg" />
+  <img src="Z:/picture/008/save_picture_335352.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335350.jpg" />
+  <img src="Z:/picture/008/save_picture_335350.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334931.jpg" />
+  <img src="Z:/picture/008/save_picture_334931.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334823.jpg" />
+  <img src="Z:/picture/005/save_picture_334823.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334307.jpg" />
+  <img src="Z:/picture/008/save_picture_334307.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334238.jpg" />
+  <img src="Z:/picture/008/save_picture_334238.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334237.jpg" />
+  <img src="Z:/picture/008/save_picture_334237.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334216.jpg" />
+  <img src="Z:/picture/008/save_picture_334216.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334110.jpg" />
+  <img src="Z:/picture/008/save_picture_334110.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333747.jpg" />
+  <img src="Z:/picture/008/save_picture_333747.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333649.jpg" />
+  <img src="Z:/picture/008/save_picture_333649.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333434.jpg" />
+  <img src="Z:/picture/005/save_picture_333434.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332875.jpg" />
+  <img src="Z:/picture/008/save_picture_332875.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332485.jpg" />
+  <img src="Z:/picture/008/save_picture_332485.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332455.jpg" />
+  <img src="Z:/picture/008/save_picture_332455.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332451.jpg" />
+  <img src="Z:/picture/008/save_picture_332451.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332445.jpg" />
+  <img src="Z:/picture/008/save_picture_332445.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332373.jpg" />
+  <img src="Z:/picture/008/save_picture_332373.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332363.jpg" />
+  <img src="Z:/picture/008/save_picture_332363.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331114.jpg" />
+  <img src="Z:/picture/008/save_picture_331114.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331113.jpg" />
+  <img src="Z:/picture/008/save_picture_331113.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331035.jpg" />
+  <img src="Z:/picture/008/save_picture_331035.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330844.jpg" />
+  <img src="Z:/picture/005/save_picture_330844.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330138.jpg" />
+  <img src="Z:/picture/008/save_picture_330138.jpg" />
 </div>
 
 
@@ -627,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8289A399BF122718683535C283280B009A2B5BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706159   (330136) от 16.11.2014
-
-Восточный коридор (1966) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти сюрреалистическая фантазия о белорусском подполье в годы войны. Бросив тень предательства на одного из подпольщиков, фашисты пытаются расколоть единство арестованных. Прежде чем подпольщики окончательно убедятся в том, что предателей среди них все-таки нет, и будут готовы к побегу, они переживут неимоверно трудные дни совместного бытия.Производство: СССР/ БеларусьфильмЖанр: ВоенныйРежиссер: Валентин ВиноградовАктеры: Людмила Абрамова, Регимантас Адомайтис, Глеб Глебов, Борис Марков, Елена Рысина, Валентина Титова, Виктор Плют, Владимир Кашпур, Николай Барабанов, Бронюс БабкаускасПродолжительность: 01:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9A9AE2FC56439E9D4CE4C21E267F3B646560BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841507   (330068) от 16.11.2014
-
-Зося (1967) SATRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330068.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименного рассказа В. Богомолова.
-История любви советского офицера и польской девушки в последние дни войны. Батальон, где служат Михаил и Виктор, располагается на отдых в польской деревне. Друзья знакомятся с дочерью квартирной хозяйки. Михаил с первого взгляда влюбляется в Зосю, однако ему кажется, что ей нравится Виктор. И только когда батальон покидает (   Читать дальше...   )Производство: СССР, К/ст им. М. Горького, Творческое объединение «Камера» (Польша)Жанр: Военный, Драма, МелодрамаРежиссер: Михаил БогинАктеры: Поля Ракса, Веслава Мазуркевич, Барбара Баргеловска, Зигмунд Цинтель, Юрий Каморный, Николай Мерзликин, Георгий Бурков, Николай Хангажиев, Александр Граве, Пантелеймон Крымов, Юрий Сорокин, Иван Матвеев, Любовь Корнева, Юрий КорольчукПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20D06942D28A02A9063D36B417D751C4924E57A
 ```
 
 https://mybot314.ru/tekegram_catalog/

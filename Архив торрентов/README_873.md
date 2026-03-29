@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849290.jpg" />
+  <img src="Z:/picture/008/save_picture_849290.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 94.0.4606.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849285.jpg" />
+  <img src="Z:/picture/008/save_picture_849285.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CartoonArt - Cartoonizer 1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849275.jpg" />
+  <img src="Z:/picture/008/save_picture_849275.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ uTorrent 2.2.1.25110 [Multi/Rus] Stable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849229.jpg" />
+  <img src="Z:/picture/008/save_picture_849229.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_849223.jpg" />
+  <img src="Z:/picture/009/save_picture_849223.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Reason Studios Reason 12.2.1 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849192.jpg" />
+  <img src="Z:/picture/008/save_picture_849192.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Total Commander Ultima Prime 8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849184.jpg" />
+  <img src="Z:/picture/008/save_picture_849184.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AOMEI Partition Assistant Technician Edition 9.4.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849176.jpg" />
+  <img src="Z:/picture/008/save_picture_849176.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Jahmal (Триагрутрика TGK) - Тяжеловес (2013) [MP3|192 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849161.jpg" />
+  <img src="Z:/picture/008/save_picture_849161.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Slove. Прямо в сердце / Slove. Прямо в сердце (2011) DVD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_849133.jpg" />
+  <img src="Z:/picture/009/save_picture_849133.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_849125.jpg" />
+  <img src="Z:/picture/009/save_picture_849125.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849118.jpg" />
+  <img src="Z:/picture/008/save_picture_849118.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849117.jpg" />
+  <img src="Z:/picture/008/save_picture_849117.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849116.jpg" />
+  <img src="Z:/picture/008/save_picture_849116.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849112.jpg" />
+  <img src="Z:/picture/008/save_picture_849112.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849109.jpg" />
+  <img src="Z:/picture/008/save_picture_849109.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849048.jpg" />
+  <img src="Z:/picture/008/save_picture_849048.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849043.jpg" />
+  <img src="Z:/picture/008/save_picture_849043.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849000.jpg" />
+  <img src="Z:/picture/008/save_picture_849000.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Uplifting Only Radio Top 15-March-(2016) [MP3|320 кб/с] <Trance, Uplifti
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848999.jpg" />
+  <img src="Z:/picture/008/save_picture_848999.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Neonlight - Triple B (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848996.jpg" />
+  <img src="Z:/picture/008/save_picture_848996.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Posij - Hunger (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848992.jpg" />
+  <img src="Z:/picture/008/save_picture_848992.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Clearview 1.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848991.jpg" />
+  <img src="Z:/picture/008/save_picture_848991.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Drumsound & Bassline Smith - Cobra / Testify (2016) [MP3|320 кб/с] <Drum & Ba
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848989.jpg" />
+  <img src="Z:/picture/008/save_picture_848989.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ LowXY - IDENTITY (2016) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Ambient, Downtempo,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848985.jpg" />
+  <img src="Z:/picture/008/save_picture_848985.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Spectrasoul - Only You (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848982.jpg" />
+  <img src="Z:/picture/008/save_picture_848982.jpg" />
 </div>
 
 

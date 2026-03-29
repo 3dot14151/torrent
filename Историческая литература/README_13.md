@@ -1,3 +1,135 @@
+###  Публикация: 980346   (956386) от 29.01.2016
+
+А. М. Орехов | Первые марксисты в России. Петербургский "Рабочий союз" 1887-1893 гг. (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена крупнейшей социал-демократической организации периода распространения и упрочения марксизма в России - Петербургскому "Рабочему союзу" (группа Михаила Бруснева).
+
+В книге рассматривается история становления и деятельности "Союза", уточнены периодизация и хронологические рамки этой организации. На фоне развития революционного движения (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF441BBA258C081DCB2BFF3DA633B0E5C5D0C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980344   (956292) от 29.01.2016
+
+Л. С. Шатенштейн | Мултанское дело. 1892-1896 (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мултанское дело — процесс 1892 года над группой крестьян-удмуртов (в те времена их называли «вотяками») из села Старый Мултан Малмыжского уезда Вятской губернии. 10 жителей этого села обвинялись в ритуальном убийстве — человеческом жертвоприношении языческим богам. Характерный пример кровавого навета.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086DE176BC5B44FBDC62955F5DEF7EADD5631341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980338   (956283) от 29.01.2016
+
+А. Буздес | Гитлер угрожает Чехословакии (1938) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обстановка в Центральной и Юго-Восточной Европе становится все более напряженной. О положении Чехословакии и фашистской угрозе, нависшей над этой страной, ежедневно пишет вся печать. Кто с тревогой, а кто с сочувствием говорит об агрессии германского фашизма, непосредственно угрожающей Чехословакии. Нависшая над Чехословакией угроза агрессии со стороны фашистской (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AE6A8A61C4F2343F6435D9E7C3FEE47E94B9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748969   (956173) от 24.01.2014
+
+П. Аршинов | История Махновского движения (1918-1921 гг.) (1923) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приступая к этой книге, читателю, прежде всего, важно знать, с какого рода работой он имеет дело: с серьезным ли и добросовестным исследованием — или же с фантастическим и безответственным вымыслом? Может ли он отнестись к автору с доверием — по крайней мере, в области сообщаемых фактов, данных и материалов? Достаточно ли беспристрастен автор, и не искажает ли ом (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598F9594C54F3EF5D5AFE539109C65BBE7595DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980358   (956172) от 29.01.2016
+
+А. Востокова | Страна восходящего Солнца. От древности до наших дней (2005) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли понять страну, в которой удивительным образом сочетаются суперсовременные технологии производства и патриархальные традиции? В крупнейших торгово-промышленных центрах страны бурная деловая жизнь соседствует с молитвенным духом старинных храмов. Где, кроме Японии, вы найдете настоящую икебану, оригами, японскую чайную церемонию? Где мелкими шажками к вам (   Читать дальше...   )Жанр: История, политология, культурология, искусство, этика, религиоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3046BEE9AC58932AC71AB7AD63A7EC1F0E9E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979342   (956163) от 29.01.2016
 
 Г. М. Лившиц | Классовая борьба в Иудее и восстания против Рима (1957) [DJVU]
@@ -6,7 +138,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956163.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956100.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955515.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954767.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954051.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953252.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953046.jpg" />
 </div>
 
 
@@ -191,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952802.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952779.jpg" />
 </div>
 
 
@@ -244,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949717.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948514.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948441.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948428.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948305.jpg" />
 </div>
 
 
@@ -376,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947103.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947057.jpg" />
 </div>
 
 
@@ -428,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945865.jpg" />
 </div>
 
 
@@ -457,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945476.jpg" />
 </div>
 
 
@@ -484,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945467.jpg" />
 </div>
 
 
@@ -512,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945416.jpg" />
 </div>
 
 
@@ -540,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945391.jpg" />
 </div>
 
 
@@ -553,138 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1170060C9800E4E650023A9481BEB3B581A84E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983225   (945316) от 05.02.2016
-
-Николай Лузан | СМЕРШ. Один в поле воин (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор рассматривает период с ноября 1941 по октябрь 1943 г. и рассказывает о деятельности отечественной военной контрразведки, в частности особых отделов НКВД СССР - ГУКР Смерш НКО СССР.
-В основе книги лежит одна из наиболее значимых разведывательных операций советской контрразведки по агентурному проникновению в абвер. Она получила кодовое название "ЗЮД". (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D0C313B1E16FFE9B456D85DBC6787F8F3B7F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983089   (944881) от 05.02.2016
-
-Михаил Красуский | Древность малороссийского языка (1880) [PDF, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкое издание, брошюра, напечатанная в Одессе, в тогдашней Российской империи (1880 г.) о древности славянских языков, и украинского ("малороссийского") языка - в частности. Автор, поляк по национальности, малоизвестный российский и польский филолог. Судьба автора - неизвестна. Брошюра - осталась для потомков и имеет определенную научную ценность. В файле (   Читать дальше...   )Жанр: История, лингвистикаЯзык: Русский (дореформенный)Издательство: Типографія Г.Ульриха, Красный переулокъ, домъ № 3-йФормат: PDF, RTFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6DDE1E79C31A643C2D4CAC6E747DC1B98339A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751667   (944841) от 31.01.2014
-
-Олександер Барвинський | История Украины-Руси (1904) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно увлекательная, легко читающаяся книга по истории Украинского народа - как её представляли в начале XX века в России (на сегодня кое-что устарело).Жанр: Раритеты, историяФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733FE7B798506606345540AA8727CBC9B9970C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983293   (943793) от 06.02.2016
-
-Николай Лузан | Иллюзия. Цена – жизнь (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943793.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой книге Н. Лузана «Иллюзия. Цена — жизнь» впервые раскрываются многие тайные механизмы, которые в течение нескольких столетий, а также в последние годы двигали и продолжают двигать драматическими событиями на Южном и Северном Кавказе.
-Политики и спецслужбы России, США, Германии, Великобритании, Турции и Грузии вели и продолжают вести жестокую, непримиримую, (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046941FD6009487CB8DAAE6FFDE914FACE63D8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983290   (943789) от 06.02.2016
-
-Николай Лузан | Drang nach Osten. Натиск на Восток (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943789.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередной книге Н. Лузана «Drang nach Osten. Натиск на Восток» на основе обширного документального материала, полученного из различных источников, в том числе архивов отечественных спецслужб, представлена яркая и многоплановая картина эпохальных событий, относящихся как к недавнему прошлому — Второй мировой войне, так и к полной невероятного напряжения исторической (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E799080AF6CC1091C229809EB7773CEC73D175
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1619230   (28500) от 06.02.2025
+
+BBC: Саймон Шама - История Британии / BBC: Simon Schama A History Of Britain (2000-2002) DVDRip [H.264] (серии 1-15 из 15)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории в целом и, в частности, британской истории, с присущими ей захватывающими поворотами, необходимо уделить особое внимание, чтобы понять развитие всего мира. Подумайте об Истории Британии как о путешествии в самопознание, возможности увидеть себя в зеркале времен. Только зная, кем мы были, можно понять свое место в истории и даже понять свою нацию.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документальный, историяРежиссер: Джэми Мьюир, Лиз Хартфорд, Клер Беван, Мартина Холл, Йен БремнерУчастники: Майкл Кичен, Сэмюэл Уэст, Линдси Дункан, Дэвид ТрелфоллПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: серии ~00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1A07CAC8EB3DAC7A8777445318508B4E08DC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642102   (28475) от 06.02.2025
+
+Игры животных / Animals at Play (2019) WEB-DL [H.264/1080p] (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всём мире природы молодые животные проводят большую часть своего времени в игре. От кошек, обожающих погоню, до шимпанзе, умеющих решать головоломки. Новые исследования показывают, что игра лежит в основе почти всего, чему учатся животные. Игра - это гораздо больше, чем просто веселье. Она имеет фундаментальное значение для развития животного, а в некоторых случаях (   Читать дальше...   )Производство: Германия, Великобритания, США, ZDF, BBC, Smithsonian NetworksЖанр: документальныйРежиссер: Дэн Пероун, Лора УитлиУчастники: Гордон Бьюкенен, Гордон Бургхардт, Марлис Ван ВууренПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 2x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C586ECEDC752515868A3F0B116CBE147DA5C6FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777768   (28320) от 08.02.2025
+
+Электронные деньги: Тайна биткоина / Money Electric: The Bitcoin Mystery (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каллен Хобак исследует происхождение биткоина и его анонимного создателя Сатоши Накамото, рассматривая потенциал этой криптовалюты в мировой финансовой системе и то, кто может обладать огромной властью, если она станет мейнстримом.Производство: США / HBO Documentary, Hello Pictures, Hyrax FilmsЖанр: документальныйРежиссер: Каллен ХобакУчастники: Каллен Хобак, Samson Mow, Ricardo Salinas Pliego, Adam Back, Rachel-Rose O'Leary, Amir Taaki, Роджер Вер, Нуриэль Рубини, Peter Todd, Nick SzaboПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (SDH), испанские (SDH)Продолжительность: 01:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44283EFF8F9E32DFA43DF3155A4AD9F798AEA16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 10804   (27587) от 15.02.2025
+
+BBC: Космическая одиссея. Путешествие по галактике / BBC: Space Odyssey. Voyage to the Planets (2004) DVDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27587.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Космическая Одиссея" предлагает нам заглянуть в мир будущего. А, точнее, узнать, что увидят космонавты, впервые добравшись и высадившись на планеты нашей Солнечной системы. Наше "путешествие" условно займет промежуток в 6 лет, начиная со старта с планеты Земля и заканчивая возможной трагической встречей с одной из комет. За это время космонавты (   Читать дальше...   )Перевод: ПрофессиональныйПродолжительность: 5 x ~ 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217566   (27570) от 15.02.2025
 
 NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p-LQ] (серии 4 из 6)
@@ -6,7 +110,7 @@ NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27570.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26512.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21091.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21068.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19746.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19463.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19221.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19076.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16636.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16449.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14896.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14864.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14860.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14674.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Discovery: Шахты на Луне / Mining the Moon (Роб Бимер) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14598.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Discovery: Экоград / Ecopolis (2008) SATRip (серии 1-6 из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14591.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14581.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14548.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14525.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14504.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14372.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14369.jpg" />
 </div>
 
 
@@ -565,113 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B47065C41ABFE2122B8E99C6F1C30CABC961D111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351790   (14359) от 17.06.2025
-
-Можем ли мы создать искусственный интеллект? / Can We Build a Brain? (2018) HDTV [H.264/1080i] (Сезон 1, эпизод 4)
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14359.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме мы расскажем про искусственный интеллект. Машины способные к самообучению... Насколько они разумны? Сегодня они могут флиртовать, шутить, распознавать картинки. Огромный прогресс был достигнут очень быстро. И это улучшает нашу жизнь. Но не зайдёт ли дело слишком далеко? Если процесс выйдет из под контроля, то последствий не избежать. Можем ли мы создать (   Читать дальше...   )Производство: США, Little Bay Pictures, WGBH Educational Foundation, PBSЖанр: Документальный, познавательный, научно-популярныйРежиссер: Анна Ли СтраханУчастники: Мэтью Ботвиник, Родни Брукс, Лили ЧенгПеревод: Многоголосый закадровый, профессиональный (СВ-Дубль)Субтитры: АнглийскиеПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEA952EB3121D3AB1710C56F7EE666421F7285F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802408   (14315) от 17.06.2025
-
-NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14315.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Королевы» — это захватывающий документальный сериал, в котором дикая природа раскрывает свои матриархальные тайны. В каждой серии — судьбы могущественных самок: львиц, слоних, волчиц, медведиц, касаток и даже муравьиных маток.
-Сериал переносит зрителей в разные уголки планеты — от африканских саванн до гор Эфиопии и побережья Аляски. Мы видим, как разные виды борются (   Читать дальше...   )Производство: США | National Geographic, Wildstar FilmsЖанр: Документальный, природаРежиссер: Рэйчел Кинли, Алаира Маллалью, Виктория Бромли, Джессика ТомбсУчастники: Анджела БассеттПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C477DBC0BE75EDC5243B96160FCB954E6661FD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515441   (13943) от 21.06.2025
-
-NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезоны 1-7, серии 1-57 из 57)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Игры разума приглашает вас в путешествие в мир интерактивных игр и тестов, которые помогут вам понять, как устроен ваш мозг. По-настоящему умопомрачительные эксперименты протестируют то, как ваш мозг воспринимает окружающий мир. Исследуя внимание, страх, убеждение и принятие решений, Игры разума заставляет вас задуматься о собственном мозге. Ведь именно (   Читать дальше...   )Производство: США, Magical Elves Productions, National GeographicЖанр: документальный, научно-популярныйРежиссер: Михаэль НигроУчастники: Джейсон Сильва, Берт Томас Моррис, Аполлон РоббинсПеревод: одноголосый профессиональный (АРК ТВ)Субтитры: английскиеПродолжительность: серии x ~00:24:00, ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1111DF3A5BC221878D36A0C2D43FD40127AA805C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803056   (13925) от 21.06.2025
-
-NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-5 из 5) Сoldfilm
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13925.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Аутсайдеры» — это дикая природа без глянца и фильтров.
-Райан Рейнольдс приглашает зрителей в мир самых недооценённых, странных и часто отталкивающих существ планеты. Вместо львов, дельфинов и павлинов — медоеды, комары, носачи и креветки-убийцы. Они уродливы, смешны, иногда отвратительны, но именно благодаря своей странности они выживают, побеждают и удивляют.
-«Аутсайдеры» (   Читать дальше...   )Производство: США | Maximum Effort, Wildstar FilmsЖанр: Документальный, природаРежиссер: Том СтефенсУчастники: Райан РейнольдсПеревод: Одноголосый (Сoldfilm)Субтитры: Английские (full, SDH)Язык: Русский, английскийПродолжительность: ~00:37:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90E705ADC2EEB110D6CD70D732FC7DDF82728F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

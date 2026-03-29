@@ -1,3 +1,67 @@
+###  Публикация: 549632   (457417) от 22.09.2012
+
+Gipsy Kings - Greatest Hits (1994) /Japan/ [FLAC (tracks+cue)|Lossless]<Flamenco>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djobi Djoba
+02. Baila Me
+03. Bamboleo
+04. Pida Me La
+05. Bem, Bem, Maria
+06. Volare (Nel Blu Di Pinto Di Blu)
+07. Moorea
+08. A Mi Manera (Comme D'Habitude)
+09. Un Amor
+10. Galaxia(   Читать дальше...   )Жанр: FlamencoПродолжительность: 01:11:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059818   (457400) от 06.10.2016
+
+Irene Kelley - These Hills (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Carolina Wind (2:47)
+02 - Coal Train (3:08)
+03 - These Hills (3:33)
+04 - Johnson's Hardware Store (3:19)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385B02334D79B57FF80BB6E330CD8C4826AE41D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060304   (457250) от 06.10.2016
 
 Eguana - The Last Dragon (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
@@ -6,7 +70,7 @@ Eguana - The Last Dragon (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457250.jpg" />
+  <img src="Z:/picture/008/save_picture_457250.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ Matt English - Inspire Me (2018) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456986.jpg" />
+  <img src="Z:/picture/008/save_picture_456986.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Christopher Phillips - Piano Chill: Songs of Billy Joel (2017) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456802.jpg" />
+  <img src="Z:/picture/008/save_picture_456802.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ Tantric Sex Background Music Experts - Asian Tantric Yoga (2019) [MP3|320 Kbps] 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456439.jpg" />
+  <img src="Z:/picture/008/save_picture_456439.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ VA - В ритме танца. Вальс (2010) 3CD [FLAC|Lossless]<Instrumenta
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455480.jpg" />
+  <img src="Z:/picture/008/save_picture_455480.jpg" />
 </div>
 
 
@@ -150,7 +214,7 @@ Garmarna - сборник, 7 альбомов (1993-2016) [FLAC|Lossless|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455439.jpg" />
+  <img src="Z:/picture/008/save_picture_455439.jpg" />
 </div>
 
 
@@ -179,7 +243,7 @@ Jean-Michel Jarre - Planet Jarre (Deluxe Version) (2018) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454415.jpg" />
+  <img src="Z:/picture/008/save_picture_454415.jpg" />
 </div>
 
 
@@ -208,7 +272,7 @@ Nicklas Schmidt - Ronal Barbaren (2011) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453984.jpg" />
+  <img src="Z:/picture/008/save_picture_453984.jpg" />
 </div>
 
 
@@ -237,7 +301,7 @@ VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/�
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453911.jpg" />
+  <img src="Z:/picture/008/save_picture_453911.jpg" />
 </div>
 
 
@@ -266,7 +330,7 @@ Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453497.jpg" />
+  <img src="Z:/picture/008/save_picture_453497.jpg" />
 </div>
 
 
@@ -295,7 +359,7 @@ Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453494.jpg" />
+  <img src="Z:/picture/008/save_picture_453494.jpg" />
 </div>
 
 
@@ -324,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453178.jpg" />
+  <img src="Z:/picture/008/save_picture_453178.jpg" />
 </div>
 
 
@@ -353,7 +417,7 @@ Wardruna - Runaljod - Ragnarok (2016) [MP3|320 Kbps] <Dark Folk, Pagan Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452464.jpg" />
+  <img src="Z:/picture/008/save_picture_452464.jpg" />
 </div>
 
 
@@ -382,7 +446,7 @@ Adam Andrews - Soar (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451216.jpg" />
+  <img src="Z:/picture/008/save_picture_451216.jpg" />
 </div>
 
 
@@ -411,7 +475,7 @@ VA - Лучшие цыганские песни конца ХХ века - Ал�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451029.jpg" />
+  <img src="Z:/picture/008/save_picture_451029.jpg" />
 </div>
 
 
@@ -440,7 +504,7 @@ Dark Territory - Libera Me (2005) [FLAC|Lossless|image + .cue] <Gothic, Medieval
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450981.jpg" />
+  <img src="Z:/picture/008/save_picture_450981.jpg" />
 </div>
 
 
@@ -469,7 +533,7 @@ Prem Joshua - Breath Of Voavah (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450346.jpg" />
+  <img src="Z:/picture/008/save_picture_450346.jpg" />
 </div>
 
 
@@ -498,7 +562,7 @@ Ennio Morricone - Ennio Morricone Lounge Vol 2 (2017) [MP3|320 Kbps] <Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450215.jpg" />
+  <img src="Z:/picture/008/save_picture_450215.jpg" />
 </div>
 
 
@@ -527,7 +591,7 @@ Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450102.jpg" />
+  <img src="Z:/picture/008/save_picture_450102.jpg" />
 </div>
 
 
@@ -556,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450050.jpg" />
+  <img src="Z:/picture/008/save_picture_450050.jpg" />
 </div>
 
 
@@ -583,7 +647,7 @@ Contagion - Thrill Kill (1998) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449448.jpg" />
+  <img src="Z:/picture/008/save_picture_449448.jpg" />
 </div>
 
 
@@ -612,7 +676,7 @@ Christopher Phillips - Piano Chill: Songs of James Taylor (2017) [FLAC|Lossless|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449328.jpg" />
+  <img src="Z:/picture/008/save_picture_449328.jpg" />
 </div>
 
 
@@ -641,7 +705,7 @@ Tommy Tallarico - Evil Dead: Hail To The King (2000) [MP3|~190 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449289.jpg" />
+  <img src="Z:/picture/008/save_picture_449289.jpg" />
 </div>
 
 
@@ -670,7 +734,7 @@ Wuauquikuna - Original Edition (2020) [MP3|320 Kbps] <Native American, New age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449026.jpg" />
+  <img src="Z:/picture/008/save_picture_449026.jpg" />
 </div>
 
 
@@ -684,69 +748,6 @@ Wuauquikuna - Original Edition (2020) [MP3|320 Kbps] <Native American, New age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580B259BC8E1FF5AAE0A72147A92ACED09DEF24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827417   (448971) от 02.10.2014
-
-VA - В ритме танца. Медленный танец (2010) 3CD [FLAC|Lossless]<Instrumental, Easy Listening, Pop , Retro , Vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нравится ли вам танцевать под самые романтические мелодии на свете или вы предпочитаете наслаждаться любимыми песнями в спокойной обстановке , эта музыкальная коллекции Ридерз Дайджест во всех случаях придётся вам по вкусу и оправдает все ваши ожидания. Великие песни не устаревают… Эта музыка способна не только освежить ваши нежные воспоминания , но и создать настроение (   Читать дальше...   )CD1: Незабываемое
-CD2: Только Чувства
-CD3: Следующий Танец за МнойЖанр: Instrumental, Easy Listening, Pop , Retro , VocalПродолжительность: 03:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34AA3F4C5BA189776BE86C94B4C1173C9A70400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550703   (448753) от 26.09.2012
-
-VA - Back To Nature (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Sounds of nature>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448753.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:14) 01. Holei
-(4:59) 02. Moon river
-(4:42) 03. Amazing Grace
-(4:53) 04. Giving Thanks
-(5:14) 05. Mesa Verde
-(4:48) 06. Home on the Range
-(4:33) 07. Round the Cape
-(4:28) 08. Loch Lomond
-(5:43) 09. Reflection
-(5:19) 10. Mokihana Lullaby(   Читать дальше...   )Жанр: New age, Instrumental, Relax, Sounds of natureПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E7EC4C508F8206EBB8240C7A77AE4A8346728A
 ```
 
 https://mybot314.ru/tekegram_catalog/

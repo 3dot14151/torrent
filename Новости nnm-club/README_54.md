@@ -1,3 +1,113 @@
+###  Публикация: 998158   (869406) от 19.03.2016
+
+Цензура в СМИ. Дебаты Навального и Познера. (2016) HDTVRip [H.264] [MP4|960x540]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Политик Алексей Навальный и телеведущий Владимир Познер обсудили, чем руководствуются российские телеканалы, игнорируя те или иные новости, что такое замалчивание важных событий — цензура или выбор редактора.
+
+После трагедии у станции метро «Октябрьское поле», когда полиция задержала женщину в черном хиджабе, которая держала в руках окровавленную голову ребенка, (   Читать дальше...   )Телекомпания: ДождьЖанр: ТелепередачаПродолжительность: 1:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D54ED81DDAA4873D058121F02C6849EE4682BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107047   (869389) от 21.02.2017
+
+Пиратские зеркальные сайты заблокируют навсегда
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_869389.jpg" />
+</div>
+
+
+###  Подробнее
+
+В российском законодательстве впервые появится термин "производный сайт в сети Интернет". Будет прописан порядок внесудебного ограничения по доступу к таким сайтам, нелегально распространяющим музыку, фильмы и книги. Фотографии под запрет не попадают.Правительство разместило на официальном сайте распоряжение о внесении в Госдуму законопроекта, направленного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188128   (869275) от 01.04.2010
+
+[Игры] Сборник игр для сенсорных экранов WVGA (480х800) (Windows Mobile 6-6.5 )
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой сборник игр для кпк с экраном WVGA (480х800), состоящий из ~ 154 игр. Большинство игр проверено на работоспособность, все крякнуты, либо имеют кейген. Не забываем читать Read Me в папках с играми, где есть. …Жанр: 3D
+ RPG
+ Аркады
+ Бильярд(   Читать дальше...   )Язык интерфейса: английский(multi) и русский
+Разрешение экрана: 480х800
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998124   (869263) от 19.03.2016
+
+JetBrains PhpStorm 2016.1 Build #PS-145.258 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869263.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains PhpStorm представляет coбoй легкий и удобный редактор PHP, который максимально повысит вашу производительность. Редактор отлично понимает код, дает удобные подсказки, быструю навигацию и отслеживает ошибки "на лету". IDE всегда готова помочь Вам собрать ваш код, запустить юнит-тесты и обеспечить визуальную отладку. PhpStorm поддерживает PHP, CSS, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF27B226D133837F1C8BFD18E5CDE3F6B4AEF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998330   (869259) от 19.03.2016
 
 Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (19.03.2016) [Ru/En]
@@ -6,7 +116,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (19.03.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869259.jpg" />
+  <img src="Z:/picture/008/save_picture_869259.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869250.jpg" />
+  <img src="Z:/picture/008/save_picture_869250.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2019 SmokieBlahBlah 2021.09.19 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869207.jpg" />
+  <img src="Z:/picture/008/save_picture_869207.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869014.jpg" />
+  <img src="Z:/picture/008/save_picture_869014.jpg" />
 </div>
 
 
@@ -112,7 +222,7 @@ V-Ray 3.40.03 for 3ds Max 2015-2017 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869001.jpg" />
+  <img src="Z:/picture/008/save_picture_869001.jpg" />
 </div>
 
 
@@ -138,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868784.jpg" />
+  <img src="Z:/picture/008/save_picture_868784.jpg" />
 </div>
 
 
@@ -164,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868687.jpg" />
+  <img src="Z:/picture/008/save_picture_868687.jpg" />
 </div>
 
 
@@ -191,7 +301,7 @@ Apple и Google будут следить за пользователями дл
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_868519.jpg" />
+  <img src="Z:/picture/005/save_picture_868519.jpg" />
 </div>
 
 
@@ -217,7 +327,7 @@ Windows Vista Ultimate SP2 6.0.6002 by Burnoutman 2020 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868458.jpg" />
+  <img src="Z:/picture/008/save_picture_868458.jpg" />
 </div>
 
 
@@ -243,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_868398.jpg" />
+  <img src="Z:/picture/005/save_picture_868398.jpg" />
 </div>
 
 
@@ -269,7 +379,7 @@ Kaspersky Endpoint Security 10.2.4.674 sp1 (mr2) RePack by alex zed [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867403.jpg" />
+  <img src="Z:/picture/008/save_picture_867403.jpg" />
 </div>
 
 
@@ -295,7 +405,7 @@ Adobe Photoshop Lightroom 6.5 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867396.jpg" />
+  <img src="Z:/picture/008/save_picture_867396.jpg" />
 </div>
 
 
@@ -322,7 +432,7 @@ Skype v6.26.0.1313 Free / AD-Free и Mod 3.2.0.6673 v19.1 [Ru/Multi] - прог�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867393.jpg" />
+  <img src="Z:/picture/008/save_picture_867393.jpg" />
 </div>
 
 
@@ -348,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867389.jpg" />
+  <img src="Z:/picture/008/save_picture_867389.jpg" />
 </div>
 
 
@@ -374,7 +484,7 @@ BERSERK and the Band of the Hawk (2017) [En] (1.0.0.1) License HI2U
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867206.jpg" />
+  <img src="Z:/picture/008/save_picture_867206.jpg" />
 </div>
 
 
@@ -400,7 +510,7 @@ Call of Duty: Modern Warfare - Remastered (2016) [Ru/En] (1.7.83/u4) Rip R.G. Re
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867203.jpg" />
+  <img src="Z:/picture/008/save_picture_867203.jpg" />
 </div>
 
 
@@ -426,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866958.jpg" />
+  <img src="Z:/picture/008/save_picture_866958.jpg" />
 </div>
 
 
@@ -452,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866924.jpg" />
+  <img src="Z:/picture/008/save_picture_866924.jpg" />
 </div>
 
 
@@ -478,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866916.jpg" />
+  <img src="Z:/picture/008/save_picture_866916.jpg" />
 </div>
 
 
@@ -504,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866912.jpg" />
+  <img src="Z:/picture/008/save_picture_866912.jpg" />
 </div>
 
 
@@ -530,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_865945.jpg" />
+  <img src="Z:/picture/005/save_picture_865945.jpg" />
 </div>
 
 
@@ -556,7 +666,7 @@ NVIDIA GeForce Desktop Game Ready 472.12 WHQL + DCH [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865920.jpg" />
+  <img src="Z:/picture/008/save_picture_865920.jpg" />
 </div>
 
 
@@ -567,110 +677,6 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3EFB3A0ECAF22F1EDBA7D8080781F7CF1E349D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999233   (865717) от 21.03.2016
-
-Акула-Робот / Roboshark (2015) WEB-DL [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный день на улицах Сиэтла превращается в ужасное побоище, когда гигантская белая акула проглатывает инопланетный космический зонд… и на свет появляется Робоакула. Армия США охотится на нее, готовая обрушить на опасное создание всю свою боевую мощь, но благодаря социальным сетям честолюбивая ведущая новостей и ее технически подкованная дочь опережают всех в стремлении (   Читать дальше...   )Производство: Канада, БолгарияЖанр: Фантастика, боевик, триллер, комедияРежиссер: Джеффри Скотт ЛандоАктеры: Алексис Питерман, Мэтт Риппи, Найджел Барбер, Vanessa Grasse, Исаак Хэйг, Лаура Дэйл, Владо Мажанаов, Дерек Морс, Кикер РобинсонПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: Русские, английские (вшитые, отлючаемые)Продолжительность: 01:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A960F1014C13A7C2B78578FAC5E4CED1684C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998973   (865711) от 21.03.2016
-
-Разборка в Маниле / Showdown in Manila (2016) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частные детективы Ник и Чарли живут и работают в Маниле. Расследование убийства выводит их на след международного террориста по кличке «Призрак», лагерь которого находится в филиппинских джунглях. Не доверяя полиции, Ник и Чарли собирают небольшую команду смельчаков и отправляются в логово «Призрака», которое охраняет армия наемников-головорезов…Производство: США, Россия, Hollywood StormЖанр: БоевикРежиссер: Марк ДакаскосАктеры: Александр Невский, Каспер Ван Дин, Кэри-Хироюки Тагава, Марк Дакаскос, Маттиас Хьюз, Синтия Ротрок, Дон «Дракон» Уилсон, Оливье Грюнер, Джейк Макапагал, Иса КальсадоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC611CF44E6B12E2AA5A6E196F1A1466C18ED0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999107   (865532) от 21.03.2016
-
-Разборка в Маниле / Showdown in Manila (2016) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частные детективы Ник и Чарли живут и работают в Маниле. Расследование убийства выводит их на след международного террориста по кличке «Призрак», лагерь которого находится в филиппинских джунглях. Не доверяя полиции, Ник и Чарли собирают небольшую команду смельчаков и отправляются в логово «Призрака», которое охраняет армия наемников-головорезов…Производство: США, Россия, Hollywood StormЖанр: БоевикРежиссер: Марк ДакаскосАктеры: Александр Невский, Каспер Ван Дин, Кэри-Хироюки Тагава, Марк Дакаскос, Маттиас Хьюз, Синтия Ротрок, Дон «Дракон» Уилсон, Оливье Грюнер, Джейк Макапагал, Иса КальсадоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E01A501EEE48B197E532ECA7F2A28BB0BDC43E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968810   (865509) от 21.03.2016
-
-Колония / Colony (2016) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) (BaibaKo)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалёком будущем семья пытается спасти жителей оккупированного Лос-Анджелеса. Бывший агент ФБР Уилл Боумэн и его супруга Кейти пробуют вернуть сына. Уилл готов работать на новое правительство, тогда как многие в городе поддерживают повстанцев. Лидер режима Прокси Снайдер предлагает Уиллу сделку, которая изменит их жизнь и заставит семью пойти на большой риск.Производство: СШАЖанр: фантастикаРежиссер: Хуан Хосе КампанеллаАктеры: Джош Холлоуэй, Сара Уэйн Кэллис, Питер Джекобсон, Аманда Ригетти, Алекс Нюстадтер, Изабелла Крамп, Гонсало Менендес, Элли Уокер, Либэ Барер, Д.Дж. Бликенстафф и др.Перевод: профессиональный многоголосый закадровый - BaibaKoОзвучка: Ольга Мотрич, Татьяна Оболевич, Руслан Иванов и Олекса МельникФормат: MKVПродолжительность: ~ 00:50:00 серияРеклама: присутствуют голосовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9871082706D71F674D4F33334B873F9DBF500F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

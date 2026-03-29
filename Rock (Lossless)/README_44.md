@@ -1,3 +1,148 @@
+###  Публикация: 1282879   (793346) от 30.05.2020
+
+The Strokes - 6 Albums (2001 - 2020)  [FLAC|Lossless|tracks + .cue|image + .cue] <Indie Rock, Garage Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыку The Strokes очень легко описать двумя словами - это нью-йоркский рок-н-ролл. Участники группы родились и выросли в Нью-Йорке, на Манхэттене, что и позволило им стать квинтэссенцией всех нью-йоркских групп: это вся агрессивность серых тротуаров, упакованная в холодную надменность черной кожи. В их музыке можно услышать и угловатые гитарные перепалки Television, (   Читать дальше...   )Список альбомов:
+2001 - Is This It
+2003 - Room On Fire
+2006 - First Impressions Of EarthЖанр: Indie Rock, Garage Rock, AlternativeПродолжительность: 04:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C70E676A73BE801B8E248852D77DB5B4E8CFE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122876   (793172) от 06.04.2017
+
+Smokie - Greatest Hits vol.1 & vol.2 (2017) New Extended Version [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист Vol.1:
+01. Lay Back In The Arms of Someone
+02. Something's Been Making Me Blue
+03. If You Think You Know How To Love Me(   Читать дальше...   )Жанр: Pop Rock |Продолжительность: 02:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201B0425684EDD87372DB8BAEB93C1AD41814A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274502   (793009) от 07.01.2019
+
+Sheryl Crow - Everyday Is A Winding Road: The Collection (2013) [FLAC|Lossless|tracks + .cue] <Pop Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If It Makes You Happy (5:26)
+ 02. All I Wanna Do (4:34)
+ 03. A Change Would Do You Good (3:51)
+ 04. Everyday Is A Winding Road (4:18)(   Читать дальше...   )Жанр: Pop Rock, Country RockПродолжительность: 01:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34EC2AB4D73E882EC361ACD55F914F6DC391CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509856   (792933) от 14.11.2021
+
+Legacy Pilots - The Penrose Triangle (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Days
+02. Ghosts Of The Ocean
+03. Heaven Must Know
+04. Mad Kings(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D5E4EC807152E492CED08C665310523EB72AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201120   (792823) от 24.01.2018
+
+Somali Yacht Club - The Sea (2018) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock, Post-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vero
+02. Religion of Man
+03. Blood Leave a Trail
+04. Hydrophobia(   Читать дальше...   )Жанр: Stoner Rock, Psychedelic Rock, Post-metalПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC1063192C523E579AF162E99638A4F92AE1545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386919   (792694) от 31.05.2020
 
 The Pretty Things - S.F. Sorrow (1968) Reissue, 1998, Mono [FLAC|Lossless|tracks + .cue] <Rock>
@@ -6,7 +151,7 @@ The Pretty Things - S.F. Sorrow (1968) Reissue, 1998, Mono [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792694.jpg" />
+  <img src="Z:/picture/008/save_picture_792694.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Van Morrison - Astral Weeks (1968) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792669.jpg" />
+  <img src="Z:/picture/008/save_picture_792669.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The United States Of America - The United States Of Americ (1968) Reissue, 2004,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792643.jpg" />
+  <img src="Z:/picture/008/save_picture_792643.jpg" />
 </div>
 
 
@@ -94,7 +239,7 @@ Traffic - Traffic (1968) Limited Edition, Reissue 2008 [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792641.jpg" />
+  <img src="Z:/picture/008/save_picture_792641.jpg" />
 </div>
 
 
@@ -124,7 +269,7 @@ The Who - Maximum As & Bs: The Complete Singles (2017) 5CD Box Set [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792161.jpg" />
+  <img src="Z:/picture/008/save_picture_792161.jpg" />
 </div>
 
 
@@ -153,7 +298,7 @@ Dennis DeYoung (ex-Styx) - 26 East: vol.2 (2021) Japanese Edition [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792137.jpg" />
+  <img src="Z:/picture/008/save_picture_792137.jpg" />
 </div>
 
 
@@ -182,7 +327,7 @@ Santana - The Best Of Santana (1969,1990) 2CD /Sony Music 2012/[FLAC|Lossless]<C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791752.jpg" />
+  <img src="Z:/picture/008/save_picture_791752.jpg" />
 </div>
 
 
@@ -211,7 +356,7 @@ VA - Soft Rock Nuggets (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791698.jpg" />
+  <img src="Z:/picture/008/save_picture_791698.jpg" />
 </div>
 
 
@@ -240,7 +385,7 @@ Sniff'n'the Tears - Random Elements (2017) [FLAC|Lossless|image + .cue]<Pop-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791626.jpg" />
+  <img src="Z:/picture/008/save_picture_791626.jpg" />
 </div>
 
 
@@ -269,7 +414,7 @@ The Allman Brothers Band - The Best Of The Allman Brothers Band (20th Century Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791115.jpg" />
+  <img src="Z:/picture/008/save_picture_791115.jpg" />
 </div>
 
 
@@ -298,7 +443,7 @@ Robert Palmer - Don't Explain (1990) [FLAC|Lossless|tracks + .cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790805.jpg" />
+  <img src="Z:/picture/008/save_picture_790805.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ Bowes & Morley - 2 альбома (2002-2004) [FLAC|Lossless|image + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790482.jpg" />
+  <img src="Z:/picture/008/save_picture_790482.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ The Bangles - The Essential Bangles (2004) Compilation [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790445.jpg" />
+  <img src="Z:/picture/008/save_picture_790445.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ Daniel Gauthier - Altitude 16425 - Someone (2021) 2xCD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790405.jpg" />
+  <img src="Z:/picture/008/save_picture_790405.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ MC5 - Kick Out The Jams (1969) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790129.jpg" />
+  <img src="Z:/picture/008/save_picture_790129.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Gene Clark - White Light (1972) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790128.jpg" />
+  <img src="Z:/picture/008/save_picture_790128.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Girls Against Boys - Venus Luxure No.1 Baby (1994) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790127.jpg" />
+  <img src="Z:/picture/008/save_picture_790127.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ The Stooges - Fun House (1970) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790125.jpg" />
+  <img src="Z:/picture/008/save_picture_790125.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Jimi Hendrix - 3 Albums (1972 - 1975) [FLAC|Lossless|tracks + .cue]<Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789758.jpg" />
+  <img src="Z:/picture/008/save_picture_789758.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Janis Joplin - The Very Best  Of Janis Joplin (1988) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789752.jpg" />
+  <img src="Z:/picture/008/save_picture_789752.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Issa - Queen Of Broken Hearts (2021) Japanese Edition [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789733.jpg" />
+  <img src="Z:/picture/008/save_picture_789733.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Issa - Queen Of Broken Hearts (2021) Japanese Edition [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:611FED632388D59F378A01E07465B8C5C072FA65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510957   (789729) от 19.11.2021
-
-Robert Plant & Alison Krauss - Raise The Roof (2021) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quattro (World Drifts In)
-02. The Price Of Love
-03. Go Your Way
-04. Trouble With My Lover(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502EEA77C8EE2285D1A18D620AEE0A46875067DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510905   (789700) от 19.11.2021
-
-Sting - The Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rushing Water (03:18)
- 02. If It's Love (03:14)
- 03. The Book of Numbers (03:19)
- 04. Loving You (04:24)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AF7941BE1B730439CE8979E55B7D70427F15E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511138   (789650) от 19.11.2021
-
-Rod Stewart - The Tears Of Hercules (2021) [FLAC|Lossless|tracks + .cue] <Pop Rock, Melodic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Time
-02. Gabriella
-03. All My Days
-04. Some Kind Of Wonderful(   Читать дальше...   )Жанр: Pop Rock, Melodic Rock, Blues RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8EAAA880DF5DD722E53F47D1B6BBCA1FF02C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202552   (789521) от 30.01.2018
-
-Jerry Goodman - Violin Fantasy (2016) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Sandman (4:23)
- 02. In The Realm On The Netherworld (3:27)
- 03. Dream Weaver (Altermate Mix) with Nektar (3:36)
- 04. Baba O'Riley (Alternative Mix) (4:22)(   Читать дальше...   )Жанр: Instrumental Rock, Symphonic RockПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCAF63F9BE556012CC785077C1DFC5EEE000CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275905   (789490) от 13.01.2019
-
-Locate S,1 - Healing Contest (2018) [FLAC|Lossless|WEB-DL|tracks] <Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owe It 2 The Girls
-02. Manrico's Abyss
-03. 1 800 Capital C
-04. From The Nun(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F8F4DA4A92CFD1B840D82C785D96EF0B4DF604
 ```
 
 https://mybot314.ru/tekegram_catalog/

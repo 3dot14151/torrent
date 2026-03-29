@@ -6,7 +6,7 @@ Dead Drunk / Симулятор пьяного сисадмина / Пьяниц
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_574302.jpg" />
+  <img src="Z:/picture/005/save_picture_574302.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Inversion [Ru/En] (RePack/1.0.1) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574301.jpg" />
+  <img src="Z:/picture/008/save_picture_574301.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Chernobyl Terrorist Attack / Чернобыль: Зона отчуждения [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574294.jpg" />
+  <img src="Z:/picture/008/save_picture_574294.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574285.jpg" />
+  <img src="Z:/picture/008/save_picture_574285.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Crazy Machines [Wii] [PAL] [EN/DE] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_574212.jpg" />
+  <img src="Z:/picture/005/save_picture_574212.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Kenshi (2018) [Ru/Multi] (1.0.21) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573880.jpg" />
+  <img src="Z:/picture/008/save_picture_573880.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573867.jpg" />
+  <img src="Z:/picture/008/save_picture_573867.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Galactic Civilizations III (2015) [Ru/Multi] (1.81/dlc) License POSTMORTEM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573862.jpg" />
+  <img src="Z:/picture/008/save_picture_573862.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Inversion (RePack/1.0.1) [Ru] 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573201.jpg" />
+  <img src="Z:/picture/008/save_picture_573201.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Inversion (RePack) [Ru] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573056.jpg" />
+  <img src="Z:/picture/008/save_picture_573056.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Etherlords 2 (2003) [Ru/Multi] (2.0.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573020.jpg" />
+  <img src="Z:/picture/008/save_picture_573020.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Inversion (RePack) [Ru/En] 2012 l R.G. Revenats
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572915.jpg" />
+  <img src="Z:/picture/008/save_picture_572915.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Prototype 2 (RePack/1.0) [Ru] 2012 l DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572734.jpg" />
+  <img src="Z:/picture/008/save_picture_572734.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Inversion (RePack/5.48.0.0) [Ru] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572594.jpg" />
+  <img src="Z:/picture/008/save_picture_572594.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Prototype 2 (RePack) [Ru] 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572154.jpg" />
+  <img src="Z:/picture/008/save_picture_572154.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Prototype 2 (Steam-Rip/1.0) [Ru/En/Multi7] 2012 l R.G. Origins [Без табл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572150.jpg" />
+  <img src="Z:/picture/008/save_picture_572150.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Prototype 2 (L) [Mutli2/-] 2012 l FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572145.jpg" />
+  <img src="Z:/picture/008/save_picture_572145.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Prototype 2 (RePack/1.0) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572055.jpg" />
+  <img src="Z:/picture/008/save_picture_572055.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Prototype 2 (RePack/1.0) [Ru] 2012 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572048.jpg" />
+  <img src="Z:/picture/008/save_picture_572048.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Prototype 2 (Crack) [Multi12/+] 2012 | FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572030.jpg" />
+  <img src="Z:/picture/008/save_picture_572030.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Kingdoms of Amalur: Reckoning [Ru/En] (RePack/1.0.0.2) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572022.jpg" />
+  <img src="Z:/picture/008/save_picture_572022.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Prototype 2 (Lossless RePack) [Ru] 2012 l R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571999.jpg" />
+  <img src="Z:/picture/008/save_picture_571999.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.11.1-f4/dlc) Repack R.G. Catalyst [Deluxe 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571916.jpg" />
+  <img src="Z:/picture/008/save_picture_571916.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Dawn of Man (2019) [Ru/Multi] (1.1.1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571892.jpg" />
+  <img src="Z:/picture/008/save_picture_571892.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Stolen (RePack/1.0) [Ru/En] 2005 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570382.jpg" />
+  <img src="Z:/picture/008/save_picture_570382.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Minecraft (RePack/1.3 pre release) [Ru/Multi56] 2012 | YaKrevetko
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570168.jpg" />
+  <img src="Z:/picture/008/save_picture_570168.jpg" />
 </div>
 
 

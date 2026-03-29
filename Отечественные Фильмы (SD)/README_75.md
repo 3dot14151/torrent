@@ -1,3 +1,29 @@
+###  Публикация: 543502   (493723) от 06.09.2012
+
+Яр (2007) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яр — это место, которое людей держит, и с которым они не могут расстаться. Если уйдут — погибнут. Единственный, кто хочет вырваться из Яра, — наш главный герой Карев. Но уходя из Яра, он тем самым порывает со всеми традиционными ценностями, и невольно становится причиной гибели дорогих ему людей…Жанр: ДрамаРежиссер: Марина РазбежкинаАктеры: Михаил Евланов, Полина Филоненко, Сергей Гамов, Сергей Уманов. Сергей Ануфриев, Роман АртемьевПродолжительность: 01:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A133366FC807EF401BB598F4FC2B6694373DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 370589   (493551) от 12.09.2015
 
 Мертвое поле (2006) DVDRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493551.jpg" />
+  <img src="Z:/picture/008/save_picture_493551.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493253.jpg" />
+  <img src="Z:/picture/008/save_picture_493253.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493025.jpg" />
+  <img src="Z:/picture/008/save_picture_493025.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492875.jpg" />
+  <img src="Z:/picture/008/save_picture_492875.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491788.jpg" />
+  <img src="Z:/picture/008/save_picture_491788.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491209.jpg" />
+  <img src="Z:/picture/008/save_picture_491209.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489422.jpg" />
+  <img src="Z:/picture/008/save_picture_489422.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488970.jpg" />
+  <img src="Z:/picture/008/save_picture_488970.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488845.jpg" />
+  <img src="Z:/picture/008/save_picture_488845.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488059.jpg" />
+  <img src="Z:/picture/008/save_picture_488059.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487024.jpg" />
+  <img src="Z:/picture/008/save_picture_487024.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486790.jpg" />
+  <img src="Z:/picture/008/save_picture_486790.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486296.jpg" />
+  <img src="Z:/picture/008/save_picture_486296.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484893.jpg" />
+  <img src="Z:/picture/008/save_picture_484893.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484690.jpg" />
+  <img src="Z:/picture/008/save_picture_484690.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484149.jpg" />
+  <img src="Z:/picture/008/save_picture_484149.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483959.jpg" />
+  <img src="Z:/picture/008/save_picture_483959.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483485.jpg" />
+  <img src="Z:/picture/008/save_picture_483485.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483352.jpg" />
+  <img src="Z:/picture/008/save_picture_483352.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483183.jpg" />
+  <img src="Z:/picture/008/save_picture_483183.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482894.jpg" />
+  <img src="Z:/picture/008/save_picture_482894.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482582.jpg" />
+  <img src="Z:/picture/008/save_picture_482582.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482054.jpg" />
+  <img src="Z:/picture/008/save_picture_482054.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482032.jpg" />
+  <img src="Z:/picture/008/save_picture_482032.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481937.jpg" />
+  <img src="Z:/picture/008/save_picture_481937.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D494EE9236EE0D7767FA01BE6934F5A53707527B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319620   (480775) от 13.08.2019
-
-Овраг (2018) WEB-DLRip (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дом, где выросла Ксения, стоит около оврага. С каждым годом край все ближе, но старики Матвеевы – бабушка и дедушка девушки – наотрез отказываются съезжать. В горькую минуту Лина Андреевна признается: она все еще надеется, что сюда вернется ее дочь Оленька. Однако вскоре на дне оврага находят разбитый автомобиль с останками женщины. Выясняется, что Ольга Матвеева (   Читать дальше...   )Производство: Россия / ТвинЖанр: Криминал, мелодрамаРежиссер: Ольга ЛандАктеры: Юлия Кокрятская, Юрий Беляев, Наталья Гвоздикова, Илья Ермолов, Олег Гаас, Олег Филипчик, Андрей Стоянов, Владимир Фоков, Юрий Гумиров, Олег ЮдинСубтитры: ОтсутствуютПродолжительность: 00:46:52 + 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB871D9ADA11E96261C5461D4D4CCE405BD29F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

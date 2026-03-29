@@ -1,3 +1,32 @@
+###  Публикация: 1277579   (775090) от 22.01.2019
+
+Подиум - Любовь зла (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На прокат
+02. Любовь зла
+03. Непогода
+04. Качели(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CBC3980F28BDAAA042649A4FDBDA5554025FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015400   (774832) от 10.05.2016
 
 Город 312 - Обернись (2007) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -6,7 +35,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774832.jpg" />
+  <img src="Z:/picture/008/save_picture_774832.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774054.jpg" />
+  <img src="Z:/picture/008/save_picture_774054.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772825.jpg" />
+  <img src="Z:/picture/008/save_picture_772825.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Plazma - Indian Summer (2017) [FLAC|Lossless|tracks + .cue] <Pop, Europop, Synth
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768082.jpg" />
+  <img src="Z:/picture/008/save_picture_768082.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767684.jpg" />
+  <img src="Z:/picture/008/save_picture_767684.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766904.jpg" />
+  <img src="Z:/picture/008/save_picture_766904.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765348.jpg" />
+  <img src="Z:/picture/008/save_picture_765348.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760426.jpg" />
+  <img src="Z:/picture/005/save_picture_760426.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758726.jpg" />
+  <img src="Z:/picture/008/save_picture_758726.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758724.jpg" />
+  <img src="Z:/picture/008/save_picture_758724.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758558.jpg" />
+  <img src="Z:/picture/008/save_picture_758558.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748912.jpg" />
+  <img src="Z:/picture/008/save_picture_748912.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746005.jpg" />
+  <img src="Z:/picture/008/save_picture_746005.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ VA - Русское застолье (2001) [FLAC|Lossless|tracks + .cue]<Pop, F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739825.jpg" />
+  <img src="Z:/picture/008/save_picture_739825.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738468.jpg" />
+  <img src="Z:/picture/008/save_picture_738468.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737556.jpg" />
+  <img src="Z:/picture/008/save_picture_737556.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ VA - Дискотека Адмирал - Disco 80/90 по-новому! (2010) [
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732831.jpg" />
+  <img src="Z:/picture/008/save_picture_732831.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732396.jpg" />
+  <img src="Z:/picture/008/save_picture_732396.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728672.jpg" />
+  <img src="Z:/picture/008/save_picture_728672.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728661.jpg" />
+  <img src="Z:/picture/008/save_picture_728661.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726367.jpg" />
+  <img src="Z:/picture/008/save_picture_726367.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726250.jpg" />
+  <img src="Z:/picture/008/save_picture_726250.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726205.jpg" />
+  <img src="Z:/picture/008/save_picture_726205.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|ima
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724228.jpg" />
+  <img src="Z:/picture/008/save_picture_724228.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723838.jpg" />
+  <img src="Z:/picture/008/save_picture_723838.jpg" />
 </div>
 
 
@@ -708,35 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F74EC1652078A95AD5640252074D2911967B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130071   (718822) от 30.04.2017
-
-Gallina - Самолёты не летают (2001) [APE|Lossless|image + .cue] <Pop, Dance-Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Самолёты не летают
-02 - Белым снегом
-03 - Каменный цветок
-04 - Грустная звезда(   Читать дальше...   )Жанр: Pop, Dance-PopПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5753FF2AB9B8596EBBD854B2688367EB8A7288
 ```
 
 https://mybot314.ru/tekegram_catalog/

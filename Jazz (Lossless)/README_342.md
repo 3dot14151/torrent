@@ -1,3 +1,134 @@
+###  Публикация: 482073   (87975) от 12.04.2012
+
+The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01..  The Crusaders -  Stomp And Buck Dance  (5:50)
+02..  Down to the Bone -  Staten Island Groove  (6:46)
+03..  The Crusaders -  Creepin'  (6:57)
+04..  Down to the Bone -  The Zodiac  (7:49)
+05..  The Crusaders -  Soul Shadows  (6:21)
+06..  Down to the Bone -  Black Choice  (5:53)
+07..  The Crusaders -  Honky Tonk Struttin  (4:23)
+08..  Down to the Bone -  Gotta Get Back To You  (5:11)
+09..  The Crusaders -  Spiral  (6:10)
+10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477275   (87372) от 09.04.2012
+
+Игорь Бутман  - (2 альбома) (2007-2011) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87372.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: JazzПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480059   (87306) от 09.04.2012
+
+VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong - What a wonderful world    [0:02:21]
+02. Patti Page - Tennessee waltz    [0:03:02]
+03. Ben E King - Stand by me    [0:03:02]
+04. Patti Page - I went to your wedding    [0:03:26]
+05. Platters  - Smoke gets in your eyes    [0:02:45]
+06. Ray Peterson - Tell Laura I love her    [0:02:52]
+07. Freddy Fender - Before the next teardrop    [0:02:37]
+08. Skeeter Davis - End of the world    [0:02:42]
+09. Tremeloes - Silence is golden    [0:03:16]
+10. Four Aces - Three coins in the fountain    [0:03:09](   Читать дальше...   )2008Жанр: Jazz, OldiesПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476773   (85883) от 02.04.2012
+
+Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85883.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 427 Mass Ave. (6:17)
+2. Natural Beauties (7:19)
+3. Sweet Bread (6:03)
+4. How I Feel At This Given Moment (7:04)
+5. Eva (5:36)
+6. Señor Mouse (4:40)
+7. Emily (6:23)
+8. Katrina (7:38)
+9. One For Lenny (3:56)
+10. Intimate Dance (5:29)2011Жанр: JazzПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475692   (85467) от 31.03.2012
 
 Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
@@ -6,7 +137,7 @@ Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85467.jpg" />
 </div>
 
 
@@ -40,7 +171,7 @@ VA - The Electro Swing Revolution Vol.2 (2011) [APE|Lossless]<Electro Swing, Nu 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85463.jpg" />
 </div>
 
 
@@ -75,7 +206,7 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85269.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84093.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ Don Burrows & The Mell-O-Tones - Non-Stop Flight: Great Music of the Swing Era (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84063.jpg" />
 </div>
 
 
@@ -171,7 +302,7 @@ Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84029.jpg" />
 </div>
 
 
@@ -206,7 +337,7 @@ Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83835.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83677.jpg" />
 </div>
 
 
@@ -276,7 +407,7 @@ VA - RCA Victor: 80th Anniversary (1997)[9CD Box Set] [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82810.jpg" />
 </div>
 
 
@@ -304,7 +435,7 @@ Caravan Palace - Panic (2012) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82482.jpg" />
 </div>
 
 
@@ -339,7 +470,7 @@ Saori Yano - BeBop at The Savoy (2010) [FLAC|Lossless]<Jazz,  Be Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82414.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82382.jpg" />
 </div>
 
 
@@ -409,7 +540,7 @@ Aldo Romano - Inner Smile (2011) [FLAC|Lossless]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81990.jpg" />
 </div>
 
 
@@ -444,7 +575,7 @@ Hiromi Sano And King Orchestra - Aishu No Mood Sax Kayo (2007) [FLAC|Lossless]<S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81972.jpg" />
 </div>
 
 
@@ -479,7 +610,7 @@ VA - 100 Best Jazz Piano Standards (2006) 6 CD [APE|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81824.jpg" />
 </div>
 
 
@@ -514,7 +645,7 @@ Acoustic Mood Orchestra - Songs from the Heart of Love (2001) [FLAC|Lossless]<Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81585.jpg" />
 </div>
 
 
@@ -549,7 +680,7 @@ Katie Melua - Secret Symphony (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80146.jpg" />
 </div>
 
 
@@ -584,7 +715,7 @@ VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79123.jpg" />
 </div>
 
 
@@ -619,7 +750,7 @@ VA - Playboy Jazz - In a Smooth Groove (2004) [FLAC|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78078.jpg" />
 </div>
 
 
@@ -654,7 +785,7 @@ Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77495.jpg" />
 </div>
 
 
@@ -688,7 +819,7 @@ Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77475.jpg" />
 </div>
 
 
@@ -722,7 +853,7 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76463.jpg" />
 </div>
 
 
@@ -742,122 +873,6 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770620   (71960) от 02.01.2025
-
-Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Records [FLAC|Lossless|image + .cue] <Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust/Skylark [6:09]
-02. It Might as Well Be Spring [4:09]
-03. My Funny Valentine [4:37]
-04. Slowly/Laura [5:07](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8185206B8CF924DCC3BB2F74674ED4F1DCBBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771033   (71930) от 05.01.2025
-
-VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mongo Santamaria - Grass Roots [00:04:14]
-02. Freddie Hubbard - The Return of the Prodigal Son [00:05:42]
-03. Herbie Mann - Kidnappin' Lover [00:07:40]
-04. Eddie Harris - Time to Do Your Thing [00:06:08](   Читать дальше...   )Жанр: JazzПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05129CC36F14181EBD7F3C3BA162BA0DA5244E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771206   (71921) от 05.01.2025
-
-Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Death Took a Holiday - 6:36
-02 - Danny - 4:48
-03 - Sonny & Lorraine - 5:40
-04 - Downtown - 3:48(   Читать дальше...   )Жанр: Acid Jazz, Future JazzПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFB0425225DCD523FC49FDA788DE8E8F4BD6AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771569   (71860) от 07.01.2025
-
-VA - Pop International Hits (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bebo Best & MagnetiC4 - Creep (Acoustic Mix) (3:42)
-02.  Melania & Christian Lisi - Thank You (Bossa Version) (2:55)
-03.  KISS MY NECK - Wicked Game (5:18)
-04.  Black Mighty Wax & Silvia Donati - Loosing My Religion (4:41)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB566380E082D87BC6E2A1403922570C350122E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

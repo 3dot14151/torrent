@@ -1,3 +1,58 @@
+###  Публикация: 1152355   (566697) от 22.07.2017
+
+Марина Эльденберт | Поющая для дракона (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Огненное сердце Аронгары».
+
+В мире, где небо пронзают иглы небоскребов из огнеупорной стали, в мире, который когда-то был сожжен дотла, главенствуют иртханы — повелители драконов. Им подчиняются, их боготворят, им никогда и ни в чем не отказывают. Ну как никогда, я вот умудрилась отказать местру правящей семьи. Знать бы теперь, как сохранить работу, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21123813DABF28C5355070500A1F08451B095098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152456   (566693) от 22.07.2017
+
+Роберт Хайнлайн | Звездный десант [сборник] (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566693.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данный том вошли лучшие романы Грандмастера НФ Роберта Хайнлайна 50-х годов XX века.
+«Звездный десант» – роман, принесший писателю высшую фантастическую награду «Хьюго», – рассматривает проблему становления человека в тяжелых условиях войны, когда боль и смерть становятся платой за право решать за других. Романы «Гражданин Галактики» и «Дверь в лето» продолжают (   Читать дальше...   )Жанр: Зарубежная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165F4A65D28CCB492B45FCF94F3C8EC0D0313BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923082   (566361) от 30.07.2015
 
 Джейми Макгвайр | Аполлония (2015) [FB2, EPUB]
@@ -6,7 +61,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566361.jpg" />
+  <img src="Z:/picture/008/save_picture_566361.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566308.jpg" />
+  <img src="Z:/picture/008/save_picture_566308.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566127.jpg" />
+  <img src="Z:/picture/008/save_picture_566127.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566075.jpg" />
+  <img src="Z:/picture/008/save_picture_566075.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566009.jpg" />
+  <img src="Z:/picture/008/save_picture_566009.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565540.jpg" />
+  <img src="Z:/picture/008/save_picture_565540.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565186.jpg" />
+  <img src="Z:/picture/008/save_picture_565186.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565144.jpg" />
+  <img src="Z:/picture/008/save_picture_565144.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564996.jpg" />
+  <img src="Z:/picture/008/save_picture_564996.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564991.jpg" />
+  <img src="Z:/picture/008/save_picture_564991.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564904.jpg" />
+  <img src="Z:/picture/008/save_picture_564904.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564892.jpg" />
+  <img src="Z:/picture/008/save_picture_564892.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564817.jpg" />
+  <img src="Z:/picture/008/save_picture_564817.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564575.jpg" />
+  <img src="Z:/picture/008/save_picture_564575.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564496.jpg" />
+  <img src="Z:/picture/008/save_picture_564496.jpg" />
 </div>
 
 
@@ -416,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564437.jpg" />
+  <img src="Z:/picture/008/save_picture_564437.jpg" />
 </div>
 
 
@@ -442,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564429.jpg" />
+  <img src="Z:/picture/008/save_picture_564429.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564335.jpg" />
+  <img src="Z:/picture/008/save_picture_564335.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564330.jpg" />
+  <img src="Z:/picture/008/save_picture_564330.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563971.jpg" />
+  <img src="Z:/picture/008/save_picture_563971.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563939.jpg" />
+  <img src="Z:/picture/008/save_picture_563939.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563737.jpg" />
+  <img src="Z:/picture/008/save_picture_563737.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563490.jpg" />
+  <img src="Z:/picture/008/save_picture_563490.jpg" />
 </div>
 
 
@@ -635,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563424.jpg" />
+  <img src="Z:/picture/008/save_picture_563424.jpg" />
 </div>
 
 
@@ -648,62 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C303A7EDC4FA551706B109E72FB6F077EAE4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044920   (563253) от 21.08.2016
-
-Райчел Мид | Безмолвная (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каково это: не слышать голоса родных и близких?
-Жители горной деревушки давно глухи. Еще их предки потеряли слух, о чем сложены и записаны легенды. И художница Чжан Цзин – не исключение.
-Но если к глухоте все давно привыкли, то как справиться с надвигающейся слепотой? Из-за испарений ядовитых паров из шахт по добыче металла жители деревни начинают терять зрение. (   Читать дальше...   )Жанр: Зарубежное фэнтези, Ужасы и МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B9CEBCDE9DF4CFBB895945425A0395A43D7B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152739   (563155) от 24.07.2017
-
-Джеймс Лусено | Таркин (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из межавторского цикла «Звёздные войны».
-
-Отгремели жестокие Войны клонов, Дарт Сидиус провозгласил себя Императором Галактики, а его ученик, темный повелитель Дарт Вейдер, выследил и уничтожил практически всех джедаев, переживших страшный Приказ 66. Сенат на Корусанте подобострастно аплодирует каждому слову Императора, а население планет Ядра наслаждается (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7F2F12180A5E1E474D59D62EBB01F82E92F700
 ```
 
 https://mybot314.ru/tekegram_catalog/

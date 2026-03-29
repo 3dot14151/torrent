@@ -1,3 +1,107 @@
+###  Публикация: 1163430   (449913) от 05.09.2017
+
+Любовь – болезнь / The Big Sick (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_449913.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мере развития отношений влюбленной паре приходится столкнуться со своими культурными различиями.Производство: США, Apatow Productions, FilmNation Entertainment, Story InkЖанр: Комедия, МелодрамаРежиссер: Майкл ШоуолтерАктеры: Холли Хантер, Зои Казан, Кумэйл Нанджиани, Мэттью Кардаропле, Велла Ловелл, Рэй Романо, Адиль Ахтар, Бо Бёрнэм, Дэвид Алан Грир, Анупам Кхер ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Forced, Full)Продолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC55D7FAFAF39DD49517B002C37C9B61A7A1FA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247888   (448056) от 17.09.2018
+
+Мег: Монстр глубины / The Meg (2018) WEBRip [H.264/1080p-LQ] [EN / KOR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоководный батискаф, осуществляющий наблюдение в рамках международной программы по изучению подводной жизни, был атакован огромным существом, которое все считали давно вымершим. Неисправный аппарат теперь лежит на дне глубочайшей впадины Тихого океана… с оказавшимся в ловушке экипажем. Их время на исходе. Китайский океанограф-новатор, несмотря на протесты его (   Читать дальше...   )Производство: США, Китай / Apelles Entertainment,Di Bonaventura Pictures,Flagship Entertainment GroupЖанр: Боевик, Ужасы, Фантастика, ТриллерРежиссер: Джон ТёртлтаубАктеры: Джейсон Стэйтем, Ли Бинбин, Рэйн Уилсон, Клифф Кёртис, Уинстон Чао, Шуя Софиа Цай, Руби Роуз, Пейдж Кеннеди, Роберт Тейлор, Оулавюр Дарри ОулафссонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейские (вшитые, не отключаемые)Продолжительность: 01:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E741072145055989012F3C0A1CC5174DD6B7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943478   (447012) от 04.10.2015
+
+Шальное ранение / Blunt Force Trauma  (2015) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447012.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подвалах и сараях Южной Америки проводятся поединки стрелков. Молодой «дуэлянт» Джон мечтает о встрече с недостижимым чемпионом, в то время как его возлюбленная берет оружие, чтобы отомстить за убитого брата.Производство: Колумбия, ETA filmsЖанр: боевикРежиссер: Кен СэнзелАктеры: Райан Квантен, Фрида Пинто, Микки Рурк, Джон Мак, Джейсон Гибсон, Каролина Гомес, Рубен Самора, Стивен ГаларсеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3825C502B5723E3035E564361EB510DD797D397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322510   (446042) от 30.08.2019
+
+Боль и слава / Dolor y gloria (2019) BDRip [H.264/1080p] [SPA / RU, EN, SPA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_446042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый кинорежиссер на закате своего творческого пути оглядывается в прошлое, и на него обрушивается поток ярких воспоминаний. Нежные чувства к матери, любовь и расставание, поиски счастья и успеха. Всё это приводит творца к важным размышлениям о жизни и искусстве — боли и славе.Производство: Испания / Canal+, Ciné +, El DeseoЖанр: ДрамаРежиссер: Педро АльмодоварАктеры: Антонио Бандерас, Пенелопа Крус, Асьер Эчеандиа, Леонардо Сбаралья, Нора Навас, Хульета Серрано, Сесар Висенте, Асьер Флорес, Сесилия Рот, Суси СанчесПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: Русские (FOCS), английские, испанскиеПродолжительность: 01:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D1134803D54F46208C75B4B34ED30EF1D2A862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164022   (445821) от 07.09.2017
 
 Последний день учёбы / Last Day of School (2016) BDRemux [H.264/1080p] [EN]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445821.jpg" />
+  <img src="Z:/picture/008/save_picture_445821.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444647.jpg" />
+  <img src="Z:/picture/008/save_picture_444647.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443918.jpg" />
+  <img src="Z:/picture/008/save_picture_443918.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443916.jpg" />
+  <img src="Z:/picture/008/save_picture_443916.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443708.jpg" />
+  <img src="Z:/picture/008/save_picture_443708.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443490.jpg" />
+  <img src="Z:/picture/008/save_picture_443490.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441936.jpg" />
+  <img src="Z:/picture/008/save_picture_441936.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441121.jpg" />
+  <img src="Z:/picture/008/save_picture_441121.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440318.jpg" />
+  <img src="Z:/picture/008/save_picture_440318.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439341.jpg" />
+  <img src="Z:/picture/008/save_picture_439341.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439242.jpg" />
+  <img src="Z:/picture/008/save_picture_439242.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438842.jpg" />
+  <img src="Z:/picture/008/save_picture_438842.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436603.jpg" />
+  <img src="Z:/picture/008/save_picture_436603.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436405.jpg" />
+  <img src="Z:/picture/008/save_picture_436405.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434782.jpg" />
+  <img src="Z:/picture/008/save_picture_434782.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434319.jpg" />
+  <img src="Z:/picture/008/save_picture_434319.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434227.jpg" />
+  <img src="Z:/picture/008/save_picture_434227.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434027.jpg" />
+  <img src="Z:/picture/008/save_picture_434027.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEBRip [H.264/1080p-LQ] [EN / 
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432830.jpg" />
+  <img src="Z:/picture/008/save_picture_432830.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432154.jpg" />
+  <img src="Z:/picture/008/save_picture_432154.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432120.jpg" />
+  <img src="Z:/picture/008/save_picture_432120.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430742.jpg" />
+  <img src="Z:/picture/008/save_picture_430742.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2186C98B093027007ADB50BBD090A3F70FA44DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249695   (430392) от 25.09.2018
-
-Бои без правил / A Prayer Before Dawn  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой британец Билли Мур попадает в самую страшную тюрьму Таиланда, где проводятся смертельные бои без правил между самыми жестокими преступниками. Чтобы выжить, Билли должен принять в них участие и выиграть.Производство: Великобритания, Франция, Китай, Камбоджа, США / Senorita Films, Indochina Productions, HanWay Films, Canal+, Ciné+, Meridian Entertainment, Symbolic Exchange, Hurricane FilmsЖанр: боевик, драма, криминал, биография, спортРежиссер: Жан-Стефан СоверАктеры: Джо Коул, Порнчанок Мабкланг, Паня Йиммумрхай, Витхая Пансрингарм, Билли Мур, Николас Шейк, Сура Сирмалай, Сомлок Камсинг, Сакда Ниамхом, Комсан Полсан, Чалоемпорн СаватсукПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBBFA518109C280C31F96978CCD8DFBB3297219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249875   (430384) от 25.09.2018
-
-Дядя Дрю / Uncle Drew  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрю собирает баскетбольную команду, чтобы принять участие в местных соревнованиях.Производство: США / Creators League Studio, Pepsi Productions, Temple Hill EntertainmentЖанр: комедия, спортРежиссер: Чарльз Стоун IIIАктеры: Ник Кролл, Шакил О’Нил, Терренс Розмор, Эрика Эш, Уильям Уолкер, Кэрри Л. Уолронд, Лил Релл, Крис Веббер, Кристал Ли Браун, Джош Генри, Лиза Лесли, Бенжамин Уивер, Регги Миллер, Майя Бойд, Элайджа Эверетт, Кайри Ирвинг, Жамель ЧэмберсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F107362C7C7E50C1BC2F982DF7BB77817819E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063982   (429879) от 18.10.2016
-
-Очень плохие мамочки / Bad Moms  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальная мать, прекрасная жена, хорошая домохозяйка с успешной карьерой... Но стоит немного расслабиться, как тебе сразу напоминают о твоих обязанностях. Почему только мужчины имеют право развлекаться? Сколько же можно это терпеть?! Пора команде отчаянных мамочек пуститься во все тяжкие.Производство: СШАЖанр: комедияРежиссер: Джон Лукас , Скотт МурАктеры: Мила Кунис, Кэтрин Хан, Кристен Белл, Кристина Эпплгейт, Джада Пинкетт Смит, Энни Мумоло, Уна Лоуренс, Эмджей Энтони, Дэвид Уолтон, Кларк Дьюк, Джей Эрнандес, Уенделл ПирсПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32BA44FEB2A4A4FB2B3A620E04F74C2CADFD538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324196   (429463) от 07.09.2019
-
-Фанат / The Fanatic (2019) WEB-DLRip [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лось — самый большой поклонник кинозвезды Хантера Дунбара в мире. Он считает, что актёр обязательно захочет с ним дружить — главное, просто познакомиться. Но очередная попытка встретиться с кумиром заканчивается скандалом, и Лось идёт на крайние меры. Узнав у подруги-папарацци, где живёт Дунбар, он начинает полномасштабную слежку, которая в итоге приводит к страшным (   Читать дальше...   )Производство: США / Daniel Grodnik Productions, Fig Production Group, Media Finance CapitalЖанр: ТриллерРежиссер: Фред ДерстАктеры: Джон Траволта, Девон Сава, Ана Голджа, Джейк Гродник, Джеймс Пэкстон, Джош Ричман, Джессика Уберуага, Марта Гонсалес Лириано, Martin Peña, Kenneth FarmerПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Full)Продолжительность: 01:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96554F3F95A46611A90BEFFDBDF2A1AE873FEC74
 ```
 
 https://mybot314.ru/tekegram_catalog/

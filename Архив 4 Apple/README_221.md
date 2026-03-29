@@ -6,7 +6,7 @@ Script Debugger 7.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767859.jpg" />
+  <img src="Z:/picture/008/save_picture_767859.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ GrandTotal 5 v5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767858.jpg" />
+  <img src="Z:/picture/008/save_picture_767858.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ MWeb: Markdown writing,note taking,static blog Gen 3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767855.jpg" />
+  <img src="Z:/picture/008/save_picture_767855.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Macsome iTunes Converter 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767848.jpg" />
+  <img src="Z:/picture/008/save_picture_767848.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ AnyTrans for Android 6.5.0 (20190121) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767794.jpg" />
+  <img src="Z:/picture/008/save_picture_767794.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Meta 1.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767777.jpg" />
+  <img src="Z:/picture/008/save_picture_767777.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Outline 3.23.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767774.jpg" />
+  <img src="Z:/picture/008/save_picture_767774.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ WidsMob Montage 1.14 (1210) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767738.jpg" />
+  <img src="Z:/picture/008/save_picture_767738.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Pixelmator Pro 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767737.jpg" />
+  <img src="Z:/picture/008/save_picture_767737.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Sweet Home 3D 6.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767726.jpg" />
+  <img src="Z:/picture/008/save_picture_767726.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ MediaHuman Youtube Downloader 3.9.9.40 (build 2906) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767711.jpg" />
+  <img src="Z:/picture/008/save_picture_767711.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Contacts Journal CRM 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767693.jpg" />
+  <img src="Z:/picture/008/save_picture_767693.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Alfred 4 Powerpack 4.1 (build1165) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767685.jpg" />
+  <img src="Z:/picture/008/save_picture_767685.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ CleanMyMac 3.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767650.jpg" />
+  <img src="Z:/picture/008/save_picture_767650.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Alfred 3 Powerpack v3.8 (957) beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767393.jpg" />
+  <img src="Z:/picture/008/save_picture_767393.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ iFinance 4.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767364.jpg" />
+  <img src="Z:/picture/008/save_picture_767364.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ DMG Canvas 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767353.jpg" />
+  <img src="Z:/picture/008/save_picture_767353.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ MacFamilyTree 8.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767312.jpg" />
+  <img src="Z:/picture/008/save_picture_767312.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ InstaBro | Instagram Browser 5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767305.jpg" />
+  <img src="Z:/picture/008/save_picture_767305.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe Dreamweaver CC 2018 v18.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767296.jpg" />
+  <img src="Z:/picture/008/save_picture_767296.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Photo Mechanic 5.0 (build 19252) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767209.jpg" />
+  <img src="Z:/picture/008/save_picture_767209.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WebVideoHunter v5.8.1 (240) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767191.jpg" />
+  <img src="Z:/picture/008/save_picture_767191.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ SQLEditor v3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767088.jpg" />
+  <img src="Z:/picture/008/save_picture_767088.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Mac Blu-ray Player Pro 3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767043.jpg" />
+  <img src="Z:/picture/008/save_picture_767043.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Image Exif Editor 4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767031.jpg" />
+  <img src="Z:/picture/008/save_picture_767031.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Downcast 2.9.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767000.jpg" />
+  <img src="Z:/picture/008/save_picture_767000.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1046399   (553064) от 26.08.2016
+
+Organ Freeman - Organ Freeman (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_553064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go by Richard, Not by Dick (5:02)
+02. Verve (5:32)
+03. Only If You Mean It (6:18)
+04. Verve - Go by Richard, Not by Dick (6:02)(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F6C0E0FF71F8841ECC21A92B95FEDE5BA2824C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046146   (553039) от 26.08.2016
+
+Billy Cobham - Spectrum (1973) 1992, Remasters Series [WavPack|Lossless|image + .cue] <Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_553039.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Quadrant 4 (4:21)
+2. Searching For The Right Door/Spectrum (6:34)
+3. Anxiety/Taurian Matador (4:45)
+4. Stratus (9:49)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98969CC8AEEA1A1010837DF2DFAB08D79CFFE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046131   (552950) от 26.08.2016
+
+VA - The Girl from Ipanema: The Antonio Carlos Jobim Songbook (1995) [WavPack|Lossless|image + .cue] <Latin Jazz, Bossa Nova, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Getz and Joao Gilberto with Antonio Carlos Jobim - Garota De Ipanema (5:24)
+02. Sarah Vaughan - Corcovado (Quiet Nights Of Quiet Stars) (3:23)
+03. Billy Eckstine - Felicidade (2:47)
+04. Stan Getz and Luiz Bonfa with  Antonio Carlos Jobim - O Morro Nao Tem Vez (6:55)(   Читать дальше...   )Жанр: Latin Jazz, Bossa Nova, BopПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB04CFB12E203CEF409663C223C1FB636F01053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309036   (552945) от 17.06.2019
+
+Red Nichols - 1929 - 1930 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Knows [2:43]
+02. Smiles [3:23]
+03. Get Happy [3:09]
+04. Somebody To Love Me [3:23](   Читать дальше...   )Жанр: Swing, New Orleans JazzПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A250B7888F045611AB451E85104437485806151B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237128   (552523) от 23.07.2018
 
 Illinois Jacquet - The Illinois Jacquet Story: It's Wild (1944 - 1951) 2002, Proper Records [FLAC|Lossless|image + .cue] <Swing, Bop>
@@ -6,7 +122,7 @@ Illinois Jacquet - The Illinois Jacquet Story: It's Wild (1944 - 1951) 2002, Pro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552523.jpg" />
+  <img src="Z:/picture/008/save_picture_552523.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Christian McBride Trio - Out Here (2013) Mack Avenue [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552522.jpg" />
+  <img src="Z:/picture/008/save_picture_552522.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Brother Jack McDuff - The Best Of The Concord Years (1992 - 2001) 2CD, 2003, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552521.jpg" />
+  <img src="Z:/picture/008/save_picture_552521.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Rosemary Clooney - Demi-Centennial (1995) Concord Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552520.jpg" />
+  <img src="Z:/picture/008/save_picture_552520.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Christian McBride Big Band - Bringin' It (2017) Mack Avenue Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552236.jpg" />
+  <img src="Z:/picture/008/save_picture_552236.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Art Tatum - More Of The Greatest Piano Of Them All (1954, 1955) 2015, Poll Winne
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552204.jpg" />
+  <img src="Z:/picture/008/save_picture_552204.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Koktebel Jazz Festival - Хиты Джаз Коктебель (2012) Live [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551853.jpg" />
+  <img src="Z:/picture/008/save_picture_551853.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Gerry Gibbs and the Thrasher Band - Faces Unknown (2006) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551589.jpg" />
+  <img src="Z:/picture/008/save_picture_551589.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Fission - Waves // And // Flow (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551211.jpg" />
+  <img src="Z:/picture/008/save_picture_551211.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Ron Carter - The Puzzle (1986) SMS [FLAC|Lossless|image + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550634.jpg" />
+  <img src="Z:/picture/008/save_picture_550634.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jane Bunnett - Cuban Odyssey (2002) Blue Note [FLAC|Lossless|image + .cue] <Afro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550537.jpg" />
+  <img src="Z:/picture/008/save_picture_550537.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Gary Burton - Something's Coming! (1963) Remaster, 2015, Sony Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550459.jpg" />
+  <img src="Z:/picture/008/save_picture_550459.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Rein De Graaff Trio - Drifting On A Reed (1977) Remaster, 2015, Solid Records[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550458.jpg" />
+  <img src="Z:/picture/008/save_picture_550458.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Bobbi Humphrey - Flute-In (1971) 1982, Applause[APE|Lossless|image + .cue] <Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550457.jpg" />
+  <img src="Z:/picture/008/save_picture_550457.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Paul Hardcastle - Jazzmasters 7 (2014) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550407.jpg" />
+  <img src="Z:/picture/008/save_picture_550407.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jack McDuff - The Soulful Drums (1964, 1965) 2001, Prestige[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550368.jpg" />
+  <img src="Z:/picture/008/save_picture_550368.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Steve Hunt - From Your Heart And Your Soul (1997) [WavPack|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550364.jpg" />
+  <img src="Z:/picture/008/save_picture_550364.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Toots Thielemans - The Soul of Toots Thielemans (1959) 2010, FSR [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550363.jpg" />
+  <img src="Z:/picture/008/save_picture_550363.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Sadao Watanabe - Orange Express (1981) Remaster, 2016, Sony Music[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550361.jpg" />
+  <img src="Z:/picture/008/save_picture_550361.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550357.jpg" />
+  <img src="Z:/picture/008/save_picture_550357.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Malene Mortensen - You Belong To Me (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550265.jpg" />
+  <img src="Z:/picture/008/save_picture_550265.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ilonka - To Be Loved (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550261.jpg" />
+  <img src="Z:/picture/008/save_picture_550261.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ilonka - To Be Loved (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A918344141C67C91E7990A1BB8C73036FCE65B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047257   (550257) от 29.08.2016
-
-Bud Shank, Clare Fischer, Joe Pass - Brasamba! (1962) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brasamba [03:55]
- 02.Otem A Note [04:06]
- 03.Autumn Leaves [04:04]
- 04.Sambinha [03:41](   Читать дальше...   )Жанр: Bossa Nova, Cool, Latin JazzПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADAA94035FB7E05BC079BA0C215B07D82755F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047126   (550096) от 29.08.2016
-
-VA - The Very Best Jazz Instrumentals (3 CD Box Set) (2015) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quincy Jones & His Orchestra - Soul Bossa Nova (2:47)
-02. Duke Ellington - Take The "A" Train (2:56)
-03. Eddie Harris - Moon River (5:54)
-04. Jimmy Smith - Walk On The Wild Side (5:56)(   Читать дальше...   )Жанр: Instrumental JazzПродолжительность: 03:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EA00B3F90A1763746582572185797EBA25B0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309853   (549677) от 21.06.2019
-
-Peggy Lee - Pass Me By & Big Spender (1964, 1966) 2001, EMI [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sneakin’ Up on You [2:24]
-02. Pass Me By [2:26]
-03. I Wanna Be Around [2:30]
-04. Bewitched [2:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9A0D5FF060C8B507400F0AC9AF72F959D7EFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309924   (549536) от 21.06.2019
-
-Quantic - Atlantic Oscillations (2019) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divergence (03:30)
-02. Incendium (04:45)
-03. September Blues (05:06)
-04. You Used To Love Me feat. Denitia (06:18)(   Читать дальше...   )Жанр: Nu Jazz, Soul, FunkПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E11CDE7BAD31BC0AF7D1486A943EBF20BA9B399
 ```
 
 https://mybot314.ru/tekegram_catalog/

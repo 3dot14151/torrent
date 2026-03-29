@@ -6,7 +6,7 @@ Download Master 6.9.1.1517 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703965.jpg" />
+  <img src="Z:/picture/008/save_picture_703965.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ZD Soft Screen Recorder 9.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703964.jpg" />
+  <img src="Z:/picture/008/save_picture_703964.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stellar Drive Defrag 3.0.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703959.jpg" />
+  <img src="Z:/picture/008/save_picture_703959.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703957.jpg" />
+  <img src="Z:/picture/008/save_picture_703957.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Crazy Picture 1.0.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703954.jpg" />
+  <img src="Z:/picture/008/save_picture_703954.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Wise Folder Hider Free 3.35.144 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703950.jpg" />
+  <img src="Z:/picture/008/save_picture_703950.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ WinUtilities Professional Edition 13.0 Portable by FCPortables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703949.jpg" />
+  <img src="Z:/picture/008/save_picture_703949.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Outline 3.24.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703946.jpg" />
+  <img src="Z:/picture/008/save_picture_703946.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ ReadKit 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703943.jpg" />
+  <img src="Z:/picture/008/save_picture_703943.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703941.jpg" />
+  <img src="Z:/picture/008/save_picture_703941.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2.4[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703940.jpg" />
+  <img src="Z:/picture/008/save_picture_703940.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ SoundSource 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703933.jpg" />
+  <img src="Z:/picture/008/save_picture_703933.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ SiSoftware Sandra Pro Home/Business/Engineer Standard/Enterprise 2010.7.16.52 (S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703917.jpg" />
+  <img src="Z:/picture/005/save_picture_703917.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703902.jpg" />
+  <img src="Z:/picture/008/save_picture_703902.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ NetWorx 5.5.4 DC 14.06.2016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703840.jpg" />
+  <img src="Z:/picture/008/save_picture_703840.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ WinUtilities Pro 13.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703838.jpg" />
+  <img src="Z:/picture/008/save_picture_703838.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703836.jpg" />
+  <img src="Z:/picture/008/save_picture_703836.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ YouTube Video Downloader PRO 5.7 (20160610) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703833.jpg" />
+  <img src="Z:/picture/008/save_picture_703833.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Glarysoft Malware Hunter PRO 1.12.0.26 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703831.jpg" />
+  <img src="Z:/picture/008/save_picture_703831.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Norton 360 22.7.0.75 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703830.jpg" />
+  <img src="Z:/picture/008/save_picture_703830.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ The Clock - The Best World Clock 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703829.jpg" />
+  <img src="Z:/picture/008/save_picture_703829.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Art Text 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703827.jpg" />
+  <img src="Z:/picture/008/save_picture_703827.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Norton AntiVirus 22.7.0.75 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703825.jpg" />
+  <img src="Z:/picture/008/save_picture_703825.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ iA Writer 5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703810.jpg" />
+  <img src="Z:/picture/008/save_picture_703810.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Audio Playr 2.5  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703808.jpg" />
+  <img src="Z:/picture/008/save_picture_703808.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Navicat Premium 15.0.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703804.jpg" />
+  <img src="Z:/picture/008/save_picture_703804.jpg" />
 </div>
 
 

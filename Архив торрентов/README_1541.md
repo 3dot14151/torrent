@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701959.jpg" />
+  <img src="Z:/picture/008/save_picture_701959.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Amadeus Pro  2.8.4 (build 2527) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701958.jpg" />
+  <img src="Z:/picture/008/save_picture_701958.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wondershare DVD Creator 6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701955.jpg" />
+  <img src="Z:/picture/008/save_picture_701955.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701951.jpg" />
+  <img src="Z:/picture/008/save_picture_701951.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Xilisoft Video Converter Ultimate 7.8.17 Build 20160613 RePack (& Portable) by e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701946.jpg" />
+  <img src="Z:/picture/008/save_picture_701946.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The Foundry MODO 10.1v1 Build 117244 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701937.jpg" />
+  <img src="Z:/picture/008/save_picture_701937.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701923.jpg" />
+  <img src="Z:/picture/005/save_picture_701923.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701918.jpg" />
+  <img src="Z:/picture/005/save_picture_701918.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Opera 58.0.3135.90 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701880.jpg" />
+  <img src="Z:/picture/008/save_picture_701880.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AnyTrans for Android 7.0.0.20190307 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701876.jpg" />
+  <img src="Z:/picture/008/save_picture_701876.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Seasonality Core 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701853.jpg" />
+  <img src="Z:/picture/008/save_picture_701853.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ NeoFinder Business 7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701845.jpg" />
+  <img src="Z:/picture/008/save_picture_701845.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mountain Duck 4.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701844.jpg" />
+  <img src="Z:/picture/008/save_picture_701844.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ DriverEasy Professional 5.0.6.36122 RePack by D!akov [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701843.jpg" />
+  <img src="Z:/picture/008/save_picture_701843.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Freemake Video Converter 4.1.9.17 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701841.jpg" />
+  <img src="Z:/picture/008/save_picture_701841.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Movist 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701840.jpg" />
+  <img src="Z:/picture/008/save_picture_701840.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ DEVONthink Pro Office/Server 3 v3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701835.jpg" />
+  <img src="Z:/picture/008/save_picture_701835.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Dr. Folder 2.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701825.jpg" />
+  <img src="Z:/picture/008/save_picture_701825.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ FastStone Image Viewer 5.7 Final Corporate RePack (&Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701824.jpg" />
+  <img src="Z:/picture/008/save_picture_701824.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Adobe Flash Player 22.0.0.192 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701817.jpg" />
+  <img src="Z:/picture/008/save_picture_701817.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ AusLogics BoostSpeed 9.0.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701816.jpg" />
+  <img src="Z:/picture/008/save_picture_701816.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701795.jpg" />
+  <img src="Z:/picture/005/save_picture_701795.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Jazzy 80's (Huge Hits of the Eighties in a New Chillounge Sound) (2019) [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701768.jpg" />
+  <img src="Z:/picture/008/save_picture_701768.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ GoodSync Enterprise 10.9.26.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701765.jpg" />
+  <img src="Z:/picture/008/save_picture_701765.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Meta 1.9.2 (2358) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701763.jpg" />
+  <img src="Z:/picture/008/save_picture_701763.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701745.jpg" />
+  <img src="Z:/picture/008/save_picture_701745.jpg" />
 </div>
 
 

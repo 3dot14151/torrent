@@ -1,3 +1,30 @@
+###  Публикация: 910423   (622113) от 20.06.2015
+
+Валентин Стариков, Николай Михайловский | На боевом курсе (1952) [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622113.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказано о некоторых боевых походах, о том, как жили и сражались с врагом славные североморские подводники, проявляя незаурядную храбрость, мужество и высокое -воинское мастерство.
+Автор книги Герой Советского Союза, капитан I ранга Валентин Георгиевич Стариков в годы Отечественной войны командовал на Северном флоте подводной лодкой. Эта лодка совершила (   Читать дальше...   )Жанр: Военная проза, Историческая прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B41A66B131E03D48AD69B690ACAB3B44C13FB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910422   (622015) от 20.06.2015
 
 Филип Жисе | Искусство (2015) [FB2]
@@ -6,7 +33,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622015.jpg" />
+  <img src="Z:/picture/008/save_picture_622015.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622007.jpg" />
+  <img src="Z:/picture/008/save_picture_622007.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622005.jpg" />
+  <img src="Z:/picture/008/save_picture_622005.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621900.jpg" />
+  <img src="Z:/picture/008/save_picture_621900.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621896.jpg" />
+  <img src="Z:/picture/008/save_picture_621896.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621788.jpg" />
+  <img src="Z:/picture/008/save_picture_621788.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621782.jpg" />
+  <img src="Z:/picture/008/save_picture_621782.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621779.jpg" />
+  <img src="Z:/picture/008/save_picture_621779.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621478.jpg" />
+  <img src="Z:/picture/005/save_picture_621478.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621436.jpg" />
+  <img src="Z:/picture/008/save_picture_621436.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621258.jpg" />
+  <img src="Z:/picture/008/save_picture_621258.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621242.jpg" />
+  <img src="Z:/picture/008/save_picture_621242.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620980.jpg" />
+  <img src="Z:/picture/008/save_picture_620980.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620904.jpg" />
+  <img src="Z:/picture/008/save_picture_620904.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620898.jpg" />
+  <img src="Z:/picture/008/save_picture_620898.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620812.jpg" />
+  <img src="Z:/picture/008/save_picture_620812.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620797.jpg" />
+  <img src="Z:/picture/008/save_picture_620797.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620710.jpg" />
+  <img src="Z:/picture/008/save_picture_620710.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620665.jpg" />
+  <img src="Z:/picture/008/save_picture_620665.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620532.jpg" />
+  <img src="Z:/picture/008/save_picture_620532.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620530.jpg" />
+  <img src="Z:/picture/008/save_picture_620530.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ ProfIT | PHP-2 Профессиональное программирование
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620506.jpg" />
+  <img src="Z:/picture/008/save_picture_620506.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620282.jpg" />
+  <img src="Z:/picture/008/save_picture_620282.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620116.jpg" />
+  <img src="Z:/picture/008/save_picture_620116.jpg" />
 </div>
 
 
@@ -647,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619848.jpg" />
+  <img src="Z:/picture/008/save_picture_619848.jpg" />
 </div>
 
 
@@ -658,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA0652A5838E399CC957C456B59739C312464551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145590   (619825) от 26.06.2017
-
-Рейчел Уэллс | Алфи. Все кувырком (2016) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стэнли восемь лет, и он недавно переехал с родителями в другой город. У него пока нет друзей, в новой школе неуютно, а родители заняты только его старшей сестрой – талантливой пианисткой. Стэнли очень грустно и одиноко. Но тут на пороге его комнаты появляется Алфи – кот, который ни за что не допустит, чтобы его соседи грустили!Жанр: Современная зарубежная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D826BFB8AC9CECEAB9629B93ACA09179E96D725
 ```
 
 https://mybot314.ru/tekegram_catalog/

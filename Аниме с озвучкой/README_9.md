@@ -1,3 +1,29 @@
+###  Публикация: 837581   (935598) от 19.01.2015
+
+Shingeki no Bahamut: Genesis / Rage of Bahamut: Genesis / Ярость Бахамута: Истоки [2014, TV, 12 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то давно боги, демоны и люди объединились, чтобы одолеть и запечатать огненного дракона Бахамута, угрожавшего самому бытию магического мира Мистарции. Ключ от узилища древнего зверя был разделен на две части – одну на хранение приняли боги, другую – демоны. Дальше союз распался, и каждая раса тысячи лет занималась своими делами, понемногу враждуя с другими, пока в один прекрасный день обладатели Силы не узнали, что ключ богов был украден. Как следствие, печать Бахамута зашаталась, и все в мире пришло в (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Сато КэйитиПеревод: Teisoku & TimecraftФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85554F1819595432279477B74A08C9E802E774D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360807   (934325) от 04.03.2020
 
 Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
@@ -6,7 +32,7 @@ Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934325.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Bokusatsu Tenshi Dokuro-chan / Убойный ангел Докуро-тян (20
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934208.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Shinmai Maou no Testament Departures | The Testament of Sister New Devil Departu
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932868.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932867.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Новый За�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932866.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | А
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931385.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цвето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931384.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931380.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Motto To Love-Ru: Trouble | Motto To Loveru | Любовные Неприятн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931379.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ To Love-Ru: Trouble - Darkness | To Loveru: Darkness | Любовные Непр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931378.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931377.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Kappa no Coo to Natsuyasumi | Summer Days with Coo | Волшебное лето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929852.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ To Love-Ru: Trouble | To Loveru | Любовные Неприятности [TV-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928562.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Toki wo Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, Пок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926606.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ No Game No Life / Игра на выживание [2014, TV, 12 ep] BDRip Hi10p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926510.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Saenai Heroine no Sodatekata | Saekano: How to Raise a Boring Girlfriend | Ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924948.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из Другого М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923245.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Kokoro ga Sakebitagatterunda | The Anthem of the Heart | Сердцу Хочет
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923240.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923235.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Gakuen Mokushiroku: High School of the Dead | High School of the Dead | Школ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923218.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919920.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Madox-01 / Metal Skin Panic Madox 01 / Бешеный бык [1987, OVA, 1 эп.
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919867.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Dororo | Дороро [2019, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919745.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919742.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Nozoki Ana / A Peep Hole / Дыра / Щель [2013, OVA, 1ep] DVDrip rus (Anco
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919338.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Nozoki Ana / A Peep Hole / Дыра / Щель [2013, OVA, 1ep] DVDrip rus (Anco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F1BE0DBD1A3A2853EF91B0FD9C762FF1C8E984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920748   (918222) от 21.02.2016
-
-To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: Тьма 2 [ТВ-4] [2015, TV, 14] HDTVRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось бы, повышенное женское внимание будет приятно любому здоровому подростку, который, разумеется, питает хоть какой-то интерес к противоположному полу. Увы, не зря говорят, мол, «хорошенького понемножку» – некогда совсем обычный школьник Рито Юуки на собственном опыте убедился, что девушки приносят с собой проблемы. И что знакомство с инопланетянкой Лалой, (   Читать дальше...   )Производство: XebecЖанр: Комедия, Эччи, Фантастика, ГаремРежиссер: Оцуки АцусиПеревод: LeoDreaM, YakuSub Studio & eX_frostСубтитры: ASSФормат: MKVПродолжительность: 14 серий по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE05FF1C3BA812637F764D305373003A82AC633D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1201378   (754268) от 28.03.2018
+
+Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repack xatab [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754268.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Брюса Уэна продолжается в новой главе от Telltale Games. В этот раз ему предстоит защитить Готэм от Загадочника, который вернулся в город и совершает ужасные преступления. Джокер также не останется в стороне, ведь у него всегда припрятан козырь в рукаве.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1E7125AB68216ECC83E6E09D830B88352D38FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522747   (752807) от 10.01.2022
+
+Insomnis (2022) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Insomnis — это игра в жанре ужасов от первого лица, в которой основное внимание уделяется сюжету, исследованию и решению головоломок для продвижения по жуткой атмосфере. Игрок берёт на себя управление Джо Кастеветом, которому предстоит разобраться с таинственным поместьем.Тип издания: RepackРазработчик: Path GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104E9FD159184DB72B92B102E0CCCD8672EF9EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019091   (751631) от 22.05.2016
+
+Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_751631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в рискованное путешествие в игре Adam’s Venture: Origins! Действие игры разворачивается в бурные 20-е годы. Вместе с помощницей Эвелин вам предстоит исследовать древние развалины, искать таинственные артефакты, а самое главное - обойти злодейскую компанию Clairvaux. Adam’s Venture: Origins – новое прочтение серии игр об Адаме Вентуре.Тип издания: RepackРазработчик: Vertigo GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28EE896B7BF5001D9BA2D65284CE362CB0CF0DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356120   (751296) от 12.07.2020
 
 Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
@@ -6,7 +84,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751296.jpg" />
+  <img src="Z:/picture/008/save_picture_751296.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747474.jpg" />
+  <img src="Z:/picture/008/save_picture_747474.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.1.703) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747260.jpg" />
+  <img src="Z:/picture/008/save_picture_747260.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745770.jpg" />
+  <img src="Z:/picture/008/save_picture_745770.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.5.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745063.jpg" />
+  <img src="Z:/picture/008/save_picture_745063.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744882.jpg" />
+  <img src="Z:/picture/008/save_picture_744882.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Shadows on the Vatican Act I: Greed (2014) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744733.jpg" />
+  <img src="Z:/picture/008/save_picture_744733.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Shadows on the Vatican Act II: Wrath (2015) [Ru/Multi] (1.0 u2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744502.jpg" />
+  <img src="Z:/picture/008/save_picture_744502.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Bear With Me (2016) [Ru/Multi] (1.1.0) Repack alivedeath
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744442.jpg" />
+  <img src="Z:/picture/008/save_picture_744442.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Late Shift (2017) [Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740494.jpg" />
+  <img src="Z:/picture/008/save_picture_740494.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Paws and Soul (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740298.jpg" />
+  <img src="Z:/picture/008/save_picture_740298.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.7) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740295.jpg" />
+  <img src="Z:/picture/008/save_picture_740295.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738694.jpg" />
+  <img src="Z:/picture/008/save_picture_738694.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738666.jpg" />
+  <img src="Z:/picture/008/save_picture_738666.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738381.jpg" />
+  <img src="Z:/picture/008/save_picture_738381.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737752.jpg" />
+  <img src="Z:/picture/008/save_picture_737752.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Whispering Willows (2014) [Ru/Multi] (1.6.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736362.jpg" />
+  <img src="Z:/picture/008/save_picture_736362.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Creaks (2020) [Ru/Multi] (1.0) License GOG [Collector's Edition] (обновля
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735955.jpg" />
+  <img src="Z:/picture/008/save_picture_735955.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Life is Strange: Remastered Collection (2022) [Ru/Multi] (2.0.392.645158/dlc) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733473.jpg" />
+  <img src="Z:/picture/008/save_picture_733473.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733299.jpg" />
+  <img src="Z:/picture/008/save_picture_733299.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732307.jpg" />
+  <img src="Z:/picture/008/save_picture_732307.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Tiny Knight (2016) [En] (1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731271.jpg" />
+  <img src="Z:/picture/008/save_picture_731271.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730509.jpg" />
+  <img src="Z:/picture/008/save_picture_730509.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478FD70090DD8500E2D2AED51E42F21751C49518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284256   (729704) от 20.02.2019
-
-Detective Gallo (2018) [Ru/Multi] (1.2) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Detective Gallo – юмористическая нуар point&click адвенчура, героем которой является пернатый ворчливый приватный детектив, расследующий весьма странное дело. Тьма окутала город и под покровом ночи пять экзотических растений стали жертвами трагического события. Нет никаких сомнений – это серийное убийство растений.Тип издания: RepackРазработчик: Footprints GamesЖанр: Adeventure, QuestЯзык озвучки: Английский, ИтальянскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9789BA3FE2F6841CE199263C5DA0A61591A1B476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284241   (729578) от 20.02.2019
-
-STEINS;GATE ELITE (2019) [En/Jp] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steins;Gate Elite — это обновлённая версия Steins;Gate 2009 года. Игра появилась на свет благодаря тому, что её создатель, Тиёмару Сикура (Chiyomaru Shikura), захотел развить жанр визуальных новелл под влиянием полноценно анимированной серии Yarudora.Тип издания: LicenseРазработчик: MAGESЖанр: Adventure, Quest, Indie, NovellaЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CFE6B9FE95FE5184B570F888A7D526DBCD72F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284248   (729575) от 20.02.2019
-
-AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках небольшого приключения в цветной мир, наполненный неожиданными событиями и сумасшедшими героями? Погрузитесь в доброе приключение с бунтарскими элементами, где действие наполнено миловидностью, а сила исходит из дружбы.Тип издания: RepackРазработчик: Aurelien Regard GamesЖанр: Action, Adnenture, IndieЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613F41DDAABA8DF7B07E9B19FD7A9942AC87AD74
 ```
 
 https://mybot314.ru/tekegram_catalog/

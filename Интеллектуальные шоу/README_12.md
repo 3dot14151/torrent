@@ -1,3 +1,81 @@
+###  Публикация: 932388   (509366) от 29.08.2015
+
+Своя игра (29.08.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509366.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре принимают участие 3 игрока. Их основная цель — отвечать на вопросы и зарабатывать как можно большее число очков. В начале игры у каждого из игроков на счету  очков. Каждое очко в игре равняется 1 рублю. Суть игры заключается в том, что три участника отвечают на вопросы различной стоимости, пытаясь опередить друг друга. игра состоит из четырёх раундов — трёх (   Читать дальше...   )Телекомпания: НТВЖанр: Интеллектуальное шоуПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA0CB10E92B2DD3B04C8299F3E1FDA3EE29EE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932747   (508317) от 30.08.2015
+
+Сто к одному (30.08.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554C3B82D88F9A76B4CC304AC53DAC53C3D7008F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934758   (501340) от 06.09.2015
+
+Сто к одному (06.09.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA759BDCA6BA8478AC0AB2B5D907C7254795ACEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936620   (494270) от 12.09.2015
 
 Своя игра (12.09.2015) SATRip
@@ -6,7 +84,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494270.jpg" />
+  <img src="Z:/picture/008/save_picture_494270.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488093.jpg" />
+  <img src="Z:/picture/008/save_picture_488093.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479874.jpg" />
+  <img src="Z:/picture/008/save_picture_479874.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479784.jpg" />
+  <img src="Z:/picture/008/save_picture_479784.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479294.jpg" />
+  <img src="Z:/picture/008/save_picture_479294.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479176.jpg" />
+  <img src="Z:/picture/008/save_picture_479176.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477801.jpg" />
+  <img src="Z:/picture/008/save_picture_477801.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463883.jpg" />
+  <img src="Z:/picture/008/save_picture_463883.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463510.jpg" />
+  <img src="Z:/picture/008/save_picture_463510.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462238.jpg" />
+  <img src="Z:/picture/008/save_picture_462238.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461766.jpg" />
+  <img src="Z:/picture/008/save_picture_461766.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457840.jpg" />
+  <img src="Z:/picture/008/save_picture_457840.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449569.jpg" />
+  <img src="Z:/picture/008/save_picture_449569.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448333.jpg" />
+  <img src="Z:/picture/008/save_picture_448333.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447471.jpg" />
+  <img src="Z:/picture/008/save_picture_447471.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447023.jpg" />
+  <img src="Z:/picture/008/save_picture_447023.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446925.jpg" />
+  <img src="Z:/picture/008/save_picture_446925.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432150.jpg" />
+  <img src="Z:/picture/008/save_picture_432150.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431555.jpg" />
+  <img src="Z:/picture/008/save_picture_431555.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431430.jpg" />
+  <img src="Z:/picture/008/save_picture_431430.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416482.jpg" />
+  <img src="Z:/picture/008/save_picture_416482.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416341.jpg" />
+  <img src="Z:/picture/008/save_picture_416341.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415747.jpg" />
+  <img src="Z:/picture/008/save_picture_415747.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB39829B52BEF32CA7E866D4D93402FFE46A8216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947869   (415120) от 18.10.2015
-
-Что? Где? Когда?  Осенняя серия игр. Игра 4 (2015.10.17) HDTVRip
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярнейшая командная интеллектуальная игра. В элитарном телевизионном казино игроки-знатоки зарабатывают деньги своим умом, отвечая на вопросы телезрителей. Проводятся летние и зимние игры. В эфире с 1975 года. За четверть века перед глазами телезрителей прошло более 170 игр. Сначала программа обосновалась в баре телецентра в Останкино и провела там 7 лет (с 1975 (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТелепередачаПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8AD4799B99998FDD4C3CE5CFA4214AB2876DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574129   (407540) от 03.09.2022
-
-Своя игра (03.09.2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: РусскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8B87E3C0CAF3E1E6D8AD334A2E6D3959F2497C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172759   (391850) от 09.10.2017
-
-Что? Где? Когда? (2017.10.08) HDTV [H.264/1080i] (Осенняя серия: игра 3)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярнейшая командная интеллектуальная игра. В элитарном телевизионном казино игроки-знатоки зарабатывают деньги своим умом, отвечая на вопросы телезрителей. Проводятся летние и зимние игры. В эфире с 1975 года. За четверть века перед глазами телезрителей прошло более 170 игр. Сначала программа обосновалась в баре телецентра в Останкино и провела там 7 лет (с 1975 (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C390A854F0545B452571FED9BF02F97CE68947
 ```
 
 https://mybot314.ru/tekegram_catalog/

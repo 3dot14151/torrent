@@ -1,3 +1,162 @@
+###  Публикация: 562328   (405599) от 19.10.2012
+
+Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22DB0A0F1FA02858E14D351973102C2AD13E466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562322   (405472) от 19.10.2012
+
+Dancer Tryout - Mz Berry (Uncensored) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R&BПродолжительность: 00:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12A07484DE18832D1CD609430F8FA42F2F2C23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562341   (405470) от 19.10.2012
+
+Die Antwoord - Fatty Boom Boom (2012) [H.264/1080p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648B3A5A91D62B0751075FCB1CFC548DAEDF3ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562338   (405428) от 19.10.2012
+
+Stockholm Syndrome - Pretty Girl (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectropopПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315A6B5C4F2D2120FD27809AAF5DA3840C3B6575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 395867   (404307) от 08.10.2011
+
+Кабаре Мулен Руж - Феерия / Bal du Moulin Rouge - Feerie (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мулен Руж (фр. Moulin Rouge, буквально «Красная мельница») — знаменитое классическое кабаре в Париже, построенное в 1889 году, одна из достопримечательностей французской столицы. В «Мулен Руж» собирались не только представители среднего класса, но и аристократы, люди искусства (Пикассо, Оскар Уайльд) и даже члены королевских семей, например, принц Уэльский. Главной (   Читать дальше...   )Жанр: Шоу, Спектакль, МюзиклПеревод: ОригинальныйСубтитры: НетПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B988405CFE8023A02E8D031546E804CB1D1266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712155   (404232) от 18.10.2013
+
+Tristeria - Epoka (clip) [H.264 720p](2013) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkness
+02. Ashrouk
+03. Liburnae
+04. I Love You (Dimitra)(   Читать дальше...   )Жанр: Музыкальный, New age, EnigmaticРежиссер: Kiruha5432101Продолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A14BF95914BF996D8CEBAF4A554C21C55FD820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 397080   (401864) от 11.10.2011
 
 Ace Of Base - Greatest Hits (2008) DVD5
@@ -6,7 +165,7 @@ Ace Of Base - Greatest Hits (2008) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401864.jpg" />
+  <img src="Z:/picture/008/save_picture_401864.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401473.jpg" />
+  <img src="Z:/picture/008/save_picture_401473.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401138.jpg" />
+  <img src="Z:/picture/008/save_picture_401138.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400982.jpg" />
+  <img src="Z:/picture/008/save_picture_400982.jpg" />
 </div>
 
 
@@ -116,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400950.jpg" />
+  <img src="Z:/picture/008/save_picture_400950.jpg" />
 </div>
 
 
@@ -145,7 +304,7 @@ Aerosmith - What Could Have Been Love (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400031.jpg" />
+  <img src="Z:/picture/008/save_picture_400031.jpg" />
 </div>
 
 
@@ -171,7 +330,7 @@ Robert Plant and the Strange Sensation - EXIT Festival July 12, 2007 (2007) DVDR
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399943.jpg" />
+  <img src="Z:/picture/008/save_picture_399943.jpg" />
 </div>
 
 
@@ -200,7 +359,7 @@ The Doors: Live at the Bowl '68 (2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399824.jpg" />
+  <img src="Z:/picture/008/save_picture_399824.jpg" />
 </div>
 
 
@@ -235,7 +394,7 @@ Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399225.jpg" />
+  <img src="Z:/picture/008/save_picture_399225.jpg" />
 </div>
 
 
@@ -267,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399016.jpg" />
+  <img src="Z:/picture/008/save_picture_399016.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398388.jpg" />
+  <img src="Z:/picture/008/save_picture_398388.jpg" />
 </div>
 
 
@@ -325,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398290.jpg" />
+  <img src="Z:/picture/008/save_picture_398290.jpg" />
 </div>
 
 
@@ -354,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398186.jpg" />
+  <img src="Z:/picture/008/save_picture_398186.jpg" />
 </div>
 
 
@@ -383,7 +542,7 @@ The Doors - Live At The Bowl '68 (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397969.jpg" />
+  <img src="Z:/picture/008/save_picture_397969.jpg" />
 </div>
 
 
@@ -409,7 +568,7 @@ Gregorian: Epic Chants - Live in Zagreb [Limited Edition] (2012) [H.264] DVDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397927.jpg" />
+  <img src="Z:/picture/008/save_picture_397927.jpg" />
 </div>
 
 
@@ -438,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397815.jpg" />
+  <img src="Z:/picture/008/save_picture_397815.jpg" />
 </div>
 
 
@@ -464,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397665.jpg" />
+  <img src="Z:/picture/008/save_picture_397665.jpg" />
 </div>
 
 
@@ -492,7 +651,7 @@ Joe Cocker – Fire it Up Live (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397403.jpg" />
+  <img src="Z:/picture/008/save_picture_397403.jpg" />
 </div>
 
 
@@ -521,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396982.jpg" />
+  <img src="Z:/picture/008/save_picture_396982.jpg" />
 </div>
 
 
@@ -547,7 +706,7 @@ Twisted Sister - Live At The Astoria (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396921.jpg" />
+  <img src="Z:/picture/008/save_picture_396921.jpg" />
 </div>
 
 
@@ -567,180 +726,6 @@ Twisted Sister - Live At The Astoria (2008) DVD9
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566725   (396819) от 29.10.2012
-
-Герои гитары / Guitar Heroes At The BBC (2008) 2xDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записи различных групп и музыкантов, сделанные в период с 1969 по 2006 год, были показаны по телевидению каналом BBC Four 10 и 17 октября 2008 года. "Лучшие гитаристы.."
-Представлены разные стили и манеры игры, а также группы с гитарным драйвом.Жанр: Музыка, Hard RockРежиссер: Holly Murray, Mark CooperАктеры: Various artistsПеревод: ОтсутствуетПродолжительность: 01:58:17 + 01:57:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171120   (396550) от 04.10.2017
-
-Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (диск 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я долго работал над этим сборником клипов. Перепахал много гектар видеоматериала и выбрал лучшее что есть в мировом рэпе. Исключил попадание сюда однообразной речетативной пурги, которой навалом в рэпе и хип-хопе. Это 1я часть сборника. Смотрите, слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-001 50 Cent - In Da Club
-002 Down Low -  Potion
-003 Dino MC47 - Гражданин Р(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 03:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A09C366959208CBC3D1D40AF5B249BEC74A8526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567143   (395788) от 30.10.2012
-
-Manowar - The Day The Earth Shook - The Absolute Power (2006) 2*DVD-9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный DVD, содержащий почти семь часов эксклюзивного материала, переносит зрителя в ряды
-аудитории Earthshaker Fest 2005, чтобы лицезреть полную версию более чем двухчасового выступления
-MANOWAR, кульминацией которого стало исполнение в финале классической композиции "Battle
-Hymn", причем впервые всеми бывшими и нынешними участниками группы. Также оператор делает
-экскурс в MANOWAR Mega Fan Convention, выявляя искреннюю любовь и преданность фэнов MANOWAR
-Королям металла. Кроме того, DVD содержит эклюзивные интервью с участниками группы,
-организаторами съезда и режиссером.
-
-Треклист:Жанр: Heavy MetalРежиссер: Нил ДжонсонАктеры: Джои ДеМайо, Эрик Адамс, Донни Хамзик, Карл ЛоганПеревод: ОтсутствуетПродолжительность: 06:54:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567396   (395716) от 30.10.2012
-
-Маленькие комедии большого дома (1974) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители нового дома влюбляются, ссорятся и мирятся, работают и отдыхают, танцуют и поют: «Смотровой ордер» — оптимистическая комедия с переездом и вселением. «Грабеж» — психологический ретро детектив со взломом. «Московская серенада» — комедийный мюзикл о любви с песнями и танцами. «Звуковое письмо» — четвертая новелла в исполнении Александра Ширвиндта. «Пой, ласточка, пой…» — жилищно-бытовая оратория для ЖЭКа с фортепьяно.Жанр: Комедия, Драма, МелодрамаРежиссер: Александр Ширвиндт, Андрей Миронов, Валентин ПлучекАктеры: Татьяна Пельтцер, Борис Кумаритов, Надежда Каратаева, Виктор Рухманов, Лилия Шарапова, Людмила Селянская, Андрей Миронов, Наталья Защипина, Спартак Мишулин, Нина Архипова, Юрий Авшаров, Зоя Зелинская, Даниил Каданов, Екатерина Градова, Александр Диденко, Зиновий Высоковский, Нина Феклисова, Владимир Кулик, Валентина Шарыкина, Лев Тертель, Александр Ширвиндт, Анатолий Папанов, Валентина Токарская, Георгий Тусузов, Владимир Ушаков, Михаил Державин, Федор Димант, Юрий Соковнин, Вадим Завьялов, Галина Степанова (II), Бронислава Тронова, Наталья Фекленко, Наталья Энке, Вячеслав Гронин, Тамара МуринаПродолжительность: 01:10:43+01:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525915D9472C76A704E3C551FFA7762DB6A15941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715908   (395617) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 1] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck Berry - Memphis
-02. Brian Pool & The Tremeloes - Do you love me
-03. Gerry & The Pacemakers - I like it
-04. The Searchers - Sugar & spice(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Beat, Rock'n'Roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BB12A08FD9E3336D5ACF950F3F21B433B93727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715926   (395610) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 2] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petula Clark - Downtown
-02. Bill Meadley & Bobby Hatfield - You've lost that lovin' feelin'
-03. Them - Baby please don't go
-04. Sonny & Cher - I got you baby(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Pop, rock, rock'n'roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2EDC8D233B97FBE06EB7A8CB1FCAB1CF08B62F
 ```
 
 https://mybot314.ru/tekegram_catalog/

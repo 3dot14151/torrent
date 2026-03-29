@@ -1,3 +1,32 @@
+###  Публикация: 1406985   (240614) от 05.09.2020
+
+Lord Loud - Timid Beast (2020) [MP3|320 Kbps] <Stoner Rock, Heavy Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Seeds (3:25)
+02. Without You (3:12)
+03. Lady Sunday (2:18)
+04. Timid Beast (3:23)(   Читать дальше...   )Жанр: Stoner Rock, Heavy PsychПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC5AD621F339425A585FAA4C665C8BF708BA0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636612   (240458) от 01.06.2023
 
 Chords Of Chaos - Collection (2010-2017) 25 CD  [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -6,7 +35,7 @@ Chords Of Chaos - Collection (2010-2017) 25 CD  [MP3|320 Kbps] <Rock, Hard Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240458.jpg" />
+  <img src="Z:/picture/004/save_picture_240458.jpg" />
 </div>
 
 
@@ -38,7 +67,7 @@ Vandhali - Fever Dream (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239867.jpg" />
+  <img src="Z:/picture/004/save_picture_239867.jpg" />
 </div>
 
 
@@ -67,7 +96,7 @@ Indian Handcrafts - Empress in Decline (2022) [MP3|320 Kbps] <Stoner Rock, Punk 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239820.jpg" />
+  <img src="Z:/picture/004/save_picture_239820.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ Fatal Vision - Once (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239814.jpg" />
+  <img src="Z:/picture/004/save_picture_239814.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ Howling Giant - 8 Albums (2015-2021) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239812.jpg" />
+  <img src="Z:/picture/004/save_picture_239812.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Trillion Ton Beryllium Ships - Consensus Trance (2022) [MP3|320 Kbps] <Heavy Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239800.jpg" />
+  <img src="Z:/picture/005/save_picture_239800.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ Gods of Space - 4 Albums (2018-2021) [MP3|320 Kbps] <Sci-Fi Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239782.jpg" />
+  <img src="Z:/picture/004/save_picture_239782.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Great Wide Nothing - Hymns for Hungry Spirits, Vol. I (2020) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239769.jpg" />
+  <img src="Z:/picture/004/save_picture_239769.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ VA - The Devil's Blues Christmas (2015) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239704.jpg" />
+  <img src="Z:/picture/004/save_picture_239704.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Astro Throne - Tales of the Astro Throne (2022) EP [MP3|320 Kbps] <Heavy Psych, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239454.jpg" />
+  <img src="Z:/picture/004/save_picture_239454.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ The Laser's Edge - PROG presents- The Laser's Edge Group (2022) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239434.jpg" />
+  <img src="Z:/picture/004/save_picture_239434.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239035.jpg" />
+  <img src="Z:/picture/004/save_picture_239035.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Kotipelto - Serenity (2007) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238934.jpg" />
+  <img src="Z:/picture/005/save_picture_238934.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Kotipelto - Waiting For The Dawn (2002) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238918.jpg" />
+  <img src="Z:/picture/005/save_picture_238918.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Perfect Storm - No Air (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238715.jpg" />
+  <img src="Z:/picture/005/save_picture_238715.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Def Leppard - High 'N' Dry (1981) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238690.jpg" />
+  <img src="Z:/picture/005/save_picture_238690.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Avi Rosenfeld & Andre Tulipano - Battle Of Rock (2023) [MP3|320 Kbps] <Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238605.jpg" />
+  <img src="Z:/picture/004/save_picture_238605.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Def Leppard - Retromania (2010) (2CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238512.jpg" />
+  <img src="Z:/picture/005/save_picture_238512.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Galahad - The Last Great Adventurer (2022) [MP3|320 Kbps] <Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238496.jpg" />
+  <img src="Z:/picture/005/save_picture_238496.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Queens Of The Stone Age - In Times New Roman​.​.​. (2023) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238485.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Def Leppard - Vault: Def Leppard Greatest Hits 1980-1995 (1995) [OGG Vorbis|484 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238471.jpg" />
+  <img src="Z:/picture/005/save_picture_238471.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Boystown - Angels with Dirty Faces (1989) Remaster, 2005, Ironhorse Records [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238394.jpg" />
+  <img src="Z:/picture/005/save_picture_238394.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Def Leppard - Mirror Ball - Live & More (2011) (2 CD) [OGG Vorbis|484 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238329.jpg" />
+  <img src="Z:/picture/004/save_picture_238329.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Def Leppard - The Early Years 79 - 81 (2020) (5 CD), Reissue, Remastered, 2020, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238168.jpg" />
+  <img src="Z:/picture/004/save_picture_238168.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Adam Sherman - Triangle Sky (2021) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238011.jpg" />
+  <img src="Z:/picture/004/save_picture_238011.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Adam Sherman - Triangle Sky (2021) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43C769FD4409D6AADEC4617F9366744563BFD280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625137   (237931) от 09.04.2023
-
-Jay Gruska - Which One of Us Is Me (1984) [MP3|320 Kbps] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desperate Eyes (04:35)
-02. Atlanta Calling (03:25)
-03. Tattoo (04:18)
-04. The Motion (04:27)(   Читать дальше...   )Жанр: AORПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5718F79DDC8A6C9342A6BAD3DFFB3A290B60CF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

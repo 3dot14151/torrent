@@ -1,3 +1,29 @@
+###  Публикация: 1070065   (371408) от 05.11.2016
+
+Охота (2016.11.05) SATRip (выпуск 8)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_371408.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 сентября жизнь нескольких десятков людей изменится навсегда. В этот день 29 человек из разных уголков России превратятся в живую мишень для агентов спецслужб в рамках невероятного социального эксперимента НТВ «Охота». Участникам триллера в реальном времени предстоит выжить в условиях тотальной слежки. Они забудут голоса родных, теплую постель, свой пароль к аккаунту (   Читать дальше...   )Производство: НТВЖанр: Реалити-шоу, ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8229C92C022E120434B9EF51B48058F962CF535F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069976   (371302) от 05.11.2016
 
 Ледниковый период. Новый сезон (2016.11.05) SATRip (выпуск 6)
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371302.jpg" />
+  <img src="Z:/picture/008/save_picture_371302.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370003.jpg" />
+  <img src="Z:/picture/008/save_picture_370003.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369649.jpg" />
+  <img src="Z:/picture/008/save_picture_369649.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369488.jpg" />
+  <img src="Z:/picture/008/save_picture_369488.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367482.jpg" />
+  <img src="Z:/picture/008/save_picture_367482.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367478.jpg" />
+  <img src="Z:/picture/008/save_picture_367478.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366998.jpg" />
+  <img src="Z:/picture/008/save_picture_366998.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365472.jpg" />
+  <img src="Z:/picture/008/save_picture_365472.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365237.jpg" />
+  <img src="Z:/picture/008/save_picture_365237.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364656.jpg" />
+  <img src="Z:/picture/008/save_picture_364656.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364412.jpg" />
+  <img src="Z:/picture/008/save_picture_364412.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362858.jpg" />
+  <img src="Z:/picture/008/save_picture_362858.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361950.jpg" />
+  <img src="Z:/picture/008/save_picture_361950.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361280.jpg" />
+  <img src="Z:/picture/008/save_picture_361280.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361272.jpg" />
+  <img src="Z:/picture/008/save_picture_361272.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361264.jpg" />
+  <img src="Z:/picture/008/save_picture_361264.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361183.jpg" />
+  <img src="Z:/picture/008/save_picture_361183.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361150.jpg" />
+  <img src="Z:/picture/008/save_picture_361150.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361144.jpg" />
+  <img src="Z:/picture/008/save_picture_361144.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361139.jpg" />
+  <img src="Z:/picture/008/save_picture_361139.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361098.jpg" />
+  <img src="Z:/picture/008/save_picture_361098.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361096.jpg" />
+  <img src="Z:/picture/008/save_picture_361096.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360908.jpg" />
+  <img src="Z:/picture/008/save_picture_360908.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358837.jpg" />
+  <img src="Z:/picture/008/save_picture_358837.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358834.jpg" />
+  <img src="Z:/picture/008/save_picture_358834.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87CA2DA9FFBD77049B81021EE704C854857C14E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952193   (358832) от 31.10.2015
-
-Вместе с дельфинами (31.10.2015) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как приручить самых умных животных на Земле? На этот вопрос постараются ответить тринадцать отечественных звезд кино, эстрады и телевидения, которым предстоит освоить новую профессию — тренера дельфинов.Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D8FC6BB2DCA548F8DD0389307F315FA4F6417A
 ```
 
 https://mybot314.ru/tekegram_catalog/

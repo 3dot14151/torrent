@@ -1,3 +1,107 @@
+###  Публикация: 1531667   (720284) от 16.02.2022
+
+Открытие / Decouverte (2022) HDTVRip [H.264] (выпуски 1 из?) [FR / RU Sub] (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квебекский научно-популярный тележурнал "Открытие" выходит в эфир с 1988 года. Он предлагает репортажи, которые помогают лучше понять нашу Вселенную. Он приглашает зрителей узнать о последних научных исследованиях и технологических разработках. Тележурнал "Открытие" интересуется широким кругом тем, связанных, среди прочего, со здоровьем, окружающей (   Читать дальше...   )Производство: Канада, TV5MONDE Europe HDЖанр: документальный, познавательный, научно-популярныйРежиссер: Лилиан ЛемеПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, Hiventy)Продолжительность: серии x ~01:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CEAE0D43367E5149C30281535C2840EB9E45830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709785   (720052) от 07.06.2016
+
+NG. Бушующие миры: Солнечная буря / Storm Worlds: Cosmic Fire (2010) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погодные явления, исходящие от Солнца и звезд, обычно незаметны на Земле, но последствия сильных солнечных бурь могут быть разрушительными. Вспышки на Солнце происходят довольно часто, но они только предшественники более серьезного события - коронального выброса массы. Шторм с Солнца, возникающий на пиках солнечной активности по мощности равен миллионам водородных (   Читать дальше...   )Жанр: Документальный, научно-популярныйПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115745EEDFC4EFA8277D0EEC1BCFD4E6E8577607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710878   (719930) от 07.06.2016
+
+BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_719930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже многие сотни лет люди пытаются найти эликсир молодости. Выдающиеся открытия, сделанные в течение последних лет, позволяют сделать вывод о том, что старение - это достаточно гибкий процесс, которым можно управлять. Сотрудники BBC Horizon беседуют с учёными, которые пытаются выяснить, что же такое старение и можно ли его предотвратить.Жанр: Документальный, научно-популярный, исследованияПеревод: Одноголосый закадровый (профессиональный, Видеофильм ТВ)Язык субтитров: русский, русский (на непереведенные места), английскийПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330A5EF19CF6EEF879C0341F16FB7F6063FD70AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327902   (719889) от 24.04.2011
+
+Animal Planet: Cинее царство (Лазурная страна). Целебный яд / The Blue Realm. Miracle Venom (2004) HDTVRip [2 серия]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_719889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный сериал - это телевизионные истории об удивительных существах в океане. Используя превосходную съёмку высокой четкости, привлечение ведущих ученых, опытных ныряльщиков - эти серии переносят зрителей в чарующий мир дайвинга. Съемки производились в местах: Папуа-Новая Гвинея, Палау (Микронезия), Южная Африка, Красное море, Большой Барьерный риф, Багамские острова, остров Кокос (Коста-Рика), Британская Колумбия, штат Техас, Индонезия, архипелаг Сокорро (Мексика), Калифорния и Флорида.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D096DDB3178ECA1F0E407676716B5A69D9CC0447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327814   (719879) от 24.04.2011
 
 Animal Planet: Cинее царство (Лазурная страна). Гиганты острова Сан-Бенедикто / The Blue Realm. Giants of San Benedicto (2004) HDTVRip [1 серия]
@@ -6,7 +110,7 @@ Animal Planet: Cинее царство (Лазурная страна). Гиг�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719879.jpg" />
+  <img src="Z:/picture/008/save_picture_719879.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719875.jpg" />
+  <img src="Z:/picture/008/save_picture_719875.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC. Horizon. Эволюционируем ли мы сейчас? / BBC. Horizo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719872.jpg" />
+  <img src="Z:/picture/008/save_picture_719872.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) HDT
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719722.jpg" />
+  <img src="Z:/picture/008/save_picture_719722.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Африканская кровавая река / Africa's blood river (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719525.jpg" />
+  <img src="Z:/picture/008/save_picture_719525.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Смертельная игра. Великий побег / Deadly game. E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719523.jpg" />
+  <img src="Z:/picture/008/save_picture_719523.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW: Переменчивые животные. Свирепые семьи / Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719522.jpg" />
+  <img src="Z:/picture/008/save_picture_719522.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718936.jpg" />
+  <img src="Z:/picture/008/save_picture_718936.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718821.jpg" />
+  <img src="Z:/picture/008/save_picture_718821.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718813.jpg" />
+  <img src="Z:/picture/008/save_picture_718813.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC Earth. Чудо-яйца с Дэвидом Эттенборо / Attenborough
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718724.jpg" />
+  <img src="Z:/picture/008/save_picture_718724.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ BBC. Кухня против науки. Кулинарный вызов / Chef 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718722.jpg" />
+  <img src="Z:/picture/008/save_picture_718722.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG. Вдоль Великой Китайской стены / Trekking The Great
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718685.jpg" />
+  <img src="Z:/picture/008/save_picture_718685.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718683.jpg" />
+  <img src="Z:/picture/008/save_picture_718683.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718642.jpg" />
+  <img src="Z:/picture/008/save_picture_718642.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718513.jpg" />
+  <img src="Z:/picture/008/save_picture_718513.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Discovery: Почему? Вопросы мироздания. Наступит �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717920.jpg" />
+  <img src="Z:/picture/008/save_picture_717920.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ BBC: Horizon. Жизнь без старости / Don't Grow Old (2009) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717775.jpg" />
+  <img src="Z:/picture/008/save_picture_717775.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Discovery: Почему? Вопросы мироздания. Существуе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717767.jpg" />
+  <img src="Z:/picture/008/save_picture_717767.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ BBC. Horizon. Играя роль Бога / Horizon. Playing God (2012) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717761.jpg" />
+  <img src="Z:/picture/008/save_picture_717761.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ NG. Десятка лучших фотографий National Geographic / Nat G
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717728.jpg" />
+  <img src="Z:/picture/008/save_picture_717728.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ BBC. Умные обезьяны / Clever Monkeys (2008) HDTVRip [H.264/720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717627.jpg" />
+  <img src="Z:/picture/008/save_picture_717627.jpg" />
 </div>
 
 
@@ -563,111 +667,6 @@ BBC. Умные обезьяны / Clever Monkeys (2008) HDTVRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D0AAC445465128C24F197EB78F3BBA1E65D25C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219018   (717522) от 12.04.2018
-
-NGW: Выживание в Серенгети / Surviving the Serengeti (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717522.jpg" />
-</div>
-
-
-###  Подробнее
-
-От вершин самых высоких гор и до неистовых рек, мир полон враждебных мест, но есть животные, которым удаётся в них выживать и процветать.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Алан Миллер, Йохем ван РейсПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8340A15562CBC5B0747ADC2D1D441B73383A360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219131   (717513) от 12.04.2018
-
-NGW: Африканская суперзмея / Africa's super snake (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Квазулу-Натале, В Южной Африке, обитают ужасающие питоны, прославившиеся своими размерами, силой и репутацией людоедов.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джесс РейссПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E07370D10CF0A11B307653C61AA44C128FA8171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219021   (717511) от 12.04.2018
-
-NGW: Переменчивые животные. Подростковые кошмары / Moody Beasts. Teen Terrors (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что нужно, чтобы выжить? В природе нет воспитания. Уроки жизни в дикой природе не бывают ласковыми. Наоборот, они сваливаются на голову, стоит только существу выйти в самостоятельную жизнь. В этом интенсивном эпизоде вы понаблюдаете за животными, которые только начинают своё путешествие по миру за пределами родительской заботы. Сталкиваясь с испытаниями, к которым (   Читать дальше...   )Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джонатан ГрупперПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C241C83008D6AA6CE78110E43073DA0301A17175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879546   (717475) от 08.06.2016
-
-BBC: Горизонт - Как убить человека / Horizon - How to Kill a Human Being (2008) DVBRip [EN / RU Sub]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший член британского парламента Майкл Портильо, толкает себя на грань жизни и смерти в исследовании науки смертной казни.
-В то время как американский Верховный суд рассматривает вопрос о болезненности применения смертельной инъекции, Майкл намеревается найти действительно гуманный способ казни. Для этого он исследует основные способы казни применяемые сегодня: (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйПеревод: СубтитрыЯзык субтитров: Русский (перевод: BobbyCat, GematoGen.Tomsk), английскийПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9822711247E825FF3F77A2E1E9510C7BAC9E42D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTVRip [Серия 1-4
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577182.jpg" />
+  <img src="Z:/picture/008/save_picture_577182.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2014) HDTVRip (2 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577178.jpg" />
+  <img src="Z:/picture/008/save_picture_577178.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Дом для авто / House of Cars (2014) HDTV [H.264/720p] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577174.jpg" />
+  <img src="Z:/picture/008/save_picture_577174.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Как устроена Вселенная / Discovery. How the Unive
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577087.jpg" />
+  <img src="Z:/picture/008/save_picture_577087.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Discovery: Безопасность границ: США (сериия 1-11 из
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576914.jpg" />
+  <img src="Z:/picture/008/save_picture_576914.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576896.jpg" />
+  <img src="Z:/picture/008/save_picture_576896.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Discovery Channel: Battlefield / Поля сражений (2005) TvRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576624.jpg" />
+  <img src="Z:/picture/005/save_picture_576624.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Discovery: История изобретений, Промышленные от�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576605.jpg" />
+  <img src="Z:/picture/005/save_picture_576605.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Discovery: Стальные мышцы / American Muscle (2014) HDTVRip (Вып�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575379.jpg" />
+  <img src="Z:/picture/008/save_picture_575379.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Discovery: Двойники Земли / Alien planet Earths (2014) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575086.jpg" />
+  <img src="Z:/picture/008/save_picture_575086.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Discovery: Новый мир (1-12 серии из 12) / Discovery: Next World (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574626.jpg" />
+  <img src="Z:/picture/008/save_picture_574626.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Discovery. Наркосиндикат Сэм Гор / The World's Biggest Drug L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572086.jpg" />
+  <img src="Z:/picture/008/save_picture_572086.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Discovery: Искривление времени / Time Warp (2008) BDRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566730.jpg" />
+  <img src="Z:/picture/008/save_picture_566730.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Discovery: Мегамир. Мексика / Megaworld. Mexico (2011) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565727.jpg" />
+  <img src="Z:/picture/008/save_picture_565727.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562566.jpg" />
+  <img src="Z:/picture/008/save_picture_562566.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560717.jpg" />
+  <img src="Z:/picture/008/save_picture_560717.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560707.jpg" />
+  <img src="Z:/picture/008/save_picture_560707.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560663.jpg" />
+  <img src="Z:/picture/008/save_picture_560663.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559432.jpg" />
+  <img src="Z:/picture/008/save_picture_559432.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559416.jpg" />
+  <img src="Z:/picture/008/save_picture_559416.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559319.jpg" />
+  <img src="Z:/picture/008/save_picture_559319.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558988.jpg" />
+  <img src="Z:/picture/008/save_picture_558988.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery: Правда о Бермудском треугольнике / Bermu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558652.jpg" />
+  <img src="Z:/picture/008/save_picture_558652.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558373.jpg" />
+  <img src="Z:/picture/008/save_picture_558373.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTVRip (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557739.jpg" />
+  <img src="Z:/picture/008/save_picture_557739.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery. Катастрофа на колесах / Wheels That Fail (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557377.jpg" />
+  <img src="Z:/picture/008/save_picture_557377.jpg" />
 </div>
 
 

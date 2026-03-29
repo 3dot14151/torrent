@@ -1,3 +1,32 @@
+###  Публикация: 1397028   (742698) от 18.07.2020
+
+And Exile - From Oblivion (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Open Void (04:27)
+02. Before It Swallows Us All (06:50)
+03. Bermuda Swing (05:27)
+04. Mariana's Trench (05:11)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA36E6828FF8D169AF8DECA6607E526FF9918A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283385   (740339) от 16.02.2019
 
 Lissom - Lissom (2018) Whales Records [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Instrumental, Vocal>
@@ -6,7 +35,7 @@ Lissom - Lissom (2018) Whales Records [FLAC|Lossless|WEB-DL|tracks] <Dark Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740339.jpg" />
+  <img src="Z:/picture/008/save_picture_740339.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Robert Henke - Discography 7 Releases (1994-2015) Imbalance Computer Music [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739792.jpg" />
+  <img src="Z:/picture/008/save_picture_739792.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Burial - Antidawn (2022) EP [FLAC|Lossless|tracks + .cue] <Abstract, Dubstep, UK
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737803.jpg" />
+  <img src="Z:/picture/008/save_picture_737803.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732144.jpg" />
+  <img src="Z:/picture/008/save_picture_732144.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732065.jpg" />
+  <img src="Z:/picture/008/save_picture_732065.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ VA - Anthology of contemporary music from Africa continent (2019) Unexplained So
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728960.jpg" />
+  <img src="Z:/picture/008/save_picture_728960.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Woob - スリープ 研究 プログラム (2018) Time Limited [FLAC 2.0|44.1/24
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728653.jpg" />
+  <img src="Z:/picture/008/save_picture_728653.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ Between Interval - Discography 5 Albums (2005-2017) [FLAC|Lossless|tracks+.cue, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727314.jpg" />
+  <img src="Z:/picture/008/save_picture_727314.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ Swoop And Cross - Stories Of Disintegration (2018) [FLAC|Lossless|Web-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724918.jpg" />
+  <img src="Z:/picture/008/save_picture_724918.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ Jeff Pearce - Follow The River Home (2016) [FLAC|Lossless|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722254.jpg" />
+  <img src="Z:/picture/008/save_picture_722254.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Bradley Sean Alexander - Lowered Expectations (2018) Polar Sea Recordings [FLAC|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717670.jpg" />
+  <img src="Z:/picture/008/save_picture_717670.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717665.jpg" />
+  <img src="Z:/picture/008/save_picture_717665.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Simon Cummings - 間 (2018) Crónica [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ex
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715856.jpg" />
+  <img src="Z:/picture/008/save_picture_715856.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Biosphere - Microgravity (Expanded Edition) (2015) [FLAC|Lossless|WEB-DL]<Techno
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715362.jpg" />
+  <img src="Z:/picture/008/save_picture_715362.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ vidnaObmana - Crossing The Trail | Deluxe 20th (2018) Projekt Records [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714028.jpg" />
+  <img src="Z:/picture/008/save_picture_714028.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Jaćek (Jacek) - Discography 2 Releases (2015) [FLAC|Lossless|WEB-DL]<Tribal, Ex
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713038.jpg" />
+  <img src="Z:/picture/008/save_picture_713038.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709092.jpg" />
+  <img src="Z:/picture/008/save_picture_709092.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709087.jpg" />
+  <img src="Z:/picture/008/save_picture_709087.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Forest Swords - Compassion (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706606.jpg" />
+  <img src="Z:/picture/008/save_picture_706606.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising N
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705206.jpg" />
+  <img src="Z:/picture/008/save_picture_705206.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Willits + Sakamoto (Christopher Willits & Ryuichi Sakamoto) - Ancient Future (20
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700651.jpg" />
+  <img src="Z:/picture/008/save_picture_700651.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Moss Covered Technology - Southern Points (2019) [FLAC|Lossless|tracks + .cue] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697779.jpg" />
+  <img src="Z:/picture/008/save_picture_697779.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Clas
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696801.jpg" />
+  <img src="Z:/picture/008/save_picture_696801.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Niklas Paschburg - Tuur mang Welten (2016) Unperceived Records [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695107.jpg" />
+  <img src="Z:/picture/008/save_picture_695107.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Sven Laux - Schachmatt (2018) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689676.jpg" />
+  <img src="Z:/picture/008/save_picture_689676.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Sven Laux - Schachmatt (2018) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37832F40AACF44BEC2D956AC48D0D999441AF567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221958   (689672) от 27.04.2018
-
-Goldmund - Occasus (2018) Western Vinyl [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before (03:25)
- 02. Above (02:36)
- 03. Bounded (03:10)
- 04. Breaking (03:06)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE614C2B775D777B9C44D9F08CA9A8D72ECBC058
 ```
 
 https://mybot314.ru/tekegram_catalog/

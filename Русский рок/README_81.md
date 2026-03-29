@@ -1,3 +1,119 @@
+###  Публикация: 1627518   (242799) от 20.04.2023
+
+Catana Cat - Харакири (2023) [MP3|320 Kbps] <Alternative Metal, Female vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Харакири
+02. Когда Умрёт Супермен
+03. Готэм
+04. Розы(   Читать дальше...   )Жанр: Alternative Metal, Female vocalПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256D471B55E4112B60914DA5C2B07A585D20E590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627515   (242739) от 20.04.2023
+
+Струпья - Неурожай (2023) [MP3|320 Kbps] <Alternative Rock, Gothic Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой Бог
+02. Небо В Алмазах
+03. Кладбище
+04. Ценить Время(   Читать дальше...   )Жанр: Alternative Rock, Gothic Rock, New WaveПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B069B71DB911580AD18E5C3AB146B34B7BF36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624411   (242611) от 06.04.2023
+
+Илья Митрофанов - 2 Albums (2021-2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Раз, два, три [00:01:36]
+02. Глупая девчонка [00:02:32]
+03. Где мой слон? [00:03:21]
+04. Всё, что я помнил [00:02:03](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618240C233AA6F373409A7AD23F26D1E31F3EAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616919   (242118) от 06.03.2023
+
+Feodoq - Смесь (Live) (2023) [MP3|320 Kbps] <techno-post-punk, jam>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Крепкач (Live) [00:06:30]
+02 - Бронь (Live) [00:06:13]
+03 - Ласточка (Live) [00:04:23]
+04 - Тверкай (Live) [00:04:18](   Читать дальше...   )Жанр: techno-post-punk, jamПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4976AEAE2AB6578008FD57212DD7B5B38FAD2D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458781   (242107) от 30.03.2021
 
 Biopsyhoz (Биопсихоз) - Перерождение (2021) [MP3|320 Kbps] <Alternative, EBM, Industrial>
@@ -6,7 +122,7 @@ Biopsyhoz (Биопсихоз) - Перерождение (2021) [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242107.jpg" />
+  <img src="Z:/picture/004/save_picture_242107.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241874.jpg" />
+  <img src="Z:/picture/004/save_picture_241874.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Disphoria - Чёрная Метка (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241786.jpg" />
+  <img src="Z:/picture/004/save_picture_241786.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241748.jpg" />
+  <img src="Z:/picture/004/save_picture_241748.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241697.jpg" />
+  <img src="Z:/picture/004/save_picture_241697.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ K.S.V. - Цикл (2021) [MP3|320 Kbps] <Hardcore Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241436.jpg" />
+  <img src="Z:/picture/004/save_picture_241436.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Garage Dayz - Take One (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241291.jpg" />
+  <img src="Z:/picture/004/save_picture_241291.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241252.jpg" />
+  <img src="Z:/picture/004/save_picture_241252.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Neverlove - Добро пожаловать на бал (2023) [MP3|320 Kbps] <A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240924.jpg" />
+  <img src="Z:/picture/004/save_picture_240924.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Alexey Amusin - The Rocker (2020) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240891.jpg" />
+  <img src="Z:/picture/004/save_picture_240891.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ G-Hard - μ-sick (2022) [MP3|320 Kbps] <Nu-Metal, Oriental Metal, Progressive Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240825.jpg" />
+  <img src="Z:/picture/004/save_picture_240825.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240817.jpg" />
+  <img src="Z:/picture/004/save_picture_240817.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Antagonist - Spawn Of Evil (2022) [MP3|320 Kbps] <Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240809.jpg" />
+  <img src="Z:/picture/004/save_picture_240809.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240778.jpg" />
+  <img src="Z:/picture/004/save_picture_240778.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Yarek Ovich - Introversion (2020) [MP3|320 Kbps] <Depressive Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240715.jpg" />
+  <img src="Z:/picture/004/save_picture_240715.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Arcanum Sanctum - Ad Astra (2020) [MP3|320 Kbps] <Melodic Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240574.jpg" />
+  <img src="Z:/picture/004/save_picture_240574.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240523.jpg" />
+  <img src="Z:/picture/004/save_picture_240523.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Math Marriage Abel and Krell - Откровение (2021) [MP3|320 Kbps] <Extre
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240264.jpg" />
+  <img src="Z:/picture/004/save_picture_240264.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240199.jpg" />
+  <img src="Z:/picture/004/save_picture_240199.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239926.jpg" />
+  <img src="Z:/picture/004/save_picture_239926.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239840.jpg" />
+  <img src="Z:/picture/004/save_picture_239840.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239520.jpg" />
+  <img src="Z:/picture/004/save_picture_239520.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE39CF0812F46E1A7FF1E0DD58119E884A380C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638394   (239169) от 08.06.2023
-
-Мещера - Жатва (2023) [MP3|320 Kbps] <Atmospheric Folk Metal, Pagan Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Чёрный Туман [00:04:22]
-02 - Жатва [00:05:33]
-03 - Вечность Белых Январей [00:04:44]
-04 - Зимним Хладом [00:04:18](   Читать дальше...   )Жанр: Atmospheric Folk Metal, Pagan Metal, Female VocalsПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991C2FFC7326B63D2CD29B8F2F3808C6038A9D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477107   (238957) от 13.06.2021
-
-Yat-Kha (Ят-Ха) - We Will Never Die (2021) [MP3|320 Kbps] <Ethno Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238957.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kongurgai
-2. Kazhanda-daa Olbes-le Bis
-3. Shartylaam
-4. Umyvalsya Nochyu Na Dvore...(   Читать дальше...   )Жанр: Ethno Rock, FolkПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35BFF254CFEC9262EE280C26AFD1637D864576B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623126   (238764) от 31.03.2023
-
-Sjotrollet - Relentless Cruelty of Fate (2023) [MP3|320 Kbps] <Apocalypse Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dying Sun [00:05:49]
-02 - Relentless Cruelty of Fate [00:06:30]
-03 - Herlathing [00:06:14]
-04 - Time of Murderers [00:04:27](   Читать дальше...   )Жанр: Apocalypse Black MetalПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F893001FF8127AB43E1BF992D1D0549B3D9ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580810   (238229) от 02.10.2022
-
-Bestial Sight - 3 Albums (2017-2022) [MP3|320 Kbps] <RMW Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В Пустоте [00:07:50]
-02. Душегуб [00:05:50]
-03. Гнев Демона [00:03:50]
-04. Зов бесконечности [00:06:21](   Читать дальше...   )Жанр: RMW Black, Death MetalПродолжительность: 3 CD, 02:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E224606DC3DE937AAF718ADC3D13BAE6D242BBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

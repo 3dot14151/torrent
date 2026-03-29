@@ -1,3 +1,55 @@
+###  Публикация: 537766   (509680) от 23.08.2012
+
+Факир на час  (1971) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509680.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной пьесы Владимира Дыховичного и Мориса Слободского. История о веселой неразберихе в провинциальной гостинице, где корреспондента газеты Сергея Караванова приняли за известного гипнотизера. Тем более, что совпадают имя и отчество. К "гипнотизеру" тут же начинают обращаться с просьбами, и Сергею Караванову удается "загипнотизировать" (   Читать дальше...   )Производство: БеларусьфильмЖанр: Музыкальная комедияРежиссер: Диамара НижниковскаяАктеры: Надежда Румянцева, Лидия Смирнова, Валентина Ананьина, Александр Белявский, Михаил Пуговкин, Михаил ВодянойПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506285A79BE2238021BA3AA8A02E5983D58E8C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538403   (509646) от 23.08.2012
+
+Где бы ни работать.. (1987) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бездельник Петр Петрович Белкин в поисках "теплого местечка" кочует с одного места работы на другое. В конце концов герой оказывается в коллективе, котоpый решает проучить лодыря...Жанр: Комедия, музыкальный фильмРежиссер: Николай АлександровичАктеры: Галина Беляева, Сергей Скрипкин, Валерий Сторожик, Семён Фарада, Владимир Сошальский, Амаяк Акопян, Владимир Суворов, Наталья Крачковская, Юрий ЧерновПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 377329   (509242) от 18.08.2011
 
 Катала (1989) DVDRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509242.jpg" />
+  <img src="Z:/picture/008/save_picture_509242.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507571.jpg" />
+  <img src="Z:/picture/008/save_picture_507571.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507526.jpg" />
+  <img src="Z:/picture/008/save_picture_507526.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506230.jpg" />
+  <img src="Z:/picture/008/save_picture_506230.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505847.jpg" />
+  <img src="Z:/picture/008/save_picture_505847.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505842.jpg" />
+  <img src="Z:/picture/008/save_picture_505842.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503529.jpg" />
+  <img src="Z:/picture/008/save_picture_503529.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503428.jpg" />
+  <img src="Z:/picture/008/save_picture_503428.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503147.jpg" />
+  <img src="Z:/picture/008/save_picture_503147.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502606.jpg" />
+  <img src="Z:/picture/008/save_picture_502606.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502199.jpg" />
+  <img src="Z:/picture/008/save_picture_502199.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501176.jpg" />
+  <img src="Z:/picture/008/save_picture_501176.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500295.jpg" />
+  <img src="Z:/picture/008/save_picture_500295.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499195.jpg" />
+  <img src="Z:/picture/008/save_picture_499195.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498384.jpg" />
+  <img src="Z:/picture/008/save_picture_498384.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496739.jpg" />
+  <img src="Z:/picture/008/save_picture_496739.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495803.jpg" />
+  <img src="Z:/picture/008/save_picture_495803.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495725.jpg" />
+  <img src="Z:/picture/008/save_picture_495725.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495718.jpg" />
+  <img src="Z:/picture/008/save_picture_495718.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495271.jpg" />
+  <img src="Z:/picture/008/save_picture_495271.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495269.jpg" />
+  <img src="Z:/picture/008/save_picture_495269.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494666.jpg" />
+  <img src="Z:/picture/008/save_picture_494666.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494569.jpg" />
+  <img src="Z:/picture/008/save_picture_494569.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494245.jpg" />
+  <img src="Z:/picture/008/save_picture_494245.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ DVD rip сделан с диска, предоставленного самим 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241856   (493667) от 26.08.2018
-
-Уходя - уходи (1978) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незаметный и скромный бухгалтер Сулин часто попадает в полусмешные-полугрустные ситуации - часто робеет, боится идти наперекор хоть кому-то.. Пока однажды случай не помог ему вспомнить, что в юности он был решительным и отважным. Что произошло после этого - смотрите и смейтесь вместе с героями этой весёлой и ироничной комедииПроизводство: СССР / ЛенфильмЖанр: Комедия, ДрамаРежиссер: Виктор ТрегубовичАктеры: Виктор Павлов, Людмила Гурченко, Марина Трегубович, Николай Рыбников, Наталья Андрейченко, Наталья Гундарева, Олег Кононов, Федор Одиноков, Надежда Вихрова, Николай Сытин, Наталья Дмитриева, Владимир Пожидаев, Елена Мельникова, Елена ПавловскаяПродолжительность: 01:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD165900EB35E6687DEE1FA1D743DD8F4BF8C4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053820   (492067) от 20.09.2016
-
-Крупный выигрыш (1980) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крановщик Гарник в первый же день своего ухода на пенсию выигрывает "Запорожец" - и становится личным шофером всех близких и дальних родственников...Производство: СССР, АрменфильмЖанр: КомедияРежиссер: Альберт МкртчянАктеры: Фрунзик Мкртчян, Люся Оганесян, Леонард Саркисов, Генрих Алавердян, Нерсес Оганесян, Шаум Казарян, Гарегин Асланян, Карен Джанибекян, Мисаил Галоян, Артуш ГедакянПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A2551416C8F8D385C244AAC31D8F25E8975269
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1190856   (265922) от 11.12.2017
+
+Stand Up (2017.12.10) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 11: Дайджест)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925DBE7386F93848575C6D1045D440621BCBD8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267825   (264946) от 08.12.2018
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2018.12.07) WEB-DLRip [H.264/720p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264946.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4FA7BE5C744996F91D416A7C2AFCA4B0A0F114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340178   (264212) от 22.11.2019
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2019.11.22) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264212.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин и др.Субтитры: ОтсутствуютПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1098AFB999717FA1A180CBA647AAFA3A940CE81F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191669   (264110) от 14.12.2017
 
 Студия Союз (2017.12.14) SATRip (выпуск 19)
@@ -6,7 +84,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264110.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263905.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263880.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263817.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_263388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_263388.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Stand Up (2017.12.17) SATRip (сезон 7, выпуск 12: Даджест)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263036.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262089.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262078.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261946.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259854.jpg" />
+  <img src="Z:/picture/005/save_picture_259854.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259822.jpg" />
+  <img src="Z:/picture/005/save_picture_259822.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259760.jpg" />
+  <img src="Z:/picture/005/save_picture_259760.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257973.jpg" />
+  <img src="Z:/picture/005/save_picture_257973.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256882.jpg" />
+  <img src="Z:/picture/005/save_picture_256882.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256662.jpg" />
+  <img src="Z:/picture/005/save_picture_256662.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256403.jpg" />
+  <img src="Z:/picture/005/save_picture_256403.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255885.jpg" />
+  <img src="Z:/picture/005/save_picture_255885.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252321.jpg" />
+  <img src="Z:/picture/004/save_picture_252321.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251780.jpg" />
+  <img src="Z:/picture/005/save_picture_251780.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251733.jpg" />
+  <img src="Z:/picture/005/save_picture_251733.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251673.jpg" />
+  <img src="Z:/picture/004/save_picture_251673.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247484.jpg" />
+  <img src="Z:/picture/004/save_picture_247484.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246234.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4FD92F93E67319C400ABD4812B4EE2037EE05A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833364   (246168) от 01.11.2025
-
-Кстати (2025) WEBRip [H.264/1080p] (сезон 1, выпуск 87)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемьдесят седьмой выпуск шоу «Кстати» с Азаматом Харламовым. Дорох сегодня выяснил, что он Никита, пока оставим его. Гостями восемьдесят седьмого выпуска стали: няня и русалка Олеся Иванченко; она уже приносит подарки, чтобы мы её пускали – Зоя Яровицына; человек в романтическом образе – Владимир Пресняков.Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Владимир Пресняков, Олеся Иванченко, Зоя ЯровицынаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5374365C063CA755BDE741260D58C792D0AD4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833070   (246142) от 31.10.2025
-
-Однажды в России (2025.10.31) IPTV [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: ЮморУчастники: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A39F2B238A176D5EFB7B639BCD06314F800625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626608   (240601) от 15.04.2023
-
-Однажды в России (14.04.2023) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE787B0D74B474C916F7DA83141921D5F472D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

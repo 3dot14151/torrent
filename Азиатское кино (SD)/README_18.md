@@ -1,3 +1,29 @@
+###  Публикация: 1382499   (819117) от 11.05.2020
+
+Разум и убийство (Осознанное убийство) / Sop-mai-ngeap / Mindfulness and Murder (2011) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819117.jpg" />
+</div>
+
+
+###  Подробнее
+
+В буддийском монастыре обнаруживают изуродованный труп подростка. Налицо признаки ритуального убийства с изощрённой жестокостью. Жертвой оказывается юноша, живший в монастырском приюте для несовершеннолетних бездомных. Полиция не хочет расследовать убийство никому не известного малолетнего бродяги. За дело берётся один из главных монахов храма, отец Ананда — сам (   Читать дальше...   )Производство: Таиланд / Tiger Entertainment, De Warrenne PicturesЖанр: Триллер, детективРежиссер: Том УоллерАктеры: Витхая Пансрингарм, Апичарт Чусакуль, Принья Интачай, Kitsada Hongsakrai, Sunon Wachirawarakarn, Chaiwat Sadindum, Pakapong Sangkasi, Pak Pattarapong, Киат Пунпипутт, Порнтип Папанаи, Наталья ГлебоваПеревод: Одноголосый любительский (Антон Кудрявцев)Субтитры: ОтсутствуютПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB510977E357EC6FB974D25447378A9A3E8F98DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503456   (819073) от 19.10.2021
 
 Лето у дедушки / Nammaeui yeoreunbam / Moving On (2019) WEB-DLRip [DVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819073.jpg" />
+  <img src="Z:/picture/008/save_picture_819073.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818981.jpg" />
+  <img src="Z:/picture/008/save_picture_818981.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818813.jpg" />
+  <img src="Z:/picture/008/save_picture_818813.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818655.jpg" />
+  <img src="Z:/picture/008/save_picture_818655.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816864.jpg" />
+  <img src="Z:/picture/008/save_picture_816864.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816543.jpg" />
+  <img src="Z:/picture/008/save_picture_816543.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815401.jpg" />
+  <img src="Z:/picture/008/save_picture_815401.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814873.jpg" />
+  <img src="Z:/picture/008/save_picture_814873.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814624.jpg" />
+  <img src="Z:/picture/008/save_picture_814624.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814061.jpg" />
+  <img src="Z:/picture/008/save_picture_814061.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811416.jpg" />
+  <img src="Z:/picture/008/save_picture_811416.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811292.jpg" />
+  <img src="Z:/picture/008/save_picture_811292.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811075.jpg" />
+  <img src="Z:/picture/008/save_picture_811075.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809619.jpg" />
+  <img src="Z:/picture/008/save_picture_809619.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809209.jpg" />
+  <img src="Z:/picture/008/save_picture_809209.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808179.jpg" />
+  <img src="Z:/picture/008/save_picture_808179.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808170.jpg" />
+  <img src="Z:/picture/008/save_picture_808170.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808125.jpg" />
+  <img src="Z:/picture/008/save_picture_808125.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807615.jpg" />
+  <img src="Z:/picture/008/save_picture_807615.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_807475.jpg" />
+  <img src="Z:/picture/005/save_picture_807475.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806189.jpg" />
+  <img src="Z:/picture/008/save_picture_806189.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804103.jpg" />
+  <img src="Z:/picture/008/save_picture_804103.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804071.jpg" />
+  <img src="Z:/picture/008/save_picture_804071.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802726.jpg" />
+  <img src="Z:/picture/008/save_picture_802726.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802620.jpg" />
+  <img src="Z:/picture/008/save_picture_802620.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5E6208ACA5484757BF2B23903FD2CA0B96BFA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120810   (801880) от 31.03.2017
-
-Музей / Myujiamu (Museum) (2016) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Происходит серия убийств, причём именно в те дни, когда идёт дождь. Детектив Хисаси Савамура пытается поймать убийцу и вскоре понимает, что следующими жертвами будут его жена и сын. Подозреваемый — человек в маске лягушки.Производство: Япония, Twins JapanЖанр: Ужасы, Триллер, КриминалРежиссер: Кэйдзи ОтомоАктеры: Сюн Огури, Сюхэй Номура, Матико Оно, Томоми Маруяма, Масато Ибу, Томоко Табата, Микако Итикава, Нао ОмориПеревод: Любительский (одноголосый, закадровый) - BadBajoСубтитры: ОтсутствуетПродолжительность: 02:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F732421683FBEB67B4013BA15C9382964396EB75
 ```
 
 https://mybot314.ru/tekegram_catalog/

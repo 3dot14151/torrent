@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319085.jpg" />
+  <img src="Z:/picture/008/save_picture_319085.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318973.jpg" />
+  <img src="Z:/picture/008/save_picture_318973.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318866.jpg" />
+  <img src="Z:/picture/008/save_picture_318866.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318709.jpg" />
+  <img src="Z:/picture/008/save_picture_318709.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318460.jpg" />
+  <img src="Z:/picture/008/save_picture_318460.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318376.jpg" />
+  <img src="Z:/picture/008/save_picture_318376.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Michael Casswell - Complaints About the Noise (2014) [AAC|256 Kbps]<Rock, Fusion
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318357.jpg" />
+  <img src="Z:/picture/008/save_picture_318357.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318295.jpg" />
+  <img src="Z:/picture/008/save_picture_318295.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Союз 59 (2016) [AAC|WEB-DL|256 кб/с]<Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318062.jpg" />
+  <img src="Z:/picture/008/save_picture_318062.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317810.jpg" />
+  <img src="Z:/picture/008/save_picture_317810.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Smooth Vocal Lounge: Chillout Your Mind (2020) [AAC|~311 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317761.jpg" />
+  <img src="Z:/picture/008/save_picture_317761.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Diorama - Tiny Missing Fragments (2020) [AAC|~327 Kbps] <Synthpop, Darkwave>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317754.jpg" />
+  <img src="Z:/picture/008/save_picture_317754.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ennio Morricone - Morricone Segreto (2020) [AAC|~347 Kbps] <Stage & Screen>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317654.jpg" />
+  <img src="Z:/picture/008/save_picture_317654.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Kylie Minogue - Disco (2020) [AAC|~335 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317572.jpg" />
+  <img src="Z:/picture/008/save_picture_317572.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316962.jpg" />
+  <img src="Z:/picture/008/save_picture_316962.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316802.jpg" />
+  <img src="Z:/picture/008/save_picture_316802.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316755.jpg" />
+  <img src="Z:/picture/008/save_picture_316755.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316290.jpg" />
+  <img src="Z:/picture/008/save_picture_316290.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316268.jpg" />
+  <img src="Z:/picture/008/save_picture_316268.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315960.jpg" />
+  <img src="Z:/picture/008/save_picture_315960.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Cappuccino Lounge: Chillout Your Mind (2020) [AAC|~304 Kbps] <Downtempo, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315550.jpg" />
+  <img src="Z:/picture/008/save_picture_315550.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Calm Evening Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315548.jpg" />
+  <img src="Z:/picture/008/save_picture_315548.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Cafe Bossa Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Downtempo, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315547.jpg" />
+  <img src="Z:/picture/008/save_picture_315547.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Rainy Lofi Lounge: Chillout Your Mind (2020) [AAC|~318 Kbps] <Downtempo, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315531.jpg" />
+  <img src="Z:/picture/008/save_picture_315531.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ System Of A Down - Protect The Land / Genocidal Humanoidz (2020) [AAC|~374 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315221.jpg" />
+  <img src="Z:/picture/008/save_picture_315221.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315219.jpg" />
+  <img src="Z:/picture/008/save_picture_315219.jpg" />
 </div>
 
 

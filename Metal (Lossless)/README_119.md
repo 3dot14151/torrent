@@ -1,3 +1,90 @@
+###  Публикация: 1300650   (592747) от 07.05.2019
+
+Manowar - The Final Battle I (2019) EP [WV|lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March Of The Heroes Into Valhalla (02:39)
+02. Blood And Steel (04:42)
+03. Sword Of The Highlands (05:59)
+04. You Shall Die Before I Die (06:08)Жанр: Heavy MetalПродолжительность: 00:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8E57552AB4022393C5FEDF9B2C003ACCE58026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549724   (592638) от 09.05.2022
+
+Mike LePond's Silent Assassins - Whore Of Babylon (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dracul Son 03:54
+02. Ides of March 04:45
+03. Tell Tale Heart 06:13
+04. Night of the Long Knives 06:06(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1566E1EA19A4FED6F6CAD3820012695F8E5E2458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550069   (592536) от 10.05.2022
+
+Múcaro (Mucaro) - Jinete del Sur (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cibucan (00:07:45)
+02 - El Hombre del Jardin en la Espalda (00:07:20)
+03 - Daca (00:05:32)
+04 - Descartes (00:07:25)(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A772EDD783509BFD1B47CE0657402062736D24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549715   (592535) от 10.05.2022
 
 Midnight Burial - Conjuring Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, Post-Metal>
@@ -6,7 +93,7 @@ Midnight Burial - Conjuring Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592535.jpg" />
+  <img src="Z:/picture/008/save_picture_592535.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Aiwass - Wayward Gods (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592533.jpg" />
+  <img src="Z:/picture/008/save_picture_592533.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Icarus Witch - Rise (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592527.jpg" />
+  <img src="Z:/picture/008/save_picture_592527.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Cain's Dinasty - The Witch & The Martyr (2022) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592524.jpg" />
+  <img src="Z:/picture/008/save_picture_592524.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Cain's Dinasty - Eva (2018) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592521.jpg" />
+  <img src="Z:/picture/008/save_picture_592521.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Motorhead (Motörhead) - The Löst Tapes Vol. 3 (Live in Malmö 2000) (2022) [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592515.jpg" />
+  <img src="Z:/picture/008/save_picture_592515.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Iron Savior - Live at the Final Frontier (2015) (2CD) [FLAC|Lossless]<Speed / Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592380.jpg" />
+  <img src="Z:/picture/008/save_picture_592380.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Leprous - The Congregation (2015) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592341.jpg" />
+  <img src="Z:/picture/008/save_picture_592341.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Ufomammut - 8 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge, Stoner, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592139.jpg" />
+  <img src="Z:/picture/008/save_picture_592139.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Lilitu - The Delores Lesion (2004) [FLAC|Lossless|image + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592115.jpg" />
+  <img src="Z:/picture/008/save_picture_592115.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Steel Trident - Los siete de Iscariote (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592111.jpg" />
+  <img src="Z:/picture/008/save_picture_592111.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Ufomammut - Fenice (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge, Sto
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591672.jpg" />
+  <img src="Z:/picture/008/save_picture_591672.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Evergrey - A Heartless Portrait (The Orphean Testament) (2022) [FLAC|Lossless|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591645.jpg" />
+  <img src="Z:/picture/008/save_picture_591645.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Before Eden - The Legacy of Gaia (2005) [FLAC|Lossless]<Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591444.jpg" />
+  <img src="Z:/picture/008/save_picture_591444.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Accuser - Double Talk (1991) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591442.jpg" />
+  <img src="Z:/picture/008/save_picture_591442.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Edenshade - The Lesson Betrayed (2006) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591441.jpg" />
+  <img src="Z:/picture/008/save_picture_591441.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591241.jpg" />
+  <img src="Z:/picture/008/save_picture_591241.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Halestorm - Back from the Dead (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591187.jpg" />
+  <img src="Z:/picture/008/save_picture_591187.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Burning Loss - 2X1.5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590786.jpg" />
+  <img src="Z:/picture/008/save_picture_590786.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Britof - Ruins (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590783.jpg" />
+  <img src="Z:/picture/008/save_picture_590783.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Primitive Man - Insurmountable (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590782.jpg" />
+  <img src="Z:/picture/008/save_picture_590782.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Raam - Fire Of Glory (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Rock & Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590781.jpg" />
+  <img src="Z:/picture/008/save_picture_590781.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Winteria - Winteria (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590780.jpg" />
+  <img src="Z:/picture/008/save_picture_590780.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Winteria - Winteria (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:881797151B249C6AAE5F4809D23E3CA555439749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551025   (590778) от 14.05.2022
-
-Katharos - Of Lineages Long Forgotten (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Those Hornclad (00:06:53)
-02 - Feigned Retreat (00:07:05)
-03 - Of Lineages Long Forgotten (00:08:51)
-04 - The World Serpent's Marrow (00:05:26)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5B5282A2B3D4A8ED9BB98AEA3FFCE68020264D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550950   (590741) от 14.05.2022
-
-Siberian Meat Grinder - Join the Bear Cult (2021) 2022, Rebel Sound Records[FLAC|Lossless|WEB-DL|tracks] <Hardcore, Crossover, Thrash Metal Punk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into the Grinder (00:03:39)
-02 - Not Today (00:03:23)
-03 - Arise (00:03:13)
-04 - Fire It Up (00:04:10)(   Читать дальше...   )Жанр: Hardcore, Crossover, Thrash Metal PunkПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF59BBAD41AFA1CE47AB4809328DF177C54F68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551176   (590249) от 15.05.2022
-
-St. October - Whatever Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Melodic Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rise.Fall.Ignite. (00:01:05)
-02 - With Open Eyes (00:05:00)
-03 - Ghosts (00:05:58)
-04 - White Goddess (00:03:44)(   Читать дальше...   )Жанр: Gothic, Melodic Groove MetalПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DB3F2F743102FA15537F3299466BC542A3C51B
 ```
 
 https://mybot314.ru/tekegram_catalog/

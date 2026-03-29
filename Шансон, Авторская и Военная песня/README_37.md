@@ -1,3 +1,62 @@
+###  Публикация: 259563   (332837) от 18.11.2010
+
+Ирина Круг & Алексей Брянцев - Если бы не ты... (2010) [MP3|320 kbps]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_332837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только ты
+02. Заходи ко мне во сне
+03. Роман
+04. Я всё отдам за твою любовь
+05. Просто ты одна(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420485   (332368) от 01.11.2020
+
+Леонид Сергеев - 4 Альбома (1995 - 2000) [FLAC|Lossless|tracks + .cue]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песнь о Самсунге
+02. Пурга о микробе
+03. Пример песни-настроения
+04. Оруще-визжаще-пищащее...(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 03:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5454C5DB6F5FA4A5050A07C97DDA0350DBCDA9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 841503   (330074) от 16.11.2014
 
 Ринат Каримов - Стреляй (2014) [MP3|320 кб/с]<Chanson, Pop>
@@ -6,7 +65,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330074.jpg" />
+  <img src="Z:/picture/008/save_picture_330074.jpg" />
 </div>
 
 
@@ -41,7 +100,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329841.jpg" />
+  <img src="Z:/picture/008/save_picture_329841.jpg" />
 </div>
 
 
@@ -70,7 +129,7 @@ VA - Вне закона (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328342.jpg" />
+  <img src="Z:/picture/008/save_picture_328342.jpg" />
 </div>
 
 
@@ -99,7 +158,7 @@ VA - Авторские песни (Эхо Души) (2011) [MP3|192 кб/с]<Ш
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328283.jpg" />
+  <img src="Z:/picture/008/save_picture_328283.jpg" />
 </div>
 
 
@@ -128,7 +187,7 @@ VA - Top 30 - Золото Шансона (2015) [MP3|320 кб/с]<Шансон,
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328146.jpg" />
+  <img src="Z:/picture/008/save_picture_328146.jpg" />
 </div>
 
 
@@ -157,7 +216,7 @@ VA - Ангел снов (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326656.jpg" />
+  <img src="Z:/picture/008/save_picture_326656.jpg" />
 </div>
 
 
@@ -186,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324708.jpg" />
+  <img src="Z:/picture/008/save_picture_324708.jpg" />
 </div>
 
 
@@ -215,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321205.jpg" />
+  <img src="Z:/picture/008/save_picture_321205.jpg" />
 </div>
 
 
@@ -244,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320152.jpg" />
+  <img src="Z:/picture/008/save_picture_320152.jpg" />
 </div>
 
 
@@ -279,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319596.jpg" />
+  <img src="Z:/picture/008/save_picture_319596.jpg" />
 </div>
 
 
@@ -314,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319418.jpg" />
+  <img src="Z:/picture/008/save_picture_319418.jpg" />
 </div>
 
 
@@ -349,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319073.jpg" />
+  <img src="Z:/picture/008/save_picture_319073.jpg" />
 </div>
 
 
@@ -378,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319063.jpg" />
+  <img src="Z:/picture/008/save_picture_319063.jpg" />
 </div>
 
 
@@ -407,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319048.jpg" />
+  <img src="Z:/picture/008/save_picture_319048.jpg" />
 </div>
 
 
@@ -436,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319043.jpg" />
+  <img src="Z:/picture/008/save_picture_319043.jpg" />
 </div>
 
 
@@ -465,7 +524,7 @@ Mireille Mathieu - Noel (2015) [MP3|320 кб/с]<French Chanson>
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318862.jpg" />
+  <img src="Z:/picture/008/save_picture_318862.jpg" />
 </div>
 
 
@@ -494,7 +553,7 @@ VA - Застольные песни от Донского казака (2007) [
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318781.jpg" />
+  <img src="Z:/picture/008/save_picture_318781.jpg" />
 </div>
 
 
@@ -523,7 +582,7 @@ VA - Русская блатная тридцатка 14 (2007) [FLAC|Lossless|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315423.jpg" />
+  <img src="Z:/picture/008/save_picture_315423.jpg" />
 </div>
 
 
@@ -552,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312861.jpg" />
+  <img src="Z:/picture/008/save_picture_312861.jpg" />
 </div>
 
 
@@ -581,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_312446.jpg" />
+  <img src="Z:/picture/005/save_picture_312446.jpg" />
 </div>
 
 
@@ -616,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311901.jpg" />
+  <img src="Z:/picture/008/save_picture_311901.jpg" />
 </div>
 
 
@@ -645,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310688.jpg" />
+  <img src="Z:/picture/008/save_picture_310688.jpg" />
 </div>
 
 
@@ -674,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307847.jpg" />
+  <img src="Z:/picture/008/save_picture_307847.jpg" />
 </div>
 
 
@@ -709,7 +768,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307523.jpg" />
+  <img src="Z:/picture/008/save_picture_307523.jpg" />
 </div>
 
 
@@ -729,70 +788,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B10CA9288D7E7B6CC474AFBD0217B4D79B7FE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418209   (306459) от 05.12.2011
-
-Владимир Высоцкий - Владимир Высоцкий в записях Михаила Шемякина (полное собрание из 7 CD) (1996) [MP3|320 kbps]<Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я из дела ушел
-02. Погоня
-03. Чужой дом
-04. Кони привередливые
-05. Охота на волков
-06. Конец охоты на волков
-07. Баллада о книжных детях
-08. Баллада о любви
-09. Не долюбил
-10. Памятник(   Читать дальше...   )1996, PolyGram (Германия)Жанр: Авторская песняПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266447   (306135) от 05.12.2010
-
-Ирина Круг - Я прочитаю в глазах твоих (2010) [MP3|320 kbps]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306135.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я прочитаю в глазах твоих (3:33)
-2. Без тебя (3:23)
-3. Неужели любовь обман (4:03)
-4. Приснись же мне (4:54)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4960FBAC1F429E3524213786485EF816DC444DB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

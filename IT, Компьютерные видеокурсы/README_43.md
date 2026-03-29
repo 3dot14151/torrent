@@ -1,3 +1,144 @@
+###  Публикация: 1020658   (742868) от 27.05.2016
+
+Специалист | CEH4. Руководитель службы информационной безопасности и защиты от хакерских атак (2016) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс готовит руководителей верхнего уровня в области информационной безопасности.
+
+Цель курса – получить знания и навыки, необходимые для успешного применения принципов управления информационной безопасностью.Производство: СпециалистЖанр: Информационная безопасностьПродолжительность: 21:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C10A503DF94608F614D790DC8ADCB11DEF7FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020110   (742866) от 27.05.2016
+
+Фёдор Самородов | М10962А Расширенные возможности Windows PowerShell (2015) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742866.jpg" />
+</div>
+
+
+###  Подробнее
+
+10962A: Advanced Automated Administration with Windows PowerShell
+На курсе детально изучается сложные программные возможности технологии PowerShell версии 3.0.
+PowerShell – средство автоматизации, позволяющее упростить решение большинства административных задач.
+Курс предназначен для: администраторов Windows Server и серверного ПО от MicrosoftПроизводство: СпециалистЖанр: Администрирование, Windows PowerShellПродолжительность: 04:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36D6EBC3AD01A493BE569BA05C48D8559E7EAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 890751   (742783) от 21.04.2015
+
+PentestIT | Тестирование на проникновение с использованием Metasploit Framework (2013) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Константин Левин, инструктор из компании PentestIT, расскажет о работе с профессиональным инструментом пентестеров - фреймворком Metasploit. Будут продемонстрированы практически все этапы тестирования на проникновение: от разведки и сбора информации до написания собственных модулей, эксплойтов, используя Metasploit Framefork.Жанр: Компьютерная безопасностьПродолжительность: 12:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8448DE4E1706389C3C3477BB7DAC8D4E45D699C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397148   (742478) от 18.07.2020
+
+TeamLead | Confluence. Базовый тренинг для администраторов (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный тренинг по работе с Atlassian Confluence, в том числе работа с пространствами, страницами, blueprints, интеграция с Jira и многое другое.
+Тренинг состоит из 1,5 часов теории, самостоятельного выполнения домашних заданий на индивидуальном стенде и разбора заданий с тренеров.
+После прохождения тренинга вы научитесь:
+Управлять пользователями.(   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 02:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BA52845C673BD549BF97ED361866CC178D4F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524659   (741876) от 17.01.2022
+
+HTML Academy | React. Разработка сложных клиентских приложений (2021) WEB-DL [Сентябрь-ноябрь 2021] [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс разработан для тех, кто хочет сменить профессию и стать высокооплачиваемым профессионалом. Он подойдёт для работающих людей, у которых мало времени.
+
+Почему курс профессиональный:
+На этом курсе вы научитесь делать настоящие проекты, такие же по уровню сложности, как в индустрии. И будете делать их правильно, чтобы после обучения выдавать результат высокого уровня, (   Читать дальше...   )Производство: HTML AcademyЖанр: ПрограммированиеПродолжительность: 23:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F9058E473098266B9B7C2C8D5D44B33BAE0574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020890   (741490) от 28.05.2016
 
 ITVDN | Видео курс Выполнение домашнего задания по курсу C# Базовый (2016) PCRec
@@ -6,7 +147,7 @@ ITVDN | Видео курс Выполнение домашнего задани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741490.jpg" />
+  <img src="Z:/picture/008/save_picture_741490.jpg" />
 </div>
 
 
@@ -32,7 +173,7 @@ Geekbrains | FreeBSD. Администрирование серверов (2014)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741407.jpg" />
+  <img src="Z:/picture/008/save_picture_741407.jpg" />
 </div>
 
 
@@ -58,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741256.jpg" />
+  <img src="Z:/picture/008/save_picture_741256.jpg" />
 </div>
 
 
@@ -84,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741098.jpg" />
+  <img src="Z:/picture/008/save_picture_741098.jpg" />
 </div>
 
 
@@ -111,7 +252,7 @@ Udemy, René Fürst | OpenVPN verstehen und einrichten – Sicher im Netzwerk (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738993.jpg" />
+  <img src="Z:/picture/008/save_picture_738993.jpg" />
 </div>
 
 
@@ -139,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736495.jpg" />
+  <img src="Z:/picture/008/save_picture_736495.jpg" />
 </div>
 
 
@@ -165,7 +306,7 @@ Reso Coder, Matej Resetar | Flutter Developer Bootcamp (2022) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736258.jpg" />
+  <img src="Z:/picture/008/save_picture_736258.jpg" />
 </div>
 
 
@@ -192,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735988.jpg" />
+  <img src="Z:/picture/008/save_picture_735988.jpg" />
 </div>
 
 
@@ -219,7 +360,7 @@ Leanpub, Jason McCreary | BaseCode - A field guide to writing lasting code (2018
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735829.jpg" />
+  <img src="Z:/picture/008/save_picture_735829.jpg" />
 </div>
 
 
@@ -248,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735751.jpg" />
+  <img src="Z:/picture/008/save_picture_735751.jpg" />
 </div>
 
 
@@ -275,7 +416,7 @@ OTUS | PHP-разработчик. Часть 2 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735505.jpg" />
+  <img src="Z:/picture/008/save_picture_735505.jpg" />
 </div>
 
 
@@ -301,7 +442,7 @@ OTUS | PHP-разработчик. Часть 1 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735497.jpg" />
+  <img src="Z:/picture/008/save_picture_735497.jpg" />
 </div>
 
 
@@ -327,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734555.jpg" />
+  <img src="Z:/picture/008/save_picture_734555.jpg" />
 </div>
 
 
@@ -353,7 +494,7 @@ Foxford | Курс программирования на Python для начи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734554.jpg" />
+  <img src="Z:/picture/008/save_picture_734554.jpg" />
 </div>
 
 
@@ -379,7 +520,7 @@ OTUS | Fullstack разработчик JavaScript (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734105.jpg" />
+  <img src="Z:/picture/008/save_picture_734105.jpg" />
 </div>
 
 
@@ -406,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734096.jpg" />
+  <img src="Z:/picture/008/save_picture_734096.jpg" />
 </div>
 
 
@@ -432,7 +573,7 @@ Pluralsight, Joe Abraham | Cisco Certified CyberOps Associate (CBROPS 200-201) (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733954.jpg" />
+  <img src="Z:/picture/008/save_picture_733954.jpg" />
 </div>
 
 
@@ -458,7 +599,7 @@ Udemy | The Ultimate C# and Unity course for beginners (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733494.jpg" />
+  <img src="Z:/picture/008/save_picture_733494.jpg" />
 </div>
 
 
@@ -484,7 +625,7 @@ OTUS | CI/CD на AWS, Azure и Gitlab (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733255.jpg" />
+  <img src="Z:/picture/008/save_picture_733255.jpg" />
 </div>
 
 
@@ -513,7 +654,7 @@ Coursera | IBM AI Engineering Professional Certificate (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733048.jpg" />
+  <img src="Z:/picture/008/save_picture_733048.jpg" />
 </div>
 
 
@@ -542,7 +683,7 @@ James Q Quick | React и Serverless - Fullstack разработка / React and
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732832.jpg" />
+  <img src="Z:/picture/008/save_picture_732832.jpg" />
 </div>
 
 
@@ -553,148 +694,6 @@ James Q Quick | React и Serverless - Fullstack разработка / React and
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70AFAF5EE732E6C870BE5D1914ECA351659DE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020858   (732308) от 29.05.2016
-
-Максим Фартусов | Супер Проектировщик в AutoCAD (2016) CamRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732308.jpg" />
-</div>
-
-
-###  Подробнее
-
-УРОК ПОЛНЫЙ!!!
-БЫСТРО И ПРОСТО:
-  -Научитесь проектировать в AutoCAD за 24 часа по самому понятному видео-руководству
-ЭКОНОМНО:(   Читать дальше...   )Жанр: Проектирование, дизайнПродолжительность: ~21:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3849DAA6418D87104CFB1D18DF46F40D283902A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529944   (731378) от 08.02.2022
-
-МИФ.Курсы, Ренат Шагабутдинов | Магия Excel  (2021) WEB-DL [RU] [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь ловко управляться с таблицами, работать с данными, строить красивые графики и отчеты.
-Что скрывают цифры? Как, глядя на тысячи строк в отчете, понять — всё хорошо или идём ко дну? Как принимать решения, взглянув на пару графиков?
-Этому волшебству не научиться в Хогвартсе. Зато можно — в МИФе.
-Покажем, как сократить рутину. Всё, чтобы освободить время. (   Читать дальше...   )Производство: МИФ.КурсыЖанр: Офисное ПОЯзык озвучки: РусскийПродолжительность: 15:02:11Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3A37CF83FDCC982A025AE3863FEEF18CD663C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529941   (731371) от 08.02.2022
-
-Udemy, Dzianis Matveyenka | SQL (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс не требует каких-то базовых понятий для его прохождения, потому что дает подробные и актуальные знания по реляционным базам данных на примере одной из лучших в настоящее время СУБД PostgreSQL, и языку для работы с ними - SQL. Хотя стандарт SQL будет применим для любых других реляционных баз данных, поэтому не стоит переживать, что вы используете другую СУБД (   Читать дальше...   )Производство: UdemyЖанр: Базы данныхЯзык озвучки: РусскийПродолжительность: 08:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B526D3DCB0076DB6E26BF7CF4A994C3583C1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022369   (729304) от 01.06.2016
-
-Михаил Чеховский | проектирования внутренних сетей ВК в AutoCAD (2016) CamRip [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже не новичок, но желаете делать проекты рациональнее в 2 раза, чем сейчас
-
-Новичок в проектировании сетей ВК в Автокаде
-Хотите хороший дополнительный доход на проектах Водоснабжения и Канализации(   Читать дальше...   )Жанр: Проектирование, дизайн, ВК, уроки, autocadПродолжительность: 5:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA227932191CAE42C8EBA6935828D9E2F41E3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022177   (729168) от 01.06.2016
-
-Udemy | Metasploit - программа для взлома в хакерском дистрибутиве Kali (2014) WEBRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перевод Metasploit - программа для взлома в хакерском дистрибутиве Kali
-Оригинальное название перевденного курса: Metasploit Extreme on Kali Linux
-
-Metaspoit Framework является инструментом с открытым исходным кодом для для разработки, проникновения и выполнения кода эксплойта на удаленном целевом компьютере, Metasploit Framework имеет большую базу публичных, проверенных (   Читать дальше...   )Производство: UdemyЖанр: Компьютерная безопасностьПродолжительность: 03:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097E4DE7D9F58410E41BF704BB45382AE4B91F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

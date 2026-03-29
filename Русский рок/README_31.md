@@ -1,3 +1,119 @@
+###  Публикация: 1123955   (786066) от 09.04.2017
+
+Сурганова и Оркестр - Парижская акустика (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не тобой болеет сердце
+02. За тобой
+03. Не покидай
+04. Ну почему же я вру(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7678246E97FBE831B63F91DD1A1BBEF2D7528211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124585   (785540) от 12.04.2017
+
+Александр Барыкин и группа Карнавал - Дискография (1981 - 2011) [MP3|128-320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785540.jpg" />
+</div>
+
+
+###  Подробнее
+
+1981 — «Карнавал», миньон («Мелодия»)
+1981 — Супермен (магнитофонный альбом) (две версии альбома)
+1982 — Карусель (магнитофонный альбом)
+1983 — Актёр (магнитофонный альбом) (320 kbps)(   Читать дальше...   )Жанр: RockПродолжительность: 73:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948BAC3B158D3199ED4AA0B74C2139158514EE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277411   (785418) от 20.01.2019
+
+Омела - Тайная Тропа (2019) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайная Тропа
+02. Игра
+03. Другая Жизнь
+04. Отпускаю(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426BF5A8EEF87F2218B616D35CEA6AE67C9D3E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277310   (785368) от 20.01.2019
+
+ZE FISH punk-rchstr (orchestra) - Welcome to Russia, если не страшно (2018) [MP3|320 Kbps] <Ska, Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для ознакомления третий альбом альтернативной Шнуру и Ленинграду группы. Вокально и музыкально интереснее, ИМХО!01. Дисклеймер
+02. Питер-Питер!
+03. Ни*уя хорошего
+04. Судья-пи*орас(   Читать дальше...   )Жанр: Ska, Punk, RockПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D90420241D7742B0229AF33E8B761CA369C2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204115   (785353) от 04.02.2018
 
 Margenta - Династия Посвящённых 4 - Окситания (2018) [MP3|320 Kbps] <Heavy Metal, Metal Opera>
@@ -6,7 +122,7 @@ Margenta - Династия Посвящённых 4 - Окситания (2018)
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785353.jpg" />
+  <img src="Z:/picture/008/save_picture_785353.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784993.jpg" />
+  <img src="Z:/picture/008/save_picture_784993.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784915.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784270.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ ATAVA (АТАВА) - Не быть проще (2017) [MP3|320 Kbps] <Alternative
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784088.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784005.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783926.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783902.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783894.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ EXE (ЭКЗЕ, ЭКЗЭ, ЭКЗЕРСИС) - Авантюра (1992) [MP3|320 Kb
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783242.jpg" />
+  <img src="Z:/picture/008/save_picture_783242.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782933.jpg" />
+  <img src="Z:/picture/008/save_picture_782933.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782761.jpg" />
+  <img src="Z:/picture/008/save_picture_782761.jpg" />
 </div>
 
 
@@ -357,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782689.jpg" />
+  <img src="Z:/picture/008/save_picture_782689.jpg" />
 </div>
 
 
@@ -386,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782225.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782094.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781905.jpg" />
 </div>
 
 
@@ -478,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781582.jpg" />
 </div>
 
 
@@ -507,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781210.jpg" />
 </div>
 
 
@@ -536,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781166.jpg" />
 </div>
 
 
@@ -562,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781156.jpg" />
 </div>
 
 
@@ -591,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780784.jpg" />
+  <img src="Z:/picture/008/save_picture_780784.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780310.jpg" />
+  <img src="Z:/picture/008/save_picture_780310.jpg" />
 </div>
 
 
@@ -633,120 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2307C3E6E70B3D609D2A4445C0D9B5949ABA7B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208028   (780300) от 20.02.2018
-
-Счётчик Мыслей - Общество (2016) Single [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Общество (feat. AquaПарк)
-02-Дотянуться до звезды (Lumen)Жанр: Alternative RockПродолжительность: 00:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C9AED6EB8A1A50AC4A7D597398C0CA9C8B4FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207937   (780297) от 20.02.2018
-
-Счётчик Мыслей - Серое небо (2015) EP [MP3|~210-320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Серое небо
-02-В клетке
-03-Братишка
-04-Время(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61803F81A0B58ABBE93171D4009F89EC505B0C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207929   (780292) от 20.02.2018
-
-Счётчик Мыслей - #Теплый Live (2018) [MP3|320 Kbps] <Alternative Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Полчаса
-02-17 лет
-03-Микромир
-04-Коридоры(   Читать дальше...   )Жанр: Alternative Rock, AcousticПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799E7C0E83D3E4AE1F6F8AADE834AE265DFEBC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207920   (780290) от 20.02.2018
-
-Счётчик Мыслей - Прыжок в бездну (2017) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прыжок в бездну
-02. Мост
-03. 2007
-04. Комната(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEB3C49E0734D7E70AF03B13F3C7CBE91913C5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

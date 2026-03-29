@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061646.jpg" />
+  <img src="Z:/picture/005/save_picture_1061646.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061304.jpg" />
+  <img src="Z:/picture/005/save_picture_1061304.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Frances Buontempo | Introducing C++: The Easy Way to Start Learning Modern C++ (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061184.jpg" />
+  <img src="Z:/picture/005/save_picture_1061184.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060557.jpg" />
+  <img src="Z:/picture/005/save_picture_1060557.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059090.jpg" />
+  <img src="Z:/picture/005/save_picture_1059090.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1056720.jpg" />
+  <img src="Z:/picture/009/save_picture_1056720.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056558.jpg" />
+  <img src="Z:/picture/005/save_picture_1056558.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056523.jpg" />
+  <img src="Z:/picture/005/save_picture_1056523.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055157.jpg" />
+  <img src="Z:/picture/005/save_picture_1055157.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055071.jpg" />
+  <img src="Z:/picture/005/save_picture_1055071.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055070.jpg" />
+  <img src="Z:/picture/005/save_picture_1055070.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054879.jpg" />
+  <img src="Z:/picture/005/save_picture_1054879.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054872.jpg" />
+  <img src="Z:/picture/005/save_picture_1054872.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1054616.jpg" />
+  <img src="Z:/picture/009/save_picture_1054616.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Alex Vasilev | Python by Example (2025) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053554.jpg" />
+  <img src="Z:/picture/005/save_picture_1053554.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Imp
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053540.jpg" />
+  <img src="Z:/picture/005/save_picture_1053540.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Diego Oliva, Marco Antonio Perez Cisneros и др. | Initialization and Diversit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053453.jpg" />
+  <img src="Z:/picture/005/save_picture_1053453.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053353.jpg" />
+  <img src="Z:/picture/005/save_picture_1053353.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053342.jpg" />
+  <img src="Z:/picture/005/save_picture_1053342.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Anita Goel | Python Programming. An Object-Oriented Approach (2025) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053327.jpg" />
+  <img src="Z:/picture/005/save_picture_1053327.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Michael D. Smith | Problem Solving with Python. Using Computational Thinking in 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053326.jpg" />
+  <img src="Z:/picture/005/save_picture_1053326.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053321.jpg" />
+  <img src="Z:/picture/005/save_picture_1053321.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Chris Fregly | AI Systems Performance Engineering. Optimizing Model Training and
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053231.jpg" />
+  <img src="Z:/picture/005/save_picture_1053231.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Priyanka Vergadia, Valliappa Lakshmanan | Visualizing Generative AI. How AI Pain
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053230.jpg" />
+  <img src="Z:/picture/005/save_picture_1053230.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053013.jpg" />
+  <img src="Z:/picture/005/save_picture_1053013.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052804.jpg" />
+  <img src="Z:/picture/005/save_picture_1052804.jpg" />
 </div>
 
 

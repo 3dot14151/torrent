@@ -1,3 +1,29 @@
+###  Публикация: 907273   (637003) от 12.06.2015
+
+Bakuretsu Tenshi / Burst Angel / Ангелы Смерти [2004, TV, 24 + 1 эп.] BDRip 1080p raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее, год 20XX. Токио все больше погружается в хаос преступности и жестокости. Чтобы хоть как-то сохранить порядок, правительство разрешает обычным гражданам носить оружие. Но даже специально созданное полицейское спецподразделение РАПТ не в силах защитить людей, живущих в постоянном страхе. Кто может спасти раздираемый насилием, обреченный город? Только ангелы. (   Читать дальше...   )Производство: Япония, Gonzo DigimationЖанр: приключения, комедия, меха, эттиРежиссер: Охата КойтиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Формат: mp4Продолжительность: 25 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40ED28E5009FDDB37EAF42784E09A29ECDF1EC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229802   (622262) от 08.06.2018
 
 Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных добродетелей [2018, TV, 10+2  из 10+2] BDRip 1080p 10-bit raw+rus
@@ -6,7 +32,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных до�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622262.jpg" />
+  <img src="Z:/picture/008/save_picture_622262.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Shikioriori / Flavors of Youth / Вкусы Молодости [2018, MV] WEB-DL
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619930.jpg" />
+  <img src="Z:/picture/008/save_picture_619930.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618258.jpg" />
+  <img src="Z:/picture/008/save_picture_618258.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617303.jpg" />
+  <img src="Z:/picture/008/save_picture_617303.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Ookami to Koushinryou | Spice and Wolf | Волчица и пряности [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604192.jpg" />
+  <img src="Z:/picture/008/save_picture_604192.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. +1 OVA] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603025.jpg" />
+  <img src="Z:/picture/008/save_picture_603025.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601819.jpg" />
+  <img src="Z:/picture/008/save_picture_601819.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601519.jpg" />
+  <img src="Z:/picture/008/save_picture_601519.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593034.jpg" />
+  <img src="Z:/picture/008/save_picture_593034.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591992.jpg" />
+  <img src="Z:/picture/008/save_picture_591992.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 1080p Hi10p ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587492.jpg" />
+  <img src="Z:/picture/008/save_picture_587492.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586889.jpg" />
+  <img src="Z:/picture/008/save_picture_586889.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585914.jpg" />
+  <img src="Z:/picture/008/save_picture_585914.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579961.jpg" />
+  <img src="Z:/picture/008/save_picture_579961.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивител
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575541.jpg" />
+  <img src="Z:/picture/008/save_picture_575541.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557217.jpg" />
+  <img src="Z:/picture/008/save_picture_557217.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556161.jpg" />
+  <img src="Z:/picture/008/save_picture_556161.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554283.jpg" />
+  <img src="Z:/picture/008/save_picture_554283.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554282.jpg" />
+  <img src="Z:/picture/008/save_picture_554282.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551699.jpg" />
+  <img src="Z:/picture/008/save_picture_551699.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь р�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546643.jpg" />
+  <img src="Z:/picture/008/save_picture_546643.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539589.jpg" />
+  <img src="Z:/picture/008/save_picture_539589.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533281.jpg" />
+  <img src="Z:/picture/008/save_picture_533281.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ One Punch Man (2019) / Ванпанчмен [ТВ-2] [2019, TV, 12 ep] WEB-DL 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531946.jpg" />
+  <img src="Z:/picture/008/save_picture_531946.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527626.jpg" />
+  <img src="Z:/picture/008/save_picture_527626.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AF57D457EF87F3B2418A64C7BC381D39D03293A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544708   (526940) от 24.06.2022
-
-RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526940.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается через 15 лет после того, как король демонов был побеждён и воцарился мир. Только что окончившая школу юная волшебница Котоне обращается в связанную с властями королевства компанию «RPG недвижимость», чтобы найти новый дом. Эта же компания становится первым местом работы Котоне. Вместе с получеловеком Фа, священницей Руфурией и воином Ракирой она (   Читать дальше...   )Производство: Япония, студия Doga KoboЖанр: комедия, фэнтезиРежиссер: Косида ТомоакиЯзык озвучки: Русский закадровый (AniStar), (AniMaunt), (AniDub)Субтитры: Русские надписи, русские, Multi-8 (софтсаб)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843466A3F27B29B8B7F2F0DC241E883E6FCF7094
 ```
 
 https://mybot314.ru/tekegram_catalog/

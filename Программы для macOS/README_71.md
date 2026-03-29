@@ -1,3 +1,139 @@
+###  Публикация: 1137697   (666727) от 27.05.2017
+
+TryToMP3 4.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_666727.jpg" />
+</div>
+
+
+###  Подробнее
+
+TryToMP3 - это аудиоконвертер, работающий на Mac.
+Он предназначен для преобразования различных аудиоформатов в MP3. Программное обеспечение может интеллектуально распознавать большинство аудиоформатов и быстро передавать их в MP3. Без входа и регистрации или любого подключаемого модуля вы можете наслаждаться простым, быстрым и бесплатным прослушиванием в любое время (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Gmagon.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867ACC40FAFD3B9231980139B95D260E32CE21C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137608   (666720) от 27.05.2017
+
+PDFpenPro 9.0.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_666720.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFpen Pro - Программа для создания и редактирования PDF-документов. С помощью PDFpen Pro вы сможете добавлять тексты, картинки, подписи, заполнять формы, делать исправления, добавлять, удалять и изменять порядок страниц. Помимо этого вы можете создавать собственные формы и таблицы контента.
+
+Так же PDFpen Pro умеет распознавать отсканированные документы для последующего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 мая 2017Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79341BBF0A8E93657C9E35F41C29EB5EB29F5856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224371   (665833) от 10.05.2018
+
+MediaChance Dynamic Auto Painter PRO 5.21 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Auto-Painter - это большой шаг вперед в автоматической живописи. Это уникальная программа, которая позволяет превратить ваши фотографии в картины, используя имитацию техники рисования самых знаменитых художников планеты. В отличие от других аналогичных инструментов и эффектов, Dynamic Auto-Painter не изменяет саму фотографию, он просто использует изображение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2018Разработчик: MediaChanceПоддерживаемая ОС: MacOSЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1998C712AFFFE1B7F4556CA2BA4F6CD82EA07367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138049   (665642) от 28.05.2017
+
+Mocks 2.6.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстро создавать красивые, высококачественный макеты  iOS, iPad и iPhone  приложений с Mocks.
+Mocks поставляется с встроенной коллекции графики, изображающие IOS иконки, интерфейс управления, а также виджеты (например, кнопки, панели инструментов и текстовые поля). Перетащите эти элементы управления из палитры библиотеки слева в центральную часть холста туда, где создается (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: Todd Ditchendorf.Поддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F6212584D6894614CA3DBA19230073766F0C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138171   (665574) от 28.05.2017
+
+TableEdit Pro v1.2.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665574.jpg" />
+</div>
+
+
+###  Подробнее
+
+TableEdit - это простое, чистое и элегантное приложение для электронных таблиц, разработанное специально для OS X. TableEdit отличается минималистичным, но интуитивно понятным интерфейсом и имеет удобные функции, такие как формулы, графики и исчерпывающие варианты стилей ячейки, а также широкие возможности импорта и экспорта.
+
+TableEdit был разработан с нуля, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.05.2017Разработчик: CoreCode LimitedПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF16D0D3F854489876ADB3E6AF257F54E937201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138155   (665247) от 28.05.2017
 
 Aqua Data Studio 18.0.13 [Multi/Ru]
@@ -6,7 +142,7 @@ Aqua Data Studio 18.0.13 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665247.jpg" />
+  <img src="Z:/picture/008/save_picture_665247.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ MP4Tools 3.7.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664408.jpg" />
+  <img src="Z:/picture/008/save_picture_664408.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ Paste 2.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664321.jpg" />
+  <img src="Z:/picture/008/save_picture_664321.jpg" />
 </div>
 
 
@@ -88,7 +224,7 @@ Schwartz v1.7.8 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664255.jpg" />
+  <img src="Z:/picture/008/save_picture_664255.jpg" />
 </div>
 
 
@@ -116,7 +252,7 @@ Any DVD Ripper Pro v3.7.89 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664198.jpg" />
+  <img src="Z:/picture/008/save_picture_664198.jpg" />
 </div>
 
 
@@ -144,7 +280,7 @@ Any FLAC Converter v3.8.29 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664134.jpg" />
+  <img src="Z:/picture/008/save_picture_664134.jpg" />
 </div>
 
 
@@ -172,7 +308,7 @@ Colol 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663153.jpg" />
+  <img src="Z:/picture/008/save_picture_663153.jpg" />
 </div>
 
 
@@ -198,7 +334,7 @@ Tipard Video Converter Ultimate v9.1.16 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663105.jpg" />
+  <img src="Z:/picture/008/save_picture_663105.jpg" />
 </div>
 
 
@@ -224,7 +360,7 @@ DNSCrypt 1.0.14 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663008.jpg" />
+  <img src="Z:/picture/008/save_picture_663008.jpg" />
 </div>
 
 
@@ -252,7 +388,7 @@ Simple Screen Shade 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662459.jpg" />
+  <img src="Z:/picture/008/save_picture_662459.jpg" />
 </div>
 
 
@@ -279,7 +415,7 @@ Replay Converter 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662400.jpg" />
+  <img src="Z:/picture/008/save_picture_662400.jpg" />
 </div>
 
 
@@ -306,7 +442,7 @@ Replay Music 3.0.2 U2B 3.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662392.jpg" />
+  <img src="Z:/picture/008/save_picture_662392.jpg" />
 </div>
 
 
@@ -333,7 +469,7 @@ Replay Media Catcher 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662306.jpg" />
+  <img src="Z:/picture/008/save_picture_662306.jpg" />
 </div>
 
 
@@ -360,7 +496,7 @@ Replay Video Capture 3.0.2 U2B [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662305.jpg" />
+  <img src="Z:/picture/008/save_picture_662305.jpg" />
 </div>
 
 
@@ -387,7 +523,7 @@ Endurance 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662302.jpg" />
+  <img src="Z:/picture/008/save_picture_662302.jpg" />
 </div>
 
 
@@ -414,7 +550,7 @@ Squeed 1.12.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662213.jpg" />
+  <img src="Z:/picture/008/save_picture_662213.jpg" />
 </div>
 
 
@@ -443,7 +579,7 @@ Forecast Bar 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662155.jpg" />
+  <img src="Z:/picture/008/save_picture_662155.jpg" />
 </div>
 
 
@@ -472,7 +608,7 @@ URL Extractor 4.5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661295.jpg" />
+  <img src="Z:/picture/008/save_picture_661295.jpg" />
 </div>
 
 
@@ -500,7 +636,7 @@ Translator & Dictionary 1.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661198.jpg" />
+  <img src="Z:/picture/008/save_picture_661198.jpg" />
 </div>
 
 
@@ -529,7 +665,7 @@ Movavi Picverse Photo Editor 7.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661183.jpg" />
+  <img src="Z:/picture/008/save_picture_661183.jpg" />
 </div>
 
 
@@ -555,7 +691,7 @@ GlanceCal 1.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660342.jpg" />
+  <img src="Z:/picture/008/save_picture_660342.jpg" />
 </div>
 
 
@@ -566,140 +702,6 @@ GlanceCal 1.6.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD9FA72637460A36FBDB5B2B71D0EC65F2FCB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539012   (660339) от 23.03.2022
-
-Scrutiny 10 v10.4.17 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A9E8725A6CD6BC8179DC18A0483FE3A479496A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539014   (660334) от 23.03.2022
-
-GroupsPro 5.2.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
-GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 27.03.2021Разработчик: © 2022 Demodit GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE5C57358A00FF221305A9ADB653ECBDD5D340B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538987   (660268) от 23.03.2022
-
-Cocktail Big Sur Edition 14.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cocktail - комплекс утилит по всестороннему обслуживанию вашего Mac, который помогает каждый день получить от своего компьютера максимальную отдачу. Приложение позволяет: исправить права доступа к файлам, оптимизировать сетевое соединение, очистить всевозможные кэши (системные и пользовательские), воспользоваться скрытыми настройками, автоматизировать выбранные процессы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2022 MaintainПоддерживаемая ОС: macOS 11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485893F526EF4EE09F68CB437768D0612013F8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539003   (660254) от 23.03.2022
-
-TangerineWallpaper 1.4 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660254.jpg" />
-</div>
-
-
-###  Подробнее
-
-TangerineWallpaper - это набор 4K фотографий, богатый выбор обоев сверхвысокой четкости, обновляемых более 10000 раз в день, идеально адаптированных к экранам высокой четкости, специально разработанных для Mac Big Sur, они могут приносить вам максимальное удовольствие от красоты каждый день.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: © 2021 - 2022 LiuHuiПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7104FB9DAFDDF561CAD8E81FE90737BEE6268C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139487   (660187) от 02.06.2017
-
-Graphics for iWork 3.1.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graphic Styles  содержит набор высококачественных изображений, которые помогут вам создать  уникальные презентации в Keynote для иллюстрации ваших слайд-шоу, информационных бюллетеней или любого другого контента. Эта великолепная коллекция придаст вашим презентациям эксклюзивность если включить в неё оригинальные рамки, символы, графический шрифт и т.д.
-
-Все изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 мая 2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B51B7A09B0C464B6A125802F27A7402E3ED433
 ```
 
 https://mybot314.ru/tekegram_catalog/

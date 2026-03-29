@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751378.jpg" />
+  <img src="Z:/picture/008/save_picture_751378.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Reader DC 2020.009.20074 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751307.jpg" />
+  <img src="Z:/picture/008/save_picture_751307.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wondershare Filmora 9.5.1.7 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751301.jpg" />
+  <img src="Z:/picture/008/save_picture_751301.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TeamViewer 15.7.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751293.jpg" />
+  <img src="Z:/picture/008/save_picture_751293.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blackmagic Design Fusion Studio 17.4.3 Build 14 (x64) Portable by rsloadNET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751283.jpg" />
+  <img src="Z:/picture/008/save_picture_751283.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Overloud TH-U Premium 1.4.7 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751278.jpg" />
+  <img src="Z:/picture/008/save_picture_751278.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Emsisoft Emergency Kit 2022.1.0.11328 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751272.jpg" />
+  <img src="Z:/picture/008/save_picture_751272.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows Repair (All In One) 3.1.3 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751205.jpg" />
+  <img src="Z:/picture/008/save_picture_751205.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Actual Window Manager 8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751198.jpg" />
+  <img src="Z:/picture/008/save_picture_751198.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Novicorp WinToFlash 0.8.0122 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751185.jpg" />
+  <img src="Z:/picture/008/save_picture_751185.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PotPlayer 220106 (1.7.21590) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751129.jpg" />
+  <img src="Z:/picture/008/save_picture_751129.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VueScan Pro 9.7.74 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751124.jpg" />
+  <img src="Z:/picture/008/save_picture_751124.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751116.jpg" />
+  <img src="Z:/picture/008/save_picture_751116.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ HandBrake 1.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751113.jpg" />
+  <img src="Z:/picture/008/save_picture_751113.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Icecream Screen Recorder PRO 5.32 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751089.jpg" />
+  <img src="Z:/picture/008/save_picture_751089.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Icaros 3.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751084.jpg" />
+  <img src="Z:/picture/008/save_picture_751084.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Total Uninstall 6.27.0.565 Professional Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751071.jpg" />
+  <img src="Z:/picture/008/save_picture_751071.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ ABBYY PDF Transformer+ 12.0.104.167 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751064.jpg" />
+  <img src="Z:/picture/008/save_picture_751064.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VLC media player 2.2.1 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751052.jpg" />
+  <img src="Z:/picture/008/save_picture_751052.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Mp3tag 2.87a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750941.jpg" />
+  <img src="Z:/picture/008/save_picture_750941.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Icaros 3.1.0 Beta 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750930.jpg" />
+  <img src="Z:/picture/008/save_picture_750930.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Rainlendar Pro 2.14.1 Build 156 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750924.jpg" />
+  <img src="Z:/picture/008/save_picture_750924.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ ABBYY PDF Transformer+ 12.0.104.167 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750921.jpg" />
+  <img src="Z:/picture/008/save_picture_750921.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ K-Lite Codec Pack 11.1.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750918.jpg" />
+  <img src="Z:/picture/008/save_picture_750918.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ABBYY Comparator 13.0.101.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750916.jpg" />
+  <img src="Z:/picture/008/save_picture_750916.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750915.jpg" />
+  <img src="Z:/picture/008/save_picture_750915.jpg" />
 </div>
 
 

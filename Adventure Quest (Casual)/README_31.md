@@ -6,7 +6,7 @@ Dead Reckoning 3: The Crescent Case (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573707.jpg" />
+  <img src="Z:/picture/008/save_picture_573707.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hidden Fears / Тайные Страхи (2015) [Ru] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573270.jpg" />
+  <img src="Z:/picture/008/save_picture_573270.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dead Reckoning 5: Snowbird's Creek / Точный расчет 5: Залив С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572731.jpg" />
+  <img src="Z:/picture/008/save_picture_572731.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dead Reckoning 6: Death Between the Lines / Точный расчет 6: Сме�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572606.jpg" />
+  <img src="Z:/picture/008/save_picture_572606.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vermillion Watch 2: Fleshbound / Алый дозор 2: Бремя плоти (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572590.jpg" />
+  <img src="Z:/picture/008/save_picture_572590.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ RiME (2017) [Ru/Multi] (1.04) Repack =nemos=
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572062.jpg" />
+  <img src="Z:/picture/008/save_picture_572062.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Beyond: Light Advent (2015) [En] Unofficial [Collector's Edition / Коллек�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571592.jpg" />
+  <img src="Z:/picture/008/save_picture_571592.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Subliminal Realms: The Masterpiece / Подсознательные миры: Ш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571517.jpg" />
+  <img src="Z:/picture/008/save_picture_571517.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Whispered Secrets 5: Everburning Candle / Нашептанные секреты 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570515.jpg" />
+  <img src="Z:/picture/008/save_picture_570515.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dawn of Hope: Skyline Adventure / Рассвет надежды: Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570503.jpg" />
+  <img src="Z:/picture/008/save_picture_570503.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Shadowplay: Darkness Incarnate / Игра теней: Восставшая Те�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570365.jpg" />
+  <img src="Z:/picture/008/save_picture_570365.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Eternal Journey: New Atlantis. Collector's Edition / Путь в бесконе�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570159.jpg" />
+  <img src="Z:/picture/008/save_picture_570159.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shadow Wolf Mysteries 5: Tracks of Terror / Призрачная тень вол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569786.jpg" />
+  <img src="Z:/picture/008/save_picture_569786.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Fatal Evidence: Cursed Island (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568848.jpg" />
+  <img src="Z:/picture/008/save_picture_568848.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hidden Expedition 11: Midgard's End / Секретная экспедиция 11
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568729.jpg" />
+  <img src="Z:/picture/008/save_picture_568729.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Silent Nights: The Pianist Collector's Edition / Тихие ночи: Пиани
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568276.jpg" />
+  <img src="Z:/picture/008/save_picture_568276.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Faces of Illusion: The Twin Phantoms / Иллюзия Облика: Тайна �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567146.jpg" />
+  <img src="Z:/picture/008/save_picture_567146.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Nevertales 5: Hidden Doorway / Несказки 5: Тайный Портал (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567114.jpg" />
+  <img src="Z:/picture/008/save_picture_567114.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Secret Order 5: The Buried Kingdom / Тайный орден 5: Затеря
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567101.jpg" />
+  <img src="Z:/picture/008/save_picture_567101.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Phantasmat 7: Reign of Shadows / Фантазмат 7: Власть теней (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565032.jpg" />
+  <img src="Z:/picture/008/save_picture_565032.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sea Of Lies 4: Tide Of Treachery (2015) [En] Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562706.jpg" />
+  <img src="Z:/picture/008/save_picture_562706.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Witches Legacy 3: Hunter and the Hunted / Наследие ведьм 3: Охо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562461.jpg" />
+  <img src="Z:/picture/008/save_picture_562461.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Cursed Cases: Murder At The Maybard Estate / Проклятые дела: Уби
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561325.jpg" />
+  <img src="Z:/picture/008/save_picture_561325.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Wanderlust 2: The City Of Mists / Жажда странствий 2: Город 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561277.jpg" />
+  <img src="Z:/picture/008/save_picture_561277.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Invasion: Lost in Time (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560802.jpg" />
+  <img src="Z:/picture/008/save_picture_560802.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Maze: Subject 360 (2015) [En] Unofficial [Collector's Edition / Коллекци
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560654.jpg" />
+  <img src="Z:/picture/008/save_picture_560654.jpg" />
 </div>
 
 

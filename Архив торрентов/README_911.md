@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839618.jpg" />
+  <img src="Z:/picture/008/save_picture_839618.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TQ (Truc Quynh) - Music Video [H.264/1080p] (2012-2013) WEBRip (5 видеокл
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_839608.jpg" />
+  <img src="Z:/picture/009/save_picture_839608.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Vivaldi 4.3.2439.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839594.jpg" />
+  <img src="Z:/picture/008/save_picture_839594.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.92 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839593.jpg" />
+  <img src="Z:/picture/008/save_picture_839593.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mozilla FireFox 93.0.0.7940 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839592.jpg" />
+  <img src="Z:/picture/008/save_picture_839592.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Reg Organizer 8.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839589.jpg" />
+  <img src="Z:/picture/008/save_picture_839589.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ SupRemo 4.5.3.2789 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839588.jpg" />
+  <img src="Z:/picture/008/save_picture_839588.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ MSI Afterburner 4.6.4 Beta 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839587.jpg" />
+  <img src="Z:/picture/008/save_picture_839587.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ O&O Defrag Professional 25.0 Build 7210 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839583.jpg" />
+  <img src="Z:/picture/008/save_picture_839583.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Wireshark 3.4.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839580.jpg" />
+  <img src="Z:/picture/008/save_picture_839580.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Blender 2.93.5 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839579.jpg" />
+  <img src="Z:/picture/008/save_picture_839579.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ iBarcoder 3.11.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839574.jpg" />
+  <img src="Z:/picture/008/save_picture_839574.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ File Cabinet Pro 7.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839573.jpg" />
+  <img src="Z:/picture/008/save_picture_839573.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Screencast 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839572.jpg" />
+  <img src="Z:/picture/008/save_picture_839572.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ B-Rather - Live @ Virtual Audio, Life Is Music Festival, Argentina 2020-04-25 [M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839571.jpg" />
+  <img src="Z:/picture/008/save_picture_839571.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ DoubleTake 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839570.jpg" />
+  <img src="Z:/picture/008/save_picture_839570.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ ExactScan Pro 20.4.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839568.jpg" />
+  <img src="Z:/picture/008/save_picture_839568.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Logoist 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839567.jpg" />
+  <img src="Z:/picture/008/save_picture_839567.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Souldia - Backstage (2020) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839564.jpg" />
+  <img src="Z:/picture/008/save_picture_839564.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Swift Publisher 5 v5.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839563.jpg" />
+  <img src="Z:/picture/008/save_picture_839563.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Blocs 3.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839561.jpg" />
+  <img src="Z:/picture/008/save_picture_839561.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Vivaldi 3.0.1874.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839560.jpg" />
+  <img src="Z:/picture/008/save_picture_839560.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ CCleaner 5.16.5551 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839553.jpg" />
+  <img src="Z:/picture/008/save_picture_839553.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839550.jpg" />
+  <img src="Z:/picture/008/save_picture_839550.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839539.jpg" />
+  <img src="Z:/picture/008/save_picture_839539.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839524.jpg" />
+  <img src="Z:/picture/008/save_picture_839524.jpg" />
 </div>
 
 

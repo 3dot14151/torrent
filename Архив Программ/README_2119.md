@@ -1,3 +1,290 @@
+###  Публикация: 1710510   (61584) от 27.03.2024
+
+OCCT 12.1.18 Final Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED88B742E4FB805F4602576493002CA31897BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710781   (61536) от 28.03.2024
+
+Office Installer & Office Installer+ 1.11 by Ratiborus [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Installer - программа предназначена для online и offline установки Office 2016/2024 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office offline.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EEA2C5A0BEB060F97262ED1DF0A7CDEE961531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710783   (61522) от 28.03.2024
+
+Topaz Video AI 4.2.2 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC232A101C4F341619042FD015ED5F4F41EE08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710851   (61521) от 28.03.2024
+
+HWiNFO 8.00 Build 5400 + Portable (28.03.2024) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61521.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C0A365E55FD5CCB4D45E77959DE0F3FF98CEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710930   (61520) от 28.03.2024
+
+Macrorit Partition Extender 2.3.2 Unlimited Edition RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Extender - утилита, доступная также в портативной версии, позволяет быстро расширять и объединять разделы жестких дисков HDD и SSD. Macrorit Partition Extender  позволяет быстро расширить раздел со свободным пространством из соседнего раздела, и автоматически объединить нераспределенное пространство в один раздел, если оно доступно на диске. Кроме (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8918D9D1DC3D370B5AAFE35DA45E2A30AEAAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711007   (61511) от 28.03.2024
+
+LibreOffice 24.2.2.2 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61511.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice - офисный пакет с открытым исходным кодом, являющийся ответвлением от проекта OpenOffice.org и претендующий на роль бесплатной альтернативы пакету офисных приложений Microsoft Office. В состав программы входят текстовый редактор Writer, табличный процессор Calc, мастер презентаций Impress, векторный графический редактор Draw, редактор формул Math и модуль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0AE0385ABAB4C083D4DBA332CA839B49B62AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710810   (61508) от 28.03.2024
+
+Topaz Gigapixel AI 7.0.5 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются.
+Эти традиционные методы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF82AAA33CCDB4FA760CA21B187FEBDBAE777D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710903   (61507) от 28.03.2024
+
+MediaHuman YouTube Downloader 3.9.9.90 (0321) RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61507.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273F382104BC48ADCCEDF574102473E8A84BF0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711013   (61506) от 28.03.2024
+
+LibreOffice 7.6.6.3 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61506.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice - офисный пакет с открытым исходным кодом, являющийся ответвлением от проекта OpenOffice.org и претендующий на роль бесплатной альтернативы пакету офисных приложений Microsoft Office. В состав программы входят текстовый редактор Writer, табличный процессор Calc, мастер презентаций Impress, векторный графический редактор Draw, редактор формул Math и модуль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F925A4176F74D28F284E9324BBEB28C6374DF2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710736   (61504) от 28.03.2024
+
+Psiphon 3 build 181 (27.03.2024) Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2AACB66524B5CEFBA87F8CA93BFA9DF6C5C3CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710998   (61503) от 28.03.2024
+
+MediaInfo 24.03 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61503.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaInfo — позволит узнать техническую информацию о видео-или аудио-файлов. Это абсолютно бесплатное программное обеспечение (бесплатный и свободный доступ к исходному коду: GPL или LGPL лицензии). Приложение поддерживает большое количество современных форматов файлов, при работе использует различные способы отображения информации. Не содержит вредоносного кода.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEECB245A39A8A67A8123E6732B7F39A8575485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711006   (61496) от 28.03.2024
 
 ExtraDisks 24.3.1 Home [Multi/Ru]
@@ -6,7 +293,7 @@ ExtraDisks 24.3.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61496.jpg" />
 </div>
 
 
@@ -32,7 +319,7 @@ CrystalMark Retro 1.0.0 RC2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61494.jpg" />
 </div>
 
 
@@ -58,7 +345,7 @@ Macrorit Disk Scanner 6.7.2 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61493.jpg" />
 </div>
 
 
@@ -84,7 +371,7 @@ Mp3tag 3.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61492.jpg" />
 </div>
 
 
@@ -110,7 +397,7 @@ O&O Defrag Professional 28.0 Build 10006 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61490.jpg" />
 </div>
 
 
@@ -137,7 +424,7 @@ Wireshark 4.2.4 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61487.jpg" />
 </div>
 
 
@@ -164,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61483.jpg" />
 </div>
 
 
@@ -190,7 +477,7 @@ Avidemux 2.8.2 Nightly(r240316) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61482.jpg" />
 </div>
 
 
@@ -216,7 +503,7 @@ AnyDesk 8.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61478.jpg" />
 </div>
 
 
@@ -242,7 +529,7 @@ Microsoft  Visual C++ Runtimes AIO v0.80.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61453.jpg" />
 </div>
 
 
@@ -268,7 +555,7 @@ uTorrent Pro 3.6.0 Build 47044 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61446.jpg" />
 </div>
 
 
@@ -294,7 +581,7 @@ Adobe Acrobat Pro 2024.001.20629 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61434.jpg" />
 </div>
 
 
@@ -320,7 +607,7 @@ Adobe Acrobat Reader 2024.001.20629.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61431.jpg" />
 </div>
 
 
@@ -346,7 +633,7 @@ KMPlayer 2024.3.28.17 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61415.jpg" />
 </div>
 
 
@@ -372,7 +659,7 @@ Wondershare PDFelement 10.3.5.2707 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61413.jpg" />
 </div>
 
 
@@ -383,294 +670,6 @@ Wondershare PDFelement - программа для общего редактир
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB2E1C97AD34A429A952823C6C1567EA8BF4750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711242   (61412) от 29.03.2024
-
-Topaz Gigapixel AI 7.0.5 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5B41CFC9DA6DF5896C1CD91E7A37B4CD8FC3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711349   (61406) от 29.03.2024
-
-Native Instruments - Kontakt 7.9.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable by vkDanilov [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt позволяет вам воспроизводить и обрабатывать ранее записанные аудиоданные - сэмплы музыкальных инструментов, звуковых эффектов, вокальных треков и пр. - но это только малая часть из всего спектра его возможностей. В Контакте вы можете использовать готовые инструменты из огромного количества библиотек от сторонних разработчиков или создавать свои виртуальные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2153F562B02E5035EB078C9AF513D315BC18F7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711303   (61404) от 29.03.2024
-
-Microsoft Visual Studio 2022 Enterprise 17.9.5 (Offline Cache) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC17657B9C04ECD494236AC9510F1D5037A950EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711340   (61394) от 29.03.2024
-
-Excite Audio - Bloom Drum Breaks 1.0.1 STANTALONE, VSTi, VSTi 3, AAX (x86/x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloom Drum Breaks объединяет энергичные барабанные лупы, вставки и ваншоты в динамичный и играбельный инструмент, созданный для того, чтобы придать вашим трекам ритмическую живость и созданный для жанров, которые процветают за счет ритма.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65C19AA9878ACBB876FC92EE5FC16E5B8115FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711075   (61392) от 29.03.2024
-
-Exif Pilot 6.23.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exif Pilot - EXIF редактор используется для просмотра EXIF, EXIF GPS, IPTC и XMP данных, редактирования, создания EXIF, EXIF GPS и IPTC данных. Импорт/экспорт из/в XML, MS Excel формат, текстовый файл. Exif Pilot поддерживает следующие форматы: JPEG, TIFF, PNG, DNG, NEF, PEF, CRW, JP2 - читает, редактирует и создает метаданные. RAW изображения, включая CR2, MRW, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665C21B8AA025883FA044F9A1F2C75579547B3DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711043   (61382) от 29.03.2024
-
-OpenNumismat 1.9.7 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61382.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenNumismat является удобным и надежным приложением, предназначенным для коллекционеров монет и нумизматов, для создания нумизматической коллекции.
-С OpenNumismat вы сможете организовывать и управлять коллекцией монет: создавать подробный каталог ваших монет, списки нужного и проданного, просматривать статистику вашей коллекции.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA4A7F64D062B0DDE1E01FD54FCC556DE4D1AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711307   (61376) от 29.03.2024
-
-Opera One 109.0.5097.35 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C953F1532E3CBB9020EE2E02A8B4D9773805B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711576   (61311) от 30.03.2024
-
-ThisIsMyFile 4.24 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61311.jpg" />
-</div>
-
-
-###  Подробнее
-
-ThisIsMyFile — это небольшая, но эффективная программа для разблокировки и/или удаления заблокированных, или защищённых файлов и папок. Программа умеет создавать копию файлов до удаления, поддерживает удаление файлов при запуске системы, полезное в особо сложных случаях (потребуется перезагрузка).
-Вы можете перетащить файлы или папки в окно приложения или воспользоваться (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1ED7BEDF639A22FF08FD00185158A41D4A0FE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711401   (61307) от 30.03.2024
-
-Topaz Photo AI 2.4.2 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEDEC9A64681B8713CEA482AC86891FADAC89B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711454   (61298) от 30.03.2024
-
-Notepad++ 8.6.5 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B139F3CCDA1D80C509846B3F1980BFBBBC951752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711402   (61286) от 30.03.2024
-
-CrystalMark Retro 1.0.0 RC3 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61286.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalMark - это простая в обращении и мощная по функциям программа для тестирования и сравнения скорости работы компьютера и отдельных его компонентов. Также, CrystalMark позволяет просматривать подробную информацию об аппаратных компонентах компьютера.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BB0724B3F2199B7CB1D937336DF1D5E743A4CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

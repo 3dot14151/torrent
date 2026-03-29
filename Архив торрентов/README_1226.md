@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776657.jpg" />
+  <img src="Z:/picture/008/save_picture_776657.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776650.jpg" />
+  <img src="Z:/picture/008/save_picture_776650.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776647.jpg" />
+  <img src="Z:/picture/008/save_picture_776647.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776640.jpg" />
+  <img src="Z:/picture/008/save_picture_776640.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776631.jpg" />
+  <img src="Z:/picture/008/save_picture_776631.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kali Linux VMware 2018.1 amd64 [OVA]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776623.jpg" />
+  <img src="Z:/picture/008/save_picture_776623.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (2.1.22.26/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776607.jpg" />
+  <img src="Z:/picture/008/save_picture_776607.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776605.jpg" />
+  <img src="Z:/picture/008/save_picture_776605.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Perfectly Clear 4.3.0 [Ru] - Коррекция изображений
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776598.jpg" />
+  <img src="Z:/picture/008/save_picture_776598.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776592.jpg" />
+  <img src="Z:/picture/008/save_picture_776592.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776586.jpg" />
+  <img src="Z:/picture/008/save_picture_776586.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776585.jpg" />
+  <img src="Z:/picture/008/save_picture_776585.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776584.jpg" />
+  <img src="Z:/picture/008/save_picture_776584.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776583.jpg" />
+  <img src="Z:/picture/008/save_picture_776583.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776582.jpg" />
+  <img src="Z:/picture/008/save_picture_776582.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776581.jpg" />
+  <img src="Z:/picture/008/save_picture_776581.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776580.jpg" />
+  <img src="Z:/picture/008/save_picture_776580.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Epic Trance Weapons Vol. 5 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776575.jpg" />
+  <img src="Z:/picture/008/save_picture_776575.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - City Trance, Vol. One (2016)[MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776574.jpg" />
+  <img src="Z:/picture/008/save_picture_776574.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Trance Parade (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776573.jpg" />
+  <img src="Z:/picture/008/save_picture_776573.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776570.jpg" />
+  <img src="Z:/picture/008/save_picture_776570.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ HoudahGeo 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776569.jpg" />
+  <img src="Z:/picture/008/save_picture_776569.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776556.jpg" />
+  <img src="Z:/picture/008/save_picture_776556.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776552.jpg" />
+  <img src="Z:/picture/008/save_picture_776552.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Mate Translate – переводчик 4.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776542.jpg" />
+  <img src="Z:/picture/008/save_picture_776542.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Anvir Task Manager 8.0.2 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776536.jpg" />
+  <img src="Z:/picture/008/save_picture_776536.jpg" />
 </div>
 
 

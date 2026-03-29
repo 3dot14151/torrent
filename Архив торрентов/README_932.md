@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834852.jpg" />
+  <img src="Z:/picture/008/save_picture_834852.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834844.jpg" />
+  <img src="Z:/picture/008/save_picture_834844.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Suanda Spring Vol.3 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834843.jpg" />
+  <img src="Z:/picture/008/save_picture_834843.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ TextLab 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834838.jpg" />
+  <img src="Z:/picture/008/save_picture_834838.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834830.jpg" />
+  <img src="Z:/picture/008/save_picture_834830.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Blaze Bayley - Infinite Entanglement (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834829.jpg" />
+  <img src="Z:/picture/008/save_picture_834829.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ KMSoffline 2.3.2 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834796.jpg" />
+  <img src="Z:/picture/008/save_picture_834796.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Kaspersky Tweak Assistant 21.10.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834778.jpg" />
+  <img src="Z:/picture/008/save_picture_834778.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834773.jpg" />
+  <img src="Z:/picture/008/save_picture_834773.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Viber 12.8.1.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834764.jpg" />
+  <img src="Z:/picture/008/save_picture_834764.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Jashin-chan Dropkick Dash | Dropkick on My Devil!! Dash | Дропкик зло�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834757.jpg" />
+  <img src="Z:/picture/008/save_picture_834757.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834750.jpg" />
+  <img src="Z:/picture/008/save_picture_834750.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834747.jpg" />
+  <img src="Z:/picture/008/save_picture_834747.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Permute 2.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834717.jpg" />
+  <img src="Z:/picture/008/save_picture_834717.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Boinx FotoMagico 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834701.jpg" />
+  <img src="Z:/picture/008/save_picture_834701.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834699.jpg" />
+  <img src="Z:/picture/008/save_picture_834699.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Posterino 3.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834693.jpg" />
+  <img src="Z:/picture/008/save_picture_834693.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ MediaInfo 0.7.84 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834691.jpg" />
+  <img src="Z:/picture/008/save_picture_834691.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ BELOFF [dp] 2020.04.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834658.jpg" />
+  <img src="Z:/picture/008/save_picture_834658.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834655.jpg" />
+  <img src="Z:/picture/008/save_picture_834655.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834638.jpg" />
+  <img src="Z:/picture/008/save_picture_834638.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834613.jpg" />
+  <img src="Z:/picture/008/save_picture_834613.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Iggy and The Stooges - Ready To Die (2013) [FLAC|Lossless]<Garage Rock, Punk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834611.jpg" />
+  <img src="Z:/picture/008/save_picture_834611.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834586.jpg" />
+  <img src="Z:/picture/008/save_picture_834586.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834583.jpg" />
+  <img src="Z:/picture/008/save_picture_834583.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Mozilla Firefox 46.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834580.jpg" />
+  <img src="Z:/picture/008/save_picture_834580.jpg" />
 </div>
 
 

@@ -1,3 +1,118 @@
+###  Публикация: 1739048   (48761) от 26.07.2024
+
+VA - Movement Vol. 2 (Live from Cape Town - Mixed By James Grant) - 2024 [FLAC|Lossless|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mixed
+01. Esteble - O - Ama (Mixed)
+02. Alessandro Martire - Introspection (Mixed)
+03. Braxton - Falling (Mixed)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A1F50F84C601F54BA76AA01C6B3C457C07829E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741987   (47353) от 09.08.2024
+
+Calvin Harris - 96 Months (2024) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Dance, House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free [00:03:32]
+02. How Deep Is Your Love [00:03:32]
+03. This Is What You Came For [00:03:41]
+04. My Way [00:03:39](   Читать дальше...   )Жанр: Breaks, Dance, House, Deep House, Disco House, Future House, Progressive HouseПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E12FA53E0E987EF3D97CB9E0A283E31F7228ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744204   (46182) от 20.08.2024
+
+TaTa Golosa (Romina Contiero) - Busca Busca (+ Micromania 2014) (2014) [FLAC|Lossless|tracks] <Club House, Tribal House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TaTa Golosa - Busca Busca (original mix) (03:45)
+02. TaTa Golosa - Busca Busca (Stefano Carparelli remix) (04:18)
+03. TaTa Golosa - Micromania (Tobix remix) (04:17)Жанр: Club House, Tribal HouseПродолжительность: 00:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91F17797995749E77E18CA9AD3428397958642F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744203   (46178) от 20.08.2024
+
+TaTa Golosa (Romina Contiero) - Fotonovela Y Otras Historias (2009) [FLAC|Lossless|tracks] <Club House, Tribal House, Dance-pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fotonovela (video edit) (04:01)
+02. Yo te siento asi (03:19)
+03. El baile de Tata (03:33)
+04. Micromania (original mix) (05:16)(   Читать дальше...   )Жанр: Club House, Tribal House, Dance-popПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3A9B30B92004D5E9C9B02BB4E3B1261013BB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744356   (46101) от 21.08.2024
 
 VA - Seychelles Summer Mix 2024 Chillout Island Beach Lounge [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -6,7 +121,7 @@ VA - Seychelles Summer Mix 2024 Chillout Island Beach Lounge [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46101.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ VA - Oriental Ethnic Deep House Summer Mix (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44932.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ VA - Best Ethnic Deep House 2024 (Best Oriental Ethnic Deep Chill House Mix) [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44920.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ VA - Dark Arabic Bass House (Ethnic Deep House Mix) (2024) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44816.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ VA - ARABICA 2024 - Arabic Oriental Deep House Chillout Desert [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44731.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ VA - Arab Folk (Arab Vibes of the Middle East) (2023) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44610.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ VA - Oriental Lounge Music (The Finest Selection Arab Ethnic Tribal House Rhythm
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44500.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ VA - ARAB X (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44181.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ Jean-Michel Jarre - Paris Stadium (2024) EP, Live [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44100.jpg" />
 </div>
 
 
@@ -266,7 +381,7 @@ VA - Arabtronica 2024 - The Best Eastern Rhythms (2024) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44090.jpg" />
 </div>
 
 
@@ -295,7 +410,7 @@ VA - Lebanon Arabic Ethnic Deep House Hits (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43871.jpg" />
 </div>
 
 
@@ -324,7 +439,7 @@ VA - Buddha Luxury Bar - Arabian Chillout Deluxe 2024 [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43339.jpg" />
 </div>
 
 
@@ -353,7 +468,7 @@ VA - Sahara Beats (The Hottest Arab Music from the Hottest Desert) (2023) [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43160.jpg" />
 </div>
 
 
@@ -382,7 +497,7 @@ VA - Arabic Ethnic Deep House Mix 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42605.jpg" />
 </div>
 
 
@@ -411,7 +526,7 @@ VA - Arabic Ethnic Deep House Mix 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42536.jpg" />
 </div>
 
 
@@ -440,7 +555,7 @@ VA - Arabic Ethnic Deep House Mix 2022 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42499.jpg" />
 </div>
 
 
@@ -469,7 +584,7 @@ VA - Arabic Ethnic Deep House Mix (2021) [FLAC|Lossless|WEB-DL|tracks] <House, F
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42404.jpg" />
 </div>
 
 
@@ -498,7 +613,7 @@ Siri Umann, Aradia Voice - Arabic Deep House (2024) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42401.jpg" />
 </div>
 
 
@@ -527,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42227.jpg" />
 </div>
 
 
@@ -556,7 +671,7 @@ VA - Arab Lounge Grooves (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42200.jpg" />
 </div>
 
 
@@ -585,7 +700,7 @@ VA - Cafe Oriental (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42199.jpg" />
 </div>
 
 
@@ -614,7 +729,7 @@ VA - Folktronic & Organic (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42193.jpg" />
 </div>
 
 
@@ -628,118 +743,6 @@ VA - Folktronic & Organic (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08EABD6F280748567E227537A55685A3125EF152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751689   (39779) от 20.10.2024
-
-VA - Arab Music by Dust & Grooves (2024) 19CD [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, Experimental, EBM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-VA - Dust and Grooves - Ancient Egyptian Deep House (2024) FLAC (16bit-44.1kHz)
-VA - Dust and Grooves - Arab Trap Ultra Beats (The Best Arabic Instrumental Music) (2024) FLAC (16bit-44.1kHz)
-VA - Dust and Grooves - Arab X (2024) FLAC(   Читать дальше...   )Жанр: House, Downtempo, Experimental, EBMПродолжительность: 19CD, 07:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC78A0FBB6AC9985A492A3C3363079EF5976462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756266   (39758) от 20.10.2024
-
-Jaycee Madoxx x DJ Zkydriver x Plastik Bass - Smells Like Teen Spirit (2023) [FLAC|Lossless|tracks] <Electro House, Electroclash, Pop Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaycee Madoxx x DJ Zkydriver x Plastik Bass - Smells Like Teen Spirit (2:34)
-02. Jaycee Madoxx x DJ Zkydriver x Plastik Bass - Smells Like Teen Spirit (Extended Mix) (3:29)Жанр: Electro House, Electroclash, Pop RockПродолжительность: 00:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC4F6D012B5A80F1B07C051A06F3D41C5A07987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756378   (39752) от 20.10.2024
-
-Giobbi - Dotr (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giobbi – Intro: Patricia Lynn
-02. Giobbi & Mascolo – Been Such a Long Time
-03. Giobbi, Le Chev & Caroline Byrne – Dancer
-04. Giobbi & Danielle Ponder – Is This Love(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17FB22858BAC24BE8DC36254008E26A26D65FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756337   (39746) от 20.10.2024
-
-Ott - Hiraeth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Dub, Techno, PsyChill>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Door In The Back Of The Wardrobe
-02. Muggy BoneheadsЖанр: Tech House, Dub, Techno, PsyChillПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE6DB3BCB124D9DA7925D28628FA7FE2D069294
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1263937   (284333) от 21.11.2018
+
+Camtasia v2018.0.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2018Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B0848531BC54A2F75215A88BF4A8600C0F4D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081189   (284288) от 09.12.2016
+
+Dead Effect 2 (2016) [En] [macOS WineSkin]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Effect 2 – научно-фантастический шутер от первого лица с добротной сюжетной линией и элементами RPG. Вы сможет играть как в одиночку, так и вместе с Вашими друзьями в кооперативном режиме. События новой части разворачивается с того момента, где закончился сюжет оригинальной Dead Effect.
+Протагонисту покой только снится – новая угроза, еще более опасная, чем (   Читать дальше...   )Тип издания: macOS WineSkinРелиз состоялся: 2016Разработчик: BadFly Interactive, a.s.Поддерживаемая ОС: Mac OS X 10.10.5+Жанр: Action (Survival horror)Язык озвучки: английскийЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDEE4B5C76580C565DD1891FBAC1D5846F13442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263897   (284207) от 21.11.2018
+
+Two Point Hospital v.1.6.22002 (2018) [Multi/Ru] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спроектируйте и постройте больницу!
+
+Постройте больницу с нуля и сделайте её самой привлекательной — и самой эффективно работающей — во всём округе Две Вершины.
+(   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 30 авг. 2018Разработчик: Two Point StudiosПоддерживаемая ОС: 10.13Жанр: СимуляторыЯзык озвучки: английскийЯзык интерфейса: русский, английский, французский +
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99F0486751BA508486169CC6079A2B87D00CA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186751   (284081) от 26.11.2017
+
+WiFi Explorer Pro 1.3.2 (16) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284081.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и ИТ-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2017Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF586724295E3AA33D8A417DF944F153CE933CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186827   (284061) от 26.11.2017
 
 TotalFinder 1.10.4 [Multi/Ru]
@@ -6,7 +116,7 @@ TotalFinder 1.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284061.jpg" />
+  <img src="Z:/picture/008/save_picture_284061.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ Hands Off! 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283501.jpg" />
+  <img src="Z:/picture/008/save_picture_283501.jpg" />
 </div>
 
 
@@ -61,7 +171,7 @@ Charles Web Debugging Proxy 3.11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283337.jpg" />
+  <img src="Z:/picture/008/save_picture_283337.jpg" />
 </div>
 
 
@@ -89,7 +199,7 @@ Multitouch 1.7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283052.jpg" />
+  <img src="Z:/picture/008/save_picture_283052.jpg" />
 </div>
 
 
@@ -117,7 +227,7 @@ Ghostnote 2 v2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282966.jpg" />
+  <img src="Z:/picture/008/save_picture_282966.jpg" />
 </div>
 
 
@@ -144,7 +254,7 @@ Alfred 3 Powerpack 3.7.1 (942)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282952.jpg" />
+  <img src="Z:/picture/008/save_picture_282952.jpg" />
 </div>
 
 
@@ -173,7 +283,7 @@ MacX Video Converter Pro 6.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282911.jpg" />
+  <img src="Z:/picture/008/save_picture_282911.jpg" />
 </div>
 
 
@@ -200,7 +310,7 @@ Aiseesoft Mac Video Enhancer 9.2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282889.jpg" />
+  <img src="Z:/picture/008/save_picture_282889.jpg" />
 </div>
 
 
@@ -228,7 +338,7 @@ PowerPhotos 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282887.jpg" />
+  <img src="Z:/picture/008/save_picture_282887.jpg" />
 </div>
 
 
@@ -254,7 +364,7 @@ Ethernet Status 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282879.jpg" />
+  <img src="Z:/picture/008/save_picture_282879.jpg" />
 </div>
 
 
@@ -280,7 +390,7 @@ Waltr 2 v2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282813.jpg" />
+  <img src="Z:/picture/008/save_picture_282813.jpg" />
 </div>
 
 
@@ -307,7 +417,7 @@ Aimersoft Video Converter Ultimate for Mac 11.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282580.jpg" />
+  <img src="Z:/picture/008/save_picture_282580.jpg" />
 </div>
 
 
@@ -333,7 +443,7 @@ Downie 3.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282541.jpg" />
+  <img src="Z:/picture/008/save_picture_282541.jpg" />
 </div>
 
 
@@ -362,7 +472,7 @@ Cookie 5.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282537.jpg" />
+  <img src="Z:/picture/008/save_picture_282537.jpg" />
 </div>
 
 
@@ -391,7 +501,7 @@ Jump Desktop (RDP, VNC, Fluid) 7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282532.jpg" />
+  <img src="Z:/picture/008/save_picture_282532.jpg" />
 </div>
 
 
@@ -418,7 +528,7 @@ DropDMG 3.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282424.jpg" />
+  <img src="Z:/picture/008/save_picture_282424.jpg" />
 </div>
 
 
@@ -445,7 +555,7 @@ Affinity Photo 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282319.jpg" />
+  <img src="Z:/picture/008/save_picture_282319.jpg" />
 </div>
 
 
@@ -474,7 +584,7 @@ Templates for Pages 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282235.jpg" />
+  <img src="Z:/picture/008/save_picture_282235.jpg" />
 </div>
 
 
@@ -503,7 +613,7 @@ Day One 1.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282228.jpg" />
+  <img src="Z:/picture/008/save_picture_282228.jpg" />
 </div>
 
 
@@ -530,7 +640,7 @@ Darkwood v.1.1 hotfix 5 (2017) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282168.jpg" />
+  <img src="Z:/picture/008/save_picture_282168.jpg" />
 </div>
 
 
@@ -556,7 +666,7 @@ Airy 3.11.245 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282052.jpg" />
+  <img src="Z:/picture/008/save_picture_282052.jpg" />
 </div>
 
 
@@ -585,7 +695,7 @@ EdgeView 2 v2.476 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281237.jpg" />
+  <img src="Z:/picture/008/save_picture_281237.jpg" />
 </div>
 
 
@@ -596,115 +706,6 @@ EdgeView 2 - это новейший просмотрщик изображени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:702F67A54F4C9954FF87BAF842393DE4ADB062B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264288   (281166) от 23.11.2018
-
-MovieMator Video Editor Pro 2.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281166.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 года в процессе создания, Video Editor MovieMator наконец-то стал простым, но мощным программным обеспечением для редактирования видео. Он не только позволяет пользователям выполнять все основные работы по редактированию, такие как обрезка, обрезка, разделение, поворот, слияние и многое другое, но также предоставляет более продвинутые функции редактирования, такие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2018Разработчик: EtinysoftПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85A5AEA710B7A8CE161E5E904A47BDC8091C002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264240   (281164) от 23.11.2018
-
-iStat Menus 6 v6.30 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281164.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS High Sierra.
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться работой, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2018Разработчик: Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D449512C12B00E69998BF3218AE336CCECC1975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081943   (281119) от 11.12.2016
-
-Squeezer 1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минимизировать, компилировать и сжимать веб-источники и изображения
-Squeezer дружище веб-разработчика. Он может компилировать ваши сценарии, оптимизировать изображения, и убрать ненужные файлы, чтобы ускорить время загрузки сайта. Просто перетащите  ваши файлы, и Squeezer позаботится об остальном!
-
-• Простота в использовании, интуитивно понятный пользовательский интерфейс(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 декабря 2016Разработчик: InSili.co.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14EC5F75EE99D6519A79E3EB4F91B5209D56E18C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336324   (281071) от 06.11.2019
-
-Find Any File (FAF) 2.0.1 b8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB45D5975EE85B0DC4068AACBDC40826DB375A9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

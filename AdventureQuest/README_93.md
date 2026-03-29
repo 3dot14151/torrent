@@ -1,3 +1,81 @@
+###  Публикация: 1753565   (34045) от 16.12.2024
+
+Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack West4it
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда восемь друзей возвращаются в уединенный дом в горах, где двое их товарищей пропали год назад, страх сжимает их сердца ледяной хваткой, а отдых оборачивается бесконечным кошмаром. Взгляните в лицо своим страхам. Решайте, кому суждено дожить до рассвета в этом классическом хорроре, воссозданном для ПК с еще более ужасающей глубиной.Тип издания: RepackРазработчик: Ballistic MoonЖанр: Action, Quest, 3rd Person, HorrorЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7EE3860C4044D654630355B870C8B432496FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753509   (34042) от 16.12.2024
+
+Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack Decepticon
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда восемь друзей возвращаются в уединенный дом в горах, где двое их товарищей пропали год назад, страх сжимает их сердца ледяной хваткой, а отдых оборачивается бесконечным кошмаром. Взгляните в лицо своим страхам. Решайте, кому суждено дожить до рассвета в этом классическом хорроре, воссозданном для ПК с еще более ужасающей глубиной.Тип издания: RepackРазработчик: Ballistic MoonЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57798D1D266E70124A5E2A84987EEB409334DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766148   (34022) от 16.12.2024
+
+Forbidden Fantasy (2024) [Ru/Multi] (Build 16582417/dlc) Repack Let'sРlay [Supporter Edition] [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forbidden Fantasy - визуальная новелла для взрослых, сюжет которой зависит от ваших решений. Сыграйте за героя из пророчества, заводите романы и спаси мир от королевы демонов. Вы молодой воин, которому суждено принести себя в жертву. Тренируйтесь со своей наставницей - прекрасной эльфийкой - и спасите мир от коварного замысла королевы демонов. Очаруйте таинствнных (   Читать дальше...   )Тип издания: RepackРазработчик: OppaiManЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E940C24BFF1D10933757D1335E10FAAB30C228DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755118   (33954) от 17.12.2024
 
 3 Minutes to Midnight - A Comedy Graphic Adventure (2024) [Ru/Multi] (1.1.0a/dlc) License GOG
@@ -6,7 +84,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33954.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ DEVOUR (2021) [Ru/Multi] (5.1.3) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33927.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33841.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33736.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33720.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ INDIKA (2024) [Ru/Multi] (Build 15648284) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33697.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33500.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.3) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33445.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33429.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33424.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Ruined Nurse (2024) [Multi] (1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33408.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33400.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33339.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.7/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33318.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33270.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33222.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Long Dark (2017) [Ru/Multi] (2.12.148383 S/2.39.149246 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33192.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33189.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33159.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33107.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33106.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Hollowbody (2024) [En] (g2.2 patch 10 hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33012.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Mouthwashing (2024) [Ru/Multi] (Build 15980018) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32975.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Mouthwashing - хоррор от первого лица об умирающем
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:088B2311F3461551DDA4D7DB2AA257D31A71E182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758790   (32907) от 27.12.2024
-
-Moon Mystery (2024) [Ru/Multi] (1.2 Build 16746093) Repack Decepticon
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moon Mystery приглашает игроков в космическую одиссею исследований и интриг. Этот шутер от первого лица отказывается от типичных земных конфликтов и отправляет вас в неизведанные глубины космоса. Луна - это отправная точка, небесный трамплин для повествования, выходящего за рамки человеческих ограничений. Это не просто адвенчура о взрывах инопланетян. Конечно, тут (   Читать дальше...   )Тип издания: RepackРазработчик: CosmoscoutsЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE5FA53C6194BF678F90D5981223FC8485FBC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759930   (32869) от 27.12.2024
-
-Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения в Nine Sols переносят игроков в сеттинг восточного фэнтези, где предстоит сразиться против 9 Солов. Игра представляет собой двухмерный платформер с элементами соулслайк, где приходится сталкиваться с уникальными боссами. События происходят на территории Нового Куньлунь, что является убежищем для выживших. Древни боги оставили смертных, вынуждая их противостоять (   Читать дальше...   )Тип издания: RepackРазработчик: RedCandleGamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688D8A4F61A79171242FA86C65D89803B8ECECEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769328   (32730) от 28.12.2024
-
-Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0331) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bendy and the Dark Revival - это хоррор-игра на выживание от первого лица и долгожданное продолжение Bendy and the Ink Machine. Играйте за Одри, когда она исследует глубины удивительно жуткой анимационной студии, которая полностью сошла с ума. Сражайтесь с испачканными чернилами врагами, решайте головоломки и уклоняйтесь от постоянно скрывающегося Чернильного демона, (   Читать дальше...   )Тип издания: LicenseРазработчик: Joey Drew StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1B049ED2FB3C02282A0122F41CFC4FEE566358
 ```
 
 https://mybot314.ru/tekegram_catalog/

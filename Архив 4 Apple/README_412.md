@@ -1,3 +1,111 @@
+###  Публикация: 1415882   (374324) от 13.10.2020
+
+Separation Studio 2.1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Separation Studio - Инструмент разделения цвета в полиграфической системе CMYK (голубой, пурпурный, жёлтый, ключевой (чёрный). Вам не нужно какое-либо другое программное обеспечение для разделения графических цветов. Просто откройте свой файл изображения с помощью Separation Studio, и он сделает все остальное.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: Splash Colors, MChJПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC2943234495EB722CDB8E5118019AF431BEE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327435   (374238) от 25.09.2019
+
+iMazing 2.10.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374238.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0F6DA11CA635AF16C3A36218415F1C75B9373B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176044   (374227) от 20.10.2017
+
+VueScan Pro 9.5.90 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374227.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan — программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2017Разработчик: Hamrick SoftwareПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA95A0585898A1CD1C4D5BE57D5EE029F3C724AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175973   (374225) от 20.10.2017
+
+Alfred Powerpack 3.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alfred Powerpack - Лаунчер приложений для Mac OS X.
+Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+
+Вызвать окно Alfred очень просто — по-умолчанию используется (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2017Разработчик: Running with Crayons LtdПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A9F388A357772969DA5D31E873353052E6DC76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415873   (374169) от 13.10.2020
 
 iStat Menus 6 v6.50 Beta [Multi/Ru]
@@ -6,7 +114,7 @@ iStat Menus 6 v6.50 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374169.jpg" />
+  <img src="Z:/picture/008/save_picture_374169.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374163.jpg" />
+  <img src="Z:/picture/008/save_picture_374163.jpg" />
 </div>
 
 
@@ -62,7 +170,7 @@ Sublime Text 3.2.1 (Build 3210 Dev) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374001.jpg" />
+  <img src="Z:/picture/008/save_picture_374001.jpg" />
 </div>
 
 
@@ -89,7 +197,7 @@ Adobe Illustrator CC 2019 v23.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373987.jpg" />
+  <img src="Z:/picture/008/save_picture_373987.jpg" />
 </div>
 
 
@@ -117,7 +225,7 @@ SnapNDrag Pro 4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373982.jpg" />
+  <img src="Z:/picture/008/save_picture_373982.jpg" />
 </div>
 
 
@@ -146,7 +254,7 @@ PDF Expert 2.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373910.jpg" />
+  <img src="Z:/picture/008/save_picture_373910.jpg" />
 </div>
 
 
@@ -175,7 +283,7 @@ Contacts Journal CRM 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373868.jpg" />
+  <img src="Z:/picture/008/save_picture_373868.jpg" />
 </div>
 
 
@@ -203,7 +311,7 @@ iMazing 2.12.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373784.jpg" />
+  <img src="Z:/picture/008/save_picture_373784.jpg" />
 </div>
 
 
@@ -230,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373765.jpg" />
+  <img src="Z:/picture/008/save_picture_373765.jpg" />
 </div>
 
 
@@ -256,7 +364,7 @@ Be Focused Pro (aka Pomodoro Time Pro) 1.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373764.jpg" />
+  <img src="Z:/picture/008/save_picture_373764.jpg" />
 </div>
 
 
@@ -284,7 +392,7 @@ Waltr 2 v2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373675.jpg" />
+  <img src="Z:/picture/008/save_picture_373675.jpg" />
 </div>
 
 
@@ -311,7 +419,7 @@ Magic Retouch Pro 4.2 - panel for Adobe Photoshop [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373581.jpg" />
+  <img src="Z:/picture/008/save_picture_373581.jpg" />
 </div>
 
 
@@ -339,7 +447,7 @@ Moom 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373559.jpg" />
+  <img src="Z:/picture/008/save_picture_373559.jpg" />
 </div>
 
 
@@ -366,7 +474,7 @@ iStat Menus 6 v6.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373521.jpg" />
+  <img src="Z:/picture/008/save_picture_373521.jpg" />
 </div>
 
 
@@ -393,7 +501,7 @@ Data Guardian 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373327.jpg" />
+  <img src="Z:/picture/008/save_picture_373327.jpg" />
 </div>
 
 
@@ -419,7 +527,7 @@ Killswitch Engage - Studio Albums (2000 - 2009) [ALAC|Lossless]<Metalcore>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372942.jpg" />
+  <img src="Z:/picture/005/save_picture_372942.jpg" />
 </div>
 
 
@@ -454,7 +562,7 @@ Audiobook Builder 1.5.4fc3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372728.jpg" />
+  <img src="Z:/picture/008/save_picture_372728.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ Synalyze It! Pro 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372591.jpg" />
+  <img src="Z:/picture/008/save_picture_372591.jpg" />
 </div>
 
 
@@ -511,7 +619,7 @@ JixiPix Chromatic Edges 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372569.jpg" />
+  <img src="Z:/picture/008/save_picture_372569.jpg" />
 </div>
 
 
@@ -538,7 +646,7 @@ VMware Fusion 5.0.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372475.jpg" />
+  <img src="Z:/picture/005/save_picture_372475.jpg" />
 </div>
 
 
@@ -565,7 +673,7 @@ Little Snitch 3.0 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372350.jpg" />
+  <img src="Z:/picture/005/save_picture_372350.jpg" />
 </div>
 
 
@@ -593,7 +701,7 @@ ABBYY Lingvo Dictionary для Mac 1.9.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372321.jpg" />
+  <img src="Z:/picture/008/save_picture_372321.jpg" />
 </div>
 
 
@@ -607,117 +715,6 @@ ABBYY Lingvo Dictionary - самый популярный оффлайн сло�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5089790577ED46B39B0CBA911AF64A47BBC49A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176233   (372295) от 21.10.2017
-
-A Better Finder Attributes 6 v6.06 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372295.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2017Разработчик: PublicspaceПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D3EC88DA2E9407BC427DA5C7F151442F038079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176218   (372292) от 21.10.2017
-
-PullTube 0.10.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещенном на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио
-Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.
-
-PullTube предлагает Вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2017Разработчик: MyMixAppsПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BBED77D78780E9A5803B26485F829CB89CCF8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176323   (372175) от 21.10.2017
-
-MediaHuman YouTube Downloader 3.9.8.16 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372175.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-Закачка нескольких файлов одновременно
-Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 сентября 2017Разработчик: MediaHumanПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Итальянский, и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63E304574454E4EB4E1BF10B264A61B2C13FD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415964   (372139) от 14.10.2020
-
-AudioFinder 6.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372139.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioFinder — программа для управления вашей фонотекой.
-С ее помошью можно организовать каталог ваших медиа-файлов и мгновенно находить нужный вам звук, именно тогда, когда он вам необходим, сэкономит вам кучу времени. Используйте AudioFinder для создания пользовательских наборов для всех категорий и конкретных проектов, при быстром просмотре файла и прослушивании, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2020Разработчик: Iced AudioПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B489AA5723C708ED16746EA5F094B66BC601D6B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

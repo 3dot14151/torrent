@@ -1,3 +1,159 @@
+###  Публикация: 1544218   (621513) от 15.04.2022
+
+The Last Stand: Aftermath (2021) [Ru/Multi] (1.1.0.11) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_621513.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Last Stand: Aftermath — это новейшая игра от опытных разработчиков Con Artist Games, создателей серии The Last Stand. Продолжение серии — это великолепная независимая игра для одного игрока, которую можно отнести к жанрам «экшн», «приключения» и roguelite. Выберите выжившего, чтобы вместе с этим персонажем исследовать руины цивилизации, искать топливо для перемещения (   Читать дальше...   )Тип издания: RepackРазработчик: Con Artist GamesЖанр: Action (Roguelike, Isometric), Adventure, RPG, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8FADBE2D21DBE9E77711663461AEF2533B3D23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229954   (620509) от 09.06.2018
+
+State of Decay (2015) [Ru/Multi] (1.0/dlc) Repack xatab [Year One Survival Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики тщательно поработали над тем, чтобы сделать State of Decay и дополнения Breakdown и Lifeline еще лучше: теперь игроки смогут насладиться всеми прелестями формата полной высокой четкости (1080p). Новые задания и оружие, бонусный контентТип издания: RepackРазработчик: Undead LabsЖанр: Action, Shooter, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9263EE3E5BBA676EDB9B04B895777F8685DD6BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145520   (619359) от 26.06.2017
+
+Bayonetta (2017) [Ru/Multi] (1.01) Repack ivandubskoj
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный директор PlatinumGames Хидэки Камия, создавший знаменитые Resident Evil и Devil May Cry, а также компания SEGA запускают одну из самых прославленных action-игр всех времен на ПК. Байонетта. Единственная выжившая из старинного клана ведьм, сохранявшего равновесие между светом, тьмой и хаосом. Байонетта спряталась в гробнице, чтобы защитить себя и весь (   Читать дальше...   )Тип издания: RepackРазработчик: PlatinumGamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00EDC86A1E81FC17386610068E31C9A6CB3CDB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230271   (617068) от 11.06.2018
+
+Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack xatab
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стикс – исключительный гоблин, непревзойденный мастер скрытности, воровства и убийств. Ему предстоит отправиться в башню Акенаш, где хранится сердце драгоценного Дерева Мира. Там Стиксу представится отличный шанс быстро подзаработать и, возможно, узнать немало интересного.Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA227D4D867EEEC07466B72B2036032B8077777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231716   (616474) от 14.04.2019
+
+Crying is not Enough (2018) [Ru/Multi] (1.0/upd1) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crying is not Enough (“Крик не поможет”) - это игра на выживание жанра ужасов от третьего лица. Игроку приходится сталкиваться с врагами, используя оружие и другие механизмы выживания. Он должен решать различные головоломки и добиваться прогресса, медленно раскрывая историю.Тип издания: LicenseРазработчик: Storyline TeamЖанр: Action (Horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC1FBBA5E17977D24C7E326F6AA3E7F1F3ADC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545184   (616002) от 18.04.2022
+
+The Haunted: Hells Reach (2011) [Multi] (1.0 Build 8564469/dlc) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весь ад вырвался наружу!!! The Haunted — это динамичный экшн от третьего лица с элементами хоррора, сосредоточенный на кооперативном прохождении. Ваша цель — зачистить проклятые места и пережить нападения адского отродья. В игре есть несколько многопользовательских режимов, таких, как «Выживание», «Демоны против людей» и «Демонизация».Тип издания: RepackРазработчик: KTX SoftwareЖанр: Action (Shooter), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB0BCABAEF7DF8482696F82AF63A375FA769D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912361   (611976) от 25.06.2015
 
 Devil May Cry 4 (2015) [Multi] (1.0.0.0/dlc) SteamRip Let'sРlay [Special Edition]
@@ -6,7 +162,7 @@ Devil May Cry 4 (2015) [Multi] (1.0.0.0/dlc) SteamRip Let'sРlay [Special Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611976.jpg" />
+  <img src="Z:/picture/008/save_picture_611976.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ POSTAL Redux (2016) [En/Ch] (4.3.0/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608307.jpg" />
+  <img src="Z:/picture/008/save_picture_608307.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Toukiden: Kiwami (2015) [En/Jap] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608174.jpg" />
+  <img src="Z:/picture/008/save_picture_608174.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607352.jpg" />
+  <img src="Z:/picture/008/save_picture_607352.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) License PLAZA [Complete Pack]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607279.jpg" />
+  <img src="Z:/picture/008/save_picture_607279.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ ECHO (2017) [Ru/En] (24.03.2019) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606007.jpg" />
+  <img src="Z:/picture/008/save_picture_606007.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ Crying is not Enough: Remastered (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604535.jpg" />
+  <img src="Z:/picture/008/save_picture_604535.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ Remember Me (2013) [Ru/Multi] (1.0.2056.0/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604170.jpg" />
+  <img src="Z:/picture/008/save_picture_604170.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ Sniper Elite V2 (2012) [Ru/En] (1.13/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604160.jpg" />
+  <img src="Z:/picture/008/save_picture_604160.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ Assassin's Creed (2008) [Ru/Multi] (1.02v2) License GOG [Director's Cut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603997.jpg" />
+  <img src="Z:/picture/008/save_picture_603997.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603996.jpg" />
+  <img src="Z:/picture/008/save_picture_603996.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603747.jpg" />
+  <img src="Z:/picture/008/save_picture_603747.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603517.jpg" />
+  <img src="Z:/picture/008/save_picture_603517.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ Prince of Persia: The Two Thrones / Принц Персии: Два трона (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603509.jpg" />
+  <img src="Z:/picture/008/save_picture_603509.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603023.jpg" />
+  <img src="Z:/picture/008/save_picture_603023.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.04) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602072.jpg" />
+  <img src="Z:/picture/008/save_picture_602072.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ Dark Sector (2009) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600670.jpg" />
+  <img src="Z:/picture/008/save_picture_600670.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ Watch_Dogs 2 / Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack R.G. Cata
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599460.jpg" />
+  <img src="Z:/picture/008/save_picture_599460.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/En] (1.0.0.1/upd1/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598992.jpg" />
+  <img src="Z:/picture/008/save_picture_598992.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ Deadly Dozen Reloaded (2022) [Multi] (1.03) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597372.jpg" />
+  <img src="Z:/picture/008/save_picture_597372.jpg" />
 </div>
 
 
@@ -512,166 +668,6 @@ Deadly Dozen Reloaded - это полный ремейк оригинала. Н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AF1DC42A9DCD5903D678E1A0BE08EE6D720E8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232798   (596023) от 26.06.2018
-
-Rune Classic / Руна (2001) [Ru/Multi] (1.11/dlc) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический слэшер от третьего лица, посвященный викингам, теперь доступен в Steam. Это издание, известное как «Rune Classic», содержит в себе не только контент оригинальной «Rune», но и дополнение «Halls of Valhalla» для многопользовательской игры. Погрузитесь в увлекательнейшую историю одиночной кампании и помешайте Локи и его приспешникам принести Рагнарок в (   Читать дальше...   )Тип издания: LicenseРазработчик: Human Head StudiosЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F846F618DC792373BF1D1D044D00204A2A02263B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039607   (595486) от 01.08.2016
-
-Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/upd2/dlc) Repack =nemos= [Ultimate Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая веха в истории борьбы охотников на вампиров c порождениями тьмы и новый этап в истории прославленной серии Castlevania. Когда наступил конец времен, Земля оказалась во власти сил Тьмы и таинственных Лордов теней. По разоренным странам бродили души умерших, не способные обрести покой, а таинственные существа сеяли смерть и разрушение среди выживших. Игроку предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: MercurySteam - Climax StudiosЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681343C07058459250F24121C8CC1668A7F7DDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124876   (593719) от 15.07.2017
-
-Sniper Elite Anthology / Sniper Elite Антология  (2005-2017) [Ru/En] (1.0/1.13/1.06/1.02/1.15a/1.0/1.4.1/dlc) Repack R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя свободу снайперской стрельбы в самом передовом шутере всех времен, действие которого проходит во время Второй мировой войны. Вас ждут тактические бои с видом от третьего лица, выбор геймплея и невероятные дальние выстрелы в ходе кампании по освобождению Италии от ига фашизма.Тип издания: RepackРазработчик: Rebellion DevelopmentsЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76C748D81B1AB24FDDD601C30AEC9F404A6C9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300900   (587951) от 08.05.2019
-
-Fade to Silence (2019) [Ru/Multi] (1.0 hotfix 3b) Repack R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит играть за Эша, прирожденного лидера, которого терзает его собственный разум, исследовать ледяные земли, опустошенные мировой катастрофой, и собирать материалы, без которых построить убежище и выжить невозможно. В мире, где ресурсов становится все меньше, даже такие простые задачиТип издания: RepackРазработчик: Black Forest GamesЖанр: RPG, Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA0DC34FF9D1DC2D6446111236A3A0DF176D2AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356861   (587744) от 30.06.2011
-
-Spider-Man: Friend or Foe [Ru] (P) 2007
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сильные союзники. Вы можете выбрать напарника из длинного списка выдающихся героев, а затем свободно переключаться между ним и Паркером. Каждый помощник, будь то супергерой или суперзлодей, вносит неповторимый вклад в общее дело. Лишь совместив умения персонажей, вы доберетесь до победного финала.
-Враги на стороне добра. После того, как Человек-паук одолеет давних противников –Доктора Октопуса, Зеленого Гоблина и Песчаного человека, они присоединятся к нему.
-Совместные подвиги. В любой момент к вам может присоединиться друг и взять контроль над союзником Человека-паука. Плечо живого товарища надежнее виртуального помощника, и лишь пара игроков способна раскрыть глубокий тактический потенциал проекта.
-Сражайтесь на разных аренах! Одолевая соперников одного за другим, вы открываете новые площадки для подвигов.
-Есть повод вернуться! Повторите понравившиеся уровни в совместной игре, сразитесь друг против друга, пройдите кампанию с новыми союзниками или в обличье Человека-паука в черном костюме. Мрачная экипировка (   Читать дальше...   )Тип издания: ПираткаЖанр: ActionЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB54E1ADDE7094010FEF616BD1538B6F281EC9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086288   (585915) от 10.05.2019
-
-Aragami (2016) [Ru/Multi] (01.09) License GOG [Collector`s Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aragami, игра в жанре "стелс", посвященная тайному перемещению с использованием сверхъестественных способностей. То, что вы беззвучно двигаетесь и избегаете источников света, еще не значит, что вы сливаетесь с тенью. Танцуйте с ней, живите в ней, пусть она проходит сквозь вас так же, как вы проходите сквозь нее.Тип издания: LicenseРазработчик: Lince WorksЖанр: Action, 3D, 3rd Person, StealthЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5C7FC449FC0E9C36C8EAC68C272512DE378072
 ```
 
 https://mybot314.ru/tekegram_catalog/

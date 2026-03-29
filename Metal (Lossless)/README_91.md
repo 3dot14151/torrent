@@ -1,3 +1,90 @@
+###  Публикация: 1281962   (746713) от 11.02.2019
+
+Sacrosanct - Necropolis (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746713.jpg" />
+</div>
+
+
+###  Подробнее
+
+[8:13] 01 - The New Age Of Fear
+[5:13] 02 - My Last White Light
+[6:33] 03 - The Grim Sleeper
+[7:03] 04 - Only One God(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD0C854E7732C1C6BEAE0E07EC2CC8D1FBE9D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282044   (746701) от 11.02.2019
+
+Afterlife - Breaking Point (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrifice (03:17)
+02. Throat (03:16)
+03. P.S.A. (03:27)
+04. Giving Back the Pain (03:11)(   Читать дальше...   )Жанр: Metalcore, Nu MetalПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AABB7180E90C95B9227DABF1A22CD0641D96A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524198   (746635) от 14.01.2022
+
+Burn The Priest - Legion: XX (2018) [FLAC|Lossless|image + .cue] <Groove Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inherit the Earth
+02. Honey Bucket
+03. Kerosene
+04. Kill Yourself(   Читать дальше...   )Жанр: Groove Metal, HardcoreПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593E2C4D2A4333221994CF0C213FF227CB70CE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216881   (746239) от 02.04.2018
 
 Vokodlok - Mass Murder Genesis (2003) [APE|Lossless|image + .cue] <Black Metal>
@@ -6,7 +93,7 @@ Vokodlok - Mass Murder Genesis (2003) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746239.jpg" />
+  <img src="Z:/picture/008/save_picture_746239.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Alterbeast - Feast (2018) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746238.jpg" />
+  <img src="Z:/picture/008/save_picture_746238.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Alterbeast - Immortal (2014) [FLAC|Lossless|image + .cue] <Technical Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746136.jpg" />
+  <img src="Z:/picture/008/save_picture_746136.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Lake of Tears - Headstones (1995) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746135.jpg" />
+  <img src="Z:/picture/008/save_picture_746135.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Memoriam - The Silent Vigil (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746134.jpg" />
+  <img src="Z:/picture/008/save_picture_746134.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Mantus - Refugium (2016) [FLAC|Lossless|image + .cue] <Darkwave, Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746133.jpg" />
+  <img src="Z:/picture/008/save_picture_746133.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Lake of Tears - Forever Autumn (1999) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746124.jpg" />
+  <img src="Z:/picture/008/save_picture_746124.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ U.D.O. and Das Musikkorps Der Bundeswehr - We Are One (2020) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745369.jpg" />
+  <img src="Z:/picture/008/save_picture_745369.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Eliminator - Ancient Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745267.jpg" />
+  <img src="Z:/picture/008/save_picture_745267.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Lake of Tears - Illwill (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744874.jpg" />
+  <img src="Z:/picture/005/save_picture_744874.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ System Of A Down - Mezmerize (2005) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744629.jpg" />
+  <img src="Z:/picture/008/save_picture_744629.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ System Of A Down - Hypnotize (2005) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744619.jpg" />
+  <img src="Z:/picture/005/save_picture_744619.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ System Of A Down - Toxicity (2001) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744525.jpg" />
+  <img src="Z:/picture/008/save_picture_744525.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Vetust - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743864.jpg" />
+  <img src="Z:/picture/008/save_picture_743864.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Maule - Maule (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743857.jpg" />
+  <img src="Z:/picture/008/save_picture_743857.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Tristan Harders' Twilight Theatre - Drifting Into Insanity (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743847.jpg" />
+  <img src="Z:/picture/008/save_picture_743847.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Apocalyptica - Shadowmaker (2015) [FLAC|Lossless]<Symphonic Metal, Cello Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742902.jpg" />
+  <img src="Z:/picture/008/save_picture_742902.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Lonewolf - The Heathen Dawn (2016) Limited Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742449.jpg" />
+  <img src="Z:/picture/008/save_picture_742449.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Suidakra - Realms Of Odoric (2016) Limited Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742447.jpg" />
+  <img src="Z:/picture/008/save_picture_742447.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Jaded Heart - Guilty By Design (2016) Limited Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742444.jpg" />
+  <img src="Z:/picture/008/save_picture_742444.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Astralion - Outlaw (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742425.jpg" />
+  <img src="Z:/picture/008/save_picture_742425.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Iron Savior - Titancraft (2016) Limited Edition [FLAC|Lossless|image + .cue] <Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742304.jpg" />
+  <img src="Z:/picture/008/save_picture_742304.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Katatonia - Last Fair Day Gone Night (2014) 2CD, Live [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742302.jpg" />
+  <img src="Z:/picture/008/save_picture_742302.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Katatonia - Last Fair Day Gone Night (2014) 2CD, Live [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1D6078DA5CD10BE0E82C11EC66D9C4EC5DCBB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524722   (742258) от 17.01.2022
-
-Darkness Divine - Departure (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 15 Seconds (05:18)
-02. Mirror (05:13)
-03. Everflow (04:29)
-04. Stranger (04:07)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AF833BC0A21AA58FD3154B87522CF533682532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524767   (742243) от 17.01.2022
-
-Arsenic - Faith Is Gone (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:22)
-02. Sick Of This (02:28)
-03. Die Alone (02:42)
-04. Against The Edge (02:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C2DDF8D7C5BB25DA786E98F43E98DAC1D2C7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524774   (742242) от 17.01.2022
-
-Coldspell - A New World Arise (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forevermore
-02. Call Of The Wild
-03. It Hurts
-04. Miles Away(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFCB6D315B6028D6C1C52756209CB7C80465763
 ```
 
 https://mybot314.ru/tekegram_catalog/

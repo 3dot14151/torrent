@@ -1,3 +1,143 @@
+###  Публикация: 1514331   (216265) от 03.12.2021
+
+С. Росс | Mindjet MindManager. Интеграция v2019 с линейкой Microsoft Office Word, Excel, Outlook и Project (2019) WEBRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216265.jpg" />
+</div>
+
+
+###  Подробнее
+
+MINDMANAGER ИНТЕГРАЦИЯ MINDMANAGER 2019 С ЛИНЕЙКОЙ MICROSOFT OFFICE: WORD, EXCEL, OUTLOOK И PROJECT
+Опубликовано чт, 20/06/2019 - 12:32 пользователем Corel_info
+Набор приложений MS Office стал неотъемлемой частью современного рабочего места.
+Большинство из нас просто не могли бы выполнять свою работу или вести свой бизнес без него. MindManager 2019 for Windows обладает (   Читать дальше...   )Жанр: Обучающий вэбинарПродолжительность: 01:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52F63C3FF2579BA912C478A4F68821599D66728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514360   (215972) от 03.12.2021
+
+Udemy, Дмитрий . | Java до уровня Junior Developer за 3 месяца (1 часть) (2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть Java курса, позволяющая изучить Java и освоить навыки профессионального разработчика на реальных примерах.
+Данный курс является продолжение курса Udemy, Дмитрий . | Основы программирования на Java с нуля за 2 месяца (2021) WEB-DLПроизводство: UdemyЖанр: ПрограммированиеПродолжительность: 45:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5C0C608A18E6FBDD4A2C64E8560BA3FBB5F904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426271   (215843) от 23.11.2020
+
+Udemy, Семен Паничев | С++ GOF Паттерны проектирования (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы совершенно не знакомы с паттернами проектирования или возможно что-то уже о них слышали
+Если вы знаете язык программирования С++ на базовом уровне
+Если вы хотите научиться лучшим техникам проектирования приложений
+то данный видеокурс подойдет вам для полного понимания основных паттернов проектирования. Вы изучите паттерны проектирования из каталога GoF, которые (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 05:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1C8002BD6BE1E98EE33065A9D53837FC3DAFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426269   (215594) от 23.11.2020
+
+Udemy, Журавлёв Сергей | C++ | STL | Библиотека стандартных шаблонов (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_215594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека стандартных шаблонов STL в C++ - это библиотека знание и умение пользоваться которой является обязательным для  каждого разработчика на языке программирования C++.
+В данном курсе простыми словами, на простых примерах показано как использовать контейнеры и алгоритмы STL.
+Изучив курс вы получите знания об основных контейнерах и алгоритмах STL и умения применять (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 06:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648CB6AC046A9720E1373B258834144C5F11E8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426040   (215428) от 23.11.2020
+
+Udemy, Eduard Kozlov | Эффективная разработка модулей 1С-Битрикс (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_215428.jpg" />
+</div>
+
+
+###  Подробнее
+
+На моем курсе вы научитесь быстро разрабатывать модули для 1С-Битрикс и публиковать их на Маркетплейсе, получите необходимые заготовки и документацию по разработке базовых модулей. Я покажу как быстро пройти модерацию и начать зарабатывать на своих модулях.
+В моей компании сейчас уже более 15 опубликованных модулей, которые регулярно скачивают и покупают, количество (   Читать дальше...   )Производство: UdemyЖанр: 1С-БитриксПродолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5D5F8FFB0E620F0190440894D700188CF10BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426044   (215415) от 23.11.2020
 
 Нетология, Алексей Бударин | Основы визуализации данных (2020) PCRec
@@ -6,7 +146,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215415.jpg" />
+  <img src="Z:/picture/005/save_picture_215415.jpg" />
 </div>
 
 
@@ -33,7 +173,7 @@ Plastik | Университет Кибербезопасности и Анон�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215349.jpg" />
+  <img src="Z:/picture/005/save_picture_215349.jpg" />
 </div>
 
 
@@ -59,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215310.jpg" />
+  <img src="Z:/picture/005/save_picture_215310.jpg" />
 </div>
 
 
@@ -85,7 +225,7 @@ JustNote Team, Дмитрий Гомонов | Курс по ремонту но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215058.jpg" />
 </div>
 
 
@@ -114,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214972.jpg" />
+  <img src="Z:/picture/005/save_picture_214972.jpg" />
 </div>
 
 
@@ -142,7 +282,7 @@ JUG Ru Group | HolyJS 2021 Moscow. Конференция для JavaScript-ра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214813.jpg" />
+  <img src="Z:/picture/005/save_picture_214813.jpg" />
 </div>
 
 
@@ -168,7 +308,7 @@ JUG Ru Group | DevOops 2021. DevOps-конференция (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214570.jpg" />
+  <img src="Z:/picture/005/save_picture_214570.jpg" />
 </div>
 
 
@@ -196,7 +336,7 @@ SEO Conference | Материалы VI Международной SEO Conference
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214562.jpg" />
+  <img src="Z:/picture/005/save_picture_214562.jpg" />
 </div>
 
 
@@ -224,7 +364,7 @@ Udemy, Anton Golosnichenko | Разработка API на Nest.js [2021] (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214550.jpg" />
+  <img src="Z:/picture/005/save_picture_214550.jpg" />
 </div>
 
 
@@ -251,7 +391,7 @@ Lynda.com | Создание веб-приложений с помощью Ajax 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214411.jpg" />
+  <img src="Z:/picture/005/save_picture_214411.jpg" />
 </div>
 
 
@@ -277,7 +417,7 @@ Rebrain, Андрей Буранов | Практикум Bash by REBRAIN (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_214263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214263.jpg" />
 </div>
 
 
@@ -306,7 +446,7 @@ Udemy, Журавлёв Сергей | C++ Основы многопоточно
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214035.jpg" />
+  <img src="Z:/picture/005/save_picture_214035.jpg" />
 </div>
 
 
@@ -334,7 +474,7 @@ Udemy, Mefodiy Kelevra | Мастер Класс по шифрованию | Ver
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213995.jpg" />
+  <img src="Z:/picture/005/save_picture_213995.jpg" />
 </div>
 
 
@@ -363,7 +503,7 @@ Udemy, Mefodiy Kelevra | Wifi Pentesting | Взлом Wifi - Новый взгл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213927.jpg" />
+  <img src="Z:/picture/005/save_picture_213927.jpg" />
 </div>
 
 
@@ -392,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213459.jpg" />
 </div>
 
 
@@ -418,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213458.jpg" />
 </div>
 
 
@@ -446,7 +586,7 @@ Oleg Lav | DefenderUI пользовательский интерфейс Micros
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213357.jpg" />
+  <img src="Z:/picture/005/save_picture_213357.jpg" />
 </div>
 
 
@@ -473,7 +613,7 @@ KodeKloud, Mumshad Mannambeth, Vijin Palazhi | Learning Linux Basics Course & La
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213141.jpg" />
+  <img src="Z:/picture/005/save_picture_213141.jpg" />
 </div>
 
 
@@ -500,7 +640,7 @@ KodeKloud, Mumshad Mannambeth | DevOps Pre-Requisite Course (2022) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213136.jpg" />
+  <img src="Z:/picture/005/save_picture_213136.jpg" />
 </div>
 
 
@@ -527,7 +667,7 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213123.jpg" />
+  <img src="Z:/picture/005/save_picture_213123.jpg" />
 </div>
 
 
@@ -556,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212682.jpg" />
+  <img src="Z:/picture/005/save_picture_212682.jpg" />
 </div>
 
 
@@ -569,140 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E629B34AC40A6450C9FCFF1AD5C474F49BFB3A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830933   (212625) от 28.10.2025
-
-1С Учебный центр №3, Дмитрий Гончаров | Управление производством и ремонтами в прикладном решении «1С:ERP Управление предприятием 2» (2024) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной целью курса является освоение технологии работы с функционалом управления производством и ремонтами, реализованного в прикладном решении «1С:ERP Управление предприятием».Производство: 1С Учебный центр №3Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D6E5E67B9AC5143AE189BA446C54ABF73098A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830936   (212623) от 28.10.2025
-
-1С Учебный центр №3, Дмитрий Гончаров | Управленческий учет затрат, финансовый результат в прикладном решении «1С:ERP Управление предприятием 2» (2024) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212623.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках курса разберем функционал практически всех подсистем, связанных с учетом активов и пассивов компании, а также с формированием итогового финансового результата.Производство: 1С Учебный центр №3Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C21F52EEFF73CF3899C243C7646499001CA8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830944   (212609) от 28.10.2025
-
-1С Учебный центр №1, Анна Паушкина | Регламентированный учет в прикладном решении «1С:ERP Управление предприятием» и «1С:Комплексная автоматизация» (2015) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс подходит для освоения программ «1С:ERP Управление предприятием» и «1С:Комплексная автоматизация 2» в части регламентированного учета. Интерфейс и возможности программ в этой части одинаковы.Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 11:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB7E4DCDB717D72F0C3F6F300A5AEE8CEE409A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768069   (212572) от 28.10.2025
-
-Юрий Шатохин | Linux Ubuntu и Mint Росинка вводная для начинающих (2014) [PCRec]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Ubuntu и Mint Росинка для Начинающих, привыкших к Windows
-Все начинающие пользователи слышали и знают о бесплатной альтернативе Windows - Операционной Системе Linux. Кто не решился потратить своё время на установку Linux , предлагаю посмотреть обзор в котором показана работа двух Linux - систем : Linux Ubuntu 12.4 и Linux Mint 11 РосинкаЖанр: Обучающие видеурокиПродолжительность: 00:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7E862A14A247DCC809ED30E068C604742C15A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563771   (212540) от 15.07.2022
-
-JavaBegin, Тимур Батыршинов | Авторизация и работа с пользователями (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовая стандартная технология, которая используется почти во всех крупных приложениях, особенно с RESTful сервисами.
-Вы можете защитить все сервисы от анонимных запросов.
-Самое главное - в OAuth2 пароль и чувствительные данные хранятся в одном месте (спец. сервер) и не передаются в другие приложения.
-(   Читать дальше...   )Производство: JavaBeginЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:00:23Реклама: Присутствуют сторонние наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E162C51D35B951E54909B1758E553CB626EF10D
 ```
 
 https://mybot314.ru/tekegram_catalog/

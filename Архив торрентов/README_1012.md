@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815632.jpg" />
+  <img src="Z:/picture/008/save_picture_815632.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815631.jpg" />
+  <img src="Z:/picture/008/save_picture_815631.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815630.jpg" />
+  <img src="Z:/picture/008/save_picture_815630.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815629.jpg" />
+  <img src="Z:/picture/008/save_picture_815629.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815626.jpg" />
+  <img src="Z:/picture/008/save_picture_815626.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ File Cabinet Pro 3.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815625.jpg" />
+  <img src="Z:/picture/008/save_picture_815625.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Tukan Trance (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815623.jpg" />
+  <img src="Z:/picture/008/save_picture_815623.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best Undeground Music (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815621.jpg" />
+  <img src="Z:/picture/008/save_picture_815621.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sidify Apple Music Converter 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815617.jpg" />
+  <img src="Z:/picture/008/save_picture_815617.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ iFinance 4.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815615.jpg" />
+  <img src="Z:/picture/008/save_picture_815615.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Beni Arashiro - 3 albums (2005-2008) [FLAC|Lossless]<J pop,J urban,Electronic, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_815610.jpg" />
+  <img src="Z:/picture/009/save_picture_815610.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Linguist 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815594.jpg" />
+  <img src="Z:/picture/008/save_picture_815594.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Adguard 2.4.71 (786) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815593.jpg" />
+  <img src="Z:/picture/008/save_picture_815593.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ ABBYY FineReader PDF for Mac 15.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815584.jpg" />
+  <img src="Z:/picture/008/save_picture_815584.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VirtualBox 6.1.28 Build 147628 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815575.jpg" />
+  <img src="Z:/picture/008/save_picture_815575.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Reeder 4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815568.jpg" />
+  <img src="Z:/picture/008/save_picture_815568.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ PTE AV Studio Pro 10.0.10 Build 7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815562.jpg" />
+  <img src="Z:/picture/008/save_picture_815562.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Brave Browser 1.8.96 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815558.jpg" />
+  <img src="Z:/picture/008/save_picture_815558.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ oCam Screen Recorder 264.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815542.jpg" />
+  <img src="Z:/picture/008/save_picture_815542.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815538.jpg" />
+  <img src="Z:/picture/008/save_picture_815538.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Waterfox 56.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815533.jpg" />
+  <img src="Z:/picture/008/save_picture_815533.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Phase One Capture One Pro 21 14.4.1.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815531.jpg" />
+  <img src="Z:/picture/008/save_picture_815531.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815525.jpg" />
+  <img src="Z:/picture/008/save_picture_815525.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Waltr 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815522.jpg" />
+  <img src="Z:/picture/008/save_picture_815522.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815520.jpg" />
+  <img src="Z:/picture/008/save_picture_815520.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Krec - FRVTR 812 (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815516.jpg" />
+  <img src="Z:/picture/008/save_picture_815516.jpg" />
 </div>
 
 

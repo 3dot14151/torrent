@@ -1,3 +1,111 @@
+###  Публикация: 951857   (360410) от 30.10.2015
+
+Amadeus Pro 2.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 октября 2015Разработчик: HairerSoftПоддерживаемая ОС: Mac OS X 10.9.5+Язык интерфейса: Английский, Французский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE0E379B9ED2CFE63368DBB8EE33646F1AAC276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417184   (360401) от 19.10.2020
+
+Paw 3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый продвинутый инструмент API для Mac
+Paw является полнофункциональным HTTP-клиентом, который позволяет тестировать API.
+Здесь вы можете с лёгкостью формировать запросы (начиная от HTTP-заголовков, заканчивая телом POST и данными авторизации), тут же проверять их на наличие ошибок (например, отсутствие необходимых полей OAuth или неверный Content-Type), затем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2020Разработчик: Paw Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056B26D866682E8B5D23E510B015633B44DECAC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417288   (360256) от 19.10.2020
+
+IP Scanner Pro 3.99 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360256.jpg" />
+</div>
+
+
+###  Подробнее
+
+IP Scanner Pro - сканер локальной сети для Mac OS X
+IP Scanner - приложение сканирует локальную сеть для установления всех компьютеров и устройств с IP-адресом. Результаты сканирования могут быть организованы так, как вам будет удобно. Как только устройство будет определено, ему можно присвоить любое имя и иконку, для более легкого распознавания в общем списке.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2020Разработчик: 10base-t interactiveПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B9F0C428BEAB139D915B46CAE3976017E30056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417186   (360244) от 19.10.2020
+
+Coda 2 v2.7.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактор для веб-разработчиков. Сделайте свой код красивым вместе с Coda!
+Текстовый редактор, передача файлов, SVN, CSS-редактор, терминал, доступ к книгам по разработке и многое другое. Всего насчитывается порядка ста функций, например, встроенный редактор MySQL, живые подсказки кода, в CSS редактор встроены всплывающие палитры цветов и внедрен режим просмотра результата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: Panic, IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246FD00C23F9B1108B2DDF3620EF065C85DD666B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417293   (360230) от 19.10.2020
 
 Movavi Slideshow Maker 7 v7.0.0 [Multi/Ru]
@@ -6,7 +114,7 @@ Movavi Slideshow Maker 7 v7.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360230.jpg" />
+  <img src="Z:/picture/008/save_picture_360230.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Motion 5.0.5 [Multi/Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360227.jpg" />
+  <img src="Z:/picture/005/save_picture_360227.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Gemini 2: The Duplicate Finder 2.6.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360118.jpg" />
+  <img src="Z:/picture/008/save_picture_360118.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ VMware Fusion Professional 8.0.2 (3164312) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360027.jpg" />
+  <img src="Z:/picture/008/save_picture_360027.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ Adobe After Effects CC 2018 v15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359827.jpg" />
+  <img src="Z:/picture/008/save_picture_359827.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ Path Finder 2138 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359519.jpg" />
+  <img src="Z:/picture/008/save_picture_359519.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ Rumpus PRO 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359439.jpg" />
+  <img src="Z:/picture/008/save_picture_359439.jpg" />
 </div>
 
 
@@ -196,7 +304,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5 b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359386.jpg" />
+  <img src="Z:/picture/008/save_picture_359386.jpg" />
 </div>
 
 
@@ -225,7 +333,7 @@ ProFind 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359385.jpg" />
+  <img src="Z:/picture/008/save_picture_359385.jpg" />
 </div>
 
 
@@ -251,7 +359,7 @@ Alfred Powerpack 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359353.jpg" />
+  <img src="Z:/picture/008/save_picture_359353.jpg" />
 </div>
 
 
@@ -280,7 +388,7 @@ A Better Finder Rename 11 v11.00b17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359272.jpg" />
+  <img src="Z:/picture/008/save_picture_359272.jpg" />
 </div>
 
 
@@ -307,7 +415,7 @@ Posterino 3 v3.6.1 (3078) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359265.jpg" />
+  <img src="Z:/picture/008/save_picture_359265.jpg" />
 </div>
 
 
@@ -335,7 +443,7 @@ Affinity Publisher 1.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359253.jpg" />
+  <img src="Z:/picture/008/save_picture_359253.jpg" />
 </div>
 
 
@@ -362,7 +470,7 @@ RealDNS - Dynamic DNS update client 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359222.jpg" />
+  <img src="Z:/picture/008/save_picture_359222.jpg" />
 </div>
 
 
@@ -389,7 +497,7 @@ PDFelement Express 0.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359182.jpg" />
+  <img src="Z:/picture/008/save_picture_359182.jpg" />
 </div>
 
 
@@ -415,7 +523,7 @@ PhotoSweeper 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359180.jpg" />
+  <img src="Z:/picture/008/save_picture_359180.jpg" />
 </div>
 
 
@@ -441,7 +549,7 @@ Sublime Merge Build 1.0.0.1 (build1119) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359177.jpg" />
+  <img src="Z:/picture/008/save_picture_359177.jpg" />
 </div>
 
 
@@ -470,7 +578,7 @@ Photomatix Pro Standalone Program 6 v6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359169.jpg" />
+  <img src="Z:/picture/008/save_picture_359169.jpg" />
 </div>
 
 
@@ -498,7 +606,7 @@ Lyn 1.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359165.jpg" />
+  <img src="Z:/picture/008/save_picture_359165.jpg" />
 </div>
 
 
@@ -524,7 +632,7 @@ Display Maestro 3 v3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359159.jpg" />
+  <img src="Z:/picture/008/save_picture_359159.jpg" />
 </div>
 
 
@@ -552,7 +660,7 @@ Deckset 2.0 v2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359146.jpg" />
+  <img src="Z:/picture/008/save_picture_359146.jpg" />
 </div>
 
 
@@ -580,7 +688,7 @@ Sip Pro 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359142.jpg" />
+  <img src="Z:/picture/008/save_picture_359142.jpg" />
 </div>
 
 
@@ -592,114 +700,6 @@ Sip Pro 1.1.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7165ED498DEA0C6AA89FF39AF8D20F75C4B01F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256138   (359138) от 20.10.2018
-
-EdgeView 2 v2.460 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359138.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 2 - это новейший просмотрщик изображений; вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения; вы также можете напрямую подключиться к FTP и открывать файлы; EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2018Разработчик: DONGJIN HANПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B035689EDAD1D95099DDFBE456D34F1850CD7292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328738   (359059) от 02.10.2019
-
-Elmedia Player Pro 7.6 (1831) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED28C9BEB2D881670334FF778B53D35EE1DC2E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328856   (359053) от 02.10.2019
-
-Affinity Designer 1.7.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное приложение для графического дизайна для Mac.
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2019Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284DD16D4179EB2234D854C7D08FDAE9DC14E6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255888   (359041) от 20.10.2018
-
-Jump Desktop (RDP & VNC) 8.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jump Desktop (RDP & VNC) - программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
-Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2018Разработчик: Phase Five SystemsПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A259F306556303196D239E37554B7BD2556DAE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

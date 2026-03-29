@@ -1,3 +1,55 @@
+###  Публикация: 153050   (653623) от 29.03.2022
+
+Позорная тайна Хатыни (2008) TVRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм  рассказывает о трагических событиях Великой Отечественной войны, произошедших в маленькой белорусской деревне Хатынь в 56 километрах к северу от Минска. 65 лет прошло с тех пор, как нацистские каратели поголовно уничтожили всё население Хатыни - 147 человек, включая 75 детей, младшему из которых было всего 7 недель. Что стояло за трагедией Хатыни? Кто на самом (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280C87AC7E855ECCD6C9C2F9DA9765C3A39A2D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905406   (651585) от 05.06.2015
+
+50 детей: Спасательная миссия мистера и миссис Краус / 50 Children: The Rescue Mission of Mr. And Mrs. Kraus (2013) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о невероятном путешествии Гилберта и Элеоноры Краус, которые отправились в самое сердце нацистской Германии в 1939 году  для того, чтобы попытаться спасти 50 еврейских детей от Холокоста.Телекомпания: США, HBO Documentary Films, PerlePress ProductionsЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D882FEA159F8E7E0003A7FEC004D4E74F71552F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516551   (650848) от 29.06.2012
 
 Матч смерти. Под грифом секретно (2012) SATRip
@@ -6,7 +58,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650848.jpg" />
+  <img src="Z:/picture/008/save_picture_650848.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648258.jpg" />
+  <img src="Z:/picture/008/save_picture_648258.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646330.jpg" />
+  <img src="Z:/picture/008/save_picture_646330.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644694.jpg" />
+  <img src="Z:/picture/008/save_picture_644694.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644690.jpg" />
+  <img src="Z:/picture/008/save_picture_644690.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642768.jpg" />
+  <img src="Z:/picture/008/save_picture_642768.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640876.jpg" />
+  <img src="Z:/picture/008/save_picture_640876.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639993.jpg" />
+  <img src="Z:/picture/008/save_picture_639993.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635931.jpg" />
+  <img src="Z:/picture/008/save_picture_635931.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633547.jpg" />
+  <img src="Z:/picture/008/save_picture_633547.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629470.jpg" />
+  <img src="Z:/picture/008/save_picture_629470.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626648.jpg" />
+  <img src="Z:/picture/008/save_picture_626648.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625389.jpg" />
+  <img src="Z:/picture/008/save_picture_625389.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621953.jpg" />
+  <img src="Z:/picture/008/save_picture_621953.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618361.jpg" />
+  <img src="Z:/picture/008/save_picture_618361.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617355.jpg" />
+  <img src="Z:/picture/008/save_picture_617355.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616488.jpg" />
+  <img src="Z:/picture/008/save_picture_616488.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613749.jpg" />
+  <img src="Z:/picture/008/save_picture_613749.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611771.jpg" />
+  <img src="Z:/picture/008/save_picture_611771.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611676.jpg" />
+  <img src="Z:/picture/008/save_picture_611676.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609119.jpg" />
+  <img src="Z:/picture/008/save_picture_609119.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608836.jpg" />
+  <img src="Z:/picture/008/save_picture_608836.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607084.jpg" />
+  <img src="Z:/picture/008/save_picture_607084.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604908.jpg" />
+  <img src="Z:/picture/008/save_picture_604908.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E8500FD8FEAB59A439C36AE7A246328CB4DE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038638   (604853) от 29.07.2016
-
-Московская паутина (2007) SATRip (Серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604853.jpg" />
-</div>
-
-
-###  Подробнее
-
-1940-й год. Ставка Вермахта. Адольф Гитлер утверждает план "Барбаросса", который определит ход военной компании на Востоке. Немецким спецслужбам дано указание организовать в СССР "пятую колонну" из предателей и оппозиционеров, противников сталинского режима. Об этой директиве Гитлера узнала советская контрразведка, и в Москве было принято решение (   Читать дальше...   )Телекомпания: Россия, ООО "Бегиннинг"Жанр: ДокументальныйПродолжительность: 00:39:00 (одна серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4A6036FE348DBA8BBA6D21BD9E878088458642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513341   (604628) от 21.04.2019
-
-Нацистские концлагеря (Нацистские концентрационные лагеря) / Nazi Concentration Camps (1945) DVDRip [EN / RU Sub]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм был снят военными корреспондентами союзников, сразу после освобождения немецких концлагерей и был показан стороной обвинения на заседании Нюрнбергского трибунала как документ N 2430-PS. Фильм наполнен реальными кадрами, которые снимали союзники при освобождении заключенных из лагерей смерти. Кадры показывают нам всю жестокость нацисткой системы и отвергают (   Читать дальше...   )Производство: CША, US Department of DefenseЖанр: Документальный, История, ХроникаРежиссер: Джордж СтивенсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Русские (Lem), отдельным файлом (SRT)Продолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CCB8ED50A31C1D737D4E75204CC061E4DE703B
 ```
 
 https://mybot314.ru/tekegram_catalog/

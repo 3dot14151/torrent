@@ -1,3 +1,32 @@
+###  Публикация: 1227501   (646712) от 26.05.2018
+
+Восток - Best микс (1998) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только дождь
+02. До встречи
+03. Все небо
+04. Цыганская(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B83A75E0F2C04F4701203ED927B2CF693647F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541140   (646655) от 02.04.2022
 
 Владимир Маркин - Золотые Хиты (2003) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -6,7 +35,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646655.jpg" />
+  <img src="Z:/picture/008/save_picture_646655.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646525.jpg" />
+  <img src="Z:/picture/008/save_picture_646525.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645853.jpg" />
+  <img src="Z:/picture/008/save_picture_645853.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645838.jpg" />
+  <img src="Z:/picture/008/save_picture_645838.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645569.jpg" />
+  <img src="Z:/picture/008/save_picture_645569.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Лучшие песни русского радио 7 (2002) 2CD [FLAC|Loss
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644843.jpg" />
+  <img src="Z:/picture/008/save_picture_644843.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Лучшие песни русских сериалов (2003) [FLAC|Lossle
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644838.jpg" />
+  <img src="Z:/picture/008/save_picture_644838.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Заяц Рор Шоу-3 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644746.jpg" />
+  <img src="Z:/picture/008/save_picture_644746.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643685.jpg" />
+  <img src="Z:/picture/008/save_picture_643685.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Заяц Рор Шоу-2 (1996) [FLAC|Lossless|image + .cue]<Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642917.jpg" />
+  <img src="Z:/picture/008/save_picture_642917.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641903.jpg" />
+  <img src="Z:/picture/008/save_picture_641903.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641026.jpg" />
+  <img src="Z:/picture/005/save_picture_641026.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640615.jpg" />
+  <img src="Z:/picture/008/save_picture_640615.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ SEVENROSE - Нам не забыть (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637120.jpg" />
+  <img src="Z:/picture/008/save_picture_637120.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637107.jpg" />
+  <img src="Z:/picture/008/save_picture_637107.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636953.jpg" />
+  <img src="Z:/picture/008/save_picture_636953.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636876.jpg" />
+  <img src="Z:/picture/008/save_picture_636876.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636145.jpg" />
+  <img src="Z:/picture/008/save_picture_636145.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636131.jpg" />
+  <img src="Z:/picture/008/save_picture_636131.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636034.jpg" />
+  <img src="Z:/picture/008/save_picture_636034.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635709.jpg" />
+  <img src="Z:/picture/008/save_picture_635709.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633290.jpg" />
+  <img src="Z:/picture/008/save_picture_633290.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633287.jpg" />
+  <img src="Z:/picture/008/save_picture_633287.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631983.jpg" />
+  <img src="Z:/picture/008/save_picture_631983.jpg" />
 </div>
 
 
@@ -707,7 +736,7 @@ VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Po
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631978.jpg" />
+  <img src="Z:/picture/008/save_picture_631978.jpg" />
 </div>
 
 
@@ -721,35 +750,6 @@ VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85882F0058BEC2735DC0C08C8F4D895F1B6A52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543390   (631835) от 10.04.2022
-
-Виктория Черенцова - Карантин (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карантин (3:05)
-02. Не бойся (4:11)
-03. Опять дожди (3:51)
-04. Однажды ты соскучишься по мне (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15699D4FE94381D537A176B15C30B724455233F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

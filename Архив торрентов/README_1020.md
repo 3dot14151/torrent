@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813631.jpg" />
+  <img src="Z:/picture/008/save_picture_813631.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813630.jpg" />
+  <img src="Z:/picture/008/save_picture_813630.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813629.jpg" />
+  <img src="Z:/picture/008/save_picture_813629.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813628.jpg" />
+  <img src="Z:/picture/008/save_picture_813628.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813627.jpg" />
+  <img src="Z:/picture/008/save_picture_813627.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813626.jpg" />
+  <img src="Z:/picture/008/save_picture_813626.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813625.jpg" />
+  <img src="Z:/picture/008/save_picture_813625.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813624.jpg" />
+  <img src="Z:/picture/008/save_picture_813624.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813623.jpg" />
+  <img src="Z:/picture/008/save_picture_813623.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813622.jpg" />
+  <img src="Z:/picture/008/save_picture_813622.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813621.jpg" />
+  <img src="Z:/picture/008/save_picture_813621.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813617.jpg" />
+  <img src="Z:/picture/008/save_picture_813617.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Who's Afraid Of 138?! Top 15 - 2017-03 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813616.jpg" />
+  <img src="Z:/picture/008/save_picture_813616.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813615.jpg" />
+  <img src="Z:/picture/008/save_picture_813615.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Festival Anthems Vol.1 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813612.jpg" />
+  <img src="Z:/picture/008/save_picture_813612.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ GoodSync Enterprise 10.11.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813606.jpg" />
+  <img src="Z:/picture/008/save_picture_813606.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ NetBalancer 10.0.2 Build 2324 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813602.jpg" />
+  <img src="Z:/picture/008/save_picture_813602.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Telegram Desktop 2.1.6+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813596.jpg" />
+  <img src="Z:/picture/008/save_picture_813596.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Cockos REAPER 6.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813593.jpg" />
+  <img src="Z:/picture/008/save_picture_813593.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Mozilla Thunderbird 45.0.0 Portable by PortableApps [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813575.jpg" />
+  <img src="Z:/picture/008/save_picture_813575.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Mozilla Thunderbird 45.0.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813561.jpg" />
+  <img src="Z:/picture/008/save_picture_813561.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Audirvana Plus 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813550.jpg" />
+  <img src="Z:/picture/008/save_picture_813550.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813512.jpg" />
+  <img src="Z:/picture/008/save_picture_813512.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ One++ Rechner v1.7.4 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813508.jpg" />
+  <img src="Z:/picture/008/save_picture_813508.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813504.jpg" />
+  <img src="Z:/picture/008/save_picture_813504.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Vocal Trance Classics 008 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813500.jpg" />
+  <img src="Z:/picture/008/save_picture_813500.jpg" />
 </div>
 
 

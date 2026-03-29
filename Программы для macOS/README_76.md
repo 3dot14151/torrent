@@ -1,3 +1,142 @@
+###  Публикация: 909505   (627046) от 17.06.2015
+
+Adobe Dreamweaver CC 2015 (7698) [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamweaver CC. Совершенно новая версия 2015 года. Создавать интерактивные веб-сайты стало быстрее и легче.
+Программное обеспечение для веб-дизайна Adobe Dreamweaver CC содержит интуитивно понятный визуальный интерфейс, позволяющий создавать и редактировать веб-сайты и мобильные приложения. Используйте «резиновые макеты» (Fluid Grid Layouts) с кроссплатформенной (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 15 июня 2015Разработчик: Adobe SystemsПоддерживаемая ОС: Mac OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий, Французский  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1963E56A8182E184D9706CCF07B55547B77D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035527   (626509) от 17.07.2016
+
+Stellar Drive Clone 3.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellar Drive Clone – программное обеспечение, предназначенное для эффективного клонирования томов и для резервного копирования полезных данных
+ 
+- Создает точную, идентичную копию вашего Mac диска на другой диск / HD
+- Клоны дисков, отформатированные с MBR (Master Boot Record)(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 мая 2016Разработчик: Stellar Information Technology Private LimitedПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E1FEFFA1F7FE30F2156EFCB1BED0F6B0CDC5B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035524   (625920) от 17.07.2016
+
+Enfocus PitStop Pro 13 Update 2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625920.jpg" />
+</div>
+
+
+###  Подробнее
+
+PitStop Professional — эффективный инструмент допечатной проверки, автокоррекции и редактирования документов PDF. Программа выполнена в виде подключаемого модуля Adobe Acrobat и содержит два десятка встроенных профилей Enfocus PDF Profilesс, предназначенных для проверки ключевых атрибутов PDF-файлов и автоматической коррекции типовых ошибок.
+
+Enfocus PitStop Professional (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 мая 2016Разработчик: EnfocusПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский, немецкий французский и др. Русский не поддерживается.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FDB050906C027D667461EDBCDE4E07BECC2AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035530   (625906) от 17.07.2016
+
+Stellar Phoenix Video Repair 2.0.0.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellar Phoenix Video Repair  – Самый мощный инструмент для восстановления поврежденных видеофайлов
+Программное обеспечение может помочь вам исправить заголовки, продолжительность, искажение звука и движение в видео и фильмов, таких как MOV , MP4, M4V , M4A и F4V.  С Stellar Phoenix Video Repair, вы можете легко исправить поврежденный видео файл, сохраняя при этом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 марта 2016Разработчик: Stellar Information Technology Private LimitedПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6CEBA8520A2B88A5A8FA900374B63F15D50E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229480   (625868) от 06.06.2018
+
+CrossOver 17.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625868.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrossOver - запуск любых Windows программ под Mac OS. CrossOver сфокусирован на производительности 3D графики в играх. Crossover, основан на коде Wine и предназначен для выполнения программ и игр, написанных для платформы Windows.
+
+CrossOver позволит вам запускать множество Windows приложений на вашем Mac. Приложения интегрируются в операционную систему: запускайте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CodeWeavers Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7491945513993FD512B4F1EBCA7CD9D7F0D74DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544023   (625778) от 13.04.2022
 
 iToolab SIMUnlocker 2.5.0 [En]
@@ -6,7 +145,7 @@ iToolab SIMUnlocker 2.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625778.jpg" />
+  <img src="Z:/picture/008/save_picture_625778.jpg" />
 </div>
 
 
@@ -33,7 +172,7 @@ Vitamin-R 2 v2.48 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625525.jpg" />
+  <img src="Z:/picture/008/save_picture_625525.jpg" />
 </div>
 
 
@@ -60,7 +199,7 @@ Frammer X 1.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623784.jpg" />
+  <img src="Z:/picture/008/save_picture_623784.jpg" />
 </div>
 
 
@@ -89,7 +228,7 @@ VueScan Pro 9.5.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623184.jpg" />
+  <img src="Z:/picture/008/save_picture_623184.jpg" />
 </div>
 
 
@@ -115,7 +254,7 @@ Dato 3.3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622369.jpg" />
+  <img src="Z:/picture/008/save_picture_622369.jpg" />
 </div>
 
 
@@ -142,7 +281,7 @@ SyncBird Pro 3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622359.jpg" />
+  <img src="Z:/picture/008/save_picture_622359.jpg" />
 </div>
 
 
@@ -168,7 +307,7 @@ TechSmith Snagit 2021.4.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621993.jpg" />
+  <img src="Z:/picture/008/save_picture_621993.jpg" />
 </div>
 
 
@@ -194,7 +333,7 @@ Instastack for Instagram 1.91 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621657.jpg" />
+  <img src="Z:/picture/008/save_picture_621657.jpg" />
 </div>
 
 
@@ -223,7 +362,7 @@ LaunchBar 6.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621645.jpg" />
+  <img src="Z:/picture/008/save_picture_621645.jpg" />
 </div>
 
 
@@ -252,7 +391,7 @@ Video Copilot - Element 3D v2.2 update for Mac OSX [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621274.jpg" />
+  <img src="Z:/picture/008/save_picture_621274.jpg" />
 </div>
 
 
@@ -278,7 +417,7 @@ Hazel 4.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621079.jpg" />
+  <img src="Z:/picture/008/save_picture_621079.jpg" />
 </div>
 
 
@@ -304,7 +443,7 @@ Ulysses 2.5.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621011.jpg" />
+  <img src="Z:/picture/008/save_picture_621011.jpg" />
 </div>
 
 
@@ -331,7 +470,7 @@ iExplorer 3.9.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618988.jpg" />
+  <img src="Z:/picture/008/save_picture_618988.jpg" />
 </div>
 
 
@@ -358,7 +497,7 @@ PaintCode for Sketch 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618727.jpg" />
+  <img src="Z:/picture/008/save_picture_618727.jpg" />
 </div>
 
 
@@ -387,7 +526,7 @@ PhpStorm 2016.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618524.jpg" />
+  <img src="Z:/picture/008/save_picture_618524.jpg" />
 </div>
 
 
@@ -413,7 +552,7 @@ Tinderbox 9 v9.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618474.jpg" />
+  <img src="Z:/picture/008/save_picture_618474.jpg" />
 </div>
 
 
@@ -440,7 +579,7 @@ MacAppBlocker 3.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618091.jpg" />
+  <img src="Z:/picture/008/save_picture_618091.jpg" />
 </div>
 
 
@@ -469,7 +608,7 @@ AKVIS Artwork 8.1 (1708.1069) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617360.jpg" />
+  <img src="Z:/picture/008/save_picture_617360.jpg" />
 </div>
 
 
@@ -498,7 +637,7 @@ SSH Tunnel 16.07 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617164.jpg" />
+  <img src="Z:/picture/008/save_picture_617164.jpg" />
 </div>
 
 
@@ -527,7 +666,7 @@ Paste 2.2.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616198.jpg" />
+  <img src="Z:/picture/008/save_picture_616198.jpg" />
 </div>
 
 
@@ -555,7 +694,7 @@ ArchiCAD 19 (3003) [INT]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615545.jpg" />
+  <img src="Z:/picture/008/save_picture_615545.jpg" />
 </div>
 
 
@@ -566,143 +705,6 @@ ArchiCAD 19 (3003) [INT]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E036D47FB5B149D6B6AA69051F02E136CBDC1005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545421   (614795) от 19.04.2022
-
-Araxis Merge Pro Edition 2022.5706 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
-Araxis Merge – это обязательное приложение для разработчиков (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 1993–2022 ARAXIS LTD.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F03D13E822B48744B128B8ACE2436B6CA2D468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912093   (614228) от 24.06.2015
-
-Graphic Styles 2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graphic Styles  содержит набор высококачественных изображений, которые помогут вам создать  уникальные презентации в Keynote для иллюстрации ваших слайд-шоу, информационных бюллетеней или любого другого контента. Эта великолепная коллекция придаст вашим презентациям эксклюзивность если включить в неё оригинальные рамки, символы, графический шрифт и т.д.
-
-Все изображения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июня 2015Разработчик: JumsoftПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D036C1E2D61FDD189BB94862E90CA7926454B037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912114   (614068) от 24.06.2015
-
-Set for MS Word 2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Set for MS Word - коллекция из 445 современных шаблонов для Microsoft Word. Они созданы для бизнеса и личного пользования и призваны в значительной степени сосредоточить внимание на качестве дизайна. Каждый макет имеет очень хорошее качество, которое поможет обратить внимание к деталям.  Удобство использования  и  творчество.
-
-Пакет включает в себя типы шаблонов, которые (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июня 2015Разработчик: JumsoftПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CE6F681CAA0201FA6FDD2015F7DF50B60F038F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296185   (613312) от 16.04.2019
-
-Excentro 1.9.26 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Excentro - программа для создания декоративных гильоширных элементов. Является воплощением некой абстрактной гильоширной машины. Благодаря реализованной в Excentro механической аналогии, процесс освоения программы приобретет дополнительную наглядность, простоту и легкость. Построение гильоширного элемента в Excentro имеет древовидную "иерархическую" структуру, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: ExcourseПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A89AE3A14486E972957BFD5AE64BF16066AB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037431   (613252) от 24.07.2016
-
-Pure Music 3.0.6 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pure Music  представляет собой программный музыкальный сервер с высоким качеством звучания, который основан на известном Pure для воспроизведения винила  и может интегрироваться с iTunes, который  Pure Music  использует в качестве базы данных и организатора плейлиста.
-
-Поддерживает все cовместимые аудио форматы такие как: WAVE, MP3, AAC, AIFF, Apple Lossless и FLACТип издания: OS X SoftwareРелиз состоялся: 06 июня 2016Разработчик: Channel DПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE200ED4CA6C3984C67C49F678784F042550309
 ```
 
 https://mybot314.ru/tekegram_catalog/

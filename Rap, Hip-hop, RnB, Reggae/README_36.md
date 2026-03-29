@@ -6,7 +6,7 @@ Black Sheep - A Wolf in Sheep’s Clothing (1991) [FLAC|Lossless|tracks + .cue] 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36559.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36049.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Chillhop Essentials Winter (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34609.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Russian Rapcore Vol. 1-2 (2008-2009) [FLAC|Lossless|tracks + .cue] <Rapcore
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32824.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26995.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Noize MC - Не все дома (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-H
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24685.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Noize MC - Не все дома (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24679.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Chillhop Essentials Spring (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24159.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Onyx - Lower East Side (2025) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21746.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Chillhop Timezones Nigeria (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15840.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Black Eyed Peas - Monkey Business (20th Anniversary Edition) (2025) [FLAC|Lo
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15349.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5336.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ King Diamond - Remember The Block (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4657.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Slimus - Спокойной ночи, малыши, Часть 3 (2025) [MP3|320
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4420.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Chillhop Essentials Fall (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4290.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ice Cube - Man Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2945.jpg" />
 </div>
 
 

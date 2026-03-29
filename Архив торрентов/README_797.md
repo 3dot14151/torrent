@@ -6,7 +6,7 @@ Giuseppe Ottaviani & Tricia McTeague - Loneliest Night (OnAir Mix) Single (2017)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869690.jpg" />
+  <img src="Z:/picture/008/save_picture_869690.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Telegram Desktop 1.0.14 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869682.jpg" />
+  <img src="Z:/picture/008/save_picture_869682.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FileMenu Tools 7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869678.jpg" />
+  <img src="Z:/picture/008/save_picture_869678.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 8 PE x86x64 Universal by Xemom1 16.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869677.jpg" />
+  <img src="Z:/picture/008/save_picture_869677.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics Registry Defrag 13.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869661.jpg" />
+  <img src="Z:/picture/008/save_picture_869661.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wise Auto Shutdown 2.0.1.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869647.jpg" />
+  <img src="Z:/picture/008/save_picture_869647.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Logic Pro X 10.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869641.jpg" />
+  <img src="Z:/picture/008/save_picture_869641.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869568.jpg" />
+  <img src="Z:/picture/008/save_picture_869568.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ DaisyDisk 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869557.jpg" />
+  <img src="Z:/picture/008/save_picture_869557.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Kerbal Space Program (2015) [En] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869549.jpg" />
+  <img src="Z:/picture/008/save_picture_869549.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869546.jpg" />
+  <img src="Z:/picture/008/save_picture_869546.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869541.jpg" />
+  <img src="Z:/picture/008/save_picture_869541.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Windows 10 Manager 2.0.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869535.jpg" />
+  <img src="Z:/picture/008/save_picture_869535.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Alcohol 52% 2.0.3.9811 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869531.jpg" />
+  <img src="Z:/picture/008/save_picture_869531.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869524.jpg" />
+  <img src="Z:/picture/008/save_picture_869524.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Calibre 2.79.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869519.jpg" />
+  <img src="Z:/picture/008/save_picture_869519.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dream Of Illusion - Decadence (2011) [MP3|320 kbps]<Heavy metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_869489.jpg" />
+  <img src="Z:/picture/009/save_picture_869489.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Sekirei / Сэкирэй [2008, TV, 12 +OVA) SDTV raw + rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869434.jpg" />
+  <img src="Z:/picture/008/save_picture_869434.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Windows 7 PE x86 compact by Xemom1 16.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869417.jpg" />
+  <img src="Z:/picture/008/save_picture_869417.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ IrfanView 4.42 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869416.jpg" />
+  <img src="Z:/picture/008/save_picture_869416.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Adobe Photoshop Lightroom 6.5 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869415.jpg" />
+  <img src="Z:/picture/008/save_picture_869415.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869414.jpg" />
+  <img src="Z:/picture/008/save_picture_869414.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ AIMP 4.01 Build 1705 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869413.jpg" />
+  <img src="Z:/picture/008/save_picture_869413.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Adobe Dreamweaver CC 2015.2 (7884) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869410.jpg" />
+  <img src="Z:/picture/008/save_picture_869410.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ JetBrains PhpStorm 2016.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869403.jpg" />
+  <img src="Z:/picture/008/save_picture_869403.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Allegorithmic Substance Painter 2.0.1 build 1105 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869402.jpg" />
+  <img src="Z:/picture/008/save_picture_869402.jpg" />
 </div>
 
 

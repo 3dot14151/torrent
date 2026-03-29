@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722041.jpg" />
+  <img src="Z:/picture/008/save_picture_722041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Storm the Train 1.7.0 Mod [Money] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722040.jpg" />
+  <img src="Z:/picture/008/save_picture_722040.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722031.jpg" />
+  <img src="Z:/picture/008/save_picture_722031.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722030.jpg" />
+  <img src="Z:/picture/008/save_picture_722030.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722025.jpg" />
+  <img src="Z:/picture/008/save_picture_722025.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722022.jpg" />
+  <img src="Z:/picture/008/save_picture_722022.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722021.jpg" />
+  <img src="Z:/picture/008/save_picture_722021.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722005.jpg" />
+  <img src="Z:/picture/008/save_picture_722005.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721952.jpg" />
+  <img src="Z:/picture/008/save_picture_721952.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721950.jpg" />
+  <img src="Z:/picture/008/save_picture_721950.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721939.jpg" />
+  <img src="Z:/picture/008/save_picture_721939.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Google Chrome 51.0.2704.84 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721918.jpg" />
+  <img src="Z:/picture/008/save_picture_721918.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721894.jpg" />
+  <img src="Z:/picture/008/save_picture_721894.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721844.jpg" />
+  <img src="Z:/picture/008/save_picture_721844.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ WifiInfoView 2.05 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721834.jpg" />
+  <img src="Z:/picture/008/save_picture_721834.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721832.jpg" />
+  <img src="Z:/picture/008/save_picture_721832.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Debian GNU/Linux 8.5.0 Jessie [amd64] 5xDVD, 1x netinstCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721831.jpg" />
+  <img src="Z:/picture/008/save_picture_721831.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ XYplorer 16.90 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721824.jpg" />
+  <img src="Z:/picture/008/save_picture_721824.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ CoolUtils PDF Combine 6.1.0.121 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721732.jpg" />
+  <img src="Z:/picture/008/save_picture_721732.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721721.jpg" />
+  <img src="Z:/picture/008/save_picture_721721.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Nitro4D NitroBlast v2.0 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721718.jpg" />
+  <img src="Z:/picture/008/save_picture_721718.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Fishing Hook 1.3.1 Mod [Money] [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721716.jpg" />
+  <img src="Z:/picture/008/save_picture_721716.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ PAC-MAN 2.1.8 Mod [Tokens/Unlocked] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721715.jpg" />
+  <img src="Z:/picture/008/save_picture_721715.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Runtastic Road & Mountain Bike Pro GPS v3.0.2 [Ru/Multi] - профессион�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721714.jpg" />
+  <img src="Z:/picture/008/save_picture_721714.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721710.jpg" />
+  <img src="Z:/picture/008/save_picture_721710.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CSI Etabs 2015 Ultimate v15.2.0 build 1295 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721709.jpg" />
+  <img src="Z:/picture/008/save_picture_721709.jpg" />
 </div>
 
 

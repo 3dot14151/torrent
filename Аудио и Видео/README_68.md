@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793935.jpg" />
+  <img src="Z:/picture/008/save_picture_793935.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Electric Light Orchestra - ELO 50th Anniversary Vol. 2 (2021) [AAC|~350 Kbps] <R
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793917.jpg" />
+  <img src="Z:/picture/008/save_picture_793917.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793907.jpg" />
+  <img src="Z:/picture/008/save_picture_793907.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793405.jpg" />
+  <img src="Z:/picture/008/save_picture_793405.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793329.jpg" />
+  <img src="Z:/picture/008/save_picture_793329.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793176.jpg" />
+  <img src="Z:/picture/008/save_picture_793176.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793074.jpg" />
+  <img src="Z:/picture/008/save_picture_793074.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Coffee Bar Lounge, Vol. 23 (2021) [AAC|~344 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792974.jpg" />
+  <img src="Z:/picture/008/save_picture_792974.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Unheilig - Lichterland - Best Of (Deluxe) (2021) [AAC|~322 Kbps] <Industrial, Go
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792945.jpg" />
+  <img src="Z:/picture/008/save_picture_792945.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792907.jpg" />
+  <img src="Z:/picture/008/save_picture_792907.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792889.jpg" />
+  <img src="Z:/picture/008/save_picture_792889.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792806.jpg" />
+  <img src="Z:/picture/008/save_picture_792806.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792568.jpg" />
+  <img src="Z:/picture/008/save_picture_792568.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792386.jpg" />
+  <img src="Z:/picture/008/save_picture_792386.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792371.jpg" />
+  <img src="Z:/picture/008/save_picture_792371.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792343.jpg" />
+  <img src="Z:/picture/008/save_picture_792343.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Coffee Bar Lounge, Vol. 24 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792256.jpg" />
+  <img src="Z:/picture/008/save_picture_792256.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Coffee Bar Lounge, Vol. 25 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792213.jpg" />
+  <img src="Z:/picture/008/save_picture_792213.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Lovely Autumn Chill #2 (2018) [AAC|~319 Kbps] <Chill Out, Trip-Hop, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792206.jpg" />
+  <img src="Z:/picture/008/save_picture_792206.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Lovely Autumn Chill #3 (2021) [AAC|~311 Kbps] <Chill Out, Trip-Hop, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792202.jpg" />
+  <img src="Z:/picture/008/save_picture_792202.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Lovely Autumn Chill (2017) [AAC|~318 Kbps] <Chill Out, Trip-Hop, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792201.jpg" />
+  <img src="Z:/picture/008/save_picture_792201.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Coffee Bar Lounge, Vol. 26 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792200.jpg" />
+  <img src="Z:/picture/008/save_picture_792200.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792197.jpg" />
+  <img src="Z:/picture/008/save_picture_792197.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792146.jpg" />
+  <img src="Z:/picture/008/save_picture_792146.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Al Bano & Romina Power - Original Album Classics (2019) [AAC|~344 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792135.jpg" />
+  <img src="Z:/picture/008/save_picture_792135.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791984.jpg" />
+  <img src="Z:/picture/008/save_picture_791984.jpg" />
 </div>
 
 

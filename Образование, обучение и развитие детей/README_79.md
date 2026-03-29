@@ -1,3 +1,57 @@
+###  Публикация: 1195831   (139985) от 30.12.2017
+
+Виктория Погосян, М. Кропачева Соболевская | Английский легко. Используем правильно предлоги (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знать предлоги очень важно, а учить их очень трудно. Чтобы изучение их было для вас легким и приятным, в нашей книге подобраны задания и упражнения, благодаря которым эта задача покажется вам интересной и увлекательной.
+
+В книге рассматриваются 12 наиболее часто употребляемых предлогов, а именно: up, down, in, out, away, on, off, over, around, through, along, back (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEA251C0D6077E970E779919391B8098E0E6546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436244   (139688) от 30.12.2020
+
+Юлия Дорошенко | Найди, узнай, покажи. Зоопарк (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы держите в руках не просто книгу под названием "Зоопарк". Это большая игра. Ведь именно в игре ребёнок знакомится с окружающим миром, развивает воображение, тренирует память, учится размышлять и творчески подходить к решению разных задач. Каждый разворот издания, полного красочных иллюстраций, расскажет о жизни удивительных животных, которых мы можем (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4FF1BFA01749825FEB86A80466221173DE9ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436247   (139680) от 30.12.2020
 
 Людмила Доманская, Алеся Третьякова | Большая книга найди, узнай, покажи для девочек (2017) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139680.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139656.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139595.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139563.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139527.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139404.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138952.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138722.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138660.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138557.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137961.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137591.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135089.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134776.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134635.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130185.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129266.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129016.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128977.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128924.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128914.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128913.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128833.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128832.jpg" />
 </div>
 
 
@@ -627,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4E5F857C8A0597AEBE64D8FE50E0185BA9E3EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684742   (127611) от 16.12.2023
-
-Галина Лупандина-Болотова | Сидеть, ползать, ходить. Как помочь ребенку сделать первый шаг? Эволюция движения от 0 до года (2023) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Должен ли ребенок поворачиваться на живот в 3 месяца и сидеть в 6 месяцев? Обязательно ли ползать, нужен ли массаж?
-
-Эта книга написана врачом-реабилитологом с большим опытом работы с детьми, руководителем отделения лечебной физкультуры «Научного медицинского исследовательского центра здоровья детей» (г. Москва), кандидатом медицинских наук и автором эффективных (   Читать дальше...   )Жанр: Лечебная физкультура Лечебные позы-движения Медицинская реабилитация Педиатрия и неонатология Развитие ребенка Советы врачейИздательство: ФениксФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07699F31E05517291B8CAD7E2D6F405540295E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685774   (126950) от 20.12.2023
-
-Р. Курант, Г. Роббинс | Что такое математика? 9-е издание (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана крупным математиком Рихардом Курантом в соавторстве с Гербертом Роббинсом. Она призвана сократить разрыв между математикой, которая преподается в школе, и наиболее живыми и важными для естествознания и техники разделами современной математической науки. Начиная с элементарных понятий, читатель движется к важным областям современной науки. Книга написана (   Читать дальше...   )Жанр: МатематикаИздательство: МЦНМОФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3B82294DA96BE033BEE6220FB669DB846DA210
 ```
 
 https://mybot314.ru/tekegram_catalog/

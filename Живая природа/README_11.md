@@ -1,3 +1,55 @@
+###  Публикация: 1380779   (796506) от 26.05.2020
+
+Африканские когти и челюсти / Africa's Claws & Jaws (2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезон 1, серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796506.jpg" />
+</div>
+
+
+###  Подробнее
+
+От острых как бритва зубов большой белой акулы до молниеносного удара чёрной мамбы мы исследуем некоторых из самых опасных животных Африки, известных человеку. В то время как некоторые используют свою подавляющую силу, чтобы одолеть врагов, другие используют смертельный яд. Это история нападения и защиты, хищника и добычи, а также желания убить или быть выжившим.Производство: Канада, Off The Fence for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Мариус БюргерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: серии x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF218C1BC24582245E3E9C22F304ECD0C9967DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508922   (796117) от 10.11.2021
+
+Удивительные животные / Animal (2021) WEB-DL [H.264/1080p] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сериал погрузит вас в мир самых поразительных существ планеты, осветит невиданные ранее грани их жизни — от нежности до жестокости и приглашает в волнующее, увлекательное и познавательное путешествие по самым отдаленным уголкам нашей планеты.Производство: США, Plimsoll Productions, NetflixЖанр: Документальный, природа, флора, фаунаРежиссер: Марта ХолмсПеревод: Многоголосый профессиональный (VSI Moscow)Субтитры: Русские (Forced, Full), немецкие, английские (SDH), испанские, французские, иврит, итальянские, португальские, румынские, украинскиеПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D070C6CE131BBC09630EEE92933E44824E9857EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386264   (795185) от 28.05.2020
 
 Зоопарк. Знакомьтесь, пингвины / The Zoo. Meet the penguins (2015) HDTV [H.264/1080i]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795185.jpg" />
+  <img src="Z:/picture/008/save_picture_795185.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795177.jpg" />
+  <img src="Z:/picture/008/save_picture_795177.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794886.jpg" />
+  <img src="Z:/picture/008/save_picture_794886.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794865.jpg" />
+  <img src="Z:/picture/008/save_picture_794865.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794628.jpg" />
+  <img src="Z:/picture/008/save_picture_794628.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793908.jpg" />
+  <img src="Z:/picture/008/save_picture_793908.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792663.jpg" />
+  <img src="Z:/picture/008/save_picture_792663.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792511.jpg" />
+  <img src="Z:/picture/008/save_picture_792511.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791965.jpg" />
+  <img src="Z:/picture/008/save_picture_791965.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790204.jpg" />
+  <img src="Z:/picture/008/save_picture_790204.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790048.jpg" />
+  <img src="Z:/picture/008/save_picture_790048.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789336.jpg" />
+  <img src="Z:/picture/008/save_picture_789336.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789271.jpg" />
+  <img src="Z:/picture/008/save_picture_789271.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789006.jpg" />
+  <img src="Z:/picture/008/save_picture_789006.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788794.jpg" />
+  <img src="Z:/picture/008/save_picture_788794.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787537.jpg" />
+  <img src="Z:/picture/008/save_picture_787537.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786982.jpg" />
+  <img src="Z:/picture/008/save_picture_786982.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786910.jpg" />
+  <img src="Z:/picture/008/save_picture_786910.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786848.jpg" />
+  <img src="Z:/picture/008/save_picture_786848.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786696.jpg" />
+  <img src="Z:/picture/008/save_picture_786696.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785138.jpg" />
+  <img src="Z:/picture/008/save_picture_785138.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785129.jpg" />
+  <img src="Z:/picture/008/save_picture_785129.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784756.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783394.jpg" />
+  <img src="Z:/picture/008/save_picture_783394.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C06BB8BDD76FD16765FE9632D615515298A0B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199989   (782343) от 11.05.2010
-
-Страсти по насекомым 2. Насекомые на продажу / Insectia 2. Insects For Sale (2000) HDTVRip (серия 9 из 13)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390917   (781837) от 18.06.2020
-
-Волшебная Исландия / Magisches Island - Leben auf der groessten Vulkaninsel der Welt (Magical Iceland) (2019) BDRemux [H.264/1080p] (3 фильма)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исландию называют страной воды и огня. Термальные источники, вулканы и ледники – это сила первозданной природы во всем ее проявлении. Здесь самый капризный климат на Земле, и все же от хрупкой красоты Исландии захватывает дух, а природа этой страны уникальна.Производство: Германия, NautilusfilmЖанр: Документальный, природа, флора, фаунаРежиссер: Ян ХафтПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:50:21+00:30:48+00:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FBFE0FD85868D94BF66B2EE248304EE1E0D917
 ```
 
 https://mybot314.ru/tekegram_catalog/

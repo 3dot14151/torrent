@@ -1,3 +1,81 @@
+###  Публикация: 1725116   (8187) от 13.08.2025
+
+Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Decepticon [Enhanced]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senua's Saga: Hellblade 2 - продолжение ролевого экшена про кельтскую воительницу Сенуа. События сиквела переносят в Исландию, а история напрямую продолжает предыдущую часть. Основная идея игры состоит в том, чтобы показать свое видение шаманизма нордических земель. Игра опирается на кельтскую и скандинавкую мифологии. В центре истории героиня предыдущей части - (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF44485A7FD7CD7225BEE2F5DA5B86B6E9EA002A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798844   (8160) от 13.08.2025
+
+Out of Sight (2025) [Ru/Multi] (1.0.48) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Out of Sight - атмосферный хоррор, сочетающий перспективу от первого и второго лица с леденящей душу озвучкой. Попробуйте пережить это жуткое эмоциональное путешествие. Мир с новой точки зрения. Обретя зрение благодаря любимому Тедди, Софи понимает, что должна найти выход, пока не стало слишком поздно. Опасность подстерегает за каждым углом - один неверный шаг, скрипящая (   Читать дальше...   )Тип издания: RepackРазработчик: The GangЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA56FB91198DB0E16CE59289F8B6DEC770133CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781234   (7961) от 14.08.2025
+
+Cabernet (2025) [Multi] (1.1.19) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cabernet - ролевая 2D-игра в антураже Восточной Европы XIX века, переделанной на современный лад. Помогите юной кровопийце Лизе привыкнуть к нежизни среди ни о чем не ведающих обывателей. Сохраните ли вы остатки человечности или навеки увязнете в кошмаре? Планируйте кровавые пиршества и путешествуйте под луной. Знакомьтесь с другими вампирами и людьми, которыми они (   Читать дальше...   )Тип издания: LicenseРазработчик: Party for IntrovertsЖанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Китайский (упрощенный)Язык интерфейса: Английский, Немецкий, Испанский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC97676327EB19B5C8458A2ED060D741C50B888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753815   (7956) от 14.08.2025
 
 Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
@@ -6,7 +84,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7956.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7940.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7931.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7754.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7565.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7558.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7552.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7524.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7395.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Boxville 2 (2025) [Ru/Multi] (2.17.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7388.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7377.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7347.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7317.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7146.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7138.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6990.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6974.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6964.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ PEAK (2025) [Ru/Multi] (1.24a) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6861.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6815.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6541.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6506.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6486.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Herdling - это новое приключение от Okomotive, создав
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CBCF11DE8FE4CB3E8879E83ED8E2F888D7CB861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067510   (6229) от 24.08.2025
-
-Primordia (2012) [Multi] (5.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло много веков с тех пор, когда последний человек ходил по планете. Теперь, в отдаленной от города Метрополь пустоши, одинокий робот по имени Горацио ревностно защищает свою свободу и независимость. Попал он туда из-за мародеров, которые украли его источник питания, в результате чего Горацио пришлось покинуть свой безопасный дом и отправиться в рисковое путешествие.Тип издания: LicenseРазработчик: Wormwood StudiosЖанр: Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE3881A60A4DC5512B6417547BC64D304B601F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635814   (6218) от 24.08.2025
-
-The Blackwell Deception (2011) [En] (3.5) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медиум начинает собственное расследование чреды загадочных убийств в Blackwell Deception. Игрок отправится в приключение вместе с героиней, чтобы разгадать мистическую загадку. В игре органично сочетается олдскульный стиль с косметическим апдейтом современной версии, атмосферу которым добавляет музыка и продуманные диалоги.Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9879DF79EE44E130A257B2BE5010A64BDE2FAB7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634894   (6212) от 24.08.2025
-
-The Blackwell Legacy (2006) [En] (4.0c) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6212.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Blackwell Legacy – приключенческий квест о молодой девушке-медиуме Розе Блекуэлл, с которой происходят странные события на протяжении всей её жизни. Крис Фемо и Том Скари создавали задние фоны, Ян Шлапфер ответственный за проработку персонажей, как графическую, так и сценарную. История начинается с печального известия: после 20 лет в коме, умерла тётя главной (   Читать дальше...   )Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключение, Квест, ДетeктивЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2B1B1FCBBBA0DEB4BACECF619B3115745A07F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

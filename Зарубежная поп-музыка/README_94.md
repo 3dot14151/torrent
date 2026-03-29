@@ -1,3 +1,32 @@
+###  Публикация: 1763835   (35298) от 03.12.2024
+
+VA - Greatest Love Songs (2024) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lena - Looking For Love (00:02:39)
+02. Shawn Mendes - Teach Me How To Love (00:03:22)
+03. Harry Laffontien - Someone To You (00:03:51)
+04. Lewis Capaldi - Pointless (00:03:49)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CD607354B947056F2ED30CDC99755BB87AB34C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764356   (35010) от 06.12.2024
 
 Roxette - Crash! Boom! Bang! (1994) 30th Anniversary Edition, Reissue, 2024, Warner Music Sweden [MP3|320 Kbps] <Pop, Rock, Pop Rock>
@@ -6,7 +35,7 @@ Roxette - Crash! Boom! Bang! (1994) 30th Anniversary Edition, Reissue, 2024, War
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35010.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - BRAVO - The Hits 2024 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34403.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - 10's Nostalgia Best from the Tens (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33871.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - 10s Hits - Best 10s Music (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33865.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - 10s - 100 Best (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33807.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31876.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - The Best Disco In Town (2007) 3 CD [OGG Vorbis|480 Kbps] <Funk / Soul, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31577.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Secret Service - Top Secret* (*Greatest Hits) (2000) [OGG Vorbis|480 Kbps] <Elec
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31565.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Zucchero - DISCOVER II (2025) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31264.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - 50s Memories (2025) [MP3|320 Kbps] <Pop, Rock, Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30945.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - 60s Memories (2025) [MP3|320 Kbps] <Pop, Rock, Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30943.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Pop Hits 2000 - 2024 - 100 Best Songs (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30783.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Dance Classics Gold (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29905.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Dance Classics Gold (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29888.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - MegaHits 2025 - Die Erste [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29399.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29376.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Secret Service - Aux Deux Magots (1987) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29369.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29366.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Top 50 Achtziger Hits (2025) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29360.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Secret Service - When The Night Closes In (1985) [OGG Vorbis|480 Kbps] <Electron
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29125.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Billboard Top Hits 1975 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27938.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Billboard Top Hits 1976 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27935.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27301.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ a-ha - Greatest Hits - Japanese Singles Collection (2020) [OGG Vorbis|480 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26985.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Pop Gold 100 Greatest Hits Ever (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26379.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Pop Gold 100 Greatest Hits Ever (2025) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4BEA7E47AEFA3D187E1677AB4A612676A294A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782603   (26046) от 01.03.2025
-
-VA - Black '80 (2004) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Soul, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marvin Gaye - Sexual Healing
-02. Freddie Jackson - Rock Me Tonight (For Old Times Sake)
-03. Gregory Abbott - Shake You Down
-04. Al B. Sure! - Nite and Day(   Читать дальше...   )Жанр: Electronic, Soul, Funk, DiscoПродолжительность: 02:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D1168FEC925C323C28236021599E9C194B4783
 ```
 
 https://mybot314.ru/tekegram_catalog/

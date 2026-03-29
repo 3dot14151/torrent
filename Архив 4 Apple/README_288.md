@@ -1,3 +1,111 @@
+###  Публикация: 1536707   (672784) от 13.03.2022
+
+Blackmagic Design Fusion Studio 17.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Fusion является самым передовым программным обеспечением для наложения визуальных эффектов, вещательной графики и 3D-анимации. За более чем 25 лет, прошедших с момента его появления, голливудские студии создали в нем свыше тысячи известных во всем мире блокбастеров. Мощный интерфейс программы построен на базе узлов, которые позволяют быстро и легко добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE16C02642EA85BB44E15A0490248B9AF237733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136713   (672772) от 23.05.2017
+
+Navicat Premium 11.2.18 [Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.
+
+Navicat Premium совмещает в себе функции других приложений Navicat. При наличии соединений, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2017Разработчик: PremiumSoftПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8509F326771279E5759D1294653D8718A83D9A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136716   (672758) от 23.05.2017
+
+Audio Hijack 3.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack 3 - инструмент для записи звука с любых аудиоисточников от компании Rogue Amoeba. Доступное для компьютеров с операционной системой OS X приложение позволяет записывать разговоры в Skype и FaceTime, оцифровывать аналоговые магнитные записи и пластинки, вести запись музыки из iTunes и Safari.
+
+Audio Hijack имеет блочный интерфейс, набор шаблонов для настройки (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 мая 2017Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8942488F3395033276B757CE606EF0FC27360496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536777   (672662) от 13.03.2022
+
+Adobe Substance 3D Sampler 3.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оцифруйте и обогатите ресурсы для 3D. Substance 3D Sampler лежит в основе вашего рабочего процесса 3D. Легко трансформируйте реальное изображение в фотореалистичную поверхность или среду HDR.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2022Разработчик: © 2019-2022 AdobeПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE9517560DAE2E5C589FEE31AEA621C200769E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536775   (672658) от 13.03.2022
 
 Adobe Substance 3D Painter 7.4.2 [En]
@@ -6,7 +114,7 @@ Adobe Substance 3D Painter 7.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672658.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Carbon Copy Cloner 6 v6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672653.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Davinci Resolve Studio 17.4.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672452.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672417.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672416.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672415.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Forecast Bar 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672402.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ NeoFinder Business 7.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672342.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ MacFamilyTree 8 v8.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672321.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672312.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ Together 3.5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672293.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ Translate Tab 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672292.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ Blocs 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672286.jpg" />
 </div>
 
 
@@ -360,7 +468,7 @@ Serial Box 07-2016 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672280.jpg" />
 </div>
 
 
@@ -389,7 +497,7 @@ Adguard 1.3 (307) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672065.jpg" />
 </div>
 
 
@@ -416,7 +524,7 @@ ACDSee Photo Studio 5.2.1151 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672026.jpg" />
 </div>
 
 
@@ -444,7 +552,7 @@ Alien Skin Software Photo Bundle Collection (Update 30.05.2016) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671957.jpg" />
 </div>
 
 
@@ -470,7 +578,7 @@ Mocha Pro 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671955.jpg" />
 </div>
 
 
@@ -498,7 +606,7 @@ File Cabinet Pro 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671203.jpg" />
+  <img src="Z:/picture/008/save_picture_671203.jpg" />
 </div>
 
 
@@ -527,7 +635,7 @@ Mellel 3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671140.jpg" />
+  <img src="Z:/picture/008/save_picture_671140.jpg" />
 </div>
 
 
@@ -555,7 +663,7 @@ NoteBurner iTunes DRM Audio Converter 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671139.jpg" />
+  <img src="Z:/picture/008/save_picture_671139.jpg" />
 </div>
 
 
@@ -581,7 +689,7 @@ CopyClip 2 - Clipboard Manager v2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671138.jpg" />
+  <img src="Z:/picture/008/save_picture_671138.jpg" />
 </div>
 
 
@@ -595,112 +703,6 @@ CopyClip 2 (   Читать дальше...   )Тип издания: macOS Sof
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9630F4225C737F418A3DCA79BC57762BDCAA5140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536940   (671068) от 14.03.2022
-
-Multitouch 1.27.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © 2022 Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B458BBDBAAE2C4F8B03D5C53EE6AE559CCE4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537035   (671067) от 14.03.2022
-
-Scrutiny 10 v10.4.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC128F467E8115E35B3C4E5C9A21012481A4AA97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536939   (671066) от 14.03.2022
-
-SuperDuper! 3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671066.jpg" />
-</div>
-
-
-###  Подробнее
-
-SuperDuper! - утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © 2022 Shirt-pocketПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB92EC7F7C8EF466B6FB2FF3284C29D2B6BB8E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536946   (671065) от 14.03.2022
-
-WiFi Explorer 3.3.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671065.jpg" />
-</div>
-
-
-###  Подробнее
-
-WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
-WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и IT-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2012-2020 Intuitibits LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F744D21ED51FDB8EBCC8E72F5F2929BB812AB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

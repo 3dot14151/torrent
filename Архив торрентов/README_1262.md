@@ -6,7 +6,7 @@ DriverPack Solution 15.4 DVD Edition + Драйвер-Паки 15.04.1 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769727.jpg" />
+  <img src="Z:/picture/008/save_picture_769727.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe After Effects 2020 17.1.1. [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769714.jpg" />
+  <img src="Z:/picture/008/save_picture_769714.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ HWiNFO 6.28 Build 4200 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769701.jpg" />
+  <img src="Z:/picture/008/save_picture_769701.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769699.jpg" />
+  <img src="Z:/picture/008/save_picture_769699.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ VA - Progressive Box (2016) [MP3|320 кб/с] <Trance, Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769698.jpg" />
+  <img src="Z:/picture/008/save_picture_769698.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Boinx mimoLive 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769681.jpg" />
+  <img src="Z:/picture/008/save_picture_769681.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Dark Souls II/2 Scholar of the First Sin (2015) [Ru/Multi] (1.01/dlc) Repack R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769675.jpg" />
+  <img src="Z:/picture/008/save_picture_769675.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Dark Souls II/2 Scholar of the First Sin (2015) [Ru/Multi] (1.01/dlc) SteamRip R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769665.jpg" />
+  <img src="Z:/picture/008/save_picture_769665.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Adobe Premiere Pro 2020 14.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769651.jpg" />
+  <img src="Z:/picture/008/save_picture_769651.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Process Explorer 16.32 Portable by Portable RUS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769642.jpg" />
+  <img src="Z:/picture/008/save_picture_769642.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Afternoon - Acid Jazz & Chill Out (2016) [FLAC|Lossless|tracks] <Lounge, Ch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769568.jpg" />
+  <img src="Z:/picture/008/save_picture_769568.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ CameraBag Cinema 1.0.102 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769567.jpg" />
+  <img src="Z:/picture/008/save_picture_769567.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Cosmic Replicant & Germind - Lost Dreams EP (2016) Altar Records [FLAC|Lossless|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769565.jpg" />
+  <img src="Z:/picture/008/save_picture_769565.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Argishty - Паломничество к себе (2013) [FLAC|Lossless|tracks] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769563.jpg" />
+  <img src="Z:/picture/008/save_picture_769563.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mozilla Thunderbird 45.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769558.jpg" />
+  <img src="Z:/picture/008/save_picture_769558.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Emperor - Dispositions (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769556.jpg" />
+  <img src="Z:/picture/008/save_picture_769556.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769555.jpg" />
+  <img src="Z:/picture/008/save_picture_769555.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ pdfFactory Pro 5.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769551.jpg" />
+  <img src="Z:/picture/008/save_picture_769551.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769548.jpg" />
+  <img src="Z:/picture/008/save_picture_769548.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Beyond Compare 4.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769544.jpg" />
+  <img src="Z:/picture/008/save_picture_769544.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ USDownloader 1.3.5.9 Portable (14.05.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769542.jpg" />
+  <img src="Z:/picture/008/save_picture_769542.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ CDBurnerXP 4.5.7.6139 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769540.jpg" />
+  <img src="Z:/picture/008/save_picture_769540.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Air Explorer Pro 1.8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769533.jpg" />
+  <img src="Z:/picture/008/save_picture_769533.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769529.jpg" />
+  <img src="Z:/picture/008/save_picture_769529.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ FinePrint 8.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769508.jpg" />
+  <img src="Z:/picture/008/save_picture_769508.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Dicter 3.75 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769504.jpg" />
+  <img src="Z:/picture/008/save_picture_769504.jpg" />
 </div>
 
 

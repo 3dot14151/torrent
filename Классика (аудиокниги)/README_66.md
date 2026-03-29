@@ -1,3 +1,111 @@
+###  Публикация: 284600   (118180) от 11.02.2024
+
+Николай Лесков | Овцебык (2008) [MP3, Дмитрий Кинге]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Семёнович Лесков (1831–1895) –  русский писатель. Его называли самым национальным из писателей России. Высоко ценивший творчество Н. С. Лескова М. Горький писал о нем: «Жил этот крупный писатель в стороне от публики и литераторов, одинокий и непонятый почти до конца дней. Только теперь к нему начинают относиться более внимательно». Литературная судьба Лескова (   Читать дальше...   )Жанр: Русская литература, классика, рассказПродолжительность: 02:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1627BB99DE8E087946D6DDA261F09D0B599D1421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699067   (118118) от 11.02.2024
+
+А.К. Толстой, Николай Лесков, Сергей Аксаков | Рассказы (2009) [MP3, Георгий Корольчук]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из фонда радио «Град Петров».
+1.Жанр: Русская литература, классика, рассказИздательство: Град ПетровПродолжительность: 05:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57EF61DA048588F0705A10DC7A8BF6397B2DB2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699063   (118105) от 11.02.2024
+
+Сергей Аксаков | Семейная хроника (2007) [MP3, Алексей Злаказов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Тимофеевич Аксаков (1791–1859) – русский писатель,  литературный и театральный критик.
+«Тесно стало моему дедушке жить в Симбирской губернии, в родовой отчине своей, жалованной предкам его от царей московских... С некоторого времени стал он часто слышать об Уфимском наместничестве, о неизмеримом пространстве земель...». Так начинает свое повествование о роде (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 08:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A694868DB8227EE65F61BD6EFE74303FE9D499F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292010   (118052) от 12.02.2024
+
+Григорий Данилевский | Царственный узник (Радиоспектакль) (2000) [MP3, Наталья Данилова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у микрофона.
+Петрович Данилевский (1829–1890) – русский писатель, публицист, переводчик, автор художественных произведений, в том числе романов из истории России XVIII—XIX веков.
+Радиоспектакль «Царственный узник» по роману Г. П. Данилевского «Мирович» (1879). В спектакле воспроизведены исторические события эпохи Екатерины II. Неудачная попытка (   Читать дальше...   )Жанр: Русская литература, классика, исторический романВ ролях: Наталья Данилова, Татьяна Иванова, Валерий Соловьев, Вадим Никитин, Андрей ТолубеевИздательство: ТРК «Петербург», НИК и КомпанияПродолжительность: 17:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9A350E9BDF184A59FCC811B06D12A5A3B6FE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291990   (118028) от 12.02.2024
 
 Григорий Данилевский | Княжна Тараканова (2004) [MP3, Евгений Терновский]
@@ -6,7 +114,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118028.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118005.jpg" />
 </div>
 
 
@@ -62,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117995.jpg" />
 </div>
 
 
@@ -90,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117953.jpg" />
 </div>
 
 
@@ -118,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117905.jpg" />
 </div>
 
 
@@ -145,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117884.jpg" />
 </div>
 
 
@@ -172,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117883.jpg" />
 </div>
 
 
@@ -200,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117878.jpg" />
 </div>
 
 
@@ -227,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117802.jpg" />
 </div>
 
 
@@ -255,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117778.jpg" />
 </div>
 
 
@@ -282,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117735.jpg" />
 </div>
 
 
@@ -310,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117730.jpg" />
 </div>
 
 
@@ -337,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117666.jpg" />
 </div>
 
 
@@ -365,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117570.jpg" />
 </div>
 
 
@@ -393,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117564.jpg" />
 </div>
 
 
@@ -419,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117547.jpg" />
 </div>
 
 
@@ -446,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117501.jpg" />
 </div>
 
 
@@ -473,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117497.jpg" />
 </div>
 
 
@@ -500,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117491.jpg" />
 </div>
 
 
@@ -528,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117490.jpg" />
 </div>
 
 
@@ -555,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117479.jpg" />
 </div>
 
 
@@ -583,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117469.jpg" />
 </div>
 
 
@@ -595,115 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B104DA4974E44E38CB32F61D4406E30B79FD0292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422933   (117467) от 15.02.2024
-
-Иван Гончаров | Обыкновенная история (2003) [MP3, Николай Савицкий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
-Литературное наследие Гончарова не слишком обширно. За 45 лет творчества он опубликовал три романа, книгу путевых очерков «Фрегат «Паллада», несколько нравоописательных рассказов, критических статей и мемуары. «Обыкновенная (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 16:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BE8CB260722CE2AD6D04AD30E75265EF5B3DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442105   (117464) от 15.02.2024
-
-Иван Гончаров | Обыкновенная история. Необыкновенная история (2008) [MP3, Александр Хорлин, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.Жанр: Русская литература, классика, повесть, мемуарыИздательство: БиблиофоникаПродолжительность: 19:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046125D18B8D8EF43E14900F56A7D0114D02010D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700066   (117389) от 15.02.2024
-
-Иван Гончаров | Обрыв (Радиоспектакль) (2003) [MP3, Наталья Тенякова, Дмитрий Брусникин и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у микрофона. Из фондов «Радио России».
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
-Роман «Обрыв» был задуман автором еще в 1849 году как роман о сложных отношениях художника и общества. К 60-м годам замысел обогатился новой проблематикой, рожденной пореформенной эпохой. (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио РоссииПродолжительность: 05:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675D85C2AE121232FF86492C5DE611C997ED1725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700079   (117374) от 15.02.2024
-
-Гюстав Флобер | Простая душа (2020) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XIX век. Зарубежная проза.
-Аудиокнига «Простая душа» – произведение классика французской литературы, одного из крупнейших европейских писателей XIX века Гюстава Флобера (1821–1880). Эту маленькую повесть автор знаменитых романов «Госпожа Бовари» и «Воспитание чувств» создал в конце жизни, в 1877 году. Именно в «Простой душе» наиболее отчётливо проявляется (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 01:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB9B417539CB99940D723D6D4DC09DBF8560148
 ```
 
 https://mybot314.ru/tekegram_catalog/

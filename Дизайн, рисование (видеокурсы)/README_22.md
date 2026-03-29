@@ -1,3 +1,31 @@
+###  Публикация: 873768   (864476) от 02.03.2015
+
+Lynda.com | Photoshop CC Один-на-Один. Мастер (2013) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучающий пошаговый видеокурс по новой версии Photoshop CC от признанного эксперта по продуктам Adobe Дика МакКлелланда (Deke McClelland).
+Это четвертая заключительная часть серии видеокурсов "Photoshop CC One-on-One", в которой Дик показывает самые продвинутые возможности Photoshop CC.
+В этой части рассматриваются такие вопросы, как: создание профессиональных (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 09:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149220B4958B4AD665CBA2329EC26B158E067B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497385   (864449) от 22.09.2021
 
 CGMA, Dmitrij Leppee | Character Facial Sculpting Week 9-10 (2020) PCRec
@@ -6,7 +34,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 9-10 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864449.jpg" />
+  <img src="Z:/picture/008/save_picture_864449.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 1-2 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864447.jpg" />
+  <img src="Z:/picture/008/save_picture_864447.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ kalachevaschool, Калачева Вероника | Ла-Ла Курс (2017) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862749.jpg" />
+  <img src="Z:/picture/008/save_picture_862749.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Profileschool | DaVinci Resolve 11 Lite. Базовый уровень (2015) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861842.jpg" />
+  <img src="Z:/picture/008/save_picture_861842.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859345.jpg" />
+  <img src="Z:/picture/008/save_picture_859345.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859300.jpg" />
+  <img src="Z:/picture/008/save_picture_859300.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857635.jpg" />
+  <img src="Z:/picture/008/save_picture_857635.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ XYZ School, Егор Гришин | Основы иллюстрации (2021) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857403.jpg" />
+  <img src="Z:/picture/008/save_picture_857403.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ Highlights | Основы веб-дизайна (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854464.jpg" />
+  <img src="Z:/picture/008/save_picture_854464.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ Lynda.com | Photoshop CC 2015 for Photographers Fundamentals (2016) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853616.jpg" />
+  <img src="Z:/picture/008/save_picture_853616.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ Lynda.com | Photoshop for Photographers 2015 Creative Cloud Updates (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853521.jpg" />
+  <img src="Z:/picture/008/save_picture_853521.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ kalachevaschool, Анна Расторгуева | Экстрим-скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852625.jpg" />
+  <img src="Z:/picture/008/save_picture_852625.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ kalachevaschool, Анна Эгида | Экстрим 5. Портрет горо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852624.jpg" />
+  <img src="Z:/picture/008/save_picture_852624.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ kalachevaschool, Вероника Калачева и тд | Экстрим ск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852543.jpg" />
+  <img src="Z:/picture/008/save_picture_852543.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ kalachevaschool, Анна Эгида | Летний экстрим-скетчи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852540.jpg" />
+  <img src="Z:/picture/008/save_picture_852540.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ kalachevaschool, Анна Эгида | Онлайн-курс «Летний эк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852534.jpg" />
+  <img src="Z:/picture/008/save_picture_852534.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ kalachevaschool, Анна Эгида | [Анна Эгида] Онлайн-кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852528.jpg" />
+  <img src="Z:/picture/008/save_picture_852528.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ Lynda.com | Photoshop CC один-на-один: Продвинутый (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852006.jpg" />
+  <img src="Z:/picture/008/save_picture_852006.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ Udemy, Neil Bettison | Создание средневековой катапу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851380.jpg" />
+  <img src="Z:/picture/008/save_picture_851380.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ YanSculpts | Скульптинг для начинающих в Blender 2.79 и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851276.jpg" />
+  <img src="Z:/picture/008/save_picture_851276.jpg" />
 </div>
 
 
@@ -543,7 +571,7 @@ kalachevaschool, Анна Михеева | Стильные аксессуары
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849533.jpg" />
+  <img src="Z:/picture/008/save_picture_849533.jpg" />
 </div>
 
 
@@ -571,7 +599,7 @@ kalachevaschool, Анна Михеева | Вечерние платья (2018) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849530.jpg" />
+  <img src="Z:/picture/008/save_picture_849530.jpg" />
 </div>
 
 
@@ -598,7 +626,7 @@ kalachevaschool, Светлана Плакасова | Красный пион (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849528.jpg" />
+  <img src="Z:/picture/008/save_picture_849528.jpg" />
 </div>
 
 
@@ -624,7 +652,7 @@ kalachevaschool, Светлана Плакасова | Синий ирис (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849526.jpg" />
+  <img src="Z:/picture/008/save_picture_849526.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ kalachevaschool, Светлана Плакасова | Лиловая глици
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849425.jpg" />
+  <img src="Z:/picture/008/save_picture_849425.jpg" />
 </div>
 
 
@@ -662,33 +690,6 @@ kalachevaschool, Светлана Плакасова | Лиловая глици
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74FA34F0C21E7A1376A7389F9C4770C10AF90BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499230   (849420) от 01.10.2021
-
-kalachevaschool, Александра Балашова | Героини сказок (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего за несколько уроков мини-курса мы узнаем, как стилизовать пропорции персонажа таким образом, чтобы они остались гармоничными.
-Нарисуем трех разных персонажей: героиню классической европейской сказки, царевну из русской сказки и противную ведьму. На ведьме мы отработаем особенности отрицательных персонажей. Кроме того, научимся не просто подбирать красивые картинки (   Читать дальше...   )Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 01:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE782442E98D0FCB3601D71C565585142489960
 ```
 
 https://mybot314.ru/tekegram_catalog/

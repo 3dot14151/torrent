@@ -1,3 +1,59 @@
+###  Публикация: 1062127   (443892) от 12.10.2016
+
+Н.В. Абельмас | Занимательные игры и задания по математике и русскому языку для развития логического мышления (2005) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет воспитателям, учителям, родителям увлекательно и с пользой организовать свободное время детей младшего школьного возраста.
+
+В книге собран практический материал для занятий: головоломки со словами (шарады, кроссворды, ребусы, логогрифы, анаграммы, метаграммы, палиндромы и другие словесные задачи), вопросы на сообразительность, игры на внимательность, (   Читать дальше...   )Жанр: Обучение, развитиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45F877CBC575229EF55CD3DB73A309AC8EACD2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944332   (442932) от 06.10.2015
+
+Виталий Ситников | Как написать сочинение. Для подготовки к ЕГЭ (2010) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442932.jpg" />
+</div>
+
+
+###  Подробнее
+
+правочник школьника – современное и самое полное учебное пособие, составленное по действующей базовой программе, утвержденной Министерством образования и науки РФ. Серия составлена и разработана опытными учителями московских школ и преподавателями МГУ им. М. В. Ломоносова.
+
+Издание, охватывающее все аспекты школьной программы, предназначено для школьников 4–11 классов, (   Читать дальше...   )Жанр: Образование, развитиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA3D51FCD879B01FC0986CD46D8ACD289E66D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553485   (441005) от 29.09.2012
 
 Александр Кудряшов | Песни для детей. Настольная книга музыкального руководителя [2007] [PDF]
@@ -6,7 +62,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441005.jpg" />
+  <img src="Z:/picture/008/save_picture_441005.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438550.jpg" />
+  <img src="Z:/picture/008/save_picture_438550.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438345.jpg" />
+  <img src="Z:/picture/008/save_picture_438345.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437579.jpg" />
+  <img src="Z:/picture/008/save_picture_437579.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437354.jpg" />
+  <img src="Z:/picture/008/save_picture_437354.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436721.jpg" />
+  <img src="Z:/picture/008/save_picture_436721.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436401.jpg" />
+  <img src="Z:/picture/008/save_picture_436401.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435864.jpg" />
+  <img src="Z:/picture/008/save_picture_435864.jpg" />
 </div>
 
 
@@ -219,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435409.jpg" />
+  <img src="Z:/picture/008/save_picture_435409.jpg" />
 </div>
 
 
@@ -248,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434937.jpg" />
+  <img src="Z:/picture/008/save_picture_434937.jpg" />
 </div>
 
 
@@ -277,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433971.jpg" />
+  <img src="Z:/picture/008/save_picture_433971.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433698.jpg" />
+  <img src="Z:/picture/008/save_picture_433698.jpg" />
 </div>
 
 
@@ -331,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432465.jpg" />
+  <img src="Z:/picture/008/save_picture_432465.jpg" />
 </div>
 
 
@@ -357,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431827.jpg" />
+  <img src="Z:/picture/008/save_picture_431827.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431740.jpg" />
+  <img src="Z:/picture/008/save_picture_431740.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431728.jpg" />
+  <img src="Z:/picture/008/save_picture_431728.jpg" />
 </div>
 
 
@@ -437,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430609.jpg" />
+  <img src="Z:/picture/008/save_picture_430609.jpg" />
 </div>
 
 
@@ -464,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429715.jpg" />
+  <img src="Z:/picture/008/save_picture_429715.jpg" />
 </div>
 
 
@@ -490,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429601.jpg" />
+  <img src="Z:/picture/008/save_picture_429601.jpg" />
 </div>
 
 
@@ -518,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429490.jpg" />
+  <img src="Z:/picture/008/save_picture_429490.jpg" />
 </div>
 
 
@@ -544,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428475.jpg" />
+  <img src="Z:/picture/008/save_picture_428475.jpg" />
 </div>
 
 
@@ -572,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428169.jpg" />
+  <img src="Z:/picture/008/save_picture_428169.jpg" />
 </div>
 
 
@@ -598,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428040.jpg" />
+  <img src="Z:/picture/008/save_picture_428040.jpg" />
 </div>
 
 
@@ -626,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427657.jpg" />
+  <img src="Z:/picture/008/save_picture_427657.jpg" />
 </div>
 
 
@@ -637,59 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D9C577CA0FBCDDD8FAC6DDF948C30AC9751C8E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064350   (427651) от 19.10.2016
-
-Евгений Гик | Веселые головоломки (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427651.jpg" />
-</div>
-
-
-###  Подробнее
-
-та книга отличается от других сборников головоломок: в ней много веселых и забавных сюжетов, поэтому от читателя требуется не только сообразительность и смекалка, но и чувство юмора. Среди логических задач и головоломок есть и старинные, и современные, придуманные совсем недавно, немало и находок автора.
-В книге более двухсот симпатичных задач и головоломок, серьезных (   Читать дальше...   )Жанр: Развитие, головоломкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921DC62EE85BD46D00688C57EABE8238E881CEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 56914   (427204) от 24.08.2022
-
-Инфопласт | Шпаргалки. Алгебра, Геометрия, Химия, Русский язык, Физика (2003-2006) [JPEG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержит в себе полный справочный материал и формулы по 5 предметам - Алгебра, Геометрия, Химия, Русский язык, Физика. Уровень старшей школы, поступающих в вузы, и часть университетской программы...Жанр: Учебное пособиеФормат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DE54BEE2C48A9CEAC473395A6779B9D82560B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

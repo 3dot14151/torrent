@@ -1,3 +1,29 @@
+###  Публикация: 820241   (528963) от 10.09.2014
+
+Журнал | Автомир [Россия] №37 (сентябрь 2014) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528963.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DF1BC70F7B7FADB87539AAE7048813E32FA89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927460   (528629) от 13.08.2015
 
 Журнал | Автомир [Россия] №33-34 (август 2015) [PDF]
@@ -6,7 +32,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528629.jpg" />
+  <img src="Z:/picture/008/save_picture_528629.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528625.jpg" />
+  <img src="Z:/picture/008/save_picture_528625.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528226.jpg" />
+  <img src="Z:/picture/008/save_picture_528226.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527498.jpg" />
+  <img src="Z:/picture/008/save_picture_527498.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525852.jpg" />
+  <img src="Z:/picture/008/save_picture_525852.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524535.jpg" />
+  <img src="Z:/picture/008/save_picture_524535.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510942.jpg" />
+  <img src="Z:/picture/008/save_picture_510942.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510941.jpg" />
+  <img src="Z:/picture/008/save_picture_510941.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507982.jpg" />
+  <img src="Z:/picture/008/save_picture_507982.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506576.jpg" />
+  <img src="Z:/picture/008/save_picture_506576.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506152.jpg" />
+  <img src="Z:/picture/008/save_picture_506152.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504816.jpg" />
+  <img src="Z:/picture/008/save_picture_504816.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504234.jpg" />
+  <img src="Z:/picture/008/save_picture_504234.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504232.jpg" />
+  <img src="Z:/picture/008/save_picture_504232.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504231.jpg" />
+  <img src="Z:/picture/008/save_picture_504231.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504167.jpg" />
+  <img src="Z:/picture/008/save_picture_504167.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503695.jpg" />
+  <img src="Z:/picture/008/save_picture_503695.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500456.jpg" />
+  <img src="Z:/picture/008/save_picture_500456.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499306.jpg" />
+  <img src="Z:/picture/008/save_picture_499306.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498622.jpg" />
+  <img src="Z:/picture/008/save_picture_498622.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497648.jpg" />
+  <img src="Z:/picture/008/save_picture_497648.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497513.jpg" />
+  <img src="Z:/picture/008/save_picture_497513.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497507.jpg" />
+  <img src="Z:/picture/008/save_picture_497507.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497305.jpg" />
+  <img src="Z:/picture/008/save_picture_497305.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496667.jpg" />
+  <img src="Z:/picture/008/save_picture_496667.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Lowrider - американский автомобильный журнал, ф�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58E5A89C2EE733452044D428E8C999099F643E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318591   (492852) от 07.08.2019
-
-Журнал | Motor Trend USA №9 (сентябрь 2019) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motor Trend — популярный американский автомобильный журнал, основанный в сентябре 1949 года в городе Лос-Анджелесе. Ежемесячный тираж издания составляет более одного миллиона экземпляров.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3372862754587C522928DDD26A3FA9BFE7AF0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

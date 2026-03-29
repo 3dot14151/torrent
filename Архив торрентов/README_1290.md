@@ -6,7 +6,7 @@ Wise Disk Cleaner 9.7.2.689 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764867.jpg" />
+  <img src="Z:/picture/008/save_picture_764867.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764862.jpg" />
+  <img src="Z:/picture/008/save_picture_764862.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CPU-Z 1.84.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764860.jpg" />
+  <img src="Z:/picture/008/save_picture_764860.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764859.jpg" />
+  <img src="Z:/picture/008/save_picture_764859.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCEnhancer 4.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764858.jpg" />
+  <img src="Z:/picture/008/save_picture_764858.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BurnAware Professional 11.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764830.jpg" />
+  <img src="Z:/picture/008/save_picture_764830.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764827.jpg" />
+  <img src="Z:/picture/008/save_picture_764827.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Registry First Aid Platinum 11.1.0 Build 2495 RePack (& portable) by  elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764826.jpg" />
+  <img src="Z:/picture/008/save_picture_764826.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Google Chrome 65.0.3325.181 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764821.jpg" />
+  <img src="Z:/picture/008/save_picture_764821.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Araxis Merge 2018.4988 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764819.jpg" />
+  <img src="Z:/picture/008/save_picture_764819.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AusLogics BoostSpeed 10.0.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764813.jpg" />
+  <img src="Z:/picture/008/save_picture_764813.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764784.jpg" />
+  <img src="Z:/picture/008/save_picture_764784.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CCleaner 5.41.6446 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764780.jpg" />
+  <img src="Z:/picture/008/save_picture_764780.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764767.jpg" />
+  <img src="Z:/picture/008/save_picture_764767.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764739.jpg" />
+  <img src="Z:/picture/008/save_picture_764739.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - High Contrast Nu Breed Label Collection (2008 - 2010) [MP3|320 kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764734.jpg" />
+  <img src="Z:/picture/008/save_picture_764734.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764706.jpg" />
+  <img src="Z:/picture/008/save_picture_764706.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764705.jpg" />
+  <img src="Z:/picture/008/save_picture_764705.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764704.jpg" />
+  <img src="Z:/picture/008/save_picture_764704.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764703.jpg" />
+  <img src="Z:/picture/008/save_picture_764703.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764702.jpg" />
+  <img src="Z:/picture/008/save_picture_764702.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764701.jpg" />
+  <img src="Z:/picture/008/save_picture_764701.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764691.jpg" />
+  <img src="Z:/picture/008/save_picture_764691.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Numen: Contest of Heroes / Numen: Время героев [Ru] (Repack) 2010 | -
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764679.jpg" />
+  <img src="Z:/picture/008/save_picture_764679.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764663.jpg" />
+  <img src="Z:/picture/008/save_picture_764663.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764662.jpg" />
+  <img src="Z:/picture/008/save_picture_764662.jpg" />
 </div>
 
 

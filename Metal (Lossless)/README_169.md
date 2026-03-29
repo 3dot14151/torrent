@@ -1,3 +1,90 @@
+###  Публикация: 1414369   (385626) от 08.10.2020
+
+Constancia - Finаl Сurtаin (2015) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Progressive Heavy Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Tread On My Heart
+02. Spectres
+03. Way To Life
+04. Live A Lie(   Читать дальше...   )Жанр: Progressive Heavy Metal, Progressive RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EA63AB4E0D4C22F288619996F3AD8042BF04C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414356   (385624) от 08.10.2020
+
+Touche Amore - Lament (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Heroine (2:50)
+02. Lament (3:20)
+03. Feign (2:48)
+04. Reminders (3:03)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198A270A3A63482E0B6A83C1BDAA8CB9FA0FA226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574348   (385606) от 05.09.2022
+
+Dark Millennium - Midnight in the Void (2016) [FLAC|Lossless|image + .cue] <Progressive Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strigoi Moon - Slave to the Void (05:28)
+02. Insanity Suck System (04:05)
+03. Dressed for Suicide (03:38)
+04. Something to Die for (04:12)(   Читать дальше...   )Жанр: Progressive Death, Doom MetalПродолжительность: 01:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C75242D4C41CF8C3981CEBFE24F4FA66D92C5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414531   (385507) от 08.10.2020
 
 Five Finger Death Punch - A Decade Of Destruction Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove Metal>
@@ -6,7 +93,7 @@ Five Finger Death Punch - A Decade Of Destruction Vol. 2 (2020) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385507.jpg" />
+  <img src="Z:/picture/008/save_picture_385507.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Behemoth - I Loved You at Your Darkest (2018) Limited Edition [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385440.jpg" />
+  <img src="Z:/picture/008/save_picture_385440.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Woslom - A Near Life Experience (2016) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385232.jpg" />
+  <img src="Z:/picture/008/save_picture_385232.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Livores Mortis - Vivere Militare Est (1998) [FLAC|Lossless|image + .cue] <Atmosp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385208.jpg" />
+  <img src="Z:/picture/008/save_picture_385208.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Once Human - The Life I Remember (2015) [FLAC|Lossless|image + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384915.jpg" />
+  <img src="Z:/picture/008/save_picture_384915.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Amaranthe - Maximalism (2016) Japanese Edition [FLAC|Lossless|image+.cue]<Modern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384359.jpg" />
+  <img src="Z:/picture/008/save_picture_384359.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Recrucide - Terahate (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383922.jpg" />
+  <img src="Z:/picture/008/save_picture_383922.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Born Divided - Impending Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <MDM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383920.jpg" />
+  <img src="Z:/picture/008/save_picture_383920.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Casus Belli - Ad Calendas Graecas (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383916.jpg" />
+  <img src="Z:/picture/008/save_picture_383916.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ SkiZma - Unfairytales (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383913.jpg" />
+  <img src="Z:/picture/008/save_picture_383913.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Gallia - 3 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Fe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383851.jpg" />
+  <img src="Z:/picture/008/save_picture_383851.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Ozzy Osbourne - 3 Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383750.jpg" />
+  <img src="Z:/picture/008/save_picture_383750.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Warlung - Optical Delusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383723.jpg" />
+  <img src="Z:/picture/008/save_picture_383723.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Sinner's Blood - The Mirror Star (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383631.jpg" />
+  <img src="Z:/picture/008/save_picture_383631.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Ascension of the Watchers - Apocrypha (2020) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383627.jpg" />
+  <img src="Z:/picture/008/save_picture_383627.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Dynazty - Firesign (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383566.jpg" />
+  <img src="Z:/picture/008/save_picture_383566.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Venom Prison - Primeval (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383530.jpg" />
+  <img src="Z:/picture/008/save_picture_383530.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ The Unguided - Father Shadow (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383511.jpg" />
+  <img src="Z:/picture/008/save_picture_383511.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Eden's Curse - Eden's Curse: Revisited (2017) [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383421.jpg" />
+  <img src="Z:/picture/008/save_picture_383421.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ SKALD - Vikings Memories (2020) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383168.jpg" />
+  <img src="Z:/picture/008/save_picture_383168.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ WUUTHRAD - Prophecies of the Elder Scrolls (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381663.jpg" />
+  <img src="Z:/picture/008/save_picture_381663.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Born In Black - Moving out the Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381658.jpg" />
+  <img src="Z:/picture/008/save_picture_381658.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Soilwork - Övergivenheten (Overgivenheten) (2022) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381646.jpg" />
+  <img src="Z:/picture/008/save_picture_381646.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Soilwork - Övergivenheten (Overgivenheten) (2022) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91CEF901000A03A1ADEB867B8BB768BCEBDC11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414918   (381601) от 10.10.2020
-
-Rise to the Sky - Will Not Keep Us Apart (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Distance [00:05:25]
-02. Pain and Blood [00:04:04]
-03. Together in the Grave [00:05:47]
-04. When Death Comes [00:06:47](   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BCF9011337580C9F429C616359185EEF5146EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574880   (381542) от 07.09.2022
-
-Burning Point - The Blaze (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Them All
-02. Time Has Come
-03. Incarnation
-04. My Spirit(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9D408BACE196B3AEFA322BA24F94B2361B4266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414756   (381455) от 10.10.2020
-
-Saltatio Mortis - Für immer frei (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ein Traum von Freiheit [00:01:30]
-02. Bring mich zurück [00:03:37]
-03. Loki [00:03:56]
-04. Linien im Sand [00:03:21](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B1883B864CAA0A77847A27382488A9F7B18046
 ```
 
 https://mybot314.ru/tekegram_catalog/

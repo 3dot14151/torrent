@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836606.jpg" />
+  <img src="Z:/picture/008/save_picture_836606.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836605.jpg" />
+  <img src="Z:/picture/008/save_picture_836605.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836604.jpg" />
+  <img src="Z:/picture/008/save_picture_836604.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Deliveries 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836602.jpg" />
+  <img src="Z:/picture/008/save_picture_836602.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836598.jpg" />
+  <img src="Z:/picture/008/save_picture_836598.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ ScrollNavigator 5.5.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836597.jpg" />
+  <img src="Z:/picture/008/save_picture_836597.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_836579.jpg" />
+  <img src="Z:/picture/009/save_picture_836579.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Alesso - Tomorrowland Friendship Mix (2021-10-07) [MP3|320 Kbps] <House, Tech Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836573.jpg" />
+  <img src="Z:/picture/008/save_picture_836573.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ WinToUSB Enterprise 2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836555.jpg" />
+  <img src="Z:/picture/008/save_picture_836555.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ LibreOffice 5.1.2 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836537.jpg" />
+  <img src="Z:/picture/008/save_picture_836537.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Camera iOS 1.0.10000 (Paid) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836536.jpg" />
+  <img src="Z:/picture/008/save_picture_836536.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ IsMyHdOK 1.24 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836535.jpg" />
+  <img src="Z:/picture/008/save_picture_836535.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Simple WebMonitor 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836533.jpg" />
+  <img src="Z:/picture/008/save_picture_836533.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ PatterNodes 2 v2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836532.jpg" />
+  <img src="Z:/picture/008/save_picture_836532.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ goPanel 2 v2.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836531.jpg" />
+  <img src="Z:/picture/008/save_picture_836531.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Usher 2.0 Beta 4530  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836530.jpg" />
+  <img src="Z:/picture/008/save_picture_836530.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ aText 2.36 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836528.jpg" />
+  <img src="Z:/picture/008/save_picture_836528.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.10.0.1788 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836527.jpg" />
+  <img src="Z:/picture/008/save_picture_836527.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Soulver 3 v3.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836526.jpg" />
+  <img src="Z:/picture/008/save_picture_836526.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.3 b1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836524.jpg" />
+  <img src="Z:/picture/008/save_picture_836524.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dropshare 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836522.jpg" />
+  <img src="Z:/picture/008/save_picture_836522.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Money Pro - Personal Finance 2.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836520.jpg" />
+  <img src="Z:/picture/008/save_picture_836520.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Koan - Serenity: Side A. (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtemp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836472.jpg" />
+  <img src="Z:/picture/008/save_picture_836472.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Alternate File Shredder 2.080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836471.jpg" />
+  <img src="Z:/picture/008/save_picture_836471.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836469.jpg" />
+  <img src="Z:/picture/008/save_picture_836469.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Artweaver Free 6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836463.jpg" />
+  <img src="Z:/picture/008/save_picture_836463.jpg" />
 </div>
 
 

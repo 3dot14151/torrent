@@ -1,3 +1,29 @@
+###  Публикация: 667077   (729096) от 11.06.2013
+
+Проекты - VideoHive - The Lost Genotype - 4697489 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный шаблон в футуристическом стиле с абстрактными элементами 3D модели ДНК. Это лучший способ для продвижения ваших фильмов, игр и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFE7F7D4DF1DED4E59E52A536D69B1848FF30D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023093   (725537) от 04.06.2016
 
 Проекты - VideoHive - Special Trailer - 13542494 [AEP]
@@ -6,7 +32,7 @@
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725537.jpg" />
+  <img src="Z:/picture/008/save_picture_725537.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724182.jpg" />
+  <img src="Z:/picture/008/save_picture_724182.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722428.jpg" />
+  <img src="Z:/picture/008/save_picture_722428.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722426.jpg" />
+  <img src="Z:/picture/008/save_picture_722426.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713072.jpg" />
+  <img src="Z:/picture/008/save_picture_713072.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710206.jpg" />
+  <img src="Z:/picture/008/save_picture_710206.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707505.jpg" />
+  <img src="Z:/picture/008/save_picture_707505.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703557.jpg" />
+  <img src="Z:/picture/008/save_picture_703557.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701602.jpg" />
+  <img src="Z:/picture/008/save_picture_701602.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ VideoHive – Grunge Epic Promo - 4608279 [AEP]
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701516.jpg" />
+  <img src="Z:/picture/008/save_picture_701516.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699728.jpg" />
+  <img src="Z:/picture/008/save_picture_699728.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698266.jpg" />
+  <img src="Z:/picture/008/save_picture_698266.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693902.jpg" />
+  <img src="Z:/picture/008/save_picture_693902.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693894.jpg" />
+  <img src="Z:/picture/008/save_picture_693894.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693892.jpg" />
+  <img src="Z:/picture/008/save_picture_693892.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688779.jpg" />
+  <img src="Z:/picture/008/save_picture_688779.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686620.jpg" />
+  <img src="Z:/picture/008/save_picture_686620.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685655.jpg" />
+  <img src="Z:/picture/008/save_picture_685655.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682272.jpg" />
+  <img src="Z:/picture/008/save_picture_682272.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681766.jpg" />
+  <img src="Z:/picture/008/save_picture_681766.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668422.jpg" />
+  <img src="Z:/picture/008/save_picture_668422.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639372.jpg" />
+  <img src="Z:/picture/008/save_picture_639372.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616796.jpg" />
+  <img src="Z:/picture/008/save_picture_616796.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611521.jpg" />
+  <img src="Z:/picture/008/save_picture_611521.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606536.jpg" />
+  <img src="Z:/picture/008/save_picture_606536.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Legendary Epic Fantasy Intro - это кинематографический п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE55CC244DDE66B7549CBCE003D9B4B76F85D0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232172   (602702) от 22.06.2018
-
-Проекты - VideoHive - Fantasy Epic Battle Intro - 21950550 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fantasy Epic Battle Intro - это кинематографический, выполненный в средневековом стиле шаблон, который вы можете использовать для презентации своих фотографий, видеороликов, трейлеров к фильмам, или в качестве интро для своего канала YouTube.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D012655942500248062CD924649F53C3BAA6D1AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

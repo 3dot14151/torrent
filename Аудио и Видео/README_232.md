@@ -6,7 +6,7 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 1 (2022) [AAC|~322 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243707.jpg" />
+  <img src="Z:/picture/004/save_picture_243707.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 5 (2019) [AAC|~331 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243700.jpg" />
+  <img src="Z:/picture/004/save_picture_243700.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Late Night Chillout Music (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243692.jpg" />
+  <img src="Z:/picture/004/save_picture_243692.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Ibiza Lounge Music 2022 (2022) [AAC|~291 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243684.jpg" />
+  <img src="Z:/picture/004/save_picture_243684.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - You and Me - Special Lounge (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243662.jpg" />
+  <img src="Z:/picture/004/save_picture_243662.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Lounge & Beauty, Vol. 3 (2022) [AAC|~330 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243589.jpg" />
+  <img src="Z:/picture/004/save_picture_243589.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Chilling Collection (2022) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243494.jpg" />
+  <img src="Z:/picture/004/save_picture_243494.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best of Maretimo Lounge Radio, Vol. 1 (2020) [AAC|~334 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243446.jpg" />
+  <img src="Z:/picture/004/save_picture_243446.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Vintage Landscape Chill Out, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243401.jpg" />
+  <img src="Z:/picture/004/save_picture_243401.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Chilling Atmosphere (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243077.jpg" />
+  <img src="Z:/picture/004/save_picture_243077.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Vibes Of Lounge Remixes 2019 Session (2019) [AAC|~322 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243060.jpg" />
+  <img src="Z:/picture/005/save_picture_243060.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Immersive Landscapes (2022) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243053.jpg" />
+  <img src="Z:/picture/005/save_picture_243053.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Vibes Of Lounge Remixes 2020 Session (2020) [AAC|~332 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243048.jpg" />
+  <img src="Z:/picture/005/save_picture_243048.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Calm Down and Chill, Vol. 2 (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243041.jpg" />
+  <img src="Z:/picture/005/save_picture_243041.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - 100% Hotel Deluxe Music, 2017 (2017) [AAC|~325 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243011.jpg" />
+  <img src="Z:/picture/005/save_picture_243011.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Chillout Lounge 2022 (2022) [AAC|~344 Kbps] <Chill Out, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242994.jpg" />
+  <img src="Z:/picture/005/save_picture_242994.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bryan Adams - Classic (2022) [AAC|~324 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242743.jpg" />
+  <img src="Z:/picture/004/save_picture_242743.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Chillout, Love & Sex (Long Playing Edition) (2017) [AAC|~308 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242634.jpg" />
+  <img src="Z:/picture/005/save_picture_242634.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - White Sands (Chill-Out & Electronic Collection), Vol. 4 (2022) [AAC|~323 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242422.jpg" />
+  <img src="Z:/picture/005/save_picture_242422.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Friends List Vol. 1 (2018) [AAC|~309 Kbps] <Deep House, Tech House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242374.jpg" />
+  <img src="Z:/picture/004/save_picture_242374.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Hotel Skt. Petri - Boxed Pleasures, Vol. 2 (2014) [AAC|~320 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242089.jpg" />
+  <img src="Z:/picture/004/save_picture_242089.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Sunday Afternoon, Vol. 3 (20 Lovely Lounge Cookies) (2017) [AAC|~332 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242055.jpg" />
+  <img src="Z:/picture/004/save_picture_242055.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241347.jpg" />
+  <img src="Z:/picture/004/save_picture_241347.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Uncertain Chillout Nights (2016) [AAC|~303 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241210.jpg" />
+  <img src="Z:/picture/004/save_picture_241210.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Cigar Lounge Beats, Vol. 1 (2016) [AAC|~304 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241176.jpg" />
+  <img src="Z:/picture/004/save_picture_241176.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - We Chill del Mar, Vol. 6 (2017) [AAC|~329 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241155.jpg" />
+  <img src="Z:/picture/004/save_picture_241155.jpg" />
 </div>
 
 

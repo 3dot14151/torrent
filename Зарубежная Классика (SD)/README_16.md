@@ -1,3 +1,81 @@
+###  Публикация: 1088000   (942732) от 09.01.2017
+
+Украли Джоконду / Il ladro della Gioconda (1965) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж, 1911 год. Известный и неуловимый вор «Ромео», однажды утром увидев в окне прекрасную незнакомку, похожую на творение Леонардо да Винчи, решает похитить из Лувра «Джоконду», в знак доказательства своей внезапно пришедшей любви. Глупая и бездарная полиция идет по пятам злодея…Производство: Франция, Италия / Les Films Marceau, Liber FilmЖанр: КомедияРежиссер: Мишель ДевильАктеры: Джордж Чакирис, Марина Влади, Маргарет Ли, Поль Франкёр, Жан Лефевр, Анри Вирложё, Альберто Бонуччи, Джесс Хан, Мино ДороПеревод: Авторский (Р. Янкелевич)Субтитры: ОтсутствуютПродолжительность: 01:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511A0F4B7BF2FB2DB6D08BD49481D201918E76B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859749   (942704) от 15.01.2015
+
+Полицейская академия 6: Город в осаде / Police Academy 6: City Under Siege (1989) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вспышка криминальной активности под кодовым названием «Операция Хаос» может потребовать занавеса для ничего не подозревающего города. Лучшие полицейские специалисты из знаменитой Полицейской Академии взялись за дело.Производство: США | Warner Bros. PicturesЖанр: Комедия, КриминалРежиссер: Питер БонерзАктеры: Бубба Смит, Дэвид Граф, Майкл Уинслоу, Лесли Истербрук, Мэрион Рэмси, Лэнс Кинси, Мэтт МакКой, Брюс Малер, Дж. У. Бейли, Джордж Гейнс, Кеннет Марс, Геррит Грэм, Джордж Р. РобертсонПеревод: Профессиональный дублированный, профессиональный двухголосый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8122F238B6D49C2108820771ABCE4189C8660850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859766   (942636) от 15.01.2015
+
+Полицейская академия 5: Место назначения - Майами Бич / Police Academy 5: Assignment: Miami Beach (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнце, веселье и красивые девушки. Где всему этому быть, как не в Майами Бич? На этом пятом празднике смеха наши герои летят в Майами на чествование любимого коменданта Лассарда. Но у преступников не бывает отпусков, когда отдыхают наши любимые полицейские. Лассард похищен. И даже соблазнительные пляжные вечеринки не смогут отвлечь наших неистовых бойцов от отчаянной (   Читать дальше...   )Производство: США | Warner Bros. PicturesЖанр: Комедия, КриминалРежиссер: Алан МайерсонАктеры: Бубба Смит, Дэвид Граф, Майкл Уинслоу, Лесли Истербрук, Мэрион Рэмси, Джанет Джонс, Лэнс Кинси, Мэтт МакКой, Дж. У. Бейли, Джордж Гейнс, Рене Обержонуа, Джордж Р. РобертсонПеревод: Профессиональный дублированный, профессиональный двухголосый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E6F0D891C19DF3F84E805FE4631CE34AA0958A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 859731   (942629) от 15.01.2015
 
 Полицейская академия 7: Миссия в Москве / Police Academy: Mission to Moscow (1994) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942629.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942619.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942544.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941984.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941783.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941302.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941094.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940982.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940878.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940083.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939786.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939781.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939491.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938741.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938723.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938551.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936980.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936276.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935834.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935331.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932039.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931792.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931636.jpg" />
 </div>
 
 
@@ -594,85 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E88E2948B2AAEAD3513023FBAF7A43B5F53769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979445   (930715) от 14.02.2016
-
-Дымовой сигнал / Smoke Signal (1955) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Харпер приезжает в форт, осажденный индейцами народа Юты. Очевидной причиной осады является желание ютов освободить армейского дезертира капитана Бретта Холлидея, который перешел на их сторону, и был арестован комендантом форта. Но Бретт рассказывает о себе совершенно другую историю. У небольшой группы выживших остается единственный шанс на спасение — отправиться (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: Боевик, Драма, ВестернРежиссер: Джерри ХопперАктеры: Дэна Эндрюс, Пайпер Лори, Рекс Ризон, Уильям Тэлман, Милберн Стоун, Дуглас Спенсер, Гордон Джонс, Уильям Шэллерт, Роберт Дж. Уилки, Уильям ФиппсПеревод: Одноголосый закадровый (NezPerce)Субтитры: ОтсутствуютПродолжительность: 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B7C48873CBE3B3A09B52478E7EF8966DDB73CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088376   (930474) от 17.01.2017
-
-Столкновение в Сандауне / Decision at Sundown (1957) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три года Барт Эллисон искал Тейта Кимброу, считая его виновным в смерти жены, с целью его убийства. Находит его с помощью друга Сэма в Сандауне в день свадьбы Тейта. Сделав ему предупреждение, что на него открыта охота, Барт вместе с Сэмом скрываются в местной конюшне. С этого момента начинается противостояние Тейта с одной стороны, и Барта, на чью сторону постепенно (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Scott-Brown ProductionsЖанр: Драма, ВестернРежиссер: Бадд БоттичерАктеры: Рэндольф Скотт, Джон Кэрролл, Карен Стил, Валери Френч, Ной Бири мл., Джон Арчер, Эндрю Дагган, Джеймс Уэстерфилд, Джон Лител, Рэй ТилПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Русский, английскийПродолжительность: 01:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C53CD2CF71A95C8322FC99710C6E6107ABEEB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362743   (930017) от 07.03.2020
-
-Шалако / Shalako (1968) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в XIX в. В Нью-Мехико. Некие аристократы из Европы, решили поохотиться на территории дикого и воинственного племени апачей. Шалако наталкивается на лагерь охотников, когда спасает прекрасную женщину, находящуюся на грани гибели…
-Краснокожие устремляются на бледнолицых, расположившихся в полуразрушенной крепости. Шалако имеет богатейший (   Читать дальше...   )Производство: Великобритания, Германия (ФРГ), США / CCC Filmkunst GmbH, Kingston Film Productions Ltd., Palomar Pictures InternationalЖанр: ВестернРежиссер: Эдвард ДмитрикАктеры: Шон Коннери, Брижит Бардо, Стивен Бойд, Джек Хоукинс, Петер ван Эйк, Онор Блэкман, Вуди Строуд, Эрик Сайкс, Александр Нокс, Валери ФренчПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BEE52890157065165F9FA49844270CA2967AC64
 ```
 
 https://mybot314.ru/tekegram_catalog/

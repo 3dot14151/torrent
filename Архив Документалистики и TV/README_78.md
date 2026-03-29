@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801874.jpg" />
+  <img src="Z:/picture/008/save_picture_801874.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801853.jpg" />
+  <img src="Z:/picture/008/save_picture_801853.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801852.jpg" />
+  <img src="Z:/picture/008/save_picture_801852.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801851.jpg" />
+  <img src="Z:/picture/008/save_picture_801851.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801850.jpg" />
+  <img src="Z:/picture/008/save_picture_801850.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801273.jpg" />
+  <img src="Z:/picture/008/save_picture_801273.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801269.jpg" />
+  <img src="Z:/picture/008/save_picture_801269.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801240.jpg" />
+  <img src="Z:/picture/008/save_picture_801240.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801149.jpg" />
+  <img src="Z:/picture/008/save_picture_801149.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801098.jpg" />
+  <img src="Z:/picture/008/save_picture_801098.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800714.jpg" />
+  <img src="Z:/picture/008/save_picture_800714.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800639.jpg" />
+  <img src="Z:/picture/008/save_picture_800639.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800634.jpg" />
+  <img src="Z:/picture/008/save_picture_800634.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800632.jpg" />
+  <img src="Z:/picture/008/save_picture_800632.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800631.jpg" />
+  <img src="Z:/picture/008/save_picture_800631.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800614.jpg" />
+  <img src="Z:/picture/008/save_picture_800614.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800582.jpg" />
+  <img src="Z:/picture/008/save_picture_800582.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800458.jpg" />
+  <img src="Z:/picture/008/save_picture_800458.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Cкелетон. Кубок мира 2017-2018. 6-й Этап. Альтенбе�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800457.jpg" />
+  <img src="Z:/picture/008/save_picture_800457.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Cкелетон. Кубок мира 2017-2018. 6-й Этап. Альтенбе�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800456.jpg" />
+  <img src="Z:/picture/008/save_picture_800456.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Cкелетон. Кубок мира 2017-2018. 6-й Этап. Альтенбе�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800455.jpg" />
+  <img src="Z:/picture/008/save_picture_800455.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800454.jpg" />
+  <img src="Z:/picture/008/save_picture_800454.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800453.jpg" />
+  <img src="Z:/picture/008/save_picture_800453.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800452.jpg" />
+  <img src="Z:/picture/008/save_picture_800452.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799835.jpg" />
+  <img src="Z:/picture/008/save_picture_799835.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799828.jpg" />
+  <img src="Z:/picture/008/save_picture_799828.jpg" />
 </div>
 
 

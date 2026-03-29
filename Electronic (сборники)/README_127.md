@@ -1,3 +1,61 @@
+###  Публикация: 927886   (524063) от 14.08.2015
+
+VA - Sexy Pre Party Chill House Set (2015) [MP3|320 кб/с]<Electronic, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riverbend's Song - Miraflores
+02. 2 Steps to the Sun - Cane Garden Quartet
+03. Our Time - Soul Emphasis
+04. Can I Be - Proxy Brides(   Читать дальше...   )Жанр: Electronic, Chill HouseПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17719A2765CC0437D79B36F86C8E0EAB9452599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927857   (523934) от 14.08.2015
+
+VA - Sexy Party Ibiza - Best Deep House Beats Playlist (2015) [MP3|320 кб/с]<House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex & Chris - Deep Dream (06:21)
+ 02. Alex & Chris - Rosemary (08:12)
+ 03. Alex & Chris - Paradise (07:03)
+ 04. Stefan Schnabel - Fashion Repo (01:35)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CF628CBF529E19CE2C0FC9D2ED3F2883E01F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313456   (523754) от 09.07.2019
 
 VA - NME Techno Extra Mixes (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
@@ -6,7 +64,7 @@ VA - NME Techno Extra Mixes (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523754.jpg" />
+  <img src="Z:/picture/008/save_picture_523754.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Endless Drive: Progressive Nation (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523747.jpg" />
+  <img src="Z:/picture/008/save_picture_523747.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Club Dance Ambience Vol.159 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523395.jpg" />
+  <img src="Z:/picture/008/save_picture_523395.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Record Super Chart 25.06.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523363.jpg" />
+  <img src="Z:/picture/008/save_picture_523363.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Sexy Music (2015) [MP3|320 кб/с]<Chillout, lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523289.jpg" />
+  <img src="Z:/picture/008/save_picture_523289.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Glamour House Ibiza (2015) [MP3|320 кб/с]<House, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522549.jpg" />
+  <img src="Z:/picture/008/save_picture_522549.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Best Of Sexy Music (2015) [MP3|320 кб/с]<Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522531.jpg" />
+  <img src="Z:/picture/008/save_picture_522531.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Multimix Electro Sound (2019) [MP3|320 Kbps] <House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522316.jpg" />
+  <img src="Z:/picture/008/save_picture_522316.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Amazing Vocal Sound - Endless Summer 10 (2018) [MP3|320 Kbps] <House, Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522192.jpg" />
+  <img src="Z:/picture/008/save_picture_522192.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Car Music Mix (2022) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521817.jpg" />
+  <img src="Z:/picture/008/save_picture_521817.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Romantic Nights - Sex Lounge Tracks for Erotic Moments Sensual Massage (201
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521764.jpg" />
+  <img src="Z:/picture/008/save_picture_521764.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Sexy Trance #44 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521595.jpg" />
+  <img src="Z:/picture/008/save_picture_521595.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Urban Odyssey (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521423.jpg" />
+  <img src="Z:/picture/008/save_picture_521423.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - Synth Psychedelic (2019) [MP3|320 Kbps] <Electronic, Psychedelic, Psy Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521334.jpg" />
+  <img src="Z:/picture/008/save_picture_521334.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ VA - Beyond Magination: Future Trance Music (2019) [MP3|320 Kbps] <Trance, Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521321.jpg" />
+  <img src="Z:/picture/008/save_picture_521321.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - Analogue Dream (2018) [MP3|320 Kbps] <Psy, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521267.jpg" />
+  <img src="Z:/picture/008/save_picture_521267.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Летняя сессия 2018 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521149.jpg" />
+  <img src="Z:/picture/008/save_picture_521149.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - meet the FABRICLIVE (2015) [MP3|320 кб/с]<Electronic, Techno, Disco-Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520620.jpg" />
+  <img src="Z:/picture/008/save_picture_520620.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Uplifting Trance Collection Vol.2 (2018) [MP3|320 Kbps] <Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520136.jpg" />
+  <img src="Z:/picture/008/save_picture_520136.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Sensual Lounge Chillout Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519609.jpg" />
+  <img src="Z:/picture/008/save_picture_519609.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Trance In Motion Vol.123 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519057.jpg" />
+  <img src="Z:/picture/008/save_picture_519057.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ VA - Best Intim Music (2015) [MP3|320 кб/с]<Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518496.jpg" />
+  <img src="Z:/picture/008/save_picture_518496.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ VA - Trance Desire Volume 53 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518495.jpg" />
+  <img src="Z:/picture/008/save_picture_518495.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ Armin van Buuren - Armin Only: Episode 2015(Mix and Compiled by Dj Snow (DV)) (2
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518490.jpg" />
+  <img src="Z:/picture/008/save_picture_518490.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ Armin van Buuren - Armin Only: Episode 2015(Mix and Compiled by Dj Snow (DV)) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFAFE88E429D8178ACB2C2CF87A0BECA680B0F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929817   (518481) от 20.08.2015
-
-VA - Electro Life 38 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer - What A Feeling (Cassey Doreen Remix)
-02. Basto - Hold You (Extended Mix)
-03. Calvin Harris ft. Ellie Goulding - Outside (Original Mix)
-04. Celine Dion - My Heart Will Go On (Night Rain Project Remix)(   Читать дальше...   )Жанр: Electro House, Dubstep, HouseПродолжительность: 01:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9672C2EAAA59027CDC229BC073066635F6053FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929469   (518458) от 20.08.2015
-
-VA - Best of Intim Music (2015) [MP3|320 кб/с]<Chillout, lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Dee Gladenko - Vip (Original Mix)
- 02. Gushi & Raffunk - So Fine
- 03. Logophilia - Pod of Dolphins
- 04. Key Of Dreams - Be a Star(   Читать дальше...   )Жанр: Chillout, loungeПродолжительность: 08:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B476A72DEE0BD3D2DC91D9DCD3698D12EE873175
 ```
 
 https://mybot314.ru/tekegram_catalog/

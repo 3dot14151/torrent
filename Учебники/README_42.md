@@ -1,3 +1,55 @@
+###  Публикация: 1541367   (646528) от 02.04.2022
+
+А.В. Лупачев, В.Г. Лупачев | Источники питания и оборудование сварки плавлением (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646528.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии даны сведения о свойствах сварочной дуги и приведены технологические требования, предъявляемые к источникам питания. Рассмотрены конструктивные особенности и принципы действия источников питания для ручной дуговой сварки, механизированной и автоматической сварки и наплавки в защитных газах и под флюсом, электрошлаковой и плазменной сварки. Описаны (   Читать дальше...   )Жанр: СваркаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB131207545D819DFE79D558AAC4C100C5B34ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141907   (646518) от 12.06.2017
+
+А.Ю. Гребешков | Вычислительная техника, сети и телекоммуникации (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Систематизированы сведения в области организации и построения современной вычислительной техники, сетей и телекоммуникаций. Рассмотрены физические основы средств вычислительной техники и передачи информации, принципы работы устройств инфокоммуникационных технологий, сетевые протоколы SIP, Н.323, TCP/IP, архитектура сетей связи следующего поколения, архитектура современных (   Читать дальше...   )Жанр: Информационные системыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2240019FABF6AE74EE7DF4FCE84846BCCD49DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141923   (646508) от 12.06.2017
 
 Г.Н. Жмаков | Эксплуатация оборудования и систем водоснабжения и водоотведения (2007) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646508.jpg" />
+  <img src="Z:/picture/008/save_picture_646508.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646506.jpg" />
+  <img src="Z:/picture/008/save_picture_646506.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646502.jpg" />
+  <img src="Z:/picture/008/save_picture_646502.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646202.jpg" />
+  <img src="Z:/picture/008/save_picture_646202.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646198.jpg" />
+  <img src="Z:/picture/008/save_picture_646198.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645688.jpg" />
+  <img src="Z:/picture/008/save_picture_645688.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645686.jpg" />
+  <img src="Z:/picture/008/save_picture_645686.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644721.jpg" />
+  <img src="Z:/picture/008/save_picture_644721.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643232.jpg" />
+  <img src="Z:/picture/008/save_picture_643232.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642963.jpg" />
+  <img src="Z:/picture/008/save_picture_642963.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642920.jpg" />
+  <img src="Z:/picture/008/save_picture_642920.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642832.jpg" />
+  <img src="Z:/picture/008/save_picture_642832.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642825.jpg" />
+  <img src="Z:/picture/008/save_picture_642825.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642824.jpg" />
+  <img src="Z:/picture/008/save_picture_642824.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642822.jpg" />
+  <img src="Z:/picture/008/save_picture_642822.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642716.jpg" />
+  <img src="Z:/picture/008/save_picture_642716.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642714.jpg" />
+  <img src="Z:/picture/008/save_picture_642714.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642604.jpg" />
+  <img src="Z:/picture/008/save_picture_642604.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642581.jpg" />
+  <img src="Z:/picture/008/save_picture_642581.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641511.jpg" />
+  <img src="Z:/picture/008/save_picture_641511.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641049.jpg" />
+  <img src="Z:/picture/008/save_picture_641049.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640800.jpg" />
+  <img src="Z:/picture/008/save_picture_640800.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640662.jpg" />
+  <img src="Z:/picture/008/save_picture_640662.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640603.jpg" />
+  <img src="Z:/picture/008/save_picture_640603.jpg" />
 </div>
 
 
@@ -629,62 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06FFEF0FBD4018F3E6DD5D587299E5CE81AF01BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907099   (639730) от 11.06.2015
-
-Гопал Дюбей | Основные принципы устройства электроприводов (2009) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые опубликованный в 1994 году (и с тех пор переизданный девять раз), этот учебник используется во всем мире как студентами, так и практикующими инженерами. Настоящее издание предлагает более детальное описание полупроводниковых приводов, дополнено многочисленными примерами решенных и нерешенных задач.
-
-Книга предназначена для студентов и аспирантов, изучающих (   Читать дальше...   )Жанр: Учебники, ЭлектротехникаПеревод: С. В. Аникин, Е. С. СерыйФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174D7E20EB1D362B54B8FB92BF925E1C0944594B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907209   (639648) от 11.06.2015
-
-Павел Мясоедов, И. Простяков | Как самому сделать лыжи и лыжное снаряжение (1941) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошие лыжи можно сделать самому с помощью обычного столярного инструмента и весьма несложных приспособлений. Самое основное — это найти соответствующий материал, из которого можно изготовить лыжи, и уметь правильно обработать его.
-
-Для изготовления лыж требуются следующие инструменты: топор, лучковая пила или ножовка, рубанок с плоской железкой, рубанок с полукруглой (   Читать дальше...   )Жанр: Руководства, Сделай самФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B0D37F9962A946BB80EB6C593E1E392C55E9C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

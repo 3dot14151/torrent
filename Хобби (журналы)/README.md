@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1860816   (1062342) от 
+
+Журнал | Моделист-конструктор №5 (май 2025) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062342.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моделист-конструктор» — ежемесячный отечественный популярный научно-технический журнал. Издаётся с августа 1962 года. В каждом номере журнала публикуются чертежи и схемы самых разнообразных конструкций — от приспособлений для домашнего хозяйства до самодельных микроавтомобилей и любительских самолётов, а также материалы по истории техники и движению самодеятельных (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АО «Редакция журнала «Моделист-конструктор»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69525FD9FC6310D918A57ED56AC8F0FC3468C3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860810   (1062341) от 
+
+Журнал | Моделист-конструктор №4 (апрель 2025) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062341.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моделист-конструктор» — ежемесячный отечественный популярный научно-технический журнал. Издаётся с августа 1962 года. В каждом номере журнала публикуются чертежи и схемы самых разнообразных конструкций — от приспособлений для домашнего хозяйства до самодельных микроавтомобилей и любительских самолётов, а также материалы по истории техники и движению самодеятельных (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АО «Редакция журнала «Моделист-конструктор»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0612F70E23C574BA56D732541E2C73DD2F833B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860807   (1062340) от 
+
+Журнал | Моделист-конструктор №3 (март 2025) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062340.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моделист-конструктор» — ежемесячный отечественный популярный научно-технический журнал. Издаётся с августа 1962 года. В каждом номере журнала публикуются чертежи и схемы самых разнообразных конструкций — от приспособлений для домашнего хозяйства до самодельных микроавтомобилей и любительских самолётов, а также материалы по истории техники и движению самодеятельных (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АО «Редакция журнала «Моделист-конструктор»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC56A303ED624CDF2CA7A98CCAA5F78E7166D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859762   (1061445) от 
 
 Журнал | М-Хобби №2 (296) (февраль 2026) [PDF]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061445.jpg" />
+  <img src="Z:/picture/005/save_picture_1061445.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060209.jpg" />
+  <img src="Z:/picture/009/save_picture_1060209.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060204.jpg" />
+  <img src="Z:/picture/009/save_picture_1060204.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059364.jpg" />
+  <img src="Z:/picture/005/save_picture_1059364.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056313.jpg" />
+  <img src="Z:/picture/005/save_picture_1056313.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055814.jpg" />
+  <img src="Z:/picture/005/save_picture_1055814.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054880.jpg" />
+  <img src="Z:/picture/005/save_picture_1054880.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054158.jpg" />
+  <img src="Z:/picture/005/save_picture_1054158.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054157.jpg" />
+  <img src="Z:/picture/005/save_picture_1054157.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052881.jpg" />
+  <img src="Z:/picture/005/save_picture_1052881.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052675.jpg" />
+  <img src="Z:/picture/005/save_picture_1052675.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051141.jpg" />
+  <img src="Z:/picture/005/save_picture_1051141.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050510.jpg" />
+  <img src="Z:/picture/005/save_picture_1050510.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050375.jpg" />
+  <img src="Z:/picture/005/save_picture_1050375.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050374.jpg" />
+  <img src="Z:/picture/005/save_picture_1050374.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048355.jpg" />
+  <img src="Z:/picture/008/save_picture_1048355.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046338.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046321.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046317.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045906.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045474.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045469.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045188.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F4AC22FDFF04F12D166C8C9A528D58ED106D321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931232   (1045007) от 16.01.2023
-
-Подшивка журналов | WOOD-Мастер [46 номеров] (2008-2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wood Мастер (мастер по дереву) - журнал, ориентированный на людей, для которых работа по дереву стала любимым увлечением: профессиональных мебельщиков, дачников, домашних мастеров, желающих создать в доме уют и заполнить свой досуг увлекательнейшим хобби.Жанр: Столярное дело, Деревообработка, РемонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C38FD244EFA4101E47964437F870223AEFC8F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605306   (1044955) от 17.01.2023
-
-Журнал | American Woodturner №1 (2023) [PDF][En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал American Woodturner предназначен для любителей и профессионалов в области деревообработки и столярного дела. Предлагает обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты различной мебели, шкатулок, резьбы и прочих поделок в подробном формате шаг за шагом, с чертежами и схемами, практически не требующими глубокого (   Читать дальше...   )Жанр: ДеревообработкаЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DEF4C6DC0C410CD2EEFCECB5344FA0A4F2E99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605821   (1044742) от 19.01.2023
-
-Журнал | Woodcarving Illustrated №102 (2023) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрированный журнал рассказывает о резьбе по дереву, представляя это как приятное времяпрепровождение и признанную форму искусства. Каждый выпуск содержит подробные инструкции, обучающие программы, которые помогут читателю на каждом этапе в процессе резки, а также красивые художественные галереи различных работ. В журнале представлены фотографии, советы, приемы (   Читать дальше...   )Жанр: ДеревообработкаЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF1614E1593DD6EB1A5EC7A256B2C1DED4CACB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

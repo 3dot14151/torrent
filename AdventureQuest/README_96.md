@@ -1,3 +1,81 @@
+###  Публикация: 1772445   (31294) от 11.01.2025
+
+Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари затерянного королевства (2023) [Ru/Multi] (100.92521.230906) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Oceanhorn 2: Knights of the Lost Realm происходит за тысячу лет до событий первой части игры. Вам предстоит отправиться в волшебное путешествие по различным уголкам Гайи, наполненное древними поверьями и сказаниями. Возвращение колдуна Мезмерота с огромной армией Тьмы ставит перед юным рыцарем практически непосильную задачу. Сможет ли наш герой объединить (   Читать дальше...   )Тип издания: RepackРазработчик: Cornfox & Brothers Ltd.Жанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF8FE633DE36FC6537B9E6736E0690EEA997D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772480   (31285) от 11.01.2025
+
+HELLSEED: All Chapters (2022) [Ru/Multi] (Build 16646433) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31285.jpg" />
+</div>
+
+
+###  Подробнее
+
+HELLSEED - это хоррор игра-приключение от первого лица с головоломками и некоторыми элементами экшена. Италия 1980 год. Некоторые врачи психиатрической больницы в провинции Турин сообщают в полицию о пропаже своего коллеги. Вы - детектив, расследующий то, что произошло. Первое место, в котором вы начинаете исследование, - это дом доктора.Тип издания: RepackРазработчик: Profenix Studio SRLSЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Китайский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9A9CF309F9C1E411920F97D68C802F54A147EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772633   (31253) от 11.01.2025
+
+The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый вид детективной игры, которая позволяет вам свободно думать и расследовать. Встаньте на место детектива 18 века и раскройте тайну двенадцати странных смертей каким-то образом связанных между собой, найдите улики и постройте собственную теорию. Выберите подозреваемого, определите мотив, раскройте ужасную правду.Тип издания: RepackРазработчик: Color Gray GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE11B908F53F75F7697A619D64DC108A3CCF4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772793   (31214) от 12.01.2025
 
 Undead Realm: Ego (2025) [Multi] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ Undead Realm: Ego (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31214.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31212.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31205.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31192.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31184.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31174.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dropsy (2015) [Ru/Multi] (1.5) License GOG [Warm Damp Hug Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31163.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30994.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack FitGirl [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30907.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30897.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30766.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Among Ashes (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30746.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Decepticon [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30707.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30671.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Cursed Digicam (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30670.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ ECO HOLE (2021) [Ru/Multi] (1.06) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30637.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Haunting of Joni Evers (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30616.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30558.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30488.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Your Android (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30477.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30401.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30376.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30272.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E23AEE73EA6D92F37B06376572DEAE43D0DEE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774448   (30236) от 21.01.2025
-
-The Star Named EOS (2024) [Ru/Multi] (1.0.0.04) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30236.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Star Named EOS - не совсем обычная приключенческая игра. Здесь не нужно сражаться с драконами или пилотировать космические корабли. Вместо этого вы возьмете в руки фотоаппарат - казалось бы, обычный инструмент, превратившийся в ключ к разгадке семейной тайны. В этом повествовании вам предстоит сыграть роль человека, в прошлом которого не хватает частички. Вооружившись (   Читать дальше...   )Тип издания: RepackРазработчик: Silver Lining StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E3BAD08411AA6ECB2773CECABFF0FB75395B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774577   (30167) от 22.01.2025
-
-The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта игра ориентирована на исследование и тайны. Чтобы предоставить более значимый опыт истории, напряжение постепенно нарастает. История раскрывается через сюрреалистические образы и детали окружения, которые могут быть не сразу заметны. Учтите, что в игре используется нестандартная система сложности. Предупреждение: Эта игра может вызвать приступы у людей с фоточувствительной (   Читать дальше...   )Тип издания: RepackРазработчик: Anomalybyte StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F35EDE141EFC7B8D291AB8A1820FC87DAEE28F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775017   (29937) от 24.01.2025
-
-The Night of the Rabbit (2013) [Ru/Multi] (2.2.325) Repack Let'sРlay [Premium Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в Мышелесье, где последовавший за Белым кроликом Джерри Фундук обучится магии, познакомится с говорящими животными, а также узнает о заговоре, из-за которого обитатели лесной страны могут не только потерять сбережения, но и расстаться с жизнью! Окунитесь в мир приключений и магии. Из подмастерья Белого кролика Джерри превратится в героя целой страны, (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0CA8457A2285713BBABDD6BCBDEB2DFDBE11ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

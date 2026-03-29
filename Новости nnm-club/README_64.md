@@ -1,3 +1,109 @@
+###  Публикация: 195002   (833558) от 23.04.2010
+
+Как я провёл этим летом (2010) DVDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начальник полярной станции Сергей и молодой стажер Павел — одни на острове в Северном ледовитом океане. Подходит к концу их вахта. Впервые за много лет Сергей окажется на материке, где его дожидается семья. Окончится летняя практика Павла, а он не испытал и сотой доли тех приключений, на которые рассчитывал, отправляясь в Заполярье.
+
+Единственный канал общения с (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Алексей ПопогребскийАктеры: Григорий Добрыгин, Сергей ПускепалисПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194304   (833556) от 23.04.2010
+
+Return to Mysterious Island 2: Mina's Fate / Возвращение на таинственный остров 2 (2009) [Ru] (1.04) License
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: LicenseРазработчик: Kheops StudioЖанр: Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311309   (833246) от 20.03.2011
+
+[RePack] Total War: Shogun 2 [Ru] 2011 | R.G.R3PacK
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XVI столетия. Феодальная Япония, некогда находившаяся под властью императора, раздроблена и поделена между множеством враждующих кланов. В роли даймё — лидера одного из них — игроку предстоит воевать, решать разноплановые хозяйственные вопросы и вести тонкую дипломатическую игру, чтобы добиться главной цели: прекратить междоусобные распри и объединить страну под своим началом, став правителем всей Японии.Тип издания: RePackЖанр: Strategy (Real-time / Turn-based) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE855F6D590522DB741766AE117DB4A644123DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491874   (833064) от 11.10.2021
+
+Myst (2021) [Multi] (1.5.3) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на Мист – поразительно красивый остров, поросший зловещими тайнами и окутанный интригами. Отправляйтесь на остров Мист и в другие потрясающие, длительно бездействующие места, называемые "Эпохами", и начните разгадывать тайну, в которую Вас втянули. Постепенно узнавая, что же произошло на острове, Вы обнаружите, что играете ключевую роль (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Adventure, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB16E841B33FC359C28BBA0D8D9DDDE00189F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501848   (833062) от 11.10.2021
 
 Игра в кальмара / Шестой раунд / Ojingeo geim / Squid Game (2021) WEB-DLRip (сезон 1, серии 1-9 из 9) TVShows
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833062.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ XYZ School, Алексей Малороссиянов | Unity (2021) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833056.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Advanced SystemCare Pro 10.2.0.725 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832804.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832772.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832539.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ Advanced Systemcare Pro 9.2.0.1110 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832056.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ Sticky Password Premium 8.0.7.78 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832049.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831950.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831943.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831939.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831921.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831533.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830991.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ AnyMote Smart Remote + WiFi v4.3.9 [Multi] - управления через и�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830979.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830969.jpg" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830967.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ Adobe Photoshop 2020 v21.1.2.136 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830756.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack xatab [Director's C
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830751.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ SamDrivers 14.4 - Сборник драйверов для Windows(DriverPack So
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830407.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830374.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830371.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830280.jpg" />
 </div>
 
 
@@ -573,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005868   (830184) от 10.04.2016
-
-IP-TV Player 0.28.1.8845 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830184.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP-TV Player - это высококачественный проигрыватель для вещания эфирных каналов IP-телевидения. Индивидуальные настройки для каналов, возможность записи потока в файл. Поддерживаются телепрограммы в формате JTV, планировщик записи/просмотра, фоновая запись.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2132630BF32D3863CEFAA03C0E06E4EDAECF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005985   (830079) от 10.04.2016
-
-Карьер / The Carrier (2015) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Англия oхваченa смертельным неизлeчимым вирусoм. По мере того кaк инфекция продoлжает распрoстраняться, пoследним oплотом бeзoпаснoсти для немногих счастливчиков является поврежденный боинг 747...Производство: ВеликобританияЖанр: фантастика, боевик, триллер, драмаРежиссер: Энтони ВудлиАктеры: Джек Гордон, Джо Диксон, Эдмунд Кингсли, Жозефин Тэйлор, Карен Брайсон, Люси-Джейн Куинлэн, Джеймс Пэйтон, Ребекка Джонсон, Зора Бишоп, Люк ХилиПеревод: Любительский двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:30:19Реклама: Присутствуют вставки голосовой и текстовой рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE98C84C267CBB24D23E1133AAFD4655C8C4645D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 338625   (829981) от 10.04.2016
-
-Тот самый Мюнхгаузен (1979) DVDRip (Реставрация "КП")
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829981.jpg" />
-</div>
-
-
-###  Подробнее
-
-*Полная реставрация изображения и звука - "КП"*Жанр: Комическая фантазияРежиссер: Марк ЗахаровАктеры: Олег Янковский, Инна Чурикова, Елена Коренева, Игорь Кваша, Александр Абдулов, Леонид Ярмольник, Юрий Катин-Ярцев, Владимир Долинский,
-Леонид Броневой, Семен Фарада, Всеволод Ларионов, А. Амаслюрянц, Игорь Ясулович, Анатолий Скорякин.Перевод: ОригинальныйПродолжительность: 02:14:07 (двухсерийный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9594E4EF600BBCFEFF87D4953C2509497B896289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309851   (829627) от 22.03.2011
-
-Рапунцель: Запутанная история / Tangled (2010) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_829627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обаятельный разбойник Флинн путешествует по жизни с легкостью, лишь потому, что он красив, болтлив и удачлив. И казалось, фортуна всегда на его стороне, пока однажды он не выбирает высокую башню в густой чаще леса в качестве «спокойного» убежища. Флинн оказывается связанным по рукам и ногам юной красавицей по имени Рапунцель. Если вы думаете, что самое интересное в ней — это 21 метр волшебных золотистых волос, то вы заблуждаетесь! Запертая в башне и отчаянно ищущая приключений, Рапунцель решает использовать Флинна в качестве билета в большой мир. Сначала комичное похищение, затем невинный шантаж — и вот наши герои на воле. Вместе с главными героями в авантюрное путешествие отправятся бравый конь-ищейка Максимус, ручной хамелеон и шайка сумасбродных разбойников.Жанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, семейныйРежиссер: Натан Грено, Байрон ХовардАктеры: Мэнди Мур, Рон Перлман, Захари Левай, Донна Мерфи, М.К.Гейни, Джефри Тэмбор, Брэд Гэррет, Пол Ф.Томпкинс, Ричард Кил, Делани Роуз СтейнПеревод: ДублированноеПродолжительность: 01:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260E95DE34D785E2D206E1B91CFEE89F52B0A84C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 749343   (954529) от 25.01.2014
+
+Discovery: Новый Мир. Мегаполис будущего / Discovery: Next World. Future Megatropolis  (2008) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Discovery Channel приглашает совершить запредельное путешествие в третье десятилетие 21 века.
+Посмотрите, как идеи, которые сегодня кажутся смелыми и революционными, воплощаются в обыденные и привычные вещи завтрашнего дня.
+
+Превратится ли Земля в один большой город? В будущем города будут строить за то же время, что сейчас и мосты.(   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E10EA3C6097CA775A7F14FCC0E10E2A451575C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980602   (954527) от 30.01.2016
+
+BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 2]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954527.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тисках времен года (Арктика) / In the Grip of the SeasonsВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8D709E0D987F228FB096B32F5D8A28F77CF144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980652   (954492) от 30.01.2016
+
+BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 4]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голод в море (Океаны) / Hunger at SeaВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DE97C2BBA6096819DB68E86BF7A8AC1EE61A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980571   (954430) от 30.01.2016
+
+BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 1]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сложнейшие задачи / The Hardest ChallengeВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2541775BD5EAAB158BA8DA751350CA28822ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361572   (952119) от 21.02.2020
 
 NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV [H.264/1080i]
@@ -6,7 +113,7 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952119.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952103.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ BBC: Планеты. Сатурн / Nova: The Planets: Saturn (2019) IPTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952060.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ BBC: Саймон Шама о Рембрандте: Шедевры послед�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951812.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951806.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951245.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ PBS Nature. Бегемоты - жизнь в воде / Hippos: Africa's River G
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950628.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949024.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948540.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948487.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947725.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946651.jpg" />
 </div>
 
 
@@ -320,7 +427,7 @@ BBC: Бессмертный Египет с Джоанн Флетчер / Immort
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945668.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945350.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ BBC: Планеты. Ледяные миры / Nova: The Planets: Ice Worlds (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944947.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942475.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941201.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940905.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939860.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ Discovery. Розетта: столкновение с кометой (В пог
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939207.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936203.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936193.jpg" />
 </div>
 
 
@@ -566,110 +673,6 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1AC745EB80605E2A862BD8C160FB7A88EF5690B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285052   (935956) от 20.01.2011
-
-NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (2010) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_935956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фашисткой Германии были созданы одни из самых разрушительных видов оружия на земле. Огромные пушки, высокотехнологичные ракеты и передовые реактивные истребители. Fritz X - прообраз современной "умной бомбы", была совершенно секретной бомбой Адольфа Гитлера. Завеса тайны скрывает один из последних секретов Второй мировой войны. Могла ли бомба нацистов изменить ее исход? В этом фильме немецкие и американские авиационные эксперты воскресят новаторское оружие Третьего рейха. Они проведут смелый эксперимент в глубине калифорнийской пустыни - сбросят две модели высокоточной бомбы нацистов...Жанр: ДокументальныйПеревод: Профессиональный (полное дублирование) + Профессиональное (одноголосое)Формат: AVIПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822006CC7EEC7BEDEDBE03E793BAB2E33FCECB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093350   (935165) от 14.01.2017
-
-Египет. В поисках Тутанхамона (2005) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страна, полная легенд и тайн, история которой восходят к самой древней земной цивилизации. Что мы знаем об истории этой страны кроме того, что когда-то учили в школе? Загадочный Египет... Цикл фильмов о загадках Египта - "Неразгаданный Египет" - постарается ответить на многие вопросы, которыми задавались ученые на протяжении многих столетий. Авторы фильма (   Читать дальше...   )Телекомпания: BBC, эфир телеканал "История"Жанр: ИсторияПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608CD9440D05854CF24D4D1633D7081484EDA5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985209   (935127) от 11.02.2016
-
-BBC: Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 6]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гонка со временем (Побережье) / Race Against TimeВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3244B667CCCE94F0A003DB70D66831F2DF17E9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783275   (934254) от 20.01.2015
-
-Discovery: Вселенная Стивена Хокинга: Инопланетяне / Stephen Hawking. Aliens (2010) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это загадка является одной из величайших в современной науке... Если она когда нибудь будет раскрыта, то это заставит переосмыслить наше место во Вселенной. Жизнь есть только на Земле? Или она существует повсюду в Космосе? Инопланетяне наверняка существуют, но почему мы с ними не встретились? Если на звездах действительно имеются инопланетяне, то почему мы не получаем известий от них? У нас есть мощные инструменты для их поиска. Или мы действительно одни?.. Один астроном заявляет, что слышала попытки вступить (   Читать дальше...   )Жанр: Документальный, научно-познавательный, исследование, космосРежиссер: Аин РидикПеревод: Профессиональный закадровыйПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB92594675F093D2F7B5950A98794EA8CCBFD2DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

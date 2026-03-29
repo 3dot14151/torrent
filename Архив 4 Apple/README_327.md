@@ -1,3 +1,108 @@
+###  Публикация: 1554882   (574020) от 01.06.2022
+
+NCH WavePad Audio Editor Pro 16.41 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это программное обеспечение для редактирования аудио и является полнофункциональным, профессиональным редактором аудиофайлов. Это позволяет записывать и редактировать музыку, голосовые и другие аудиозаписи. При редактировании аудиофайлов вы можете вырезать, копировать и вставлять части записей, а затем добавлять эффекты, такие как эхо, усиление и шумоподавление. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.05.2022Разработчик: © 2022 NCH SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED934A60FEFD13B008D7EF32CDB908DF5CD8E74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554904   (574019) от 01.06.2022
+
+Sketch 88.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 26.05.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 11.0 or laterЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826B0307B3A757E71DCA68EF80D0EC336DB75406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555003   (574016) от 01.06.2022
+
+Tower Pro 8 v8.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tower - мощный и элегантный Git клиент для Mac
+Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.06.2022Разработчик: © 2010-2022 TowerПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6103A2F7DBB0B1DA5D3A207BF8A68015339479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554967   (574013) от 01.06.2022
+
+iThoughtsX 9.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574013.jpg" />
+</div>
+
+
+###  Подробнее
+
+iThoughtsX – приложение, позволяющее визуализировать ваши мысли с помощью построения графических диаграмм. Отлично помогает при мозговых штурмах и при необходимости упорядочить мысли или идеи. iThoughtsX можно использовать для различных задач - в том числе списков, мозговой штурм, планирования праздников, исследования, письма, управление проектом - и в самых разных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.05.2022Разработчик: © 2021 toketaWare LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6485E9C18EF836D54273899B5924C6DB527535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554901   (574012) от 01.06.2022
 
 Grids for Instagram 8.0.5 [Multi/Ru]
@@ -6,7 +111,7 @@ Grids for Instagram 8.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574012.jpg" />
+  <img src="Z:/picture/008/save_picture_574012.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ WiFi Explorer 3.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574011.jpg" />
+  <img src="Z:/picture/008/save_picture_574011.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Bootstrap Studio 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574007.jpg" />
+  <img src="Z:/picture/008/save_picture_574007.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Disk Drill Enterprise 3.7.934 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574006.jpg" />
+  <img src="Z:/picture/008/save_picture_574006.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ VanDyke SecureCRT and SecureFX 8.5.3 (1867)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573995.jpg" />
+  <img src="Z:/picture/008/save_picture_573995.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ WiFi Explorer Pro 3 v3.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573912.jpg" />
+  <img src="Z:/picture/008/save_picture_573912.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ Bartender 4 v4.1.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573911.jpg" />
+  <img src="Z:/picture/008/save_picture_573911.jpg" />
 </div>
 
 
@@ -195,7 +300,7 @@ Exposure X7 Bundle v7.1.5.99 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573910.jpg" />
+  <img src="Z:/picture/008/save_picture_573910.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ iStat Menus 6 v6.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573817.jpg" />
+  <img src="Z:/picture/008/save_picture_573817.jpg" />
 </div>
 
 
@@ -248,7 +353,7 @@ To-Fu Fury [iOS 8.0+] [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573358.jpg" />
+  <img src="Z:/picture/008/save_picture_573358.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ BusyCal 3 v3.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573128.jpg" />
+  <img src="Z:/picture/008/save_picture_573128.jpg" />
 </div>
 
 
@@ -301,7 +406,7 @@ KCNcrew Pack 15-5-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573116.jpg" />
+  <img src="Z:/picture/008/save_picture_573116.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ Keep It 1.6.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573065.jpg" />
+  <img src="Z:/picture/008/save_picture_573065.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Affinity Designer Beta 1.7.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572901.jpg" />
+  <img src="Z:/picture/008/save_picture_572901.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ Typeeto: remote full size bluetooth keyboard 1.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572774.jpg" />
+  <img src="Z:/picture/008/save_picture_572774.jpg" />
 </div>
 
 
@@ -407,7 +512,7 @@ Downie 2.4.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572693.jpg" />
+  <img src="Z:/picture/008/save_picture_572693.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ PhotoSweeper X 2.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572680.jpg" />
+  <img src="Z:/picture/008/save_picture_572680.jpg" />
 </div>
 
 
@@ -462,7 +567,7 @@ EVERSPACE™ v.1.3.0 (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572613.jpg" />
+  <img src="Z:/picture/008/save_picture_572613.jpg" />
 </div>
 
 
@@ -488,7 +593,7 @@ Integrity Pro 12.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572544.jpg" />
+  <img src="Z:/picture/008/save_picture_572544.jpg" />
 </div>
 
 
@@ -514,7 +619,7 @@ Integrity Plus 12.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572537.jpg" />
+  <img src="Z:/picture/008/save_picture_572537.jpg" />
 </div>
 
 
@@ -541,7 +646,7 @@ Wondershare Recoverit 8 v8.0.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572526.jpg" />
+  <img src="Z:/picture/008/save_picture_572526.jpg" />
 </div>
 
 
@@ -568,7 +673,7 @@ SQLPro Studio 2022.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572499.jpg" />
+  <img src="Z:/picture/008/save_picture_572499.jpg" />
 </div>
 
 
@@ -579,113 +684,6 @@ QLPro Studio инструмент управления базами данных
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D201EB81CE631566D48148FF8E9C102B0AFDAAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234247   (572480) от 04.07.2018
-
-1Password 7.0.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572480.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
-
-Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB8B7BA2A40093BAAC7A0501997AB8F61A3414B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234033   (572450) от 04.07.2018
-
-От семьи не убежишь / La ch'tite famille (2018) BDRip [1080p] ATV
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодые и успешные парижские дизайнеры Валентин и Констанция готовятся заключить многомиллионный контракт, но в самый неподходящий момент на выставку приезжает вся семейка Валентина, которая проливает свет на его прошлое и расстраивает все планы.Производство: Франция / Les Productions du Ch'timi, PathéЖанр: КомедияРежиссер: Дэни БунАктеры: Дани Бун, Лин Рено, Лоранс Арне, Валери Боннетон, Ги Леклюиз, Франсуа Берлеан, Пьер Ришар, Жюлиан Лепоро, Стефан Пезера, Ян ТуальПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1548F2D4FC55BBCAEDC50BBB8F88100073CDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303403   (572385) от 21.05.2019
-
-TechTool Pro 11 v11.0.2 (5062) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572385.jpg" />
-</div>
-
-
-###  Подробнее
-
-echTool Pro — диагностику заказывали?
-Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2019Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E963FB87B5788978F1F936888426B00EE20A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048213   (572289) от 04.07.2018
-
-Prison Architect v.14k (2015) [Multi/Ru] [OS X Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prison Architect - симулятор тюремного магната, с полным контролем всех аспектов жизни заключенных! Вашей задачей будет постройка и развитие самой настоящей тюрьмы. Создатели игры вдохновлялись такими хитами прошлых лет как Dwarf Fortress и Dungeon Keeper. Причём надо будет организовывать не только камеры для заключённых, но и заниматься постройкой различных служб, (   Читать дальше...   )Тип издания: OS X Native gameРелиз состоялся: 6 октября 2015Разработчик: Introversion SoftwareПоддерживаемая ОС: Mac: OSX 10.7.0 +Жанр: Strategy (Manage,Busin.), Top-downЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8339391430ADB049FF27B23F3981BE3D161B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

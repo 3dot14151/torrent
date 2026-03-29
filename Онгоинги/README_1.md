@@ -1,3 +1,83 @@
+###  Публикация: 1845707   (1051001) от 18.01.2026
+
+Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический корабль, затерянный в бескрайних просторах Вселенной, сталкивается с непостижимой угрозой. Его экипаж становится целью Гносии — чужеродной сущности, обладающей совершенной способностью к мимикрии. Это существо безупречно копирует внешность, повадки и воспоминания любого человека, незаметно встраиваясь в социальную структуру замкнутого коллектива.
+Единственная (   Читать дальше...   )Производство: Domerica / ドメリカЖанр: приключенияРежиссер: Итикава КадзуяПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: Русские (внешние)Продолжительность: 24 эп. по ~26-27 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765CB8922F5E9B7900B087E6B778EE2F5D630200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845486   (1050836) от 22.01.2026
+
+Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [2026, TV, 1 из 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассница Утагэ Киносита живёт мыслями о любимом айдоле. Кажется, только вчера Тамон Фукухара проходил прослушивания, и вот два года спустя он звезда популярной айдол-группы F/ACЕ, оккупировавшей все экраны страны.
+Однажды Утагэ, которая подрабатывает уборкой квартир, пришлось выйти на замену заболевшего коллеги. По иронии судьбы, её новым клиентом оказался (   Читать дальше...   )Производство: студия J.C. StaffЖанр: комедия, романтикаРежиссер: Нагаока ТикаПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184E52B6F278E7E3E599765FD68EAE78FD9AD310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845575   (1050826) от 23.01.2026
+
+MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон МФ ПризракПроизводство: студия Felix FilmЖанр: спортРежиссер: Нака ТосихитоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F733D94407CE98AB8B0373EC164684E54743E874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845577   (1050825) от 21.01.2026
 
 Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Мастера на все руки выгнали из отряда героев [2026, TV, 1 из ?] WEBRip 720p raw
@@ -6,7 +86,7 @@ Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Ма
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050825.jpg" />
+  <img src="Z:/picture/005/save_picture_1050825.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Monster Strike: Deadverse Reloaded | Удар монстра: Перезагру
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049951.jpg" />
+  <img src="Z:/picture/005/save_picture_1049951.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ Kingdom 6th Season | Царство [ТВ-6] [2025, TV, 11 из 13] WEB-DL 1080p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049240.jpg" />
+  <img src="Z:/picture/008/save_picture_1049240.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186105.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173529.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ Arknights: Fuyukomori Kaerimichi / Arknights: Perish in Frost / Рыцари к�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153701.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136951.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128932.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128888.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128882.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126108.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125890.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121471.jpg" />
 </div>
 
 
@@ -355,7 +435,7 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121469.jpg" />
 </div>
 
 
@@ -381,7 +461,7 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112406.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112390.jpg" />
 </div>
 
 
@@ -433,7 +513,7 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104440.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ Kao ni Denai Kashiwada-san to Kao ni Deru Oota-kun / Inexpressive Kashiwada and 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101051.jpg" />
 </div>
 
 
@@ -486,7 +566,7 @@ Plus-sized Misadventures in Love! | Debu to Love to Ayamachi to! | Пышечк�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101044.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Noda / Мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101043.jpg" />
 </div>
 
 
@@ -538,7 +618,7 @@ Egao no Taenai Shokuba Desu. / A Mangaka's Weirdly Wonderful Workplace / Раб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101042.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100875.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скор
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100874.jpg" />
 </div>
 
 
@@ -607,85 +687,6 @@ Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B858257F8D7A08668E225490CE4155FEB033E816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822221   (100870) от 05.10.2025
-
-Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя геройская академия [ТВ-8] [2025, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если большинство людей владеет суперспособностями, то и воинов правосудия надо много. Школы для одаренных есть везде – а вот Идзуку Мидории, истовому фанату геройских дел, способностей не досталось, о чем он очень жалеет. Но ничего, судьба и храброе сердце однажды свели Мидорию с Всемогущим, сильнейшим героем на свете. Ветерану парень понравился – настолько, что (   Читать дальше...   )Производство: Bones FilmЖанр: приключения, фэнтезиРежиссер: Nagasaki KenjiПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F77FC3088A419B0E3EBE0498590F62576C20E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822222   (100866) от 05.10.2025
-
-Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In for Me! / Младшая сестра друга меня так раздражает! [2025, TV, 1 из ?] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если девушка дразнит тебя, значит, ты ей нравишься!
-К сожалению, Акитеру по собственному опыту известно, что это не так. Потому что все девушки, с которыми он общается, относятся к нему с презрением, и ни одна из них не согласилась пойти с ним на свидание! К счастью, он больше озабочен тем, чтобы обеспечить себе и своим друзьям-разработчикам игр место в компании (   Читать дальше...   )Жанр: комедия, романтика.Режиссер: Кога КадзуомиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CE0BF26B535EC29908EBE2A3F5C10A2AD2C82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822228   (100863) от 05.10.2025
-
-Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бессмертный [ТВ-3] [2025, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100863.jpg" />
-</div>
-
-
-###  Подробнее
-
-После сражений в Ренриле Фуши, подобно дереву, пускает корни по всему миру, сражаясь за уничтожение Ноккеров. Сотни лет спустя, выполнив свою миссию, он пробуждается в современной эпохе. Он наслаждается мирной жизнью, свободной от вражеских угроз, в окружении дорогих друзей, как старых, так и новых. Но зловещие тени снова нависают над ним. Враги, проникающие в глубины (   Читать дальше...   )Производство: Studio Massket, DriveЖанр: приключения, фэнтезиРежиссер: Sayama KiyokoПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D208562B981D66C433644CA765FC908CFD4464
 ```
 
 https://mybot314.ru/tekegram_catalog/

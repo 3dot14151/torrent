@@ -1,3 +1,29 @@
+###  Публикация: 1069647   (371003) от 05.11.2016
+
+Мальчики и гиперпространство / Jiong nan hai (2008) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_371003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое мальчишек – лучшие друзья и источник проблем в школе. Они дразнят девочек, придумывают шалости и постоянно лгут одноклассникам, за что получили прозвища “Первый лжец” и “Второй лжец”. Один рассказывает другому об удивительном “Гиперпространстве”. Оказавшись там, сразу становишься взрослым и  живёшь счастливой жизнью, все в земном мире забывают о тебе. И теперь, (   Читать дальше...   )Производство: Тайвань (1 Production Film)Жанр: ДрамаРежиссер: Ян Я-ЧжэАктеры: Ли Гуань-и, Сюй Цзи-вэнь, Мэй Фан, Линь На-доу, Бань Цзинь-юйПеревод: Одноголосый закадровый (den904)Язык субтитров: русскийПродолжительность: 01:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E84D3D7C57A5EB4CD69383308E1791A6803BB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576036   (370697) от 12.09.2022
 
 Храм диких гусей / Gan no tera / The Temple of the Wild Geese (1962) BDRip [H.264] [VO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370697.jpg" />
+  <img src="Z:/picture/008/save_picture_370697.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370127.jpg" />
+  <img src="Z:/picture/008/save_picture_370127.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369544.jpg" />
+  <img src="Z:/picture/008/save_picture_369544.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367516.jpg" />
+  <img src="Z:/picture/008/save_picture_367516.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366621.jpg" />
+  <img src="Z:/picture/008/save_picture_366621.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365552.jpg" />
+  <img src="Z:/picture/008/save_picture_365552.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365408.jpg" />
+  <img src="Z:/picture/008/save_picture_365408.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365001.jpg" />
+  <img src="Z:/picture/008/save_picture_365001.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364234.jpg" />
+  <img src="Z:/picture/008/save_picture_364234.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363012.jpg" />
+  <img src="Z:/picture/008/save_picture_363012.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362819.jpg" />
+  <img src="Z:/picture/008/save_picture_362819.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362679.jpg" />
+  <img src="Z:/picture/008/save_picture_362679.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362467.jpg" />
+  <img src="Z:/picture/008/save_picture_362467.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362383.jpg" />
+  <img src="Z:/picture/008/save_picture_362383.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362354.jpg" />
+  <img src="Z:/picture/008/save_picture_362354.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ V.I.P. / V.I.P. (2017) BDRip
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362288.jpg" />
+  <img src="Z:/picture/008/save_picture_362288.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362258.jpg" />
+  <img src="Z:/picture/008/save_picture_362258.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362075.jpg" />
+  <img src="Z:/picture/008/save_picture_362075.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361091.jpg" />
+  <img src="Z:/picture/008/save_picture_361091.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360390.jpg" />
+  <img src="Z:/picture/008/save_picture_360390.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359846.jpg" />
+  <img src="Z:/picture/008/save_picture_359846.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358376.jpg" />
+  <img src="Z:/picture/008/save_picture_358376.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357487.jpg" />
+  <img src="Z:/picture/008/save_picture_357487.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356878.jpg" />
+  <img src="Z:/picture/008/save_picture_356878.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355734.jpg" />
+  <img src="Z:/picture/008/save_picture_355734.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85C33C630BD2BD23577DD6C5C0268E7DF5C2EFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577657   (354655) от 19.09.2022
-
-Такешиз / Takeshis (2005) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брюнет Китано — телевизионная звезда бандитских сериалов, разъезжающий с молоденькой ассистенткой-любовницей в Royal-Royce. Блондин Китано — владелец маленького магазинчика всякой мелкой всячины, неудачник, безнадёжно приходящий на ТВ-кастинги. Каждому снится сон про себя и другого Китано. Сны перемешиваются друг с другом в хаотическую феерию, образы повторяются (   Читать дальше...   )Производство: Япония, Bandai Visual Co. Ltd., DENTSU Music And Entertainment Inc., Office Kitano, Tokyo FM Broadcasting Co. Ltd., TV AsahiЖанр: фэнтези, драма, комедияРежиссер: Такэси КитаноАктеры: Такэси Китано, Котоми Кёно, Каёко Кисимото, Рен Осуги, Сусуму Тэрадзима, Тэцу Ватанабэ, Акихиро Мива, Наомаса Мусака, Коити Уэда, Цутому Такесиге, Бито Киёси, Юня Такаки, Сёго Кимура, Кандзи Цуда, Макото Асикава, Тамоцу ИсибасиПеревод: профессиональный многоголосый (R5 Cinema Prestige), авторский (Антон Карповский)Субтитры: русские, английскиеПродолжительность: 01:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390A32ACA38D518319EA56C95244632B00595AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

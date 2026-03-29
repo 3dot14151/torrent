@@ -1,3 +1,89 @@
+###  Публикация: 1678088   (137324) от 25.11.2023
+
+AC/DC - Live At River Plate (2011) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137324.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC (Эй-си/ди-си; сокращённо от англ. alternating current/direct current «переменный ток/постоянный ток») - австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами.01. Rock N Roll Train
+02. Hell Ain't A Bad Place To Be
+03. Back In Black
+04. Big Jack(   Читать дальше...   )Производство: СШАЖанр: Hard RockУчастники: Ангус Янг (соло-гитара, иногда бэк-вокал)
+Фил Радд (ударные, перкуссия)
+Клифф Уильямс (бас-гитара, бэк-вокал)
+Брайан Джонсон (ведущий вокал)(   Читать дальше...   )Продолжительность: 01:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3004D586E4A095D5D3F74FAE8B4C3EC08C3FD42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591320   (136149) от 20.12.2012
+
+Субботним вечером в прямом эфире / Saturday Night Live: Paul McCartney (SNL) (2012) HDTV [MPEG-2/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Пола Маккартни на шоу "Субботним вечером в прямом эфире" американского телеканала NBC 15 декабря 2012 г.01. Cut Me Some Slack (feat. Nirvana)
+02. My Valentine (feat. Joe Walsh)
+03. Simply Having a Wonderful Christmas timeЖанр: Концерт, RockПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF72601A8A6B48F1459EE4475A6BE86E5D28093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591350   (136078) от 20.12.2012
+
+Глюк' OZA - Nowбой (2011) BDRemux
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_136078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый грандиозный проект певицы Глюк'озы! Живой концерт "NOWБОЙ" на диске Blue Ray! Программа концерта содержит, как старые, любимые всеми хиты певицы, так и новые песни. "Невеста", "Снег идёт", "Шуга" и многие другие знаковые композиции порадуют зрителя вместе с новыми, но уже полюбившимися хитами "Взмах", "Вот такая любовь", "Следы слёз" и многими другими. Каждый номер - это яркое сочетание световых эффектов, нереальных костюмов, хореографии и великолепного звука. Современное звучание и высокотехнологичная съёмка концерта позволит зрителю побывать на живом выступлении Глюк'озы не выходя из дома!Жанр: PopПеревод: ОтсутствуетПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679825   (135185) от 26.11.2023
 
 Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +92,7 @@ Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135185.jpg" />
 </div>
 
 
@@ -32,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134887.jpg" />
 </div>
 
 
@@ -61,7 +147,7 @@ Mylene Farmer - Live A Bercy (1997) DVDRip [H.264/1080p] [Handmade Upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134035.jpg" />
 </div>
 
 
@@ -90,7 +176,7 @@ Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133674.jpg" />
 </div>
 
 
@@ -119,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132338.jpg" />
 </div>
 
 
@@ -149,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132076.jpg" />
 </div>
 
 
@@ -178,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132063.jpg" />
 </div>
 
 
@@ -205,7 +291,7 @@ Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129926.jpg" />
 </div>
 
 
@@ -231,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128396.jpg" />
 </div>
 
 
@@ -260,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127252.jpg" />
 </div>
 
 
@@ -290,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127241.jpg" />
 </div>
 
 
@@ -317,7 +403,7 @@ Till Lindemann - 2023 Tour Live (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126298.jpg" />
 </div>
 
 
@@ -348,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125972.jpg" />
 </div>
 
 
@@ -377,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125968.jpg" />
 </div>
 
 
@@ -407,7 +493,7 @@ Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125845.jpg" />
 </div>
 
 
@@ -436,7 +522,7 @@ Pet Shop Boys – Performance (1991) DVDRip [H.264/1080p] [Handmade Upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125492.jpg" />
 </div>
 
 
@@ -465,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120733.jpg" />
 </div>
 
 
@@ -491,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120718.jpg" />
 </div>
 
 
@@ -517,7 +603,7 @@ Paul Van Dyk - Music Discovery Project (The Planets Reloaded) (2009) WEBRip [H.2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120675.jpg" />
 </div>
 
 
@@ -547,7 +633,7 @@ Paul Van Dyk - Volume - The best of Paul Van Dyk (2009) DVDRip [H.264/1080p-LQ] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120671.jpg" />
 </div>
 
 
@@ -576,7 +662,7 @@ Lovebites: Clockwork Immortality (2018) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120292.jpg" />
 </div>
 
 
@@ -602,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119485.jpg" />
 </div>
 
 
@@ -628,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116066.jpg" />
 </div>
 
 
@@ -639,84 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8661E53B5F727683C8EB52B6C30570B64891C8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701966   (116060) от 23.02.2024
-
-Руки Вверх! Лужники на Бис! (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые хиты на главном стадионе страны: видеоверсия концерта на БСА «Лужники» 22 июля 2023 года собравшего рекордные 75 000 зрителей.Жанр: концерт, музыкаРежиссер: Роман БутовскийПродолжительность: 01:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E801E4D52877DED495BB896519BC0C403F996E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701988   (116056) от 23.02.2024
-
-«Крематорий» в Горбушке. 39 лет (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крематорию – 39 лет! концерт состоялся 10 декабря 2022 года в московском ДК им. Горбунова.Жанр: концерт, музыкаПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D1E4A05367E3B9EF8ABB9778209F3C1D28AE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703707   (114879) от 01.03.2024
-
-Дельфин. Прощай оружие (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию видеохронику одного из самых ярких музыкальных событий 2023 года — концерта Дельфина. Грандиозное шоу проходило в московском VK Stadium. Музыкант представил поклонникам свой новый альбом «Прощай оружие», который получил свое название в честь одноименного романа американского писателя Эрнеста Хемингуэя. Дельфину удалось органично объединить (   Читать дальше...   )Производство: Россия / SETUPЖанр: концерт, музыкаРежиссер: Анна КозловаАктеры: ДельфинПродолжительность: 01:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1743260   (46713) от 15.08.2024
+
+Хранители: Часть 1 / Watchmen: Chapter I (2024) WEB-DLRip [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1985 году убийство супергероя, спонсируемого правительством, выводит его объявленных вне закона коллег из отставки и погружает в тайну, которая угрожает перевернуть их личную жизнь и сам мир.Производство: США / DC Studios, Paramount Pictures, Warner Bros. AnimationЖанр: мультфильм, фантастика, боевикРежиссер: Брэндон ВиеттиАктеры: Кэти Сакхофф, Келли Ху, Титус Уэлливер, Грэй Гриффин, Эдриенн Барбо, Мэттью Риз, Кари Уолгрен, Трой Бэйкер, Джеффри Комбс, Юрий ЛовентальПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (full (AI)), английские (full, SDH) - отдельноПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2803A8F2795378FD36EAB998FE69F989963C80FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744643   (46036) от 22.08.2024
+
+Головоломка 2 / Inside Out 2 (2024) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Головной отдел мозга Райли внезапно подвергается капитальному ремонту в тот момент, когда необходимо освободить место для чего-то совершенно неожиданного: новых эмоций. Радость, Печаль, Гнев, Страх и Брезгливость, которые уже давно успешно руководят эмоциональными процессами, не знают, что и чувствовать, когда появляется некая… Тревожность. И похоже, не только она.Производство: США / Pixar Animation Studios, Walt Disney Studios Motion PicturesЖанр: мультфильм, комедия, семейный, фэнтезиРежиссер: Келси МаннАктеры: Эми Полер, Майя Хоук, Кенсингтон Таллман, Лиза Лапира, Тони Хейл, Льюис Блэк, Филлис Смит, Айо Эдебири, Лилимар, Грэйс ЛуПеревод: дублированный (MovieDalen)Язык озвучки: русскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B63CD54C4A67DE14076F9902C40CA026B747AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744929   (45776) от 24.08.2024
+
+Гиганты Ла-Манша / Giants of la Mancha / Storm Crashers (2024) WEB-DLRip [H.264] [звук с TS]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альфонсо, наследник Дон Кихота, с друзьями Викторией и Пансо пытаются спасти город от штормового монстра. Его создал в своих лабораториях злобный Дон Карраско. Он хочет разрушить город и построить на его месте парк развлечений. Дети и родители объединились, чтобы остановить злодея, но для этого им нужно разбудить Гигантов.Производство: Аргентина, Германия / GF Films, GGVFX, MARK13, Studio 100 Media, Studio Isar AnimationЖанр: мультфильм, приключения, семейныйРежиссер: Гонсало ГутьерресАктеры: Кароль Севилья, Карла Петерсон, Факундо Рейес, Кэсси Глоу, Мэттью Морено, Мике Морено, Марина Бланк, Джулиан Янссен, Demián VelazcoПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC38943D017F565A7E34BEC111D791C60B71B0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745705   (45499) от 27.08.2024
+
+200% Волк / 200% Wolf (2024) TS [H.264] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пудель Фредди Люпин мечтает стать волком. Волки смеются над ним, полагая, что пудель не может совершать героические поступки и помогать людям, как они. Однажды Фредди загадал желание, но напутал с ним, и на Землю прилетел озорной лунный дух. Тот рассказал, что Земля и Луна должны скоро столкнуться, но Фредди может помочь предупредить катастрофу. Собрав друзей-собак, (   Читать дальше...   )Производство: Австралия, Германия, Испания, Мексика, США / 200 Wolf La Pelicula AIE, 20th Century StudiosЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Алекс СтадерманнАктеры: Илай Суинделлс, Элизабет Наббен, Дженнифер Сондерс, Sarah Georgina, Питер МакАллум, Самара Уивинг, Janice Petersen, Heather Mitchell, Michael Bourchier, Алекс СтадерманнПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FEC0935F2B0D2EA6CE6E4D4ABE565591666A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746510   (44954) от 01.09.2024
 
 Приключения панды / Panda Bear in Africa (2024) WEB-DLRip [H.264] [UKR, звук с TS]
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44954.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44149.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42962.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42452.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42011.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40336.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39978.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39701.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39619.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39192.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37444.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36875.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36391.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35501.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35045.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32704.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32121.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32088.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31529.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31129.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29982.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27763.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28A57C0DCD1CC95E71595E236AE472251A1C16CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780402   (27197) от 18.02.2025
-
-Догмен: Пушистая справедливость / Dog Man (2025) WEB-DLRip [H.264] [звук с TS] [DUB, MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда офицер полиции Найт и его пёс Грег оказываются в эпицентре взрыва, спасти их удаётся, лишь пересадив человеку голову собаки. Так на свет появляется Догмен - наполовину собака, наполовину человек.Производство: США / DreamWorks Animation, Treehouse Comix, Universal PicturesЖанр: мультфильм, фантастика, боевик, семейный, комедияРежиссер: Питер ХатингсАктеры: Пит Дэвидсон, Поппи Лю, Лил Рел Ховери, Айла Фишер, Билли Бойд, Ранума Пантаки, Мэгги Уилер, Питер Хатингс, Луэнелль, Мелисса ВильясеньорПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia) звук с TS, Любительский многоголосыйЯзык озвучки: Русский, УкраинскийСубтитры: Английские (Full, SDH)Продолжительность: 01:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA200A232AFE60C00582E08E655D46290F86353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780541   (27116) от 19.02.2025
-
-Муфаса: Король Лев / Mufasa: The Lion King (2024) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Québec Production Services Tax Credit, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, драма, приключения, семейныйРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет РогенПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E28D0DFB758C1F871501A4B12581B06350AA677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782099   (26124) от 01.03.2025
-
-Looney Tunes: Космическое вторжение / The Day the Earth Blew Up: A Looney Tunes Movie (2024) BDRip [H.264] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой инопланетянин придумывает хитроумный план как захватить Землю и теперь его могут остановить только друзья Порки Пиг и Даффи Дак, которые случайно узнают о замысле коварного пришельца.Производство: США, Канада, Великобритания / Tonic DNA, Warner Bros. AnimationЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Питер БраунгардтАктеры: Эрик Бауза, Кэнди Мило, Питер МакНикол, Карлос Аласраки, Кимберли Брукс, Питер Браунгардт, Рэйчел Батера, Рут Клампетт, Кит Фергюсон, Эндрю КисиноПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: английскиеПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F6E013DBA38C8447B9D5DFA31D2399511C28D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782772   (25946) от 02.03.2025
-
-Снежные приключения Солана и Людвига / Solan og Ludvig - Jul i Flaklypa (2013) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселый и любопытный Солан и его друг – пессимист и меланхолик Людвиг – живут в маленькой деревушке вместе с изобретателем Реодором Фельгеном. Спокойную жизнь героев омрачает лишь одно – в канун Рождества в деревне до сих пор не выпал снег. Реодор, желая порадовать друзей, создает самую мощную в мире снежную пушку. Но, к сожалению, есть человек, который хочет использовать (   Читать дальше...   )Производство: Норвегия / Aukruststiftelsen, Maipo Film, Qvisten AnimationЖанр: мультфильм, семейныйРежиссер: Расмус А. СивертсенАктеры: Кари Анн Грёнсунд, Тронд Хёвик, Тронд Бренне, Каре Конради, Джон Брунгот, Торалв Морстад, Андерс Бай, Якоб Офтебро, Эли Анне Линнестад, Эйлиф Хеллум Норакер и другиеПеревод: Дублированный, авторскийЯзык озвучки: русский, норвежскийСубтитры: английские, норвежскиеПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE09502C4F35AABD10EFCD0638523149DD157AE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

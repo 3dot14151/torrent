@@ -1,3 +1,137 @@
+###  Публикация: 1000995   (855350) от 27.03.2016
+
+OS X Server 5.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855350.jpg" />
+</div>
+
+
+###  Подробнее
+
+OS X Server для устройств OS X и iOS позволяет легко обмениваться файлами, планировать встречи, синхронизировать контакты, разрабатывать приложения, поддерживать собственный сайт, публиковать wiki-проекты, управлять настройкой Mac, iPhone и iPad, заходить в сеть удалённо и многое другое.
+
+OS X Server — приложение, которое можно добавить к OS X Yosemite прямо в App (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 марта 2016Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.11.4  +Язык интерфейса: Английский, Голландский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4779BF0F303BEDF3FBFB35338AF435C3DA40DB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377039   (855203) от 20.04.2020
+
+Script Debugger 7 v7.0.12 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
+
+Редактор полностью поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2020Разработчик: Late Night Software Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366B13E94784A9090530BD45360AFA9506F17DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377208   (854916) от 20.04.2020
+
+SonicWeb Internet Radio Player 2.5 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854916.jpg" />
+</div>
+
+
+###  Подробнее
+
+SonicWeb Internet Radio Player - это продвинутый радио-проигрыватель с несколькими радиостанциями. Слушайте бесплатные интернет-радиостанции, записывайте их и автоматически разделяйте записанные потоки на отдельные треки.  Создавайте собственные плейлисты или экспортируйте треки в iTunes и в файлы, чтобы наслаждаться ими в любом месте. Слушайте всегда меняющиеся бесшовные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26.10.2019Разработчик: Patrick DehneПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761E7F32E67546741032C2A50C42ED2B854EAE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498830   (854644) от 28.09.2021
+
+Filmwizard Full 3.4.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmwizard - это простой в использовании инструмент для создания фильмов. Он может записывать, редактировать и создавать высококачественные фильмы и кодировать их в файлы MPEG-4 или публиковать их непосредственно на видео сайтах, таких как Youtube, для вашей аудитории.Тип издания: macOS SoftwareРелиз состоялся: 05.12.2020Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC975268A32C2C0D8869D3AA828196CDA84ABEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498842   (854529) от 28.09.2021
+
+Big Sur Cache Cleaner 16.1.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Sur Cache Cleaner - это отмеченный наградами инструмент общего назначения для macOS. BSCC упрощает обслуживание системы с помощью простого интерфейса для многих функций macOS. Как новички, так и опытные пользователи оценят мощный набор инструментов, который предоставляет BSCC. Big Sur Cache Cleaner - один из ведущих в мире инструментов для обслуживания, который (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2021Разработчик: Northern SoftworksПоддерживаемая ОС: macOS 10.4 - macOS 11.0.1Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6534E6708E0CA926921A8D6AB811FABF4260B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498752   (854418) от 28.09.2021
 
 CopyClip 2 v2.9.98.9 [En]
@@ -6,7 +140,7 @@ CopyClip 2 v2.9.98.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854418.jpg" />
+  <img src="Z:/picture/008/save_picture_854418.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ MathWorks MATLAB R2021b v9.11.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853997.jpg" />
+  <img src="Z:/picture/008/save_picture_853997.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ Troga - Translate. Forget. Recall. Repeat 1.7.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853840.jpg" />
+  <img src="Z:/picture/008/save_picture_853840.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ Watermark Pro 1.72 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853787.jpg" />
+  <img src="Z:/picture/008/save_picture_853787.jpg" />
 </div>
 
 
@@ -113,7 +247,7 @@ Tune Sweeper 4 v4.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853673.jpg" />
+  <img src="Z:/picture/008/save_picture_853673.jpg" />
 </div>
 
 
@@ -139,7 +273,7 @@ Magnet - Snap windows into various sizes and positions 2.1.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853469.jpg" />
+  <img src="Z:/picture/008/save_picture_853469.jpg" />
 </div>
 
 
@@ -165,7 +299,7 @@ Photopaw 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852891.jpg" />
+  <img src="Z:/picture/008/save_picture_852891.jpg" />
 </div>
 
 
@@ -191,7 +325,7 @@ Easy Batch Rename 1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852890.jpg" />
+  <img src="Z:/picture/008/save_picture_852890.jpg" />
 </div>
 
 
@@ -217,7 +351,7 @@ CopyLess 1.8.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852115.jpg" />
+  <img src="Z:/picture/008/save_picture_852115.jpg" />
 </div>
 
 
@@ -245,7 +379,7 @@ Chocolat 3.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852113.jpg" />
+  <img src="Z:/picture/008/save_picture_852113.jpg" />
 </div>
 
 
@@ -274,7 +408,7 @@ Day One Classic 1.10.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852108.jpg" />
+  <img src="Z:/picture/008/save_picture_852108.jpg" />
 </div>
 
 
@@ -301,7 +435,7 @@ SMARTReporter 3.1.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852103.jpg" />
+  <img src="Z:/picture/008/save_picture_852103.jpg" />
 </div>
 
 
@@ -327,7 +461,7 @@ OmniOutliner Pro 4.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852096.jpg" />
+  <img src="Z:/picture/008/save_picture_852096.jpg" />
 </div>
 
 
@@ -355,7 +489,7 @@ Cosmicast 2.0.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851887.jpg" />
+  <img src="Z:/picture/008/save_picture_851887.jpg" />
 </div>
 
 
@@ -381,7 +515,7 @@ Bongiovi Digital Power Station (DPS) 2.2.7.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851138.jpg" />
+  <img src="Z:/picture/008/save_picture_851138.jpg" />
 </div>
 
 
@@ -408,7 +542,7 @@ Adobe Animate 2021 v21.0.9 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850897.jpg" />
+  <img src="Z:/picture/008/save_picture_850897.jpg" />
 </div>
 
 
@@ -434,7 +568,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850890.jpg" />
+  <img src="Z:/picture/008/save_picture_850890.jpg" />
 </div>
 
 
@@ -460,7 +594,7 @@ DBeaver Ultimate Edition 21 v21.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850804.jpg" />
+  <img src="Z:/picture/008/save_picture_850804.jpg" />
 </div>
 
 
@@ -486,7 +620,7 @@ Adobe XD v44.0.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850792.jpg" />
+  <img src="Z:/picture/008/save_picture_850792.jpg" />
 </div>
 
 
@@ -513,7 +647,7 @@ Adobe InDesign 2021 v16.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850791.jpg" />
+  <img src="Z:/picture/008/save_picture_850791.jpg" />
 </div>
 
 
@@ -539,7 +673,7 @@ VersionsManager 1.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850554.jpg" />
+  <img src="Z:/picture/008/save_picture_850554.jpg" />
 </div>
 
 
@@ -552,143 +686,6 @@ VersionsManager - утилита,  позволяющая просматрива
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41905F8263A73616A66F68B5AC0A1DC0C2E53F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110851   (850374) от 04.03.2017
-
-Studies 1.1.5 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
-
-Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 марта 2017Разработчик: The Mental FacultyПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D099178CC5E747DB4BD77CF8AC6DD81E516CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001934   (850311) от 30.03.2016
-
-Music Tube 2.1.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступ ко всей музыкальной библиотеке YouTube прямо в строке меню !
-Music Tube - родной настольный клиент для  музыки YouTube. Music Tube воспроизводит и организует музыку непосредственно с YouTube. В нем вы можете получить рекомендации для самых горячих песен, найти треки, которые вы ищете , создавать свои собственные списки воспроизведения и многое другое. Утилита (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 марта 2016Разработчик: Wang Fu ChiПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D489C0F484B6384E80769B919B6C8743B3CD7C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001952   (850306) от 30.03.2016
-
-Vicomsoft FTP Client 5.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850306.jpg" />
-</div>
-
-
-###  Подробнее
-
-FTP/SFTP клиент профессионального уровня.
-Vicomsoft FTP-клиент профессионального уровня, полнофункциональный, быстрый и надежный, легкий в использовании FTP + SFTP + FTPS клиент для OS X. Впервые выпущен в 1997 году, последняя версия является кульминацией 19-ти летнего опыта в области FTP.
-
-В дополнение к максимальной производительности и молниеносной загрузке, FTP-клиент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 февраля 2016Разработчик: VicomsoftПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9398303B9C92F64447276722D17AF30F70330D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002059   (850207) от 30.03.2016
-
-Jump Desktop (Remote Desktop) - RDP/VNC 6.0.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jump Desktop (RDP & VNC) -  программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
-Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06.11.2015Разработчик: Phase Five SystemsПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C570DDF4B3A739FACB7326CF26E1BEE484C6FCF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499311   (849645) от 01.10.2021
-
-NetWorker Pro 7.4.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849645.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 30.09.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567182AD387ED8845A507675156EE6F894E6B70B
 ```
 
 https://mybot314.ru/tekegram_catalog/

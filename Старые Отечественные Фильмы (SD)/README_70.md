@@ -1,3 +1,55 @@
+###  Публикация: 1584084   (188680) от 14.11.2022
+
+Это сильнее меня (1973) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_188680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за отчима любимой девушки Макар попадает в тюрьму. Таня уходит из дома и устраивается на судоремонтный завод. Серьезные чувства к ней испытывает бригадир и хороший парень Алексей Углов. Она соглашается выйти за него замуж. Однако возвращается Макар, устраивается сварщиком в бригаду Углова и действительные чувства невесты делают Алексея несчастным...Производство: СССР, МосфильмЖанр: МелодрамаРежиссер: Федор ФилипповАктеры: Александр Михайлов, Иван Гаврилюк, Валентина Малявина, Ксения Минина, Юрий Гончаров, Ефим Копелян, Мария Пастухова, Виктор Филиппов, Рамаз Гиоргобиани, Наталья Воробьева, Игорь Янковский, Наталья Гурзо, Борис НовиковПродолжительность: 01:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3209893F8703C98F67472C9145F20241BB2E07B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264658   (188584) от 14.11.2022
+
+Нежданно - негаданно (1983) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_188584.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти дяди, Жанна Капустина, скромная сотрудница одной из московских сберкасс, получает в наследство огромную коллекцию картин и антиквариата. Жанна обращается за юридической подмощью к нотариусу Илье Петровичу. Но вскоре влюбляется в него.Производство: СССР, МосфильмЖанр: КомедияРежиссер: Геннадий МелконянАктеры: Татьяна Догилева, Юрий Богатырев, Галина Польских, Александр Ширвиндт, Сергей Мартынов, Олег Анофриев, Светлана Петросьянц, Татьяна Ташкова и др.Продолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5E7F744857E42BF898BD2A8E490ECC1F7F6668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591274   (187535) от 17.11.2022
 
 Вадим (1910) WEBRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187535.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187332.jpg" />
+  <img src="Z:/picture/005/save_picture_187332.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186099.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185263.jpg" />
+  <img src="Z:/picture/004/save_picture_185263.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185092.jpg" />
+  <img src="Z:/picture/004/save_picture_185092.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184171.jpg" />
+  <img src="Z:/picture/004/save_picture_184171.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183202.jpg" />
+  <img src="Z:/picture/004/save_picture_183202.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183160.jpg" />
+  <img src="Z:/picture/004/save_picture_183160.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181101.jpg" />
+  <img src="Z:/picture/005/save_picture_181101.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179950.jpg" />
+  <img src="Z:/picture/005/save_picture_179950.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179891.jpg" />
+  <img src="Z:/picture/005/save_picture_179891.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179824.jpg" />
+  <img src="Z:/picture/005/save_picture_179824.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179580.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179528.jpg" />
+  <img src="Z:/picture/005/save_picture_179528.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178960.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177494.jpg" />
+  <img src="Z:/picture/005/save_picture_177494.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177435.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177390.jpg" />
+  <img src="Z:/picture/005/save_picture_177390.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176411.jpg" />
+  <img src="Z:/picture/004/save_picture_176411.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176354.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174926.jpg" />
+  <img src="Z:/picture/004/save_picture_174926.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174252.jpg" />
+  <img src="Z:/picture/004/save_picture_174252.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173694.jpg" />
+  <img src="Z:/picture/004/save_picture_173694.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173158.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB4724A2FA33A00446023BDB66A453CAD1C0EBD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667751   (172971) от 15.10.2023
-
-Долгие проводы (1971) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложные отношения у Евгении Васильевны с сыном-старшеклассником Сашей. Выросший без отца, давно оставившего семью, он стал тяготиться чрезмерной опёкой матери, души в нем не чаявшей. Побывав во время летних каникул у отца, поработав вместе с ним в археологической экспедиции, юноша, желая обрести независимость, хочет переехать в Новосибирск. Узнав об этом, Евгения (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: драмаРежиссер: Кира МуратоваАктеры: Зинаида Шарко, Олег Владимирский, Татьяна Мычко, Юрий Каюров, Светлана Кабанова, Лидия Драновская, Лидия Базильская, Марчелла Чеботаренко, Игорь Старков, Елена КоваленкоСубтитры: английскиеПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6A06993D566978FED4B9A1EBE70532D500643F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669503   (172838) от 16.10.2023
-
-Дом в сугробах (1928) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172838.jpg" />
-</div>
-
-
-###  Подробнее
-
-По рассказу Евгения Замятина «Пещера».
-Петроград. 1919 год. Гражданская война парализовала жизнь многих простых. Проживая в одном доме, разные семьи по-разному справляются с ситуацией.
-Логотип телеканала.Производство: СССР, Совкино (Ленинград)Жанр: драма, короткометражный, немое киноРежиссер: Фридрих ЭрмлерАктеры: Федор Никитин, Татьяна Окова, Валерий Соловцов, А. Бастунова, Яков Гудкин, Галина Шапошникова, Владимир Плотников, МасаевСубтитры: русские (интертитры)Продолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344658457FC661F71AACB9AC510D137E1E2A81F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

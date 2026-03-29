@@ -1,3 +1,29 @@
+###  Публикация: 553028   (440174) от 29.09.2012
+
+[Игра] (Android) Bad Piggies HD v1.0 2012
+
+>>След.
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_440174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плохие Свиньи для Андроид - это новая игра от создателей Angry Birds. На этот раз игроку представиться возможность играть за тех самых свиней-похитителей птичьих яиц, против которых мы сражались во всех частях Angry Birds! Особенности геймплея Bad Piggies для Андроид - игра более реалистичнее, как всегда красочная 3D графика и музыкальное сопровождение. Плохие Поросята для Андроид - это очередная Головоломка от всемирно известного разработчика Rovio Mobile.Android 2.2 и вышеЖанр: Головоломки,Аркады
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552959   (440160) от 29.09.2012
 
 Инструкция по восстановлению кирпича (Samsung SGSII GT-I9100) после неудачного WIPE
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440160.jpg" />
+  <img src="Z:/picture/005/save_picture_440160.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438870.jpg" />
+  <img src="Z:/picture/008/save_picture_438870.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_438285.jpg" />
+  <img src="Z:/picture/005/save_picture_438285.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437801.jpg" />
+  <img src="Z:/picture/008/save_picture_437801.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436381.jpg" />
+  <img src="Z:/picture/008/save_picture_436381.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436132.jpg" />
+  <img src="Z:/picture/008/save_picture_436132.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436029.jpg" />
+  <img src="Z:/picture/008/save_picture_436029.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435869.jpg" />
+  <img src="Z:/picture/008/save_picture_435869.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_435313.jpg" />
+  <img src="Z:/picture/005/save_picture_435313.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_435312.jpg" />
+  <img src="Z:/picture/005/save_picture_435312.jpg" />
 </div>
 
 
@@ -287,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434381.jpg" />
+  <img src="Z:/picture/008/save_picture_434381.jpg" />
 </div>
 
 
@@ -313,7 +339,7 @@ SkySafari 4 Pro Astronomy 4.4.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433582.jpg" />
+  <img src="Z:/picture/008/save_picture_433582.jpg" />
 </div>
 
 
@@ -341,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433300.jpg" />
+  <img src="Z:/picture/008/save_picture_433300.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ MX Player Pro v1.26.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433278.jpg" />
+  <img src="Z:/picture/008/save_picture_433278.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_433118.jpg" />
+  <img src="Z:/picture/005/save_picture_433118.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_432787.jpg" />
+  <img src="Z:/picture/005/save_picture_432787.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430424.jpg" />
+  <img src="Z:/picture/005/save_picture_430424.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Mini Dialer for Android Wear 1.09 [Ru] - Вызовы с помощью часо
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429182.jpg" />
+  <img src="Z:/picture/008/save_picture_429182.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Calendar for Android Wear 1.18 [Ru] - Календарь для SmartWatch
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429181.jpg" />
+  <img src="Z:/picture/008/save_picture_429181.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Voice PRO 3.3.11 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428953.jpg" />
+  <img src="Z:/picture/008/save_picture_428953.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428804.jpg" />
+  <img src="Z:/picture/008/save_picture_428804.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428708.jpg" />
+  <img src="Z:/picture/005/save_picture_428708.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428549.jpg" />
+  <img src="Z:/picture/005/save_picture_428549.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428301.jpg" />
+  <img src="Z:/picture/005/save_picture_428301.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428131.jpg" />
+  <img src="Z:/picture/005/save_picture_428131.jpg" />
 </div>
 
 
@@ -677,32 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063545   (428047) от 19.10.2016
-
-Смерть в кино (1990) IPTVRip [H.264] [MP4|696x572@744x572]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже построены декорации, но творческой группы еще нет. Тогда сторож сдает пристройки «дикарям». Затевается застолье. В пик веселья появляются оператор и помощник режиссера, которые втайне от всех снимают гулянку. Спровоцировав ссору, мастерски разыгрывают убийство. За расследование берется сам сторож — бывший сотрудник НКВД. Подозревается каждый. Но жертвой его дотошных (   Читать дальше...   )Производство: СССР / Cinebridge, МосфильмЖанр: КриминалРежиссер: Константин ХудяковАктеры: Анатолий Ромашин, Ирина Розанова, Иван Бортник, Владислав Галкин, Леонид Каневский, Мария Константинова, Александр Парра, Андрей Сергеев, Елена Шанина, Юлия РомашинаПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DDE981249EB683F75F6D3DCCB6CD89C07087D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

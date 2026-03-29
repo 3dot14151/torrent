@@ -6,7 +6,7 @@ Slimjet 14.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726281.jpg" />
+  <img src="Z:/picture/008/save_picture_726281.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.28 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726269.jpg" />
+  <img src="Z:/picture/008/save_picture_726269.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The KMPlayer 4.2.2.22 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726268.jpg" />
+  <img src="Z:/picture/008/save_picture_726268.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TechSmith SnagIt 2019.1.1 Build 2860 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726256.jpg" />
+  <img src="Z:/picture/008/save_picture_726256.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PhotoFiltre Studio X 10.12.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726252.jpg" />
+  <img src="Z:/picture/008/save_picture_726252.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726249.jpg" />
+  <img src="Z:/picture/008/save_picture_726249.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ WinX DVD Ripper Platinum 8.5.0.192 Build 01.04.2017 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726237.jpg" />
+  <img src="Z:/picture/008/save_picture_726237.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ventoy 1.0.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726234.jpg" />
+  <img src="Z:/picture/008/save_picture_726234.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Nvidia DriverPack v.419.17 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726224.jpg" />
+  <img src="Z:/picture/008/save_picture_726224.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ uTorrent Stable 3.5.5 (build 45081) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726217.jpg" />
+  <img src="Z:/picture/008/save_picture_726217.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ BELOFF 2019.2.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726085.jpg" />
+  <img src="Z:/picture/008/save_picture_726085.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ZD Soft Screen Recorder 9.4 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726079.jpg" />
+  <img src="Z:/picture/008/save_picture_726079.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726075.jpg" />
+  <img src="Z:/picture/008/save_picture_726075.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ EagleGet 2.0.4.11 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726067.jpg" />
+  <img src="Z:/picture/008/save_picture_726067.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ The Bat! Professional 8.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726041.jpg" />
+  <img src="Z:/picture/008/save_picture_726041.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ FastStone Image Viewer 5.7 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726011.jpg" />
+  <img src="Z:/picture/008/save_picture_726011.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ IObit Uninstaller 5.4.0.119 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725994.jpg" />
+  <img src="Z:/picture/008/save_picture_725994.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Cumulative Updates KB4016240 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725991.jpg" />
+  <img src="Z:/picture/008/save_picture_725991.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ The Foundry MODO 11.0v1 build 138707 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725984.jpg" />
+  <img src="Z:/picture/008/save_picture_725984.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ KMSAuto++ 1.5.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725954.jpg" />
+  <img src="Z:/picture/008/save_picture_725954.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Format Factory 4.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725882.jpg" />
+  <img src="Z:/picture/008/save_picture_725882.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FastStone Image Viewer 5.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725877.jpg" />
+  <img src="Z:/picture/008/save_picture_725877.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Soft4Boost PC Win Booster Free 9.3.7.551 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725874.jpg" />
+  <img src="Z:/picture/008/save_picture_725874.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ NVIDIA GeForce Desktop 381.89 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725872.jpg" />
+  <img src="Z:/picture/008/save_picture_725872.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ ESET NOD32 Internet Security 15.0.23.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725867.jpg" />
+  <img src="Z:/picture/008/save_picture_725867.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Stardock Fences 3.0.4.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725770.jpg" />
+  <img src="Z:/picture/008/save_picture_725770.jpg" />
 </div>
 
 

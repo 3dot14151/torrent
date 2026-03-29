@@ -1,3 +1,134 @@
+###  Публикация: 1374967   (47696) от 06.08.2024
+
+Пылающий / Beoning / Burning (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек Ли Джон-су, ничем особо не занятый, встречает соседскую девушку Хэ-ми, с которой они вместе росли. Та собирается съездить в Африку и просит нового знакомого присмотреть за её кошкой, а возвращается из поездки не одна, а с состоятельным молодым человеком Беном. Однажды парочка приходит к Джон-су, и Бен рассказывает о своем тайном хобби. С этого момента (   Читать дальше...   )Производство: Корея Южная / Pine House Film, NHK, Now FilmsЖанр: Детектив, триллер, драмаРежиссер: Ли Чхан-донАктеры: Ю А-ин, Чон Джон-со, Стивен Ян, Ким Су-гён, Чхве Сын-хо, Мун Сон-гын, Мин Бок-ки, Пан Хе-ра, Ли Бон-нён, Пак Сын-тхэПеревод: Дублированный (DVD R5 НД Плэй)Субтитры: Русские (R5, Focs), Английские (Full, SDH)Продолжительность: 02:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478A53BFFB4E0D2E1EAA61CDE23A7DB8BFDAA2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741382   (47690) от 06.08.2024
+
+Путь дракона / Meng long guo jiang / The Way of the Dragon (1972) UHD BDRemux [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тан приезжает из Гонконга в Рим, чтобы помочь друзьям семьи, чей ресторан задумали отобрать местные мафиози. Привыкшие всегда получать то, что захотят и не останавливаться ни перед чем, бандиты совершили большую ошибку, недооценив с виду скромного молодого человека. Не сумев справиться с ним своими силами, мафиози нанимают лучших европейских и японских мастеров боевых (   Читать дальше...   )Производство: Гонконг / Golden Harvest Films, Concord Productions, Golden Harvest CompanyЖанр: боевик, криминалРежиссер: Брюс ЛиАктеры: Брюс Ли, Нора Миао, Чак Норрис, Вэй Пинао, Роберт Уолл, Ван Вэнг, Тони Лю, Юникорн Чан, Мализа Лонго, Фу Чинг Чен, Чин ТиПеревод: Многоголосый профессиональный (Superbit, Twister, СТС, Ren-TV)Язык озвучки: Русский, Английский, КитайскийСубтитры: Русские, английскиеПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CABDE48A0CD76CA738090F27D48263AA13CC09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345523   (47415) от 09.08.2024
+
+История двух сестер / Janghwa, Hongryeon / A Tale of Two Sisters (2003) BDRip [H.265/1080p-LQ] [10-bit] [AVO] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две сестры возвращаются домой после продолжительного пребывания в психиатрической лечебнице. Ситуация в доме носит напряженный характер, так как их мачеха очень нервно себя ведёт. Вскоре начинают происходить странные вещи, сёстрам кажется, что в доме есть кто-то ещё.
+По мотивам корейской народной сказки эпохи Чосон "Janghwa Hongreyon jeon / Сказка про Розу и (   Читать дальше...   )Производство: Корея Южная / B.O.M. Film Productions Co. Ltd., Masulpiri FilmsЖанр: Ужасы, Триллер, ДрамаРежиссер: Ким Джи-унАктеры: Лим Су-джон, Мун Гын-ён, Ём Джон-а, Ким Гап-су, У Ги-хон, Ли Дэ-ён, Ли Сын-би, Но Сын-джин, Пак Ми-хёнПеревод: АвторскийСубтитры: русскиеПродолжительность: 01:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE6DF32235510DF611F77E788516B450B10A631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742022   (47364) от 09.08.2024
+
+Близнецы-драконы / Seong lung wui / Twin Dragons (1992) BDRip [H.265/1080p] [10-bit] [GBR Transfer Hong Kong Cut Remastered]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два идентичных близнеца были разлучены при рождении и оказались в разных семьях и по разные стороны Тихого океана. Один из близнецов — специалист по боевым искусствам, хулиган и задира, работает автомехаником в гараже отеля, в котором останавливается во время гастролей в Гонконге его брат — знаменитый музыкант всемирно известный дирижер из Нью-Йорка. Когда они встретятся, (   Читать дальше...   )Производство: Гонконг / Golden Way Films Ltd., Hong Kong Film Directors GuildЖанр: боевик, комедияРежиссер: Ринго Лам, Цуй ХаркАктеры: Джеки Чан, Мэгги Чун, Тедди Робин, Джеймс Вон, Сильвия Чан, Кирк Вон, Дэвид Цзян, Мэйбл Чун, Альфред Чун, Джонни ВанПеревод: многоголосый профессиональный, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, английский, китайскийСубтитры: русские, английские (SDH)Продолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00ED0E8B36B10D2B80CBA1F6F067FE54A7720A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917047   (47307) от 10.08.2024
+
+Великий гипнотизёр / Cui mian da shi (2014) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47307.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об известном психологе с блестящей карьерой. Однажды он сталкивается с проблемным пациентом, встречи с которым даются ему непросто…Производство: Китай | Wanda Media Co.Жанр: Триллер, Драма, ДетективРежиссер: Лэсте ЧэньАктеры: Джин Ху, Жонг Люй, Карен Мок, Яоцин Ван, Сюй ЧжэнПеревод: Одноголосый закадровый, авторский (Дольский), Любительский одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA14B8D453D332593F63E441A0A251B9BB21CB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742113   (47281) от 10.08.2024
 
 Осада Коулуна / Jiu Long cheng zhai Wei cheng / Twilight of the Warriors: Walled In (2024) BDRip [H.264/1080p] [MVO]
@@ -6,7 +137,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47281.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47242.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47116.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46998.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46924.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46903.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46613.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46508.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46489.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46467.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46256.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46192.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46031.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46001.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45993.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45836.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45820.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45786.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45547.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45546.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45527.jpg" />
 </div>
 
 
@@ -538,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D87C1E5D7D85422C1869938C2220BB1B0D2E37DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745716   (45502) от 27.08.2024
-
-Собачья жизнь: Друзья навек / Zai jian, Li Kele / So Long for Love (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в семье наступают непростые времена, на помощь приходит очаровательный щенок по кличке Кола. Новый друг способен вдохнуть жизнь и научить людей искренней любви и преданности.Производство: Китай / Matt Film, Asia Pacific National Film Cultural Media, Beijing DengfengЖанр: семейный, драмаРежиссер: Ван СяолеАктеры: Янь Ни, Тань Сунъюнь, Джеки У, Цзян Лун, Чжао Сяотан, Фэн Лэй, Ли Хучэн, Гао Лу, Guoxiong Hu, Лю ЯцзиньПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: КазахскиеПродолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A4D8B7BA5C6772093BBE6F2DB0B95F73A4F878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746139   (45269) от 29.08.2024
-
-Линия фронта / Gojijeon / The Front Line (2011) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Февраль 1953 года. Корейская война близится к концу. Командования ведут переговоры о прекращении огня и заключении перемирия, но их армии все ещё продолжают сражаться. Особенно ожесточённые бои идут в месте, где скоро будет пролегать граница между Севером и Югом — в районе холма Эрок. С каждым новым боем холм отходит то одной, то другой стороне...Производство: Южная Корея / A-Po Films, TPS CompanyЖанр: драма, боевик, военный, историяРежиссер: Чан ХонАктеры: Ха Гюн Син, Ко Су, Ха Кён Шин, Чжэ Хон Ли, Сын Су Рю, Чан Сок Ко, Ок Бин Ким, Сын Рён Рю, Дэвил Ли, Чжон Юл Су, Мин Чхве (II), Мин Хо Чо, Рок Гюн Ким, Сон Ён Хан, Су Хо ХаПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Indiotka; Okidzyke), английскиеПродолжительность: 02:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B24841FA04C228127D7A05FFE50CDBB27B48A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746073   (45267) от 29.08.2024
-
-Пустой дом / Bin-jip / 3-Iron (2004) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь день Тэ-сук разъезжает на мотоцикле по городу, развешивая на замочных скважинах дверей домов рекламные листовки. А вечером он сорвёт листовку там, где отсутствует хозяин, и временно пропишется в его квартире. Тэ-сук моет посуду, стирает бельё и чинит вещи. В одном из домов он не замечает странную молчаливую женщину. Сун-хва давно несчастлива в браке, страдает (   Читать дальше...   )Производство: Южная Корея, Япония / Cineclick Asia, Kim Ki-Duk FilmЖанр: драма, мелодрама, криминалРежиссер: Ким Ки ДукАктеры: Чжэ Хи, Сын Юн Ли, Хёк Хо Квон, Чон Хо Чхве, Чжу Сук Ли, Ми-сук Ли (II), Сун Хёк Мун, Чжэ А Пак, Чжэ Юн Чан, Хан Ким, Сэ Чжин Пак, Дон Чжин Пак, Чжин Мо Чу (II), Чон Су ЛиПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Мистерия DVD; @PD), английскиеПродолжительность: 01:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD4AE5BF8B4DDAC327A7F310B0D0586EF2C740D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746181   (45189) от 30.08.2024
-
-Пришельцы. Назад в будущее  / Oegye+in 2bu / Alienoid: The Return to the Future (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охота за волшебным Божественным Мечом, позволяющим путешествовать во времени, продолжается. Древние монахи-даосы из 14-го века пытаются заполучить чудесный артефакт. Тем временем, Ли Ан противостоит злым инопланетянам и пытается вернуться с помощью Меча в свое время. В 21-м веке инопланетные преступники готовятся устроить мощный взрыв, который убьет множество людей. (   Читать дальше...   )Производство: Корея Южная / Caper Film, CJ EntertainmentЖанр: фантастика, боевик, приключения, фэнтезиРежиссер: Чхве Дон-хунАктеры: Рю Джун-ёль, Ким У-бин, Ким Тхэ-ри, Чо У-джин, Ём Джон-а, Со Джи-соп, Ю Джэ-мён, Ким И-сон, Юн Гён-хо, Ким Джон-суПеревод: Дублированный (Кипарис), многоголосый (TVShows)Язык озвучки: Русский, КорейскийСубтитры: Русские, Английские, Корейские, КитайскиеПродолжительность: 02:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62167429E47C1E0FCF9D119B195105E4A30CBD60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746536   (45069) от 31.08.2024
-
-Криминальный город. Возмездие / Beomjoe dosi 4 / Beomjoidosi 4 / The Roundup: Punishment (2024) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45069.jpg" />
-</div>
-
-
-###  Подробнее
-
-2018 год. Расследуя убийство соотечественника на Филиппинах, детектив Ма Сок-то выясняет, что парень работал на бандитов, содержащих нелегальное онлайн-казино. Поскольку заслуженный следователь ничего не понимает в цифровых технологиях, в команду берут двух новичков из отдела расследований киберпреступлений, а консультантом — старого знакомого Чан И-су.Производство: Южная Корея / ABO Entertainment, B.A. Entertainment, Big Punch PicturesЖанр: криминал, боевик, детективРежиссер: Хо Мён-хэнАктеры: Ма Дон-сок, Ким Му-ёль, Пак Чи-хван, Ли Дон-хви, Ли Бом-су, Ким Мин-джэ, Ли Джи-хун, Ким До-гон, Ким Джи-хун, Хён Бон-щикПеревод: Авторский (Юрий Сербин 18+)Язык озвучки: русский, корейскийСубтитры: китайские, английские (PGS)Продолжительность: 01:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EADEE17640BE51C859D492066EFCB6F9F8EB57
 ```
 
 https://mybot314.ru/tekegram_catalog/

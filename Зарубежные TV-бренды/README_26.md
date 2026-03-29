@@ -1,3 +1,107 @@
+###  Публикация: 1509978   (792674) от 14.11.2021
+
+По следам пришельцев / In Search of Aliens (2014) SATRemux [H.264] (сезон 1, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джорджио Цукалос, один из создателей "Древних пришельцев", популярного сериала на канале H2, представляет новый телевизионный проект, связанный с поисками следов инопланетного вмешательства в человеческую историю.Производство: США, Prometheus EntertainmentЖанр: Документальный, история, исследованияРежиссер: Кевин БёрнсПеревод: Двуголосый профессиональный (H2)Субтитры: отсутствуютПродолжительность: серии x ~00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627CA7AC64635937BD5CB3C21953DA18567D5F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509824   (792668) от 14.11.2021
+
+Древние пришельцы / Ancient Aliens (2015) BDRip [H.264] (сезон 10, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно ли, что разумные формы жизни посетили Землю тысячи лет назад, принеся с собой технологии кардинально повлиявшие на ход истории и развития человечества? Теория "древних пришельцев", опубликованная в 1968 году в бестселлере Эриха фон Дэникена "Колесницы богов", пошатнула представления людей об общеизвестном прогрессе человечества. Древние (   Читать дальше...   )Производство: США, Prometheus Entertainment, A&E Television Networks, LLC.Жанр: Документальный, история, исследованияРежиссер: Кевин БёрнсПеревод: Многоголосый профессиональный (H2)Субтитры: отсутствуютПродолжительность: серии x ~00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775CC6CFF5C8D83BA42479A24647C6361A62CFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201240   (792654) от 24.01.2018
+
+History Channel: Вселенная / The Universe (2007-2012) BDRip [H.264/720p-LQ] (сезон 1-6, серии 1-78 из 78)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792654.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом сериале с помощью современной компьютерной графики и, основываясь на передовых исследованиях в области космоса, создатели фильма смогли воссоздать то, что происходит на других планетах, в других галактиках, вообразить какие формы жизни могли бы развиться в других атмосферах. Вы сможете увидеть космические бедствия, параллельные вселенные, скорость света и (   Читать дальше...   )Телекомпания: США, Flight 33 ProductionsЖанр: Документальный, историяРежиссер: Лаура Верклан, Луис Тарантино, Darryl RehrПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 78 х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D18994AF655FEC2CE6FE1EBC86AEEBBDE202EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193886   (792602) от 24.01.2018
+
+Расшифрованные сокровища (Сокровища мира) / Treasures Decoded (2017) DVB (сезон 4, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокровища прошлого хранят свои секреты, которые попытается разгадать группа ученых. Надо ли говорить о том, что эти энтузиасты планируют применить в своей работе всё имеющееся в их распоряжении ультрасовременное оборудование и по ходу дела раскроют телезрителям новые величайшие тайны о жизни далёких предков и мироздании в целом.Производство: Великобритания, Канада, Entertainment One & Blink FilmsЖанр: Документальный, альтернативная история, псевдоисторияРежиссер: Ник Харди, Том Фоули, Эллиот КьюПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE5A133DD576408E58FBF9FE60E662A22F1C11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387229   (792431) от 31.05.2020
 
 NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792431.jpg" />
+  <img src="Z:/picture/008/save_picture_792431.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery. Научные приколы / SciJinks (2018) WEB-DL [H.264/1080p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792357.jpg" />
+  <img src="Z:/picture/008/save_picture_792357.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Как построить... что угодно / How to Build... Ev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792352.jpg" />
+  <img src="Z:/picture/008/save_picture_792352.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC: Планеты / The Planets (2019) HDTVRip [H.264/720p-LQ] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792317.jpg" />
+  <img src="Z:/picture/008/save_picture_792317.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792177.jpg" />
+  <img src="Z:/picture/008/save_picture_792177.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792122.jpg" />
+  <img src="Z:/picture/008/save_picture_792122.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791776.jpg" />
+  <img src="Z:/picture/008/save_picture_791776.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ DV: Улыбка удачи / The Joy Of Chance (2016) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791773.jpg" />
+  <img src="Z:/picture/008/save_picture_791773.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Animal Planet: Спасение животных: ураган Харви / Surv
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791685.jpg" />
+  <img src="Z:/picture/008/save_picture_791685.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791606.jpg" />
+  <img src="Z:/picture/008/save_picture_791606.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791397.jpg" />
+  <img src="Z:/picture/008/save_picture_791397.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791249.jpg" />
+  <img src="Z:/picture/008/save_picture_791249.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791201.jpg" />
+  <img src="Z:/picture/008/save_picture_791201.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791194.jpg" />
+  <img src="Z:/picture/008/save_picture_791194.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791193.jpg" />
+  <img src="Z:/picture/008/save_picture_791193.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791190.jpg" />
+  <img src="Z:/picture/008/save_picture_791190.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ DV: Изящество логики / The Joy of Logic (2013) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791168.jpg" />
+  <img src="Z:/picture/008/save_picture_791168.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791144.jpg" />
+  <img src="Z:/picture/008/save_picture_791144.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790368.jpg" />
+  <img src="Z:/picture/008/save_picture_790368.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790169.jpg" />
+  <img src="Z:/picture/008/save_picture_790169.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ DV: "Вояджер" - полет за пределы Солнечной сис�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790003.jpg" />
+  <img src="Z:/picture/008/save_picture_790003.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789790.jpg" />
+  <img src="Z:/picture/008/save_picture_789790.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3ACEFA7E0091EAD90696392A5CEB6658B3BA8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266304   (789215) от 13.01.2019
-
-Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/720p-LQ] [50 fps] (Сезон 1, серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789215.jpg" />
-</div>
-
-
-###  Подробнее
-
-В любой момент стихийное бедствие – ураган, потоп или наводнение – может смести с лица земли такие города, как Лондон, Нью-Йорк, Майами и Венеция, поэтому ведущие специалисты служб экстренного реагирования разрабатывают проекты по защите крупных мегаполисов от схождения разрушительных природных катаклизмов. Каждая серия этой документальной программы посвящена истории (   Читать дальше...   )Производство: Канада, Cineflix Inc. Production, Discovery ChannelЖанр: Документальный, катастрофыРежиссер: Билл Ферехок , Дилан РобертсонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561351C446D03744A53D6434A816102839E16575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275974   (788971) от 14.01.2019
-
-Лакомства Шуньдэ / Delicacies Shunde (2016) WEBRip [H.264/720p-LQ] (серии 1-2)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кухня Шуньдэ представляет стили приготовления блюд в провинции Шуньдэ (Shunde) , которая расположена на востоке Китая. История этой кухни уходит вглубь веков. Упоминания о кулинарных традициях в этих местах относятся эпохе правления династии Цинь. Начиная с времен правления династии Сун, Шуньдэнская кухня является одной из восьми главных кухонь Китая. В Шуньдэнской (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, путешествия, кулинарияРежиссер: Фу ЖаоПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989B2294BEEBAE02504425EF2E5552866D7F1B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511591   (788783) от 21.11.2021
-
-NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осиротевшая тигрица Майя пишет свои собственные правила борьбы с дикими собаками и соперничающими тиграми, чтобы сохранить свою крепость на главной территории Центральной Индии.Производство: Южная Африка / Earth Touch, Aishwarya SridharЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Айшвария ШридхарПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554573D162FF09C76F2650FCB4FF1CD8B3AB67B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203039   (788561) от 01.02.2018
-
-History Channel: Тайны коптских мумий / Coptic Mummies of Antinoopolis (2012) DVB [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788561.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 1990-х годов французский археолог Альбер Гайе сделал удивительное открытие. В центральной части Египта он обнаружил мумии, текстиль и другие артефакты, принадлежащие коптам – первым христианам Египта. Все это время мумии были спрятаны в подвалах Лувра, и были лишь недавно обнаружены сотрудниками музея во время инвентаризации. Спустя целое столетие ученые (   Читать дальше...   )Производство: Франция, Arte France, Cargo Films and Ie CNRS ImagesЖанр: Документальный история, исследования, археологияРежиссер: Жаки БастидПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29985672BCF4D8FD0B6F87118A763BCDFF0F675
 ```
 
 https://mybot314.ru/tekegram_catalog/

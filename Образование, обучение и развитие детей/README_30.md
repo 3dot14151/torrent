@@ -1,3 +1,55 @@
+###  Публикация: 1025440   (709314) от 12.06.2016
+
+А. Д. Ботвинников и др. | Черчение (7-8 класс) (1992) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709314.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебник наряду с теоретическим материалом включены вопросы и задания, графические и практические работы, необходимые для закрепления и повторения пройденного материала.Жанр: УчебникФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CE85691F40B8FCAF8FC555B6EF9800C5E8129D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533306   (707209) от 23.02.2022
+
+Виктор Гура, Тамара Курдюмова | Шолохов в школе: Книга для учителя (1986) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_707209.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлен в соответствии с программой средней школы литературоведческий материал, методические рекомендации для изучения жизни и творчества великого советского писателя.Жанр: сборник, литературоведение, педагогикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E38265BB9FCBF71B05EF2CBAF5D3B89E6DDEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131739   (706597) от 06.05.2017
 
 М.В. Дружинина | Большая книга досуга. Сто затей для друзей (2007) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706597.jpg" />
+  <img src="Z:/picture/008/save_picture_706597.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706462.jpg" />
+  <img src="Z:/picture/008/save_picture_706462.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705859.jpg" />
+  <img src="Z:/picture/008/save_picture_705859.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704462.jpg" />
+  <img src="Z:/picture/008/save_picture_704462.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702665.jpg" />
+  <img src="Z:/picture/008/save_picture_702665.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702324.jpg" />
+  <img src="Z:/picture/008/save_picture_702324.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700553.jpg" />
+  <img src="Z:/picture/008/save_picture_700553.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700536.jpg" />
+  <img src="Z:/picture/008/save_picture_700536.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700314.jpg" />
+  <img src="Z:/picture/008/save_picture_700314.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699955.jpg" />
+  <img src="Z:/picture/008/save_picture_699955.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699757.jpg" />
+  <img src="Z:/picture/008/save_picture_699757.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694920.jpg" />
+  <img src="Z:/picture/008/save_picture_694920.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694908.jpg" />
+  <img src="Z:/picture/008/save_picture_694908.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694706.jpg" />
+  <img src="Z:/picture/008/save_picture_694706.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694280.jpg" />
+  <img src="Z:/picture/008/save_picture_694280.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694076.jpg" />
+  <img src="Z:/picture/008/save_picture_694076.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693919.jpg" />
+  <img src="Z:/picture/008/save_picture_693919.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691836.jpg" />
+  <img src="Z:/picture/008/save_picture_691836.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690549.jpg" />
+  <img src="Z:/picture/008/save_picture_690549.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690437.jpg" />
+  <img src="Z:/picture/008/save_picture_690437.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689582.jpg" />
+  <img src="Z:/picture/008/save_picture_689582.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688206.jpg" />
+  <img src="Z:/picture/008/save_picture_688206.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687249.jpg" />
+  <img src="Z:/picture/008/save_picture_687249.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686673.jpg" />
+  <img src="Z:/picture/008/save_picture_686673.jpg" />
 </div>
 
 
@@ -632,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:535F6BC79D3B95DDF0DCFE671CDB199E853910B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133844   (686661) от 16.05.2017
-
-Кэрол Вордерман | Как объяснить ребенку математику. Иллюстрированный справочник для родителей (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга станет отличным помощником для всех родителей и детей, у которых возникают сложности с выполнением домашних заданий по математике. В ней доступно объясняются основные понятия арифметики, а также разбираются начальные темы геометрии, тригонометрии, алгебры, статистики и теории вероятности. Благодаря наглядным схемам, диаграммам и иллюстрациям, а также пошаговым (   Читать дальше...   )Жанр: Математика, дошкольное образованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A66D09151B7C3FA1D42EC545A11F1015FDF2562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506921   (686405) от 07.06.2012
-
-Г.В. Трафимова | Колючее чудо [2003] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько иголок у ежа? Живут ли ежи в морях? Чем прославилась верблюжья колючка? Где растёт колючка без колючек? Кто такой шипохвост? Бывает ли не колючий крыжовник? Как ехидна чистит свою колючую шубу? Чем наносит уколы скорпион? На эти и другие вопросы ты найдёшь ответы в этой книге серии "Читай и удивляйся".2003Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30624CA7BE147C34A012269B421B5E1DF89D15C
 ```
 
 https://mybot314.ru/tekegram_catalog/

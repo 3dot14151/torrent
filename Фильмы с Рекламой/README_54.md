@@ -1,3 +1,29 @@
+###  Публикация: 1568984   (457436) от 10.08.2022
+
+Привезите его труп / Bring Him Back Dead (2022) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457436.jpg" />
+</div>
+
+
+###  Подробнее
+
+После неудачного ограбления жестокой банде преступников приказано выследить и уничтожить человека, который предал их и сбежал с добычей.Производство: США / Salem House Films, Millman Productions, Otsego MediaЖанр: БоевикРежиссер: Марк СэваджАктеры: Луис Мэндилор, Дэниэл Болдуин, Гэри Дэниелс, Кэти Кин, Кайл Кервин, ЛеДжон Вудс, Chris Matteis, Chris Torem, Ричард Уэддингхэм, Том ПарнеллПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:24:25Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4070A17BECA902332FC3A93C771B8AB1687862AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321759   (456695) от 25.08.2019
 
 Одной крови / La Misma Sangre (2019) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456695.jpg" />
+  <img src="Z:/picture/008/save_picture_456695.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456576.jpg" />
+  <img src="Z:/picture/008/save_picture_456576.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456450.jpg" />
+  <img src="Z:/picture/008/save_picture_456450.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456404.jpg" />
+  <img src="Z:/picture/008/save_picture_456404.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455412.jpg" />
+  <img src="Z:/picture/008/save_picture_455412.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454918.jpg" />
+  <img src="Z:/picture/008/save_picture_454918.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454344.jpg" />
+  <img src="Z:/picture/008/save_picture_454344.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454231.jpg" />
+  <img src="Z:/picture/008/save_picture_454231.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454230.jpg" />
+  <img src="Z:/picture/008/save_picture_454230.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454167.jpg" />
+  <img src="Z:/picture/008/save_picture_454167.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454156.jpg" />
+  <img src="Z:/picture/008/save_picture_454156.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453343.jpg" />
+  <img src="Z:/picture/008/save_picture_453343.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453335.jpg" />
+  <img src="Z:/picture/008/save_picture_453335.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452923.jpg" />
+  <img src="Z:/picture/008/save_picture_452923.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452146.jpg" />
+  <img src="Z:/picture/008/save_picture_452146.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452145.jpg" />
+  <img src="Z:/picture/008/save_picture_452145.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450744.jpg" />
+  <img src="Z:/picture/008/save_picture_450744.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450598.jpg" />
+  <img src="Z:/picture/008/save_picture_450598.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450592.jpg" />
+  <img src="Z:/picture/008/save_picture_450592.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450591.jpg" />
+  <img src="Z:/picture/008/save_picture_450591.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450587.jpg" />
+  <img src="Z:/picture/008/save_picture_450587.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450457.jpg" />
+  <img src="Z:/picture/008/save_picture_450457.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450455.jpg" />
+  <img src="Z:/picture/008/save_picture_450455.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450443.jpg" />
+  <img src="Z:/picture/008/save_picture_450443.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450330.jpg" />
+  <img src="Z:/picture/008/save_picture_450330.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:688471B8874D31D31D4B68C230F287E8D394ADAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247830   (450324) от 16.09.2018
-
-Особые игрушки / Sick for Toys (2018) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рой хороший парень, последнее слово всегда за ним. Недовольный нынешней ситуацией, он принимает приглашение на Рождественский ужин с прекрасной, манящей Эмилией. За ужином Рой понимает, что Эмилия и её странный брат Эдвард не те, кем кажутся.Производство: США / Delco-Cut Productions, Nine Ten FilmsЖанр: УжасыРежиссер: Дэвид Дель РиоАктеры: Камилла Монтгомери, Джон Пол Буркхарт, Джастин Ксавьер Смит, Дэвид Ганнинг, Мелани Томпсон, Моргана Шоу, Кэти Уоллес, Пол Т. Тейлор, Лаура Вельта, Йена МагеррамовПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:28:36Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C438B2BA3FC88B057D23901A271C1B85B642B84C
 ```
 
 https://mybot314.ru/tekegram_catalog/

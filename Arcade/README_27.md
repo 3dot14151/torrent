@@ -1,3 +1,29 @@
+###  Публикация: 1248038   (448057) от 17.09.2018
+
+Super Lucky's Tale (2018) [Ru/En] (2827966/dlc) Repack xatab
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Lucky’s Tale — весёлая и увлекательная платформенная аркада для игроков всех возрастов. Её герой Лаки, неутомимый оптимист и добряк, отправляется в путешествие, чтобы стать смелее и помочь своей сестре спасти Книгу веков от Джинкса, таинственного злодея…Тип издания: RepackРазработчик: PlayfulЖанр: Adventure, Arcade, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982780B9CA52EBE9D29AB51962E18B5A58DF9AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943760   (446791) от 04.10.2015
 
 Color Guardians (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
@@ -6,7 +32,7 @@ Color Guardians (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446791.jpg" />
+  <img src="Z:/picture/008/save_picture_446791.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446290.jpg" />
+  <img src="Z:/picture/008/save_picture_446290.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.6/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444335.jpg" />
+  <img src="Z:/picture/008/save_picture_444335.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Double Dragon: Neon (2014) [En] (1.0/u3) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443617.jpg" />
+  <img src="Z:/picture/008/save_picture_443617.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Injustice 2 (2017) [Ru/Multi] (1.0/u12/dlc) Repack R.G. Catalyst [Legendary Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441298.jpg" />
+  <img src="Z:/picture/008/save_picture_441298.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438767.jpg" />
+  <img src="Z:/picture/008/save_picture_438767.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Gravity Ghost (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437702.jpg" />
+  <img src="Z:/picture/008/save_picture_437702.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436598.jpg" />
+  <img src="Z:/picture/008/save_picture_436598.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Clockwork (2016) [En] (1.0.0.3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436364.jpg" />
+  <img src="Z:/picture/008/save_picture_436364.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) Unofficial CoolGames
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434327.jpg" />
+  <img src="Z:/picture/008/save_picture_434327.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Indivisible (2019) [Ru/Multi] (42940/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431267.jpg" />
+  <img src="Z:/picture/008/save_picture_431267.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Rocket League (2015) [Ru/Multi] (1.53/dlc) Repack Other s [Game of the Year Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430533.jpg" />
+  <img src="Z:/picture/008/save_picture_430533.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429953.jpg" />
+  <img src="Z:/picture/008/save_picture_429953.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Naruto Shippuden Ultimate Ninja 4 [En/Ru] (P) 2009
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428718.jpg" />
+  <img src="Z:/picture/005/save_picture_428718.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.5) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425976.jpg" />
+  <img src="Z:/picture/008/save_picture_425976.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ BloodRayne: Betrayal (2014) [Ru/Multi] (13.10.15) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424251.jpg" />
+  <img src="Z:/picture/008/save_picture_424251.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Goggles - World of Vaporia (2015) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424250.jpg" />
+  <img src="Z:/picture/008/save_picture_424250.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Flood of Light (2017) [En/Ch] (1.1.3) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423608.jpg" />
+  <img src="Z:/picture/008/save_picture_423608.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Rochard [Ru/Multi12] (RePack/1.31) 2011 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423528.jpg" />
+  <img src="Z:/picture/008/save_picture_423528.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 3 Full Burst HD (2017) [Ru/Multi] (1.0.0.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423457.jpg" />
+  <img src="Z:/picture/008/save_picture_423457.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Ultimate Marvel vs Capcom 3 (2017) [En] (1.0/upd1) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423455.jpg" />
+  <img src="Z:/picture/008/save_picture_423455.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ WWE 2K Battlegrounds (2020) [Multi] (1.0.3.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422291.jpg" />
+  <img src="Z:/picture/008/save_picture_422291.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504.1.02) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420345.jpg" />
+  <img src="Z:/picture/008/save_picture_420345.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Unravel Two (2018) [En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417133.jpg" />
+  <img src="Z:/picture/008/save_picture_417133.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Starless (2022) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416073.jpg" />
+  <img src="Z:/picture/008/save_picture_416073.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Starless — это стелс-экшен, где вы в роли одной и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78B0B55F5A1F6D883F06E0BBD9FEF5190447033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066387   (413577) от 25.10.2016
-
-Human Fall Flat (2016) [Ru/Multi] (1.1.2G) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Human: Fall Flat, забавная головоломка, основанная на законах физики м посвященная тому, как не разбиться всмятку во сне. Нам всем приходилось вскакивать посреди ночи из-за того, что во сне мы разбивались, упав с большой высоты. А если бы мы могли остаться во сне и попытаться избежать падения, используя смекалку и законы физики?Тип издания: LicenseРазработчик: Curve DigitalЖанр: Adventure, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5519EA44225A6C0E2D1A47A2A2F89F682CD4A3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

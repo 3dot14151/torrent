@@ -1,3 +1,112 @@
+###  Публикация: 1679462   (138469) от 25.11.2023
+
+Дени Дидро | Монахиня (2005) [MP3, Вероника Язькова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «XVIII век. Зарубежная проза».
+Дени Дидро (05.10.1713 – 31.07.1784) – французский энциклопедист, беллетрист, драматург, просветитель и философ.
+В романе «Монахиня» развертывается трагическая история Сюзанны Симонен, насильно отданной в монастырь. Разоблачение института монашества перерастает в осуждение всякого насилия над правами человека: «Дать обет бедности (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 08:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A848B33F598C0C6AED06E233FC26374D0137A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679324   (138294) от 25.11.2023
+
+Денис Фонвизин | Недоросль (Радиоспектакль) (2006) [MP3, Сергей Харченко, Элла Далматова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шедевр русской драматургии XVIII века комедия «Недоросль», занимает особое место в русской культуре и является одним из основных произведений русской классической литературы, изучаемых в школе.
+Фонвизин – талантливый психолог, мыслитель, художник, был одним из наиболее ярких представителей русского дворянства, особенно остро воспринимавших нравственное опустошение (   Читать дальше...   )Жанр: Русская литература, классика, комедияИздательство: ИДДК, Бизнессофт, ГостелерадиофондПродолжительность: 02:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD8A91213AD98429F55F922646DB470A4CD89CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679493   (138267) от 25.11.2023
+
+Дени Дидро | Нескромные сокровища (2008) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дени Дидро (1713–1784) – французский писатель, философ-просветитель и драматург, основавший «Энциклопедию, или толковый словарь наук, искусств и ремёсел» (1751).
+В романе «Нескромные сокровища» старый колдун дарит императору Конго серебряный перстень, наделенный таинственной силой вызывать на откровение любую женщину. И вот «нескромные» женские сокровища, ко всеобщему (   Читать дальше...   )Жанр: Зарубежная литература, классика, фривольный романИздательство: МедиаКнигаПродолжительность: 12:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF50928CCA795F261F029F47D1B7EF1ED07F6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679458   (137985) от 25.11.2023
+
+Джон Эрнст Стейнбек | Заблудившийся автобус (2020) [MP3, Игорь Гмыза]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Эрнст Стейнбек (1902–1968) – американский прозаик, автор многих известных романов и повестей: «Гроздья гнева» (1939), «К востоку от рая» (1952), «О мышах и людях» (1937), «Зима тревоги нашей» (1961) и других, лауреат Нобелевской премии по литературе (1962).
+Джон Стейнбек не зря предварил этот блестящий, простой и глубоко психологичный роман эпиграфом из старинного (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Аудиокнига (АСТ)Продолжительность: 09:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204E63FC6A1440098FE92A49325AF6808BCD2C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273235   (137689) от 31.12.2018
 
 Фрэнсис Скотт Фицджеральд | По эту сторону рая (2018) [MP3]
@@ -6,7 +115,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137689.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137600.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137268.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137121.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137029.jpg" />
 </div>
 
 
@@ -141,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136878.jpg" />
 </div>
 
 
@@ -169,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136873.jpg" />
 </div>
 
 
@@ -197,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136861.jpg" />
 </div>
 
 
@@ -224,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136745.jpg" />
 </div>
 
 
@@ -252,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136744.jpg" />
 </div>
 
 
@@ -280,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136742.jpg" />
 </div>
 
 
@@ -309,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134997.jpg" />
 </div>
 
 
@@ -335,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134931.jpg" />
 </div>
 
 
@@ -363,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134769.jpg" />
 </div>
 
 
@@ -391,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134581.jpg" />
 </div>
 
 
@@ -418,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134573.jpg" />
 </div>
 
 
@@ -445,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134273.jpg" />
 </div>
 
 
@@ -473,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134097.jpg" />
 </div>
 
 
@@ -501,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134079.jpg" />
 </div>
 
 
@@ -529,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134075.jpg" />
 </div>
 
 
@@ -557,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134041.jpg" />
 </div>
 
 
@@ -584,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134021.jpg" />
 </div>
 
 
@@ -597,115 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A1C83FD8267867B428BCD966C54F8BC7832DE2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680744   (133943) от 30.11.2023
-
-Борис Шергин | Праведное солнце. Дневники разных лет (2014) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Викторович Шергин (1893–1973) – русский писатель, фольклорист, публицист и художник.
-В данном издании представлены дневники замечательного русского сказителя и писателя Бориса Викторовича Шергина за 1939-1968 гг. Ряд дневниковых записей публикуется впервые. В приложении приведены письма и «автобиографии» писателя, а также воспоминания о нем.
-Прочитано по изданию: (   Читать дальше...   )Жанр: Русская литература, классика, воспоминая, дневникиИздательство: Нигде не купишьПродолжительность: 24:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A379465DDF5CA461CDF1EEEA9234B1FE5752A756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680757   (133917) от 30.11.2023
-
-Борис Шергин | Избранное (2011) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Викторович Шергин (1896–1973) – автор поморских былей и сказаний, замечательный мастер слова, известность которого растет с каждым новым изданием его произведений.
-В книгу Бориса Шергина, знатока быта и поэтического творчества поморов, включены произведения, рисующие образы талантливых умельцев Русского Севера – моряков, кораблестроителей, народных художников. (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: Нигде не купишьПродолжительность: 15:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A655BB1C5A8874A75071D2FA3EF60B982ABD2117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680724   (133890) от 30.11.2023
-
-Борис Пастернак | Сборник стихов (2017) [MP3, Алексей Борзунов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Леонидович Пастернак (1890–1960) – величайший лирик XX столетия. За более чем полувековой период творчества он создал стихотворения, вошедшие в сокровищницу мировой поэзии.
-Будущий нобелевский лауреат и автор «Доктора Живаго» Борис Пастернак начал печатать свои первые стихи еще в 1913 году, во время обучения в Московском университете. И всё же наиболее известным (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92393CE6CD5AE1095821102D5C1166ABAFDBE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680767   (133846) от 30.11.2023
-
-Борис Шергин | Запечатлённая слава (2012) [MP3, Владимир Сушков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Викторович Шергин (1896–1973) – автор поморских былей и сказаний, замечательный мастер слова, известность которого растет с каждым новым изданием его произведений.
-Творчество Шергина питалось не только биографическими источниками (он родился в семье корабельного мастера, долго жил среди мореходов и судостроителей), но и глубоким знанием истории и искусства (   Читать дальше...   )Жанр: Русская литература, классика, поморские были и сказанияИздательство: Нигде не купишьПродолжительность: 18:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C61083D85929E1BF9DB080D7C94FEE7C2F641C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1546772   (241377) от 25.04.2022
+
+Rectangle Pro 2.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 24.04.2022Разработчик: © 2022 Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C2D5047B6421A36E936FDCC24960FA776E6C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385066   (241366) от 23.05.2020
+
+SQLPro Studio 2020.47 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241366.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 21.05.2020Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC023A116DB35FC77DEBE40F1B0D48F2F6CD684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385143   (241359) от 23.05.2020
+
+aText 2.36.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241359.jpg" />
+</div>
+
+
+###  Подробнее
+
+AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 23.05.2020Разработчик: Tran Ky NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABA66FBA4860CE971D11194073D577B35DDC2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385067   (241351) от 23.05.2020
+
+URL Manager Pro 5.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241351.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.05.2020Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9E8638BE028D1B567EDEE1094E0296D089AAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546947   (241310) от 26.04.2022
 
 Auto Highlight 4.2 [En]
@@ -6,7 +112,7 @@ Auto Highlight 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241310.jpg" />
+  <img src="Z:/picture/004/save_picture_241310.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ ImageRanger Pro Edition 1.7.1.1527 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241306.jpg" />
+  <img src="Z:/picture/004/save_picture_241306.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Paste Queue (Multi Clipboard) 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241298.jpg" />
+  <img src="Z:/picture/004/save_picture_241298.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Framer Studio v88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241295.jpg" />
+  <img src="Z:/picture/004/save_picture_241295.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ GraphicConverter 11 v11.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241292.jpg" />
+  <img src="Z:/picture/004/save_picture_241292.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ Twixl Publisher Pro 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241290.jpg" />
+  <img src="Z:/picture/004/save_picture_241290.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ Integrity Pro 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241286.jpg" />
+  <img src="Z:/picture/004/save_picture_241286.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ QuickLinks 2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241273.jpg" />
+  <img src="Z:/picture/004/save_picture_241273.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ Apeaksoft DVD Creator for Mac 1.0.36 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241250.jpg" />
+  <img src="Z:/picture/004/save_picture_241250.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Cookie 6.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241244.jpg" />
+  <img src="Z:/picture/004/save_picture_241244.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ TinkerTool System 5.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241239.jpg" />
+  <img src="Z:/picture/004/save_picture_241239.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ Yoink 3.6.82 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241203.jpg" />
+  <img src="Z:/picture/004/save_picture_241203.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ Transfer 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241192.jpg" />
+  <img src="Z:/picture/004/save_picture_241192.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ Serial 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241187.jpg" />
+  <img src="Z:/picture/004/save_picture_241187.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ NeoFinder Business 8.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241180.jpg" />
+  <img src="Z:/picture/004/save_picture_241180.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ PDFpen Pro 12 v12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241173.jpg" />
+  <img src="Z:/picture/004/save_picture_241173.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ ToothFairy 2.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241166.jpg" />
+  <img src="Z:/picture/004/save_picture_241166.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ WinX DVD Ripper for Mac 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241157.jpg" />
+  <img src="Z:/picture/004/save_picture_241157.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ Exposure Software Blow Up 3 v3.1.4.383 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241144.jpg" />
+  <img src="Z:/picture/004/save_picture_241144.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ Image2icon - Make your icon‪s‬ 2.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241135.jpg" />
+  <img src="Z:/picture/004/save_picture_241135.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ Exposure Software Snap Art 4 v4.1.3.375 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241128.jpg" />
+  <img src="Z:/picture/004/save_picture_241128.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ MacX DVD Ripper Pro 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241106.jpg" />
+  <img src="Z:/picture/004/save_picture_241106.jpg" />
 </div>
 
 
@@ -574,112 +680,6 @@ MacX DVD Ripper Pro 6 был создан специально для польз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDC0A0B959652661078E2A97F8E9CC42C7352BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462362   (241099) от 14.04.2021
-
-Exposure X6 v6.0.6.211  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор фотографий для творческих людей, который обрабатывает каждый шаг вашего процесса. От передачи  к организации и редактированию,  упрощает выполнение повседневных задач и предоставляет богатый набор инструментов для разработки красивых фотографий. Exposure  вписывается в любой рабочий процесс. Exposure легко интегрируется с Photoshop и Lightroom, а со своей новой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2021Разработчик: Exposure Software, LLCПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8A2937FADAA9439525A8A2E76C183BC969A3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548342   (241044) от 02.05.2022
-
-Artstudio Pro 4.0.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.05.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAC93CD6D03698C38D3E84767DB6A8A50A8B8CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462361   (241032) от 14.04.2021
-
-DjVu Reader Pro 2.4.8 [Ru/En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241032.jpg" />
-</div>
-
-
-###  Подробнее
-
-DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
-В целом, DjVu Reader Pro это отличная читалка книг (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2021Разработчик: FirmShell LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1EF645C9700B344839D38D6BA51D3DA56ED553B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462787   (240973) от 16.04.2021
-
-Marked 2 v2.6.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marked 2 — универсальный превью-инструмент для любого Markdown-редактора
-Многие текстовые редакторы для Mac поддерживают облегченный язык разметки Markdown, придуманный Джоном Грубером для упрощения восприятия текста при подготовке к публикации. Преимуществом Markdown является то, что его можно легко экспортировать в HTML-код и вставить в редактор кода. Одним словом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2021Разработчик: Brett TerpstraПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94985E3575A502A73DCF3EC06B649AAE63857D70
 ```
 
 https://mybot314.ru/tekegram_catalog/

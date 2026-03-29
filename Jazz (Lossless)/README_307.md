@@ -1,3 +1,119 @@
+###  Публикация: 1696835   (119296) от 04.02.2024
+
+Art Blakey & The Jazz Messengers - Straight Ahead (1981) 1990, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love with Love [7:54]
+02. My Romance [3:43]
+03. Webb City [10:00]
+04. How Deep Is the Ocean [9:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35E75EA2D432DAE3DD8A18BFD8ACC7ABE263689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696942   (119290) от 04.02.2024
+
+Rugburn - Moon Dive (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangel (7:29)
+02. High Tides (6:27)
+03. Black Limba (7:53)
+04. Pocket Sauce (6:27)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9908145C9DD937086C7FC4C9E35928C9C2751A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697140   (119069) от 05.02.2024
+
+Donald Byrd & Gigi Gryce - Jazz Lab (1957) 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speculation [3:43]
+02. Over the Rainbow [8:21]
+03. Nica's Tempo [5:33]
+04. Blue Concept [5:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE865B8B0CFBD6D7317167546B74F74DFC000EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697240   (118940) от 06.02.2024
+
+VA - Acid Jazz Funk Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smoke Orchestra - Just Kiss My Baby (5:15)
+02. Black & Brown - Tribal Boogaloo (3:39)
+03. Jerome van Rossum - Truth (4:29)
+04. Super Bad - Don't Let The Flies Eat Your Marilyn's Painting (3:36)(   Читать дальше...   )Жанр: Acid Jazz, FunkПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCBA3B05844E69B570A0C35F6676492FBF53014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697246   (118934) от 06.02.2024
 
 VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz>
@@ -6,7 +122,7 @@ VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118934.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118928.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Threestyle - No Matter What (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118914.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Lloyd Foulks - They Call Him Joe (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118910.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Kenny Barron Trio - Lemuria-Seascape (1991) 2023, Candid [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118900.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Best Groovy Smooth Jazz for Traveling and Vacation (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118756.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Chet Baker - Late Night Chet Baker (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118749.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Eric Dolphy - Muses (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118734.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Grant Geissman - Bop! Bang! Boom! (2012) Futurism Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118733.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Alternative Jazz Lounge, Everyday Jazz Academy - Aperitif Jazz Delights Smooth S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118728.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Roland Hanna - Perugia (1974) 1987, Freedom [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118554.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Abdullah Ibrahim - Voice Of Africa (1988) 1998, Camden [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118406.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Angelo Debarre with Tim Kliphuis - Live At Djangofest Northwest (2005) Gypsy Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118253.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Patti Austin - Patti Austin Love Songs (2024) Compilation [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118243.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Metropolitan Jazz Octet Featuring Dee Alexander - It's Too Hot For Words: Celebr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118241.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Natalie Cole - Natalie Cole Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118234.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Stanley Cowell - Live at Maybeck Recital Hall, Vol. 5 (1990) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118233.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Norah Jones - Visionary Jones (Curated by Don Was) (2024) Compilation [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118119.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Al Grey & Bjarne Nerem - Al Meets Bjarne (1989) Gemini [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118081.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Pat Martino & Joyous Lake - Stone Blue (1998) Blue Note [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118077.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ John Coltrane Quartet With Red Garland - Complete Recordings (1957, 1958) 3CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118075.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Joey Alexander - Continuance (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117934.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Joey Alexander - Continuance (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52EE81E9DDE2608629823FF4334B251E4C95F4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699241   (117930) от 12.02.2024
-
-John Coltrane - And The Jazz Giants (1956 - 1958) 1986, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airegin [4:27]
-02. Mating Call [5:36]
-03. Monk's Mood [7:53]
-04. Trinkle, Tinkle [6:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8C810703B47D1FCD1E6EF847C6C9C5F285094F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699512   (117791) от 13.02.2024
-
-Cheikh Ouza - African Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MELANCOLIE (3:47)
-02. SMOOTH DANCING (3:18)
-03. HIGHWAY DANCING (3:21)
-04. COMPLEX LOVE (3:37)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF90B36C53DD1FD22DB7D2BC689FCF32C042181F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699461   (117788) от 13.02.2024
-
-Kitty Kallen - Our Lady... Kitty Kallen (1946 - 1952) 2003, Sepia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Belongs to Daddy [3:08]
-02. Just the Other Day [3:08]
-03. Should I Tell You I Love You [3:03]
-04. If I'm Lucky [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80675653E88A2E31AE4DDA60893506E2627D385B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699509   (117773) от 13.02.2024
-
-Adam Astrup - Songs From Before (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Unlikely Story (4:36)
-02. A Blues for You (3:38)
-03. Here Comes the Sun (feat. Miranda Perl) (3:54)
-04. Darn That Dream (6:22)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9B20F598B4C70C0528CC6ED8A466DBBB6C5706
 ```
 
 https://mybot314.ru/tekegram_catalog/

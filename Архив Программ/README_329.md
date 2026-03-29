@@ -6,7 +6,7 @@ BurnAware Professional / Premium 14.7 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885925.jpg" />
+  <img src="Z:/picture/005/save_picture_885925.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVG Clear (AVG Remover) 21.7.6523.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885917.jpg" />
+  <img src="Z:/picture/005/save_picture_885917.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MAGIX Video Pro X13 19.0.1.119 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885915.jpg" />
+  <img src="Z:/picture/005/save_picture_885915.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Skype 7.21.0.100 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885878.jpg" />
+  <img src="Z:/picture/005/save_picture_885878.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Avidemux 2.6.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885851.jpg" />
+  <img src="Z:/picture/005/save_picture_885851.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Flash Player 21.0.0.182 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885848.jpg" />
+  <img src="Z:/picture/005/save_picture_885848.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885816.jpg" />
+  <img src="Z:/picture/005/save_picture_885816.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885814.jpg" />
+  <img src="Z:/picture/005/save_picture_885814.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Antivirus Removal Tool 2021.09 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885792.jpg" />
+  <img src="Z:/picture/005/save_picture_885792.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Alcohol 120% 2.0.3 Build 8703 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885755.jpg" />
+  <img src="Z:/picture/005/save_picture_885755.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Flash Player 21.0.0.182 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885741.jpg" />
+  <img src="Z:/picture/005/save_picture_885741.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AMD Radeon Software Crimson Edition 16.3 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885719.jpg" />
+  <img src="Z:/picture/005/save_picture_885719.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe Reader XI 11.0.15 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885713.jpg" />
+  <img src="Z:/picture/005/save_picture_885713.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Alcohol 120% 2.0.3.8703 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885709.jpg" />
+  <img src="Z:/picture/005/save_picture_885709.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ RadioBOSS 6.0.6.2 Advanced [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885680.jpg" />
+  <img src="Z:/picture/005/save_picture_885680.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft Windows and Office ISO Download Tool 4.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885671.jpg" />
+  <img src="Z:/picture/005/save_picture_885671.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Google Chrome 49.0.2623.87 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885657.jpg" />
+  <img src="Z:/picture/005/save_picture_885657.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Avast Clear 21.7.6523.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885652.jpg" />
+  <img src="Z:/picture/005/save_picture_885652.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ O&O ShutUp10 1.3.1356 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885647.jpg" />
+  <img src="Z:/picture/005/save_picture_885647.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ FileMenu Tools 7.2 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885577.jpg" />
+  <img src="Z:/picture/005/save_picture_885577.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ YoWindow Unlimited Edition 4 Build 102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885569.jpg" />
+  <img src="Z:/picture/005/save_picture_885569.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885568.jpg" />
+  <img src="Z:/picture/005/save_picture_885568.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ KLS Backup 2015 Professional 8.4.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885567.jpg" />
+  <img src="Z:/picture/005/save_picture_885567.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ ZD Soft Screen Recorder 10.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885558.jpg" />
+  <img src="Z:/picture/005/save_picture_885558.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Uninstall Tool 3.5.2 Build 5556 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885539.jpg" />
+  <img src="Z:/picture/005/save_picture_885539.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Sysinternals Suite 05.01.2016 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885533.jpg" />
+  <img src="Z:/picture/005/save_picture_885533.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1317545   (500492) от 01.08.2019
+
+Фрэнсис Элиза Бёрнетт | Маленькая принцесса (Радиоспектакль) (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая девочка мечтает стать принцессой… А знаешь ли ты, что значит быть настоящей принцессой? Героиня этой истории – английская девочка Сара – придумала для себя игру. "Принцесса должна достойно держать себя, не обижаться на глупых и злых людей, помогать всем, кто нуждается в помощи, не показывать, что она злится или расстроена". Сначала Сара просто играла (   Читать дальше...   )Жанр: Cказка, радиоспектакльИздательство: Литрес ПаблишингПродолжительность: 06:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58766433D4B3A9ED1CE77A3200F1052EE89E17D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564486   (499748) от 19.07.2022
+
+Георгий Почепцов | Хрустальная гора (2022) [MP3, Виктор Моключенко]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейтенант Петр Зверев, заброшен с секретным заданием на таинственную Хрустальную Гору, которая возникла посреди Европейской части страны, после необъяснимого временного катаклизма, на которой существуют существа, которые у нас принято называть сказочными... По иронии случая, становится племянником самой Бабы Яги, и переживает множество головокружительных приключений...Жанр: Детская литератураПродолжительность: 04:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05110811F73723665BD0FC980D3332E3C51AF405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564435   (499711) от 19.07.2022
+
+Илья Дворкин | Голова античной богини (1976) [MP3, Khud]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатилетняя Витя - девчонка хоть куда! Ей ничего не стоит получить взрослый разряд по плаванию, накормить обедом родителей и в одиночку отправиться на поезде в лагерь археологической экспедиции, где работает её отец. Думаете, искать на дне моря античную статую с затонувшего древнегреческого корабля скучно? А вот и нет! Витю ждут новые знакомства и впечатления, (   Читать дальше...   )Жанр: Приключения, Детская литератураЯзык озвучки: РусскийПродолжительность: 04:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2DAEC0211A57A57E204EEF752A137F645511B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 381095   (499093) от 28.08.2011
 
 VA - Музыкальные сновидения - джаз для всех (2007) [MP3|320 kbps]<Детская музыка>
@@ -6,7 +84,7 @@ VA - Музыкальные сновидения - джаз для всех (200
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499093.jpg" />
+  <img src="Z:/picture/008/save_picture_499093.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ VA - Бодрящая классика (2011) [MP3|320 кб/с]<Классика
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498373.jpg" />
+  <img src="Z:/picture/008/save_picture_498373.jpg" />
 </div>
 
 
@@ -64,7 +142,7 @@ VA - Музыка для беременных [MP3|128] <Classical>
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498364.jpg" />
+  <img src="Z:/picture/008/save_picture_498364.jpg" />
 </div>
 
 
@@ -93,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498086.jpg" />
+  <img src="Z:/picture/008/save_picture_498086.jpg" />
 </div>
 
 
@@ -119,7 +197,7 @@ VA - Любимые песни детства (2006) [MP3|320 kbps]<Детски
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495447.jpg" />
+  <img src="Z:/picture/008/save_picture_495447.jpg" />
 </div>
 
 
@@ -148,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495316.jpg" />
+  <img src="Z:/picture/008/save_picture_495316.jpg" />
 </div>
 
 
@@ -177,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494992.jpg" />
+  <img src="Z:/picture/008/save_picture_494992.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494931.jpg" />
+  <img src="Z:/picture/008/save_picture_494931.jpg" />
 </div>
 
 
@@ -230,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494262.jpg" />
+  <img src="Z:/picture/008/save_picture_494262.jpg" />
 </div>
 
 
@@ -256,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493337.jpg" />
+  <img src="Z:/picture/008/save_picture_493337.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493336.jpg" />
+  <img src="Z:/picture/008/save_picture_493336.jpg" />
 </div>
 
 
@@ -311,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493333.jpg" />
+  <img src="Z:/picture/008/save_picture_493333.jpg" />
 </div>
 
 
@@ -339,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493223.jpg" />
+  <img src="Z:/picture/008/save_picture_493223.jpg" />
 </div>
 
 
@@ -366,7 +444,7 @@ VA - Песни для детей из кинофильмов (2007) [MP3|320 kb
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493061.jpg" />
+  <img src="Z:/picture/008/save_picture_493061.jpg" />
 </div>
 
 
@@ -395,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492719.jpg" />
+  <img src="Z:/picture/008/save_picture_492719.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492453.jpg" />
+  <img src="Z:/picture/008/save_picture_492453.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492449.jpg" />
+  <img src="Z:/picture/008/save_picture_492449.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491013.jpg" />
+  <img src="Z:/picture/008/save_picture_491013.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_490952.jpg" />
+  <img src="Z:/picture/005/save_picture_490952.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490946.jpg" />
+  <img src="Z:/picture/008/save_picture_490946.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490894.jpg" />
+  <img src="Z:/picture/008/save_picture_490894.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490892.jpg" />
+  <img src="Z:/picture/008/save_picture_490892.jpg" />
 </div>
 
 
@@ -610,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490758.jpg" />
+  <img src="Z:/picture/008/save_picture_490758.jpg" />
 </div>
 
 
@@ -624,91 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67D29B92DE71351446FC1EC2DA26417BB76E0D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565891   (490430) от 25.07.2022
-
-Валентин Постников | Карандаш и Самоделкин. Карандаш и Самоделкин на острове Динозавров (2013) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский писатель Валентин Постников сочиняет сказки о приключениях маленьких весёлых человечков Карандаша и Самоделкина. Они – самые настоящие волшебники. Карандаш – художник, у которого вместо носа волшебный карандаш. Всё, что он нарисует, превращается в настоящее. А Самоделкин – железный человечек, который умеет мастерить разные невероятные машины. Их друг профессор (   Читать дальше...   )Жанр: Детская литература, СказкаПродолжительность: 04:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B628E7BBB2FB0685B1F425C042D9D7E2DF5A6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404929   (489753) от 27.08.2020
-
-Шотландские народные сказки | Владыка штормов. Тень. Как зайцу всё надоело (1984 -1988)  [Сборник] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489753.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике три радиоспектакля по мотивам шотландской сказки. Фермер жил у моря со своей женой и сыновьями. Однажды, неподалеку от его земли, из морских глубин явилось огромное чудище... Над страной нависла смертельная беда...
-А также две другие не менее интересные небольшие сказки.Жанр: Сказки. РадиоспектаклиВ ролях: Алексей Борзунов, Сергей Цейц, Антонина Дмитриева, Всеволод Кузнецов, Галина Иванова, Александр Леньков, Всеволод  Абдулов,Зоя ПыльноваПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A424376F24E6A0F985A18A3BA91D479232BF3D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523778   (489077) от 27.08.2020
-
-Детское издательство: "Два жирафа" - Голоса птиц и зверей (2002) [FLAC|Lossless]<Звуки природы>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот материал, всегда пригодится для создания собственных звуковых дорожек и видеофильмов, для своей фонотеки. Удобный каталог без нумерации.
-А на слабо! Можешь ли ты на слух, определить какая птица поёт...  :mrgreen:
-
-Альтернативная раздача: Детское издательство: "Два жирафа" - Голоса птиц и зверей (2002)1. Соловей
-2. Певчий дрозд
-3. Черный дрозд
-4. Дрозд-белобровик(   Читать дальше...   )Жанр: Звуки природыПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BF74F0B0A7D5661ED24A22FECE448993A8BF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

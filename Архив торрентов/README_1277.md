@@ -6,7 +6,7 @@ InstaBro | Instagram Browser 5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767305.jpg" />
+  <img src="Z:/picture/008/save_picture_767305.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA - Beautiful Songs For You Vol.20 (Compiled by Виктор31Rus & Людми�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767304.jpg" />
+  <img src="Z:/picture/008/save_picture_767304.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Adobe Dreamweaver CC 2018 v18.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767296.jpg" />
+  <img src="Z:/picture/008/save_picture_767296.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767252.jpg" />
+  <img src="Z:/picture/008/save_picture_767252.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Tor Browser Bundle 7.5.2 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767221.jpg" />
+  <img src="Z:/picture/008/save_picture_767221.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767210.jpg" />
+  <img src="Z:/picture/008/save_picture_767210.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Photo Mechanic 5.0 (build 19252) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767209.jpg" />
+  <img src="Z:/picture/008/save_picture_767209.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767208.jpg" />
+  <img src="Z:/picture/008/save_picture_767208.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767207.jpg" />
+  <img src="Z:/picture/008/save_picture_767207.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767206.jpg" />
+  <img src="Z:/picture/008/save_picture_767206.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767205.jpg" />
+  <img src="Z:/picture/008/save_picture_767205.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767204.jpg" />
+  <img src="Z:/picture/008/save_picture_767204.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767202.jpg" />
+  <img src="Z:/picture/008/save_picture_767202.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767201.jpg" />
+  <img src="Z:/picture/008/save_picture_767201.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767200.jpg" />
+  <img src="Z:/picture/008/save_picture_767200.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767199.jpg" />
+  <img src="Z:/picture/008/save_picture_767199.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767198.jpg" />
+  <img src="Z:/picture/008/save_picture_767198.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Elemental Progressions Vol.7 (Mixed And Compiled by Dave Pineda) (2017) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767193.jpg" />
+  <img src="Z:/picture/008/save_picture_767193.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ WebVideoHunter v5.8.1 (240) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767191.jpg" />
+  <img src="Z:/picture/008/save_picture_767191.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Kolor Autopano Giga 2.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767177.jpg" />
+  <img src="Z:/picture/008/save_picture_767177.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Sweet Home 3D 5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767165.jpg" />
+  <img src="Z:/picture/008/save_picture_767165.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PicturesToExe Deluxe 9.0.8 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767141.jpg" />
+  <img src="Z:/picture/008/save_picture_767141.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767126.jpg" />
+  <img src="Z:/picture/008/save_picture_767126.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767125.jpg" />
+  <img src="Z:/picture/008/save_picture_767125.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Velvet Condom - Vanity And Revolt (2013) Compilation [FLAC|Lossless|tracks + .cu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767108.jpg" />
+  <img src="Z:/picture/008/save_picture_767108.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ SQLEditor v3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767088.jpg" />
+  <img src="Z:/picture/008/save_picture_767088.jpg" />
 </div>
 
 

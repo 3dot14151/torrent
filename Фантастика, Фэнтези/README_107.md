@@ -1,3 +1,55 @@
+###  Публикация: 525158   (609882) от 20.07.2012
+
+Галина Романова | Тайна лорда Мортона [2006] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшная угроза нависла над молодым магом Эмилем Графом. В день совершеннолетия он узнает, что его настоящее имя — Максимилиан Мортон. Давным-давно его родители погибли, приняв участие в восстании, которое поднял могучий колдун Белый Мигун. Сам предводитель восстания сумел уйти от наказания и сбежать, но теперь, двадцать лет спустя, он не прочь вернуться — и Максимилиан занимает в его планах важное место. Мортон нанимается учителем в Школу Магии и Волшебства — МИФ, и в стенах магической академии с ним начинают происходить загадочные и зловещие происшествия. Однако коллектив Школы МИФ — опытные педагоги и маги — готов встать на защиту своего молодого коллеги.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9840DE5EEE81674DE0894D7EC6EAC57E03419A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524939   (609713) от 20.07.2012
+
+Максим Далин | Слуги зла [2012] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многолетняя война пылает между народами эльфов и орков. После великой битвы у Серебряной реки их осталось девять — опытных орочьих бойцов-аршей, мужчин и женщин, пытающихся пробраться к своим. На их пути оказывается отряд рыцарей эльфийской королевы Маб. В кровопролитном сражении один из рыцарей захвачен в плен. Эльфу Инглориону предстоит провести в обществе орков много времени, а там уже рукой подать до того, чтобы заинтересоваться своим древним противником, попытаться понять его и даже встать на его сторону…Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC1371BEC73D647924DBC754F5058FE54EB805D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524965   (609710) от 20.07.2012
 
 Галина Романова | Наследник Темного Властелина [2011] [FB2]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609710.jpg" />
+  <img src="Z:/picture/008/save_picture_609710.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609697.jpg" />
+  <img src="Z:/picture/008/save_picture_609697.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609583.jpg" />
+  <img src="Z:/picture/008/save_picture_609583.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609463.jpg" />
+  <img src="Z:/picture/008/save_picture_609463.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609377.jpg" />
+  <img src="Z:/picture/008/save_picture_609377.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609338.jpg" />
+  <img src="Z:/picture/008/save_picture_609338.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609275.jpg" />
+  <img src="Z:/picture/008/save_picture_609275.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609256.jpg" />
+  <img src="Z:/picture/008/save_picture_609256.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609235.jpg" />
+  <img src="Z:/picture/008/save_picture_609235.jpg" />
 </div>
 
 
@@ -255,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609080.jpg" />
+  <img src="Z:/picture/008/save_picture_609080.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608908.jpg" />
+  <img src="Z:/picture/008/save_picture_608908.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608850.jpg" />
+  <img src="Z:/picture/008/save_picture_608850.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608775.jpg" />
+  <img src="Z:/picture/008/save_picture_608775.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608767.jpg" />
+  <img src="Z:/picture/008/save_picture_608767.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608764.jpg" />
+  <img src="Z:/picture/008/save_picture_608764.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608685.jpg" />
+  <img src="Z:/picture/008/save_picture_608685.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608592.jpg" />
+  <img src="Z:/picture/008/save_picture_608592.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608587.jpg" />
+  <img src="Z:/picture/008/save_picture_608587.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608581.jpg" />
+  <img src="Z:/picture/008/save_picture_608581.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608488.jpg" />
+  <img src="Z:/picture/008/save_picture_608488.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608486.jpg" />
+  <img src="Z:/picture/008/save_picture_608486.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608411.jpg" />
+  <img src="Z:/picture/008/save_picture_608411.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608368.jpg" />
+  <img src="Z:/picture/008/save_picture_608368.jpg" />
 </div>
 
 
@@ -633,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608358.jpg" />
+  <img src="Z:/picture/008/save_picture_608358.jpg" />
 </div>
 
 
@@ -646,63 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F9C3290EF6CB8820974CABC00AA969D36809F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913022   (608334) от 27.06.2015
-
-Юрий Корчевский | Сотник (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый роман цикла «Фельдъегерь».
-
-Продолжение знаменитого цикла о приключениях Алексея Терехова, бывшего офицера фельдъегерской службы России, в далеком прошлом.
-(   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF74E22FDB434A6A24152BE757DAF3B1E4FAFF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038316   (608243) от 27.07.2016
-
-Георгий Бес | Я – Гагарин. «Звездные войны» СССР (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Гагарин не погиб в 1968 году. Спасенный «попаданцем», совершившим «стыковку» с его сознанием, первый космонавт продолжает службу в Военно-Космических Силах СССР.
-
-Советский Союз побеждает в Лунной гонке и неудержимо рвется к звездам. Теряя мировое господство, США готовы развязать первую Звездную войну. Орбитальные истребители «Спираль» против аэрокосмических (   Читать дальше...   )Жанр: Историческая фантастика, Боевая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537C8E1B185E9E64920875103F1FAC85AA83437C
 ```
 
 https://mybot314.ru/tekegram_catalog/

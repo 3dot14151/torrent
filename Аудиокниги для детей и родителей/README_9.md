@@ -1,3 +1,82 @@
+###  Публикация: 1482147   (1007757) от 07.07.2021
+
+Дмитрий Емец | Филька Хитров и его друзья. Книга 1-4 (2011-2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселые истории из жизни Фильки Хитрова и его друзей
+В своей жизни Филька Хитров, лентяй и большой выдумщик, попадал в такое неимоверное количество дурацких историй, что для того, чтобы сосчитать их, не хватило бы пальцев не только на его руках и ногах, но и на руках и ногах всего 7-го «А». Он на спор мог прикинуться старушкой или замаскироваться под снеговика и (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 06:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD98B1EBC5B04F2032EFCE5F1B34D7A59CFECEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483019   (1007190) от 11.07.2021
+
+Александр Колмановский | Лекция «Хороший и плохой родитель: как найти взаимопонимание в воспитании» (2019) [MP3, Александр Колмановский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все воспитывались своими собственными родителями, и многое из того, как мы, став взрослыми, воспитываем своих детей, заложено в нас на подсознательном уровне. И часто случается так, что к каждому из родителей "прилипают" определённые роли в семье: один становиться "хорошим родителем", родителем-праздником, а другой родитель "плохим" (   Читать дальше...   )Жанр: Воспитание детей, Развитие психики, Саморазвитие / личностный ростПродолжительность: 02:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516901C627817AEB8C76FAC52A74B7FC754071E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483041   (1007171) от 11.07.2021
+
+Линн Мюррей | Психология ребенка от 0 до 2. Как общение стимулирует развитие (2020) [MP3, Людмила Шаулина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всякому младенцу природой предназначено расти и развиваться, и он сам готов неустанно общаться и играть, формируя тем самым важнейшие для будущей жизни навыки. Умение родителей поддержать инициативу ребенка заметно ускоряет прогресс. В своей книге профессор психологии Линн Мюррей раскрывает тесную связь между эмоциональной сферой малыша и его успехами в процессе (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 04:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9761AE4E98C64568B1543494AA475029E8E923D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483053   (1007164) от 11.07.2021
 
 Эрнст Теодор Амадей Гофман | Щелкунчик и Мышиный король (2020) [MP3, Александр Клюквин]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007164.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006762.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006643.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006388.jpg" />
 </div>
 
 
@@ -115,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006251.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005741.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005729.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005718.jpg" />
 </div>
 
 
@@ -222,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005211.jpg" />
 </div>
 
 
@@ -248,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004881.jpg" />
 </div>
 
 
@@ -274,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003878.jpg" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003519.jpg" />
 </div>
 
 
@@ -328,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002841.jpg" />
 </div>
 
 
@@ -354,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002764.jpg" />
 </div>
 
 
@@ -380,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001999.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001763.jpg" />
 </div>
 
 
@@ -434,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000611.jpg" />
 </div>
 
 
@@ -461,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000596.jpg" />
 </div>
 
 
@@ -487,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000440.jpg" />
 </div>
 
 
@@ -513,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999260.jpg" />
 </div>
 
 
@@ -539,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997739.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997730.jpg" />
 </div>
 
 
@@ -595,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997385.jpg" />
 </div>
 
 
@@ -607,91 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88EDE578EABCF988A521CEB9881F5F2ABB32BCDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603439   (996909) от 15.01.2013
-
-Людмила Васильева-Гангнус | В гостях у зимней сказки [2009] [MP3, Н. Литвинов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996909.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли сказки из коллекции радиоспектаклей Гостелерадиофонда.
-«В мире много сказок грустных и смешных, и прожить на свете нам нельзя без них, пусть герои сказок дарят нам тепло, пусть добро навеки побеждает зло…»Жанр: СказкиИздательство: Гостелерадиофонд, Звуковая книга
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6742A59A3BD5F173318C8D276C3D77B7DD936636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603834   (996663) от 16.01.2013
-
-Энн Хогарт | Мафин и его веселые друзья (2012) [MP3, Юрий Заборовский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник весёлых и поучительных историй про любимца английской детворы ослика Мафина и его друзей: пингвина Перигрина, негритёнка Волли, стауса Освальда и многих других. Чем же так симпатичен этот ослик? Ведь он не так уж умен или умел, да и знает Мафин не так уж много. А может быть, наш ослик превосходит других зверей силой или ростом? И опять же — нет! Любят же (   Читать дальше...   )• Мафин ищет клад
-• Мафин печёт пирог
-• Мафин недоволен своим хвостом
-•  Мафин-сыщик(   Читать дальше...   )Жанр: СказкиПеревод: Наталья Шанько, Ольга ОбразцоваИздательство: Нигде не купишьПродолжительность: 01:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88105E3E31BBBB709027CC31165E86AFB1E96E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604723   (996003) от 18.01.2013
-
-Джоэль Харрис | Сказки дядюшки Римуса (2013) [MP3, Н. Литвинов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прослушайте веселые сказки дядюшки Римуса о забавных приключениях Братца Кролика, Братца Лиса, Братца Волка и других зверей. Эти сказки, полные юмора, фантазии и мудрости, давно полюбились детям всего мира.Содержание:
-История о том, как Братец Лис чуть не поймал Братца Кролика с помощью смоляного чучелка
-История о том, как Братец Кролик отомстил Братцу Лису, использовав его как верховую лошадь
-История о том, как Братец Кролик хитростью присвоил пойманную Братцем Лисом рыбу(   Читать дальше...   )Жанр: СказкиИздательство: Гостелерадиофонд, Звуковая книгаПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7EB472FF75C884A8D1A89454A64ED54C1C3A592
 ```
 
 https://mybot314.ru/tekegram_catalog/

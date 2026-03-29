@@ -1,3 +1,81 @@
+###  Публикация: 1257019   (347198) от 25.10.2018
+
+Рик Хансон, Ричард Мендиус | Мозг Будды: нейропсихология счастья, любви и мудрости (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_347198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана на стыке психологии, неврологии и созерцательной практики, предлагает самые эффективные инструменты использования потенциала мозга для улучшения жизни. Как понять механизмы работы собственного мозга? Как достичь счастья, любви и мудрости? Как избавиться от депрессии и агрессивности? Найдите в своей жизни спокойствие, радость и сострадание вместо беспокойства, (   Читать дальше...   )Жанр: Психология, СамосовершенствованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B9EC3ED99F17791AFCCA7398C803482572828B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953767   (346496) от 05.11.2015
+
+Дональд Калшед | Внутренний мир травмы. Архетипические защиты личностного духа (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346496.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Внутренний мир травмы» Дональд Калшед исследует мир сновидений и фантазий, который раскрывается в терапии людей, тяжело пострадавших в результате трагических событий их жизни. Он показывает, как защитные меры психики, призванные оберегать «неуничтожимый дух» человеческой личности, при некоторых обстоятельствах принимают обличье ужасных фигур, преследующих (   Читать дальше...   )Жанр: Социальная психология, психотерапия и консультированиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADFDBBA3BD934258615D7ED75DB9843F77375B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953832   (346479) от 05.11.2015
+
+Елена Атай | Чтение по лицам и жестам для начинающих (2014) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнать тайны современной физиогномики, понять ее основные принципы и использовать для практического применения (для успешного общения в различной обстановке и с разными собеседниками, для более адекватной оценки мотивов и намерений окружающих, для увеличения личной привлекательности, для усиления влияния на других людей) – все это поможет осуществить данная книга. (   Читать дальше...   )Жанр: Психология, практическая психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C2764417F0128970954E97DFB772A942BDEAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953827   (346339) от 05.11.2015
 
 Елена Атай, Ольга Дайняк | Чтение по жестам и лицам. Большая энциклопедия (2015) [PDF]
@@ -6,7 +84,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346339.jpg" />
+  <img src="Z:/picture/008/save_picture_346339.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345280.jpg" />
+  <img src="Z:/picture/008/save_picture_345280.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344501.jpg" />
+  <img src="Z:/picture/008/save_picture_344501.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344108.jpg" />
+  <img src="Z:/picture/008/save_picture_344108.jpg" />
 </div>
 
 
@@ -116,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344071.jpg" />
+  <img src="Z:/picture/008/save_picture_344071.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341434.jpg" />
+  <img src="Z:/picture/008/save_picture_341434.jpg" />
 </div>
 
 
@@ -170,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341424.jpg" />
+  <img src="Z:/picture/008/save_picture_341424.jpg" />
 </div>
 
 
@@ -198,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340695.jpg" />
+  <img src="Z:/picture/008/save_picture_340695.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340529.jpg" />
+  <img src="Z:/picture/008/save_picture_340529.jpg" />
 </div>
 
 
@@ -250,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340432.jpg" />
+  <img src="Z:/picture/008/save_picture_340432.jpg" />
 </div>
 
 
@@ -277,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340428.jpg" />
+  <img src="Z:/picture/008/save_picture_340428.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339472.jpg" />
+  <img src="Z:/picture/008/save_picture_339472.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339469.jpg" />
+  <img src="Z:/picture/008/save_picture_339469.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339464.jpg" />
+  <img src="Z:/picture/008/save_picture_339464.jpg" />
 </div>
 
 
@@ -386,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339350.jpg" />
+  <img src="Z:/picture/008/save_picture_339350.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339344.jpg" />
+  <img src="Z:/picture/008/save_picture_339344.jpg" />
 </div>
 
 
@@ -443,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339249.jpg" />
+  <img src="Z:/picture/008/save_picture_339249.jpg" />
 </div>
 
 
@@ -469,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338232.jpg" />
+  <img src="Z:/picture/008/save_picture_338232.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337405.jpg" />
+  <img src="Z:/picture/008/save_picture_337405.jpg" />
 </div>
 
 
@@ -521,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337202.jpg" />
+  <img src="Z:/picture/008/save_picture_337202.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337197.jpg" />
+  <img src="Z:/picture/008/save_picture_337197.jpg" />
 </div>
 
 
@@ -573,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337173.jpg" />
+  <img src="Z:/picture/008/save_picture_337173.jpg" />
 </div>
 
 
@@ -600,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336883.jpg" />
+  <img src="Z:/picture/008/save_picture_336883.jpg" />
 </div>
 
 
@@ -611,87 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9E1F0B15B57D30A6609AD4EFB32019938984B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955027   (336659) от 09.11.2015
-
-Роберт Дилтс | Фокусы языка. Изменение убеждений с помощью НЛП (2010) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы живете и работаете среди людей, вам неминуемо придется столкнуться с необходимостью убедить окружающих в чем-то действительно важном. И в этом вам поможет популярнейшая книга Роберта Дилтса, гения нейро-лингвистического программирования. Вам просто не обойтись без «фокусов языка». Смысл в том, что определенные речевые шаблоны (паттерны) способны преобразовывать (   Читать дальше...   )Жанр: Практическая психология, личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD8FE7A1A90D6E58271718BF473184236267732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419960   (335739) от 30.10.2020
-
-Наталия Шадурко | #счастье как диагноз. Stories твоей жизни (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из нас проводят свои жизни, свое драгоценное время в разрушающих циклах, в неуверенности в себе и своих силах, в сложных обстоятельствах, в вечной гонке за успехом, в недостатке любви и внимания… Рано или поздно возникают закономерные вопросы: как измениться? откуда черпать внутренние ресурсы, помогающие справляться с невзгодами? где искать свое счастье?
-Книга (   Читать дальше...   )Жанр: Психология, Истории из жизниФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFB59F557CE4AB97992FF06E0C3E90C9BC5F483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419937   (335606) от 30.10.2020
-
-Светлана Иконникова | Троллология. Как нейтрализовать хейтеров и противостоять им в соцсетях (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335606.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Троллология»: книга, в которой вы найдете приемы нейтрализации троллей и узнаете, что делать, чтобы они как можно реже появлялись на ваших страницах в соцсетях. Типология троллей и пять тактик противодействия им: все это – на примерах из жизни!
-
-Светлана Иконникова | Троллология. Как нейтрализовать хейтеров и противостоять им в соцсетях (2020)Жанр: Социальная психологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B839E9605E16A8E836372048C5F179BF3CA6B154
 ```
 
 https://mybot314.ru/tekegram_catalog/

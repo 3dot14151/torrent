@@ -1,3 +1,134 @@
+###  Публикация: 1450131   (1029376) от 24.02.2021
+
+Камилла де ля Бедуайер | Моя первая книга обо всём на свете. Какие бывают насекомые? (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаешь, насекомых можно встретить лишь на лесной поляне? Как бы не так! Они окружают нас всюду, крошечные и очень необычные. Они поражают своими суперспособностями, прекрасным или пугающим внешним видом, умением жить в невероятно холодном и жарком климате. Некоторые из них даже побывали в космосе! О том, какая бабочка самая большая в мире, для чего танцуют пчёлы, (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A5FA2A411874B1648904D5DF8DA83E9DA01072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648655   (1029308) от 24.02.2021
+
+А.В.Мельник | Детский массаж. Массажные комплексы для детей разных возрастов (2005) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важнейшее значение в формировании Организма любого ребенка имеет массаж. Он помогает полноценно развиваться, он влияет и на становление нервной системы, ускоряет процесс познания окружающего мира, стимулирует творческие возможности ребенка.Жанр: ПособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0B374B15C8D59DF2EC29222C2775115F1A9C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507643   (1029283) от 24.02.2021
+
+«Интернет-издание» | Русская народная игра городки (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Подвижные Игры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городки - старинная русская игра в которой участвуют не только подростки. молодёж, но и взрослые.
+Это игра которая развивает силу, ловкость, глазомер. В городки играют в городе и деревне, на стадионе и во дворах - была бы только ровная площадка.Жанр: Подвижные игрыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23AFC180F77E32DF1E21CFA7F92E75056E45B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661272   (1029271) от 24.02.2021
+
+А.А. Смородин | Рисуем портреты (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это прекрасное практическое руководство научит вас рисовать портреты в разных живописных техниках. От наброска и до законченного произведения — все этапы создания картины подробно описаны и проиллюстрированы. От вас требуется лишь немного упорства, чтобы изобразить человека любого пола, возраста и характера, добившись максимального сходства с моделью. Предложенные (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9816272852B8922F4BCE5F5A5B177445D9347E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494543   (1029265) от 24.02.2021
+
+Настольная игра | В путь, друзья! из журнала "Весёлые картинки" (1990) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра-ходилка "В путь, друзья!" была опубликована в журнале "Веселые картинки" начала 90-х. К сожалению этот номер не сохранился в архивах журнала, поэтому в сети возможно найти только данный экземпляр игры. Нужно, играя вдвоем или более, бросать кубик (в оригинале — крутить вертушку) и передвигать фишки с учетом выпавшего числа. Побеждает тот, (   Читать дальше...   )Жанр: Настольная играФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9143C93D1EF52AAF8CD46DDDD9EB39997704AB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527035   (1029254) от 24.02.2021
 
 Аванта+ | Энциклопедия для детей (2006-2009) [12 книг] [PDF]
@@ -6,7 +137,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029254.jpg" />
 </div>
 
 
@@ -35,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029153.jpg" />
 </div>
 
 
@@ -63,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029062.jpg" />
 </div>
 
 
@@ -89,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028986.jpg" />
 </div>
 
 
@@ -116,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028973.jpg" />
 </div>
 
 
@@ -142,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028971.jpg" />
 </div>
 
 
@@ -168,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028967.jpg" />
 </div>
 
 
@@ -195,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028965.jpg" />
 </div>
 
 
@@ -221,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028964.jpg" />
 </div>
 
 
@@ -247,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028963.jpg" />
 </div>
 
 
@@ -273,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028950.jpg" />
 </div>
 
 
@@ -299,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028928.jpg" />
 </div>
 
 
@@ -325,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028919.jpg" />
 </div>
 
 
@@ -351,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028915.jpg" />
 </div>
 
 
@@ -379,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028912.jpg" />
 </div>
 
 
@@ -407,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028911.jpg" />
 </div>
 
 
@@ -433,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028900.jpg" />
 </div>
 
 
@@ -459,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028880.jpg" />
 </div>
 
 
@@ -485,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028878.jpg" />
 </div>
 
 
@@ -511,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028876.jpg" />
 </div>
 
 
@@ -537,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028864.jpg" />
 </div>
 
 
@@ -550,137 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD53D51749C243A457BBAF9C4006B7D588A96F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450762   (1028838) от 27.02.2021
-
-Н.К. Ханнанов | Физика. Решение заданий повышенного и высокого уровня сложности. Как получить максимальный балл на ЕГЭ (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028838.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом пособии дана характеристика основных типов заданий повышенного и высокого уровня сложности, используемых на ЕГЭ по физике. Особое внимание уделяется разбору заданий, вызвавших наибольшие затруднения. Для тренировки и самоподготовки к ЕГЭ предлагаются задания с развернутым ответом различного уровня сложности по всем содержательным блокам. Пособие адресовано (   Читать дальше...   )Жанр: Физика, ЕГЭФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC51058DE5061AF608592E93C4703FFC29B574D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371790   (1028834) от 27.02.2021
-
-О.Д. Ушакова | Как писать? С большой буквы или с маленькой? Словарик школьника (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В словаре приведены наиболее известные и часто встречающиеся названия, которые вызывают трудность в написании. Многие слова, словосочетания и аббревиатуры даются с пояснениями.Жанр: Обучение, справочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CAC6EF37D6AE0F14838F8DFD6002E964858F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372066   (1028824) от 27.02.2021
-
-О.Д. Ушакова | Пословицы, поговорки и стихи о любви и дружбе. Справочник школьника (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028824.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены пословицы и поговорки, а также лучшие стихи о любви и дружбе, которые будут полезны учащимся 3-6-х классов общеобразовательной школы.Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7CDD6133991DFA2D89AB56F6C9BC1A4959C1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372038   (1028815) от 27.02.2021
-
-О.Д. Ушакова | Считай без ошибок: Справочник школьника по математике (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умение считать, думать, рассуждать, решать задачи вырабатывается с самых первых классов. Нужно быть внимательным, настойчивым и очень аккуратным. цифры должны быть написаны четко и понятно. При счете столбиком их надо писать точно друг под другом стоит написать цифру левее или правее - и ошибка, сделанная в начале примера или задачи, приведет к тому, что вся работа (   Читать дальше...   )Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9288307B2EF161C428B1F985DB41837476943B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602387   (1028809) от 27.02.2021
-
-Ю. Б. Гиппенрейтер | Родителям: как быть ребенком (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрестоматия является продолжением предыдущих книг Ю.Б.Гиппенрейтер "Общаться с ребенком. Как?" и "Продолжаем общаться с ребенком. Так", ставших лидерами на рынке психологической литературы.
-Книга знакомит читателя с живыми голосами многих известных людей, которые, вспоминая собственное детство, сумели мастерски раскрыть мир ребенка во всем его (   Читать дальше...   )Жанр: Детская психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB78E16E5F88A2E17DA3A6AAF774098CB11D28A
 ```
 
 https://mybot314.ru/tekegram_catalog/

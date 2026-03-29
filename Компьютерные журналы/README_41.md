@@ -1,3 +1,29 @@
+###  Публикация: 1549487   (236779) от 07.05.2022
+
+Журнал | Linux Magazine №259 (2022) [PDF][En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Magazine - журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение журнала будет (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF9AC7C708FA2F5AA130DAE276F7A9A59DE2CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636253   (231878) от 29.05.2023
 
 Журнал | Linux Magazine №5 (270) (2023) [PDF]
@@ -6,7 +32,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231878.jpg" />
+  <img src="Z:/picture/004/save_picture_231878.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231569.jpg" />
+  <img src="Z:/picture/004/save_picture_231569.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231298.jpg" />
+  <img src="Z:/picture/005/save_picture_231298.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231280.jpg" />
+  <img src="Z:/picture/005/save_picture_231280.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231274.jpg" />
+  <img src="Z:/picture/005/save_picture_231274.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230831.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229576.jpg" />
+  <img src="Z:/picture/004/save_picture_229576.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229263.jpg" />
+  <img src="Z:/picture/004/save_picture_229263.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229054.jpg" />
+  <img src="Z:/picture/004/save_picture_229054.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227430.jpg" />
+  <img src="Z:/picture/005/save_picture_227430.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224811.jpg" />
+  <img src="Z:/picture/005/save_picture_224811.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222720.jpg" />
+  <img src="Z:/picture/005/save_picture_222720.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222424.jpg" />
+  <img src="Z:/picture/005/save_picture_222424.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221717.jpg" />
+  <img src="Z:/picture/005/save_picture_221717.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221711.jpg" />
+  <img src="Z:/picture/005/save_picture_221711.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221700.jpg" />
+  <img src="Z:/picture/005/save_picture_221700.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221683.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221671.jpg" />
+  <img src="Z:/picture/005/save_picture_221671.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221645.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221536.jpg" />
+  <img src="Z:/picture/005/save_picture_221536.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221351.jpg" />
+  <img src="Z:/picture/005/save_picture_221351.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221316.jpg" />
+  <img src="Z:/picture/005/save_picture_221316.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221245.jpg" />
+  <img src="Z:/picture/005/save_picture_221245.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220594.jpg" />
+  <img src="Z:/picture/005/save_picture_220594.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220168.jpg" />
+  <img src="Z:/picture/005/save_picture_220168.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4956E33B98EE7D8A2DBEF96D0AD6EED9AB13CD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513912   (220051) от 01.12.2021
-
-Журнал | Открытые системы. СУБД №4 (234) (2021) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежеквартальный журнал «Открытые системы. СУБД» - старейший отечественный журнал о проектировании, создании и эксплуатации информационных систем различных масштабов. Журнал рекомендован Высшей Аттестационной Комиссией (ВАК) для публикации результатов диссертаций на соискание ученых степеней доктора и кандидата наук.Жанр: Компьютерные журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F604A20B491B34F5459F227123F4B1C7C7055E
 ```
 
 https://mybot314.ru/tekegram_catalog/

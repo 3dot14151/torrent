@@ -6,7 +6,7 @@ Rayman Origins (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444230.jpg" />
+  <img src="Z:/picture/008/save_picture_444230.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FIFA Street (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444061.jpg" />
+  <img src="Z:/picture/008/save_picture_444061.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Call of Duty 3 (2006) [Xbox360] [Region Free] [Freeboot] [License] [Ru/En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444059.jpg" />
+  <img src="Z:/picture/008/save_picture_444059.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Cave (2013) [PS3] [USA] 4.10 [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443832.jpg" />
+  <img src="Z:/picture/008/save_picture_443832.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Metal Gear Solid HD Collection (2012) [PSVita] [USA] 3.60 [NoNpDrm] [License] [E
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443826.jpg" />
+  <img src="Z:/picture/008/save_picture_443826.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Beyond Good & Evil HD (2011) [PS3] [EUR] 3.55 [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443722.jpg" />
+  <img src="Z:/picture/008/save_picture_443722.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Resident Evil 4 HD (2011) [PS3] [EUR] 4.82 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443721.jpg" />
+  <img src="Z:/picture/008/save_picture_443721.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wipeout 2048 (2012) [PSVita] [EUR] 3.60 [HENkaku] [License / 1.04] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443537.jpg" />
+  <img src="Z:/picture/008/save_picture_443537.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Final Fantasy 3 [JAP/ENG] (2012) [PSP]
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442969.jpg" />
+  <img src="Z:/picture/008/save_picture_442969.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SOCOM 4: Special Forces / SOCOM: Спецназ [PS3] [MOVE] [3D] [EUR] [Ru] [3.
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441750.jpg" />
+  <img src="Z:/picture/008/save_picture_441750.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WRC 5 FIA World Rally Championship (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439543.jpg" />
+  <img src="Z:/picture/008/save_picture_439543.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WWE 2K17 (2016) [Xbox360] [RegionFree] 17349 [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438705.jpg" />
+  <img src="Z:/picture/008/save_picture_438705.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Prison Princess (2020) [Switch] [USA] 9.1.0 [NSZ] [License / 1.0.1] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437733.jpg" />
+  <img src="Z:/picture/008/save_picture_437733.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Minecraft: Xbox 360 Edition [Update Aquatic] (2012) [Xbox360] [Region Free] [Fre
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437487.jpg" />
+  <img src="Z:/picture/008/save_picture_437487.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Call of Duty Classic (2009) [PS3] [EUR] 4.82 [OFW / HAN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436836.jpg" />
+  <img src="Z:/picture/008/save_picture_436836.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Legend of Spyro: Dawn of the Dragon [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436326.jpg" />
+  <img src="Z:/picture/008/save_picture_436326.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The LEGO Movie Videogame (2014) [PS4] [EUR] 5.05  [HEN] [License / 1.01 / DLC] [
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435888.jpg" />
+  <img src="Z:/picture/008/save_picture_435888.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Battlefield V (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.26] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435472.jpg" />
+  <img src="Z:/picture/008/save_picture_435472.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Hitman: Absolution - Complete Edition (2013) [PS3] [EUR] 4.25 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434625.jpg" />
+  <img src="Z:/picture/008/save_picture_434625.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Dragon Quest V - Hand of the Heavenly Bride (2009) [NDS] [USA] FlashME [Unoffici
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432116.jpg" />
+  <img src="Z:/picture/008/save_picture_432116.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Dragon Quest Builders (2016) [PSVita] [USA] 3.60 [HENkaku] [License / DLC] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431819.jpg" />
+  <img src="Z:/picture/008/save_picture_431819.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WWE 2K17 (2016) [PS3] [USA] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429690.jpg" />
+  <img src="Z:/picture/008/save_picture_429690.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SuperCar Challenge (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429396.jpg" />
+  <img src="Z:/picture/008/save_picture_429396.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Godzilla (2015) [PS3] [EUR] 4.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mult
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429377.jpg" />
+  <img src="Z:/picture/008/save_picture_429377.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Masquerade: The Baubles of Doom (2016) [PS3] [EUR] 4.21 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429376.jpg" />
+  <img src="Z:/picture/008/save_picture_429376.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Deadfall Adventures: Heart of Atlantis (2014) [PS3] [EUR] 4.50 [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429358.jpg" />
+  <img src="Z:/picture/008/save_picture_429358.jpg" />
 </div>
 
 

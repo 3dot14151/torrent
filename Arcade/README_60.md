@@ -1,3 +1,29 @@
+###  Публикация: 1374767   (6873) от 20.08.2025
+
+Streets of Rogue (2019) [Ru/Multi] (99i2/dlc) License GOG (обновляемая)
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Streets of Rogue – это облегченный роглайк о выборе, свободе и безудержном веселье. Вдохновением для игры послужили быстрые топдаун роглайк-игры вроде Binding of Isaac и Nuclear Throne плюс RPG вроде Deus Ex с их свободой для экспериментов и погружения во вселенную игры. Действие происходит не в привычном подземелье, а в живом процедурно сгенерированном городе, где (   Читать дальше...   )Тип издания: LicenseРазработчик: Matt DabrowskiЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1E849C06E711475C10EC10DE8A3EB9C51A5299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809592   (6700) от 21.08.2025
 
 Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
@@ -6,7 +32,7 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6700.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6570.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (build 19708406) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6213.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.10.1/dlc) Scene Tenoke [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6188.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Lost Twins II (2) (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6183.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.7) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6170.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5740.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5697.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5601.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5551.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.6.a) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5444.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5365.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5358.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (07.12.2017) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5208.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5197.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5185.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Hotline Miami (2012) [Ru/Multi] (gog-8(a)) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5180.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5156.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Empty Shell (2023) [Ru/Multi] (1.6i) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4727.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.7.123249.0/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4599.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Re:Fresh (2023) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4540.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Vault of the Void (2022) [Ru/Multi] (2.6.55.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4497.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1093513) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4221.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3634.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3282.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E2EB4F3592767065158BC86C355B1E6A6152BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776283   (3274) от 12.09.2025
-
-ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3274.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где органической жизни давно не осталось, ReSetna пробуждена ИИ APEX, чтобы противостоять растущей угрозе таинственного Сигнала. По мере того как Сигнал распространяет хаос, нарушая равновесие мира и сводя роботов с ума, продвинутый боевой робот ReSetna должна установить истину, стоящую за появлением Сигнала, и устранить его влияние. Со своим преданным дроном-спутником (   Читать дальше...   )Тип издания: RepackРазработчик: Today's GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3F2BDE445AF903FDDC9D7177C5AB2E9D2BF30F
 ```
 
 https://mybot314.ru/tekegram_catalog/

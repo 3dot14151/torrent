@@ -6,7 +6,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28845.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) Repack Wanterlude [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27790.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27463.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Need for Speed: Carbon (2006) [Ru/Multi] (1.4) Repack Wanterlude [Collector's Ed
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26413.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26315.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23850.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23823.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crash Time - Undercover (2012) [Multi] (5.0.33) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23151.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.54.2.3/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22528.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21126.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20946.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20874.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack Decepticon [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20448.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20408.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Scene Rune [Premium Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20241.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Repack Wanterlude [Premium E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19011.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Super Woden GP II (2) (2023) [Ru/Multi] (1.31b) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18883.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Dakar Desert Rally (2022) [Ru/Multi] (2.3.0/dlc) Repack Let'sРlay [Digital Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18457.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17639.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.684.745/dlc) Repack seleZen [Premium Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15916.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.00/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14911.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Heading Out (2024) [Ru/Multi] (1.040) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14488.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ BallisticNG (2018) [En] (1.4.0.1b/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14468.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11831.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1s/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11826.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Rally Mechanic Simulator (2025) [Ru/Multi] (1.0.236/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11653.jpg" />
 </div>
 
 

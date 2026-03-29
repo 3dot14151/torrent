@@ -1,3 +1,29 @@
+###  Публикация: 1413150   (182616) от 28.11.2020
+
+Ходячие мертвецы: Мир за пределами / The Walking Dead: World Beyond (2020) WEBRip (сезон 1, серии 1-10 из 10) OmskBird [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_182616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сериала "Ходячие мертвецы: Мир за пределами" рассказывает о первом человеческом поколении, которое родилось и выросло в момент зомби-апокалипсиса. Главные действующие лица этого сериала - группа подростков, которые решают отправиться в продолжительное и сложное путешествие. Главные действующие лица этого сериала уверены, что смогут отыскать следы (   Читать дальше...   )Производство: США / AMC StudiosЖанр: ужасы, фантастика, драмаРежиссер: Магнус Мартенс, Дэн Лью, Джордан Вот-РобертсАктеры: Аннет Махендру, Алайя Ройял, Нико Торторелла, Джо Холт, Aaron Snyder, Николас Канту, Кристина Браудер, Samantha Lorraine, Джелани Алладин, Кристина Брукато и другие.Перевод: Многоголосый профессиональный (OmskBird)Субтитры: русские (forced на непереведенные фрагменты, отдельным файлом)Продолжительность: ~00:54:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6BE08EF055C1DEADDCEE87FCA997DC0F3F5630E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413160   (182595) от 28.11.2020
 
 Ходячие мертвецы: Мир за пределами / The Walking Dead: World Beyond (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OmskBird [AD]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182595.jpg" />
+  <img src="Z:/picture/005/save_picture_182595.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_182447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182447.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_182336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182336.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182039.jpg" />
+  <img src="Z:/picture/005/save_picture_182039.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181473.jpg" />
+  <img src="Z:/picture/005/save_picture_181473.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181348.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181281.jpg" />
+  <img src="Z:/picture/005/save_picture_181281.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181252.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181060.jpg" />
+  <img src="Z:/picture/005/save_picture_181060.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180366.jpg" />
+  <img src="Z:/picture/005/save_picture_180366.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180302.jpg" />
+  <img src="Z:/picture/005/save_picture_180302.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180293.jpg" />
+  <img src="Z:/picture/005/save_picture_180293.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180244.jpg" />
+  <img src="Z:/picture/005/save_picture_180244.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180106.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179995.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179966.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179465.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179409.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179070.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179040.jpg" />
+  <img src="Z:/picture/005/save_picture_179040.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178999.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178952.jpg" />
+  <img src="Z:/picture/005/save_picture_178952.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178305.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178301.jpg" />
+  <img src="Z:/picture/005/save_picture_178301.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178225.jpg" />
+  <img src="Z:/picture/005/save_picture_178225.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F94DB7005EAD488CF68202A36456ED0C25DA2A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666968   (178170) от 06.10.2023
-
-Дом через дорогу / The House Across the Street (2022) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клаудия, одинокая мать-одиночка и школьная медсестра, жаждет общения. Ее возможность стать героем появляется, когда маленький ребенок её соседей, Эмили Винтер, пропадает без вести. Клаудия оказывается втянутой в это дело и зацикливается на раскрытии правды. Однако ее увлечение быстро начинает превращаться в одержимость не только тем, что случилось с Эмили, но и семьей (   Читать дальше...   )Производство: Великобритания / Channel 5 Productions, Clapperboard Studios, MK1 ProductionsЖанр: триллер, драмаРежиссер: Доминик ЛеклеркАктеры: Иэн Ллойд Андерсон, Ширли Хендерсон, Крэйг Паркинсон, Лиза Хогг, Сара Пауэлл, Caleb Wilson, Calum Jess, Ронан Лихи, Люк Гриффин, Eddie BrettПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FAF481DA67C2DD85CCCFD027F825C8B4A3D2B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

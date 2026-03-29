@@ -1,3 +1,111 @@
+###  Публикация: 1157562   (490055) от 17.08.2017
+
+OmmWriter 1.52 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490055.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmmWriter - скромная попытка вернуть себе то, что технология вырвала у нас сегодня: наша способность концентрироваться.
+
+OmmWriter - это инструмент, который позволяет снова писать в удовольствие, позволяя пользователям оставаться наедине со своими мыслями; Сконцентрироваться и писать без отвлечения. OmlWriter - это нечто большее, чем текстовый процессор.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 июля 2017Разработчик: Herraiz Soto & Co.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6764303AA39838BA21F507E1DAABEAA501C54ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404878   (489883) от 27.08.2020
+
+MediaInfo 20.08.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_489883.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 21.08.2020Разработчик: MediaAreaПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705DDF71F131ADCA774108DF4629A7E8A490CD73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243579   (489838) от 28.08.2018
+
+Hands Off! 3.2.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_489838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! представляет собой функциональный и простой в использовании инструмент для платформы macOS может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность утечки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2018Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A88C84623BC5FE1AE805619445D8FA9C72E329E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404820   (489755) от 27.08.2020
+
+TG Pro (Temperature Gauge Pro) 2.49 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_489755.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.08.2020Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA72DD3FDFB16C365CA179E77856ED2A7A718361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404880   (489751) от 27.08.2020
 
 Money Pro - Personal Finance 2.5.12 [Multi/Ru]
@@ -6,7 +114,7 @@ Money Pro - Personal Finance 2.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489751.jpg" />
+  <img src="Z:/picture/008/save_picture_489751.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ App Cleaner & Uninstaller Pro 7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489561.jpg" />
+  <img src="Z:/picture/008/save_picture_489561.jpg" />
 </div>
 
 
@@ -63,7 +171,7 @@ Sketch 68.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489557.jpg" />
+  <img src="Z:/picture/008/save_picture_489557.jpg" />
 </div>
 
 
@@ -90,7 +198,7 @@ Motion 5.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489401.jpg" />
+  <img src="Z:/picture/008/save_picture_489401.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ Compressor 4.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489397.jpg" />
+  <img src="Z:/picture/008/save_picture_489397.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ ForkLift 3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489393.jpg" />
+  <img src="Z:/picture/008/save_picture_489393.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ Rhinoceros 6 v6.29.20239 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489391.jpg" />
+  <img src="Z:/picture/008/save_picture_489391.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Grids for Instagram 6.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489387.jpg" />
+  <img src="Z:/picture/008/save_picture_489387.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ PDF Expert 2.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489363.jpg" />
+  <img src="Z:/picture/008/save_picture_489363.jpg" />
 </div>
 
 
@@ -253,7 +361,7 @@ DaisyDisk 4.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489252.jpg" />
+  <img src="Z:/picture/008/save_picture_489252.jpg" />
 </div>
 
 
@@ -281,7 +389,7 @@ Final Cut Pro X 10.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488987.jpg" />
+  <img src="Z:/picture/008/save_picture_488987.jpg" />
 </div>
 
 
@@ -309,7 +417,7 @@ MetaImage  2.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488509.jpg" />
+  <img src="Z:/picture/008/save_picture_488509.jpg" />
 </div>
 
 
@@ -336,7 +444,7 @@ SnapMotion Unlimited 5.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488460.jpg" />
+  <img src="Z:/picture/008/save_picture_488460.jpg" />
 </div>
 
 
@@ -365,7 +473,7 @@ Memory Pictures 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488453.jpg" />
+  <img src="Z:/picture/008/save_picture_488453.jpg" />
 </div>
 
 
@@ -391,7 +499,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488450.jpg" />
+  <img src="Z:/picture/008/save_picture_488450.jpg" />
 </div>
 
 
@@ -418,7 +526,7 @@ Find Any File (FAF) 2.3.3b14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488446.jpg" />
+  <img src="Z:/picture/008/save_picture_488446.jpg" />
 </div>
 
 
@@ -445,7 +553,7 @@ Keep It 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488443.jpg" />
+  <img src="Z:/picture/008/save_picture_488443.jpg" />
 </div>
 
 
@@ -471,7 +579,7 @@ Disk Graph 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488440.jpg" />
+  <img src="Z:/picture/008/save_picture_488440.jpg" />
 </div>
 
 
@@ -497,7 +605,7 @@ X Djing - Music Mix Maker 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488435.jpg" />
+  <img src="Z:/picture/008/save_picture_488435.jpg" />
 </div>
 
 
@@ -523,7 +631,7 @@ Epiphany WorkFlow II 8.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488431.jpg" />
+  <img src="Z:/picture/008/save_picture_488431.jpg" />
 </div>
 
 
@@ -549,7 +657,7 @@ Sublime Merge Dev Build 2075 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488426.jpg" />
+  <img src="Z:/picture/008/save_picture_488426.jpg" />
 </div>
 
 
@@ -575,7 +683,7 @@ Music Tag Editor Pro 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488420.jpg" />
+  <img src="Z:/picture/008/save_picture_488420.jpg" />
 </div>
 
 
@@ -588,112 +696,6 @@ Music Tag Editor - редактор музыкальных тегов помож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF6F997D0D0B3CDE8A7BAEBF8C5267C746D83FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566002   (488414) от 26.07.2022
-
-SQLPro Studio 2022.45 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488414.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 17.06.2022Разработчик: © 2022 Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAF5B89004C170775AB9CAB23FC9CE602C9BE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566013   (488410) от 26.07.2022
-
-Slidepad 1.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488410.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2022Разработчик: © 2021 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54210CCD8A97595DE9911CF84178740956DE1F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565926   (488406) от 26.07.2022
-
-Loop Mash Up Pro 1.2.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте профессиональную музыку с помощью Loop Mash Up. Это приложение представляет собой мощный сэмплер с множеством циклов и пресетов. Все образцы были созданы профессиональными музыкантами и диджеями. Наслаждайтесь созданием мощных ударов, просто нажав на «pads» и получите мгновенный результат!Тип издания: macOS SoftwareРелиз состоялся: 29.06.2022Разработчик: © 2022 Music TopiaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8387E8B41C6E7E6886792CB0E72BB64F7D183F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565972   (488404) от 26.07.2022
-
-Blackmagic Design Fusion Studio 18.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Fusion является самым передовым программным обеспечением для наложения визуальных эффектов, вещательной графики и 3D-анимации. За более чем 25 лет, прошедших с момента его появления, голливудские студии создали в нем свыше тысячи известных во всем мире блокбастеров. Мощный интерфейс программы построен на базе узлов, которые позволяют быстро и легко добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.07.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084AD4C0AC80E089AE86B9024AAA5B12675A3595
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1256014   (359046) от 20.10.2018
+
+Формула 1. Сезон 2018. 18-й Этап. Гран-при США. Свободная практика 1 (19.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359046.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 октября 2018 года, пятница. 18:00 МСК
+Формула 1. 18-й Этап сезона 2018 года. Гран-при США. Остин (США).
+Свободная практика 1
+Арена: Трасса Америк (Остин, США)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01CFB2DBC0ED0D0F052D89061328C74C7D1493D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951921   (358976) от 31.10.2015
+
+Обзор. Кубок Германии 2015-16. 1/16 финала. Обзор матчей (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 1/16 финала Кубка Германии 2015-2016.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F712C220CE7C8058A184E694553F4DFA5518E052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951622   (358975) от 31.10.2015
+
+Футбол. Кубок России 2015-16 1/8 финала. Зенит (Санкт-Петербург) – Тосно (Ленинградская область) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок России 2015-16, 1/8 финала. Зенит (Санкт-Петербург) – Тосно (Ленинградская область).Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7E2D64BB88E873D267DD7744F021D8DC8C6C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951913   (358974) от 31.10.2015
+
+Обзор. Кубок Английской Лиги 2015-2016. 4 Раунд. Обзор матчей (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 4 раунда Кубка Английской Лиги 2015-2016.Телекомпания: Channel 5 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454221877DE1B40B46084E794B72598609343AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951626   (358973) от 31.10.2015
+
+Футбол. Кубок России 2015-16 1/8 финала. ЦСКА (Москва) – Урал (Екатеринбург) (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок России 2015-16, 1/8 финала. ЦСКА (Москва) – Урал (Екатеринбург)Телекомпания: НТВ+ Наш Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9571B213CD311F034F31412BE3528446B9BEE78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952157   (358972) от 31.10.2015
+
+Хоккей. НХЛ Сезон 2015-16. Баффало Сейбрз - Питсбург Пингвинз (29.10.2015) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Матч регулярного чемпионата NHL сезон 2015-16 (Buffalo Sabres vs Pittsburgh Penguins) (эфир от 29.10.2015)Телекомпания: ROOT SportsЖанр: СпортПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCDF612DAB6052B61DA3D103632F2E86584257B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952049   (358968) от 31.10.2015
 
 Хоккей. НХЛ Сезон 2015-16. Монреаль Канадиенс - Питтсбург Пингвинз (28.10.2015) WEB-DL [H.264/720p-LQ]
@@ -6,7 +165,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358968.jpg" />
+  <img src="Z:/picture/008/save_picture_358968.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358923.jpg" />
+  <img src="Z:/picture/008/save_picture_358923.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358860.jpg" />
+  <img src="Z:/picture/008/save_picture_358860.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358858.jpg" />
+  <img src="Z:/picture/008/save_picture_358858.jpg" />
 </div>
 
 
@@ -116,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358856.jpg" />
+  <img src="Z:/picture/008/save_picture_358856.jpg" />
 </div>
 
 
@@ -145,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358448.jpg" />
+  <img src="Z:/picture/008/save_picture_358448.jpg" />
 </div>
 
 
@@ -171,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357942.jpg" />
+  <img src="Z:/picture/008/save_picture_357942.jpg" />
 </div>
 
 
@@ -197,7 +356,7 @@ Discovery: Из чего это сделано? [Сезоны 1-5] / How Do They
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357457.jpg" />
+  <img src="Z:/picture/005/save_picture_357457.jpg" />
 </div>
 
 
@@ -225,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357264.jpg" />
+  <img src="Z:/picture/008/save_picture_357264.jpg" />
 </div>
 
 
@@ -251,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357053.jpg" />
+  <img src="Z:/picture/008/save_picture_357053.jpg" />
 </div>
 
 
@@ -280,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357052.jpg" />
+  <img src="Z:/picture/008/save_picture_357052.jpg" />
 </div>
 
 
@@ -309,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357046.jpg" />
+  <img src="Z:/picture/008/save_picture_357046.jpg" />
 </div>
 
 
@@ -338,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356919.jpg" />
+  <img src="Z:/picture/008/save_picture_356919.jpg" />
 </div>
 
 
@@ -367,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356917.jpg" />
+  <img src="Z:/picture/008/save_picture_356917.jpg" />
 </div>
 
 
@@ -396,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356916.jpg" />
+  <img src="Z:/picture/008/save_picture_356916.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356914.jpg" />
+  <img src="Z:/picture/008/save_picture_356914.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356905.jpg" />
+  <img src="Z:/picture/008/save_picture_356905.jpg" />
 </div>
 
 
@@ -483,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356561.jpg" />
+  <img src="Z:/picture/008/save_picture_356561.jpg" />
 </div>
 
 
@@ -512,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356342.jpg" />
+  <img src="Z:/picture/008/save_picture_356342.jpg" />
 </div>
 
 
@@ -538,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356341.jpg" />
+  <img src="Z:/picture/008/save_picture_356341.jpg" />
 </div>
 
 
@@ -549,165 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93E1C1E0F1BAB0921354A88F95387F3A648C85E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952356   (356340) от 01.11.2015
-
-Футбол. Чемпионат Испании 2015-16. Liga BBVA. 10 тур. Реал Мадрид – Лас-Пальмас (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Испании 2015-16, Liga BBVA. 10 тур. Реал Мадрид – Лас-Пальмас.Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:47:49 + 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EAB0EF78D02053B6095BBCA9D8D4E16E3E497C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952336   (356339) от 01.11.2015
-
-Футбол. Чемпионат России 2015-2016. РФПЛ. 14 тур. Зенит - Мордовия (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат России 2015-2016, 14 тур. Зенит - Мордовия.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 02:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393323856FC2A4C79EF00CA4CADAD9FD457838B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178539   (356260) от 28.10.2017
-
-Фигурное катание. Гран-при 2017-2018. 2-й Этап. Скейт Канада 2017. Реджайна (Канада). Женщины. Короткая программа (27.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356260.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 октября 2017 года, пятница. 21:57 МСК
-Серия Гран-при по фигурному катанию сезона 2017-2018.
-«Skate Canada International 2017» — 2-й Этап Гран-при. Реджайна (Канада).
-Женщины. Короткая программа(   Читать дальше...   )Телекомпания: Eurosport Gold HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B510DF2E0268A4D27FE9802D55CE5903DAC9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952406   (356214) от 01.11.2015
-
-Вести в субботу с Сергеем Брилевым. Экстренный выпуск (31.10.2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утром 31 октября российский пассажирский самолет А321, следовавший рейсом 7K 9268 из Шарм-Эль-Шейха в Петербург, разбился на Синайском полуострове. На его борту находились 217 пассажиров и 7 членов экипажаТелекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DFECF1B21087DBDA09265244BEEA8C718CBF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952555   (356209) от 01.11.2015
-
-Воскресное время - Первый канал (01.11.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 02:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DB85ED32F69CAEFFA83CC94089B244B6A39F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952370   (356048) от 01.11.2015
-
-Футбол. Чемпионат Англии 2015-16. EPL. 11 тур. Челси - Ливерпуль (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Англии 2015-16, EPL. 11 тур. Челси - Ливерпуль.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E2A18C8E51F2D2244829F8091C95F3AB7EA578
 ```
 
 https://mybot314.ru/tekegram_catalog/

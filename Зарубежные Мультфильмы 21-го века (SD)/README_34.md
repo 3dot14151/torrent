@@ -1,3 +1,111 @@
+###  Публикация: 941788   (457198) от 29.09.2015
+
+Песнь моря / Song of the Sea (2014) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на древне-кельтском мифе о селки
+Море всегда чарует своей природой. О морях сложено немало легенд. Некоторые из них мама рассказывает своим сыну и дочери. Эти легенды передаются из поколения в поколение: в морских водах живут удивительные существа - селки. Это заколдованные люди в образе тюленей. Дети сначала воспринимают историю матери как сказку. (   Читать дальше...   )Производство: Ирландия, Дания, Бельгия, Люксембург, Франция / Big Farm, Digital Graphics, Irish Film BoardЖанр: мультфильм, фэнтези, семейныйРежиссер: Томм МурПерсонажи: Брендан Глисон, Финола Флэнаган, Пэт Шорт, Дэвид Роул, Лиза Хэннигэн, Джон КенниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51189EFFFF36CE13577A829CD1B1C4C80A4BB7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550354   (457160) от 22.09.2012
+
+Золушка 2: Мечты сбываются / Cinderella 2 (2002) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что сказка про Золушку закончилась тем, что она примерила хрустальную туфельку и вышла замуж за прекрасного принца. Закончилась? Ну, нет! Сказка только начинается!
+
+«Уолт Дисней» приглашает детей и взрослых в увлекательное и веселое путешествие по волшебному миру принцессы Золушки. Три совершенно новые истории, которых не найти в книгах: о первых днях (   Читать дальше...   )Жанр: Компьютерная анимация, Приключения, ДетскийРежиссер: Джон КафкаПеревод: Профессиональный (полное дублирование)Продолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E5BA26DF1A6EEDE2A33D38F730786DE4D11706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941794   (457083) от 29.09.2015
+
+Песнь моря / Song of the Sea (2014) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на древне-кельтском мифе о селки
+Море всегда чарует своей природой. О морях сложено немало легенд. Некоторые из них мама рассказывает своим сыну и дочери. Эти легенды передаются из поколения в поколение: в морских водах живут удивительные существа - селки. Это заколдованные люди в образе тюленей. Дети сначала воспринимают историю матери как сказку. (   Читать дальше...   )Производство: Ирландия, Дания, Бельгия, Люксембург, Франция / Big Farm, Digital Graphics, Irish Film BoardЖанр: мультфильм, фэнтези, семейныйРежиссер: Томм МурПерсонажи: Брендан Глисон, Финола Флэнаган, Пэт Шорт, Дэвид Роул, Лиза Хэннигэн, Джон КенниПеревод: Дублированный (iTunes) + Авторский (Ю.Сербин) + Любительский многоголосый (CatBug TV) + Профессиональный многоголосый (Омикрон)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22062BE57A70CD216D664A9FD36E5C908D5EF6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162710   (456370) от 02.09.2017
+
+Заячья школа / Rabbit school (2017) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс, любитель городской суеты и молодежных развлечений, попадает туда, где ему совсем не место — в старомодную заячью школу. Но чем дольше он здесь находится, тем больше узнает о чудесном светлом празднике, ценности дружбы и собственном предназначении.Производство: Германия | Akkord Film Produktion GmbH, Virgin Lands Animated Pictures, Norddeutscher Rundfunk (NDR)Жанр: Мультфильм, семейныйРежиссер: Уте фон Мюнхов-ПольПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB17D91C5F76378DFB326620F591335F5557D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 704446   (455358) от 27.09.2013
 
 Бэтмен: Под колпаком / Batman: Under the Red Hood (2010) HDRip
@@ -6,7 +114,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455358.jpg" />
+  <img src="Z:/picture/008/save_picture_455358.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454165.jpg" />
+  <img src="Z:/picture/008/save_picture_454165.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452226.jpg" />
+  <img src="Z:/picture/008/save_picture_452226.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451174.jpg" />
+  <img src="Z:/picture/008/save_picture_451174.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448236.jpg" />
+  <img src="Z:/picture/008/save_picture_448236.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444015.jpg" />
+  <img src="Z:/picture/008/save_picture_444015.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442458.jpg" />
+  <img src="Z:/picture/008/save_picture_442458.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442103.jpg" />
+  <img src="Z:/picture/008/save_picture_442103.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439657.jpg" />
+  <img src="Z:/picture/008/save_picture_439657.jpg" />
 </div>
 
 
@@ -240,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438644.jpg" />
+  <img src="Z:/picture/008/save_picture_438644.jpg" />
 </div>
 
 
@@ -266,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437565.jpg" />
+  <img src="Z:/picture/008/save_picture_437565.jpg" />
 </div>
 
 
@@ -292,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436764.jpg" />
+  <img src="Z:/picture/008/save_picture_436764.jpg" />
 </div>
 
 
@@ -318,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436387.jpg" />
+  <img src="Z:/picture/008/save_picture_436387.jpg" />
 </div>
 
 
@@ -344,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434471.jpg" />
+  <img src="Z:/picture/008/save_picture_434471.jpg" />
 </div>
 
 
@@ -371,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434278.jpg" />
+  <img src="Z:/picture/008/save_picture_434278.jpg" />
 </div>
 
 
@@ -397,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433244.jpg" />
+  <img src="Z:/picture/008/save_picture_433244.jpg" />
 </div>
 
 
@@ -425,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433130.jpg" />
+  <img src="Z:/picture/008/save_picture_433130.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433093.jpg" />
+  <img src="Z:/picture/008/save_picture_433093.jpg" />
 </div>
 
 
@@ -477,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431299.jpg" />
+  <img src="Z:/picture/008/save_picture_431299.jpg" />
 </div>
 
 
@@ -503,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430837.jpg" />
+  <img src="Z:/picture/008/save_picture_430837.jpg" />
 </div>
 
 
@@ -529,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430709.jpg" />
+  <img src="Z:/picture/008/save_picture_430709.jpg" />
 </div>
 
 
@@ -555,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430450.jpg" />
+  <img src="Z:/picture/008/save_picture_430450.jpg" />
 </div>
 
 
@@ -568,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3104D654BBFD04F697B23849FC9ADC6C402ED24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249720   (430383) от 25.09.2018
-
-Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430383.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Дракула вместе со своими друзьями отправляется в круиз на шикарном лайнере. Развлечения там на любой вкус: от монстробаскетбола и экзотических экскурсий, до лунных ванн. Неожиданно Дракула влюбляется в капитана корабля — загадочную и прекрасную Эрику, и его дочка Мэвис понимает, что поездка может превратиться в кошмар: ведь Эрика хранит ужасный секрет, (   Читать дальше...   )Производство: США, Columbia Pictures, Media Rights Capital, Sony Pictures AnimationЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Генндий ТартаковскийАктеры: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Фрэн Дрешер, Стив Бушеми, Молли Шеннон, Дэвид Спейд, Кигэн-Майкл Ки, Джим ГэффиганПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7A382222E40175D131D8D17F8E5E49ABCA29DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250092   (428070) от 26.09.2018
-
-Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428070.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Дракула вместе со своими друзьями отправляется в круиз на шикарном лайнере. Развлечения там на любой вкус: от монстробаскетбола и экзотических экскурсий, до лунных ванн. Неожиданно Дракула влюбляется в капитана корабля — загадочную и прекрасную Эрику, и его дочка Мэвис понимает, что поездка может превратиться в кошмар: ведь Эрика хранит ужасный секрет, (   Читать дальше...   )Производство: США / Columbia Pictures, Media Rights Capital, Sony Pictures AnimationЖанр: Фентези, Комедия, ПриключенияРежиссер: Генндий ТартаковскийАктеры: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Фрэн Дрешер, Стив Бушеми, Молли Шеннон, Дэвид Спейд, Кигэн-Майкл Ки, Джим ГэффиганПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Full), Английские (Full)Продолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF89206B8AA790BA4EA0F00C3EE5B0DD6745F7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555944   (427989) от 04.10.2012
-
-Обитель зла: Проклятие / Biohazard: Damnation (2012) ВDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярной компьютерной анимации «Обитель зла: Вырождение». Леон Кеннеди отправляется в Восточную Европу на борьбу с монстрами — порождениями корпорации Амбрела. Больше монстров, больше пушек, больше экшена.Производство: Япония | Digital Frontier, Sony Pictures Entertainment, Capcom CompanyЖанр: Мультфильм, Ужасы, Фантастика, Боевик, ТриллерРежиссер: Макото КамияПерсонажи: Робин Сакс, Кортни Тейлор, Кэролин Лоуренс, Мэттью Мерсер, Уэнди Ли, Дейв Уиттенберг, Салли Саффиоти, Вэл Тассо, Элисон КортПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русский, Украинский, АнглийскийПродолжительность: 01:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F976FE7B985A3BBD91E3C5CE0CEEF1780CB967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 830356   (427772) от 11.10.2014
-
-7-ой гном / Der 7bte Zwerg (2014) DVDRip
-
->>След.
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427772.jpg" />
-</div>
-
-
-###  Подробнее
-
-В замке Фантабулараса большой переполох: принцесса Роза празднует свой 18-й день рождения. Приняты самые строгие меры безопасности, ведь злобная Колдунья Делламорта, которая прокляла Розу на ее крестинах, не позволит проклятию раствориться в воздухе. Семеро гномов — Умник, Рыжик, Ворчун, Соня, Силач, Бодряк и Бобо — ничего не знают об этом, когда отправляются на (   Читать дальше...   )Производство: Германия / Animationsfabrik Hamburg, Erfttal FilmЖанр: ПриключенияРежиссер: Борис АльиновичАктеры: Борис Альинович, Элвин Камерон, Нина Хаген, Норберт Хейстеркамп, Мирко Нончев, Ана Сани, Ральф Шмитц, Мартин Шнайдер, Отто Ваалкес, Густав-Петер ВёлерПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE390BA9CD156745FC5799F3130397FC833B2E30
 ```
 
 https://mybot314.ru/tekegram_catalog/

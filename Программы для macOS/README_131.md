@@ -1,3 +1,140 @@
+###  Публикация: 1424846   (226162) от 18.11.2020
+
+Records 1.6.13 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Records - Личная база данных и визуальный органайзер
+Records восхитительный и простой в использовании органайзер для создания личной базы данных. Это идеальный компаньон для всего, что вы хотите, чтобы собрать и систематизировать в жизни, включая ваши любимые фильмы, предлагая отличный баланс между легкостью в использовании и мощными функциями. Records использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2020Разработчик: Records TeamПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD95A6414878509D2919A08933CB01F88626163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424990   (226153) от 18.11.2020
+
+Redacted 1.2.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Redacted позволяет быстро и легко редактировать части изображения. Перетащите изображение, чтобы начать работать, а когда Вы закончите , сможете поделиться в Facebook или Twitter или просто сохранить отредактированное изображение на компьютере.
+
+Вы можете редактировать изображения тремя различными способами :
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: Nothing Magical Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6BA8487C3100631D303ECB3C5A1A5C0A12CC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268346   (226064) от 11.12.2018
+
+Jump Desktop (RDP & VNC) 8.1.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jump Desktop (RDP & VNC) - программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
+Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2018Разработчик: Phase Five SystemsПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3029C036228D3710A1FAC9D0A380503ACA8EC8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424829   (226032) от 18.11.2020
+
+Memory Clean 3 v1.0.20 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memory Clean - приложение для оптимизации памяти вашего Mac и лучше всего использовать утилиту после того как вы закончили интенсивное использование памяти (RAM) в приложении или игре.
+
+У каждого пользователя найдутся «тяжелые» приложения для работы которых не помешает небольшая уборка оперативной памяти. Даже работа с браузером порой может отнять приличное количество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C869786F1BEF2A5C983134D956C32AB1D896C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650532   (226011) от 02.08.2023
+
+2Do for Mac 2.8.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226011.jpg" />
+</div>
+
+
+###  Подробнее
+
+2Do делает реальным совершенно иной подход к управлению задачами. Благодаря чрезвычайно простому интерфейсу, и универсальному и гибкому набору мощных функций, программа позволяет сосредоточиться на том, что наиболее важно для вас: вашей жизни. 2Do невозможно использовать неправильным образом и, в отличие от других программ, он не заставляет вас придерживаться определенной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2023Разработчик: © 2009 - 2023 Beehive InnovationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D50F9D475A2F66201FD4685BB6E74AF6CBA275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342205   (225997) от 01.12.2019
 
 SQLEditor 3 v3.6.2 [En]
@@ -6,7 +143,7 @@ SQLEditor 3 v3.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225997.jpg" />
+  <img src="Z:/picture/005/save_picture_225997.jpg" />
 </div>
 
 
@@ -32,7 +169,7 @@ ImageRanger Pro Edition 1.9.4.1874 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225963.jpg" />
 </div>
 
 
@@ -58,7 +195,7 @@ SweetScape 010 Editor for Mac 14.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225932.jpg" />
 </div>
 
 
@@ -84,7 +221,7 @@ SubsMarine 1.3.0 fix [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225875.jpg" />
+  <img src="Z:/picture/005/save_picture_225875.jpg" />
 </div>
 
 
@@ -111,7 +248,7 @@ Chaotica 2.0.36 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225864.jpg" />
+  <img src="Z:/picture/005/save_picture_225864.jpg" />
 </div>
 
 
@@ -137,7 +274,7 @@ MiniCAD 4.4.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225759.jpg" />
+  <img src="Z:/picture/005/save_picture_225759.jpg" />
 </div>
 
 
@@ -163,7 +300,7 @@ Easy MP3 Splitter 5.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225586.jpg" />
+  <img src="Z:/picture/005/save_picture_225586.jpg" />
 </div>
 
 
@@ -190,7 +327,7 @@ SnippetsLab 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225082.jpg" />
 </div>
 
 
@@ -216,7 +353,7 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224839.jpg" />
+  <img src="Z:/picture/005/save_picture_224839.jpg" />
 </div>
 
 
@@ -244,7 +381,7 @@ Adobe DNG Converter 11.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224603.jpg" />
+  <img src="Z:/picture/005/save_picture_224603.jpg" />
 </div>
 
 
@@ -270,7 +407,7 @@ Nisus Writer Pro 3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224547.jpg" />
+  <img src="Z:/picture/005/save_picture_224547.jpg" />
 </div>
 
 
@@ -296,7 +433,7 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224038.jpg" />
+  <img src="Z:/picture/005/save_picture_224038.jpg" />
 </div>
 
 
@@ -323,7 +460,7 @@ MacClean360 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224035.jpg" />
+  <img src="Z:/picture/005/save_picture_224035.jpg" />
 </div>
 
 
@@ -349,7 +486,7 @@ Aimersoft DVD Ripper 4.2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224021.jpg" />
+  <img src="Z:/picture/005/save_picture_224021.jpg" />
 </div>
 
 
@@ -378,7 +515,7 @@ DetectX Swift 1.0982 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223979.jpg" />
+  <img src="Z:/picture/005/save_picture_223979.jpg" />
 </div>
 
 
@@ -405,7 +542,7 @@ Aimersoft Video Converter 6.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223965.jpg" />
+  <img src="Z:/picture/005/save_picture_223965.jpg" />
 </div>
 
 
@@ -431,7 +568,7 @@ iNotepad Pro 5.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223961.jpg" />
+  <img src="Z:/picture/005/save_picture_223961.jpg" />
 </div>
 
 
@@ -457,7 +594,7 @@ iCompta 6.0.68 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223512.jpg" />
 </div>
 
 
@@ -483,7 +620,7 @@ Concealer 1.3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223412.jpg" />
 </div>
 
 
@@ -509,7 +646,7 @@ Nik Complete 3 Collection by DxO v3.3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223352.jpg" />
+  <img src="Z:/picture/005/save_picture_223352.jpg" />
 </div>
 
 
@@ -536,7 +673,7 @@ Smith Micro Poser Pro v11.0.1.31230 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223315.jpg" />
+  <img src="Z:/picture/005/save_picture_223315.jpg" />
 </div>
 
 
@@ -547,145 +684,6 @@ Smith Micro Poser Pro — мощный и в тоже время простой 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE523617AF9EDB03D89F2AF644843AEA45B022BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269001   (223246) от 13.12.2018
-
-Movie Edit Pro 3.7.3 (3.7.4) [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movie Edit Pro - Merge Video Image - профессиональное программное обеспечение для редактирования видео, которое может сделать фантастический семейный фильм из видео вашей видеокамеры. Он действительно прост в использовании и весьма полезен для тех, кто любит снимать видео.
-
-Movie Edit Pro - Merge Video Image - это программа для редактирования видео, которая поможет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.05.2018Разработчик: ZHANG FENGПоддерживаемая ОС: macOS 10.7 +Субтитры: • Применяйте к своему видео 12 тонких анимационных эффектов субтитров.
-• Настройте время показа субтитров на временной шкале.
-• Перетащите, чтобы изменить местоположение субтитров.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD282461D0EF1B8F93F6D581F96BD947AF0D10B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425078   (223100) от 19.11.2020
-
-Red Giant Trapcode Suite 16.0.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trapcode Suite состоит из 10 плагинов для After Effects, которые являются отраслевым стандартом телевещания, включающие готовые эффекты и гибкие инструменты 3D-моделирования. Его флагманский продукт Particular 2, имеет быструю систему 3D частиц с возможностью пользовательских частиц, затенение частиц и движение в 3D пространстве. Form 2 сочитает генерацию частиц (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Red Giant LLCПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CB6397701A0298DB67FBA2BD066647B8F7A6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513826   (222814) от 30.11.2021
-
-LogTail 4.3.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для просмотра и мониторинга локальных и удаленных log файлов на серверах Linux (с использованием SSH). Эта утилита ищет в логах события по сигнатуре и при нахождении важной уведомляет администратора.
-Logtail поможет в мониторинге приложений и системного журнала, в реальном времени.
-Logtail позволяет настроить фильтр и правила.
-Фильтр выделяет слова и фразы, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2021Разработчик: © 2021 Stratumsoft Technologies Private LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F230A151B490AF9D82CC6985CB31600DD88431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342707   (222784) от 03.12.2019
-
-iTubeDownloader 6 v6.5.9 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь в iTubeDownloader включена функция как «очередь загрузки». Очередь загрузки позволит вам добавить несколько видео. Программа заботиться о выполнении их в определенном порядке. Кроме того, вы можете выполнить загрузку одновременно.
-
-С iTubeDownloader 6 мы добавили новые функции, чтобы сделать просмотр YouTube проще. iTubeDownloader 6 делает загрузку видео с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AlphaSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F572094B113018C490C6B345C9307DBC85A942D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513699   (222704) от 30.11.2021
-
-Blocks 3.6.0 (RapidWeaver plugin) [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blocks привносит в RapidWeaver макет произвольной формы. Перетаскивайте текст, изображения и даже HTML. Редактируйте, упорядочивайте и изменяйте размер блоков как вам нравится.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: © 2019 YourHead SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24E1141D2AFD996D80F6393E93524EE5CD600D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

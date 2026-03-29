@@ -1,3 +1,107 @@
+###  Публикация: 1224657   (664796) от 11.05.2018
+
+NGW: Неудачи хищников / Predator Fails (2015) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие думают, что жизнь хищников легка и добыча пропитания для них - пустяковое дело: выследил жертву, догнал, напал, убил и съел. А вот и нет! Более чем в половине случаев хищники терпят неудачу. Ошибкам нет числа, да ещё и напарники подводят. Неудачи идут сплошной чередой и впору уже впасть в отчаяние. Ведь очень часто выбранная жертва оказывается быстрее, хитрее, (   Читать дальше...   )Производство: Earth Touch USA, LLC for National Geographic NetworksЖанр: Документальный, познавательный, природа, животный мирРежиссер: Грэм ДуэнПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3 x 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F292722A96FC6D4F45341D913A1F2F5AF2DD6328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512113   (664785) от 18.06.2012
+
+BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of the Gods (2010) BDRemux [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти создания столь прекрасны, что они казались людям спустившимися с небес, не столь удивительно, что европейцы впервые увидев их, посчитали птиц обитателями райского сада Эдема. Этим Эдемом была Новая Гвинея обитаемый остров, который еще не исследовали европейцы и поныне эти великолепные создания можно найти только здесь. Речь идет о невиданных птицах их красота (   Читать дальше...   )Производство: Великобритания / Tigress ProductionsЖанр: ДокументальныйРежиссер: Харви ДжонсПеревод: Двуголосый профессиональныйСубтитры: английскиеПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14499C3C62D452F448ED8311954C6F625F43060E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224603   (664781) от 11.05.2018
+
+NGW: Планета птиц / Planet of the Birds (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Птицы - это единственные представители флоры, которых можно найти на всех семи континентах. Есть птицы, которые убивают, птицы, которые прыгают, танцуют, обладают пронзительным криком и умеют дрожать.Производство: Германия, National Geographic ChannelsЖанр: Документальный, природа, флора, фаунаРежиссер: Лесли ШверинПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA369E42C42777B2D169E25C0B7349CD35DE23F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512419   (664586) от 18.06.2012
+
+Animal Planet. Кошек не любить нельзя [6 серий из 6] / Must love cats (2010) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к невиданным кошачьим приключениям в сериале «Кошек не любить нельзя»! Ее ведущий, музыкант Джон Фултон, большой любитель кошек, приглашает совершить путешествие по удивительному миру пушистых хвостатых созданий. Из этого сериала вы узнаете о кошках много удивительного — например, слышит ли кошка с четырьмя ушами лучше, чем ее обыкновенные сородичи. Мы также посетим удивительный город во Флориде, выстроенный исключительно для кошек!Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 х 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98F2FACC538262098FB40A8136542B552B0D02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138281   (664064) от 29.05.2017
 
 BBC: Horizon. Проект "Гринглоу". В поисках контроля гравитации (Управлять гравитацией) / Project Greenglow The Quest for Gravity control (2016) HDTVRip [H.264/720p-LQ] (сезон 52 эпизод 2)
@@ -6,7 +110,7 @@ BBC: Horizon. Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664064.jpg" />
+  <img src="Z:/picture/008/save_picture_664064.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC. Тайная жизнь птиц / BBC. Secret Life of Birds (2010) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663761.jpg" />
+  <img src="Z:/picture/008/save_picture_663761.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Скрытый мир Амазонки / Amazon Underworld (2016) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660905.jpg" />
+  <img src="Z:/picture/008/save_picture_660905.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC: Материалы и факты. Металлы / The Secret World of Mate
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660207.jpg" />
+  <img src="Z:/picture/008/save_picture_660207.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: Первобытные поселенцы Америки / Traking the Firs
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660110.jpg" />
+  <img src="Z:/picture/008/save_picture_660110.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Секретные материалы древности. Великий п�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659972.jpg" />
+  <img src="Z:/picture/008/save_picture_659972.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Discovery. Апокалипсис 2012: Откровения / Maya 2012 Prophec
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658922.jpg" />
+  <img src="Z:/picture/008/save_picture_658922.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Discovery. Как устроена Вселенная. Есть ли жизнь 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658590.jpg" />
+  <img src="Z:/picture/008/save_picture_658590.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658510.jpg" />
+  <img src="Z:/picture/008/save_picture_658510.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Viasat Nature: BBC: Экспедиция в Новую Гвинею / Expedition
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657915.jpg" />
+  <img src="Z:/picture/008/save_picture_657915.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Discovery: Монстры механики. Разрушители и круши
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657844.jpg" />
+  <img src="Z:/picture/008/save_picture_657844.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657770.jpg" />
+  <img src="Z:/picture/008/save_picture_657770.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Discovery: Монстры механики. Искусственные монс�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657719.jpg" />
+  <img src="Z:/picture/008/save_picture_657719.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ DV: История письменности / Die Geschichte der Schrift (2011) 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657617.jpg" />
+  <img src="Z:/picture/008/save_picture_657617.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NG: Происхождение: Путешествие человечества 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657529.jpg" />
+  <img src="Z:/picture/008/save_picture_657529.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656592.jpg" />
+  <img src="Z:/picture/008/save_picture_656592.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ BBC. Как построить ядерную электростанцию / How
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656036.jpg" />
+  <img src="Z:/picture/008/save_picture_656036.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655870.jpg" />
+  <img src="Z:/picture/008/save_picture_655870.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655375.jpg" />
+  <img src="Z:/picture/008/save_picture_655375.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Discovery: Аляска. Семья из леса / Alaskan Bush People (2014) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655108.jpg" />
+  <img src="Z:/picture/008/save_picture_655108.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ NG. Известная Вселенная / Known Universe (2009) BDRemux [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654704.jpg" />
+  <img src="Z:/picture/008/save_picture_654704.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654508.jpg" />
+  <img src="Z:/picture/008/save_picture_654508.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB0B8FA5F80CA2A8C558DD5D82BF223D043AAD60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516013   (654274) от 27.06.2012
-
-DV: Невероятное вокруг нас. Осязание [17 из 28] / Totally Phenomenal. The Sense of Touch (Tactile Sense) (2012) SATRip
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290C80D8635CB2151C37561593B5FAE7B3E15B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515994   (654230) от 27.06.2012
-
-DV: Невероятное вокруг нас. Мистер Джонас исследует глубины [2 из 28] / Totally Phenomenal. Mr. Jonas dives into the Depths (2012) SATRip
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EA21C351B689217C760DF1147BB1C0BC8642D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516021   (654229) от 27.06.2012
-
-DV: Невероятное вокруг нас. Вкус [18 из 28] / Totally Phenomenal. The Sense of Taste (2012) SATRip
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AF65105F583C67FAA3939571F358CAA9DF9D9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516024   (654228) от 27.06.2012
-
-DV: Невероятное вокруг нас. Вулканы [20 из 28] / Totally Phenomenal. Volcanoes (2012) SATRip
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82D5C0AF6A6591D03CF1CEBABBE0D757F2190EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

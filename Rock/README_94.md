@@ -1,3 +1,32 @@
+###  Публикация: 1699838   (117182) от 16.02.2024
+
+Kgb - Motion (1976) Reissue, 2024, Andromeda Black Hole [MP3|320 Kbps] <blues rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Woman, Stop Whatcha Doin' [00:04:18]
+02 - I Only Need a Next Time [00:03:58]
+03 - My Serene Coleen [00:03:22]
+04 - Lookin' for a Better Way [00:03:09](   Читать дальше...   )Жанр: blues rock, Pop RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81ED79118929697F51163B94B507A463C8656053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701670   (116195) от 22.02.2024
 
 Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Rock, Pop>
@@ -6,7 +35,7 @@ Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116195.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bon Jovi - Superrock Japan 1984 (Live) (2024) [MP3|320 Kbps] <Hard Rock, Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115705.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115591.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - 100% Rock - Rock Hits - From Classic Rock To Metal (2024) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115383.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mike Oldfield - Opus Revisited (Live 1973) (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114837.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nigel Olsson - Nigel Olsson's Drum Orchestra And Chorus (1971) LP [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114495.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112026.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Thirsty Moon - Starchaser (1981) LP [MP3|320 Kbps] <Pop-rock, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111051.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Neil Young & Crazy Horse - Fu##in' Up (2024) [MP3|320 Kbps] <Classic Rock, Count
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110945.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Six By Six - Beyond Shadowland (2024) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110910.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Transatlantic - Live at Morsefest 2022: The Absolute Whirlwind (2024) Live at Mo
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110853.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Ramses - 3 Albums (1976-1981) 2LP+1CD [MP3|320 Kbps] <Krautrock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110847.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tina Turner - What's Love Got to Do with It (1984) 30th Anniversary Deluxe Editi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110797.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Pendragon - The Masquerade Overture (1996) Reissue, Remastered, 2024, Toff Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110588.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ FM - Old Habits Die Hard (2024) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110404.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ironsmith - Ironsmith (2024) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110310.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Kraftsport Mix 2024 [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109493.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Smokie - Rock Away Your Teardrops (1996) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109485.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Ayreon - 01011001 - Live Beneath The Waves (2024) 2 x CD [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109462.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Michael Quatro - Bottom Line (1981) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109165.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Andy Samford - The Eternal Illusion (2024) [MP3|320 Kbps] <Classic Rock, Psyched
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109145.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Arrows - First Hit (1976) Reissue CD, 2000, Repertoire Records [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108992.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Mud - 6 Albums (1974-1983) Collection [MP3|320 Kbps] <Rock, Pop Rock, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108962.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Antennaes - She's A Winner... (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108935.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Marty Friedman - Drama (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108882.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Marty Friedman - Drama (2024) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:979FD02EB747716760F5393F0C67EEE8189172E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726697   (108663) от 30.05.2024
-
-Allan Barron - Money To Burn (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World's Greatest Liar (03:23)
- 02. Dolphins (04:48)
- 03. There's A Man I Know (04:05)
- 04. Boatstopper's Song (03:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5DFD74DF1661583BACB3236F931E815D702A79
 ```
 
 https://mybot314.ru/tekegram_catalog/

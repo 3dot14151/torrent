@@ -1,3 +1,81 @@
+###  Публикация: 1796257   (17581) от 21.05.2025
+
+Город, похожий на Элис / A Town Like Alice (1956) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разбогатевшая молодая англичанка Джин Пэджет возвращается в Малайю, чтобы построить колодец для жителей деревни, которые помогали ей и её подругам по несчастью во время войны. Оглядываясь назад, она вспоминает, как японцы заставляли группу пленных женщин ходить пешком от лагеря к лагерю по всей стране, не давая им приюта. Среди невыносимых страданий и потерь одним (   Читать дальше...   )Производство: Великобритания / Vic Films Productions Ltd.Жанр: драма, мелодрама, военныйРежиссер: Джек ЛиАктеры: Вирджиния МакКенна, Питер Финч, Кэндзи Такаки, Трэн Ван Хе, Джин Андерсон, Мари Лор, Морин Суонсон, Рене Хьюстон, Нора Николсон, Эйлин МурПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: Русский, АнглийскийСубтитры: русские (songs, full) - отдельными файламиПродолжительность: 01:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5862993F5905FE1D07039C034E69B4E45981E0B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798481   (17387) от 22.05.2025
+
+Стромболи, земля божья / Stromboli (Terra di Dio) (1950) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литовская беженка Карин в ходе Второй мировой войны оказывается в итальянском лагере для перемещённых лиц и там, чтобы получить гражданство и вид на жительство, выходит замуж за рыбака Антонио. Супруги отправляются жить на малую родину Антонио остров Стромболи. Однако это удалённое от цивилизации местечко сразу же разочаровывает привыкшую к большим городам Карин. (   Читать дальше...   )Производство: Италия, США / Berit Films, RKO Radio Pictures Inc.Жанр: драмаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Марио Витале, Ренцо Чезана, Марио Спонцо, Джетано Фамуларо, Роберто ОноратиПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C545558CBA8928EE7E4B313F4B35CCA98B0F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 6601   (16498) от 29.05.2025
+
+Фантомас против Фантомаса / Fantomas contre Fantomas  (1949) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один безумный учёный, экспериментирующий с влиянием на сознание, зомбированием и лицевой пластикой, получив отказ от давно возлюбленной вдовы, имитирует суицид, а сам в подпольной лаборатории, обзаведясь «зомбированными» бугаями-работниками и услужливыми медсёстрами, начинает от имени Фантомаса шантажировать разных богачей и убивать их в случае отказа платить. Тем (   Читать дальше...   )Жанр: Триллер, детективРежиссер: Робер ВернэВ ролях: Марселль Шанталь, Эме Кларион, Александр Риньо, Роберт Арну, Берт Бови, Ив Фюре, Нора Кост, Антуан БальпетреПеревод: Любительский одноголосыйКачество: DVDRipПродолжительность: 01:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31AC84DF04982AD96ADB0B69696220B41C6AD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797304   (16287) от 30.05.2025
 
 Пять миль до полуночи / Le couteau dans la plaie (1962) DVDRip [MVO]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16287.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15868.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15682.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15652.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15587.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15502.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15483.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14958.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14567.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14500.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14351.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14346.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14316.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14157.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14020.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13620.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13479.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12657.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12508.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12165.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11978.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11189.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11118.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8118BA6CA3D2B3D98C3665E3692706445625D1A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807340   (11081) от 18.07.2025
-
-Шейн / Shane (1953) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий основан на одноимённом романе Джека Шефера (1949)... Джо и Мэрион Старретт вместе с сыном борются за выживание на своём ранчо в суровом приграничном городке. Однажды к ним приезжает всадник Шейн и просит воды для себя и своей лошади. Через некоторое время он уже помогает семье защищать ранчо от злодея Райкера, захватывающего земли под пастбища для скота... (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, вестернРежиссер: Джордж Стивенс ст.Актеры: Алан Лэдд, Джин Артур, Ван Хефлин, Брендон Де Уайлд, Джек Пэланс, Бен Джонсон, Эдгар Бьюкенен, Эмиль Мейер, Элиша Кук мл., Дуглас Спенсер, Джон Диркес, Эллен Корби, Пол МакВей, Джон Миллер, Эдит ЭвансонПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7354FA70A36236379CC24075D5C93F84AE6A530B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807768   (10507) от 24.07.2025
-
-Самая красивая женщина мира / La donna più bella del mondo (1955) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный фильм о счастливой истории любовной связи самой красивой женщины мира начала 20-го века, оперной певицы Лины Кавальери и русского князя Барятинского.Производство: Италия, Франция / G.E.S.I. Cinematografica, Sédif ProductionsЖанр: драма, мелодрама, комедияРежиссер: Роберт З. ЛеонардАктеры: Джина Лоллобриджида, Витторио Гассман, Роберт Алда, Анн Вернон, Тамара Леес, Джино Синимберги, Нанда Примавера, Энцо Бильотти, Марко Тулли, Рольф ТаснаПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, итальянскийСубтитры: Русские (Forced), итальянскиеПродолжительность: 01:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F063495E649A31D41A6E56202AD8976A68CFECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809789   (9452) от 03.08.2025
-
-Человек из Кентукки / The Kentuckian (1955) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9452.jpg" />
-</div>
-
-
-###  Подробнее
-
-20-е года 19 века. Большой Эли Уэйкфилд и его сын Маленький Эли - закаленные искатели приключений. Для осуществления своей давней мечты - поселиться на границе Техаса, они отправляются в путешествие. Путь оказывается не прост, но сложнее всего бороться не с дикой природой, а с опасными людьми.Производство: США / Hecht-Lancaster ProductionsЖанр: драма, вестернРежиссер: Берт ЛанкастерАктеры: Берт Ланкастер, Дайян Фостер, Диана Линн, Джон МакИнтайр, Уна Меркел, Джон Кэрредин, Джон Лител, Риз Уильямс, Эдвард Норрис, Уолтер МэттауПеревод: Двуголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8C135AC5F62555F151B7BE5633C188A37EFB0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

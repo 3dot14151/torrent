@@ -1,3 +1,90 @@
+###  Публикация: 1495128   (882500) от 11.09.2021
+
+Skid Life - Awake (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake
+02. Salvation
+03. Corrupted
+04. Joker(   Читать дальше...   )Жанр: Heavy Metal, GrooveПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8924243BBCEC2901353C6164E10A5CA576FA5CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495036   (882497) от 11.09.2021
+
+Black Mass - Feast At The Forbidden Tree (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Unholy Libations
+03. Dead To The World
+04. A.S.H.E.S(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0FF5A23848A254A65B6D3F7E5CFC93D5CDD2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495086   (882481) от 11.09.2021
+
+Inferi - Vile Genesis (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Gods But Our Flesh
+02. Maelstrom Prison
+03. Simian Hive
+04. From Exile To Exaltation(   Читать дальше...   )Жанр: Technical Melodic Death MetalПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C0F86E0374874466B18A38095403263267981A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495011   (882474) от 11.09.2021
 
 Pentakill - III: Lost Chapter (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +93,7 @@ Pentakill - III: Lost Chapter (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882474.jpg" />
+  <img src="Z:/picture/005/save_picture_882474.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Seven Spires - Gods Of Debauchery (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882467.jpg" />
+  <img src="Z:/picture/005/save_picture_882467.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Jinjer - Wallflowers (2021) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882390.jpg" />
+  <img src="Z:/picture/005/save_picture_882390.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Anette Olzon - Strong (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882384.jpg" />
+  <img src="Z:/picture/005/save_picture_882384.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Mors Principium Est - ...And Death Said Live (2012) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881975.jpg" />
+  <img src="Z:/picture/005/save_picture_881975.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Solution .45 - For Aeons Past (2010) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881881.jpg" />
+  <img src="Z:/picture/005/save_picture_881881.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Symphonity - Voice From The Silence (2008) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881826.jpg" />
+  <img src="Z:/picture/008/save_picture_881826.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Ketzer - Starless (2016) [FLAC|Lossless|image + .cue] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881289.jpg" />
+  <img src="Z:/picture/005/save_picture_881289.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Moonlight Circus - Madness In Mask (2013) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881281.jpg" />
+  <img src="Z:/picture/005/save_picture_881281.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Terra Firma - Terra Firma (1999) [FLAC|Lossless|image + .cue] <Stoner Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880821.jpg" />
+  <img src="Z:/picture/005/save_picture_880821.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Khroma - Ex Nihilo (2021) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Moder
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880819.jpg" />
+  <img src="Z:/picture/005/save_picture_880819.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Havamal - The Shadow Chapter (2021) [FLAC|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880817.jpg" />
+  <img src="Z:/picture/005/save_picture_880817.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Leprous - Aphelion (2021) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880816.jpg" />
+  <img src="Z:/picture/005/save_picture_880816.jpg" />
 </div>
 
 
@@ -385,7 +472,7 @@ Possessed - 4 Studio Albums (1985-2019) 10xCD [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880814.jpg" />
+  <img src="Z:/picture/005/save_picture_880814.jpg" />
 </div>
 
 
@@ -414,7 +501,7 @@ Blacksmith - Gipsy Queen - The Early Years '83 - '86 (2018) Compilation, Japanes
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880729.jpg" />
+  <img src="Z:/picture/005/save_picture_880729.jpg" />
 </div>
 
 
@@ -443,7 +530,7 @@ Evil Masquerade - The Outcast Hall Of Fame (2016) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880715.jpg" />
+  <img src="Z:/picture/005/save_picture_880715.jpg" />
 </div>
 
 
@@ -472,7 +559,7 @@ Margenta - 6 альбомов 1 сингл (2003-2013) [FLAC|Lossless]<Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880703.jpg" />
+  <img src="Z:/picture/005/save_picture_880703.jpg" />
 </div>
 
 
@@ -501,7 +588,7 @@ Mortillery - Shapeshifter (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880270.jpg" />
+  <img src="Z:/picture/005/save_picture_880270.jpg" />
 </div>
 
 
@@ -530,7 +617,7 @@ Arcturus - Sideshow Symphonies (2005) [FLAC|Lossless]<Avantgarde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880222.jpg" />
+  <img src="Z:/picture/005/save_picture_880222.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Nightingale - 7 Albums, 1 Compilation, 1 Live (1995-2017) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880215.jpg" />
+  <img src="Z:/picture/005/save_picture_880215.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Them - Sweet Hollow (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880162.jpg" />
+  <img src="Z:/picture/005/save_picture_880162.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Angtoria - God Has A Plan For Us All (12-track version) (2006) [FLAC|Lossless]<H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880137.jpg" />
+  <img src="Z:/picture/005/save_picture_880137.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ Overkill - The Grinding Wheel (2017) Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880108.jpg" />
+  <img src="Z:/picture/005/save_picture_880108.jpg" />
 </div>
 
 
@@ -654,93 +741,6 @@ Overkill - The Grinding Wheel (2017) Limited Edition [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49B6D087A56E883BC938FEE9952BAF55DDF4687A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104542   (879988) от 15.02.2017
-
-Battle Beast - Bringer of Pain (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight To The Heart 03:31
-02. Bringer Of Pain 03:04
-03. King For A Day 04:35
-04. Beyond The Burning Skies 04:39(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42472ADE15F64849960D729AE9CC3EFA5951C7F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996374   (879518) от 14.03.2016
-
-Hordak - Padre (2016) [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ekleipsis - Devourer of Gods  05:06
-02. Bloodline of the Wolves  04:29
-03. Soaring  05:00
-04. Sol Sister  04:11(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF71EDFFDF71056F37981F03232C8B69C3959F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996321   (879409) от 14.03.2016
-
-Elyria - Reflection And Refraction (2016) [FLAC|Lossless|image + .cue] <Progressive Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Portals 01:52
-02. The Vigil 04:48
-03. Blind 04:18
-04. Colour Of Silence 05:13(   Читать дальше...   )Жанр: Progressive Gothic MetalПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D449E24287232DBD1309ACEAF8BD2E0BC5D509E
 ```
 
 https://mybot314.ru/tekegram_catalog/

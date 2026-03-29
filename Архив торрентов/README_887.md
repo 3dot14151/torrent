@@ -6,7 +6,7 @@ PointLinux 13.04 MATE [x32, x64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845358.jpg" />
+  <img src="Z:/picture/008/save_picture_845358.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845350.jpg" />
+  <img src="Z:/picture/008/save_picture_845350.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845336.jpg" />
+  <img src="Z:/picture/008/save_picture_845336.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845298.jpg" />
+  <img src="Z:/picture/008/save_picture_845298.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845285.jpg" />
+  <img src="Z:/picture/008/save_picture_845285.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845263.jpg" />
+  <img src="Z:/picture/008/save_picture_845263.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845260.jpg" />
+  <img src="Z:/picture/008/save_picture_845260.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845253.jpg" />
+  <img src="Z:/picture/008/save_picture_845253.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845246.jpg" />
+  <img src="Z:/picture/008/save_picture_845246.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845245.jpg" />
+  <img src="Z:/picture/008/save_picture_845245.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Syncopy Recordings Trance Anthems (Mixed by NG Rezonance)(2017) [MP3|320 Kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845244.jpg" />
+  <img src="Z:/picture/008/save_picture_845244.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Yves Deruyter - 2001 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845232.jpg" />
+  <img src="Z:/picture/008/save_picture_845232.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ UninstallPKG 1.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845229.jpg" />
+  <img src="Z:/picture/008/save_picture_845229.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ PicturesToExe Deluxe 9.0.3 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845227.jpg" />
+  <img src="Z:/picture/008/save_picture_845227.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ High Performance & Invadhertz - Mesozoic (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845223.jpg" />
+  <img src="Z:/picture/008/save_picture_845223.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MediaInfo 1.10 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845194.jpg" />
+  <img src="Z:/picture/008/save_picture_845194.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845183.jpg" />
+  <img src="Z:/picture/008/save_picture_845183.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845175.jpg" />
+  <img src="Z:/picture/008/save_picture_845175.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845174.jpg" />
+  <img src="Z:/picture/008/save_picture_845174.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845161.jpg" />
+  <img src="Z:/picture/008/save_picture_845161.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Optiv & Btk - Crowd Control / Supernova (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845160.jpg" />
+  <img src="Z:/picture/008/save_picture_845160.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Hazel 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845149.jpg" />
+  <img src="Z:/picture/008/save_picture_845149.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sarah Vaughan - The Real... Sarah Vaughan (2015) 3CD [FLAC|Lossless|tracks + .cu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845143.jpg" />
+  <img src="Z:/picture/008/save_picture_845143.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Claudio PRC - Volumi Dinamici (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845135.jpg" />
+  <img src="Z:/picture/008/save_picture_845135.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845111.jpg" />
+  <img src="Z:/picture/008/save_picture_845111.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Image2icon - Make your own icons 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845109.jpg" />
+  <img src="Z:/picture/008/save_picture_845109.jpg" />
 </div>
 
 

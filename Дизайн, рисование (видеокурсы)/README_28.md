@@ -1,3 +1,30 @@
+###  Публикация: 1511587   (788322) от 22.11.2021
+
+Ctrl + Paint, Matt Kohr | Game Icons (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788322.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом видео, каждый из нас будет проектировать набор иконок для видеоигры. Хотя я рассказываю о своих личных процессах и методах, задача состоит не в копировании моего дизайна – в центре внимания ваш проект.
+Иконки и пользовательский интерфейс(UI) часто упускаются из виду начинающими концепт-художниками. Вы-художник, а не графический дизайнер, правильно? Нет. Графический (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13D0DB8B3398EECDF9A6C667683AB39D0561C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511571   (788321) от 22.11.2021
 
 Ctrl + Paint, Matt Kohr | Design Basics (2014) PCRec [En, Ru]
@@ -6,7 +33,7 @@ Ctrl + Paint, Matt Kohr | Design Basics (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788321.jpg" />
+  <img src="Z:/picture/008/save_picture_788321.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Udemy, CG Masters, Chris Plush, Erindale Woodford | Master Procedural Texturing 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788291.jpg" />
+  <img src="Z:/picture/008/save_picture_788291.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788256.jpg" />
+  <img src="Z:/picture/008/save_picture_788256.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Blender Market, Midge "Mantissa" Sinnaeve | Моушн графика в реа�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787753.jpg" />
+  <img src="Z:/picture/008/save_picture_787753.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Lynda.com | Painter 2017 Essential Training (2016) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787527.jpg" />
+  <img src="Z:/picture/008/save_picture_787527.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Digital Tutors | Motion-графика в After Effects (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787474.jpg" />
+  <img src="Z:/picture/008/save_picture_787474.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ The Gnomon Workshop, Eric Keller | Modeling and Rendering a Realistic Jumping Sp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787303.jpg" />
+  <img src="Z:/picture/008/save_picture_787303.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ Blender Cloud | Создание морского чёрта в Blender 2.81 / A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786547.jpg" />
+  <img src="Z:/picture/008/save_picture_786547.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ Victory3D | Создание игрового стимпанк пистолет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786514.jpg" />
+  <img src="Z:/picture/008/save_picture_786514.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Blender Cloud | Создание стилизованного персонажа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786505.jpg" />
+  <img src="Z:/picture/008/save_picture_786505.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ Blender Cloud | Создание фэнтезийного фургона в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784463.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ Lynda.com | Up and Running with Plant Factory (2015) PCRec [H.264/720p-LQ] [RU/E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778651.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ Lynda.com | Up and Running in VUE (2015) PCRec [H.264/720p-LQ] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778638.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ ITVDN | Видео курс Unity3D Essential (2015) PCRec [H.264/720p]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777801.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ W.D.I | Типографика в веб (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777427.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ CG Cookie | Создание воксельного арта в Blender 2.8 / Cr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772791.jpg" />
+  <img src="Z:/picture/008/save_picture_772791.jpg" />
 </div>
 
 
@@ -441,7 +468,7 @@ CG Cookie | Основы цифрового скульптинга в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772625.jpg" />
+  <img src="Z:/picture/008/save_picture_772625.jpg" />
 </div>
 
 
@@ -467,7 +494,7 @@ Victory3D | Создание игрового окружения "Античны
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772495.jpg" />
+  <img src="Z:/picture/008/save_picture_772495.jpg" />
 </div>
 
 
@@ -494,7 +521,7 @@ CG Cookie | Создание игры Portalethium часть 2: Дизайн у
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771270.jpg" />
+  <img src="Z:/picture/008/save_picture_771270.jpg" />
 </div>
 
 
@@ -520,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770392.jpg" />
+  <img src="Z:/picture/008/save_picture_770392.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ Polygon Runway | Создание 3D леттеринга в Blender 2.82 / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770390.jpg" />
+  <img src="Z:/picture/008/save_picture_770390.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ Polygon Runway | Стань 3D иллюстратором в Blender 2.8 / Becom
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770294.jpg" />
+  <img src="Z:/picture/008/save_picture_770294.jpg" />
 </div>
 
 
@@ -601,7 +628,7 @@ CGMA | Mastering Destruction in Houdini (2019) PCRec[En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769018.jpg" />
+  <img src="Z:/picture/008/save_picture_769018.jpg" />
 </div>
 
 
@@ -628,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767424.jpg" />
+  <img src="Z:/picture/008/save_picture_767424.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766490.jpg" />
+  <img src="Z:/picture/008/save_picture_766490.jpg" />
 </div>
 
 
@@ -666,34 +693,6 @@ Eрок, призванный развить в вас основные навы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F2AE53570AE8C7D79A1EE2FD6830F719F285E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394023   (765286) от 03.07.2020
-
-Allan McKay | FX Technical Director Transformation Module 6 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
-Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
-Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 04:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7B65CED405A7217A307D36C8F82F1B987EE802
 ```
 
 https://mybot314.ru/tekegram_catalog/

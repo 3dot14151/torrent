@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1861234   (1062590) от 
+
+Прыгуны / Hoppers (2026) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учёные разработали технологию, позволяющую переносить человеческое сознание в максимально реалистичных роботизированных животных, что дает людям возможность общаться с животными. Мейбл, любительница животных, получает доступ к технологии. Она переносится в тело робота-бобра и отправляется исследовать животный мир.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Дэниэл ЧонгАктеры: Пайпер Курда, Бобби Мойнахан, Джон Хэмм, Кэти Нэджими, Дэйв Франко, Эдуардо Франко, Апарна Нанчерла, Том Лоу, Сэм Ричардсон, Мелисса ВильясеньорПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (forced) - hardsubПродолжительность: 01:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F870ADFB1DD582D72061B54074CFAC9EDCF852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861432   (1062454) от 
+
+GOAT: Мечтай по-крупному / GOAT (2026) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Козёл Уилл Харрис получает уникальный шанс стать профессионалом в звероболе, контактном виде спорта, где доминируют самые большие и сильные животные. Его новые партнёры по команде не в восторге от того, что в их составе оказалась такая мелочь, но Уилл намерен изменить спорт раз и навсегда.Производство: США, Бразилия, Япония, Сингапур / Columbia Pictures Corporation, Modern Magic, Sony Pictures Animation, Unanimous MediaЖанр: мультфильм, боевик, комедия, приключения, семейный, спортРежиссер: Тайри Диллихей, Адам РозеттАктеры: Калеб Маклафлин, Гэбриэл Юнион, Стефен Карри, Аарон Пьер, Никола Кохлан, Дэвид Харбор, Ник Кролл, Дженифер Льюис, Пэттон Освальт, Джелли РоллПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746B86A26ABB895AE4D73B18F3B6534465914913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861429   (1062453) от 
+
+Прыгуны / Hoppers (2026) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учёные разработали технологию, позволяющую переносить человеческое сознание в максимально реалистичных роботизированных животных, что дает людям возможность общаться с животными. Мейбл, любительница животных, получает доступ к технологии. Она переносится в тело робота-бобра и отправляется исследовать животный мир.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Дэниэл ЧонгАктеры: Пайпер Курда, Бобби Мойнахан, Джон Хэмм, Кэти Нэджими, Дэйв Франко, Эдуардо Франко, Апарна Нанчерла, Том Лоу, Сэм Ричардсон, Мелисса ВильясеньорПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (forced) - hardsubПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BFA2BA05591FE4ED9325E17A7276C522FFD707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856116   (1058736) от 26.02.2026
 
 Зверополис 2 / Zootopia 2 (2025) BDRip
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058736.jpg" />
+  <img src="Z:/picture/005/save_picture_1058736.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056512.jpg" />
+  <img src="Z:/picture/005/save_picture_1056512.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056344.jpg" />
+  <img src="Z:/picture/005/save_picture_1056344.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056127.jpg" />
+  <img src="Z:/picture/005/save_picture_1056127.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054374.jpg" />
+  <img src="Z:/picture/005/save_picture_1054374.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054369.jpg" />
+  <img src="Z:/picture/005/save_picture_1054369.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054063.jpg" />
+  <img src="Z:/picture/005/save_picture_1054063.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054062.jpg" />
+  <img src="Z:/picture/005/save_picture_1054062.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052564.jpg" />
+  <img src="Z:/picture/005/save_picture_1052564.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052087.jpg" />
+  <img src="Z:/picture/005/save_picture_1052087.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050065.jpg" />
+  <img src="Z:/picture/005/save_picture_1050065.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049987.jpg" />
+  <img src="Z:/picture/005/save_picture_1049987.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049623.jpg" />
+  <img src="Z:/picture/005/save_picture_1049623.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049621.jpg" />
+  <img src="Z:/picture/005/save_picture_1049621.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046887.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045015.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044698.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042926.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042646.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042431.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042324.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041897.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041822.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C21CE378EE0B5FF271DDF1B6F06F43213A22F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439708   (1039416) от 14.01.2021
-
-Академия монстров / Escuela de Miedo / Cranston Academy: Monster Zone (2020) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьнику Дэнни живется несладко: он не может подружиться с одноклассниками и не находит общего языка с преподавателями. И всему виной его гениальность. Но однажды он попадает в школу для одаренных детей, где случайно открывает портал в мир... монстров.Производство: Мексика / Anima Estudios, ReDefineЖанр: МультфильмРежиссер: Леопольдо АгиларПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209F8F5495D6A9F879E73FB948F39530E3403947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166193   (1035516) от 05.03.2023
-
-Артур и месть Урдалака / Arthur et la vengeance de Maltazard (2009) DVDRip
-
->>След.
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артур в восторге, потому что этой ночью заканчивается десятый лунный цикл, и он, наконец, сможет вернуться в страну минипутов, чтобы воссоединиться с Селенией. В деревне минипуты приготовили в его честь роскошный банкет, а маленькая принцесса облачилась в платье из лепестков роз. Но отец Артура именно в этот долгожданный день объявляет, что их каникулы у бабушки (   Читать дальше...   )Производство: Франция, Apipoulai, Europa Corp., TF1 Films ProductionЖанр: мультфильм, фэнтези, семейныйРежиссер: Люк БессонАктеры: Фредди Хаймор, Джимми Фэллон, Миа Фэрроу, Снуп Догг, Аса Баттерфилд, Логан Миллер, Роберт Стэнтон, Лу Рид, Пенни Бальфур, Рон КроуфордПеревод: Профессиональный (полное дублирование)Продолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEF8EB87A2B6F3AB1A7A9FA2620FE18670EE29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311158   (1035515) от 05.03.2023
-
-Облачно, возможны осадки в виде фрикаделек / Cloudy with a Chance of Meatballs (2009) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой мультфильма  странный ученый Флинт Локвуд, который всегда хотел изобрести что-то такое, что сделает его родной городок счастливым. И вот, у него получилось! Еды теперь хватает всем, и она просто падает с неба, создавая новые пейзажи вокруг: можно любоваться закатом с живописных холмов из фруктового желе. Но иногда вкусные осадки в виде фрикаделек могут (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Фил Лорд, Крис МиллерПеревод: Дублированный + Оригинальная дорожкаЯзык субтитров: английские, французские, испанскиеПродолжительность: 01:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1996DD864D9E748B97CB4E74A7F0EECDAC5F9AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

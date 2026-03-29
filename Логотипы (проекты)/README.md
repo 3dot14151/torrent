@@ -1,4 +1,160 @@
 https://t.me/izofen
+###  Публикация: 1862072   (1063056) от 
+
+Проекты - VideoHive - Glass Logo Reveal - 62337176 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильная и лаконичная заставка для After Effects, которая выводит ваш логотип через эффект матового и прозрачного стекла. Идеально подходит для брендов, которые хотят подчеркнуть премиальность, чистоту дизайна или технологичность.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7424D0D1F1D55F05374B156F675C410AAFACE5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861676   (1062913) от 
+
+Проекты - VideoHive - Brush Stroke Logo Reveal - 62127151 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brush Stroke Logo Reveal - это шаблон After Effects для анимации логотипов или текста в необработанном художественном стиле, который сочетает в себе настоящие мазки кистью, текстуру распыления, шероховатый бумажный фон и утонченный винтажный характер. Визуальный язык подчеркивает выразительное движение красок и эстетику гранжа, вдохновленную современной динамикой (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEA038173E08E4EA41B8F1834442CFE89BA0A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861831   (1062825) от 
+
+Проекты - VideoHive - Micro Glitch Logo - 62310987 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Micro Glitch Logo — это стильный и технологичный способ представить ваш бренд. Шаблон сочетает в себе эстетику киберпанка, цифрового шума и быстрых искажений (distortion). Он идеально подходит для YouTube-каналов, игровых стримов, презентаций IT-продуктов или рекламных роликов, где важна динамика и современный визуальный стиль.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD4A51D95A5094FDBB9BE889E253FF518FE0146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861934   (1062729) от 
+
+Проекты - VideoHive - Neon Spectrum Logo Reveal - 62323296 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Neon Spectrum Logo Reveal — это современный шаблон, сочетающий в себе яркие неоновые линии, эффекты спектра и быструю анимацию. Проект идеально подходит для создания технологичного имиджа бренда, киберспортивных заставок или контента, связанного с ночной жизнью, музыкой и инновациями.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242771F849684C24157E1113EB4A4405F4F5530B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861229   (1062618) от 
+
+Проекты - VideoHive - Mosaic Photo Reveal | Corporate Logo - 62136882 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mosaic Photo Reveal | Corporate Logo это высококачественный и удобный в использовании шаблон для After Effects позволяет быстро и легко настроить проект под свои нужды. В комплект входят инструкции в формате PDF, благодаря чему даже начинающие пользователи After Effects смогут загрузить свои медиафайлы, отредактировать текст и логотип, добавить звук и получить потрясающий (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE223AFFA305FA6D09AD46FFDBB2BDB01422B978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860605   (1061898) от 
+
+Проекты - VideoHive - Sci-Fi Logo Reveal - 62077464 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sci-Fi Logo Reveal — это высокотехнологичный и кинематографичный шаблон для After Effects, идеально подходящий для создания эффектного вступления. Проект выполнен в научно-фантастическом стиле с использованием детально проработанных 3D-элементов, динамичного освещения и атмосферных эффектов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3035DEEFFEB60C88CE327E605D65B39665B2FB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859362   (1061078) от 
 
 Проекты - VideoHive - Epic Shatter Logo Reveal - 62013970 [AEP]
@@ -7,7 +163,7 @@ https://t.me/izofen
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061078.jpg" />
+  <img src="Z:/picture/005/save_picture_1061078.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060856.jpg" />
+  <img src="Z:/picture/005/save_picture_1060856.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059136.jpg" />
+  <img src="Z:/picture/005/save_picture_1059136.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058538.jpg" />
+  <img src="Z:/picture/005/save_picture_1058538.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058058.jpg" />
+  <img src="Z:/picture/005/save_picture_1058058.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057840.jpg" />
+  <img src="Z:/picture/005/save_picture_1057840.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057824.jpg" />
+  <img src="Z:/picture/005/save_picture_1057824.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057692.jpg" />
+  <img src="Z:/picture/005/save_picture_1057692.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057267.jpg" />
+  <img src="Z:/picture/005/save_picture_1057267.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056840.jpg" />
+  <img src="Z:/picture/005/save_picture_1056840.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056219.jpg" />
+  <img src="Z:/picture/005/save_picture_1056219.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056068.jpg" />
+  <img src="Z:/picture/005/save_picture_1056068.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055732.jpg" />
+  <img src="Z:/picture/005/save_picture_1055732.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055306.jpg" />
+  <img src="Z:/picture/005/save_picture_1055306.jpg" />
 </div>
 
 
@@ -375,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054965.jpg" />
+  <img src="Z:/picture/005/save_picture_1054965.jpg" />
 </div>
 
 
@@ -401,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054846.jpg" />
+  <img src="Z:/picture/005/save_picture_1054846.jpg" />
 </div>
 
 
@@ -427,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054474.jpg" />
+  <img src="Z:/picture/005/save_picture_1054474.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054378.jpg" />
+  <img src="Z:/picture/005/save_picture_1054378.jpg" />
 </div>
 
 
@@ -479,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054036.jpg" />
+  <img src="Z:/picture/005/save_picture_1054036.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053889.jpg" />
+  <img src="Z:/picture/005/save_picture_1053889.jpg" />
 </div>
 
 
@@ -516,162 +672,6 @@ Glitch Logo — это короткая, ударная и высокотехн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E1F5087BE77802877B4DE0CEA8FABB959AE021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848331   (1052777) от 16.01.2026
-
-Проекты - VideoHive - Logo Animation - 61436671 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logo Animation AE — это лаконичный, стильный и универсальный шаблон для After Effects, созданный для тех, кто ценит чистоту дизайна и профессионализм. Плавная анимация появления, выверенная динамика и отсутствие лишнего визуального шума позволяют сфокусировать все внимание зрителя на самом главном — вашем бренде.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5962C18659D6F93482859D49B029B5BC4206F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847456   (1052242) от 12.01.2026
-
-Проекты - VideoHive - Golden Logo - 61312151 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Golden Logo Reveal — это лаконичный и элегантный шаблон After Effects, разработанный для демонстрации вашего логотипа в изысканном стиле с золотистым металлическим оттенком . Нежные световые блики и минимальная анимация создают профессиональный вступительный ролик, подходящий для премиального брендинга и современных визуальных образов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341F7ED2E851379675ADA983CCC4B8ACE745A5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847518   (1052193) от 12.01.2026
-
-Проекты - VideoHive - Dynamic Logo Reveal - 61255916 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Logo Reveal — это яркий, энергичный и стремительный шаблон для After Effects, который заставит ваш бренд пульсировать в ритме современности. Резкие движения, стильная геометрическая анимация и мощный акцент на финальном появлении знака создают эффект «вау» всего за несколько секунд.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06C245812EEA7AE70B68065AD94D939DD6E4F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845923   (1051106) от 04.01.2026
-
-Проекты - VideoHive - Glitch Logo Reveal - 61095149 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitch Logo Reveal — это мощный, дерзкий и высокотехнологичный шаблон для After Effects, который добавляет вашему бренду цифровую остроту. Эффекты искажения, хроматические аберрации и «битые» пиксели.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E879EB1C7CFB6EBC4DFC585BEAAFA45BB68E7DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845833   (1050997) от 03.01.2026
-
-Проекты - VideoHive - Epic Dragon Fire Logo Reveal - 61228386 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Dragon Fire Logo Reveal — это кинематографическая фэнтезийная анимация, в которой реалистичный дракон пробуждается и извергает огонь, сжигая ваш логотип прямо в пламени. Идеально подходит для эпических заставок , игровых проектов, трейлеров к фильмам и брендинга в стиле темного фэнтези/Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5E98B3609D038CF3AF159786A4AE880485AE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844276   (1049831) от 25.12.2025
-
-Проекты - VideoHive - Happy New Year Logo - 61028461 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Happy New Year Logo — это роскошный и сияющий шаблон для After Effects, который превращает ваш логотип в главное украшение новогоднего праздника. Элегантное сочетание золотых текстур, сверкающих частиц, еловых ветвей и праздничных шаров создает атмосферу премиального торжества и волшебства.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508B98D64F89C177EBD12E4B2F44209052517486
 ```
 
 https://mybot314.ru/tekegram_catalog/

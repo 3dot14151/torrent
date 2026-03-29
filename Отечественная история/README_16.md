@@ -1,3 +1,29 @@
+###  Публикация: 1183975   (305310) от 15.11.2017
+
+Революция в России / The Russian Revolution (2017) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со времен революции в России и создания первого коммунистического государства прошло сто лет. Как же это произошло?Производство: Великобритания, NetflixЖанр: Документальный, история, войнаРежиссер: Кэл СавиллПеревод: ДублированныйПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F60C27E4D2640FA8B934370D22EDB16A9A9744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183973   (305296) от 15.11.2017
 
 Революция в России / The Russian Revolution (2017) HDTVRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305296.jpg" />
+  <img src="Z:/picture/008/save_picture_305296.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305290.jpg" />
+  <img src="Z:/picture/008/save_picture_305290.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298504.jpg" />
+  <img src="Z:/picture/008/save_picture_298504.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295680.jpg" />
+  <img src="Z:/picture/008/save_picture_295680.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_292309.jpg" />
+  <img src="Z:/picture/005/save_picture_292309.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290826.jpg" />
+  <img src="Z:/picture/008/save_picture_290826.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287776.jpg" />
+  <img src="Z:/picture/008/save_picture_287776.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284267.jpg" />
+  <img src="Z:/picture/008/save_picture_284267.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279410.jpg" />
+  <img src="Z:/picture/008/save_picture_279410.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278578.jpg" />
+  <img src="Z:/picture/008/save_picture_278578.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278459.jpg" />
+  <img src="Z:/picture/008/save_picture_278459.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278332.jpg" />
+  <img src="Z:/picture/008/save_picture_278332.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263435.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263336.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256643.jpg" />
+  <img src="Z:/picture/005/save_picture_256643.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249477.jpg" />
+  <img src="Z:/picture/004/save_picture_249477.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_249263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_249263.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247715.jpg" />
+  <img src="Z:/picture/004/save_picture_247715.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247664.jpg" />
+  <img src="Z:/picture/004/save_picture_247664.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247378.jpg" />
+  <img src="Z:/picture/004/save_picture_247378.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243070.jpg" />
+  <img src="Z:/picture/004/save_picture_243070.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242401.jpg" />
+  <img src="Z:/picture/004/save_picture_242401.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238582.jpg" />
+  <img src="Z:/picture/005/save_picture_238582.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235587.jpg" />
+  <img src="Z:/picture/004/save_picture_235587.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235496.jpg" />
+  <img src="Z:/picture/004/save_picture_235496.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B39F2CE1D8D35D2991DA87C26C01660A82B6171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043056   (232454) от 28.05.2022
-
-Маршал Жуков против бандитов Одессы. Правда о "Ликвидации" (2007) TVRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1946 год. В стране разруха и нищета, люди начинают умирать от голода. Резко растет преступность. Вооруженные банды грабят не только магазины и склады. Они забирают у людей последнее - одежду, продуктовые карточки, хлеб, обрекая целые семьи на нищету и даже смерть. Обескровленной войной милиции не хватает сил. Именно в тот страшный 1946 год в Одессу направлен маршал (   Читать дальше...   )Телекомпания: Россия, МИРА-ПродакшнЖанр: ДокументальныйФормат: AVIПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66B21DD7D43F239F8D52CEADD7C9BF7021BB405
 ```
 
 https://mybot314.ru/tekegram_catalog/

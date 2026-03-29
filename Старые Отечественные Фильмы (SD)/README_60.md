@@ -1,3 +1,55 @@
+###  Публикация: 334100   (315748) от 26.11.2014
+
+Долгие версты войны (1975) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315748.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам повестей В.Быкова о героизме советских воинов в годы Великой Отечественной войны. В основе сюжета три боевых эпизода, относящиеся к началу войны, коренному перелому в ходе войны и окончательному разгрому врага.Жанр: военныйРежиссер: Александр КарповАктеры: В.Яковлев, Н.Федорцов, Ю.Дуванов, А.Вдовин, А.Серский, Б.Щербаков, В.Петров, А.Карпов, Б.Руднев, Г.Овсянников, А.Инжеватов, А.Жданов, П.Первушин, А.Веденкин, Ф.Шмаков, Р.Муратов, Н.Сморчков, У.Пуцитис, С.Крючкова, М.Матвеев, А.Потапов, Н.Ферапонтов, Ю.Овсянко, В.Шушкевич, Г.Тейх, В.Титова, П.Буткевич, Н.Кузьмин, Е.ПокрамовичПеревод: оригиналСубтитры: нетФормат: AVIПродолжительность: 03:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BD20C83439098B0E0EC134EE40B7FCCC741C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 170005   (315650) от 26.11.2014
+
+Светлая личность (1988) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_315650.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам сатирических произведений И. Ильфа и Е. Петрова. Волей случая главный герой картины становится невидимкой. Этот курьез вызывает цепь эксцентрических событий, позволяющих авторам в гротескной форме высмеять такие живучие пороки, как бюрократизм, чванство, карьеризм, семейственность…Производство: СССР,  Одесская киностудияЖанр: Мюзикл, комедияРежиссер: Александр ПавловскийАктеры: Борислав Брондуков, Александр Демьяненко, Армен Джигарханян, Всеволод Шиловский, Александра Яковлева, Михаил Светин, Николай Караченцов, Михаил Кокшенов, Светлана Крючкова, Виктор Павлов, Галина Польских, Вероника Изотова, Сергей Иванов, Игорь Дмитриев, Виктор Ильичев, Валентин Козачков.Продолжительность: 01:17:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 181458   (315641) от 26.11.2014
 
 Тайны мадам Вонг (Пираты ХХ века - 2) (1986) DVDRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_315641.jpg" />
+  <img src="Z:/picture/005/save_picture_315641.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_315504.jpg" />
+  <img src="Z:/picture/005/save_picture_315504.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315123.jpg" />
+  <img src="Z:/picture/008/save_picture_315123.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315119.jpg" />
+  <img src="Z:/picture/008/save_picture_315119.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313803.jpg" />
+  <img src="Z:/picture/008/save_picture_313803.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313440.jpg" />
+  <img src="Z:/picture/008/save_picture_313440.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313229.jpg" />
+  <img src="Z:/picture/008/save_picture_313229.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313049.jpg" />
+  <img src="Z:/picture/008/save_picture_313049.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312845.jpg" />
+  <img src="Z:/picture/008/save_picture_312845.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312670.jpg" />
+  <img src="Z:/picture/008/save_picture_312670.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312564.jpg" />
+  <img src="Z:/picture/008/save_picture_312564.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312263.jpg" />
+  <img src="Z:/picture/008/save_picture_312263.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312228.jpg" />
+  <img src="Z:/picture/008/save_picture_312228.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_311011.jpg" />
+  <img src="Z:/picture/005/save_picture_311011.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309701.jpg" />
+  <img src="Z:/picture/008/save_picture_309701.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309683.jpg" />
+  <img src="Z:/picture/008/save_picture_309683.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309679.jpg" />
+  <img src="Z:/picture/008/save_picture_309679.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309056.jpg" />
+  <img src="Z:/picture/008/save_picture_309056.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_308588.jpg" />
+  <img src="Z:/picture/005/save_picture_308588.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_308576.jpg" />
+  <img src="Z:/picture/005/save_picture_308576.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_308362.jpg" />
+  <img src="Z:/picture/005/save_picture_308362.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_307755.jpg" />
+  <img src="Z:/picture/005/save_picture_307755.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306820.jpg" />
+  <img src="Z:/picture/008/save_picture_306820.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306781.jpg" />
+  <img src="Z:/picture/008/save_picture_306781.jpg" />
 </div>
 
 
@@ -622,60 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB0A974F82965C31ECCBEE8C5EFBA9854E4BB5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077271   (306582) от 28.11.2016
-
-За все в ответе (1973) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои фильма спустя 30 лет после окончания школы собираются на традиционную встречу. Фильм о тех, кто закончил школу в трагическом 1941 году. Действие фильма происходит в Москве.Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Георгий НатансонАктеры: Вера Васильева, Олег Видов, Евгений Герасимов, Алексей Грибов, Олег Ефремов, Александр Лазарев, Никита Подгорный, Ольга Яковлева, Михаил Яншин, Юрий Мажуга, Инна Кондратьева, Александр Воеводин, Людмила Чиншевая, Герман ЖуравлевПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB84C00C57D9A2EE8F5A9B946084A659673A7D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611671   (306480) от 03.12.2013
-
-Каталажка (1990) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306480.jpg" />
-</div>
-
-
-###  Подробнее
-
-В обычной городской тюрьме происходит невероятное: обрушилась стена дома.
-
-Руководство города и тюрьмы вынуждено срочно подыскивать новые квартиры своим подопечным, и оно с честью выходит из этой сложной ситуации весьма оригинальным способом — уголовников подселяют к злостным неплательщикам за квартиру…Жанр: КомедияРежиссер: Георгий КеворковАктеры: Евгений Стеблов, Александр Демьяненко, Виктор Ильичёв, Марина Левтова, Игорь Богодух,Ирина Токарчук, Янислав Левинзон, Павел Степанов, Владимир Татосов, Александр Пятков, Николай Ерофеев, Виктор Уральский, Юрий Соловьёв, Игорь Ефимов, Леонард Саркисов, Нина Антонова, Николай ШутькоПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1463CDCFC601932674D37BC97FB9605B8D52720
 ```
 
 https://mybot314.ru/tekegram_catalog/

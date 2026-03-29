@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812674.jpg" />
+  <img src="Z:/picture/008/save_picture_812674.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Rolling Stones: Live At The Max (1991) [1080p] Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812651.jpg" />
+  <img src="Z:/picture/008/save_picture_812651.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Waltr 2 v2.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812639.jpg" />
+  <img src="Z:/picture/008/save_picture_812639.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812621.jpg" />
+  <img src="Z:/picture/008/save_picture_812621.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC: Жизнь / Life (10 серий из 10) (2009) DVDRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812580.jpg" />
+  <img src="Z:/picture/008/save_picture_812580.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ RIDE (2015) [Ru/Multi] (1.0/2dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812512.jpg" />
+  <img src="Z:/picture/008/save_picture_812512.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Kali Linux 1.1.0a (ex. BackTrack) (Аудит безопасности, хаки
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812507.jpg" />
+  <img src="Z:/picture/008/save_picture_812507.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10049 (x86, x64) (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812499.jpg" />
+  <img src="Z:/picture/008/save_picture_812499.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Microsoft Windows 10 Core Technical Preview 10.0.10049 (x86, x64) (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812450.jpg" />
+  <img src="Z:/picture/008/save_picture_812450.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10049 (x86, x64) (esd) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812444.jpg" />
+  <img src="Z:/picture/008/save_picture_812444.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812433.jpg" />
+  <img src="Z:/picture/008/save_picture_812433.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ON1 Resize 2022 v16.0.1.11291 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812415.jpg" />
+  <img src="Z:/picture/008/save_picture_812415.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Cover Desk 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812399.jpg" />
+  <img src="Z:/picture/008/save_picture_812399.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812394.jpg" />
+  <img src="Z:/picture/008/save_picture_812394.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Image2icon - Make your icon‪s‬ 2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812365.jpg" />
+  <img src="Z:/picture/008/save_picture_812365.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Bandizip: Archiver 7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812359.jpg" />
+  <img src="Z:/picture/008/save_picture_812359.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Clench & Blistah - 2 альбома (2008) [FLAC|Lossless]<J urban,hip-hop,J pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_812332.jpg" />
+  <img src="Z:/picture/009/save_picture_812332.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ ON1 Portrait AI 2022 v16.0.1.11291 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812307.jpg" />
+  <img src="Z:/picture/008/save_picture_812307.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rhinoceros 7 v7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812292.jpg" />
+  <img src="Z:/picture/008/save_picture_812292.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Transmit 5.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812288.jpg" />
+  <img src="Z:/picture/008/save_picture_812288.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Serial 2 v2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812278.jpg" />
+  <img src="Z:/picture/008/save_picture_812278.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812263.jpg" />
+  <img src="Z:/picture/008/save_picture_812263.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812261.jpg" />
+  <img src="Z:/picture/008/save_picture_812261.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812258.jpg" />
+  <img src="Z:/picture/008/save_picture_812258.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812256.jpg" />
+  <img src="Z:/picture/008/save_picture_812256.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812254.jpg" />
+  <img src="Z:/picture/008/save_picture_812254.jpg" />
 </div>
 
 

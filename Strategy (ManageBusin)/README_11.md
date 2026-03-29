@@ -1,3 +1,82 @@
+###  Публикация: 472708   (84190) от 24.03.2012
+
+Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбылась моя мечта: я вернулся к игре, созданной на заре моей карьеры, к игре, которой наслаждались поклонники стратегических игр, симуляторов и паровозиков по всему миру.
+Я уверен, что воссозданный оригинал непременно разожжет вашу страсть к железным дорогам и подарит вам игру на долгие-долгие годы.Тип издания: RePackРазработчик: Firaxis GamesЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: n/aЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786385   (69063) от 20.03.2025
+
+Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ультра насильственный командный вид спорта – именно так охарактеризовали свое новое детище Blood Bowl: Chaos Edition компания разработчик Cyanide. Все любители альтернативного спорта, в данном случае имеется в виду американский футбол в жанре фэнтези, смогут ещё раз насладиться впечатляющей графикой, создав свою команду из 23 представленных игровых рас. Люди, орки, (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyanide StudiosЖанр: Спорт, СтратегииЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F92FDEE6AC54ACEF6C43A44462968E6C40E992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792446   (67728) от 19.04.2025
+
+Synergy (2024) [Ru/Multi] (1.0) Repack seleZen
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Synergy – это градостроительный симулятор в суровом и враждебном мире. Постройте город, соблюдая законы местной экосистемы. Исследуйте окрестности и не забывайте заботиться о нуждах своего населения. Группа людей оказалась в странном, завораживающем и жестоком мире, и ваша цель – построить город, в котором они смогут выжить. Исследуйте, анализируйте и экспериментируйте, (   Читать дальше...   )Тип издания: RepackРазработчик: Leikir StudioЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98FE8FDA55CACD6584D1DC25AB67BA8E47776F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705417   (63625) от 08.03.2024
 
 Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +85,7 @@ Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63625.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Beneath the Mountain (2024) [En] (1.3) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62918.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ United Penguin Kingdom (2024) [Ru/Multi] (1.001) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61981.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61979.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61957.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Millennia (2024) [Ru/Multi] (1.0.1.F/dlc) Scene FAiRLIGHT
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61571.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ CD 2: Trap Master (2024) [Ru/Multi] (13869660) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61330.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61280.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ The Immortal Mayor (2023) [Multi] (1.0.14/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61221.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ Necrosmith 2 (2024) [Ru/Multi] (1.0.0.262) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61034.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Tempus Rail (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60910.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ SteamWorld Build (2023) [Ru/Multi] (13541592/dlc) Repack FitGirl [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60590.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Barn Finders (2020) [Ru/Multi] (25372/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60350.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.17) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59558.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Open Transport Tycoon Deluxe / OpenTTD (2004) [Ru/Multi] (14.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59340.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ Farmer's Dynasty (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59223.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Jonesville (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59035.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ World Turtles (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58930.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ Galactic Ruler Enlightenment (2024) [Multi] (11.2.1286) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58908.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ Sweet Transit (2022) [Ru/Multi] (1.0.38) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58826.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Lakeburg Legacies (2023) [Multi] (1.1.4.4/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58747.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ Sweet Transit (2022) [Ru/Multi] (1.0.38) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58598.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58501.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB25D3969CA5B76F56D521E8459C2C78BD31538B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718948   (58391) от 27.04.2024
-
-Diluvian Winds (2023) [Multi] (1.0.0) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diluvian Winds - это оригинальный симулятор с элементами стратегии, где вам предстоит управлять колонией и сделать все возможное для их комфортного существования. Уровень мирового океана стремительно увеличивается из-за чего уцелевшим в ходе катастрофы созданиями приходится буквально бороться за существование. Превратите давно заброшенный маяк в последний оплот цивилизации (   Читать дальше...   )Тип издания: LicenseРазработчик: Alambik StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ECFFD04C5FD3CD7F626495233AB0649BF78572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719015   (58370) от 27.04.2024
-
-Ready, Steady, Ship! (2024) [Multi] (1.2.0) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ready, Steady, Ship! - кооперативная игра для дивана, проверяющая ваши командные навыки и способность решать проблемы. Вас ждут увлекательные вызовы на оживленной фабрике, где вам и вашим друзьям предстоит сотрудничать, чтобы своевременно отгрузить заказы. Суть игры заключается в построении конвейерной линии, сортировке различных товаров, упаковке их в коробки и (   Читать дальше...   )Тип издания: RepackРазработчик: Martynas CibulisЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Английский, Немецкий, Испанский, Польский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0A496D58E9D901A3E194DD515C7CA2545B14EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719614   (58064) от 30.04.2024
-
-Bootleg Steamer (2024) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootleg Steamer – перед вами традиционный рогалайт, предлагающий примерить на себя роль капитана и отправиться в плавание в непростые времена для Америки (сухой закон). При этом, чтобы добиться богатства, понадобится приложить немало усилий. Ведь погода постоянно переменчива, на берегу может застать охрана, а еще вам предстоит вмешиваться в дела мафии и не только.Тип издания: SceneРазработчик: Team JunkfishЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933B17FC61FC077CE3CE2694E7BB533CA0CC6DC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

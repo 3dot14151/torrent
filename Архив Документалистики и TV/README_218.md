@@ -1,3 +1,168 @@
+###  Публикация: 935141   (494510) от 12.09.2015
+
+Футбол. Чемпионат Европы 2016 Отборочный турнир. 8-й тур. Группа H. Италия - Болгария (2015) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отборочный матч ЕВРО 2016 Италия - Болгария.Телекомпания: Спорт 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:54:57+00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEA59E112BB256CC325F67B714340D06D36F4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936802   (494509) от 12.09.2015
+
+Футбол. Чемпионат Германии 2015-16. 4 тур. Боруссия М - Гамбург (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Германии 2015-16, 4 тур Боруссия М - Гамбург.Телекомпания: Eurosport2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:49:36 - 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1D8EC1E509CE585F5787DB3D007155C8FDA1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936634   (494507) от 12.09.2015
+
+Футбол. Чемпионат Испании 2015-16. 3-й тур. Леванте - Севилья (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Испании 2015-16, 3 тур Леванте - Севилья.Телекомпания: НТВ+ Футбол 1Жанр: Спорт, ТелепередачаПродолжительность: 00:49:52 + 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AD0D41144C5165D2468683275B0ECB9EEB453E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053023   (494500) от 19.09.2016
+
+Мини-футбол (Футзал). Чемпионат мира-2016. Группа F. 1-й тур. Иран - Испания (12.09.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494500.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 сентября 2016 года, вторник. 04:00 МСК
+Чемпионат мира-2016. Меделин (Колумбия). Групповой этап
+Группа F. 1-й тур
+(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Телего)Продолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6115058985AA64EC3AA211399558CB615343B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054216   (494497) от 19.09.2016
+
+Хоккей. Кубок мира 2016. Группа B. 1-й тур. Финляндия - Северная Америка (18.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494497.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 сентября 2016, понедельник. 03:00 МСК
+
+Стадион: Эйр Канада-центр (Торонто, Канада) , 19 029 зрителей (96 % при вместимости 19 800)
+Главный судья: Дэн О'Хэллоран (Эссекс, Канада)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Александр Ткачев, Александр Хаванов)Продолжительность: 02:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C17F04EFB497F79B86C6E229AF850D1B0E1699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053791   (494495) от 19.09.2016
+
+Мини-футбол (Футзал). Чемпионат мира-2016. Групповой этап. Группа A. 3-й тур. Португалия - Узбекистан (16.09.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494495.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 сентября 2016 года, суббота. 04:00 МСК
+Чемпионат мира-2016. Меделин (Колумбия). Групповой этап
+Группа A. 3-й тур
+(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Андрей Симонов, Олег Денисов)Продолжительность: 01:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BF145C36A6D972BD2347C281FCC498011DE099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053811   (494493) от 19.09.2016
 
 Футбол. Лига Европы 2016-2017. Обзор матчей 1-го тура (15.09.2016) HDTV [H.264/1080i-LQ]
@@ -6,7 +171,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494493.jpg" />
+  <img src="Z:/picture/008/save_picture_494493.jpg" />
 </div>
 
 
@@ -32,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494484.jpg" />
+  <img src="Z:/picture/008/save_picture_494484.jpg" />
 </div>
 
 
@@ -61,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494480.jpg" />
+  <img src="Z:/picture/008/save_picture_494480.jpg" />
 </div>
 
 
@@ -90,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494477.jpg" />
+  <img src="Z:/picture/008/save_picture_494477.jpg" />
 </div>
 
 
@@ -119,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494476.jpg" />
+  <img src="Z:/picture/008/save_picture_494476.jpg" />
 </div>
 
 
@@ -148,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494463.jpg" />
+  <img src="Z:/picture/008/save_picture_494463.jpg" />
 </div>
 
 
@@ -174,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494408.jpg" />
+  <img src="Z:/picture/008/save_picture_494408.jpg" />
 </div>
 
 
@@ -202,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494407.jpg" />
+  <img src="Z:/picture/008/save_picture_494407.jpg" />
 </div>
 
 
@@ -230,7 +395,7 @@ BBC: Чудо животного мира. Пингвины / Wonder of Animals.
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494362.jpg" />
+  <img src="Z:/picture/008/save_picture_494362.jpg" />
 </div>
 
 
@@ -256,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493981.jpg" />
+  <img src="Z:/picture/008/save_picture_493981.jpg" />
 </div>
 
 
@@ -285,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493839.jpg" />
+  <img src="Z:/picture/008/save_picture_493839.jpg" />
 </div>
 
 
@@ -314,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493710.jpg" />
+  <img src="Z:/picture/008/save_picture_493710.jpg" />
 </div>
 
 
@@ -343,7 +508,7 @@ BBC: Эпоха больших данных / BBC horizon. Age of Big Data (2013
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493467.jpg" />
+  <img src="Z:/picture/008/save_picture_493467.jpg" />
 </div>
 
 
@@ -372,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492673.jpg" />
+  <img src="Z:/picture/008/save_picture_492673.jpg" />
 </div>
 
 
@@ -401,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492672.jpg" />
+  <img src="Z:/picture/008/save_picture_492672.jpg" />
 </div>
 
 
@@ -430,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492671.jpg" />
+  <img src="Z:/picture/008/save_picture_492671.jpg" />
 </div>
 
 
@@ -459,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492670.jpg" />
+  <img src="Z:/picture/008/save_picture_492670.jpg" />
 </div>
 
 
@@ -488,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492669.jpg" />
+  <img src="Z:/picture/008/save_picture_492669.jpg" />
 </div>
 
 
@@ -514,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492668.jpg" />
+  <img src="Z:/picture/008/save_picture_492668.jpg" />
 </div>
 
 
@@ -543,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492666.jpg" />
+  <img src="Z:/picture/008/save_picture_492666.jpg" />
 </div>
 
 
@@ -557,174 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C70C10FF444276C71C175E9A985A4932B4D9AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054673   (492665) от 20.09.2016
-
-Хоккей. КХЛ 2016-2017. Динамо (Минск) - Авангард (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492665.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 сентября 2016, понедельник. 19:30 МСК
-
-Стадион: Минск-Арена (Минск, Беларусь) , 11 451 зритель (76 % при вместимости 15 086)
-Главный судья: Михаил Бутурлин (Москва, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Виталий Магранов, Алексей Бадюков)Продолжительность: 01:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A258F7F848A1096D5327E69A2EEA401FF8CE28BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054361   (492664) от 20.09.2016
-
-Футбол. Чемпионат Франции 2016-2017. 5-й тур. Обзор матчей (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 5-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Неценко)Продолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B692E154B0C4FF8802BFF391179978AA61638C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054894   (492589) от 20.09.2016
-
-Хоккей. КХЛ 2016-2017. Адмирал - Ак барс (20.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492589.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 сентября 2016, вторник. 12:30 МСК
-
-Стадион: Фетисов-Арена (Владивосток, Россия) , 5 419 зрителей (98 % при вместимости 5 550)
-Главный судья: Эдуард Одиньш (Рига, Латвия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Виталий Магранов, Александр Фомичёв)Продолжительность: 02:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FC7DBECC78E67E15D9F5AA3EBAF19A2CFB5351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054317   (492585) от 20.09.2016
-
-Хоккей. Кубок Мира-2016. Группа B. 1-й тур. Финляндия — Северная Америка(U23) (18.09.2016) HDTV [H.264/1080i][RU/IN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492585.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 сентября 2016, понедельник. 03:00 МСК
-Кубок Мира-2016. Групповой этап
-Группа B. 1-й тур.
-(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: 1. Русский (Александр Ткачев, Александр Хаванов), 2. ИнтершумПродолжительность: 02:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F51476D74DFA785F52604156597FC40107723A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054360   (492583) от 20.09.2016
-
-Футбол. Чемпионат Италии 2016-2017. 4-й тур. Обзор матчей (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 4-го тура.Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин)Продолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43A16F3E060274213BABB61787B22865B2C8931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054285   (492581) от 20.09.2016
-
-Футбол. Чемпионат России 2016-2017. 7-й тур. Зенит - Рубин (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492581.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 сентября 2016, понедельник. 19:30 МСК
-7-й тур
-
-Стадион: Петровский (Санкт-Петербург, Россия) , вместимость: 21750(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Геннадий Орлов, Роман Нагучев, Сергей Дерябкин)Продолжительность: 02:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67D43BF03399A80EE4BB0C8B6A09837595EC038
 ```
 
 https://mybot314.ru/tekegram_catalog/

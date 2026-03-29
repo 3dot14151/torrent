@@ -1,3 +1,61 @@
+###  Публикация: 1529876   (731505) от 08.02.2022
+
+VA - Свежий Русский Хит от ALEXnROCK часть 9 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731505.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2021 - 2022 год. Это 9я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Коста Лакоста - Звенит январская вьюга (Remix 2022)
+02. Orlove - Белым Небом Zuffer & Dj Simka Remix
+03. Газанфар Алиев - Как Тигрица Хищная
+04. Anna Asti - Феникс (Lavrushkin X Larichev Radio Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6BCDB46E7CD76B26D2417C119D901B51DD435F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127753   (731149) от 22.04.2017
+
+VA - Сотка популярных весенних хитов версия № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инфинити Feat. Гена Дудин - Воланчик 3:18
+002. Илья Гуров - Геолокация 3:14
+003. Егор Диких - Маэстро 3:55
+004. Владимир - Голливуд 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127747   (731145) от 22.04.2017
 
 VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
@@ -6,7 +64,7 @@ VA - Звездная тусовочка. Отдыхаем с лучшими х�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
+  <img src="Z:/picture/008/save_picture_731145.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Лучший весенний хит. Версия № 11 (2017) [MP3|256 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731144.jpg" />
+  <img src="Z:/picture/008/save_picture_731144.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Высшая лига. Весна выпуск № 4 (2017) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731138.jpg" />
+  <img src="Z:/picture/008/save_picture_731138.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Топовая сотня весенняя версия № 3 (2017) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731136.jpg" />
+  <img src="Z:/picture/008/save_picture_731136.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - German Top 50 Official Dance Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731131.jpg" />
+  <img src="Z:/picture/008/save_picture_731131.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Положительный заряд от Хит FM. Выпуск № 8 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731124.jpg" />
+  <img src="Z:/picture/008/save_picture_731124.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Танцевальная вечеринка от Хит FM выпуск №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731120.jpg" />
+  <img src="Z:/picture/008/save_picture_731120.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Весенняя 100-ка популярных треков. Сборник
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731039.jpg" />
+  <img src="Z:/picture/008/save_picture_731039.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - The Official UK Top 40 Singles Chart 21.04. (2017) [MP3|192-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731029.jpg" />
+  <img src="Z:/picture/008/save_picture_731029.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Весенние заводные хиты. Сборник № 6 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730934.jpg" />
+  <img src="Z:/picture/008/save_picture_730934.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - German Top 100 Single Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730868.jpg" />
+  <img src="Z:/picture/008/save_picture_730868.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Ukrainian Hits - 33 Tracks (Volume 6) (2019) [MP3|320 Kbps] <Pop, Rock, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729828.jpg" />
+  <img src="Z:/picture/008/save_picture_729828.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Ukrainian Hits - 33 Tracks (Volume 7) (2019) [MP3|320 Kbps] <Pop, Rock, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729821.jpg" />
+  <img src="Z:/picture/008/save_picture_729821.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - EuroDance Hits (2022) [MP3|320 Kbps] <Dance, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729687.jpg" />
+  <img src="Z:/picture/008/save_picture_729687.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Top 100 Зайцев Нет Май 2016 (2016) [MP3|192-320 кб/с] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729382.jpg" />
+  <img src="Z:/picture/008/save_picture_729382.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Popular European Megamix (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728436.jpg" />
+  <img src="Z:/picture/008/save_picture_728436.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Disco '80s Зарубежное (2017) [MP3|320 Kbps] <Pop, Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728301.jpg" />
+  <img src="Z:/picture/008/save_picture_728301.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727826.jpg" />
+  <img src="Z:/picture/008/save_picture_727826.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - 77 Little Mix: Popular And RnB Songs (2016) [MP3|207-320 кб/с] <Pop, RnB
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727770.jpg" />
+  <img src="Z:/picture/008/save_picture_727770.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727692.jpg" />
+  <img src="Z:/picture/008/save_picture_727692.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Новая Русская Дискотека - 4 (2016) [MP3|256-320 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727114.jpg" />
+  <img src="Z:/picture/008/save_picture_727114.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726857.jpg" />
+  <img src="Z:/picture/008/save_picture_726857.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - SpaceSynth & ItaloDisco Hits - 1 (2016) [MP3|320 кб/с] <Italo-Disco, Syn
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726356.jpg" />
+  <img src="Z:/picture/008/save_picture_726356.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Новая Русская Дискотека - 5 (2016) [MP3|256-320 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726195.jpg" />
+  <img src="Z:/picture/008/save_picture_726195.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Новая Русская Дискотека - 5 (2016) [MP3|256-320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EEF8F846C8C5AACC80444CE730F463D73FDACA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217968   (725207) от 08.04.2018
-
-VA - German Top 100 Single Charts 06.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725207.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marshmello & Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A42FA4E6932A47EB29A5AC68A57428DB4619721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218167   (725204) от 08.04.2018
-
-VA - German Top 100 Single Charts 09.04.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725204.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marshmello & Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725F9018E1D545CE02A8D2287773E6B8FA6A05A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 970720   (137469) от 31.12.2015
+
+Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы проводите всю свою жизнь, стараясь угодить богам. Вы сражаетесь и погибаете смертью храбрых. А теперь только представьте! Бедные викинги стоят пред вратами Асгарда, ожидая, что их пустят в Вальхаллу. Но неблагодарные боги не собираются дать им заслуженную награду и закрывают врата прямо у них перед носом.Тип издания: SteamRipРазработчик: Funatics SoftwareЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32E60DCC0A6C449D2D5F40DAE577E653C218F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088723   (137454) от 31.12.2016
+
+Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [Gold Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое прошлое, холодная война в самом разгаре... Не совсем честным путем вам удается захватить власть на одном из островов Карибского бассейна. Тропико – отныне территория вашей диктатуры, а вы – всесильный «Эль Президенто». Независимо от того, превратите ли вы Тропико в туристический рай или же в современную промышленную страну – вам придется отчитываться за (   Читать дальше...   )Тип издания: LicenseРазработчик: Haemimont GamesЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0068303CEF889363063CAE3D1873E2663D01F18C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681278   (132915) от 02.12.2023
+
+Pro Basketball Manager 2024 (2023) [Ru/Multi] (1.22-20112023) Scene Tenoke
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Basketball Manager 2024 предлагает стать тренером и генеральным менеджером более 2000 профессиональных баскетбольных команд, выступающих в 90 национальных лигах, включая 16 женских, в 60 странах мира. Игра погружает вас в динамичный мир элитных баскетбольных соревнований, предлагая испытать себя в 175 турнирах самого высокого уровня. Ваша роль выходит за пределы (   Читать дальше...   )Тип издания: SceneРазработчик: Umix StudiosЖанр: Инди, Симуляторы, Спортивные игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63E1A5FC844170C8835D95363DDD5A559C6C23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682648   (130950) от 08.12.2023
 
 SGS We The People (2023) [Ru/Multi] (23.10.18) Scene Tenoke
@@ -6,7 +84,7 @@ SGS We The People (2023) [Ru/Multi] (23.10.18) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130950.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ SGS Battle For: Madrid (2023) [Ru/Multi] (23.11.29) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130904.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Against the Storm (2022) [Ru/Multi] (1.0.1r) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129617.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129392.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Oriental Dynasty - Silk Road defense war (2023) [Ru/Multi] (2.6.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124937.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123034.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Minecraft Legends (2023) [Ru/Multi] (1.18.14350) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121645.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Universim (2018) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121420.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119915.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.3/dlc) Scene Tenoke [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118385.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Rise to Ruins (2019) [En] (2d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118217.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Combat Mission: Final Blitzkrieg (2024) [Multi] (2.11/dlc) Repack FitGirl [Compl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116277.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Hero We Need (2024) [En] (0.8.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114733.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Intra (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114572.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Arcade Tycoon: Simulation Game (2021) [Ru/Multi] (2.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110950.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ SimLife (RePack) [En] 1992 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91062.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90898.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Pole Position 2012 [Multi5-] (L) 2012 | FairLight
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89747.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88916.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ Dungeon Keeper 2 {1.7} (RePack) [Ru/En] 1999 | Sash HD
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88313.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Tropico 4: Modern Times [Ru/1.5] (Р) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87080.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Tropico 4: Modern Times [Ru/En] (RePack/1.5) 2012 l z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85425.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ Tropico 4: Modern Times [En] (L) 2012 l RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85218.jpg" />
 </div>
 
 
@@ -601,85 +679,6 @@ Tropico 4: Modern Times [En] (L) 2012 l RELOADED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472708   (84190) от 24.03.2012
-
-Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбылась моя мечта: я вернулся к игре, созданной на заре моей карьеры, к игре, которой наслаждались поклонники стратегических игр, симуляторов и паровозиков по всему миру.
-Я уверен, что воссозданный оригинал непременно разожжет вашу страсть к железным дорогам и подарит вам игру на долгие-долгие годы.Тип издания: RePackРазработчик: Firaxis GamesЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: n/aЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786385   (69063) от 20.03.2025
-
-Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ультра насильственный командный вид спорта – именно так охарактеризовали свое новое детище Blood Bowl: Chaos Edition компания разработчик Cyanide. Все любители альтернативного спорта, в данном случае имеется в виду американский футбол в жанре фэнтези, смогут ещё раз насладиться впечатляющей графикой, создав свою команду из 23 представленных игровых рас. Люди, орки, (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyanide StudiosЖанр: Спорт, СтратегииЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F92FDEE6AC54ACEF6C43A44462968E6C40E992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792446   (67728) от 19.04.2025
-
-Synergy (2024) [Ru/Multi] (1.0) Repack seleZen
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Synergy – это градостроительный симулятор в суровом и враждебном мире. Постройте город, соблюдая законы местной экосистемы. Исследуйте окрестности и не забывайте заботиться о нуждах своего населения. Группа людей оказалась в странном, завораживающем и жестоком мире, и ваша цель – построить город, в котором они смогут выжить. Исследуйте, анализируйте и экспериментируйте, (   Читать дальше...   )Тип издания: RepackРазработчик: Leikir StudioЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98FE8FDA55CACD6584D1DC25AB67BA8E47776F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,168 @@
+###  Публикация: 555431   (420791) от 07.10.2012
+
+Там где заканчивается тропа / Where The Trail Ends (2012) WEBRip [H.264/720p] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма «Where The Trail Ends» показывает как прорайдеры Даррен Берреклот, Кэмерон Зинк, Курт Сордж, Джеймс Дорфлинг и еще полдюжины других прорайдеров мира преодолевают сложнейшие участки природного ландшафта.Жанр: СпортПеревод: ОтсутствуетПродолжительность: 02:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851E34BDE6218FF11E1E3AB7E4AE8F44A1193319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412291   (420769) от 28.09.2020
+
+Футбол. Лига 1. Чемпионат Франции 2020-2021. 1-й тур. ПСЖ — Метц (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Франции по футболу (Лига 1) 2020-2021.
+16 сентября 2020, среда. 22:00 МСК
+1-й тур
+ПСЖ (Париж) — Метц (Метц)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA47D7DDC60EA8D1DBC976FA21268A2352AE897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412289   (420633) от 28.09.2020
+
+Футбол. Лига 1. Чемпионат Франции 2020-2021. 1-й тур. Монпелье — Лион (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Франции по футболу (Лига 1) 2020-2021.
+15 сентября 2020, вторник. 22:00 МСК
+1-й тур
+Монпелье (Монпелье) — Лион (Лион)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F554EC7CBDB626C8F9689E047BCABF0B55CACBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947321   (420551) от 16.10.2015
+
+Футбол. Чемпионат Англии 2015-16. Premier academy league. 9 тур. Ливерпуль (до 18) – Сток Сити (до 18) (2015) HDTVRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Англии 2015-16 (Premier Academy League), Юноши до 18 лет. 9 тур Ливерпуль - Сток Сити.Телекомпания: Liverpool TV HDЖанр: Спорт, ТелепередачаФормат: MP4Продолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24570B91D49713CF52AE79A440E3F81635AD6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412084   (420446) от 28.09.2020
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Каталонии / MotoGP 2020. Catalan GP (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420446.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A2E9C8C23BF63EF75B1BED823042DD7B1880BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251273   (420277) от 30.09.2018
+
+Теннис. Кубок Дэвиса 2018. Мировая группа. 1/2 Финала. Хорватия — США. День 3 (16.09.2018) WEBRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420277.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 сентября 2018 года, воскресенье.
+Кубок Дэвиса 2018 — 107-й по счёту розыгрыш самого престижного кубка среди мужских сборных команд по теннису.
+Мировая группа. 1/2 Финала
+1. Марин Чилич (Хорватия) — Сэм Куэрри (США)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:19:16 - 04:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4D3470F889AB60B279FBA000E629F4C9435F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251109   (420208) от 30.09.2018
 
 Теннис. Кубок Дэвиса 2018. Группа 1. Зона Европа/Африка. Плей-аут. 1-й раунд. Россия — Беларусь. День 1 (14.09.2018) WEB-DL
@@ -6,7 +171,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420208.jpg" />
+  <img src="Z:/picture/008/save_picture_420208.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420206.jpg" />
+  <img src="Z:/picture/008/save_picture_420206.jpg" />
 </div>
 
 
@@ -64,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420104.jpg" />
+  <img src="Z:/picture/008/save_picture_420104.jpg" />
 </div>
 
 
@@ -93,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419666.jpg" />
+  <img src="Z:/picture/008/save_picture_419666.jpg" />
 </div>
 
 
@@ -122,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419524.jpg" />
+  <img src="Z:/picture/008/save_picture_419524.jpg" />
 </div>
 
 
@@ -150,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419340.jpg" />
+  <img src="Z:/picture/008/save_picture_419340.jpg" />
 </div>
 
 
@@ -178,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419244.jpg" />
+  <img src="Z:/picture/008/save_picture_419244.jpg" />
 </div>
 
 
@@ -206,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419237.jpg" />
+  <img src="Z:/picture/008/save_picture_419237.jpg" />
 </div>
 
 
@@ -232,7 +397,7 @@ History Channel: История мира в двух часах в 3D / History 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418413.jpg" />
+  <img src="Z:/picture/008/save_picture_418413.jpg" />
 </div>
 
 
@@ -258,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418400.jpg" />
+  <img src="Z:/picture/008/save_picture_418400.jpg" />
 </div>
 
 
@@ -284,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418399.jpg" />
+  <img src="Z:/picture/008/save_picture_418399.jpg" />
 </div>
 
 
@@ -310,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418398.jpg" />
+  <img src="Z:/picture/008/save_picture_418398.jpg" />
 </div>
 
 
@@ -336,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418396.jpg" />
+  <img src="Z:/picture/008/save_picture_418396.jpg" />
 </div>
 
 
@@ -362,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418391.jpg" />
+  <img src="Z:/picture/008/save_picture_418391.jpg" />
 </div>
 
 
@@ -388,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418353.jpg" />
+  <img src="Z:/picture/008/save_picture_418353.jpg" />
 </div>
 
 
@@ -414,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418352.jpg" />
+  <img src="Z:/picture/008/save_picture_418352.jpg" />
 </div>
 
 
@@ -443,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418250.jpg" />
+  <img src="Z:/picture/008/save_picture_418250.jpg" />
 </div>
 
 
@@ -469,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417687.jpg" />
+  <img src="Z:/picture/008/save_picture_417687.jpg" />
 </div>
 
 
@@ -496,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417027.jpg" />
+  <img src="Z:/picture/008/save_picture_417027.jpg" />
 </div>
 
 
@@ -524,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416655.jpg" />
+  <img src="Z:/picture/008/save_picture_416655.jpg" />
 </div>
 
 
@@ -537,165 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58310F9D7D7D9733322034DE392D9E101BBB11C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947831   (416267) от 18.10.2015
-
-Футбол. Чемпионат Испании 2015-16. 8 тур. Liga BBVA. Реал Мадрид - Леванте (2015) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Испании 2015-16, 8 тур. Liga BBVA. Реал Мадрид - Леванте.Телекомпания: НТВ+ Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:19 + 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556302492A96CEC0017BC2E9F2596A373A0496B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947813   (416124) от 18.10.2015
-
-Футбол. Чемпионат Англии 2015-16. 9 тур. EPL. Уотфорд – Арсенал (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Англии 2015-16, 9 тур. EPL. Уотфорд – Арсенал.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F955112999D53C244809AFFCD06F51E42BC590C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412665   (416028) от 30.09.2020
-
-Футбол. Лига Чемпионов УЕФА 2020-2021. Раунд плей-офф. 2-й матч. Динамо К (Украина) — Гент (Бельгия) (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лига Чемпионов УЕФА 2020-2021.
-29 сентября 2020, вторник. 22:00 МСК
-Раунд плей-офф. 2-й матч
-Динамо (Киев, Украина) — Гент (Гент, Бельгия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834E61AB89C365DF065B048057588584186F1061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947823   (415995) от 18.10.2015
-
-Футбол. Чемпионат Англии 2015-16. 9 тур. EPL. Эвертон – Манчестер Юнайтед (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Англии 2015-16, 9 тур. EPL. Эвертон – Манчестер Юнайтед.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE062A1E21FB91FE27BD19CAC305D77D43C6FBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947999   (415984) от 18.10.2015
-
-Вести недели (18.10.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415984.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3762E314B3E75EFAF532AF7A97B2A147817FCBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396601   (415811) от 05.10.2011
-
-Рестлинг / WWE Monday Night RAW [эфир от 03.10] (2011) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415811.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAW (среди фанатов известная как Monday Night Raw) — профессиональная рестлинг программа от Международной федерации рестлинга (WWE), которая в настоящее время транслируется на USA Network в Соединенных Штатах. В настоящее время RAW является одним из брендов WWE.Жанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B6A2A7AFFAA5B611BC888BE418287868E69626
 ```
 
 https://mybot314.ru/tekegram_catalog/

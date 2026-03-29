@@ -1,3 +1,31 @@
+###  Публикация: 1520756   (138812) от 30.12.2021
+
+ИИП, Анатолий Логинов | Сценарии повседневности или вредные привычки: как их изменить (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все люди имеют свои привычки. Привычки, или привычные сценарии поведения, у всех разные. Привычки имеют определяющее значение в жизнедеятельности любого человека. Недаром Аристотель когда-то сказал, что «Привычка – вторая натура». Ведь привычные сценарии нашего поведения формируют нашу жизнедеятельность и в конечном счете – нашу Жизнь.
+
+Согласно определению: Привы́чка (   Читать дальше...   )Производство: ИИПЖанр: ПсихологияПродолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E718E83F2E3B6FFA198794D6413E34AEF4306C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436140   (138491) от 30.12.2020
 
 Ольга Бутакова | Здоровый и функциональный мозг в любом возрасте (2018) CamRip
@@ -6,7 +34,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138491.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134182.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132927.jpg" />
 </div>
 
 
@@ -92,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132284.jpg" />
 </div>
 
 
@@ -121,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131933.jpg" />
 </div>
 
 
@@ -150,7 +178,7 @@ Liveclasses, Виталий Новиков | Как работать с возр
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127491.jpg" />
 </div>
 
 
@@ -179,7 +207,7 @@ Liveclasses, Виталий Новиков | Как мыслят наши кли
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127101.jpg" />
 </div>
 
 
@@ -207,7 +235,7 @@ Proprofiling, Алексей Филатов, Илья Анищенко | Как 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126318.jpg" />
 </div>
 
 
@@ -235,7 +263,7 @@ Proprofiling, Алексей Филатов | Ты - детектор лжи. К
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126315.jpg" />
 </div>
 
 
@@ -264,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126023.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126013.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125998.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125996.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125622.jpg" />
 </div>
 
 
@@ -408,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124802.jpg" />
 </div>
 
 
@@ -437,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124797.jpg" />
 </div>
 
 
@@ -466,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124428.jpg" />
 </div>
 
 
@@ -495,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123189.jpg" />
 </div>
 
 
@@ -521,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119067.jpg" />
 </div>
 
 
@@ -550,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117255.jpg" />
 </div>
 
 
@@ -579,7 +607,7 @@ puzzlebrain, Ильгизар Зинатов | Как подготовить р�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109078.jpg" />
 </div>
 
 
@@ -605,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109066.jpg" />
 </div>
 
 
@@ -631,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62998.jpg" />
 </div>
 
 
@@ -660,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62987.jpg" />
 </div>
 
 
@@ -689,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62985.jpg" />
 </div>
 
 
@@ -703,32 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0CC19C8EFBDF6E4BED928F808F992DD82D80B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707536   (62820) от 16.03.2024
-
-Московский институт психоанализа, Людмила Сенкевич | Клиническая психология (2023) WEB-DL [AD] [RU] [Части 10 из 10]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просто потрясающий курс, с каждым годом набирающий популярность - в последнем потоке было 930 студентов. Великолепный преподавательский состав, среди которых есть звезды и практикующие специалисты с мировой известностью. Очень-очень много практических занятий, на которых демонстрируется работа с реальными пациентами и клиентами, разбор клинических случаев. Это ценнейшая (   Читать дальше...   )Производство: Московский институт психоанализаЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 87:23:31Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7447A811F7EB4433A4387F42E77CA1B99BF7E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

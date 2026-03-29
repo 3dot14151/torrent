@@ -1,3 +1,55 @@
+###  Публикация: 1643596   (30823) от 16.01.2025
+
+Кислород (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое альпинистов, двое опытных восходителей и молодой новичок, отправляются в Пакистан — штурмовать высочайшие вершины мира Броуд Пик (8 051 м) и К2 (8 611 м). Они готовились к трудностям, но столкнутся с испытаниями, которые сложно было даже представить. На грани жизни и смерти, на высоте, где самое ценное — кислород.Производство: Россия / Студия «Кислород», Централ Партнершип, Red Media GroupЖанр: документальныйРежиссер: Ольга Бородина, Виталий Лазо, Дмитрий ХонинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F686B03B60A5919262AAD09B522F22E7C9FCA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774365   (30325) от 20.01.2025
+
+В Арктику / Into the Arctic (2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешественник Леонид Круглов отправляется на поиски «морского единорога» в северные моря и неожиданно для себя попадает под «притяжение Арктики». Теперь он не может остановиться, пока не обойдет все арктические архипелаги, и за пять лет экспедиций, пережив множество опасных приключений в море, на суше, во льдах, становится свидетелем и участником глобального исторического (   Читать дальше...   )Производство: Россия / GreenworksЖанр: документальныйРежиссер: Леонид КругловУчастники: Фёдор Конюхов, Борис ТокаревЯзык озвучки: РусскийСубтитры: Русские (forced, hardsub)Продолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602B2C8D0414D68D6348536DB8E43AD7761BB92C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619739   (29085) от 30.09.2025
 
 Юджин Леви: Путешественник поневоле / The Reluctant Traveler with Eugene Levy (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) NewStudio
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29085.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16584.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13178.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4568.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4298.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4023.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2899.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1812.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1775.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_458.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Stand Up. Лучшее (2016.05.22) SATRip (сезон 4, выпуск 10)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751757.jpg" />
+  <img src="Z:/picture/008/save_picture_751757.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo WinOptimizer 14.00.00 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751754.jpg" />
+  <img src="Z:/picture/008/save_picture_751754.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ashampoo WinOptimizer 14.00.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751749.jpg" />
+  <img src="Z:/picture/008/save_picture_751749.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751746.jpg" />
+  <img src="Z:/picture/008/save_picture_751746.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ iStatistica Pro 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751741.jpg" />
+  <img src="Z:/picture/008/save_picture_751741.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Blue Cat's All Plug-Ins Pack (v.2019.2) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751733.jpg" />
+  <img src="Z:/picture/008/save_picture_751733.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CleanMyPC 1.10.0.1987 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751726.jpg" />
+  <img src="Z:/picture/008/save_picture_751726.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wallpaper Engine 1.3.8 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751702.jpg" />
+  <img src="Z:/picture/008/save_picture_751702.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SQLPro for SQLite 2022.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751682.jpg" />
+  <img src="Z:/picture/008/save_picture_751682.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BluePlum Home Inventory 4 v4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751676.jpg" />
+  <img src="Z:/picture/008/save_picture_751676.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PDF Checkpoint 1.9.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751674.jpg" />
+  <img src="Z:/picture/008/save_picture_751674.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Viper FTP 6.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751673.jpg" />
+  <img src="Z:/picture/008/save_picture_751673.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Allavsoft Video Downloader Converter 3.24.2.8045 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751671.jpg" />
+  <img src="Z:/picture/008/save_picture_751671.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Photomatix Pro 6 v6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751667.jpg" />
+  <img src="Z:/picture/008/save_picture_751667.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Ablazing Winter Sessions 2022 [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751665.jpg" />
+  <img src="Z:/picture/008/save_picture_751665.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Keka 1.2.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751663.jpg" />
+  <img src="Z:/picture/008/save_picture_751663.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751658.jpg" />
+  <img src="Z:/picture/008/save_picture_751658.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Image Uploader 1.3.1 Build 4314 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751651.jpg" />
+  <img src="Z:/picture/008/save_picture_751651.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Adobe Flash Player 17.0.0.171 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751650.jpg" />
+  <img src="Z:/picture/008/save_picture_751650.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751639.jpg" />
+  <img src="Z:/picture/008/save_picture_751639.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751623.jpg" />
+  <img src="Z:/picture/008/save_picture_751623.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Torch Browser 65.0.0.1617 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751612.jpg" />
+  <img src="Z:/picture/008/save_picture_751612.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Softany WinCHM Pro 5.31 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751607.jpg" />
+  <img src="Z:/picture/008/save_picture_751607.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Windows Privacy Dashboard (WPD) 1.3.1577 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751580.jpg" />
+  <img src="Z:/picture/008/save_picture_751580.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Infuse PRO 7 v7.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751562.jpg" />
+  <img src="Z:/picture/008/save_picture_751562.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Togu Audio Line - TAL-J-8 1.5.4 VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751561.jpg" />
+  <img src="Z:/picture/008/save_picture_751561.jpg" />
 </div>
 
 

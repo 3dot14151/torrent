@@ -1,3 +1,87 @@
+###  Публикация: 1184597   (298529) от 18.11.2017
+
+Black Sabbath - The End (Live In Birmingham) (2017) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись последнего концерта в истории BLACK SABBATH, состоявшегося 4 февраля в зале "Genting Arena" в Бирмингеме (Англия), издана лейблом Eagle Vision 17 ноября под названием "The End". На концерте в крайне эмоциональной атмосфере звучали такие хиты как "Iron Man", "Paranoid", "War Pigs" и мн. др. Также для выступления (   Читать дальше...   )01. Black Sabbath
+02. Fairies Wear Boots
+03. Under The Sun / Every Day Comes And Goes
+04. After Forever(   Читать дальше...   )Производство: Eagle VisionЖанр: Hard RockПродолжительность: 01:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D836FF04C43789EAF0EDBDF571E499B3E344D851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915191   (296684) от 19.11.2017
+
+AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись грандиозного тура AC/DC «Black Ice World Tour», снятая 32 HD камерами в декабре 2009 года. 200 000 фанатов, собравшихся на три шоу в Буэнос Айресе, приветствовали группу после 13 лет отсутствия в Аргентине.01. Rock n Roll Train
+02. Hell Ain't a Bad Place to Be
+03. Back in Black
+04. Big Jack(   Читать дальше...   )Производство: США, Columbia RecordsЖанр: Hard RockРежиссер: David MalletПродолжительность: 01:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EF71C25062ADEFAE472ED386C87285F9D2B1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424085   (295563) от 15.11.2020
+
+Квартирник НТВ у Маргулиса. Группа Элизиум (14.11.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295563.jpg" />
+</div>
+
+
+###  Подробнее
+
+На сцене «Квартирника» — российский космос-рок ансамбль «Элизиум». В этом году коллектив отметил 25-летие: за этот период состав группы неоднократно менялся, но это никогда не сказывалось на их популярности. В гостях у Евгения Маргулиса участники «Элизиума» поделились интересными воспоминаниями и исполнили хиты в жанре, который они сами называют космос-роком.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADB80A1A9AEA938E83A0F5BE1AE3D68524EE8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822363   (295330) от 03.12.2016
 
 Queen - Live At The Rainbow '74 (2014) SD BDRemux [1080i]
@@ -6,7 +90,7 @@ Queen - Live At The Rainbow '74 (2014) SD BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295330.jpg" />
+  <img src="Z:/picture/008/save_picture_295330.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Dream Theater - Live At Luna Park (2013) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294987.jpg" />
+  <img src="Z:/picture/008/save_picture_294987.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291372.jpg" />
+  <img src="Z:/picture/008/save_picture_291372.jpg" />
 </div>
 
 
@@ -90,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290894.jpg" />
+  <img src="Z:/picture/008/save_picture_290894.jpg" />
 </div>
 
 
@@ -119,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290605.jpg" />
+  <img src="Z:/picture/008/save_picture_290605.jpg" />
 </div>
 
 
@@ -146,7 +230,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289649.jpg" />
+  <img src="Z:/picture/008/save_picture_289649.jpg" />
 </div>
 
 
@@ -177,7 +261,7 @@ Bee Gees - One Night Only 1997 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289129.jpg" />
+  <img src="Z:/picture/008/save_picture_289129.jpg" />
 </div>
 
 
@@ -206,7 +290,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289125.jpg" />
+  <img src="Z:/picture/008/save_picture_289125.jpg" />
 </div>
 
 
@@ -235,7 +319,7 @@ Europakonzert / European concert 2008 from Moscow (2014) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288383.jpg" />
+  <img src="Z:/picture/008/save_picture_288383.jpg" />
 </div>
 
 
@@ -267,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286276.jpg" />
+  <img src="Z:/picture/008/save_picture_286276.jpg" />
 </div>
 
 
@@ -293,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286169.jpg" />
+  <img src="Z:/picture/008/save_picture_286169.jpg" />
 </div>
 
 
@@ -319,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285451.jpg" />
+  <img src="Z:/picture/008/save_picture_285451.jpg" />
 </div>
 
 
@@ -348,7 +432,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285105.jpg" />
+  <img src="Z:/picture/008/save_picture_285105.jpg" />
 </div>
 
 
@@ -377,7 +461,7 @@ Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285022.jpg" />
+  <img src="Z:/picture/008/save_picture_285022.jpg" />
 </div>
 
 
@@ -406,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284240.jpg" />
+  <img src="Z:/picture/008/save_picture_284240.jpg" />
 </div>
 
 
@@ -432,7 +516,7 @@ Pink Floyd: Live at Pompeii (1972) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283636.jpg" />
+  <img src="Z:/picture/008/save_picture_283636.jpg" />
 </div>
 
 
@@ -458,7 +542,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283470.jpg" />
+  <img src="Z:/picture/008/save_picture_283470.jpg" />
 </div>
 
 
@@ -488,7 +572,7 @@ Nightwish - Showtime, Storytime (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281367.jpg" />
+  <img src="Z:/picture/008/save_picture_281367.jpg" />
 </div>
 
 
@@ -517,7 +601,7 @@ Muse - Rock Am Ring 2010 (2010) [720p] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275675.jpg" />
+  <img src="Z:/picture/008/save_picture_275675.jpg" />
 </div>
 
 
@@ -543,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274655.jpg" />
+  <img src="Z:/picture/008/save_picture_274655.jpg" />
 </div>
 
 
@@ -569,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274590.jpg" />
+  <img src="Z:/picture/008/save_picture_274590.jpg" />
 </div>
 
 
@@ -598,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273536.jpg" />
+  <img src="Z:/picture/008/save_picture_273536.jpg" />
 </div>
 
 
@@ -624,7 +708,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271999.jpg" />
+  <img src="Z:/picture/008/save_picture_271999.jpg" />
 </div>
 
 
@@ -638,88 +722,6 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42AE9D6C4A3E3CD62707FBE6FDD5BF332FAB6453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338911   (268119) от 17.11.2019
-
-Квартирник НТВ у Маргулиса. 85 лет Юрию Визбору (16.11.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск самой атмосферной программы НТВ «Квартирник НТВ у Маргулиса» посвящен юбилею советского поэта, композитора, актера и драматурга Юрия Визбора. В 2019 году одному из главных представителей жанра авторской песни, ставшему символом поколения 60-х, исполнилось бы 85 лет. В честь юбилея знаменитого барда в студии «Квартирника» собрались артисты, чтобы исполнить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53BDE188E6A935A816FBFCA8CE1DC5C66232901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190703   (266980) от 10.12.2017
-
-Квартирник на НТВ у Маргулиса. Ёлка (12.09.2017) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266980.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла певица, член жюри международного детского вокального конкурса "Ты супер!" Ёлка. Она рассказала о своем отношении к алкоголю, о безумных поступках в юности, об участии в КВН и любимой детской кукле. Лиза исполнила свои самые популярные треки: "Город обмана", "Хочу", "Мир открывается", "Навсегда", (   Читать дальше...   )Производство: Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C6B2ED43276CD6BC8AAA1E063E1FFC856490D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267341   (266562) от 06.12.2018
-
-Шерил Кроу - живой концерт в театре Capitol / Sheryl Crow - Live At The Capitol Theater (2018) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266562.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 ноября 2017 года, в историческом театре Капитолия в городе Порт-Честере, штата Нью-Йорк, Шерил Кроу выступила со своим заключительным концертом тура "Be Myself". Шерил Кроу была с новым превосходным составом и исполнила новые песни, которые вошли в восьмой студийный альбом.
- Она исполнила ''Be Myself'' и из совсем недавних - ''Halfway There'' и ''Atom (   Читать дальше...   )01. Every Day Is A Winding Road
- 02. A Change Would Do You Good
- 03. All I Wanna Do
- 04. My Favorite Mistake(   Читать дальше...   )Жанр: МузыкаРежиссер: Марк РичиПеревод: ОтсутствуетСубтитры: нетПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C81F96E7DDFD3A87BE16E06F2869B9733DAAF03
 ```
 
 https://mybot314.ru/tekegram_catalog/

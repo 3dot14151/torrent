@@ -1,3 +1,236 @@
+###  Публикация: 1721435   (57302) от 07.05.2024
+
+Cliff Richard - Rock 'N' Roll Juvenile (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57302.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Monday Thru' Friday
+A2 Doing Fine
+A3 Cities May Fall
+A4 You Know That I Love You(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98DAAF04C4B084546C2644B32DA3C3CFD3941983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572715   (56903) от 11.05.2024
+
+Unleash the Archers - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unleash the Archers — канадская метал-группа, основанная в Ванкувере в 2007 году. Группа исполняет смесь традиционного хеви-метала с пауэр-металом и мелодичным дэт-металом.2009 - Behold The Devastation
+2011 - Demons Of The AstroWaste
+2015 - Time Stands Still
+2017 - Apex(   Читать дальше...   )Жанр: Heavy/Power Metal, Melodic Death MetalПродолжительность: 06:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A5A8B3549B600F63F023156505C7EFB228EF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722814   (56694) от 13.05.2024
+
+Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56694.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wet Day In September
+A2 Hey Joe
+A3 It's The Same Old Song
+A4 Love In September(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: Vinyl, LP, Album, EMI – EMCE 1047, India
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638278   (56449) от 15.05.2024
+
+Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freedom Call — немецкая пауэр-метал группа, основанная в 1998 году.1999 - Stairway To Fairyland
+1999 - Taragon (EP)
+2001 - Crystal Empire
+2002 - EternityЖанр: Power MetalПродолжительность: 11:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3B1A5274A55E651DDADB5A18900732D8021049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630232   (56341) от 16.05.2024
+
+Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stream of Passion — мексикано-нидерландская симфоник-/готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
+2006 - Out in the Real World (EP)
+2009 - The Flame Within
+2011 - Darker DaysЖанр: Progressive/Symphonic MetalПродолжительность: 04:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F22229E4993B3E7DFA444B9CEDEE70F8DDD79C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541970   (56281) от 17.05.2024
+
+Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pain — индастриал-метал проект шведского музыканта, основателя Hypocrisy — Петера Тэгтгрена.1997 - Pain
+2000 - Rebirth
+2002 - Nothing Remains The Same
+2005 - Dancing With The DeadЖанр: Electronic/Industrial MetalПродолжительность: 08:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C2E6FFC9F140FBCE4714F4EE16A51294ABB2DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528857   (56279) от 17.05.2024
+
+Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Groove/Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fear Factory — американская метал-группа из Лос-Анджелеса.
+Группа сформировалась в 1989 году. За время своей музыкальной карьеры, музыканты сумели выработать собственное оригинальное звучание представляющее собой сочетание индастриал-метала и грув-метала.1992 - Soul Of A New Machine
+1995 - Demanufacture
+1998 - Obsolete
+2001 - Digimortal(   Читать дальше...   )Жанр: Death/Groove/Industrial MetalПродолжительность: 11:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02323E13F89423B9D40860E54EC6708E63CB9801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595750   (55449) от 25.05.2024
+
+Slash (Saul Hudson, Slash's Snakepit, Velvet Revolver) - Studio Albums (10 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saul Hudson, более известный по сценическому псевдониму Slash (род. 23 июля 1965 года) — американский рок-музыкант британского происхождения. Наиболее известен как гитарист американской хард-рок-группы Guns N’ Roses, с которой он добился всемирного успеха в конце 1980-х и начале 1990-х годов. В поздние годы своего участия в Guns N' Roses сформировал сайд-проект Slash's (   Читать дальше...   )2010 - Slash
+2012 - Apocalyptic Love
+2014 - World On Fire
+2018 - Living The DreamЖанр: Heavy Metal, Hard Rock, Glam MetalПродолжительность: 10:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE5A2BCB7155BAAA65E36CEE3460440045CC738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642533   (54664) от 01.06.2024
 
 Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Death Metal>
@@ -6,7 +239,7 @@ Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54664.jpg" />
 </div>
 
 
@@ -35,7 +268,7 @@ Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54145.jpg" />
 </div>
 
 
@@ -64,7 +297,7 @@ The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54141.jpg" />
 </div>
 
 
@@ -93,7 +326,7 @@ Godsmack (& Sully Erna) - Studio Albums (11 releases) (1998 - 2023) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54117.jpg" />
 </div>
 
 
@@ -122,7 +355,7 @@ Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54090.jpg" />
 </div>
 
 
@@ -152,7 +385,7 @@ Evergrey - Studio Albums (14 releases) (1998-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54075.jpg" />
 </div>
 
 
@@ -181,7 +414,7 @@ Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53891.jpg" />
 </div>
 
 
@@ -210,7 +443,7 @@ Dying Fetus - Reign Supreme (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Brutal 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53723.jpg" />
 </div>
 
 
@@ -239,7 +472,7 @@ Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53614.jpg" />
 </div>
 
 
@@ -269,7 +502,7 @@ Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53554.jpg" />
 </div>
 
 
@@ -299,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53004.jpg" />
 </div>
 
 
@@ -325,7 +558,7 @@ VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52920.jpg" />
 </div>
 
 
@@ -354,7 +587,7 @@ Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52732.jpg" />
 </div>
 
 
@@ -383,7 +616,7 @@ Anthrax - Studio Albums (12 releases) (1983-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52614.jpg" />
 </div>
 
 
@@ -412,7 +645,7 @@ Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52084.jpg" />
 </div>
 
 
@@ -441,7 +674,7 @@ Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52083.jpg" />
 </div>
 
 
@@ -470,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51921.jpg" />
 </div>
 
 
@@ -499,7 +732,7 @@ Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51693.jpg" />
 </div>
 
 
@@ -513,235 +746,6 @@ Lamb of God — американская грув-метал-группа, об�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733489   (51618) от 29.06.2024
-
-Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhapsody или Rhapsody of Fire — итальянская метал-группа, исполняющая музыку в стиле симфонический пауэр-метал. Коллектив был основан под названием Thundercross, но с 1995 года назывался Rhapsody и под таким названием стал широко известен. В 2006 году из-за проблем с правами группа дополнила название словами «of Fire».1997 - Legendary Tales
-1998 - Symphony Of Enchanted Lands
-2000 - Dawn Of Victory
-2001 - Rain Of A Thousand FlamesЖанр: Symphonic Power MetalПродолжительность: 17:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2C65835422E1FA7AFAA26ED403B9992AAA2D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733609   (51584) от 29.06.2024
-
-Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51584.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hotel California
-A2 Heartache Tonight
-A3 I Can't Tell You Why
-B1 The Long Run(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDFCB3500B775B96DEBCA2DC7834BA606444094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731477   (51396) от 01.07.2024
-
-The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <Pop Rock, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51396.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lovin' Things
-A2 The River Is Wide
-A3 (You Gotta) Live For Love
-A4 City Women(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 00:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69EB5B3C2953CBC93ED2F4B3A7183171E275644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736369   (50260) от 12.07.2024
-
-Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Pop Rock, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop Rock, DiscoПродолжительность: 02:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F367F64B06BAB6FB44ED0DDF90950454BF3DEF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736660   (50117) от 13.07.2024
-
-VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50117.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:06] 01. Вступление + Золотые Купола (Techno Vers)
-[2:32] 02. Белый теплоход (Rock vers)
-[2:53] 03. Владимирский Централ (Vers.1)
-[4:28] 04. Баллада об уходе в рай(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE97F3F685851DE59B6D454C05F27F51CE848B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548750   (49139) от 23.07.2024
-
-Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple — британская рок-группа, образованная в феврале 1968 года в Хартфорде, Англия, и считающаяся одной из самых заметных и влиятельных в хард-роке 1970-х годов. Музыкальные критики считают Deep Purple одними из основателей хард-рока и высоко оценивают их вклад в его развитие.1984 - Perfect Strangers
-1987 - The House of Blue Light
-1990 - Slaves and Masters
-1993 - The Battle Rages On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 12:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CC58E5ED6B97AF7519F75D3798FD6D805E6255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738710   (48971) от 24.07.2024
-
-Kiss - Studio Albums (5 releases) (1992-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kiss — американская рок-группа, основанная в Нью-Йорке в январе 1973 года, играющая в жанрах глэм-рок и хард-рок. Широко известна развитием направления шок-рок, сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами.1992 - Revenge
-1997 - Carnival Of Souls: The Final Sessions
-1998 - Psycho Circus
-2009 - Sonic Boom(   Читать дальше...   )Жанр: Hard Rock, Glam, Heavy MetalПродолжительность: 05:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B0AE4571FBE4AFBF873A19A576B501E69A5561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624880   (48884) от 25.07.2024
-
-Imagine Dragons - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagine Dragons — американская поп-рок-группа, образованная в 2008 году в городе Лас-Вегас, США.2012 - Night Visions
-2015 - Smoke + Mirrors
-2017 - Evolve
-2018 - OriginsЖанр: Alternative & IndieПродолжительность: 07:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41718B91F055A9695DD40813888981042C8145E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

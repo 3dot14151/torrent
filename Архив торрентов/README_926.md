@@ -6,7 +6,7 @@ ShareX 11.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836453.jpg" />
+  <img src="Z:/picture/008/save_picture_836453.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836437.jpg" />
+  <img src="Z:/picture/008/save_picture_836437.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Album Player 2.106 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836426.jpg" />
+  <img src="Z:/picture/008/save_picture_836426.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836421.jpg" />
+  <img src="Z:/picture/008/save_picture_836421.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.4 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836412.jpg" />
+  <img src="Z:/picture/008/save_picture_836412.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Visual Studio 2019 Community 16.11.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836403.jpg" />
+  <img src="Z:/picture/008/save_picture_836403.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft Visual Studio 2019 Professional 16.11.4 (Offline Cache, Unofficial) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836402.jpg" />
+  <img src="Z:/picture/008/save_picture_836402.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ CrystalDiskInfo 8.12.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836399.jpg" />
+  <img src="Z:/picture/008/save_picture_836399.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ CrystalDiskInfo 8.12.10 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836398.jpg" />
+  <img src="Z:/picture/008/save_picture_836398.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Textify 1.8.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836396.jpg" />
+  <img src="Z:/picture/008/save_picture_836396.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ RAM Saver Professional 21.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836395.jpg" />
+  <img src="Z:/picture/008/save_picture_836395.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836394.jpg" />
+  <img src="Z:/picture/008/save_picture_836394.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BestReminder v2020.05.01.10 МирТрудМай Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836386.jpg" />
+  <img src="Z:/picture/008/save_picture_836386.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836385.jpg" />
+  <img src="Z:/picture/008/save_picture_836385.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Exposure X5 v5.2.2.247 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836380.jpg" />
+  <img src="Z:/picture/008/save_picture_836380.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WinTools.net Premium 17.3.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836351.jpg" />
+  <img src="Z:/picture/008/save_picture_836351.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836349.jpg" />
+  <img src="Z:/picture/008/save_picture_836349.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836346.jpg" />
+  <img src="Z:/picture/008/save_picture_836346.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836344.jpg" />
+  <img src="Z:/picture/008/save_picture_836344.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Adobe Flash Player 21.0.0.213 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836313.jpg" />
+  <img src="Z:/picture/008/save_picture_836313.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836310.jpg" />
+  <img src="Z:/picture/008/save_picture_836310.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Topaz DeNoise AI 3.3.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836281.jpg" />
+  <img src="Z:/picture/008/save_picture_836281.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836277.jpg" />
+  <img src="Z:/picture/008/save_picture_836277.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Erik Norlander - The Gallactive Collective (2010) [APE|Lossless]<Progressive Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836272.jpg" />
+  <img src="Z:/picture/008/save_picture_836272.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Dance Music from AGR (2011) [MP3|256 kbps]<Pop/Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836270.jpg" />
+  <img src="Z:/picture/008/save_picture_836270.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Lounge History: Very Best Of 2011 (16.03.2011) [MP3|~225 kbps]<Lounge / Chi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836268.jpg" />
+  <img src="Z:/picture/008/save_picture_836268.jpg" />
 </div>
 
 

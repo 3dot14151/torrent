@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1861766   (1062880) от 
+
+7000$ - Корпорация монстров (2026) [MP3|320 Kbps] <Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Корпорация монстров
+2. Олдскул
+3. Империя незаходящего солнца
+4. Каждый новый шрам(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B3BE06C894972AD8D664ACE46A165D1F066EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861769   (1062879) от 
+
+МПТРИ - Демовирус (2026) [MP3|320 Kbps] <Ska, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062879.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Аврора
+2. Электростул (Версия 2003)
+3. Кобзон
+4. Это не я(   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB98B23692B38908BBB1EA96EEE6A9B6E0B3E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861802   (1062843) от 
+
+Мураками - Невеста хочет домой (2026) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062843.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Камчатка
+2. Максималистка
+3. Кто такой Джон Голт?
+4. Олдбой(   Читать дальше...   )Жанр: RockПродолжительность: 00:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F81A8DBB237430B3BE9AD5AF80D4A42B52CB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861897   (1062755) от 
+
+Би-2 - Путешествие вокруг Солнца (2026) Space Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Би-2 - Без любви не греет солнце
+2. Nadya Tolokonnikova - skit
+3. Би-2 - Свободная любовь
+4. Александр Баунов - skit(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A60B508FDA317C2F79F4CB529781DC2446C898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859030   (1060957) от 13.03.2026
 
 Babooshka - 7 Albums (2019-2025) [MP3|320 Kbps] <Alternative>
@@ -7,7 +123,7 @@ Babooshka - 7 Albums (2019-2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060957.jpg" />
+  <img src="Z:/picture/005/save_picture_1060957.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ Crimson Caravan - 2 Albums, 2 Singles (2019-2024) [opus|320 Kbps] <Stoner-Sludge
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060914.jpg" />
+  <img src="Z:/picture/005/save_picture_1060914.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060694.jpg" />
+  <img src="Z:/picture/005/save_picture_1060694.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ Dmitry Spirin (ex-Тараканы) - Чужие (2026) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060599.jpg" />
+  <img src="Z:/picture/005/save_picture_1060599.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060100.jpg" />
+  <img src="Z:/picture/009/save_picture_1060100.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059710.jpg" />
+  <img src="Z:/picture/009/save_picture_1059710.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059585.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059207.jpg" />
+  <img src="Z:/picture/005/save_picture_1059207.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Neverlove - SEXMETAL 2 (2026) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059081.jpg" />
+  <img src="Z:/picture/005/save_picture_1059081.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058185.jpg" />
+  <img src="Z:/picture/005/save_picture_1058185.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ igo - 3 Albums (2012-2026) AI-generated content [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057911.jpg" />
+  <img src="Z:/picture/005/save_picture_1057911.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057178.jpg" />
+  <img src="Z:/picture/005/save_picture_1057178.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057110.jpg" />
+  <img src="Z:/picture/005/save_picture_1057110.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Otto Dix - Хюбрис (2026) [MP3|320 Kbps] <Darkwave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056905.jpg" />
+  <img src="Z:/picture/005/save_picture_1056905.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056616.jpg" />
+  <img src="Z:/picture/005/save_picture_1056616.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055982.jpg" />
+  <img src="Z:/picture/005/save_picture_1055982.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055822.jpg" />
+  <img src="Z:/picture/005/save_picture_1055822.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055744.jpg" />
+  <img src="Z:/picture/005/save_picture_1055744.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055237.jpg" />
+  <img src="Z:/picture/005/save_picture_1055237.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055108.jpg" />
+  <img src="Z:/picture/005/save_picture_1055108.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054042.jpg" />
+  <img src="Z:/picture/005/save_picture_1054042.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053485.jpg" />
+  <img src="Z:/picture/005/save_picture_1053485.jpg" />
 </div>
 
 
@@ -628,121 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5ACEADC637F8BD94E21D820256E419D96F56336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849476   (1053483) от 23.01.2026
-
-polnalyubvi - Песнь Нимфеи (2026) [MP3|320 Kbps] <Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053483.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Девочка с Севера
-2. Ледяная
-3. Я иду звёздной тропой
-4. Рассказ теней(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E238DFF0B15EF35202129BF37EE0F14EC4AA66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848715   (1053097) от 18.01.2026
-
-Александр Ф. Скляр и Ва-Банкъ - По-новому (2026) EP[MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053097.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На кухне [00:05:20]
-2. Босиком по луне [00:05:06]
-3. Сад [00:03:43]Жанр: RockПродолжительность: 00:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC3CE834861CF8471F2D01265887C76CE5E8068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848456   (1052928) от 18.01.2026
-
-Аквариум - Странные Новости с Далёкой Звезды (2026) [MP3|320 Kbps] <Indie, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поговорим о мёртвых [00:03:40]
-02. Все кошки серы [00:03:24]
-03. Вороны Вороны [00:02:53]
-04. Спаси и сохрани [00:03:43](   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2991A0746515F9DAC5E29CDFCE27C31DF2CCA371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848316   (1052785) от 16.01.2026
-
-Ощупь - Ловцы Туманов (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052785.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мародёры [00:03:53]
-2. Алло [00:03:05]
-3. Рассмеши [00:03:34]
-4. Трактор [00:03:06](   Читать дальше...   )Жанр: RockПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F52DA0170F815E2D94299F709365A45B53CED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

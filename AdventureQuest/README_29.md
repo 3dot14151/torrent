@@ -1,3 +1,81 @@
+###  Публикация: 1135810   (678438) от 20.05.2017
+
+The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episode 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если семья - это все, что у тебя осталось… как далеко ты зайдешь, чтоб защитить ее? Четыре года спустя после того, как зомби разодрали общество на части, в хаосе возникают карманы цивилизации. Но какой ценой? Можно ли доверять людям на этом последнем рубеже? В роли Javier, молодого человека, разыскивающего семью, которой его лишили, вы встречаете девушку, в свою (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEF745FF292D0BA880D458368D5914E0D1169CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530755   (678063) от 10.03.2022
+
+Know by Heart... / Помни... (2022) [Ru/En] (1.03) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678063.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Помни...” — это игра о принятии утраты. С помощью сюжета, музыки, интуитивно понятного геймплея и атмосферных мини-игр в ней создаётся иллюзия возвращения в детство и следующего за ним взросления, осознания скоротечности времени. Игрока ожидает погружение в быт провинциального российского городка, где ещё слышны отголоски советской эпохи и жизнь хранит на себе её (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-Pick LodgeЖанр: Adventure, Visual NovelЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F330064B610BE7A049CF9D26E8B59AA094796AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310141   (678037) от 14.05.2011
+
+Tales of Monkey Island: Chapter 2 The Siege of Spinner Cay / Tales of Monkey Island: Глава 2 Осада Рыбацкого рифа [Ru] (L) 2011
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_678037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tales of Monkey Island - это пятая часть знаменитой саги, разработанная Telltale Games совместно с LucasArts. Игра начинается через несколько лет после событий, разворачивавшихся в Escape from Monkey Island. Во втором эпизоде нашей истории грозный пират Гайбраш сбежал с острова, но его рука все еще поражена заразой, а ЛеЧак, в человеческом облике, ухлёстывает за Илэйн. И надо же было, именно в этот момент, встретится с охотницей за пиратами! Она ловкий и опытный боец, но Гайбраш и сам не лыком шит. Морган ЛеФлэй только и смогла, что отрубить зараженную руку после чего, усилиями нашего героя, оказалась за бортом. Жаль, но она повредила мачту «Нарвала» и придется нам причалить на острове «Рыбацкий Риф», в городе русалок. Здесь, среди ожесточенного противостояния зараженных пиратов и невинного морского народа, и начинает развиваться история второй главы. А ситуация не простая - приходится разрываться на части, избегая упорно идущей по его следу охотницы, защищать русалок и искать лекарство от чумы. Сумеет ли наш (   Читать дальше...   )Тип издания: ЛицензияЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136121   (676484) от 21.05.2017
 
 Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
@@ -6,7 +84,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676484.jpg" />
+  <img src="Z:/picture/008/save_picture_676484.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676178.jpg" />
+  <img src="Z:/picture/008/save_picture_676178.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675703.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Everybody's Gone to the Rapture / Хроники последних дней (20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671552.jpg" />
+  <img src="Z:/picture/008/save_picture_671552.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671211.jpg" />
+  <img src="Z:/picture/008/save_picture_671211.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Late Shift (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670525.jpg" />
+  <img src="Z:/picture/008/save_picture_670525.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Sound of Drop - fall into poison (2015) [Ru/Multi] (1.0) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670136.jpg" />
+  <img src="Z:/picture/008/save_picture_670136.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Awakened (2016) [En/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669907.jpg" />
+  <img src="Z:/picture/008/save_picture_669907.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Awakened (2016) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669882.jpg" />
+  <img src="Z:/picture/008/save_picture_669882.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668424.jpg" />
+  <img src="Z:/picture/008/save_picture_668424.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667952.jpg" />
+  <img src="Z:/picture/008/save_picture_667952.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Full Throttle Remastered (2017) [Ru/En] (1.1.879806) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667379.jpg" />
+  <img src="Z:/picture/008/save_picture_667379.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666937.jpg" />
+  <img src="Z:/picture/008/save_picture_666937.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666317.jpg" />
+  <img src="Z:/picture/008/save_picture_666317.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Subaeria (2018) [Multi] (2.0.46r) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665889.jpg" />
+  <img src="Z:/picture/008/save_picture_665889.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Contrast (2013) [Ru/En] (11736) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665829.jpg" />
+  <img src="Z:/picture/008/save_picture_665829.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Subaeria (2018) [Multi] (2.0.46r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665771.jpg" />
+  <img src="Z:/picture/008/save_picture_665771.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Lake Ridden (2018) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664670.jpg" />
+  <img src="Z:/picture/008/save_picture_664670.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_664441.jpg" />
+  <img src="Z:/picture/005/save_picture_664441.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Black Dahlia (1998) [En] (1.10) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664230.jpg" />
+  <img src="Z:/picture/008/save_picture_664230.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663565.jpg" />
+  <img src="Z:/picture/008/save_picture_663565.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Dreamfall Chapters (2014-2016) [Ru/Multi] (5.4.1.1) License GOG [Special Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661840.jpg" />
+  <img src="Z:/picture/008/save_picture_661840.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661714.jpg" />
+  <img src="Z:/picture/008/save_picture_661714.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82733001A242169802837F48DBB4F1A37409D8E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139283   (660917) от 01.06.2017
-
-RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури.Тип издания: SteamRipРазработчик: Tequila Works, QLOCЖанр: Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAC10C991580DB5F772146C448FAA06DF4761FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225346   (660609) от 15.05.2018
-
-Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темный Рыцарь возвращается в Batman: The Telltale Series! Да, у нас нет лишней пары миллиардов долларов, но все мы немного бэтмены: боимся сумасшедших клоунов, любим котят и быстрые машины. Но еще больше общего у нас с Брюсом Уэйном – человеком в маске (или он и есть маска?): его детство уничтожено, его мир разрушен, и все-таки он пытается сделать свой родной город (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCB7E61451310523F9B8040D49AF0232B630066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139521   (659812) от 02.06.2017
-
-RiME (2017) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури. Вы встретите диких животных, обнаружите заброшенные руины, и увидите гигантскую башню, которая так и манит подойти поближе. (   Читать дальше...   )Тип издания: RepackРазработчик: Tequila Works, QLOCЖанр: Adventure, Action, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07BE907C263B50489E0279F9542A5040A2BFB7A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

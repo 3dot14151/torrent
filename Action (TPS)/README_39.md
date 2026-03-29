@@ -1,3 +1,173 @@
+###  Публикация: 1679682   (135010) от 26.11.2023
+
+Remnant II (2) (2023) [Ru/Multi] (396.261/dlc) Repack DjDI [Ultimate Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remnant 2 - это атмосферная и брутальная комбинация динамичного экшена и мрачных ужасов выживания. Сиквел развивает и дополняет традиции и игровые механики оригинала. Вы отправитесь в совершенно новое приключение, которое охватит множество захватывающих миров, каждый из которых кишит уникальными врагами, грозными боссами и сложными задачами. Независимо от того, решите (   Читать дальше...   )Тип издания: RepackРазработчик: Gunfire GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D604ECDC250A2572D8BD7189BC5E7F40345230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680341   (133991) от 29.11.2023
+
+Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Scene FAiRLIGHT [Lionheart Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сразитесь с армией шерифа Ноттингема, возглавив восстание в одиночку или с тремя другими игроками. Играйте за одного из шайки разбойников, комбинируйте атаки и ведите людей к свободе в этой футуристической антиутопии по мотивам легенды о Робине Гуде. Сеттинг игры - какое-то безумное сочетание будущего в виде летающих карет и при этом все дерутся копьями и мечами, (   Читать дальше...   )Тип издания: SceneРазработчик: Appeal StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEAC4F441F81A1829A95482B4A006423846D738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571950   (132453) от 03.12.2023
+
+Mafia III: Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) License GOG
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Бордо, 1968 год. Во Вьетнаме Линкольн Клей понял одно: семья - это не те, с кем ты вырос, а те, за кого ты готов умереть. Но когда итальянская мафия наносит удар в спину черной преступной группировке, когда-то заменившей Линкольну семью, он создает новую семью на руинах старой и принимается мстить, жестоко и умело. Если собрать правильных людей и не бояться замарать (   Читать дальше...   )Тип издания: LicenseРазработчик: Hangar 13Жанр: Экшны, Приключение, Open WorldЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E5E2071651FEE8316101A2C86868827994CE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326191   (131551) от 06.12.2023
+
+Devil's Hunt (2019) [Ru/Milti] (1.5.0) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот боевик от третьего лица, созданный по роману Павла Лесняка "Эквилибриум", посвящен вечной борьбе между силами добра и зла. Ангелы и демоны готовятся к эпической битве, полем которой станет наш мир. Вы - Десмонд, единственный человек, способный изменить расстановку сил в пользу одной из сторону. От вас зависит судьба человечества и мироздания в целом.Тип издания: LicenseРазработчик: Layopi GamesЖанр: Экшны, От третьего лица, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D974B6C415756863BF52EE7DFB193D0AFBB24CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596521   (131181) от 30.12.2012
+
+Oddworld: Stranger's Wrath HD [Ru/En] (Repack) 2012 | R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы — Странник, таинственный охотник за головами, который отправляется в поход в поисках самого главного в своей жизни сокровища. Вы отчаянно нуждаетесь в деньгах, ведь только дорогостоящая операция сможет избавить вас от гнетущего недуга. Тайна этого недуга сокрыта от всех, но лишь до поры до времени.
+
+В пыльной пустоши Западного Мудоса поселения сварливых горожан подвергаются нападениям воинственных бандитов. В это же время в округе появляется таинственный Странник — высокий и мрачный охотник за головами, его миссия — отловить всех негодяев и отправить их за решетку.
+
+Странник ревностно охраняет тайну своего прошлого и нуждается в дорогостоящей операции, чтобы выжить. Преследуя цель заработать как можно больше Moolah, он неохотно принимает особенный заказ владельца дамбы на реке Монго, и его приключение принимает совершенно неожиданный поворот...
+
+(   Читать дальше...   )Тип издания: RePackЖанр: 3D Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686DC7EBC15FE715B887BA62712C50160E756399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597049   (130588) от 31.12.2012
+
+Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний, как сама Тьма, демон пробудился от вечного забвения и обратил горящие дикой ненавистью глаза на земли, где царит светлая магия.
+Он стремительно зашагал в направлении своего взгляда, чтобы захватить неиссякаемый источник силы.
+Только один белый маг смог остановить врага, разбив пропасть под его ногами.
+Эта пропасть изолировала цивилизованный анклав от безжалостного внешнего мира.
+С тех пор прошло много тысяч лет.
+Сегодня провал затянулся и начинается война Света против Мрака.
+На чьей вы стороне?
+
+(   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82C7CA81B17AE1AD9C6BFDCD1ECA0BAFAE25462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491300   (130361) от 03.05.2012
 
 Silent Hill: Homecoming [Ru] (RePack) 2009 | Naitro
@@ -6,7 +176,7 @@ Silent Hill: Homecoming [Ru] (RePack) 2009 | Naitro
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130361.jpg" />
 </div>
 
 
@@ -32,7 +202,7 @@ Blackwind (2022) [Multi] (1.0.1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129893.jpg" />
 </div>
 
 
@@ -58,7 +228,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack Dece
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126843.jpg" />
 </div>
 
 
@@ -84,7 +254,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [20 Ye
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125909.jpg" />
 </div>
 
 
@@ -110,7 +280,7 @@ Remnant II (2) (2023) [Ru/Multi] (402.015/dlc) Scene Rune [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123231.jpg" />
 </div>
 
 
@@ -136,7 +306,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121811.jpg" />
 </div>
 
 
@@ -162,7 +332,7 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119902.jpg" />
 </div>
 
 
@@ -188,7 +358,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119052.jpg" />
 </div>
 
 
@@ -214,7 +384,7 @@ Succubus With Guns (2021) [Ru/Multi] (13403147/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118073.jpg" />
 </div>
 
 
@@ -240,7 +410,7 @@ SIFU (2022) [Ru/Multi] (1.26.6.660/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117748.jpg" />
 </div>
 
 
@@ -266,7 +436,7 @@ HAYDEE II (2020) [Ru/Multi] (1.0.18.11/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117518.jpg" />
 </div>
 
 
@@ -292,7 +462,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (1.0) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117127.jpg" />
 </div>
 
 
@@ -318,7 +488,7 @@ Mafia Anthology / Мафия - Антология (2002-2010) [Ru/En] Repack R.G
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115438.jpg" />
 </div>
 
 
@@ -346,7 +516,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Scene SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115116.jpg" />
 </div>
 
 
@@ -372,7 +542,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114928.jpg" />
 </div>
 
 
@@ -398,7 +568,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104412.jpg" />
 </div>
 
 
@@ -424,7 +594,7 @@ Max Payne Дилогия [Ru] (RePack) 2001-2006 | irvins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102120.jpg" />
 </div>
 
 
@@ -451,7 +621,7 @@ Stubbs the Zombie in Rebel Without a Pulse [Ru] (RePack/1.0.2) 2006 | MOP030B
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89955.jpg" />
 </div>
 
 
@@ -477,7 +647,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89925.jpg" />
 </div>
 
 
@@ -503,7 +673,7 @@ Resident Evil Director's Cut [Ru] (P/Emul) 1997 | MarkusEVO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89337.jpg" />
 </div>
 
 
@@ -514,167 +684,6 @@ Resident Evil Director's Cut [Ru] (P/Emul) 1997 | MarkusEVO
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483067   (88507) от 14.04.2012
-
-American McGee's Alice / Америкэн Макги: Алиса [Ru] (RePack) 2000 | Pilotus
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alice - это необычный 3D-шутер от 3-го лица, основанный на всемирно известных произведениях Льюиса Кэрролла. Съехавшая с катушек Алиса вернулась в мир сказок и совершенно не узнала его - вокруг смерть, страх и разруха. Взяв в руки необычное оружие, Алиса с помощью неуловимого Чеширского Кота и чокнутого Белого Кролика начинает освобождение этого странного мира от владычества злобной Червонной Королевы. На ее пути станут стражнки-карты, шахматные фигуры, детеныши Бармаглота, а также перверсийные двойники персонажей кэрроловской "Алисы": Шляпник, близнецы Труляля и Траляля, Герцогиня и многие другие. Прекрасные ландшафты Страны Чудес чередуются с психоделическими уровнями в сюрреалистическом пространстве. Это самая необычная трактовка классической сказки для взрослых!Тип издания: RePackЖанр: Трехмерный экшен от третьего лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480636   (87472) от 09.04.2012
-
-Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless RePack/1.09) 2005 l R.G. Origami
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87472.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Crime Life. Уличные войны» уверенно продолжает дело уличного мордобоя, победно начатое легендарной серией GTA. Недаром Crime Life вошла за рубежом в число самых жестоких игр.
-
-Наш новый герой с гордым именем Тре — новобранец чернокожей бандитской группировки Outlawz. Увешанный золотыми цепями папаша Биг Дог мечтает очистить город от конкурентов, а нам, разумеется, выпадает грязная работа. Разбить пару досок о довольные физиономии соседей по району, припугнуть зарвавшегося бизнесмена (проклятый капиталист вздумал повышать арендную плату), ограбить кучку подходящих по смыслу заведений — рядовые будни чувака в кепке. Чем чаще кулак Тре соприкасается с вражеским носом, тем шустрее заполняется полоска "гнева". Даже одной трети достаточно для совершения могучего чудо-пинка, а когда вы, наконец, доведете героя "до точки", он не оставит противнику ни шанса. Парировать удары разумно лишь в схватках один на один. Стратегия выживания на удивление незатейлива. Блок, простое комбо, блок, снова комбо, блок, (   Читать дальше...   )Тип издания: RePackРазработчик: HotHouse CreationsЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3BEFB085509B4F1D7A93F41B289C5D48BFBDB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479493   (87094) от 07.04.2012
-
-Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 | R.G. Origami
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой – талантливый граффити-художник Трейн, который отличается от сотен других граффитистов прекрасным знанием улочек города New Radius, задатками отличного спортсмена и невероятной страстью к любимому делу. Каждый день он рискует жизнью, чтобы попасть в труднодоступные места и украсить их ярким граффити. По мере «карьерного роста» Трейн превратится из новичка с горстью разноцветных маркеров в непревзойденного мастера, чьими руками (а также баллончиками и прочими граффити-инструментами) будут созданы шедевры во всех районах огромного города. Разумеется, о такой роскоши, как спокойное творчество придется забыть сразу и навсегда. На пути к вершинам мастерства стоят не только надоедливые городские власти, но и конкуренты – такие же нелегальные художники. И с теми, и с другими можно при встрече ввязаться в драку или незаметно пробраться мимо... чтобы, подкравшись со спины, оглушать врага ударом по голове. Наконец, помимо уличных потасовок и рисования граффити Трейну придется совершать маленькие акробатические (   Читать дальше...   )Тип издания: RePackРазработчик: The CollectiveЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E46C6FDBD124AB4E98C1046BEFDBF15BDD55F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479445   (86971) от 07.04.2012
-
-Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86971.jpg" />
-</div>
-
-
-###  Подробнее
-
-История про варвара, чью любимую забрали орки.Тип издания: RePackЖанр: Трехмерный приключенческий экшен от третьего лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478762   (86869) от 06.04.2012
-
-Manhunt Дилогия (P) [Ru] 2004-2009
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86869.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе секретных лабораторных испытаний произошла роковая ошибка, приведшая к катастрофическим последствиям. Из всех участников неудачного эксперимента уцелели двое пациентов — Даниель Лэм и Лео Каспер. Теперь «Проект Пикмана» не остановится ни перед чем, чтобы уничтожить свидетелей и скрыть правду о случившемся.
-Последние шесть лет ты находился в психиатрической клинике. Открыв глаза, ты видишь человека в белом халате. Его тело медленно оседает на пол. Из твоих дрожащих рук падает окровавленный шприц. Что происходит ? Как ты здесь очутился ? Кто ты такой ?
-Двери открыты. Это твой единственный шанс на спасение. Когда-то тебя лишили права на жизнь. Пришло время его вернуть.Тип издания: ПираткаЖанр: Stealth action, Survival horrorЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD576220CFD04FED20F30B817683EB99D6AFFC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478756   (86616) от 05.04.2012
-
-Tomb Raider 4: The Last Revelation [En] (L) 1999
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86616.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве многие мечтали стать археологами, но не все ими стали. Чтобы осуществить свою мечту юная Лара Крофт помогла известному знатоку древностей профессору фон Крою организовать экспедицию в Египет, с условием, что он возьмет ее с собой. Начинающая расхитительница гробниц отправилась на поиски древнего амулета, с помощью которого можно одолеть могущественное египетское божество.
-По сравнению с третьей частью значительно улучшился движок игры, добавились новые спецэффекты, полностью изменился дизайн всех меню и настроек, отважная Лара научилась новым движения, а арсенал ее оружия заметно расширился.Тип издания: ЛицензияЖанр: трехмерный экшен от третьего лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2239B751F10048814017A3684477A00CBCDBE37
 ```
 
 https://mybot314.ru/tekegram_catalog/

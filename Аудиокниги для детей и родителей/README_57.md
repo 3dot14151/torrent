@@ -1,3 +1,84 @@
+###  Публикация: 1588590   (191417) от 05.11.2022
+
+Микеле д'Иньяцио | Безработный Дед Мороз. Приключения под Новый год. Книга 1 (2022) [MP3, Михаил Лукашов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычная и смешная новогодняя история о новой работе Деда Мороза и о том, что у желаний нет срока годности и в жизни всегда есть место чуду!
+С давних времен Дед Мороз в новогоднюю ночь развозит подарки (а в остальное время года – бьёт баклуши и жуёт суши). Работает он всегда честно и старательно. За все годы ни одной потерянной посылки!
+Но однажды настали тяжёлые (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BF62E4C2B6A25A2FD6D9FDAAD9E357DF2674A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588606   (191390) от 05.11.2022
+
+Диана Машкова, Игорь Дубинников, Денис Салтеев | Азбука счастливой семьи. 30 уроков осознанного родительства (2021) [MP3, Марина Никитина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть родителем непросто, и этому, к сожалению, не учат в школе. У взрослых нередко накоплен свой «багаж»: детские обиды, психологические травмы и другой негативный опыт, который мешает строить гармоничные отношения с супругом и детьми.
+Эта книга поможет всем, кто хочет создать счастливую семью. В ней собраны 30 уроков осознанного родительства и важные знания из области (   Читать дальше...   )Жанр: Детская психология, семейная психологияПродолжительность: 14:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961356AFA70AA15FCA5E95BABEBCD1BF54D349CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588598   (191383) от 05.11.2022
+
+Микеле д'Иньяцио | Безработный Дед Мороз. Волшебный круговорот. Книга 2 (2022) [MP3, Михаил Лукашов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавная история о летних приключениях Деда Мороза, неожиданных подарках и чудесах! Однажды Деду Морозу начинают приходить странные письма от девочки Неве, которая ничего не просит, но явно о чем-то беспокоится. Что все это значит? И как ей помочь?Жанр: СказкаПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDCE379A71E21A65E0640AA7CF1982ABF1779203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588579   (191382) от 05.11.2022
 
 Геральд Хютер, Ули Хаузер | Непослушные дети добиваются успеха. Как перестать беспокоиться об оценках и разглядеть в ребенке талант (2021) [MP3, Юрий Красиков]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191382.jpg" />
+  <img src="Z:/picture/004/save_picture_191382.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191109.jpg" />
+  <img src="Z:/picture/004/save_picture_191109.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190384.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190057.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189782.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189746.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189483.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189469.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189427.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189425.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189409.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189155.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188868.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188827.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188807.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188523.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187919.jpg" />
 </div>
 
 
@@ -464,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187868.jpg" />
 </div>
 
 
@@ -493,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187544.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187516.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187510.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187233.jpg" />
 </div>
 
 
@@ -598,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187200.jpg" />
 </div>
 
 
@@ -609,85 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE5D44749130D8DCD03A9C0E9656F0B9C11A626F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663086   (187018) от 20.09.2023
-
-Ганс Христиан и др. | Сборник детских сказок с пластинок СССР (Часть 1) (1964-1988) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предоставляется аудиосборник детских сказок, песен, басней, повестей и мультфильмов выпущенных в СССР на виниловых пластинках студией Мелодия. «Мело́дия» — это советская и российская фирма звукозаписи, старейшая в России компания звуковой индустрии. Основана в 1964 году как Всесоюзная фирма грампластинок.Жанр: Детская литератураИздательство: МелодияПродолжительность: 23:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D552372A20E5478B8673AE04EF75B8D5647F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591673   (186910) от 19.11.2022
-
-Эрнст Гофман | Щелкунчик и Мышиный король (2022) [MP3, Павел Конышев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186910.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Щелкунчик и Мышиный король» – одна из самых известных и любимых рождественских сказок мира.
-В ночь на Рождество девочка Мари получает необычный подарок – деревянного Щелкунчика. После этого обычная жизнь девочки начинает чудесным образом переплетаться со сказочным миром, в котором игрушки оказываются живыми, а Щелкунчик – его заколдованным правителем. Чтобы преодолеть (   Читать дальше...   )Жанр: СказкаПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51839486DC9519634009B3973E9952CD340A3D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663757   (185911) от 25.09.2023
-
-Ганс Христиан и др. | Сборник детских сказок с пластинок СССР (Часть 3) (1964-1988) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предоставляется аудиосборник детских сказок, песен, басней, повестей и мультфильмов выпущенных в СССР на виниловых пластинках студией Мелодия. «Мело́дия» — это советская и российская фирма звукозаписи, старейшая в России компания звуковой индустрии. Основана в 1964 году как Всесоюзная фирма грампластинок.Жанр: Детская литератураИздательство: МелодияПродолжительность: 51:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DF976D757197F92AB49C6B7A9EB0EBEBC5E379
 ```
 
 https://mybot314.ru/tekegram_catalog/

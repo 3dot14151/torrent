@@ -6,7 +6,7 @@ Madagascar 3: Europe's Most Wanted [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398723.jpg" />
+  <img src="Z:/picture/008/save_picture_398723.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Worms Revolution [Ru/En] (Repack/0061/2 DLC) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398720.jpg" />
+  <img src="Z:/picture/008/save_picture_398720.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ King's Bounty: Warriors of the North [Ru] (Repack/1.3.1+DLC) 2012 | R.G Repacker
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398673.jpg" />
+  <img src="Z:/picture/008/save_picture_398673.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ DragonFlight [En] (RePack) 1991 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398051.jpg" />
+  <img src="Z:/picture/008/save_picture_398051.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397998.jpg" />
+  <img src="Z:/picture/008/save_picture_397998.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397856.jpg" />
+  <img src="Z:/picture/008/save_picture_397856.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ DeadLight [En] (RePack) 2012 | big_buka
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397680.jpg" />
+  <img src="Z:/picture/008/save_picture_397680.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ XCOM. Enemy Unknown [Ru/En] (RePack/1.0.0.11052) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397595.jpg" />
+  <img src="Z:/picture/008/save_picture_397595.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Borderlands 2 [En/Ru] (Repack/1.1.3.0.u.6/2 DLC) 2012 | R.G. ILITA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397594.jpg" />
+  <img src="Z:/picture/008/save_picture_397594.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Medal of Honor Warfighter - Limited Edition [Ru/En] (RePack/1.0.0.2) 2012 l R.G.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397479.jpg" />
+  <img src="Z:/picture/008/save_picture_397479.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.0) 2012 l =Чувак
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395718.jpg" />
+  <img src="Z:/picture/008/save_picture_395718.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.0) 2012 l SeregA-Lus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395668.jpg" />
+  <img src="Z:/picture/008/save_picture_395668.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (Lossy RePack) 2012 l DangeSeco
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395608.jpg" />
+  <img src="Z:/picture/008/save_picture_395608.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.0) 2012 l Samodel
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395596.jpg" />
+  <img src="Z:/picture/008/save_picture_395596.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack) 2012 l R.G. REVOLUTION
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395565.jpg" />
+  <img src="Z:/picture/008/save_picture_395565.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The Testament of Sherlock Holmes [Ru/En] (RePack/1.0.2) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395556.jpg" />
+  <img src="Z:/picture/008/save_picture_395556.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ King's Bounty: Warriors of the North [Ru/Multi3] (Steam-Rip) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395555.jpg" />
+  <img src="Z:/picture/008/save_picture_395555.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Star conflict [Ru] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395549.jpg" />
+  <img src="Z:/picture/008/save_picture_395549.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Medal of Honor Warfighter: Limited Edition [Ru] (Repack/1.0.0.2) 2012 | SHARINGA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395506.jpg" />
+  <img src="Z:/picture/008/save_picture_395506.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Prime World [Ru] (L/9.4.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395501.jpg" />
+  <img src="Z:/picture/008/save_picture_395501.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Magicka. Ну очень эпическая игра [Ru/En] (Repack/1.4.10.0/DL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394569.jpg" />
+  <img src="Z:/picture/008/save_picture_394569.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ XCOM: Enemy Unknown [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394568.jpg" />
+  <img src="Z:/picture/008/save_picture_394568.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack) 2012 l Truerip
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_394475.jpg" />
+  <img src="Z:/picture/005/save_picture_394475.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Need for Speed: Most Wanted [Ru/En] (Repack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394467.jpg" />
+  <img src="Z:/picture/008/save_picture_394467.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Blade and Soul [Kr] (L/1.3.8.632) 2012 | {24 октября 2012}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394386.jpg" />
+  <img src="Z:/picture/008/save_picture_394386.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Painkiller: Hell & Damnation [Ru] (RePack) 2012 | =Чувак=
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393497.jpg" />
+  <img src="Z:/picture/008/save_picture_393497.jpg" />
 </div>
 
 

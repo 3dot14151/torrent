@@ -6,7 +6,7 @@ ScreenToGif 2.26.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703803.jpg" />
+  <img src="Z:/picture/008/save_picture_703803.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Downie 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703720.jpg" />
+  <img src="Z:/picture/008/save_picture_703720.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Leech 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703711.jpg" />
+  <img src="Z:/picture/008/save_picture_703711.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AdwCleaner 5.200 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703706.jpg" />
+  <img src="Z:/picture/008/save_picture_703706.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Xilisoft Video Converter Ultimate 7.8.17 Build 20160613 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703704.jpg" />
+  <img src="Z:/picture/008/save_picture_703704.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Textual 7 v7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703701.jpg" />
+  <img src="Z:/picture/008/save_picture_703701.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Norton Internet Security 22.7.0.75 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703700.jpg" />
+  <img src="Z:/picture/008/save_picture_703700.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Anderva - E-Wax Festival Contest 2019-03-05 [MP3|320 Kbps] <Electro House, Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703698.jpg" />
+  <img src="Z:/picture/008/save_picture_703698.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ WinZip Mac Pro 8 v8.0.5151 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703686.jpg" />
+  <img src="Z:/picture/008/save_picture_703686.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ UnHackMe 11.90.0.990 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703685.jpg" />
+  <img src="Z:/picture/008/save_picture_703685.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ant Download Manager Pro 1.19.1 Build 70778 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703684.jpg" />
+  <img src="Z:/picture/008/save_picture_703684.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ RAM Saver Professional 20.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703669.jpg" />
+  <img src="Z:/picture/008/save_picture_703669.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703639.jpg" />
+  <img src="Z:/picture/005/save_picture_703639.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703638.jpg" />
+  <img src="Z:/picture/005/save_picture_703638.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ App Tamer 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703628.jpg" />
+  <img src="Z:/picture/008/save_picture_703628.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703627.jpg" />
+  <img src="Z:/picture/008/save_picture_703627.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703625.jpg" />
+  <img src="Z:/picture/008/save_picture_703625.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703624.jpg" />
+  <img src="Z:/picture/008/save_picture_703624.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703623.jpg" />
+  <img src="Z:/picture/008/save_picture_703623.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ WinUtilities Professional Edition 15.51 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703621.jpg" />
+  <img src="Z:/picture/008/save_picture_703621.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703617.jpg" />
+  <img src="Z:/picture/008/save_picture_703617.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Master PDF Editor 5.3.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703613.jpg" />
+  <img src="Z:/picture/008/save_picture_703613.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703606.jpg" />
+  <img src="Z:/picture/008/save_picture_703606.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ R-Wipe&Clean 11.3 Build 2118 RePack by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703561.jpg" />
+  <img src="Z:/picture/008/save_picture_703561.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Download Master 6.9.1.1517 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703559.jpg" />
+  <img src="Z:/picture/008/save_picture_703559.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703554.jpg" />
+  <img src="Z:/picture/008/save_picture_703554.jpg" />
 </div>
 
 

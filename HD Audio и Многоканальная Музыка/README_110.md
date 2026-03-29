@@ -1,3 +1,235 @@
+###  Публикация: 1708853   (112984) от 22.03.2024
+
+Shakira - Las Mujeres Ya No Lloran (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Latin Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puntería (3:02)
+02. La Fuerte (2:45)
+03. Tiempo Sin Verte (3:16)
+04. Cohete (2:53)(   Читать дальше...   )Жанр: Pop, Latin PopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E3EFAB32BFF09618CEB0B2E2C88606CB0AE9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708896   (112973) от 22.03.2024
+
+Vid Sketa - First Step (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Step (8:05)
+02. Space Ship (9:58)
+03. Sempre (7:19)
+04. The Time Has Come (9:10)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA386A87C228DA0D88BA7BE4E441534602150C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708873   (112972) от 22.03.2024
+
+Sensual Lounge Music Universe - Flavor of Seduction: Instrumental Jazz Sex Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:26)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BAAD01C6CDD71716CACF1A0D28786295796BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708879   (112970) от 22.03.2024
+
+Юрий Лоза - Вся жизнь - дорога (1990) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Пой, моя гитара
+02. Итог
+03. Я не хуже, чем все(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A3E75AA44F3EDD3A252728AE7946A9AE636E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708882   (112967) от 22.03.2024
+
+Sensual Lounge Music Universe - Sensuality in the Air: Romantic and Erotic Jazz Collection (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy & Noir (3:29)
+02. Music for Quiet Moments (4:28)
+03. Jazz Mood – Erotic Dance (4:03)
+04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C735EA5E047B56216B68BD232BA920A1155D45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708866   (112962) от 22.03.2024
+
+Юрий Лоза - Что сказано, то сказано (1988) [FLAC 24/192|Lossless|tracks] <Pop-Rock, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Что сказано, то сказано
+02. Не принимай
+03. Сто часов(   Читать дальше...   )Жанр: Pop-Rock, ChansonПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485D5CFCAE55F4DDC51CA3FF95C540DC1FEAF208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708815   (112946) от 22.03.2024
+
+Игорь Николаев - Королевство кривых зеркал (1989) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Спасибо, Москва (И. Николаев)
+02. Садовник (С. Белявская)
+03. Розы для папы (П. Жагун)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708782   (112945) от 22.03.2024
+
+Elbow - Audio Vertigo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things I've Been Telling Myself for Years (3:34)
+02. Lovers' Leap (4:35)
+03. (Where Is It?) (0:27)
+04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E05456E16320CC12192FAC2558EBFADF6BB15BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708833   (112944) от 22.03.2024
 
 VA - Любимые песенки малышей (1971) [FLAC 24/192|Lossless|tracks] <Детская музыка>
@@ -6,7 +238,7 @@ VA - Любимые песенки малышей (1971) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112944.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Romantic Love Songs Academy - Rendezvous at Dawn: Sultry Jazz and Romantic Mood 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112940.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Gossip - Real Power (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112938.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112936.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Samson - Live at Reading`81 (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112931.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Deej - Blue Sky Mama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112929.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Relaxing Piano Man - Heading South (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112928.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Bruce Dickinson - Balls to Picasso (1994) [FLAC|24/96|tracks|Vinyl-Rip] <Rock, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112927.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Alligator Cats - Whiskeyland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112925.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112924.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112923.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112922.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Stress Reducing Music Zone, Instrumental Jazz Music Guys, Positive Music Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112919.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Romantic Evening Jazz Club and Good Mood Music Academy - Jazzy Evening Calm (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112917.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112913.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112912.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112911.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ I Shot A Man - Dues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112910.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ I Shot A Man - Dues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC0A602984716877B67205258A14F832B0653A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708813   (112909) от 22.03.2024
-
-Celso Salim & Darryl Carriere - About Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BBQ (4:36)
-02. Sweet Thing (4:34)
-03. Please Stop (4:52)
-04. In Your Arms (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DB15EE42AE590D8EDF89422611F5A5B849589B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708784   (112907) от 22.03.2024
-
-Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Dangerzone" (Paul Samson, Chris Aylmer, Nicky Moore)
-02. "Stealing Away" (Samson, Aylmer, Moore)
-03. "Red Skies" (Samson, Bruce Dickinson, Aylmer, Thunderstick)
-04. "I'll Be 'Round" (Samson, Aylmer, Moore, Pete Jupp)(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 40:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D83ECF6FD7CFD859B0228D23AE51318C9E6D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708844   (112905) от 22.03.2024
-
-Nathan Allen - Songs About Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Sent (4:11)
-02. Yo (Excuse Me Miss) (3:32)
-03. Calm Down (3:56)
-04. Me & U (3:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A279BB4505B408B078950D79A0B48059070FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708797   (112904) от 22.03.2024
-
-Duff McKagan - Lighthouse(Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lighthouse (3:20)
-02. Longfeather (4:12)
-03. Holy Water (4:32)
-04. I Saw God On 10th St. (3:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B07E4BEDB30CCE7392CB3FFE0E7DD920601CF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709103   (112902) от 23.03.2024
-
-Михаил Муромов - № 1 (1990) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Ведьма (М. Рябинин) — 3.56
-02. Ариадна (А. Зубков, М. Муромов — Р. Казакова) — 6.03
-03. Между нами тонкий лед (А. Кришта) — 3.47(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709105   (112882) от 23.03.2024
-
-Надежда Чепрага - Только ты (1984) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Человеческий голос (Е. Дога — Р. Рождественский) — 3.18
-02. Симфония чувств (Ион Алдя Теодорович — Г. Виеру) — 3.54
-03. Только ты (А. Корач — С. Гимпу, русский текст И. Вадикова) — 3.34(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709097   (112873) от 23.03.2024
-
-Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Гималаи (А. Лукьянов)
-02. Клава (М. Дунаевский)
-03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709186   (112863) от 23.03.2024
-
-Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112863.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Timpul Întâilor
-A2 În Vieliștea Uitării
-B1 Descânt
-B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Serif Affinity Designer 1.8.3.641 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868721.jpg" />
+  <img src="Z:/picture/008/save_picture_868721.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868714.jpg" />
+  <img src="Z:/picture/008/save_picture_868714.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868713.jpg" />
+  <img src="Z:/picture/008/save_picture_868713.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Serif Affinity Photo 1.8.3.641 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868710.jpg" />
+  <img src="Z:/picture/008/save_picture_868710.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868664.jpg" />
+  <img src="Z:/picture/008/save_picture_868664.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868663.jpg" />
+  <img src="Z:/picture/008/save_picture_868663.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868662.jpg" />
+  <img src="Z:/picture/008/save_picture_868662.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868660.jpg" />
+  <img src="Z:/picture/008/save_picture_868660.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868657.jpg" />
+  <img src="Z:/picture/008/save_picture_868657.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868655.jpg" />
+  <img src="Z:/picture/008/save_picture_868655.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868654.jpg" />
+  <img src="Z:/picture/008/save_picture_868654.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868653.jpg" />
+  <img src="Z:/picture/008/save_picture_868653.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ HoudahGeo 4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868650.jpg" />
+  <img src="Z:/picture/008/save_picture_868650.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868649.jpg" />
+  <img src="Z:/picture/008/save_picture_868649.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868648.jpg" />
+  <img src="Z:/picture/008/save_picture_868648.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ TrustViewer 2.1.3.3552 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868613.jpg" />
+  <img src="Z:/picture/008/save_picture_868613.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868606.jpg" />
+  <img src="Z:/picture/008/save_picture_868606.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Hornil StylePix 2.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868605.jpg" />
+  <img src="Z:/picture/008/save_picture_868605.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868602.jpg" />
+  <img src="Z:/picture/008/save_picture_868602.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Openzone Bar - Limestone (2015) [FLAC|Lossless|tracks] <Chill Out>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868588.jpg" />
+  <img src="Z:/picture/008/save_picture_868588.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Vanir - Aldar Rok (2016) [FLAC|Lossless|image + .cue] <Viking, Folk Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868574.jpg" />
+  <img src="Z:/picture/008/save_picture_868574.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ciro Visone - Fantasia (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868569.jpg" />
+  <img src="Z:/picture/008/save_picture_868569.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Balsamiq Mockups For Desktop 3.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868535.jpg" />
+  <img src="Z:/picture/008/save_picture_868535.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868529.jpg" />
+  <img src="Z:/picture/008/save_picture_868529.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Ancient Future - Asian Fusion (1993) [FLAC|Lossless|tracks] <Folk, World, New Ag
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868515.jpg" />
+  <img src="Z:/picture/008/save_picture_868515.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Armada Captivating in Miami (2016) [MP3|320 кб/с] <Trance, Progressive H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868514.jpg" />
+  <img src="Z:/picture/008/save_picture_868514.jpg" />
 </div>
 
 

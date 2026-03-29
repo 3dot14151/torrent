@@ -1,3 +1,148 @@
+###  Публикация: 1585628   (220705) от 23.10.2022
+
+Tom Hansen - Matters Of The Heart (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Lady (3:54)
+02. Matters Of The Heart (4:37)
+03. We'll Never Know (3:53)
+04. Stay Tonight (4:25)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4247C53D87BE470D6BC5D354E1C36B9CF7682082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513856   (220694) от 01.12.2021
+
+Deep Purple - Turning to crime (2021) [FLAC|Lossless|image + .cue] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220694.jpg" />
+</div>
+
+
+###  Подробнее
+
+DEEP PURPLE выпустили альбом каверов под названием "Turning To Crime" 26 ноября на лейбле earMUSIC. На этом диске представлены прочтения великой классики рока и музыкальных жемчужин, изначально записанных Бобом Диланом, FLEETWOOD MAC, Бобом Сигером, CREAM, THE YARDBIRDS и др. В отборе композиций принимали участие все музыканты группы.01. 7 and 7 Is
+02. Rockin' Pneumonia and the Boogie Woogie Flu
+03. Oh Well
+04. Jenny Take a Ride!(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB967AA362363DACC15F3273D9614D4A3271C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585671   (220560) от 23.10.2022
+
+Lacrimorta - Lacrimorta (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Lucidity (Black Roses And Blood For Red Wine) (05:33)
+02. Eternal (05:42)
+03. Deathbed Companion (06:36)
+04. Nyx (06:28)(   Читать дальше...   )Жанр: Gothic Rock, Gothic Metal, DarkwaveПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68F348D230A6B1417919B289AB2157927E4CD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585593   (220479) от 23.10.2022
+
+Stonerboner - Bonerstone (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner,  Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Rise of the Bonerstone
+02 Daydrinker
+03 Brokesmoker
+04 Starblazer(   Читать дальше...   )Жанр: Heavy Rock, Stoner,  GrungeПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8524A7E3D5A60BC7F6BB56C13032D8CBB8BF5BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514155   (219785) от 02.12.2021
+
+Dec Burke - Life in Two Dimensions (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life in Two Dimensions (5:12)
+02. Emergency (3:53)
+03. Sister X (4:49)
+04. This Time (4:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D431A04BFEEC13A4DC024DD3FBF7A144FC4187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585882   (219656) от 24.10.2022
 
 Asceta - Asceta (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Avantgarde>
@@ -6,7 +151,7 @@ Asceta - Asceta (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Avantgarde>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219656.jpg" />
+  <img src="Z:/picture/005/save_picture_219656.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Yesterdays - Saint-Exupery alma (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219472.jpg" />
+  <img src="Z:/picture/005/save_picture_219472.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Wreck of Time - From Sand - Part II (2022) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219145.jpg" />
+  <img src="Z:/picture/005/save_picture_219145.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Pete Townshend - The Iron Man: The Musical (1989) Virgin CDV 2592 [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219084.jpg" />
+  <img src="Z:/picture/005/save_picture_219084.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Smokie - The Very Best Of (Remastered) (2021) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218754.jpg" />
+  <img src="Z:/picture/005/save_picture_218754.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Eloy - Ra (1988) Japanese Edition, 1993, Victor [FLAC|image+.cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218742.jpg" />
+  <img src="Z:/picture/005/save_picture_218742.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Styx - Caught In The Act (1984) 2016 Universal Music Japan UICY-77890/1 [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218725.jpg" />
+  <img src="Z:/picture/005/save_picture_218725.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ King Crimson - Teatro Smeraldo Milan (1995) 2010 [FLAC|Lossless|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218715.jpg" />
+  <img src="Z:/picture/005/save_picture_218715.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ Mystery - Delusion Rain (2015) [FLAC|Lossless|image + .cue] <Progressive Rock, N
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218599.jpg" />
+  <img src="Z:/picture/005/save_picture_218599.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ John 5 and The Creatures - Live Invasion (2020) [FLAC|Lossless|image + .cue] <Ex
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218416.jpg" />
+  <img src="Z:/picture/005/save_picture_218416.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ Paul Simon - Greatest Hits - Shining Like A National Guitar (2000) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218381.jpg" />
+  <img src="Z:/picture/005/save_picture_218381.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ Keith Richards - 5 albums, 3 singles, 18 CD (1988-2020) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218304.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ Sting - 26 Albums, 1 Box Set, 1 EP (1985 - 2021) 44 CD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218101.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ White Canyon & The 5th Dimension - Gardeners of the Earth (2023) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218031.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ Jay Tausig - Amorphous Architecture (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217977.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ John Mellencamp - Whenever We Wanted (1991) [FLAC|Lossless|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217735.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ Dire Straits - On Every Street (1991) Remastered, 1996, Vertigo [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217706.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ The Jimi Hendrix Experience - Are You Experienced (1967) Remaster, Blue-Spec CD2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217473.jpg" />
+  <img src="Z:/picture/005/save_picture_217473.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ Alan Parsons - The NeverEnding Show: Live In The Netherlands (2021) 2xCD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217459.jpg" />
+  <img src="Z:/picture/005/save_picture_217459.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Streetlight - Ignition (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217233.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Tedo Stone - Marshes (2015) [FLAC|Lossless|tracks] <Folk Rock, Country Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217183.jpg" />
+  <img src="Z:/picture/005/save_picture_217183.jpg" />
 </div>
 
 
@@ -603,151 +748,6 @@ Tedo Stone - Marshes (2015) [FLAC|Lossless|tracks] <Folk Rock, Country Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C8E331CE168BE207E76EEDEE92D81EE81504F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514296   (217127) от 03.12.2021
-
-The Doors - L.A. Woman (1971) (50th Anniversary Deluxe Edition) Remastered 2021, Rhino-Elektra [FLAC 2.0|192/24|tracks|WEB-DL] <Blues rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Original Stereo Mix:
-01. The Changeling (4:23)
-02. Love Her Madly (3:21)
-03. Been Down So Long (4:43)(   Читать дальше...   )Жанр: Blues rock, Psychedelic RockПродолжительность: 03:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC6828998C3CCC85083D0E4D9042725D63A133A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652633   (217063) от 12.08.2023
-
-David Byrne & Fatboy Slim - Here Lies Love (2010) 2CD, Remaster, 2023, Nonesuch [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Lies Love (feat. Florence Welch) (2023 Remaster) [00:05:50]
-02. Every Drop of Rain (feat. Candie Payne & St. Vincent) (2023 Remaster) [00:05:33]
-03. You'll Be Taken Care Of (feat. Tori Amos) (2023 Remaster) [00:03:25]
-04. The Rose of Tacloban (feat. Martha Wainwright) (2023 Remaster) [00:02:34](   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 2 CD, 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3226040866E16E32E3F106F841D799C5F55547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343562   (217050) от 07.12.2019
-
-Michael Damian - Love Is A Mystery (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 She's In A Different World
-2 On Our Time
-3 Heart Of Stone
-4 Will You Make Up Your Mind(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C3EB8CEAB617928E391B04E4FCA80C2A94114E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343608   (216980) от 07.12.2019
-
-Waterloo - First Battle (1970) Reissue, 1999, Musea ‎[FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet Again (3:05)
-02. Why May I Not Know (3:09)
-03. Tumblin' Jack (2:36)
-04. Black Born Children (3:45)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABAD60C55C5F4291ED4E5F7449321ED84A3B1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652495   (216953) от 12.08.2023
-
-Ekseption - Ekseption (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Electric Prog Rock, Neo-Classical, Classical Crossover, Fusion, Jazz-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 5Th [00:03:23]
-02. Dharma For One [00:03:28]
-03. Little X Plus [00:03:31]
-04. Sabre Dance [00:03:46](   Читать дальше...   )Жанр: Electric Prog Rock, Neo-Classical, Classical Crossover, Fusion, Jazz-RockПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0258EC668B23F8379C86918EA36DA7DDB1998E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,140 @@
+###  Публикация: 486030   (100206) от 22.04.2012
+
+Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_100206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hole in the Map (5:21)
+02. Off the Grid Girl (6:13)
+03. Where is Everybody (4:58)
+04. The Usual Suspects (4:17)
+05. Five (4:13)
+06. Sweet Miriam (3:49)
+07. Out There (4:43)
+08. Get a Room (4:29)
+09. Cowbirds (7:01)
+10. I Took Your Hand (Fellini's Waltz) (3:31)(   Читать дальше...   )2012Жанр: Vocal JazzПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484951   (100036) от 19.04.2012
+
+Серия "Giants of Jazz - Immortal Concerts" / Kid Ory and The Creole Jazz Band - Echoes From New Orleans (1956/1996) [APE|Lossless]<Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, T ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_100036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Me Blues (T.Delaney) (3:51)
+02. Careless Love (traditional) (5:33)
+03. High Society (P.Sleeve) (4:07)
+04. Oh, Didn't He Ramble (W.C.Handy) (4:57)
+05. Eh, La Bas (K.Ory) (6:01)
+06. Toot, Toot, Tootsie! (T.Fiorito - E.Erdman - G.Kahn) (6:37)
+07. Maryland, My Maryland (tradirional) (2:44)
+08. Bugle Call Rag (W.C.Sweatman) (3:18)
+09. 1919 Rag (traditional) (5:32)
+10. Down Home Rag (W.C.Sweatman) (3:23)(   Читать дальше...   )1956 / 1996Жанр: Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, Trombone JazzПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483055   (99799) от 16.04.2012
+
+Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_99799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flamenco Sketches 16:04
+02. Freddie Freeloader 9:33
+03. Blue in Green 8:08
+04. So What 7:45
+05. All Blues 6:53
+06. Nardis 9:05
+07. Serpent's Tooth 3:382012Жанр: Latin Jazz, Piano JazzПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483061   (99769) от 16.04.2012
+
+Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_99769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Organized Memories (7:32)
+02. The Deduced (5:21)
+03. Lilah (5:30)
+04. Bombs (6:19)
+05. Remember (3:11)
+06. Blue In Green (Miles Davis - Bill Evans) (3:31)
+07. Rockstar Wannabe (Nir Naaman) (5:06)
+08. Temporary Feelings (7:46)
+09. Tarantula (6:01)
+10. War Poem (1:54)(   Читать дальше...   )2011Жанр: Jazz-Rock, Contemporary JazzПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482711   (99624) от 14.04.2012
 
 Серия "Giants of Jazz - Immortal Concerts" / Art Blakey & Clifford Brown - Birdland Club with Horace Silver, Lou Donaldson, Curley Russell (1954) [APE|Lossless]<Jazz, Hard Bop, Bop ...
@@ -6,7 +143,7 @@
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99624.jpg" />
+  <img src="Z:/picture/005/save_picture_99624.jpg" />
 </div>
 
 
@@ -41,7 +178,7 @@ Najee - My Point of View (2005) [FLAC|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98524.jpg" />
+  <img src="Z:/picture/005/save_picture_98524.jpg" />
 </div>
 
 
@@ -76,7 +213,7 @@ Excess Luggage - Hand Luggage Only (2011) [FLAC|Lossless]<Bop, Post-bop, Soul-ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98153.jpg" />
+  <img src="Z:/picture/005/save_picture_98153.jpg" />
 </div>
 
 
@@ -109,7 +246,7 @@ Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97453.jpg" />
+  <img src="Z:/picture/005/save_picture_97453.jpg" />
 </div>
 
 
@@ -143,7 +280,7 @@ David "Fathead" Newman - Davey Blue (2001) [FLAC|Lossless]<Hard Bop, Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96686.jpg" />
+  <img src="Z:/picture/005/save_picture_96686.jpg" />
 </div>
 
 
@@ -176,7 +313,7 @@ VA - Electro Swing IV mixed by Bart & Baker (2011) [FLAC|Lossless]<Nu Jazz, Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96646.jpg" />
+  <img src="Z:/picture/005/save_picture_96646.jpg" />
 </div>
 
 
@@ -211,7 +348,7 @@ Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96569.jpg" />
+  <img src="Z:/picture/005/save_picture_96569.jpg" />
 </div>
 
 
@@ -246,7 +383,7 @@ Alex Skolnick Trio - Veritas (2011) [FLAC|Lossless]<Modern Jazz, Fusion, Guitar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96543.jpg" />
+  <img src="Z:/picture/005/save_picture_96543.jpg" />
 </div>
 
 
@@ -281,7 +418,7 @@ Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96531.jpg" />
+  <img src="Z:/picture/005/save_picture_96531.jpg" />
 </div>
 
 
@@ -316,7 +453,7 @@ Arild Andersen Quintet - Auditorio RSI, Lugano, Switzerland, 09. 11. 2011 (2011)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96512.jpg" />
+  <img src="Z:/picture/005/save_picture_96512.jpg" />
 </div>
 
 
@@ -348,7 +485,7 @@ Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96425.jpg" />
+  <img src="Z:/picture/005/save_picture_96425.jpg" />
 </div>
 
 
@@ -382,7 +519,7 @@ Al Hirt - Swingin' Dixie! (2010) [APE|Lossless]<Dixieland, New Orleans Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96409.jpg" />
+  <img src="Z:/picture/005/save_picture_96409.jpg" />
 </div>
 
 
@@ -417,7 +554,7 @@ Mina Agossi - Red Eyes (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96348.jpg" />
+  <img src="Z:/picture/005/save_picture_96348.jpg" />
 </div>
 
 
@@ -452,7 +589,7 @@ Steve Weingart & Renee Jones - Dialogue (2011) [FLAC|Lossless]<Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95613.jpg" />
+  <img src="Z:/picture/005/save_picture_95613.jpg" />
 </div>
 
 
@@ -487,7 +624,7 @@ Alice Coltrane - Universal Consciousness & Lord Of Lords (2011) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95603.jpg" />
+  <img src="Z:/picture/005/save_picture_95603.jpg" />
 </div>
 
 
@@ -522,7 +659,7 @@ Hot Club Zagreb - Hot Club Zagreb (2003) [FLAC|Lossless]<Swing, Gypsy>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95588.jpg" />
+  <img src="Z:/picture/005/save_picture_95588.jpg" />
 </div>
 
 
@@ -557,7 +694,7 @@ VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95580.jpg" />
+  <img src="Z:/picture/005/save_picture_95580.jpg" />
 </div>
 
 
@@ -592,7 +729,7 @@ VA - Mellow & Warm (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95560.jpg" />
+  <img src="Z:/picture/005/save_picture_95560.jpg" />
 </div>
 
 
@@ -627,7 +764,7 @@ Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95245.jpg" />
+  <img src="Z:/picture/005/save_picture_95245.jpg" />
 </div>
 
 
@@ -662,7 +799,7 @@ Max Schultz - Plays Coltrane (2007) [FLAC|Lossless]<Contemporary Jazz, Guitar>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95177.jpg" />
+  <img src="Z:/picture/005/save_picture_95177.jpg" />
 </div>
 
 
@@ -697,7 +834,7 @@ Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95086.jpg" />
+  <img src="Z:/picture/005/save_picture_95086.jpg" />
 </div>
 
 
@@ -732,7 +869,7 @@ Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Fl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94950.jpg" />
+  <img src="Z:/picture/005/save_picture_94950.jpg" />
 </div>
 
 
@@ -752,131 +889,6 @@ Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Fl
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459516   (94891) от 28.02.2012
-
-George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Smooth Jazz, New AgeПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459423   (94889) от 28.02.2012
-
-The Tierney Sutton Band - American Road (2011) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayfaring Stranger (6:12)
-02. Oh Shenandoah/The Water Is Wide (5:47)
-03. On Broadway (4:24)
-04. Amazing Grace (6:01)
-05. It Ain't Necessarily So (4:48)
-06. Summertime (5:28)
-07. My Man's Gone Now (6:55)
-08. Tenderly (5:23)
-09. The Eagle and Me (2:25)
-10. Somewhere (3:48)(   Читать дальше...   )2011Жанр: Jazz, Vocal JazzПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459502   (94860) от 28.02.2012
-
-Billie Holiday - Easy To Love (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing at life (2:59)
-02. St. Louis blues (2:56)
-03. All of me (3:00)
-04. Am I blue ? (2:53)
-05. God bless the child (2:58)
-06. Gloomy sunday (3:14)
-07. Trav'lin' light (3:17)
-08. Do nothing 'till you hear from me (3:28)
-09. My old flame (3:02)
-10. He's funny that way (3:16)(   Читать дальше...   )2009Жанр: Jazz, Vocal JazzПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821761   (94731) от 04.10.2025
-
-Lester Young - The Lester Young Story (1936 - 1949) 4CD, 2000, Proper Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only a Paper Moon [3:09]
-02. Lover Come Back to Me [2:39]
-03. You're Driving Me Crazy [3:08]
-04. Lester's Be-Bop Boogie [3:16](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 04:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79563577E810F034776F312A689128DA3FCC7549
 ```
 
 https://mybot314.ru/tekegram_catalog/

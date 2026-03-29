@@ -6,7 +6,7 @@ WinTools.net Premium 18.7.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771579.jpg" />
+  <img src="Z:/picture/008/save_picture_771579.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771578.jpg" />
+  <img src="Z:/picture/008/save_picture_771578.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Driver Booster PRO 6.2.1.263 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771576.jpg" />
+  <img src="Z:/picture/008/save_picture_771576.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 24.01.2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771572.jpg" />
+  <img src="Z:/picture/008/save_picture_771572.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Comodo Firewall 8.2.0.4508 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771560.jpg" />
+  <img src="Z:/picture/008/save_picture_771560.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ UltraISO Premium Edition 9.7.3.3618 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771523.jpg" />
+  <img src="Z:/picture/008/save_picture_771523.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kerish Doctor 2020 4.80 [DC 19.06.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771517.jpg" />
+  <img src="Z:/picture/008/save_picture_771517.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DiskTrix UltimateDefrag 6.0.62.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771511.jpg" />
+  <img src="Z:/picture/008/save_picture_771511.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Emurasoft EmEditor Professional 19.9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771509.jpg" />
+  <img src="Z:/picture/008/save_picture_771509.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Auslogics Driver Updater 1.12.0.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771477.jpg" />
+  <img src="Z:/picture/008/save_picture_771477.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ SoftMaker Office Professional 2018 rev 928.0313 RePack (& portable) by KpoJIuK  
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771469.jpg" />
+  <img src="Z:/picture/008/save_picture_771469.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Windows 10 Manager 2.2.5 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771467.jpg" />
+  <img src="Z:/picture/008/save_picture_771467.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.5015.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771451.jpg" />
+  <img src="Z:/picture/008/save_picture_771451.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ ZD Soft Screen Recorder 9.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771450.jpg" />
+  <img src="Z:/picture/008/save_picture_771450.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Your Universal MultiBoot Installer (YUMI) Portable 2.0.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771439.jpg" />
+  <img src="Z:/picture/008/save_picture_771439.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AOMEI Backupper Technician Plus 4.6.2 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771428.jpg" />
+  <img src="Z:/picture/008/save_picture_771428.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Comodo Internet Security Premium 8.2.0.4508 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771426.jpg" />
+  <img src="Z:/picture/008/save_picture_771426.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Reg Organizer 7.10 Final RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771419.jpg" />
+  <img src="Z:/picture/008/save_picture_771419.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Re-Loader Activator 1.3 Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771417.jpg" />
+  <img src="Z:/picture/008/save_picture_771417.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ UltraISO Premium Edition 9.7.3.3618 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771372.jpg" />
+  <img src="Z:/picture/008/save_picture_771372.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ PreSonus - Studio One Professional 4.6.2.58729 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771364.jpg" />
+  <img src="Z:/picture/008/save_picture_771364.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Kerish Doctor 2019 4.70 DC 24.01.2019 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771320.jpg" />
+  <img src="Z:/picture/008/save_picture_771320.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771315.jpg" />
+  <img src="Z:/picture/008/save_picture_771315.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Kerish Doctor 2019 4.70 (2019.01.24) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771313.jpg" />
+  <img src="Z:/picture/008/save_picture_771313.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ AOMEI Backupper Technician Plus 4.6.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771312.jpg" />
+  <img src="Z:/picture/008/save_picture_771312.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Adobe Acrobat Reader DC 2015.007.20033 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771299.jpg" />
+  <img src="Z:/picture/008/save_picture_771299.jpg" />
 </div>
 
 

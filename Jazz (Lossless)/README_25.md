@@ -1,3 +1,118 @@
+###  Публикация: 974668   (974590) от 13.01.2016
+
+Jimmy McGriff & Richard "Groove" Holmes - Giants of the Organ Come Together (1973) 2008, LRC Ltd.[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Licks A' Plenty [07:00]
+ 02.Out of Nowhere [08:34]
+ 03.The Squirrel [05:25]
+ 04.Finger Lickin' Good [06:19](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EEA37A28340858E8E95DC9AE96B5A95BFB811D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975017   (974521) от 13.01.2016
+
+Al Di Meola - Consequence Of Chaos (2006) SACD [FLAC|Lossless|tracks + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Marco (Moderna) (4:54)
+02. Turquoise (7:28)
+03. Odyssey (0:55)
+04. Tao (6:01)(   Читать дальше...   )Жанр: FusionПродолжительность: 1:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2731D5958D40F049A3C7CF5EF9054327FB052EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975041   (974464) от 13.01.2016
+
+Hiromi - Spiral (2005) SACD, 2006 Telarc [FLAC|Lossless|tracks + .cue] <Post Bop, Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiral (10:04)
+02. Music for Three-Piece-Orchestra: Open Door - Tuning - Prologue (10:16)
+03. Music for Three-Piece-Orchestra: Déjà vu (7:45)
+04. Music for Three-Piece-Orchestra: Reverse (5:09)(   Читать дальше...   )Жанр: Post Bop, Fusion, Contemporary JazzПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D89455D8F966B0DF391B616C5A9BCD72A8D62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975047   (974403) от 13.01.2016
+
+Johnny Griffin & Dexter Gordon - Jazz Undulation (1968) Remaster, 2014,Studio Songs[FLAC|tracks+.cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Body & Soul [07:10]
+ 02.All The Things You Are [13:55]
+ 03.Blues Up And Down [20:46]Жанр: Hard BopПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C6D55FDCB02DE3ED14C573BA0413FE31D75906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357407   (974392) от 03.02.2020
 
 Manny Albam - Four Classic Albums 1955 - 1957 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -6,7 +121,7 @@ Manny Albam - Four Classic Albums 1955 - 1957 (2015) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974392.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Roscoe Mitchell and the Sound Ensemble - Snurdy McGurdy and her Dancin' Shoes (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973436.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Art Farmer Quintet - At Boomers (1976) Remaster, 2015, Universal[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973435.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Bill Evans - Evans In England 1969 (2019) 2CD, Resonance Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973240.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Ray Brown, John Clayton, Christian McBride - SuperBass 2 (2001) SACD [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973212.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Hiromi Kanda - Seven Elegant Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973166.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Reuben Wilson - Blue Mode (1969) Remaster, 2014, Universal[FLAC|tracks+.cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972256.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Bob Gordon - Quintet / Sextet with Herbie Harper and Jack Montrose: Complete Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972254.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ Roland Kirk with Jack McDuff - Kirk's Work (1961) 2000, OJC[FLAC|tracks+.cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972192.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ Thelonious Monk - Genius Of Modern Music, Vol. 1, 1947 (2001) Blue Note [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971991.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ Louis Armstrong - The Very Best Of Louis Armstrong 1950-e - 1960-e (2000) Univer
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971909.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Sonny Fortune - Infinity Is (1978) Remaster, 2014, Warner[FLAC|tracks+.cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971000.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ The Pete Jolly Trio - When Lights Are Low (1956) Remaster, 2004, BMG Fullhouse[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970998.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ Joe Gilman Trio with Joe Henderson - Treasure Chest (1991) Remaster, 2015, Timel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970997.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Bob James - Rhodes Scholar: Jazz-Funk Classics (1974-1982) 2CD Compilation, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970931.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ Thelonious Monk - Genius Of Modern Music, Vol. 2, 1952 (2001) Blue Note [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970742.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Arturo Sandoval - Live At The Blue Note (2004) Half Note[FLAC|tracks+.cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969843.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Rahsaan Roland Kirk & Al Hibbler - A Meeting Of The Times (1965) 2004, Rhino[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969842.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ John Coltrane - The Last Giant: The John Coltrane Anthology 1946 - 1961 (1993) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969765.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ George Cables - In Good Company (2015) HighNote[FLAC|tracks+.cue] <Post-Bop, Pia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968836.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ Ivan Paduart - Alone (2005) Alone Blue Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968825.jpg" />
 </div>
 
 
@@ -615,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968814.jpg" />
 </div>
 
 
@@ -629,122 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2270FFABA3CA631DC510F5AF9BDECDB7AE79FFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358588   (968800) от 08.02.2020
-
-Blossom Dearie - My New Celebrity Is You (2020) 1976 [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My New Celebrity Is You                                               [06:20]
-02. There Ought to Be a Moonlight Saving Time                             [04:02]
-03. Smiling Feet                                                          [02:00]
-04. Pretty People                                                         [04:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AEC42251A6003AE261576215997D3C17C2B43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108966   (968745) от 08.02.2020
-
-Chet Baker Quartet featuring Russ Freeman 1953 (1998) Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't it Romantic (3:30)
-02. The Lamp is Low (2:33)
-03. This Time the Dream's on Me (2:46)
-04. Maid in Mexico (2:56)(   Читать дальше...   )Жанр: CoolПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7697BF6E520D15637837421E71B02C06AA3A888F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133419   (968689) от 08.02.2020
-
-Astrud Gilberto - Jungle (2002) Magya [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle (Xango) [04:10]
-02. E So Me Pedir [05:06]
-03. Ocean Dreams [04:33]
-04. In Spite of the Odds [04:47](   Читать дальше...   )Жанр: Brazilian Jazz, Vocal JazzПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC0B5F35556A6252D841C0937F015C6A3582461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976950   (967877) от 19.01.2016
-
-Putte Wickman & Jan Lundgren - We Will Always Be Together (2004) Gazell Records[FLAC|tracks+.cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Will always Be Together [07:38]
-02. Marlowe's Theme [05:16]
-03. Second Time First [04:47]
-04. Spring Can Really Hang You Up The Most [08:54](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA29D13F1CB23AB9344B80007E92CF132F27E6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

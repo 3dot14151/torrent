@@ -1,3 +1,29 @@
+###  Публикация: 1799729   (66449) от 29.05.2025
+
+Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66449.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Firefighting Simulator вам предстоит примерить на себя роль настоящего работника пожарной команды крупного американского города. Игроков ждут захватывающие задания, разворачивающиеся на 23 квадратных милях (почти 60 кв. км) городской застройки, и более 40 разнообразных мест, созданных под впечатлением от пейзажей западного побережья США.Тип издания: RepackРазработчик: Chronos UnterhaltungssoftwareЖанр: Экшены, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B018821940AD26C0BD1D0645B87492806022BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803741   (65759) от 25.06.2025
 
 Teardown (2022) [Ru/Multi] (1.7.0/dlc) Repack seleZen [Deluxe Edition]
@@ -6,7 +32,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Repack seleZen [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65759.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65755.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sun Haven (2023) [Ru/Multi] (2.5.1E/dlc) Repack FitGirl [Ultra Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65587.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Russian Soul Simulator / Симулятор Русской Души (2024) [Ru/E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63562.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (13655355/dlc) Repack Othe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63136.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0/dlc) Repack Other s [Suprem
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63125.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ House Flipper 2 (2023) [Ru/Multi] (13653866/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63007.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Monuments Renovator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62898.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.21) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62889.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Trans-Siberian Legends (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62419.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Manic Mechanics (2024) [Ru/Multi] (2.1.7.0_88821) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61983.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ REAL ESTATE Simulator - FROM BUM TO MILLIONAIRE (2024) [Ru/Multi] (3815219) Repa
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61773.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ WW2 Rebuilder (2023) [Ru/Multi] (20240217) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61757.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Rise of Gun (2024) [Multi] (3.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61664.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Strange Horticulture (2022) [Ru/Multi] (1.1.26) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61359.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Chef Life: A Restaurant Simulator (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61284.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60982.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Real Estate Simulator: From Bum to Millionaire (2024) [Ru/Multi] (3815219) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60902.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (0.2.0.5.202403281756/dlc) Repack F
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60880.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6429/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60772.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Ancient Cities (2023) [Multi] (1.0.2.36) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60704.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60692.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60683.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60644.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Farmer's Father: Save the Innocence (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60609.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Farmer's Father: Save the Innocence - это настоящая история �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD46E210664296E5D7B1D94B6E8FC1D59306BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713952   (60450) от 07.04.2024
-
-Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hydroneer – это симулятор добытчика золота и других ценных ископаемых. Стройте различные механизмы, улучшайте свою базу, и осваивайте всё больше земель в своих целях. Вам доступно множество земельных участков, каждый из которых со своими ландшафтными особенностями. В ваших похождениях у вас изначально доступен ограниченный набор инструментов, но с течением времени (   Читать дальше...   )Тип издания: RepackРазработчик: Foulball HangoverЖанр: Приключенческие игры, Казуальные игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B36710E079C346F295D12BC0F4712461479160
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,154 @@
+###  Публикация: 302360   (866982) от 01.03.2011
+
+VA - Хит-Парад Рок Звезд (2011) [MP3|256 kbps]<Русский рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кукрыниксы - Дождь смывает все!
+02. Найк Борзов - Начало дня
+03. Zdob si Zdub - Молдавский хардкор
+04. Король и Шут - Король вечного сна
+05. Сергей Скачков - Вызов
+06. Глеб СамойлоFF & The MatriXX - Ненормальный
+07. Пикник - Кукла с человеческим лицом
+08. Animal Джаz - Токсикоз
+09. Биплан - Последний день на луне
+10. Илья Шипилов - Моя война(   Читать дальше...   )Жанр: Русский рокПродолжительность: 06:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA552372D3678A8538397C88B706F884B35924F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375385   (865503) от 14.04.2020
+
+VA - Rock Concept (2020) [MP3|320 Kbps] <Rock, Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Early November - My Weakness
+002. John Floreani - Don't Wait Up
+003. Perry Farrell - Where Have You Been All My Life
+004. Robert Palmer - Every Kinda People(   Читать дальше...   )Жанр: Rock, Hard Rock, AlternativeПродолжительность: 06:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13005982A3F51CDD11B4895A21DA68FAF3002DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375596   (865317) от 14.04.2020
+
+VA - Dark Country Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt White - The Hard Way
+02. Dominic Marsh - Dark Cloud
+03. Dolly Wright - Murderous Mind
+04. Chris Lewis - Devil's Country(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 03:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45C8F28945A0C2CCDCD8D7DFE8E5C665541CE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375545   (865308) от 14.04.2020
+
+VA - Rock Icons (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lennon - Woman
+02. George Harrison - Got My Mind Set On You (2009 Mix)
+03. The Beatles - Come Together (Remastered 2009)
+04. The Rolling Stones - Brown Sugar (Remastered 2009)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04F3BCD3C23964222399197C5C103053DF9F5DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375365   (865300) от 14.04.2020
+
+VA - Glam Rock 70’s icons (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sailor - A Glass of Champagne
+02. The Wombles - The Wombling Song
+03. David Bowie - Space Oddity (1999 Remaster)
+04. Elton John - Rocket Man (I Think It's Going To Be A Long Long Time) (Remastered)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 07:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BE22F92D69673FCE129CF917B9EFB9DE8F158C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375716   (863515) от 15.04.2020
 
 Kiss - 100% KISS (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +157,7 @@ Kiss - 100% KISS (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863515.jpg" />
+  <img src="Z:/picture/008/save_picture_863515.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ Dire Straits - 100% Dire Straits (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861618.jpg" />
+  <img src="Z:/picture/008/save_picture_861618.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ VA - Alterportal HITS 15 Vol. 78 - February (2015)  [MP3|128-320 кб/с]<Altern
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861196.jpg" />
+  <img src="Z:/picture/008/save_picture_861196.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Alice Cooper - 100% Alice Cooper (2020) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860156.jpg" />
+  <img src="Z:/picture/008/save_picture_860156.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ VA - The Brutal Might (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859653.jpg" />
+  <img src="Z:/picture/008/save_picture_859653.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ VA - For Freedom And Friends: Rock Classic Compilation (2021) [MP3|320 Kbps] <Cl
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859517.jpg" />
+  <img src="Z:/picture/008/save_picture_859517.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ VA - Live Monsters! (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858688.jpg" />
+  <img src="Z:/picture/008/save_picture_858688.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ VA - The Best Rock Ballads (2017) [MP3|320 Kbps] <Heavy, Power, Alternative, Mod
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858536.jpg" />
+  <img src="Z:/picture/008/save_picture_858536.jpg" />
 </div>
 
 
@@ -238,7 +389,7 @@ Deep Purple - 100% Deep Purple (2020) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858263.jpg" />
+  <img src="Z:/picture/008/save_picture_858263.jpg" />
 </div>
 
 
@@ -267,7 +418,7 @@ VA - Dr. Metal Presents: Vol.6 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857520.jpg" />
+  <img src="Z:/picture/008/save_picture_857520.jpg" />
 </div>
 
 
@@ -296,7 +447,7 @@ Creedence Clearwater Revival & John Fogerty - 100% Creedence (2020) [MP3|320 Kbp
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856562.jpg" />
+  <img src="Z:/picture/008/save_picture_856562.jpg" />
 </div>
 
 
@@ -325,7 +476,7 @@ The Beatles - Realized beyond & after Beatles (De-Noised) 3 CD (2020) Remaster S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856457.jpg" />
+  <img src="Z:/picture/008/save_picture_856457.jpg" />
 </div>
 
 
@@ -354,7 +505,7 @@ VA - Dr. Metal Presents: Vol.7 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855532.jpg" />
+  <img src="Z:/picture/008/save_picture_855532.jpg" />
 </div>
 
 
@@ -383,7 +534,7 @@ VA - Cosmic Rock (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853562.jpg" />
+  <img src="Z:/picture/008/save_picture_853562.jpg" />
 </div>
 
 
@@ -412,7 +563,7 @@ VA - 80s Pop Rock (2020) [MP3|320 Kbps] <Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853406.jpg" />
+  <img src="Z:/picture/008/save_picture_853406.jpg" />
 </div>
 
 
@@ -441,7 +592,7 @@ VA - 100% Classic metal (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853272.jpg" />
+  <img src="Z:/picture/008/save_picture_853272.jpg" />
 </div>
 
 
@@ -470,7 +621,7 @@ Whitesnake - 100% Whitesnake (2020) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853154.jpg" />
+  <img src="Z:/picture/008/save_picture_853154.jpg" />
 </div>
 
 
@@ -499,7 +650,7 @@ Axel Rudi Pell - 100% Axel Rudi Pell (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853151.jpg" />
+  <img src="Z:/picture/008/save_picture_853151.jpg" />
 </div>
 
 
@@ -528,7 +679,7 @@ Judas Priest - 100% Judas Priest (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853150.jpg" />
+  <img src="Z:/picture/008/save_picture_853150.jpg" />
 </div>
 
 
@@ -557,7 +708,7 @@ Accept - 100% Accept (2020) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853138.jpg" />
+  <img src="Z:/picture/008/save_picture_853138.jpg" />
 </div>
 
 
@@ -586,7 +737,7 @@ VA - Masters Of Hardcore Chapter XXXVIII (2016) [MP3|320 кб/с] <Hardcore & Ha
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852100.jpg" />
+  <img src="Z:/picture/008/save_picture_852100.jpg" />
 </div>
 
 
@@ -600,148 +751,6 @@ VA - Masters Of Hardcore Chapter XXXVIII (2016) [MP3|320 кб/с] <Hardcore & Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C76A96C22A0D4E3D994F866A5585EEFF74F90D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001342   (851924) от 29.03.2016
-
-AC/DC - Bedlam In Belgium (2016) EP [MP3|320 кб/с] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Shake Your Foundations
-02 – The Furor
-03 – Danger
-04 – Burnin’ Alive(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D2D4BFB1D18D4D731D2A36F19A2375ABC1002D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376727   (851739) от 22.04.2020
-
-VA - Great Artists of My Heart Vol. 02 (2020) [MP3|320 кб/с]<Modern Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851739.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Great Artists of My Heart" это спин-офф сборника01. The Unguided - Inherit The Earth (04:47)
-02. The Unguided - Inception (03:51)
-03. The Unguided - Enraged (04:23)
-04. The Unguided - Death's Sting (03:49)(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 08:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D624758DE2F2EF605C6DC800637B2515ECA1F0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377643   (851637) от 22.04.2020
-
-VA - Hard Rock Ballads (2020) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi - Never Say Goodbye 4:49
-02. Guns N' Roses - Don't Cry (Original) 4:45
-03. Whitesnake - Is This Love (2017 Remaster) 4:45
-04. Def Leppard - Hysteria 5:55(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 03:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA73C0E69D84804C13F4E15085049B5150EBD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377587   (851634) от 22.04.2020
-
-Motley Crue - 100% Motley Crue (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dirt (Est. 1981)Жанр: Rock, Hard Rock, MetalПродолжительность: 03:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB191FCA402841DDDF5660F8225CFC5B1A50E10E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377546   (851632) от 22.04.2020
-
-Twisted Sister - 100% Twisted Sister (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You Don't Know (Sure Can Hurt You)
-02. Bad Boys (Of Rock 'N' Roll) (Remastered Version)
-03. Run for Your Life
-04. Shoot 'Em Down(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 03:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E68019FFB49AC6BAC8906F0F8F9D07DD0321D2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ YTD Video Downloader PRO 5.9.16.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868831.jpg" />
+  <img src="Z:/picture/008/save_picture_868831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Grids 6.0.4 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868724.jpg" />
+  <img src="Z:/picture/008/save_picture_868724.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Serif Affinity Publisher 1.8.3.641 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868723.jpg" />
+  <img src="Z:/picture/008/save_picture_868723.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Serif Affinity Designer 1.8.3.641 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868721.jpg" />
+  <img src="Z:/picture/008/save_picture_868721.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868713.jpg" />
+  <img src="Z:/picture/008/save_picture_868713.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Serif Affinity Photo 1.8.3.641 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868710.jpg" />
+  <img src="Z:/picture/008/save_picture_868710.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ TrustViewer 2.1.3.3552 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868613.jpg" />
+  <img src="Z:/picture/008/save_picture_868613.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Hornil StylePix 2.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868605.jpg" />
+  <img src="Z:/picture/008/save_picture_868605.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ AutoHideMouseCursor 2.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868509.jpg" />
+  <img src="Z:/picture/008/save_picture_868509.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ qBittorrent 4.2.3 Dark (x64) Repack by SuratovVlad [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868473.jpg" />
+  <img src="Z:/picture/008/save_picture_868473.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ TeamViewer 15.4.4445 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868465.jpg" />
+  <img src="Z:/picture/008/save_picture_868465.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MeinPlatz 4.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868402.jpg" />
+  <img src="Z:/picture/008/save_picture_868402.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ DomainHostingView 1.72 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868400.jpg" />
+  <img src="Z:/picture/008/save_picture_868400.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ IsMyHdOK 1.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868392.jpg" />
+  <img src="Z:/picture/008/save_picture_868392.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BrowsingHistoryView 1.85 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868390.jpg" />
+  <img src="Z:/picture/008/save_picture_868390.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ qBittorrent 3.1.12 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868361.jpg" />
+  <img src="Z:/picture/008/save_picture_868361.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ PointerStick 2.72 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868323.jpg" />
+  <img src="Z:/picture/008/save_picture_868323.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FontViewOK 4.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868318.jpg" />
+  <img src="Z:/picture/008/save_picture_868318.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ BrowserAddonsView 1.00 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868311.jpg" />
+  <img src="Z:/picture/008/save_picture_868311.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Soft Organizer 6.06 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868238.jpg" />
+  <img src="Z:/picture/008/save_picture_868238.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ BurnAware Professional 10.1 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868232.jpg" />
+  <img src="Z:/picture/008/save_picture_868232.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Blank And Secure 4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868224.jpg" />
+  <img src="Z:/picture/008/save_picture_868224.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Run-Command 2.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868220.jpg" />
+  <img src="Z:/picture/008/save_picture_868220.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ ProcessKO 3.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868207.jpg" />
+  <img src="Z:/picture/008/save_picture_868207.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Chromium 93.0.4577.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868133.jpg" />
+  <img src="Z:/picture/008/save_picture_868133.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ WinUtilities Professional Edition 14.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868125.jpg" />
+  <img src="Z:/picture/008/save_picture_868125.jpg" />
 </div>
 
 

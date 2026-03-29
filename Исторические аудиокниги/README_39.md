@@ -1,3 +1,82 @@
+###  Публикация: 1270513   (157196) от 19.12.2018
+
+Павло Загребельный | Роксолана (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видный украинский романист Павло Загребельный, лауреат Государственной премии СССР и Государственной премии УССР имени Т. Г. Шевченко, в своем новом романе "Роксолана" повествует об удивительной судьбе украинской девушки Настасьи Лисовской, угнанной в XVI веке с Украины и проданной на стамбульском невольничьем рынке в рабство.
+Обладая блестящим умом, необыкновенной (   Читать дальше...   )Жанр: Исторический романПродолжительность: 40:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73140A6EEB6A386A37998E6A3103054140AA34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346674   (156586) от 20.12.2019
+
+Дмитрий Пучков Goblin, Клим Жуков | Древняя Русь. От Рюрика до Батыя (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из самых обсуждаемых и спорных периодов российской истории. Клим Жуков, военный историк-медиевист и исторический реконструктор, освещает важнейшие события в формировании Древнерусского государства, от основания Киевской Руси до монгольского нашествия: собирание русских земель, преодоление княжеских распрей и феодальной раздробленности – не (   Читать дальше...   )Жанр: История РоссииПродолжительность: 06:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13477D4A7074FD31FB5E8F449A5C0F315EA2DACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600731   (155446) от 28.12.2022
+
+Патрик Зюскинд | Парфюмер. История одного убийцы (2020) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блистательный и загадочный «Парфюмер» Патрика Зюскинда был впервые напечатан в Швейцарии в 1985 году. Сегодня, спустя 21 год, он признан самым знаменитым романом, написанным на немецком языке со времён «На Западном фронте без перемен» Ремарка, издан общим тиражом более 12 миллионов экземпляров, переведён на 47 языков, включая латынь, и, наконец, экранизирован. Фильм, (   Читать дальше...   )Жанр: историческая литература, литература 20 века, детективПеревод: Элла ВенгероваПродолжительность: 11:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55121FDBF0ECDF9AA764EB6E3400436929B8AD18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346901   (155279) от 21.12.2019
 
 Олег Воскобойников | Средневековье крупным планом (2019) [MP3]
@@ -6,7 +85,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155279.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154574.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152454.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149917.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149136.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148533.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148474.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148279.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148224.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148171.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145900.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145818.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143844.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141682.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140687.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139396.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139137.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138846.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138693.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138648.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136876.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132681.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128835.jpg" />
 </div>
 
 
@@ -597,87 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C09C1AAD1FD3B5CECB555D375F55311ADE67962A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824531   (128824) от 15.10.2025
-
-Татьяна Богданович | Холоп-ополченец (2024) [OGG, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XVII века. Войско Лжедмитрия I вторгается в Россию, переживающую к этому времени глубокий кризис, вызванный опричниной, Ливонской войной, голодом и эпидемиями. Начинается так называемое Смутное время, продлившееся без малого два десятилетия.
-В этот тяжелый для России период, самая незавидная участь была у холопов, которые из-за происходящих событий находились (   Читать дальше...   )Жанр: Борьба за независимость, Время и судьбы, Историческая литература, Исторические личности, Исторические приключения, Исторические романы, Исторические события, Исторические факты, История Руси, Литература 20 века, Русская литература, Русский патриотизм, Смутное время, Становление герояИздательство: СОЮЗПродолжительность: 19:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57A67EEE03E845E866414B945EEC976BB1F02CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683674   (128242) от 12.12.2023
-
-Иннокентий Смоктуновский | Меня оставили жить (1997) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128242.jpg" />
-</div>
-
-
-###  Подробнее
-
-В октябре 1996 года в журнале "Октябрь" была впервые напечатана автобиографическая повесть Иннокентия Смоктуновского "Меня оставили жить" - воспоминания о детстве и военных годах автора, времени, когда ему неоднократно угрожала гибель - отсюда и название повести. Озвучена книга по этой публикации в следующем, 1997 году. Так же в данную аудиокнигу (   Читать дальше...   )Жанр: Проза, автобиографияИздательство: Нигде не купишьПродолжительность: 06:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C883B1FF1FA99C2BCFC5DE1E5685B7E2D1ECB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685407   (127322) от 18.12.2023
-
-Борис Акунин | История Российского государства (Том 8, художественное дополнение 2). 1881 (2023) [MP3, Анна Блинова, Иван Волков]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127322.jpg" />
-</div>
-
-
-###  Подробнее
-
-В истории России есть несколько роковых развилок.
-Март-апрель 1881, ознаменованные гибелью Александра II и восхождением на престол Александра III, – одна из них.
-Реконструкция этого ключевого момента отечественной истории важна нам для понимания: почему мы оказались там, где оказались. Нас не интересует почтенный российский жанр «Кто виноват?». Никто не виноват, (   Читать дальше...   )Жанр: Современная проза, Историческая прозаИздательство: Аудиокнига (АСТ)Продолжительность: 02:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065B2A4135C726690F1D1D6756B1168663661E4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1027929   (692117) от 21.06.2016
+
+Иллюстрации - Иллюстрации к Туманности Андромеды И. А. Ефремова [JPG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692117.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Туманность Андромеды» — социально-философский научно-фантастический роман Ивана Антоновича Ефремова. Написан в 1955—1956 гг. Отрывки романа печатались в газетах «Пионерская правда» (1957) и «Комсомольская правда» (1959). Первое издание — в №№ 1-9 журнала «Техника — молодёжи» в 1957 г. В виде книги впервые опубликован в издательстве ЦК ВЛКСМ «Молодая Гвардия» в 1958 (   Читать дальше...   )Формат: JPGРазрешение файлов: от 1204х2000 до 1308х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6445E79BBC7AC0655A909019AD5DAB4B5CB5FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 212266   (690928) от 22.06.2010
 
 Классическое искусство - Эдуар Мане (Edouard Manet) [JPG]
@@ -6,7 +32,7 @@
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690928.jpg" />
+  <img src="Z:/picture/008/save_picture_690928.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690924.jpg" />
+  <img src="Z:/picture/008/save_picture_690924.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (11.06.14) [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690043.jpg" />
+  <img src="Z:/picture/008/save_picture_690043.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689641.jpg" />
+  <img src="Z:/picture/008/save_picture_689641.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689542.jpg" />
+  <img src="Z:/picture/008/save_picture_689542.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688798.jpg" />
+  <img src="Z:/picture/008/save_picture_688798.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688785.jpg" />
+  <img src="Z:/picture/008/save_picture_688785.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688715.jpg" />
+  <img src="Z:/picture/008/save_picture_688715.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687256.jpg" />
+  <img src="Z:/picture/008/save_picture_687256.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687241.jpg" />
+  <img src="Z:/picture/008/save_picture_687241.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687137.jpg" />
+  <img src="Z:/picture/008/save_picture_687137.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687109.jpg" />
+  <img src="Z:/picture/008/save_picture_687109.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687107.jpg" />
+  <img src="Z:/picture/008/save_picture_687107.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687012.jpg" />
+  <img src="Z:/picture/008/save_picture_687012.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686391.jpg" />
+  <img src="Z:/picture/008/save_picture_686391.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686192.jpg" />
+  <img src="Z:/picture/008/save_picture_686192.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686115.jpg" />
+  <img src="Z:/picture/008/save_picture_686115.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686049.jpg" />
+  <img src="Z:/picture/008/save_picture_686049.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686048.jpg" />
+  <img src="Z:/picture/008/save_picture_686048.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685991.jpg" />
+  <img src="Z:/picture/008/save_picture_685991.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685983.jpg" />
+  <img src="Z:/picture/008/save_picture_685983.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685980.jpg" />
+  <img src="Z:/picture/008/save_picture_685980.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685672.jpg" />
+  <img src="Z:/picture/008/save_picture_685672.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685574.jpg" />
+  <img src="Z:/picture/008/save_picture_685574.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684946.jpg" />
+  <img src="Z:/picture/008/save_picture_684946.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABBC4AEE4346818F34D0FDC78A00C796E37CC87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222001   (684820) от 29.04.2018
-
-Картинки - Dreamy Pixel - Mystic Forest High resolution images pack [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные картинки-мистический лес с высоким разрешениемФормат: JPGРазрешение файлов: 2448 x 2448 - 7360 x 4912
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1109C17106602F5BBEB22632801B9BB9ABB3EB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

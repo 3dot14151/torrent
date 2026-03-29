@@ -1,3 +1,109 @@
+###  Публикация: 1274087   (794773) от 05.01.2019
+
+Nvidia DriverPack Hotfix v.417.58 RePack by CUTA [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nvidia DriverPack - это единый пакет с драйверами для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
+Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9ECDEF7E7F75BDF9DE1D177B290E0394F12EE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200889   (794537) от 22.01.2018
+
+Opera 50.0.2762.67 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F605A23C88617D20037AB8779539E14E0FB15A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011695   (794361) от 30.04.2016
+
+Надоедливое обновление Windows сорвало прямой эфир новостей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_794361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновление до Windows 10 испортило прямой эфир
+Как показывает практика, обновления от Microsoft очень часто приходят в самое неподходящее время. Ведущая новостей меньше всего ожидала столкнуться с этой проблемой в прямом эфире.Забавный казус произошёл на одном из американских телеканалов. Ведущая намеревалась рассказать о ненастной погоде в регионе, однако на экране (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012168   (794291) от 30.04.2016
+
+Acronis True Image 2016 19.0 Build 6569 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646F514BE52FB0979A88B9335B50B87828D98957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007514   (794281) от 30.04.2016
 
 Final Fantasy IX (2016) [En/Multi] (1.0.20160426) Repack R.G. Механики
@@ -6,7 +112,7 @@ Final Fantasy IX (2016) [En/Multi] (1.0.20160426) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794281.jpg" />
+  <img src="Z:/picture/008/save_picture_794281.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Delcam ArtCAM Pro 2012 SP2 build 359 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794280.jpg" />
+  <img src="Z:/picture/008/save_picture_794280.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794214.jpg" />
+  <img src="Z:/picture/008/save_picture_794214.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794144.jpg" />
+  <img src="Z:/picture/008/save_picture_794144.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794142.jpg" />
+  <img src="Z:/picture/008/save_picture_794142.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794140.jpg" />
+  <img src="Z:/picture/008/save_picture_794140.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794137.jpg" />
+  <img src="Z:/picture/008/save_picture_794137.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793770.jpg" />
+  <img src="Z:/picture/008/save_picture_793770.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ WPI x86-x64 by OVGorskiy® 12.2018 1DVD [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793763.jpg" />
+  <img src="Z:/picture/008/save_picture_793763.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793762.jpg" />
+  <img src="Z:/picture/008/save_picture_793762.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ Pink Floyd - Oh By The Way (16CD Box Set EMI Records 40th Anniversary Edition) (
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793529.jpg" />
+  <img src="Z:/picture/008/save_picture_793529.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ BootPass 4.2.7 Full Native [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793479.jpg" />
+  <img src="Z:/picture/008/save_picture_793479.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ Assetto Corsa (2014) [Ru/En] (1.16.3/dlc) Repack R.G. Origami
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793478.jpg" />
+  <img src="Z:/picture/008/save_picture_793478.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793477.jpg" />
+  <img src="Z:/picture/008/save_picture_793477.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_793335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793335.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ Total Commander 8.52a VIM 14 portable by Matros [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793208.jpg" />
+  <img src="Z:/picture/008/save_picture_793208.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ NG. Винни Джонс: Реально о России / Vinnie Jones: Russia
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_793199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793199.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ Dark Souls III (2016) [Ru/Multi] (1.04/dlc) Repack R.G. Games [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793198.jpg" />
+  <img src="Z:/picture/008/save_picture_793198.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ Adobe Photoshop Lightroom 6.5.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793196.jpg" />
+  <img src="Z:/picture/008/save_picture_793196.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ Navitel / Навител Навигатор 9.13.46 Full для карт рел�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793114.jpg" />
+  <img src="Z:/picture/008/save_picture_793114.jpg" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793111.jpg" />
+  <img src="Z:/picture/008/save_picture_793111.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793008.jpg" />
+  <img src="Z:/picture/008/save_picture_793008.jpg" />
 </div>
 
 
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FABDC597A988B1BE67D46A7F1B58A45E25CAF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123030   (793007) от 06.04.2017
-
-Navitel / Навител Навигатор v9.8.2 RePack для карт релиза Q1-2017 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 05.04.2017Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CD5FAA4ECD3FB989F0776DC994F820E521E2C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274554   (792721) от 07.01.2019
-
-Фагот (2018) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма – молодой человек по имени Максим. Он встречается с редкостной стервой, которая к тому же еще и ревнива. В итоге в один прекрасный момент он решает порвать с ней. Но как это сделать так, чтобы всем было хорошо? За помощью Максим идет к своей сестре и матери, но их советы оказываются бесполезными. Тогда герой самостоятельно придумывает самую абсурдную (   Читать дальше...   )Производство: Россия | Студия «Молох»Жанр: КомедияРежиссер: Борис ГуцАктеры: Анастасия Пронина, Юлия Ауг, Ольга Кавалай-Аксенова, Александр Дривень, Анна ДаукаеваПеревод: Не требуется (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB6FEC2895AD7D4B180CCC1BAE4719E0067F233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274224   (792692) от 07.01.2019
-
-Комплекс программ для восстановления данных 19.01.05 Portable by DrJayZi [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное каждый, рано или поздно, сталкивается с потерей данных на HDD или переносном устройстве. Начинает искать программу, при помощи которой можно восстановить утраченную информацию, но беда в том, что программа, которая помогла прошлый раз, может быть бессильна в данной ситуации. Начинается перебор программ, установка и удаление и в конечном итоге ОС превращается (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7C35009E342A81B35A0F56F90BDA42FAE0B2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201339   (792590) от 24.01.2018
-
-Adobe Photoshop CC 2018 (19.1.0) x86-x64 RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC 2018 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44A4A9FF43DBBD94AF26A2BC310D6A2F09C9B93
 ```
 
 https://mybot314.ru/tekegram_catalog/

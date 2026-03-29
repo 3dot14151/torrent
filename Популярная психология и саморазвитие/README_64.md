@@ -1,3 +1,84 @@
+###  Публикация: 931745   (510766) от 27.08.2015
+
+Джон Шоул | Только вперед! Пошаговое руководство по достижению успеха (2014) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы устали от своей работы? Надоело топтаться на месте и быть посредственностью? Если вы ответили «да» хотя бы на один из этих вопросов, пришло время взять свою жизнь под контроль и искупаться в море возможностей. Пришло время нырнуть в успех!
+Ничего не изменится в вашей жизни, в окружении, пока вы не предпримете меры. Но важно то, что вы уже взяли в руки эту книгу (   Читать дальше...   )Жанр: личностный рост, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2EDD8198AB283BAF22506616745B120CC2878B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931942   (510707) от 27.08.2015
+
+Виталий Климчук | Практическая психология, или Как подобрать ключик к любому человеку. 1000 подсказок на все случаи жизни (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как работать в удовольствие и достигать успеха без стресса, преодолевать кризисы в отношениях и находить общий язык с детьми, общаться без боязни и добиваться желаемого, распознавать психологические ловушки и устанавливать свои правила, справляться с фобиями и тревогами и помогать близким людям? Ответы вы найдете на страницах этой книги. Простые и понятные рекомендации (   Читать дальше...   )Жанр: Социальная психология, Личностный ростФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC39E062679347AC66DA85629D14CBF74F7410E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931737   (509988) от 28.08.2015
+
+Алла Фолсом и др. | Королева мужского царства (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая девочка с самого детства видит себя принцессой или королевой роскошного замка в окружении галантных кавалеров и рыцарей.
+Однако детство проходит, а замки так и не появляются. Кавалеры год от года становятся все менее галантными, а уж о рыцарстве и мечтать не приходится. Мечты разбиваются о суровую реальность.
+Алла Фолсом в своей книге дает пошаговую инструкцию, (   Читать дальше...   )Жанр: личностный рост, практическая психологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6B00FD27B8B5F58FA8E7E3EC510325ECFE4DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403982   (509484) от 23.08.2020
 
 Андрей Курпатов | Не надо пофигизма. Секс, деньги и страхи. Здравый пофигизм против предрассудков (2020) [EPUB, FB2, PDF]
@@ -6,7 +87,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509484.jpg" />
+  <img src="Z:/picture/008/save_picture_509484.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507970.jpg" />
+  <img src="Z:/picture/008/save_picture_507970.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507699.jpg" />
+  <img src="Z:/picture/008/save_picture_507699.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507684.jpg" />
+  <img src="Z:/picture/008/save_picture_507684.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507677.jpg" />
+  <img src="Z:/picture/008/save_picture_507677.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507061.jpg" />
+  <img src="Z:/picture/008/save_picture_507061.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506988.jpg" />
+  <img src="Z:/picture/008/save_picture_506988.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506065.jpg" />
+  <img src="Z:/picture/008/save_picture_506065.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505996.jpg" />
+  <img src="Z:/picture/008/save_picture_505996.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505840.jpg" />
+  <img src="Z:/picture/008/save_picture_505840.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505792.jpg" />
+  <img src="Z:/picture/008/save_picture_505792.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505012.jpg" />
+  <img src="Z:/picture/008/save_picture_505012.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504962.jpg" />
+  <img src="Z:/picture/008/save_picture_504962.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504403.jpg" />
+  <img src="Z:/picture/008/save_picture_504403.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504336.jpg" />
+  <img src="Z:/picture/008/save_picture_504336.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504246.jpg" />
+  <img src="Z:/picture/008/save_picture_504246.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504243.jpg" />
+  <img src="Z:/picture/008/save_picture_504243.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504239.jpg" />
+  <img src="Z:/picture/008/save_picture_504239.jpg" />
 </div>
 
 
@@ -491,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504173.jpg" />
+  <img src="Z:/picture/008/save_picture_504173.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502002.jpg" />
+  <img src="Z:/picture/008/save_picture_502002.jpg" />
 </div>
 
 
@@ -545,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501220.jpg" />
+  <img src="Z:/picture/008/save_picture_501220.jpg" />
 </div>
 
 
@@ -571,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501073.jpg" />
+  <img src="Z:/picture/008/save_picture_501073.jpg" />
 </div>
 
 
@@ -599,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500342.jpg" />
+  <img src="Z:/picture/008/save_picture_500342.jpg" />
 </div>
 
 
@@ -612,88 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62D08CBE337B2B2868BE08C4843759569DFF871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935327   (499390) от 08.09.2015
-
-Ольга Красникова | Одиночество (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, нет такого человека, который был бы незнаком с одиночеством.
-
-Для кого-то оно желанно, но для большинства – сущее наказание. Наказание? Психолог Ольга Красникова в своей книге помогает разобраться в том, как относиться к одиночеству, где искать его причины – снаружи или внутри, как преодолеть его, не обманывая себя. Одиночество в горе и в радости, в болезни (   Читать дальше...   )Жанр: Социальная психология, Психотерапия, Личностный ростФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D9504DA05560A57A6746A2B1A35B08030F54C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317535   (499380) от 02.08.2019
-
-Эмма Кан | Секреты жизни в корейском стиле. Рецепты счастья (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неужели корейцы действительно спят на полу – разве им не жестко? Правда ли, что нельзя называть своего мужа по имени? Как корейцы могут есть собак и почему правительство ничего с этим не делает? Они всегда спешат и поэтому все успевают? А как им удалось совершить свое экономическое чудо? Они и в самом деле такие трудоголики и работают без отпусков?
-
-Все это вы узнаете, (   Читать дальше...   )Жанр: Саморазвитие, личностный рост, этнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7495AF9AEADE21300A7DDCAD36BAB22E061AE6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317584   (499373) от 02.08.2019
-
-Геннадий Старшенбаум | Психоанализ сновидений. Практикум расшифровки тайного языка нашего Я (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам понимать собственные сны и правильно использовать их мудрость. Теоретическая информация проиллюстрирована подробным анализом сновидений клиентов автора. Талантливый психиатр рассматривает различные ночные грезы с точки зрения учений Зигмунда Фрейда, Карла Юнга, Альфреда Адлера. При этом сны анализируются с учетом жизненных ситуаций клиентов (   Читать дальше...   )Жанр: Практическая психология, ПсихоанализФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A130761514A594DB0DD2ADE02D7B4D7DA6EF3FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

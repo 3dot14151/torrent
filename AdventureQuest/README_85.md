@@ -1,3 +1,81 @@
+###  Публикация: 1746092   (45302) от 29.08.2024
+
+Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоррор-игра на выживание от третьего лица. Ищите ключевые объекты, решайте головоломки и сталкивайтесь с опасностями, чтобы спастись. Вдохновленная старым Survival Horror, с двумя игровыми персонажами и современной механикой погрузитесь в повествовательную историю про Селену. Женщина, которую похитили и ее единственная цель - выжить, но вскоре она понимает, что существует (   Читать дальше...   )Тип издания: RepackРазработчик: FarelasЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C527A03CE0EDB948E0F85FC9FD265FC0315D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746058   (45297) от 29.08.2024
+
+Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы играете за Сэмюэля Джаджа, преданного поклонника таинственного конспирологического подкаста «Dark and Deep». Погрузившись в теневой и опасный ландшафт, вы должны выжить... и вы не один. Используйте магические фоторамки, чтобы сражаться со скрытыми существами и открывать важные предметы. Рамки - это окна в страшный мир, но также и инструменты для изгнания тьмы. (   Читать дальше...   )Тип издания: RepackРазработчик: Walter WoodsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181406E554DF2638E775C010A56ACF95379DDA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746037   (45256) от 29.08.2024
+
+Sunny Cafe (2021) [Multi] (1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45256.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сезон дождей, момент, когда мы встретились. Это ты, позволяешь темным облакам, которые окружали меня, рассеиваться и превращаться в солнечные дни. Поэтому это кафе названо в честь солнечных дней, которые тебе нравятся. Оно называется «Sunny Café».Тип издания: LicenseРазработчик: GameNobility 遊戲貴族Жанр: Приключенческие игры, ИндиЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (традиционный, упрощенный), КорейскийЯзык интерфейса: Английский, Китайский (традиционный, упрощенный), Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CE0FAA78879DDC7B1A39B5D4E62BBD061BBB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746221   (45190) от 30.08.2024
 
 Crypt Custodian (2024) [Ru/Multi] (1.0) License GOG
@@ -6,7 +84,7 @@ Crypt Custodian (2024) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45190.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Fireside (2024) [Ru/Multi] (1.0.3_rc1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45169.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Highwater (2024) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45165.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Alter Ego (2010) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45163.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45147.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый во�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44964.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последни
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44956.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44859.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44851.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44810.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44801.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44775.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ I Wani Hug that Gator! (2024) [Ru/Multi] (1.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44755.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Date Z (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44697.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44689.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Sunset Hills (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44631.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Sunset Hills (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44624.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44557.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Perennial Order (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44309.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Don't Stare (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44289.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44250.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44184.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44179.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:951F276F9C8B6FDBA149353F9FDBC5518942B87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749113   (43709) от 13.09.2024
-
-Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamlike Love with Seira – окунитесь с головой в легкий формат графического романа. Причем над его разработкой трудился известный на весь мир иллюстратор Рубисама. Так чего же вы ждете? Здесь нашлось место для большого количества текстовых диалогов, ярких манга иллюстраций, а также впечатляющих двухмерных артов героев и профессиональной озвучке. Мы надеемся, что (   Читать дальше...   )Тип издания: SceneРазработчик: るび様崇める会Жанр: Казуальные игры, ИндиЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F82935217F0D7A6ECEE12F7603DDE41C4F8410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749142   (43697) от 13.09.2024
-
-Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caravan Sandwitch переносит на вымышленную пустынную планету, где оказался протагонист в результате крушения космического корабля. Единственное, что уцелело в после падения, так это небольшой грузовик. В новом мире оказывается также проживают люди, которые имеют абсолютно те же проблемы, что и на Земле. В рамках путешествия протагонисту необходимо исследовать огромную (   Читать дальше...   )Тип издания: SceneРазработчик: Studio Plane ToastЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357BE2DE9CFCBA2EC68EF5E8A8A43E6860C12E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749392   (43638) от 14.09.2024
-
-Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Repack FitGirl [Digital Collector's Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caravan Sandwitch переносит на вымышленную пустынную планету, где оказался протагонист в результате крушения космического корабля. Единственное, что уцелело в после падения, так это небольшой грузовик. В новом мире оказывается также проживают люди, которые имеют абсолютно те же проблемы, что и на Земле. В рамках путешествия протагонисту необходимо исследовать огромную (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Plane ToastЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA9C3954BDE6F9AD3331F604591C237E07A1158
 ```
 
 https://mybot314.ru/tekegram_catalog/

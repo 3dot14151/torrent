@@ -1,3 +1,110 @@
+###  Публикация: 1518483   (155771) от 19.12.2021
+
+Audio Hijack 3.8.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695D5AA00E3DA2DAAF21C2F963EBB937BE8E7304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270609   (155762) от 20.12.2018
+
+Movavi Photo Manager 1.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155762.jpg" />
+</div>
+
+
+###  Подробнее
+
+С годами на компьютере накопилось множество изображений, но у вас нет времени их разобрать? Загружайте в программу снимки в форматах RAW, JPEG, PNG и др. Органайзер фото от Movavi поможет мгновенно навести порядок в вашем фотоархиве. Каталогизатор фотографий от Movavi поможет быстро распределить все изображения по категориям. Скачайте на ПК нашу программу для сортировки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2018Разработчик: MvaviПоддерживаемая ОС: maсOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFFC2E48B6204123D8E884CC39DDA6BA038734F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347036   (155754) от 21.12.2019
+
+Wondershare Recoverit 8 v8.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B9599794290304FF5C668B9AC996ACA83A4AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600582   (155740) от 28.12.2022
+
+Sync Folders Pro 4.6.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
+Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 GreenWorldSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2403082B9D27136316D28BD0B842A155483E9D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518468   (155708) от 19.12.2021
 
 ON1 Photo RAW 2022.1 v16.1.0.11631 [Multi/Ru]
@@ -6,7 +113,7 @@ ON1 Photo RAW 2022.1 v16.1.0.11631 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155708.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ ToothFairy 2.6 (49)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155674.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ TechSmith Snagit 2020.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155659.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ PDF to Excel Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155622.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ Audio Hijack 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155603.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Red Giant Trapcode Suite 13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155534.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ KeyKey 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155518.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ DjVu Reader Pro 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155498.jpg" />
 </div>
 
 
@@ -221,7 +328,7 @@ Red Giant Magic Bullet Suite 12.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155443.jpg" />
 </div>
 
 
@@ -247,7 +354,7 @@ Path Finder 9.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155391.jpg" />
 </div>
 
 
@@ -273,7 +380,7 @@ iZotope - RX 9 Audio Editor Advanced v9.2.0 STANDALONE, VST, VST3, AAX [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155388.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155378.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ Allegorithmic Substance Painter 2019.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155376.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ PDF to Word Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155293.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ EagleFiler 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155248.jpg" />
 </div>
 
 
@@ -405,7 +512,7 @@ Sketch 61.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155239.jpg" />
 </div>
 
 
@@ -432,7 +539,7 @@ GrandTotal 7 v7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155233.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ Middle 1.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155220.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ PrefEdit 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155208.jpg" />
 </div>
 
 
@@ -513,7 +620,7 @@ PDF Search 10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155195.jpg" />
 </div>
 
 
@@ -539,7 +646,7 @@ Keep It 1.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155189.jpg" />
 </div>
 
 
@@ -565,7 +672,7 @@ Posterino 3 v3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155175.jpg" />
 </div>
 
 
@@ -577,114 +684,6 @@ Posterino – программа, ориентированная на созда
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C75363BF4701478D11AC023636011A92B3972411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433929   (155152) от 22.12.2020
-
-Duplicate File Finder Pro 6.12  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C87447D155549D69FCC9590EBB9376B708797CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433984   (155145) от 22.12.2020
-
-Net Radar 1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Net Radar отслеживает состояние вашего VPN-соединения и показывает текущее географическое положение публичного IP-адреса вашего интернет-соединения в строке меню.
-Net Radar отслеживает подключение к VPN на двух уровнях, внутренне и внешне. Внутренне - Net Радар отслеживает начало и конец VPN соединений. После каждого изменения, Net-радар проверяет статус VPN извне (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 28.11.2020Разработчик: BetamagicПоддерживаемая ОС: macOS X 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01788A82349C9643835EF758FC235669B15DF9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433893   (155139) от 22.12.2020
-
-Airtool 2 v2.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захват трафика Wi-Fi - важная задача анализа протокола. Если вы пытаетесь решить проблемы с подключением к Wi-Fi, роумингом или конфигурацией, анализируете производительность своей сети или просто изучаете Wi-Fi, вам, безусловно, потребуется выполнить захват трафика. Airtool дает возможность сделать это самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: Intuitibits LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163E4617C43263EB1A6212C4A07D46F8E91E619D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433944   (155122) от 22.12.2020
-
-Downie 4 v4.1.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CBC2E8ED73234B32516A4B425CC384D9D83342
 ```
 
 https://mybot314.ru/tekegram_catalog/

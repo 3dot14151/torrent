@@ -1,3 +1,112 @@
+###  Публикация: 1333283   (305255) от 24.10.2019
+
+InstaBro | Instagram Browser 5.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305255.jpg" />
+</div>
+
+
+###  Подробнее
+
+InstaBro это простой инструмент для Mac, с которым вы можете загружать все фотографии и видео с любого аккаунта Instagram, хэштегом или локально.
+
+За основу взят дизайн стандартного приложения Image Capture для импорта фотографий и видео с внешних медиаустройств. Все просто — слева список аккаунтов, справа фотографии в виде таблицы или сетки из превью. Есть возможность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Boris KarulinПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426CCD29FDE82B29EE5DF7622B8C70593FC56E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333290   (305133) от 24.10.2019
+
+Adobe Zii 2019 - Universal Patcher v.4.4.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831DCFF56D5C079FFB58F491FC35186A5B88DE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333401   (305129) от 24.10.2019
+
+Corel AfterShot Pro 3.6.0.380 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corel® AfterShot™ Pro 3 - это фоторедактор для обработки фотографий в формате RAW и полный высокоскоростной менеджер фотографий в одном, обеспечивающий обработку фотографий в 4 раза быстрее, чем Adobe® Lightroom®.
+Новое! Алгоритм корректировки экспозиции Highlight Recovery Algorithm;
+Новое! Гибкий механизм добавления водяных знаков;
+Новое! Инструментарий ретуширования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Corel CorporationПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5496D19AB7136C6C0A13F33FF92F85C26474F656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333285   (305121) от 24.10.2019
+
+Magnet Pro 2.4.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый раз, когда вы хотите скопировать содержимое из одного приложения в другое, сравнивать файлы бок о бок в многозадачном режиме, необходимо сделать так, чтобы все окна были расположены соответственно. Магнит делает этот процесс простым и понятным. Вы щелкаете любое окно в левой, правой, верхней или нижней половине экрана. И путем перетаскивания окон по углам, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2019Разработчик: Pavel KozarekПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0C210707799E1FA3C66CE76B34D632707DB9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077997   (305111) от 29.11.2016
 
 DaisyDisk 4.3.1 [Multi/Ru]
@@ -6,7 +115,7 @@ DaisyDisk 4.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305111.jpg" />
+  <img src="Z:/picture/008/save_picture_305111.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ Forecast Bar 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305101.jpg" />
+  <img src="Z:/picture/008/save_picture_305101.jpg" />
 </div>
 
 
@@ -63,7 +172,7 @@ iMazing 2.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305051.jpg" />
+  <img src="Z:/picture/008/save_picture_305051.jpg" />
 </div>
 
 
@@ -90,7 +199,7 @@ ScreenFlow 8.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305046.jpg" />
+  <img src="Z:/picture/008/save_picture_305046.jpg" />
 </div>
 
 
@@ -119,7 +228,7 @@ Direct Message for Instagram 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304974.jpg" />
+  <img src="Z:/picture/008/save_picture_304974.jpg" />
 </div>
 
 
@@ -147,7 +256,7 @@ This War of Mine v.4.0.0/dlc (2014) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304961.jpg" />
+  <img src="Z:/picture/008/save_picture_304961.jpg" />
 </div>
 
 
@@ -173,7 +282,7 @@ Rhinoceros 6 v6.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304957.jpg" />
+  <img src="Z:/picture/008/save_picture_304957.jpg" />
 </div>
 
 
@@ -201,7 +310,7 @@ Folx Pro 5.1.13631 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304810.jpg" />
+  <img src="Z:/picture/008/save_picture_304810.jpg" />
 </div>
 
 
@@ -229,7 +338,7 @@ Adobe Acrobat Pro DC 2018.009.20044 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304753.jpg" />
+  <img src="Z:/picture/008/save_picture_304753.jpg" />
 </div>
 
 
@@ -255,7 +364,7 @@ SketchUp Pro 2018 v18.0.16976 [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304746.jpg" />
+  <img src="Z:/picture/008/save_picture_304746.jpg" />
 </div>
 
 
@@ -281,7 +390,7 @@ Elmedia Player PRO 6.6 (980) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304469.jpg" />
+  <img src="Z:/picture/008/save_picture_304469.jpg" />
 </div>
 
 
@@ -309,7 +418,7 @@ TechTool Pro 9.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304466.jpg" />
+  <img src="Z:/picture/008/save_picture_304466.jpg" />
 </div>
 
 
@@ -336,7 +445,7 @@ DaisyDisk 4.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304305.jpg" />
+  <img src="Z:/picture/008/save_picture_304305.jpg" />
 </div>
 
 
@@ -363,7 +472,7 @@ Sketch 41.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304053.jpg" />
+  <img src="Z:/picture/008/save_picture_304053.jpg" />
 </div>
 
 
@@ -390,7 +499,7 @@ Hands Off! 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304051.jpg" />
+  <img src="Z:/picture/008/save_picture_304051.jpg" />
 </div>
 
 
@@ -417,7 +526,7 @@ KCNcrew Pack 11.15.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303611.jpg" />
+  <img src="Z:/picture/008/save_picture_303611.jpg" />
 </div>
 
 
@@ -445,7 +554,7 @@ iA Writer 5.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303600.jpg" />
+  <img src="Z:/picture/008/save_picture_303600.jpg" />
 </div>
 
 
@@ -471,7 +580,7 @@ File Juicer 4.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303558.jpg" />
+  <img src="Z:/picture/008/save_picture_303558.jpg" />
 </div>
 
 
@@ -499,7 +608,7 @@ File Cabinet Pro 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303557.jpg" />
+  <img src="Z:/picture/008/save_picture_303557.jpg" />
 </div>
 
 
@@ -525,7 +634,7 @@ Record Lectures 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303555.jpg" />
+  <img src="Z:/picture/008/save_picture_303555.jpg" />
 </div>
 
 
@@ -553,7 +662,7 @@ AirMail 3 v3.6.72 (556) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303551.jpg" />
+  <img src="Z:/picture/008/save_picture_303551.jpg" />
 </div>
 
 
@@ -581,7 +690,7 @@ Noise Machine 1.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303549.jpg" />
+  <img src="Z:/picture/008/save_picture_303549.jpg" />
 </div>
 
 
@@ -592,116 +701,6 @@ Noise Machine - это генератор белого шума и звуков�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7CDCD9D2A3D45B667DD27B10632A60B0A16731A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333626   (303433) от 25.10.2019
-
-Big Mean Folder Machine 2 v2.40 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Mean Folder Machine - интересное приложение, предназначенное для упорядочения файлов по определеннокму критерию. Т.е., если в одной папке все файлы свалены в одну кучу (часто бывает в папке "Загрузка"), мы можем, выбрав определенный критерий, моментально навести порядок, переместив определенные типы файлов в нужные папки.
-
-Например, идеально подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.10.2019Разработчик: publicspace.netПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51EF9F63A9E55DEFBEEA806B626152165F866FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333460   (303428) от 25.10.2019
-
-WiFi Scanner 2.9.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя WiFi Scanner, вы увидите близлежащие точки беспроводного доступа и их детали, включая каналы, уровни сигнала (RSSI), шум, ширину канала и MAC-адрес, качество сигнала, максимальную скорость передачи данных, шифрование и многое другое. WiFi Scanner включает в себя тестирование скорости загрузки и скачивания, чтобы быстро измерять и анализировать проблемы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AccessAgility LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE3E46AB701AB1B0A4C97696DCA475BE6ED89BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183925   (303426) от 16.11.2017
-
-DeskCover 1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая альтернатива HazeOver and UnDistracted
-DeskCover - скрывает иконки рабочего стола за красивой обложкой и автоматически подсвечивает окно активного приложения, скрывая все остальное.
-
-DeskCover это простое Мак-приложение, которое позволяет скрыть весь беспорядок на рабочем столе одним щелчком мыши или используя глобальную горячую клавишу.  Так же DeskCover (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2017Разработчик: MacPlus SoftwareПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55728900EEF6D70C48455889975781E964B851E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333588   (303418) от 25.10.2019
-
-MacX Video Converter Pro 6.4.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303418.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
-MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным гаджетам, включая даже смартфоны и планшеты не самой первой «свежести». (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2019Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7D70C435D1CD29A3CBA280561489CDE2D5A95A
 ```
 
 https://mybot314.ru/tekegram_catalog/

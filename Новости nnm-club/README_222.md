@@ -1,3 +1,159 @@
+###  Публикация: 1191404   (264027) от 14.12.2017
+
+Maxon CINEMA 4D Studio R19.024 build RB209858 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinema 4D является профессиональным редактором 3D графики, как раз для ваших потребностей. Если вы профессионально работаете с 3D графикой и хотите быстро и с легкостью достичь потрясающего результата, то это - ваш выбор. Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745C06ED33CCAE1DCE29B6241B2D0B9E2A3BEA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191217   (264026) от 14.12.2017
+
+Что делать, когда Tor заблокировали в вашей стране
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цензоры блокируют Tor двумя способами: они могут блокировать соединения с IP-адресами известных ретрансляторов Tor, и они могут анализировать сетевой трафик (глубокий анализ пакетов - DPI), чтобы обнаружить такой трафик и заблокировать его. Мосты - это секретные реле Tor, они не отображаются в каком-либо публичном списке, поэтому цензор не знает, какие адреса ему (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136810   (264025) от 14.12.2017
+
+Твин Пикс / Twin Peaks (2017) WEBRip (сезон 3, серии 1-18 из 18) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264025.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 лет назад жители маленького городка Твин Пикс были ошеломлены загадочным убийством королевы школы Лоры Палмер. Но история еще не закончена, события давно минувших дней дают о себе знать.Производство: США / Rancho Rosa Partnership, Showtime NetworksЖанр: триллер, драма, криминал, детективРежиссер: Дэвид ЛинчАктеры: Медкен Эмик, Дэна Эшбрук, Шерил Ли, Кайл МакЛоклен, Эверет МакГилл, Кимми Робертсон, Расс Тэмблин, Рэй Уайз, Грейс Забриски, Эми Шилз и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: русские, английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B26D2A204F00F751B604A06871725E1E676E887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191329   (264024) от 14.12.2017
+
+Autodesk Artcam Premium 2018 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk Inc., мировой лидер в области программного обеспечения для 3D-дизайна для развлечений, природных ресурсов, производства, проектирования, строительства и гражданской инфраструктуры, объявила о выпуске ArtCAM 2018 - это единое решение для проектирования и производства в деревообрабатывающей промышленности. Его простой интерфейс и простые в использовании инструменты (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр. (мультиязычный пакет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13A407192003E80587D977A0C70EF98FE04CA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340220   (263794) от 23.11.2019
+
+⚡ Американские врачи впервые в истории начали вводить пациентов в анабиоз
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие живые существа способны впадать при неблагоприятных для жизни условиях в состояние, близкое к смерти, но ей не являющееся. При этом дыхание, сердцебиение и другие процессы жизнедеятельности замедленны настолько, что могут быть обнаружены только с помощью специальной аппаратуры. Это состояние носит название анабиоз. И группа ученых из США начала применять искусственное (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191956   (263634) от 15.12.2017
+
+Набор обновлений UpdatePack7R2 для Windows 7 SP1 и Server 2008 R2 SP1 17.12.15
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8764635974B31ECF789050B4E256F573E3AA2619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339244   (263418) от 24.11.2019
 
 Леонардо да Винчи. Неизведанные миры / Io, Leonardo / I, Leonardo (2019) WEB-DLRip [H.265] [10-bit] [PR]
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263418.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263414.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Xiaomi представила «полезную» электронную сиг
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263350.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4591.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263325.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Windows 10 Enterprise "LTSB Style" VL (x86/x64) Elgujakviso Edition (v.14.12.17)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263313.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ Heavy Rain (2019) [Ru/Multi] (build 362) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263092.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263085.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263074.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Octane Render 3.07 R2 + C4D Plugins [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262951.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262854.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ GoodbyeDPI.0.1.6. Launcher-3.2 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262774.jpg" />
 </div>
 
 
@@ -300,7 +456,7 @@ SpaceX впервые запустила вместе уже летавшие к
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262670.jpg" />
 </div>
 
 
@@ -326,7 +482,7 @@ Wanpiisu / One Piece / Ван-Пис. Раздача №2 [1999, TV, 384-415] HD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262511.jpg" />
 </div>
 
 
@@ -354,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262503.jpg" />
 </div>
 
 
@@ -380,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262413.jpg" />
 </div>
 
 
@@ -406,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262403.jpg" />
 </div>
 
 
@@ -432,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262382.jpg" />
 </div>
 
 
@@ -458,7 +614,7 @@ Opera Software ASA решила переименоваться в Otello Corpora
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262177.jpg" />
 </div>
 
 
@@ -484,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262164.jpg" />
 </div>
 
 
@@ -510,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262047.jpg" />
 </div>
 
 
@@ -521,162 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193392   (262005) от 21.12.2017
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.21 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF9D74A9DDCD19EA1AC3AE7147C4AD1DCFF709D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905577   (262004) от 21.12.2017
-
-Интерстеллар / Interstellar (2014) BDRip [H.264/1080p] [IMAX Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету...Производство: США, Великобритания, Канада / Paramount Pictures, Warner Bros., Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Джессика Честейн, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Кейси Аффлек, Джон Литгоу, Мэтт ДэймонПеревод: профессиональный (полное дублирование), профессиональный (многоголосый закадровый), авторский (одноголосый закадровый), любительскийЯзык субтитров: русский, украинский, английскийПродолжительность: 02:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2849F8A6D4D42FD9981D4FAC7EF9D6903AAFAEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193243   (262002) от 21.12.2017
-
-Оно / It (2017) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262002.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком городке Дерри, штат Мэн, уже много веков орудует воплощение липкого ужаса под видом клоуна из бродячего шапито. Его жертвами становятся преимущественно подростки с неокрепшей психикой, которых он предварительно запугивает до аморфного состояния, чтобы затем устроить детишкам кровавую вакханалию в марсианском аду. Местные власти ничего не предпринимают, (   Читать дальше...   )Производство: США, New Line Cinema, KatzSmith Productions, Lin Pictures, RatPac-Dune Entertainment, Vertigo EntertainmentЖанр: Ужасы, Триллер, ДрамаРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, София Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк Сим, Логан Томпсон, Оуэн Тиг, Джексон Роберт Скотт, Стивен Богерт, Стюарт ХьюзПеревод: Дублированный (iTunes) +  Любительский многоголосый + Авторский (Одноголосый, закадровый)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D49124CA555083DCF53F07DAA58A9F9E5DA0EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193777   (261850) от 22.12.2017
-
-Avast Premier 17.9.2322 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Premier совершенствует сканирование сети, включает установщик обновлений стороннего ПО, защищает от фишинговых и мошеннических сайтов, удаляет конфиденциальные данные без возможности восстановления, включает самый защищенный в мире браузер для совершения покупок и банковских операций онлайн в условиях абсолютной защищенности и без рекламы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C2297DB601F737760BF43520C33BBFF772C0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193789   (261839) от 22.12.2017
-
-Acronis True Image 2018 Build 10640  RePack by KpoJIuK  [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E28203C0CC2EA5FBFC147AF2BF0EA0DA46B4A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035346   (261836) от 22.12.2017
-
-Бегущий по лезвию / Blade Runner (1982) BDRip [H.264/1080p] [The Final Cut]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отставной детектив Рик Декард вновь восстановлен в полиции Лос-Анджелеса для поиска возглавляемой Роем Батти группы киборгов, совершившей побег из космической колонии на Землю. В полиции считают, что киборги пытаются встретиться с Эндолом Тайреллом, руководителем корпорации, ставящей эксперименты над кибернетическим интеллектом. Рик Декард получает задание выяснить (   Читать дальше...   )Производство: США, Гонконг, Великобритания / The Ladd Company, Shaw Brothers (Hong Kong) Limited, Norman Lear/Tandem ProductionsЖанр: Фантастика, Триллер, Драма, МелодрамаРежиссер: Ридли СкоттАктеры: Харрисон Форд, Рутгер Хауэр, Шон Янг, Эдвард Джеймс Олмос, М. Эммет Уолш, Дэрил Ханна, Уильям Сэндерсон, Брайон Джеймс, Джо Тёркел, Джоанна Кэссиди, Джеймс Хонг, Морган Полл, Кевин Томпсон, Джон Эдвард Аллен, Кэролин ДемирьянПеревод: Дублированный, профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B656DC7A0A15030248E3F35D177514042AC1BE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

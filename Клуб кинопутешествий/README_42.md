@@ -1,3 +1,55 @@
+###  Публикация: 1329827   (350020) от 06.10.2019
+
+HDlife: Путешествия / Европа / HDlife: Smart Travels / Europe (2012) HDTV [H.264/1080i] (Часть 2, 14 фильмов)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Travels: Европа - от города знаменитой статуи Давида, работы Микеланджело, до неоновых ночных клубов Парижа и уютных деревенских церквей, предлагает лучшие сюжеты о Европе от Руди Максы.Производство: США, Small World Productions Inc., SeattleЖанр: Документальный, история, путешествияПеревод: Одноголосый закадровый, профессиональный (Видеопродакшн)Субтитры: отсутствуютПродолжительность: серии x ~00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0D3EA637C8A47052474E271556ECA23BC5ED75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329826   (350015) от 06.10.2019
+
+HDlife: Путешествия / Европа / HDlife: Smart Travels / Europe (2012) HDTV [H.264/1080i] (Часть 1, 11 фильмов)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Travels: Европа - от города знаменитой статуи Давида, работы Микеланджело, до неоновых ночных клубов Парижа и уютных деревенских церквей, предлагает лучшие сюжеты о Европе от Руди Максы.Производство: США, Small World Productions Inc., SeattleЖанр: Документальный, история, путешествияПеревод: Одноголосый закадровый, профессиональный (Видеопродакшн)Субтитры: отсутствуютПродолжительность: серии x ~00:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D610A585C03F680C19FA3188519790EC105B753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179279   (349049) от 31.10.2017
 
 Орел и решка. Перезагрузка (2017.10.30) WEB-DLRip (сезон 14: Барселона. Испания)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349049.jpg" />
+  <img src="Z:/picture/008/save_picture_349049.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349046.jpg" />
+  <img src="Z:/picture/008/save_picture_349046.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347855.jpg" />
+  <img src="Z:/picture/008/save_picture_347855.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347714.jpg" />
+  <img src="Z:/picture/008/save_picture_347714.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347490.jpg" />
+  <img src="Z:/picture/008/save_picture_347490.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347398.jpg" />
+  <img src="Z:/picture/008/save_picture_347398.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346717.jpg" />
+  <img src="Z:/picture/008/save_picture_346717.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344316.jpg" />
+  <img src="Z:/picture/008/save_picture_344316.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344306.jpg" />
+  <img src="Z:/picture/008/save_picture_344306.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343388.jpg" />
+  <img src="Z:/picture/008/save_picture_343388.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343382.jpg" />
+  <img src="Z:/picture/008/save_picture_343382.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342207.jpg" />
+  <img src="Z:/picture/008/save_picture_342207.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342149.jpg" />
+  <img src="Z:/picture/008/save_picture_342149.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341927.jpg" />
+  <img src="Z:/picture/008/save_picture_341927.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339964.jpg" />
+  <img src="Z:/picture/008/save_picture_339964.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Travel: Чудеса планеты / Earth Wonders (2010) HDTVRip [H.264/720p-L
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339942.jpg" />
+  <img src="Z:/picture/008/save_picture_339942.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339890.jpg" />
+  <img src="Z:/picture/008/save_picture_339890.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339588.jpg" />
+  <img src="Z:/picture/008/save_picture_339588.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337885.jpg" />
+  <img src="Z:/picture/008/save_picture_337885.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337777.jpg" />
+  <img src="Z:/picture/008/save_picture_337777.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337768.jpg" />
+  <img src="Z:/picture/008/save_picture_337768.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337639.jpg" />
+  <img src="Z:/picture/008/save_picture_337639.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337023.jpg" />
+  <img src="Z:/picture/008/save_picture_337023.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336898.jpg" />
+  <img src="Z:/picture/008/save_picture_336898.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A310B266CDB6E0A9E46CE49EE3CEDB1E3360F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579573   (336409) от 27.09.2022
-
-Скандинавская кухня Тарека Тейлора / Tareq Taylor's Nordic Cookery (2021) WEBRip [H.264/720p] (сезон 5, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал, исследующий сердце и душу скандинавской кухни. В этом пятом сезоне Тарек Тейлор снова отправится в путешествие по скандинавским странам, чтобы встретиться с местными производителями продуктов питания и шеф-поварами. Он отправляется по туристической тропе, чтобы познакомиться с местными культурами через их еду, искать фантастические ингредиенты, встречаться (   Читать дальше...   )Производство: Швеция, Sintaxis FilmsЖанр: документальный, познавательный, путешествияРежиссер: Андреас ТроедссонПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 6x ~00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED37B9DD0E6A08B75AFA16F4F0B32C268D2A7DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074912   (336140) от 20.11.2016
-
-100500 городов (2016.11.19) SATRip (выпуск 4: Канзас-сити)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое смешное шоу «100500» покидает не только просторы леопардового ковра, но и пределы страны. В своем новом проекте «100500 городов» Максим Голополосов раскроет зрителям «Че» секреты национального юмора и покажет самые уморительные видео из разных частей света. Так над западом ещё никто не стебался.Производство: ЧеЖанр: Документальный/ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3D5AD2ABC859DE2E92226EBD74D87522005F82
 ```
 
 https://mybot314.ru/tekegram_catalog/

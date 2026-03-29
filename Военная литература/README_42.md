@@ -1,3 +1,30 @@
+###  Публикация: 1176079   (374226) от 20.10.2017
+
+Алексей Пишенков | Последний бой. Кто освободил Прагу? (2017) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374226.jpg" />
+</div>
+
+
+###  Подробнее
+
+К сожалению, история Второй мировой войны является излюбленной темой для самых разных спекуляций в угоду различным политическим интересам. Особенно этим любят заниматься наши бывшие союзники по Варшавскому договору.
+Бои 4–11 мая 1945 г. в Праге, последней европейской столице, находившейся в руках гитлеровских войск, как раз являются одним из подобных случаев – до (   Читать дальше...   )Жанр: Военная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF24F4020C3E6852EDD19D21F07EEF7C4F65DD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176081   (374224) от 20.10.2017
 
 Вячеслав Терентьев | Холмский «котел». 105 дней в полном окружении (2017) [FB2]
@@ -6,7 +33,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374224.jpg" />
+  <img src="Z:/picture/008/save_picture_374224.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374217.jpg" />
+  <img src="Z:/picture/008/save_picture_374217.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372879.jpg" />
+  <img src="Z:/picture/008/save_picture_372879.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371088.jpg" />
+  <img src="Z:/picture/008/save_picture_371088.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370905.jpg" />
+  <img src="Z:/picture/008/save_picture_370905.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368850.jpg" />
+  <img src="Z:/picture/008/save_picture_368850.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367773.jpg" />
+  <img src="Z:/picture/008/save_picture_367773.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365820.jpg" />
+  <img src="Z:/picture/008/save_picture_365820.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365573.jpg" />
+  <img src="Z:/picture/008/save_picture_365573.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365061.jpg" />
+  <img src="Z:/picture/008/save_picture_365061.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364009.jpg" />
+  <img src="Z:/picture/008/save_picture_364009.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363976.jpg" />
+  <img src="Z:/picture/008/save_picture_363976.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363975.jpg" />
+  <img src="Z:/picture/008/save_picture_363975.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363599.jpg" />
+  <img src="Z:/picture/008/save_picture_363599.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363360.jpg" />
+  <img src="Z:/picture/008/save_picture_363360.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362696.jpg" />
+  <img src="Z:/picture/008/save_picture_362696.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360772.jpg" />
+  <img src="Z:/picture/008/save_picture_360772.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360326.jpg" />
+  <img src="Z:/picture/008/save_picture_360326.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358903.jpg" />
+  <img src="Z:/picture/008/save_picture_358903.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358891.jpg" />
+  <img src="Z:/picture/008/save_picture_358891.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358753.jpg" />
+  <img src="Z:/picture/008/save_picture_358753.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358460.jpg" />
+  <img src="Z:/picture/008/save_picture_358460.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358214.jpg" />
+  <img src="Z:/picture/008/save_picture_358214.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358037.jpg" />
+  <img src="Z:/picture/008/save_picture_358037.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357928.jpg" />
+  <img src="Z:/picture/008/save_picture_357928.jpg" />
 </div>
 
 
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3262E6C97B8651C668BA4CC70798E2C2FD6B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417452   (357917) от 20.10.2020
-
-Ю.В. Апальков | Боевые корабли японского флота [4 части] (1997-2000) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит сведения о тактико-технических элементах и карьере боевых кораблей специальной постройки, входивших в состав действующих соединений, находившихся в постройке, либо внесенные в кораблестроительные программы Японского Императорского флота в период с 10.1918 по 8.1945 гг. Схематично показан их внешний вид в двух проекциях в различные периоды службы, (   Читать дальше...   )Жанр: Военная техника, СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A2391EFB15D1A461023F62B9B0E38973E60BEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

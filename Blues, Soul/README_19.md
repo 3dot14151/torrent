@@ -1,3 +1,32 @@
+###  Публикация: 914932   (595147) от 04.07.2015
+
+The Betty Fox Band - Slow Burn (2015) [MP3|320 кб/с]<Funky Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_595147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think About It (03:11)
+02. Sweet Memories (05:05)
+03. Slow Burn (05:51)
+04. Solid Ground (03:23)(   Читать дальше...   )Жанр: Funky BluesПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163FA8D08CE29FB638018CA122BF240BF7D470EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039464   (594698) от 02.08.2016
 
 Sean Chambers - Ten Til Midnight (2009) [MP3|320 Kbps] <Modern Electric Blues>
@@ -6,7 +35,7 @@ Sean Chambers - Ten Til Midnight (2009) [MP3|320 Kbps] <Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594698.jpg" />
+  <img src="Z:/picture/008/save_picture_594698.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Milan Hendrik EXP - Applegate Drive (2016) [MP3|320 Kbps] <Blues, Roots>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594690.jpg" />
+  <img src="Z:/picture/008/save_picture_594690.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gary Hoey - Dust & Bones (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594564.jpg" />
+  <img src="Z:/picture/008/save_picture_594564.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Canned Heat - Friends In The Can (2003) [MP3|320 Kbps] <Blues Rock, Boogie>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593640.jpg" />
+  <img src="Z:/picture/008/save_picture_593640.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ BB Lyngs Blues Band - Blues Pa Bla Resept (2015) [MP3|320 кб/с]<Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592379.jpg" />
+  <img src="Z:/picture/008/save_picture_592379.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ally Venable Band - Train Wreck Blues (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592378.jpg" />
+  <img src="Z:/picture/008/save_picture_592378.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Starlight Searchers - Don't Bring The Kids (2014) [MP3|320 кб/с]<Blues, Count
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590997.jpg" />
+  <img src="Z:/picture/008/save_picture_590997.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Ike & Tina Turner - Jazz & Blues collection (1995) [MP3|320 кб/с]<Rhythm & Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590454.jpg" />
+  <img src="Z:/picture/008/save_picture_590454.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ James Brown - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590405.jpg" />
+  <img src="Z:/picture/008/save_picture_590405.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ David Michael Miller - Same Soil (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589999.jpg" />
+  <img src="Z:/picture/008/save_picture_589999.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Tanny Mas Band - True Illusions (2015) [MP3|320 кб/с]<Jazz-Fusion, Contempora
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589997.jpg" />
+  <img src="Z:/picture/008/save_picture_589997.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Apollo Cruz - … Your Blues, John (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589641.jpg" />
+  <img src="Z:/picture/008/save_picture_589641.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The Other Mules - Here With The Blues (2015) [MP3|320 кб/с]<Rockin' Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589604.jpg" />
+  <img src="Z:/picture/008/save_picture_589604.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589585.jpg" />
+  <img src="Z:/picture/008/save_picture_589585.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Lightnin' Hopkins - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589131.jpg" />
+  <img src="Z:/picture/008/save_picture_589131.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Louis Jordan - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jump Blues, Swin
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589130.jpg" />
+  <img src="Z:/picture/008/save_picture_589130.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Magic Sam - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589126.jpg" />
+  <img src="Z:/picture/008/save_picture_589126.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Robert Johnson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586974.jpg" />
+  <img src="Z:/picture/008/save_picture_586974.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Mahalia Jackson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586917.jpg" />
+  <img src="Z:/picture/008/save_picture_586917.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Terry Et McGhee - Jazz & Blues collection (1995) [MP3|320 кб/с]<Country Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586039.jpg" />
+  <img src="Z:/picture/008/save_picture_586039.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586010.jpg" />
+  <img src="Z:/picture/008/save_picture_586010.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ B.B. King - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586001.jpg" />
+  <img src="Z:/picture/008/save_picture_586001.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Isaac Farr Trio - Blue Highway (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584935.jpg" />
+  <img src="Z:/picture/008/save_picture_584935.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Big James And The Chicago Playboys - The Big Payback (2012) [MP3|320 кб/с]<Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584886.jpg" />
+  <img src="Z:/picture/008/save_picture_584886.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Maria Muldaur - Meet Me At Midnight (1994), Reissue/2005, Shout! Factory LLC/ [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584881.jpg" />
+  <img src="Z:/picture/008/save_picture_584881.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Maria Muldaur - Meet Me At Midnight (1994), Reissue/2005, Shout! Factory LLC/ [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:206DD942DE18649338BDC997A27E516C3918358B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919049   (584873) от 17.07.2015
-
-Jimmy Page - Les Genies du Rock - Freight Loader (1994) [MP3|320 кб/с]<Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Send Me No Flowers [05:45]
-02. I See a Man Downstairs [03:13]
-03. She Was So Dumb [04:20]
-04. The Goat [02:05](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAF4B47D3B77772DEAB8A8DB1B79E69FB26E9E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

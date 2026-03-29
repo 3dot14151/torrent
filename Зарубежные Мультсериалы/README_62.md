@@ -1,3 +1,55 @@
+###  Публикация: 1778568   (28183) от 09.02.2025
+
+Сны оружия / Боевой ангел Алита / Battle Angel Alita / Hyper Future Vision: Gunnm (1993) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (1-2 серии из 2) Viki & Azazel [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля, XXVI век. Под небесным городом Салемом находится нижний город-свалка, где живут отбросы общества. Однажды вместе с мусором в нижний город сбрасывают останки девушки-киборга, которого находит и решает починить доктор Идо. После восстановления выясняется, что у киборга нет воспоминаний.Производство: Япония / Animate Film, Geffen Pictures, KSS Inc., Madhouse, Movic Inc.Жанр: аниме, мультфильм, фантастика, боевик, драма, криминалРежиссер: Хироси ФукутомиАктеры: Мики Ито, Каппэи Ямагути, Сюнсукэ Кария, Мами Кояма, Сигэру Тиба, Рюдзабуро Отомо, Кадзухико Кисино, Кодзи Тотани, Такуми Ямадзаки, Кадзуюки СогабэПеревод: Двухголосый любительский (Viki & Azazel)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:29:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91105D5705163FC7D7F36DBF0391B07021E463FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778974   (28082) от 10.02.2025
+
+Что, если...? / What If...? (2021 - 2024) WEB-DLRip [H.264/1080p] (сезон 1-3, серии 1-26 из 26) Flarrow Films
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28082.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Что если…?» (англ. What If…?) — американский анимационный сериал, созданный А.К. Брэдли для сервиса потокового вещания Disney+ и основанный на одноимённой серии комиксов Marvel. Четвёртый по счёту телесериал четвёртой фазы кинематографической вселенной Marvel. Каждый из эпизодов раскроет, что могло случиться, если бы ключевые события фильмов киновселенной произошли (   Читать дальше...   )Производство: США / Flying Bark Productions, Marvel Studios Inc.Жанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Брайан Эндрюс, Стефан ФранкПеревод: дублированный (Flarrow Films)Язык озвучки: русскийСубтитры: русскиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C8BC7B824A01F198053FA036BB96E64E1A9E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779348   (27816) от 12.02.2025
 
 Непобедимый Спайдермен / Spider-Man Unlimited (1999-2001) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (1-13 серии из 13) РЕН-ТВ [hand made Upscale AI]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27816.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27637.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27402.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27242.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26976.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26616.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26615.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26573.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26151.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25573.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25514.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24555.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24063.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24047.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22931.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22904.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22874.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22226.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22217.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22087.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22069.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21467.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21427.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21412.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7DDB95E557B9F72847AE310004A83393504910A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792037   (21158) от 17.04.2025
-
-Я есть Грут / I Am Groot (2022-2023) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1-2, серии 1-10 из 10) Red Head Sound, Jaskier [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия небольших короткометражек, которые рассказывают о приключениях забавного малыша Грута и его друзей.Производство: США / Marvel StudiosЖанр: мультфильм, короткометражка, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Керстен ЛепореПеревод: Дублированный (Red Head Sound, Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), английскиеПродолжительность: ~00:17:00 (сезон)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8E6B2CDB25C2E24525DBAC1D9DBEC213485CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781711   (20228) от 26.04.2025
-
-Джентри Чау против демонов / Jentry Chau vs. The Underworld (2024) WEB-DL (сезон 1, серии 1-13 из 13) DAблин (обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джентри Чау - китайско-американская девочка подросток, живущая в маленьком техасском городке, узнает, что король демонов охотится за ней из-за сверхъестественных сил, над подавлением которых она работала всю свою жизнь. С помощью своей двоюродной бабушки, эксперта по оружию, и тысячелетнего цзянши (китайского прыгающего вампира) Джентри теперь предстоит сразиться (   Читать дальше...   )Производство: США, Gotham Group, Netflix Animation, Nine Eyes StoneЖанр: фэнтези, комедия, приключенияРежиссер: Александрия Кван, Джеки КоулАктеры: Али Вон, Бовэнь Ян, Стефани Ше, Лори Тань Чинн, Эй Джей Беклс, Кристина Милиция, Woosung, Грег Чун, Стивен Фу, Шон Аллан КриллПеревод: Многоголосый любительский (DAблин)Язык озвучки: РусскийПродолжительность: ~ 00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE329903B2523925F633168CD87595670DDB666F
 ```
 
 https://mybot314.ru/tekegram_catalog/

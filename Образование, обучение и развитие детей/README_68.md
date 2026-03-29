@@ -1,3 +1,56 @@
+###  Публикация: 1635423   (232048) от 28.05.2023
+
+А.И. Бугаев, М.Т. Мартынюк, В.В. Смолянец | Физика. Астрономия. Пробный учебник для 7 класса средней школы (1995) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_232048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пробный учебник для 7 класса средней школыЖанр: Учебная литература по физикеПеревод: В.В. СмолянецЯзык: РусскийИздательство: ОСBIТАФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D7039C3FBE59E3E0AEF92BAAB8D4458355C078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636847   (231336) от 01.06.2023
+
+Э.Т. Ахмедов, А.В. Громов | Картины фундаментальной физики (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_231336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга основана на цикле научно-популярных лекций, прочитанных в центре АРХЭ. Она состоит из трёх лекций - по специальной теории относительности, общей теории относительности и квантовой механике. В книге обсуждаются принципы, лежащие в основе этих теорий. Подробно рассказывается о мифах и парадоксах, связанных с этими теориями.
+Изложение рассчитано на учащихся старших (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E94CCC17C7F896A0407582414B0ED81B0D9B942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649189   (230642) от 26.07.2023
 
 П.С. Моденов | Задачи по геометрии (1979) [DJVU]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230642.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230437.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230434.jpg" />
+  <img src="Z:/picture/004/save_picture_230434.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229555.jpg" />
+  <img src="Z:/picture/004/save_picture_229555.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228535.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228426.jpg" />
+  <img src="Z:/picture/005/save_picture_228426.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228298.jpg" />
+  <img src="Z:/picture/005/save_picture_228298.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228059.jpg" />
+  <img src="Z:/picture/005/save_picture_228059.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228042.jpg" />
+  <img src="Z:/picture/005/save_picture_228042.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227766.jpg" />
+  <img src="Z:/picture/005/save_picture_227766.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227027.jpg" />
+  <img src="Z:/picture/005/save_picture_227027.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226969.jpg" />
+  <img src="Z:/picture/005/save_picture_226969.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226314.jpg" />
+  <img src="Z:/picture/005/save_picture_226314.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226308.jpg" />
+  <img src="Z:/picture/005/save_picture_226308.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225863.jpg" />
+  <img src="Z:/picture/005/save_picture_225863.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224732.jpg" />
+  <img src="Z:/picture/005/save_picture_224732.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224723.jpg" />
+  <img src="Z:/picture/005/save_picture_224723.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224566.jpg" />
+  <img src="Z:/picture/005/save_picture_224566.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224551.jpg" />
+  <img src="Z:/picture/005/save_picture_224551.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224496.jpg" />
+  <img src="Z:/picture/005/save_picture_224496.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224437.jpg" />
+  <img src="Z:/picture/005/save_picture_224437.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224431.jpg" />
+  <img src="Z:/picture/005/save_picture_224431.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224375.jpg" />
+  <img src="Z:/picture/005/save_picture_224375.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224324.jpg" />
+  <img src="Z:/picture/005/save_picture_224324.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CCC521EA6E1CB51CD918FE6330196936277BFC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425175   (224284) от 19.11.2020
-
-Майлен Константиновский | Почемучкины опыты и эксперименты. Химия (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224284.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге М. Константиновского «Химия» ты найдешь несколько любопытных рассказов о природе света, а также 19 физических экспериментов со светом, цветом, звуком и водой. Все эксперименты разработаны с использованием предметов, которые легко найти в каждом доме. Эти увлекательные занятия помогут понять не только некоторые физические явления, но и разовьют воображение, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF4E116EB6F6EC6C98017DDA01C494326A9EE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965634   (224261) от 15.12.2015
-
-Людмила Габриель (ред.) | Серебряная ложка для детей (2011) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224261.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 с лишним лет на книжном рынке, статус мирового бестселлера и неофициальное звание "Самая прекрасная кулинарная книга, посвященная Италии" - все это регалии знаменитой книги The Silver Spoon for Children - адаптированной для детей версии "взрослой" книги The Silver Spoon. Это впечатляющее издание прививает детям вкус к здоровой и красивой еде. (   Читать дальше...   )Жанр: Кулинария детямФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26C0445BCAF35647A79DBEB6EE7D308DAD2A2E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1086786   (149214) от 25.12.2016
+
+Н.Г. Цед, В.М. Андрейчук | Первый шаг к кунг-фу (1990) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана мастером спорта Н.Г. Цедом и мастером спорта В.И. Андрейчуком, призером всесоюзных и республиканских соревнований по самбо и дзюдо, одним из авторов учебника "Рукопашный Бой".
+В книге рассматриваются физические упражнения Боевых видов Искусств Восточных Единоборств; описываются принципы приемов и действий; содержатся рекомендации, с чего (   Читать дальше...   )Жанр: Учебно-методическое пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949D3B9FC897E367BDDC64AEB01E18D6DED9B01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195425   (141686) от 29.12.2017
+
+Томас Фьютрелл | Обзор бокса или наука обороны руками (2017) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное название: «Обзор бокса или наука обороны руками, представленный рациональными принципами, комплексным описанием основных боксеров с самого раннего периода Броутена, до наших дней.
+
+Целью автора  данной книги является отстоять позиции бокса и показать его практичность на рациональных принципах, и он даже  готов  к  негативной критике  в сою сторону.
+Как говорит (   Читать дальше...   )Жанр: Боевые искусства, БоксФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB4DDBB17601B0921B539A3ED463D08EE4DB80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195431   (141562) от 29.12.2017
 
 Р.Г.Алансон- Уинн, Филлиппс- Уолли | Палаш и палка с рукоятью (2017) [PDF]
@@ -6,7 +62,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141562.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122845.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118168.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117705.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117702.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117129.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90723.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89006.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80952.jpg" />
 </div>
 
 
@@ -245,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77192.jpg" />
 </div>
 
 
@@ -271,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76752.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71646.jpg" />
 </div>
 
 
@@ -329,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49248.jpg" />
 </div>
 
 
@@ -355,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49241.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48992.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44244.jpg" />
 </div>
 
 
@@ -437,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42961.jpg" />
 </div>
 
 
@@ -463,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41587.jpg" />
 </div>
 
 
@@ -490,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40899.jpg" />
 </div>
 
 
@@ -518,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40491.jpg" />
 </div>
 
 
@@ -544,7 +600,7 @@ Tim Harding | Correspondence Chess in Britain and Ireland, 1824-1987 (2011) [En]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40381.jpg" />
 </div>
 
 
@@ -570,7 +626,7 @@ Gino Di Felice | Chess Competitions (1824-1970) (2013) [En] [DJVU]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40379.jpg" />
 </div>
 
 
@@ -596,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40176.jpg" />
 </div>
 
 
@@ -622,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37786.jpg" />
 </div>
 
 
@@ -635,60 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E052C06A01B7A49CDE1507D16D760D29688758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762249   (36298) от 24.11.2024
-
-М.Ф. Иваницкий | Анатомия человека. Учебник для институтов физической культуры (1985) [DJVU, PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник написан в соответствии с программой по анатомии человека, утвержденной Комитетом по физической культуре и спорту при Совете Министров СССР для институтов физической культуры.
-
-В учебнике кроме анатомических данных включены материалы по возрастной, конституциональной и спортивной морфологии, половому диморфизму, основным анатомо-антропометрическим методам (   Читать дальше...   )Жанр: спорт, анатомия, биологияИздательство: Физкультура и спортФормат: DJVU, PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878DD5F052619C3E86B32647FDA49D92F93EE6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762246   (36297) от 24.11.2024
-
-Честер Байерс | Метание лассо. Метание ножа (2006) [FB2, PDF, DJVU]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы видели, как бросают лассо герои «ковбойских» фильмов. Но мало кто из нас имеет представление о том, какова техника метания лассо и можно ли овладеть ею, например, в условиях современного города. Обо всем этом в доступной и увлекательной форме рассказывает признанный мастер по метанию лассо американец Честер Байерс, чьи рекомендации составляют первый раздел (   Читать дальше...   )Жанр: боевые искусства, физкультура и спорт, хобби, увлеченияПеревод: М.М. ЛанинаИздательство: ОСТ, АСТФормат: FB2, PDF, DJVUКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1DE18FAE3E433423D39BF41A5960CF5716A9D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

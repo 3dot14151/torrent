@@ -1,3 +1,107 @@
+###  Публикация: 1278021   (774226) от 23.01.2019
+
+NG: C точки зрения науки: Вымирание человечества / Naked Science: Wipepout (2006) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш мир изобилует разнообразием форм жизни: от простейших одноклеточных существ до, собственно, человека. А теперь представьте себе мир, утопающий в смертоносных газах, иссушаемый аномальной жарой, разрушаемый фатальными спадами температур под пронизывающими космическими излучениями. Мир, на который падают астероиды, разрушаемые высокотемпературными ударными волнами. (   Читать дальше...   )Производство: США, National Geographic, Pioneer Productions, Steadfast TelevisionЖанр: Документальный, познавательный, научно-популярныйРежиссер: Рабиндер МинхасПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C95418717F013F9A9D730A12548CCD734EBDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212839   (774212) от 14.03.2018
+
+History Channel: Автомобильная нация / Car Nation (2017) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история про отношения Америки с автомобилями. Последние 50 лет Америка была движущей силой автомобильных новшеств. Машина отражает твою сущность. Все мечтают о лучшей, чем у соседа тачке. Многие из этих машин представляют Америку. Хамви символизировал силу и мощь Америки, и это продавалось. От попкультуры (эту тачку знали по шоу), до любви к технологиям. К Пинто (   Читать дальше...   )Телекомпания: США, History ChanelЖанр: Документальный, историяПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A1B650F9BDEBA358EAE02859B6A071AD556B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277990   (774150) от 23.01.2019
+
+NGW: Дикая Корея. За границей / Wild Korea. Voice of nature (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774150.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение тысячелетий Корея славилась удивительной красотой своей природы. Сейчас она более известна своими длящимися уже десятилетия конфликтами, но даже несмотря на шрамы, которые оставила природе война, а также различные оборонительные сооружения, она остается поразительно красивой страной с необычным животным миром.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс РидПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DFF31C13CB4A83CF7F4F9AC09EC1E339C91E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277962   (774146) от 23.01.2019
+
+Animal Planet: Знакомство с пингвинами / Meet the Penguins (2017) HDTV [H.264/1080i-LQ] (серии 1-8)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о работе Фонда реабилитации морских птиц SANCCOB, который находится в столице ЮАР Кейптауне. Преданные своему делу сотрудники Фонда изо дня в день спасают жизнь пингвинам. Благодаря команде ветеринаров и волонтеров ежегодно удается выходить и вылечить около 1500 птиц. А поскольку в лечебном центре Фонда обитают самые шумные жители Кейптауна, тихих дней здесь (   Читать дальше...   )Производство: ЮАР, Animal PlanetЖанр: Документальный, природа, фаунаРежиссер: Ребекка ВаллисПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: серии x ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADDBA379084B6975369453A2F8047745C39CE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057871   (774075) от 14.03.2018
 
 Discovery: Мир стволовых клеток со Стивеном Хокингом / Stem Cell Universe with Stephen Hawking (2014) HDTVRip
@@ -6,7 +110,7 @@ Discovery: Мир стволовых клеток со Стивеном Хоки
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774075.jpg" />
+  <img src="Z:/picture/008/save_picture_774075.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774030.jpg" />
+  <img src="Z:/picture/008/save_picture_774030.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773017.jpg" />
+  <img src="Z:/picture/008/save_picture_773017.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772812.jpg" />
+  <img src="Z:/picture/008/save_picture_772812.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772598.jpg" />
+  <img src="Z:/picture/008/save_picture_772598.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772517.jpg" />
+  <img src="Z:/picture/008/save_picture_772517.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771722.jpg" />
+  <img src="Z:/picture/008/save_picture_771722.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Animal Planet: Дом для рептилий. Приключения цепко
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771717.jpg" />
+  <img src="Z:/picture/008/save_picture_771717.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Discovery. Шахты на Луне / Mining the Moon (2008) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771166.jpg" />
+  <img src="Z:/picture/008/save_picture_771166.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771148.jpg" />
+  <img src="Z:/picture/005/save_picture_771148.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771113.jpg" />
+  <img src="Z:/picture/008/save_picture_771113.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771011.jpg" />
+  <img src="Z:/picture/008/save_picture_771011.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ PBS. Восстание дронов / Rise of the Drones (2013) WEB-DLRip [H.26
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770953.jpg" />
+  <img src="Z:/picture/008/save_picture_770953.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ NG. Комета века / Comet of the century (2013) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770114.jpg" />
+  <img src="Z:/picture/008/save_picture_770114.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769716.jpg" />
+  <img src="Z:/picture/008/save_picture_769716.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ NG: Королевство белого волка / Kingdom of The White Wolf (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769659.jpg" />
+  <img src="Z:/picture/008/save_picture_769659.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ BBC: Да Винчи: Утерянное сокровище / Da Vinci: The Lost
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769491.jpg" />
+  <img src="Z:/picture/008/save_picture_769491.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ BBC. Планета муравьёв: Взгляд изнутри / Planet Ant: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769487.jpg" />
+  <img src="Z:/picture/008/save_picture_769487.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ BBC. Наука и ислам / Science and Islam (2009) HDTVRip [H.264/720p] [3
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769485.jpg" />
+  <img src="Z:/picture/008/save_picture_769485.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ BBC. Порядок и беспорядок / Order and Disorder (2012) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769473.jpg" />
+  <img src="Z:/picture/008/save_picture_769473.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ BBC. Викинги / Vikings (2012) BDRip [H.264/720p-LQ] [Серия 1-3 из 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769470.jpg" />
+  <img src="Z:/picture/008/save_picture_769470.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769317.jpg" />
+  <img src="Z:/picture/008/save_picture_769317.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36E3D3EF782DCADC756A1C667EB5ADC76DCA39B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125442   (768738) от 14.04.2017
-
-Трагедия «Челленджера» / Challenger Disaster: Lost Tapes (2015) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм - рассказ о космическом челноке «Челленджер» (англ. Challenger, «Бросающий вызов») - многоразовом транспортном космическом корабле НАСА и его экипаже, в частности о 37-летней Шарон Кристе МакОлифф, первом гражданском человеке, запущенном в космос. МакОлифф была учителем средней школы из г. Конкорд, штат Нью-Гэмпшир. Её выбрали из тысяч претендентов, чтобы (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, космос, историяРежиссер: Том ДженнингсПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD2F9DBDAB17CA5B66CDDA3A5D0211F925DA3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393184   (768355) от 29.06.2020
-
-NG. Тайны истории: Бостонский душитель / The Hunt for the Boston Strangler (2007) SATRip (сезон 1, эпизод 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Альберт де Сальво признался в убийстве 13 женщин, полиция закрыла дело так называемого Бостонского Душителя. Последние свидетельства, однако, показывают, что, возможно, де Сальво был не виновен. Некоторые даже предполагают, что убийца спокойно ходит по улицам и сегодня.Производство: США, National GeographicЖанр: Документальный, история, кинохроника, познавательный, расследованиеРежиссер: Ноэль ДокстейдерПеревод: Двуголосый закадровый, профессиональный (Петербург - 5 канал)Субтитры: отсутствуютПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFF11360A104375ACCA8F5A04F8434133BF7C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393192   (768326) от 29.06.2020
-
-NG. Тайны истории. Эксперименты ЦРУ / CIA Secret Experiments (2007) SATRip (сезон 2, эпизод 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разгар холодной войны. В Нью-Йорке при странных обстоятельствах из окна отеля выпадает человек. В Кентукки в рамках секретного эксперимента в течение месяца заключенным дают ЛСД. В Монреале психиатр подвергает своих пациентов сотням разрядов электрошока. Насколько далеко зашло Центральное разведывательное управление в борьбе с коммунистической угрозой? Бактериальные (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, история, кинохроника, расследованиеРежиссер: Триа ТалманПеревод: Двуголосый закадровый, профессиональный (Петербург - 5 канал)Субтитры: отсутствуютПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B581DA8397FB223F24FBA4932306C3D558FE278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393199   (768316) от 29.06.2020
-
-NG. Тайны истории: Ди Би Купер. Сбежавший террорист / The Skyjacker That Got Away (2009) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768316.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Дня благодарения 1971 года человек, одетый в деловой костюм, выпрыгнул из коммерческого самолета с парашютом и двумястами тысячами долларов выкупа. Впервые в истории ФБР команда сыщиков, используя достижения современной судебной медицины, попробует разгадать тайну самого разыскиваемого человека - Ди Би Купера.Производство: США, Edge West Productions, Edge West, National GeographicЖанр: Документальный, кинохроника, криминал, расследование, историяРежиссер: Филип ДэйПеревод: Двуголосый закадровый, профессиональный (Петербург - 5 канал)Субтитры: отсутствуютПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA306D2F7EE71992EC753DCFCE881B73E2DFACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

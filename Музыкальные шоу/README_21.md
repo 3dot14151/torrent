@@ -1,3 +1,58 @@
+###  Публикация: 1574465   (385693) от 05.09.2022
+
+Ты супер! (2022) WEBRip [H.264/1080p] (сезон 6, выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385693.jpg" />
+</div>
+
+
+###  Подробнее
+
+На НТВ стартует шестой сезон международного конкурса для детей, оставшихся без попечения родителей, «Ты супер!». Каждую неделю на большую сцену будут выходить талантливые ребята, встретившие на своем пути немало трудностей, но не потерявшие веру в себя и желание стать профессиональными артистами и музыкантами.00:00 Гимн «Ты супер!» в исполнении участников шестого сезона
+01:51 Супержюри шестого сезона
+05:35 История Саши, которого младенцем родители бросили на улице
+07:40 Александр Ишатов, 13 лет, Новосибирск — «Белая ночь»(   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкальный конкурсСубтитры: ОтсутствуютПродолжительность: 02:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B897FD93EAFA62FF10691AB74E9D8166525D102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174491   (385418) от 15.10.2017
+
+Танцы (2017.10.14) WEB-DLRip (сезон 4, выпуск 9)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2EFBA825E1284F8DB2B674559B7105AE1A3C787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174492   (385097) от 15.10.2017
 
 Танцы (2017.10.14) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 9)
@@ -6,7 +61,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385097.jpg" />
+  <img src="Z:/picture/008/save_picture_385097.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384911.jpg" />
+  <img src="Z:/picture/008/save_picture_384911.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384627.jpg" />
+  <img src="Z:/picture/008/save_picture_384627.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382962.jpg" />
+  <img src="Z:/picture/008/save_picture_382962.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381167.jpg" />
+  <img src="Z:/picture/008/save_picture_381167.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380626.jpg" />
+  <img src="Z:/picture/008/save_picture_380626.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377667.jpg" />
+  <img src="Z:/picture/008/save_picture_377667.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376877.jpg" />
+  <img src="Z:/picture/008/save_picture_376877.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376853.jpg" />
+  <img src="Z:/picture/008/save_picture_376853.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374955.jpg" />
+  <img src="Z:/picture/008/save_picture_374955.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374851.jpg" />
+  <img src="Z:/picture/008/save_picture_374851.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374761.jpg" />
+  <img src="Z:/picture/008/save_picture_374761.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374639.jpg" />
+  <img src="Z:/picture/008/save_picture_374639.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374084.jpg" />
+  <img src="Z:/picture/008/save_picture_374084.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373934.jpg" />
+  <img src="Z:/picture/008/save_picture_373934.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373920.jpg" />
+  <img src="Z:/picture/008/save_picture_373920.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373343.jpg" />
+  <img src="Z:/picture/008/save_picture_373343.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372894.jpg" />
+  <img src="Z:/picture/008/save_picture_372894.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372655.jpg" />
+  <img src="Z:/picture/008/save_picture_372655.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372454.jpg" />
+  <img src="Z:/picture/008/save_picture_372454.jpg" />
 </div>
 
 
@@ -537,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372210.jpg" />
+  <img src="Z:/picture/008/save_picture_372210.jpg" />
 </div>
 
 
@@ -563,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372206.jpg" />
+  <img src="Z:/picture/008/save_picture_372206.jpg" />
 </div>
 
 
@@ -589,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371186.jpg" />
+  <img src="Z:/picture/008/save_picture_371186.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371083.jpg" />
+  <img src="Z:/picture/008/save_picture_371083.jpg" />
 </div>
 
 
@@ -626,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E90E5588B54A2EFCAACF370634C3D099DEA30A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575939   (370840) от 12.09.2022
-
-Ты супер! (2022) WEBRip [H.264/1080p] (сезон 6, выпуск 2)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй выпуск невероятного музыкального проекта «Ты супер!» на НТВ. На сцену выйдут девчонки и мальчишки, которые преодолели тысячи километров для того, чтобы на всю страну заявить о себе. Выступление каждого из них может изменить жизнь к лучшему и осуществить заветную мечту! И мы верим: у ребят всё обязательно получится, потому что все они — супер!00:00 «Ты супер!» Шестой сезон. Второй выпуск.
-Формируется...Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкальный конкурсСубтитры: ОтсутствуютПродолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF776F267A12545C8841E11594BD269D2C12820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950392   (369906) от 26.10.2015
-
-Танцы. Сезон №2. Выпуск №11 (2015.10.25) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369906.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 августа на ТНТ стартует новый сезон самого масштабного танцевального шоу страны. Создатели обещают, что он будет еще круче, ярче и мощнее: больше городов, больше претендентов, больше чем просто танцы! Заявки на участие в предварительных кастингах прислали более 10 000 человек! Отсев в этот раз был гораздо жестче, однако на телевизионных кастингах будет представлено (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669F1F0CC308405F5F91307DF73787D5D0CDFDE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

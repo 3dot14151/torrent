@@ -6,7 +6,7 @@ Sketch 52.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791479.jpg" />
+  <img src="Z:/picture/008/save_picture_791479.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DesktopOK 9.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791453.jpg" />
+  <img src="Z:/picture/008/save_picture_791453.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Complete Internet Repair 5.0.1.3852 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791448.jpg" />
+  <img src="Z:/picture/008/save_picture_791448.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Logic Pro X 10.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791444.jpg" />
+  <img src="Z:/picture/008/save_picture_791444.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791435.jpg" />
+  <img src="Z:/picture/008/save_picture_791435.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791434.jpg" />
+  <img src="Z:/picture/008/save_picture_791434.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ The Rolling Girls | Девчонки-путешественницы | Девич
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791430.jpg" />
+  <img src="Z:/picture/008/save_picture_791430.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2198 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791428.jpg" />
+  <img src="Z:/picture/008/save_picture_791428.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ MSI Kombustor 4.1.14.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791420.jpg" />
+  <img src="Z:/picture/008/save_picture_791420.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wondershare Filmora Х v10.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791419.jpg" />
+  <img src="Z:/picture/008/save_picture_791419.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Any Video Converter Professional 7.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791413.jpg" />
+  <img src="Z:/picture/008/save_picture_791413.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sonic Academy - ANA 2.0.3 r2 VSTi, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791409.jpg" />
+  <img src="Z:/picture/008/save_picture_791409.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ WinNTSetup 3.8.8.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791408.jpg" />
+  <img src="Z:/picture/008/save_picture_791408.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791403.jpg" />
+  <img src="Z:/picture/008/save_picture_791403.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AusLogics BoostSpeed 10.0.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791401.jpg" />
+  <img src="Z:/picture/008/save_picture_791401.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791398.jpg" />
+  <img src="Z:/picture/008/save_picture_791398.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Universal Media Creation Tool 15.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791389.jpg" />
+  <img src="Z:/picture/008/save_picture_791389.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ IsMyHdOK 3.44 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791386.jpg" />
+  <img src="Z:/picture/008/save_picture_791386.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ MAMP PRO 6 v6.6 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791384.jpg" />
+  <img src="Z:/picture/008/save_picture_791384.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Telegram Desktop 3.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791383.jpg" />
+  <img src="Z:/picture/008/save_picture_791383.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ ExperienceIndexOK 3.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791381.jpg" />
+  <img src="Z:/picture/008/save_picture_791381.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Machete 5.1 Build 11 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791380.jpg" />
+  <img src="Z:/picture/008/save_picture_791380.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pepakura Designer 4.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791368.jpg" />
+  <img src="Z:/picture/008/save_picture_791368.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Permute 3 v3.4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791345.jpg" />
+  <img src="Z:/picture/008/save_picture_791345.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Mountain Duck 4.0.0 (build 16449) beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791344.jpg" />
+  <img src="Z:/picture/008/save_picture_791344.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Boxy SVG 3  v3.38.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791343.jpg" />
+  <img src="Z:/picture/008/save_picture_791343.jpg" />
 </div>
 
 

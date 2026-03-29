@@ -6,7 +6,7 @@ Stray (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459321.jpg" />
+  <img src="Z:/picture/008/save_picture_459321.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Heavenly Sword (2007) [PS3] [EUR] 3.40 [Repack / 1.10] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458463.jpg" />
+  <img src="Z:/picture/008/save_picture_458463.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jurassic World Evolution (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.34 / DLC] [R
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457276.jpg" />
+  <img src="Z:/picture/008/save_picture_457276.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vampyr (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457232.jpg" />
+  <img src="Z:/picture/008/save_picture_457232.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dead or Alive 5 [Xbox360] [ENG] [PAL] [LT+ 2.0] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456926.jpg" />
+  <img src="Z:/picture/008/save_picture_456926.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Damage Inc. Pacific Squadron WWII (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456545.jpg" />
+  <img src="Z:/picture/008/save_picture_456545.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Operation Flashpoint: Dragon Rising (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456448.jpg" />
+  <img src="Z:/picture/008/save_picture_456448.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ LEGO Marvel Super Heroes 2 (2017) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455175.jpg" />
+  <img src="Z:/picture/008/save_picture_455175.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ragnarok Odyssey ACE (2013) [PS3] [USA] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455156.jpg" />
+  <img src="Z:/picture/008/save_picture_455156.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Dead Space 3 + DLC (2013) [Xbox360] [RegionFree] [FreeBoot] [Repack] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455137.jpg" />
+  <img src="Z:/picture/008/save_picture_455137.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Clash of the Titans  (2010) [PS3] [EUR] 3.21 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455011.jpg" />
+  <img src="Z:/picture/008/save_picture_455011.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ One Piece: Unlimited Cruise 2 - Awakening of a hero [WII] [PAL] [ENG] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454397.jpg" />
+  <img src="Z:/picture/008/save_picture_454397.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Othercide (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.1.0.5] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453161.jpg" />
+  <img src="Z:/picture/008/save_picture_453161.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Burnout Paradise Remastered (2018) [PS4] [EUR] 5.05 [HEN] [License / DLC] [Ru/Mu
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453015.jpg" />
+  <img src="Z:/picture/008/save_picture_453015.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ History Civil War: Secret Missions (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450148.jpg" />
+  <img src="Z:/picture/008/save_picture_450148.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Uncharted: Drake's Fortune [PS3] [EUR] [En] [1.94] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448470.jpg" />
+  <img src="Z:/picture/008/save_picture_448470.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Uncharted 2: Among Thieves [PS3] [EUR] [Ru] [2.80] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448458.jpg" />
+  <img src="Z:/picture/008/save_picture_448458.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Max Payne 3 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448450.jpg" />
+  <img src="Z:/picture/008/save_picture_448450.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ LEGO Batman 3: Beyond Gotham (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448090.jpg" />
+  <img src="Z:/picture/008/save_picture_448090.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Shantae: Half-Genie Hero (2016) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / DLC]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447954.jpg" />
+  <img src="Z:/picture/008/save_picture_447954.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Fable: The Journey [ENG] (LT+3.0/15574) [KINECT] (RegionFree) (XGD3) (2012) [Xbo
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447556.jpg" />
+  <img src="Z:/picture/008/save_picture_447556.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Transformers Devastation (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446474.jpg" />
+  <img src="Z:/picture/008/save_picture_446474.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Red Dead Redemption: Game of the Year Edition [Xbox 360] [English] [Region Free]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445317.jpg" />
+  <img src="Z:/picture/008/save_picture_445317.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Motorcycle Club (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444599.jpg" />
+  <img src="Z:/picture/008/save_picture_444599.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Far Cry 5 (2018) [PS4] [EUR] 9.0 [HEN] [License / 1.16 / DLC] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444322.jpg" />
+  <img src="Z:/picture/008/save_picture_444322.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Hitman: Absolution (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] [Russ
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444233.jpg" />
+  <img src="Z:/picture/008/save_picture_444233.jpg" />
 </div>
 
 

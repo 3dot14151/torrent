@@ -1,3 +1,90 @@
+###  Публикация: 1453915   (1026794) от 12.03.2021
+
+Carlos Boza - A Night In Alger (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,  Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Night In Alger (00:03:38)
+02. Imazighen (00:01:15)
+03. Hidden Love (00:03:30)
+04. Imaginary Moons (00:04:46)(   Читать дальше...   )Жанр: Progressive Metal,  InstrumentalПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2001DE8B89ADB280E0DDCD15B04BB1D9CA5D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453626   (1026783) от 12.03.2021
+
+Orden Ogan - Final Days (2021) [FLAC|Lossless|tracks + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of The Android 00:04:31
+02. In The Dawn Of The A 00:06:06
+03. Inferno 00:04:36
+04. Let The Fire Rain  00:04:35(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95361E628B5285EE30CBD8DFB2CB6B36005AA765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453813   (1026778) от 12.03.2021
+
+Slayer - World Painted Blood (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Painted Blood
+02. Unit 731
+03. Snuff
+04. Beauty Through Order(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583CFDFBE6327C4C7E8543732F0C279083388B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453805   (1026748) от 12.03.2021
 
 Slayer - Show No Mercy (1983) Remastered, 2004, Metal Blade Rec. [FLAC|Lossless|image + .cue] <Speed, Thrash Metal>
@@ -6,7 +93,7 @@ Slayer - Show No Mercy (1983) Remastered, 2004, Metal Blade Rec. [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026748.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ The Crown - Royal Destroyer (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026630.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Ronnie Atkins - One Shot (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026624.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Abigail / Barbatos / Abigail / Barbatos Tribute Band - Street Metal Alcoholocaus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026426.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Eisbrecher - Liebe Macht Monster (2021) [FLAC|Lossless|image + .cue] <Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026415.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Alan King Project - King of Flames (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026376.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Lazarus Dream - Alive (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026267.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Daemonlord - Hellfire Centuries (2006) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026157.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026156.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Crystal Eyes - Confessions Of The Maker (2005) [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026155.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Crystal Eyes - Vengeance Descending (2003) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026154.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Crystal Eyes - World Of Black And Silver (1999) [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026153.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Crystal Eyes - Dead City Dreaming (2006) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026152.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Michael Romeo - The Dark Chapter (1998) [APE|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026150.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Crystal Eyes - Starbourne Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026146.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Lothric - Adversarial Light (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026025.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Iotunn - Access All Worlds (2021) [FLAC|Lossless|image + .cue] <Progressive Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026011.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Fatal Embrace - The Empires of Inhumanity (2010) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025959.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Agent Steel - No Other Godz Before Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025673.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Hevilan - Symphony Of Good And Evil (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025665.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ U.D.O. - Live In Bulgaria (2020) Pandemic Survival Show, 2021 [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025658.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Saxon - Inspirations (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025653.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ A Pregnant Light - Kiss Me Thru the Phone (2021) [FLAC|Lossless|WEB-DL|Tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025497.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ A Pregnant Light - Kiss Me Thru the Phone (2021) [FLAC|Lossless|WEB-DL|Tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AAA8A180346F214599A35E5C0344EBE1D2ECF8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455797   (1025489) от 20.03.2021
-
-Disturbed - The Vengeful One (2015) Single [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vengeful One (4:12)
-02. Immortalized (4:20)
-03. The Vengeful One (Instrumental) (4:12)
-04. Immortalized (Instrumental) (4:18)Жанр: Nu Metal, Alternative MetalПродолжительность: 00:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FF5C41A787985E12E0ECF6F5E43DE7FFEC3C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153111   (1025414) от 20.03.2021
-
-Chrome Division - 5 albums (2006-2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа "Chrome Division" была основана в 2004-ом году товарищами Shagrath`ом, вокалистом symphonic black metal банды Dimmu Borgir, и Lex`ом Icon`ом, основателем The Kovenant. Но ничего похожего на только что упомянутые группы на диске под брендом  "Chrome Division" вы не услышите. А уж если говорить о похожести, то тут ближе всего подойдёт название (   Читать дальше...   )--------------------------
-
-01. Return From The Wastelands (0:41)
-02. So Fragile (3:41)(   Читать дальше...   )Жанр: Heavy Metal, Heavy Rock'n'Roll |Продолжительность: 04:52:40 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B40711838D03BC156B03F4F81D3AA2AB1F9F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455962   (1025315) от 21.03.2021
-
-Lake Of Tears - Ominous (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Progressive Metal, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Destination (4:14)
-02. In Wait And in Worries (6:47)
-03. Lost in a Moment (5:58)
-04. Ominous One (2:58)(   Читать дальше...   )Жанр: Gothic Metal, Progressive Metal, Psychedelic RockПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00407B92A52D25F3427CC02D88BF96946EBD65F
 ```
 
 https://mybot314.ru/tekegram_catalog/

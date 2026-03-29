@@ -1,3 +1,56 @@
+###  Публикация: 1561408   (515585) от 04.07.2022
+
+Дикие гризли Юкона / Yukon's Wild Grizzlies (2021) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдоль Арктического круга в северном Юконе Канады гризли добывают себе пропитание в беспощадной среде, пытаясь набрать достаточный вес, чтобы пережить долгую зимнюю спячку в своих берлогах...Производство: Канада, Omnifilm EntertainmentЖанр: документальный, познавательный, природаРежиссер: Фил ТипаниПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: серии по ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBEBD75571878361F69431936B051AA344B697B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930568   (515147) от 23.08.2015
+
+Nat Geo Wild: Дикая Тасмания. Страна Дьявола / Wild Tasmania (2000) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тасмания находится всего лишь в 240 километрах от цивилизованного и благополучного Австралийского континента. Но это совсем другой мир, загадочный, дикий, населенный животными, в существование которых сложно поверить.Телекомпания: ABC (American Broadcasting Companies) / Kane Productions InternationalЖанр: Документальный, видовой, природа,  фауна, флора,Режиссер: William LarkinПеревод: Одноголосый закадровый, профессиональный
+озвучено на студии "Велес", текст читал Олег БеловПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBAA384ACF0A9B77E971200108842E1530C5B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 625242   (513566) от 24.08.2015
 
 Nat Geo Wild: Животные-рекордсмены: Секс / Ultimate Animal Countdown: Sex (2012) SATRip
@@ -6,7 +59,7 @@ Nat Geo Wild: Животные-рекордсмены: Секс / Ultimate Anima
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513566.jpg" />
+  <img src="Z:/picture/008/save_picture_513566.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ BBC: Мир природы: Последний гризли / Natural Wold:The L
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513482.jpg" />
+  <img src="Z:/picture/008/save_picture_513482.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510112.jpg" />
+  <img src="Z:/picture/008/save_picture_510112.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Nat Geo Wild: Дикая Америка: Падальщики Йелоустоу
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509499.jpg" />
+  <img src="Z:/picture/008/save_picture_509499.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507221.jpg" />
+  <img src="Z:/picture/008/save_picture_507221.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505908.jpg" />
+  <img src="Z:/picture/008/save_picture_505908.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505771.jpg" />
+  <img src="Z:/picture/008/save_picture_505771.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503360.jpg" />
+  <img src="Z:/picture/008/save_picture_503360.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503358.jpg" />
+  <img src="Z:/picture/008/save_picture_503358.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503333.jpg" />
+  <img src="Z:/picture/008/save_picture_503333.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503295.jpg" />
+  <img src="Z:/picture/008/save_picture_503295.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502613.jpg" />
+  <img src="Z:/picture/008/save_picture_502613.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502494.jpg" />
+  <img src="Z:/picture/008/save_picture_502494.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501134.jpg" />
+  <img src="Z:/picture/008/save_picture_501134.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500135.jpg" />
+  <img src="Z:/picture/008/save_picture_500135.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499669.jpg" />
+  <img src="Z:/picture/008/save_picture_499669.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499667.jpg" />
+  <img src="Z:/picture/008/save_picture_499667.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ Nat Geo Wild: Чудаки животного мира. Африканская �
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499274.jpg" />
+  <img src="Z:/picture/008/save_picture_499274.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499124.jpg" />
+  <img src="Z:/picture/008/save_picture_499124.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498567.jpg" />
+  <img src="Z:/picture/008/save_picture_498567.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ BBC. Истоки жизни. Зарождение (Первая жизнь с �
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495206.jpg" />
+  <img src="Z:/picture/008/save_picture_495206.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492487.jpg" />
+  <img src="Z:/picture/008/save_picture_492487.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492451.jpg" />
+  <img src="Z:/picture/008/save_picture_492451.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492309.jpg" />
+  <img src="Z:/picture/008/save_picture_492309.jpg" />
 </div>
 
 
@@ -615,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5325C183E8EAD7975A43781C0652DDA70D380AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545071   (487544) от 09.09.2012
-
-Лесные тайны [1-3] / Geheimnisse des Waldes (2007) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познавательный трехсерийный фильм о лесе и отношении к нему в Австрии и Германии.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3х ~ 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9108EEAA232D67D8C0FEDB50B163ED899EF985E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383815   (486972) от 04.09.2011
-
-BBC. Истоки жизни. Завоевание (Первая жизнь с Дэвидом Аттенборо) / First Life. Conquest (David Attenborough's First Life) (2010) HDRip (серия 2 из 2) [VO]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486972.jpg" />
-</div>
-
-
-###  Подробнее
-
-От побережья Ньюфаундленда, окутанного туманом, до пустынь Северной Америки и тропических джунглей Квинсленда Дэвид Аттенборо в фильме "Первая жизнь" ищет доказательство в окаменелостях и животных невероятного периода истории Земли полмиллиарда лет назад, когда животные впервые появились в океанах. От первых глаз, которые видели, до первых хищников, которые (   Читать дальше...   )Производство: Великобритания, An Atlantic Production, BBC, Discovery Channel, Australian Broadcasting CorporationЖанр: Документальный, научно-познавательныйРежиссер: Мартин УильямсПеревод: Одноголосый закадровый, любительский (Владимир Курдов)Продолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2083AEFC30B5BA60B3FBDF9C38EC5614E00F127E
 ```
 
 https://mybot314.ru/tekegram_catalog/

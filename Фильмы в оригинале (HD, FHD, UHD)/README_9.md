@@ -1,3 +1,107 @@
+###  Публикация: 1378294   (846139) от 25.04.2020
+
+Жиголо / Aap wong / The Gigolo (2015) BDRip [H.264/1080p] [Chi / Ru, En Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фунг — бедный парень, которому приходится повзрослеть, когда его мать «выбывает из строя» с травмой спины. Фунг устраивается в ночной клуб своей родственницы уборщиком, но его соблазнительная внешность привлекает внимание богатых посетительниц, которые подбивают паренька попробовать себя в качестве жиголо. Одной из его постоянных клиенток становится Мишель, жена (   Читать дальше...   )Производство: ГонконгЖанр: драма, мелодрама, комедияРежиссер: Ау Чёк-МаньАктеры: Доминик Хо, Кэнди Юэнь, Джана Хо, Хэйзел Тун, Винни Люн, Wing-Yu Cheung, Nancy Chow, Wong Chun-Tong, Jolie Fan, Kai-Wa HoПеревод: ОтсутствуетЯзык озвучки: КитайскийСубтитры: Русские, английскиеПродолжительность: 01:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9585BAC9B567E50C868B63143CF03A18C13EDB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112137   (844773) от 07.03.2017
+
+Закон ночи / Live by Night (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в Америке времен сухого закона. Главный герой картины, сын полицейского, зарабатывает бутлегерством, в результате чего он оказывается вовлечен в жизнь криминального мира.Производство: США, Appian Way, Pearl Street Films, RatPac-Dune Entertainment, Warner Bros.Жанр: Драма, КриминалРежиссер: Бен АффлекАктеры: Бен Аффлек, Крис Мессина, Зои Салдана, Сиенна Миллер, Крис Купер, Эль Фаннинг, Брендан Глисон, Мигель, Ремо Джироне, Роберт Гленистер ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D64D388F697BEACD4315BD706CE13A9F6B206C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112289   (842918) от 08.03.2017
+
+Рок-н-рольщики / Синг Стрит / Sing Street (2016) HDRip [H.264/1080p-LQ] [EN / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная комедия о мальчишке из Дублина по имени Конор, которого из-за финансовых проблем в семье переводят из дорогой частной школы в бесплатную, зато с хорошей репутацией. Выясняется, что это христианская школа с очень консервативными правилами и задиристыми учениками. Но нет худа без добра – там он заводит новых друзей и по воле случая знакомится с девушкой, (   Читать дальше...   )Производство: Ирландия, Великобритания, США / Cosmo Films, Distressed Films, FilmNation Entertainment, FilmWave, Likely Story, PalmStar MediaЖанр: Драма, Комедия, Музыкальный, МелодрамаРежиссер: Джон КарниАктеры: Фердия Уолш-Пило, Люси Бойнтон, Эйдан Гиллен, Мария Дойл Кеннеди, Джек Рейнор, Келли Торнтон, Лидия МакГиннесс, Кайл Брэдли Дональдсон, Марк МакКенна, Падриг Дж. Данн,..Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русский (отдельным файлом)Продолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2743283C5A902475809AFA00AE719D9EB3420909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112653   (841436) от 09.03.2017
+
+Ловушка / A Kind of Murder  (2016) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, шестидесятые годы прошлого века. Стэкхаусы - внешне идеальная семейная пара: молодые, красивые, успешные. Он - удачливый архитектор, она - процветающий риелтор и великолепная хозяйка великолепного дома. На самом деле Уолтер давно думает о разводе, потому что Клара замучила его своими претензиями, истериками, ревностью и угрозами покончить с собой, если (   Читать дальше...   )Производство: СШАЖанр: триллер, драмаРежиссер: Энди ГоддардАктеры: Патрик Уилсон, Хейли Беннетт, Джессика Бил, Винсент Картайзер, Эдди Марсан, Радек Лорд, Кен Штрунк, Корри Дэниэли, Джон Осбек, Кристин А. Дай, Дженнифер ЭнскатПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173A62D84329841C8B7F2A9ADBD94B82E1A2B948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500363   (841078) от 06.10.2021
 
 Дом на другой стороне / The Night House (2020) WEB-DL [H.264/1080p] [EN]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841078.jpg" />
+  <img src="Z:/picture/008/save_picture_841078.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840629.jpg" />
+  <img src="Z:/picture/008/save_picture_840629.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839877.jpg" />
+  <img src="Z:/picture/008/save_picture_839877.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839658.jpg" />
+  <img src="Z:/picture/008/save_picture_839658.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839649.jpg" />
+  <img src="Z:/picture/008/save_picture_839649.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839640.jpg" />
+  <img src="Z:/picture/008/save_picture_839640.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839522.jpg" />
+  <img src="Z:/picture/008/save_picture_839522.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839519.jpg" />
+  <img src="Z:/picture/008/save_picture_839519.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839407.jpg" />
+  <img src="Z:/picture/008/save_picture_839407.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839406.jpg" />
+  <img src="Z:/picture/008/save_picture_839406.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838406.jpg" />
+  <img src="Z:/picture/008/save_picture_838406.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838073.jpg" />
+  <img src="Z:/picture/008/save_picture_838073.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837741.jpg" />
+  <img src="Z:/picture/008/save_picture_837741.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837626.jpg" />
+  <img src="Z:/picture/008/save_picture_837626.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837623.jpg" />
+  <img src="Z:/picture/008/save_picture_837623.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837117.jpg" />
+  <img src="Z:/picture/008/save_picture_837117.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836322.jpg" />
+  <img src="Z:/picture/008/save_picture_836322.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834934.jpg" />
+  <img src="Z:/picture/008/save_picture_834934.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833994.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833925.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833911.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833423.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADD9D7C919475F5E30651E35BC98F97E3D23FD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114448   (833291) от 14.03.2017
-
-Кража / Larceny (2017) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек бывший сотрудник ЦРУ, работающий ныне в команде первоклассных грабителей. Совершив очередное крупное ограбление в Мексике, команда едет к границе, но внезапно власти берут их в оборот и Джек попадает в лапы мексиканской полиции. В камере Джека посещает его бывший коллега по ЦРУ, агент Прайс, который сообщает ему, что тот оправляется в суперкрутую и продвинутую (   Читать дальше...   )Производство: США, Мексика / Badhouse Studios Mexico, Parkside Pictures, Tadross Media GroupЖанр: Боевик, ТриллерРежиссер: Р. Эллис ФрэзиерАктеры: Дольф Лундгрен, Корбин Бернсен, Луис Мэндилор, Айзек С. Синглтон мл., Жослин Осорио, Эдди Дж. Фернандез, Дэвид Фернандез, Луис Гатика, Стивен Делл, Маурисио Мендоса ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7032DE2F4003A930AAE27ECB48BDE9B069F72A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114428   (833287) от 14.03.2017
-
-Почему он? / Why Him? (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава семейства вступает в противостояние с молодым и богатым парнем своей дочери.Производство: США, Камбоджа / Twentieth Century Fox Film Corporation, Red Hour Films, 21 Laps Entertainment, TSG EntertainmentЖанр: КомедияРежиссер: Джон ГамбургАктеры: Брайан Крэнстон, Джеймс Франко, Зои Дойч, Меган Маллалли, Гриффин Глюк, Кигэн-Майкл Ки, Седрик «Развлекатель», Зак Перлман, Адам Дивайн, Боб Стефенсон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219FFDB2EC3AE65D3B86D1F7066CB39E0D0E1197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114325   (833286) от 14.03.2017
-
-Кредо убийцы / Assassin's Creed (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря революционным технологиям, позволяющим вызвать в памяти воспоминания прежних поколений, Каллум Линч проживает приключения своего предка Агилара в Испании 15-го века. Каллум узнает, что является потомком членов загадочного тайного общества ассасинов. Накопив невероятные знания и навыки, он вступает в противостояние с могущественной и жестокой организацией (   Читать дальше...   )Производство: Великобритания, Франция, Гонконг, США, Alpha Pictures, CatchPlay, Ubisoft, Ubisoft Motion PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джастин КурзельАктеры: Майкл Фассбендер, Марион Котийяр, Джереми Айронс, Брендан Глисон, Шарлотта Рэмплинг, Майкл Кеннет Уильямс, Дени Меноше, Ариана Лабед, Халид Абдалла, Эсси ДэвисПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821929B6D4C96D51FF3BFFB2DB1428743D3DAB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114429   (833032) от 14.03.2017
-
-Молчание / Silence (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833032.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XVII веке два священника-иезуита подвергаются насилию и преследованиям во время странствия по Японии, куда они приехали с целью найти своего наставника и распространять христианское Евангелие.Производство: Мексика, Тайвань, США / Cappa Defina Productions, Emmett/Furla/Oasis Films (EFO Films), Fbrica de Cine, SharpSword Films, Sikelia Productions, Verdi Productions, Waypoint EntertainmentЖанр: Драма, ИсторияРежиссер: Мартин СкорсезеАктеры: Эндрю Гарфилд, Адам Драйвер, Лиам Нисон, Таданобу Асано, Киран Хайндс, Иссэй Огата, Синья Цукамото, Ёси Оида, Ёскэ Кубодзука, Каору Эндо ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FE8C8B60E7EDBCD5590899117FC1FDF157A477
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Tor Browser Bundle 8.0.6 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741987.jpg" />
+  <img src="Z:/picture/008/save_picture_741987.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741986.jpg" />
+  <img src="Z:/picture/008/save_picture_741986.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741983.jpg" />
+  <img src="Z:/picture/008/save_picture_741983.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741973.jpg" />
+  <img src="Z:/picture/008/save_picture_741973.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Puddle THD 1.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741961.jpg" />
+  <img src="Z:/picture/008/save_picture_741961.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WinTools.net Premium 16.5.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741956.jpg" />
+  <img src="Z:/picture/008/save_picture_741956.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Principle 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741955.jpg" />
+  <img src="Z:/picture/008/save_picture_741955.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Folx Downloader Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741952.jpg" />
+  <img src="Z:/picture/008/save_picture_741952.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ CCleaner 5.18.5607 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741949.jpg" />
+  <img src="Z:/picture/008/save_picture_741949.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ WiFi Radar Pro 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741948.jpg" />
+  <img src="Z:/picture/008/save_picture_741948.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Auslogics BoostSpeed 10.0.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741930.jpg" />
+  <img src="Z:/picture/008/save_picture_741930.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Advanced Renamer 3.82 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_741928.jpg" />
+  <img src="Z:/picture/005/save_picture_741928.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741924.jpg" />
+  <img src="Z:/picture/008/save_picture_741924.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Media Player Classic Home Cinema 1.7.16 RePack (& portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741922.jpg" />
+  <img src="Z:/picture/008/save_picture_741922.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7229.5000 (2019.02) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741861.jpg" />
+  <img src="Z:/picture/008/save_picture_741861.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Wise Disk Cleaner 8.44.598 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741843.jpg" />
+  <img src="Z:/picture/008/save_picture_741843.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ IObit Uninstaller 4.3.0.118 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741836.jpg" />
+  <img src="Z:/picture/008/save_picture_741836.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Cardiant - Verge (2013) Japanese Edition [MP3|320 кб/с]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741830.jpg" />
+  <img src="Z:/picture/008/save_picture_741830.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Sandra - The Very Best Of Sandra (2016) Compilation, 2CD [FLAC|Lossless|WEB-DL|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741810.jpg" />
+  <img src="Z:/picture/008/save_picture_741810.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ K-Lite Codec Pack Update 11.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741748.jpg" />
+  <img src="Z:/picture/008/save_picture_741748.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ IObit Smart Defrag 4.0.2.698 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741747.jpg" />
+  <img src="Z:/picture/008/save_picture_741747.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Skype 7.4.32.102 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741740.jpg" />
+  <img src="Z:/picture/008/save_picture_741740.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Coolutils Total PDF Converter 5.1.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741733.jpg" />
+  <img src="Z:/picture/008/save_picture_741733.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Anvir Task Manager 8.1.2 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741727.jpg" />
+  <img src="Z:/picture/008/save_picture_741727.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ GPU Caps Viewer 1.30.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741723.jpg" />
+  <img src="Z:/picture/008/save_picture_741723.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Avira Phantom VPN Pro 2.12.8.21350 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741707.jpg" />
+  <img src="Z:/picture/008/save_picture_741707.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MInstAll Portable-Soft 01.05.2017 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714033.jpg" />
+  <img src="Z:/picture/008/save_picture_714033.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Insofta Cover Commander 5.5.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714027.jpg" />
+  <img src="Z:/picture/008/save_picture_714027.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Monoloc & Beauty of Inconsequenz - Storyline EP (2018) Unterland Records [FLAC|L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714019.jpg" />
+  <img src="Z:/picture/008/save_picture_714019.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713991.jpg" />
+  <img src="Z:/picture/008/save_picture_713991.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ YouTube Video Downloader PRO 5.7 (20160511) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713988.jpg" />
+  <img src="Z:/picture/008/save_picture_713988.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Audio Hijack 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713975.jpg" />
+  <img src="Z:/picture/008/save_picture_713975.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713959.jpg" />
+  <img src="Z:/picture/008/save_picture_713959.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Capture Gif 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713952.jpg" />
+  <img src="Z:/picture/008/save_picture_713952.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713950.jpg" />
+  <img src="Z:/picture/008/save_picture_713950.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Blocs 2.0.7 (118) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713945.jpg" />
+  <img src="Z:/picture/008/save_picture_713945.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713942.jpg" />
+  <img src="Z:/picture/008/save_picture_713942.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ MCS Drivers Disk v.12.3.0.1180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713938.jpg" />
+  <img src="Z:/picture/008/save_picture_713938.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713936.jpg" />
+  <img src="Z:/picture/008/save_picture_713936.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713934.jpg" />
+  <img src="Z:/picture/008/save_picture_713934.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713932.jpg" />
+  <img src="Z:/picture/008/save_picture_713932.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713926.jpg" />
+  <img src="Z:/picture/008/save_picture_713926.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Kinza Browser 4.6.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713906.jpg" />
+  <img src="Z:/picture/008/save_picture_713906.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ save2pc Ultimate 5.5.4.1575 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713900.jpg" />
+  <img src="Z:/picture/008/save_picture_713900.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ DJ Suhov - Live In Vozduh (2010) [MP3|320 kbps]<Progressive House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_713830.jpg" />
+  <img src="Z:/picture/005/save_picture_713830.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ TG Pro (Temperature Gauge Pro) 2.9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713825.jpg" />
+  <img src="Z:/picture/008/save_picture_713825.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ iconStiX 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713823.jpg" />
+  <img src="Z:/picture/008/save_picture_713823.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713809.jpg" />
+  <img src="Z:/picture/008/save_picture_713809.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Soft Organizer 5.11 RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713805.jpg" />
+  <img src="Z:/picture/008/save_picture_713805.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ GoodSync Enterprise 10.8.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713789.jpg" />
+  <img src="Z:/picture/008/save_picture_713789.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713787.jpg" />
+  <img src="Z:/picture/008/save_picture_713787.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ YTD Video Downloader PRO 5.9.5 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713786.jpg" />
+  <img src="Z:/picture/008/save_picture_713786.jpg" />
 </div>
 
 

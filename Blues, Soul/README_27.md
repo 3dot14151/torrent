@@ -1,3 +1,32 @@
+###  Публикация: 1063981   (430342) от 18.10.2016
+
+Nick Michael Taylor - Sweet Sour And Blue (2015) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying Out To You   (04:01)
+02. Keep On Running   (03:39)
+03. Your Kind Of Love (Is Better Than No Love At All)   (03:17)
+04. Had To Cry Today   (06:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0C47CD938A71F4FA2FC2E01F1555B596366C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249970   (429137) от 26.09.2018
 
 Chris Farlowe - Hotel Eingang (2008) [MP3|320 Kbps] <Blues Rock>
@@ -6,7 +35,7 @@ Chris Farlowe - Hotel Eingang (2008) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429137.jpg" />
+  <img src="Z:/picture/008/save_picture_429137.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vidar Busk & His True Believers - Stompin' Our Feet With Joy (2011) [MP3|320 к�
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425255.jpg" />
+  <img src="Z:/picture/008/save_picture_425255.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jeff Pitchell and Texas Flood - Fat Cigars (1997) [MP3|320 кб/с]<Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425251.jpg" />
+  <img src="Z:/picture/008/save_picture_425251.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stacie Collins - Roll the Dice (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425155.jpg" />
+  <img src="Z:/picture/008/save_picture_425155.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Cookie McGee - One Way Ticket (2010) [MP3|320 кб/с]<Blues, Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425152.jpg" />
+  <img src="Z:/picture/008/save_picture_425152.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ John Mayall And The Bluesbreakers - A Hard Road (1967) Reissue, 1987, London Rec
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424436.jpg" />
+  <img src="Z:/picture/008/save_picture_424436.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Elvin Bishop & Charlie Musselwhite - 100 Years Of Blues (2020) [MP3|320 Kbps] <B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422970.jpg" />
+  <img src="Z:/picture/008/save_picture_422970.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Grace Lougen - Grace Blues Project (2014) [MP3|320 Kbps] <Blues, Guitar Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421890.jpg" />
+  <img src="Z:/picture/008/save_picture_421890.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Amy Arlo & Almost Blue - Deeper Shade of Blue (2016) [MP3|320 Kbps] <Electric Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421777.jpg" />
+  <img src="Z:/picture/008/save_picture_421777.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420984.jpg" />
+  <img src="Z:/picture/008/save_picture_420984.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Kurt Allen - Whiskey, Women & Trouble (2020) [MP3|320 Kbps] <Blues Rock, Funky B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420441.jpg" />
+  <img src="Z:/picture/008/save_picture_420441.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Jake Green Band - Plugging In (2015) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419708.jpg" />
+  <img src="Z:/picture/008/save_picture_419708.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Garou - Rhythm and Blues (2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418651.jpg" />
+  <img src="Z:/picture/008/save_picture_418651.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Junior Wells & Buddy Guy - 33 Albums (1965-2010) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_417794.jpg" />
+  <img src="Z:/picture/005/save_picture_417794.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Deanna Bogart - Pianoland (2012) [MP3|320 Kbps] <Country Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417569.jpg" />
+  <img src="Z:/picture/008/save_picture_417569.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Eilen Jewell - Down Hearted Blues (2017) [MP3|320 Kbps] <Blues, Country, America
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417420.jpg" />
+  <img src="Z:/picture/008/save_picture_417420.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ Mick Abrahams - Long Long Gone (2016) [MP3|320 Kbps] <Blues, Instrumental>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414748.jpg" />
+  <img src="Z:/picture/008/save_picture_414748.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Kerry Pastine And The Crime Scene - City Of Love (2019) [MP3|320 Kbps] <Rockin' 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414664.jpg" />
+  <img src="Z:/picture/008/save_picture_414664.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Ali Maas & Micky Moody - Black & Chrome (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414579.jpg" />
+  <img src="Z:/picture/008/save_picture_414579.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ Jackie Venson - Live in Texas (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413612.jpg" />
+  <img src="Z:/picture/008/save_picture_413612.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Sue Foley - The Ice Queen (2018) Deluxe Edition [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413351.jpg" />
+  <img src="Z:/picture/008/save_picture_413351.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Tommy McLain - I Ran Down Every Dream (2022) [MP3|320 Kbps] <Roots, Country, Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412371.jpg" />
+  <img src="Z:/picture/008/save_picture_412371.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ The Beat Daddys - 5 Moons (2006) [MP3|320 Kbps] <Blues, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410605.jpg" />
+  <img src="Z:/picture/008/save_picture_410605.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Val Starr & The Blues Rocket - I Always Turn The Blues On (2017) [MP3|320 Kbps] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410558.jpg" />
+  <img src="Z:/picture/008/save_picture_410558.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Ben Granfelt - True Colours (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409995.jpg" />
+  <img src="Z:/picture/008/save_picture_409995.jpg" />
 </div>
 
 
@@ -724,35 +753,6 @@ Ben Granfelt - True Colours (2020) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C296F5BCDD2062255D5FF3E5ED92BB699BE91415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413323   (409864) от 03.10.2020
-
-Magnolia Bayou - Strange Place (2020) [MP3|320 Kbps] <Southern Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dig Deep (04:12)
- 02. Sleepin' in the Dog House (04:06)
- 03. Sugarspell (04:01)
- 04. Preachin' Blues (05:08)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B03594C8DDA885176885569E48577BD5F9B293
 ```
 
 https://mybot314.ru/tekegram_catalog/

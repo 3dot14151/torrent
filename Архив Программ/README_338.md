@@ -6,7 +6,7 @@ BELOFF [dp] 2021.09.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880360.jpg" />
+  <img src="Z:/picture/005/save_picture_880360.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Nitro Pro 10.5.8.44 RePack by D!akov  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880356.jpg" />
+  <img src="Z:/picture/005/save_picture_880356.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MediaHuman YouTube Downloader 3.9.9.35 (0204) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880334.jpg" />
+  <img src="Z:/picture/005/save_picture_880334.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ uTorrent 3.5.5 Build 46096 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880267.jpg" />
+  <img src="Z:/picture/005/save_picture_880267.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe InDesign CC 2015.3 11.3.0.34 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880256.jpg" />
+  <img src="Z:/picture/008/save_picture_880256.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft .NET Framework 3.5 SP-1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880244.jpg" />
+  <img src="Z:/picture/005/save_picture_880244.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ XMedia Recode 3.4.9.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880228.jpg" />
+  <img src="Z:/picture/005/save_picture_880228.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Viber 12.7.1.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880223.jpg" />
+  <img src="Z:/picture/005/save_picture_880223.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ FinePrint Software (FinePrint 10.22 / pdfFactory Pro 7.22) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880151.jpg" />
+  <img src="Z:/picture/005/save_picture_880151.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ HDCleaner 1.290 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880150.jpg" />
+  <img src="Z:/picture/005/save_picture_880150.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ mp3DirectCut 2.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880149.jpg" />
+  <img src="Z:/picture/005/save_picture_880149.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mozilla Firefox Quantum ESR 68.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880142.jpg" />
+  <img src="Z:/picture/005/save_picture_880142.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ mp3DirectCut 2.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880141.jpg" />
+  <img src="Z:/picture/005/save_picture_880141.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Viber 12.7.1.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880134.jpg" />
+  <img src="Z:/picture/005/save_picture_880134.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ WhatsApp 0.4.2088 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880071.jpg" />
+  <img src="Z:/picture/005/save_picture_880071.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The Bat! Professional Edition 7.4.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880068.jpg" />
+  <img src="Z:/picture/005/save_picture_880068.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Firefox Browser 75.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880040.jpg" />
+  <img src="Z:/picture/005/save_picture_880040.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Balabolka 2.15.0.738 + Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879974.jpg" />
+  <img src="Z:/picture/005/save_picture_879974.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Rainlendar Pro 2.15.4 Build 166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879951.jpg" />
+  <img src="Z:/picture/005/save_picture_879951.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WhatsApp 0.4.2088 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879895.jpg" />
+  <img src="Z:/picture/005/save_picture_879895.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Kerish Doctor 2020 4.80 DC 30.03.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879850.jpg" />
+  <img src="Z:/picture/005/save_picture_879850.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ CoolUtils PDF Combine Pro 4.1.67 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879778.jpg" />
+  <img src="Z:/picture/005/save_picture_879778.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ K-Lite Codec Pack 15.4.4 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879737.jpg" />
+  <img src="Z:/picture/005/save_picture_879737.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Eassos System Restore 2.0.2.482 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879641.jpg" />
+  <img src="Z:/picture/005/save_picture_879641.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ DriverPack Solution 17.10.14 Полная версия (DP 20035) [Multi/Ru] (о
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879615.jpg" />
+  <img src="Z:/picture/005/save_picture_879615.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Autodesk AutoCAD 2021 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879608.jpg" />
+  <img src="Z:/picture/005/save_picture_879608.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 953846   (344777) от 06.11.2015
+
+Johnny "Hammond" Smith - Open House (1963) /2001, Milestone/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Open House [04:39]
+ 02.Cyra [05:28]
+ 03.I Remember You [05:02]
+ 04.Theme From Cleopatra [02:37](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1D8FAD3B78868D7ED6B9BFFFDF33CF761C5A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179655   (344692) от 02.11.2017
+
+Julian & Roman Wasserfuhr - Gravity (2011) ACT [FLAC|Lossless|image + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twinkle Eyes [04:55]
+02. English Man In New York [05:38]
+03. Interlude [01:32]
+04. L.O.V.E. [05:20](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FDBC1E0557E00EE9E314D9DAFF24E178EC5681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179959   (344688) от 02.11.2017
+
+Cootie Williams - In Hi-Fi (1958) 1999, RCA Victor [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just in Time [03:31]
+02. Summit Ridge Drive [03:21]
+03. Nevertheless, I'm In Love With You [03:43]
+04. On The Street Where You Live [03:30](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75CE5EF6026E8F2ED3EA3AC8391218A361E3C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179654   (344687) от 02.11.2017
+
+Paul Jackson, Jr. - I Came To Play (1988) Atlantic [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Came to Play [04:29]
+02. My Love's for Real [05:19]
+03. Morning Joy [04:44]
+04. Personal Touch [05:56](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8117C6E7A1CBFD6293ACC0DC1D877B58CA9D591C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179955   (344684) от 02.11.2017
 
 Paul Jackson, Jr. - Out Of The Shadows (1990) 2014, Warner [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
@@ -6,7 +122,7 @@ Paul Jackson, Jr. - Out Of The Shadows (1990) 2014, Warner [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344684.jpg" />
+  <img src="Z:/picture/008/save_picture_344684.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Jon Ballantyne And Paul Bley - A Musing (1991) Justin Time Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344680.jpg" />
+  <img src="Z:/picture/008/save_picture_344680.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Wes Montgomery - The Incredible Jazz Guitar Of Wes Montgomery (1960) /2008, Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344660.jpg" />
+  <img src="Z:/picture/008/save_picture_344660.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Karen Souza - Language Of Love (2020) Japanese Edition [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344308.jpg" />
+  <img src="Z:/picture/008/save_picture_344308.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Paul Bley - Basics (2001) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343657.jpg" />
+  <img src="Z:/picture/008/save_picture_343657.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Enrico Pieranunzi - Jazz Roads (1980) 2002, CAMJazz [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343649.jpg" />
+  <img src="Z:/picture/008/save_picture_343649.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Italian Secret Service - Not The Same (2009) [FLAC|Lossless]<Acid Jazz, Lounge>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343637.jpg" />
+  <img src="Z:/picture/005/save_picture_343637.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ Niels Henning Orsted Pedersen (NHOP) & Mulgrew Miller - The Duo-Live! (2000) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343582.jpg" />
+  <img src="Z:/picture/008/save_picture_343582.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Gary Burton - Libertango (The Music of Astor Piazzolla) (1999) [APE|Lossless]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343502.jpg" />
+  <img src="Z:/picture/005/save_picture_343502.jpg" />
 </div>
 
 
@@ -279,7 +395,7 @@ Ben Sidran - Don't Cry For No Hipster (2012) [FLAC|Lossless]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343367.jpg" />
+  <img src="Z:/picture/005/save_picture_343367.jpg" />
 </div>
 
 
@@ -314,7 +430,7 @@ Byron Wallen - Meeting Ground (2007) Twilight Jaquar[FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343249.jpg" />
+  <img src="Z:/picture/008/save_picture_343249.jpg" />
 </div>
 
 
@@ -343,7 +459,7 @@ George Adams / Don Pullen Quartet - Earth Beams (1980) Remaster, 2015, Solid Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343243.jpg" />
+  <img src="Z:/picture/008/save_picture_343243.jpg" />
 </div>
 
 
@@ -372,7 +488,7 @@ The Ed Palermo Big Band - One Child Left Behind (2016) Cuneiform Records[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343212.jpg" />
+  <img src="Z:/picture/008/save_picture_343212.jpg" />
 </div>
 
 
@@ -401,7 +517,7 @@ Rene Aubry - Refuges (2011) [FLAC|Lossless]<Future Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343199.jpg" />
+  <img src="Z:/picture/005/save_picture_343199.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ Reggie Workman - Cerebral Caverns (2004) [FLAC|Lossless]<Jazz, Avant-Garde Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343178.jpg" />
+  <img src="Z:/picture/008/save_picture_343178.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ Paul Cacia Big Band - Portrait (1992) 2003 [FLAC|Lossless|image + .cue] <Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343056.jpg" />
+  <img src="Z:/picture/008/save_picture_343056.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Judy Garland - America's Treasure (1960) 1986, Del Pack[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343053.jpg" />
+  <img src="Z:/picture/008/save_picture_343053.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ Zone - Metade (2011) Dneeyedfish [FLAC|Lossless|image + .cue] <World Fusion, Eth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342949.jpg" />
+  <img src="Z:/picture/008/save_picture_342949.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ Charles Lloyd New Quartet - Passin' Thru (2017) Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342805.jpg" />
+  <img src="Z:/picture/008/save_picture_342805.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ Nina Simone - The Nina Simone Anthology (1960-e - 1970-e) 2013, 2CD, Salvo [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342044.jpg" />
+  <img src="Z:/picture/008/save_picture_342044.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ Lee Konitz & Dan Tepfer - Decade (2010 - 2016) 2018, Verve [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341443.jpg" />
+  <img src="Z:/picture/008/save_picture_341443.jpg" />
 </div>
 
 
@@ -639,7 +755,7 @@ Johnny Griffin - Seven Classic Albums, Vol.2 (1958 - 1962) 4CD, 2014, Real Gone 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341441.jpg" />
+  <img src="Z:/picture/008/save_picture_341441.jpg" />
 </div>
 
 
@@ -653,122 +769,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47ACD16475CADE3EE07D04CEFC00383FE9B6CE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257967   (341440) от 28.10.2018
-
-Florian Pellissier Quintet - Bijou Voyou Caillou (2018) Heavenly Sweetness [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuck with the Police [9:28]
-02. South Beach [6:50]
-03. Bijou voyou caillou [5:36]
-04. Hibou bleu [4:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21C98DF1FD03D43F0E5EACD4353CE8BD33E1B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330446   (341397) от 10.10.2019
-
-Paul Bley - A Free Spirit (1953 - 1963) 2016, Musica Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Will the Blues Leave [6:14]
-02. Floater [6:32]
-03. Turns [3:21]
-04. Around Again [4:13](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 01:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083BB59D1CB6596CD495A86EF655CAA70A2BDD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257778   (341352) от 28.10.2018
-
-Claude Quartet - Bolling: Concerto for Classical Guitar and Jazz Piano Trio, Sonate pour Guitare (2016) Brilliant Classics [FLAC|Lossless|tracks + .cue] <Third Stream, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hispanic Dance [5:38]
-02. Mexicaine [7:13]
-03. Invention [4:14]
-04. Serenade [5:23](   Читать дальше...   )Жанр: Third Stream, Piano JazzПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D8816FF20B6A934292EA9CF1ABA39082004957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330367   (341309) от 10.10.2019
-
-Sylvia Vrethammar - Vortex (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Bossa>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Round Midnight
-02. The Look of Love
-03. Love for Sale
-04. Corcovado(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, BossaПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320917BE73D05A104172D1160961CF053928B2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

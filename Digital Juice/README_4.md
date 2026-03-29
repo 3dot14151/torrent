@@ -6,7 +6,7 @@ Digital Juice - Jump Backs SD 40: Ethereal (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405560.jpg" />
+  <img src="Z:/picture/008/save_picture_405560.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Digital Juice - Jump Backs SD 28: Subtle Impact II (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405543.jpg" />
+  <img src="Z:/picture/008/save_picture_405543.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Digital Juice - Jump Backs SD 49: All Particles (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405540.jpg" />
+  <img src="Z:/picture/008/save_picture_405540.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Digital Juice - Jump Backs SD 27: International Flags (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405537.jpg" />
+  <img src="Z:/picture/008/save_picture_405537.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Digital Juice - Jump Backs SD 55: Drift Away I (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405535.jpg" />
+  <img src="Z:/picture/008/save_picture_405535.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Digital Juice - Jump Backs SD 39: Base Camp II (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405530.jpg" />
+  <img src="Z:/picture/008/save_picture_405530.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Digital Juice - Jump Backs SD 50: Fresh Crawl (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405505.jpg" />
+  <img src="Z:/picture/008/save_picture_405505.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Digital Juice - Editor's Themekit 100: Medicinal Effects (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405475.jpg" />
+  <img src="Z:/picture/008/save_picture_405475.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Digital Juice - Jump Backs SD 44: Chaos (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404874.jpg" />
+  <img src="Z:/picture/008/save_picture_404874.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Digital Juice - Jump Backs SD 42: Soft & Subtle (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404864.jpg" />
+  <img src="Z:/picture/008/save_picture_404864.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Digital Juice - Jump Backs SD 47: Simple Thoughts (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404819.jpg" />
+  <img src="Z:/picture/008/save_picture_404819.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Digital Juice - Jump Backs SD 43: Dynamic Impact (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404816.jpg" />
+  <img src="Z:/picture/008/save_picture_404816.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Digital Juice - Jump Backs SD 46: Side Scrollers (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404815.jpg" />
+  <img src="Z:/picture/008/save_picture_404815.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Digital Juice - Jump Backs SD 41: Pure Tech (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404812.jpg" />
+  <img src="Z:/picture/008/save_picture_404812.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Digital Juice - Jump Backs SD 45: Ultra Funk (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404435.jpg" />
+  <img src="Z:/picture/008/save_picture_404435.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Digital Juice - Animated Canvases Collection 09: Clear Visions (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397587.jpg" />
+  <img src="Z:/picture/008/save_picture_397587.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Digital Juice - Jump Backs SD 24: Tunnel Vision I (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395724.jpg" />
+  <img src="Z:/picture/008/save_picture_395724.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Digital Juice - Editor's Toolkit Pro Singles 174: Ambercast (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395715.jpg" />
+  <img src="Z:/picture/008/save_picture_395715.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Digital Juice - Editor's Toolkit Pro Singles 179: Circular Arc (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395655.jpg" />
+  <img src="Z:/picture/008/save_picture_395655.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Digital Juice - Editor's Toolkit Pro Singles 164: Future Damage (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395602.jpg" />
+  <img src="Z:/picture/008/save_picture_395602.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Digital Juice - Jump Backs SD 26: Future Tech (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394810.jpg" />
+  <img src="Z:/picture/008/save_picture_394810.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Digital Juice - StackTraxx 08: Fifties Stacks (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393755.jpg" />
+  <img src="Z:/picture/005/save_picture_393755.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Digital Juice - Jump Backs SD 18: Extrime II (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391826.jpg" />
+  <img src="Z:/picture/008/save_picture_391826.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Digital Juice - Jump Backs SD 19: Extrime III (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391750.jpg" />
+  <img src="Z:/picture/008/save_picture_391750.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Digital Juice - Editor's Toolkit Standart 07: Wedding Tools II (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391402.jpg" />
+  <img src="Z:/picture/008/save_picture_391402.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Digital Juice - Editor's Toolkit Standart 09: Christmas Tools (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391396.jpg" />
+  <img src="Z:/picture/008/save_picture_391396.jpg" />
 </div>
 
 

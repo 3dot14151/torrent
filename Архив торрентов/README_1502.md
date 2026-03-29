@@ -6,7 +6,7 @@ VSO ConvertXtoDVD 5.3.0.1 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711499.jpg" />
+  <img src="Z:/picture/008/save_picture_711499.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TechSmith Snagit 13.0.0 Build 6248 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711474.jpg" />
+  <img src="Z:/picture/008/save_picture_711474.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bible 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711473.jpg" />
+  <img src="Z:/picture/008/save_picture_711473.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CPU Spy Reloaded Monitor Pro 2.41 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711469.jpg" />
+  <img src="Z:/picture/008/save_picture_711469.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ICE Book Reader Professional 9.5.0 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711458.jpg" />
+  <img src="Z:/picture/008/save_picture_711458.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FinePrint 8.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711457.jpg" />
+  <img src="Z:/picture/008/save_picture_711457.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Quicker 1.9.10 - Быстрые настройки телефона
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711456.jpg" />
+  <img src="Z:/picture/008/save_picture_711456.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711455.jpg" />
+  <img src="Z:/picture/008/save_picture_711455.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ummy Video Downloader 1.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711449.jpg" />
+  <img src="Z:/picture/008/save_picture_711449.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Doze v1.17 [Ru/Multi] - энергосбережение для смартфон
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711445.jpg" />
+  <img src="Z:/picture/008/save_picture_711445.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Hetman Office Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711430.jpg" />
+  <img src="Z:/picture/008/save_picture_711430.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hetman Uneraser 4.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711428.jpg" />
+  <img src="Z:/picture/008/save_picture_711428.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.1.17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711423.jpg" />
+  <img src="Z:/picture/008/save_picture_711423.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711373.jpg" />
+  <img src="Z:/picture/005/save_picture_711373.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kuromukuro / Черная сталь [2016, TV, 1-7 из 12] HDTVRip 720p rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711359.jpg" />
+  <img src="Z:/picture/008/save_picture_711359.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ KeePass Password Safe 2.34 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711356.jpg" />
+  <img src="Z:/picture/008/save_picture_711356.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VueScan Pro 9.5.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711351.jpg" />
+  <img src="Z:/picture/008/save_picture_711351.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711346.jpg" />
+  <img src="Z:/picture/008/save_picture_711346.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Foreign Sequence - Are Faces Really Necessary ? (2019) D.KO Records [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711334.jpg" />
+  <img src="Z:/picture/008/save_picture_711334.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ ESET Endpoint Security 6.4.2014.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711333.jpg" />
+  <img src="Z:/picture/008/save_picture_711333.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ WinUtilities Professional Edition 11.37 RePack by Loginvovchyk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711332.jpg" />
+  <img src="Z:/picture/008/save_picture_711332.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711327.jpg" />
+  <img src="Z:/picture/008/save_picture_711327.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711323.jpg" />
+  <img src="Z:/picture/008/save_picture_711323.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711298.jpg" />
+  <img src="Z:/picture/008/save_picture_711298.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711296.jpg" />
+  <img src="Z:/picture/008/save_picture_711296.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Movist Pro 2.4.2 (build 153) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711288.jpg" />
+  <img src="Z:/picture/008/save_picture_711288.jpg" />
 </div>
 
 

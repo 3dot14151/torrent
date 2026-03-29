@@ -1,3 +1,140 @@
+###  Публикация: 1204748   (784329) от 07.02.2018
+
+IINA 0.0.15 (build 68) [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: Collider LIПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58F2653ADA5576D84A8322C9B55AD748AFADF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204758   (784308) от 07.02.2018
+
+LRTimelapse Pro 5.0.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784308.jpg" />
+</div>
+
+
+###  Подробнее
+
+LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
+
+Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB39D7E3DAAB3DCDD91166D17B32B94F680B92D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205021   (784013) от 08.02.2018
+
+MaxBulk Mailer Pro 8.6.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784013.jpg" />
+</div>
+
+
+###  Подробнее
+
+MaxBulk Mailer - позволяет создавать и посылать потенциальным и постоянным клиентам профессионально составленные письма, уменьшая затраты до минимума. Рассылка может выполняться напрямую с вашего компьютера. Почтовый клиент от фирмы Maxprog позволит вам увеличить продажи, улучшить качество работы вашего отдела обслуживания, а также позволит вам выйти на новые рынки. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2018Разработчик: Macx ProgrammingПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8753C99EAE94B1D3EE2476751C3B950DA0D91B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205629   (783452) от 10.02.2018
+
+TripMode 2.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мобильный интернет имеет свойство быстро заканчиваться, и часто это происходит нелепо: macOS установит обновления, Transmission загрузит новые сериалы, iCloud синхронизирует пару сотен мегабайт фотографий и вот уже месячного лимита как не бывало.
+
+Самостоятельно отслеживать запущенный приложения нереально, по этому лучше получить эту задачу специальной утилите. TripMode (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: TripModeПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DEF7A75C351B6FC4FCAF84BB49C1FC5E2E98D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205956   (783206) от 11.02.2018
+
+Doo - Get Things Done 2.2.5 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Списки дел и напоминания.
+Doo превращает ваши напоминания в карты, которые помогают вам сосредоточиться и добиться цели.
+
+• Уникальный интерфейс на основе карт(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Ciarlo Software, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6E5EDA8DBB772F0FD66A3E386F83693D6E34F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387830   (782647) от 16.06.2020
 
 Messenger for VK 6.1.3 (1901) [Multi/Ru]
@@ -6,7 +143,7 @@ Messenger for VK 6.1.3 (1901) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782647.jpg" />
+  <img src="Z:/picture/008/save_picture_782647.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ WebStorm for Mac 2020.1.2 build (201.7846.79) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782193.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ Fileloupe - Media Browser 1.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781927.jpg" />
 </div>
 
 
@@ -86,7 +223,7 @@ CorelCAD 2020.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781826.jpg" />
 </div>
 
 
@@ -112,7 +249,7 @@ Living Weather & Wallpapers HD 4.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781426.jpg" />
 </div>
 
 
@@ -138,7 +275,7 @@ Malwarebytes for Mac Premium 3.2.35 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781212.jpg" />
 </div>
 
 
@@ -166,7 +303,7 @@ LensFlare Studio 6.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780822.jpg" />
+  <img src="Z:/picture/008/save_picture_780822.jpg" />
 </div>
 
 
@@ -192,7 +329,7 @@ Mountain Duck 2.2.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780812.jpg" />
+  <img src="Z:/picture/008/save_picture_780812.jpg" />
 </div>
 
 
@@ -220,7 +357,7 @@ Fantastical 2.4.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780224.jpg" />
+  <img src="Z:/picture/008/save_picture_780224.jpg" />
 </div>
 
 
@@ -248,7 +385,7 @@ Movavi Screen Capture Studio 5 v5.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780074.jpg" />
+  <img src="Z:/picture/008/save_picture_780074.jpg" />
 </div>
 
 
@@ -274,7 +411,7 @@ Complete Anatomy 2018 + Courses 3.4.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780019.jpg" />
+  <img src="Z:/picture/008/save_picture_780019.jpg" />
 </div>
 
 
@@ -300,7 +437,7 @@ RoboDB MySQL Database Manager 1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779959.jpg" />
+  <img src="Z:/picture/008/save_picture_779959.jpg" />
 </div>
 
 
@@ -326,7 +463,7 @@ Photo Retouch Movavi 1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779930.jpg" />
+  <img src="Z:/picture/008/save_picture_779930.jpg" />
 </div>
 
 
@@ -352,7 +489,7 @@ Debit & Credit - Учет финансов 2.6.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779478.jpg" />
 </div>
 
 
@@ -378,7 +515,7 @@ Movavi Video Editor 5 Plus 5.3.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779068.jpg" />
 </div>
 
 
@@ -404,7 +541,7 @@ CodeKit 3.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778937.jpg" />
 </div>
 
 
@@ -431,7 +568,7 @@ Logic Pro X 10.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778763.jpg" />
 </div>
 
 
@@ -457,7 +594,7 @@ OmniPlan Pro 3.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778662.jpg" />
 </div>
 
 
@@ -483,7 +620,7 @@ Yummy FTP Alias 2.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778367.jpg" />
 </div>
 
 
@@ -509,7 +646,7 @@ Uploader HD+ for Instagram - post pictures to Instagram 1.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778318.jpg" />
 </div>
 
 
@@ -538,7 +675,7 @@ Spillo 1.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777993.jpg" />
 </div>
 
 
@@ -552,142 +689,6 @@ Spillo имеет красивый современный интерфейс, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8F19B1A0C4EB08F7C3811B57A34E99267765061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211069   (777781) от 06.03.2018
-
-Digital Clock 3D 1.1.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная подборка цифровых часов, начиная от ретро и закачивая современным вариантом OLED. Подключить все это великолепие, можно, как в качестве обоев, так и в качестве заставки. Выберите стиль, который вам больше всего нравится или оставьте его на волю случая, смакуя ультрареалистичную 3D графику!Тип издания: macOS SoftwareРелиз состоялся: 30.10.2014Разработчик: 3PlanesoftПоддерживаемая ОС: OS X 10.6.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7476708ACB840DB0D713CB7432F2DF5A467E822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013451   (777646) от 04.05.2016
-
-Timelime 1.4.3 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслеживание и визуализировать ваши часы работы .
-Timelime это самый простой и самый красивый способ отслеживать и визуализировать свои рабочие часы.
-Timelime является идеальным помощником для:  Фрилансеров и независимых подрядчиков, которые должны отслеживать свое время, затрачиваемое на проекты;  студентов, которые хотят тратить больше времени на изучение, контролируя (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27.10.2015Разработчик: Niko KrämerПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A9391023249DFC82E95A7663458B3DB5126011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013317   (777604) от 04.05.2016
-
-Things 2.8.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 мая 2016Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EC95345B281054B86F6D8D4B3DE261EB63741C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211413   (777483) от 07.03.2018
-
-Movavi Screen Capture Pro 5.3 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Screen Capture Pro для Mac поможет быстро и легко делиться с коллегами происходящим на экране при помощи видео и скриншотов. Показывайте «баги» и ошибки на скриншотах, добавляйте пояснительные стрелки и надписи. Записывайте важные видеозвонки и онлайн-собеседования, чтобы вернуться к ним позже. Экономьте время благодаря понятному интерфейсу и быстрому сохранению. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2018Разработчик: MovaviПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD1BE30C596C2F3C2122A91038056C66CE30204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211408   (777478) от 07.03.2018
-
-OmniFocus 2.12 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живите продуктивной жизнью в контексте с OmniFocus 2 для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточьтесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
-
-Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2018Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8427F6FBD87BB74D49955AB55CB5E67A0878EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

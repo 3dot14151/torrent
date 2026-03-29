@@ -1,3 +1,163 @@
+###  Публикация: 215840   (277267) от 25.11.2018
+
+Великие композиторы. Жизнь и творчество | 85 CD (2009) [MP3|320 Kbps] <Claccical>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моцарт "Маленькая ночная серенада"
+соль мажор (KV 525)
+1. Allegro
+2. Romanze - Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 84:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8A8F5A189B4D116B3158B8621190CB69CF0F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256467   (277266) от 25.11.2018
+
+BELOFF 2018.10 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED69E75A9417E1271D4EDCFC881EB345B6DDCB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850372   (277221) от 15.12.2014
+
+Highlights School | МК Цветокоррекция и тонирование в Lightroom (2014) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илья Двояковский подробно расскажет как добиваться отличных фотографий, что нужно учитывать при съемке и каких ошибок следует избегать. На занятии будут разобраны все техники и инструменты необходимые для работы. Илья расскажет какие применяет методы тонирования в свадебной обработке и как добивается такого авторского цвета. Также на мастер-классе будет подробно (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 03:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29F65DA3A367BF0B8B662FC4B0084AA6B4CA8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336414   (277046) от 08.11.2019
+
+⚡ Правительство определило перечень угроз Рунету
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_277046.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 ноября нынешнего года вступил в силу пакет поправок в законы «О связи» и «Об информации», предполагающий обеспечение целостности, устойчивости и безопасности Рунета в случае внешних угроз. Теперь же правительство РФ установило список этих угроз, сообщает «Интерфакс».По данным источника в одном из ведомств, участвующих в подготовке документа, проект постановления (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336241   (276961) от 08.11.2019
+
+⚡ Сколько человек могут жить на Луне?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_276961.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время на Земле проживают 7 миллиардов человек, некоторые из которых поставили перед собой амбициозную цель — однажды переселить человечество на соседние планеты и спутники. Так, один из новейших проектов по колонизации Луны, разрабатываемый Европейским космическим агентством, представляет собой концепт лунной базы, которая может быть создана при помощи (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336954   (276821) от 08.11.2019
+
+VideoHive - AE Face Tools - 24958166 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276821.jpg" />
+</div>
+
+
+###  Подробнее
+
+AE Face Tools - более 430 инструментов и пресетов для Face Footages.
+Инструмент для замены/редактирования лиц на фото и/или видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334DE1B83C92BD0320EF7F9FCA03A53976851762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187819   (276752) от 30.11.2017
 
 Mozilla Firefox Quantum 57.0.1 Final [Ru]
@@ -6,7 +166,7 @@ Mozilla Firefox Quantum 57.0.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276752.jpg" />
+  <img src="Z:/picture/008/save_picture_276752.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Nioh (2017) [Ru/En] (1.21.03/dlc) Repack xatab [Complete Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276688.jpg" />
+  <img src="Z:/picture/008/save_picture_276688.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ Adobe Bridge CC 2017 (v7.0) x86-x64 Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276633.jpg" />
+  <img src="Z:/picture/008/save_picture_276633.jpg" />
 </div>
 
 
@@ -86,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276628.jpg" />
+  <img src="Z:/picture/008/save_picture_276628.jpg" />
 </div>
 
 
@@ -115,7 +275,7 @@ Autodesk AutoCAD 2017 for Mac (N.49.M.324) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276626.jpg" />
+  <img src="Z:/picture/008/save_picture_276626.jpg" />
 </div>
 
 
@@ -141,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275934.jpg" />
+  <img src="Z:/picture/008/save_picture_275934.jpg" />
 </div>
 
 
@@ -167,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275929.jpg" />
+  <img src="Z:/picture/008/save_picture_275929.jpg" />
 </div>
 
 
@@ -195,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_275828.jpg" />
+  <img src="Z:/picture/005/save_picture_275828.jpg" />
 </div>
 
 
@@ -221,7 +381,7 @@ Adobe Photoshop Lightroom 5.7.1 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275807.jpg" />
+  <img src="Z:/picture/008/save_picture_275807.jpg" />
 </div>
 
 
@@ -247,7 +407,7 @@ AIMP v3.00 Build 810 Beta 1 (20.12.2010) [Мультиязычный]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275565.jpg" />
+  <img src="Z:/picture/008/save_picture_275565.jpg" />
 </div>
 
 
@@ -282,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275563.jpg" />
+  <img src="Z:/picture/008/save_picture_275563.jpg" />
 </div>
 
 
@@ -309,7 +469,7 @@ Graveyard Keeper v.1.205 (2018) [Multi/Ru] [macOS Native game]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275545.jpg" />
+  <img src="Z:/picture/008/save_picture_275545.jpg" />
 </div>
 
 
@@ -335,7 +495,7 @@ Windows 10 Enterprise LTSB 2016 14393.3300 x64 Rus by OneSmiLe (09.11.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275542.jpg" />
+  <img src="Z:/picture/008/save_picture_275542.jpg" />
 </div>
 
 
@@ -364,7 +524,7 @@ BELOFF 2019.11 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275538.jpg" />
+  <img src="Z:/picture/008/save_picture_275538.jpg" />
 </div>
 
 
@@ -390,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275458.jpg" />
+  <img src="Z:/picture/008/save_picture_275458.jpg" />
 </div>
 
 
@@ -420,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275372.jpg" />
+  <img src="Z:/picture/008/save_picture_275372.jpg" />
 </div>
 
 
@@ -446,7 +606,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129r1/upd1/dlc/tr) Repack Other s [Gold
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275370.jpg" />
+  <img src="Z:/picture/008/save_picture_275370.jpg" />
 </div>
 
 
@@ -472,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275355.jpg" />
+  <img src="Z:/picture/008/save_picture_275355.jpg" />
 </div>
 
 
@@ -498,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275163.jpg" />
+  <img src="Z:/picture/008/save_picture_275163.jpg" />
 </div>
 
 
@@ -524,7 +684,7 @@ Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие него�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274963.jpg" />
+  <img src="Z:/picture/008/save_picture_274963.jpg" />
 </div>
 
 
@@ -535,165 +695,6 @@ Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие него�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7795C41F5CBE5015E1F3ECD983FB655D900A9166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 269506   (274958) от 27.11.2018
-
-Elemental: War of Magic / Elemental: Войны магов (2010) [Ru] (1.09) Repack R.G. ReCoding
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магия - единственная сила, которая имеет значение в этом мире, и те немногие, что могут управлять ею, обладают истинной властью. Но эту власть ещё нужно удержать. Королевства людей бросают в бой многотысячные армии в попытке отбиться от орд тёмных существ - Падших. Пробудившиеся от сна могучие драконы испепеляют целые города. Демоны, призванные чернокнижниками, сеют (   Читать дальше...   )Тип издания: RepackРазработчик: Stardock EntertainmentЖанр: Strategy (Turn-based, Grand strategy), IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22D24E7D34ED532A369E1007B5D4A93F6A2818A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 424194   (274951) от 27.11.2018
-
-Спрут / La piovra (1984-2001) 12xDVD5/19xDVD9 (сезоны 1-10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная версия самого грандиозного итальянского телепроекта, снятого по реальным cобытиям …Микеле Плачидо ("Афганский излом") в криминальной драме "Спрут".В небольшой сицилийском городке убивают начальника уголовного розыска Маринео. Кажется, что это преступление мафии. В тот же день становиться известно еще об одной смерти. Покончила с собой маркиза (   Читать дальше...   )Клятва, которую дала Сильвия Конти над телом погибшего комиссара Каттани, выполнена. В ходе долгого расследования ей, не раз рисковавшей жизнью, удалось найти и заказчиков, и исполнителей убийства, и воздать им по заслугам. Глава преступной организации «Экстрема Туле» профессор Рамонте отделался небольшим сроком тюремного заключения, но из-за тяжелой болезни также (   Читать дальше...   )Жанр: Драма, Криминал, ДетективРежиссер: Луиджи ПереллиАктеры: Ремо Джироне, Патриция Милларде, Elena Arvigo, Рольф Хопп,е Артуро Паглия, Франческо Сичильяно, Джилберто Идонеа, Джампьеро Бьянчи, Пьетро Бионди, Франко Грациози...Перевод: Многоголосый закадровый(профессиональный).Субтитры: Русские, ИтальянскиеЯзык субтитров: ИтальянскиеПродолжительность: 2х~01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2998027B1409C332B6798B29F2C6BECAB2196AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473013   (274950) от 27.11.2018
-
-Светлячок / Firefly (2002) BDRip [H.264/720p-LQ] (сезон 1, серии 1-14 из 14) Tycoon
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Малькольм Рейнольдс — закаленный в боях ветеран галактической гражданской войны, сражавшийся не на той (проигравшей) стороне, зарабатывает на жизнь мелкими преступлениями и перевозит грузы на своем корабле «Серенити».
-Он возглавляет небольшую разношерстную команду, которая порядком смахивает на самую обычную семью — ее члены вечно ссорятся, не соблюдают дисциплину, (   Читать дальше...   )Производство: США, 20th Century Fox Television, Mutant EnemyЖанр: фантастика, боевик, драма, приключенияРежиссер: Джосс Уидон, Верн Джиллам, Тим МинеарАктеры: Натан Филлион, Джина Торрес, Алан Тьюдик, Морена Баккарин, Адам Болдуин, Джуэл Стэйт, Шон Маэр, Саммер Глау, Рон Гласс, Блейк Роббинс и др.Перевод: Двуголосый закадровый - Tycoon-StudioЯзык субтитров: РусскийПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D81A0DFEF90EC1D08A1464921291D696AAE1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 28117   (274949) от 27.11.2018
-
-Diablo & Diablo: Hellfire (1997) [Ru] (1.0) Unofficial
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diablo - это action/RPG, в которой вам предстоит проложить свой путь через шестнадцать случайно генерируемых уровней подземелья, под завязку заполненных монстрами и сокровищами. Ваша финальная цель – демон Диабло, повелитель ужаса, который и стал причиной всех бед, постигших не только тихую деревушку Тристрам (Tristram), но и все королевство. Вы можете выбрать, кем (   Читать дальше...   )Тип издания: UnofficialРазработчик: Blizzard Entertainment, Synergistic SoftwareЖанр: Action (Rogue-like), RPGЯзык озвучки: Русский
-Локализация: Фаргус
-Версия: 1.0Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAFAC10EB75D27CCAB8C49FFDE2BC26768047D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 240085   (274944) от 27.11.2018
-
-Sid Meier’s Civilization III Полное собрание (2010) [Ru] (1.29f/dlc) License
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sid Meier’s Civilization III, дополнения Civilization III: Play the World и Civilization III: Conquests - в одном издании, полностью на русском языке. Грезите о мировом господстве? Все в ваших руках! Ведите тонкую дипломатическую игру, докажите свое превосходство силой оружия, устройте всемирную культурную революцию, отправьте космический корабль на альфу Центавра (   Читать дальше...   )Тип издания: LicenseРазработчик: Firaxis GamesЖанр: Пошаговая стратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A494585A56EF24EDF3506060C5374FBF8C38C8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264413   (274943) от 27.11.2018
-
-Аватар / Avatar (2009) BDRip [H.264/1080p] [Extended  Cut]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейк Салли — бывший морской пехотинец, прикованный к инвалидному креслу. Несмотря на немощное тело, Джейк в душе по-прежнему остается воином. Он получает задание совершить путешествие в несколько световых лет к базе землян на планете Пандора, где корпорации добывают редкий минерал, имеющий огромное значение для выхода Земли из энергетического кризиса.Производство: США, Великобритания,  Twentieth Century Fox, Dune Entertainment, Ingenious Film PartnersЖанр: Фантастика, Боевик, Драма, ПриключенияРежиссер: Джеймс КэмеронАктеры: Сэм Уортингтон, Зои Салдана, Сигурни Уивер, Стивен Лэнг, Мишель Родригес, Джованни Рибизи, Джоэль Мур, Си Си Эйч Паундер, Уэс Студи, Лас АлонсоПеревод: Русский дубляжСубтитры: неизвестноПродолжительность: 02:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A4F0686BBCF574AFCAB8B1379A5E67912B4D26
 ```
 
 https://mybot314.ru/tekegram_catalog/

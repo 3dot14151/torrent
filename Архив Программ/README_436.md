@@ -6,7 +6,7 @@ Google Chrome 63.0.3239.132 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818762.jpg" />
+  <img src="Z:/picture/008/save_picture_818762.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2007 Standard SP3 12.0.6743.5000 RePack by KpoJIuK (2016.04) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818717.jpg" />
+  <img src="Z:/picture/008/save_picture_818717.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Futuremark 3DMark 2.0.2067 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818706.jpg" />
+  <img src="Z:/picture/008/save_picture_818706.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ O&O Defrag Professional / Server 23.5 Build 5016 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818690.jpg" />
+  <img src="Z:/picture/008/save_picture_818690.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics BoostSpeed 11.4.0.3 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818682.jpg" />
+  <img src="Z:/picture/008/save_picture_818682.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Skype 7.34.0.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818671.jpg" />
+  <img src="Z:/picture/008/save_picture_818671.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RogueKiller Free 12.10.1.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818662.jpg" />
+  <img src="Z:/picture/008/save_picture_818662.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hetman Uneraser 3.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818661.jpg" />
+  <img src="Z:/picture/008/save_picture_818661.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Opera 44.0.2510.857 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818660.jpg" />
+  <img src="Z:/picture/008/save_picture_818660.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818647.jpg" />
+  <img src="Z:/picture/008/save_picture_818647.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mozilla Firefox Quantum 57.0.4 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818640.jpg" />
+  <img src="Z:/picture/008/save_picture_818640.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cumulative Update KB4015438 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818569.jpg" />
+  <img src="Z:/picture/008/save_picture_818569.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ DesignToolBox 2.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818565.jpg" />
+  <img src="Z:/picture/008/save_picture_818565.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ CCleaner 5.28.6005 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818553.jpg" />
+  <img src="Z:/picture/008/save_picture_818553.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818543.jpg" />
+  <img src="Z:/picture/008/save_picture_818543.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818525.jpg" />
+  <img src="Z:/picture/008/save_picture_818525.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818516.jpg" />
+  <img src="Z:/picture/008/save_picture_818516.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Autodesk AutoCAD 2018 О.49.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818464.jpg" />
+  <img src="Z:/picture/008/save_picture_818464.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ PhotoFiltre Studio X 10.12.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818456.jpg" />
+  <img src="Z:/picture/008/save_picture_818456.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ JetBrains WebStorm 2017.1 Build #WS-171.3780.79 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818323.jpg" />
+  <img src="Z:/picture/008/save_picture_818323.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818322.jpg" />
+  <img src="Z:/picture/008/save_picture_818322.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.1 Build #IU-171.3780.95 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818320.jpg" />
+  <img src="Z:/picture/008/save_picture_818320.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Microsoft Office 2016 Standard 16.0.4498.1000 RePack by KpoJIuK (2017.03) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818312.jpg" />
+  <img src="Z:/picture/008/save_picture_818312.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Mathworks Matlab R2017a (9.2.0.538062) (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818309.jpg" />
+  <img src="Z:/picture/008/save_picture_818309.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Setup Factory 9.2.0.0 RePack by Leserg [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817910.jpg" />
+  <img src="Z:/picture/008/save_picture_817910.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ K-Lite Codec Pack Update 16.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817787.jpg" />
+  <img src="Z:/picture/008/save_picture_817787.jpg" />
 </div>
 
 

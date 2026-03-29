@@ -6,7 +6,7 @@ Crysis Warhead (2008) [Ru] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917009.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Walking Dead: Michonne – A Telltale Miniseries. Episode 1 (2016) [Multi/Ru
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Raven - Legacy of a Master Thief. Chapter 1-3 (2013) [En/De] [OS X Native ga
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912957.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ The Bureau — XCOM Declassified (2014) [Multi/Ru] [OS X Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912797.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FEIST v2.4.0.7 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911432.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Fire (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907580.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Flame in the Flood (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907525.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ SUPERHOT (2016) [En] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907428.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Star Wars: The Force Unleashed: Ultimate Sith Edition (2012) [Multi] [OS X Nativ
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905882.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Soul Axiom (2016) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902347.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Life in Bunker (2016) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900523.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Deponia Doomsday (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900511.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Painkiller Black Edition (2005) [Ru] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898945.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Quake II: Quad Damage (1997) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895690.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Quake: The Offering (1998) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895687.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Quake III: Gold (2001) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895537.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Stronghold Legends [CXZ] [Rus]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895313.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893447.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893215.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Football Manager 2020 v20.4.0 (2019) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893168.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Beat Cop v1.1.744 (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889851.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Dwarrows v1.3 (2020) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883489.jpg" />
+  <img src="Z:/picture/005/save_picture_883489.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Total War: ATTILA (2015) [En] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882217.jpg" />
+  <img src="Z:/picture/005/save_picture_882217.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Buzz Aldrin's Space Program Manager v1.7.1 (2014) [Multi] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881990.jpg" />
+  <img src="Z:/picture/005/save_picture_881990.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ In Other Waters 1.0.0 (2020) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881987.jpg" />
+  <img src="Z:/picture/005/save_picture_881987.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Battle Chasers: Nightwar v23731 (2017) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881882.jpg" />
+  <img src="Z:/picture/005/save_picture_881882.jpg" />
 </div>
 
 

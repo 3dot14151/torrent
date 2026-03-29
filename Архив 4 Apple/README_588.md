@@ -1,3 +1,109 @@
+###  Публикация: 1667983   (175395) от 10.10.2023
+
+BusyCal 2023.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175395.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
+BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © Busy Apps, 2007-2022Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B562F069307DD79F99C8E1C329B9A040BFB2CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667979   (175390) от 10.10.2023
+
+Allavsoft Video Downloader Converter 3.25.9.8679  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 2023 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69DE241D36AB44AF30F67EA4DF0509135FF5FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667990   (175387) от 10.10.2023
+
+Hazel 5.2.2 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29.05.2023Разработчик: © 2023 Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D375A4642AE6ED5B41340AB8BD8F485DAA0039B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667924   (175364) от 10.10.2023
+
+Bartender 5 v.5.0.39 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2023Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 14.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EDB0432FCA02EF661E29BAAE8756C7E55DC98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668015   (175333) от 10.10.2023
 
 Topaz Video AI for Mac 3.5.2 [En]
@@ -6,7 +112,7 @@ Topaz Video AI for Mac 3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175333.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Posterino 3 v3.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175324.jpg" />
+  <img src="Z:/picture/004/save_picture_175324.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ PhotoSweeper X 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175320.jpg" />
+  <img src="Z:/picture/004/save_picture_175320.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Valentina Studio Pro 10.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175312.jpg" />
+  <img src="Z:/picture/004/save_picture_175312.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ VideoDuke 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175308.jpg" />
+  <img src="Z:/picture/004/save_picture_175308.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ Rogue Amoeba Farrago 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175291.jpg" />
+  <img src="Z:/picture/004/save_picture_175291.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ Motion 5.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175284.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ Xmas snow 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175263.jpg" />
+  <img src="Z:/picture/004/save_picture_175263.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ Exposure Software Blow Up 3 v3.1.4.360 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175252.jpg" />
+  <img src="Z:/picture/004/save_picture_175252.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ Bootstrap Studio 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175232.jpg" />
+  <img src="Z:/picture/004/save_picture_175232.jpg" />
 </div>
 
 
@@ -276,7 +382,7 @@ Fission 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175228.jpg" />
+  <img src="Z:/picture/004/save_picture_175228.jpg" />
 </div>
 
 
@@ -302,7 +408,7 @@ Morph Age 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175225.jpg" />
+  <img src="Z:/picture/004/save_picture_175225.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ App Cleaner & Uninstaller Pro 8.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175220.jpg" />
 </div>
 
 
@@ -357,7 +463,7 @@ Whisk 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175212.jpg" />
+  <img src="Z:/picture/004/save_picture_175212.jpg" />
 </div>
 
 
@@ -383,7 +489,7 @@ Vidmore Player 1.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175209.jpg" />
+  <img src="Z:/picture/004/save_picture_175209.jpg" />
 </div>
 
 
@@ -410,7 +516,7 @@ CrossOver 23.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175205.jpg" />
 </div>
 
 
@@ -437,7 +543,7 @@ Exposure Software Snap Art 4 v4.1.3.351 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175200.jpg" />
+  <img src="Z:/picture/004/save_picture_175200.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ Vidmore Video Converter 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175194.jpg" />
+  <img src="Z:/picture/004/save_picture_175194.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ AYVY 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175162.jpg" />
+  <img src="Z:/picture/004/save_picture_175162.jpg" />
 </div>
 
 
@@ -516,7 +622,7 @@ Dark Reader for Safari 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175152.jpg" />
+  <img src="Z:/picture/004/save_picture_175152.jpg" />
 </div>
 
 
@@ -543,7 +649,7 @@ Adobe InCopy 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175131.jpg" />
+  <img src="Z:/picture/004/save_picture_175131.jpg" />
 </div>
 
 
@@ -570,7 +676,7 @@ Zoc Terminal 8.01.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175096.jpg" />
+  <img src="Z:/picture/004/save_picture_175096.jpg" />
 </div>
 
 
@@ -581,113 +687,6 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA0F326BEFCF23493B24CFF4358AB401FE485E2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430125   (175061) от 08.12.2020
-
-Adobe XD 35.1.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39451DE5217A10D91FB48C98C29C90FAA47DDD2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429970   (175053) от 08.12.2020
-
-Exposure X6 Bundle v6.0.2.124 [EN]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Exposure Software, LLCПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86486A58928B26A3AF2950F21DEE6462F562B438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429950   (174993) от 08.12.2020
-
-Disk Drill Enterprise 4.1.206 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill Enterprise - самое популярное приложение для восстановлени данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
-
-После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: CleverFilesПоддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AE1956E4EFDABDBB64C28E996249812DAF4175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667929   (174983) от 10.10.2023
-
-Final Cut Pro X 10.6.10 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2023Разработчик: © 2011-2023 Apple Inc.Поддерживаемая ОС: macOS 13.4 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4AADB5500CB30692575E1B6164E48D1F262F6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

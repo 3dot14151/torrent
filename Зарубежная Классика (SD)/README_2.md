@@ -1,3 +1,81 @@
+###  Публикация: 1438595   (1040851) от 09.01.2021
+
+Сова появляется днем (День совы) / Il giorno della civetta (1968) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в небольшом сицилийском городке. Капитан полиции, расследуя убийство руководителя строительной компании, обнаруживает, что все, кого он допрашивает, не хотят ничего говорить. Он приходит к выводу, что за убийством стоит местный депутат, он же - глава местной мафии.Производство: Италия, Франция, Corona Cinematographia, Ermanno Donati & Luigi Carpentieri ProductionЖанр: Триллер, драма, криминал, детективРежиссер: Дамиано ДамианиАктеры: Клаудия Кардинале, Франко Неро, Серж Реджани, Ли Дж. Кобб, Тано Чимароза, Нехемия Персофф, Эннио Бальбо, Уго Д’Алессио, Фред Коплан, Джованни ПаллавичиноПеревод: Дублированный (Киностудия им. М. Горького), многоголосый профессиональный (студия СВ-Дубль)Субтитры: Английские, итальянские - отдельными файламиПродолжительность: 01:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4825DE4FCD846E14D8761C0A9186FF2912C5FBE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612084   (1040562) от 14.02.2023
+
+Гордая походка / Walk Proud (1979) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой член банды чикано в Лос-Анджелесе осознает, что жизнь в банде - это не то, чего он на самом деле хочет, но не знает, как от нее избавиться.Производство: США / Universal PicturesЖанр: драмаРежиссер: Роберт Л. КоллинзАктеры: Робби Бенсон, Сара Холкомб, Генри Дэрроу, Пепе Серна, Тринидад Сильва, Чи-Ту Кумбука, Лоуренс Прессман, Доминго Амбрис, Брэд Салливан, Айрин ДеБариПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH) - отдельными файламиПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DF08AC043AFAC85E30F9ADDC81F7F86E900654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431924   (1040301) от 11.01.2021
+
+Поле битвы / Battleground (1949) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма посвящен одному из эпизодов знаменитой Арденнской операции - последнему серьезному наступлению Германии, против сил союзников в Бельгии. Декабрь 1944 года. Германия бесповоротно проигрывает Вторую мировую войну. Гитлер,пытаясь остановить продвижение союзных войск и предотвратить крах Третьего Рейха, решает предпринять отчаянный шаг к спасению - контрудар. (   Читать дальше...   )Производство: США, Loew's Inc., Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, драма, военныйРежиссер: Уильям УэллменАктеры: Ван Джонсон, Джон Ходиак, Рикардо Монтальбан, Джордж Мёрфи, Маршалл Томпсон, Джером Куртлэнд, Дон Тейлор, Брюс Коулинг, Джеймс Уитмор, Дуглас ФоулиПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02C0A3858EF38A61F0172F277C6CDA86803DDBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438935   (1040295) от 11.01.2021
 
 Леонс Перре. Римская оргия / L’Orgie romaine (1911) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040295.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040086.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040043.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039765.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039743.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039265.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039025.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038544.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038141.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037847.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037544.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037542.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037461.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037257.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037167.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037118.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036996.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036855.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036813.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036695.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036479.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036394.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036393.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B035B1E183AF356D5A3940A0F5C14F532479CCF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611346   (1036099) от 03.03.2023
-
-Поторопи закат / Hurry Sundown (1967) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036099.jpg" />
-</div>
-
-
-###  Подробнее
-
-После Второй мировой войны владельцы консервного завода ведут переговоры относительно покупки большого и необработанного земельного участка в штате Джорджия. Главная часть земли принадлежит Джули Энн Уоррен. Вопрос владения землей и ее использования, опасность прихода новых хозяев, все это вызывает серьезные конфликты и открывает самые разные стороны характеров действующих (   Читать дальше...   )Производство: США / Otto Preminger FilmsЖанр: ДрамаРежиссер: Отто ПреминджерАктеры: Майкл Кейн, Джейн Фонда, Джон Филлип Ло, Дайэнн Кэррол, Роберт Хукс, Фэй Данауэй, Бёрджесс Мередит, Лоринг Смит, Джордж Кеннеди, Люк АскьюПеревод: Одноголосый любительский, binjakЯзык озвучки: Русский, английскиеСубтитры: РусскиеПродолжительность: 02:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36DF2E147782143DF3630D7EE30B0B22BF549911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616875   (1035858) от 04.03.2023
-
-Лидия / Lydia (1941) DVDRip [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидия МакМиллан, красивая, независимая, пожилая женщина, которая никогда не была замужем, через сорок лет встречается со своими тремя поклонниками, с которыми когда-то еe связывали романтические отношения. В воспоминаниях они возвращаются в своё прошлое, которое казалось прекрасным. Все эти годы мужчины задавали себе вопрос: почему она не выбрала никого из них. А (   Читать дальше...   )Производство: США, Alexander Korda FilmsЖанр: драма, мелодрамаРежиссер: Жюльен ДювивьеАктеры: Мерл Оберон, Эдна Мэй Оливер, Алан Маршал, Джозеф Коттен, Ганс Ярай, Джордж Ривз, Джон Холлидэй, Сара Оллгуд, Билли Рэй, Фрэнк Конлан, Тайлер БрукПеревод: Двуголосый профессиональный (Студия Кипарис)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C05FCE9BECD540FE1E2191C078E3ABCEE8527A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616967   (1035851) от 04.03.2023
-
-Приходи со мной жить / Приди, любимая моя! / Come Live with Me (1941) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня, которую все называют Джонни, бежала от нацистов из Австрии в США. Но и здесь ей угрожает депортация. Единственный выход для нее – выйти замуж за американского гражданина. Но ее богатый покровитель женат и ничем ей не может помочь. Всемогущий случай знакомит ее с писателем-неудачником Биллом, который сидит без гроша, и Джонни предлагает ему фиктивный брак. (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: мелодрама, комедияРежиссер: Кларенс БраунАктеры: Джеймс Стюарт, Хеди Ламарр, Иэн Хантер, Верри Тисдейл, Дональд Мик, Бартон МакЛэйн, Эдвард Эшли, Энн КоудиПеревод: Авторский (Дмитрий Есарев)Язык озвучки: Русский, АнглийскийСубтитры: русские (отдельным файлом)Продолжительность: 01:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907BA98C02589126B5EF3DC460477421EAC7872F
 ```
 
 https://mybot314.ru/tekegram_catalog/

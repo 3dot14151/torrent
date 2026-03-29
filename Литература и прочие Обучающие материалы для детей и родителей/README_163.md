@@ -1,3 +1,136 @@
+###  Публикация: 1284929   (724784) от 24.02.2019
+
+Анатолий Митяев | Тысяча четыреста восемнадцать дней (1987) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказов о Великой Отечественной войне, которая охватывает всю ее историю — от начального периода до Дня Победы. Рассказы о великих битвах чередуются с эпизодами о героизме солдат и командиров.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6558174F6A8AF71C2CF509061A8D7556444CE572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218320   (724768) от 08.04.2018
+
+Николай Васильевич Тулупов (сост.)| Родные сказки [4 книги] (1916) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиЯзык: СтарорусскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0069BF88B7CD32CC613B1FD95AE6EC6562AD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023606   (724659) от 05.06.2016
+
+Зиновий Фазин, Эмма Блок | Терек в огне (1966) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79309C8CFAD0609B16C62511FDE16A90D8884B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023604   (724653) от 05.06.2016
+
+Марта Фомина | Летопись нашего двора (1963) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCECC2856253D1FE11418E5C9535556A63F57EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129188   (724078) от 27.04.2017
+
+Роб Истуэй, Майк Эскью | Математика на ходу. Более 100 математических игр для больших и маленьких (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как приобщить ребенка к математике и даже сделать так, чтобы он ее полюбил?
+Замечательные британские популяризаторы науки Роб Истуэй и Майк Эскью нашли веселый и легкий путь к детскому сердцу, превратив страшное пугало – математику – в серию увлекательных игр для детей от 4 до 14 лет.
+
+Пусть ваш ребенок исподволь овладевает математической премудростью, играя изо (   Читать дальше...   )Жанр: МатематикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09726B72302F1C8A6859A9CE4EB0CC37F83FC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023315   (723731) от 05.06.2016
 
 Александр Волков | Изумрудный город (Классическая серия) [6 книг] (1939-2001) [FB2, DJVU, PDF]
@@ -6,7 +139,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723731.jpg" />
+  <img src="Z:/picture/008/save_picture_723731.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723407.jpg" />
+  <img src="Z:/picture/008/save_picture_723407.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723017.jpg" />
+  <img src="Z:/picture/008/save_picture_723017.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722873.jpg" />
+  <img src="Z:/picture/008/save_picture_722873.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722867.jpg" />
+  <img src="Z:/picture/008/save_picture_722867.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722383.jpg" />
+  <img src="Z:/picture/008/save_picture_722383.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722378.jpg" />
+  <img src="Z:/picture/008/save_picture_722378.jpg" />
 </div>
 
 
@@ -193,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722251.jpg" />
+  <img src="Z:/picture/008/save_picture_722251.jpg" />
 </div>
 
 
@@ -221,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722130.jpg" />
+  <img src="Z:/picture/008/save_picture_722130.jpg" />
 </div>
 
 
@@ -247,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721836.jpg" />
+  <img src="Z:/picture/008/save_picture_721836.jpg" />
 </div>
 
 
@@ -276,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721737.jpg" />
+  <img src="Z:/picture/008/save_picture_721737.jpg" />
 </div>
 
 
@@ -302,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721729.jpg" />
+  <img src="Z:/picture/008/save_picture_721729.jpg" />
 </div>
 
 
@@ -328,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721530.jpg" />
+  <img src="Z:/picture/008/save_picture_721530.jpg" />
 </div>
 
 
@@ -354,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721185.jpg" />
+  <img src="Z:/picture/008/save_picture_721185.jpg" />
 </div>
 
 
@@ -380,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720600.jpg" />
+  <img src="Z:/picture/008/save_picture_720600.jpg" />
 </div>
 
 
@@ -406,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720436.jpg" />
+  <img src="Z:/picture/008/save_picture_720436.jpg" />
 </div>
 
 
@@ -433,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720178.jpg" />
+  <img src="Z:/picture/008/save_picture_720178.jpg" />
 </div>
 
 
@@ -459,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719993.jpg" />
+  <img src="Z:/picture/008/save_picture_719993.jpg" />
 </div>
 
 
@@ -487,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719974.jpg" />
+  <img src="Z:/picture/008/save_picture_719974.jpg" />
 </div>
 
 
@@ -515,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719639.jpg" />
+  <img src="Z:/picture/008/save_picture_719639.jpg" />
 </div>
 
 
@@ -541,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719471.jpg" />
+  <img src="Z:/picture/008/save_picture_719471.jpg" />
 </div>
 
 
@@ -552,138 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F67C1889CADB0C5BB7B2A50CE2E0629FDF89AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024202   (719455) от 07.06.2016
-
-Герхард Штрицель | Интенсивный курс рисования. Объем и перспектива (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный немецкий художник и преподаватель Герхард Штрицель объясняет принципы перспективы на примере большого количества разнообразных рисунков. Вы научитесь соблюдать пропорции предметов, передавать их глубину и объем. Знание принципов перспективы позволит вам значительно улучшить свои художественные навыки, сделать свои рисунки более реалистичными и выразительными. (   Читать дальше...   )Жанр: РисованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49126193E7038E6B068DF182DDEC5869EF5E5105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327788   (719430) от 24.04.2011
-
-Энид Блайтон | Цикл «Пятеро тайноискателей и собака» [15 книг] (1998 - 2000) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро Тайноискателей – Фатти, Пип, Бетси, Ларри и Дейзи и их верный друг и помощник скотч-терьер Бастер живут в английском городке Питерсвуде, недалеко от Лондона. Их штаб-квартира – летний домик в саду Фатти. Здесь Тайноискатели хранят парики, накладные бороды и усы, одежды нищего, старьевщика, цыганки, трубочиста. Этот гардероб Тайноискатели используют во время (   Читать дальше...   )Жанр: Детский детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316912003B4195BBDCE00867AE90750E0CA4DE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531781   (718732) от 17.02.2022
-
-Ирина Токмакова | Где спит рыбка (1963) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник небольших четверостиший, проиллюстрированных художником В.Конашевичем.Жанр: СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A204E51F96FF1DE766B42E18DACE5B44A5F5464D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129604   (718348) от 30.04.2017
-
-Г.М. Зегебарт | Чтение: от слова к тексту. Тетрадь для младших школьников (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтение является фундаментом образования - ведь большинство информации мы получаем в виде текстов. Для того чтобы успешно воспринимать эту информацию, необходимо не только уметь быстро и свободно читать (владеть техникой чтения), но и обладать способностью извлекать смысл из прочитанного. Настоящее издание является продолжением серии "Учение без мучения". (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB2FE50CDE70A8A9B44224CBB6D0BC7673B7EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129760   (718333) от 30.04.2017
-
-Кэтрин Бейтман | Юный инвестор. Как быть финансово грамотным с детства (2015) [RTF, FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718333.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге в интересной форме и понятным языком объясняются основы финансов и личных сбережений. Читатели узнают, для чего нужны акции и облигации, как покупать и продавать ценные бумаги и паи инвестиционных фондов. На простых примерах автор учит читать котировки ценных бумаг, сводить расходы с доходами и доступно объясняет базовые финансовые термины.
-
-Книга будет (   Читать дальше...   )Жанр: Финансы, экономмикаФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B16834638FD363B6545C4F287F0935138B13FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

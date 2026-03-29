@@ -6,7 +6,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57267.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56544.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55836.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55281.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55258.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55015.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53121.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52366.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50848.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50428.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50359.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50299.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48296.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48059.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47374.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ ErkeБай (2024) WEBRip [H.264/1080p]
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47373.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46519.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46422.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45961.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45359.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45109.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44989.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44919.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44425.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44411.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Adam bol (2024) WEBRip [H.264/1080p]
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44215.jpg" />
 </div>
 
 

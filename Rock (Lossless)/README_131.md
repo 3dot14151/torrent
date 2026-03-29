@@ -1,3 +1,148 @@
+###  Публикация: 1455971   (236747) от 21.03.2021
+
+Sic Vikki - Streetside Picasso (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Acoustic Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From My Window
+02. Streetside Picasso
+03. That Was Now And This Is Then
+04. Crushin' Velvet(   Читать дальше...   )Жанр: Acoustic Rock, Melodic RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA00A471BBA6CF81D2F883CED5C38AFD678E2AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456140   (236738) от 21.03.2021
+
+Alan King - I Saw The Rain (1995) [FLAC|Lossless|image + .cue] <AOR, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blow Wind Blow
+02. How Can I Say?
+03. When You Loved Someone
+04. I Saw The Rain(   Читать дальше...   )Жанр: AOR, RockПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416F4AAFEA144AB9408775B4CCC9B7AFF6FA65D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456128   (236727) от 21.03.2021
+
+The Crystal City Rockers - After All These Years (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Can't You Hear Me Cryin' [00:02:50]
+02 - Good Days Morning [00:04:10]
+03 - Oo Oo You [00:03:42]
+04 - It's Only You [00:03:13](   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6FA92A07DC82CEDF1D693E809827568E37B188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505096   (236715) от 26.10.2021
+
+The Dear Hunter - The Indigo Child (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Indigo Child (00:07:04)
+02 - The Indigo Child (Reprise) (00:06:17)
+03 - To Your Cycle (00:01:26)
+04 - Prayer - Uncle Boot - Breach (00:04:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBE44A24D81A9924510597FB735337498DA73F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505264   (236711) от 26.10.2021
+
+Tonight's Hero - Skeleton Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Strangest Angels (00:03:04)
+02 - Sugar Moon (00:04:12)
+03 - Pedestrian (00:02:59)
+04 - So It Goes (00:03:33)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F1E3612D538E3453FCF56B01F9ED6787A1228C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504818   (236700) от 26.10.2021
 
 Glacier - 2 Albums (2001-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -6,7 +151,7 @@ Glacier - 2 Albums (2001-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236700.jpg" />
+  <img src="Z:/picture/005/save_picture_236700.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Plaindrifter - Echo Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236678.jpg" />
+  <img src="Z:/picture/005/save_picture_236678.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Eloy - Ocean (1977) Remastered, 2019, Vertigo Berlin [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236675.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Summer Hits 2023 - Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236670.jpg" />
+  <img src="Z:/picture/005/save_picture_236670.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Kesem - Post-Terra (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236663.jpg" />
+  <img src="Z:/picture/005/save_picture_236663.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Ordeal & Plight - Her Bones In Whispers (2021) [FLAC|Lossless|image + .cue] <Pos
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236640.jpg" />
+  <img src="Z:/picture/005/save_picture_236640.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Real Loud - Real Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236606.jpg" />
+  <img src="Z:/picture/005/save_picture_236606.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Arcana Collective - Atlas Lost, Act 1: The Long Sleep (2023) [FLAC 2.0|44/24|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236585.jpg" />
+  <img src="Z:/picture/005/save_picture_236585.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Fredrick John Pugsley - Live with Your Fear (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236571.jpg" />
+  <img src="Z:/picture/005/save_picture_236571.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Bruce Gaitsch - How Fragile We Are (2023) Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236562.jpg" />
+  <img src="Z:/picture/005/save_picture_236562.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Issa - Lights of Japan (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236476.jpg" />
+  <img src="Z:/picture/005/save_picture_236476.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Burnt Belief - Emergent (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236448.jpg" />
+  <img src="Z:/picture/005/save_picture_236448.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ DeWolff - Love, Death & In Between (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236414.jpg" />
+  <img src="Z:/picture/005/save_picture_236414.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Twisted Illusion - Upstairs To Optimism (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236411.jpg" />
+  <img src="Z:/picture/005/save_picture_236411.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Queens Of The Stone Age - In Times New Roman... (2023) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236386.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Fugitive - Nobody Gets out Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236379.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Dreaming David K - Black Cat Metaphysics (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236212.jpg" />
+  <img src="Z:/picture/005/save_picture_236212.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ The Kinks - Soap Opera Tour 1975 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236199.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ A is A - The Complete Recordings (2023) 2 x CD [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236179.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Gary Hughes - Waterside (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236072.jpg" />
+  <img src="Z:/picture/005/save_picture_236072.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Force Of Progress - Redesign (2021) [FLAC|Lossless|image + .cue] <Instrumental P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236061.jpg" />
+  <img src="Z:/picture/005/save_picture_236061.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Force Of Progress - Redesign (2021) [FLAC|Lossless|image + .cue] <Instrumental P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5330B7BB5AAEC1E9DA8B3B2A7474A41AB3DD9B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613468   (236003) от 18.02.2023
-
-The Fire Mystical - The Fire Mystical (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Evilmorphosis (00:06:57)
-02 - Dragon Cyclones (00:05:46)
-03 - Dead Flowers (00:04:31)
-04 - Already Gone (00:05:18)(   Читать дальше...   )Жанр: Heavy Psychedelic RockПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A34FD23021053077FE9EDE7B11B4F3733DB7125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640665   (235979) от 19.06.2023
-
-Shadowland - Collection (1992-1996) 3CD [FLAC|Lossless|image + .cue] <Neo-progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235979.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. U.S.I. (United States Of Insanity) (9:28)
-2. Mephisto Bridge (6:46)
-3. Flatline (5:57)
-4. The Seventh Year, a) A Curious Tale, b) Why Kruhulick? (5:09)(   Читать дальше...   )Жанр: Neo-progressive rockПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B571BBF7BDC2D1FB76D341C56945239A539897F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613456   (235951) от 18.02.2023
-
-Gerry Rafferty - On A Wing & A Prayer (1992) [FLAC|Lossless|tracks + .cue]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time's Caught Up On You 4:21
-02. I See Red 4:05
-03. It's Easy To Talk 4:29
-04. I Could Be Wrong 3:59(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2906497674334DEB85D86322F20E6F5332EA8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641907   (235949) от 25.06.2023
-
-Cinderella - 20th Century Masters: The Millennium Collection: Best Of Cinderella (Reissue) (2000) 2020 Reissue Mercury Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody's Fool [00:04:49]
-02. Shake Me [00:03:44]
-03. Somebody Save Me [00:03:14]
-04. Gypsy Road [00:03:55](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C855D911D6D7ACB02B354F802AC03028F5079396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615165   (235868) от 25.02.2023
-
-Eddie B - I'm Holding On (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leading Me 03:56
-02. Watching Me 03:37
-03. Amazing Grace 03:48
-04. Play Church 03:02(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144A9741FC07B6DC28E2CFE61FA80AB3B5DE1986
 ```
 
 https://mybot314.ru/tekegram_catalog/

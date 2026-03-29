@@ -1,3 +1,136 @@
+###  Публикация: 1518166   (157719) от 18.12.2021
+
+Мэтт Хранек | Часы. Истории культовых марок и их знаменитых владельцев (2021) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарные, самые популярные, коллекционные часы, представленные в этой книге, - больше, чем просто устройства для определения времени. Они хранят память об особых событиях и знаменитых людях, которые их когда-то носили: Франклине Рузвельте, Джоне Кеннеди, Ральфе Лорене и многих других, чьи жизни и победы навсегда запечатлелись на циферблатах эксклюзивных часов. (   Читать дальше...   )Жанр: Популярно об истории, ПублицистикаПеревод: Г. С. БаробинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE39FFAA40283A3708F7B275D3DBC2F4220039C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346594   (157356) от 20.12.2019
+
+М.Н.Величенко и др. (сост.) | Ленинградский трамвай. 1941-1945 (1995) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный исторический альбом - это рассказ о жизни и деятельности работников городского электротранспорта г. Ленинграда в героические и трагические годы Великой Отечественной войны. Рассказ, иллюстрированный фотографиями и разнообразными документами или отрывками из них.
+В альбоме почти 200 архивных фотографий. Одни из них широко известны, другие уникальны и редко (   Читать дальше...   )Жанр: документально-историческаяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C18A39C7090FA6EF6FF5B2605E19B1B77BD5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270295   (157348) от 19.12.2018
+
+Пол Кеннеди | Взлеты и падения великих держав (2018) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного британского ученого Пола Кеннеди рассматривает историю непрерывных смещений мировых центров власти на протяжении последних пятисот лет - от эпохи зарождения в Европе крупных монархий и зачатков колониальных империй до начала XXI в.
+Подчеркивая взаимосвязь экономики, научно-технических инноваций и способности государственной политики эффективно задействовать (   Читать дальше...   )Жанр: Политика, ПолитологияПеревод: Е. Калугин, М. ЛеоновичФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C85594FC487CB9DD1CDAA46FF74DFE7912CBC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493909   (157263) от 18.12.2021
+
+Сборник | Книги издательства «Accent Graphics Communications» [190 книг] (2012-2019) [FB2, PDF] [Обновляемая]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157263.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Accent Graphics Communications» - канадское издательство, которое иногда выпускает книги и на русском языке.
+Триллеры, мистика, детективы, фантастика, современная проза...Жанр: Триллеры, мистика, детективы, фантастика, современная прозаПеревод: Коллектив, указаны в содержанииФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F745026B76ABE4FF1984A3D0D8A39B26E7133BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270482   (157248) от 19.12.2018
+
+А. М. Зайончковский | Мировая война 1914-1918 [2-е изд.] (1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный труд является лишь обширным фактическим описанием мировой войны в оперативно-стратегическом разрезе. Принимая во внимание, что на русском языке трудов подобного типа нет и учитывая все больший интерес командного состава Красной армии к мировой войне, редакция считает, что, при всех своих недостатках, труд и в этом виде принесет соответствующую пользу. Марксистско-ленинский (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A34261C0F3F8F58289EC97EB25526A4A29AB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600482   (157190) от 27.12.2022
 
 Питер Акройд | Новая эпоха. История Англии. От конца Викторианской эпохи до начала третьего тысячелетия (2022) [FB2]
@@ -6,7 +139,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157190.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157049.jpg" />
 </div>
 
 
@@ -60,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156992.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156406.jpg" />
 </div>
 
 
@@ -113,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155778.jpg" />
 </div>
 
 
@@ -141,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155661.jpg" />
 </div>
 
 
@@ -169,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155489.jpg" />
 </div>
 
 
@@ -195,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155387.jpg" />
 </div>
 
 
@@ -221,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154148.jpg" />
 </div>
 
 
@@ -247,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152798.jpg" />
 </div>
 
 
@@ -273,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152537.jpg" />
 </div>
 
 
@@ -299,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152415.jpg" />
 </div>
 
 
@@ -325,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152380.jpg" />
 </div>
 
 
@@ -353,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152376.jpg" />
 </div>
 
 
@@ -379,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152095.jpg" />
 </div>
 
 
@@ -405,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151973.jpg" />
 </div>
 
 
@@ -431,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151470.jpg" />
 </div>
 
 
@@ -457,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151090.jpg" />
 </div>
 
 
@@ -485,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150385.jpg" />
 </div>
 
 
@@ -511,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149436.jpg" />
 </div>
 
 
@@ -538,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148822.jpg" />
 </div>
 
 
@@ -549,137 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8373757A3DFCAEC7AF6B4208210717B7D88C4C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271506   (148676) от 24.12.2018
-
-И. П. Магидович (ред.) | "Книга" Марко Поло (1956) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148676.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Книга" Марко Поло принадлежит к числу редких средневековых сочинений, которые читаются и перечитываются в настоящее время. Она переведена почти на все европейские и многие другие языки. Чем больше времени проходит с года составления первой записи "Книги" (1298), тем больший интерес она возбуждает не только у специалистов - географов, историков, (   Читать дальше...   )Жанр: История, география, демография, этнография, культурология, искусствоФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDB202AC42C8B8119FC30571CC6AA43EAB36D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347692   (147845) от 24.12.2019
-
-А.О. Чубарьян (гл. ред.) | Всемирная история. В 6-ти томах [6 томов] (2011-2017) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое шеститомное издание "Всемирная история" подводит итоги работы историков за последние десятилетия. В настоящем томе освещена история возникновения человека и общества, становления первых цивилизаций. Предлагается комплексное рассмотрение цивилизаций Древнего Востока, античного мира и периферии, их типологической общности и специфики с особым вниманием (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5853BAE135DA27CF3D98FCF4DE078583E4E934BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434905   (147658) от 26.12.2020
-
-Глеб Носовский, Анатолий Фоменко | Новая Хронология. Реконструкция истории [3 книги] (2017-2019) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящие издания являются новыми и не основаны на прежних изданиях «Руси и Рима». Они выходят в свет по просьбе читателей, которые хотят видеть простое и в то же время достаточно полное изложение всеобщей истории с точки зрения Новой Хронологии. Авторы решили пойти навстречу этим пожеланиям. Все доказательства, ссылки и научные подробности в настоящих изданиях опущены, (   Читать дальше...   )Жанр: История Древнего мира, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE831CCBF50CE3E8DA655D70FBA2E743AB1B64DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969627   (147593) от 27.12.2015
-
-Сергей Куняев | Николай Клюев (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Клюев — одна из сложнейших и таинственнейших фигур русской и мировой поэзии, подлинное величие которого по-настоящему осознаётся лишь в наши дни.
-Религиозная и мифологическая основа его поэтического мира, непростые узлы его ещё во многом не прояснённой биографии, сложные и драматичные отношения с современниками — Блоком, Есениным, Ивановым-Разумником, Брюсовым, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5944F8AD502DAAC51CDD59C572410F251001A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969563   (147563) от 27.12.2015
-
-Уильям Мак-Нил | Восхождение Запада. История человеческого сообщества (2013) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147563.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Восхождение Запада" - один из наиболее значимых трудов современного классика американской исторической науки Уильяма Мак-Нила. В книге всемирная история рассмотрена как единое целое и предпринята попытка интерпретировать ее на основе концепции взаимопроникновения культур. Мак-Нил провел исследование развития социальных и культурных традиций, но особое (   Читать дальше...   )Жанр: История, археология, этнографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D58661FFCD2F7AC357B8EC9D07AE7115295A84D
 ```
 
 https://mybot314.ru/tekegram_catalog/

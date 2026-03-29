@@ -1,3 +1,166 @@
+###  Публикация: 635441   (909438) от 26.03.2013
+
+Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635343   (909339) от 26.03.2013
+
+London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990820   (909286) от 26.02.2016
+
+VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клипов для любителей рок и метал.
+Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
+A Sound of Thunder - Murderous Horde.avi
+AC-DC - Are You Ready.avi
+AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291734   (908788) от 06.02.2011
+
+Музыкальный ринг на НТВ. Выпуск №12. Вадим Казаченко vs Алексей Глызин  (05.02.2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: ТВ-ШоуПродолжительность: ~ 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98151821390053DD32F5389D34571A22020D3391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350780   (908696) от 20.03.2020
+
+Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Videos at Ozzy Osbourne: (00:11:03)
+2019 Ozzy Osbourne - Under the Graveyard [1080p] 2020 (00:05:47)
+2019 Ozzy Osbourne & Post Malone - Take What You Want (Live Video) [1080p] 2019 (00:02:46)
+2020 Ozzy Osbourne - Straight to Hell [1080p] 2020 (00:03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782A59B121F5F3731DA24FB91E3C4C3EE33CDA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635880   (907830) от 27.03.2013
+
+Alisher - Money (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145F5471FA6A3BAE2A8371EF5339D757825FC697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 635889   (907822) от 27.03.2013
 
 Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
@@ -6,7 +169,7 @@ Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907822.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907713.jpg" />
 </div>
 
 
@@ -58,7 +221,7 @@ Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907649.jpg" />
 </div>
 
 
@@ -84,7 +247,7 @@ Louna - Проснись и Пой! (live) (2013) 2*DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907461.jpg" />
 </div>
 
 
@@ -113,7 +276,7 @@ VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907446.jpg" />
 </div>
 
 
@@ -143,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907183.jpg" />
 </div>
 
 
@@ -169,7 +332,7 @@ Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907129.jpg" />
 </div>
 
 
@@ -195,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906869.jpg" />
 </div>
 
 
@@ -222,7 +385,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) Blu-Ray->DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906721.jpg" />
 </div>
 
 
@@ -251,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906622.jpg" />
 </div>
 
 
@@ -281,7 +444,7 @@ Lemmy - The Legend of Motorhead (2010) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906557.jpg" />
 </div>
 
 
@@ -310,7 +473,7 @@ Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906490.jpg" />
 </div>
 
 
@@ -339,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906167.jpg" />
 </div>
 
 
@@ -365,7 +528,7 @@ The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906004.jpg" />
 </div>
 
 
@@ -391,7 +554,7 @@ DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905916.jpg" />
 </div>
 
 
@@ -417,7 +580,7 @@ Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905871.jpg" />
 </div>
 
 
@@ -443,7 +606,7 @@ Aida Arami - Diamond (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905867.jpg" />
 </div>
 
 
@@ -469,7 +632,7 @@ Depeche Mode - Heaven (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905758.jpg" />
 </div>
 
 
@@ -495,7 +658,7 @@ Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905554.jpg" />
 </div>
 
 
@@ -521,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904643.jpg" />
 </div>
 
 
@@ -536,173 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C1AB1AC83ECD5F66635F063690411FD9DD6069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636679   (904258) от 29.03.2013
-
-Emerson, Lake & Palmer - Live In Belgium (1971) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_904258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emerson, Lake & Palmer (ELP) — английская прогрессив-рок группа, образованная в 1970 году, названная по фамилиям трёх её участников: Кита Эмерсона, Грега Лэйка и Карла Палмера. ELP считается одной из первых супергрупп, поскольку все её участники получили широкую известность до вхождения в группу01. Barbarian
-02. Rondo/Bach Improvisations
-03. Drum Solo
-04. Nut Rocker
-05. Take a Pebble
-06. Knife EdgeЖанр: Концерт, Progressive rock, Symphonic rockПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF862D3CBD048E81AD5DA13CC61CB9D6E828317E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461540   (903884) от 29.02.2016
-
-Armin van Buuren - The Music Videos 1997-2009 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Say Never (Feat. Jacqueline Govaert)
-02. Fine Without You (Feat. Jennifer Rene)
-03. Unforgivable (Feat. Jaren)
-04. In And Out Of Love (Feat. Sharon Den Adel)(   Читать дальше...   )Производство: TME/Open Gate Records, Armada Music BVЖанр: TranceПеревод: ОтсутствуетПродолжительность: 01:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017C1CA2EE3F3BD7F5414E9F153D2433EDB4F99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636311   (903877) от 29.03.2013
-
-Цирк дю Солей: Сказочный мир / Cirque du Soleil: Worlds Away (2013) HDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США / Reel FX Creative Studios, Strange Weather Films, Cirque du Soleil BurlescoЖанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк БриклэндПеревод: Одноголосый закадровыйПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F91A24405196BC629015625C5C1A06A8937B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099685   (903211) от 02.02.2017
-
-Михаил Салтыков-Щедрин - Тени (1953) DVDRip (Ленинградский театр им. Ленсовета)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-спектакль по одноименной пьесе М.Е. Салтыкова-Щедрина.
-Из провинции в Петербург приезжает либерально настроенный молодой чиновник Бобырев. Он надеется под покровительством своего школьного товарища Клаверова, ставшего генералом, сделать карьеру. Генерал с радостью определяет Бобырева в свою канцелярию, и уже выстраивает планы, как через красавицу Софью, жену (   Читать дальше...   )Производство: СССР, Ленфильм, Ленинградский театр им. ЛенсоветаЖанр: Фильм-спектакль, экранизацияРежиссер: Николай Акимов, Надежда КошевероваАктеры: Валентин Лебедев, Владимир Петров (I), Галина Короткевич, Вера Будрейко, Юрий Бубликов, Анатолий Абрамов, Александр Гюльцен, Овсей Каган, Дмитрий Бессонов, Евгений Гвоздев (I)Продолжительность: 01:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34EC031D76E93D005611C6CAF834D9D1ABE8C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099676   (903174) от 02.02.2017
-
-Александр Грин - Корабли в Лиссе (1965) WEBRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль по рассказу А. Грина "Корабли в Лиссе".
-Пять парусников блокированы в порту неприятельским капером (видимо, Гринландия, или её , вела с кем-то войну). Капитаны четырёх из этих парусников собрались за столом гостиницы «Унеси горе», размышляя, как выйти в море, обманув бдительность корсара. Капитана пятого парусника (бригантины «Фелицата») на (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Телеспектакль, драмаРежиссер: Давид КарасикАктеры: А. Абрамов, И Акацевич, В. Грозовский, И. Заблудовский, П. Залесский, В. Иллич, С. Коковкин, И. Краско, В. Кузнецов, Р. Лебедев, Р. Литвинов, Г. Лупекин, В. Максимов, Л. Малкина, И. Михайлов, Р. Петров, А. Петренко, В. Попов, Т. Румянцева, В. Смирнов, А. Соколов, Е. Соляков, Н. Тенякова, Ю. Цапин, В. Эренберг и др.Продолжительность: 01:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C487AF6E8A4E0EF309E72251B49808C42F0C734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099681   (903058) от 02.02.2017
-
-Роковое влечение (2017) SATRip (2 части) (Театр Сатиры)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Театра Сатиры в 2-х действиях. Запись 2016 года.
-Бывших звезд, как известно, не бывает. Голливудская дива Ирма Гарленд в этом твердо уверена. Всеми возможными способами она пытается вернуть молодость и вновь появиться на экране. Она готова за это заплатить, как привыкла платить за все свои прихоти. Пребывая в добровольном заточении, она не догадывается, (   Читать дальше...   )Производство: Россия, ГТРК "Культура"Жанр: Фильм-спектакль, театрРежиссер: Андрей ЖитинкинАктеры: Вера Васильева, Игорь Лагутин, Олег Вавилов, Любовь Козий, Родион ВьюшкинПродолжительность: 2 х ~ 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5097CE19D80A918E3DD50E5EC6C24748E89DA8AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

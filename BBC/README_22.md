@@ -6,7 +6,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330096.jpg" />
+  <img src="Z:/picture/008/save_picture_330096.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BBC. В поисках Бронте / In Search of the Brontes (2003) VHSRip (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326193.jpg" />
+  <img src="Z:/picture/008/save_picture_326193.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325485.jpg" />
+  <img src="Z:/picture/008/save_picture_325485.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BBC: Уникальные способности животных / Super Senses
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323255.jpg" />
+  <img src="Z:/picture/008/save_picture_323255.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318176.jpg" />
+  <img src="Z:/picture/008/save_picture_318176.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC: Невидимый Рим / Rome's Invisible City (2015) HDTV [H.264/1080i-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316168.jpg" />
+  <img src="Z:/picture/008/save_picture_316168.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315053.jpg" />
+  <img src="Z:/picture/008/save_picture_315053.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BBC: Мир природы. Водопад Виктория / Natural World. Vic
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308553.jpg" />
+  <img src="Z:/picture/008/save_picture_308553.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC. Эти удивительные хищники / Incredible Predators (2016
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308131.jpg" />
+  <img src="Z:/picture/008/save_picture_308131.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) UHD BDRemux [H.265/216
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306767.jpg" />
+  <img src="Z:/picture/008/save_picture_306767.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303259.jpg" />
+  <img src="Z:/picture/008/save_picture_303259.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC: Новая Европа с Майклом Пэйлином / Michael Palin'
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300972.jpg" />
+  <img src="Z:/picture/008/save_picture_300972.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC: Супердостижения Земли / Supersized Earth (2012) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300886.jpg" />
+  <img src="Z:/picture/008/save_picture_300886.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297335.jpg" />
+  <img src="Z:/picture/008/save_picture_297335.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BBC: Чудеса жизни. Серии №1-5 из 5 / Wonders of Life (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295459.jpg" />
+  <img src="Z:/picture/008/save_picture_295459.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC: Horizon. Эпоха больших данных / Horizon. Age of Big Data 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292504.jpg" />
+  <img src="Z:/picture/008/save_picture_292504.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291977.jpg" />
+  <img src="Z:/picture/008/save_picture_291977.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BBC. Российская империя: Династия Романовых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284205.jpg" />
+  <img src="Z:/picture/008/save_picture_284205.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BBC: Забытые британские рабовладельцы / Britain's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283892.jpg" />
+  <img src="Z:/picture/008/save_picture_283892.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC: Частная жизнь шедевров. "Свобода на барри
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281671.jpg" />
+  <img src="Z:/picture/008/save_picture_281671.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC. Великая битва Александра Македонского / A
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281081.jpg" />
+  <img src="Z:/picture/008/save_picture_281081.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280645.jpg" />
+  <img src="Z:/picture/008/save_picture_280645.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276850.jpg" />
+  <img src="Z:/picture/008/save_picture_276850.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BBC: Голубая планета / The Blue Planet (2001) BDRemux [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272873.jpg" />
+  <img src="Z:/picture/008/save_picture_272873.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BBC. Энди Гамильтон в поисках Сатаны /Andy Hamilton's
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271432.jpg" />
+  <img src="Z:/picture/008/save_picture_271432.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BBC. Сокровища Древнего Рима / The Treasures of Ancient Rom
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271379.jpg" />
+  <img src="Z:/picture/008/save_picture_271379.jpg" />
 </div>
 
 

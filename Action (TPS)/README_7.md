@@ -1,3 +1,160 @@
+###  Публикация: 1094723   (928419) от 18.01.2017
+
+Bionic Commando (2009) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальное военное подразделение, в котором состоял Натан Спенсер, после успешного выполнения последней миссии было признано правительством слишком опасным. Легендарного бойца арестовали и приговорили к смертной казни…
+Однако в роковой день некая террористическая группа привела в действие мощное экспериментальное оружие, вызвав в городе страшное землетрясение, которое (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72BD5C33D6B5243E0B2B2CC9DB556D21161A5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094655   (928409) от 18.01.2017
+
+Resident Evil: Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928409.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале истории Resident Evil Revelations 2 фанатов ожидает драматичное возвращение их любимой героини Клэр Редфилд. Пережив происшествие в Раккун-Сити, описанное в предыдущих играх Resident Evil, Клэр теперь работает на организацию "Терра Сейв", которая борется с биотерроризмом. Во время вечеринки по случаю приема Клэр на работу в "Терра Сейв" (   Читать дальше...   )Тип издания: RepackРазработчик: Frim Studio и CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F61B08496DC9E21D7C9896349FA358E8254957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987923   (923822) от 18.02.2016
+
+Syphon Filter (1999) [Ru] (1.0) Repack Ma2012ks
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть легендарной игры. Специальный агент Габриэль Логан и его напарница Лиан Синг расследуют серию биологических терактов. В процессе расследования выясняется, что с этими событиями связан международный террорист Эрих Ромер, который разработал смертельно опасный вирус "Syphon Filter". Таким образом, обычная антитеррористическая операция превратилась (   Читать дальше...   )Тип издания: RepackРазработчик: EideticЖанр: Action (3rd Person)Язык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCBBAB6D5E7FE62BB06C0097130233B99844AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096088   (921937) от 22.01.2017
+
+Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет Forgotten Realms: Demon Stone рассказывает о том, как однажды много лет назад могущественный волшебник заключил предводителей демонов в особый магический камень. Те были в заключении очень долго, но однажды один из них сумел подчинить своей воле сразу троицу героев. Те, не ведая что они делают, разбили многолетнюю тюрьму демонов, после чего сразу же началась (   Читать дальше...   )Тип издания: LicenseРазработчик: Stormfront Studios и ZonoЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764C7D0886DFF76443568F433E1C36EF90CCA4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366853   (919757) от 13.03.2020
+
+Sniper Elite V2 Remastered (2019) [Ru/En] (SVN2797PF85690) Repack xatab
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы — элитный снайпер США, Карл Фейрберн, заброшенный в Берлин, где находится последняя линия обороны немцев. Ваше задание — не дать попасть в руки красной армии секретной технологии нацистов, ракете «Фау-2». Вы должны помочь главным ученым, которые склонны переметнуться на сторону США, и устранить всех, кто стоит у вас на пути.Тип издания: RepackРазработчик: RebellionЖанр: Action (Shooter), Stealth, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69E9A26B05DF9EA670A826085C55D942F6D5019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366803   (919754) от 13.03.2020
+
+NieR: Automata (2017) [Ru] (1.0.1787043/dlc) Repack xatab [Day One Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919754.jpg" />
+</div>
+
+
+###  Подробнее
+
+NieR: Automata – это свежий взгляд на жанр Action/RPG, гармонично сочетающий увлекательный боевик и захватывающе интересный сюжет. Игра является продолжением ставшего культовым хита 2010 г. – NIER и разрабатывается поистине звездной командой разработчиков PlatinumGames. В игре NieR: Automata – захватчики из другого мира напали внезапно, обрушив всю мощь живых машин (   Читать дальше...   )Тип издания: RepackРазработчик: Square Enix, PlatinumGames Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDEDBFD1C2FEF2F2C44A5D88710EE3EB679D8653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490324   (918478) от 20.08.2021
 
 Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
@@ -6,7 +163,7 @@ Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918478.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918476.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Tomb Raider (2013) [Ru/Multi] (1.0/dlc) License GOG [Game of the Year Edition / 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918332.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Forbidden Siren [Ru] (P) 2010 | NightLection Team
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917986.jpg" />
 </div>
 
 
@@ -114,7 +271,7 @@ HEPH (2017) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916704.jpg" />
 </div>
 
 
@@ -140,7 +297,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916694.jpg" />
 </div>
 
 
@@ -166,7 +323,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914996.jpg" />
 </div>
 
 
@@ -192,7 +349,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) Repack R.G. Revenants [Gold Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914995.jpg" />
 </div>
 
 
@@ -218,7 +375,7 @@ Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911604.jpg" />
 </div>
 
 
@@ -244,7 +401,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911507.jpg" />
 </div>
 
 
@@ -270,7 +427,7 @@ The Town of Light (2016) [En/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907316.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ Manhunt (2004) [Ru/En] (25.02.2016) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907311.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905978.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) Repack YelloSOFT [Digital Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905965.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ Fortified (2016) [En] (1.0.5.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905532.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ Metal Gear Solid (2000) [En] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904962.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904786.jpg" />
 </div>
 
 
@@ -452,7 +609,7 @@ Metal Gear (1987) [Multi] (1.0.cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903342.jpg" />
 </div>
 
 
@@ -478,7 +635,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903337.jpg" />
 </div>
 
 
@@ -504,7 +661,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903333.jpg" />
 </div>
 
 
@@ -515,162 +672,6 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06DCBB967A332C211355C13BE45DB437C7D6FD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492308   (903330) от 29.08.2021
-
-Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Edition]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра опирается на интенсивную атмосферу Batman: Arkham Asylum, отправляя игроков в полёт над крупным городом Arkham City, который в пять раз больше, чем игровой мир в Batman: Arkham Asylum - это тюрьма с максимальным уровнем безопасности для всех бандитов, гангстеров и безумных преступников Готэма.Тип издания: LicenseРазработчик: Rocksteady StudiosЖанр: Action, Beat 'em up, Stealth, DetectiveЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCF06CE66E5A42D79E7D9BD8CB2F21450CB3F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369341   (902893) от 23.03.2020
-
-Max Payne 3 (2012) [Ru/Multi] (1.0.0.216/dlc) SteamRip =nemos= [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс Пэйн пережил многое: на его глазах умирали родные и близкие ему люди, и эти трагедии оставили в его душе неизгладимый след. Он ушел из полиции, пристрастился к выпивке и болеутоляющим, всё больше погружаясь в бездну отчаянья. В попытке бежать от своего прошлого Макс перебирается в Бразилию и становится телохранителем богатого торговца недвижимостью из Сан-Паулу (   Читать дальше...   )Тип издания: SteamRipРазработчик: Rockstar VancouverЖанр: Action (Shooter), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4172BECDE6361997E482EDBA5D60AD28C15F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099745   (902643) от 02.02.2017
-
-Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902643.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 апреля 1943 года при Наркомате обороны СССР создано Главное управление военной контрразведки «СМЕРШ». В задачи структуры входила борьба с разведывательно-диверсионной деятельностью иностранных, в первую очередь – немецко-фашистских спецслужб. Зафронтовой разведывательной и контрразведывательной работой занимались оперативники 4-го отдела ГУК «СМЕРШ».Тип издания: LicenseРазработчик: Haggard GamesЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3113C899E70D4432926A3ADFF5A593BAD4A9E575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099783   (902576) от 02.02.2017
-
-Death to Spies: Moment of Truth / Смерть шпионам: Момент истины (2009) [Ru/En] (1.0) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902576.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Смерть шпионам: Момент истины» - продолжение шпионского боевика «Смерть шпионам», повествующее о секретных операциях, в которых принимал участие оперативник 4-го отдела ГУК «СМЕРШ» Семен Строгов. После серии тяжелых заданий, выпавших на его долю в первой части игры, Строгову предстоит поучаствовать в не менее опасной операции под кодовым названием «Момент истины».Тип издания: LicenseРазработчик: Haggard GamesЖанр: Action, Add-on (Standalone), 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209958EA9E401DCB064E6BC2D1A0ADA7C3C665DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492453   (901796) от 30.08.2021
-
-Kane and Lynch: Dead Men / Kane & Lynch: Смертники (2007) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жестокий, мрачный, пугающе реалистичный командный боевик расскажет о двух осужденных на смертную казнь негодяях, в силу обстоятельств оказавшихся напарниками. Беспринципный наемник и клинический психопат в страшной и правдивой истории о ненависти, боли и мести, шокирующие сцены насилия, отвязанные криминальные похождения, непредсказуемость стычек с врагами в игре (   Читать дальше...   )Тип издания: RepackРазработчик: IO InteractiveЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28DE612909B64D2609A153EC58C7CAB3850F80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992559   (900293) от 02.03.2016
-
-Banzai Escape (2016) [En/Jp] (1.0) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Banzai Escape – корпорация «Амино» подозревается в совершении некоторой подозрительной деятельности, что привело агентство расследований к заключению, о том, что пора отправить своих сотрудником и агентов в эту компанию для исследования этого дела.Тип издания: LicenseРазработчик: XenoAisamЖанр: Action, TPS, Rail ShooterЯзык озвучки: -/-Язык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03602CA3D4E9EECF3B31FC2CF10217F10701C73C
 ```
 
 https://mybot314.ru/tekegram_catalog/

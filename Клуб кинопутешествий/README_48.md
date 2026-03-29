@@ -1,3 +1,55 @@
+###  Публикация: 1192423   (263162) от 17.12.2017
+
+Вокруг М / Орел и решка / Леся здеся (2016) WEB-DL [H.264/720p-LQ] (Афины)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не завершив кругосветное путешествие в проекте «Орел и решка» ведущая Леся Никитюк куда то пропала с поля зрения телезрителей. Однако поклонники талантливой ведущей не успели поволноваться, совсем скоро на на телеэкранах появится новый проект Никитюк «Вокруг М», выпуски которого также проводит продакшен TeenSpirit Studio. Леся Никитюк станет первой украинской девушкой (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0066004BAC39933F80A431E3704EE40C30CE4A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192476   (263158) от 17.12.2017
+
+Орел и решка. Перезагрузка (2017.12.17) WEB-DL [H.264/1080p-LQ] (сезон 14: Канарские острова)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5F198CA583060E18CD12CD5F1E8A0F017AF077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192478   (263155) от 17.12.2017
 
 Орел и решка. Звёзды (2017.12.17) WEB-DL [H.264/720p-LQ] (Лиссабон. Португалия)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263155.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263153.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263147.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263143.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263140.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263113.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262475.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262466.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262465.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262463.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262460.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262418.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261950.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261947.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261941.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261934.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260080.jpg" />
+  <img src="Z:/picture/005/save_picture_260080.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258930.jpg" />
+  <img src="Z:/picture/005/save_picture_258930.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258168.jpg" />
+  <img src="Z:/picture/005/save_picture_258168.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256603.jpg" />
+  <img src="Z:/picture/005/save_picture_256603.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256214.jpg" />
+  <img src="Z:/picture/005/save_picture_256214.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255967.jpg" />
+  <img src="Z:/picture/005/save_picture_255967.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255167.jpg" />
+  <img src="Z:/picture/005/save_picture_255167.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254202.jpg" />
+  <img src="Z:/picture/005/save_picture_254202.jpg" />
 </div>
 
 
@@ -621,60 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0CF93374A33BC16FD5EDDF4D9E660C50820F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835974   (251748) от 08.11.2025
-
-Камчатка: серфинг в Тихом океане, нерпа и медведь, крабсбургер и пончики | «Поедем, поедим» (08.11.2025)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди на Камчатке научился серфингу в Тихом океане, увидел самого настоящего бурого медведя и поздоровался с нерпой, попробовал крабсбургер и совершенно нетипичные пончики. А еще он отправился в тайгу и даже привезет с собой в Москву частичку потрясающего полуострова!Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11E64D5B781EAEFBB43596228B5676426C12F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492936   (248967) от 08.05.2012
-
-Мир наизнанку с Дмитрием Комаровым - Камбоджа (7 серий) (2011) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор "Мира наизнанку" путешествует по странам, в которые не принято ездить с туристическими турами. В программе вы увидите редкие традиции и уникальные ритуалы, невероятные знакомства с аборигенами. Дмитрий Комаров - украинский журналист и фотограф, специальный корреспондент газеты "Известия в Украине".
-Автор и участник масштабных экспедиций отдает предпочтение одиночным путешествиям – покупает билет в один конец и надолго уезжает в незнакомую страну, чтобы понять ее изнутри, стать ее жителем, показать изнанку.
-В багаже Комарова сегодня порядка 20 стран: Кения, Танзания, Непал, Бирма, Таиланд, Азербайджан, Казахстан, республика Кабардино-Балкария и другие. Одиночное путешествие Комарова по Индии было внесено в "Книгу рекордов Украины" как максимальный пробег "своим ходом" по этой стране за минимальный срок – 20 000 километров за 90 дней. Дмитрий так же восходил на Килиманджаро, Эльбрус и Монблан.Жанр: Документальный, ТелепередачаПродолжительность: 7х ~ 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3988F20EEBCD0E1954A3F2A8463B28C22D7035F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

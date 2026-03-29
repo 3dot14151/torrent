@@ -1,3 +1,163 @@
+###  Публикация: 482025   (88278) от 13.04.2012
+
+Медведев поручил освободить россиян от "мобильного рабства"
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88278.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Президент России Дмитрий Медведев поручил правительству проработать возможность для россиян сохранять номер телефона при смене сотового оператора. Об этом глава государства заявил в ходе заседания "Большого правительства", во вторник, 10 апреля.В свою очередь, руководитель Федеральной антимонопольной службы (ФАС) Игорь Артемьев, присутствующий на заседании "Большого правительства", подтвердил, что отменить так называемое "мобильное рабство" возможно. Артемьев отметил, что затраты сотовых операторов при этом будут минимальными.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477146   (88114) от 12.04.2012
+
+Шаповалов (16 серий из 16) (2012) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майор милиции Юрий Шаповалов трудится оперативником в одном из столичных ОВД. Начальство навязывает ему в помощники вчерашнего выпускника юрфака, молодого оперативника по фамилии Гусь. Герои притираются друг к другу, однако сближение не мешает им продолжать конфликтовать по любому поводу. Помимо работы в уголовном розыске, у Шаповалова есть ещё один, нелегальный, источник дохода: за помощью к Шаповалову, имеющему заслуженную репутацию классного сыщика, то и дело обращаются многочисленные знакомые и знакомые знакомых. По их просьбе он проводит неофициальные расследования. Причём берётся Шаповалов не за всё подряд, а лишь за те дела, которые представляют для него особый интерес, профессиональный и, что тоже играет не последнюю роль, финансовый.Вниманием со стороны женщин Шаповалов не обделён. Он же поддерживает длительные отношения с Анной, женой весьма состоятельного человека, который за границей проводит больше времени, чем на родине. Гибель бывшей жены вносит существенные коррективы в жизнь героя: пятнадцатилетняя (   Читать дальше...   )Жанр: Детектив, Криминал, МелодрамаРежиссер: Илья Максимов (II)Актеры: Александр Балуев, Евгений Пронин, Екатерина Стриженова, Валерий Баринов, Наталия Лесниковская, Николай Сердцев, Александр Кузнецов, Михаил Скачков, Дмитрий Буренков, Александр Сергеев (IV), Александра Живова, Наталья Бардо, Вероника Лысакова, Александр Числов, Андрей Москвичев, Дмитрий Артаев, Александр Сигуев, Денис Березин, Макс Уральский, Максим Дромашко, Кристина Савина, Маргарита Иванова-Донская (IV)Продолжительность: ~ 00:45:00 - серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481342   (87898) от 11.04.2012
+
+Windows 7 Professional SP1 IDimm Edition v.12.12 х86/x64 (2012) (Rus)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87898.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Сборки представлены в виде двух отдельных образов: х86 и х64.
+• Сборки основаны на официальных образах MICROSOFT MSDN:Разработчик: MicrosoftЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481514   (87875) от 11.04.2012
+
+Процветание: Готова ли к нему Земля? / THRIVE: What on Earth will it take? (2011) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следуя вверх по течению денежного потока, сюжет фильма раскрывает глобальную консолидацию власти в практически каждом аспекте нашей жизни. Фильм предлагает реальные решения и смелые стратегии рекультивации нашей жизни и нашего будущего.Производство: США / Clear Compass Media, Westwood Creek Productions, Liquid Buddha StudiosЖанр: Документальный, Публицистика, Теории заговора, Политика, ЭкономикаРежиссер: Стив Ганье, Кимберли Картер ГэмблПеревод: Одноголосый закадровыйПродолжительность: 02:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19741F291C472F4FBD24231F4F4D081AC600410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481215   (87691) от 10.04.2012
+
+Native Instruments - Guitar Rig Pro 5.1.0 by ASSiGN [English]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Native Instruments Guitar Rig 5 Pro v5.1.0 является окончательным программным продуктом для прекрасного тонового гитарного звука с большим количеством амперов, большим количеством эффектов и более творческого потенциала, чем когда-либо прежде, все на сильной и интуитивно понятной стойке эффектов.
+Последняя версия включает два существенных новых ампера высокого качества, (   Читать дальше...   )Язык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479959   (87493) от 09.04.2012
+
+Windows 7 SP1 x32 x64 Combined Images By StartSoft v 18.4.12 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на базе оригинальных образовНазвание программы: Windows 7 SP1 x32 x64 Combined Images By StartSoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480715   (87490) от 09.04.2012
 
 Вышибала / Goon (2011) HDRip
@@ -6,7 +166,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87490.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Command & Conquer 3: Tiberium Wars Kane Edition + Kane's Wrath [Multi3] (L) 2007
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87486.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ Windows 7 Ultimate AUZsoft Metallic v.11.12 [RUS]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87298.jpg" />
 </div>
 
 
@@ -93,7 +253,7 @@ Windows 7 Ultimate x86 v.04.2012 (Иваново) 04.2012 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87297.jpg" />
 </div>
 
 
@@ -119,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87282.jpg" />
 </div>
 
 
@@ -145,7 +305,7 @@ Call of Duty: Modern Warfare 3 (L) [Ru] 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86872.jpg" />
 </div>
 
 
@@ -172,7 +332,7 @@ Driver Genius Professional v.11.0.0.1112 27.03.2012 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86867.jpg" />
 </div>
 
 
@@ -200,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86678.jpg" />
 </div>
 
 
@@ -235,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86467.jpg" />
 </div>
 
 
@@ -263,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86465.jpg" />
 </div>
 
 
@@ -289,7 +449,7 @@ Windows 7 Rose SG™/Chip 2012.03 Final (x64) 2012.03 [Английский / Р
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86460.jpg" />
 </div>
 
 
@@ -320,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86384.jpg" />
 </div>
 
 
@@ -347,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86268.jpg" />
 </div>
 
 
@@ -373,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86261.jpg" />
 </div>
 
 
@@ -399,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86260.jpg" />
 </div>
 
 
@@ -425,7 +585,7 @@ Grand Theft Auto: San Andreas / Criminal Russia / Криминальная Ро�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86256.jpg" />
 </div>
 
 
@@ -451,7 +611,7 @@ Point Blank / Выстрел в упор 2010 {ver. от 18.07.2011} (L) [Ru] 20
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86239.jpg" />
 </div>
 
 
@@ -478,7 +638,7 @@ Counter Strike: Source - Modern Warfare 3 2004 (Mod / RePack) [Ru/En] (2012)| c0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86068.jpg" />
 </div>
 
 
@@ -506,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86066.jpg" />
 </div>
 
 
@@ -532,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86065.jpg" />
 </div>
 
 
@@ -543,171 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476890   (86055) от 02.04.2012
-
-Call of Duty: Black Ops AlterOps (2010) [Ru] (7.0.164) Rip Canek77 [Multiplayer]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86055.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Call of Duty®: АlterOps вам придется сражаться с врагами прямо в тылу, выполняя миссию члена элитного отряда специальных вооруженных сил, участвуя в «скрытой» войне, секретных операциях и проявляя себя в самых горячих точках по всему земному шару. Используя эксклюзивное вооружение и снаряжение, вы сможете сильно повлиять на ход боевых действий, происходящих в самые опасные времена, которые только знало человечество.Тип издания: RipРазработчик: TreyarchЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC80B26CB4F879CE6485EF37E53C041434FEA6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476963   (86041) от 02.04.2012
-
-Total Commander PowerUser v58
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощнейший инструмент для системных администраторов и продвинутых пользователей.
-Основной критерий сборки - максимум функциональности за каждый лишний мегабайтНазвание программы: Total Commander PowerUser v58Язык интерфейса: русский + английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476744   (85831) от 01.04.2012
-
-[Beta] Auto Club Revolution (L) [En] 2012
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auto Club Revolution – это новая массовая многопользовательская онлайн игра, которая перенесет вас в мир уличных гонок.
-Вас ждуд около 100 уникальных машин, а так же возможность их модернизации и тюнинга .
-Отличные трасы, огромное количество автомобилей и деталей, широкий спектр настроек внешности,
-несколько режимов – все это ждет в MMO игре Auto Club Revolution.Тип издания: Лицензия (Beta)Разработчик: EutechnyxЖанр: Arcade / Racing (Cars) / 3D / Online-onlyЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562544ECC40C69F584FC33D83B54525551C5023B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475017   (85648) от 31.03.2012
-
-Fallout: New Vegas Ultimate Edition [Ru/En] (RePack/1.4.0.525) 2012 l R.G. ReCoding
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85648.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением в Нью-Вегас!
-Полное издание игры Fallout: New Vegas — последней на сегодняшний день главы культового постапокалиптического RPG-сериала, высоко оцененной российскими и зарубежными критиками и тепло принятой пользователями.
-Компиляция включает как саму игру, так и все существующие дополнения: Dead Money, Honest Hearts, Old World Blues и Lonesome Road — словом, все испытания и развлечения, которые только может предложить легендарный Нью-Вегас. А чтобы вы могли не просто выжить, но и почувствовать себя уверенно в суровом постапокалиптическом мире, вы войдете в него не с пустыми руками — в вашем распоряжении будут отличные наборы снаряжения Courier’s Stash и Gun Runners Arsenal, содержащие уникальные виды оружия и боеприпасов, а также полезные рецепты.
-В этом путешествии вы обретете немало друзей и, конечно, наживете много врагов — неважно, опытный ли вы исследователь Мохаве или попали сюда впервые. В Пустоши за каждый поступок нужно отвечать, здесь масса возможностей, чтобы прославиться… или покрыть (   Читать дальше...   )Тип издания: RePackРазработчик: Obsidian EntertainmentЖанр: RPG / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B493DDBC850082C413D416F090BFEC33069BFF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476407   (85645) от 31.03.2012
-
-Resident Evil 5 [Multi9\+] (RePack/1.0.0.129) 2009 | R.G. Shift
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный солдат Крис Редфилд, хорошо известный игрокам по предыдущим частям Resident Evil, не оставляет надежды стереть с лица земли все следы деятельности организации, которая уже несколько десятков лет занимается разработками биологического оружия. До сих пор все исследования по созданию армии неуязвимых монстров кончались неудачами, однако безумные ученые не теряют оптимизма и продолжают проводить жестокие эксперименты на живых людях. В поисках истины главный герой отправляется в небольшое африканское поселение и обнаруживает сотни людей, пораженных очередным экспериментальным вирусом. Бедняги изменились не только внешне, но и внутренне: преследуемые жестоким голодом, они нападают на все, что движется. При этом вирус превратил больных в идеальных убийц, сделав их тела гораздо сильнее и выносливее. И очень скоро Крису и его напарнице Шеве Аломар придется встретиться с серьезными противниками, мало напоминающими безмозглых мертвяков из предыдущих игр Resident Evil.(   Читать дальше...   )Тип издания: RePackРазработчик: Capcom EntertainmentЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Испанский, Французский, Немецкий, Китайский, Итальянский, Польский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DE01AC5C38DA126A4FFD02D965646722FB2FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476378   (85635) от 31.03.2012
-
-[Lossless Repack] Ridge Racer Unbounded {1.03} [Multi6\+] 2012 | R.G.Packers
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая гоночная серия Ridge Racers возвращается с великолепной моделью разрушений. В этой безумной гонке больше нет ограничений. Раздави своих соперников и круши все вокруг! Мешают дома, грузовики, ограждения?
-Не стоит объезжать их, тратя драгоценное время. Проруби себе новый путь, и пусть весь город содрогнется!
-Покажите, чего вы стоите за рулем.Тип издания: RePackРазработчик: Bugbear EntertainmentЖанр: Arcade, RacingЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3E4E22FE722158FE79464C55625925E294DA3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

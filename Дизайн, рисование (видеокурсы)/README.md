@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1860916   (1062220) от 
+
+Светлана Баулина | Инженерные коммуникации в ArchiCAD: всё, что нужно знать дизайнеру (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062220.jpg" />
+</div>
+
+
+###  Подробнее
+
+В процессе работы над интерьерами есть задачи, которые дизайнеры не могут решить самостоятельно. Это проектирование инженерных коммуникаций: систем отопления, водоснабжения, вентиляции и канализации, электрических систем и систем умного дома. Создавать инженерные планы могут только специалисты с профильным образованием и соответствующими допусками. Дизайнеру важно (   Читать дальше...   )Жанр: вебинар, графика, дизайн, ArchiCADЯзык озвучки: русскийПродолжительность: 02:22:06Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8CC72D8EE527163EED594B268C30748DAACF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859548   (1061299) от 
 
 TutorPlace, Анастасия Газукина | Акварельная живопись для начинающих (2025) WEB-DL, PCRec [AD] [RU]
@@ -7,7 +33,7 @@ TutorPlace, Анастасия Газукина | Акварельная жив�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061299.jpg" />
+  <img src="Z:/picture/005/save_picture_1061299.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ TutorPlace, Александр Воеводов | Текстурирование
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1060990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1060990.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059797.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ TutorPlace, Алёна Цветкова | Как стать иллюстрато
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059365.jpg" />
+  <img src="Z:/picture/005/save_picture_1059365.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058669.jpg" />
+  <img src="Z:/picture/005/save_picture_1058669.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Marker School, Екатерина Пластинина | Базовый курс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058147.jpg" />
+  <img src="Z:/picture/005/save_picture_1058147.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ TutorPlace, Дарина Костина | Adobe InDesign (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058067.jpg" />
+  <img src="Z:/picture/005/save_picture_1058067.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Game Asset Workflow - A Complet
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055724.jpg" />
+  <img src="Z:/picture/005/save_picture_1055724.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Creative Shrimp, Gleb Alexandrov | EEVEE Realistic Lighting and Rendering (2025)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055723.jpg" />
+  <img src="Z:/picture/005/save_picture_1055723.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Amamschool, Анастасия Масленко, Анастасия Моисее
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054811.jpg" />
+  <img src="Z:/picture/005/save_picture_1054811.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054768.jpg" />
+  <img src="Z:/picture/005/save_picture_1054768.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053674.jpg" />
+  <img src="Z:/picture/005/save_picture_1053674.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053673.jpg" />
+  <img src="Z:/picture/005/save_picture_1053673.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053520.jpg" />
+  <img src="Z:/picture/005/save_picture_1053520.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053519.jpg" />
+  <img src="Z:/picture/005/save_picture_1053519.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ Marker School, Анастасия Агеева | Базовый курс гра�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052058.jpg" />
+  <img src="Z:/picture/005/save_picture_1052058.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050040.jpg" />
+  <img src="Z:/picture/005/save_picture_1050040.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049515.jpg" />
+  <img src="Z:/picture/005/save_picture_1049515.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049514.jpg" />
+  <img src="Z:/picture/005/save_picture_1049514.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ Marker School, Екатерина Пластинина | Bella Grafica! Архи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049488.jpg" />
+  <img src="Z:/picture/005/save_picture_1049488.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049345.jpg" />
+  <img src="Z:/picture/008/save_picture_1049345.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049344.jpg" />
+  <img src="Z:/picture/008/save_picture_1049344.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Genius.Space, Катерина Кравчук | Профессия Графич�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048438.jpg" />
+  <img src="Z:/picture/008/save_picture_1048438.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Yarets.Art, Виктория Ярец | Pixel Art (2025) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048434.jpg" />
+  <img src="Z:/picture/008/save_picture_1048434.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ TutorPlace, Дарина Костина | Adobe Illustrator для начина�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047981.jpg" />
+  <img src="Z:/picture/008/save_picture_1047981.jpg" />
 </div>
 
 
@@ -670,32 +696,6 @@ TutorPlace, Дарина Костина | Adobe Illustrator для начина�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2DD336AEB71EF8364938971051F9BA0FF7499A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840873   (1047638) от 07.12.2025
-
-Академия Нолим, Максим Мазурин | Верстка на Тильде с нуля до pro (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический курс для веб-дизайнеров. Научитесь с нуля качественно верстать сайты с использованием современных принципов веб-дизайна, без знания программирования.Производство: Академия НолимЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 14:17:37Реклама: наложение на видео и в презентации (плашка спонсоров)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161C6A0B26B0840885F88B3FD48BD8E13708C6DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

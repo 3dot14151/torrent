@@ -6,7 +6,7 @@ Everybodys Gone to the Rapture / Хроники последних дней (201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794362.jpg" />
+  <img src="Z:/picture/008/save_picture_794362.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare Filmora 7.2.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794360.jpg" />
+  <img src="Z:/picture/008/save_picture_794360.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794359.jpg" />
+  <img src="Z:/picture/008/save_picture_794359.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794358.jpg" />
+  <img src="Z:/picture/008/save_picture_794358.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794348.jpg" />
+  <img src="Z:/picture/008/save_picture_794348.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794346.jpg" />
+  <img src="Z:/picture/008/save_picture_794346.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ClipGrab 3.8.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794334.jpg" />
+  <img src="Z:/picture/008/save_picture_794334.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ GOM Player Plus 2.3.53.5317 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794330.jpg" />
+  <img src="Z:/picture/008/save_picture_794330.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Dism++ 10.1.25.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794316.jpg" />
+  <img src="Z:/picture/008/save_picture_794316.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794311.jpg" />
+  <img src="Z:/picture/008/save_picture_794311.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ W10Privacy 2.3.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794308.jpg" />
+  <img src="Z:/picture/008/save_picture_794308.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794304.jpg" />
+  <img src="Z:/picture/008/save_picture_794304.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794301.jpg" />
+  <img src="Z:/picture/008/save_picture_794301.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Photoshop Lightroom 6.5.1 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794298.jpg" />
+  <img src="Z:/picture/008/save_picture_794298.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VMware Fusion Pro 11 v11.5.5 (build 16269456) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794272.jpg" />
+  <img src="Z:/picture/008/save_picture_794272.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794248.jpg" />
+  <img src="Z:/picture/008/save_picture_794248.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ IcoFX 3.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794245.jpg" />
+  <img src="Z:/picture/008/save_picture_794245.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794228.jpg" />
+  <img src="Z:/picture/008/save_picture_794228.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Novicorp WinToFlash Professional 1.6.0001 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794208.jpg" />
+  <img src="Z:/picture/008/save_picture_794208.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794203.jpg" />
+  <img src="Z:/picture/008/save_picture_794203.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794199.jpg" />
+  <img src="Z:/picture/008/save_picture_794199.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794195.jpg" />
+  <img src="Z:/picture/008/save_picture_794195.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794194.jpg" />
+  <img src="Z:/picture/008/save_picture_794194.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Proc3durale V2.0.2 for Cinema 4D 2.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794177.jpg" />
+  <img src="Z:/picture/008/save_picture_794177.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ SysTweak Regclean Pro 8.3.81.594 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794175.jpg" />
+  <img src="Z:/picture/008/save_picture_794175.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Depliage V1.3 for Cinema 4D 1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794174.jpg" />
+  <img src="Z:/picture/008/save_picture_794174.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 581975   (320027) от 29.11.2012
+
+Домашние коты / Slacker cats (2 сезона, 12 эпизодов) (2007, 2009) IPTVRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сага о домашних питомцах от создателей «Гриффинов». Рыжий умник Эдди и флегматичный британский голубой Бакли, временами подтверждающий двусмысленность названия своей породы, ищут способ убить свободное время. Чем они займутся сегодня? Заведут тигра, напьются текилы или пришьют бездомной кошке найденное на улице ухо?Жанр: Для взрослых, КомедияРежиссер: Перри Зомболас, Дженнифер Койл, Сет КирслиПерсонажи: Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 12 х ~00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBAB9C1DA09F2A6F09C6E9E45F8466FDDEF088D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180806   (316180) от 10.11.2017
+
+Человек-Паук / Spider-Man: The Animated Series (1994-1998) WEB-DL [H.265/1080p-LQ] (Сезон 1-5, Серии 01-65 из 65)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал повествует историю о супергерое, Человеке-пауке, под маской которого скрывается Питер Паркер - студент университета Эмпайр-стейт, в свободное время подрабатывающий фотографом в издании Дэйли Бьюгл. Случайный укус радиоактивного паука на научной выставке даровал Питеру невероятные паучьи способности. Когда грабитель убил его любимого дядю Бена, Питер решает (   Читать дальше...   )Производство: СШАЖанр: Приключения, Фентези, Рисованная анимация, ДетскийРежиссер: Боб РичардсонПерсонажи: Питер Паркер/Человек-Паук, Мэри Джейн Уотсон, Уилсон Фиск/Кингпин, д-р Курт Коннорс/Ящер, Алистер Смайт, Норман Осборн/Зеленый гоблин, д-р Отто Октавиус/д-р Осьминог, Эдди Брок/Веном, Джейсон Макендейл/Хобгоблин и др.Перевод: Профессиональный (дублированный) серии 1-30, Профессиональный (многоголосый закадровый) серии 31-65Субтитры: нетПродолжительность: 65 серий x ~00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113BB4BAED399BB065E5A976C6D44322BC1CCD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259524   (316138) от 05.11.2018
 
 Охотники на троллей / Trollhunters (2018) WEBRip [H.264/720p-LQ] (сезон 3, серии 1-13 из 13) AlexFilm
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316138.jpg" />
+  <img src="Z:/picture/008/save_picture_316138.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315852.jpg" />
+  <img src="Z:/picture/008/save_picture_315852.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315782.jpg" />
+  <img src="Z:/picture/008/save_picture_315782.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315454.jpg" />
+  <img src="Z:/picture/008/save_picture_315454.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315120.jpg" />
+  <img src="Z:/picture/008/save_picture_315120.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313785.jpg" />
+  <img src="Z:/picture/008/save_picture_313785.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313477.jpg" />
+  <img src="Z:/picture/008/save_picture_313477.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312877.jpg" />
+  <img src="Z:/picture/008/save_picture_312877.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312773.jpg" />
+  <img src="Z:/picture/008/save_picture_312773.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312736.jpg" />
+  <img src="Z:/picture/008/save_picture_312736.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311938.jpg" />
+  <img src="Z:/picture/008/save_picture_311938.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310586.jpg" />
+  <img src="Z:/picture/008/save_picture_310586.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310498.jpg" />
+  <img src="Z:/picture/008/save_picture_310498.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310427.jpg" />
+  <img src="Z:/picture/008/save_picture_310427.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307032.jpg" />
+  <img src="Z:/picture/008/save_picture_307032.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306588.jpg" />
+  <img src="Z:/picture/008/save_picture_306588.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306197.jpg" />
+  <img src="Z:/picture/008/save_picture_306197.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306076.jpg" />
+  <img src="Z:/picture/008/save_picture_306076.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305959.jpg" />
+  <img src="Z:/picture/008/save_picture_305959.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304856.jpg" />
+  <img src="Z:/picture/008/save_picture_304856.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304838.jpg" />
+  <img src="Z:/picture/008/save_picture_304838.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304835.jpg" />
+  <img src="Z:/picture/008/save_picture_304835.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303741.jpg" />
+  <img src="Z:/picture/008/save_picture_303741.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303714.jpg" />
+  <img src="Z:/picture/008/save_picture_303714.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FD63ECCF327D97F0679269E3056CC4D3E8DCAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261522   (302948) от 11.11.2018
-
-Хильда / Hilda (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) TVShows (обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители планеты даже не догадываются, кто живет рядом с ними. Любознательная девочка Хильда умеет находить себе приключения. Каждый день для нее наполнен интересными и загадочными событиями. Её можно назвать смелой, ведь Хильда не боится встретиться со странными созданиями — такими как тролли, древесные люди и великаны.Производство: Великобритания, Канада, Silvergate Media, Mercury Filmworks, NetflixЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Энди КойлАктеры: Белла Рэмси, Амира Фалзон-Оджо, Рэйчел Аткинс, Кори Инглиш, Саймон Гринхолл, Дэйзи Хаггард, Каиса Хаммарлунд, Расмус Хардайкер, Дэвид Менкин, Ако МитчеллПеревод: Многоголосый закадровый, любительский - TVShowsСубтитры: АнглийскиеПродолжительность: ~ 00:24:00 серияРеклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44F364BBDE844164C0DD2ADE4A9E934958A598B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960986   (302725) от 30.11.2015
-
-Lego Эльфы / Lego Elves (2015) WEBRip (серии 1-4)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмили - обычная девочка, которая случайно попадает в мир эльфов через магический портал. С помощью четырех новых друзей ей предстоит совершить полное приключений путешествие, отыскать волшебные ключи, вновь открыть портал и вернуться назад в мир людей ...Производство: Дания, Ja Film, LEGOЖанр: Мультсериал, приключения, семейныйПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E914A23855382E1EE332BB0DF2C14DA255084AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

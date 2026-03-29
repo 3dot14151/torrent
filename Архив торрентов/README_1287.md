@@ -6,7 +6,7 @@ Steve Angello - Live @ Coachella Festival 2017-04-14 [MP3|~225 Kbps (V1)] <Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765484.jpg" />
+  <img src="Z:/picture/008/save_picture_765484.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Receipts 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765468.jpg" />
+  <img src="Z:/picture/008/save_picture_765468.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ WonderPen 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765467.jpg" />
+  <img src="Z:/picture/008/save_picture_765467.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ The Newcomer - Reality Used to Be a Friend of Mine (2018) Beatrice & Annie [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765459.jpg" />
+  <img src="Z:/picture/008/save_picture_765459.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765450.jpg" />
+  <img src="Z:/picture/008/save_picture_765450.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765442.jpg" />
+  <img src="Z:/picture/008/save_picture_765442.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Wise Care 365 Pro 5.5.5.550 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765430.jpg" />
+  <img src="Z:/picture/008/save_picture_765430.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765423.jpg" />
+  <img src="Z:/picture/008/save_picture_765423.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765418.jpg" />
+  <img src="Z:/picture/008/save_picture_765418.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - New Music Releases Week 4 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alte
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765408.jpg" />
+  <img src="Z:/picture/008/save_picture_765408.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ TunesKit Audio Converter 3.0.1.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765407.jpg" />
+  <img src="Z:/picture/008/save_picture_765407.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Artpaper: new daily wallpapers 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765406.jpg" />
+  <img src="Z:/picture/008/save_picture_765406.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ TunesKit Audio Capture 2.0.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765404.jpg" />
+  <img src="Z:/picture/008/save_picture_765404.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Mozilla Firefox Quantum ESR 60.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765403.jpg" />
+  <img src="Z:/picture/008/save_picture_765403.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ TunesKit Audible Converter 2.0.0.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765402.jpg" />
+  <img src="Z:/picture/008/save_picture_765402.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Auslogics File Recovery 8.0.22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765401.jpg" />
+  <img src="Z:/picture/008/save_picture_765401.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mozilla Firefox Quantum 65.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765400.jpg" />
+  <img src="Z:/picture/008/save_picture_765400.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Calibre 3.38.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765393.jpg" />
+  <img src="Z:/picture/008/save_picture_765393.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Calibre 4.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765357.jpg" />
+  <img src="Z:/picture/008/save_picture_765357.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Serato DJ Pro 2.3.6 (2361350) (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765338.jpg" />
+  <img src="Z:/picture/008/save_picture_765338.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Auslogics Disk Defrag Free 8.0.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765335.jpg" />
+  <img src="Z:/picture/008/save_picture_765335.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Opera 58.0.3135.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765332.jpg" />
+  <img src="Z:/picture/008/save_picture_765332.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ WinTools.net Premium 19.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765324.jpg" />
+  <img src="Z:/picture/008/save_picture_765324.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Google Chrome 72.0.3626.81 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765320.jpg" />
+  <img src="Z:/picture/008/save_picture_765320.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Transmit 4.4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765293.jpg" />
+  <img src="Z:/picture/008/save_picture_765293.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Reg Organizer 7.80 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765292.jpg" />
+  <img src="Z:/picture/008/save_picture_765292.jpg" />
 </div>
 
 

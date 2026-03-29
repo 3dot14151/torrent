@@ -1,3 +1,110 @@
+###  Публикация: 1281646   (749589) от 09.02.2019
+
+Александр Никонов | Эволюция на пальцах. Для детей и родителей, которые хотят объяснять детям (2019) [PDF]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_749589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотели бы вы снова от звонка до звонка 10 лет отсидеть за школьной партой? Вряд ли… Школа запихивает в голову огромную кучу знаний, только вот раскиданы они беспорядочно и поэтому остаются невостребованными. Что вот вы помните из школьной программы про теорию эволюции? Обезьяны, Дарвин, гены… Эх, невелик набор, да и системы в нем нет.
+
+Эта книга знакомит детей и (   Читать дальше...   )Жанр: Человек. Земля. ВселеннаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B92172B1302C4D86FF524F81C1661201938F0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019554   (749469) от 23.05.2016
+
+Дуэль братьев. История Adidas и Puma / Duell der Bruder - Die Geschichte von Adidas und Puma (2016) HDTVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый носит их обувь. А это их история. В начале 20-х годов XX века братья Адольф и Рудольф Дасслеры основали небольшую обувную фабрику в баварском городе Херцогенаурах. Благодаря слаженной работе талантливого Ади и коммерческим способностям Руди предприятие быстро расширялось. Лучшие спортсмены мира предпочитали тренироваться и выступать в их шиповках. Однако за (   Читать дальше...   )Производство: ГерманияЖанр: Драма, ВоенныйРежиссер: Оливер ДомменгетАктеры: Джесси Альберт, Флориан Бартоломай, Надя Бекер, Хенк Бухольц, Давид К. Буннерс, Мерл Колле, Александр Кудрясов, Кен Дукен, Кристоф ГарайзенПеревод: Многоголосый закадровый, любительский (ViruseProject)Продолжительность: 01:51:13Реклама: присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0193B5D13B3F0FE3B90323036F2A7A23329B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178204   (749443) от 09.02.2019
+
+ELEX (2017) [Ru/Multi] (1.0.2981.0) Repack R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749443.jpg" />
+</div>
+
+
+###  Подробнее
+
+ELEX — тщательно проработанная динамическая ролевая игра, создаваемая удостоенными наград авторами серии Gothic. Ее действие разворачивается в новой постапокалиптической научно-фантастической вселенной: игроков ждет огромный бесшовный мир, полный ярких персонажей, гротескных мутантов, моральных дилемм и напряженных приключений.Тип издания: RepackРазработчик: Piranha BytesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF039C6AFE6BB83262794445253D60BF0DA0BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805601   (749135) от 17.04.2015
+
+Плутовство / Хвост виляет собакой / Wag the Dog (1997) HDTV [H.264/720p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749135.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам книги Ларри Бейнхарта «Американский герой».
+Чтобы отвлечь внимание общественности от сексуального скандала, связанного с президентом США, срочно вызван специалист по нештатным ситуациям Конрад Брин (Роберт Де Ниро). Брин решает инсценировать небольшую войну с помощью голливудского продюсера Стенли Мотса (Дастин Хоффман). Вдвоем они смело организуют задуманное (   Читать дальше...   )Производство: США, Baltimore Pictures, New Line Cinema, Punch ProductionsЖанр: Драма, Комедия, Политическая сатираРежиссер: Барри ЛевинсонАктеры: Роберт Де Ниро, Дастин Хоффман, Андреа Мартин, Вуди Харрельсон, Джеймс Белуши, Джон Майкл ХиггинсПеревод: 2x Профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DBF649AAF380A9AB5DEFD7E7D571FAB1B37C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822991   (749119) от 17.04.2015
 
 Бриклберри / Brickleberry (2014) WEB-DL [H.264/720p-LQ] (Сезон 3, серии 1-13 из 13) (NewStudio) [18+]
@@ -6,7 +113,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749119.jpg" />
+  <img src="Z:/picture/008/save_picture_749119.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Windows x64 Plus Office Release by StartSoft 14-2018 Lite [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748986.jpg" />
+  <img src="Z:/picture/008/save_picture_748986.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Death to Spies / Смерть шпионам Дилогия [Ru] (Lossless Repac
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748180.jpg" />
+  <img src="Z:/picture/008/save_picture_748180.jpg" />
 </div>
 
 
@@ -90,7 +197,7 @@ BELOFF 2020.07 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748020.jpg" />
+  <img src="Z:/picture/008/save_picture_748020.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v18 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747820.jpg" />
+  <img src="Z:/picture/008/save_picture_747820.jpg" />
 </div>
 
 
@@ -145,7 +252,7 @@ F.E.A.R. 3 (2011) [Ru/En] (16.00.20.1060/dlc) Repack Mizantrop1337
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747684.jpg" />
+  <img src="Z:/picture/008/save_picture_747684.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747682.jpg" />
+  <img src="Z:/picture/008/save_picture_747682.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.434]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747632.jpg" />
+  <img src="Z:/picture/008/save_picture_747632.jpg" />
 </div>
 
 
@@ -226,7 +333,7 @@ CCleaner 5.18.5607 Free | Professional | Business | Technician Edition RePack (&
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747586.jpg" />
+  <img src="Z:/picture/008/save_picture_747586.jpg" />
 </div>
 
 
@@ -252,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747418.jpg" />
+  <img src="Z:/picture/008/save_picture_747418.jpg" />
 </div>
 
 
@@ -278,7 +385,7 @@ KMSAuto Lite 1.1.7 Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747297.jpg" />
+  <img src="Z:/picture/008/save_picture_747297.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_747265.jpg" />
+  <img src="Z:/picture/005/save_picture_747265.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ JetBrains WebStorm 2018.1 Build #WS-181.4203.535 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747258.jpg" />
+  <img src="Z:/picture/008/save_picture_747258.jpg" />
 </div>
 
 
@@ -357,7 +464,7 @@ BBC: Недостающее звено (В поисках наших далек�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746795.jpg" />
+  <img src="Z:/picture/008/save_picture_746795.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746463.jpg" />
+  <img src="Z:/picture/008/save_picture_746463.jpg" />
 </div>
 
 
@@ -409,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746461.jpg" />
+  <img src="Z:/picture/008/save_picture_746461.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ Windows 10 Enterprise 2004 x64 Rus by OneSmiLe [19041.388]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746401.jpg" />
+  <img src="Z:/picture/008/save_picture_746401.jpg" />
 </div>
 
 
@@ -464,7 +571,7 @@ Malwarebytes Premium 4.1.2.73 RePack by Emir Candan (64-bit) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746395.jpg" />
+  <img src="Z:/picture/008/save_picture_746395.jpg" />
 </div>
 
 
@@ -490,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_746240.jpg" />
+  <img src="Z:/picture/005/save_picture_746240.jpg" />
 </div>
 
 
@@ -516,7 +623,7 @@ The KMPlayer 4.2.2.21 repack by cuta (build 2) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746088.jpg" />
+  <img src="Z:/picture/008/save_picture_746088.jpg" />
 </div>
 
 
@@ -542,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_746037.jpg" />
+  <img src="Z:/picture/005/save_picture_746037.jpg" />
 </div>
 
 
@@ -568,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746017.jpg" />
+  <img src="Z:/picture/008/save_picture_746017.jpg" />
 </div>
 
 
@@ -579,110 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FDE4FA5BFB9E1D648EEE301D220386991659F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246389   (745947) от 11.02.2019
-
-Молодёжка. Лёд и пламя (2018) WEB-DLRip [H.264/720p-LQ] (сезон 6, серии 1-44 из 44)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745947.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бурые Медведи» получили шанс сыграть в КХЛ, и теперь команду ждут головокружительные перспективы и мировая знаменитость в лице канадского тренера. В новых условиях нет места прежнему тренеру Сергею Макееву, который остаётся без работы и карьерного роста. Помочь старому другу решает бессменный спонсор «Медведей» — Олег Иванович Калинин. Он предлагает Сергею вновь (   Читать дальше...   )Производство: РоссияЖанр: драмаРежиссер: Андрей ГоловковАктеры: Денис Никифоров, Андрей Мерзликин, Михаил Жигалов, Фёдор Бондарчук, Сергей Габриэлян, Владимир Зайцев, Сергей Комаров, Анатолий Кот, Анатолий Лобоцкий, Ксения Лаврова-Глинка и др.Продолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C0D2C40A6E7CDFB9B8D5FFDC9258901CE75E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003208   (745906) от 25.05.2016
-
-Банши / Banshee (2016) HDTVRip [H.264] (сезон 4, серии 1-8 из 8) Amedia, NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Banshee — бывший заключенный и профессиональный вор, который присваивает себе личность шерифа Банши (городка в Пенсильвании), где он продолжает нарушать закон, хотя ему не дают покоя гангстеры, которых он предал много лет назад.Производство: США, "Your Face Goes Here Entertainment", "Cinemax"Жанр: Боевик, Драма, Триллер, ДетективРежиссер: Оле Кристиан Мадсен, Грег Яйтанс, Лони ПеристерАктеры: Энтони Старр, Ивана Миличевич, Хун Ли, Рас Блэквелл, Триесте Келли Данн, Лили Симмонс, Фрэнки Фэйзон, Мэтт Сервитто, Деметриус Гросс, Ульрих Томсен, Райанн Шэйн, Бен Кросс, Энтони Руйвивар, Мэттью РойчПеревод: Многоголосый закадровый, профессиональный - Amedia / NewStudioСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFFF6E2E7F9B57899A24FD06BA70A0F14833870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216845   (745891) от 02.04.2018
-
-«Почта России»: доставка ... теперь и беспилотником (UPD)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745891.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Почта России» 2 апреля намерена осуществить первую в своей истории доставку груза с помощью беспилотного летательного аппарата.Местом старта тестового рейса выбрана площадка отделения почтовой связи в 105 микрорайоне Улан-Удэ, сообщается на официальном сайте правительства Бурятии.Почтовый груз будет доставлен на беспилотнике в село Тарбагатай Тарбагатайского района. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889983   (745696) от 19.04.2015
-
-Microsoft Office 2013 SP1 Professional Plus 15.0.4711.1000 (x64) RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере любого уважающего себя пользователя, который использует ПК не только для развлечений. Эффективные и удобные в использовании средства помогут (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3952803D931817881325E271B0AC152C1204519F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1669427   (172756) от 16.10.2023
+
+Фотография - Фотограф года дикой природы 2023 [PNG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жюри конкурса Wildlife Photographer Of The Year объявило победителей 2023 года. Лучшим фотографом в области дикой природы стал француз Лоран Баллеста, запечатлевший под водой мечехвоста — это настоящее живое ископаемое, известное своей голубой кровью, находится под угрозой исчезновения из-за использования ее для изготовления лекарств.
+
+В номинации «Под водой» победил (   Читать дальше...   )Формат: PNGРазрешение файлов: 1536x1543 - 2560x2209
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7AAE0BC2235CB9954B1ABCE62D718E7EECE4AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669631   (172585) от 17.10.2023
 
 Фотография - Фотограф года дикой природы 2021 [PNG]
@@ -6,7 +34,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172585.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172434.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172433.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172411.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172407.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172400.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172390.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172264.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172254.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172203.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172073.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172066.jpg" />
 </div>
 
 
@@ -337,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171996.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171120.jpg" />
 </div>
 
 
@@ -389,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170974.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170967.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170942.jpg" />
 </div>
 
 
@@ -469,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170930.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170928.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170912.jpg" />
 </div>
 
 
@@ -549,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170894.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170883.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170863.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170814.jpg" />
 </div>
 
 
@@ -659,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170768.jpg" />
 </div>
 
 
@@ -670,32 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1FF36A2124D319BA57FB547F99863755B5E7899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514834   (170721) от 05.12.2021
-
-Фотография - ArtStation - Grafit Studio - 130+ Female Character Pinup Poses [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет включает в себя более 130 фото-референсов в высоком разрешении с женскими позами в стиле пинап и станет отличным инструментом для создания игривых персонажей. Некоторые позы сняты под разными углами, что позволяет вам выбрать нужную вам позу. Это очень удобный набор поз для начинающих, но он также поможет более профессиональным художникам ускорить свою (   Читать дальше...   )Формат: JPGРазрешение файлов: 1888x3232 - 4248x3072
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59541EEE77CEE283EFF4AA4453C567BFD00F15CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

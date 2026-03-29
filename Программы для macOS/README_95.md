@@ -1,3 +1,145 @@
+###  Публикация: 1166529   (423935) от 17.09.2017
+
+OptimUSB 7.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423935.jpg" />
+</div>
+
+
+###  Подробнее
+
+OptimUSB - приложение, которое оптимизирует ваш USB и карты памяти. Вам просто нужно запустить OptimUSB перед извлечением вашего USB-накопителя. Любые временные файлы Mac или Windows удаляются (.DS_Store, .Trashes, .Spotlight-V100, Thumbs.db и т. д.). Затем OptimUSB автоматически извлечет ваш диск из системы.
+
+Помните, что macOS генерирует временные файлы при каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.09.2017Разработчик: HamacaSoftПоддерживаемая ОС: macOS 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA11912D801C211BEF2EE1B7041A11F787C0571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250554   (423898) от 28.09.2018
+
+Moom 3.2.12 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобная утилита для быстрого изменения размера окон и их положения в Mac OS X. Добавляет новые возможности зелёной кнопки ресайза окон в Файндэр.
+
+Необходимо отметить, прозрачный pop-up идеально вписывается в идеологию новой операционной системы OSX 10.7 Lion. Внутри небольшого окошка находятся пять пиктограмм отображающих предстоящие изменения положения окна. Шестой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: Many TricksПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B8B3C9D08E6538B022C5CA11E99FE761D5304E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064880   (423893) от 21.10.2016
+
+Disk Expert 2.3.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Expert  - освободите ваш диск
+Disk Expert - приложени позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых  огромных файлов и папок.
+
+Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2015Разработчик: NektonyПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA380F525898A8DCCA1410F5C2D09513FD20FF4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064883   (423785) от 21.10.2016
+
+Disk Inspector 2.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Inspector - инспектор диска
+Неиспользуемые файлы могут быть занимают значительные объемы пространства.
+Disk Inspector - приложение сканирует жесткий диск и формирует графическую диаграмму использования файловой системы. Приложение предназначено тем, кто следит за использованием дискокого пространста или например, ограничен пространством SSD диска. Вы можете (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 января 2016Разработчик: NektonyПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31FDC6E4FEE218E9E78072064FE8CB9CB63D148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064891   (423778) от 21.10.2016
+
+App Cleaner Pro 3.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просмотр установленных приложений и удалить пакет файлов для полного удаления.
+App Cleaner - Лучшее приложение для удаления файлов приложения службы на Mac OS X и деинсталляции приложений *.
+
+* Некоторые приложения не могут быть удалены, поскольку они требуют прав администратора. В этом случае, переключиться на Finder и удалите файл приложения в обычном порядке.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 сентября 2016Разработчик: NektonyПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B462A004CE2C892D53DF0E56F07E2882CA436092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 830914   (423655) от 13.10.2014
 
 Apple iMovie 10.0.5 [Multi/Ru]
@@ -6,7 +148,7 @@ Apple iMovie 10.0.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423655.jpg" />
+  <img src="Z:/picture/008/save_picture_423655.jpg" />
 </div>
 
 
@@ -34,7 +176,7 @@ MP3 Audio Recorder 3.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423087.jpg" />
+  <img src="Z:/picture/008/save_picture_423087.jpg" />
 </div>
 
 
@@ -60,7 +202,7 @@ Mia for Gmail 2.4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423059.jpg" />
+  <img src="Z:/picture/008/save_picture_423059.jpg" />
 </div>
 
 
@@ -86,7 +228,7 @@ Artstudio Pro 2.3.25 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422969.jpg" />
+  <img src="Z:/picture/008/save_picture_422969.jpg" />
 </div>
 
 
@@ -112,7 +254,7 @@ Receipts 1.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422773.jpg" />
+  <img src="Z:/picture/008/save_picture_422773.jpg" />
 </div>
 
 
@@ -140,7 +282,7 @@ Mirror for Samsung TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422541.jpg" />
+  <img src="Z:/picture/008/save_picture_422541.jpg" />
 </div>
 
 
@@ -169,7 +311,7 @@ Photo Mechanic 6 v6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422411.jpg" />
+  <img src="Z:/picture/008/save_picture_422411.jpg" />
 </div>
 
 
@@ -195,7 +337,7 @@ onOne Perfect Photo Suite Premium Edition 9.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422240.jpg" />
+  <img src="Z:/picture/008/save_picture_422240.jpg" />
 </div>
 
 
@@ -221,7 +363,7 @@ UnDistracted 1.73 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422052.jpg" />
+  <img src="Z:/picture/008/save_picture_422052.jpg" />
 </div>
 
 
@@ -250,7 +392,7 @@ Bevy 1.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421636.jpg" />
+  <img src="Z:/picture/008/save_picture_421636.jpg" />
 </div>
 
 
@@ -277,7 +419,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420443.jpg" />
+  <img src="Z:/picture/008/save_picture_420443.jpg" />
 </div>
 
 
@@ -303,7 +445,7 @@ Things 2.8.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420267.jpg" />
+  <img src="Z:/picture/008/save_picture_420267.jpg" />
 </div>
 
 
@@ -332,7 +474,7 @@ Tonality CK (Pro) 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420172.jpg" />
+  <img src="Z:/picture/008/save_picture_420172.jpg" />
 </div>
 
 
@@ -360,7 +502,7 @@ Spectre 1.9.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420089.jpg" />
+  <img src="Z:/picture/008/save_picture_420089.jpg" />
 </div>
 
 
@@ -387,7 +529,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.23 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419773.jpg" />
+  <img src="Z:/picture/008/save_picture_419773.jpg" />
 </div>
 
 
@@ -415,7 +557,7 @@ A Better Finder Attributes 7 v7.01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418367.jpg" />
+  <img src="Z:/picture/008/save_picture_418367.jpg" />
 </div>
 
 
@@ -441,7 +583,7 @@ Translatium 14.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418359.jpg" />
+  <img src="Z:/picture/008/save_picture_418359.jpg" />
 </div>
 
 
@@ -467,7 +609,7 @@ Bartender 3 v3.1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417911.jpg" />
+  <img src="Z:/picture/008/save_picture_417911.jpg" />
 </div>
 
 
@@ -494,7 +636,7 @@ PVF Update (091) Mojave [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417842.jpg" />
+  <img src="Z:/picture/008/save_picture_417842.jpg" />
 </div>
 
 
@@ -522,7 +664,7 @@ OnyX 3.8.6 for macOS Catalina 10.15 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417839.jpg" />
+  <img src="Z:/picture/008/save_picture_417839.jpg" />
 </div>
 
 
@@ -548,7 +690,7 @@ Focus CK (Pro) 1.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417801.jpg" />
+  <img src="Z:/picture/008/save_picture_417801.jpg" />
 </div>
 
 
@@ -559,138 +701,6 @@ Focus CK (Pro) - это мощное программное обеспечени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5B239546C75E6EC6CD88658BEC780A218F27E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251374   (417596) от 01.10.2018
-
-Wondershare TunesGo 9.7.2.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare TunesGo - надежная и удобная в работе программа с интуитивно понятным пользовательским интерфейсом, которая была создана, чтобы дать вам все необходимые инструменты для управления содержимом в ваших iOS и Android устройствах. Теперь в едином интерфейсе, можно вести управление девайсами и выполнять большое количество операций.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Wondershare Technology Corp.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский, французский, испанский, немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F02AD4F1A5059A3301670DF8ECE65D9873D0629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572936   (417261) от 29.08.2022
-
-Brightly Pro 2.1.7 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Brightly Pro разработано для macOS Monterey с интуитивно понятным интерфейсом, в котором есть все функции редактирования фотографий, какие вы ожидаете, чтобы показать ваши фотографии и видео в лучшем свете, и изначально работает на компьютерах Mac с процессором Apple M1. Поднимите редактирование на новый уровень с помощью обязательных профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.08.2022Разработчик: © 2022 Code Organa LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D86F37783E1C90CD02649BBCE893F5B7DD0753C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572976   (417259) от 29.08.2022
-
-Metadata Converter Pro for Mac 1.6 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metadata Converter - это интуитивно понятный редактор метаданных пакетных фотографий, средство просмотра и переименования. Исправьте теги метаданных EXIF ​​/ IPTC / XMP в ваших фотографиях: поместите координаты GPS, удалите личную информацию с ваших фотографий, исправьте или установите даты съемки, добавьте свои собственные авторские права и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2022Разработчик: © 2022 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78638DE9A1692F2F38D145F1E11295E733CC708A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573067   (417258) от 29.08.2022
-
-Filmage Editor 1.3.4 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное и простое в использовании программное обеспечение для редактирования видео, которое  вдохновит всех. Filmage Editor включает в себя все расширенные и базовые функции, позволяющие создавать и редактировать видео за считанные минуты, даже если вы новичок в этом. Используйте все возможности редактирования и поделитесь ими с кем угодно в мире. Дайте своим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.08.2022Разработчик: © 2019-2022 Filmage Pro Team, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA05CA09ACD92A118AB0279DEE3DA2E9BF8DDAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573023   (417257) от 29.08.2022
-
-Synalyze It! Pro 1.26 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Synalyze It! Pro - это удобный Hex-редактор.
-Synalyze It! Pro – это инновационное приложение, которое позволит вам легко редактировать и анализировать двоичные файлы любого размера.
-Особенностью Synalyze It! является расширенная поддержка большого числа символьных кодировок, что позволит вам в интерактивном режиме определять грамматики для различных форматов файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2022Разработчик: © 2010-2019 SynalysisПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB0F9ED9C600CDC44524641951467139DE7EB9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

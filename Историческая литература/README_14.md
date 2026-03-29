@@ -1,3 +1,135 @@
+###  Публикация: 983225   (945316) от 05.02.2016
+
+Николай Лузан | СМЕРШ. Один в поле воин (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор рассматривает период с ноября 1941 по октябрь 1943 г. и рассказывает о деятельности отечественной военной контрразведки, в частности особых отделов НКВД СССР - ГУКР Смерш НКО СССР.
+В основе книги лежит одна из наиболее значимых разведывательных операций советской контрразведки по агентурному проникновению в абвер. Она получила кодовое название "ЗЮД". (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D0C313B1E16FFE9B456D85DBC6787F8F3B7F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983089   (944881) от 05.02.2016
+
+Михаил Красуский | Древность малороссийского языка (1880) [PDF, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкое издание, брошюра, напечатанная в Одессе, в тогдашней Российской империи (1880 г.) о древности славянских языков, и украинского ("малороссийского") языка - в частности. Автор, поляк по национальности, малоизвестный российский и польский филолог. Судьба автора - неизвестна. Брошюра - осталась для потомков и имеет определенную научную ценность. В файле (   Читать дальше...   )Жанр: История, лингвистикаЯзык: Русский (дореформенный)Издательство: Типографія Г.Ульриха, Красный переулокъ, домъ № 3-йФормат: PDF, RTFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6DDE1E79C31A643C2D4CAC6E747DC1B98339A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751667   (944841) от 31.01.2014
+
+Олександер Барвинський | История Украины-Руси (1904) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно увлекательная, легко читающаяся книга по истории Украинского народа - как её представляли в начале XX века в России (на сегодня кое-что устарело).Жанр: Раритеты, историяФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733FE7B798506606345540AA8727CBC9B9970C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983293   (943793) от 06.02.2016
+
+Николай Лузан | Иллюзия. Цена – жизнь (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943793.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой книге Н. Лузана «Иллюзия. Цена — жизнь» впервые раскрываются многие тайные механизмы, которые в течение нескольких столетий, а также в последние годы двигали и продолжают двигать драматическими событиями на Южном и Северном Кавказе.
+Политики и спецслужбы России, США, Германии, Великобритании, Турции и Грузии вели и продолжают вести жестокую, непримиримую, (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046941FD6009487CB8DAAE6FFDE914FACE63D8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983290   (943789) от 06.02.2016
+
+Николай Лузан | Drang nach Osten. Натиск на Восток (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943789.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередной книге Н. Лузана «Drang nach Osten. Натиск на Восток» на основе обширного документального материала, полученного из различных источников, в том числе архивов отечественных спецслужб, представлена яркая и многоплановая картина эпохальных событий, относящихся как к недавнему прошлому — Второй мировой войне, так и к полной невероятного напряжения исторической (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E799080AF6CC1091C229809EB7773CEC73D175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983289   (943737) от 06.02.2016
 
 Николай Лузан | Контрразведка. Тайная война (2014) [FB2]
@@ -6,7 +138,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943737.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943673.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943633.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943627.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942243.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942242.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942231.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942186.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942134.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941961.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940917.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940611.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940288.jpg" />
 </div>
 
 
@@ -348,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940157.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939014.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939007.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939001.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938935.jpg" />
 </div>
 
 
@@ -479,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938934.jpg" />
 </div>
 
 
@@ -505,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938930.jpg" />
 </div>
 
 
@@ -533,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938855.jpg" />
 </div>
 
 
@@ -544,140 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B86EEA916E7B05F094A5138D4C364FE78C2A79F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984535   (938841) от 09.02.2016
-
-Владимир Антонов | Служба внешней разведки. История, люди, факты (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ни одно государство не может обойтись без внешней разведки. Это доказала история. Это подтверждает и современность. Ведь основной ее задачей является добывание для высшего руководства страны достоверной, во многом упреждающей информации по тем проблемам, которые могли бы нанести ущерб ее интересам.
-Каким образом Советскому Союзу удалось создать самую эффективную (   Читать дальше...   )Жанр: Биографии и Мемуары, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4D53A451CAF04F5AC0F5B8C7E52EE9BC6820E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984907   (937018) от 10.02.2016
-
-Анатолий Терещенко | Колокола тревог (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937018.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге автор проводит анализ причин распада СССР. Анатолий Терещенко проводит множество исторических фактов и документов, которые дают четкое представление о заказчиках и исполнителях развала великой страны.
-Эти, казалось бы, далекие события тесно переплетаются с современностью. Что ждет Россиию в будущем? Ответ на вопрос в этой книге.Жанр: История, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEFD0F403F34ACA75C3A5F5B0EAC14441B53E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984911   (936909) от 10.02.2016
-
-Анатолий Терещенко | Руины некомпетентности (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрушительное влияние некомпетентности общеизвестно. Она порождает сбои в любом механизме служебной деятельности, а при смирении с ней — хаос и руины тех участков, где эта болезнь существует. Благоприятной основой ее служат: «телефонное право», кумовство, «родственные лифты», личная преданность и умение молчать там, где надо сказать о недостатках правдиво.
-Некомпетентность, (   Читать дальше...   )Жанр: История, ИсториографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44973419D96823AFD8C879C902898451D6EDB40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493328   (936142) от 10.03.2013
-
-Книжная серия "Живая история. Повседневная жизнь человечества" (120 книг) [1999-2012] [FB2, DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия исторических книг Живая история. Повседневная жизнь человечества выпускается издательством «Молодая гвардия» с 1999 года.
-Повседневная жизнь каждого человека с ее рутиной, однообразным бытом представляется чем-то непреодолимо скучным. Но когда она становится историей, то окутывается романтическим флером, прорастает загадками. И чем дальше от нашего сегодня прошедшая эпоха, тем больше у нее загадок, и тем неудержимее в нас стремление разгадать их. Что свидетельствует ныне о быте ушедших эпох? Как выглядели жившие в них люди? Как были одеты, причесаны, как развлекались и любили друг друга, чем украшали себя женщины, какие кушанья подавались к столу? Что считалось приличным, а что возмутительным? На эти и множество других подобных вопросов ответят книги серии Живая история. Повседневная жизнь человечества.Формат: FB2 (88 книг), DJVU (24 книги), PDF (8 книг)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1F30265695CC91310D27F4B40B1EAE72CABD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985389   (935561) от 11.02.2016
-
-В. Я. Доброхотов (отв. ред.) | Ленинские принципы партийной пропаганды: межвузовский сборник (1978) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный межвузовский сборник посвящен анализу основополагающих методологических требований идеологической работы — ленинских принципов партийной пропаганды и агитации и путей их осуществления. Авторы обобщают опыт партийных организаций по внедрению научных основ агитационно-пропагандистской работы на различных этапах революционной борьбы, социалистического и коммунистического (   Читать дальше...   )Жанр: История, политология, психологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF254B0729AB08EA6733AE431A7535D133C011D
 ```
 
 https://mybot314.ru/tekegram_catalog/

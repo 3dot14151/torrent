@@ -1,3 +1,139 @@
+###  Публикация: 855989   (959054) от 04.01.2015
+
+Кэтрин Ласки | Призрачный (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый роман серии «Волки из страны Далеко-Далеко».
+Фаолан появился на свет не таким, как другие волчата, и по законам волчьих кланов был обречён на смерть. Однако несмотря на кривую лапку, он не только выжил и вернулся в своё племя, но и сумел стать одним из самых достойных членов стаи. Он вот-вот займёт своё место в Страже Кольца Священных вулканов… но внезапно (   Читать дальше...   )Жанр: ФэнтезиПеревод: Олег ПерфильевФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7ADC70A1B193D0641140C9B5C715A2FC88FE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856218   (958864) от 04.01.2015
+
+Карло Коллоди | Приключения Пиноккио (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка итальянского писателя Карло Коллоди «Приключения Пиноккио. История Деревянного Человечка» впервые увидела свет в 1881 году: её напечатала римская «Газета для детей». В России сказка вышла в 1906 году и сразу же стала одним из самых любимых детских произведений. Иначе и быть не могло – приключения смешного, несносного, упрямого, находчивого и остроумного деревянного (   Читать дальше...   )Жанр: Детская литераураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042A2E1ACB38804D2D53000FA2023CB15067FC03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856235   (958854) от 04.01.2015
+
+Жаклин Уэст | Книги Иных Мест. Книга заклинаний. Книга 2. (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман серии «Книги Иных Мест».
+С помощью волшебных котов Олив удалось одолеть злую ведьму, которой раньше принадлежал ее дом. Но оказывается, где-то в доме хранится книга заклинаний, с помощью которой можно творить волшебство и раскрыть все тайны особняка. Девочка находит книгу, которая начинает управлять ею. Олив теряет друзей и снова встречается с могущественной (   Читать дальше...   )Жанр: ФэнтезиПеревод: Алина КурышеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5D79A77C091390F40F1DBCF86BAB32674FEB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856227   (958847) от 04.01.2015
+
+Жаклин Уэст |Книги Иных Мест. Книга теней. Книга 1. (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман серии «Книги Иных Мест».
+Что получится, если найти волшебные очки и посмотреть через них на волшебную картину? Спросите об этом у Олив.
+Как? Вы не знаете Олив?! Ей одиннадцать лет, у нее нет математических способностей, но зато она живет в таинственном старом доме, умеет находить необыкновенные предметы и приобретать неожиданных знакомых.
+Какие секреты (   Читать дальше...   )Жанр: ФэнтезиПеревод: Алина КурышеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604AF41E0915C6BCBDE1ED37ECB9B4FD0A7BBD2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748532   (958824) от 22.01.2014
+
+М. Лезинский, Б. Эскин | Сын бомбардира (1978) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть о юном герое Севастопольской обороны 1854—1855 гг. Коле Пищенко, удостоенном за свои подвиги ордена высшей солдатской доблести — «Георгия» и других наград.
+Книга рассчитана на детей среднего школьного возраста.Жанр: Детские приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4106B9BAAF391F7A332304C87410466FA8E2ECC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979673   (958578) от 27.01.2016
 
 Эмилиян Станев | Весна в январе (1981) [DJVU]
@@ -6,7 +142,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958578.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958523.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958288.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958201.jpg" />
 </div>
 
 
@@ -110,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958089.jpg" />
 </div>
 
 
@@ -136,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957581.jpg" />
 </div>
 
 
@@ -162,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957294.jpg" />
 </div>
 
 
@@ -188,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957230.jpg" />
 </div>
 
 
@@ -214,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957145.jpg" />
 </div>
 
 
@@ -241,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957080.jpg" />
 </div>
 
 
@@ -267,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956780.jpg" />
 </div>
 
 
@@ -295,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956768.jpg" />
 </div>
 
 
@@ -322,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956757.jpg" />
 </div>
 
 
@@ -348,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956753.jpg" />
 </div>
 
 
@@ -374,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956747.jpg" />
 </div>
 
 
@@ -400,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956691.jpg" />
 </div>
 
 
@@ -427,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956648.jpg" />
 </div>
 
 
@@ -453,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956484.jpg" />
 </div>
 
 
@@ -479,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956365.jpg" />
 </div>
 
 
@@ -507,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956241.jpg" />
 </div>
 
 
@@ -534,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956108.jpg" />
 </div>
 
 
@@ -546,138 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41CEDC58A213B66827C5D841D514D4C62E2176E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361510   (955728) от 19.02.2020
-
-Элли Конди, Брендан Райх | Темная бездна (2020) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Тёмная бездна».
-Когда после издевательств одноклассников двенадцатилетний Нико Холленд падает с утеса в ледяные воды Тихой бухты, его друзья Тайлер и Эмма вместе с «крутой девчонкой» Опал бросаются на помощь… и обнаруживают остров, сокрытый в тумане.
-На безлюдном острове ощущается чье-то незримое присутствие, а в заброшенном плавучем доме, который (   Читать дальше...   )Жанр: Фэнтези, Мистика и ужасыПеревод: Мария ШмидтФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371F047AA2D2879327D0C9B0BF186A5FB968814E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361496   (955299) от 19.02.2020
-
-Эдуард Успенский | Крокодил Гена и его друзья (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая известная сказочная повесть Э. Успенского «Крокодил Гена и его друзья» — одна из лучших историй про дружбу для малышей. Ведь в ней друзьями становятся совершенно разные существа, которые вместе делают полезное дело — строят Дом дружбы. А чтобы им не было скучно, автор придумал вредную старуху Шапокляк, борьба с которой тоже объединяет героев сказочной повести. (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBB9145192D9839D2951CE803A62D4AA2E38727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361489   (955218) от 19.02.2020
-
-Наталья Попова | Финансы для тинейджеров. Книга для детей и родителей (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деньги — это инструмент. Их мало просто иметь, с ними нужно уметь обращаться. Эта книга — первый шаг к выполнению этой задачи. На её страницах рассказывается просто о сложном: реальной цене денег, макро- и микроэкономике, инфляции, кредитах и доходе. Книга станет первым кирпичиком в фундаменте подросткового финансового образования, подтолкнет к поиску других важных (   Читать дальше...   )Жанр: О бизнесе популярноФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FECBEDC79DB61616673A8A65BB7498BC468912F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088786   (955148) от 01.01.2017
-
-Джулия Дональдсон | Пещерное дитя (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мохнатый серый мамонт берет баловника - пещерного мальчугана в волнующее путешествие через залитый лунным светом пейзаж, населенный крадущимся саблезубым тигром, скачущим зайцем и хохочущей гиеной и, возможно, даже, ОГРОМНЫМ МЕДВЕДЕМ! Но куда они идут? И какое это имеет отношение к детским каракулям на стене пещеры? Забавная история от автора "Груффало" (   Читать дальше...   )Жанр: Детская проза, СказкаПеревод: О.КучаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A3FD76943536556C9773E7B0415462E6D796D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088791   (955072) от 01.01.2017
-
-Наринэ Абгарян | Семен Андреич. Летопись в каракулях (2013) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955072.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Летопись в каракулях" Семёна Андреича - настоящее семейное чтение. Для тех, кто любит смеяться, мечтать и умеет не пасовать перед трудностями. Для тех, кто переживает самую счастливую пору своей жизни - детство. И для тех, кто застрял в этой счастливой поре навсегда.Жанр: Детская проза, СказкаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81454DFC6C8D62835CDBE651A1B1C80852A3A7A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

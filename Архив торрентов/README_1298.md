@@ -6,7 +6,7 @@ KCNcrew Pack 05-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763245.jpg" />
+  <img src="Z:/picture/008/save_picture_763245.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Transparent clock & weather / Прозрачные часы и погода 5.26
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763228.jpg" />
+  <img src="Z:/picture/008/save_picture_763228.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Windows and Office ISO Download Tool 8.01 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763208.jpg" />
+  <img src="Z:/picture/008/save_picture_763208.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763196.jpg" />
+  <img src="Z:/picture/008/save_picture_763196.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Moom 3.2.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763189.jpg" />
+  <img src="Z:/picture/008/save_picture_763189.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ MediaInfo 18.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763176.jpg" />
+  <img src="Z:/picture/008/save_picture_763176.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ SMPlayer 18.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763174.jpg" />
+  <img src="Z:/picture/008/save_picture_763174.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763167.jpg" />
+  <img src="Z:/picture/008/save_picture_763167.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763141.jpg" />
+  <img src="Z:/picture/008/save_picture_763141.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Fantastical 2.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763138.jpg" />
+  <img src="Z:/picture/008/save_picture_763138.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763134.jpg" />
+  <img src="Z:/picture/008/save_picture_763134.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763127.jpg" />
+  <img src="Z:/picture/008/save_picture_763127.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Open Server 5.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763115.jpg" />
+  <img src="Z:/picture/008/save_picture_763115.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Auslogics Disk Defrag Free 8.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763073.jpg" />
+  <img src="Z:/picture/008/save_picture_763073.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Soft Organizer 7.10 RePacK by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763062.jpg" />
+  <img src="Z:/picture/008/save_picture_763062.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ NetLimiter 4.0.34.0 Enterprise Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763059.jpg" />
+  <img src="Z:/picture/008/save_picture_763059.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ FlashBoot 2.1c + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763054.jpg" />
+  <img src="Z:/picture/008/save_picture_763054.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Privacy Eraser Free 4.12.3 Build 1978 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763033.jpg" />
+  <img src="Z:/picture/008/save_picture_763033.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Amethystium - Emblem (Selected Pieces) (2006) Compilation, 2009, TME [FLAC|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763021.jpg" />
+  <img src="Z:/picture/008/save_picture_763021.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763020.jpg" />
+  <img src="Z:/picture/008/save_picture_763020.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763009.jpg" />
+  <img src="Z:/picture/008/save_picture_763009.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ ON1 Photo RAW 2018.1 v12.1.1.5088 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762996.jpg" />
+  <img src="Z:/picture/008/save_picture_762996.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ IObit Driver Booster Pro 5.3.0.752 Portable by SamDel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762982.jpg" />
+  <img src="Z:/picture/008/save_picture_762982.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762981.jpg" />
+  <img src="Z:/picture/008/save_picture_762981.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762962.jpg" />
+  <img src="Z:/picture/008/save_picture_762962.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762958.jpg" />
+  <img src="Z:/picture/008/save_picture_762958.jpg" />
 </div>
 
 

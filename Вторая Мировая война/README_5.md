@@ -1,3 +1,29 @@
+###  Публикация: 1285097   (724608) от 24.02.2019
+
+Король, обманувший Гитлера / The King Who Tricked Hitler (2016) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это одна из самых невероятных историй Второй мировой войны, рассказанная последним королем Румынии Михаилом I. Это история о решении короля, который в критический момент Второй мировой войны отказался от поддержки Германии, направив Румынию к союзникам. Считается, что это сократило войну на несколько месяцев, однако свобода Румынии была недолгой... Это история дворцовых (   Читать дальше...   )Производство: РумынияЖанр: Документальный, биография, война, историяРежиссер: Тревор ПоотсПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Субтитры: Английские на румынскую речь (вшитые)Продолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71020ABBC017AE43FCC6A1D249B25E6BA181652E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285101   (724467) от 24.02.2019
 
 Король, обманувший Гитлера / The King Who Tricked Hitler (2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724467.jpg" />
+  <img src="Z:/picture/008/save_picture_724467.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG. Суперсооружения Третьего рейха: Война с А
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724313.jpg" />
+  <img src="Z:/picture/008/save_picture_724313.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG. Суперсооружения Третьего рейха: Война с А
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724189.jpg" />
+  <img src="Z:/picture/008/save_picture_724189.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722507.jpg" />
+  <img src="Z:/picture/008/save_picture_722507.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722133.jpg" />
+  <img src="Z:/picture/008/save_picture_722133.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713490.jpg" />
+  <img src="Z:/picture/008/save_picture_713490.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ NG: Последние герои войны / World War II: The Last War Heroes
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712452.jpg" />
+  <img src="Z:/picture/008/save_picture_712452.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ NG: Последние герои войны / World War II: The Last War Heroes
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710665.jpg" />
+  <img src="Z:/picture/008/save_picture_710665.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708575.jpg" />
+  <img src="Z:/picture/008/save_picture_708575.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ NG: Последние герои войны / World War II: The Last War Heroes
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706722.jpg" />
+  <img src="Z:/picture/008/save_picture_706722.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705761.jpg" />
+  <img src="Z:/picture/008/save_picture_705761.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705656.jpg" />
+  <img src="Z:/picture/008/save_picture_705656.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702561.jpg" />
+  <img src="Z:/picture/008/save_picture_702561.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ NG: Последние шаги Гитлера / Hitler's Last Stand (2018) WEB-
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701157.jpg" />
+  <img src="Z:/picture/008/save_picture_701157.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695040.jpg" />
+  <img src="Z:/picture/008/save_picture_695040.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694858.jpg" />
+  <img src="Z:/picture/008/save_picture_694858.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694609.jpg" />
+  <img src="Z:/picture/008/save_picture_694609.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694174.jpg" />
+  <img src="Z:/picture/008/save_picture_694174.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693648.jpg" />
+  <img src="Z:/picture/008/save_picture_693648.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691995.jpg" />
+  <img src="Z:/picture/008/save_picture_691995.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690664.jpg" />
+  <img src="Z:/picture/008/save_picture_690664.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690406.jpg" />
+  <img src="Z:/picture/008/save_picture_690406.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690399.jpg" />
+  <img src="Z:/picture/008/save_picture_690399.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690397.jpg" />
+  <img src="Z:/picture/008/save_picture_690397.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689073.jpg" />
+  <img src="Z:/picture/008/save_picture_689073.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6EE3F3A75E23B2DADDD562CEBE86EBA745150C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028705   (688581) от 23.06.2016
-
-Брестская крепость (2007) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о первом поистине героическом сражении Великой Отечественной войны – обороне Брестской крепости. Борьба за нее началась 22 июня 1941 года и продолжалось долгих 29 дней. Авторы при помощи впечатляющих компьютерных реконструкций воссоздают атмосферу первых дней боев за крепость. В фильме использованы уникальные кадры хроники, а также принимают участие сами защитники (   Читать дальше...   )Телекомпания: Россия, телекомпания «ВоенТВ»Жанр: Документальный, война, историяРежиссер: Андрей Велемицын, Руслан ЗайнетдиновПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85087087518618F41FC8F3890D565E6AB6821FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

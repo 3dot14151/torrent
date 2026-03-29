@@ -6,7 +6,7 @@ The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42548.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Strange Investigations 4: Truth Will Out / Удивительные рассле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34680.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Twin Mind 5: The Deathly Trick / Двуединое сознание 5: Смер
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34677.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aurora Hills: Chapter 1 / Аврора-Хиллз: Глава 1 (2024) [Ru/Multi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34648.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bridge to Another World 12: The Christmas Curse / Мост в другой ми�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34632.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Grim Tales 25: Light in the Darkness / Страшные сказки 25: Све�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34621.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Maze of Realities 5: Synergy of Worlds / Лабиринт Реальностей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34599.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Detectives United 7: Mission Possible / Лига детективов 7: Мис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34595.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Halloween Stories 8: Inspirations Spark / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34496.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Harmony Chronicles 2: Demon of the Void / Хроники Гармонии 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34490.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Gloomy Tales 3: Hotel Frightsylvania / Мрачные истории 3: Отел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34291.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mystery Trackers 20: Reflections of the Past / Охотники за тайна�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33999.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Connected Hearts 5: Hour of the Witch / Связанные сердца 5: Ча�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33545.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Unsolved Case 6: Ash and Secrets / Нераскрытое дело 6: Пепел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33544.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Jixo: The Season of Joy / Jixo: Сезон веселья (2024) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33542.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mystery Case Files 27: The Riddle of Mrs. Bishop / За семью печатя�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33436.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Christmas Stories 13: Clara and the Guiding Star (2024) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33229.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Christmas Wonderland 15 / Рождество. Страна Чудес 15 (2024) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33018.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Mystery of Myths: Heart of Athens (2024) [Multi] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32924.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Christmas Fables 3: The Wishing Store / Рождественские небыл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32923.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Christmas Stories 13: Clara and the Guiding Star / Рождественские 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32920.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Paranormal Files 12: Fatal Flaw (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32826.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mystery of Myths: Heart of Athens / Тайна мифов: Сердце Афин
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31621.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Detective Club: Missing in the Fog (2025) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30304.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Paranormal Files 12: Fatal Flaw / Паранормальные явления 12
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30233.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Dark Town Secrets: Lost Lulu / Секреты Темного города: В п
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29211.jpg" />
 </div>
 
 

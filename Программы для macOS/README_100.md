@@ -1,3 +1,144 @@
+###  Публикация: 1173082   (391156) от 10.10.2017
+
+sdspeed 3.2.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391156.jpg" />
+</div>
+
+
+###  Подробнее
+
+sdspeed - Программное обеспечение для проверки целостности карты флэш-памяти SD
+sdspeed является единственным продуктом, который измеряют чтения и записи скорости и тестирования каждый бит карты памяти SD вы можете доверять без "конфликта интересов".
+
+Вы ищете тест скорости SD карты на Mac, как проверить скорость карты памяти, SD Card Speed Test, тест флэш-карты (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 марта 2017Разработчик: Michael MustunПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE445157C7F7916E31D8A88F69FE774D7B56D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173310   (390474) от 11.10.2017
+
+Wondershare Data Recovery 6.2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_390474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление утерянных фотографий, видео, документов, электронных писем и архивных файлов с любого жесткого диска Mac или внешнего жесткого диска, IPod, USB диска, SD карты, цифрового фотоаппарата, мобильного телефона и MP3/MP4-плеера в результате случайного удаления, форматирования, вирусной инфекции, неправильной эксплуатации, неожиданного отключения питания (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2017Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: OS X 10.6.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5640F215268110286C5BBB2FF402E787EF2FB0B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173404   (390402) от 11.10.2017
+
+Wallpaper Wizard 2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_390402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбирайте из сотен  изображений для рабочего стола в формате HD, и приложение будет устанавливать новый фон каждую неделю, день или час. Наконец, вы можете избавить себя от просеивания изображений Google - с помощью Wallpaper Wizard 2, у вас будет достаточно свежих обоев для всей вашей жизни Mac.
+
+Wallpaper Wizard - Более 25 000 обоев, все изображения в формате 4K (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2017Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8162336C3C92CD06899435F1858E39B6DF3767D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173340   (390359) от 11.10.2017
+
+FileMaker Pro 16 Advanced 16.0.3.302 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_390359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте индивидуальные приложения для своего бизнеса
+FileMaker Pro — это мощное и удобное программное обеспечение для создания пользовательских приложений, беспрепятственно работающих на iPad, iPhone, Windows, Mac и в браузерах.
+
+Легко создавайте собственные пользовательские приложения, соответствующие уникальным и постоянно меняющимся потребностям вашего бизнеса. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2017Разработчик: FileMaker, Inc.Поддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824F6851577AF48D6D3EC959924F655F47EC791B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173580   (389645) от 12.10.2017
+
+PDF Expert 2.2.11 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_389645.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - лучший редактор файлов PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11 октября 2017Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0000BD5E6C43ACAC08827BFB751F27E8452CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173571   (389626) от 12.10.2017
 
 KeepVid Pro 6.4.0 [En]
@@ -6,7 +147,7 @@ KeepVid Pro 6.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389626.jpg" />
+  <img src="Z:/picture/008/save_picture_389626.jpg" />
 </div>
 
 
@@ -32,7 +173,7 @@ Chatty for Facebook 2.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388941.jpg" />
+  <img src="Z:/picture/008/save_picture_388941.jpg" />
 </div>
 
 
@@ -61,7 +202,7 @@ Social Media Lab - Templates 1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387583.jpg" />
+  <img src="Z:/picture/008/save_picture_387583.jpg" />
 </div>
 
 
@@ -88,7 +229,7 @@ DiskExpert 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387527.jpg" />
+  <img src="Z:/picture/008/save_picture_387527.jpg" />
 </div>
 
 
@@ -116,7 +257,7 @@ Tap 1.5 11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387250.jpg" />
+  <img src="Z:/picture/008/save_picture_387250.jpg" />
 </div>
 
 
@@ -145,7 +286,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.188 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387104.jpg" />
+  <img src="Z:/picture/008/save_picture_387104.jpg" />
 </div>
 
 
@@ -174,7 +315,7 @@ Desktop Clock 1.8.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386945.jpg" />
+  <img src="Z:/picture/008/save_picture_386945.jpg" />
 </div>
 
 
@@ -200,7 +341,7 @@ Movavi Screen Capture Pro 5 v5.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385087.jpg" />
+  <img src="Z:/picture/008/save_picture_385087.jpg" />
 </div>
 
 
@@ -227,7 +368,7 @@ Patterns - The Regex App 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385029.jpg" />
+  <img src="Z:/picture/008/save_picture_385029.jpg" />
 </div>
 
 
@@ -256,7 +397,7 @@ Leaf - RSS News Reader 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384989.jpg" />
+  <img src="Z:/picture/008/save_picture_384989.jpg" />
 </div>
 
 
@@ -285,7 +426,7 @@ Movavi Video Editor 5 Plus 5.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384831.jpg" />
+  <img src="Z:/picture/008/save_picture_384831.jpg" />
 </div>
 
 
@@ -314,7 +455,7 @@ Wondershare PDF Converter Pro (OCR) 5.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384360.jpg" />
+  <img src="Z:/picture/008/save_picture_384360.jpg" />
 </div>
 
 
@@ -342,7 +483,7 @@ popCalendar 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383398.jpg" />
+  <img src="Z:/picture/008/save_picture_383398.jpg" />
 </div>
 
 
@@ -370,7 +511,7 @@ Deskovery3 v3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382655.jpg" />
+  <img src="Z:/picture/008/save_picture_382655.jpg" />
 </div>
 
 
@@ -399,7 +540,7 @@ Intaglio 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381772.jpg" />
+  <img src="Z:/picture/008/save_picture_381772.jpg" />
 </div>
 
 
@@ -425,7 +566,7 @@ DjVuReader EX 1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381125.jpg" />
+  <img src="Z:/picture/008/save_picture_381125.jpg" />
 </div>
 
 
@@ -453,7 +594,7 @@ IINA 0.0.14 (build 45) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380928.jpg" />
+  <img src="Z:/picture/008/save_picture_380928.jpg" />
 </div>
 
 
@@ -479,7 +620,7 @@ WindowMizer 4.4.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380597.jpg" />
+  <img src="Z:/picture/008/save_picture_380597.jpg" />
 </div>
 
 
@@ -508,7 +649,7 @@ Studies 1.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379629.jpg" />
+  <img src="Z:/picture/008/save_picture_379629.jpg" />
 </div>
 
 
@@ -536,7 +677,7 @@ Dejal Simon 4.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379627.jpg" />
+  <img src="Z:/picture/008/save_picture_379627.jpg" />
 </div>
 
 
@@ -562,7 +703,7 @@ JustBroadcaster for Facebook 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379619.jpg" />
+  <img src="Z:/picture/008/save_picture_379619.jpg" />
 </div>
 
 
@@ -574,138 +715,6 @@ JustBroadcaster for Facebook 2.1.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1370681FB1C94EF51171DC0F18AE74E5496C7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253915   (379527) от 11.10.2018
-
-Watercolor Studio Pro 1.4.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Studio - удивительное приложение, способное имитировать акварель и создавать необычные работы, которые будут смотреть максимально естественно. Разработчики с помощью системы рендеринга смогли добиться небывалых результатов, отражая практически реальную составляющую акварели и даже подтеки она будет после себя оставлять как на холсте.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: JixiPix Software, LLCПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C550788FCA81EE6422BA4E57E33AB3D74ECC993A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253805   (379524) от 11.10.2018
-
-ChatMate for Facebook 4.3.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379524.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChatMate для Facebook - мощный клиент для Facebook Messenger.Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: coldX SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A312A4DE24894355FE22F0BC231A14FE44F5F5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253683   (379523) от 11.10.2018
-
-iGif Creator 4.2.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете создать анимированный GIF из ваших видеоклипов, изображений и GIF с различным текстовым слоем на каждом GIF кадре.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2017Разработчик: XiTian CaiПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A63DC0B3BBB9A3086E5FE670C333681CF17AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253910   (379522) от 11.10.2018
-
-JustBroadcaster for YouTube 2.1 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый быстрый путь транслировать с вашего Mac на YouTube
-
-Идеально для тех у кого нет времени вникать в технические детали. Создайте профессиональную трансляцию в считанные минуты.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: Mihail GaraninПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EDD94868D9BEA43A6E178AD8FE86CF0AB9E5FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253793   (379404) от 11.10.2018
-
-Icon Plus - Icon & Logo Design 1.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавьте любую фотографию на Вашем Mac в красивый icon, комбинируйте изображения и текст, для создания потрясающего логотипа. Редактируйте существующие иконки для достижения идеального пользовательского интерфейса. Все эти особенности делают Icon Plus очень полезным инструментом как для разработчиков приложений, так и для графических дизайнеров.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2017Разработчик: Cezar PopescuПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122F3E4E3994625D147CB23E7D76268D6B9A9766
 ```
 
 https://mybot314.ru/tekegram_catalog/

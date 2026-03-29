@@ -1,3 +1,115 @@
+###  Публикация: 1335623   (285823) от 03.11.2019
+
+Live Home 3D Pro Edition 3.7.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
+
+Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2019Разработчик: Belight Software, Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA72148A7134A11446CD42E2EA41B84A028F791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963872   (285787) от 09.12.2015
+
+Beamer 3.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beamer for Mac: смотрите видео любого формата на Apple TV
+Приложение Beamer предназначено для стриминга вашего видеоконтента непосредственно на Apple TV. Оно подкупает своей простотой и удобством. В приложении нет никаких настроек, а только окошко, куда необходимо «перетянуть» видеофайл.
+Для обладателя обширной видеотеки iTunes, приобретение Apple TV является самим (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2015Разработчик: Tupil B.V.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E41884B2637C395899775288B32DD90DCE76F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186546   (285650) от 25.11.2017
+
+Disk Drill Enterprise 3.5.872 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill - восстановление информации без помощи специалистов
+Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: maOS softwareРелиз состоялся: ноябрь 2017Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.8.5 +Язык интерфейса: Русский, Английский, Польский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA6E5DE22EC564F64DDB0475DBB2A00CE70F5E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963935   (285622) от 09.12.2015
+
+Affinity Designer 1.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Designer - векторный редактор
+Affinity Designer является самым быстрым, плавным, самым точным векторным графическим редактором. Работаете ли вы над графикой для маркетинговых материалов, веб-сайтов, иконками, дизайном пользовательского интерфейса или просто, как создание концепт-арт, Affinity Designer внесет революцию в Вашу работу.
+
+Affinity Designer  в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 декабря 2015Разработчик: Serif (Europe) LtdПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: английский, испанский, немецкий, французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27695F9A85A5EBFEA42F293E6654DFB30E4080DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335649   (285507) от 03.11.2019
 
 Pacifist 3.6.2 [En]
@@ -6,7 +118,7 @@ Pacifist 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285507.jpg" />
+  <img src="Z:/picture/008/save_picture_285507.jpg" />
 </div>
 
 
@@ -35,7 +147,7 @@ Bartender 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285123.jpg" />
+  <img src="Z:/picture/008/save_picture_285123.jpg" />
 </div>
 
 
@@ -62,7 +174,7 @@ XMind 7 Pro 3.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285122.jpg" />
+  <img src="Z:/picture/008/save_picture_285122.jpg" />
 </div>
 
 
@@ -88,7 +200,7 @@ OS X El Capitan 10.11.2 (15C50) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285043.jpg" />
+  <img src="Z:/picture/008/save_picture_285043.jpg" />
 </div>
 
 
@@ -115,7 +227,7 @@ AnyTrans 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284899.jpg" />
+  <img src="Z:/picture/008/save_picture_284899.jpg" />
 </div>
 
 
@@ -142,7 +254,7 @@ DropDMG 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284897.jpg" />
+  <img src="Z:/picture/008/save_picture_284897.jpg" />
 </div>
 
 
@@ -169,7 +281,7 @@ SpamSieve 2.9.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284887.jpg" />
+  <img src="Z:/picture/008/save_picture_284887.jpg" />
 </div>
 
 
@@ -198,7 +310,7 @@ Alfred Powerpack 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284786.jpg" />
+  <img src="Z:/picture/008/save_picture_284786.jpg" />
 </div>
 
 
@@ -227,7 +339,7 @@ UninstallPKG 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284772.jpg" />
+  <img src="Z:/picture/008/save_picture_284772.jpg" />
 </div>
 
 
@@ -255,7 +367,7 @@ PullTube 0.10.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284743.jpg" />
+  <img src="Z:/picture/008/save_picture_284743.jpg" />
 </div>
 
 
@@ -283,7 +395,7 @@ Hazel 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284741.jpg" />
+  <img src="Z:/picture/008/save_picture_284741.jpg" />
 </div>
 
 
@@ -309,7 +421,7 @@ Cookie 5 v5.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284681.jpg" />
+  <img src="Z:/picture/008/save_picture_284681.jpg" />
 </div>
 
 
@@ -338,7 +450,7 @@ RightFont 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284680.jpg" />
+  <img src="Z:/picture/008/save_picture_284680.jpg" />
 </div>
 
 
@@ -365,7 +477,7 @@ BusyContacts 1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284679.jpg" />
+  <img src="Z:/picture/008/save_picture_284679.jpg" />
 </div>
 
 
@@ -393,7 +505,7 @@ BusyCal 3 v3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284673.jpg" />
+  <img src="Z:/picture/008/save_picture_284673.jpg" />
 </div>
 
 
@@ -420,7 +532,7 @@ iCollections 4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284669.jpg" />
+  <img src="Z:/picture/008/save_picture_284669.jpg" />
 </div>
 
 
@@ -446,7 +558,7 @@ Carbon Copy Cloner 4.1.12 (4485) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284641.jpg" />
+  <img src="Z:/picture/008/save_picture_284641.jpg" />
 </div>
 
 
@@ -475,7 +587,7 @@ BlueHarvest 6.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284640.jpg" />
+  <img src="Z:/picture/008/save_picture_284640.jpg" />
 </div>
 
 
@@ -504,7 +616,7 @@ Jump Desktop (RDP & VNC) 8.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284508.jpg" />
+  <img src="Z:/picture/008/save_picture_284508.jpg" />
 </div>
 
 
@@ -531,7 +643,7 @@ PhoneRescue for Android 3.6.0 20180503 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284504.jpg" />
+  <img src="Z:/picture/008/save_picture_284504.jpg" />
 </div>
 
 
@@ -557,7 +669,7 @@ PhoneRescue for IOS 3.7.2.20180929 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284503.jpg" />
+  <img src="Z:/picture/008/save_picture_284503.jpg" />
 </div>
 
 
@@ -583,7 +695,7 @@ JetBrains RubyMine 2018.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284335.jpg" />
+  <img src="Z:/picture/008/save_picture_284335.jpg" />
 </div>
 
 
@@ -594,116 +706,6 @@ RubyMine — умная и удобная интегрированная сре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBC099FC1637D4001D5CA5B8C2EF2F3381FA15CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263937   (284333) от 21.11.2018
-
-Camtasia v2018.0.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2018Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B0848531BC54A2F75215A88BF4A8600C0F4D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081189   (284288) от 09.12.2016
-
-Dead Effect 2 (2016) [En] [macOS WineSkin]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Effect 2 – научно-фантастический шутер от первого лица с добротной сюжетной линией и элементами RPG. Вы сможет играть как в одиночку, так и вместе с Вашими друзьями в кооперативном режиме. События новой части разворачивается с того момента, где закончился сюжет оригинальной Dead Effect.
-Протагонисту покой только снится – новая угроза, еще более опасная, чем (   Читать дальше...   )Тип издания: macOS WineSkinРелиз состоялся: 2016Разработчик: BadFly Interactive, a.s.Поддерживаемая ОС: Mac OS X 10.10.5+Жанр: Action (Survival horror)Язык озвучки: английскийЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDEE4B5C76580C565DD1891FBAC1D5846F13442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263897   (284207) от 21.11.2018
-
-Two Point Hospital v.1.6.22002 (2018) [Multi/Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спроектируйте и постройте больницу!
-
-Постройте больницу с нуля и сделайте её самой привлекательной — и самой эффективно работающей — во всём округе Две Вершины.
-(   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 30 авг. 2018Разработчик: Two Point StudiosПоддерживаемая ОС: 10.13Жанр: СимуляторыЯзык озвучки: английскийЯзык интерфейса: русский, английский, французский +
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99F0486751BA508486169CC6079A2B87D00CA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186751   (284081) от 26.11.2017
-
-WiFi Explorer Pro 1.3.2 (16) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284081.jpg" />
-</div>
-
-
-###  Подробнее
-
-WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
-
-WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и ИТ-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2017Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF586724295E3AA33D8A417DF944F153CE933CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

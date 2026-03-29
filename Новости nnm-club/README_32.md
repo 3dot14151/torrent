@@ -1,3 +1,107 @@
+###  Публикация: 1215866   (946289) от 25.02.2020
+
+Лёд (2018) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946289.jpg" />
+</div>
+
+
+###  Подробнее
+
+С самого детства Надя верила в чудеса. Она представляла себе, как выходит на лёд под овации публики и танцует свой самый красивый танец. И вот, благодаря вере и упорству, Надя становится знаменитой фигуристкой. Но когда ее мечты о громких победах, красивой жизни и прекрасном принце уже, кажется, готовы исполниться, судьба преподносит ей настоящее испытание. И чтобы (   Читать дальше...   )Производство: Россия, Телеканал «РОССИЯ 1», Кинокомпания «Водород», Art Pictures StudioЖанр: Мелодрама, Драма, СпортРежиссер: Олег ТрофимАктеры: Аглая Тарасова, Диана Енакаева, Мария Аронова, Александр Петров, Милош Бикович, Ян Цапник, Ксения Раппопорт, Ксения Лаврова-Глинка, Павел МайковПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D352214AF98FA9309DD91EB352B0C74A2156EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751267   (945711) от 30.01.2014
+
+Советник / The Counselor (2013) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный адвокат, стоящий практически на вершине успеха и на пороге собственной свадьбы, из любопытства и, конечно, ради денег соглашается на предложение своего давнего знакомого, имеющего тесные связи с преступным миром, перевезти из Мексики в США партию кокаина стоимостью 20 млн. долл.Производство: США, Великобритания / Chockstone PicturesЖанр: Триллер, Криминал, ДрамаРежиссер: Ридли Скотт / Ridley ScottАктеры: Майкл Фассбендер, Хавьер Бардем, Брэд Питт, Натали Дормер, Пенелопа Крус, Кэмерон Диаз, Дин Норрис, Джон Легуизамо, Рози Перес, Горан ВишничПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CBC680EF4AEF83E36680E5B94678CC6DAE09E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090588   (945498) от 07.01.2017
+
+Intel Compute Card — компьютер размером с кредитную карту
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Intel представила новую модульную компьютерную платформу. Она называется Intel Compute Card и призвана ускорить развитие интернета вещей за счет увеличения количества «умных и подключенных устройств». В ее продвижении Intel полагается на своих партнеров.Платформа Intel Compute Card имеет размеры 95 x 55 x 5 мм. При этом она включает все элементы полноценного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090326   (945412) от 07.01.2017
+
+Total Commander 9.0a LitePack | PowerPack | ExtremePack 2017.1 Final + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82B240C4E56CD074BD08A4A026754FCDAC47FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 107942   (945358) от 13.01.2015
 
 Морфий (2008) DVDRip [H.264]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945358.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945214.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Samsung и LG, похоже, разрабатывают внешние мони�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944936.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944934.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.19041.84 - Оригинальн�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944739.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944642.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944625.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ AutoCAD 360 Pro v3.5.3 Final [Ru/Multi] - Мобильная версия AutoCA
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944607.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ WinPE 8.0 Sergei Strelec (x86/x64/Native x86) 04.02.2016 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944593.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Apple Final Cut Pro X 10.2.3,  Motion 5.2.3 & Compressor 4.2.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944577.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ StarCraft & Brood War (1998) [Ru/Multi] (1.16.1/1.3.0.1) Repack Raf-9600
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944545.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944339.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944337.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944314.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ BELite v.08.01.17 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943981.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ Tomb Raider [Ru] (RePack/1.00.716.5/3DLC) 2013 | =Чувак=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943888.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ VideoHive - Slideshow Constructor [AEP]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943851.jpg" />
 </div>
 
 
@@ -460,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943839.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ RMS Удаленный доступ 6.10 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943470.jpg" />
 </div>
 
 
@@ -514,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943459.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943455.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ Deepin OS 15.1 [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943249.jpg" />
 </div>
 
 
@@ -577,110 +681,6 @@ Linux Deepin (ранее Hiweed Linux) — дистрибутив Linux, осн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E5E3345B704DF4B85733C65FDF9D4381F9F8AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983217   (943117) от 06.02.2016
-
-Бильярдная братия / Rack Pack (2016) WEBRip [H.264/720p-LQ] [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это художественный драматический биографический фильм о снукере в период его расцвета в 70-80-е годы, в центре сюжета – конкуренция между горячим смутьяном Алексом "Ураганом" Хиггинсом и его невозмутимым в своем спокойствии "ледяным" противником Стивом Дэвисом. В фильме, снятом в жанре трагикомедии, рассказывается и про то, как с помощью Дэвиса (   Читать дальше...   )Производство: США, Великобритания, BBCЖанр: ДрамаРежиссер: Брайан УэлшАктеры: Люк Тридэуэй, Уилл Меррик, Кевин Бишоп, Никола Берли, Джеймс БэйлиПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: sprvisionСубтитры: ОтсутствуютПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B4A0941374333249E18320FB56554B5B0C9BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983268   (943098) от 06.02.2016
-
-Стив Джобс / Steve Jobs (2015) BDRip [H.264/1080p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Стив Джобс» - биографическая лента об одном из пионеров эры IT-технологий. Картина разделена на три условные части, каждая из которых рассказывает о важном для Джобса периоде, связанном с выпуском ключевых продуктов его компании. В 1984 году Стив вместе с командой разработчиков презентовал Макинтош. 1988 год - Apple теряла долю на рынке, испытывала сложности (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Драма, биографияРежиссер: Дэнни БойлАктеры: Майкл Фассбендер, Сет Роген, Джефф Дэниелс, Кейт Уинслет, Майкл Стулбарг, Кэтрин Уотерстон, Перла Аней-Жардине, Рипли Собо, Макензи Мосс, Сара Снук.Перевод: Дублированный (Чистый звук)Язык субтитров: РусскийПродолжительность: 02:02:21Реклама: Присутствует голосовая вставка рекламы в начале.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2876450F38848A7EAE4779E1FCCB896AF2B6F88D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982835   (943094) от 06.02.2016
-
-Avast Premier 2016.11.1.2253 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943094.jpg" />
-</div>
-
-
-###  Подробнее
-
-avast! Premier – самый мощный из всех существующих антивирусов avast. Версия Premier обладает многослойной антивирусной защитой, веб-контролем угроз, брандмаэуром, проверкой облачных технологий и всех систем виртуализции. Программа представляет собой улучшенную версию avast Internet Security, которая снабжена функцией удаления файла без возможности восстановления, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7A8094B2FBF6EDB076F92E84726803328EA87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281645   (942856) от 15.01.2011
-
-Бэтмен / Batman (1989, 1992, 1995, 1997, 2005, 2008) [1080p] Blu-Ray [Коллекция]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бэтмен поднимает ставки в войне с криминалом. С помощью лейтенанта Джима Гордона и прокурора Харви Дента он намерен очистить улицы от преступности, отравляющей город. Сотрудничество оказывается эффективным, но скоро они обнаружат себя посреди хаоса, развязанного восходящим криминальным гением, известным испуганным горожанам под именем Джокер.Жанр: Боевик, Триллер, ФантастикаРежиссер: Кристофер Нолан.Актеры: Кристиан Бэйл, Хит Леджер, Аарон Экхарт, Майкл Кейн, Мэгги Джилленхол, Гари Олдман, Морган Фриман, Моника Карнен, Рон Дин, Киллиан Мёрфи и др.Перевод: ДублированныйЯзык субтитров: Русские, Английские, Арабские, Болгарские, Исландские, Хорватские, Чешские, Венгерские, Польские, Румынские, Словенские, Турецкие, Хинди, ИвритПродолжительность: 02:32:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

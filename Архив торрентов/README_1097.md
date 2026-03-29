@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797703.jpg" />
+  <img src="Z:/picture/008/save_picture_797703.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Realtime Landscaping Architect 2018 v.18.03 +Models [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797690.jpg" />
+  <img src="Z:/picture/008/save_picture_797690.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797680.jpg" />
+  <img src="Z:/picture/008/save_picture_797680.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Progressive Sampler Series: The Best Of Vol.03 (2016) [MP3|320 кб/с] <Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797668.jpg" />
+  <img src="Z:/picture/008/save_picture_797668.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - This Is How Trance Works Vol.9 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797667.jpg" />
+  <img src="Z:/picture/008/save_picture_797667.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ VA - Trancemission Miami (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797661.jpg" />
+  <img src="Z:/picture/008/save_picture_797661.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797658.jpg" />
+  <img src="Z:/picture/008/save_picture_797658.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797657.jpg" />
+  <img src="Z:/picture/008/save_picture_797657.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797655.jpg" />
+  <img src="Z:/picture/008/save_picture_797655.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ SlimBrowser 7.00 Build 143 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797654.jpg" />
+  <img src="Z:/picture/008/save_picture_797654.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Mozilla Firefox 47.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797652.jpg" />
+  <img src="Z:/picture/008/save_picture_797652.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Trance Top 1000 Selection 039 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797651.jpg" />
+  <img src="Z:/picture/008/save_picture_797651.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Fileloupe - Media Browser 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797648.jpg" />
+  <img src="Z:/picture/008/save_picture_797648.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797641.jpg" />
+  <img src="Z:/picture/008/save_picture_797641.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Total Video Converter Pro 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797638.jpg" />
+  <img src="Z:/picture/008/save_picture_797638.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Jedidiah - Divine Universe (2016) Uxmal Records [FLAC|Lossless|WEB-DL|tracks] <P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797637.jpg" />
+  <img src="Z:/picture/008/save_picture_797637.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797635.jpg" />
+  <img src="Z:/picture/008/save_picture_797635.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797632.jpg" />
+  <img src="Z:/picture/008/save_picture_797632.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ USDownloader 1.3.5.9 Portable (25.04.2016)[Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797624.jpg" />
+  <img src="Z:/picture/008/save_picture_797624.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797616.jpg" />
+  <img src="Z:/picture/008/save_picture_797616.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797615.jpg" />
+  <img src="Z:/picture/008/save_picture_797615.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ WinUtilities Professional Edition 12.45 RePack by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797613.jpg" />
+  <img src="Z:/picture/008/save_picture_797613.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797611.jpg" />
+  <img src="Z:/picture/008/save_picture_797611.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797609.jpg" />
+  <img src="Z:/picture/008/save_picture_797609.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797605.jpg" />
+  <img src="Z:/picture/008/save_picture_797605.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ CCleaner 5.17.5590 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797600.jpg" />
+  <img src="Z:/picture/008/save_picture_797600.jpg" />
 </div>
 
 

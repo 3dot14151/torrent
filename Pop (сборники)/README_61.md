@@ -1,3 +1,183 @@
+###  Публикация: 1037625   (611376) от 25.07.2016
+
+VA - Дискотека Русский Хит 90х (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611376.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Влад Сташевский - Синьорита Наташка
+002. Mr. Credo - Cosa Nostra
+003. Demo - Солнышко
+004. Hi-Fi - Глупые Люди(   Читать дальше...   )Жанр: PopПродолжительность: 06:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0E573FE88360F91748319D357DD20A1D5913EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524747   (611167) от 19.07.2012
+
+VA - Европа плюс представляет: Живи в экстазе! 4 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 David - Лето
+02 Bob Sinclar feat. Sophie Ellis Bextor - Fuck With You
+03 DJ Kerim Muravey - Лето, лето (Original mix)
+04 Hot Bananas feat. Levina - Sex On The Beach (Radio Edit)
+05 Батишта - Обычные люди
+06 Sonny Flame - Sale El Sol
+07 Горячие Головы - Лето В Крыму
+08 Inna - Caliente (Radio Edit)
+09 Зэбосы - Загарелая Попка (Extended Mix)
+10 Elena Gheorghe - Amar Tu Vida(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20EC001D34460EB9FD533171F3C748F6B89EAC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912745   (610504) от 26.06.2015
+
+VA - Летние хиты за рулем. Русский выпуск (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610504.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аника Далински - Птица-Удача
+002. Даша Суворова - Аранжировки
+003. Natan - Просто История
+004. Marlena - Все Как И У Всех(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED9AC1E6AF75DA7E042E3093EF1E6DF00C0F5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296617   (610123) от 18.04.2019
+
+Spice Girls - The Best (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wannabe
+02. Viva Forever
+03. Let Love Lead The Way
+04. Right Back At Ya(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C4729D6BB3C17EC4E68029E7CCB2E28F0E1368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147229   (609176) от 02.07.2017
+
+VA - German Top 100 Single Charts 30.06.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609176.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito (feat. Daddy Yankee)
+002. Robin Schulz – OK (feat. James Blunt)
+003. Imagine Dragons – Thunder
+004. DJ Khaled – Wild Thoughts (feat. Rihanna Bryson Tiller)(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0333BE904B673B31F30FCE8C8C53B78CC8D3B4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912889   (608677) от 27.06.2015
+
+VA - Дискотека забытых хитов (зарубежная) - 13 (2015) [MP3|246 - 269 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_608677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tommy Bow - Dance Tonight (07:28)
+02. Fockewulf 190 - Body Heat (06:26)
+03. Felli - Greatest Mind (06:37)
+04. Mac Jr. - Elephant Song (07:11)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3437F3E34DDBB9E2E7087BC4A8332EEBD49137CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296787   (608397) от 19.04.2019
 
 VA - This Merry Planet: Instrumental Disco Hits Vol.2 (2019) [MP3|320 Kbps] <Disco, Instrumental>
@@ -6,7 +186,7 @@ VA - This Merry Planet: Instrumental Disco Hits Vol.2 (2019) [MP3|320 Kbps] <Dis
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608397.jpg" />
+  <img src="Z:/picture/008/save_picture_608397.jpg" />
 </div>
 
 
@@ -35,7 +215,7 @@ VA - Europa Plus. Самые сливки дискотек №2 (2016) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608373.jpg" />
+  <img src="Z:/picture/008/save_picture_608373.jpg" />
 </div>
 
 
@@ -64,7 +244,7 @@ VA - National Pop Dance Music Vol.34 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607829.jpg" />
+  <img src="Z:/picture/008/save_picture_607829.jpg" />
 </div>
 
 
@@ -93,7 +273,7 @@ VA - Relax Mix (2022) [MP3|320 Kbps] <Pop, Easy Listening>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607687.jpg" />
+  <img src="Z:/picture/008/save_picture_607687.jpg" />
 </div>
 
 
@@ -122,7 +302,7 @@ VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607460.jpg" />
+  <img src="Z:/picture/008/save_picture_607460.jpg" />
 </div>
 
 
@@ -151,7 +331,7 @@ VA - Magic Lights: European Pop Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606687.jpg" />
+  <img src="Z:/picture/008/save_picture_606687.jpg" />
 </div>
 
 
@@ -180,7 +360,7 @@ VA - Самые Популярные Новинки Года. Зарубежны
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606597.jpg" />
+  <img src="Z:/picture/008/save_picture_606597.jpg" />
 </div>
 
 
@@ -209,7 +389,7 @@ VA - Music for Car 12 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606557.jpg" />
+  <img src="Z:/picture/008/save_picture_606557.jpg" />
 </div>
 
 
@@ -238,7 +418,7 @@ VA - Music for Car 13 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606427.jpg" />
+  <img src="Z:/picture/008/save_picture_606427.jpg" />
 </div>
 
 
@@ -267,7 +447,7 @@ La Bionda - Compilation (2022) [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605936.jpg" />
+  <img src="Z:/picture/008/save_picture_605936.jpg" />
 </div>
 
 
@@ -296,7 +476,7 @@ VA - Хитовые летние треки (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605781.jpg" />
+  <img src="Z:/picture/008/save_picture_605781.jpg" />
 </div>
 
 
@@ -331,7 +511,7 @@ VA - Отдыхай на любимой волне Europa Plus (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605564.jpg" />
+  <img src="Z:/picture/008/save_picture_605564.jpg" />
 </div>
 
 
@@ -366,7 +546,7 @@ VA - Новинки в формате mp3 50/50 vol.6 (2017) [MP3|256-320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605522.jpg" />
+  <img src="Z:/picture/008/save_picture_605522.jpg" />
 </div>
 
 
@@ -395,7 +575,7 @@ VA - Ballads for Lovers Vol.3 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604957.jpg" />
+  <img src="Z:/picture/008/save_picture_604957.jpg" />
 </div>
 
 
@@ -424,7 +604,7 @@ VA - Planet Dance Radio: More Music (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604056.jpg" />
+  <img src="Z:/picture/008/save_picture_604056.jpg" />
 </div>
 
 
@@ -453,7 +633,7 @@ VA - Best of The 80's (2017) 3CD [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603825.jpg" />
+  <img src="Z:/picture/008/save_picture_603825.jpg" />
 </div>
 
 
@@ -482,7 +662,7 @@ VA - German Top 50 Party Schlager Charts 22.04.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603604.jpg" />
+  <img src="Z:/picture/008/save_picture_603604.jpg" />
 </div>
 
 
@@ -511,7 +691,7 @@ VA - Unknown 80's (part VII) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603410.jpg" />
+  <img src="Z:/picture/008/save_picture_603410.jpg" />
 </div>
 
 
@@ -540,7 +720,7 @@ VA - German Top 100 Single Charts 29.04.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603105.jpg" />
+  <img src="Z:/picture/008/save_picture_603105.jpg" />
 </div>
 
 
@@ -569,7 +749,7 @@ VA - This Merry Planet - An Evening Together (2019) [MP3|320 Kbps] <Disco, Funk,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603091.jpg" />
+  <img src="Z:/picture/008/save_picture_603091.jpg" />
 </div>
 
 
@@ -583,180 +763,6 @@ VA - This Merry Planet - An Evening Together (2019) [MP3|320 Kbps] <Disco, Funk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC6AE5A26819DABCC140849782452FE68375C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232241   (602312) от 23.06.2018
-
-VA - German Top 100 Single Charts 22.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Namika - Je ne parle pas français (feat. Black M) (Beatgees Remix)
-002. Pietro Lombardi - Phänomenal
-003. Clean Bandit - Solo (feat. Demi Lovato)
-004. Calvin Harris & Dua Lipa - One Kiss(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57260F0CA0AF65B2D18D8758A87B0D122E761E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298259   (601808) от 27.04.2019
-
-VA - Shazam Хит-парад Russia Top 100 Апрель (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601808.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Billie Eilish - bad guy (3:14)
-002. Aaron Smith feat. Luvli - Dancin (Eugene Star Remix) (5:30)
-003. Ilkay Sencan - Do It (3:51)
-004. Artik & Asti feat. Артем Качер - Грустный дэнс (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 05:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D94C3F5D1E72A7068445174E8C9C7172680492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149337   (600912) от 10.07.2017
-
-VA - Лето Безлимит: Русский Популярный Микс (2017) [MP3|256-320 Kbps] <Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600912.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artik & Asti - Тебе Одному 03:53
-002. MBAND - Правильная Девочка 03:36
-003. Егор Крид - Стой 03:34
-004. Azira - Всё Для Тебя 03:50(   Читать дальше...   )Жанр: РорПродолжительность: 11:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0580B598524305E765469DDDFD02018420DAB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299177   (600030) от 01.05.2019
-
-VA - German Top 100 Single Charts 06.05.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Nas X - Old Town Road 01:53
-02. Capital Bra - Rolex (feat. Summer Cem & KC Rebell ) 03:56
-03. Rammstein - Deutschland 05:22
-04. Capital Bra - Cherry Lady 02:15(   Читать дальше...   )Жанр: PopПродолжительность: 05:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE8CB9C05300B82DAB842E9CDE2577F371298AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039188   (598072) от 31.07.2016
-
-Another Cynthia - Collection (2006 - 2009) [MP3|256 Kbps] <Indie Pop Rock, Synth Pop, Electronic Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Love
-02. Donkey Kong
-03. One Way Out
-04. Whore(   Читать дальше...   )Жанр: Indie Pop Rock, Synth Pop, Electronic RockПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF0CEEB124785B66CD0FF3184B9806B2B32694A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232634   (598065) от 25.06.2018
-
-VA - De Top 100 Aller Tijden 1990 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598065.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001.  Sinead O' Connor - Nothing Compares 2 U (5:10)
-002.  Londonbeat - I've Been Thinking About You (5:18)
-003.  Corry Konings - Mooi Was Die Tijd (4:06)
-004.  Roxette - It Must Have Been Love (4:20)(   Читать дальше...   )Жанр: Pop, Rock, WorldПродолжительность: 07:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E5DB5EF5B6A34E8BD1DEFD1542CB5D804D74FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1369545   (901134) от 24.03.2020
+
+Dakara Boku wa, H ga Dekinai | Говорю же, я не Извращенец! [2012, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рёскэ Кага, обыкновенный извращенец-старшеклассник, однажды встречает девушку, одиноко гуляющую под проливным дождём. Она оказывается Лисарой Ресталл, синигами высшего ранга, пришедшей в человеческий мир заключить выгодный и эксклюзивный контракт с обладателем «особой силы» для подпитки собственной духовной энергии.
+В конце концов они становятся партнёрами, однако (   Читать дальше...   )Производство: Feel, ЯпонияЖанр: Комедия, Мистика, Романтика, ЭттиРежиссер: Такахаси ТакэоОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1871684A7A8FEDB007607F3876288719516C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369426   (897972) от 26.03.2020
 
 Guilty Crown | Корона Греха [2011, TV, 22 ep + OVA] BDRip 1080p 10-bit raw+rus
@@ -6,7 +33,7 @@ Guilty Crown | Корона Греха [2011, TV, 22 ep + OVA] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897972.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895406.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894542.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Final Fantasy VII: Advent Children | Последняя фантазия VII: Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893333.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Kono Subarashii Sekai ni Shukufuku wo! | Этот замечательный м�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893191.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 | Этот замечательный �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893153.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Nekopara (2020) | Кошачий рай (ТВ) [2020, TV, 12 из 12] WEB-DL 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886265.jpg" />
+  <img src="Z:/picture/005/save_picture_886265.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Истории о магии: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886263.jpg" />
+  <img src="Z:/picture/005/save_picture_886263.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ Runway de Waratte | Улыбайся на подиуме [2020, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886257.jpg" />
+  <img src="Z:/picture/005/save_picture_886257.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ Koukaku Kidoutai Arise: PYROPHORIC CULT / Ghost in the Shell ARISE: PYROPHORIC C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882024.jpg" />
+  <img src="Z:/picture/005/save_picture_882024.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ Tensei Shitara Slime Datta Ken | О моём Перерождении в Сли�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881302.jpg" />
+  <img src="Z:/picture/005/save_picture_881302.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Made in Abyss | Созданный в Бездне [ТВ-1] [2017, TV, 13 ep] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879597.jpg" />
+  <img src="Z:/picture/005/save_picture_879597.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878424.jpg" />
+  <img src="Z:/picture/005/save_picture_878424.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Boku no Hero Academia (2019) / My Hero Academia Season 4 / Моя геройск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874017.jpg" />
+  <img src="Z:/picture/008/save_picture_874017.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Asura / Асура (2012) BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871292.jpg" />
+  <img src="Z:/picture/008/save_picture_871292.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870225.jpg" />
+  <img src="Z:/picture/008/save_picture_870225.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869261.jpg" />
+  <img src="Z:/picture/008/save_picture_869261.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869215.jpg" />
+  <img src="Z:/picture/008/save_picture_869215.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фрукт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867755.jpg" />
+  <img src="Z:/picture/008/save_picture_867755.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867730.jpg" />
+  <img src="Z:/picture/008/save_picture_867730.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865072.jpg" />
+  <img src="Z:/picture/008/save_picture_865072.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863274.jpg" />
+  <img src="Z:/picture/008/save_picture_863274.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ Akira | Акира [1988, MV] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863221.jpg" />
+  <img src="Z:/picture/008/save_picture_863221.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Youjo Senki | Saga of Tanya the Evil | Военная Хроника Мален�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859730.jpg" />
+  <img src="Z:/picture/008/save_picture_859730.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Gekijouban Youjo Senki | Saga of Tanya the Evil | Военная Хроника 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859726.jpg" />
+  <img src="Z:/picture/008/save_picture_859726.jpg" />
 </div>
 
 
@@ -650,32 +677,6 @@ Gekijouban Youjo Senki | Saga of Tanya the Evil | Военная Хроника 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B3031AC8C4FC3AAEE40390006D419D539B75A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482840   (859225) от 25.09.2021
-
-Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чёрной компании [TV-1] [2021, TV, 12 из 12] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ниномия Киндзи — профессиональный бездельник, волею судьбы попавший в мир полулюдей и столкнувшийся с необходимостью по-настоящему тяжело трудиться. Но Киндзи далеко не прост, и у него уже есть план, как наладить безбедную и безработную жизнь в новом мире. Для этого ему понадобится помощь Ванибэ — скромного и одинокого здоровяка коллеги. Но планам не суждено сбыться (   Читать дальше...   )Производство: Япония, студия Silver LinkЖанр: Комедия, Исекай, ПриключенияРежиссер: Минато МирайЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33C2C339D8B5307CE5271579A3BB88CC41A2463
 ```
 
 https://mybot314.ru/tekegram_catalog/

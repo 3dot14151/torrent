@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853699.jpg" />
+  <img src="Z:/picture/008/save_picture_853699.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853680.jpg" />
+  <img src="Z:/picture/008/save_picture_853680.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853679.jpg" />
+  <img src="Z:/picture/008/save_picture_853679.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853649.jpg" />
+  <img src="Z:/picture/008/save_picture_853649.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853626.jpg" />
+  <img src="Z:/picture/008/save_picture_853626.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Advanced SystemCare Ultimate 9.0.1.637 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853614.jpg" />
+  <img src="Z:/picture/008/save_picture_853614.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Beautune for Windows v.1.0.5.100 RePack (& Portable) by 78Sergey & Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853613.jpg" />
+  <img src="Z:/picture/008/save_picture_853613.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Unreal Commander 3.57 Beta 10 Build 1195 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853593.jpg" />
+  <img src="Z:/picture/008/save_picture_853593.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853592.jpg" />
+  <img src="Z:/picture/008/save_picture_853592.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ZD Soft Screen Recorder 10.3.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853589.jpg" />
+  <img src="Z:/picture/008/save_picture_853589.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Agaric - Who Made Up The Rules (2011) [MP3|320 kbps]<Tech House, Deep House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853581.jpg" />
+  <img src="Z:/picture/008/save_picture_853581.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AVS Image Converter 1.3.3.146 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853573.jpg" />
+  <img src="Z:/picture/008/save_picture_853573.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853568.jpg" />
+  <img src="Z:/picture/008/save_picture_853568.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ WinSnap 5.2.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853566.jpg" />
+  <img src="Z:/picture/008/save_picture_853566.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Path Finder 9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853561.jpg" />
+  <img src="Z:/picture/008/save_picture_853561.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Process Lasso 9.7.5.44 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853554.jpg" />
+  <img src="Z:/picture/008/save_picture_853554.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ GoodSync Enterprise 10.11.6.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853553.jpg" />
+  <img src="Z:/picture/008/save_picture_853553.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Qt cross-platform framework 5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853524.jpg" />
+  <img src="Z:/picture/008/save_picture_853524.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Tenorshare iPhone Data Recovery 6.6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853522.jpg" />
+  <img src="Z:/picture/008/save_picture_853522.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AVG Remover 1.0.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853481.jpg" />
+  <img src="Z:/picture/008/save_picture_853481.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Auslogics Anti-Malware 2017 1.9.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853471.jpg" />
+  <img src="Z:/picture/008/save_picture_853471.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Stellar Phoenix Windows Data Recovery Pro 7.0.0.0 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853470.jpg" />
+  <img src="Z:/picture/008/save_picture_853470.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ SamDrivers 17.3 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853468.jpg" />
+  <img src="Z:/picture/008/save_picture_853468.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ AdwCleaner 6.044 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853467.jpg" />
+  <img src="Z:/picture/008/save_picture_853467.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853421.jpg" />
+  <img src="Z:/picture/008/save_picture_853421.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ BluffTitler Ultimate 14.8.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853420.jpg" />
+  <img src="Z:/picture/008/save_picture_853420.jpg" />
 </div>
 
 

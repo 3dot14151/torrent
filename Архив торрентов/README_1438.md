@@ -6,7 +6,7 @@ Wondershare PDFelement Pro 6.8.0.3426 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727542.jpg" />
+  <img src="Z:/picture/008/save_picture_727542.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727540.jpg" />
+  <img src="Z:/picture/008/save_picture_727540.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics File Recovery 8.0.23.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727539.jpg" />
+  <img src="Z:/picture/008/save_picture_727539.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TechSmith Snagit 2019.1.1 Build 2860 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727538.jpg" />
+  <img src="Z:/picture/008/save_picture_727538.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Comedy Баттл (2019.02.22) WEB-DLRip (сезон 9, выпуск 6)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727530.jpg" />
+  <img src="Z:/picture/008/save_picture_727530.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Uninstaller Pro 11.3.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727527.jpg" />
+  <img src="Z:/picture/008/save_picture_727527.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727487.jpg" />
+  <img src="Z:/picture/008/save_picture_727487.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727482.jpg" />
+  <img src="Z:/picture/008/save_picture_727482.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727473.jpg" />
+  <img src="Z:/picture/008/save_picture_727473.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TG Pro (Temperature Gauge Pro) 2.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727431.jpg" />
+  <img src="Z:/picture/008/save_picture_727431.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Process Lasso Pro 9.0.0.304 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727428.jpg" />
+  <img src="Z:/picture/008/save_picture_727428.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Movavi Video Editor 15.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727427.jpg" />
+  <img src="Z:/picture/008/save_picture_727427.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Active PKiller 1.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727425.jpg" />
+  <img src="Z:/picture/008/save_picture_727425.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NVIDIA GeForce Desktop 419.17 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727421.jpg" />
+  <img src="Z:/picture/008/save_picture_727421.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WinRAR 5.70 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727411.jpg" />
+  <img src="Z:/picture/008/save_picture_727411.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727409.jpg" />
+  <img src="Z:/picture/008/save_picture_727409.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BurnAware Professional 3.2.0 [Русский/Украинский/Английс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727382.jpg" />
+  <img src="Z:/picture/005/save_picture_727382.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727367.jpg" />
+  <img src="Z:/picture/008/save_picture_727367.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Reg Organizer 7.36 Portable by Kopejkin [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727360.jpg" />
+  <img src="Z:/picture/008/save_picture_727360.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Afterlife (2015) [FLAC|Lossless|tracks + .cue] <Psychedelic , Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727326.jpg" />
+  <img src="Z:/picture/008/save_picture_727326.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Cyberfox 52.1.0 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727319.jpg" />
+  <img src="Z:/picture/008/save_picture_727319.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Cyberfox 52.1.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727317.jpg" />
+  <img src="Z:/picture/008/save_picture_727317.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ NetSetMan 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727311.jpg" />
+  <img src="Z:/picture/008/save_picture_727311.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Native Instruments Traktor Pro 3 v3.1.0.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727307.jpg" />
+  <img src="Z:/picture/008/save_picture_727307.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Cities: Skylines (2015) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727304.jpg" />
+  <img src="Z:/picture/008/save_picture_727304.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727303.jpg" />
+  <img src="Z:/picture/008/save_picture_727303.jpg" />
 </div>
 
 

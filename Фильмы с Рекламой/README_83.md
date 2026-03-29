@@ -1,3 +1,29 @@
+###  Публикация: 1268253   (225970) от 11.12.2018
+
+Миссис Клаус / Stiring (2018) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225970.jpg" />
+</div>
+
+
+###  Подробнее
+
+На праздники группа друзей собирается в доме студенческого сестринства, в котором десять лет назад произошли ужасные события. Они не знают, что это Рождество окажется очень кровавым, потому что миссис Клаус уже наточила свой топор.Производство: США / Fright Meter FilmsЖанр: УжасыРежиссер: Трой ЭскамиллаАктеры: Хелен Уди, Бринк Стивенс, Кайли Уильямс, Райан Пул, Мэл Хефлин, Александра Брентс, Янтель Фонтенот, Билли Бранниган, Дайан Азура, Джейс Александр ГринвудПеревод: Двуголосый закадровый, любительскийСубтитры: отсутствуютПродолжительность: 01:27:06Реклама: Присутствуют вставки видео рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5387D1A1244927C45E47EEC2E0918C460404BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268251   (225894) от 11.12.2018
 
 Миссис Клаус / Stiring (2018) WEBRip [H.264/720p-LQ] [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225894.jpg" />
+  <img src="Z:/picture/005/save_picture_225894.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225866.jpg" />
+  <img src="Z:/picture/005/save_picture_225866.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225810.jpg" />
+  <img src="Z:/picture/005/save_picture_225810.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224895.jpg" />
+  <img src="Z:/picture/005/save_picture_224895.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224893.jpg" />
+  <img src="Z:/picture/005/save_picture_224893.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224836.jpg" />
+  <img src="Z:/picture/005/save_picture_224836.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224666.jpg" />
+  <img src="Z:/picture/005/save_picture_224666.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224654.jpg" />
+  <img src="Z:/picture/005/save_picture_224654.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224601.jpg" />
+  <img src="Z:/picture/005/save_picture_224601.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224453.jpg" />
+  <img src="Z:/picture/005/save_picture_224453.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224376.jpg" />
+  <img src="Z:/picture/005/save_picture_224376.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224306.jpg" />
+  <img src="Z:/picture/005/save_picture_224306.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223931.jpg" />
+  <img src="Z:/picture/005/save_picture_223931.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223705.jpg" />
+  <img src="Z:/picture/005/save_picture_223705.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223621.jpg" />
+  <img src="Z:/picture/005/save_picture_223621.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223361.jpg" />
+  <img src="Z:/picture/005/save_picture_223361.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223045.jpg" />
+  <img src="Z:/picture/005/save_picture_223045.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222992.jpg" />
+  <img src="Z:/picture/005/save_picture_222992.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222669.jpg" />
+  <img src="Z:/picture/005/save_picture_222669.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222490.jpg" />
+  <img src="Z:/picture/005/save_picture_222490.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222429.jpg" />
+  <img src="Z:/picture/005/save_picture_222429.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222265.jpg" />
+  <img src="Z:/picture/005/save_picture_222265.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222263.jpg" />
+  <img src="Z:/picture/005/save_picture_222263.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222204.jpg" />
+  <img src="Z:/picture/005/save_picture_222204.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221925.jpg" />
+  <img src="Z:/picture/005/save_picture_221925.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE658C87319B1D17A2BC93D48BDACAA6FD9DE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269211   (221908) от 13.12.2018
-
-Лепрекон возвращается / Leprechaun Returns (2018) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об этих мистических персонажах известно не так уж много. Но барышням из студенческого общества предстоит лично познакомиться с лепреконом. Потому что из-за их желания возвести новое строение для своих подруг, был потревожен этот суровый волшебник, не привыкший прощать наглым людишкам неудобства, которые были ему доставлены. Чего ждать от гнева неприятного господина?Производство: США / Blue Ice Pictures, Out of Africa Entertainment, SyfyЖанр: Ужасы, фэнтези, комедияРежиссер: Стивен КостанскиАктеры: Тейлор Спрейтлер, Пепи Сонуга, Сай Беннетт, Линден Порко, Марк Холтон, Бен Макгрегор, Леон Клайнгман, Эмили Рейд, Хизер Макдональд, Оливер Ллевелин ДженкинсПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:32:38Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B0B74639356D28EE7FFEF5248A58AC43AE6682
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Logic Pro X 10.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794848.jpg" />
+  <img src="Z:/picture/008/save_picture_794848.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Serial Box 01-2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794845.jpg" />
+  <img src="Z:/picture/008/save_picture_794845.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Calibre 5.32.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794841.jpg" />
+  <img src="Z:/picture/008/save_picture_794841.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wise Care 365 Pro 6.1.2.596 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794839.jpg" />
+  <img src="Z:/picture/008/save_picture_794839.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ HWiNFO 7.15 Build 4615 Beta Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794838.jpg" />
+  <img src="Z:/picture/008/save_picture_794838.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Movavi Picverse Photo Editor 7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794833.jpg" />
+  <img src="Z:/picture/008/save_picture_794833.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ventoy 1.0.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794825.jpg" />
+  <img src="Z:/picture/008/save_picture_794825.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794824.jpg" />
+  <img src="Z:/picture/008/save_picture_794824.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ hr - Task timer as simple as it's name 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794806.jpg" />
+  <img src="Z:/picture/008/save_picture_794806.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794804.jpg" />
+  <img src="Z:/picture/008/save_picture_794804.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Forecast 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794802.jpg" />
+  <img src="Z:/picture/008/save_picture_794802.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794792.jpg" />
+  <img src="Z:/picture/008/save_picture_794792.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Ubuntu*Pack 18.04 Xfce (Xubuntu) (декабрь 2018) [i386 + amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794789.jpg" />
+  <img src="Z:/picture/008/save_picture_794789.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794783.jpg" />
+  <img src="Z:/picture/008/save_picture_794783.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Ubuntu*Pack 18.04 KDE (Kubuntu) (декабрь 2018) [i386 + amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794779.jpg" />
+  <img src="Z:/picture/008/save_picture_794779.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794775.jpg" />
+  <img src="Z:/picture/008/save_picture_794775.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794762.jpg" />
+  <img src="Z:/picture/008/save_picture_794762.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ CoolUtils Total Outlook Converter 4.1.0.323 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794760.jpg" />
+  <img src="Z:/picture/008/save_picture_794760.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794757.jpg" />
+  <img src="Z:/picture/008/save_picture_794757.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ SIV (System Information Viewer) 5.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794756.jpg" />
+  <img src="Z:/picture/008/save_picture_794756.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Audacity 3.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794754.jpg" />
+  <img src="Z:/picture/008/save_picture_794754.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Ashampoo UnInstaller 11.00.11 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794753.jpg" />
+  <img src="Z:/picture/008/save_picture_794753.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Time Loader (2021) [Ru/Muti] (1.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794741.jpg" />
+  <img src="Z:/picture/008/save_picture_794741.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ FreeTube 0.15.1 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794733.jpg" />
+  <img src="Z:/picture/008/save_picture_794733.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ PrivaZer 3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794724.jpg" />
+  <img src="Z:/picture/008/save_picture_794724.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794715.jpg" />
+  <img src="Z:/picture/008/save_picture_794715.jpg" />
 </div>
 
 

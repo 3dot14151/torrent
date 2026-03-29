@@ -6,7 +6,7 @@ PotPlayer 210929 (1.7.21557) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850903.jpg" />
+  <img src="Z:/picture/008/save_picture_850903.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FXSound Pro 1.1.10.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850902.jpg" />
+  <img src="Z:/picture/008/save_picture_850902.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.0.3 Build 4692 + Portable + St
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850767.jpg" />
+  <img src="Z:/picture/008/save_picture_850767.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Total Commander 10 final 64bit 32bit VIM 44 Matros portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850696.jpg" />
+  <img src="Z:/picture/008/save_picture_850696.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ SlimBrowser 7.00 Build 140 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850555.jpg" />
+  <img src="Z:/picture/008/save_picture_850555.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ K-Lite Codec Pack Update 12.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850386.jpg" />
+  <img src="Z:/picture/008/save_picture_850386.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Free Studio 6.6.6.328 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850385.jpg" />
+  <img src="Z:/picture/008/save_picture_850385.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ USDownloader 1.3.5.9 Portable (04.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850372.jpg" />
+  <img src="Z:/picture/008/save_picture_850372.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Privacy Eraser Free 4.22.0 Build 2286 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850371.jpg" />
+  <img src="Z:/picture/008/save_picture_850371.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Ultra Adware Killer 5.7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850365.jpg" />
+  <img src="Z:/picture/008/save_picture_850365.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Gilisoft Video Converter 9.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850310.jpg" />
+  <img src="Z:/picture/008/save_picture_850310.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Display Driver Uninstaller 15.7.5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850309.jpg" />
+  <img src="Z:/picture/008/save_picture_850309.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Skype 7.22.0.107 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850305.jpg" />
+  <img src="Z:/picture/008/save_picture_850305.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ EagleGet 2.0.4.9 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850304.jpg" />
+  <img src="Z:/picture/008/save_picture_850304.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ WinUtilities Professional Edition 12.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850303.jpg" />
+  <img src="Z:/picture/008/save_picture_850303.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VidCoder 2.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850285.jpg" />
+  <img src="Z:/picture/008/save_picture_850285.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Gilisoft Secure Disc Creator 7.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850270.jpg" />
+  <img src="Z:/picture/008/save_picture_850270.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Mirillis Splash 2.0.3.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850267.jpg" />
+  <img src="Z:/picture/008/save_picture_850267.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Skype 7.22.32.107 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850264.jpg" />
+  <img src="Z:/picture/008/save_picture_850264.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ AdwCleaner 5.108 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850254.jpg" />
+  <img src="Z:/picture/008/save_picture_850254.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Opera 36.0.2130.46 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850253.jpg" />
+  <img src="Z:/picture/008/save_picture_850253.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ WinUtilities Professional Edition 14.51 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850234.jpg" />
+  <img src="Z:/picture/008/save_picture_850234.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ PicturesToExe Deluxe 9.0.3 Portable by Sitego [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850233.jpg" />
+  <img src="Z:/picture/008/save_picture_850233.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ GridinSoft Anti-Malware 3.0.31 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850216.jpg" />
+  <img src="Z:/picture/008/save_picture_850216.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Mirillis Splash 2.0.3.0 Premium RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850211.jpg" />
+  <img src="Z:/picture/008/save_picture_850211.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Restore Desktop Icon Layouts 1.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850204.jpg" />
+  <img src="Z:/picture/008/save_picture_850204.jpg" />
 </div>
 
 

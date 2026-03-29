@@ -1,3 +1,119 @@
+###  Публикация: 1318897   (490987) от 08.08.2019
+
+Chuck Hedges & The Johnny Varro Trio - Skylark (1983) 1995, Delmark Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You're Smiling [4:37]
+02. Here's That Rainy Day [4:04]
+03. Autumn Leaves [4:20]
+04. 'Round Midnight [3:38](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CA3E84B65FD8B9DAC90A24C37971EA8C79B5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565770   (490445) от 25.07.2022
+
+The Uptown String Quartet - Max Roach Presents The Uptown String Quartet (1989) Philips [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Extensions [3:36]
+02. Let Us Break Bread Together [3:08]
+03. Jelly Roll Rag [3:17]
+04. Tricotism [3:34](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03B942084BB16CA195A1327E6C1F2601E088F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055019   (490414) от 21.09.2016
+
+Louis Armstrong - The Hot Fives, volume I (1925, 1926) 1988, CBS Records[FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.My Heart [02:32]
+ 02.(YES!) I'm in the Barrel [02:47]
+ 03.Gut Bucket Blues [02:52]
+ 04.Come Back, Sweet Papa [02:35](   Читать дальше...   )Жанр: New Orleans Jazz, DixielandПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5A9F0623F5C1D4FD138AC1C94E7CA51A97F880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937086   (490319) от 14.09.2015
+
+The Workshop - Conversations With The Drum (2015) /Onze Heures Onze/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Riff Thing [00:58]
+02. Lyon Part One [04:33]
+03. Nine To Hate [06:36]
+04. Sesirnu [05:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA57ECB30A0026C0F90AA473FBAE435348BA5DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937269   (490276) от 14.09.2015
 
 Roberto Negro Trio invite Christophe Monniot - #1 Luna Di Wuxi & #2 Kimono (2015) 2CD /Tricollectif/[FLAC|tracks+.cue]<Avant-Garde Jazz, Modern Creative>
@@ -6,7 +122,7 @@ Roberto Negro Trio invite Christophe Monniot - #1 Luna Di Wuxi & #2 Kimono (2015
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490276.jpg" />
+  <img src="Z:/picture/008/save_picture_490276.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Terumasa Hino - Live In Concert (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490275.jpg" />
+  <img src="Z:/picture/008/save_picture_490275.jpg" />
 </div>
 
 
@@ -63,7 +179,7 @@ Leon Spencer - Louisiana Slim (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490271.jpg" />
+  <img src="Z:/picture/008/save_picture_490271.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ John Patton - Understanding (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490270.jpg" />
+  <img src="Z:/picture/008/save_picture_490270.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Art Blakey And The Jazz Messengers - Album Of The Year (1981) /2015, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490267.jpg" />
+  <img src="Z:/picture/008/save_picture_490267.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ McCoy Tyner - Fly With The Wind (1976) /2008, Concord/[FLAC|tracks+.cue]<Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490263.jpg" />
+  <img src="Z:/picture/008/save_picture_490263.jpg" />
 </div>
 
 
@@ -176,7 +292,7 @@ Roger Manins - Trio (2010) Rattle Records [FLAC|Lossless|tracks + .cue] <Avant-G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490256.jpg" />
+  <img src="Z:/picture/008/save_picture_490256.jpg" />
 </div>
 
 
@@ -205,7 +321,7 @@ Chet Baker - The Last Great Concert: My Favourite Songs (1988) 2CD, 2006, Enja R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490184.jpg" />
+  <img src="Z:/picture/008/save_picture_490184.jpg" />
 </div>
 
 
@@ -234,7 +350,7 @@ Benny Carter - Sax Ala Carter! (1960) 2004, Capitol Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489891.jpg" />
+  <img src="Z:/picture/008/save_picture_489891.jpg" />
 </div>
 
 
@@ -263,7 +379,7 @@ Benny Carter & American Jazz Orchestra - Central City Sketches (1987) Musicmaste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489888.jpg" />
+  <img src="Z:/picture/008/save_picture_489888.jpg" />
 </div>
 
 
@@ -292,7 +408,7 @@ Peter Bernstein - Earth Tones (1997) Criss Cross Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489887.jpg" />
+  <img src="Z:/picture/008/save_picture_489887.jpg" />
 </div>
 
 
@@ -321,7 +437,7 @@ Ruby Braff Featuring Coleman Hawkins - Braff! (1956) 2005, Lone Hill Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489761.jpg" />
+  <img src="Z:/picture/008/save_picture_489761.jpg" />
 </div>
 
 
@@ -350,7 +466,7 @@ Ruby Braff & Dick Hyman - Music from My Fair Lady (1989) Concord Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489760.jpg" />
+  <img src="Z:/picture/008/save_picture_489760.jpg" />
 </div>
 
 
@@ -379,7 +495,7 @@ Ruby Braff - Ruby Braff Remembers Louis Armstrong: Being with You (1996) 1997, A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489759.jpg" />
+  <img src="Z:/picture/008/save_picture_489759.jpg" />
 </div>
 
 
@@ -408,7 +524,7 @@ Andy Narell - Light In Your Eyes (1989) Windham Hill Records[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488438.jpg" />
+  <img src="Z:/picture/008/save_picture_488438.jpg" />
 </div>
 
 
@@ -437,7 +553,7 @@ Earl Coleman featuring Billy Taylor - Love Songs (1967) /2013, Warner/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488374.jpg" />
+  <img src="Z:/picture/008/save_picture_488374.jpg" />
 </div>
 
 
@@ -466,7 +582,7 @@ Norio Maeda - Saxophone Unity (1967) 1987, Denon [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488367.jpg" />
+  <img src="Z:/picture/008/save_picture_488367.jpg" />
 </div>
 
 
@@ -495,7 +611,7 @@ Laurindo Almeida & Bud Shank Quartet - Brazilliance Vol. 1 & 2 (1953) 2CD /1991,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488319.jpg" />
+  <img src="Z:/picture/008/save_picture_488319.jpg" />
 </div>
 
 
@@ -524,7 +640,7 @@ Thomas (Tim) Hardin Trio - You Just Have A Listen To Jazz (1992) /Victor/[FLAC|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488318.jpg" />
+  <img src="Z:/picture/008/save_picture_488318.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ Kyoto Jazz Sextet - Mission (2015) Universal [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488292.jpg" />
+  <img src="Z:/picture/008/save_picture_488292.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ Mary Lou Williams - My Mama Pinned A Rose On Me (1977) 2005, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488291.jpg" />
+  <img src="Z:/picture/008/save_picture_488291.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ Hugh Masekela - Jabulani (2012) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488289.jpg" />
+  <img src="Z:/picture/008/save_picture_488289.jpg" />
 </div>
 
 
@@ -625,122 +741,6 @@ Hugh Masekela - Jabulani (2012) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:827452BF3B4A65FA55066B6B1E666038DBB0FB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158982   (488136) от 18.08.2017
-
-Joe Zawinul - Concerto Retitled (1976) 2007, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Vienna With Love [04:27]
-02. My One And Only Love [03:50]
-03. Riverbed [05:10]
-04. Concerto Retitled [05:24](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305A40425773FDA1B9D4C91B48ED38415056AE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158855   (488132) от 18.08.2017
-
-The Dave Brubeck Quartet - For Iola (1985) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polly
-02. I Hear A Rhapsody
-03. Thank You
-04. Big Bad Basie(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FC3084E7D2EA11F5A232209B5C3F19B1F7E69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405021   (487396) от 28.08.2020
-
-Bob Brookmeyer & Netherlands Metropole Orchestra - Out of This World (1998) Koch Jazz [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Get a Kick Out of You [5:00]
-02. Some Day My Prince Will Come [5:12]
-03. Morning Glory [6:03]
-04. Polkadots and Moonbeams [5:58](   Читать дальше...   )Жанр: Cool, Post-Bop, Big BandПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE12661E2ADA7FADCB52E3C6558A83DEA1C198E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405014   (487395) от 28.08.2020
-
-Ruby Braff And His Quartet - Live At The Regattabar (1993) 1994, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persian Rug [6:29]
-02. It's Wonderful [4:21]
-03. Lousiana [6:36]
-04. Sweet Sue (Just You) [5:23](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08191ABD12AE3E6219CD5909234ED8367631995E
 ```
 
 https://mybot314.ru/tekegram_catalog/

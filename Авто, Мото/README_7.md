@@ -1,3 +1,82 @@
+###  Публикация: 1197489   (813510) от 08.01.2018
+
+Феррари: Гонка за бессмертие / Ferrari: Race to Immortality (2017) DVDRip [H.264/1080p-LQ] [VO]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_813510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на название, в центре внимания в фильме не столько Ferrari, сколько жизнь и смерть её пилотов Луиджи Муссо, Альфонсо де Портаго, Питера Коллинза и Майка Хоторна, а также их порой непростых взаимоотношениях с Энцо Феррари.
+Основой для фильма послужила биографическая книга Криса Никсона «Mon Ami Mate» (можно перевести с французского как «Мой друг и напарник»), (   Читать дальше...   )Телекомпания: Великобритания, Embankment Films, Artimis FilmЖанр: Документальный, СпортРежиссер: Дэрил ГудричПеревод: Одноголосый закадровый, любительскийСубтитры: отсутствуютПродолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71490534766626780AE97F7616873AEA0A66E76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504666   (810349) от 24.10.2021
+
+MotoGP. Этап 16. Гран-при Эмилии-Романьи. Квалификация (23.10.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_810349.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 октября 2021, суббота. 15:10 МСК. Этап 16, Гран-при Эмилии-Романьи. Италия, КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53257F65C8A99B9E9E4E3FEAB6CDE612A8DE44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504819   (802727) от 28.10.2021
+
+MotoGP. Этап 16. Гран-при Эмилии-Романьи. Гонка (24.10.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802727.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 октября 2021, воскресенье. 15:00 МСК. Этап 16, Гран-при Эмилии-Романьи. Италия, Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E424EFB58528A82B3384BA29E5BB3B9FE09ABD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273299   (800597) от 01.01.2019
 
 Дакар 2019. Официальный тизер / Official Teaser - Dakar 2019 WEB-DL [H.264/1080p-LQ]
@@ -6,7 +85,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800597.jpg" />
+  <img src="Z:/picture/008/save_picture_800597.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ MotoGP. Этап 17. Гран-при Алгарве. Квалификация (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798128.jpg" />
+  <img src="Z:/picture/008/save_picture_798128.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ MotoGP. Этап 17. Гран-при Алгарве. Гонка (07.11.2021) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797921.jpg" />
+  <img src="Z:/picture/008/save_picture_797921.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797151.jpg" />
+  <img src="Z:/picture/008/save_picture_797151.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797149.jpg" />
+  <img src="Z:/picture/008/save_picture_797149.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796647.jpg" />
+  <img src="Z:/picture/008/save_picture_796647.jpg" />
 </div>
 
 
@@ -169,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794588.jpg" />
+  <img src="Z:/picture/008/save_picture_794588.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793456.jpg" />
+  <img src="Z:/picture/008/save_picture_793456.jpg" />
 </div>
 
 
@@ -225,7 +304,7 @@ MotoGP. Этап 18. Гран-при Валенсии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792898.jpg" />
+  <img src="Z:/picture/008/save_picture_792898.jpg" />
 </div>
 
 
@@ -251,7 +330,7 @@ MotoGP. Этап 18. Гран-при Валенсии. Гонка (14.11.2021) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792092.jpg" />
+  <img src="Z:/picture/008/save_picture_792092.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791801.jpg" />
+  <img src="Z:/picture/008/save_picture_791801.jpg" />
 </div>
 
 
@@ -306,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790895.jpg" />
+  <img src="Z:/picture/008/save_picture_790895.jpg" />
 </div>
 
 
@@ -333,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789671.jpg" />
+  <img src="Z:/picture/008/save_picture_789671.jpg" />
 </div>
 
 
@@ -359,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788525.jpg" />
+  <img src="Z:/picture/008/save_picture_788525.jpg" />
 </div>
 
 
@@ -385,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787163.jpg" />
+  <img src="Z:/picture/008/save_picture_787163.jpg" />
 </div>
 
 
@@ -411,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786945.jpg" />
+  <img src="Z:/picture/008/save_picture_786945.jpg" />
 </div>
 
 
@@ -437,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785147.jpg" />
+  <img src="Z:/picture/008/save_picture_785147.jpg" />
 </div>
 
 
@@ -466,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782676.jpg" />
+  <img src="Z:/picture/008/save_picture_782676.jpg" />
 </div>
 
 
@@ -495,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770677.jpg" />
+  <img src="Z:/picture/008/save_picture_770677.jpg" />
 </div>
 
 
@@ -524,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768953.jpg" />
+  <img src="Z:/picture/008/save_picture_768953.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763731.jpg" />
+  <img src="Z:/picture/008/save_picture_763731.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763725.jpg" />
+  <img src="Z:/picture/008/save_picture_763725.jpg" />
 </div>
 
 
@@ -611,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763711.jpg" />
+  <img src="Z:/picture/008/save_picture_763711.jpg" />
 </div>
 
 
@@ -622,93 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDC882EB7AB68AA6945599AD988F95536FCA7F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394699   (762294) от 06.07.2020
-
-Серия Кубков NASCAR 2020. 16-й Этап. Индианаполис 400. Гонка / NASCAR Cup Series 2020. Round 16. Big Machine Hand Sanitizer 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-05 июля 2020 года. Спидвей (штат Индиана, США).
-16-й Этап. Индианаполис 400 (Big Machine Hand Sanitizer 400)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801F53115F0A9D59C760B7D1C8A892142ACA5412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394630   (762292) от 06.07.2020
-
-Формула-3. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 2 (05.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762292.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-й чемпионат ФИА Формула-3. Сезон 2020 года
-05 июля 2020, воскресенье. 10:45 МСК
-1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
-Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: Качество видео:        HDTVRip
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C54A9116E0D23467A8BFCB5A2AC51AD0D83A88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394632   (762217) от 06.07.2020
-
-Формула-2. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 2 (05.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762217.jpg" />
-</div>
-
-
-###  Подробнее
-
-4-й Чемпионат ФИА Формула-2. Сезон 2020 года
-05 июля 2020, воскресенье. 12:10 МСК
-1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
-Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C865091A7A9417397A643BAACDFABD1568C36F
 ```
 
 https://mybot314.ru/tekegram_catalog/

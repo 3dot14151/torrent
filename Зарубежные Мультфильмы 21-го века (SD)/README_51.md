@@ -1,3 +1,108 @@
+###  Публикация: 1595576   (174837) от 06.12.2022
+
+Дневник слабака: Правила Родрика / Diary of a Wimpy Kid: Rodrick Rules (2022) WEB-DLRip [DVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174837.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Джеффа Кинни "Дневник Слабака: Родрик рулит". Грег Хеффли идет в школу после летних каникул. Все, чего он хочет сейчас, - стереть последние три месяца из памяти своего старшего брата, Родрика, который узнал о Грегори одну очень постыдную вещь. Грегори понимает, что Родрик готов рассказать всему свету об этом позоре… и готов на все, чтобы этого (   Читать дальше...   )Производство: Канада, США / 20th Century Fox Animation, Disney+, DisneyToon Studios, Nickelodeon Movies, Pinkfong, Twentieth Century Animation, Walt Disney Company, TheЖанр: мультфильм, драма, комедия, семейныйРежиссер: Luke CormicanАктеры: Брэйди Нун, Ethan William Childress, Хантер Диллон, Эрика Серра, Крис Диамантополос, Эдвард Эснер, Линда Лавин, Лоретта Дивайн, Присцилла Лопес, Нэйтан АренасПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90928B6DD3851BEFCE6066307AA8DBE6398C62C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246035   (174644) от 08.12.2020
+
+Как приручить дракона / How to Train Your Dragon (2010) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете историю подростка Иккинга, которому не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Мир Иккинга переворачивается с ног на голову, когда он неожиданно встречает дракона Беззубика, который поможет ему и другим викингам увидеть привычный мир с совершенно другой стороны…Производство: США / DreamWorks AnimationЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуа, Крис СандерсАктеры: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг, Робин Аткин Даунс, Филип МакГрэйдПеревод: ДублированныйПродолжительность: 01:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B04D2F863D7A3B9716B24BD80E5755AB45211B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344030   (173826) от 05.12.2021
+
+Ёжики в большом городе / Ezi un lielpilseta (2013) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной звери просыпаются от зимней спячки и обнаруживают, что на месте их леса построен город. Все начинают искать новые способы выживания, а ежи выясняют, что звери могут зарабатывать деньги...Производство: Латвия, Film Studio Animacijas Brigade, Animacijas Brigade See moreЖанр: Детский, Кукольный, КороткометражныйРежиссер: Эвальдс ЛацисПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: русский (закадровый на титры)Субтитры: отсутствуютПродолжительность: 00:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC19920B5DF4218CB2DC732C6476671AC99FC89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199173   (173699) от 05.12.2021
+
+Винни Пух: Весенние денёчки с малышом Ру / Winnie the Pooh: Springtime with Roo (2004) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот и наступил это замечательный весенний денек! Пчелки жужжат, цветочки распускаются, а Ру, Винни и Тигруля уже готовы к веселью и играм. Но Кролик не хочет никого выпускать на улицу, пока не будет закончена большая сезонная уборка!
+Сможет ли что-то или кто-то повлиять на строгого Кролика? С помощью мудрости и доброты Ру Кролик вскоре понимает, что на свете есть (   Читать дальше...   )Производство: США, Walt DisneyЖанр: Сказка, Детский, Рисованная анимацияРежиссер: Сауль Эндрю Блинкофф, Эллиот М. БурАктеры: Виктор Костецкий (Tigger), Владимир Баранов (Winnie The Pooh), Георгий Корольчук (Rabbit), Елизавета Захарьева (Roo), Станислав Концевич (рассказчик), Мария Соснякова (Kanga), Андрей Матвеев (Piglet), Дмитрий Лагачев (Eeyore)Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFEB254730A5D9155FFE4DEF93C72773DFC4DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826073   (173452) от 20.10.2025
 
 Свинтусы / The Twits (2025) WEB-DLRip
@@ -6,7 +111,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173452.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170855.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170828.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170114.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170040.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169201.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168784.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168774.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168689.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167161.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167077.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165848.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165768.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165726.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165592.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165580.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165558.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165018.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165010.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164843.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164830.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164724.jpg" />
 </div>
 
 
@@ -568,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E98630837A72E48AB1C6164BA289A682F94AD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022814   (164702) от 12.12.2021
-
-Робинзон Крузо: Очень обитаемый остров / Robinson Crusoe (2016) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают историю о Робинзоне Крузо, попавшем на необитаемый остров. Однако, как же можно назвать его необитаемым, если он населен разнообразными веселыми животными и птицами? Они очень удивились, впервые встретив это странное существо, и даже приняли его за морское чудовище. Попугаю по кличке Вторник и его друзьям — хамелеону, тапиру и другим обитателям острова (   Читать дальше...   )Производство: Франция, Бельгия, nWave Pictures, Studio Canal, uFilmЖанр: Мультфильм, комедия, приключенияРежиссер: Винсент Кестелут, Бен СтассенАктеры: Рон Аллен, Джордж Бэббит, Лайла Берзиньш, Илька Бессин, Джои Камен, Джефф Дусетте, Сэнди Фокс, Дитер Халлерворден, Кайл ХербертПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB554F4E437682B853E04049A74DB8D18D4D721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432441   (163486) от 17.12.2020
-
-Семейка Крудс: Новоселье / The Croods: A New Age (2020) WEBRip [EN]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордАктеры: Николас Кейдж, Эмма Стоун, Райан Рейнольдс, Кэтрин Кинер, Клорис Личмен, Кларк Дьюк, Лесли Манн, Питер Динклэйдж, Келли Мари Трэн, Kailey CrawfordПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67552A104AA7B284131B751E79D98658535AC5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517429   (162746) от 15.12.2021
-
-Семейка Аддамс: Горящий тур / The Addams Family 2 (2021) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если в доме поселилось настоящее исчадие ада, а именно два подростка? Срочно планировать самый жуткий отпуск! Мартиша, Гомес, Уэнсдей, Пагсли и дядя Фестер загружаются в семейный походный катафалк, чтобы отправиться навстречу новым приключениям и чудаковатым друзьям, от которых волосы встанут дыбом. В этой поездке семейка Аддамс сплотится намертво! Если, (   Читать дальше...   )Производство: Великобритания, Канада, США / BRON Studios, BermanBraunЖанр: мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный, двухголосый любительский (Pazl Voice)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B2530259E2012990C316B4926E68EF053EF9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517591   (161399) от 17.12.2021
-
-Семейка Аддамс: Горящий тур / The Addams Family 2 (2021) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если в доме поселилось настоящее исчадие ада, а именно два подростка? Срочно планировать самый жуткий отпуск! Мартиша, Гомес, Уэнсдей, Пагсли и дядя Фестер загружаются в семейный походный катафалк, чтобы отправиться навстречу новым приключениям и чудаковатым друзьям, от которых волосы встанут дыбом. В этой поездке семейка Аддамс сплотится намертво! Если, (   Читать дальше...   )Производство: США, Канада / BermanBraun, Metro-Goldwyn-Mayer (MGM)Жанр: мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Грег Тирнан, Конрад Вернон, Лаура БруссоАктеры: Оскар Айзек, Шарлиз Терон, Хлоя Грейс Морец, Джейвон Уолтон, Ник Кролл, Снуп Догг, Бетт Мидлер, Конрад Вернон, Билл Хейдер, Уоллес ШоунПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные), английские (полные) - отдельноПродолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B228BC10A5A665BD9B40770B92F24223530D365E
 ```
 
 https://mybot314.ru/tekegram_catalog/

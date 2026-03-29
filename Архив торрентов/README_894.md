@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843410.jpg" />
+  <img src="Z:/picture/008/save_picture_843410.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PaintCode 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843402.jpg" />
+  <img src="Z:/picture/008/save_picture_843402.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FoldersSynchronizer 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843384.jpg" />
+  <img src="Z:/picture/008/save_picture_843384.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Windows 10 TP Language Pack build 10036 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843378.jpg" />
+  <img src="Z:/picture/008/save_picture_843378.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843326.jpg" />
+  <img src="Z:/picture/008/save_picture_843326.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Deftones - Gore (2016) [MP3|160-320 кб/с] <Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843323.jpg" />
+  <img src="Z:/picture/008/save_picture_843323.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843319.jpg" />
+  <img src="Z:/picture/008/save_picture_843319.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Currencier 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843316.jpg" />
+  <img src="Z:/picture/008/save_picture_843316.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843309.jpg" />
+  <img src="Z:/picture/008/save_picture_843309.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ LorD And Master - Child Of The 80s (2017) Single [MP3|320 Kbps] <Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843304.jpg" />
+  <img src="Z:/picture/008/save_picture_843304.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ The Secret Light - Mirror Mirror (2017) [MP3|V0 (192-320 Kbps)] <Synthpop,Darkwa
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843299.jpg" />
+  <img src="Z:/picture/008/save_picture_843299.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843298.jpg" />
+  <img src="Z:/picture/008/save_picture_843298.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843296.jpg" />
+  <img src="Z:/picture/008/save_picture_843296.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Torul - Monday (2017) EP [MP3|320 Kbps] <Synthpop, Electro>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843294.jpg" />
+  <img src="Z:/picture/008/save_picture_843294.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Echo Stains - Colors Of Emotion (2015) [FLAC|Lossless|WEB-DL|tracks]<Dreamwave, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843219.jpg" />
+  <img src="Z:/picture/008/save_picture_843219.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843215.jpg" />
+  <img src="Z:/picture/008/save_picture_843215.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843212.jpg" />
+  <img src="Z:/picture/008/save_picture_843212.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Display Driver Uninstaller 15.7.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843208.jpg" />
+  <img src="Z:/picture/008/save_picture_843208.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843200.jpg" />
+  <img src="Z:/picture/008/save_picture_843200.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843197.jpg" />
+  <img src="Z:/picture/008/save_picture_843197.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Soldout - Forever (2017) [MP3|V0 (192- 320 Kbps)] <Electropop, Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843196.jpg" />
+  <img src="Z:/picture/008/save_picture_843196.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Neikka RPM - Battle Scars (2017) EP [MP3|320 Kbps] <Electro, EBM, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843195.jpg" />
+  <img src="Z:/picture/008/save_picture_843195.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843193.jpg" />
+  <img src="Z:/picture/008/save_picture_843193.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Simbolo EBM - Inquisition (2016) [MP3|320 Kbps] <EBM, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843192.jpg" />
+  <img src="Z:/picture/008/save_picture_843192.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ ROTANOV - Best of Nu Deep 08 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843189.jpg" />
+  <img src="Z:/picture/008/save_picture_843189.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ drew the architect - dythlyre (2016) [MP3|320 Kbps] <Experimental Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843185.jpg" />
+  <img src="Z:/picture/008/save_picture_843185.jpg" />
 </div>
 
 

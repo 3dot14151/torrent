@@ -6,7 +6,7 @@ Thief Shadow Edition v.1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311383.jpg" />
+  <img src="Z:/picture/008/save_picture_311383.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pyre  v1.50476 (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310503.jpg" />
+  <img src="Z:/picture/008/save_picture_310503.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fluffy Horde v.1.0 (2018) [En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309841.jpg" />
+  <img src="Z:/picture/008/save_picture_309841.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Trine 3: The Artifacts of Power v.1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306843.jpg" />
+  <img src="Z:/picture/008/save_picture_306843.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wasteland 2 Director's Cut v.2.3.0.5 (2014) [License GOG] [Multi/Ru] [macOS Nati
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302768.jpg" />
+  <img src="Z:/picture/008/save_picture_302768.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Despotism 3k v.1.0.7 (2018) [En/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300750.jpg" />
+  <img src="Z:/picture/008/save_picture_300750.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ BULLSHOT (2016) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299993.jpg" />
+  <img src="Z:/picture/008/save_picture_299993.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299683.jpg" />
+  <img src="Z:/picture/008/save_picture_299683.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Duke Nukem: Manhattan Project (2002) [En/Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299580.jpg" />
+  <img src="Z:/picture/008/save_picture_299580.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Silence - The Whispered World 2 (2016) [Multi/Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299567.jpg" />
+  <img src="Z:/picture/008/save_picture_299567.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Vaporum: Lockdown patch 4 (42308) (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299528.jpg" />
+  <img src="Z:/picture/008/save_picture_299528.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Cat Goes Fishing 1.0u9 (2014) [En] [macOS WineSkin]
 >>Kinder Games для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297567.jpg" />
+  <img src="Z:/picture/008/save_picture_297567.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Dishonored - Game of the Year Edition (2012) [En/Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297561.jpg" />
+  <img src="Z:/picture/008/save_picture_297561.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Freelancer Rebirth (дата выхода игры 2003г дата выхода 
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297556.jpg" />
+  <img src="Z:/picture/008/save_picture_297556.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Deponia 3.2.5.1333 (2014) [Multi/Ru] [AppStore]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295503.jpg" />
+  <img src="Z:/picture/008/save_picture_295503.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Bad North (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292884.jpg" />
+  <img src="Z:/picture/008/save_picture_292884.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Max Payne (2001) [En/Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291595.jpg" />
+  <img src="Z:/picture/008/save_picture_291595.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Pine (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290849.jpg" />
+  <img src="Z:/picture/008/save_picture_290849.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Bulletstorm (2011) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289962.jpg" />
+  <img src="Z:/picture/008/save_picture_289962.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Max Payne 2: The Fall of Max Payne (2006) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289793.jpg" />
+  <img src="Z:/picture/008/save_picture_289793.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Manual Samuel (2016) [Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288128.jpg" />
+  <img src="Z:/picture/008/save_picture_288128.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Alien Rage (2013) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287975.jpg" />
+  <img src="Z:/picture/008/save_picture_287975.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ The Walking Dead: Michonne - Episode 1 (2016) [Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285910.jpg" />
+  <img src="Z:/picture/008/save_picture_285910.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285575.jpg" />
+  <img src="Z:/picture/008/save_picture_285575.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Chaos on Deponia (2014) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284450.jpg" />
+  <img src="Z:/picture/008/save_picture_284450.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ TABS - Totally Accurate Battle Simulator v.0.8.3 (2019) [En] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283460.jpg" />
+  <img src="Z:/picture/008/save_picture_283460.jpg" />
 </div>
 
 

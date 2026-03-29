@@ -1,3 +1,169 @@
+###  Публикация: 1089174   (953588) от 02.01.2017
+
+Александр Глазунов - Раймонда / Alexander Glazunov - Raymonda (2009) DVDRip (Новый национальный театр Токио)
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953588.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Раймонда» - балет на музыку Александра Глазунова в трех актах, четырех картинах. Либретто Л. Пашковой, М. Петипа на сюжет заимствованный из средневековой рыцарской легенды. В балете противопоставлены два мира: полный достоинства и рыцарского благородства мир идеализированного романского Средневековья, в котором обитает Раймонда, и варварский мир необузданных диких (   Читать дальше...   )Производство: Япония, NNTFЖанр: МелодрамаРежиссер: Асами МакиАктеры: Светлана Захарова, Денис МатвиенкоПродолжительность: 02:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C637537184B8B3DA6E4DAFDECCE5DA13C3F531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089230   (953410) от 02.01.2017
+
+Руки вверх! 20 лет. Юбилейный концерт (2017.01.01) HDTV [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые песни группы «Руки Вверх!» напомнят о временах юности, а заводные ритмы заставят танцевать всю ночь. За 20 лет существования группа скопила огромный багаж народных хитов. Это «18 мне уже», «Он тебя целует», «Алёшка», «Уходи», «Отель» и многие другие песни, которым подпевают миллионы.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB75EFAE189C4C41D35002909946FD66C2983E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089007   (953409) от 02.01.2017
+
+Новогодняя Дискотека 80-х от Авторадио (2016-2017) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главное музыкальное событие года - Дискотека 80-х от Авторадио! С каждым годом фестиваль Авторадио становится все более масштабным. Сегодня Дискотека 80-х - не просто праздник поколения, возвращающий зрителей во времена их юности, а современное, неординарное и динамичное супершоу, привлекающее зрителей самых разных возрастов. В Новый Год мы имели возможность увидеть (   Читать дальше...   )Телекомпания: НТВ HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCCDD00E3485B85C7E73E761086073D0FCDCAD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981180   (952697) от 31.01.2016
+
+Квартирник у Маргулиса. 14 выпуск. Ромарио (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Луговых — российский музыкант и певец, лидер группы Ромарио. Роман записывает альбомы не только в составе группы, но и в соавторстве с другими музыкантами (Евгений Маргулис, Сергей Чиграков). В теплой и душевной атмосфере гости квартирника исполнят свои самые известные и полюбившиеся фанатам песни.
+Дата эфира: 30.01.201601. Пелемень
+02. Всё та же любовь
+03. Позвонили мне с одного телеканала...
+04. Москва - Нева(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837DDFD5F41EC35832B20F695429B05D84A70913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981327   (952605) от 31.01.2016
+
+Boney M. - On Stage & On The Road Fantastic Boney M. (1977, 1981) 2007 MSI, DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live in concert 1977, CCH Hamburg, Germany:
+01. Intro
+02. Love For Sale
+03. Take The Heat Of Me(   Читать дальше...   )Жанр: Euro-Disco, DiscoПеревод: ОтсутствуетПродолжительность: 01:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FFE918B5D550489E25AB791260628A18AE06F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 279973   (951601) от 09.01.2011
+
+VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951601.jpg" />
+</div>
+
+
+###  Подробнее
+
+VH-1 Russia - российская версия легендарного европейского канала VH-1, несколько лет вещавшая в пакете НТВ+. К сожалению недавно канал прекратил своё существование...
+
+Материал сборника - оригинальный спутниковый поток MPEG-2, не подвергавшийся никаким пережатиям/перекодированиям в процессе монтажа!
+Качество первоисточника (As Is)!(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AF050D9A7D5D906767FA63AB0E68828E4DBF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981479   (951414) от 01.02.2016
 
 Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music Entertainment, DVDRip
@@ -6,7 +172,7 @@ Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music En
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951414.jpg" />
 </div>
 
 
@@ -35,7 +201,7 @@ VA – Heavy Rock Masterpieces: The Ultimate Anthology (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951292.jpg" />
 </div>
 
 
@@ -64,7 +230,7 @@ Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951014.jpg" />
 </div>
 
 
@@ -93,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950980.jpg" />
 </div>
 
 
@@ -119,7 +285,7 @@ Slipknot - {sic}nesses (Live At Download) (2009/2012) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950967.jpg" />
 </div>
 
 
@@ -148,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950218.jpg" />
 </div>
 
 
@@ -174,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950217.jpg" />
 </div>
 
 
@@ -205,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950207.jpg" />
 </div>
 
 
@@ -231,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950139.jpg" />
 </div>
 
 
@@ -257,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950119.jpg" />
 </div>
 
 
@@ -285,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950100.jpg" />
 </div>
 
 
@@ -311,7 +477,7 @@ VA – Fetenhits: The Real Classics (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949881.jpg" />
 </div>
 
 
@@ -340,7 +506,7 @@ Radiohead – 27 5 94 The Astoria London Live (1995, remastered 2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949811.jpg" />
 </div>
 
 
@@ -369,7 +535,7 @@ New Order - A Collection (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949798.jpg" />
 </div>
 
 
@@ -398,7 +564,7 @@ Joe Dassin - a Toi... Live a L'Olympia (1977) 2005 Sony&BMG, DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949645.jpg" />
 </div>
 
 
@@ -427,7 +593,7 @@ Radiohead - The Best Of (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949642.jpg" />
 </div>
 
 
@@ -456,7 +622,7 @@ Chris Rea – The Road To Hell & Back (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949634.jpg" />
 </div>
 
 
@@ -485,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949504.jpg" />
 </div>
 
 
@@ -515,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949083.jpg" />
 </div>
 
 
@@ -541,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949003.jpg" />
 </div>
 
 
@@ -554,174 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C5F7DA83564F489EF9FB091DE517C93F281862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281100   (948916) от 11.01.2011
-
-Хиты и Звезды. Концерт Виктора Дробыша  (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эфире первый творческий вечер российского композитора, автора огромного количества шлягеров Виктора Дробыша. Творческий вечер Виктора Дробыша станет уникальным концертом, в котором прозвучит большинство самых популярных песен нашей страны последних десяти лет.1. Валерия - Была любовь
-2. Валерия - Часики
-3. Филипп Киркоров и Челси - Любовь всегда права
-4. Илья Резник - Поздравление (Праздничное стихотворение)(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:25:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281161   (948911) от 11.01.2011
-
-Юбилейный концерт.  Борис Моисеев: Десерт (2011.01.10) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запретный плод подают на сладкое. И женщины не могут отказаться…  На одной сцене — Борис Моисеев и все дамы его сердца!01.Паганини
-02.Маленьким не умереть
-03.Это боль
-04.Московские звезды(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971851E2E38B3BD1BBA464114048EF15E87FE9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089299   (948820) от 05.01.2017
-
-Ярослав Гашек - Швейк, или Гимн идиотизму (2005) TVRip (Московский академический театр Сатиры)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы инсценировки перекроили знаменитый роман, выстроив спектакль в форме аукциона в пользу голодающих актеров, на котором продавались исторические раритеты и личные вещи персонажей книги. Например, железный таз, в котором парил свои больные ноги бравый солдат Йозеф Швейк, 27 томов уголовных дел, подписанных им же, или клистир, которым лечили от всех болезней дезертиров. (   Читать дальше...   )Производство: Россия, Московский академический театр СатирыЖанр: Спектакль, комедияРежиссер: Александр ШирвиндтАктеры: Эдуард Радзюкевич, Михаил Державин мл., Юрий Авшаров, Фёдор Добронравов, Игорь Лагутин, Виктор Бакин, Константин Карасик, Сергей Чурбаков, Сергей Бурунов, Александр ЖигалкинПродолжительность: 02:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628BA8B5A1B1A22A4CAB95339589E9EC60C44830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857896   (948355) от 11.01.2015
-
-Инфинити - Крылья (2014) [1080p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: MKVПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0787182C69D07A479EDD901BBD13D0607A286418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982441   (948132) от 03.02.2016
-
-Sade – Life Promise Pride Love (1993) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Programme Start (0:10)
-02. Your Love Is King (3:37)
-03. Smooth Operator (Red Eye) (8:27)
-04. Hang On To Your Love (3:59)(   Читать дальше...   )Жанр: Smooth Jazz, DowntempoПеревод: ОтсутствуетПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C96D72D1A6CD02B7097100F035A13A566C37D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982327   (947991) от 03.02.2016
-
-Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video,  DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Program Start
-02. Brace Yourself
-03. Billie Jean
-04. The Way You Make Me Feel(   Читать дальше...   )Жанр: Pop Rock, Downtempo, DiscoПеревод: ОтсутствуетПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC179D3398A95ABCA35FDDFD5D71D0E8214ADCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

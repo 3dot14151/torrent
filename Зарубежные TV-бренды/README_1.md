@@ -1,3 +1,110 @@
+###  Публикация: 1441070   (1037878) от 20.01.2021
+
+Хаос / Chaos (2013) WEBRip [H.264/720p-LQ] (серии 1-9) [EN / RU Sub]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037878.jpg" />
+</div>
+
+
+###  Подробнее
+
+ХАОС — математический фильм, состоящий из девяти глав, по тринадцать минут каждая. Это фильм для широкой публики, посвященный динамическим системам, эффекту бабочки и теории хаоса.Производство: БельгияЖанр: Документальный, научно-популярный, физика, математикаРежиссер: Йос Лейс, Этьен Жис, Орельян АльварезПеревод: отсутствуетСубтитры: РусскиеПродолжительность: серии x ~00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8744C4ACEC494615DC12A485FF9F6C28449DE635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441285   (1037351) от 22.01.2021
+
+Идеальная планета / A Perfect Planet (2021) WEB-DL [H.264/720p] (сезон 1, серии 1-5 из 5) AMS (обновляемая)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное исследование объясняет, как силы природы — погода, океанские течения, солнечная энергия и вулканы — формируют и поддерживают огромное разнообразие жизни на планете.
+Планета Земля идеальна. Всё в нашем мире - его размер, расстояние до Солнца, вращение и наклон, Луна - идеально подходит для нашего существования, и природные силы нашей планеты питают всё (   Читать дальше...   )Производство: Великобритания, США / A Silverback Films Production for BBC and DiscoveryЖанр: Документальный, Природа, Флора, ФаунаРежиссер: Хув Корди, Ник Шулингин-ДжорданПеревод: Многоголосый закадровый - Студия «AMS»Субтитры: английскиеПродолжительность: ~00:59:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E38ECE0B881C0A61B421C26A177837898B86255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441286   (1037334) от 22.01.2021
+
+Идеальная планета / A Perfect Planet (2021) WEB-DLRip (сезон 1, серии 1-5 из 5) AMS (обновляемая)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное исследование объясняет, как силы природы — погода, океанские течения, солнечная энергия и вулканы — формируют и поддерживают огромное разнообразие жизни на планете.
+Планета Земля идеальна. Всё в нашем мире - его размер, расстояние до Солнца, вращение и наклон, Луна - идеально подходит для нашего существования, и природные силы нашей планеты питают всё (   Читать дальше...   )Производство: Великобритания, США / A Silverback Films Production for BBC and DiscoveryЖанр: Документальный, Природа, Флора, ФаунаРежиссер: Хув Корди, Ник Шулингин-ДжорданПеревод: Многоголосый закадровый - Студия «AMS»Продолжительность: ~00:59:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D44BBD7436A5D3B9A37762D1E27BEEB6C26DF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441282   (1037325) от 22.01.2021
+
+Идеальная планета / A Perfect Planet (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) AMS (обновляемая)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное исследование объясняет, как силы природы — погода, океанские течения, солнечная энергия и вулканы — формируют и поддерживают огромное разнообразие жизни на планете.
+Планета Земля идеальна. Всё в нашем мире - его размер, расстояние до Солнца, вращение и наклон, Луна - идеально подходит для нашего существования, и природные силы нашей планеты питают всё (   Читать дальше...   )Производство: Великобритания, США / A Silverback Films Production for BBC and DiscoveryЖанр: Документальный, Природа, Флора, ФаунаРежиссер: Хув Корди, Ник Шулингин-ДжорданПеревод: Многоголосый закадровый - Студия «AMS»Субтитры: английскиеПродолжительность: ~00:59:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF9C5AC232C0FF0235F47D479FCCD643BAA6B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441281   (1037321) от 22.01.2021
 
 Идеальная планета / A Perfect Planet (2021) WEBRip [H.265/2160p] [4K, HLG, 10-bit] (сезон 1, серии 1-5 из 5) AMS
@@ -6,7 +113,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037321.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037048.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036788.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036484.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036476.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036474.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036125.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035910.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035824.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035637.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035539.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034739.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ BBC. Тело на продажу: как живут секс-работницы
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034094.jpg" />
 </div>
 
 
@@ -345,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033866.jpg" />
 </div>
 
 
@@ -371,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030858.jpg" />
 </div>
 
 
@@ -397,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030320.jpg" />
 </div>
 
 
@@ -423,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029866.jpg" />
 </div>
 
 
@@ -449,7 +556,7 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029552.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029149.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028982.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028634.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027646.jpg" />
 </div>
 
 
@@ -566,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6EBF045B7218016A3160898FD81957C6390D408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452384   (1026846) от 11.03.2021
-
-Когда киты ходили по суше. Путешествие в глубь времен / When Whales Walked: Journeys in Deep Time (2020) HDTV [H.264/1080i] (сезон 1, серии 1-2 из 2) SDI Media
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы проследуем за ведущими учеными в глобальном приключении, поскольку они следуют подсказкам из летописи окаменелостей. Встретимся с удивительными древними животными - от крошечных слонов до огромных крокодилов, превосходящих размером любую современную рептилию, и предков китов, которые ходили на четырех лапах.Производство: США / Twin Cities Public Television Inc., Shining Red Films, Smithsonian ChannelЖанр: документальный, археология, палеонтологияРежиссер: Чед Коэн, Грэм ТаунслиПеревод: Одноголосый профессиональный (SDI Media)Язык озвучки: русский, английскийПродолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF39D654508243967A468F4BD26811C48C74AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453862   (1026688) от 12.03.2021
-
-Ненависть (Почему мы ненавидим) / Why We Hate (2019) WEB-DLRip (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026688.jpg" />
-</div>
-
-
-###  Подробнее
-
-В шестисерийном проекте Стивен Спилберг и Алекс Гибни исследуют природу разрушительного чувства и ищут ответ на вопрос: почему мы ненавидим? Оскароносные продюсер и сценарист проделали огромную работу. В их картине – архивные кадры главных потрясений в истории человечества, от истребления нацистами евреев и рабства в Америке до геноцида в Руанде и противостояния (   Читать дальше...   )Производство: США, Amblin Television, Jigsaw Productions, Discovery ChannelЖанр: Документальный, познавательный, историяРежиссер: Гита Гандбир, Сэмюэл Д. ПоллардПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7904538285AB782CDD013673961C2CF749532C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453861   (1026682) от 12.03.2021
-
-Ненависть (Почему мы ненавидим) / Why We Hate (2019) WEB-DL [H.264/1080p] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026682.jpg" />
-</div>
-
-
-###  Подробнее
-
-В шестисерийном проекте Стивен Спилберг и Алекс Гибни исследуют природу разрушительного чувства и ищут ответ на вопрос: почему мы ненавидим? Оскароносные продюсер и сценарист проделали огромную работу. В их картине – архивные кадры главных потрясений в истории человечества, от истребления нацистами евреев и рабства в Америке до геноцида в Руанде и противостояния (   Читать дальше...   )Производство: США, Amblin Television, Jigsaw Productions, Discovery ChannelЖанр: Документальный, познавательный, историяРежиссер: Гита Гандбир, Сэмюэл Д. ПоллардПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9AE8E08BBC01E88ECE31A2E2EDD41E8E474EAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347366   (1026201) от 15.03.2021
-
-NG: Свидетели катастроф / Witness to Disaster (2019) HDTV [H.264/1080i-LQ] (серии 1-4 из 6) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026201.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме собраны захватывающие истории, рассказанные свидетелями катастроф, которые их пережили. Вы увидите взрывы в шахтах в Чили, лесные пожары в Португалии, потоки мусора, разрушившие город в Калифорнии, торнадо в США, гибель корабля, попавшего в свирепый шторм, землетрясение в Непале. С помощью криминалистического анализа мы раскроем, как разворачивались (   Читать дальше...   )Производство: Великобритания, Darlow Smithson Productions, National GeographicЖанр: Документальный, катаклизмы, катастрофыРежиссер: Неил РользПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C76FF86149D6765E7D69E1563ED18492B7A6E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

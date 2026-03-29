@@ -1,3 +1,30 @@
+###  Публикация: 1626969   (196221) от 02.07.2023
+
+Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [2023, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Однажды космическая империя Азатот отправляет на маленькую планетку Земля исследователя Лайзу Луну. При первом знакомстве с Землёй Лайза решает, что этот отсталый мирок с допотопными технологиями и никчёмными людишками заслуживает уничтожения. И её мнение не меняется до тех пор, пока, зайдя в кафе, она не сталкивается с созданием под названием кошка. Шерстяное (   Читать дальше...   )Производство: Япония, студия SynergySP / シナジーSPЖанр: комедия, повседневность, фантастикаРежиссер: Хатори ДзюнЯзык озвучки: Русский закадровый (Dream Cast), (AniBaza), (AniLibria.TV), (ShikokuStudio)Субтитры: Русские надписи, русские (софтсаб), FrenchПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B088F00816FB799EECE152E1A4F7A05C6391C10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604137   (196201) от 02.07.2023
 
 Кубо не прощает меня — моба | Кубо-сан не позволяет мне стать невидимым | Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +33,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196201.jpg" />
+  <img src="Z:/picture/004/save_picture_196201.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196193.jpg" />
+  <img src="Z:/picture/004/save_picture_196193.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196162.jpg" />
+  <img src="Z:/picture/004/save_picture_196162.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196086.jpg" />
+  <img src="Z:/picture/004/save_picture_196086.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195870.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195863.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ Douluo Dalu | Dou Luo Da Lu | Soul Land | Боевой континент [2018-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194490.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193974.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ Rozen Maiden | Девы Розена [ТВ-1] [2004, TV, 12 эп.] BDRip 1080p 1
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193911.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Paprika | Паприка [2006, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193832.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ Hanma Baki: Son of Ogre 2nd Season | Baki Hanma 2nd Season | Баки — сын
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193706.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192199.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг королей [2021, TV, 23 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192113.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай в серых тонах [2015,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189847.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ Grisaia no Meikyuu: Caprice no Mayu 0 | The Labyrinth of Grisaia: The Cocoon of 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189845.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189842.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189569.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188933.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ Otonari ni Ginga | A Galaxy Next Door | Галактика по соседств
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188216.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187411.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187084.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ Deemo Movie: Sakura no Oto - Anata no Kanadeta Oto ga, Ima mo Hibiku | Димо 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187061.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ C Danchi | Жилой комплекс „Си“ | Housing Complex C [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186962.jpg" />
+  <img src="Z:/picture/005/save_picture_186962.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186922.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Orejihanki | Перер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186613.jpg" />
 </div>
 
 
@@ -652,32 +679,6 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Orejihanki | Перер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A4099538853351998BF4E1BC57AFA6E601368CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663496   (186556) от 22.09.2023
-
-Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая Джахи не сдаётся! [2021, TV, 20] BDRip 1080p HEVC 10-bit raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда обладаешь почти безграничной силой и властью, то можешь жить, ни о чём не беспокоясь. Тебя боятся, тебя уважают, тебе прислуживают, не жизнь — а сказка. Такой жизнью и наслаждалась демонесса Джахи, уступающая в могуществе лишь самому королю демонов. Однако, как известно, всё хорошее когда-нибудь заканчивается, вот пришла и очередь Джахи познакомиться с этим (   Читать дальше...   )Производство: Япония, SILVER LINK.Жанр: Сёнен, Комедия, СверхъестественноеРежиссер: Рюдзи Абэ, Кадзуса УмэдаПеревод: Anilibria (RU), GJM (EN)Язык озвучки: Японский, Английский (CR, внешняя) и Русский (Anilibria.TV, внешняя)Субтитры: Русские (внешние), Английские (внешние)Продолжительность: ТВ, 20 серий по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2391E511511D506C96B7F0B43D9E83CAE1006BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

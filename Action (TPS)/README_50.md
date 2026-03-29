@@ -1,3 +1,159 @@
+###  Публикация: 1791914   (21262) от 16.04.2025
+
+Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack seleZen
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в захватывающую пошаговую тактическую игру, действия которой разворачиваются в вымышленном государстве антиутопической Восточной Европы. Возглавь элитный военный отряд и отправляйся на сложные задания, полные опасностей, обмана и нравственных дилемм.Тип издания: RepackРазработчик: NordcurrentЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FF43F49E5C5E8B76E0FABB82C334394AD51523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792068   (21157) от 17.04.2025
+
+Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в захватывающую пошаговую тактическую игру, действия которой разворачиваются в вымышленном государстве антиутопической Восточной Европы. Возглавь элитный военный отряд и отправляйся на сложные задания, полные опасностей, обмана и нравственных дилемм.Тип издания: RepackРазработчик: NordcurrentЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E6AE848E4CB88F7C4DB96F09B0F1071A7AA9D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779764   (20933) от 19.04.2025
+
+Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Let'sРlay [Darkness Trilogy]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погрузиться в легендарные приключения Лары Крофт с улучшенной графикой и современными эффектами. Путешествуйте по миру следуйте за Ларой Крофт по культовым местам, включая Каир, Рим, Париж и многие другие места. Испытайте самые мрачные приключения Лары и раскройте тайны прошлого Лары Крофт, пролейте свет на (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8644AE8DDBC5F7110DEE39A9936F0A9C66FD7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780377   (20851) от 20.04.2025
+
+Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Decepticon [Darkness Trilogy]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погрузиться в легендарные приключения Лары Крофт с улучшенной графикой и современными эффектами. Путешествуйте по миру следуйте за Ларой Крофт по культовым местам, включая Каир, Рим, Париж и многие другие места. Испытайте самые мрачные приключения Лары и раскройте тайны прошлого Лары Крофт, пролейте свет на (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214D97BD3504B773FC82CE1DDADC60ED0800BA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792701   (20834) от 20.04.2025
+
+Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (1.0.0 patch 1) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погрузиться в легендарные приключения Лары Крофт с улучшенной графикой и современными эффектами. Путешествуйте по миру следуйте за Ларой Крофт по культовым местам, включая Каир, Рим, Париж и многие другие места. Испытайте самые мрачные приключения Лары и раскройте тайны прошлого Лары Крофт, пролейте свет на (   Читать дальше...   )Тип издания: LicenseРазработчик: Aspyr, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1760507871D6FA1EBEA7257B935AD6D59129DF79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792911   (20746) от 21.04.2025
+
+Block Fortress 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Block Fortress 2 переносит игрока на поверхность выбранной планеты, где предстоит возвести крепость для обороны. Нужно сооружать фортификации из имеющихся блоков, а затем готовиться к сражениям. Геймеры экипируют персонажей вооружением, расставляют отряды под управлением ИИ и лично защищают построенный опорный пункт от непрекращающихся атак противника. Чтобы уцелеть (   Читать дальше...   )Тип издания: RepackРазработчик: Foursaken MediaЖанр: Экшены, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074D55033DA685248D6D5864EC91DBE56C085D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793139   (20654) от 22.04.2025
 
 Haydee III (3) (2025) [Ru/Multi] (1.0.21.1529/dlc) Repack Other s [18+]
@@ -6,7 +162,7 @@ Haydee III (3) (2025) [Ru/Multi] (1.0.21.1529/dlc) Repack Other s [18+]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20654.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20632.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.11025947/dlc) Repack Wanterlude [Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20619.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20527.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20523.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20493.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20440.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20389.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack seleZen [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20324.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack FitGirl [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20198.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.42.46611) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20039.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20021.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Assassin's Creed Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19914.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ KIBORG (2025) [Ru/Multi] (202.50.4 30:1:50) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19749.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.4_30: 1:50) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19537.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19505.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19484.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19285.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19089.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Project Werewulf (2025) [Ru/Multi] (HotFix 2) Repack Other s [18+]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18910.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Project Werewulf - это 3D-игра на выживание от третье�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFF5E304CD4A60E72014D5DA6B6483B9538DAAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796528   (18678) от 11.05.2025
-
-SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этой приключенческой игры в жанре экшен-битва происходит на густо загроможденных улицах «Коулонга», наполненных неизвестностью и хаосом. Игроки берут на себя роль «Хёки», сущности, лишенной памяти и физической формы. Его единственным мотивом является уничтожение чудовищных существ, известных как «Slitterheads», которые ползают по городу, маскируясь под людей.Тип издания: RepackРазработчик: Bokeh Game Studio lnc.Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A7D6B59C6335FE22DF5ADFDF9FCBC3CDDAB1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796740   (18540) от 12.05.2025
-
-SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этой приключенческой игры в жанре экшен-битва происходит на густо загроможденных улицах «Коулонга», наполненных неизвестностью и хаосом. Игроки берут на себя роль «Хёки», сущности, лишенной памяти и физической формы. Его единственным мотивом является уничтожение чудовищных существ, известных как «Slitterheads», которые ползают по городу, маскируясь под людей.Тип издания: RepackРазработчик: Bokeh Game Studio lnc.Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D008C6BC13D651ABD5F8226E3322514A4B052BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798779   (17329) от 23.05.2025
-
-Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Scene Rune
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17329.jpg" />
-</div>
-
-
-###  Подробнее
-
-От завоевавшей признание студии MercurySteam – вас ждет новый приключенческий экшен с уникальной боевой системой, где вам предстоит самим ковать себе оружие и противостоять жестоким врагам. Возьмите на себя роль Арана де Лиры и шагните навстречу судьбе!Тип издания: SceneРазработчик: MercurySteamЖанр: Экшены, ПриключенияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F18556CCE491C4B7344CBF28C2ED67B5C129E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798645   (17324) от 23.05.2025
-
-Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17324.jpg" />
-</div>
-
-
-###  Подробнее
-
-От завоевавшей признание студии MercurySteam – вас ждет новый приключенческий экшен с уникальной боевой системой, где вам предстоит самим ковать себе оружие и противостоять жестоким врагам. Возьмите на себя роль Арана де Лиры и шагните навстречу судьбе!Тип издания: RepackРазработчик: MercurySteamЖанр: Экшены, ПриключенияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D3787E35A3A0EC3C5AB3A348484C40FB40F77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798949   (17227) от 24.05.2025
-
-Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17227.jpg" />
-</div>
-
-
-###  Подробнее
-
-От завоевавшей признание студии MercurySteam – вас ждет новый приключенческий экшен с уникальной боевой системой, где вам предстоит самим ковать себе оружие и противостоять жестоким врагам. Возьмите на себя роль Арана де Лиры и шагните навстречу судьбе!Тип издания: RepackРазработчик: MercurySteamЖанр: Экшены, ПриключенияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7949798321D03AED24C5BFFD7F2F83CBC2CF1082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770278   (17225) от 24.05.2025
-
-Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.09.1/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый боeвик, в котором концепция серии Armored Core получила современное развитие за счёт знаний, накопленных компанией FromSoftware за время разработки игр о боевых роботах-мехах и фирменный продуманный игровой процесс. Управляйте собственной мехой в скоростных сражениях, где можно двигаться в любом направлении, и попробуйте добиться победы, используя преимущества (   Читать дальше...   )Тип издания: RepackРазработчик: FromSoftware, Inc.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228D27780FCE275627BD71133BA0AE1DF0667768
 ```
 
 https://mybot314.ru/tekegram_catalog/

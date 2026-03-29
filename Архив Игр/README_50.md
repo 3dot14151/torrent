@@ -6,7 +6,7 @@ Jotun (2015) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454994.jpg" />
+  <img src="Z:/picture/008/save_picture_454994.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ F1 2012 [Ru/En] (RePack/1.0) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454877.jpg" />
+  <img src="Z:/picture/008/save_picture_454877.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ F1 2012 [Ru] (Repack) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454666.jpg" />
+  <img src="Z:/picture/008/save_picture_454666.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ DogFight 1942 [Ru/En] (Lossless Repack/1.0) 2012 | SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454665.jpg" />
+  <img src="Z:/picture/008/save_picture_454665.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ SolSuite Solitaire 2020 (2020) [Ru/En] (20.9) Repack/Portable elchupacabra
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453303.jpg" />
+  <img src="Z:/picture/008/save_picture_453303.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453119.jpg" />
+  <img src="Z:/picture/008/save_picture_453119.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Spec Ops: The Line + 2 DLC [Multi6/+] (L/u2) 2012 l SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452338.jpg" />
+  <img src="Z:/picture/008/save_picture_452338.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Borderlands 2 [Ru] (Repack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452335.jpg" />
+  <img src="Z:/picture/008/save_picture_452335.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Spec Ops: The Line [Ru] (RePack/1.0u2) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452331.jpg" />
+  <img src="Z:/picture/008/save_picture_452331.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (1.2.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452259.jpg" />
+  <img src="Z:/picture/008/save_picture_452259.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Stardew Valley (2016) [En] (1.11) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452254.jpg" />
+  <img src="Z:/picture/008/save_picture_452254.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Royal Quest: Время Крабить (2012) [Ru] (1.0.062) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452245.jpg" />
+  <img src="Z:/picture/008/save_picture_452245.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tom Clancy's Ghost Recon: Future Soldier [PS3] [NTSC] [ENG] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452221.jpg" />
+  <img src="Z:/picture/008/save_picture_452221.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Borderlands 2. Premium Club Edition [Ru/En] (RePack/1.0u1) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452142.jpg" />
+  <img src="Z:/picture/008/save_picture_452142.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Pro Evolution Soccer 2013 [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452139.jpg" />
+  <img src="Z:/picture/008/save_picture_452139.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452135.jpg" />
+  <img src="Z:/picture/008/save_picture_452135.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Spec Ops: The Line [Ru/En] (Rip/u2) 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452122.jpg" />
+  <img src="Z:/picture/008/save_picture_452122.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ SolSuite Solitaire 2020 (2020) [Ru/En] (20.9) Repack/Portable TryRooM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451286.jpg" />
+  <img src="Z:/picture/008/save_picture_451286.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ The Walking Dead: Episode 1, 2, 3 (RePack) [Ru/En] 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450034.jpg" />
+  <img src="Z:/picture/008/save_picture_450034.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Spec Ops: The Line + 2 DLC [Ru] (Rip/1.0.6890.0/u2) 2012 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449786.jpg" />
+  <img src="Z:/picture/008/save_picture_449786.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru/En] (RePack/1.4) 2012 l R.G. Мех
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449778.jpg" />
+  <img src="Z:/picture/008/save_picture_449778.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Iron Brigade [Ru] (RePack/1.0/DLC) 2012 | bolshak
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449040.jpg" />
+  <img src="Z:/picture/008/save_picture_449040.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Age of Wonders 3/III (2014) [Ru/Multi] (1.700/dlc) SteamRip Let'sРlay [Deluxe E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448427.jpg" />
+  <img src="Z:/picture/008/save_picture_448427.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447559.jpg" />
+  <img src="Z:/picture/008/save_picture_447559.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Disciples III: Renaissance / Disciples 3: Ренессанс [Ru] (Repack/1.05HF
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447414.jpg" />
+  <img src="Z:/picture/008/save_picture_447414.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Ninja Pizza Girl (2015) [En] License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446793.jpg" />
+  <img src="Z:/picture/008/save_picture_446793.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1682866   (129958) от 09.12.2023
+
+Thomas Anders - Songs Forever (2006) Remastered, 2023, Craft Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Pop, Ballad, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Songs That Live Forever (Remastered 2023)
+02 – Cry For Help (Remastered 2023)
+03 – For Your Eyes Only (Remastered 2023)
+04 – Have I Told You Lately (Remastered 2023)(   Читать дальше...   )Жанр: Jazz, Pop, Ballad, SwingПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D74D363067EFA27FC47FDC201F3AC1E3DEDB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682974   (129807) от 09.12.2023
+
+Amy Winehouse - Stronger Than Me (2003) Remastered, 2023, UMC [FLAC|Lossless|WEB-DL|tracks] <Soul, Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stronger Than Me [00:03:32]
+02. What It Is [00:04:43]
+03. Take The Box (The Headquarters Mix) [00:03:48]
+04. Stronger Than Me (Curtis Lynch Jnr featuring Blackcat Vocal Remix) [00:04:43](   Читать дальше...   )Жанр: Soul, Jazz, PopПродолжительность: 00:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DD276A32B0E1C71F648B5FF78CEFE1ED80F233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682929   (129755) от 09.12.2023
+
+Buddy Rich - Milestones Of A Jazz Legend (1946 - 1962) 10CD, 2020, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lulu's Back In Town [5:50]
+02. Playtime [6:10]
+03. Will You Still Be Mine [4:42]
+04. Fascinating Rhythm [4:34](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 12:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138F4B5C829766F3D6B0B9135F7DEEDD8CF85CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525364   (129546) от 20.01.2022
+
+Lennie Tristano - Personal Recordings (1946 - 1970) 6CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129546.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Rhythm [3:21]
+02. Lennie's Song [4:09]
+03. Surrender [3:10](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 05:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43862116E28D804ED827F42322D4E70D2EC9ED1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489304   (129234) от 28.04.2012
 
 Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<Big Band>
@@ -6,7 +122,7 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129234.jpg" />
 </div>
 
 
@@ -41,7 +157,7 @@ Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129189.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ Count Basie and His Small Groups - The Fives (1936—1942) (1996) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129145.jpg" />
 </div>
 
 
@@ -105,7 +221,7 @@ Pat Martino - Comin' And Goin': Exit & The Return (1976, 1987) 2CD, 1999, 32 Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129114.jpg" />
 </div>
 
 
@@ -134,7 +250,7 @@ VA - Gorgeous Relaxing Jazzy Instrumentals in Lounge Style (2023) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128714.jpg" />
 </div>
 
 
@@ -163,7 +279,7 @@ VA - Best Emotional Sax Colletion (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128703.jpg" />
 </div>
 
 
@@ -192,7 +308,7 @@ VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128694.jpg" />
 </div>
 
 
@@ -221,7 +337,7 @@ McCoy Tyner - The Impulse Albums Collection (1961 - 1964) 4CD, 2022, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128689.jpg" />
 </div>
 
 
@@ -250,7 +366,7 @@ Ramsey Lewis - The Beatles Songbook: The Saturday Salon Series, Vol. 1 (2022) St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128688.jpg" />
 </div>
 
 
@@ -279,7 +395,7 @@ VA - Sister Bossa Vol. 11 (Cool Jazzy Cuts With A Brazilian Flavour) (2023) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128681.jpg" />
 </div>
 
 
@@ -308,7 +424,7 @@ VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128678.jpg" />
 </div>
 
 
@@ -337,7 +453,7 @@ Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128558.jpg" />
 </div>
 
 
@@ -366,7 +482,7 @@ Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128554.jpg" />
 </div>
 
 
@@ -395,7 +511,7 @@ Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128550.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ Tim (Thomas) Hardin Trio - Light Intelligence Series 1 (1992) Golden Penguin [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128377.jpg" />
 </div>
 
 
@@ -453,7 +569,7 @@ The Thomas Hardin Trio - Clasicos a ritmo de Jazz (1998) GyC Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128374.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ Jessica Williams - This Side Up (2002) MaxJazz [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128354.jpg" />
 </div>
 
 
@@ -511,7 +627,7 @@ Thomas Hardin Trio - Jazz de kiku Beethoven (2003) Victor Entertainment [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128245.jpg" />
 </div>
 
 
@@ -540,7 +656,7 @@ VA - Smooth Jazz Beats & Modern Fusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128239.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ VA - Electro Swing Back to Old School Volume 2 (Jazzy Electro and Vintage Swing 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128233.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ Jessica Williams - Live At Yoshi's, Vol. 2 (2005) MaxJazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128224.jpg" />
 </div>
 
 
@@ -627,7 +743,7 @@ Phil Woods - The Rev & I (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128218.jpg" />
 </div>
 
 
@@ -641,122 +757,6 @@ Phil Woods - The Rev & I (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFDD841A7CC1DD391710B0168CE57AFB16E33C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683744   (128217) от 12.12.2023
-
-VA - Luxury Relaxing Lounge Comfort Smooth Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Fade into the Sunset (4:44)
-02. Konstantin Klashtorni - Nice and Easy (5:12)
-03. eJazz Artistry - No Rhyme, No Reason (3:48)
-04. Kool&Klean - Down Our Memory Lane (4:32)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53E616CEFB801146497F9B358BAF7BDB5A72EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683747   (128211) от 12.12.2023
-
-VA - Meditative, Romantic and Stylish Jazz for the Quiet Times (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - The Way You Look Tonight (5:06)
-02. Chillaxing Jazz Kollektion - A New Day (4:44)
-03. Love Suggestions - Clarity (4:36)
-04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC427F85EA72390E6EAADF86E03668CCD05B0D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683750   (128208) от 12.12.2023
-
-VA - Sad Girl Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Holiday - I'll Never Smile Again (3:26)
-02. Ella Fitzgerald - Get Out Of Town (3:23)
-03. Chet Baker - I Fall In Love Too Easily (3:20)
-04. Tord Gustavsen Trio - Vær sterk, min sjel (3:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0410E2EFA3DC9BCF66A3399E47B553BF77D70F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683973   (128127) от 13.12.2023
-
-Fourplay - Between The Sheets (1993) 2023 30th Anniversary Remastered Edition [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chant
-02. Monterey
-03. Between the Sheets
-04. Li'l Darlin'(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5CFD278A6F01113AD2ECFCB7B3CEDCAC2A6C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1862076   (1063055) от 
+
+Динозавры / The Dinosaurs (2026) WEB-DLRip (сезон 1, серии 1-4 из 4) LostFilm, WinMedia
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четырехсерийная документальная сага охватывает 165 миллионов лет мезозойской эры. Проект исследует эволюционный путь динозавров: от крошечных триасовых предков до гигантских титанов мелового периода. Используя передовую графику, авторы воссоздают особенности биологии, миграции и трагический финал великой династии.Производство: США, Великобритания / Amblin Entertainment, Netflix, Silverback FilmsЖанр: документальныйРежиссер: Ник Шулингин-Джордан, Joe Fereday, Amber Cherry EamesУчастники: Морган ФриманПеревод: Одноголосый профессиональный (LostFilm, WinMedia)Язык озвучки: РусскийСубтитры: Русские (forced, full) - отдельноПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679F061B4D3FC0EFC3FE6A5F9DC5194B26293D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861694   (1062759) от 
+
+NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракон Комодо захватывал наше воображение более века, но мы только сейчас раскрываем некоторые из его самых невероятных секретов.Производство: США | Yellow Border Production Services, National GeographicЖанр: документальный, природаРежиссер: Джефф ЛакПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEDE87967A4F01BE5776F9CF221E63D072C1D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861042   (1062196) от 
+
+NG. Озеро Танганьика. Голубое сердце Африки / Lake Tanganyika: Africa's Blue Heart (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озеро Танганьика, одно из крупнейших озер на земле, сочетает в себе два разных, но одинаково волшебных мира: нетронутую пустыню вдоль берегов, домом для шимпанзе, слонов и антилоп и впечатляюще разнообразной подводной вселенной. Озеро во многом схоже с океаном: великолепные закаты, периодические штормы с ужасающими волнами и воды, полные сардин, разноцветных рыб, (   Читать дальше...   )Производство: Австрия, Германия, Cosmos Factory, OFR, ZDFЖанр: документальный, природа, фауна, флораРежиссер: Харальд ПокизерУчастники: Отто Клеменс, Томас ЕйхорнПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473FC91865C84E83CE1FC6332A894324F8020177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860522   (1061956) от 
+
+NG. Фашистский лагерь смерти. Большой побег / Nazi Death Camp: The Great Escape (2014) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нацистский лагерь смерти в Собиборе был создан для массового уничтожения евреев. 14 октября 1943 года, заключенные устроили в нем самое крупное и успешное восстание во Второй мировой войне. Из 600 заключенных, удалось убежать трёмстам. Около пятидесяти из них пережили войну, и из них только горстка все еще жива. Они раскрывают правдивую историю этого восстания и (   Читать дальше...   )Производство: Великобритания / Darlow Smithson ProductionsЖанр: документальный, история, ВОВ, реконструкцияРежиссер: Хэрвард ПэллингУчастники: Эрик Мейерс, Андреас Беккет, Георг НиколлоффПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E2ABF115CEDD03BDEDCFCA3345A63CE21BEEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859250   (1060814) от 
 
 Динозавры / The Dinosaurs (2026) WEB-DL [H.264/720p] (сезон 1, серии 1-4 из 4) LostFilm, WinMedia
@@ -7,7 +111,7 @@ https://t.me/izofen
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060814.jpg" />
+  <img src="Z:/picture/005/save_picture_1060814.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060089.jpg" />
+  <img src="Z:/picture/009/save_picture_1060089.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060081.jpg" />
+  <img src="Z:/picture/005/save_picture_1060081.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059411.jpg" />
+  <img src="Z:/picture/005/save_picture_1059411.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059241.jpg" />
+  <img src="Z:/picture/005/save_picture_1059241.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ BBC: История Вселенной / Our Universe (2022) WEB-DLRip [AV1/2160
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058903.jpg" />
+  <img src="Z:/picture/005/save_picture_1058903.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG. Намибия - убежище гигантов / Namibia: Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058853.jpg" />
+  <img src="Z:/picture/005/save_picture_1058853.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057843.jpg" />
+  <img src="Z:/picture/005/save_picture_1057843.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ BBC. Снежные медведи / Snow Bears (2017) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057690.jpg" />
+  <img src="Z:/picture/005/save_picture_1057690.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056630.jpg" />
+  <img src="Z:/picture/005/save_picture_1056630.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG. Титаник: цифровое воскрешение / Titanic: The Digit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055954.jpg" />
+  <img src="Z:/picture/005/save_picture_1055954.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG. Королевство обезьян: линии фронта / Kingdom of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055484.jpg" />
+  <img src="Z:/picture/005/save_picture_1055484.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052942.jpg" />
+  <img src="Z:/picture/005/save_picture_1052942.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052936.jpg" />
+  <img src="Z:/picture/005/save_picture_1052936.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052150.jpg" />
+  <img src="Z:/picture/005/save_picture_1052150.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051867.jpg" />
+  <img src="Z:/picture/005/save_picture_1051867.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051861.jpg" />
+  <img src="Z:/picture/005/save_picture_1051861.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050480.jpg" />
+  <img src="Z:/picture/005/save_picture_1050480.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NG: Чудища морей: Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050282.jpg" />
+  <img src="Z:/picture/005/save_picture_1050282.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG. Дикая природа Центральной Америки / Wild Centr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049941.jpg" />
+  <img src="Z:/picture/005/save_picture_1049941.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Discovery: Сражение динозавров / Clash of the dinosaurs (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049920.jpg" />
+  <img src="Z:/picture/005/save_picture_1049920.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049876.jpg" />
+  <img src="Z:/picture/005/save_picture_1049876.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BF2B104E23E6B92E966F423B6544273472D4F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842214   (1048659) от 15.12.2025
-
-Доисторическая планета / Prehistoric Planet (2025) WEB-DLRip (сезон 3, серии 1-5 из 5) LostFilm
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал из пяти частей приглашает зрителей в драматическую новую эпоху доисторической жизни, спустя миллионы лет после вымирания динозавров — эпоху кайнозоя, сформированную льдом, напряженной борьбой за выживание и появлением нового состава гигантов: культовой мегафауны. Вы познакомитесь с жизнью саблезубого кота, шерстистого носорога, броненосца дедикура (   Читать дальше...   )Производство: США, Великобритания / Apple TV, BBC StudiosЖанр: документальный, доисторический мир, реконструкцияРежиссер: Лия Арнольд, Алек Джиннс, Пол Томпсон, Саймон Белл, Эндрю Р. Джонс, Джеймс Шелтон, Катрина СтилПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские | отдельными файламиПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000DB46C893EE31A8AD65A4F55280C740F9BE417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841069   (1047753) от 09.12.2025
-
-Доисторическая планета / Prehistoric Planet (2025) WEB-DL [H.264/720p] (сезон 3, серии 1-5 из 5) LostFilm, Jaskier
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047753.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Доисторическая планета: Ледниковый период» — документальный сериал приглашает зрителей в драматическую новую эпоху доисторической жизни, спустя миллионы лет после вымирания динозавров — эпоху кайнозоя, сформированную льдом, напряженной борьбой за выживание и появлением нового состава гигантов: культовой мегафауны. Вы познакомитесь с жизнью саблезубого кота, шерстистого (   Читать дальше...   )Производство: США, Великобритания / Apple TV+, BBC StudiosЖанр: документальный, доисторический мир, реконструкцияРежиссер: Лия Арнольд, Алек Джиннс, Пол Томпсон, Саймон Белл, Эндрю Р. Джонс, Джеймс Шелтон, Катрина СтилПеревод: Многоголосый профессиональный (LostFilm, Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEAC9FE64B200FF645DC3FDB75C96F17486F70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840905   (1047621) от 08.12.2025
-
-NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы знаем, что акулы-быки плавают вверх по рекам и охотятся в море. Но в этом фильме мы увидим то, что никогда ранее не видели. Мы увидим, как они нападают на других акул и поедают их, понаблюдаем за их скрытой охотой в глубине, проследим за ними по пресноводным рекам к местам размножения и даже станем свидетелями того, как они сражаются с бегемотами и крокодилами.Производство: ЮАР, США, Earth Touch, Bigger PicturesЖанр: документальный, природа, фаунаУчастники: Райан Дейли, Кестон ДжонЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA9783DF098C2935F6B98369CB8E0C194EC8924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840229   (1047150) от 04.12.2025
-
-PBS Nature: Сокровище Карибского моря / Treasure of the Caribbean (2023) WEB-DL [H.264/1080p] (сезон 41, эпизод 12)
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047150.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о природном сокровище Карибов - недавно открытом огромном коралловом рифе, чьи тайны могут спасти другие рифы. Этот риф, расположенный в Белизе и Гватемале и превышающий по размерам Манхэттен, знаменует собой новую главу в понимании взаимозависимости кораллов и рыб.Производство: США, Thirteen Productions LLCЖанр: документальный, природа, фауна, флораРежиссер: Ана СальцедаУчастники: Ф. Мюррэй Абрахам, Ана Джиро Петерсен, Кенворт Мартин, Мелани МакФилд, Майлз Филлипс, Мишель ШерерПеревод: Одноголосый профессиональный (etv+)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D4DD89CD3375844B90D125F19CF06B7674ED5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1314339   (518846) от 14.07.2019
+
+Все, что осталось от революции / Tout ce quil me reste de la revolution (2018) WEBRip [H.264/720p-LQ] [MVO, AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анжель было восемь лет, когда в восточном Берлине открылся первый МакДональдс. С тех пор она борется с заклятием своего поколения - в мире политики затишье. Она из семьи коммунистов, но ее сестра выбрала мир бизнеса, а мать резко поменяла взгляды и переехала жить в деревню.Производство: Франция / Agat Films & Cie, Apsara Films, Acme ProductionsЖанр: КомедияРежиссер: Джудит ДэвисАктеры: Джудит Дэвис, Малик Зиди, Клер Дюма, Симон Бакуше, Мелани Бэстель, Надир Легран, Мирей Перье, Ясин Уиша, Pat Belland, Самира СедираПеревод: Многоголосый любительский - AlphaProjectСубтитры: ОтсутствуютПродолжительность: 01:29:15Реклама: Присутствуют вставки видео голосовой и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF35EBB9E7B977A1CED2A3B461006971865996D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241746   (517903) от 19.08.2018
 
 Ангел-хранитель / The Guardian Angel (2018) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517903.jpg" />
+  <img src="Z:/picture/008/save_picture_517903.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517881.jpg" />
+  <img src="Z:/picture/008/save_picture_517881.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517874.jpg" />
+  <img src="Z:/picture/008/save_picture_517874.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517823.jpg" />
+  <img src="Z:/picture/008/save_picture_517823.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516946.jpg" />
+  <img src="Z:/picture/008/save_picture_516946.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516837.jpg" />
+  <img src="Z:/picture/008/save_picture_516837.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514857.jpg" />
+  <img src="Z:/picture/008/save_picture_514857.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514851.jpg" />
+  <img src="Z:/picture/008/save_picture_514851.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514828.jpg" />
+  <img src="Z:/picture/008/save_picture_514828.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514780.jpg" />
+  <img src="Z:/picture/008/save_picture_514780.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514356.jpg" />
+  <img src="Z:/picture/008/save_picture_514356.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514339.jpg" />
+  <img src="Z:/picture/008/save_picture_514339.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513860.jpg" />
+  <img src="Z:/picture/008/save_picture_513860.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513696.jpg" />
+  <img src="Z:/picture/008/save_picture_513696.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513695.jpg" />
+  <img src="Z:/picture/008/save_picture_513695.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513626.jpg" />
+  <img src="Z:/picture/008/save_picture_513626.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513623.jpg" />
+  <img src="Z:/picture/008/save_picture_513623.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513575.jpg" />
+  <img src="Z:/picture/008/save_picture_513575.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513573.jpg" />
+  <img src="Z:/picture/008/save_picture_513573.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513401.jpg" />
+  <img src="Z:/picture/008/save_picture_513401.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513331.jpg" />
+  <img src="Z:/picture/008/save_picture_513331.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512400.jpg" />
+  <img src="Z:/picture/008/save_picture_512400.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512366.jpg" />
+  <img src="Z:/picture/008/save_picture_512366.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512234.jpg" />
+  <img src="Z:/picture/008/save_picture_512234.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510699.jpg" />
+  <img src="Z:/picture/008/save_picture_510699.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1461AE4CC337AA6641572BFF33545FD7091A17DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315862   (510689) от 22.07.2019
-
-Девушка-невидимка (Возвышаясь над тенью) / Above the Shadows (2019) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка исчезает из мира людей. Виноваты в этом потусторонние силы, которые желали причинить ей вред. У них это получилось: теперь несчастная стала невидимкой, для людей она больше не существует. Но это не значит, что девушка исчезла навсегда. 10 долгих и томительных лет бедняжка провела в тени, никем не видимая и не замечаемая...Производство: США / HIPZEE, BondIt Media Capital, Boundary Stone FilmsЖанр: Фэнтези, драма, мелодрама, спортРежиссер: Клаудия МайерсАктеры: Меган Фокс, Оливия Тирлби, Алан Ричсон, Джастин Котсонас, Джим Гэффиган, Мария Диззия, Дэвид Джохансен, Павел Жайда, Оуэн Кэмпбелл, Тито ОртисПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:51:22Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BFB3C2C1B221E7766365702E49D71C131C920F
 ```
 
 https://mybot314.ru/tekegram_catalog/

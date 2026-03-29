@@ -1,3 +1,85 @@
+###  Публикация: 1178347   (357982) от 27.10.2017
+
+Е. Королева (ред.) | Мудрость и остроумие: большая книга всех времен и народов (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что объединяет этих, казалось бы, разных творческих личностей: Козьму Пруткова, Михаила Салтыкова-Щедрина, Марка Твена, Антона Чехова, Омар Хайяма, Илью Ильфа и Евгения Петрова?
+Остроумие – вот, пожалуй, главная черта, которая им присуща. Тонко подмечать веяния времени, чутко чувствовать суть человека, точно обозначать явления, происходящие в обществе, и ярко, метко, (   Читать дальше...   )Жанр: Афоризмы и цитатыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FA7A9AB6D85895428160D1B8743A9C11EEB1C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178217   (357870) от 27.10.2017
+
+Альберт Эйнштейн | Бог не играет в кости. Моя теория относительности (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бог не играет в кости…
+(Альберт Эйнштейн)
+Известный главным образом как создатель специальной и общей теории относительности, Альберт Эйнштейн стал, пожалуй, самым знаменитым ученым XX века, воплощением человеческого гения. Он коренным образом изменил наши взгляды на материю, пространство и время. Мы в благоговейном восхищении и растерянности стоим перед фигурой (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8E3A8FD8A700730E9F66F9890291D82C168624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256224   (356779) от 21.10.2018
+
+Тревор Ной | Бесцветный (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мемуары Тревора Ноя – красноречивое и трогательное повествование о том, как в полной нищете и несправедливости вырос ребенок смешанной расы, рожденный матерью-одиночкой в годы жесточайшего апартеида в ЮАР.
+Мать Тревора научила его использовать юмор, чтобы помочь справиться с жизнью, и он хорошо усвоил этот урок. Несмотря на наличие веских причин для чувства жалости (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D83E42BAE7C3FE468D9C394D2E0469F3A97BE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256443   (356775) от 21.10.2018
 
 Кейт Андерсен Брауэр | Первая леди. Тайная жизнь жен президентов (2018) [FB2]
@@ -6,7 +88,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356775.jpg" />
+  <img src="Z:/picture/008/save_picture_356775.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356765.jpg" />
+  <img src="Z:/picture/008/save_picture_356765.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356671.jpg" />
+  <img src="Z:/picture/008/save_picture_356671.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356113.jpg" />
+  <img src="Z:/picture/008/save_picture_356113.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356105.jpg" />
+  <img src="Z:/picture/008/save_picture_356105.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355945.jpg" />
+  <img src="Z:/picture/008/save_picture_355945.jpg" />
 </div>
 
 
@@ -167,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355934.jpg" />
+  <img src="Z:/picture/008/save_picture_355934.jpg" />
 </div>
 
 
@@ -193,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355623.jpg" />
+  <img src="Z:/picture/008/save_picture_355623.jpg" />
 </div>
 
 
@@ -219,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355622.jpg" />
+  <img src="Z:/picture/008/save_picture_355622.jpg" />
 </div>
 
 
@@ -245,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354814.jpg" />
+  <img src="Z:/picture/008/save_picture_354814.jpg" />
 </div>
 
 
@@ -271,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354773.jpg" />
+  <img src="Z:/picture/008/save_picture_354773.jpg" />
 </div>
 
 
@@ -297,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354583.jpg" />
+  <img src="Z:/picture/008/save_picture_354583.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353837.jpg" />
+  <img src="Z:/picture/008/save_picture_353837.jpg" />
 </div>
 
 
@@ -354,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353829.jpg" />
+  <img src="Z:/picture/008/save_picture_353829.jpg" />
 </div>
 
 
@@ -381,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353828.jpg" />
+  <img src="Z:/picture/008/save_picture_353828.jpg" />
 </div>
 
 
@@ -407,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353827.jpg" />
+  <img src="Z:/picture/008/save_picture_353827.jpg" />
 </div>
 
 
@@ -433,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353708.jpg" />
+  <img src="Z:/picture/008/save_picture_353708.jpg" />
 </div>
 
 
@@ -459,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353552.jpg" />
+  <img src="Z:/picture/008/save_picture_353552.jpg" />
 </div>
 
 
@@ -485,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353547.jpg" />
+  <img src="Z:/picture/008/save_picture_353547.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353521.jpg" />
+  <img src="Z:/picture/008/save_picture_353521.jpg" />
 </div>
 
 
@@ -540,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353408.jpg" />
+  <img src="Z:/picture/008/save_picture_353408.jpg" />
 </div>
 
 
@@ -566,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353305.jpg" />
+  <img src="Z:/picture/008/save_picture_353305.jpg" />
 </div>
 
 
@@ -592,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353039.jpg" />
+  <img src="Z:/picture/008/save_picture_353039.jpg" />
 </div>
 
 
@@ -605,88 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:211E897ABDEC6C95D8973121F4EED48955505065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329430   (352372) от 05.10.2019
-
-Н. В. Васильев | 60 лет борьбы за 8-ми часовой рабочий день (1917) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вопрос о 8-ми часовом рабочем дне — это один из вопросов, волнующих нас всех в настоящее время. Настоящая книжка представит интерес для товарищей рабочих и работниц, знакомя их с упорной борьбой их товарищей за границей вот уже в течение 60 лет за постепенное завоевание ими 8-ми часового рабочего дня.Жанр: История, политология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4972F4416B8CEEB6AE7B12BF19E15ABC02128F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329434   (352255) от 05.10.2019
-
-П. М. Кожаный | Рабочее жилище и быт (1924) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Господа капиталисты очень мало беспокоятся о том, что их „рабочая скотина" несет колоссальные жертвы благодаря невыносимым жилищным условиям.
-
-Рабочее население с трудом находит себе кров в современных капиталистических городах. Оно ютится или в хибарках на окраинах, не имеющих ни освещения, ни тротуаров, ни хороших путей сообщения, или в многоэтажных домах (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB8B93ECB49E96CABD29E272DF511672E2EF611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329471   (352130) от 05.10.2019
-
-Михаил Таратута | Русские и американцы. Про них и про нас, таких разных (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о том, что делает нас русскими, а американцев – американцами. Чем мы отличаемся друг от друга в восприятии мира и себя? Как думаем и как реагируем на происходящее? И что сделало нас такими, какие мы есть?
-
-Известный журналист-международник Михаил Таратута провел в США 12 лет. Его программа «Америка с Михаилом Таратутой» во многом открывала нам эту страну. (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5373170D111241B0AACF0FC59713A276396A7022
 ```
 
 https://mybot314.ru/tekegram_catalog/

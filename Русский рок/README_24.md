@@ -1,3 +1,116 @@
+###  Публикация: 1499510   (847968) от 02.10.2021
+
+4 Апреля - Бездна (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847968.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Это игра
+2. Выбора нет
+3. Летала душа
+4. Что будет с нами?(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5EF1806124A3ED864ED3624B8AD1024FA618B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111382   (847939) от 05.03.2017
+
+Чайф - Теория струн (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой блюз
+02. Время не ждет
+03. Четверо парней
+04. Ковбои(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7EBEF824D19575C6DEB68A29720D59FFD1CE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499554   (847836) от 02.10.2021
+
+Мара - Панк-Рок (2021) Single [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Панк-рок (03:08)Жанр: RockПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42DB97287B8787C00CEA329C485780E59F7FC8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499504   (847835) от 02.10.2021
+
+Tequilajazzz - Камни (2021) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847835.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В тёмную воду. Intro
+2. Никого не останется
+3. Вьюгина ты дочь
+4. Сам с собой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410CFBF3D0913FBEE02FC121115017C784015052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499575   (847688) от 02.10.2021
 
 Джанни Родари -  Смотри! (2020) [MP3|320 Kbps] <Rock, Ska>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847688.jpg" />
+  <img src="Z:/picture/008/save_picture_847688.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847672.jpg" />
+  <img src="Z:/picture/008/save_picture_847672.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847653.jpg" />
+  <img src="Z:/picture/008/save_picture_847653.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847586.jpg" />
+  <img src="Z:/picture/008/save_picture_847586.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846841.jpg" />
+  <img src="Z:/picture/008/save_picture_846841.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846168.jpg" />
+  <img src="Z:/picture/008/save_picture_846168.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845394.jpg" />
+  <img src="Z:/picture/008/save_picture_845394.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ The Otherside - Начало (2016) [MP3|320 кб/с] <Alt. Metal, Metalcore, Nu
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845296.jpg" />
+  <img src="Z:/picture/008/save_picture_845296.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ PRAVADA - Мечтать (2016) [MP3|320 кб/с] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845116.jpg" />
+  <img src="Z:/picture/008/save_picture_845116.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845015.jpg" />
+  <img src="Z:/picture/008/save_picture_845015.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844546.jpg" />
+  <img src="Z:/picture/008/save_picture_844546.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ Stay Away - Синдром упущенных возможностей (2021) [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844540.jpg" />
+  <img src="Z:/picture/008/save_picture_844540.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Neverside - 2 Extended Play (2013-2014) [MP3|320 кб/с] <Death Metal, progress
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843572.jpg" />
+  <img src="Z:/picture/008/save_picture_843572.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842712.jpg" />
+  <img src="Z:/picture/008/save_picture_842712.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842703.jpg" />
+  <img src="Z:/picture/008/save_picture_842703.jpg" />
 </div>
 
 
@@ -438,7 +551,7 @@ Holy Kids - Немного свободы (2021) [MP3|320 kbps] <Rock, Pop-Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842615.jpg" />
+  <img src="Z:/picture/008/save_picture_842615.jpg" />
 </div>
 
 
@@ -467,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842606.jpg" />
+  <img src="Z:/picture/008/save_picture_842606.jpg" />
 </div>
 
 
@@ -496,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842599.jpg" />
+  <img src="Z:/picture/008/save_picture_842599.jpg" />
 </div>
 
 
@@ -522,7 +635,7 @@ Matches - For All & None (2016) [MP3|320 кб/с] <Alternative Rock, Experimenta
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841862.jpg" />
+  <img src="Z:/picture/008/save_picture_841862.jpg" />
 </div>
 
 
@@ -551,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841338.jpg" />
+  <img src="Z:/picture/008/save_picture_841338.jpg" />
 </div>
 
 
@@ -580,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841294.jpg" />
+  <img src="Z:/picture/008/save_picture_841294.jpg" />
 </div>
 
 
@@ -609,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841103.jpg" />
+  <img src="Z:/picture/008/save_picture_841103.jpg" />
 </div>
 
 
@@ -623,134 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A669C0DDA3378A86EAF50C59FB967E9571F69D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309475   (841034) от 16.03.2011
-
-Dolphin - Юность (2007) [MP3|256 kbps]<Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кокон
-02. Нечестно
-03. -----------
-04. Я
-05. Роботы
-06. R'n'B
-07. Без нас
-08. Капрон
-09. Снег
-10. 26.10.02(   Читать дальше...)Жанр: Alt.RockПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F9533C848A2DF7F6A122F611CC9E1D11BB3784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004034   (840186) от 05.04.2016
-
-Четверио - Концерт на Светлой (2016) [MP3|320 кб/с] <Acoustic punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840186.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Помогать
-2. Чему ты сможешь научить детей
-3. Тюрьма
-4. Будь проще(   Читать дальше...   )Жанр: Acoustic punkПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A787F620704B60920B99B5136B64D5EDE0B1045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650783   (839743) от 02.05.2013
-
-Nookie - Живы! (2013) [MP3|320 кб/с]<Alternative rock, pop rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Живы 			320 кб/с
-02. Давай помолчим 	320 кб/с
-03. Бойся 			320 кб/с
-04. Не ври 		320 кб/с
-05. Пепел 			320 кб/с
-06. Клоуны 		320 кб/с
-07. Хочу верить 	320 кб/с
-08. Вот бы 		320 кб/с
-09. Когда-нибудь 	141 кб/с
-10. Лето 			320 кб/с(   Читать дальше...   )Жанр: Alternative rock, pop rockПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4044F7E411EF714C227391475D52A9F4155D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112962   (839402) от 10.03.2017
-
-7Б - Солнцу решать (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Солнцу решать
-2. Душа моя
-3. Белые ночи
-4. Дети Вавилона(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22615722C046BD413796779D036E505C5F1F088F
 ```
 
 https://mybot314.ru/tekegram_catalog/

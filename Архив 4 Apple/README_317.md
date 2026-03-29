@@ -1,3 +1,110 @@
+###  Публикация: 1546718   (604427) от 25.04.2022
+
+Barcode 2.3 beta [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Barcode - создание штрих-кода.
+Несложное приложение, включает в себя коллекцию шаблонов штрих-кодов, которые можно легко настроить в соответствии с вашими потребностями.
+Barcode предлагает Вам все необходимые инструменты, чтобы сделать свои собственные этикетки штрих-кода с очень небольшим усилием: приложение предоставляет шаблоны для наиболее популярных форматов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2022Разработчик: © 2022 Appsforlife LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D550ADF8E829BC5C726B2505DFC2CE790D9C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546724   (604422) от 25.04.2022
+
+ConceptDraw DIAGRAM 15 v15.1.0.404 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощные решения для бизнес-чертежей и диаграмм. Новейшая редакция ConceptDraw DIAGRAM (ранее известная как ConceptDraw PRO) гарантирует, что она по-прежнему остается ведущим в мире профессиональным и простым в использовании программным обеспечением для построения бизнес-диаграмм. ConceptDraw DIAGRAM предоставляет полный спектр решений для бизнес-графической документации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2022Разработчик: © 1993 — 2021 CS Odessa Corp.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBC123CE9216B32E53F364FE26A0609073CD2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546780   (604417) от 25.04.2022
+
+Pixelmator Pro 2.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.04.2022Разработчик: © 2022 Pixelmator TeamПоддерживаемая ОС: macOS 10.15Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41C768844FDE4D026688D56172BC5D5005F0974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148250   (604409) от 05.07.2017
+
+Typeeto 1.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Typeeto - это приложение, которое позволяет использовать клавиатуру Mac как Bluetooth клавиатуру для других устройств, таких как iPad, iPhone, Apple TV, Android устройства, и т.д. Используйте полномасштабную клавиатуру для ввода текста, который будет отображаться в режиме реального времени на экране устройства. Вам не нужно устанавливать какие-либо другие приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 июля 2017Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD5E55ECF7360F8046EECEAA1E904E0D8EA0232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148078   (604396) от 05.07.2017
 
 Hazel 4.1.4 [En]
@@ -6,7 +113,7 @@ Hazel 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604396.jpg" />
+  <img src="Z:/picture/008/save_picture_604396.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Parallels Desktop for Mac Business Edition 11.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604374.jpg" />
+  <img src="Z:/picture/008/save_picture_604374.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Movavi Picverse Photo Editor 1.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604336.jpg" />
+  <img src="Z:/picture/008/save_picture_604336.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Wondershare PDFelement Pro OCR 8.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604332.jpg" />
+  <img src="Z:/picture/008/save_picture_604332.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ ConceptDraw MINDMAP 13 v13.2.0.246 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604327.jpg" />
+  <img src="Z:/picture/008/save_picture_604327.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ DjVu Reader Pro 2.6.3 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604290.jpg" />
+  <img src="Z:/picture/008/save_picture_604290.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ Adobe Dreamweaver 2021 v21.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604286.jpg" />
+  <img src="Z:/picture/008/save_picture_604286.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604281.jpg" />
+  <img src="Z:/picture/008/save_picture_604281.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ Aiseesoft Mac Blu-ray Player 6.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604251.jpg" />
+  <img src="Z:/picture/008/save_picture_604251.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ Money Pro 1.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604238.jpg" />
+  <img src="Z:/picture/008/save_picture_604238.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ Beamer 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604223.jpg" />
+  <img src="Z:/picture/008/save_picture_604223.jpg" />
 </div>
 
 
@@ -299,7 +406,7 @@ Movavi Screen Recorder 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604133.jpg" />
+  <img src="Z:/picture/008/save_picture_604133.jpg" />
 </div>
 
 
@@ -327,7 +434,7 @@ Combo Cleaner Antivirus Premium 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604118.jpg" />
+  <img src="Z:/picture/008/save_picture_604118.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ iMazing 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604117.jpg" />
+  <img src="Z:/picture/008/save_picture_604117.jpg" />
 </div>
 
 
@@ -380,7 +487,7 @@ Things 3.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604048.jpg" />
+  <img src="Z:/picture/008/save_picture_604048.jpg" />
 </div>
 
 
@@ -408,7 +515,7 @@ Sublime Text 3.2.1 (Dev Build 3208) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604013.jpg" />
+  <img src="Z:/picture/008/save_picture_604013.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ AnyMP4 Screen Recorder for Mac 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603975.jpg" />
+  <img src="Z:/picture/008/save_picture_603975.jpg" />
 </div>
 
 
@@ -461,7 +568,7 @@ PDF Reader Pro Edition 2.8.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603967.jpg" />
+  <img src="Z:/picture/008/save_picture_603967.jpg" />
 </div>
 
 
@@ -487,7 +594,7 @@ iNet Network Scanner 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603966.jpg" />
+  <img src="Z:/picture/008/save_picture_603966.jpg" />
 </div>
 
 
@@ -514,7 +621,7 @@ Alfred 4 Powerpack 4.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603960.jpg" />
+  <img src="Z:/picture/008/save_picture_603960.jpg" />
 </div>
 
 
@@ -541,7 +648,7 @@ A Better Finder Rename 10.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603939.jpg" />
+  <img src="Z:/picture/008/save_picture_603939.jpg" />
 </div>
 
 
@@ -568,7 +675,7 @@ RAR Extractor Max-Unzip Winrar 8.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603927.jpg" />
+  <img src="Z:/picture/008/save_picture_603927.jpg" />
 </div>
 
 
@@ -580,111 +687,6 @@ RAR Extractor Max унаследовал преимущества RAR Extractor 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:552ED098317BBD753667EF5C5A403FFEF1891D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546989   (603922) от 26.04.2022
-
-Vidmore Player 1.0.28 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всестороннее воспроизведение мультимедийных файлов.
-Vidmore Player - универсальный медиаплеер, который не только поддерживает воспроизведение фильмов Blu-ray и DVD, но также поддерживает все распространенные форматы видео и аудио файлов, такие как MP4, MOV, AVI, WMV, MPEG, 3GP, M2TS, MP3, WMA, AAC и др.Тип издания: macOS SoftwareРелиз состоялся: 22.04.2022Разработчик: © 2022 VidmoreПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F93170C5DD7798FC4FCBA5C5CFCD9EB9149C84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148398   (603907) от 06.07.2017
-
-PhoneRescue 3.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603907.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE25101EA880D8D28128AAEA3F1DE5FD80BE3A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546997   (603841) от 26.04.2022
-
-Wondershare Filmora Х 11.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5796EF11C63A1A2EA4883CABB5A2F549879135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231766   (603701) от 20.06.2018
-
-Сердцеед / Le retour du heros (2018) BDRip [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавец и ловелас капитан Невиль, отправляясь в Австрию с армией Наполеона, клянется своей возлюбленной ежедневно писать. Но писем нет, и сердце трепетной Полин разбито. Ее сестра Элизабет решает писать от имени Невиля. Но, сочиняя невероятные подвиги и в конце концов похоронив с почестями легендарного героя, она и не предполагает, что однажды вполне живой и далеко (   Читать дальше...   )Производство: Франция, Бельгия / JD Prod, les Films sur Mesure, StudioCanalЖанр: Комедия, ИсторияРежиссер: Лоран ТирарАктеры: Жан Дюжарден, Мелани Лоран, Ноэми Мерлан, Кристоф Монтенез, Эвелин Бюиль, Кристиан Бюжо, Федор Аткин, Фабьен Галула, Лоран Бато, Жан-Мишель ЛамиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2827C034606FDF0D52932171E0EAF55C049810
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1450361   (1028578) от 28.02.2021
+
+Земфира - бордерлайн (2021) [MP3|320 Kbps] <Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. таблетки
+2. ок
+3. этим летом
+4. пальто(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86F69A88C6351A7EAD1F24F84BCBC3D5A99B7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341001   (1028572) от 28.02.2021
+
+Hearts of Iron IV / Hearts of Iron 4 (2016) [Ru/En] (1.10.4/dlc) Repack xatab [La Resistance]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры посвящен событиям Второй мировой войны. Через изометрическую перспективу и стратегическую мировую карту геймеры любым способом пытаются привести выбранное государство к стопроцентной победе; управляют войсками (авиацией, флотом, бронетехникой, пехотой), ведут дипломатические беседы и осуществляют разнообразные боевые задачи.Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B0A09B3E8DFEA6B0A1EE0BC7969906B46E4021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450694   (1028404) от 01.03.2021
+
+Обзор черного рынка “ПРОБИВА” российских физлиц за 2020 год
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важно помнить, что анализ предлагаемых данных, услуг и цен на них делался по объявлениям на различного рода теневых форумах и площадках в Dark Web. Мы не можем гарантировать подлинность предложений третьих лиц по любой отдельно взятой компании или банку. Вся информация в этом обзоре представлена исключительно для ознакомительных целей и основана на информации, на которую мы не оказываем никакого влияния.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327379   (1028392) от 01.03.2021
+
+Дылды (2019) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-21 из 21)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренер Михаил Ковалёв теряет работу из-за скандального характера и неуважительного отношения к женщинам. Чтобы вернуться в Суперлигу, ему нужно выиграть чемпионат по волейболу с провинциальной студенческой женской командой. Помешать ему в этом постараются проректор-перфекционист Ирина и затаившая обиду экс-девушка Наталья.Производство: Россия / Art Pictures Vision по заказу телеканала СТСЖанр: комедия, спортРежиссер: Сергей СенцовАктеры: Павел Деревянко, Анна Невская, Дарья Урсуляк, Татьяна Орлова, Ангелина Поплавская, Дарья Пицик, Изабель Эйдлен, Юлия Макарова, Сергей Рубеко, Анна Антонова и др.Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E66B3F1EE34F21EAA2DA8FF2346A761AAE26F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451227   (1028151) от 03.03.2021
 
 В Сеть утекла база данных 21 миллиона пользователей VPN-сервисов
@@ -6,7 +114,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028151.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028109.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028105.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027994.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027972.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027970.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ Shpongle - Discography 31 Releases (1998-2021) Twisted Records [FLAC|Lossless|tr
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027785.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027780.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ Symantec Endpoint Protection 14.3 RU1 MP1 (14.3.3580.1100) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027610.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ Civilization VI + Mod Unlocked v1.2.0 b2140962 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027609.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ Breathedge (2021) [Ru/En] (1.0.0.0) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027606.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ Proton близок к полноценной поддержке 7000 Windows-и
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027461.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027423.jpg" />
 </div>
 
 
@@ -348,7 +456,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027264.jpg" />
 </div>
 
 
@@ -374,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027125.jpg" />
 </div>
 
 
@@ -400,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027122.jpg" />
 </div>
 
 
@@ -427,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027038.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ Adobe Photoshop 2021 22.3.0.49 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026818.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ Kaspersky Internet Security 21.3.10.391 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026809.jpg" />
 </div>
 
 
@@ -506,7 +614,7 @@ Red Giant Magic Bullet Suite 14.0.4 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026635.jpg" />
 </div>
 
 
@@ -532,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026633.jpg" />
 </div>
 
 
@@ -561,7 +669,7 @@ MDK (1997) [En] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026280.jpg" />
 </div>
 
 
@@ -572,110 +680,6 @@ MDK (1997) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFDB265810F366A59274F8FF5284EEA220F5BAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453713   (1026279) от 14.03.2021
-
-По наклонной / Cherry (2021) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Армейский медик Нико Уокер вернулся из Ирака с недиагностированным посттравматическим синдромом. В попытке совладать с тяжёлыми воспоминаниями о войне он начинает злоупотреблять опиатами и в итоге, чтобы поддержать свою зависимость, берётся грабить банки.Производство: США / The Hideaway Entertainment, AGBO, Kasbah FilmsЖанр: Драма, криминалРежиссер: Энтони Руссо, Джо РуссоАктеры: Том Холланд, Сиэра Браво, Джек Рейнор, Майкл Рисполи, Джеффри Уолберг, Форрест Гудлак, Майкл Гандольфини, Дэниэл Р. Хилл, Фионн О’Ши, Edward KagutuziПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full, SDH), английские (Full, SDH), немецкие, эстонские, латышские, литовские, украинские (Full, SDH)Продолжительность: 02:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CCC80B11C2B94ABD5E5B59421ACDCBF5F19445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433553   (1026273) от 14.03.2021
-
-Movavi Video Suite 21.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Suite - пакет программ на русском языке, предназначенный для создания клипа, фильма или слад-шоу. Даже если вы новичок в создании собственных видеороликов, не беда, с Movavi Video Suite вы сможете произвольно, не имея особых навыков создать шедевр, по своей душе и желанию. Добавляйте текст, переходы, стильные и современные эффекты, творите что душе угодно, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85517D46322BD0B492A795D5F8DE8BFBCDE197A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454384   (1026213) от 15.03.2021
-
-Очередное достижение: 4000 релизов от dimanoid333!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемые одноклубники!Сегодня наш друг и неутомимый релизерdimanoid333(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373296   (1026167) от 15.03.2021
-
-Universal TV Remote Pro v1.0.23 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный пульт дистанционного управления №1 - приложение Smart и IR Remotes в более чем 100 странах. Для Smart TV / Устройств, единственная необходимая настройка - это подключить телефон, а также Smart TV / Device к той же сети Wifi. Для ИК-телевизоров ваш телефон должен иметь встроенную инфракрасную функцию, чтобы приложение работало в качестве пульта дистанционного (   Читать дальше...   )Тип издания: Пиратка (Mod: Pro, удалена реклама, лишние пункты об оценке и прочий мусор)Релиз состоялся: 23.01.2021Разработчик: CodeMatics Media SolutionsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B589100890AB306064F644F1C5D1AEF5EDD452C
 ```
 
 https://mybot314.ru/tekegram_catalog/

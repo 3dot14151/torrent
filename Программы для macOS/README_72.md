@@ -1,3 +1,137 @@
+###  Публикация: 1539012   (660339) от 23.03.2022
+
+Scrutiny 10 v10.4.17 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A9E8725A6CD6BC8179DC18A0483FE3A479496A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539014   (660334) от 23.03.2022
+
+GroupsPro 5.2.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
+GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 27.03.2021Разработчик: © 2022 Demodit GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE5C57358A00FF221305A9ADB653ECBDD5D340B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538987   (660268) от 23.03.2022
+
+Cocktail Big Sur Edition 14.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cocktail - комплекс утилит по всестороннему обслуживанию вашего Mac, который помогает каждый день получить от своего компьютера максимальную отдачу. Приложение позволяет: исправить права доступа к файлам, оптимизировать сетевое соединение, очистить всевозможные кэши (системные и пользовательские), воспользоваться скрытыми настройками, автоматизировать выбранные процессы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2022Разработчик: © 2022 MaintainПоддерживаемая ОС: macOS 11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485893F526EF4EE09F68CB437768D0612013F8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539003   (660254) от 23.03.2022
+
+TangerineWallpaper 1.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660254.jpg" />
+</div>
+
+
+###  Подробнее
+
+TangerineWallpaper - это набор 4K фотографий, богатый выбор обоев сверхвысокой четкости, обновляемых более 10000 раз в день, идеально адаптированных к экранам высокой четкости, специально разработанных для Mac Big Sur, они могут приносить вам максимальное удовольствие от красоты каждый день.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: © 2021 - 2022 LiuHuiПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7104FB9DAFDDF561CAD8E81FE90737BEE6268C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139487   (660187) от 02.06.2017
+
+Graphics for iWork 3.1.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graphic Styles  содержит набор высококачественных изображений, которые помогут вам создать  уникальные презентации в Keynote для иллюстрации ваших слайд-шоу, информационных бюллетеней или любого другого контента. Эта великолепная коллекция придаст вашим презентациям эксклюзивность если включить в неё оригинальные рамки, символы, графический шрифт и т.д.
+
+Все изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 мая 2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B51B7A09B0C464B6A125802F27A7402E3ED433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139495   (660112) от 02.06.2017
 
 Layout Lab - Templates for Keynote 3.1.6 [Multi/Ru]
@@ -6,7 +140,7 @@ Layout Lab - Templates for Keynote 3.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660112.jpg" />
+  <img src="Z:/picture/008/save_picture_660112.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Infographics Lab for Pages - Templates Bundle 3.1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660100.jpg" />
+  <img src="Z:/picture/008/save_picture_660100.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ Infographics Lab for Keynote - Templates Bundle 3.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659912.jpg" />
+  <img src="Z:/picture/008/save_picture_659912.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ MAGIX SOUND FORGE Pro Mac v3.0.0 (100) CE [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659548.jpg" />
+  <img src="Z:/picture/008/save_picture_659548.jpg" />
 </div>
 
 
@@ -112,7 +246,7 @@ Sketch 50.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659546.jpg" />
+  <img src="Z:/picture/008/save_picture_659546.jpg" />
 </div>
 
 
@@ -139,7 +273,7 @@ Elements Lab - Templates for iWork 3.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659196.jpg" />
+  <img src="Z:/picture/008/save_picture_659196.jpg" />
 </div>
 
 
@@ -165,7 +299,7 @@ Theme Lab - Templates for Keynote 5.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659074.jpg" />
+  <img src="Z:/picture/008/save_picture_659074.jpg" />
 </div>
 
 
@@ -193,7 +327,7 @@ Ephnic Movie Maker 2.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658995.jpg" />
+  <img src="Z:/picture/008/save_picture_658995.jpg" />
 </div>
 
 
@@ -219,7 +353,7 @@ Expert Set - Templates for Pages, Keynote, Numbers 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658904.jpg" />
+  <img src="Z:/picture/008/save_picture_658904.jpg" />
 </div>
 
 
@@ -245,7 +379,7 @@ Mail Stationery Expert - Templates for Mail 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658123.jpg" />
+  <img src="Z:/picture/008/save_picture_658123.jpg" />
 </div>
 
 
@@ -272,7 +406,7 @@ Photo Album Expert - Templates for Adobe Photoshop 3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657711.jpg" />
+  <img src="Z:/picture/008/save_picture_657711.jpg" />
 </div>
 
 
@@ -298,7 +432,7 @@ Escape 2 v2.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656919.jpg" />
+  <img src="Z:/picture/008/save_picture_656919.jpg" />
 </div>
 
 
@@ -327,7 +461,7 @@ CollageIt 3 Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656178.jpg" />
+  <img src="Z:/picture/008/save_picture_656178.jpg" />
 </div>
 
 
@@ -355,7 +489,7 @@ Video Copilot Element 3D 2.0.7.2008 (Motion Design Bundle) for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656163.jpg" />
+  <img src="Z:/picture/008/save_picture_656163.jpg" />
 </div>
 
 
@@ -381,7 +515,7 @@ Mac Video Downloader 2.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655118.jpg" />
+  <img src="Z:/picture/008/save_picture_655118.jpg" />
 </div>
 
 
@@ -410,7 +544,7 @@ Video Copilot - Heat Distortion 1.0.30 for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655110.jpg" />
+  <img src="Z:/picture/008/save_picture_655110.jpg" />
 </div>
 
 
@@ -436,7 +570,7 @@ Xversion 1.3.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655050.jpg" />
+  <img src="Z:/picture/008/save_picture_655050.jpg" />
 </div>
 
 
@@ -463,7 +597,7 @@ MenuBar Stats 3 v3.8.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655030.jpg" />
+  <img src="Z:/picture/008/save_picture_655030.jpg" />
 </div>
 
 
@@ -491,7 +625,7 @@ Avdshare Video Converter for Mac 7 v7.4.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655022.jpg" />
+  <img src="Z:/picture/008/save_picture_655022.jpg" />
 </div>
 
 
@@ -517,7 +651,7 @@ Image2icon - Make your icon‪s‬ 2.17 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655009.jpg" />
+  <img src="Z:/picture/008/save_picture_655009.jpg" />
 </div>
 
 
@@ -543,7 +677,7 @@ ViWizard Audible AA / AAX Converter for Mac 2.3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654998.jpg" />
+  <img src="Z:/picture/008/save_picture_654998.jpg" />
 </div>
 
 
@@ -554,139 +688,6 @@ ViWizard Audible AA / AAX Converter - один из самых умных кон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E5A21803E5DD66C075BC45719E3E1F293507C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540212   (654909) от 28.03.2022
-
-Smart Shooter 4 v4.24 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Shooter - приложение для работы с цифровыми фотографиями для привязанной съемки, удаленного захвата и расширенного управления камерой.
-Smart Shooter позволяет вам полностью контролировать свою камеру с вашего Mac, предоставляя вам свободу исследовать и экспериментировать, чтобы помочь получить идеальную картину. Автоматическая загрузка и отображение означает, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © Kuvacode OyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5339EFDAA6DD0E053354A05E7F794BFFE45C7CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140799   (654867) от 07.06.2017
-
-StatsBar 2.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654867.jpg" />
-</div>
-
-
-###  Подробнее
-
-StatsBar - системный монитор для процессора, памяти, дискового пространства, сети и батареи.
-StatsBar - небольшое, легкое и симпатичное приложение для получения системной информации в процессе работы компьютера, а точнее: загрузки CPU, использования памяти, информация о сетевом соединении и пропускной способности, а так же мощности и здоровья батареи (только для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: ноябрь 2016Разработчик: FIPLAB LtdПоддерживаемая ОС: MacOS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F772BB25B3B50B1543B003159373A8E71687CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140748   (654855) от 07.06.2017
-
-Simple Recorder Pro 1.5 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете найти его значок в меню справа. Нажмите его, чтобы открыть меню. Вы найдете этот значок в панели инструментов. Нажмите на этот значок, чтобы начать запись, а также чтобы ее окончить. Нажмите на правую кнопку мыши (или command) и значок, чтобы открыть меню.Тип издания: OS X SoftwareРелиз состоялся: 31 марта 2017Разработчик: Happy TapПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английскийи др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E599BDCD9BA0CEF43FB5637F034263E98BB94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140635   (654682) от 07.06.2017
-
-IINA 0.0.11 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2017Разработчик: Collider LIПоддерживаемая ОС: macOS 10.10+, 10.12 RecommendedЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1014D9DDE4FFD7AF00ED8FDA881F10B0BDC97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140581   (654562) от 07.06.2017
-
-DivX Pro 10.8.2 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654562.jpg" />
-</div>
-
-
-###  Подробнее
-
-DivX Pro - универсальное решение, позволяющее смотреть, создавать и транслировать высококачественное HD-видео в формате DivX HEVC с разрешением до 1080p.
-DivX Pro — это пакет кодеков (DivX, H.264, AAC и MKV). В состав также входит DivX H.264 Decoder для аппаратного ускорения с помощью DXVA (DirectX Video Acceleration) - это дает возможность смотреть видео высокой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.05.2017Разработчик: Rovi CorporationПоддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: Русский, Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2A0D78BB205F37C8CB2DEDFEB7E600D037DE20
 ```
 
 https://mybot314.ru/tekegram_catalog/

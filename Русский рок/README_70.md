@@ -1,3 +1,125 @@
+###  Публикация: 1581279   (327289) от 05.10.2022
+
+SHALAVA boys - Ужасы современного поколения (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Interlude [00:00:30]
+02 - Орбуз Онжелла [00:01:09]
+03 - Продолговатый пельмешек [00:01:54]
+04 - Ты похож на катях [00:02:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CD92DF549A280294197FB7EB18B484D82E07DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581490   (327223) от 05.10.2022
+
+Группа Ширли Мырли - Обратный отсчёт (2022) [MP3|320 Kbps] <Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Привокзальные зайчики [00:02:50]
+02 - Нарисуй меня в спам [00:03:40]
+03 - Парковщик [00:02:17]
+04 - Стреляй бух [00:03:51](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D99D03ADD1F0BBA48E11D5414F1EC712812876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581344   (327215) от 05.10.2022
+
+Тролль Гнёт Ель - Девять (2022) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327215.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Танцуй, танцуй!
+2. Я люблю зелёный
+3. Фру Маннелиг
+4. Оседлай дракона(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4517EF7D2E7A806D08F69551CE97BE0EA114540A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 413532   (326904) от 25.11.2011
+
+Ex.T.R.A. - Сткло и сталь (2010) [MP3|320 kbps]<Ska, Alco ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Que Paso Amigos
+02 - Один на миллион
+03 - Кабак
+04 - Ska Moscow
+05 - Mr. Beerman
+06 - Безобразный Алкоголик
+07 - Так Прохидят Годы
+08 - Коля
+09 - Стекло и Сталь
+10 - Алиса(   Читать дальше...   )2010Жанр: Ska, Alco skaПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEFF3F4277CEAC5327655C26316FA7195592B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957650   (326771) от 18.11.2015
 
 KIROV - Волны И Вибрации (2015) [MP3|320 кб/с]<Indie-Rock>
@@ -6,7 +128,7 @@ KIROV - Волны И Вибрации (2015) [MP3|320 кб/с]<Indie-Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326771.jpg" />
+  <img src="Z:/picture/008/save_picture_326771.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326484.jpg" />
+  <img src="Z:/picture/008/save_picture_326484.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326419.jpg" />
+  <img src="Z:/picture/008/save_picture_326419.jpg" />
 </div>
 
 
@@ -90,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326416.jpg" />
+  <img src="Z:/picture/008/save_picture_326416.jpg" />
 </div>
 
 
@@ -119,7 +241,7 @@ Butterfly Temple - ...окольное братство нетленного м�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326415.jpg" />
+  <img src="Z:/picture/008/save_picture_326415.jpg" />
 </div>
 
 
@@ -148,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326394.jpg" />
+  <img src="Z:/picture/008/save_picture_326394.jpg" />
 </div>
 
 
@@ -177,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325802.jpg" />
+  <img src="Z:/picture/008/save_picture_325802.jpg" />
 </div>
 
 
@@ -206,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325647.jpg" />
+  <img src="Z:/picture/008/save_picture_325647.jpg" />
 </div>
 
 
@@ -241,7 +363,7 @@ DPrize - 2 Albums (2021-2022) [MP3|320 Kbps] <Melodic Death, Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325589.jpg" />
+  <img src="Z:/picture/008/save_picture_325589.jpg" />
 </div>
 
 
@@ -270,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325579.jpg" />
+  <img src="Z:/picture/008/save_picture_325579.jpg" />
 </div>
 
 
@@ -299,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325578.jpg" />
+  <img src="Z:/picture/008/save_picture_325578.jpg" />
 </div>
 
 
@@ -328,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325511.jpg" />
+  <img src="Z:/picture/008/save_picture_325511.jpg" />
 </div>
 
 
@@ -357,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325506.jpg" />
+  <img src="Z:/picture/008/save_picture_325506.jpg" />
 </div>
 
 
@@ -386,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325494.jpg" />
+  <img src="Z:/picture/008/save_picture_325494.jpg" />
 </div>
 
 
@@ -415,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325455.jpg" />
+  <img src="Z:/picture/008/save_picture_325455.jpg" />
 </div>
 
 
@@ -444,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324950.jpg" />
+  <img src="Z:/picture/008/save_picture_324950.jpg" />
 </div>
 
 
@@ -473,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324495.jpg" />
+  <img src="Z:/picture/008/save_picture_324495.jpg" />
 </div>
 
 
@@ -502,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324346.jpg" />
+  <img src="Z:/picture/008/save_picture_324346.jpg" />
 </div>
 
 
@@ -531,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324339.jpg" />
+  <img src="Z:/picture/008/save_picture_324339.jpg" />
 </div>
 
 
@@ -560,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323475.jpg" />
+  <img src="Z:/picture/008/save_picture_323475.jpg" />
 </div>
 
 
@@ -588,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323395.jpg" />
+  <img src="Z:/picture/008/save_picture_323395.jpg" />
 </div>
 
 
@@ -617,7 +739,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323388.jpg" />
+  <img src="Z:/picture/008/save_picture_323388.jpg" />
 </div>
 
 
@@ -631,123 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455061B96DF16B7AE44C17DDC5E3325FEA76F5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582222   (323341) от 09.10.2022
-
-Театр Теней - Дискография (2006 - 2022) [MP3|320 Kbps] <Rock, Metal, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вдоль обрыва [3:57]
-02. Буревестник [3:56]
-03. Дикий [4:00]Жанр: Rock, Metal, BalladПродолжительность: 07:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D1CD3BF2AB7F0ED15885BF240400849EA6F0E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410903   (323159) от 09.10.2022
-
-ESSE - Рок-опера «Дорога без возврата» (2011) [MP3|320 Kbps] <Symphonic Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323159.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дорога без возврата» — российская фэнтези-рок-опера группы «ESSE» по мотивам саги «Ведьмак» Анджея Сапковского.
-
-Чародеи и чудовища, эльфы и люди, весь мир брошен колдуном Вильгефорцем на алтарь войны, истоки которой лежат в древнем пророчестве о гене старшей крови. Возродившись, этот ген даст его обладателю власть над временем и мирами. Чародей жаждет власти, и (   Читать дальше...   )01. Пророчество Итлины [6:36]
-02. Ласточка [4:05]
-03. Вестник бури [0:41]
-04. Прощаю [2:58](   Читать дальше...   )Жанр: Symphonic Rock OperaПродолжительность: 01:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD5CE0B0AFD90C55C42A799AC272A7C6C07E852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421109   (322295) от 03.11.2020
-
-The Landscape Garden - Gild the Lily (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grain of Sand (09:08)
- 02. Flat Earth (07:26)
- 03. The River (07:26)
- 04. Ghost Surfer (07:40)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CBE06C497710DE2ED3398320C0395436F5DD00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421179   (321902) от 03.11.2020
-
-Обе-Рек - Пикник на обочине (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321902.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выжил
-2. Бесконечность
-3. Маленький принц
-4. Мой рок-н-ролл(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622F4A2408D0E3FC225670761B4F95E0B9A8C0F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

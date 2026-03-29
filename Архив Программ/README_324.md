@@ -6,7 +6,7 @@ Adobe Acrobat XI Pro 11.0.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889114.jpg" />
+  <img src="Z:/picture/005/save_picture_889114.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YT Downloader 7.7.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889071.jpg" />
+  <img src="Z:/picture/005/save_picture_889071.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Glary Utilities Pro 5.173.0.201 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889063.jpg" />
+  <img src="Z:/picture/005/save_picture_889063.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Care 365 Pro 4.55.430 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889058.jpg" />
+  <img src="Z:/picture/005/save_picture_889058.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PrivaZer 4.0.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889057.jpg" />
+  <img src="Z:/picture/005/save_picture_889057.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ HitFilm 4 Pro 4.0.5103 build 5403 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889036.jpg" />
+  <img src="Z:/picture/005/save_picture_889036.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VideoNet 9.0 SP4 Build 9.0.4.40146 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889032.jpg" />
+  <img src="Z:/picture/005/save_picture_889032.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Acrobat Pro DC 2015.010.20060 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888994.jpg" />
+  <img src="Z:/picture/005/save_picture_888994.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NetBalancer 10.3.2.2806 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888991.jpg" />
+  <img src="Z:/picture/005/save_picture_888991.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Wondershare Data Recovery 5.0.8.5 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888979.jpg" />
+  <img src="Z:/picture/005/save_picture_888979.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Wise Care 365 Pro 4.55.430 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888971.jpg" />
+  <img src="Z:/picture/005/save_picture_888971.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ O&O DiskImage Professional 16.5 Build 243 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888964.jpg" />
+  <img src="Z:/picture/005/save_picture_888964.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Bigasoft Total Video Converter 5.1.1.6250 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888950.jpg" />
+  <img src="Z:/picture/005/save_picture_888950.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Maxthon Browser MX5 5.0.2.1600 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888935.jpg" />
+  <img src="Z:/picture/005/save_picture_888935.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ XnView Classic 2.50.1 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888933.jpg" />
+  <img src="Z:/picture/005/save_picture_888933.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ GraphEditPlus 1.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888918.jpg" />
+  <img src="Z:/picture/005/save_picture_888918.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ GoldWave 6.26 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888903.jpg" />
+  <img src="Z:/picture/005/save_picture_888903.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ SpeedyFox 2.0.20 Build 117 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888822.jpg" />
+  <img src="Z:/picture/005/save_picture_888822.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ UltraUXThemePatcher 4.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888817.jpg" />
+  <img src="Z:/picture/005/save_picture_888817.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Bigasoft Total Video Converter 5.1.1.6250 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888760.jpg" />
+  <img src="Z:/picture/005/save_picture_888760.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Photo Supreme 5.4.0.2790 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888684.jpg" />
+  <img src="Z:/picture/005/save_picture_888684.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ IObit Driver Booster Pro 8.7.0.529 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888614.jpg" />
+  <img src="Z:/picture/005/save_picture_888614.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Imagenomic Portraiture AI 3.5.4 Build 3546 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888607.jpg" />
+  <img src="Z:/picture/005/save_picture_888607.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ RegScanner 2.46 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888571.jpg" />
+  <img src="Z:/picture/005/save_picture_888571.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.02.09 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888522.jpg" />
+  <img src="Z:/picture/005/save_picture_888522.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ DAEMON Tools Lite 10.5.1.229 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888496.jpg" />
+  <img src="Z:/picture/005/save_picture_888496.jpg" />
 </div>
 
 

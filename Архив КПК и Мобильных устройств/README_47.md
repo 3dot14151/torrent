@@ -1,3 +1,29 @@
+###  Публикация: 884191   (613830) от 24.06.2015
+
+Tales from the Borderlands 1.74 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tales from the Borderlands — пятая часть эпизодической серии игр для андроид от создателей The Wolf Among Us и The Walking Dead! Действие игры происходит в мире Пандоры, после событий Borderlands 2. Вы будете играть за авантюриста Риса и его друга, которые стремятся к величию. Вас, как невольных партнеров, бросили в путешествие с чемоданом денег, которые вы должны (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 12 июня 2015г.Разработчик: Telltale GamesПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8E210603BF648F021EA4B96F00DBC8277706D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037345   (613783) от 24.07.2016
 
 Репортерша / Whiskey Tango Foxtrot (2016) HDRip [H.264] [MP4|640x480@852x480]
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613783.jpg" />
+  <img src="Z:/picture/008/save_picture_613783.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Iconic 1.5.5 Pro [Ru/En] - создание и редактирование ра
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613769.jpg" />
+  <img src="Z:/picture/008/save_picture_613769.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ App of the Day 2.11.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613730.jpg" />
+  <img src="Z:/picture/008/save_picture_613730.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Weather Animated Widgets 8.10 [Ru] - Анимированный виджет п�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613342.jpg" />
+  <img src="Z:/picture/008/save_picture_613342.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Video Editor Weave v1.3.9b [Ru/Multi] - удобный минималистич�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613251.jpg" />
+  <img src="Z:/picture/008/save_picture_613251.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612504.jpg" />
+  <img src="Z:/picture/005/save_picture_612504.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612494.jpg" />
+  <img src="Z:/picture/005/save_picture_612494.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Weather BZ 5.0.0 build 1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612394.jpg" />
+  <img src="Z:/picture/008/save_picture_612394.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Xenowerk 1.2.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612344.jpg" />
+  <img src="Z:/picture/008/save_picture_612344.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ GO Dev Team [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612297.jpg" />
+  <img src="Z:/picture/008/save_picture_612297.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Tiny Troopers 2: Special Ops 1.3.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612205.jpg" />
+  <img src="Z:/picture/008/save_picture_612205.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612204.jpg" />
+  <img src="Z:/picture/008/save_picture_612204.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Herman the Hermit 1.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612039.jpg" />
+  <img src="Z:/picture/005/save_picture_612039.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ WeVideo Editor Premium 6.0.005 [Ru] - Видео-редактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611672.jpg" />
+  <img src="Z:/picture/008/save_picture_611672.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611176.jpg" />
+  <img src="Z:/picture/005/save_picture_611176.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Clash of Clans Mod FHX Server S1/S2 8.709.23 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610895.jpg" />
+  <img src="Z:/picture/008/save_picture_610895.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610717.jpg" />
+  <img src="Z:/picture/008/save_picture_610717.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ Jelly Defense 1.24 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610614.jpg" />
+  <img src="Z:/picture/008/save_picture_610614.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Looney Tunes Dash! 1.54.41 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610503.jpg" />
+  <img src="Z:/picture/008/save_picture_610503.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ CM Locker (Security, Booster) 3.0.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610493.jpg" />
+  <img src="Z:/picture/008/save_picture_610493.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Truck Driver 3D: Offroad 1.10 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610404.jpg" />
+  <img src="Z:/picture/008/save_picture_610404.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Hungry Shark Evolution 3.3.0 / 3.2.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610398.jpg" />
+  <img src="Z:/picture/008/save_picture_610398.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ CM Launcher 1.10.14  [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610393.jpg" />
+  <img src="Z:/picture/008/save_picture_610393.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610188.jpg" />
+  <img src="Z:/picture/008/save_picture_610188.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610111.jpg" />
+  <img src="Z:/picture/008/save_picture_610111.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5B951949F9189D4251C9CAE4FC44CF494A3B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525073   (609348) от 20.07.2012
-
-Массовка / Extras (2005-2007) DVDRip [Первый и второй сезон]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609348.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Массовка» — это сериал, рассказывающий о жизни безработного актёра по имени Энди Миллман, который всю жизнь мечтал пробиться в большое кино, но пока лишь добился места в массовке. Он пытается пойти дальше, но ему постоянно не везёт…Жанр: Комедия, ДрамаРежиссер: Рики Джервэйс, Стивен МерчантАктеры: Рики Джервэйс, Эшли Дженсен, Стивен Мерчант, Шон Уильямсон, Шон Пай, Сара Мойле, Эндрю Бакли, Джэми Чэпман, Мартин Сэвадж, Гай ГенриПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 12X ~00:30
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

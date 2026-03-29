@@ -1,3 +1,125 @@
+###  Публикация: 961469   (301234) от 01.12.2015
+
+Butterfly Temple - Вечность (2015) [MP3|320 кб/с]<Folk Metal, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рождение
+02. Кровь Богов
+03. Слова Пусты
+04. Памяти След(   Читать дальше...   )Жанр: Folk Metal, Pagan MetalПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F7F8620BAEF2DACA42602DADB6D2C0501404D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261769   (301171) от 12.11.2018
+
+Театр Теней - Яд (2018) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Яд
+02-Шрам
+03-Я
+04-Новый день(   Читать дальше...   )Жанр: RockПродолжительность: 00:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BBB12A7470B3A09BDB546A6CFEEE5465DCEFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184326   (301163) от 17.11.2017
+
+The Matrixx - Здравствуй (2017) [MP3|320 Kbps] <Neo-Post-Gothic, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301163.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Звезда
+2. Дружок
+3. Дурачок
+4. From Hell(   Читать дальше...   )Жанр: Neo-Post-Gothic, AlternativeПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96686AE7DA76CC2016F9E645954B1145A3F39B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274614   (300640) от 07.12.2012
+
+Шмели - Топливо (2010) [MP3|320 kbps]<Industrial Folk/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Топливо-жизнь (3:46)
+02. Автомобиль и Ты (3:42)
+03. Паруса (3:34)
+04. Женщина за рулем (3:29)
+05. Черемуха (3:37)
+06. Меланхолия (4:20)
+07. Ласковый Уродец (4:12)
+08. Найди... (3:39)
+09. Генератор мечты (3:52)
+10. Хворь (3:35)(   Читать дальше...   )Жанр: Industrial Folk/RockПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716474AF0E2B1270A13603CB530A10640C1AF9B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184481   (299140) от 18.11.2017
 
 Муха - 5 альбомов, 2 макси-сингла, 5 синглов (2007-2017) [MP3|192-320 Kbps] <Rock, Pop-Rock>
@@ -6,7 +128,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299140.jpg" />
+  <img src="Z:/picture/008/save_picture_299140.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ VA - Шаг вдох: Трибьют Animal ДжаZ (2017) [MP3|320 Kbps] <Rock,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299027.jpg" />
+  <img src="Z:/picture/008/save_picture_299027.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ VA - Tribute To Butterfly Temple (2015) 2CD [MP3|320 кб/с]<Folk Metal, Pagan 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298917.jpg" />
+  <img src="Z:/picture/008/save_picture_298917.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ Nautilus Pompilius - Концерт в Москве (1987/2013) [MP3|320 kbps] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298915.jpg" />
+  <img src="Z:/picture/008/save_picture_298915.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ Animal ДжаZ - Шаг. Вдох (2007) Remastered, 2017 [MP3|320 Kbps] <Rock, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298900.jpg" />
+  <img src="Z:/picture/008/save_picture_298900.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298540.jpg" />
+  <img src="Z:/picture/008/save_picture_298540.jpg" />
 </div>
 
 
@@ -178,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298337.jpg" />
+  <img src="Z:/picture/008/save_picture_298337.jpg" />
 </div>
 
 
@@ -207,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297868.jpg" />
+  <img src="Z:/picture/008/save_picture_297868.jpg" />
 </div>
 
 
@@ -236,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297605.jpg" />
+  <img src="Z:/picture/008/save_picture_297605.jpg" />
 </div>
 
 
@@ -266,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297293.jpg" />
+  <img src="Z:/picture/008/save_picture_297293.jpg" />
 </div>
 
 
@@ -295,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296860.jpg" />
+  <img src="Z:/picture/008/save_picture_296860.jpg" />
 </div>
 
 
@@ -324,7 +446,7 @@ VA - Охота 89 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296821.jpg" />
+  <img src="Z:/picture/008/save_picture_296821.jpg" />
 </div>
 
 
@@ -353,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296801.jpg" />
+  <img src="Z:/picture/008/save_picture_296801.jpg" />
 </div>
 
 
@@ -382,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296717.jpg" />
+  <img src="Z:/picture/008/save_picture_296717.jpg" />
 </div>
 
 
@@ -411,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296713.jpg" />
+  <img src="Z:/picture/008/save_picture_296713.jpg" />
 </div>
 
 
@@ -440,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296664.jpg" />
+  <img src="Z:/picture/008/save_picture_296664.jpg" />
 </div>
 
 
@@ -469,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296658.jpg" />
+  <img src="Z:/picture/008/save_picture_296658.jpg" />
 </div>
 
 
@@ -498,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296641.jpg" />
+  <img src="Z:/picture/008/save_picture_296641.jpg" />
 </div>
 
 
@@ -527,7 +649,7 @@ VA - Панк рок версии детских песен (2003) [MP3|192-320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296101.jpg" />
+  <img src="Z:/picture/008/save_picture_296101.jpg" />
 </div>
 
 
@@ -562,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295940.jpg" />
+  <img src="Z:/picture/008/save_picture_295940.jpg" />
 </div>
 
 
@@ -591,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295575.jpg" />
+  <img src="Z:/picture/008/save_picture_295575.jpg" />
 </div>
 
 
@@ -622,7 +744,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295043.jpg" />
+  <img src="Z:/picture/008/save_picture_295043.jpg" />
 </div>
 
 
@@ -636,122 +758,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DEBA9966489FDDD9504B2574B36067653A1095C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224694   (294831) от 15.11.2018
-
-Легенда - Неоспоримый (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Неоспоримый (5:05)
- 02. Крылья (4:13)
- 03. Монте - Кристо (4:39)
- 04. Шторм (4:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6BD88A2511BA409855ED49D67EA3792AFA99D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334500   (294779) от 29.10.2019
-
-Animal ДжаZ - Время любить (2019) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Так надо
-02. Апрель
-03. Мистика
-04. Чувства(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542AB0DEE4973D2B284709F4AB1BE63573A01AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262766   (293147) от 16.11.2018
-
-Браво - Unrealised (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый четырнадцатый студийный альбом! Что в него вошло? Во-первых, несколько кавер-версий: чужой материал "Браво" записывают редко, но на этом альбоме Евгений Хавтан отдает дань тем командам, которые когда-то в юности повлияли на него. Среди вдохновителей лидера "Браво" оказались "Машина Времени" ("Наш дом"), "Зоопарк" (   Читать дальше...   )1. Наш дом
-2. Blues de Moscou
-3. Тишина
-4. Замок из песка(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7EA31B2A773CA65354DC486D62234A5BEA9781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262673   (293136) от 16.11.2018
-
-7Б - Рок жив! (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рок жив! (feat. Влад Демьян)
-02. Здравствуйте (feat. Che Francisco)
-03. И летишь (feat. Niyaz)
-04. Дорога жизни (feat. Топоры & У-лица)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9268DB5E0520437AFE49D54B3C96FA3ED2455A96
 ```
 
 https://mybot314.ru/tekegram_catalog/

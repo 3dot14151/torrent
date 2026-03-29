@@ -1,3 +1,119 @@
+###  Публикация: 1637458   (238275) от 04.06.2023
+
+Eddie Condon - 1942 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me Daddy [2:39]
+02. Fidgety Feet [2:42]
+03. Mammy O'Mine [4:22]
+04. Lonesome Tag Blues [4:06](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8F35BBDE09A42961C8ECA3D2A4B8281D24026A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580649   (238247) от 02.10.2022
+
+Brian Landrus, Fred Hersch, Drew Gress, Billy Hart - For Now (2020) BlueLand Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Signs [6:01]
+02. Clarity in Time [5:34]
+03. The Miss [4:15]
+04. JJ [6:02](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85824358F42D741EC9F91377541B6E9417DBD369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624059   (238126) от 04.04.2023
+
+VA - Xanadu At Montreux (1978) 1987, EPM Musique [APE|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afternoon In Paris [10:23]
+02. More Than You Know [6:57]
+03. Xanadues [9:56]
+04. Emaline [6:59](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87957D8BB23207B1C3C231EC993811AA7225E262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445906   (238119) от 07.02.2021
+
+James Moody - 1950 - 1951 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big and Little 'E' [3:20]
+02. 'S Wonderful [2:41]
+03. That's It [3:01]
+04. Embraceable You [3:49](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DC766C92159F0160CA0EF446FC6EF8D98B8D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445904   (238093) от 07.02.2021
 
 Buck Clayton - 1949 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
@@ -6,7 +122,7 @@ Buck Clayton - 1949 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238093.jpg" />
+  <img src="Z:/picture/004/save_picture_238093.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Martial Solal - The Vogue Recordings, Vol.2 (1955, 1956) 1993, Vogue [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238085.jpg" />
+  <img src="Z:/picture/004/save_picture_238085.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Leo Parker - 1947 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238081.jpg" />
+  <img src="Z:/picture/004/save_picture_238081.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Martial Solal - The Vogue Recordings, Vol.3 (1955 - 1958) 1993, Vogue [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238070.jpg" />
+  <img src="Z:/picture/004/save_picture_238070.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Kjellerbandet & Tore Johansen - Thad Jones Tribute (2008) Normann Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238024.jpg" />
+  <img src="Z:/picture/004/save_picture_238024.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ McCoy Tyner - Beautiful Love: Live in Warsaw (1991) 1994, All At Once Happy Pric
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238017.jpg" />
+  <img src="Z:/picture/004/save_picture_238017.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Fats Waller - 1938 (1996) Classics [FLAC|Lossless|image + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237992.jpg" />
+  <img src="Z:/picture/004/save_picture_237992.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Lennie Tristano - 1946 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237982.jpg" />
+  <img src="Z:/picture/004/save_picture_237982.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Nat "King" Cole - 1947, Vol. 3 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237976.jpg" />
+  <img src="Z:/picture/004/save_picture_237976.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Ike Quebec - Four Classic Albums (1961, 1962) 2CD, 2018, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237945.jpg" />
+  <img src="Z:/picture/004/save_picture_237945.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Kjellerbandet - Mingus Schmingus (2004) Sonor Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237944.jpg" />
+  <img src="Z:/picture/004/save_picture_237944.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ James Moody - 1948 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237942.jpg" />
+  <img src="Z:/picture/004/save_picture_237942.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Diego Rivera - Indigenous (2019) 2021, Posi-Tone [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237934.jpg" />
+  <img src="Z:/picture/004/save_picture_237934.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Django Reinhardt - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237926.jpg" />
+  <img src="Z:/picture/004/save_picture_237926.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Lennie Tristano Quintet - Live At Birdland (1945, 1949) 1990, Jazz Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237894.jpg" />
+  <img src="Z:/picture/004/save_picture_237894.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Enrico Pieranunzi Quartet - New Spring: Live At The Village Vanguard (2017) CAMJ
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237884.jpg" />
+  <img src="Z:/picture/004/save_picture_237884.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Karin Krog & Bengt Hallberg - Two Of A Kind (1982) 1987, Meantime Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237868.jpg" />
+  <img src="Z:/picture/004/save_picture_237868.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sidney Bechet - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Dixie
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237815.jpg" />
+  <img src="Z:/picture/004/save_picture_237815.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Nat "King" Cole - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237751.jpg" />
+  <img src="Z:/picture/004/save_picture_237751.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Courtney Pine - Spirituality (2022) Destin-E [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237709.jpg" />
+  <img src="Z:/picture/004/save_picture_237709.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Eric Dolphy - 12 Classic Albums (1959 - 1962) 6CD, 2014, Enlightenment [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237691.jpg" />
+  <img src="Z:/picture/004/save_picture_237691.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Vic (Victor) Feldman - On Vibes (1957) 1993, V.S.O.P. Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237528.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Vic (Victor) Feldman - On Vibes (1957) 1993, V.S.O.P. Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91A33348ED00437F40275370AD25D2718951A98A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638819   (237517) от 11.06.2023
-
-Paul Bley Trio - Closer (1965) 2008, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ida Lupino [2:55]
-02. Start [2:21]
-03. Closer [3:28]
-04. Sideways In Mexico [2:56](   Читать дальше...   )Жанр: Avant-Garde Jazz, Piano JazzПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB1EC6002E0B97B21EB7F40D0DA8E63293C060F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450650   (237494) от 27.02.2021
-
-Red Nichols - 1925 - 1927 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimtown Blues [3:11]
-02. King Porter Stomp [3:11]
-03. I Wouldn't Be Where I Am If You Hadn't Gone Away [2:57]
-04. Flag That Train [3:08](   Читать дальше...   )Жанр: Swing, New Orleans JazzПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3459BDDEA2B672D83B5047DAAE4FD5A7CC990F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638632   (237492) от 11.06.2023
-
-Ethan Philion - Meditations On Mingus (2022) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Chamber Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time There Was a Holding Corporation Called Old America [10:50]
-02. Haitian Fight Song [10:09]
-03. Self-Portrait in Three Colors [6:21]
-04. Pithecanthropus Erectus [11:20](   Читать дальше...   )Жанр: Post-Bop, Chamber JazzПродолжительность: 01:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675A70697D7E8EFDAD7AF67596A26BDEC1D8AF06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638821   (237483) от 11.06.2023
-
-Chucho Valdes - Tumi Sessions (2007) Tumi Music [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cancion Al Mejor [5:06]
-02. Silver Star [7:27]
-03. Habanera Sola [5:53]
-04. La Sombra De Tu Sonrisa [6:03](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, World FusionПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF26C7F59D660396FC67EFF4BF69DA92D87031D
 ```
 
 https://mybot314.ru/tekegram_catalog/

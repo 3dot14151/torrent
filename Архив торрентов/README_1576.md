@@ -1,3 +1,195 @@
+###  Публикация: 1288585   (694193) от 12.03.2019
+
+Elmedia Player Pro 7.2 (1765)[Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Голландский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A671743E731FFDDC54E2A3C8F079E6D86404498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288524   (694191) от 12.03.2019
+
+Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Мужчины. Спринт 10 км (2019) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694191.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 марта 2019 года, суббота. 18:30 МСК
+53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
+Мужчины. Спринт 10 км (полная трансляция)
+Церемония награждения на "Медаль Плаза"(   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED3DFA40E1B664C189634A19275F9E4F28011FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288597   (694189) от 12.03.2019
+
+Awesome Mails Pro 3 v3.30 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда для того, чтобы достучаться к руководству, перед обращением нужно проявить немного фантазии. Приложение Awesome Mails Pro Edition позволяет создавать необычные почтовые сообщения с фотографиями, ссылками и неординарным оформлением.
+
+Awesome Mails Pro (был Awesome Mails) - дизайнерское приложение для создания профессиональных бюллетеней был разработан, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2019Разработчик: Aidaluu Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A9E27EA252E64A8C401B392DD3B55ADF8B50B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288691   (694187) от 12.03.2019
+
+Jah Wobble - The Legend Lives On... Jah Wobble In Betrayal (1980) Reissue, 1990, Caroline Blue Plate [FLAC|Lossless|tracks + .cue] <Dub>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betrayal (4:55)
+ 02. Beat the Drum for Me (4:03)
+ 03. Blueberry Hill (4:18)
+ 04. Not Another (3:15)(   Читать дальше...   )Жанр: DubПродолжительность: 01:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077D3988D0DED8796D32EF1FA70F1B4E19784855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027812   (694175) от 20.06.2016
+
+On1 Photo 10.5.0.2943 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнофункциональный редактор фотографий, работающий как подключаемый модуль к Adobe Photoshop и Lightroom, или как отдельное приложение. Просматривайте и управляйте своими снимками по месту их хранения: на локальных, внешних и сетевых дисках, или в облачном сервисе. 10 версия оснащена необходимыми инструментами для управления и обратимого редактирования фотографий (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB7FAAB6F6A33F0C5FFFF23E8E7BAA056FDD583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027579   (694168) от 20.06.2016
+
+Подшивка журналов | The Weathering Magazine (2012-2016) [PDF] [EN, RU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о технике "везеринга" для моделистов.Жанр: МоделизмФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4F5ECE4899B225A7BBE6C904E8EBF4342C5AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027907   (694167) от 20.06.2016
+
+Freemake Video Converter 4.1.9.18 RePack by CUTA [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94F693452F1D0C5D4B614605EE80E5BBFCB4BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027700   (694161) от 20.06.2016
 
 Advanced Onion Router 0.3.0.24 Portable [Ru/En]
@@ -6,7 +198,7 @@ Advanced Onion Router 0.3.0.24 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694161.jpg" />
+  <img src="Z:/picture/008/save_picture_694161.jpg" />
 </div>
 
 
@@ -32,7 +224,7 @@ GeoGebra 6.0.599.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694157.jpg" />
+  <img src="Z:/picture/008/save_picture_694157.jpg" />
 </div>
 
 
@@ -58,7 +250,7 @@ Ant Download Manager Pro 1.19.3 Build 72843 (promo GAOTD) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694152.jpg" />
+  <img src="Z:/picture/008/save_picture_694152.jpg" />
 </div>
 
 
@@ -84,7 +276,7 @@ VA - Breathe & Relax Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694147.jpg" />
+  <img src="Z:/picture/008/save_picture_694147.jpg" />
 </div>
 
 
@@ -113,7 +305,7 @@ BetterTouchTool 3 v3.402 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694142.jpg" />
+  <img src="Z:/picture/008/save_picture_694142.jpg" />
 </div>
 
 
@@ -139,7 +331,7 @@ AIMP 5.02 Build 2366 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694135.jpg" />
+  <img src="Z:/picture/008/save_picture_694135.jpg" />
 </div>
 
 
@@ -165,7 +357,7 @@ jv16 PowerTools 7.3.1.1372 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694134.jpg" />
+  <img src="Z:/picture/008/save_picture_694134.jpg" />
 </div>
 
 
@@ -191,7 +383,7 @@ Viber 17.1.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694128.jpg" />
+  <img src="Z:/picture/008/save_picture_694128.jpg" />
 </div>
 
 
@@ -217,7 +409,7 @@ FoneLab HEIC Converter 1.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694125.jpg" />
+  <img src="Z:/picture/008/save_picture_694125.jpg" />
 </div>
 
 
@@ -244,7 +436,7 @@ K-Lite Codec Pack Update 14.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694073.jpg" />
+  <img src="Z:/picture/008/save_picture_694073.jpg" />
 </div>
 
 
@@ -270,7 +462,7 @@ Athentech Perfectly Clear Complete 3.6.3.1479 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694070.jpg" />
+  <img src="Z:/picture/008/save_picture_694070.jpg" />
 </div>
 
 
@@ -298,7 +490,7 @@ Cockos - REAPER 5.973 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694063.jpg" />
+  <img src="Z:/picture/008/save_picture_694063.jpg" />
 </div>
 
 
@@ -324,7 +516,7 @@ Skype 8.41.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694057.jpg" />
+  <img src="Z:/picture/008/save_picture_694057.jpg" />
 </div>
 
 
@@ -350,7 +542,7 @@ Legiac (Funckarma) - Mings Feaner (2007) [FLAC|Lossless|CD]<IDM, Experimental, A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694054.jpg" />
+  <img src="Z:/picture/008/save_picture_694054.jpg" />
 </div>
 
 
@@ -380,7 +572,7 @@ CrystalDiskInfo 7.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694053.jpg" />
+  <img src="Z:/picture/008/save_picture_694053.jpg" />
 </div>
 
 
@@ -406,7 +598,7 @@ GOM Player 2.3.3 Build 5254 Final Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694050.jpg" />
+  <img src="Z:/picture/008/save_picture_694050.jpg" />
 </div>
 
 
@@ -432,7 +624,7 @@ DxO Optics Pro 11.0.0 Build 11397 Elite [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694038.jpg" />
+  <img src="Z:/picture/008/save_picture_694038.jpg" />
 </div>
 
 
@@ -458,7 +650,7 @@ XnViewMP 0.96.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694031.jpg" />
+  <img src="Z:/picture/008/save_picture_694031.jpg" />
 </div>
 
 
@@ -484,7 +676,7 @@ SIV (System Information Viewer) 5.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694023.jpg" />
+  <img src="Z:/picture/008/save_picture_694023.jpg" />
 </div>
 
 
@@ -495,192 +687,6 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1122C2D04057F7171454B13D38361A4E3BB8FFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403224   (694019) от 18.08.2020
-
-Balabolka 2.15.0.751 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Балаболка" предназначена для чтения вслух текстовых файлов.
-Для воспроизведения звуков человеческого голоса могут использоваться
-любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651EB6CE2934D6516831F75778FB9546CA469BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534548   (694012) от 02.03.2022
-
-AOMEI Backupper Technician Plus 6.9.0 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694012.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2984912359DF71B49A9E4D42CA0FA3565316A92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534502   (694008) от 02.03.2022
-
-AIMP 5.02 Build 2366 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновился маленький, качественный, абсолютно бесплатный аудиоплеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плейлистами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами.
-   Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AB2F978A23299E7EB1E7F4FBB1B21AF2ABD31B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534569   (694007) от 02.03.2022
-
-CPU-Z 2.00.0 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694007.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491524A51E08EB94A6A9F1590B17E294E2AC73CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534514   (694006) от 02.03.2022
-
-Reg Organizer 8.86 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CA06BA89660B54C6A25625177356C2F32A05B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534511   (694004) от 02.03.2022
-
-PotPlayer 1.7.21612 (220302) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694004.jpg" />
-</div>
-
-
-###  Подробнее
-
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1FA23C451A9EB463C9480E484BA689D23ABFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534576   (693998) от 02.03.2022
-
-Disk Drill Enterprise 4.6.380 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill Enterprise - самое популярное приложение для восстановления данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
-После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.02.2022Разработчик: © 2022 508 Software, LLCПоддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0400F399E0FFB68492B2EEA19B51B474DD0158FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

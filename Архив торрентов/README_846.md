@@ -6,7 +6,7 @@ IcoFX 3.4 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856663.jpg" />
+  <img src="Z:/picture/008/save_picture_856663.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BELOFF [dp] 2020.04.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856573.jpg" />
+  <img src="Z:/picture/008/save_picture_856573.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856569.jpg" />
+  <img src="Z:/picture/008/save_picture_856569.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ ImageUSB 1.5.1001 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856566.jpg" />
+  <img src="Z:/picture/008/save_picture_856566.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856544.jpg" />
+  <img src="Z:/picture/008/save_picture_856544.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856524.jpg" />
+  <img src="Z:/picture/008/save_picture_856524.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856523.jpg" />
+  <img src="Z:/picture/008/save_picture_856523.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - Hyperthermia (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Industrial, Glitch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856471.jpg" />
+  <img src="Z:/picture/008/save_picture_856471.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ CyberLink PhotoDirector Ultra 11.0.2516.0 (unofficial pack) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856467.jpg" />
+  <img src="Z:/picture/008/save_picture_856467.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ PDF-XChange Editor Plus 8.0.337.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856465.jpg" />
+  <img src="Z:/picture/008/save_picture_856465.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Appare Ranman! / Appare-Ranman! / Небо в цвету! [2020, TV, 2 из 12] 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856452.jpg" />
+  <img src="Z:/picture/008/save_picture_856452.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856442.jpg" />
+  <img src="Z:/picture/008/save_picture_856442.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856422.jpg" />
+  <img src="Z:/picture/008/save_picture_856422.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Altium Designer 20.0.14 build 345 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856346.jpg" />
+  <img src="Z:/picture/008/save_picture_856346.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856329.jpg" />
+  <img src="Z:/picture/008/save_picture_856329.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856326.jpg" />
+  <img src="Z:/picture/008/save_picture_856326.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_856303.jpg" />
+  <img src="Z:/picture/009/save_picture_856303.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ System Toolkit 4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856272.jpg" />
+  <img src="Z:/picture/008/save_picture_856272.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ MacX DVD Ripper Pro 6.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856270.jpg" />
+  <img src="Z:/picture/008/save_picture_856270.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856258.jpg" />
+  <img src="Z:/picture/008/save_picture_856258.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856249.jpg" />
+  <img src="Z:/picture/008/save_picture_856249.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Standard Gravity (2010) [FLAC|Lossless|WEB-DL]<Atmospheric Drum'n'Base>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856240.jpg" />
+  <img src="Z:/picture/008/save_picture_856240.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ MacX Video Converter Pro 6.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856181.jpg" />
+  <img src="Z:/picture/008/save_picture_856181.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Stats 2.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856180.jpg" />
+  <img src="Z:/picture/008/save_picture_856180.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ TinkerTool System 7 v7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856178.jpg" />
+  <img src="Z:/picture/008/save_picture_856178.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ iCalamus 2 v2.23 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856175.jpg" />
+  <img src="Z:/picture/008/save_picture_856175.jpg" />
 </div>
 
 

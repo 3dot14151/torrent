@@ -1,3 +1,90 @@
+###  Публикация: 1551025   (590778) от 14.05.2022
+
+Katharos - Of Lineages Long Forgotten (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Those Hornclad (00:06:53)
+02 - Feigned Retreat (00:07:05)
+03 - Of Lineages Long Forgotten (00:08:51)
+04 - The World Serpent's Marrow (00:05:26)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5B5282A2B3D4A8ED9BB98AEA3FFCE68020264D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550950   (590741) от 14.05.2022
+
+Siberian Meat Grinder - Join the Bear Cult (2021) 2022, Rebel Sound Records[FLAC|Lossless|WEB-DL|tracks] <Hardcore, Crossover, Thrash Metal Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into the Grinder (00:03:39)
+02 - Not Today (00:03:23)
+03 - Arise (00:03:13)
+04 - Fire It Up (00:04:10)(   Читать дальше...   )Жанр: Hardcore, Crossover, Thrash Metal PunkПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBF59BBAD41AFA1CE47AB4809328DF177C54F68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551176   (590249) от 15.05.2022
+
+St. October - Whatever Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Melodic Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rise.Fall.Ignite. (00:01:05)
+02 - With Open Eyes (00:05:00)
+03 - Ghosts (00:05:58)
+04 - White Goddess (00:03:44)(   Читать дальше...   )Жанр: Gothic, Melodic Groove MetalПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DB3F2F743102FA15537F3299466BC542A3C51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551185   (590244) от 15.05.2022
 
 SevenSins - My Triumph (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
@@ -6,7 +93,7 @@ SevenSins - My Triumph (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590244.jpg" />
+  <img src="Z:/picture/008/save_picture_590244.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Giant Walker - All In Good Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590191.jpg" />
+  <img src="Z:/picture/008/save_picture_590191.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Within Temptation - 32 альбома, 21 сингл (1997-2014) [FLAC|APE|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589826.jpg" />
+  <img src="Z:/picture/008/save_picture_589826.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Foreseen - Foreseen (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589785.jpg" />
+  <img src="Z:/picture/008/save_picture_589785.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Last Instance - Unchained Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589783.jpg" />
+  <img src="Z:/picture/008/save_picture_589783.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ OverMaster - Madness Of War (2010) [FLAC|image + .cue]<Heavy Metal / Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589643.jpg" />
+  <img src="Z:/picture/008/save_picture_589643.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Manifest Destiny - Your World Has Died (2007) [FLAC|image + .cue]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589614.jpg" />
+  <img src="Z:/picture/008/save_picture_589614.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ The Sygnet - Children of the Future (1998) Japan [FLAC|image + .cue]<Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589613.jpg" />
+  <img src="Z:/picture/008/save_picture_589613.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Sex Machineguns - SMG (2011) [FLAC|image + .cue]<Heavy Metal / Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589603.jpg" />
+  <img src="Z:/picture/008/save_picture_589603.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Nightly Gale - Lust (2013) [FLAC|image + .cue]<Experimental Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589601.jpg" />
+  <img src="Z:/picture/008/save_picture_589601.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Rosae Crucis - Fede potere vendetta (Overlord Edition) (2010) [FLAC|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589554.jpg" />
+  <img src="Z:/picture/008/save_picture_589554.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Cradle Of Filth - Hammer Of The Witches (2015) [FLAC|tracks+.cue]<Symphonic Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589495.jpg" />
+  <img src="Z:/picture/008/save_picture_589495.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Mendel - Equilibrium (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589430.jpg" />
+  <img src="Z:/picture/008/save_picture_589430.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Vinnum Sabbathi - Gravity Works (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Dr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588513.jpg" />
+  <img src="Z:/picture/008/save_picture_588513.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Gorgoroth - Instinctus Bestialis (2015) [FLAC|image+.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588065.jpg" />
+  <img src="Z:/picture/008/save_picture_588065.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Ozzy Osbourne - No Rest For The Wicked (1988) [FLAC|image + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587933.jpg" />
+  <img src="Z:/picture/008/save_picture_587933.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Between the Buried and Me - Coma Ecliptic (2015) [FLAC|tracks +.cue]<Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587814.jpg" />
+  <img src="Z:/picture/008/save_picture_587814.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Joe Stump - The Essential Shred Guitar Collection (2009) Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587463.jpg" />
+  <img src="Z:/picture/008/save_picture_587463.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Megaton Leviathan - Mage (2018) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Drone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587308.jpg" />
+  <img src="Z:/picture/008/save_picture_587308.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ DragonForce - In The Line Of Fire (2015) [FLAC|image+.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586916.jpg" />
+  <img src="Z:/picture/008/save_picture_586916.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Spheric Universe Experience - Back Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586819.jpg" />
+  <img src="Z:/picture/008/save_picture_586819.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Judas Priest - Battle Cry (2016) Live, Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586444.jpg" />
+  <img src="Z:/picture/008/save_picture_586444.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Predatory Light - Death And The Twilight Hours (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585886.jpg" />
+  <img src="Z:/picture/008/save_picture_585886.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Predatory Light - Death And The Twilight Hours (2022) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93E37DD9C11B46D6D0393CF1858B7BF8E7D4613C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552807   (585884) от 22.05.2022
-
-Viter - V! (2012) 4CD, Deluxe Version, 2016, Viter Records [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585884.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Dlya Vohnyu (Light Version) (00:03:35)
-✧ 02 - Dlya Vohnyu (Acoustic Version, Live at Morning TV Show, Lviv, 2013) (00:03:11)
-✧ 03 - Viter (Live at Zaxid Festival, 2013) (00:03:42)
-✧ 04 - Marichka (Live at Zaxid Festival, 2013) (00:06:19)(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 4CD, 02:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0298B842B710C584E43936766276E07422B977BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552457   (585729) от 22.05.2022
-
-Volturian - Red Dragon (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symphonic, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rebirth (00:01:59)
-02 - Stay (00:04:46)
-03 - Harley (00:04:16)
-04 - Empty World (00:03:27)(   Читать дальше...   )Жанр: Melodic Symphonic, Groove MetalПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677C5D86844AD0C1E8AFA2178770C56D84BFF79E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040581   (585561) от 06.08.2016
-
-Joe Stump - 2001: A Shred Odyssey (2001) [APE|Lossless|image + .cue] <Heavy Metal, Instrumental, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2001: A Shred Odyssey    06:23
-02. Bullet Train    03:08
-03. Nocturne    05:01
-04. Still I'm sad    04:53(   Читать дальше...   )Жанр: Heavy Metal, Instrumental, ShredПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA87AFA8BB9AC3E17C5CC650DADBA39323905EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

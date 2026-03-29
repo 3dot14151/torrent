@@ -1,3 +1,30 @@
+###  Публикация: 989458   (789230) от 13.01.2019
+
+Мэри Поппинс / Mary Poppins (1964) BDRip [H.264/720p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство Бенкс озабоченно поисками няни для своих детей. И как это бывает только в сказке, она появилась прямо из воздуха, прекрасная, ни на кого не похожая. Как раз такая, какую мечтали бы иметь в своем доме всякие любящие родители.
+У неё не просто цветущий вид. Она не просто лучше всех умеет готовить, ходить по магазинам, одеваться, танцевать и воспитывать детей. (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: Комедия, Семейный, Мьюзикл, Фэнтези, АнимацияРежиссер: Роберт СтивенсонАктеры: Джули Эндрюс, Дик Ван Дайк, Дэвид Томлинсон, Глинис Джонс, Гермиона Бадделей, Рита Шоу, Карен Дотрис, Мэттью Гарбер, Эльза Ланчестер, Артур ТричерПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3822A0A210CEA47F329074C871D289181E014A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509784   (788708) от 21.11.2021
 
 Большой красный пес Клиффорд / Clifford the Big Red Dog (2021) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +33,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788708.jpg" />
+  <img src="Z:/picture/008/save_picture_788708.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787520.jpg" />
+  <img src="Z:/picture/008/save_picture_787520.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787305.jpg" />
+  <img src="Z:/picture/008/save_picture_787305.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786533.jpg" />
+  <img src="Z:/picture/008/save_picture_786533.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784821.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784455.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784444.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784173.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783300.jpg" />
+  <img src="Z:/picture/008/save_picture_783300.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783015.jpg" />
+  <img src="Z:/picture/008/save_picture_783015.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782599.jpg" />
+  <img src="Z:/picture/008/save_picture_782599.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782182.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781797.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778634.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778487.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778446.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777854.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777177.jpg" />
+  <img src="Z:/picture/008/save_picture_777177.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774967.jpg" />
+  <img src="Z:/picture/008/save_picture_774967.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774966.jpg" />
+  <img src="Z:/picture/008/save_picture_774966.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774954.jpg" />
+  <img src="Z:/picture/008/save_picture_774954.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774872.jpg" />
+  <img src="Z:/picture/008/save_picture_774872.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774061.jpg" />
+  <img src="Z:/picture/008/save_picture_774061.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766875.jpg" />
+  <img src="Z:/picture/008/save_picture_766875.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765869.jpg" />
+  <img src="Z:/picture/008/save_picture_765869.jpg" />
 </div>
 
 
@@ -648,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45D185FBBD8A3CA4027CF4042CE0E76329D0E175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279392   (765829) от 29.01.2019
-
-Маленькая ведьма / Die kleine Hexe (2018) BDRip [H.264/720p] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая ведьма очень хочет повеселиться на вечеринке в честь Вальпургиевой ночи, но ей всего 127 лет, поэтому она еще слишком молода для такого мероприятия. Вопреки правилам, упрямая девушка тайком пробирается на праздник, но оказывается пойманной. В наказание ведьме поручают выучить все заклинания из великой магической книги за один год и доказать всем, что она (   Читать дальше...   )Производство: Швейцария, Германия / Breaking Glass Pictures, StudiocanalЖанр: Комедия, Драма, Фэнтези, СемейныйРежиссер: Мике ШёрерАктеры: Каролина Херфурт, Аксель Праль, Сюзанна фон Борсоди, Каролин Списс, Эвелин Холл, Тереза Аффолтер, Ангелика Бёттигер и др.Перевод: Многоголосый закадровый, профессиональный (CВ Студия)Субтитры: Русские, немецкие (полные)Продолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8519C204B68851DBAFEC6BA627AA8D545B5EFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

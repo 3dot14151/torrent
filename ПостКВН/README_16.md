@@ -1,3 +1,81 @@
+###  Публикация: 1165120   (435004) от 12.09.2017
+
+Stand Up (2017.08.06) WEB-DL [H.264/720p-LQ] (дайджест, выпуск 2)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2BC024765E2EAE428781179D5DA97B8DF8FFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165125   (434865) от 12.09.2017
+
+Stand Up (2017.09.03) WEB-DL [H.264/720p-LQ] (дайджест, выпуск 6)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6BA32D628A38330FE38C5AE40B151A5F9D923F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165126   (434651) от 12.09.2017
+
+Stand Up (2017.09.10) WEB-DL [H.264/720p-LQ] (дайджест, выпуск 7)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F54C89BBECE9EB1FA27FB5DE667EB5672048DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165865   (430467) от 14.09.2017
 
 Студия Союз (2017.09.14) SATRip (выпуск 6: Дайджест)
@@ -6,7 +84,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430467.jpg" />
+  <img src="Z:/picture/008/save_picture_430467.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Stand Up. Сезон 3. Выпуск №5 (2015.10.11) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429169.jpg" />
+  <img src="Z:/picture/008/save_picture_429169.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429055.jpg" />
+  <img src="Z:/picture/008/save_picture_429055.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428345.jpg" />
+  <img src="Z:/picture/008/save_picture_428345.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424307.jpg" />
+  <img src="Z:/picture/008/save_picture_424307.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Stand Up (2017.09.17) SATRip (сезон 7, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423746.jpg" />
+  <img src="Z:/picture/008/save_picture_423746.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422601.jpg" />
+  <img src="Z:/picture/008/save_picture_422601.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422420.jpg" />
+  <img src="Z:/picture/008/save_picture_422420.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422285.jpg" />
+  <img src="Z:/picture/008/save_picture_422285.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421786.jpg" />
+  <img src="Z:/picture/008/save_picture_421786.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Stand Up (2017.09.17) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421594.jpg" />
+  <img src="Z:/picture/008/save_picture_421594.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Stand Up (27.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 5)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420220.jpg" />
+  <img src="Z:/picture/008/save_picture_420220.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420079.jpg" />
+  <img src="Z:/picture/008/save_picture_420079.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Stand Up (2018.09.30) SATRip (сезон 6, выпуск 7)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419956.jpg" />
+  <img src="Z:/picture/008/save_picture_419956.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Stand Up (2018.09.30) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 7)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417768.jpg" />
+  <img src="Z:/picture/008/save_picture_417768.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415919.jpg" />
+  <img src="Z:/picture/008/save_picture_415919.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414865.jpg" />
+  <img src="Z:/picture/008/save_picture_414865.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Stand Up. Сезон 3. Выпуск №6 (2015.10.18) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413349.jpg" />
+  <img src="Z:/picture/008/save_picture_413349.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412592.jpg" />
+  <img src="Z:/picture/008/save_picture_412592.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Stand Up (07.09.2019) WEB-DLRip (сезон 7, выпуск 3)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411945.jpg" />
+  <img src="Z:/picture/008/save_picture_411945.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411010.jpg" />
+  <img src="Z:/picture/008/save_picture_411010.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408988.jpg" />
+  <img src="Z:/picture/008/save_picture_408988.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407967.jpg" />
+  <img src="Z:/picture/008/save_picture_407967.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:342C62204ABB2DD6603D233AEE15BA8829D991C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413748   (407139) от 05.10.2020
-
-Stand Up (04.10.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 6)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр Шаляпин и др.Субтитры: ОтсутствуютПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6472A511D8FF27716AE677C128200BE31BB61380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413703   (407015) от 05.10.2020
-
-Однажды в России (04.10.2020) WEB-DL [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72359276CBC883142979EC83C89E598A3EA757C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168754   (404938) от 25.09.2017
-
-Однажды в России (2017.09.24) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 4)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A6EC25768009F6EA1A6001F3DC304EAF91570F
 ```
 
 https://mybot314.ru/tekegram_catalog/

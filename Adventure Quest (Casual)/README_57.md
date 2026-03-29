@@ -6,7 +6,7 @@ Cursed Fables 2: Twisted Tower (2022) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168147.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Christmas Spirit 5: Golden Ticket (2021) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167651.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Spirit Legends 3: Time for Change (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167367.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Unsolved Case: Fatal Clue / Нераскрытое дело: Роковая ул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167229.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Yuletide Legends 3: Who Framed Santa Claus / Рождественская ист
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167167.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167070.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166497.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Legacy: Witch Island 4 Last Bastion (2022) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165759.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Book Travelers: A Victorian Story / Книжные Странники: Викт�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165654.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165123.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Christmas Fables: Holiday Guardians (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164803.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mysterium: Lake Bliss / Мистериум: Озеро счастья (2013) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164272.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163746.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162672.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Bridge to Another World 9: Christmas Flight (2021) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162118.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Bridge to Another World 7: Secrets of the Nutcracker (2020) [En] (1.0) Unofficia
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161914.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161776.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Legacy: Witch Island 3 / Наследие: Остров ведьмы 3 (2020) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161719.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Halloween Stories 5: The Neglected Dead / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161460.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Legacy: Witch Island 4 Last Bastion / Наследие: Остров Ведьм�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161089.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ City of Stories: Stephan's Journey / Город Историй: Путешест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160127.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Christmas Fables: Holiday Guardians / Рождественские Притчи:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159735.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159233.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Cursed Fables 2: Twisted Tower / Проклятые предания 2: Двул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159201.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Ominous Objects 3: Trail of Time (2015) [En] Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158453.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Secret of the Pendulum (2015) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158441.jpg" />
 </div>
 
 

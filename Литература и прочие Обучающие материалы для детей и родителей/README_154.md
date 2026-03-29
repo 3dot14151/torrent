@@ -1,3 +1,135 @@
+###  Публикация: 1019089   (752420) от 22.05.2016
+
+Виктор Корюкин | Свистунишка (1954) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для детей о природе, ребятах и зверятах.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FA3746D7A4A9BE4F3C033465014F8F4444B2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019170   (752418) от 22.05.2016
+
+Елизавета Полонская | Святая Амалия бастует (1933) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A200CE10B2A12704D2A7F383B9B108E1F630ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019128   (752416) от 22.05.2016
+
+Евгения Георгиевская-Дружинина | Ить-Аяк и другие (1929) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC66BEA204CF0803BE315034C0EE40FC85FF4E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019163   (752413) от 22.05.2016
+
+Надежда Войтинская | Заговор равных (1931) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3256AE441DF01550A2C47F1BC9C1D494AEB9D7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019093   (752411) от 22.05.2016
+
+Валентина Чаплина | Про Герку и чудных (1981) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752411.jpg" />
+</div>
+
+
+###  Подробнее
+
+«— Запомни, в почтовом ящике на двери лежит ключ. Когда хочешь, приходи, открывай дверь, меняй книжку. Вот тут запишешь, какую взял, вот тут распишешься. Потом запирай квартиру, клади ключ в ящик.
+
+Смех сухими горошинами раскатился по комнате. Герка смеялся громко, и смех был ужасно смешной, будто курица кокочет: ко-ко-ко… Четыре светлых глаза удивлённо захлопали (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DC4EBE36514DD82C7FFDE225991AE5253F426D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019107   (752342) от 22.05.2016
 
 Ян Ларри | Как это было (1930) [FB2]
@@ -6,7 +138,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752342.jpg" />
+  <img src="Z:/picture/008/save_picture_752342.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752337.jpg" />
+  <img src="Z:/picture/008/save_picture_752337.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752333.jpg" />
+  <img src="Z:/picture/008/save_picture_752333.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752330.jpg" />
+  <img src="Z:/picture/008/save_picture_752330.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752327.jpg" />
+  <img src="Z:/picture/008/save_picture_752327.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752269.jpg" />
+  <img src="Z:/picture/008/save_picture_752269.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752264.jpg" />
+  <img src="Z:/picture/008/save_picture_752264.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752182.jpg" />
+  <img src="Z:/picture/008/save_picture_752182.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752181.jpg" />
+  <img src="Z:/picture/008/save_picture_752181.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752156.jpg" />
+  <img src="Z:/picture/008/save_picture_752156.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752069.jpg" />
+  <img src="Z:/picture/008/save_picture_752069.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751986.jpg" />
+  <img src="Z:/picture/008/save_picture_751986.jpg" />
 </div>
 
 
@@ -323,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751974.jpg" />
+  <img src="Z:/picture/008/save_picture_751974.jpg" />
 </div>
 
 
@@ -351,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751869.jpg" />
+  <img src="Z:/picture/008/save_picture_751869.jpg" />
 </div>
 
 
@@ -379,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751855.jpg" />
+  <img src="Z:/picture/008/save_picture_751855.jpg" />
 </div>
 
 
@@ -407,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751827.jpg" />
+  <img src="Z:/picture/008/save_picture_751827.jpg" />
 </div>
 
 
@@ -434,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751742.jpg" />
+  <img src="Z:/picture/008/save_picture_751742.jpg" />
 </div>
 
 
@@ -460,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751688.jpg" />
+  <img src="Z:/picture/005/save_picture_751688.jpg" />
 </div>
 
 
@@ -488,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750982.jpg" />
+  <img src="Z:/picture/008/save_picture_750982.jpg" />
 </div>
 
 
@@ -516,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750528.jpg" />
+  <img src="Z:/picture/005/save_picture_750528.jpg" />
 </div>
 
 
@@ -542,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750459.jpg" />
+  <img src="Z:/picture/008/save_picture_750459.jpg" />
 </div>
 
 
@@ -553,139 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71C03EDFE1E6F89195955C21221DDF984DBF800A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019468   (750258) от 23.05.2016
-
-Наталья Бельцова | Приключения Щепки и другие истории [сборник] (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник Натальи Бельцовой включает в себя две истории в стиле фэнтези о мальчике по прозвищу Щепка, которому повезло найти путь в сказочную страну, населённую троллями, говорящими животными и другими волшебными существами. Впрочем, поначалу, оказавшись в «параллельном мире», Щепка вовсе не счёл это везением… Но что же делать, таковы все мальчишки: если ищешь (   Читать дальше...   )Жанр: Детская фантастика, Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD04A8AB3FEFE812FA0104AF009CFAC87094F988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019465   (750078) от 23.05.2016
-
-Игумен Евмений | Аномалии родительской любви (2009) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто из нас не является совершенным родителем, и это значит, что, в той или иной степени, мы можем негативно влиять на своего ребенка, неосознанно решая за его счет свои личные проблемы, препятствуя его гармоничному психическому и нравственному становлению.
-Книга, которую вы держите в руках, помогает отделить злаки от плевел, отличать истинную родительскую любовь (   Читать дальше...   )Жанр: Воспитание детей, Религия, ХристианствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615B73CAEAEB15D1EE8DC032F34E1D618C6FFB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019428   (749862) от 23.05.2016
-
-Анжелика Ягудена | Английский язык. Готовимся к ОГЭ (2016) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главной целью настоящей книги является пошаговая подготовка старшеклассников к сдаче Основного государственного экзамена по английскому языку, включая систематизацию английской грамматики, стратегии чтения и написания личного письма. Который состоит из трех разделов: чтение, письмо и грамматика и лексика. В каждом из этих разделов содержится как теоретический материал, (   Читать дальше...   )Жанр: Дополнительные учебные пособия, Английский языкФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8AA4D275B246DE4E3FC436F9D3C0FE5740AA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385916   (749831) от 13.07.2020
-
-И. Карнаухова (ред.) | Русские богатыри. Былины (1978) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749831.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены различные былины о русских богатырях: "Вольга Всеславович", "Микула Селянинович", "Святогор-Богатырь", "Алеша Попович и Тугарин Змеевич", "Про Добрыню Никитича и Змея Горыныча", "Про прекрасную Василису Микулишну", "Соловей Будимирович" и былины, посвященные Илье Муромцу: "Как (   Читать дальше...   )Жанр: БылиныФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F1CD87A7BA66E470637B2A017D3337B1E6FEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523611   (749802) от 12.01.2022
-
-Мэтт Ральфс | История магии с древнейших времен до наших дней (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем известно, что ведьмы носят остроконечные шляпы, варят зелья в котлах и машут волшебными палочками. Но что, если так было далеко не всегда? На самом деле история магии насчитывает несколько тысяч лет, а виды и способы колдовства не пересчитать по пальцам.
-
-Эта книга увлечет вас в путешествие по самым разным уголкам мира, где обычная жизнь испокон веков была пронизана (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Книги для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1E5AB38249A079F00BB1865196D3DD8AF4196F
 ```
 
 https://mybot314.ru/tekegram_catalog/

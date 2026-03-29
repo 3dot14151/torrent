@@ -1,3 +1,81 @@
+###  Публикация: 1684725   (125310) от 28.12.2023
+
+Дом на площади / The House in the Square (1951) DVDRip  [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учёный, одержимый прошлым, перемещается в Лондон 18-го века, где он влюбляется в прекрасную молодую женщину.Производство: Великобритания, США / 20th Century Fox Film CorporationЖанр: фэнтези, драма, мелодрамаРежиссер: Рой Уорд БейкерАктеры: Тайрон Пауэр, Энн Блит, Майкл Ренни, Деннис Прайс, Беатрис Кэмпбелл, Кэтлин Байрон, Рэймонд Хантли, Ирен Браун, Рональд Адам, Роберт АткинсПеревод: Одноголосый любительский (Andre1288)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD39B53ADB4DF219A62C2F02C6A136815B7B2320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685309   (125228) от 29.12.2023
+
+Великолепный / Le magnifique (1973) BDRip [H.264] [4К Remastered]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель Франсуа Мерлен с отвращением пишет свою сорок третью "нетленку", подстегиваемый алчным и беспринципным издателем. У Франсуа уже не хватает воображения, чтобы придумывать всё новые коллизии. Он давно стал пленником своего героя в буквальном и переносном смысле. Для Мерлена Боб Сен-Клер - это то, что с ним никогда не может произойти, и на экране (   Читать дальше...   )Производство: Франция, Италия, Les Films Ariane, Mondex Films, Cerito Films...Жанр: комедия, мелодрама, приключенияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Жаклин Биссет, Витторио Каприоли, Ганс Мейер, Моник Тарбес, Марио Давид, Бруно Гарсен, Раймон Жером, Жан Лефевр, Фабрицио МорескоПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские, английские, французскиеПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECFA2EF3A951BA2E1C21F8E3E92E938EE4D8738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303102   (123493) от 11.01.2024
+
+Вокруг Света за 80 дней / Around the World in 80 Days (1956) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обогнуть земной шар всего за 80 дней? Смешно! Даже лучшие паровые корабли Ее Величества Виктории не смогут сделать это. Но точный и пунктуальный Филеас Фогг заявил, что сможет. А когда члены лондонского престижного Реформ-Клуба попросят Фогга подкрепить его похвальбу солидной денежной ставкой, мы отправимся в путешествие Вокруг света в 80 дней!Производство: США, Великобритания / Michael Todd CompanyЖанр: Приключения, Комедия, Мелодрама, СемейныйРежиссер: Майкл Андерсон, Джон ФэрроуАктеры: Дэвид Нивен, Кантинфлас, Ширли МакЛейн, Роберт Ньютон, Шарль Буайе, Роберт Морли, Ноэл Коуард, Джон Гилгуд, Тревор Ховард, Джон Кэрредин, Джо Э. Браун, Мартина Кароль, Чарльз Коберн, Мелвилл Купер, Финлэй Карри, Марлен Дитрих, Фернандель, Бастер Китон, Джон Миллз, Джек Оуки, Фрэнк Синатра, Ред СкелтонПеревод: Дублированный, многоголосый закадровый, двухголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 03:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0C0805DC953A65AD86C7A162D9C57910C91528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686019   (123169) от 13.01.2024
 
 Сто винтовок / 100 Rifles (1969) HDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123169.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122426.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122203.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122088.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121861.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121556.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121150.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121080.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121075.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121036.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120839.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120728.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120676.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119374.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119156.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118823.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118492.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118318.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117900.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117737.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117295.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116597.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115439.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7CDE9F94CFEFEA8830215C07002B01CF8FCBC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702318   (115357) от 27.02.2024
-
-Приговорённый к смерти бежал, или Дух веет, где хочет / Un condamne a mort sest echappe... (1956) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на мемуарах Андре Девиньи, который во время Второй мировой войны был узником тюрьмы Монлюк... В 1943 году участник движения Сопротивления лейтенант Фонтен был арестован фашистами и заключён в лионскую тюрьму Монлюк. Помещённый в камеру 107 на самом верхнем этаже, он планомерно готовится к побегу, несмотря на скептическое отношение к его замыслу других (   Читать дальше...   )Производство: Франция / Gaumont, Nouvelles Éditions de FilmsЖанр: драма, военный, триллерРежиссер: Робер БрессонАктеры: Франсуа Летерье, Шарль Ле Кленш, Морис Беерблок, Ролан Моно, Жак Эрто, Жан-Поль Делюмо, Роже Треэрн, Жан-Филипп Деламарр, Сезар ГаттеньоПеревод: профессиональный одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BE1B4AD4B6C68705490E80864FE3F22F36368D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699429   (115221) от 28.02.2024
-
-Время развлечений / Playtime (1967) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115221.jpg" />
-</div>
-
-
-###  Подробнее
-
-В значительной степени сымпровизированный на съёмочной площадке, фильм показывает уродливость современных мегаполисов. Действие происходит в футуристическом, гиперпотребительском Париже. История состоит из шести эпизодов, связанных двумя персонажами, которые неоднократно сталкиваются друг с другом в течение дня: Барбарой, молодой американской туристкой, посещающей (   Читать дальше...   )Производство: Франция, Италия / Jolly Film, Specta FilmsЖанр: комедияРежиссер: Жак ТатиАктеры: Жак Тати, Барбара Деннек, Рита Мэйден, Жаклин Леконт, Франс Рюмилли, Франс Делахаль, Валери Камиль, Эрика Денцлер, Николь Рэй, Ивет Дюкрё, Натали ДжемПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 02:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E903A17BB025DE675CA0D04D1C5370116897E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699949   (115044) от 29.02.2024
-
-Правила игры / La Regle du jeu / The Rules of the Game (1939) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115044.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме изображены представители высшего класса французского общества и их слуги незадолго до начала Второй мировой войны... Совершив трансатлантический перелёт за рекордно короткое время, авиатор Андре Жюрье сообщает по радио о своем разочаровании - некая персона не пришла в аэропорт, чтобы его поприветствовать. Этим человеком была Кристина, австрийка и жена коллекционера (   Читать дальше...   )Производство: Франция / New Japan Pro-Wrestling Co, Nouvelles Éditions de FilmsЖанр: драма, комедияРежиссер: Жан РенуарАктеры: Жан Ренуар, Гастон Модо, Поль Франкёр, Пьер Манье, Нора Грегор, Полетт Дюбо, Мила Парели, Одетт Талазак, Клер Жерар, Anne Mayen, Лизе Элина, Марсель Далио, Жюльен Каретт, Ролан ТутенПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712FB7B92B822EB50E46C9720A38EEB8E83D637D
 ```
 
 https://mybot314.ru/tekegram_catalog/

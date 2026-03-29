@@ -1,3 +1,119 @@
+###  Публикация: 1811026   (16650) от 07.08.2025
+
+Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Life Is Love (4:44)
+02.  It's Our Time (5:46)
+03.  What Makes You Beautiful (4:37)
+04.  Clarity (4:36)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5FC65A4B8DE5840ED2E93F318240D6AB95B253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811031   (16646) от 07.08.2025
+
+Mark Winkler - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hold On (5:13)
+02.  A Little Taste (4:17)
+03.  If I Were a Bell (3:54)
+04.  Cat Women on the Moon (4:11)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB3A76229C7B62FF4DCC4AF5592C873ACCE4AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811037   (16641) от 07.08.2025
+
+Will Sumner - Rivers (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  West of Five (4:06)
+02.  Dawn Patrol (4:10)
+03.  Riptides (3:53)
+04.  Rad Pack (3:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE339879039AE4D268E3B3B1F0F5A89E5491DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799515   (16527) от 28.05.2025
+
+Duke Ellington - Ellington Uptown / The Liberian Suite / Masterpieces By Ellington (1947 - 1952) 2CD, 2018, Poll Winners Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mood Indigo [15:32]
+02. Sophisticacted Lady [11:33]
+03. The Tattooed Bride [11:48]
+04. Solitude [8:30](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56146571442DF973359DD15FFB7F893CAA947851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800305   (15838) от 02.06.2025
 
 Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Bossa Nova>
@@ -6,7 +122,7 @@ Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15838.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ V.A. - Pop International Hits Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15761.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Susannah McCorkle - Dream (1987) 2002, The Jazz Alliance [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15743.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15556.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Mark Murphy - Mark Murphy Sings (1975) 1995, Muse Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15537.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15452.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15145.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Branford Marsalis Quartet - Belonging (2025) Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15039.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15038.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Ella Fitzgerald - Golden Legends (2006) CD, Compilation [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15034.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dexter Gordon - Three Classic Albums Plus (1955, 1960) 2CD, 2014, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14404.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Lady & The Dappers - Electro Swing Vol. 1 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13600.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13581.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13580.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13566.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13557.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Michael Sagmeister & Pat Martino - Conversation (2000) Acoustic Music Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13259.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ George Shearing - Favorite Things (1997) Telarc [FLAC|Lossless|image + .cue] <Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12947.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Art Pepper - Four Classic Albums (1956, 1957) 2CD, 2008, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12747.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Victor Feldman - The Arrival of Victor Feldman (1958) 1998, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12227.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Jazz Piano History (20 CD-set) (2006) [FLAC|Lossless] <Jazz, Ragtime, Booge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12194.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - The World's Greatest Jazz Collection (2008) /500 CD Box Set/ [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12193.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ Big Bands(   Читать дальше...   )Жанр: JazzПродолжите�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13F6E6AB71689CFE23389AB09B62988BC3679D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805787   (12129) от 08.07.2025
-
-Tomas Lindqvist featuring Per Lindvall and Lars Larry Danielsson - Can´t wait (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can’t wait (4:32)
-02.  Take my hand (3:53)
-03.  On the Other Side (4:48)
-04.  Almost There (4:54)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB16A20BD8A982BECAC9801401499A1561B30ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805750   (12124) от 08.07.2025
-
-VA - Jazz Bello Fresco (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hot Latin Spirits - In The Old City (3:54)
-02.  Giulio Campagnolo & The Jazz Funkers - Revli's Mood (5:38)
-03.  Franca Barone - Miss Apleton (2:52)
-04.  Massimo Guerra Xtet - Morgan Beat (6:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A33B6A2A9D1D1F373186B8E6282B4971627DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805774   (12115) от 08.07.2025
-
-Paul Brown - So Much To Say (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю обратить ваше внимание на релиз артиста, чье одно только имя вызывает тепло, утонченность и мелодичность. С So Much to Say гитарный виртуоз и светило smooth джаза Paul Brown предлагает нам больше, чем просто летний саундтрек, он представляет звуковой гобелен, тщательно сотканный десятилетиями мастерства, вкуса и сердца. Стремление музыканта к чистоте и (   Читать дальше...   )01. So Much To Say (3:57)
-02. Summertime (4:16)
-03. Vice Versa (4:12)
-04. My Sweet Baby (3:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9652204112AD076622CE06E63992EF0EBD1177DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805754   (12113) от 08.07.2025
-
-VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SLAP CALL - Welcome to Paradise (4:22)
-02.  Marína Ósk - Measuring the Marigolds (2:55)
-03.  Vilhjálmur Guðjónsson - Pago Pra Ver (3:19)
-04.  Stratify - Should I Go, Should I Stay (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87F5E048B82AC15AA9BCC38E315C60113D9B855
 ```
 
 https://mybot314.ru/tekegram_catalog/

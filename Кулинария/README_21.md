@@ -1,3 +1,29 @@
+###  Публикация: 1510556   (790734) от 17.11.2021
+
+Жан Антельм Брийя-Саварен | Физиология вкуса (2021) [FB2, EPUB, PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых знаменитых книг мировой литературы, посвященных еде, «Физиология вкуса, или Трансцендентная кулинария» Брийя-Саварена состоит из размышлений о гастрономии, об удовольствии, доставляемом едой, об обжорстве и диете, о пищеварении и общительности сытого человека, из кулинарных рецептов и житейских анекдотов. Этот трактат обожали Бальзак и Александр Дюма-отец, (   Читать дальше...   )Жанр: Кулинария, ПублицистикаПеревод: Леонид ЕфимовФормат: FB2, EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A70F86FA34EAF51B10DEF6D7153BF26114AF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387855   (790621) от 03.06.2020
 
 Инна Метельская-Шереметьева | Рецепты еврейской мамы (2018) [EPUB]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790621.jpg" />
+  <img src="Z:/picture/008/save_picture_790621.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790617.jpg" />
+  <img src="Z:/picture/008/save_picture_790617.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789770.jpg" />
+  <img src="Z:/picture/008/save_picture_789770.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787543.jpg" />
+  <img src="Z:/picture/008/save_picture_787543.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786701.jpg" />
+  <img src="Z:/picture/008/save_picture_786701.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786536.jpg" />
+  <img src="Z:/picture/008/save_picture_786536.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786061.jpg" />
+  <img src="Z:/picture/008/save_picture_786061.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785095.jpg" />
+  <img src="Z:/picture/008/save_picture_785095.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783641.jpg" />
+  <img src="Z:/picture/008/save_picture_783641.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783625.jpg" />
+  <img src="Z:/picture/008/save_picture_783625.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783331.jpg" />
+  <img src="Z:/picture/008/save_picture_783331.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783329.jpg" />
+  <img src="Z:/picture/008/save_picture_783329.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783328.jpg" />
+  <img src="Z:/picture/008/save_picture_783328.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783326.jpg" />
+  <img src="Z:/picture/008/save_picture_783326.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783319.jpg" />
+  <img src="Z:/picture/008/save_picture_783319.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783171.jpg" />
+  <img src="Z:/picture/008/save_picture_783171.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783170.jpg" />
+  <img src="Z:/picture/008/save_picture_783170.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782907.jpg" />
+  <img src="Z:/picture/008/save_picture_782907.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782906.jpg" />
+  <img src="Z:/picture/008/save_picture_782906.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782901.jpg" />
+  <img src="Z:/picture/008/save_picture_782901.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782897.jpg" />
+  <img src="Z:/picture/008/save_picture_782897.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782889.jpg" />
+  <img src="Z:/picture/008/save_picture_782889.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782639.jpg" />
+  <img src="Z:/picture/008/save_picture_782639.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782494.jpg" />
+  <img src="Z:/picture/008/save_picture_782494.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782493.jpg" />
+  <img src="Z:/picture/008/save_picture_782493.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5A61239E20C6F327FC3512864D59886ABF57D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206163   (782463) от 13.02.2018
-
-Ю.А. Высоцкая | Большая кулинарная книга: лучшие рецепты (2010) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание — настоящий подарок для тех, кто готовит по рецептам телепрограммы «Едим Дома!», кто любит книги Юлии Высоцкой.
-Ставшие столь популярными рецепты объединены в один большой кулинарный сборник, в котором читатели найдут сотни рецептов на все случаи жизни: салаты, супы, блюда из овощей, мяса, птицы и рыбы, а также десерты, напитки и выпечку. «Для меня кулинария (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B2024729F8F7BB6EBDF45FA36E94F806116633
 ```
 
 https://mybot314.ru/tekegram_catalog/

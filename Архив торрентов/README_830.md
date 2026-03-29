@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860940.jpg" />
+  <img src="Z:/picture/008/save_picture_860940.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Invisible 026 (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860939.jpg" />
+  <img src="Z:/picture/008/save_picture_860939.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ MezzoSangue - Musica Cicatrene (2012) Mixtape [MP3|192 Kbps] <Hip-Hop, Rap, Ital
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860930.jpg" />
+  <img src="Z:/picture/008/save_picture_860930.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860918.jpg" />
+  <img src="Z:/picture/008/save_picture_860918.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860915.jpg" />
+  <img src="Z:/picture/008/save_picture_860915.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860910.jpg" />
+  <img src="Z:/picture/008/save_picture_860910.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860894.jpg" />
+  <img src="Z:/picture/008/save_picture_860894.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.081) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860892.jpg" />
+  <img src="Z:/picture/008/save_picture_860892.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860877.jpg" />
+  <img src="Z:/picture/008/save_picture_860877.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Uncharted Vol. 5 (Compiled by Bitkit) (2017) [MP3|320 Kbps] <Psy-Trance, Ps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860850.jpg" />
+  <img src="Z:/picture/008/save_picture_860850.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Pikka - Color Picker 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860849.jpg" />
+  <img src="Z:/picture/008/save_picture_860849.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Killbox - Killbox (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860848.jpg" />
+  <img src="Z:/picture/008/save_picture_860848.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ BurnAware Professional 9.0 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860809.jpg" />
+  <img src="Z:/picture/008/save_picture_860809.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ TagScanner 6.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860807.jpg" />
+  <img src="Z:/picture/008/save_picture_860807.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ oCam Screen Recorder 254.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860805.jpg" />
+  <img src="Z:/picture/008/save_picture_860805.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Elliphant - Living Life Golden (2016) [MP3|320 кб/с] <Pop, Electronic, Synthp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860801.jpg" />
+  <img src="Z:/picture/008/save_picture_860801.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Instagiffer 1.64 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860800.jpg" />
+  <img src="Z:/picture/008/save_picture_860800.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ PDF-XChange Viewer Pro 2.5 Build 317.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860799.jpg" />
+  <img src="Z:/picture/008/save_picture_860799.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ CoolUtils Total Image Converter 5.1.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860798.jpg" />
+  <img src="Z:/picture/008/save_picture_860798.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Wise Care 365 Pro 4.11.395 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860796.jpg" />
+  <img src="Z:/picture/008/save_picture_860796.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ oCam Screen Recorder 254.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860794.jpg" />
+  <img src="Z:/picture/008/save_picture_860794.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860785.jpg" />
+  <img src="Z:/picture/008/save_picture_860785.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Zynic - Neon Oblivion (2017) [MP3|320 Kbps] <Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860770.jpg" />
+  <img src="Z:/picture/008/save_picture_860770.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860769.jpg" />
+  <img src="Z:/picture/008/save_picture_860769.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Smoke Sign - The Storyteller's Weave (2017) Zenon Records [FLAC|Lossless|WEB-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860767.jpg" />
+  <img src="Z:/picture/008/save_picture_860767.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Daum PotPlayer 1.7.457 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860758.jpg" />
+  <img src="Z:/picture/008/save_picture_860758.jpg" />
 </div>
 
 

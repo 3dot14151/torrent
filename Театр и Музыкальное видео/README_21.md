@@ -1,3 +1,169 @@
+###  Публикация: 1363767   (940689) от 29.02.2020
+
+Владимир Ждамиров. Любовь и Судьба (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Владимира Ждамирова в Минске. ДК Маз 23.02.2020Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A70FE451F6F1FADF92D8E30E71C6C32DE84E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 283797   (940296) от 17.01.2011
+
+Queen + Paul Rodgers: Super Live in Japan (2006) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Live in Japan — второй DVD группы Queen + Paul Rogers. Раритет видео вышло только в Японии 28 апреля 2006 года. На DVD показан концерт группы в городе Саитама 27 октября 2005 года. В хорошем качестве. На котором исполнены вживую "Teo Torriate" и "I was born to love you" исполнялись не на всех концертах тура а только на японских!Жанр: RockПродолжительность: 0:58:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983962   (940219) от 08.02.2016
+
+Ансамбль спортивного бального танца "Ритм" - танец из мюзикла "Чикаго" (2006) CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный концерт к 25-летию образцового ансамбля спортивного бального танца "Ритм" 5 мая 2006 года город Луцк (Украина).
+ Постановка Чикаго.Производство: УкраинаЖанр: Спортивные танцыПеревод: не требуетсяПродолжительность: 00:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A1EABC38B8147647065529577B577A048EA9B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984097   (940159) от 08.02.2016
+
+Siouxsie - Dreamshow: Live At The Royal Albert Hall With The Millennia Ensemble  (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940159.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Say Yes!	5:20
+2	Around The World	3:20
+3	Seven Tears	8:39
+4	Godzilla!	5:34(   Читать дальше...   )Жанр: Alternative Rock, PostPunk, AvantgardeЯзык субтитров: English, Francais, Italiano, Espanol, PortuguesПродолжительность: 03:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9750004FED748595574271CF345E3D0D4D867977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984343   (940090) от 08.02.2016
+
+Квартирник у Маргулиса - Валерий Сюткин (2016) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса Валерий Сюткин. Дата эфира: 23.01.201601. 7000 над землей
+02. Я шагаю по Москве
+03. Любите, девушки
+04. Московские окна(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02B18981F4112E8BABB5CA756A656DC85AD768D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984423   (940075) от 08.02.2016
+
+Madness - At Madstock (1998) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940075.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	The Prince
+2	Wings Of A Dove
+3	Our House
+4	One Step Beyond(   Читать дальше...   )Жанр: New wave, nutty soundПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097009EEB8A095DD47A9EA4D8A45FFBDF880324E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984348   (939972) от 08.02.2016
 
 Квартирник у Маргулиса - Варвара Визбор (2016) DVBRip
@@ -6,7 +172,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939972.jpg" />
 </div>
 
 
@@ -35,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939794.jpg" />
 </div>
 
 
@@ -63,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939718.jpg" />
 </div>
 
 
@@ -93,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939489.jpg" />
 </div>
 
 
@@ -119,7 +285,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939421.jpg" />
 </div>
 
 
@@ -148,7 +314,7 @@ Ringo Starr & His All Starr Band Live 2006 (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939392.jpg" />
 </div>
 
 
@@ -177,7 +343,7 @@ Steve Miller Band - Live from Chicago (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938794.jpg" />
 </div>
 
 
@@ -206,7 +372,7 @@ VA - Best of pop 2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938727.jpg" />
 </div>
 
 
@@ -235,7 +401,7 @@ Axel Rudi Pell - Live Over Europe (2008) 2*DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938550.jpg" />
 </div>
 
 
@@ -262,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938507.jpg" />
 </div>
 
 
@@ -291,7 +457,7 @@ VA - Танцевальный рай - The Best (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938388.jpg" />
 </div>
 
 
@@ -320,7 +486,7 @@ Def Leppard - Mirror Ball - Live & More (2011) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938374.jpg" />
 </div>
 
 
@@ -349,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938372.jpg" />
 </div>
 
 
@@ -378,7 +544,7 @@ Modern Talking - Music & Video Stars (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938140.jpg" />
 </div>
 
 
@@ -407,7 +573,7 @@ Helene Fischer – Best of Live/So wie ich bin (2010) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938073.jpg" />
 </div>
 
 
@@ -433,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937526.jpg" />
 </div>
 
 
@@ -459,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936671.jpg" />
 </div>
 
 
@@ -488,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936636.jpg" />
 </div>
 
 
@@ -514,7 +680,7 @@ Def Leppard - Mirror Ball - Live & More (Bonus DVD) (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936559.jpg" />
 </div>
 
 
@@ -543,7 +709,7 @@ Eric Clapton - Slowhand at 70: Live at The Royal Albert Hall (2015) BDRemux [H.2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936530.jpg" />
 </div>
 
 
@@ -554,176 +720,6 @@ Eric Clapton - Slowhand at 70: Live at The Royal Albert Hall (2015) BDRemux [H.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AD53D363DCAA6DACDC431B3C1FBCBFFE8443EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628538   (936480) от 10.03.2013
-
-Юбилейный концерт группы А-Студио (2013.03.09) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936480.jpg" />
-</div>
-
-
-###  Подробнее
-
-"A’STUDIO" – легендарный коллектив, обладающий уникальным для нашей поп-cцены чувством стиля, музыкальным вкусом и создающий интересные аранжировки безупречного качества.
-Группа A'Studio – долгожитель российско-казахстанской эстрады. С момента выхода первого успешного альбома "Джулия" выросло целое поколение, музыкальные вкусы которого сильно (   Читать дальше...   )01. A'Studio - Бегу к тебе
-02. A'Studio - Еще люблю
-03. Владимир Пресняков/A'Studio - Сезон дождей
-04. Алсу / A'Studio - Любовь-река(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:19:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628593   (936398) от 10.03.2013
-
-СупердискотЭка / Супердискотека 90-х. Москва (09.03.2013) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936398.jpg" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х - легендарный ретромегадэнс, собирающий ежегодно десятки тысяч человек в Санкт-Петербурге и Москве. Каждую СупердискотЭку 90-х в прямом эфире транслирует канал MTV, а в праздничные дни 1 января и 12 июня СупердискотЭку 90-х показывали по Первому каналу и ее смотрела вся Россия. СупердискотЭка 90-х возвращает в детство, когда мы обменивались на (   Читать дальше...   )01. Дискотека Авария - X.X.X.И.Р.Н.Р
-02. Дискотека Авария - Яйца
-03. Тотал - Бьет по глазам
-04. Примьер министр - Два бриллианта(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 03:11:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284388   (936346) от 05.02.2014
-
-The Police - Certifiable: Live in Buenos Aires (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936346.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Police вместе со Sting пластинку Certifiable записали в ходе двух концертов на стадионе River Plate Stadium в Буэнос-Айресе в декабре 2007 г., которые состоялись в рамках триумфального тура воссоединенных The Police, посвященного 30-летию группы. Первое выступление тура состоялось в Ванкувере 28 мая 2007 года. Henry Padovani присоединился к группе в финальном (   Читать дальше...   )Производство: США, A&M RecordsЖанр: RockПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:48:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628781   (936240) от 10.03.2013
-
-Вячеслав Бутусов. Юбилейный концерт (2013.03.10) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творчество Вячеслава Бутусова всегда было востребовано. И в лихие годы перестройки, когда у целого поколения сменились жизненные ориентиры и приоритеты;01.Бриллиантовые дороги
-02.Взгляд с экрана
-03.Титаник
-04.Песня идущего домой(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:33:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628712   (936181) от 10.03.2013
-
-Юбилейный концерт группы А-Студио (2013.03.09) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936181.jpg" />
-</div>
-
-
-###  Подробнее
-
-"A’STUDIO" – легендарный коллектив, обладающий уникальным для нашей поп-cцены чувством стиля, музыкальным вкусом и создающий интересные аранжировки безупречного качества.
-Группа A'Studio – долгожитель российско-казахстанской эстрады. С момента выхода первого успешного альбома "Джулия" выросло целое поколение, музыкальные вкусы которого сильно (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:19:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753282   (936157) от 05.02.2014
-
-Сборник клипов - VA - Various Music part. 50 (2014) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936157.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A M - Million ft. MFS 1080p (3:37)
-2. Armin van Buuren - Save My Night 1080p (3:17)
-3. Arty - Flashback 1080p (3:49)
-4. Bad Boys Blue - Come Back And Stay 2013 720p (4:18)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275221E0C5039D89D175A42B1A3BD48B512637AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

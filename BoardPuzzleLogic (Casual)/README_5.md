@@ -6,7 +6,7 @@ Sudocats (2022) [Ru/Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206458.jpg" />
+  <img src="Z:/picture/005/save_picture_206458.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FixFox (2022) [En] (402_c39e385a) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204362.jpg" />
+  <img src="Z:/picture/004/save_picture_204362.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zodiacats (2022) [Ru/Multi] (1.0006) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199477.jpg" />
+  <img src="Z:/picture/005/save_picture_199477.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Monster Tribe (2023) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_198009.jpg" />
+  <img src="Z:/picture/004/save_picture_198009.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dr. Fetus Mean Meat Machine (2023) [Ru/Multi] (1.0.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196279.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lucas Chess (2023) [Ru/Multi] (2.09b) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194595.jpg" />
+  <img src="Z:/picture/004/save_picture_194595.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Lynn, The Girl Drawn On Puzzles (2020) [Ru/Multi] (1.0.01) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193981.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hidden Cats in Paris (2022) [En] (11956959) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176556.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133468.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Little Inferno [En] (RePack) 2012 | R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131793.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131334.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2) Repack dixen18 [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130621.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Divine Journey: The Life of Jesus (2023) [En] (1.0) Unofficial [Collector's Edit
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126977.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123970.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ GNOG (2018) [Ru/Multi] (1.0.7) License GOG [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100871.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Azkend (P) [En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90810.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89485.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Jewel Legends: Tree of Life (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88693.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Big Kahuna Reef 3 (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88251.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Tumble Jumble (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87548.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Azkend 2: The World Beneath (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86938.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Gobs of Fobs (P) [En] 2006
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86748.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sters (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86130.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны др�
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84562.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Liong: The Lost Amulets / Liong. Утраченные амулеты (P) [Ru] 20
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83509.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83470.jpg" />
 </div>
 
 

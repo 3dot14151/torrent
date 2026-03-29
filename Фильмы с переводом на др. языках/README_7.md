@@ -1,3 +1,29 @@
+###  Публикация: 1580999   (231684) от 03.10.2022
+
+Шальная пуля (Потерянная пуля) / Balle perdue (Lost Bullet) (2020) WEB-DL [H.264/1080p-LQ] [UKR, FRE, EN / UKR, FRE, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_231684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаясь на пару с младшим братом ограбить магазин, Лино на малолитражке пробил четыре бетонные стены. Брату удалось сбежать, но ремень заклинило, и сам Лино присел. Вскоре комиссар Чара предлагает ему работать механиком и переоборудовать полицейские машины в настоящие тараны, чтобы эффективно бороться с уходящими от преследования преступниками. Парень соглашается, (   Читать дальше...   )Производство: Франция / Inoxy Films, Nolita TV, Versus ProductionЖанр: криминал, боевикРежиссер: Гийом ПьерреАктеры: Альбан Ленуар, Николя Дювошель, Рамзи Бедиа, Стефи Сельма, Род Парадо, Себастьян Лаланн, Arthur Aspaturian, Патрик Медиони, Александр Филип, Стивен СкардиккьоПеревод: дублированный (Netflix)Язык озвучки: украинский, французский, английскийСубтитры: украинские, французские, английскиеПродолжительность: 01:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F39ECF0C7CCB35388744CD44D6A931448A5C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636477   (231663) от 30.05.2023
 
 День матери / Dzien Matki / Mothers Day (2023) WEB-DL [H.264/1080p] [UKR, POL / UKR, POL Sub]
@@ -6,7 +32,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231663.jpg" />
+  <img src="Z:/picture/004/save_picture_231663.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231595.jpg" />
+  <img src="Z:/picture/004/save_picture_231595.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230760.jpg" />
+  <img src="Z:/picture/004/save_picture_230760.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230717.jpg" />
+  <img src="Z:/picture/004/save_picture_230717.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230529.jpg" />
+  <img src="Z:/picture/004/save_picture_230529.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230491.jpg" />
+  <img src="Z:/picture/004/save_picture_230491.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230374.jpg" />
+  <img src="Z:/picture/005/save_picture_230374.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230323.jpg" />
+  <img src="Z:/picture/005/save_picture_230323.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227556.jpg" />
+  <img src="Z:/picture/005/save_picture_227556.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227372.jpg" />
+  <img src="Z:/picture/005/save_picture_227372.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222041.jpg" />
+  <img src="Z:/picture/005/save_picture_222041.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220885.jpg" />
+  <img src="Z:/picture/005/save_picture_220885.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220693.jpg" />
+  <img src="Z:/picture/005/save_picture_220693.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220376.jpg" />
+  <img src="Z:/picture/005/save_picture_220376.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215360.jpg" />
+  <img src="Z:/picture/005/save_picture_215360.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215265.jpg" />
+  <img src="Z:/picture/005/save_picture_215265.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215258.jpg" />
+  <img src="Z:/picture/005/save_picture_215258.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214224.jpg" />
+  <img src="Z:/picture/005/save_picture_214224.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214147.jpg" />
+  <img src="Z:/picture/005/save_picture_214147.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213086.jpg" />
+  <img src="Z:/picture/005/save_picture_213086.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212935.jpg" />
+  <img src="Z:/picture/005/save_picture_212935.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212626.jpg" />
+  <img src="Z:/picture/005/save_picture_212626.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211880.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211580.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211326.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31B397F459870529100CC453407841C9C7C54DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639560   (211311) от 17.06.2023
-
-Форсаж 10 / Fast X (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [UKR, EN / UKR, EN Sub] [MVO, Line]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Доминика Торетто вновь попадает под удар. Сайфер объединяет усилия с Данте, который желает отомстить.Производство: США, Китай / One Race Films, Original Film, Perfect Storm Entertainment, Roth/Kirschenbaum Films, Universal PicturesЖанр: боевик, криминал, детективРежиссер: Луи ЛетерьеАктеры: Вин Дизель, Мишель Родригес, Джейсон Момоа, Тайриз Гибсон, Лудакрис, Джон Сина, Джордана Брюстер, Натали Эммануэль, Сон Ган, Джейсон СтэйтемПеревод: Профессиональный многоголосый (DniproFilm / HDRezka Studio), дублированный (Line)Язык озвучки: украинский, английскийСубтитры: украинские (forced), английские (full, SDH)Продолжительность: 02:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97D7809E4A1D21C50D651FC1835B8AD8A89C823
 ```
 
 https://mybot314.ru/tekegram_catalog/

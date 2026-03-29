@@ -1,3 +1,30 @@
+###  Публикация: 1052981   (526694) от 16.09.2016
+
+Леонид Савельев | Комната № 13 (1931) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_526694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический рассказ о событиях, происходивших в Петрограде в феврале 1917 года.
+Издание 1931 г.Жанр: Детская проза, Историческая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F230A8D71E33C1A4306902CC2FAC90FE433967BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053600   (526045) от 17.09.2016
 
 Г.Т. Черненко | А все-таки полетим! (1984) [PDF]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526045.jpg" />
+  <img src="Z:/picture/008/save_picture_526045.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524583.jpg" />
+  <img src="Z:/picture/008/save_picture_524583.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524573.jpg" />
+  <img src="Z:/picture/008/save_picture_524573.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524570.jpg" />
+  <img src="Z:/picture/008/save_picture_524570.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524543.jpg" />
+  <img src="Z:/picture/008/save_picture_524543.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524125.jpg" />
+  <img src="Z:/picture/008/save_picture_524125.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523938.jpg" />
+  <img src="Z:/picture/008/save_picture_523938.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523428.jpg" />
+  <img src="Z:/picture/008/save_picture_523428.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523276.jpg" />
+  <img src="Z:/picture/008/save_picture_523276.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522958.jpg" />
+  <img src="Z:/picture/008/save_picture_522958.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522928.jpg" />
+  <img src="Z:/picture/008/save_picture_522928.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522909.jpg" />
+  <img src="Z:/picture/008/save_picture_522909.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522552.jpg" />
+  <img src="Z:/picture/008/save_picture_522552.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522543.jpg" />
+  <img src="Z:/picture/008/save_picture_522543.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522077.jpg" />
+  <img src="Z:/picture/008/save_picture_522077.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521698.jpg" />
+  <img src="Z:/picture/008/save_picture_521698.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521464.jpg" />
+  <img src="Z:/picture/008/save_picture_521464.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521421.jpg" />
+  <img src="Z:/picture/008/save_picture_521421.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521420.jpg" />
+  <img src="Z:/picture/008/save_picture_521420.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521325.jpg" />
+  <img src="Z:/picture/008/save_picture_521325.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521199.jpg" />
+  <img src="Z:/picture/008/save_picture_521199.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520638.jpg" />
+  <img src="Z:/picture/008/save_picture_520638.jpg" />
 </div>
 
 
@@ -592,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520631.jpg" />
+  <img src="Z:/picture/008/save_picture_520631.jpg" />
 </div>
 
 
@@ -618,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520629.jpg" />
+  <img src="Z:/picture/008/save_picture_520629.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520628.jpg" />
+  <img src="Z:/picture/008/save_picture_520628.jpg" />
 </div>
 
 
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CA3354965221E1CF078D5BB41554CAB36B9659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 228258   (520148) от 20.08.2010
-
-Екатерина Вильмонт, Андрей Трошкин и др. | Черный котенок, детский детектив, комплект из 155 книг [1996-2010] [FB2, DOC]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детские детективы, выходящие в серии "Черный котенок" предназначены для самых юных читателей. Писать для детей нелегко: с одной стороны детская книга должна читаться с интересом, на одном дыхании, но в то же время не превращаться в бесполезную и пустую, отравляющую сознание. Надо помнить, что чтение книг формирует душу, дает модель поведения в той или иной (   Читать дальше...   )Формат: FB2, DOC (6 книг Фионы Келли, в формате: *.doc)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1650699   (224879) от 03.08.2023
+
+Aiseesoft Mac FoneLab for iOS 10.3.72 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы случайно удалили с iPhone или iPad какую-то важную информацию (фото, видео, контакты, SMS) и у вас не оказалось резервной копии — не стоит паниковать. Восстановить данные поможет специализированная утилита Mac FoneLab, которая существует в версии для Mac. Mac FoneLab спасёт ваши данные после случайного удаления, неудачной перепрошивки или Jeilbreak, после (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2023Разработчик: © 2023 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0156491ED29F2D1C02703918A7E301AC3A32F917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424765   (224864) от 18.11.2020
+
+SketchUp Pro 2021.0 v21.0.338 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_224864.jpg" />
+</div>
+
+
+###  Подробнее
+
+SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: август 2020Разработчик: Trimble Navigation LimitedПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BC13FDEAD2C4853712495D9F4127AB407CEAF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650800   (224823) от 03.08.2023
+
+Topaz Video AI for Mac 3.3.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A1EA9C6FAEDFD0C1EC05C5E3D4D695C7E4DE0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650765   (224817) от 03.08.2023
+
+Things 3 v.3.17.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.08.2023Разработчик: © 2007-2023 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97B095F79ED0B4BC5D990D79718CE2B730BA6C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650713   (224690) от 03.08.2023
 
 Alfred PowerPack 5.1.2  [En]
@@ -6,7 +111,7 @@ Alfred PowerPack 5.1.2  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224690.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Movavi Video Converter Premium 2020 20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224676.jpg" />
+  <img src="Z:/picture/005/save_picture_224676.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Movavi Video Editor 15 Business 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224650.jpg" />
+  <img src="Z:/picture/005/save_picture_224650.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Sublime Text 4.0 Build 4152 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224611.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Permute 3 v3.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224539.jpg" />
+  <img src="Z:/picture/005/save_picture_224539.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Soulver 3 v3.4.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224529.jpg" />
+  <img src="Z:/picture/005/save_picture_224529.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ Hype 4 Pro v4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224515.jpg" />
+  <img src="Z:/picture/005/save_picture_224515.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ Nisus Writer Pro 3.1 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224507.jpg" />
+  <img src="Z:/picture/005/save_picture_224507.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ iNotepad Pro 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224499.jpg" />
+  <img src="Z:/picture/005/save_picture_224499.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Keep It 1.8.21 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224490.jpg" />
+  <img src="Z:/picture/005/save_picture_224490.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ Battery Health 3 v1.0.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224464.jpg" />
+  <img src="Z:/picture/005/save_picture_224464.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Wondershare Video Converter Ultimate 10.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224461.jpg" />
+  <img src="Z:/picture/005/save_picture_224461.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Downie 4 v4.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224454.jpg" />
+  <img src="Z:/picture/005/save_picture_224454.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ Yoink 3.5.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224442.jpg" />
+  <img src="Z:/picture/005/save_picture_224442.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ SILKYPIX Developer Studio Pro 10E v10.0.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224433.jpg" />
+  <img src="Z:/picture/005/save_picture_224433.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Nova 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224416.jpg" />
+  <img src="Z:/picture/005/save_picture_224416.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ Things 3 v3.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224361.jpg" />
+  <img src="Z:/picture/005/save_picture_224361.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ Easy Data Transform 1.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224259.jpg" />
+  <img src="Z:/picture/005/save_picture_224259.jpg" />
 </div>
 
 
@@ -487,7 +592,7 @@ Wondershare Filmora Х v10.1.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224237.jpg" />
+  <img src="Z:/picture/005/save_picture_224237.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ Viper FTP 5.4 (build 54066) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224219.jpg" />
+  <img src="Z:/picture/005/save_picture_224219.jpg" />
 </div>
 
 
@@ -541,7 +646,7 @@ Marked 2 v2.5.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224211.jpg" />
+  <img src="Z:/picture/005/save_picture_224211.jpg" />
 </div>
 
 
@@ -568,7 +673,7 @@ Find Any File (FAF) 2.3.2 b11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224201.jpg" />
 </div>
 
 
@@ -580,114 +685,6 @@ Find Any File не содержит никаких подменю с настр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4EFE043F9673666B3C9BA551C7DF64B2A3E55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513511   (224188) от 29.11.2021
-
-SiteSucker 4.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224188.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2021Разработчик: © 2021 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859B4B069E3897B83C6803484E8EF7A481BFC44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342487   (224180) от 02.12.2019
-
-Inboard 1.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет Вам легко организовать фотографии и скриншоты. Inboard обеспечивает интуитивный пользовательский интерфейс, где Ваши изображения организованы в библиотеку и есть возможность добавить любое число изображений.
-
-Иображения показаны в виде превью, Вы можете изменить их размер, используя ползунок. К тому же, Вы можете сортировать изображения по дате (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2019Разработчик: Regular SIAПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский и Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AF0407053FD742C73F229BCA7A4B4A44D08B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513578   (224172) от 29.11.2021
-
-iBoostUp Premium 9.7.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224172.jpg" />
-</div>
-
-
-###  Подробнее
-
-iBoostUp настраивает и оптимизирует ваш Mac, очищая ненужные файлы, фиксируя ваш жесткий диск, предоставляя рекомендации по эффективности, защищая вашу конфиденциальность, удаляя файлы cookie, показывая вам легкодоступную системную информацию и многое другое!
-iBoostUp Memory Booster позволяет вам просматривать подробную информацию о системной памяти и, возможно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2021Разработчик: © iBoostUp Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AB5A844A2048E42174BB646C73403FE40DD8D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651001   (224129) от 04.08.2023
-
-StopTheMadness 40.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224129.jpg" />
-</div>
-
-
-###  Подробнее
-
-StopTheMadness — это расширение для браузеров Safari, Firefox, Google Chrome и Chromium, которое не позволяет веб-сайтам усложнять использование вашего браузера. И это защищает вашу конфиденциальность. StopTheMadness не является блокировщиком рекламы: он предлагает уникальные функции, недоступные в блокировщиках рекламы или любых других приложениях. StopTheMadness (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.07.2023Разработчик: © 2018 Jeffrey JohnsonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12ACF03EF8C3A1CBBAA82E768ECDD14357C2CFEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

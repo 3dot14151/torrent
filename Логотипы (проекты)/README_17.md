@@ -1,3 +1,160 @@
+###  Публикация: 1020599   (744853) от 26.05.2016
+
+Проекты - VideoHive - Flat Colorful Logo Reveal Pack [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пак разноцветных шаблонов  для демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFD20D65A52298127D960204E08FD8485790E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282415   (744841) от 12.02.2019
+
+Проекты - VideoHive - Happy Natural Eid - 20458950 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это красивый и элегантный анимационный проект для демонстрации Вашего логотипа на лугу вдали от города, где протекают ручьи, красуются зеленые деревья, летаю птички, а козы с коровами щипают зеленую травку.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DCCBDC17B2EAC26591751666E0648B21656B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282414   (744832) от 12.02.2019
+
+Проекты - VideoHive - 2 In One City Logo - 19073370 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это чистый и элегантный анимационный проект для демонстрации Вашего логотипа в заброшенном городе.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3456884570A2EAB783EE9EAB17FDAD82028014F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020355   (744734) от 26.05.2016
+
+Проекты - VideoHive - Simple 3D Logo - 12519955 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D468101BEC194495E1D25E740D86A9CCCEB0D437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035879   (744714) от 12.02.2019
+
+Проекты - VideoHive - Logo drift-v2 - 8011108 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите дрифт, машины? Тогда этот проект для Вас. Продемонстрируйте свой логотип с помощью этого крутого и эффектного шаблона.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750E04D77BE19E084E31B0E0B24F0E43F7F74F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020689   (743461) от 27.05.2016
+
+Проекты - RocketStock - Polaris [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ищите что-то убедительное для демонстрации Вашего логотипа? Polaris - это привлекательная 3D анимация, которая принесет Вам удовольствие.
+Этот шаблон включает в себя 9 фото-видео заполнителя, пользовательские цвета и настраиваемые функции, такие, как искажение объектива и зерна. Есть дополнительный слоган, в который Вы можете добавить Ваш собственный текст или лозунг.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA5EA590780EE66BE9ABB04287B38822FC2BBF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282789   (743262) от 13.02.2019
 
 Проекты - VideoHive - Epic Fantasy Nature Logo - 22345231 [AEP]
@@ -6,7 +163,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743262.jpg" />
+  <img src="Z:/picture/008/save_picture_743262.jpg" />
 </div>
 
 
@@ -33,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743212.jpg" />
+  <img src="Z:/picture/008/save_picture_743212.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743103.jpg" />
+  <img src="Z:/picture/008/save_picture_743103.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743040.jpg" />
+  <img src="Z:/picture/008/save_picture_743040.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743035.jpg" />
+  <img src="Z:/picture/008/save_picture_743035.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743017.jpg" />
+  <img src="Z:/picture/008/save_picture_743017.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741997.jpg" />
+  <img src="Z:/picture/008/save_picture_741997.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741800.jpg" />
+  <img src="Z:/picture/008/save_picture_741800.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741796.jpg" />
+  <img src="Z:/picture/008/save_picture_741796.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741714.jpg" />
+  <img src="Z:/picture/008/save_picture_741714.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741712.jpg" />
+  <img src="Z:/picture/008/save_picture_741712.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741648.jpg" />
+  <img src="Z:/picture/008/save_picture_741648.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741640.jpg" />
+  <img src="Z:/picture/008/save_picture_741640.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741562.jpg" />
+  <img src="Z:/picture/008/save_picture_741562.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740757.jpg" />
+  <img src="Z:/picture/008/save_picture_740757.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740563.jpg" />
+  <img src="Z:/picture/008/save_picture_740563.jpg" />
 </div>
 
 
@@ -425,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740549.jpg" />
+  <img src="Z:/picture/008/save_picture_740549.jpg" />
 </div>
 
 
@@ -451,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740514.jpg" />
+  <img src="Z:/picture/008/save_picture_740514.jpg" />
 </div>
 
 
@@ -477,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739926.jpg" />
+  <img src="Z:/picture/008/save_picture_739926.jpg" />
 </div>
 
 
@@ -504,7 +661,7 @@ VideoHive - Verisimilitude Text Logo HD - 53532 [AEP]
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739198.jpg" />
+  <img src="Z:/picture/008/save_picture_739198.jpg" />
 </div>
 
 
@@ -515,162 +672,6 @@ VideoHive - Verisimilitude Text Logo HD - 53532 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C98BB21DDF2A6BC7B07EDFDA2105E6F5F889A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021314   (732511) от 29.05.2016
-
-Проекты - VideoHive - EPICA 7in1 [C4D, AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это стильный и эффектный проект для демонстрации логотипа или слогана.Формат: C4D, AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB8E25D84C040382FB35652D3F16AA4DD8DD90C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021438   (732498) от 29.05.2016
-
-Проекты - 3D Logo In The Sky Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236F2D1B83E93EC2E606E34C768FC7150D5FD86C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022129   (730678) от 31.05.2016
-
-Проекты - RocketStock - Flat House [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flat House - дайте ваш бренду или логотипу воздействия! Этот шаблон включает в себя 3 уникальных логотипа и показывает ретро-стиль дизайн в плоскости.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFEF5A005C18BC4F48F6658D6F6A9CFAE70DAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022087   (730565) от 31.05.2016
-
-Проекты - VideoHive - Selfie Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа. Вы можете легко изменить цвет частиц и огней!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3248197D795E6EA0DDB1331F12DB9FED08D404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022078   (730444) от 31.05.2016
-
-Проекты - VideoHive - High-Tech Logo Reveal - 10606928 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730444.jpg" />
-</div>
-
-
-###  Подробнее
-
-High-Tech Logo Reveal - замечательный проект с большим высокотехнологичным эффектом логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E89C0CD4A09317F97ADBB7F0998EC04DD2A14C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022319   (729632) от 01.06.2016
-
-Проекты - VideoHive - Ramadhan&Eid [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ramadhan&Eid - красивое цветение виноградной лозы в виде луны Рамадана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A45072E51DF0F3AE36D0236AFC62AD43F754AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

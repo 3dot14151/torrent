@@ -1,3 +1,29 @@
+###  Публикация: 987577   (925623) от 17.02.2016
+
+A Boy and His Blob (2016) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925623.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Boy and His Blob - ремейк оригинальной игры, которая была выпущена в 1989 году на платформу NES. Игра интересная и необычная. Яркая графика, красивая анимация и всевозможные головоломки понравятся всем. История A Boy and His Blob такова: злой император захватил трон Блоболонии (Blobolonia), и теперь судьба жителей страны находится в руках живого пузыря (blob) и (   Читать дальше...   )Тип издания: RepackРазработчик: WayForward Technologies, Majesco Games и Skyworks TechnologiesЖанр: Arcade (Platform)Язык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B53BBAA7AD0D88B7A2B70D1465248F7F2608D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987448   (925516) от 17.02.2016
 
 Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.5) Repack R.G. Механики
@@ -6,7 +32,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925516.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Street Fighter V (2016) [Ru/Multi] License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Road Fist (2017) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923688.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.06/dlc) Repack R.G. Механик�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920153.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Card City Nights (2014) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913585.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Obliteracers (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912894.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Inside (2016) [Ru/Multi] (10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911635.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ The Fall (2014) [Ru/Multi] (2.31) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911525.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.11.3102) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911050.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Trine Anthology (2013-2015) [Ru/Multi] (2.12/2.01/1.11) Repack Seraph1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909793.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Never Alone (2014) [Ru/Multi] (1.8/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907892.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Raging Titan (2016) [En] (1.6.11) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906264.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Oh...Sir!! The Insult Simulator (2016) [En] (1.07) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904425.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ One Finger Death Punch 2 (2019) [En] (2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903028.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ The Binding of Isaac: Afterbirth (2015) [En] (1.05) Repack R.G. ILITA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901836.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900406.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Until We Die (2021) [Ru/Multi] (2021.07.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900018.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Pac-Man Museum (2014) [Multi] (1.0) License Reloaded
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899125.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ El Shaddai: Ascension of the Metatron (2021) [Multi] (7272439) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896953.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893077.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.07/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891861.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Red Risk (2016) [En] (1.0) Repack Mr.Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890705.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Stick It To The Man (2013) [Ru/En] (1.0u?) RePack Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888446.jpg" />
+  <img src="Z:/picture/005/save_picture_888446.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Cannon Brawl (2014) [En] (1.261) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887391.jpg" />
+  <img src="Z:/picture/005/save_picture_887391.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Enter the Gungeon (2016) [Ru/Multi] (1.1.1h1/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886729.jpg" />
+  <img src="Z:/picture/005/save_picture_886729.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Enter the Gungeon - игра жанра “пулевая завеса в под
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D259FBE1BFB88EAAD77C2F10A5E03B56E8849B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494714   (885433) от 09.09.2021
-
-Big Rumble Boxing: Creed Champions (2021) [Multi] (6579165) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аркада о боксе, в которой Вы сможете сыграть за одного из двадцати персонажей серий фильмов Крид и Рокки. Готовы завоевать титул чемпиона по боксу? Покорите ринг в роли одного из двадцати легендарных бойцов серий фильмов Крид и Рокки в этой увлекательной аркадной игре! Посетите разные уголки мира, бросьте вызов лучшим боксерам со всего света или устройте напряжённые (   Читать дальше...   )Тип издания: LicenseРазработчик: Survios, Inc.Жанр: Box, Arcade, Sport, Action, Beat'em UpЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F9E9C03466701D5F7C48747901AA061DBABA18
 ```
 
 https://mybot314.ru/tekegram_catalog/

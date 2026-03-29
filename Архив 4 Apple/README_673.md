@@ -1,3 +1,109 @@
+###  Публикация: 1700260   (117228) от 16.02.2024
+
+Topaz Photo AI 2 for Mac 2.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2005 - 2024 Topaz Labs.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15366EA741AE80CC025D9E9A3F2091BFF8226AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700226   (117183) от 16.02.2024
+
+TablePlus 5.9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управление базой данных стало проще
+Современный, родной и удобный графический интерфейс для реляционных баз данных: MySQL, PostgreSQL, SQLite и др.Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2023 TablePlus Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837CF58CC101AA4DF8704DF6A492CCE8A2DBEC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700259   (117174) от 16.02.2024
+
+Topaz Gigapixel AI for Mac 7.0.2 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Gigapixel AI. — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, Topaz Gigapixel AI ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A693C1FB7B8156877B2120775A7086BEB15605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700366   (117151) от 16.02.2024
+
+Boinx FotoMagico Pro 6 v.6.5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117151.jpg" />
+</div>
+
+
+###  Подробнее
+
+FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
+В состав программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2024Разработчик: © 2024 Boinx Software International GmbHПоддерживаемая ОС: macOS 10.15.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454EC67DC28CCA462422BED3BEE1BDD1A08F66F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700224   (117148) от 16.02.2024
 
 Bike Outliner for Mac 1.18.1 [En]
@@ -6,7 +112,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117148.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ GoodTask 7.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117147.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ NCH DreamPlan Plus for Mac 9.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117144.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ Fork 2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117140.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ Adobe Illustrator for Mac 2024 v.28.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116969.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Audio Hijack 4.3.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116886.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ Rhinoceros 8 v.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116877.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ Desktop Stickers 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116850.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ Folder Icons 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116838.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ iBarcoder 3.14.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116821.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ Dropshare 5 v.5.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116679.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ Fork 2.40.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116678.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ NCH Express Invoice Plus 11.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116677.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116666.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ EdgeView 4 v.4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116659.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116657.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ Folder-Factory 7.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116652.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ Capture One 23 Pro 16.3.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116538.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ Capture One 23 Enterprise 16.3.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116510.jpg" />
 </div>
 
 
@@ -515,7 +621,7 @@ djay - DJ App & AI Mixer 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116480.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ Mp3tag 1.8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116479.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ Labels and Databases 1.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116475.jpg" />
 </div>
 
 
@@ -579,111 +685,6 @@ The Labels and Databases — это приложение для создания
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFC795571C8D19A38935F3484D0EF2C725AADF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701514   (116358) от 21.02.2024
-
-Remote Desktop Manager Enterprise Edition 2023.3.13.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remote Desktop Manager – это приложение для контроля за удаленными соединениями. С программой Remote Desktop Manager вы сможете добавить, редактировать, удалить, систематизировать или быстро найти удаленное соединение. Утилита совместима с Microsoft Remote Desktop или с Terminal Services, очень простая в использовании, но в то же время достаточно мощная и эффективная. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 2024 DevolutionsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD467290D6EFA8673FED2A5081BDF37303468D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701861   (116243) от 22.02.2024
-
-CrossOver 24.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет CrossOver основан на программном коде Wine и представляет собой оболочку для запуска программ под Windows на платформе macOS. Кроме этого, он позволяет запускать игры, что для многих пользователей является решающим фактором при выборе операционной системы.
-Отметим, что вышеупомянутый Wine представляет собой программную прослойку, позволяющую выполнять Windows-приложения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2024 CodeWeaversПоддерживаемая ОС: macOS 10.15 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6899CFA5A5DC10E79F0CE1B5DF8B1CDD017E6471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701676   (116213) от 22.02.2024
-
-Native Instruments Kontakt 7 for Mac v.7.8.1 U2B [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2024 Native Instruments GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E651C71DC6D7ACFB74A1537C97FC42BA3927266A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701641   (116202) от 22.02.2024
-
-Aiseesoft iPhone Unlocker for Mac 2.0.36 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разблокируйте iPhone, iPad и iPod, удалив пароль. Удалите Apple ID, если вы забыли Apple ID или пароль. Восстановите и удалите код доступа к экранному времени без потери данных.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2024Разработчик: © 2023 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2ECE37DD52FC4A62D1C5722B88A852B759DDB0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

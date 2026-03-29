@@ -6,7 +6,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176746.jpg" />
+  <img src="Z:/picture/005/save_picture_176746.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176718.jpg" />
+  <img src="Z:/picture/005/save_picture_176718.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173557.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172977.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170156.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160392.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151736.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151298.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145098.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133392.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131977.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127126.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118675.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115621.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115360.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85597.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84343.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81266.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79789.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76966.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76963.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76383.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60698.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60628.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60007.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43853.jpg" />
 </div>
 
 

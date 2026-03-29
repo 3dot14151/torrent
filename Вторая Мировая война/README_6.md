@@ -1,3 +1,29 @@
+###  Публикация: 1028705   (688581) от 23.06.2016
+
+Брестская крепость (2007) SATRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о первом поистине героическом сражении Великой Отечественной войны – обороне Брестской крепости. Борьба за нее началась 22 июня 1941 года и продолжалось долгих 29 дней. Авторы при помощи впечатляющих компьютерных реконструкций воссоздают атмосферу первых дней боев за крепость. В фильме использованы уникальные кадры хроники, а также принимают участие сами защитники (   Читать дальше...   )Телекомпания: Россия, телекомпания «ВоенТВ»Жанр: Документальный, война, историяРежиссер: Андрей Велемицын, Руслан ЗайнетдиновПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85087087518618F41FC8F3890D565E6AB6821FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028339   (688521) от 23.06.2016
 
 Нюрнберг: Его урок сегодня / Nuremberg: Its Lesson for Today (Nrnberg und seine Lehre) (1948) SATRip
@@ -6,7 +32,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688521.jpg" />
+  <img src="Z:/picture/008/save_picture_688521.jpg" />
 </div>
 
 
@@ -24,6 +50,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286528   (688083) от 23.06.2016
+
+Неизвестная война / Великая Отечественная / The Unknown War (1978) DVDRip [H.264] (серии 1-20 из 20)
+
+>>След.
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_688083.jpg" />
+</div>
+
+
+###  Подробнее
+
+На материалах, собранных в годы Великой Отечественной, Роман Кармен совместно с американцами создал фильм «Неизвестная война», который стал настоящим откровением для западного зрителя, почти ничего не знавшего о подвиге советского воина и нашего народа, ставшего главным творцом победы над гитлеровским фашизмом. За свои работы Роман Кармен был награждён: в 1942, 1947, (   Читать дальше...   )Производство: СССР, ЦСДФ при участии в/о "Совинфильм" по заказу "Эйр Тайм Интернейшнл" (США)Жанр: Документальный, война, история, кинохроникаРежиссер: Роман Кармен, Гутман Илья, Тенгиз Семенов, Григорьев ИгорьПродолжительность: 15:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C28BB7D87AD9A5C407E70F21BC6C639E8947BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 848179   (687735) от 15.03.2019
 
 Коллаборационисты Второй мировой войны (2014) WEB-DLRip (серии 1-3 из 3)
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687735.jpg" />
+  <img src="Z:/picture/008/save_picture_687735.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686648.jpg" />
+  <img src="Z:/picture/008/save_picture_686648.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686492.jpg" />
+  <img src="Z:/picture/008/save_picture_686492.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686394.jpg" />
+  <img src="Z:/picture/008/save_picture_686394.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684937.jpg" />
+  <img src="Z:/picture/008/save_picture_684937.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684289.jpg" />
+  <img src="Z:/picture/008/save_picture_684289.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682121.jpg" />
+  <img src="Z:/picture/008/save_picture_682121.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680145.jpg" />
+  <img src="Z:/picture/008/save_picture_680145.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680026.jpg" />
+  <img src="Z:/picture/008/save_picture_680026.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679213.jpg" />
+  <img src="Z:/picture/008/save_picture_679213.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676391.jpg" />
+  <img src="Z:/picture/008/save_picture_676391.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675094.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670784.jpg" />
+  <img src="Z:/picture/008/save_picture_670784.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668585.jpg" />
+  <img src="Z:/picture/008/save_picture_668585.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666006.jpg" />
+  <img src="Z:/picture/008/save_picture_666006.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665996.jpg" />
+  <img src="Z:/picture/008/save_picture_665996.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665945.jpg" />
+  <img src="Z:/picture/008/save_picture_665945.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665759.jpg" />
+  <img src="Z:/picture/008/save_picture_665759.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663154.jpg" />
+  <img src="Z:/picture/008/save_picture_663154.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662698.jpg" />
+  <img src="Z:/picture/008/save_picture_662698.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ BBC. Секретные войны (Тайные войны) / The Secret War (1
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657924.jpg" />
+  <img src="Z:/picture/008/save_picture_657924.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656741.jpg" />
+  <img src="Z:/picture/008/save_picture_656741.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ BBC: Секретные войны (Тайные войны) / The Secret War (1
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654775.jpg" />
+  <img src="Z:/picture/008/save_picture_654775.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ BBC: Секретные войны (Тайные войны) / The Secret War (1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DC973BD98EA3C586B6035941039B1855BC3FC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 153050   (653623) от 29.03.2022
-
-Позорная тайна Хатыни (2008) TVRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм  рассказывает о трагических событиях Великой Отечественной войны, произошедших в маленькой белорусской деревне Хатынь в 56 километрах к северу от Минска. 65 лет прошло с тех пор, как нацистские каратели поголовно уничтожили всё население Хатыни - 147 человек, включая 75 детей, младшему из которых было всего 7 недель. Что стояло за трагедией Хатыни? Кто на самом (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280C87AC7E855ECCD6C9C2F9DA9765C3A39A2D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905406   (651585) от 05.06.2015
-
-50 детей: Спасательная миссия мистера и миссис Краус / 50 Children: The Rescue Mission of Mr. And Mrs. Kraus (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о невероятном путешествии Гилберта и Элеоноры Краус, которые отправились в самое сердце нацистской Германии в 1939 году  для того, чтобы попытаться спасти 50 еврейских детей от Холокоста.Телекомпания: США, HBO Documentary Films, PerlePress ProductionsЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D882FEA159F8E7E0003A7FEC004D4E74F71552F
 ```
 
 https://mybot314.ru/tekegram_catalog/

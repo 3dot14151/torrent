@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1861871   (1062735) от 
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2026.03.27) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062735.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE2C803FD7DD61F66382FA3C8B0697BA959422B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861947   (1062720) от 
+
+География Уральских Пельменей - Доминикана (2026.03.27) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3804059889BCB42233B652F9A257940B61A89BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860860   (1062350) от 
+
+Кстати (2026) WEBRip [H.264/1080p] (сезон 1, выпуск 99)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девяносто девятый выпуск шоу «Кстати» с Азаматом Харламовым. Дорох стал мистером «Кстати» 2026, пока оставляем его. Гостями девяносто девятого выпуска стали: наш чемпион – Никита Филиппов; наш болливудский герой – Демис Карибидис; наши красавицы – Валентина Алексеева, Динара Саляхова и Миллисент Мфолоди Тлоу; наши большие артисты – Максим Лагашкин и Константин Крюков. (   Читать дальше...   )Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Демис Карибидис, Максим Лагашкин, Константин Крюков, Никита Филиппов, Валентина Алексеева, Миллисент Мфолоди ТлоуЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C45A6159011556C6F308156A46A6F291021306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860431   (1061812) от 
 
 География Уральских Пельменей - Фиджи (2026.03.20) WEBRip [H.264/1080p]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061812.jpg" />
+  <img src="Z:/picture/005/save_picture_1061812.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061638.jpg" />
+  <img src="Z:/picture/005/save_picture_1061638.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060929.jpg" />
+  <img src="Z:/picture/005/save_picture_1060929.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060730.jpg" />
+  <img src="Z:/picture/005/save_picture_1060730.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059906.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059903.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058858.jpg" />
+  <img src="Z:/picture/005/save_picture_1058858.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058639.jpg" />
+  <img src="Z:/picture/005/save_picture_1058639.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057874.jpg" />
+  <img src="Z:/picture/005/save_picture_1057874.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056787.jpg" />
+  <img src="Z:/picture/005/save_picture_1056787.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055851.jpg" />
+  <img src="Z:/picture/005/save_picture_1055851.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054901.jpg" />
+  <img src="Z:/picture/005/save_picture_1054901.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053760.jpg" />
+  <img src="Z:/picture/005/save_picture_1053760.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053742.jpg" />
+  <img src="Z:/picture/005/save_picture_1053742.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051843.jpg" />
+  <img src="Z:/picture/005/save_picture_1051843.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050764.jpg" />
+  <img src="Z:/picture/005/save_picture_1050764.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050747.jpg" />
+  <img src="Z:/picture/005/save_picture_1050747.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050729.jpg" />
+  <img src="Z:/picture/005/save_picture_1050729.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050668.jpg" />
+  <img src="Z:/picture/008/save_picture_1050668.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050659.jpg" />
+  <img src="Z:/picture/008/save_picture_1050659.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050642.jpg" />
+  <img src="Z:/picture/008/save_picture_1050642.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050583.jpg" />
+  <img src="Z:/picture/005/save_picture_1050583.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050379.jpg" />
+  <img src="Z:/picture/005/save_picture_1050379.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E3A65A3D758E2983C9F2D1C9297FFC7C3730531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844727   (1050252) от 27.12.2025
-
-Кстати (2025) WEBRip [H.264/1080p] (сезон 1, выпуск 96)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девяносто шестой выпуск шоу «Кстати» с Азаматом Харламовым. Дороха наконец взяли в театр, ждём с ним премьеры, пока что оставим его. Гостями девяносто шестого выпуска стали: гости с секретной информацией Сергей Лавыгин, Ева Смирнова и Чебурашка; наш первый спектакль – Анастасия Уколова, Антон Филипенко, Даниил Чащин и Полина Денисова; точно последний раз в этом году (   Читать дальше...   )Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Ольга Бузова, Сергей Лавыгин, Ева Смирнова, Настя Уколова, Антон Филипенко, Данил Чащин, Полина Денисова и ЗояЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DA1527B220772612A0DBA584BF1D88B93B880D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844538   (1050078) от 27.12.2025
-
-География Уральских Пельменей - Греция (2025.12.26) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C760675F903D483454C65B26C66499628A459002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844551   (1050077) от 27.12.2025
-
-Кстати (2025) WEBRip [H.264/1080p] (сезон 1, выпуск 95)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девяносто пятый выпуск шоу «Кстати» с Азаматом Харламовым. Дороху придумали универсальный актёрский приём – скоро его начнут везде звать, такого ведущего придержим. Гостями девяносто пятого выпуска стали: снимающие друг друга Сарик Андреасян и Лиза Моряк, покоряющий планету Сергей Бурунов, новички жанра шансон Jakone и Kiliana.Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Сергей Бурунов, Сарик Андреасян и Лиза Моряк, Jakone и KilianaЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0461BB7B574F7B58639A1A482C1620597E83D46F
 ```
 
 https://mybot314.ru/tekegram_catalog/

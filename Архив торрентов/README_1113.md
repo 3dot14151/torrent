@@ -6,7 +6,7 @@ Boinx mimoLive 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795620.jpg" />
+  <img src="Z:/picture/008/save_picture_795620.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sketch 79.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795613.jpg" />
+  <img src="Z:/picture/008/save_picture_795613.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ OmniGraffle Pro 7 v7.19.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795605.jpg" />
+  <img src="Z:/picture/008/save_picture_795605.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ GoodSync Enterprise 10.7.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795591.jpg" />
+  <img src="Z:/picture/008/save_picture_795591.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Q-Dir 6.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795581.jpg" />
+  <img src="Z:/picture/008/save_picture_795581.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Scrutiny 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795564.jpg" />
+  <img src="Z:/picture/008/save_picture_795564.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Alfred Powerpack 2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795563.jpg" />
+  <img src="Z:/picture/008/save_picture_795563.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ WiFi Explorer 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795554.jpg" />
+  <img src="Z:/picture/008/save_picture_795554.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Live Home 3D Pro Edition 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795549.jpg" />
+  <img src="Z:/picture/008/save_picture_795549.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ocenaudio 3.10.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795541.jpg" />
+  <img src="Z:/picture/008/save_picture_795541.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Any Video Converter Professional 7.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795540.jpg" />
+  <img src="Z:/picture/008/save_picture_795540.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Hardstyle Power!, Vol. 1 (2018) [MP3|320 Kbps] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795537.jpg" />
+  <img src="Z:/picture/008/save_picture_795537.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Any Video Converter Ultimate 6.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795521.jpg" />
+  <img src="Z:/picture/008/save_picture_795521.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Posterino 3.2.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795518.jpg" />
+  <img src="Z:/picture/008/save_picture_795518.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795517.jpg" />
+  <img src="Z:/picture/008/save_picture_795517.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VueScan Pro 9.5.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795514.jpg" />
+  <img src="Z:/picture/008/save_picture_795514.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ MediaInfo 0.7.85 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795512.jpg" />
+  <img src="Z:/picture/008/save_picture_795512.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Omauha - Eight Cities (2015) [FLAC|Lossless|WEB-DL|tracks] <Breaks>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795509.jpg" />
+  <img src="Z:/picture/008/save_picture_795509.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Wondershare PDFelement with OCR 5.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795507.jpg" />
+  <img src="Z:/picture/008/save_picture_795507.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795506.jpg" />
+  <img src="Z:/picture/008/save_picture_795506.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Total Video Converter Pro 4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795504.jpg" />
+  <img src="Z:/picture/008/save_picture_795504.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2192 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795497.jpg" />
+  <img src="Z:/picture/008/save_picture_795497.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ OCCT 10.0.0 Beta 4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795494.jpg" />
+  <img src="Z:/picture/008/save_picture_795494.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Eventide - Ensemble Bundle 2.15.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795490.jpg" />
+  <img src="Z:/picture/008/save_picture_795490.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ WSCC (Windows System Control Center) 7.0.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795489.jpg" />
+  <img src="Z:/picture/008/save_picture_795489.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795488.jpg" />
+  <img src="Z:/picture/008/save_picture_795488.jpg" />
 </div>
 
 

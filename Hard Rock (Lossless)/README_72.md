@@ -1,3 +1,61 @@
+###  Публикация: 1646131   (232491) от 13.07.2023
+
+Extreme - Six (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise
+02. #Rebel
+03. Banshee
+04. Other Side Of The Rainbow(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6415E14767419B0AD2ADC06C00F6895FB0D287D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643360   (232488) от 02.07.2023
+
+Sergeant Steel - Mister Sippi (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down to Mississippi [00:03:38]
+02. Please Me, Tease Me [00:03:29]
+03. Mama Didn't Raise No Fool [00:03:14]
+04. Alive [00:03:21](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94606E582DE947CAC9013D1EAC2431BFAC722D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640034   (232457) от 15.06.2023
 
 Admiral Justice - Admiral Justice (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Admiral Justice - Admiral Justice (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232457.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Incitacion (Incitación) - Sabrosa (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232445.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Last Giant - Monuments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232413.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Def Leppard With The Royal Philharmonic Orchestra - Drastic Symphonies (2023) Ja
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232292.jpg" />
+  <img src="Z:/picture/004/save_picture_232292.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Colossal Street Jam - No Way To Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232291.jpg" />
+  <img src="Z:/picture/005/save_picture_232291.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ The Wealthy Hobos - Ticking Twelve (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232265.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Nighthawk - Prowler (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232116.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Pistols At Dawn - Ascension (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232083.jpg" />
+  <img src="Z:/picture/005/save_picture_232083.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Heezer - Sungrinder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Gr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232042.jpg" />
+  <img src="Z:/picture/005/save_picture_232042.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Degreed - Public Address (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232004.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ The Dust Coda - Loco Paradise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231932.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Bangalore Choir - Center Mass (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231917.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Supremacy - Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231822.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Avi Rosenfeld - Lions II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231688.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Khalil Turk & Friends - Turkish Delight - Volume 2 (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231658.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Later Sons - Rise Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231511.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Winger - Seven (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231493.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Supernova Plasmajets - Supernova Plasmajets (2017) Reissue, 2023, Bug Valley Rec
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231399.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Tony Mitchell - Radio Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231398.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Midnite City - In At The Deep End (2023) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231391.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Gunner - Sinners (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231373.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Pride Of Lions - Dream Higher (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231346.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Howl at the Sky - In Line for the End Times (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231212.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Mister Kill - Mister Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231190.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Mister Kill - Mister Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5F0F95E2C23CF422E7BA0021A292881A4B50CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648063   (231163) от 21.07.2023
-
-Graywolf - Graywolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles N' Miles To Go (03:57)
-02. We'll Bring You Down (03:07)
-03. The Winner (03:06)
-04. Hell Is Waiting (03:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5539B6D7E08900F64F2FF6F2339A3975BA0BB39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648355   (230987) от 23.07.2023
-
-Greta Van Fleet - Starcatcher (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fate Of The Faithful [00:04:46]
-02. Waited All Your Life [00:04:26]
-03. The Falling Sky [00:03:38]
-04. Sacred The Thread [00:05:21](   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C792E055C52FB09E835889550A415A426A4C67E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Cockos REAPER for Mac v6.53 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652533.jpg" />
+  <img src="Z:/picture/008/save_picture_652533.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Prelude CC 2015.4 (5.0.0.184) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645565.jpg" />
+  <img src="Z:/picture/008/save_picture_645565.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Media Encoder CC 2015.3 (10.3.0.185) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645253.jpg" />
+  <img src="Z:/picture/008/save_picture_645253.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Premiere Pro CC 2015.3 (10.3.0.202) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645141.jpg" />
+  <img src="Z:/picture/008/save_picture_645141.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Piezo 1.5.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645080.jpg" />
+  <img src="Z:/picture/008/save_picture_645080.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Screen flick 2.7.16 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643808.jpg" />
+  <img src="Z:/picture/008/save_picture_643808.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ LiveGrade Pro 4.4.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642928.jpg" />
+  <img src="Z:/picture/008/save_picture_642928.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SmartSound SonicFire Pro 6.0.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642634.jpg" />
+  <img src="Z:/picture/008/save_picture_642634.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ RE:Vision Effects Pluguins for Adobe PP&AE Май 2018 г. [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637087.jpg" />
+  <img src="Z:/picture/008/save_picture_637087.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ iShowU Instant (Advanced) 1.4.10 (beta version) [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635447.jpg" />
+  <img src="Z:/picture/008/save_picture_635447.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ iZotope Ozone 9 Advanced 9.12.0 intel+M1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634915.jpg" />
+  <img src="Z:/picture/008/save_picture_634915.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Frammer X 1.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623784.jpg" />
+  <img src="Z:/picture/008/save_picture_623784.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Movavi Video Editor 5 Plus 5.4.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604983.jpg" />
+  <img src="Z:/picture/008/save_picture_604983.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Compress Any Video 3.3.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604582.jpg" />
+  <img src="Z:/picture/008/save_picture_604582.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Trim Any Video 2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603976.jpg" />
+  <img src="Z:/picture/008/save_picture_603976.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Rotate & Flip Any Video 2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603972.jpg" />
+  <img src="Z:/picture/008/save_picture_603972.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Compress Any Video PRO 2.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603971.jpg" />
+  <img src="Z:/picture/008/save_picture_603971.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ SparkFX 1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603004.jpg" />
+  <img src="Z:/picture/008/save_picture_603004.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ CameraBag Cinema 1.0.600 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599410.jpg" />
+  <img src="Z:/picture/008/save_picture_599410.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Apple iMovie 10.0.9 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597443.jpg" />
+  <img src="Z:/picture/008/save_picture_597443.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Adobe Media Encoder CC 2015 (9.0.0.222) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597322.jpg" />
+  <img src="Z:/picture/008/save_picture_597322.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Logic Pro X 10.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571830.jpg" />
+  <img src="Z:/picture/008/save_picture_571830.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Photo Theater Pro - Slideshow Movie Maker 4.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565191.jpg" />
+  <img src="Z:/picture/008/save_picture_565191.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VideoScan 1.0.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552136.jpg" />
+  <img src="Z:/picture/008/save_picture_552136.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Cutter - Cut & Crop Video 3.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531784.jpg" />
+  <img src="Z:/picture/008/save_picture_531784.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ GIF Brewery 3 - Video to GIF Creator 3.0.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528995.jpg" />
+  <img src="Z:/picture/008/save_picture_528995.jpg" />
 </div>
 
 

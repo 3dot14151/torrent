@@ -6,7 +6,7 @@ BurnAware Professional 3.2.0 [Русский/Украинский/Английс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727382.jpg" />
+  <img src="Z:/picture/005/save_picture_727382.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 7.36 Portable by Kopejkin [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727360.jpg" />
+  <img src="Z:/picture/008/save_picture_727360.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cyberfox 52.1.0 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727319.jpg" />
+  <img src="Z:/picture/008/save_picture_727319.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cyberfox 52.1.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727317.jpg" />
+  <img src="Z:/picture/008/save_picture_727317.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NetSetMan 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727311.jpg" />
+  <img src="Z:/picture/008/save_picture_727311.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Auslogics BoostSpeed 10.0.23.0  RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727300.jpg" />
+  <img src="Z:/picture/008/save_picture_727300.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kodi 18.1 Leia [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727299.jpg" />
+  <img src="Z:/picture/008/save_picture_727299.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727294.jpg" />
+  <img src="Z:/picture/008/save_picture_727294.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tor Browser Bundle 11.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727278.jpg" />
+  <img src="Z:/picture/008/save_picture_727278.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wise Memory Optimizer 3.46.97 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727236.jpg" />
+  <img src="Z:/picture/008/save_picture_727236.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727228.jpg" />
+  <img src="Z:/picture/008/save_picture_727228.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ PDF Shaper Professional 7.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727202.jpg" />
+  <img src="Z:/picture/008/save_picture_727202.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Opera 44.0.2510.1449 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727195.jpg" />
+  <img src="Z:/picture/008/save_picture_727195.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AI RoboForm2Go Enterprise 7.9.28.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727191.jpg" />
+  <img src="Z:/picture/008/save_picture_727191.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AusLogics BoostSpeed 9.1.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727190.jpg" />
+  <img src="Z:/picture/008/save_picture_727190.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adobe Acrobat Reader DC 2019.010.20098 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727187.jpg" />
+  <img src="Z:/picture/008/save_picture_727187.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727169.jpg" />
+  <img src="Z:/picture/008/save_picture_727169.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ IsoBuster Pro 4.9 Build 4.9.0.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727147.jpg" />
+  <img src="Z:/picture/008/save_picture_727147.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727061.jpg" />
+  <img src="Z:/picture/008/save_picture_727061.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Pepakura Designer 4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727022.jpg" />
+  <img src="Z:/picture/008/save_picture_727022.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ PowerISO 6.6 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727018.jpg" />
+  <img src="Z:/picture/008/save_picture_727018.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ AdwCleaner 6.046 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726988.jpg" />
+  <img src="Z:/picture/008/save_picture_726988.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Acronis True Image 2017 Build 8053 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726983.jpg" />
+  <img src="Z:/picture/008/save_picture_726983.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Total Commander 9.0a Extended 17.4 Full | Lite RePack (&Portable) by BurSoft [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726982.jpg" />
+  <img src="Z:/picture/008/save_picture_726982.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Mirillis Action! 2.4.1.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726980.jpg" />
+  <img src="Z:/picture/008/save_picture_726980.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Icecream Ebook Reader PRO 4.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726944.jpg" />
+  <img src="Z:/picture/008/save_picture_726944.jpg" />
 </div>
 
 

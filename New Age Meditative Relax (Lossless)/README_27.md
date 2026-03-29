@@ -1,3 +1,32 @@
+###  Публикация: 1652298   (206626) от 10.08.2023
+
+Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orlando (4:56)
+02. Seveness (5:29)
+03. Laguna (6:36)
+04. Pavane (3:01)(   Читать дальше...   )Жанр: Instrumental, New Age, AmbientПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DDA83986FD2CCA2B1176906F13061E804C0B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653530   (206187) от 16.08.2023
 
 Yin Yoga Music Collection, Interstellar Meditation Music Zone, Spa Music Consort - Positive Transformation (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
@@ -6,7 +35,7 @@ Yin Yoga Music Collection, Interstellar Meditation Music Zone, Spa Music Consort
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206187.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202249.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Sri Chinmoy Bhajan Singers (Шри Чинмой) - Sing (2008) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200470.jpg" />
+  <img src="Z:/picture/005/save_picture_200470.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_199888.jpg" />
+  <img src="Z:/picture/004/save_picture_199888.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, T
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199392.jpg" />
+  <img src="Z:/picture/005/save_picture_199392.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|WEB-DL|tracks|image] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197688.jpg" />
+  <img src="Z:/picture/004/save_picture_197688.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Nature's Magic The Voyage of the Whale (1996) [FLAC|Lossless|image + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192009.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Monks of Sherab Ling Monastery - Sacred Tibetan Chant (2003) [FLAC|Lossless|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191601.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Anuvida & Nik Tyndall - 3CD (1995-2005) [FLAC|Lossless|tracks +.cue] <New Age, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191532.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Gregorian - Pure Chants II (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambien
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189002.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187179.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185858.jpg" />
+  <img src="Z:/picture/004/save_picture_185858.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185846.jpg" />
+  <img src="Z:/picture/004/save_picture_185846.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ V.A. - Yoga Music Session, Vol. 4:  Relaxation & Meditation (2022) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184275.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Christian Grey & Sasha Black - The Fire of Love (2017) [FLAC|Lossless|WEB-DL|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178243.jpg" />
+  <img src="Z:/picture/005/save_picture_178243.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Malte Marten, Yatao, Leander Greitemann - To the Stars (Studio Live Sessions) (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171714.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170423.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168244.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167252.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167218.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Shinnobu - The Enigma IV (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spiritua
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167117.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Jean Michel Jarre - Images: The Best Of Jean Michel Jarre (1991) Compilation, Re
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165012.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164103.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164085.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164080.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71225143E2B54AE2C8C3600E5B3D7FD03609C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599495   (159619) от 24.12.2022
-
-Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLAC|Lossless|tracks + .cue] <New Age, World, Christian>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jishu Khristo
-02. Father we love
-03. Jishu nam
-04. My God(   Читать дальше...   )Жанр: New Age, World, ChristianПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5359963BEA59C97876B2C601970AAB8AE4D7AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

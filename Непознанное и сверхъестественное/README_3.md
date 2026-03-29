@@ -1,3 +1,55 @@
+###  Публикация: 991457   (905910) от 28.02.2016
+
+Экстрасенсы ведут расследование (2016.02.27) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C721E3EB7DFA624413DB1B6999AB56321BF975C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099277   (905107) от 01.02.2017
+
+Раскрывая мистические тайны. Близнецы (2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень часто можно услышать о необыкновенной связи, существующей между близнецами. Во многом сходство в поведении или мыслях близнецов объясняется их одинаковым воспитанием и окружением. И действительно, если вы растите двух близнецов, одеваете их в одну и ту же одежду, дарите им одинаковые подарки, вместе купаете, то логично от них ожидать и синхронного поведения (   Читать дальше...   )Производство: Москва МедиаЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFC8598C6B302BBE9FBEFDBF45576170DD4FE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099196   (904973) от 01.02.2017
 
 Наука 2.0. Большой Скачок. Наномир (2016) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904973.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904233.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904161.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903164.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899672.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899549.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899542.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897822.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895545.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893845.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_889471.jpg" />
+  <img src="Z:/picture/008/save_picture_889471.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888007.jpg" />
+  <img src="Z:/picture/005/save_picture_888007.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887487.jpg" />
+  <img src="Z:/picture/005/save_picture_887487.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887474.jpg" />
+  <img src="Z:/picture/005/save_picture_887474.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887457.jpg" />
+  <img src="Z:/picture/005/save_picture_887457.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886402.jpg" />
+  <img src="Z:/picture/005/save_picture_886402.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886396.jpg" />
+  <img src="Z:/picture/005/save_picture_886396.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882574.jpg" />
+  <img src="Z:/picture/005/save_picture_882574.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882564.jpg" />
+  <img src="Z:/picture/005/save_picture_882564.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882558.jpg" />
+  <img src="Z:/picture/005/save_picture_882558.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882411.jpg" />
+  <img src="Z:/picture/005/save_picture_882411.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880838.jpg" />
+  <img src="Z:/picture/005/save_picture_880838.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880100.jpg" />
+  <img src="Z:/picture/005/save_picture_880100.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879515.jpg" />
+  <img src="Z:/picture/005/save_picture_879515.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D18C00EAE12E95940DA69D69BA4C87ADB36FD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102310   (877694) от 16.02.2017
-
-Величайшие мистификации в истории / History's Greatest Hoaxes (2016) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) [обновляемая]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал, который рассказывает истории величайших мистификаций в мире глазами людей, которые их придумали и тех, которые разоблачили их.Телекомпания: ВеликобританияЖанр: Документальный, разоблачения, исследованиеПеревод: ДублированныйПродолжительность: 6 х ~ 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388D43690BE9EA635E9F4512CFA94CA975739822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996978   (877411) от 15.03.2016
-
-Самые шокирующие гипотезы. Засуньте эту диету  (15.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877411.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Самые шокирующие гипотезы" - документальный проект телеканала "Рен ТВ"! Мы дадим новые ответы на старые вопросы и зададим свои. Факты, о которых долго молчали наши коллеги-журналисты, и независимая оценка событий, изменивших мир. Расследования самых сенсационных историй и свежий взгляд на, казалось бы, общеизвестные исторические факты. Поиск (   Читать дальше...   )В этом выпуске: Почему сорок лет это предел человеческой жизни. Зачем распространяется ложь, а пользе правильного питания. Как жир продлит нашу жизньТелекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB87F0E2A2138E489057B81A5DB18E8BA19FCE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

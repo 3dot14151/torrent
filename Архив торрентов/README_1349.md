@@ -6,7 +6,7 @@ Internet Download Manager 6.30 Build 8 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749087.jpg" />
+  <img src="Z:/picture/008/save_picture_749087.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749001.jpg" />
+  <img src="Z:/picture/008/save_picture_749001.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ History Channel: Невероятные технологии древних / An
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748980.jpg" />
+  <img src="Z:/picture/008/save_picture_748980.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748941.jpg" />
+  <img src="Z:/picture/008/save_picture_748941.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748923.jpg" />
+  <img src="Z:/picture/008/save_picture_748923.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Детская площадка (2008) 5CD [APE|image + .cue]<Музыка 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748857.jpg" />
+  <img src="Z:/picture/008/save_picture_748857.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748769.jpg" />
+  <img src="Z:/picture/008/save_picture_748769.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Any DVD Converter Professional 4.2.1 ML/Rus + Any Video Converter Professional 3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748716.jpg" />
+  <img src="Z:/picture/008/save_picture_748716.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748702.jpg" />
+  <img src="Z:/picture/008/save_picture_748702.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748701.jpg" />
+  <img src="Z:/picture/008/save_picture_748701.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748700.jpg" />
+  <img src="Z:/picture/008/save_picture_748700.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Exia Emotions Vol.1 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748699.jpg" />
+  <img src="Z:/picture/008/save_picture_748699.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Damian Fink - Universal Trance (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748698.jpg" />
+  <img src="Z:/picture/008/save_picture_748698.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Inside Progress vol. 2 (2007) [FLAC|Lossless|tracks + .cue] <Progressive Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748697.jpg" />
+  <img src="Z:/picture/008/save_picture_748697.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748692.jpg" />
+  <img src="Z:/picture/008/save_picture_748692.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748689.jpg" />
+  <img src="Z:/picture/008/save_picture_748689.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mozilla Firefox 47.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748656.jpg" />
+  <img src="Z:/picture/008/save_picture_748656.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ HoudahGeo 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748649.jpg" />
+  <img src="Z:/picture/008/save_picture_748649.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Nevada Sky - Песенка Рэппера (2016) [MP3|320 кб/с] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748646.jpg" />
+  <img src="Z:/picture/008/save_picture_748646.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748636.jpg" />
+  <img src="Z:/picture/008/save_picture_748636.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748629.jpg" />
+  <img src="Z:/picture/008/save_picture_748629.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ DropDMG 3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748574.jpg" />
+  <img src="Z:/picture/008/save_picture_748574.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748566.jpg" />
+  <img src="Z:/picture/008/save_picture_748566.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Icecream Slideshow Maker 1.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748563.jpg" />
+  <img src="Z:/picture/008/save_picture_748563.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748560.jpg" />
+  <img src="Z:/picture/008/save_picture_748560.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ CCleaner 5.18.5607 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748559.jpg" />
+  <img src="Z:/picture/008/save_picture_748559.jpg" />
 </div>
 
 

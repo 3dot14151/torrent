@@ -6,7 +6,7 @@
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978417.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Antonio Lucio Vivaldi- The 37 Bassoon Concertos: English Chamber Orchestra Danie
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977309.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Liszt - Complete Tone Poems Vol.1 & Vol.2 (Bernard Haitink & London Philharmonic
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977305.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Stile Antico & Fretwork - Tune Thy Musicke to Thy Hart (2012) [FLAC|Lossless]<Sa
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977259.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Rouge Hot - Oriental Instruments VS Occidental Music (2005-2008) [FLAC|Lossless]
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975021.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tchaikovsky - Symphony No. 6; Scriabin: The Poem of Ecstasy - (Riccardo Muti & T
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974978.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ CPE Bach - Harpsichord Conceros Wq45, Wq3, Wq44, Wq32 (Ludger Remy & Les Amis De
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974930.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Jie Chen - Chinese Piano Favourites (2007) [FLAC|Lossless]<Classical Instrumenta
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974802.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ W.A.Mozart - Requiem/Symphony No.29: Karl Richter, MBO & Chor (1996) [FLAC|Lossl
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974662.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ London Philharmonic Orchestra - The 50 Greatest Pieces Of Classical Music (2011)
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974505.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Bach - The Organ Works (5 Toccatas & Fugues): Lionel Rogg (1993) [MP3|320]<Class
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972899.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Bach - Violin Sonatas BWV 1014, 1018 & 1019; Bach C.P.E. - 2 Violin Sonatas: Ros
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972898.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - 100 Best Adagio Voices (6CD Box-set) (серия "Best 100") (2008) [FLAC|L
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972444.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Albinoni Tomaso Giovanni–Oboe concertos Complete op.7&9: Stuttgart Chamber Orc
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972044.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Wiener Philharmoniker, Herbert von Karajan - Mozart – Requiem D-Moll KV626 (20
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970659.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Calm Modern Classical Music: 14 Relaxing and Chilled Classical Pieces (2020
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970553.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Mozart - Piano Concertos nos. 9, 17-27 (Barenboim - ECO) [6 CDs] (2010) [MP3|V0]
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966111.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Tchaikovsky ( П.И.Чайковский ) - Swan Lake (1992) [FLAC|Lossless|tra
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966019.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Gluck: Orfeo ed Euridice - Orpheo - Highlights Of The Versions For Vienna (
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965592.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Glenn Gould - Bach - The Goldberg Variations (1955) 2015, Sony [FLAC 2.0|44/24|W
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965486.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965439.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Pergolesi Giovanni Battista–Stabat Mater: M. Marshall L.V. Terrani C. Abbado L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963851.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962396.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Stravinsky - The Rite Of Spring / Mahler - Symphony No.1 (2014) [FLAC 2.0|48.0/2
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962094.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ Lev Oborin, David Oistrakh, Svyatoslav Knushevitckiy - Beethoven - Piano Trio in
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961955.jpg" />
 </div>
 
 
@@ -787,7 +787,7 @@ VA - 101 Classics: The Best Loved Classical Melodies (1998) 8CD [APE|image + .cu
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961903.jpg" />
 </div>
 
 

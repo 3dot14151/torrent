@@ -1,3 +1,84 @@
+###  Публикация: 1055079   (452959) от 08.10.2016
+
+Возлюбленная Юпитера / Jupiter's Darling (1955) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452959.jpg" />
+</div>
+
+
+###  Подробнее
+
+217 до нашей эры. Фабиус любит свой красивый, но уязвимый город — Рим, а также любит свою красивую, и неуязвимую невесту — Амитис. Очарованная рассказами о Ганнибале, который собирается напасть и разрушить на Рим, Амитис, гонимая любопытством, отправляется в расположения лагеря врага.
+Случайно выдав себя, она попадает в руки дозорных, и ее отводят к главнокомандующему. (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мьюзикл, Фэнтези, Мелодрама, Комедия, ПриключенияРежиссер: Джордж СидниАктеры: Эстер Уильямс, Ховард Кил, Мардж Чэмпион, Гауэр Чемпион, Джордж Сэндерс, Ричард Хейдн, Уильям Демарест, Норма Варден, Дагласс Дамбрилл, Генри КорденПеревод: Многоголосый закадровыйПродолжительность: 01:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119C358BDFB1370EB9CCAA245A64A92719B62831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247041   (452533) от 15.09.2018
+
+Именем итальянского народа (Полмиллиарда за алиби) / In nome del popolo italiano (1971) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен Сантеночито имеет обширные связи, мастерски дает взятки и расталкивает конкурентов не только локтями, но и остальными частями тела. Дельца ничуть не смущает, что его фабрика загрязняет окружающую среду. Главное, что она приносит доход. Но помехой на его пути встает судья Бонифацци — один из тех редких чиновников, к которым не подходят традиционные методы (   Читать дальше...   )Производство: Италия / International Apollo FilmsЖанр: Комедия, ДетективРежиссер: Дино РизиАктеры: Уго Тоньяцци, Витторио Гассман, Эли Галлеани, Ивонн Фюрно, Мишель Чимароза, Ренато Бальдини, Пьетро Торди, Мария Тереза Албани, Кекко Дуранте, Симонетта СтефанеллиПеревод: Дублированный, двухголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA05BA8F57E0EB373CA0FF144E989CE2DC057C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053630   (452463) от 08.10.2016
+
+Падение Римской империи / The Fall of the Roman Empire (1964) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правлению императора Марка Аврелия приходит конец, умирая, он назначает своим преемником не сына Комадаса, а полководца Гая Ливия, влюбленного в его дочь.
+Именно из-за этого Комадас все-таки приходит к власти и ситуация в Римской империи резко меняется: рушатся все военные и политические достижения, племена
+варваров вместе с предводителями бывших имперских провинций (   Читать дальше...   )Производство: США, Samuel Bronston ProductionsЖанр: Драма, военный, историяРежиссер: Энтони Манн/Anthony MannАктеры: Софи Лорен, Стивен Бойд, Алек Гиннесс, Джеймс Мейсон, Кристофер Пламмер, Энтони Куэйл, Джон Айрленд, Омар Шариф, Мел Феррер, Эрик Портер и др.Перевод: Профессиональный (многоголосный, закадровый)Язык субтитров: АнглийскийПродолжительность: 01:29:16 + 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F408E16FA13B0F6E8066BDD66183366F5B73E0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999015   (452152) от 04.09.2017
 
 451 градус по Фаренгейту / Fahrenheit 451 (1966) BDRip [H.264]
@@ -6,7 +87,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452152.jpg" />
+  <img src="Z:/picture/008/save_picture_452152.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451865.jpg" />
+  <img src="Z:/picture/008/save_picture_451865.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451363.jpg" />
+  <img src="Z:/picture/008/save_picture_451363.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451314.jpg" />
+  <img src="Z:/picture/008/save_picture_451314.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449996.jpg" />
+  <img src="Z:/picture/008/save_picture_449996.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449668.jpg" />
+  <img src="Z:/picture/008/save_picture_449668.jpg" />
 </div>
 
 
@@ -169,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449267.jpg" />
+  <img src="Z:/picture/008/save_picture_449267.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449024.jpg" />
+  <img src="Z:/picture/008/save_picture_449024.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448152.jpg" />
+  <img src="Z:/picture/008/save_picture_448152.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447999.jpg" />
+  <img src="Z:/picture/008/save_picture_447999.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447840.jpg" />
+  <img src="Z:/picture/008/save_picture_447840.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447823.jpg" />
+  <img src="Z:/picture/008/save_picture_447823.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447020.jpg" />
+  <img src="Z:/picture/008/save_picture_447020.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447011.jpg" />
+  <img src="Z:/picture/008/save_picture_447011.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446842.jpg" />
+  <img src="Z:/picture/008/save_picture_446842.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446528.jpg" />
+  <img src="Z:/picture/005/save_picture_446528.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445818.jpg" />
+  <img src="Z:/picture/008/save_picture_445818.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445681.jpg" />
+  <img src="Z:/picture/008/save_picture_445681.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445594.jpg" />
+  <img src="Z:/picture/008/save_picture_445594.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444616.jpg" />
+  <img src="Z:/picture/008/save_picture_444616.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444283.jpg" />
+  <img src="Z:/picture/008/save_picture_444283.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444246.jpg" />
+  <img src="Z:/picture/008/save_picture_444246.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444101.jpg" />
+  <img src="Z:/picture/008/save_picture_444101.jpg" />
 </div>
 
 
@@ -606,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9FF04660B39BE5F33A94F3E96D073E30135D489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162441   (443954) от 08.09.2017
-
-Дар любви / The Gift of Love (1958) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физик-теоретик Билл Бек и медсестра Джули полюбили друг друга с первого взгляда. Но после пяти лет счастливого брака Джули неожиданно узнает, что неизлечимо больна, и жить ей осталось совсем недолго. Боясь травмировать мужа, она не решается рассказать ему правду. Джули решает взять приемного ребенка — девочку по имени Хити. Она надеется, что после ее смерти малышка (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, МелодрамаРежиссер: Жан НегулескоАктеры: Лорен Бэколл, Роберт Стэк, Эвелин Руди, Лорн Грин, Энн Сеймур, Эдвард Платт, Джозеф Кернс, Розмари Эйс, Джон Брэдфорд, Роберт БрубэйкерПеревод: Многоголосый закадровый (Первый канал)Субтитры: ОтсутствуютПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0422807B33EFF109B8A8688A5C81FCEA2B482952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057424   (443889) от 12.10.2016
-
-Золотой сфинкс / La sfinge d'oro (1967) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работая в музее в Палермо, профессор Чарльз Николс расшифровал древнеегипетскую надпись на камне и узнал, что один из фараонов был обязан своим долголетием чудесному эликсиру. Сосуд с эликсиром был замурован вместе с мумией фараона в его гробнице. Николс вычислил место, где находится гробница и отправился с экспедицией в пустыню…Производство: Италия, Египет, Испания / Curtwel Productions, Italian International Film, PICASA (Producciones Internacionales Cinematogrficas Asociadas S.A.)Жанр: ПриключенияРежиссер: Луиджи СкаттиниАктеры: Роберт Тейлор, Анита Экберг, Джина Серра, Джакомо Росси Стюарт, Анхель дель Позо, Ремо Де Анджелис, Хосе Тручадо, Имад Хамди, Ахмед Камис, Мохаммед ТауфикПеревод: Двуголосый закадровый (ТВЦ)Продолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AC8363792E05B5D81C4B9590E3D959C6893E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162232   (443784) от 08.09.2017
-
-Канал / Kanal (1956) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о трагической судьбе во время Варшавского восстания 1944 года группы бойцов Армии Крайовы, которая пытается покинуть Варшаву через канализационные каналы.Производство: Польша / Zespol Filmowy "Kadr"Жанр: Драма, ВоенныйРежиссер: Анджей ВайдаАктеры: Тереза Ижевска, Тадеуш Янчар, Веньчислав Глиньский, Тадеуш Гвяздовский, Станислав Микульский, Эмиль Каревич, Владек Шейбал, Тереза Березовска, Зофиа ЛиндорфПеревод: Дублированный (СССР)Субтитры: Английские (отдельным файлом), Русские (отдельным файлом)Продолжительность: 01:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A9666D28EE6CA84014D04B045E69D0212A07AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

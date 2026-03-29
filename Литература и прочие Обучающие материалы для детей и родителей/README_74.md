@@ -1,3 +1,136 @@
+###  Публикация: 977950   (964811) от 22.01.2016
+
+С. Тачалов | Живые зонтики (1964) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FEB4582F0C9C0D8506F46DD53FCA7554886255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977940   (964807) от 22.01.2016
+
+Юрий Богушевич | В городке над Неманом (1973) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть для среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7647C4101584F7F9C6CA70BB6727DBB0310A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977939   (964789) от 22.01.2016
+
+Игорь Озимов и др. | Литературно-художественный альманах «Дружба», № 3 (1954) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мих. Жестев  Оленька.
+ Оленька спрыгнула с высокого школьного крыльца, обогнала шумную ватагу ребят и помчалась через березовую рощу в поле. Размахивая туго набитой клеенчатой сумкой, прыгая через лужи, еще не просохшие после первого весеннего дождя, она бежала по извилистой тропинке и что-то весело напевала высоким, чистым голосом. Она всегда что-нибудь пела, — то (   Читать дальше...   )Жанр: Советская проза, детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A4E9D521633210870EC7D3E8004E4D6BFF282D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977951   (964726) от 22.01.2016
+
+Юрий Томин | Избранное (1989) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964726.jpg" />
+</div>
+
+
+###  Подробнее
+
+В однотомник вошли лучшие произведения писателя: повести «Борька, я и Невидимка» городу волшебник», «Карусели над городом» и два рассказа.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CDE53FB8C5F05BAE5E5F488FA6E2ACA7D99001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978047   (964663) от 22.01.2016
+
+Л. М. Жариков | Бог и Лёнька. Рассказ (1976) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964663.jpg" />
+</div>
+
+
+###  Подробнее
+
+События, описанные в рассказе «Бог и Лёнька», происходили в маленьком шахтёрском городке в дореволюционные годы.
+
+Вы прочитаете о том, как жили тогда шахтёры, какую борьбу с царским произволом вели революционеры-подполыцики, как росли и мужали  дети шахтёрской бедноты. Из этого рассказа вы  узнаете о том, как сын рабочего Лёнька Устинов,  наивно (   Читать дальше...   )Жанр: Художественная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC43B696A991B4EA09843D62755C450599D3532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978124   (964447) от 22.01.2016
 
 Братья Гримм | Сказки (1963) [DJVU]
@@ -6,7 +139,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964447.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964285.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964207.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964205.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964195.jpg" />
 </div>
 
 
@@ -140,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964181.jpg" />
 </div>
 
 
@@ -168,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964153.jpg" />
 </div>
 
 
@@ -195,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964135.jpg" />
 </div>
 
 
@@ -224,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963953.jpg" />
 </div>
 
 
@@ -251,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963936.jpg" />
 </div>
 
 
@@ -277,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963742.jpg" />
 </div>
 
 
@@ -304,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963724.jpg" />
 </div>
 
 
@@ -330,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963548.jpg" />
 </div>
 
 
@@ -357,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963516.jpg" />
 </div>
 
 
@@ -385,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963336.jpg" />
 </div>
 
 
@@ -411,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963219.jpg" />
 </div>
 
 
@@ -439,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963215.jpg" />
 </div>
 
 
@@ -466,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963152.jpg" />
 </div>
 
 
@@ -492,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963029.jpg" />
 </div>
 
 
@@ -520,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963024.jpg" />
 </div>
 
 
@@ -546,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963022.jpg" />
 </div>
 
 
@@ -558,138 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF367C05C925341C755B3B878AE7D4DE83848716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747349   (963020) от 19.01.2014
-
-Ада Чумаченко | Город в лесах (1931) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще год тому назад кругом был только лес. А вот там, за холмами, где стоит сейчас Сергулькин дом, зелено болото. И так--на много километров.
-Лес, правда, стоит еще и теперь. А вот от болота и помину не осталось...Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73FA4573F8B5C2B72C836707F41C2D7BCDADDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747329   (963019) от 19.01.2014
-
-Николай Комаровский, Глеб Комаровский | Твои ровесники (1949) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тэдди Найс живет в столице Англии--в Лондоне.
-Тэдди, так-же как и тебе, девять лет, но он мал ростом и узкоплеч. Сейчас он спит и видит странный сон: огромная серая кошка холодной, мокрой лапой гладит его по щеке...Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F6F3BA4895DC71AE8AA9AB850827CC08CB602F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359963   (962992) от 13.02.2020
-
-Эндрю Лэнг | Желтая книга сказок (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962992.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Жёлтая книга сказок» под красочной обложкой таит русские, французские, венгерские, исландские и даже индейские сказки. Увлекательные истории о принцах и принцессах, ведьмах, феях и драконах были собраны воедино и переведены на английский Эндрю Лэнгом и собратьями по перу, а для русского читателя их с доблестью перевела Юлия Фокина. По традиции неповторимые иллюстрации (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B6C4B39DB4AF298B1C4F3099F06E6E1705AE93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359841   (962989) от 13.02.2020
-
-Т.Н. Терещенко (ред.) | Православные праздники [2-е издание] (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная книга красочной серии «Малая православная энциклопедия» рассказывает о праздниках и постах Русской Православной Церкви. Читатель узнает, как появился тот или иной праздник, как его отмечает Церковь, какие народные обычаи с ним связаны. Издание предназначено для широкого круга читателей, интересующихся историей России и Православия, в том числе для детей (   Читать дальше...   )Жанр: Духовная литература, Православие, ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C69C392FC3A9A32E1F8E0F202F552E74F41150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359729   (962979) от 13.02.2020
-
-Баррингтон Барбер | Рисуем пейзажи. Практический курс для художников (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для начинающего художника задача нарисовать пейзаж может показаться пугающей. С чего же начать? Автор бестселлеров, художник и преподаватель Баррингтон Барбер познакомит вас с техниками, материалами, методами и стилями, научит работать с пространством и основными элементами пейзажа, а с помощью пошаговых инструкций и упражнений вы научитесь рисовать его самостоятельно.Жанр: Изобразительное искусствоПеревод: О.О. ВирязоваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C291E7947EEC1BB31D010B61FA17F92FF808B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

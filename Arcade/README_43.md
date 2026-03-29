@@ -1,3 +1,29 @@
+###  Публикация: 464748   (80890) от 08.03.2012
+
+Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Коготь бежит из тюрьмы La Roca в поисках свободы и драгоценностей. Классический геймплей, множество красочных уровней и врагов. Можно играть по сети. В этой версии переведены даже звуки.Тип издания: RePackРазработчик: Monolith ProductionЖанр: ArcadeЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781213   (70303) от 22.02.2025
 
 Panic In The Woods (2024) [Ru/Multi] (1.0.1) Repack FitGirl
@@ -6,7 +32,7 @@ Panic In The Woods (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70303.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68036.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66147.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65642.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63519.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Hex Gambit: Respawned (2024) [Ru/Multi] (1.0.34+9115b5b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62040.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Knight Witch (2022) [Ru/Multi] (59.40571) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61887.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Tchia (2024) [Ru/Multi] (1.0/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61738.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Scene Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61649.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61629.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61538.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ ONE PIECE: PIRATE WARRIORS 4 (2020) [Ru/Multi] (1.0.8.0/dlc) Scene Rune [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61440.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ STAR WARS: Battlefront Classic Collection (2024) [Ru/Multi] (20240319/dlc) Repac
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61367.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61304.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ PJ Masks Power Heroes: Mighty Alliance (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61273.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ War Tortoise (2024) [Ru/Multi] (10000) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60530.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60472.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Shadow Strikers (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60160.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ South Park: Snow Day! (2024) [Multi] (70374/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60061.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59537.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59158.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Goons: Legends & Mayhem (2024) [Multi] (1.0.0.7) Repack FitGirl [Digital Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59098.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Battle Planet - Judgement Day (2019) [Multi] (1.7.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58891.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Omega Mouse Zero (2024) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58880.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ UFO Robot Grendizer - The Feast of the Wolves (2023) [Ru/Multi] (27.0.12191/dlc)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58851.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ UFO Robot Grendizer - The Feast of the Wolves предлагает взять н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:128BA769692049559F663C33E3D0CB553A8A6EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536378   (58732) от 24.04.2024
-
-Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почувствуйте себя бесстрашным капитаном бравых пиратов, в Buccaneers! - классической пиратской ролевой игре. Измените ход истории, присоединитесь к одной из уникальных фракций - сделайте все чтобы покорить коварное Карибское море. Buccaneers! предлагают огромный простор для реиграбельности, ищите легендарные сокровища, участвуйте в захватывающих морских баталиях, (   Читать дальше...   )Тип издания: LicenseРазработчик: Skyward DigitalЖанр: Экшны, Ролевая игра, Про мореЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53662CD3FEEC096DB09ED6FBF91C2058274717A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

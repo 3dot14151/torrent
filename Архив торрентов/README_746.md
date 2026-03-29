@@ -6,7 +6,7 @@ iA Writer 5.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883733.jpg" />
+  <img src="Z:/picture/005/save_picture_883733.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Car Audio Vol.9 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883726.jpg" />
+  <img src="Z:/picture/008/save_picture_883726.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883718.jpg" />
+  <img src="Z:/picture/005/save_picture_883718.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883715.jpg" />
+  <img src="Z:/picture/005/save_picture_883715.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ SyncMate Expert 8.1.475 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883707.jpg" />
+  <img src="Z:/picture/005/save_picture_883707.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Folx Pro 5 v5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883703.jpg" />
+  <img src="Z:/picture/005/save_picture_883703.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Tamayomi / Tamayomi: The Baseball Girls / Тамаёми [2020, TV, 1 из 12] W
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883697.jpg" />
+  <img src="Z:/picture/005/save_picture_883697.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_883677.jpg" />
+  <img src="Z:/picture/009/save_picture_883677.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883666.jpg" />
+  <img src="Z:/picture/008/save_picture_883666.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883664.jpg" />
+  <img src="Z:/picture/005/save_picture_883664.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ TunesKit Apple Music Converter 1.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883636.jpg" />
+  <img src="Z:/picture/005/save_picture_883636.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ TunesKit iBook Copy 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883635.jpg" />
+  <img src="Z:/picture/005/save_picture_883635.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Strive Minutes 3.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883623.jpg" />
+  <img src="Z:/picture/005/save_picture_883623.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883615.jpg" />
+  <img src="Z:/picture/005/save_picture_883615.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Advanced SystemCare Pro 14.6.0.307 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883592.jpg" />
+  <img src="Z:/picture/005/save_picture_883592.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Vocal Trance Hits (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883547.jpg" />
+  <img src="Z:/picture/005/save_picture_883547.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_883546.jpg" />
+  <img src="Z:/picture/009/save_picture_883546.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Newsflow 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883533.jpg" />
+  <img src="Z:/picture/005/save_picture_883533.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Kaizer - L'uomo in pausa (The Story) (2014) [MP3|320 Kbps] <Hip-Hop, Rap, Italia
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883531.jpg" />
+  <img src="Z:/picture/005/save_picture_883531.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_883525.jpg" />
+  <img src="Z:/picture/009/save_picture_883525.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883519.jpg" />
+  <img src="Z:/picture/005/save_picture_883519.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ WinUtilities Professional Edition 14.00 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883509.jpg" />
+  <img src="Z:/picture/005/save_picture_883509.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Sumatra PDF 3.3.12434 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883501.jpg" />
+  <img src="Z:/picture/005/save_picture_883501.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Unreal Commander 3.57 Build 1457 + GraphXPack + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883500.jpg" />
+  <img src="Z:/picture/005/save_picture_883500.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883499.jpg" />
+  <img src="Z:/picture/005/save_picture_883499.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ UninstallView 1.36 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883498.jpg" />
+  <img src="Z:/picture/005/save_picture_883498.jpg" />
 </div>
 
 

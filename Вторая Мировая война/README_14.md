@@ -1,3 +1,58 @@
+###  Публикация: 957925   (325739) от 19.11.2015
+
+Нюрнбергский набат. Репортаж из прошлого. Последнее сражение (2006) HDTV [H.264/1080i] (части 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_325739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм по книге Александра Звягинцева состоит из двух частей: "Последнее сражение" и "Казнь".
+Это ничем не примечательное здание в центре Нюрнберга особо отмечено в мировой истории.
+Нюрнберг - город ремесленников, музыкантов, игрушечных дел мастеров, многих поколений добропорядочных бюргеров, родина великого художника Дюрера - навсегда (   Читать дальше...   )Телекомпания: Россия HDЖанр: ДокументальныйПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1621391F56A1E139A6BD2A05A2CD1C54601C4227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259180   (323247) от 02.11.2018
+
+Разведка боем. Секретное оружие Виктора Леонова (2018) SATRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Николаевич Леонов (1916-2003) - советский моряк, дважды Герой Советского Союза, командир отдельных разведывательных отрядов Северного и Тихоокеанского флотов.
+Его называли «советским Джеймсом Бондом». Виктор Леонов - мировая легенда разведывательных и десантных операций. Гитлер считал его своим личным врагом. За голову легендарного разведчика была объявлена (   Читать дальше...   )Производство: Россия, ООО «ГПЦ Продакшн», по заказу ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, война, биография, спецподразделения, историяПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEA7AE01F4449B5CB0B56BBE22AD8F647C05E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330935   (320314) от 17.10.2019
 
 Освобождая Родину (2019) SATRip (1-6 серии из ??) (Обновляемая)
@@ -6,7 +61,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320314.jpg" />
+  <img src="Z:/picture/008/save_picture_320314.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318951.jpg" />
+  <img src="Z:/picture/008/save_picture_318951.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ NG. Гитлеровские лагеря смерти: американские
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318786.jpg" />
+  <img src="Z:/picture/008/save_picture_318786.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ NG. Из истории Второй мировой войны: за линия�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313866.jpg" />
+  <img src="Z:/picture/008/save_picture_313866.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ National Geographic. Из истории Второй мировой войны:
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313861.jpg" />
+  <img src="Z:/picture/008/save_picture_313861.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ National Geographic. Из истории Второй мировой войны:
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313658.jpg" />
+  <img src="Z:/picture/008/save_picture_313658.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312389.jpg" />
+  <img src="Z:/picture/008/save_picture_312389.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303778.jpg" />
+  <img src="Z:/picture/008/save_picture_303778.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ NG. Взгляд изнутри: Вторая мировая война: вой�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293158.jpg" />
+  <img src="Z:/picture/008/save_picture_293158.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290867.jpg" />
+  <img src="Z:/picture/008/save_picture_290867.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290839.jpg" />
+  <img src="Z:/picture/008/save_picture_290839.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290837.jpg" />
+  <img src="Z:/picture/008/save_picture_290837.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290197.jpg" />
+  <img src="Z:/picture/008/save_picture_290197.jpg" />
 </div>
 
 
@@ -349,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288916.jpg" />
+  <img src="Z:/picture/008/save_picture_288916.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287151.jpg" />
+  <img src="Z:/picture/008/save_picture_287151.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287138.jpg" />
+  <img src="Z:/picture/008/save_picture_287138.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284468.jpg" />
+  <img src="Z:/picture/008/save_picture_284468.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281676.jpg" />
+  <img src="Z:/picture/008/save_picture_281676.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271132.jpg" />
+  <img src="Z:/picture/008/save_picture_271132.jpg" />
 </div>
 
 
@@ -506,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270442.jpg" />
+  <img src="Z:/picture/008/save_picture_270442.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270400.jpg" />
+  <img src="Z:/picture/008/save_picture_270400.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267042.jpg" />
+  <img src="Z:/picture/008/save_picture_267042.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ National Geographic. Нераскрытые тайны Второй мирово
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264195.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ NG: Нераскрытые тайны Второй мировой войны / B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264167.jpg" />
 </div>
 
 
@@ -625,59 +680,6 @@ NG: Нераскрытые тайны Второй мировой войны / B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C8C7B23E439A502DB8C990DC80786F976021426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192686   (262734) от 18.12.2017
-
-Любовь, ненависть и пропаганда. Вторая мировая война / Love Hate & Propaganda (2010) SATRip (1 сезон, 6 серий из 6) [UA]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сериал о мире который сошел с ума и страшную войну.
-«Любовь, ненависть и пропаганда» является пособием по искусству массового убеждения. Сериал наглядно покажет роль пропаганды, которая была использована во время Второй Мировой войны и всколыхнула массы населения. Сотни тысяч людей шли на войну с непоколебимым внутренним убеждением. Кинохроника, плакаты, митинги, (   Читать дальше...   )Телекомпания: Канада, CBC LearningЖанр: Документальный, война, историяПеревод: ОтсутствуетЯзык озвучки: УкраинскийПродолжительность: 6 x ~ 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB570CD2F55D26924F51FE6049AF4DB7B718FF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500929   (258102) от 24.05.2012
-
-Прохоровка. Укрощение тигра (2003) TVRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258102.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 июля 1943 года на Курской дуге в районе станции Прохоровка в одном бою сошлось невиданное доселе количество танков. Здесь была впервые использована новейшая бронетанковая техника – "Тигры", "Пантеры" и "Фердинанды".Жанр: ДокументальныйРежиссер: И. МазепаПродолжительность: 00:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23603F7302B8A19FE68095FAE04FE069A17EC006
 ```
 
 https://mybot314.ru/tekegram_catalog/

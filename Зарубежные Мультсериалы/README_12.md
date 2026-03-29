@@ -1,3 +1,55 @@
+###  Публикация: 883128   (810862) от 01.04.2015
+
+Чародейки / W.I.T.C.H. (2006) DVDRip [H.264] (Сезон 2, серии 26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_810862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоначально на планете Меридиан, мире, живущем параллельно с Землей, правила легитимная власть в лице Королевы. Но в результате государственного переворота на планете установился режим принца Фобоса. Законная наследница меридианского трона Элион, дочь последней королевы была переправлена на Землю, в небольшой город Хиттерфилд верными последней королеве слугами. (   Читать дальше...   )Производство: Франция, SIP Animation ParisЖанр: Рисованная анимация, ПриключенияРежиссер: Норман ЛеБланкПерсонажи: Вилл Вэндом, Ирма Лэр, Тарани Кук, Корнелия Хейл, Хай ЛинПеревод: Полный дубляж, вкл. песниЯзык субтитров: русский, украинскийПродолжительность: 26 серии по 00:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFAE96C1804713F04E47F88B2DAB9519834F86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504761   (809916) от 24.10.2021
+
+Майя и три воина / Maya and the Three (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) Netflix
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809916.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном из четырёх волшебных королевств живёт отважная и непокорная принцесса-воительница по имени Майя. Однажды древнее пророчество вынуждает её отправиться в захватывающее путешествие, чтобы сокрушить богов и спасти человеческий род.Производство: Мексика, США / Maya Entertainment, Netflix AnimationЖанр: мультфильм, фэнтези, боевик, драма, комедия, приключения, семейныйРежиссер: Хорхе Р. ГутьерресАктеры: Зои Салдана, Хейли Эрмида, Каролина Равасса, Изабела Мерсед, Стефани Беатриз, Дэнни Трехо, Рита Морено, Гаэль Гарсиа Берналь, Куин Латифа, Альфред МолинаПеревод: ДублированныйСубтитры: русские (forced, full), английские (full), украинские (full)Продолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74EE249C25A58B6972A6D18BC7E89A5F6A824FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 836722   (809104) от 21.04.2016
 
 Аватар легенда о Корре. Книга2 - Духи. / Legend of Korra Book 2 (2013) WEB-DL [H.264/1080p-LQ] (Сезон 2, Серии 14 из 14)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809104.jpg" />
+  <img src="Z:/picture/008/save_picture_809104.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806666.jpg" />
+  <img src="Z:/picture/008/save_picture_806666.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805864.jpg" />
+  <img src="Z:/picture/008/save_picture_805864.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803319.jpg" />
+  <img src="Z:/picture/008/save_picture_803319.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802634.jpg" />
+  <img src="Z:/picture/008/save_picture_802634.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802633.jpg" />
+  <img src="Z:/picture/008/save_picture_802633.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802591.jpg" />
+  <img src="Z:/picture/008/save_picture_802591.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801618.jpg" />
+  <img src="Z:/picture/008/save_picture_801618.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800938.jpg" />
+  <img src="Z:/picture/008/save_picture_800938.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800917.jpg" />
+  <img src="Z:/picture/008/save_picture_800917.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800855.jpg" />
+  <img src="Z:/picture/008/save_picture_800855.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800563.jpg" />
+  <img src="Z:/picture/008/save_picture_800563.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800238.jpg" />
+  <img src="Z:/picture/008/save_picture_800238.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800072.jpg" />
+  <img src="Z:/picture/008/save_picture_800072.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800020.jpg" />
+  <img src="Z:/picture/008/save_picture_800020.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799415.jpg" />
+  <img src="Z:/picture/008/save_picture_799415.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798427.jpg" />
+  <img src="Z:/picture/008/save_picture_798427.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798399.jpg" />
+  <img src="Z:/picture/008/save_picture_798399.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797385.jpg" />
+  <img src="Z:/picture/008/save_picture_797385.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797288.jpg" />
+  <img src="Z:/picture/008/save_picture_797288.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796829.jpg" />
+  <img src="Z:/picture/008/save_picture_796829.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796516.jpg" />
+  <img src="Z:/picture/008/save_picture_796516.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795822.jpg" />
+  <img src="Z:/picture/008/save_picture_795822.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793317.jpg" />
+  <img src="Z:/picture/008/save_picture_793317.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D8335D08A19DE164DABDB59DE2276B7BFCF7E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385878   (793290) от 30.05.2020
-
-Вампирина / Vampirina (2017-2019) WEB-DL [H.264/720p-LQ] (сезон 1-2, серии 50 из 50) [UKR,EN]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка по имени Ви переезжает вместе со своей семьей в Пенсильванию. На новом месте юную героиню ждут и радости, и сложности. Ей будет непросто сразу найти друзей и освоиться в новой школе, ведь она так непохожа на сверстников. Ви родилась в Трансильвании в семье вампиров, и теперь им предстоит адаптироваться к жизни в человеческом мире. Заботливые родители и добрые (   Читать дальше...   )Производство: Ирландия, США, Brown Bag Films, Disney Enterprises, Disney JuniorЖанр: Мультсериал, мюзикл, фэнтези, комедия, семейныйРежиссер: Эхуд Ландсберг, Мартен, Йонмарк, Нортон Вирджиен, Ники ФеланПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:23:02 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E3ACBB3433D0C3CC7AA96FEB2DCAB9A19C6B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122678   (793183) от 06.04.2017
-
-Юная Лига Справедливости / Young Justice (2010 - 2012) WEB-DL [H.264/1080p-LQ] (Сезон 1, Серии 01-26 из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал о группе подростков-помощников Супергероев из Лиги Справедливости. Они захотели утвердиться и доказать своим опытным наставникам, что они готовы самостоятельно выполнять задания чрезвычайной опасности.Производство: СШАЖанр: ПриключенияРежиссер: Джей Олива, Майкл Чанг, Тим ДиварПерсонажи: Артемида, Робин, Кид-Флэш, Супербой, Мисс Марсианка и АквалэдПеревод: ДублированныйОзвучка / Автор перевода: ПифагорСубтитры: Русские форсированные (SkyeFilmTV), русские (Kapet's Studios, Supermedia, DCcomics, ZM-SHOW & Notabenoid) (кроме 10 серии), английские (Addic7ed)Продолжительность: 00:22:00 x 26 серий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0532AE7EC77A7A0B84CCCCBE1296C2DDCA58FAB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

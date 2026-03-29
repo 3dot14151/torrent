@@ -6,7 +6,7 @@ Topaz DeNoise AI 2.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786657.jpg" />
+  <img src="Z:/picture/008/save_picture_786657.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Maxon CINEMA 4D Studio S22.114 build RB315510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786648.jpg" />
+  <img src="Z:/picture/008/save_picture_786648.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IP-TV Player 50.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786633.jpg" />
+  <img src="Z:/picture/008/save_picture_786633.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Phoniks - Time Goes By (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786583.jpg" />
+  <img src="Z:/picture/008/save_picture_786583.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786580.jpg" />
+  <img src="Z:/picture/008/save_picture_786580.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ JRiver Media Center 26.0.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786576.jpg" />
+  <img src="Z:/picture/008/save_picture_786576.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ RegScanner 2.51 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786574.jpg" />
+  <img src="Z:/picture/008/save_picture_786574.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Kupla - Kingdom in Blue (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Lo-Fi, Ch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786570.jpg" />
+  <img src="Z:/picture/008/save_picture_786570.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Eraser 6.2.0.2988 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786555.jpg" />
+  <img src="Z:/picture/008/save_picture_786555.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Free Download Manager 6.10.0.3016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786553.jpg" />
+  <img src="Z:/picture/008/save_picture_786553.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Aiseesoft Blu-ray Player 6.6.28 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786552.jpg" />
+  <img src="Z:/picture/008/save_picture_786552.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ GridinSoft Anti-Malware 4.1.47.4953 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786548.jpg" />
+  <img src="Z:/picture/008/save_picture_786548.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ F-Stop Gallery Pro 5.3.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786529.jpg" />
+  <img src="Z:/picture/008/save_picture_786529.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ EMCO Network Software Scanner 2.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786528.jpg" />
+  <img src="Z:/picture/008/save_picture_786528.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ BELOFF [dp] 2020.05.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786524.jpg" />
+  <img src="Z:/picture/008/save_picture_786524.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ PanoramaStudio Pro 3.1.0.229 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786477.jpg" />
+  <img src="Z:/picture/008/save_picture_786477.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786471.jpg" />
+  <img src="Z:/picture/008/save_picture_786471.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Roots of Insanity (2017) [Ru/Multi] (4.13) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786468.jpg" />
+  <img src="Z:/picture/008/save_picture_786468.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Adobe Photoshop CC 2017.1 (18.1.0) [En+Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786450.jpg" />
+  <img src="Z:/picture/008/save_picture_786450.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786445.jpg" />
+  <img src="Z:/picture/008/save_picture_786445.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Adobe Premiere Pro CC 2017.0.2 11.0.2.47 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786444.jpg" />
+  <img src="Z:/picture/008/save_picture_786444.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ AIMP 4.13 Build 1893 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786434.jpg" />
+  <img src="Z:/picture/008/save_picture_786434.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786430.jpg" />
+  <img src="Z:/picture/008/save_picture_786430.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.1464/upd1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786422.jpg" />
+  <img src="Z:/picture/008/save_picture_786422.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786407.jpg" />
+  <img src="Z:/picture/008/save_picture_786407.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Threshold - For The Journey (2014) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786400.jpg" />
+  <img src="Z:/picture/008/save_picture_786400.jpg" />
 </div>
 
 

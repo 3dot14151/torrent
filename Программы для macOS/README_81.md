@@ -1,3 +1,139 @@
+###  Публикация: 1045980   (556779) от 25.08.2016
+
+CloudMagic Email 8.6.51 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cloudmagic — это отличный почтовый клиент
+Среди почтовых клиентов найти идеальный вариант сложнее всего. Всё потому, что мы пользуемся почтой каждый день и достаточно часто. Поэтому почтовое приложение должно быть максимально удобным, быстрым и простым. Неважно, какой почтовый сервис вы используете, благодаря мощной облачной технологии CloudMagic бесперебойно отправляет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18.08.2016Разработчик: CloudMagic, Inc.Поддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B741C1CCDE4A7EE8428A0404A1BFD8F433B92FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045982   (556776) от 25.08.2016
+
+Wi-Fi SpeedTest 2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение измеряет производительность вашего WiFi роутера, а именно скорость передачи данных по вашей WiFi или LAN сети. Подключение к интернету не обязательно. Для измерения требуется два устройства Apple: любой iPhone, iPad, iPod, Apple TV 4 или Mac.
+
+ВНИМАНИЕ!!!  Если оба устройства подключены через WiFi, результат измерения будет меньше, чем если бы одно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24.08.2016Разработчик: EVGENY BOGOMOLOVПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9DCB8E50833B60207C2C835C07642615FEF31D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309070   (552151) от 18.06.2019
+
+WindowMizer 5 v5.0.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552151.jpg" />
+</div>
+
+
+###  Подробнее
+
+WindowMizer является заменой WindowShade на Mac OS X.
+При двойном щелчке на заголовке окна, WindowMizer минимизирует окно в Dock и оставляет только одну строчку заголовка от открытого окна на экране. Если вы хотите, вернуться к тому, что вы делали, просто дважды щелкните на значок заголовка и окно восстановится из Dock.
+
+WindowMizer также помогает поддерживать рабочий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2019Разработчик: RGB World, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05817F2B4A807059A0BCB735287C9BE55916263A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308922   (552144) от 18.06.2019
+
+SmartMemoryCleaner 2.3.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552144.jpg" />
+</div>
+
+
+###  Подробнее
+
+SmartMemoryCleaner - это не просто приложение для очистки памяти Вашего Mac. Это - интеллектуальная утилита, с помощью которой Вы сможете полностью автоматизировать данный процесс!Тип издания: macOS SoftwareРелиз состоялся: 23.05.2019Разработчик: SmartMemoryCleanerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8F32D9DA3F5DE268CCD0FB815A60C0EF5BD64D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309142   (552136) от 18.06.2019
+
+VideoScan 1.0.0 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552136.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoScan отображает скрытую информацию о ваших мультимедийных документах. Приложение может анализировать ваши файлы, а также встроенные аудио и видео потоки. Он предоставляет вам много информации, включая внешний вид видео, количество кадров в секунду, используемую скорость передачи данных, частоту дискретизации звуковых дорожек, количество доступных каналов и т.д.Тип издания: macOS SoftwareРелиз состоялся: 17.06.2019Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7C4C6FFCFF30B411CF88F7280DD8A59477E9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309088   (551896) от 18.06.2019
 
 1Blocker 1.4.8 [En]
@@ -6,7 +142,7 @@
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551896.jpg" />
+  <img src="Z:/picture/008/save_picture_551896.jpg" />
 </div>
 
 
@@ -34,7 +170,7 @@ Comburet 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551022.jpg" />
+  <img src="Z:/picture/008/save_picture_551022.jpg" />
 </div>
 
 
@@ -63,7 +199,7 @@ uTorrent 1.8.7 (42515) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550751.jpg" />
+  <img src="Z:/picture/008/save_picture_550751.jpg" />
 </div>
 
 
@@ -89,7 +225,7 @@ BookReader 5.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550470.jpg" />
+  <img src="Z:/picture/008/save_picture_550470.jpg" />
 </div>
 
 
@@ -118,7 +254,7 @@ Architect 3D Professional 2017 Mac 19.0.8 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550224.jpg" />
+  <img src="Z:/picture/008/save_picture_550224.jpg" />
 </div>
 
 
@@ -146,7 +282,7 @@ Business Mix for Pages 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549249.jpg" />
+  <img src="Z:/picture/008/save_picture_549249.jpg" />
 </div>
 
 
@@ -175,7 +311,7 @@ Flyers Templates for Pages 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549245.jpg" />
+  <img src="Z:/picture/008/save_picture_549245.jpg" />
 </div>
 
 
@@ -202,7 +338,7 @@ Set for iWork 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549175.jpg" />
+  <img src="Z:/picture/008/save_picture_549175.jpg" />
 </div>
 
 
@@ -228,7 +364,7 @@ Aiseesoft PDF Converter 3.2.55 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549163.jpg" />
+  <img src="Z:/picture/008/save_picture_549163.jpg" />
 </div>
 
 
@@ -255,7 +391,7 @@ Movavi Mac Cleaner 2 v2.4.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548920.jpg" />
+  <img src="Z:/picture/008/save_picture_548920.jpg" />
 </div>
 
 
@@ -282,7 +418,7 @@ Caramba Switcher 2019.06.18 (beta) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548485.jpg" />
+  <img src="Z:/picture/008/save_picture_548485.jpg" />
 </div>
 
 
@@ -308,7 +444,7 @@ Spillo 1.8.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548419.jpg" />
+  <img src="Z:/picture/008/save_picture_548419.jpg" />
 </div>
 
 
@@ -337,7 +473,7 @@ Letterspace — Taking notes made easy 1.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548258.jpg" />
+  <img src="Z:/picture/008/save_picture_548258.jpg" />
 </div>
 
 
@@ -366,7 +502,7 @@ Cleaner Pro 1.14.451 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546337.jpg" />
+  <img src="Z:/picture/008/save_picture_546337.jpg" />
 </div>
 
 
@@ -393,7 +529,7 @@ TinkerTool System 4.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545676.jpg" />
+  <img src="Z:/picture/008/save_picture_545676.jpg" />
 </div>
 
 
@@ -420,7 +556,7 @@ Together 3.5.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544793.jpg" />
+  <img src="Z:/picture/008/save_picture_544793.jpg" />
 </div>
 
 
@@ -449,7 +585,7 @@ ArchiCAD 18 (3006) [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543951.jpg" />
+  <img src="Z:/picture/008/save_picture_543951.jpg" />
 </div>
 
 
@@ -477,7 +613,7 @@ Highland 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543853.jpg" />
+  <img src="Z:/picture/008/save_picture_543853.jpg" />
 </div>
 
 
@@ -506,7 +642,7 @@ Elements for iWork 2.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543813.jpg" />
+  <img src="Z:/picture/008/save_picture_543813.jpg" />
 </div>
 
 
@@ -532,7 +668,7 @@ Megapack for iWork 2015 v2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543761.jpg" />
+  <img src="Z:/picture/008/save_picture_543761.jpg" />
 </div>
 
 
@@ -561,7 +697,7 @@ PDF Expert 2.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543663.jpg" />
+  <img src="Z:/picture/008/save_picture_543663.jpg" />
 </div>
 
 
@@ -575,144 +711,6 @@ PDF Expert - это один из лучших инструментов для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582A2B08C00F8045C6C0320029A1A113EDF4C57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049634   (543661) от 05.09.2016
-
-Wondershare Video Converter Ultimate 5.3.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Video Converter Ultimate представляет собой полноценное решение для копирования, записи: DVD, IFO, ISO, видео и аудио конвертирования, онлайн-видео загрузки и передачи файлов на портативные устройства.Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: Mac OS X 10.6 or laterЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE21482E95F8D20AFD1213FB380E0D8C599E99D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049593   (543448) от 05.09.2016
-
-Bitdefender Antivirus 2016 v4.1.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bitdefender Antivirus for Mac - быстрый и эффективный антивирус, веб-защита и антифишинг, работающий в режиме реального времени.
-
-Компьютеры Mac не изолированы от других устройств. Как и все подключенные к Интернету компьютеры, они подвергаются вредоносным атакам. Оставайтесь в безопасности с Bitdefender Antivirus для Mac. С новой технологией защиты антивирус незаметно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 сентября 2016Разработчик: BitdefenderПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508F173D2B096FCC10377F8A4449CB23CE108B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049879   (542107) от 06.09.2016
-
-Inspiration Set for Pages 3.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inspiration Set – это новый вид ваших документов, созданных в Pages.
-Inspiration Set представляет собой коллекцию из 762 шаблонов, начиная от визитных карточек и плакатов до брошюр и книг как для личного использования, так и в работе.
-Большинство шаблонов содержат несколько разделов, что в общей сложности составляет более 700 макетов.
-Каждый объект в шаблоне может (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 апреля 2016Разработчик: JumsoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA2A988A62E66E07DA1D7C3C14E8EB24E36CCAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050105   (540518) от 07.09.2016
-
-Posters Templates for Pages 1.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Posters Templates for Pages представляет собой коллекцию из более чем 180 оригинальных шаблонов высокого качества, созданных придать уникальный вид вашему промо-материалу. Если вы пытаетесь рекламировать новый продукт, начать сезон продажи или объявить о  умопомрачительных событиях  Posters Templates for Pages поможет вам убедиться, что ваше продвижение является сложным (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 сентября 2016Разработчик: Graphic NodeПоддерживаемая ОС: OS X 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1418E1D5466F685364D644CEB7DB0EB25CA3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050095   (540507) от 07.09.2016
-
-MenuTab Pro for Facebook 6.9 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540507.jpg" />
-</div>
-
-
-###  Подробнее
-
-MenuTab Pro для Facebook является невероятно ловким и великолепным приложением для быстрого доступа к вашей учетной записи Facebook прямо с вашего меню Mac. Это один из самых популярных и активно скачиваемых приложений в Mac App Store, с более чем 2 миллионами счастливых пользователей!
-
-Почему MenuTab Pro лучшее приложение в своем роде?
-- Мгновенный доступ к Facebook (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09.09.2016Разработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B95A00C78CCA2E9E45AE4C6D1F0DA9211260CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

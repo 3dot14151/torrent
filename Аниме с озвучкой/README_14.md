@@ -1,3 +1,29 @@
+###  Публикация: 956593   (835769) от 07.04.2016
+
+Miss Monochrome 3 / Мисс Монохром 3 [2015, TV, 13] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет назад, когда человечество было на пике процветания, загадочная мисс Монохром и талантливая во всём девушка Кикуко вели ожесточенную борьбу за мировую популярность. Но в разгар их очередной битвы на Землю напали инопланетяне  и все земляне, включая Кикуко погибли. Мисс Монохром осталась на планете совсем одна и пока эволюция мира пошла на очередной виток (   Читать дальше...   )Производство: Япония, Liden Films, SanzigenЖанр: Повседневность, МузыкальныйРежиссер: Ивасаки ЁсиакиПродолжительность: 13 серий по 8 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2741A990E99CAFAA1AB8AE3019EE40946991615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113620   (835756) от 12.03.2017
 
 Империя трупов | Shisha no Teikoku | Империя мертвецов | The Empire of Corpses [2015, MV] BDRip 1080p rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835756.jpg" />
+  <img src="Z:/picture/008/save_picture_835756.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Heavy Object / Тяжёлый объект [2015, TV, 24 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835751.jpg" />
+  <img src="Z:/picture/008/save_picture_835751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835520.jpg" />
+  <img src="Z:/picture/008/save_picture_835520.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834965.jpg" />
+  <img src="Z:/picture/008/save_picture_834965.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 из 12] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834801.jpg" />
+  <img src="Z:/picture/008/save_picture_834801.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834464.jpg" />
+  <img src="Z:/picture/008/save_picture_834464.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Full Metal Panic? Fumoffu | Full Metal Panic Fumoffu | Fullmetal Panic Fumoffu |
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833688.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Full Metal Panic! The Second Raid | Full Metal Panic! Owaru Day By Day | Ста�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833687.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Full Metal Panic! | Стальная тревога! [2002, TV, 24 эп.] BDrip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833686.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Pokemon: Battle Frontier (9 Season) / Покемон: Боевой Рубеж (9
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831946.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Hai to Gensou no Grimga / Гримгал пепла и иллюзий [2016, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829979.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Fairy Tail Zero / Фейри Тейл Зеро [2016, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828087.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827419.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827350.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827349.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827348.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827347.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827346.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826312.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826231.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Лю�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825620.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825619.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825618.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825617.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 s
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825616.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5117BC59BB705AC08A659CCAB393EF954A97C778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381542   (825615) от 07.05.2020
-
-Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважный молодой воин Гатс испытывает судьбу в качестве наёмника на передовой. Роковая встреча сводит Гатса с харизматичным и беспощадным юношей по имени Гриффит. Возглавляя непобедимый отряд, известный как «Банда Ястреба», Гриффит владеет грозной силой, несравнимой ни с чем. Движимые стремлением к статусу, «ястребы» проявляют невиданную доселе доблесть в военных (   Читать дальше...   )Производство: Oriental Light and Magic, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Такахаси НаохитоОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 25 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817765260D1B8A99404DCE92263315001CA8B186
 ```
 
 https://mybot314.ru/tekegram_catalog/

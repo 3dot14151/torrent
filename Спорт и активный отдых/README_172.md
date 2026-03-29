@@ -1,3 +1,189 @@
+###  Публикация: 1769683   (100666) от 29.12.2024
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Нью-Йорк Айлендерс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100666.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 декабря 2024, воскресенье. 03:30 МСК. Стадион: Ю-Би-Эс-Арена (Элмонт, США), 17 255 зрителей (100% при вместимости 17 255)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: MSGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EEA2BA7CA3AA1E34204531EF0B683761CCC805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769685   (100665) от 29.12.2024
+
+НХЛ 2023-2024. Вашингтон Кэпиталз - Торонто Мэйпл Лифс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100665.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 декабря 2024, воскресенье. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 125 зрителей (94% при вместимости 20 270)
+Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Главный судья: Питер Макдугалл (Реджайна, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5536893E203D073336BE7E4F5CB348D549AD9550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770115   (100611) от 30.12.2024
+
+НХЛ 2024-2025. Нью-Йорк Айлендерс - Питтсбург Пингвинз (29.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_100611.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 декабря 2024, понедельник. 01:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 357 зрителей (98% при вместимости 18 673)
+Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Картер Сандлак (Лондон, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Си Джей Мюррей (Питтсбург, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE68444E7BCE9A63EEA909D3ABF03A85F379EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770117   (100610) от 30.12.2024
+
+НХЛ 2023-2024. Вашингтон Кэпиталз - Детройт Ред Уингз (29.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100610.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 декабря 2024, понедельник. 01:00 МСК. Стадион: Литтл Сизарс-арена (Детройт, США), 19 515 зрителей (100% при вместимости 19 515)
+Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада); Линейный: Кайл Флемингтон (Паркхилл, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EE4E7ED41A571252890E3764DF2667F6FE9BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822189   (99142) от 05.10.2025
+
+MotoGP. Этап 18 из 22. Гран-при Индонезии. Гонка (05.10.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99142.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 октября 2025 воскресенье. 10:00 МСК этап 18. Автодром Пертамина Мандалика. Гран-при Индонезии. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC71E8A84EC7E2A24CD1F6B6508239007286F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822124   (94533) от 05.10.2025
+
+Формула 1. Сезон 2025. Этап 18. Гран-при Сингапура. Квалификация (04.10.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94533.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 октября 2025 суббота 16:00 МСК этап 18 Сингапур. Гран-при Сингапура. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE910B598FE1C1B3B549D33C2788A60D36FAE80F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821892   (91210) от 04.10.2025
+
+MotoGP. Этап 18 из 22. Гран-при Индонезии. Квалификация (04.10.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91210.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 октября 2025 суббота. 05:50 МСК этап 18 Мандалика. Гран-при Индонезии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDFB85409E6B4103654633E9A360A381FEB5100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821939   (91174) от 04.10.2025
 
 MotoGP. Этап 18 из 22. Гран-при Индонезии. Спринт (04.10.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +192,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91174.jpg" />
 </div>
 
 
@@ -32,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бокс
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84591.jpg" />
 </div>
 
 
@@ -58,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83372.jpg" />
 </div>
 
 
@@ -84,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81234.jpg" />
 </div>
 
 
@@ -114,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79623.jpg" />
 </div>
 
 
@@ -140,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75977.jpg" />
 </div>
 
 
@@ -166,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71979.jpg" />
 </div>
 
 
@@ -193,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71978.jpg" />
 </div>
 
 
@@ -220,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71977.jpg" />
 </div>
 
 
@@ -249,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71940.jpg" />
 </div>
 
 
@@ -276,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71924.jpg" />
 </div>
 
 
@@ -303,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71870.jpg" />
 </div>
 
 
@@ -330,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71829.jpg" />
 </div>
 
 
@@ -357,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71827.jpg" />
 </div>
 
 
@@ -385,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71802.jpg" />
 </div>
 
 
@@ -412,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71793.jpg" />
 </div>
 
 
@@ -439,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71790.jpg" />
 </div>
 
 
@@ -466,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71788.jpg" />
 </div>
 
 
@@ -495,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71771.jpg" />
 </div>
 
 
@@ -507,194 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADAF130367693F4A7481C8C470CEA5AE88931368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772917   (71753) от 12.01.2025
-
-Смешанные единоборства. UFC Fight Night 249: Dern vs. Ribas 2 (11.01.2025) HDTVRip [H.264/720p]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Main card турнира "UFC Fight Night 249", прошедшего в UFC Apex in Enterprise, Nevada, part of the Las Vegas Valley, United States.Телекомпания: Матч! БоецЖанр: Спорт, смешанные единоборстваЯзык озвучки: русскийПродолжительность: 02:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9227828E6340529E10242DCA5E3BDF7B01C099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772916   (71746) от 12.01.2025
-
-НХЛ 2024-2025. Оттава Сенаторз - Питтсбург Пингвинз (11.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71746.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 января 2025, воскресенье. 00:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 043 зрителя (97% при вместимости 18 673)
-Главный судья: Джастин Кеа (Вудвиль, Канада); Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61D75AEEB2B9387E6E133AC494608F96773D49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772910   (71745) от 12.01.2025
-
-НХЛ 2024-2025. Вашингтон Кэпиталз - Нэшвилл Предаторз (11.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71745.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 января 2025, воскресенье. 04:00 МСК. Стадион: Бриджстоун-Арена (Нэшвилл, США), 17 159 зрителей (99% при вместимости 17 335)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Майкл Маркович (Скарборо, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8AA0030160034A75F18C63CF56F2C852FB59E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773078   (71728) от 13.01.2025
-
-НХЛ 2024-2025. Тампа-Бэй Лайтнинг - Питтсбург Пингвинз (12.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71728.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 января 2025, понедельник. 01:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 352 зрителя (93% при вместимости 18 673)
-Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Главный судья: Гислейн Эбер (Батерст, Канада); Линейный: Брайан Панкич (Грейт-Фолс, США); Линейный: Дэн Келли (США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98438DB2EE63AA3F6DE6037CE7D1826AF1063325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773545   (71695) от 16.01.2025
-
-НХЛ 2024-2025. Анахайм Дакс - Вашингтон Кэпиталз (14.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71695.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 января 2025, среда. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Либор Суханек (Стод, Чехия)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5EBAD89875A5640E90560FBFF4FB100B471B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773551   (71694) от 16.01.2025
-
-НХЛ 2024-2025. Сиэтл Кракен - Питтсбург Пингвинз (14.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71694.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 января 2025, среда. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 314 зрителей (87% при вместимости 18 673)
-Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Си Джей Мюррей (Питтсбург, США); Линейный: Брэндон Грилло (США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BDAF3F144833B3A79985758A81B65D3B734A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773962   (71600) от 18.01.2025
-
-НХЛ 2024-2025. Питтсбург Пингвинз - Баффало Сэйбрз (17.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71600.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 января 2025, суббота. 03:00 МСК. Стадион: Кибэнк-центр (Баффало, США), 19 070 зрителей (100% при вместимости 19 070)
-Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Линейный: Девин Берг (Китченер, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада)Телекомпания: MSGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723960498327553AA705070607AE10771EE2C98B
 ```
 
 https://mybot314.ru/tekegram_catalog/

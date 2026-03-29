@@ -1,3 +1,81 @@
+###  Публикация: 1368681   (909149) от 20.03.2020
+
+Кэтрин Эллисон | Мамин интеллект: Как рождение детей делает нас умнее (2017) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодых матерей не берут на работу, просто потому, что у них есть маленькие дети; их окружают стереотипы вроде «все женщины глупеют в декрете»; а хуже всего, они сами уверены: материнство губительно сказывается на уме. Но так ли это? Современные исследования утверждают: материнство делает нас умнее. Когда мы общаемся с малышом, у нас развивается сообразительность, (   Читать дальше...   )Жанр: Зарубежная прикладная литератураПеревод: Анастасия КазаковаФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841165E98100D5441131B4AADB6FAAB62400CAF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098167   (908931) от 30.01.2017
+
+И. В. Сухоплюев | Указатель литературы по антирелигиозной пропаганде (1924) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908931.jpg" />
+</div>
+
+
+###  Подробнее
+
+„Указатель" служит ариадниной нитью в лабиринте антирелигиозной литературы. Автор ставит своей задачей — облегчить отыскание нужной литературы по каждому отдельному вопросу в кратчайший срок, вооружить антирелигиозников, марксистские кружки и вообще читающие массы рабочих и крестьян имеющейся у них под руками литературой — при наименьшей затрате труда, облегчить (   Читать дальше...   )Жанр: История, политология, философия, литературоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32104CF35504443EDFB935EB8E82378C0F3CFC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098165   (908867) от 30.01.2017
+
+Юрий Жуков | Отравители. Полемические заметки о буржуазной идеологии и пропаганде (1975) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Отравители» — острые полемические заметки известного советского публициста Юрия Жукова о буржуазной идеологии и пропаганде. Автор показывает, в частности, теоретическую и практическую несостоятельность, реакционную сущность ряда новейших течений политической и философской мысли империалистических кругов Запада. Большое место в книге отводится разоблачению (   Читать дальше...   )Жанр: История, политология, журналистика, культурология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF35FB505650BD73051A820524E2E144568AF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368471   (908817) от 20.03.2020
 
 Владимир Винников (сост.) | Здравствуй, мобилизация! Русский рывок: как и когда? (2019) [FB2]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908817.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908486.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907210.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907109.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907033.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906493.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906184.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905565.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905562.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905404.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903605.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903572.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902503.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902491.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902432.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902419.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902417.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902222.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901901.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900775.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900434.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900330.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900187.jpg" />
 </div>
 
 
@@ -604,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76B621DCD50ABA7A3B2CA153D2694AA9A7899932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369833   (900060) от 25.03.2020
-
-Михаил Веллер | Поправки к отражениям (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика вечна. Эта аксиома формируется в нашем сознании с детства, еще со школьной парты. С одной стороны, это действительно так. Но с другой, мы разучились смотреть на мировую литературу критически, мыслить объективно. А ведь с классическими произведениями все не так просто…
-Чему учат лишние люди Онегин и Печорин? Какой пример показывает убийца Раскольников? А (   Читать дальше...   )Жанр: Литературоведение, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DECAE8D3D5DA7F25E3D447E773862433B833E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992920   (899093) от 03.03.2016
-
-Максим Калашников | Прорваться в будущее. От агонии – к рассвету! (2016) [FB2, DOCX]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максим Калашников – известный писатель-футуролог, публицист, общественный деятель. Один из основных авторов «Русской доктрины», ведущий эксперт Института динамического консерватизма, постоянный член Изборского клуба. Автор целого ряда бестселлеров, воспевающих великую советскую цивилизацию и исполненных надежды на то, что цивилизация эта не ушла в прошлое, а затаилась (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA6D3A8837DF45E9DCC1E17F7EA2F5C80ADE98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370263   (898344) от 26.03.2020
-
-Михаил Веллер | Не бойся завтра (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – об искусстве отличать правду от лжи, ум от глупости, а обещания счастливого будущего – от суровой реальности, грядущей все ближе. Частично включает в себя избранные места из вызвавшей шок «Веритофобии».Жанр: ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C602FB8E18DCA696E389C4B9D8B149A4B33502
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,172 @@
 https://t.me/izofen
+###  Публикация: 1862193   (1062978) от 
+
+Квартирник у Маргулиса. Калинов Мост (28.03.2026) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062978.jpg" />
+</div>
+
+
+###  Подробнее
+
+На НТВ — камерный концерт легенд отечественного рока, группы «Калинов Мост». В гостях у Евгения Маргулиса участники коллектива поделились подробностями о грядущем туре, а также исполнили свои главные хиты: «Сберегла», «Вслед за мной», «Четыре стороны», «Камушек», «Цветная», «Сон наградой». Зрители погрузились в атмосферу живого звучания знаковых композиций группы (   Читать дальше...   )00:00:06 Сберегла
+00:06:26 Вслед за мной
+00:13:06 Четыре стороны
+00:19:49 Камушек(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: фолк-рок, арт-рок, блюз-рокЯзык: РусскийПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4CB73ED3FAD159C5BC79A6C2202B0F8A0CC61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861686   (1062907) от 
+
+Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская группа из четырёх участниц компании P NATION. Дебютировали 23 июня 2025 года с сингловым альбомом "F Girl"
+After Cry - первый мини-альбом Baby DONT Cry. Он был выпущен 24 марта 2026 года с "Bittersweet" в качестве заглавного трека. Релиз клипа состоялся днем ранее. Предварительный релиз "Shapeshifter" состоялся 11 марта.Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7D9C74C566994B127C1B0C1EAD222D2DE167C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861473   (1062458) от 
+
+Fuki & Unlucky Morpheus - Fuki Fes Live (2016) [AV1/1080p] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Fuki (Unlucky Morpheus) - Fuki Fes. 2016 LIVE (Shinjuku ReNY 13.11.2016)01. Welcome to My Dream (instrumental)
+02. I'll Never Let You Down!
+03. Liberator
+04. Boku ga Ikiru Sekai / 僕が生きる世界(   Читать дальше...   )Жанр: Speed Metal, Power Metal, ProgressiveРежиссер: Nozomu Wakai, Takeshi NomuraУчастники: Fuki, Mao, ISAO, Atsushi Hasegawa, Takeo Shimoda, Hideki Otsuka, Nozomu Wakai, EijiroПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DBFF5E9B33A83C3E39547FF8CE9FDFF5E02D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861027   (1062198) от 
+
+Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская группа из пяти участниц компании TOP Media. Они дебютировали 1 ноября 2024 года с сингловым альбомом "Best Friendz".
+12 марта 2026 года ODD YOUTH выпустили свой второй сингловый альбом и клип "Babyface".Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C27A3892E43DE9724CA3A9C1858CA42C4F4123D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861051   (1062190) от 
+
+Narin - No Savior (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нарин (На Рин)- южнокорейская певица является участницей женской группы MEOVV.
+21 марта 2026 года состоялся релиз песни и клипа «NO SAVIOR» для дорамы tvN «Mad Concrete Dreams».Производство: Южная КореяЖанр: ElectronicaПродолжительность: 00:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8F72570441A7AD1E81024F55E9D945E8415E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860724   (1062019) от 
+
+Квартирник у Маргулиса. Женя Любич. Песни на стихи поэтов (21.03.2026) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя Любич на «Квартирнике НТВ у Маргулиса» представила атмосферную программу, исполнив композиции на стихи классиков мировой литературы (таких как Шекспир, Верлен) и поэтов Серебряного века. Певица, известная как «русская француженка», порадовала зрителей акустическим звучанием, сочетая французский шарм с авторской поэзией.00:00:06 Небо и звезды
+00:07:23 Кино и вино
+00:11:36 My Heart’s in the Highlands
+00:18:20 Ville de France(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-попЯзык: РусскийПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB485D5F845FBA9E1C46F03D5198A8C92E8D3CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860170   (1061855) от 
 
 DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
@@ -7,7 +175,7 @@ DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061855.jpg" />
+  <img src="Z:/picture/005/save_picture_1061855.jpg" />
 </div>
 
 
@@ -36,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061611.jpg" />
+  <img src="Z:/picture/005/save_picture_1061611.jpg" />
 </div>
 
 
@@ -65,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061457.jpg" />
+  <img src="Z:/picture/005/save_picture_1061457.jpg" />
 </div>
 
 
@@ -91,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061377.jpg" />
+  <img src="Z:/picture/005/save_picture_1061377.jpg" />
 </div>
 
 
@@ -117,7 +285,7 @@ MTV 80s Video Hits Collection (2026) SATRip [ex VH1] (parts 1-4)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061335.jpg" />
+  <img src="Z:/picture/005/save_picture_1061335.jpg" />
 </div>
 
 
@@ -145,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061226.jpg" />
+  <img src="Z:/picture/005/save_picture_1061226.jpg" />
 </div>
 
 
@@ -174,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061116.jpg" />
 </div>
 
 
@@ -203,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061000.jpg" />
+  <img src="Z:/picture/005/save_picture_1061000.jpg" />
 </div>
 
 
@@ -232,7 +400,7 @@ Crematory - Born (2026) WEBRip [H.265/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060999.jpg" />
+  <img src="Z:/picture/005/save_picture_1060999.jpg" />
 </div>
 
 
@@ -258,7 +426,7 @@ Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060810.jpg" />
+  <img src="Z:/picture/005/save_picture_1060810.jpg" />
 </div>
 
 
@@ -284,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060807.jpg" />
+  <img src="Z:/picture/005/save_picture_1060807.jpg" />
 </div>
 
 
@@ -313,7 +481,7 @@ Madein - Pung! (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060477.jpg" />
+  <img src="Z:/picture/009/save_picture_1060477.jpg" />
 </div>
 
 
@@ -339,7 +507,7 @@ RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/216
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060461.jpg" />
+  <img src="Z:/picture/009/save_picture_1060461.jpg" />
 </div>
 
 
@@ -365,7 +533,7 @@ NiziU - Emotion (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060460.jpg" />
+  <img src="Z:/picture/009/save_picture_1060460.jpg" />
 </div>
 
 
@@ -391,7 +559,7 @@ First Love (CSR) - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060459.jpg" />
+  <img src="Z:/picture/009/save_picture_1060459.jpg" />
 </div>
 
 
@@ -418,7 +586,7 @@ ILLIT - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060458.jpg" />
+  <img src="Z:/picture/009/save_picture_1060458.jpg" />
 </div>
 
 
@@ -447,7 +615,7 @@ Girls' Generation - FOREVER 1 (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060441.jpg" />
+  <img src="Z:/picture/009/save_picture_1060441.jpg" />
 </div>
 
 
@@ -473,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059992.jpg" />
+  <img src="Z:/picture/005/save_picture_1059992.jpg" />
 </div>
 
 
@@ -502,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058361.jpg" />
+  <img src="Z:/picture/005/save_picture_1058361.jpg" />
 </div>
 
 
@@ -528,7 +696,7 @@ Gary Moore - AVO session Basel  (2008) SATRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058325.jpg" />
+  <img src="Z:/picture/005/save_picture_1058325.jpg" />
 </div>
 
 
@@ -542,179 +710,6 @@ Gary Moore - AVO session Basel  (2008) SATRip [H.264]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD23BC8F226C70AF58B84C2E28E0B03389EAECD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855275   (1057980) от 22.02.2026
-
-Квартирник у Маргулиса. В честь защитников Отечества (21.02.2026) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057980.jpg" />
-</div>
-
-
-###  Подробнее
-
-В преддверии Дня защитника Отечества в уютной домашней атмосфере «Квартирника» Александр Вайнберг собрал друзей и коллег, чтобы вместе исполнить свои лучшие композиции. «Дайте вашим детям наши имена», «4 ноября», «Вот и всё», «Дождь», «Перекресток» и многие другие песни исполнили народный артист России Николай Расторгуев, заслуженный артист России SHAMAN, народный (   Читать дальше...   )00:00:00  Дождь
-00:07:12  Дайте вашим детям наши имена
-00:11:45  Водолей
-00:16:05  Перекресток(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: ПопЯзык: РусскийПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67948F620792ACFECCEA40FBD73E1F036CCE89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854836   (1057718) от 20.02.2026
-
-Ария - Это рок (2025) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем наш новый концертный альбом, записанный на двух полностью аншлаговых шоу в Санкт-Петербурге 17 и 18 октября 2024 года в клубе "Jagger". Трек-лист состоит из редко исполняемых и незаслуженно забытых композиций всех периодов существования АРИИ. Таким образом исключительный тур 'ЭТО РОК' увековечен и зафиксирован в памяти поклонников.Производство: Россия / AriaRussia, Arcane CinemЖанр: rock, metalРежиссер: Алексей МаршалкоАктеры: Михаил Житняков, Владимир Холстинин, Максим Удалов, Виталий Дубинин, Сергей ПоповПеревод: Не требуетсяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D950DE9FDFB923CF6C3BEC7E867453DA3604637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 60398   (1057489) от 19.02.2026
-
-М. Глинка Иван Сусанин (1979) DVD-5
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опера в четырёх действиях (семи картинах) с эпилогом. Либретто написано бароном Г. Розеном, личным секретарём наследника, весьма посредственным поэтом, к тому же плохо владевшим русским языком. Существует текст С.М. Городецкого для современной постановки оперы под названием "Иван Сусанин".
-
-Опера была написана в 1836 году. Первое представление состоялось (   Читать дальше...   )Жанр: ОпераРежиссер: А.Баранников/A.BarannikovВ ролях: Сусанин - Евгений Нестеренко
-Антонида - Бэла Руденко
-Собинин - Евгений Шапин
-Ваня - Раиса Котова(   Читать дальше...   )Формат: MPEGКачество: DVD5Продолжительность: 02:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED311CF664F2C063225DD510C253D4BA8CE6189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854162   (1057124) от 16.02.2026
-
-Квартирник у Маргулиса. Парк Горького (07.02.2026) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057124.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сцену вышли Алексей Белов, Александр Львов, Александр Маршал (Миньков) и Ян Яненков, что стало долгожданным событием для фанатов. Квартирник у Маргулиса обеспечил уютную камерную атмосферу, позволившую по-новому взглянуть на творчество легендарной рок-группы. Объединение участников «Парка Горького» продемонстрировало преемственность поколений, где драйв и бунтарский (   Читать дальше...   )00:00:05 Welcome to the Gorky Park
-00:05:35 Hello My Friend
-00:11:52 Tomorrow
-00:19:44 Liar(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: РокЯзык: РусскийПродолжительность: 01:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45E391C0994FE23BF6C683C437268E2710E930C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851274   (1055026) от 01.02.2026
-
-Квартирник у Маргулиса. Саша Алмазова (31.01.2026) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Камерный концерт лидера группы Non Cadenza Саши Алмазовой. Девушка окончила музыкальную школу по классу фортепиано и органа, а также активно занималась пением в хоре. В 2005 году вместе с саксофонистом Константином Пантелеевым она создала музыкальный коллектив Non Cadenza. Его основным материалом стали песни авторства Алмазовой, а также каверы известных треков.00:00:01 На берегу
-00:07:59 Времена года
-00:15:38 Сбереги
-00:21:06 Незнакомец(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: ДжазЯзык: РусскийПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837517ABF760FDD061D62C58FA4F964A51864090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849920   (1053904) от 25.01.2026
-
-Квартирник у Маргулиса. 111 лет Театральному институту имени Бориса Щукина (24.01.2026) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеканал НТВ продолжает серию атмосферных «Квартирников» камерным концертом в честь 111-летия Театрального института имени Бориса Щукина. На сцену поднимутся студенты и выпускники прославленного вуза, чтобы подарить зрителям неповторимый вечер, соединяющий театральное искусство и музыку. Торжественная программа начнётся с романтичного вальса «Принцесса Турандот», (   Читать дальше...   )00:01:05 Вальс из музыки к пьесе «Принцесса Турандот»
-00:04:15 I Love Coffee, I Love Tea
-00:10:05 Мой рояль
-00:18:50 Mon Homme(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: концертЯзык: РусскийПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFD350296CCFC3DF5D991C7C1E44D809AEBFD62
 ```
 
 https://mybot314.ru/tekegram_catalog/

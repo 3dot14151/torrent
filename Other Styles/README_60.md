@@ -6,7 +6,7 @@ VA - Cafe Chillout Ibiza Edition (2008) [MP3|167-233 kbps]<Lo-Fi>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722736.jpg" />
+  <img src="Z:/picture/008/save_picture_722736.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Los clasicos argentinos - Tango - Vol.17 - Francisco Canaro: El ritmo canye
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722501.jpg" />
+  <img src="Z:/picture/008/save_picture_722501.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Enigma & D-Emotion Project (2001) Bootleg [FLAC|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722262.jpg" />
+  <img src="Z:/picture/008/save_picture_722262.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rebekah Long - Here I Am (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722248.jpg" />
+  <img src="Z:/picture/008/save_picture_722248.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sayama - Yoga Meditations (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditat
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722245.jpg" />
+  <img src="Z:/picture/008/save_picture_722245.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The All Time Greatest Songs (2001) 30 CD [MP3|320 кб/с]<R&B, Pop, Dance,
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721951.jpg" />
+  <img src="Z:/picture/008/save_picture_721951.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Danheim - Munarvagr (2017) [MP3|320 Kbps] <Dark Folk, Dark Ambient>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721270.jpg" />
+  <img src="Z:/picture/008/save_picture_721270.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720826.jpg" />
+  <img src="Z:/picture/008/save_picture_720826.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ottmar Liebert + Luna Negra XL - Little Wing (2001) [FLAC|Lossless|image + .cue]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720820.jpg" />
+  <img src="Z:/picture/008/save_picture_720820.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720783.jpg" />
+  <img src="Z:/picture/008/save_picture_720783.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720743.jpg" />
+  <img src="Z:/picture/008/save_picture_720743.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Ballroom Nights vol.1-2 (4 CD) (2006, 2009) [MP3|256, 320 kbps] <Dance>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720740.jpg" />
+  <img src="Z:/picture/008/save_picture_720740.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Saxophone Hits (3CD Box) (2007) [FLAC|Lossless]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720732.jpg" />
+  <img src="Z:/picture/008/save_picture_720732.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720714.jpg" />
+  <img src="Z:/picture/008/save_picture_720714.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720546.jpg" />
+  <img src="Z:/picture/008/save_picture_720546.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ At The Movies - The Soundtrack Of Your Life - Vol.1 (2020) Reissue, 2022, Atomic
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720540.jpg" />
+  <img src="Z:/picture/008/save_picture_720540.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720439.jpg" />
+  <img src="Z:/picture/008/save_picture_720439.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720326.jpg" />
+  <img src="Z:/picture/008/save_picture_720326.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Origi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720303.jpg" />
+  <img src="Z:/picture/008/save_picture_720303.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720182.jpg" />
+  <img src="Z:/picture/008/save_picture_720182.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактик
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720057.jpg" />
+  <img src="Z:/picture/008/save_picture_720057.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактик
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720046.jpg" />
+  <img src="Z:/picture/008/save_picture_720046.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720039.jpg" />
+  <img src="Z:/picture/008/save_picture_720039.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Три девятки / Triple 9 (Or
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719938.jpg" />
+  <img src="Z:/picture/008/save_picture_719938.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Mil
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719727.jpg" />
+  <img src="Z:/picture/008/save_picture_719727.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Dean Evenson & Peter Ali - Prayers on the Wind (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719526.jpg" />
+  <img src="Z:/picture/008/save_picture_719526.jpg" />
 </div>
 
 

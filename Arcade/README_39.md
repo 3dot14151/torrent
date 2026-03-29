@@ -1,3 +1,29 @@
+###  Публикация: 1515577   (168024) от 08.12.2021
+
+Thunder Tier One (2021) [Ru/Multi] (1.0) License CODEX
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Thunder Tier One, реалистичного шутера с видом сверху, происходит в девяностые, сразу после развала СССР. Вы вступите в элитный отряд спецназа и попробуете остановить опасную террористическую организацию. Играйте в кооперативном режиме для 4 игроков или в одиночку (тогда на вашей команде будет ИИ). Тщательно выбирайте снаряжение и используйте тактические (   Читать дальше...   )Тип издания: LicenseРазработчик: KRAFTON, Inc.Жанр: Action, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8E84D54268DE96F8AF2AAF6737459ECEEA6AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672610   (167584) от 29.10.2023
 
 Vengeance of Mr. Peppermint (2023) [En] (226) License GOG
@@ -6,7 +32,7 @@ Vengeance of Mr. Peppermint (2023) [En] (226) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167584.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166310.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166170.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165823.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165354.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Arkanoid - Eternal Battle (2022) [Ru/Multi] (1.1.24/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164703.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Elasto Mania Remastered (2000) [En] (1.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164059.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Hamster on Rails (2023) [Ru/Multi] (1.0.44.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164025.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Dead or Alive 6 (2019) [Ru/Multi] (1.18/dlc) Repack =nemos= [Digital Deluxe Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163955.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163117.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162904.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Overcooked! 2 (2018) [Ru/Multi] (6.231.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161805.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) License G
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160937.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Space Tail: Every Journey Leads Home (2022) [Multi] (1.0.2r9/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159149.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Project Lazarus (2023) [Ru/Multi] (7.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159118.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Lunistice (2022) [Multi] (1.05a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156466.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Human: Fall Flat (2016) [Ru/Multi] (842523) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156304.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Sine Mora [En/Multi6] (Steam-Rip/1.0.0.1) 2012 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156219.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/u3) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156208.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Street Fighter X Tekken [Ru/En/Multi11] (Steam-Rip/1.02/9 DLC) 2012 | R.G. GameW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155589.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Sundered (2017) [Ru/Multi] (911) Repack xatab [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155068.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154619.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154529.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151947.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves (2023) [Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151893.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves предлагает взять н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE276794FCBB5267541C36B107A8BC79539D8203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086516   (151042) от 24.12.2016
-
-Street Fighter V 2017 (2016) [Ru/Multi] (2.0/dlc) Repack Other s [Deluxe Edition]
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная бойцовская серия возвращается! Встречайте игру STREET FIGHTER® V! Благодаря потрясающей графике, новое поколение Мировых Бойцов выглядит красиво, как никогда, а увлекательная и понятная боевая механика позволит и опытным, и начинающим игрокам подолгу наслаждаться динамичными битвами. Сыграйте с друзьями по сети, или сразитесь за честь и славу на турнире (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action, Arcade, Fighting, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205D5932C4683F405C383EDCB4E44C26EA899232
 ```
 
 https://mybot314.ru/tekegram_catalog/

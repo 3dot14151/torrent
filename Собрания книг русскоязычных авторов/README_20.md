@@ -1,3 +1,84 @@
+###  Публикация: 1434980   (147897) от 26.12.2020
+
+Роман Соловьев | Сборник произведений [7 книг] (2019-2020) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два друга занимаются не совсем законным бизнесом — они охотники за преступниками. Но однажды во время слежки за очередным преступником попадают через портал в другую реальность. В Россию, где история с 1920 года развивалась совершенно по-другому. Одному из героев в обмен на их жизни местные спецслужбы предлагают стать настоящим диверсантом, проникнуть на территорию (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33711119CC6CF7C4118787484BE56D0010B20E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434995   (147887) от 26.12.2020
+
+Станислав Соловьев | Сборник произведений [6 книг] (2018-2020) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фемида осознала себя в месте, где сотни агрессивных тварей рвут на части беззащитных людей. Непрекращающийся ливень в парке с аттракционами и крики жертв окружают ее, лишая надежды на спасение. Но теперь все выглядит иначе. Среди множества миров, где проходят контракты, появились союзники и враги. Новые способности помогли смелее смотреть в глаза опасности, а загадочная (   Читать дальше...   )Жанр: Боевая фантастика, ЛитРПГ, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC480D9A22DD2E89CBF998872A86E9337FA4586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589837   (147689) от 15.12.2012
+
+Алексей Фомичев | Сборник произведений (16 книг) [2002-2012] [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Сергеевич Фомичев (1970) - Российский писатель - фантаст.
+Имея за плечами двенадцать лет занятий самбо, рукопашным боем и боксом, перешел в частный охранный бизнес, где и проработал с 1993 по 2007 год. Профессиональный телохранитель. Инструктор по боевой и физической подготовке. Соавтор универсальной системы «Беланг», которую авторский коллектив создавал более десяти лет.
+Сам автор говорит, что когда начал писать, это занятие оказалось не намного легче работы инструктора, однако довольно интересное. Задумок, идей и проектов хватает, так что заниматься этим будет еще много лет.
+За 10 лет Фомичевым написано 16 фантастических романов, объединенных тремя циклами.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBA76D5D037C209F80C3AC3B29DB7559A235F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399357   (147293) от 26.12.2020
 
 Юрий Розин | Собрание сочинений [13 книг] (2018-2020) [FB2]
@@ -6,7 +87,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147293.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147240.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146699.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146625.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146530.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146281.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146167.jpg" />
 </div>
 
 
@@ -198,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146129.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145573.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145052.jpg" />
 </div>
 
 
@@ -277,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144973.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144868.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144610.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141219.jpg" />
 </div>
 
 
@@ -385,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140793.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139614.jpg" />
 </div>
 
 
@@ -446,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138466.jpg" />
 </div>
 
 
@@ -474,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137853.jpg" />
 </div>
 
 
@@ -500,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136372.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134530.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134426.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134424.jpg" />
 </div>
 
 
@@ -610,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134319.jpg" />
 </div>
 
 
@@ -621,94 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:105D657FC01CDF26A01DCA931D8A185D0D3A0568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594411   (133486) от 26.12.2012
-
-Вячеслав Жуков | Сборник произведений (11 книг) [2000-2008] [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вячеслав Владимирович Жуков - российский писатель, автор милицейско-полицейских детективов.
-Известны циклы Жукова о майоре Туманове (Убойный отдел - снят сериал Паутина) и Опера (Ларин, Дукалис и др.).
-Список книг:
-Киллер для мента
-Кодекс чести
-Маэстро, ваш выход!
-На графских развалинах
-Ненастоящий полковник
-Охота на президента
-По следу коршуна(   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C201713ECBA772C07A7320A25A7A76448ADC4C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403567   (130527) от 18.01.2022
-
-Данил Корецкий | Собрание сочинений [67 книг] (1985-2022) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данил Аркадьевич Корецкий — полковник милиции, доктор юридических наук, профессор, член Союза Российских писателей, Действительный член Академии экономики финансов и права. Родился в Ростове-на-Дону 4 августа 1948 г. в семье врачей. В детстве мечтал стать сыщиком, журналистом. Окончил Ростовский радиотехнический техникум (1967); Ростовский государственный институт, (   Читать дальше...   )Жанр: Шпионский детектив, Криминальный детектив, Исторический детектив, Ужасы, Боевик, Триллер, Фантастика, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37F0F748F0206F8437ED989F2F337803EF5FC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348338   (127745) от 16.12.2023
-
-Елена Михалкова | Собрание сочинений [53 книги] (2007-2023) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Елена Ивановна Михалкова — российский автор детективных романов. Родилась в городе Горьком (Нижний Новгород). Получив юридическое образование, работала по специальности, в том числе в милиции. Одно время Михалкова писала сценарии для детских телевизионных передач. Замужем, имеет дочь. В настоящее время проживает с семьей в Москве.
-Свой первый детективный роман Елена (   Читать дальше...   )Жанр: Современные детективыИздательство: Эксмо, Сетевое изданиеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A623132E3E0A4D4A4B212CC04E0594CF7FB4CEAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1130220   (716529) от 01.05.2017
+
+К. Н. Ковалев (сост.) | Историческое развитие быта женщины, брака и семьи (1931) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрестоматия содержит ряд систематизированных отрывков из специальных работ, посвященных историческому развитию быта женщины, семьи и брака. При большой ограниченности марксистской литературы по этому вопросу мы вынуждены были использовать и привести в хрестоматии фактический и описательный материал, который содержится в трудах наиболее добросовестных и вдумчивых (   Читать дальше...   )Жанр: История, политология, экономика, культурология, правоведение, религиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CE74EBA0B8144C05191CA0C4C4779B28DE7412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129856   (716422) от 01.05.2017
+
+Сьюзен Сонтаг  | Против интерпретации и другие эссе (2014) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716422.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Против интерпретации и другие эссе» (англ. Against Interpretation and Other Essays) — сборник эссе писательницы Сьюзен Зонтаг, опубликованный впервые в 1966 году. В книге собраны эссе, посвященные различным вопросам литературы, театра, изобразительного искусства и кино. Зонтаг, в частности, пишет о том, как зрителю взаимодействовать с произведением искусства в эпоху (   Читать дальше...   )Жанр: Литературная критикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC3F0DAE6E26BE7F8C52AE9D7B61165BA5357D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130400   (716419) от 01.05.2017
+
+Ольга Юречко | Донатас Банионис. Волны Океана Соляриса (2017) [RTF, FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя любовь известного актера Донатаса Баниониса – Ольга Юречко, простая учительница из Минска, жизнелюбивая, сильная духом личность. Она была поклонницей Донатаса с юности, всю жизнь мечтала о встрече со знаменитым актером, и только в зрелом возрасте ее мечте суждено было осуществиться. Совершая очередной велопробег по Европе, Ольга вспомнила о кумире своей (   Читать дальше...   )Жанр: Биографии, мемуарыФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20FB8E31FBF57E19CFBD7ABE5B01F70EF5B203B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 892690   (715205) от 28.04.2015
 
 Валерий Панюшкин | Михаил Ходорковский. Узник тишины: История про то, как человеку в России стать свободным и что ему за это будет (2006) [FB2, EPUB]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715205.jpg" />
+  <img src="Z:/picture/008/save_picture_715205.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714916.jpg" />
+  <img src="Z:/picture/008/save_picture_714916.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714913.jpg" />
+  <img src="Z:/picture/008/save_picture_714913.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714870.jpg" />
+  <img src="Z:/picture/008/save_picture_714870.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713817.jpg" />
+  <img src="Z:/picture/008/save_picture_713817.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713801.jpg" />
+  <img src="Z:/picture/008/save_picture_713801.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713376.jpg" />
+  <img src="Z:/picture/008/save_picture_713376.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712969.jpg" />
+  <img src="Z:/picture/008/save_picture_712969.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711969.jpg" />
+  <img src="Z:/picture/008/save_picture_711969.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711728.jpg" />
+  <img src="Z:/picture/008/save_picture_711728.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710857.jpg" />
+  <img src="Z:/picture/008/save_picture_710857.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710672.jpg" />
+  <img src="Z:/picture/008/save_picture_710672.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709842.jpg" />
+  <img src="Z:/picture/008/save_picture_709842.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ lee | Инструкция к телу (2016) [FB2, PDF, EPUB]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709320.jpg" />
+  <img src="Z:/picture/008/save_picture_709320.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709301.jpg" />
+  <img src="Z:/picture/008/save_picture_709301.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709191.jpg" />
+  <img src="Z:/picture/008/save_picture_709191.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709054.jpg" />
+  <img src="Z:/picture/008/save_picture_709054.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709016.jpg" />
+  <img src="Z:/picture/008/save_picture_709016.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709011.jpg" />
+  <img src="Z:/picture/008/save_picture_709011.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708907.jpg" />
+  <img src="Z:/picture/008/save_picture_708907.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707183.jpg" />
+  <img src="Z:/picture/008/save_picture_707183.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707178.jpg" />
+  <img src="Z:/picture/008/save_picture_707178.jpg" />
 </div>
 
 
@@ -595,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707108.jpg" />
+  <img src="Z:/picture/008/save_picture_707108.jpg" />
 </div>
 
 
@@ -608,85 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77525EA0128DB5E0F1F2C6A8397506F93EC6C2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287151   (707093) от 05.03.2019
-
-Ю. Е. Ивонин, Н. А. Гусакова (ред.) | И живы памятью столетий. Очерки о вождях народных движений в средневековой Европе (1987) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сквозь столетия угнетения и мрака пронесло человечество память о смелых и мужественных борцах, не мирившихся с эксплуатацией человека и засильем церкви. Среди них мы видим вождей народных движений в средневековой Европе. Из средневекового крестьянства и городского плебса выдвигались свои самобытные народные идеологи — пророки, страстно обличавшие феодальное неравенство (   Читать дальше...   )Жанр: История, политология, публицистика, биографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FF35150F43D49B88F60CDA54BD7B374B860555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026299   (705866) от 14.06.2016
-
-Эмиль Фаге | Культ некомпетентности (2005) [PDF, DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705866.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя:
-"Культ некомпетентности" - книга о демократии, в которой демократия увидена не в том или ином дефекте, а как дефект. Дефект назван по имени: некомпетентность. Не просто некомпетентность, как неизбежное зло, с которым мирятся, потому что не могут от него избавиться, а зло позволенное, систематически порождаемое и культивируемое. Ничего удивительного, (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88B486EC6B212A9AA98ACE96F186AEBA832EAE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402011   (705607) от 12.08.2020
-
-Анатолий Терещенко | Переосмысление. Историческое попурри (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана с целью показа переоценки некоторых устоявшихся в сознании современников исторических событий и явлений. Понятие правды у каждого свое. Нет пророка без порока. Истина где-то посередине, она вечна и однозначна. Эта книга и есть попытка подобраться к ней. А жанр короткого повествования может заинтересовать пытливого читателя.Жанр: Популярно об истории, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29939D8AF411999557D63A8E79677A7A1CB459BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

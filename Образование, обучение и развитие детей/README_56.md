@@ -1,3 +1,56 @@
+###  Публикация: 950710   (368031) от 27.10.2015
+
+Леонид Венгер, Александр Венгер | Вот и вышел человечек… (сборник) (2010) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368031.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы у нас стало принято очень серьезно заботиться о раннем развитии детей. Вот только забота эта подчас оборачивается своей противоположностью. В дошкольном возрасте важно развивать способности ребенка, а не снабжать его знаниями, которые он успеет приобрести позднее. Не запасом знаний, а умением их приобретать и использовать определяется успешность (   Читать дальше...   )Жанр: ПедагогикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFF6E4E0DC14512B73BE377159525427DEFDD44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950721   (368022) от 27.10.2015
+
+Елизавета Водовозова и др. | Царство свободного ребенка [Избранные статьи о воспитании] (2009) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Е.Н. Водовозова – один из виднейших ученых-педагогов своего времени, автор самой популярной дореволюционной книги для родителей «Умственное и нравственное воспитание детей от первого проявления сознания до школьного возраста», которая выдержала 7 изданий.
+Будучи ученицей К.Д. Ушинского, она отличалась самостоятельностью мышления, горячо отстаивала собственное мнение. (   Читать дальше...   )Жанр: ПедагогикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58DF79ABB5D2E72D326B01015D7B63CA31D8DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575852   (367745) от 15.11.2012
 
 Л.Л. Сикорук | Физика для малышей [1983] [PDF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367745.jpg" />
+  <img src="Z:/picture/008/save_picture_367745.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367490.jpg" />
+  <img src="Z:/picture/008/save_picture_367490.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366961.jpg" />
+  <img src="Z:/picture/008/save_picture_366961.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366242.jpg" />
+  <img src="Z:/picture/008/save_picture_366242.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365257.jpg" />
+  <img src="Z:/picture/008/save_picture_365257.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365253.jpg" />
+  <img src="Z:/picture/008/save_picture_365253.jpg" />
 </div>
 
 
@@ -173,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365200.jpg" />
+  <img src="Z:/picture/008/save_picture_365200.jpg" />
 </div>
 
 
@@ -200,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363153.jpg" />
+  <img src="Z:/picture/008/save_picture_363153.jpg" />
 </div>
 
 
@@ -228,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363013.jpg" />
+  <img src="Z:/picture/008/save_picture_363013.jpg" />
 </div>
 
 
@@ -256,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363008.jpg" />
+  <img src="Z:/picture/008/save_picture_363008.jpg" />
 </div>
 
 
@@ -284,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362740.jpg" />
+  <img src="Z:/picture/008/save_picture_362740.jpg" />
 </div>
 
 
@@ -312,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362725.jpg" />
+  <img src="Z:/picture/008/save_picture_362725.jpg" />
 </div>
 
 
@@ -338,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362592.jpg" />
+  <img src="Z:/picture/008/save_picture_362592.jpg" />
 </div>
 
 
@@ -364,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361358.jpg" />
+  <img src="Z:/picture/008/save_picture_361358.jpg" />
 </div>
 
 
@@ -390,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360934.jpg" />
+  <img src="Z:/picture/008/save_picture_360934.jpg" />
 </div>
 
 
@@ -417,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360541.jpg" />
+  <img src="Z:/picture/008/save_picture_360541.jpg" />
 </div>
 
 
@@ -443,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360524.jpg" />
+  <img src="Z:/picture/008/save_picture_360524.jpg" />
 </div>
 
 
@@ -469,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360208.jpg" />
+  <img src="Z:/picture/008/save_picture_360208.jpg" />
 </div>
 
 
@@ -495,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360106.jpg" />
+  <img src="Z:/picture/008/save_picture_360106.jpg" />
 </div>
 
 
@@ -521,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359979.jpg" />
+  <img src="Z:/picture/008/save_picture_359979.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358520.jpg" />
+  <img src="Z:/picture/008/save_picture_358520.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358313.jpg" />
+  <img src="Z:/picture/008/save_picture_358313.jpg" />
 </div>
 
 
@@ -599,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358253.jpg" />
+  <img src="Z:/picture/008/save_picture_358253.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358123.jpg" />
+  <img src="Z:/picture/008/save_picture_358123.jpg" />
 </div>
 
 
@@ -636,59 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D138DF62D0356544B1A1F838AFAAFF2D48C6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417526   (357796) от 20.10.2020
-
-Рената Кирилина, Сергей Кирилин | 25 техник эффективного обучения для интересного изучения математики с ребенком (2019) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как помочь ребенку полюбить математику? Эта книга поможет вам и вашим детям взглянуть по-новому на изучение математики, закрыть пробелы в знаниях и превратить учёбу в удовольствие.Жанр: Обучение и развитие детейФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4CA9C60551CD56FDDDB498C7F3D85834DED058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255292   (356801) от 07.11.2010
-
-О. Н. Пупышева | Задания школьных олимпиад. 1-4 классы (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_356801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее пособие содержит задания для школьных олимпиад в начальной школе по математике, русскому языку и курсу "Окружающий мир". Оригинальные познавательные и интеллектуальные задания позволят раскрыть способности младших школьников, повысить их интерес к различным наукам, развить творческую инициативу. Приводятся полные, подробные ответы.
-Издание адресовано (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

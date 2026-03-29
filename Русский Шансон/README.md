@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1860663   (1062258) от 
+
+Анатолий Таволжанский - Временно живой (2026) [MP3|320 Kbps] <Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Глаза горят [00:03:32]
+02 - Дожить до весны [00:03:02]
+03 - Синий май [00:03:28]
+04 - Лето ту ту [00:03:16](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B85C922DDDDDBEB0F82F3DADD4B9943D9CBF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860652   (1062256) от 
+
+Евгений Любимцев - Тропочки (2025) [MP3|256 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Эх, золотишко, эх, бриллианты [00:03:27]
+02 - Порой осенней тебя встречаю [00:03:42]
+03 - Ах, Нинка, Нинка, как ты без меня [00:03:37]
+04 - Давай с тобой опять поговорим [00:04:05](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116EC1A8943AA3588182E1491917F8D9DE39F49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859210   (1061286) от 
 
 Михаил Бондарев - Дороги, которые выбрали нас (2026) AI-generated content [MP3|256 Kbps] <Russian-chanson, rough-deep-male-voice>
@@ -7,7 +65,7 @@ https://t.me/izofen
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061286.jpg" />
+  <img src="Z:/picture/005/save_picture_1061286.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061214.jpg" />
+  <img src="Z:/picture/005/save_picture_1061214.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060842.jpg" />
+  <img src="Z:/picture/005/save_picture_1060842.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060517.jpg" />
+  <img src="Z:/picture/005/save_picture_1060517.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060515.jpg" />
+  <img src="Z:/picture/005/save_picture_1060515.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060514.jpg" />
+  <img src="Z:/picture/005/save_picture_1060514.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060512.jpg" />
+  <img src="Z:/picture/005/save_picture_1060512.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060511.jpg" />
+  <img src="Z:/picture/005/save_picture_1060511.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060510.jpg" />
+  <img src="Z:/picture/005/save_picture_1060510.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060509.jpg" />
+  <img src="Z:/picture/005/save_picture_1060509.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059676.jpg" />
+  <img src="Z:/picture/005/save_picture_1059676.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059675.jpg" />
+  <img src="Z:/picture/005/save_picture_1059675.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059674.jpg" />
+  <img src="Z:/picture/005/save_picture_1059674.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ iSenin - Ветры (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059190.jpg" />
+  <img src="Z:/picture/005/save_picture_1059190.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058927.jpg" />
+  <img src="Z:/picture/005/save_picture_1058927.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058498.jpg" />
+  <img src="Z:/picture/005/save_picture_1058498.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057673.jpg" />
+  <img src="Z:/picture/005/save_picture_1057673.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Александр Асмолов - Старый рубль (2026) AI-gener
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057655.jpg" />
+  <img src="Z:/picture/005/save_picture_1057655.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Красивый шансон (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055460.jpg" />
+  <img src="Z:/picture/005/save_picture_1055460.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055459.jpg" />
+  <img src="Z:/picture/005/save_picture_1055459.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 K
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054010.jpg" />
+  <img src="Z:/picture/005/save_picture_1054010.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Cha
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054008.jpg" />
+  <img src="Z:/picture/005/save_picture_1054008.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Vayper - Песни на стихи Юнны Мориц (2025) [MP3|~190 Kbps (V
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051443.jpg" />
+  <img src="Z:/picture/005/save_picture_1051443.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Vayper - Песни на стихи Николая Рубцова (Volume 1) (20
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051442.jpg" />
+  <img src="Z:/picture/005/save_picture_1051442.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Vayper - Песни на стихи Николая Рубцова (Volume 1) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C7474950D7184C0AB6E3B128D2C4628A18B645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845380   (1050838) от 
-
-Vayper - Песни на стихи Н. Гумилева (2025) [MP3|~190 Kbps (V2)] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Война [00:04:30]
-02. Детство [00:03:29]
-03. О, Господи [00:04:15]
-04. Озеро Чад [00:05:05](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDA2CAC8587A681F6A6DDDDEA1EAD2A8BAE7D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841217   (1048179) от 11.12.2025
-
-Ефимыч - Песни на стихи Сергея Есенина (2025) [MP3|320 Kbps] <Авторская песня, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мы теперь уходим [00:03:05]
-02 - Не бродить, не мять в кустах багряных [00:04:46]
-03 - Листья падают [00:02:04]
-04 - Подражанье песне [00:02:07](   Читать дальше...   )Жанр: Авторская песня, ChansonПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784DC327AA63ECBD5071837170CE006EDD307B56
 ```
 
 https://mybot314.ru/tekegram_catalog/

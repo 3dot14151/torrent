@@ -1,3 +1,81 @@
+###  Публикация: 1643989   (196132) от 06.07.2023
+
+Человек, которого никогда не было / The Man Who Never Was (1956) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это подлинная история об одной из операций Британской разведки. 1943. Союзники готовят вторжение в Сицилию и пытаются создать дезинформацию, что целью вторжения является Греция. Решение просто, но изобретательно: тело человека, умершего естественной смертью, оставляют на побережье Испании, переодев в форму летчика британских ВВС, с необходимым пакетом «секретных» (   Читать дальше...   )Производство: Великобритания / Sumar ProductionsЖанр: драма, военныйРежиссер: Роналд НимАктеры: Клифтон Уэбб, Глория Грэм, Роберт Флеминг, Жозефин Гриффин, Стивен Бойд, Лоуренс Нэйсмит, Джеффри Кин, Мултри Келсалл, Сирил Кьюсак, Андре МореллПеревод: Двуголосый профессиональный (5 канала СПб)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A70318040E5B6C6B48C9FFA35B73B186986686A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520958   (195949) от 08.07.2023
+
+Дед Мороз – отморозок / Le pere Noel est une ordure (1982) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такое впечатление, что все сумасшедшие со всей Франции решили встретить Новый Год вместе. Пьер и Тереза — не вполне вменяемые операторы парижского телефона доверия. Жозетта — городская дурочка с окраины. Ее нечистый на руку дружок Феликс, подрабатывающий Дедом Морозом на улицах. А также — все, кто мимо проходил, проезжал, пробегал. Праздничек получился — мама не (   Читать дальше...   )Производство: Франция /  Trinacra FilmsЖанр: КомедияРежиссер: Жан-Мари ПуарэАктеры: Анемон, Жозиан Баласко, Мари-Анн Шазель, Кристиан Клавье, Жерар Жюньо, Тьерри Лермитт, Бруно Муано, Мартен Ламотт, Жак Франсуа, Клер Маньен, Мишель Блан, Жаннетта Батти, Пьер Бело, Мишель БоннеПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C528FE63117FCA5DF027FDC53DDC3FAB33D3A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242867   (195941) от 08.07.2023
+
+Дед Мороз — отморозок / Le pere Noel est une ordure (1982) BDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такое впечатление, что все сумасшедшие со всей Франции решили встретить Новый Год вместе. Пьер и Тереза — не вполне вменяемые операторы парижского телефона доверия. Жозетта — городская дурочка с окраины. Ее нечистый на руку дружок Феликс, подрабатывающий Дедом Морозом на улицах. А также — все, кто мимо проходил, проезжал, пробегал. Праздничек получился — мама не (   Читать дальше...   )Производство: Франция / Trinacra FilmsЖанр: комедияРежиссер: Жан-Мари ПуареАктеры: Анемон, Жозиан Баласко, Мари-Анн Шазель, Кристиан Клавье, Жерар Жюньо, Тьерри Лермитт, Бруно Муано, Мартен Ламотт, Жак Франсуа, Мишель БланПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB4C15688EBB2CB646C9D0FDDA8EA54A9FA8C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644752   (195938) от 10.07.2023
 
 Трудный путь в Александрию / Ice Cold in Alex (1958) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195938.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195807.jpg" />
+  <img src="Z:/picture/004/save_picture_195807.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195500.jpg" />
+  <img src="Z:/picture/004/save_picture_195500.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195483.jpg" />
+  <img src="Z:/picture/004/save_picture_195483.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194191.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193820.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193012.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192660.jpg" />
+  <img src="Z:/picture/004/save_picture_192660.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192491.jpg" />
+  <img src="Z:/picture/004/save_picture_192491.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192389.jpg" />
+  <img src="Z:/picture/004/save_picture_192389.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192180.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191823.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191792.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191701.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191605.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191579.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191493.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191187.jpg" />
+  <img src="Z:/picture/004/save_picture_191187.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190823.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190364.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190109.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189921.jpg" />
+  <img src="Z:/picture/005/save_picture_189921.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189837.jpg" />
+  <img src="Z:/picture/005/save_picture_189837.jpg" />
 </div>
 
 
@@ -596,85 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9003894A44B66FAC6A4A7DF99302E2DFF969C93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587981   (189607) от 11.11.2022
-
-Тигр / Il tigre (1967) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189607.jpg" />
-</div>
-
-
-###  Подробнее
-
-У 45-летнего инженера Франческо Винчецини есть все, что нужно для счастья — престижная работа, красавица-жена, двое детей. Рождение внука не обрадовало, а только заставило задуматься о возрасте. Случайное знакомство с Каролиной ставит Франческо перед выбором — остаться с женой или все бросить и уехать с напористой девушкой.Производство: Италия / Fair FilmЖанр: Драма, КомедияРежиссер: Дино РизиАктеры: Витторио Гассман, Энн-Маргрет, Элинор Паркер, Фиоренцо Фиорентини, Антонелла Стени, Луиджи Вануччи, Катерина Боратто, Жак Эрлен, Элеонора Браун, Нино СегуриниПеревод: Многоголосый профессиональный, одноголосый любительскийСубтитры: Русские (Forced), английскиеПродолжительность: 01:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6274B23EF656431B7E64FB7A7BC113452A826CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657126   (188784) от 14.09.2023
-
-Вера Круз / Vera Cruz (1954) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший полковник южан Бенджамен Трэйн в поисках приключений отправляется в Мексику, воюющую за независимость. Ему без разницы, за кого воевать - повстанцев хуаристов или французского императора Максимилиана. В Мексике Бенджамен встречает такого же солдата удачи - Джо Эрина. Объединившись, напарники нанимаются к французам для эскорта молодой маркизы. В пути оказывается, (   Читать дальше...   )Производство: США, Мексика / Flora Productions, Hecht-Lancaster ProductionsЖанр: драма, приключения, вестернРежиссер: Роберт ОлдричАктеры: Гэри Купер, Берт Ланкастер, Денис Дарсел, Сесар Ромеро, Сара Монтьель, Джордж Макреди, Джек Элам, Эрнест Боргнайн, Джеймс МакКэллион, Моррис Анкрум, Джеймс Сиэй, Чарльз Бронсон, Генри БрэндонПеревод: Многоголосый профессиональный, двуголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46389CE68201886ACCD9DA9B79E9398B85763DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588434   (188708) от 14.11.2022
-
-Большая страна / The Big Country (1958) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина основана на романе Дональда Гамильтона "Засада в каньоне Бланко".
-XIX век. Юго-запад США. Среди длинных полос земель и гигантских каньонов находятся два поселения. Одно - майора Генри Террилла, другое - неудачника Руфуса Хэннеси. Они оба - абсолютные индивидуалисты, использующие для своего скота один и тот же водопой и враждующие между собой. Генри (   Читать дальше...   )Производство: США, Anthony Productions, Worldwide ProductionsЖанр: драма, мелодрама, вестернРежиссер: Уильям УайлерАктеры: Грегори Пек, Джин Симмонс, Кэррол Бейкер, Чарлтон Хестон, Берл Айвз, Чарльз Бикфорд, Альфонсо Бедойа, Шайлар Коби, Чак Хейуорд, Бафф БрэйдиПеревод: профессиональный многоголосый (ТРК Петербург 5 канал; DVD Магия)Субтитры: английскиеПродолжительность: 02:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050A04FD4CCF926E31E2F088A0524C24283A1351
 ```
 
 https://mybot314.ru/tekegram_catalog/

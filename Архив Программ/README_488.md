@@ -6,7 +6,7 @@ Readiris Corporate 15.1.0 Build 7155 RePack by MKN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794418.jpg" />
+  <img src="Z:/picture/008/save_picture_794418.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Foundry NUKE STUDIO 10.0v1 + HIERO 10.0v1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794410.jpg" />
+  <img src="Z:/picture/008/save_picture_794410.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cockos REAPER 6.11 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794388.jpg" />
+  <img src="Z:/picture/008/save_picture_794388.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AMD Radeon Software Crimson ReLive Edition 17.4.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794373.jpg" />
+  <img src="Z:/picture/008/save_picture_794373.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wondershare Filmora 7.2.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794360.jpg" />
+  <img src="Z:/picture/008/save_picture_794360.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Skype 7.23.32.105 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794344.jpg" />
+  <img src="Z:/picture/008/save_picture_794344.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ClipGrab 3.8.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794334.jpg" />
+  <img src="Z:/picture/008/save_picture_794334.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ GOM Player Plus 2.3.53.5317 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794330.jpg" />
+  <img src="Z:/picture/008/save_picture_794330.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dism++ 10.1.25.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794316.jpg" />
+  <img src="Z:/picture/008/save_picture_794316.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ W10Privacy 2.3.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794308.jpg" />
+  <img src="Z:/picture/008/save_picture_794308.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe Photoshop Lightroom 6.5.1 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794298.jpg" />
+  <img src="Z:/picture/008/save_picture_794298.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IcoFX 3.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794245.jpg" />
+  <img src="Z:/picture/008/save_picture_794245.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Novicorp WinToFlash Professional 1.6.0001 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794208.jpg" />
+  <img src="Z:/picture/008/save_picture_794208.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794199.jpg" />
+  <img src="Z:/picture/008/save_picture_794199.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Proc3durale V2.0.2 for Cinema 4D 2.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794177.jpg" />
+  <img src="Z:/picture/008/save_picture_794177.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ SysTweak Regclean Pro 8.3.81.594 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794175.jpg" />
+  <img src="Z:/picture/008/save_picture_794175.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Depliage V1.3 for Cinema 4D 1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794174.jpg" />
+  <img src="Z:/picture/008/save_picture_794174.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Revo Uninstaller Pro 3.1.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794148.jpg" />
+  <img src="Z:/picture/008/save_picture_794148.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.20 (2101) RePack (& Portable) by ZVSRu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794063.jpg" />
+  <img src="Z:/picture/008/save_picture_794063.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PrivaZer 3.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794054.jpg" />
+  <img src="Z:/picture/008/save_picture_794054.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ IObit Uninstaller Pro 8.2.0.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794043.jpg" />
+  <img src="Z:/picture/008/save_picture_794043.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Cockos REAPER 6.41 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794026.jpg" />
+  <img src="Z:/picture/008/save_picture_794026.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794014.jpg" />
+  <img src="Z:/picture/008/save_picture_794014.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ MediaHuman YouTube Downloader 3.9.8.20 (2101) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794005.jpg" />
+  <img src="Z:/picture/008/save_picture_794005.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Edge 95.0.1020.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793980.jpg" />
+  <img src="Z:/picture/008/save_picture_793980.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Aiseesoft Video Converter Ultimate 10.3.16 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793965.jpg" />
+  <img src="Z:/picture/008/save_picture_793965.jpg" />
 </div>
 
 

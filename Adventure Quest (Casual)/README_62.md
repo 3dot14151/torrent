@@ -6,7 +6,7 @@ Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117254.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7.2369) Repack Other s [Part 2]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116949.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608/dlc) Repack Other s [Par
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116944.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Unseen Fears 6: Fortune's Consequence (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116039.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maze of Realities 4: Symphony of Invension / Лабиринт реальност
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115721.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Book Travelers 2: A Royal Story / Книжные странники 2: Коро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115565.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Lost Legends of Redwall: The Scout Anthology (2024) [Multi] (1.0) Repack Fit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115271.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ qomp2 (2024) [Ru/Multi] (1.1.2257) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114734.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Crossroads 4: Fatal Truths (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114699.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Big Adventure: Trip to Europe 7 (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114541.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Criminal Archives 3: Murder in the Pages (2024) [Multi] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113604.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112974.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112420.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Criminal Archives 3: Murder in the Pages / Криминальные архивы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112381.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Edge of Reality 9: The Legend of Greenbush (2024) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112379.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wilde Investigations 2: Animal Sanctuary Shuffle (2024) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111934.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Lucky Season: King of Fools / Сезон удачи: Король глупцов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111848.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Reflections of Life 12: The Shattered Timeline / Отражения жизни 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111828.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111488.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ It Happened Here 3: A Storm is Brewing (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111206.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dark City 9: Amsterdam (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110786.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Paranormal Files 11: Sacrifice to Shadows (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109005.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Criminal Archives 4: Blade of Deceit (2024) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107712.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Detectives United 7: Mission Possible (2024) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107335.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ City of Stories 2: The Professor's Secret (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106460.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Enchantment: Secret Hideaway (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105869.jpg" />
 </div>
 
 

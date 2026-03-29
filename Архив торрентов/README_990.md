@@ -6,7 +6,7 @@ KMSoffline 2.3.3 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820813.jpg" />
+  <img src="Z:/picture/008/save_picture_820813.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Steve Birch - Wonderland (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance , Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820806.jpg" />
+  <img src="Z:/picture/008/save_picture_820806.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820804.jpg" />
+  <img src="Z:/picture/008/save_picture_820804.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Tipard Video Converter Ultimate 9.2.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820800.jpg" />
+  <img src="Z:/picture/008/save_picture_820800.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Amarra Symphony 4.0.223 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820793.jpg" />
+  <img src="Z:/picture/008/save_picture_820793.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Viber 6.0.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820785.jpg" />
+  <img src="Z:/picture/008/save_picture_820785.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ DriverPack Solution 16.4 Full + Драйвер-Паки 16.04.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820782.jpg" />
+  <img src="Z:/picture/008/save_picture_820782.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Q-Dir 8.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820769.jpg" />
+  <img src="Z:/picture/008/save_picture_820769.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Extreme Picture Finder 3.49.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820767.jpg" />
+  <img src="Z:/picture/008/save_picture_820767.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Insofta 3D Text Commander 5.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820765.jpg" />
+  <img src="Z:/picture/008/save_picture_820765.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Freemake Video Converter 4.1.11.25 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820764.jpg" />
+  <img src="Z:/picture/008/save_picture_820764.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820754.jpg" />
+  <img src="Z:/picture/008/save_picture_820754.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820751.jpg" />
+  <img src="Z:/picture/008/save_picture_820751.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820750.jpg" />
+  <img src="Z:/picture/008/save_picture_820750.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820749.jpg" />
+  <img src="Z:/picture/008/save_picture_820749.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820747.jpg" />
+  <img src="Z:/picture/008/save_picture_820747.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820746.jpg" />
+  <img src="Z:/picture/008/save_picture_820746.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Universal USB Installer 2.0.0.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820700.jpg" />
+  <img src="Z:/picture/008/save_picture_820700.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Movavi Video Editor Plus 22.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820696.jpg" />
+  <img src="Z:/picture/008/save_picture_820696.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Prodeus (2020) [Ru/Multi] (0.2.4) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820693.jpg" />
+  <img src="Z:/picture/008/save_picture_820693.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ KMSAuto Lite 1.6.1 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820686.jpg" />
+  <img src="Z:/picture/008/save_picture_820686.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Warp Frontier (2021) [En] (1.1.4) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820683.jpg" />
+  <img src="Z:/picture/008/save_picture_820683.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820675.jpg" />
+  <img src="Z:/picture/008/save_picture_820675.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Coolmuster PDF Creator Pro 2.1.19 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820672.jpg" />
+  <img src="Z:/picture/008/save_picture_820672.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820671.jpg" />
+  <img src="Z:/picture/008/save_picture_820671.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Hetman Office Recovery 2.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820670.jpg" />
+  <img src="Z:/picture/008/save_picture_820670.jpg" />
 </div>
 
 

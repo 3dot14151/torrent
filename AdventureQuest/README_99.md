@@ -1,3 +1,81 @@
+###  Публикация: 1765442   (27064) от 20.02.2025
+
+The Spirit of the Samurai (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27064.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Spirit of the Samurai - двухмерная игра в жанре sous-like, в которой смешаны хоррор, боевик и японский фольклор, а движения персонажей напоминают покадровую анимацию. В The Spirit of the Samurai игрокам станут японским самураем Такеши, который должен защитить свою деревню от натиска демонов Они. Впрочем, противостоять полчищам нежити будут три разных персонажа: (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Mind GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957D7329A227C9E550F10529110D0515CAF93E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780830   (27042) от 20.02.2025
+
+Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrack Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое нарративное путешествие от создателей Life is Strange. Снимите собственный фильм про лето 1995 года, которое вашей новой компании запомнится на всю жизнь. Двадцать семь лет спустя всем вам придется вновь столкнуться с мрачными секретами, о которых вы договорились никогда не вспоминать.Тип издания: RepackРазработчик: DON'T NODЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780915   (27032) от 20.02.2025
+
+Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое погружение во тьму от создателей культовой серии Amnesia. Преодолевая отчаяние и безысходность, вам предстоит проверить на прочность человеческую способность выносить страдания. Вы не решаетесь даже дышать. Тварь в считанных сантиметрах от вас. И она жаждет насытиться охватившим вас ужасом. И вот вы, согнувшись, крадетесь во тьме, пытаясь подавить страх и заглушить (   Читать дальше...   )Тип издания: RepackРазработчик: Frictional GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3CA1CE21CABEB9253EEF047F9FD207D7F05866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780916   (27025) от 20.02.2025
 
 Amnesia: The Bunker (2023) [Ru/Multi] (1.31) Repack Let'sРlay
@@ -6,7 +84,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.31) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27025.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27014.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27004.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26974.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26838.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26826.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26816.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Geminism (2025) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26811.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26725.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26712.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26702.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26660.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26644.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ NORCO (2022) [Ru/Multi] (1.5.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26642.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26632.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26626.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Shell Part II: Purgatorio (2024) [Multi] (1.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26620.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26590.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26587.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26412.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26241.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26229.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26228.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D3EDE9E1007C37A77509FA7D01F92776D8331D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782932   (25820) от 03.03.2025
-
-My Hotel (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25820.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Hotel – в этом странном и пугающем месте скрывается немало секретов, опасностей и рисков. Если игрок допустит ошибку, жизнь быстро закончится, так что вы должны быть максимально внимательны и проникнуться оригинальной атмосферой проекта. Вы отправляетесь в Чикаго 50х, вам предстоит начать управлять отелем. Каждый коридор будет скрывать опасные секреты. В этом (   Читать дальше...   )Тип издания: RepackРазработчик: BrainSwapperЖанр: Приключенческие игры, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EB364F3CF15896A433A0890032FD3429A374AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672895   (25595) от 06.03.2025
-
-Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы идете по лесной тропе, и в конце этой тропы стоит хижина. А в подвале этой хижины находится Принцесса. Ты здесь, чтобы убить ее. Если вы этого не сделаете, это будет конец света. Она сделает все, что в ее силах, чтобы остановить вас. Она очарует, и она солжет, и она пообещает тебе мир, и если ты позволишь ей, она убьет тебя дюжину раз. Вы не можете позволить этому (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Tabby GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB8ECED3F546EBE738B64DB81114DD9B326642A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783455   (25513) от 06.03.2025
-
-Phoenix Springs (2024) [En] (1.1.7) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой отправляется на поиски пропавшего брата Лео, что приводит геймеров в загадочный мир Феникс-Спрингс. Этот оазис в пустыне - не просто фон, это самостоятельный персонаж, наполненный тайнами, которые переплетаются с жизнями его обитателей. Геймерам предстоит пройти через ряд взаимодействий, раскрывающих как причуды сообщества, так и теневые истории, которые (   Читать дальше...   )Тип издания: LicenseРазработчик: Calligram StudioЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F679D3AFF6DCC34697738513C94A7599D0D847FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

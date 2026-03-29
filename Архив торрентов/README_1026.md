@@ -6,7 +6,7 @@ TagScanner 6.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812059.jpg" />
+  <img src="Z:/picture/008/save_picture_812059.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812055.jpg" />
+  <img src="Z:/picture/008/save_picture_812055.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812053.jpg" />
+  <img src="Z:/picture/008/save_picture_812053.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812051.jpg" />
+  <img src="Z:/picture/008/save_picture_812051.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ VA - Above All Records - The Best Of 2017 (2018) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812026.jpg" />
+  <img src="Z:/picture/008/save_picture_812026.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Briana Marela - Call It Love (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Fo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812025.jpg" />
+  <img src="Z:/picture/008/save_picture_812025.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811988.jpg" />
+  <img src="Z:/picture/008/save_picture_811988.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Internet Download Manager 6.39 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811987.jpg" />
+  <img src="Z:/picture/008/save_picture_811987.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Internet Download Manager 6.39 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811986.jpg" />
+  <img src="Z:/picture/008/save_picture_811986.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Movavi Screen Recorder 22.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811982.jpg" />
+  <img src="Z:/picture/008/save_picture_811982.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Remote Desktop Manager Enterprise Edition 2021.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811972.jpg" />
+  <img src="Z:/picture/008/save_picture_811972.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ StartAllBack 3.0.0 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811966.jpg" />
+  <img src="Z:/picture/008/save_picture_811966.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811944.jpg" />
+  <img src="Z:/picture/008/save_picture_811944.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811943.jpg" />
+  <img src="Z:/picture/008/save_picture_811943.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811942.jpg" />
+  <img src="Z:/picture/008/save_picture_811942.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811941.jpg" />
+  <img src="Z:/picture/008/save_picture_811941.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811937.jpg" />
+  <img src="Z:/picture/008/save_picture_811937.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811936.jpg" />
+  <img src="Z:/picture/008/save_picture_811936.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811932.jpg" />
+  <img src="Z:/picture/008/save_picture_811932.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811930.jpg" />
+  <img src="Z:/picture/008/save_picture_811930.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Peder Mannerfelt - Controlling Body (2016) [FLAC|Lossless|tracks] <Electronic, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811927.jpg" />
+  <img src="Z:/picture/008/save_picture_811927.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Vermin Vibes - This Is Our World (2016) Single [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811924.jpg" />
+  <img src="Z:/picture/008/save_picture_811924.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811923.jpg" />
+  <img src="Z:/picture/008/save_picture_811923.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Teorex DupHunter 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811921.jpg" />
+  <img src="Z:/picture/008/save_picture_811921.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811920.jpg" />
+  <img src="Z:/picture/008/save_picture_811920.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Gordey Tsukanov - Far Away But Close (2016) Single [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811915.jpg" />
+  <img src="Z:/picture/008/save_picture_811915.jpg" />
 </div>
 
 

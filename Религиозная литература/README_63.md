@@ -1,3 +1,81 @@
+###  Публикация: 1154551   (537144) от 01.08.2017
+
+Г. А. Гурев | Дарвинизм и религия. Из истории идеологической борьбы в биологии (1957) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537144.jpg" />
+</div>
+
+
+###  Подробнее
+
+При всей важности для истории естествознания выступлений ранних натуралистов-эволюционистов только Чарлзу Роберту Дарвину (1809—1882) привелось дать вполне убедительные, неопровержимые доказательства существования органической эволюции, т.е. непостоянства, «текучести» видов и их преемственности, родственной связи, и создать строго научное учение об историческом развитии (   Читать дальше...   )Жанр: Политология, биология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9EF310944C66DD9F9CE03484C152E4FC135B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154902   (537079) от 01.08.2017
+
+Ковчег (изд.) | Великие русские старцы. Жизнеописания, чудеса, духовные наставления. (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949D07052C5D7D20C3085C9CC205912282BC0372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312003   (536207) от 02.07.2019
+
+Г.П. Чинякова | Кавказское созвездие. Жизнеописания подвижников Северного Кавказа XX века (2008) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Г.П. Чиняковой посвящена кавказским подвижникам, чьё служение Богу и Его святой Церкви выпало на трагический XX век. Это воистину духовное созвездие — архипастыри, священники, монашествующие, миряне, принесшие Господу свою жизнь. В книгу также включены жизнеописания подвижников конца XX века — в частности, протоиерея Петра Сухоносова, замученного в 1999 году.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D73DC384CED5B2B04A32AA77E50A650787803B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926231   (535591) от 09.08.2015
 
 П. Л. Яроцкий (отв. ред.) | Клерикальный антисоветизм: система идеологических диверсий (1984) [DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535591.jpg" />
+  <img src="Z:/picture/008/save_picture_535591.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535409.jpg" />
+  <img src="Z:/picture/008/save_picture_535409.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535307.jpg" />
+  <img src="Z:/picture/008/save_picture_535307.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535250.jpg" />
+  <img src="Z:/picture/008/save_picture_535250.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535248.jpg" />
+  <img src="Z:/picture/008/save_picture_535248.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535233.jpg" />
+  <img src="Z:/picture/008/save_picture_535233.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535220.jpg" />
+  <img src="Z:/picture/008/save_picture_535220.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535104.jpg" />
+  <img src="Z:/picture/008/save_picture_535104.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534517.jpg" />
+  <img src="Z:/picture/008/save_picture_534517.jpg" />
 </div>
 
 
@@ -250,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534487.jpg" />
+  <img src="Z:/picture/008/save_picture_534487.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533767.jpg" />
+  <img src="Z:/picture/008/save_picture_533767.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533511.jpg" />
+  <img src="Z:/picture/008/save_picture_533511.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533239.jpg" />
+  <img src="Z:/picture/008/save_picture_533239.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532794.jpg" />
+  <img src="Z:/picture/008/save_picture_532794.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531579.jpg" />
+  <img src="Z:/picture/008/save_picture_531579.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530583.jpg" />
+  <img src="Z:/picture/008/save_picture_530583.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530394.jpg" />
+  <img src="Z:/picture/008/save_picture_530394.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528970.jpg" />
+  <img src="Z:/picture/008/save_picture_528970.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528494.jpg" />
+  <img src="Z:/picture/008/save_picture_528494.jpg" />
 </div>
 
 
@@ -520,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527778.jpg" />
+  <img src="Z:/picture/008/save_picture_527778.jpg" />
 </div>
 
 
@@ -546,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526693.jpg" />
+  <img src="Z:/picture/008/save_picture_526693.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526654.jpg" />
+  <img src="Z:/picture/008/save_picture_526654.jpg" />
 </div>
 
 
@@ -600,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526620.jpg" />
+  <img src="Z:/picture/008/save_picture_526620.jpg" />
 </div>
 
 
@@ -611,86 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E28C2AF6C22384B9CF20FC4E171B8CB1898A27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052934   (526605) от 16.09.2016
-
-К. Л. Воропаева | О пасхе (1959) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди религиозных праздников христиан пасхе отводится одно из самых важных и почетных мест. Связанные с пасхой обычаи и обряды оказываются наиболее устойчивыми среди верующих. Многие соблюдают их нередко и после того, как они освободились от веры в бога и чудеса, следуя традициям прошлого.
-
-О том, как возник праздник пасхи, как сложились пасхальные обряды и церемонии, (   Читать дальше...   )Жанр: История, религиоведение, политология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBF112AE738578937153EE2CE0AB10C7E412A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156973   (526406) от 09.08.2017
-
-Н.В. Маслов (сост.) | Святые врачи безмездные чудотворцы (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526406.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Болезни наши, телесные и душевные, кто сосчитает? Уврачевать их кто может? Этих болезней и многие премудрые врачи... уврачевать не могли, от кого же исцеления поищем? ...Поищем исцеления от Матери Божией Преблагословенной, потому что много может молитва Материнская,... ибо Она - Целебница всему миру» - учит святитель Димитрий Ростовский. Поищем исцеления и у святых. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550620EC52BD96B6842894B61EE38F3A10DC61ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157073   (525868) от 10.08.2017
-
-Н. В. Румянцев | Миф об Иоанне Крестителе [4-е изд.] (1930) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди множества новозаветных личностей очень немногие заняли такое выдающееся положение и место в культовой практике христианской церкви и в народном быту, как пресловутый Иоанн Креститель. Высоко чтимый на Западе, особым поклонением он пользовался, и местами до сих пор еще пользуется у нас, в наших сельских местностях. Это видно, хотя бы, из того, что огромное количество (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E4F12B6C22FC96069A6A535F4D6DFAFF757D8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

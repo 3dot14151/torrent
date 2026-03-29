@@ -1,3 +1,107 @@
+###  Публикация: 1616505   (142982) от 22.11.2023
+
+Еда, которая построила Америку / The Food That Built America (2023) WEBRip [H.264/1080p] (сезон 4, серии 1-16 из 16) OMSKBIRD [AD]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории успехов и неудач известных продуктовых брендов.Производство: США / History Channel, Lucky 8Жанр: документальный, историяРежиссер: Ник УайтАктеры: Кэмпбелл Скотт, Каан Акиол, Роберт Андерсон, Тим Бенш, Дж. Джон Билер, Джон Блок, Таннер Блюволф, Стив Боно, Мелани Литтл, Эндрю МахледерПеревод: Многоголосый (OMSKBIRD)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: ~00:42:00 серияРеклама: Релиз содержит рекламные аудио вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E08B8497F0422D91127346A9555CED9BCB1926B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348550   (142716) от 28.12.2019
+
+Неестественный отбор / Unnatural Selection (2019) WEB-DL [H.264/1080p] (серии 4 из 4) [EN / RU, EN Sub]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142716.jpg" />
+</div>
+
+
+###  Подробнее
+
+От истребления болезней до выбора цвета глаз ребёнка, генное редактирование даёт людям шанс "хакнуть" биологию. Встречайте реальных людей, стоящих за этой наукой. Документальный фильм рассказыввает о генной инженерии и, в частности, о технологии редактирования генов CRISPR-Cas9 – со стороны учёных, корпораций, а также биохакеров, работающих над своими проектами (   Читать дальше...   )Производство: США, Radley Studios, Reel Peak Films, Twist and Turn Films, NetflixЖанр: Документальный, познавательный, научно-популярныйРежиссер: Джо Эгендер, Лиор КауфманПеревод: отсутствуетСубтитры: русские, английские (форсированные, полные и SDH)Продолжительность: 01:10:10 + 01:03:32 + 01:02:10 + 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4285B2B48A0D8B833382EB5014CE345AD55B1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347378   (142622) от 28.12.2019
+
+NG: Служба безопасности аэропорта: Первый класс / Airport Security: First Class (2019) HDTV [H.264/1080i-LQ] (серии 1-6 из 8) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перуанский аэропрт им. Хорхе Чавеса в Лиме, Перу, и колумбийский аэропорт Эльдорадо в Боготе, являются двумя самыми загруженными аэропортами Южной Америки. Федеральная полиция работает здесь по 24 часа в сутки семь дней в неделю, чтобы остановить незаконную деятельность преступных элементов. Основная угроза для них - оборот кокаина. Пассажиры пытаются переправить (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, контрабанда, полицияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: Английские (хардсаб на испанскую речь)Продолжительность: серии x ~00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A3FC72F31C73BB022E437ED04D120E4F89BD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316445   (142392) от 28.12.2019
+
+Animal Planet: Удивительный мир животных (часть 2) / How do Animals do That (2019) HDTV [H.264/1080i] (эпизоды 21-35) (Обновляемая?)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные делают самые невероятные вещи, но задумывались ли вы когда-нибудь, как или почему? Ответы на самые острые вопросы мира природы. Например, как светлячки светятся в темноте? Как слоны слушают сквозь ноги? Почему собаки виляют хвостами? Всё, чтобы понять: как животные делают это?Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Кети Бакланд, Гаретч СакалаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EEAC668A28E88D1849A919545E79C1C92E297A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272691   (142284) от 28.12.2018
 
 PBS. Первые цивилизации / First Civilizations (2018) HDTVRip [H.264/720p-LQ] (1-4 серия из 4)
@@ -6,7 +110,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip [H
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142284.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142204.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142202.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip (1
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142144.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Discovery: Секс у тираннозавров / Tyrannosaurus sex (2010) HDT
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141574.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141028.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ BBC: Итальянские сады с Монти Доном / Monty Don’s It
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141020.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140947.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140791.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140331.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Discovery: Нострадамус / Nostradamus (2006) IPTVRip [H.264]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139635.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ History Channel: Тайны египетских пирамид / Lost Secrets o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139630.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139041.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Discovery. Опасная работа / Hard to Kill (2018) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138825.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) WEBRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138650.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138635.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138540.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137573.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137378.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137154.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135026.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134709.jpg" />
 </div>
 
 
@@ -567,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F237C7E2A53B173E5C02DBB960469272E969F946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680538   (133691) от 30.11.2023
-
-National Geographic. Подземный мир майя: настоящий конец света / Maya underworld: The real doomsday (2012) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученый по имени Диего Бунюэль пытается разгадать загадку таинственного исчезновения целой цивилизации Майя. Для этого он очень много путешествует по разным странам, и странствует по загадочным подземным туннелям. Он также погружается под воду, исследуя загадочную гибель цивилизации майя около 1000 лет назад.Производство: США, National GeographicЖанр: документальный, история, исследованияРежиссер: Рик КингПеревод: профессиональный одноголосый (АРТ-ТВ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105A050AA6E52A2A285BF486B886F53007946E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681449   (132584) от 03.12.2023
-
-Течение времени / Time Flies (2020) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нам нравится думать, что мы контролируем все вокруг: поворачиваем реки вспять, осваиваем новые земли, превращаем пустыни в цветущие сады. И только ход времени не подвластен нашему контролю. Мы не может остановить уходящее время, но можем изменить свое видение мира; благодаря видеокамерам мы имеем возможность увидеть окружающий мир в различных временных рамках.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, научно-популярныйПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965B67D20466724A301B0FE940C7624A0623EAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672595   (132485) от 03.12.2023
-
-Взлом кодов / Cracking the Code (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти коды изменили наш мир. Странные знаки, случайные буквы и цифры. Слова, не имеющие смысла. Но их расшифровка способна раскрыть военные секреты, помогает изучать древние цивилизации и обнаруживать врагов среди нас. В этом фильме вы узнаете, как были расшифрованы различные коды, какие гениальные умы смогли это сделать и какие тайны были открыты.Производство: Великобритания, Blink Films, DriveЖанр: документальный, история, научно-популярныйУчастники: Деметрий ГорицасПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C9AF8C229C2E3A6F3B2489B134EAEF03BC04A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642741   (132268) от 04.12.2023
-
-BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [AVO]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132268.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Горькое озеро» — это эпическая документальная картина Адама Кертиса, который объясняет почему истории политиков стали настолько примитивными, что они уже не могут соответствовать реальной картине мира.
-В нем повествуется о всем мире, об Америке, Британии, России и Саудовской Аравии. Но в самом сердце фильма — рассказ об Афганистане. Потому что Афганистан — это место, (   Читать дальше...   )Телекомпания: Великобритания / BBCЖанр: документальный, история, хроника, экономика, философияРежиссер: Адам КертисУчастники: Рональд Рейган, Абдулазиз, Билл Клинтон, Маргарет Тетчер, Джордж Буш мл, Джордж Буш и др.Перевод: Одноголосый любительский (перевод и закадровый голос Денис Чикита)Язык озвучки: русский, английскийСубтитры: english, русскиеПродолжительность: 02:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E66BCC2F8CEE95EA954BA14D826CA7220FFAF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

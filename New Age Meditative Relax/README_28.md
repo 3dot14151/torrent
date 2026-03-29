@@ -1,3 +1,32 @@
+###  Публикация: 1763749   (35206) от 04.12.2024
+
+The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wairapasunquy [06:12]
+02. The Big Circle [05:07]
+03. The Last Mohicans [04:17]
+04. Precious Water [05:53](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764238   (34414) от 12.12.2024
 
 David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps] <New age, Relax, Meditative, World>
@@ -6,7 +35,7 @@ David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34414.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31975.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31954.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31951.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31934.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31903.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31845.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31567.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Deep Forest - Live Machine (2025) [MP3|320 Kbps] <Ambient, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28780.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2131.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1784.jpg" />
 </div>
 
 

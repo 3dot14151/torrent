@@ -1,3 +1,55 @@
+###  Публикация: 1038638   (604853) от 29.07.2016
+
+Московская паутина (2007) SATRip (Серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604853.jpg" />
+</div>
+
+
+###  Подробнее
+
+1940-й год. Ставка Вермахта. Адольф Гитлер утверждает план "Барбаросса", который определит ход военной компании на Востоке. Немецким спецслужбам дано указание организовать в СССР "пятую колонну" из предателей и оппозиционеров, противников сталинского режима. Об этой директиве Гитлера узнала советская контрразведка, и в Москве было принято решение (   Читать дальше...   )Телекомпания: Россия, ООО "Бегиннинг"Жанр: ДокументальныйПродолжительность: 00:39:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4A6036FE348DBA8BBA6D21BD9E878088458642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513341   (604628) от 21.04.2019
+
+Нацистские концлагеря (Нацистские концентрационные лагеря) / Nazi Concentration Camps (1945) DVDRip [EN / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм был снят военными корреспондентами союзников, сразу после освобождения немецких концлагерей и был показан стороной обвинения на заседании Нюрнбергского трибунала как документ N 2430-PS. Фильм наполнен реальными кадрами, которые снимали союзники при освобождении заключенных из лагерей смерти. Кадры показывают нам всю жестокость нацисткой системы и отвергают (   Читать дальше...   )Производство: CША, US Department of DefenseЖанр: Документальный, История, ХроникаРежиссер: Джордж СтивенсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Русские (Lem), отдельным файлом (SRT)Продолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CCB8ED50A31C1D737D4E75204CC061E4DE703B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 862324   (604596) от 29.06.2015
 
 Помним все. История сражений и вооружения (видеолекторий) (2015) IPTVRip [Сезон 2, выпуски 1-23 из ??] [Обновляемая]
@@ -6,7 +58,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604596.jpg" />
+  <img src="Z:/picture/008/save_picture_604596.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604272.jpg" />
+  <img src="Z:/picture/008/save_picture_604272.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604237.jpg" />
+  <img src="Z:/picture/008/save_picture_604237.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604216.jpg" />
+  <img src="Z:/picture/008/save_picture_604216.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603454.jpg" />
+  <img src="Z:/picture/008/save_picture_603454.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602146.jpg" />
+  <img src="Z:/picture/008/save_picture_602146.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600214.jpg" />
+  <img src="Z:/picture/008/save_picture_600214.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599851.jpg" />
+  <img src="Z:/picture/008/save_picture_599851.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598048.jpg" />
+  <img src="Z:/picture/008/save_picture_598048.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597627.jpg" />
+  <img src="Z:/picture/008/save_picture_597627.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596880.jpg" />
+  <img src="Z:/picture/008/save_picture_596880.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596499.jpg" />
+  <img src="Z:/picture/008/save_picture_596499.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596373.jpg" />
+  <img src="Z:/picture/008/save_picture_596373.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596289.jpg" />
+  <img src="Z:/picture/008/save_picture_596289.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596287.jpg" />
+  <img src="Z:/picture/008/save_picture_596287.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595942.jpg" />
+  <img src="Z:/picture/008/save_picture_595942.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595004.jpg" />
+  <img src="Z:/picture/008/save_picture_595004.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594286.jpg" />
+  <img src="Z:/picture/008/save_picture_594286.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593313.jpg" />
+  <img src="Z:/picture/008/save_picture_593313.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592723.jpg" />
+  <img src="Z:/picture/008/save_picture_592723.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592592.jpg" />
+  <img src="Z:/picture/008/save_picture_592592.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592575.jpg" />
+  <img src="Z:/picture/008/save_picture_592575.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592569.jpg" />
+  <img src="Z:/picture/008/save_picture_592569.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592542.jpg" />
+  <img src="Z:/picture/008/save_picture_592542.jpg" />
 </div>
 
 
@@ -627,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC992FB8788F9B44F6450637CF93BC086C0B11E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915325   (592309) от 05.07.2015
-
-Признания нацистов (Прослушка армии Гитлера) / Spying on Hitler's Army: The Secret Recordings (2007) HDTVRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта документальная-драма рассказывает историю одной из тайн Второй мировой войны, о дерзкой операции британской разведки по прослушке в частных беседах 10 000 немецких военнопленных, не догадывающихся, что их подслушивают.
-Для этого использовалось три огромных особняка, превращенных в сложную ловушку. Было записано более ста тысяч часов разговоров заключенных, некоторые (   Читать дальше...   )Телекомпания: Великобритания, Channel 4Жанр: Документальный, война, история, постановочныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40836242FC9F4138244821C6017EF44D1B7C7A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915331   (592290) от 05.07.2015
-
-Признания нацистов (Прослушка армии Гитлера) / Spying on Hitler's Army: The Secret Recordings (2007) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта документальная-драма рассказывает историю одной из тайн Второй мировой войны, о дерзкой операции британской разведки по прослушке в частных беседах 10 000 немецких военнопленных, не догадывающихся, что их подслушивают.
-Для этого использовалось три огромных особняка, превращенных в сложную ловушку. Было записано более ста тысяч часов разговоров заключенных, некоторые (   Читать дальше...   )Телекомпания: Великобритания, Channel 4Жанр: Документальный, война, история, постановочныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DFB4746EB371C8AEDD1B45D53D0C52D42A51B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1608902   (236592) от 01.02.2023
+
+iShot Pro-ScreenShot Recording 2.3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение iShot — отличное ПО для  скриншота области, окна, многооконный скриншота, скриншота оболочки, скриншот с интервальной съемкой, быстрая аннотация, текстура, выбор цвета, запись экрана, аудиозапись, оптическое распознавание символов, инструмент перевода скриншота на Мак.Тип издания: macOS SoftwareРелиз состоялся: 30.01.2023Разработчик: © Ningbo Shangguan Technology Co., LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73E835C03C3DE6AB862E44A484589ED521FF42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505819   (236590) от 28.10.2021
+
+Lungo 2.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lungo предотвращает засыпание Mac и затемнение экрана.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 10.11.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0CD229A3BE66B73DB0C91AB173BA2EC2622419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628482   (236584) от 23.04.2023
+
+QLab 5.0.13 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236584.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 09.01.2023Разработчик: © 2023 Figure 53, LLC.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0927BDF8693CE64301AE86699BDF384DC7408ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505741   (236582) от 28.10.2021
+
+Omni Recover 3 v3.1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
+Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4FD803973921724895A2AA5E01EC2B411442C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505708   (236577) от 28.10.2021
 
 Posterino 3 v3.11 [Multi]
@@ -6,7 +111,7 @@ Posterino 3 v3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236577.jpg" />
+  <img src="Z:/picture/005/save_picture_236577.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Nevercenter CameraBag Pro 2023.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236574.jpg" />
+  <img src="Z:/picture/005/save_picture_236574.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Yate 6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236570.jpg" />
+  <img src="Z:/picture/005/save_picture_236570.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ DRmare Tidal Music Converter 2.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236556.jpg" />
+  <img src="Z:/picture/005/save_picture_236556.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ FinalShot 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236555.jpg" />
+  <img src="Z:/picture/005/save_picture_236555.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ MenuBar Stats 3 v3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236551.jpg" />
+  <img src="Z:/picture/005/save_picture_236551.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ Smart Disk Image Utilities 2.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236542.jpg" />
+  <img src="Z:/picture/005/save_picture_236542.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Advanced Duplicate Cleaner 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236528.jpg" />
+  <img src="Z:/picture/005/save_picture_236528.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ Performance Index 64 Pro 4.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236524.jpg" />
+  <img src="Z:/picture/005/save_picture_236524.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ Acorn 7 v7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236520.jpg" />
+  <img src="Z:/picture/005/save_picture_236520.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ ProFind 1.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236517.jpg" />
+  <img src="Z:/picture/005/save_picture_236517.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ Dato 4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236508.jpg" />
+  <img src="Z:/picture/005/save_picture_236508.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ SiteSucker 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236497.jpg" />
+  <img src="Z:/picture/005/save_picture_236497.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Contacts Journal CRM 3.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236493.jpg" />
+  <img src="Z:/picture/005/save_picture_236493.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ Apeaksoft Screen Recorder for Mac 2.1.36 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236489.jpg" />
+  <img src="Z:/picture/005/save_picture_236489.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ System Dashboard 4.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236486.jpg" />
+  <img src="Z:/picture/005/save_picture_236486.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Scrutiny 10 v10.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236485.jpg" />
+  <img src="Z:/picture/005/save_picture_236485.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236478.jpg" />
+  <img src="Z:/picture/005/save_picture_236478.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ Data Creator 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236471.jpg" />
+  <img src="Z:/picture/005/save_picture_236471.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ SQLPro Studio 2021.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236467.jpg" />
+  <img src="Z:/picture/005/save_picture_236467.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ Soulver 3 v3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236455.jpg" />
+  <img src="Z:/picture/005/save_picture_236455.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ GraphicConverter 11 v.11.8 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236454.jpg" />
+  <img src="Z:/picture/005/save_picture_236454.jpg" />
 </div>
 
 
@@ -577,112 +682,6 @@ GraphicConverter 11 — полнофункциональный графичес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D518626D4FDA9B110632927C90EAEA103DE69C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457232   (236447) от 25.03.2021
-
-PatterNodes 2 v2.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236447.jpg" />
-</div>
-
-
-###  Подробнее
-
-PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
-Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35B2773FF8153EC0F80CEB8880847BBEEACF82A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457184   (236440) от 25.03.2021
-
-MacMagic 1.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236440.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacMagic может помочь очистить гигабайты дискового пространства, переполненного кешами плохо оптимизированных приложений, скрыть или отобразить файлы в Finder, помочь принудительно удалить содержимое корзины и выполнить различные другие задачи для автоматизации. Упростите свой рабочий процесс с утилитой MacMagic.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: Koingo Software, IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BD912F48E2A26428293F6254ECD49F21B05CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505936   (236437) от 29.10.2021
-
-Things 3 v3.15.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D57FABE112F61B1DF85A0F225874BB9FD035B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609332   (236433) от 03.02.2023
-
-NCH Crescendo Masters Pro 9.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Crescendo Masters для написания музыкальных заметок и создания музыкальных партитур на Mac.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2023Разработчик: © 2023 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1BBF1EB7E0A05EE0330B93AD4069BB55119273
 ```
 
 https://mybot314.ru/tekegram_catalog/

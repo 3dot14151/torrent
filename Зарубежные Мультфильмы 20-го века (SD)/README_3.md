@@ -1,3 +1,31 @@
+###  Публикация: 641264   (884162) от 08.04.2013
+
+Властелин колец / The Lord Of The Rings (1978) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказания Средиземья — это хроника Великой войны за Кольцо, войны, длившейся не одну тысячу лет. Тот, кто владел Кольцом, получал власть над всеми живыми тварями, но был обязан служить злу. Хоббит Фродо призван уничтожить Кольцо. Он отправился за ним в Мордор и на огненную Гору Судьбы вместе с союзниками — эльфами, гномами, людьми и хоббитами.
+
+«Властелин колец» повествует (   Читать дальше...   )Производство: США, Fantasy Films, Saul Zaentz Production CompanyЖанр: Мультфильм, фэнтези, драма, приключенияРежиссер: Ральф БакшиАктеры: Кристофер Гуард, Уильям Сквайр, Майкл Шоллс, Джон Херт, Саймон Чэндлер, Доминик Гуард, Норман Бёрд, Майкл Грэм Кокс, Энтони Дэниэлс, Дэвид Бак, Питер Вудторп, Фрейзер Керр, Филип Стоун, Майкл Дикон, Андре Морелль, Алан Тилверн, Анетт Кросби, Джон ВестбрукПеревод: Профессиональный (многоголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 02:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6C892D484F3E5242F2D77465FFEA25C2F4F6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495544   (880728) от 12.09.2021
 
 Клоун Коко. Пазлы / The Puzzle (1923) WEBRip
@@ -6,7 +34,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880728.jpg" />
+  <img src="Z:/picture/005/save_picture_880728.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880620.jpg" />
+  <img src="Z:/picture/005/save_picture_880620.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877457.jpg" />
+  <img src="Z:/picture/005/save_picture_877457.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877408.jpg" />
+  <img src="Z:/picture/005/save_picture_877408.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877148.jpg" />
+  <img src="Z:/picture/005/save_picture_877148.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876925.jpg" />
+  <img src="Z:/picture/005/save_picture_876925.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876045.jpg" />
+  <img src="Z:/picture/005/save_picture_876045.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874645.jpg" />
+  <img src="Z:/picture/008/save_picture_874645.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872591.jpg" />
+  <img src="Z:/picture/008/save_picture_872591.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871241.jpg" />
+  <img src="Z:/picture/008/save_picture_871241.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868259.jpg" />
+  <img src="Z:/picture/008/save_picture_868259.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866591.jpg" />
+  <img src="Z:/picture/008/save_picture_866591.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866472.jpg" />
+  <img src="Z:/picture/008/save_picture_866472.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864961.jpg" />
+  <img src="Z:/picture/008/save_picture_864961.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861748.jpg" />
+  <img src="Z:/picture/008/save_picture_861748.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861359.jpg" />
+  <img src="Z:/picture/008/save_picture_861359.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859782.jpg" />
+  <img src="Z:/picture/008/save_picture_859782.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858067.jpg" />
+  <img src="Z:/picture/008/save_picture_858067.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856177.jpg" />
+  <img src="Z:/picture/008/save_picture_856177.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854550.jpg" />
+  <img src="Z:/picture/008/save_picture_854550.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851262.jpg" />
+  <img src="Z:/picture/008/save_picture_851262.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851253.jpg" />
+  <img src="Z:/picture/008/save_picture_851253.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849416.jpg" />
+  <img src="Z:/picture/008/save_picture_849416.jpg" />
 </div>
 
 
@@ -608,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847973.jpg" />
+  <img src="Z:/picture/008/save_picture_847973.jpg" />
 </div>
 
 
@@ -634,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845347.jpg" />
+  <img src="Z:/picture/008/save_picture_845347.jpg" />
 </div>
 
 
@@ -645,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1C7C60422102B458AA0A95B51DC96524B11279B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500074   (844524) от 04.10.2021
-
-Клоун Коко. Меткий выстрел / Hot Shot (1925) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844524.jpg" />
-</div>
-
-
-###  Подробнее
-
-В США любят огнестрельное оружие. Это так. И меткие стрелки в уважении. Но не так это просто - меткий выстрел. И оружие это источник повышенной опасности. Берегите себя.Производство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: Английские интертиры, русские hardsubПродолжительность: 00:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FBCCADCE6F4F39FD45EF730845DC35D2EE5416
 ```
 
 https://mybot314.ru/tekegram_catalog/

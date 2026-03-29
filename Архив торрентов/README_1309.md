@@ -6,7 +6,7 @@ KeyKey 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759956.jpg" />
+  <img src="Z:/picture/008/save_picture_759956.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759952.jpg" />
+  <img src="Z:/picture/008/save_picture_759952.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759925.jpg" />
+  <img src="Z:/picture/008/save_picture_759925.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ PicPick 5.2.1 Pro + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759919.jpg" />
+  <img src="Z:/picture/008/save_picture_759919.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759917.jpg" />
+  <img src="Z:/picture/008/save_picture_759917.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ EasyUEFI Technician 4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759915.jpg" />
+  <img src="Z:/picture/008/save_picture_759915.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Windows Repair (All In Onе) 2018 4.4.3 Pro [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759892.jpg" />
+  <img src="Z:/picture/008/save_picture_759892.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759890.jpg" />
+  <img src="Z:/picture/008/save_picture_759890.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759888.jpg" />
+  <img src="Z:/picture/008/save_picture_759888.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ ACDSee Photo Studio Ultimate 2019 12.1 Build 1656 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759881.jpg" />
+  <img src="Z:/picture/008/save_picture_759881.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759877.jpg" />
+  <img src="Z:/picture/008/save_picture_759877.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759866.jpg" />
+  <img src="Z:/picture/008/save_picture_759866.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Ashanti - Ashanti (2002) [MP3|320 Kbps] <R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759844.jpg" />
+  <img src="Z:/picture/008/save_picture_759844.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Chromium 67.0.3369.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759835.jpg" />
+  <img src="Z:/picture/008/save_picture_759835.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ BBC: От полюса до полюса c Майклом Пэйлином / BBC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759791.jpg" />
+  <img src="Z:/picture/008/save_picture_759791.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Pro Pilkki 2 v1.8.0.2 [Ru/Multi] - симулятор зимней рыбалк�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759786.jpg" />
+  <img src="Z:/picture/008/save_picture_759786.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Kerish Doctor 2022 4.85 (DC 05.01.2022) (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759764.jpg" />
+  <img src="Z:/picture/008/save_picture_759764.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Windows 11 (v21h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759759.jpg" />
+  <img src="Z:/picture/008/save_picture_759759.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759749.jpg" />
+  <img src="Z:/picture/008/save_picture_759749.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Lingon X 6.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759747.jpg" />
+  <img src="Z:/picture/008/save_picture_759747.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759746.jpg" />
+  <img src="Z:/picture/008/save_picture_759746.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.23 (2403) RePack (& Portable) by ZVSRu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759720.jpg" />
+  <img src="Z:/picture/008/save_picture_759720.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Contacts Journal CRM 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759719.jpg" />
+  <img src="Z:/picture/008/save_picture_759719.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Air Explorer Pro 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759713.jpg" />
+  <img src="Z:/picture/008/save_picture_759713.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Speccy 1.01.132 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759671.jpg" />
+  <img src="Z:/picture/008/save_picture_759671.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Hetman Partition Recovery 4.2 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759646.jpg" />
+  <img src="Z:/picture/008/save_picture_759646.jpg" />
 </div>
 
 

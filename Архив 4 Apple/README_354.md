@@ -1,3 +1,114 @@
+###  Публикация: 542660   (497075) от 04.09.2012
+
+NeoOffice 3.3 [Eng, Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497075.jpg" />
+</div>
+
+
+###  Подробнее
+
+NeoOffice это полнофункциональный набор офисных приложений (в том числе для обработки текстов, создания электронных таблиц, презентаций и программ для работы) для Mac OS X. NeoOffice создан на основе офисного пакета OpenOffice.org и включает в себя десятки родных для Mac функций, подходит для импортирования, редактирования и обмена файлами с другими популярными офисными программами, такими как Microsoft Office.
+
+В отличие от OpenOffice.org, NeoOffice не требует оконной системы X11. Это свободный, бесплатный продукт с открытым исходным кодом под GNU General Public License (GPL). NeoOffice является полностью функциональным и стабильным продуктом для повседневного использования, который постоянно развивается, регулярно обновляясь и улучшаясь.Название программы: NeoOffice
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565079   (496808) от 22.07.2022
+
+SessionRestore for Safari 2.6.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение SessionRestore предназначено, чтобы помочь при работе с браузером Safari, работает как расширение.
+Сохраните сеанс просмотра, закройте все окна и начните новый сеанс. Восстановить сеанс, когда вам это понадобится, очень просто. Включите удобную функцию автосохранения, чтобы всегда иметь резервную копию.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38332DA990210B822FD93C2F507030C27208C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565193   (496806) от 22.07.2022
+
+TextMan 1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496806.jpg" />
+</div>
+
+
+###  Подробнее
+
+С приложением TextMan вы избавитесь с рутиной работой по набору текста на веб-сайтах, в файлах формата PDF, изображениях или системных пользовательских интерфейсах. Просто выберите область экрана так же, как если бы вы делали снимок экрана, и найдите весь распознанный текст в буфере обмена, готовый для вставки куда угодно.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2022 KF Interactive GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA22596F98B76FF0997F8BC3055B0536DB983180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381536   (496772) от 30.08.2011
+
+Civilization V: Campaign Edition [Native]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Civilization V – продолжение легендарной глобальной стратегии, разошедшейся по всему миру тиражом более 9 миллионов экземпляров. В пятой части игрокам предложено взять под свою опеку одну из восемнадцати наций и привести ее сквозь тысячелетия — от каменного века до космической эры — к мировому господству.
+
+Sid Meier's Civilization® V: Campaign  объединяет все функции и возможности одиночной кампании  Civilization V. Станьте властелином мира путем создания и развития своей цивилизации, от первых племен до космической эпохи: ведите войны, используйте дипломатию, открывайте для себя новые технологии, соревнуйтесь с некоторыми из величайших лидеров в истории и постройте самую мощную империю мира.
+
+Civilization V: Campaign Edition включает the Babylon Civilization Pack и их правителя Nebuchadnezzar II, а также Монгольскую цивилизацию и дополнительные сценарии.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0B5A4B5D8F08699ED81BE6D1ED3DFD74DFDE0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565073   (496755) от 22.07.2022
 
 PDF Search 12.18 [En]
@@ -6,7 +117,7 @@ PDF Search 12.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496755.jpg" />
+  <img src="Z:/picture/008/save_picture_496755.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ TunesKit Screen Recorder 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496753.jpg" />
+  <img src="Z:/picture/008/save_picture_496753.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496750.jpg" />
+  <img src="Z:/picture/008/save_picture_496750.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ ImageRanger Pro Edition 1.8.8.1829 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496749.jpg" />
+  <img src="Z:/picture/008/save_picture_496749.jpg" />
 </div>
 
 
@@ -110,7 +221,7 @@ MacBooster 8 Pro 8.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496742.jpg" />
+  <img src="Z:/picture/008/save_picture_496742.jpg" />
 </div>
 
 
@@ -136,7 +247,7 @@ Espresso 1.1.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496724.jpg" />
+  <img src="Z:/picture/008/save_picture_496724.jpg" />
 </div>
 
 
@@ -163,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496705.jpg" />
+  <img src="Z:/picture/008/save_picture_496705.jpg" />
 </div>
 
 
@@ -189,7 +300,7 @@ Davinci Resolve Studio 18.0 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496579.jpg" />
+  <img src="Z:/picture/008/save_picture_496579.jpg" />
 </div>
 
 
@@ -217,7 +328,7 @@ FxFactory Pro 8.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496565.jpg" />
+  <img src="Z:/picture/008/save_picture_496565.jpg" />
 </div>
 
 
@@ -244,7 +355,7 @@ Exif Editor 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496471.jpg" />
+  <img src="Z:/picture/008/save_picture_496471.jpg" />
 </div>
 
 
@@ -272,7 +383,7 @@ Radio Silence 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496467.jpg" />
+  <img src="Z:/picture/008/save_picture_496467.jpg" />
 </div>
 
 
@@ -299,7 +410,7 @@ EditReady 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496461.jpg" />
+  <img src="Z:/picture/008/save_picture_496461.jpg" />
 </div>
 
 
@@ -328,7 +439,7 @@ VMware Fusion Pro 12 v12.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496278.jpg" />
+  <img src="Z:/picture/008/save_picture_496278.jpg" />
 </div>
 
 
@@ -355,7 +466,7 @@ iNotepad Pro 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496095.jpg" />
+  <img src="Z:/picture/008/save_picture_496095.jpg" />
 </div>
 
 
@@ -381,7 +492,7 @@ Canary Mail 2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496093.jpg" />
+  <img src="Z:/picture/008/save_picture_496093.jpg" />
 </div>
 
 
@@ -409,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496060.jpg" />
+  <img src="Z:/picture/008/save_picture_496060.jpg" />
 </div>
 
 
@@ -435,7 +546,7 @@ Little Snitch 3.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495859.jpg" />
+  <img src="Z:/picture/008/save_picture_495859.jpg" />
 </div>
 
 
@@ -462,7 +573,7 @@ Balsamiq Mockups For Desktop 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495811.jpg" />
+  <img src="Z:/picture/008/save_picture_495811.jpg" />
 </div>
 
 
@@ -489,7 +600,7 @@ Live Home 3D St 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495427.jpg" />
+  <img src="Z:/picture/008/save_picture_495427.jpg" />
 </div>
 
 
@@ -517,7 +628,7 @@ OS X El Capitan 10.11 GM (15A282b) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495401.jpg" />
+  <img src="Z:/picture/008/save_picture_495401.jpg" />
 </div>
 
 
@@ -544,7 +655,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495265.jpg" />
+  <img src="Z:/picture/008/save_picture_495265.jpg" />
 </div>
 
 
@@ -570,7 +681,7 @@ Navicat Premium Essentials  16.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494989.jpg" />
+  <img src="Z:/picture/008/save_picture_494989.jpg" />
 </div>
 
 
@@ -581,110 +692,6 @@ Navicat Premium представляет собой очень мощный ин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D74EA51C19B48B3CB2F2D311F995BB4211EECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565310   (494987) от 23.07.2022
-
-System Dashboard 4.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494987.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Dashboard показывает использование процессора, памяти, сети и диска в небольшом и «легком» окне. Так же отображает все важные характеристики вашей системы на одной странице.Тип издания: macOS SoftwareРелиз состоялся: 23.07.2022Разработчик: © 2018-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E424238F27CF257241585846B8098BAC5DB995F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565418   (494899) от 23.07.2022
-
-AnyMP4 Mac Blu-ray Player 6.3.38 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощная программа для просмотра Blu-ray дисков и их образов (ISO). Так же с ее помощью можно смотреть 1080p HD и AVCHD видео. Поддержка просмотра Full HD форматов: MP4, FLV, MTS, M2TS, TS, MKV, WMV, TRP, MXF, MOV, MPEG, RMVB и других, а также многоканального аудио. AnyMP4 Mac Blu-ray Player обладает как высокой скоростью так и качеством результата, а также приятным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2022Разработчик: © 2021 AnyMP4 StudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED1C234B13DCA21E908BAB4E642CE2795AEA1AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565410   (494790) от 23.07.2022
-
-Sweet Home 3D 7.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sweet Home 3D это приложение для дизайна интерьера, которое поможет вам нарисовать планировку дома, расставить мебель и посмотреть результат в 3D. Приложение Sweet Home 3D предназначено для тех, кто хочет быстро спроектировать новый дом или сделать редизайн старого.Тип издания: macOS SoftwareРелиз состоялся: 14.07.2022Разработчик: © 2005-2021 Emmanuel PUYBARET / eTeksПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B7D0CB7AC5D307AA7BB2D164EA199DEBD8305C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565308   (494788) от 23.07.2022
-
-Wondershare PDFelement Pro OCR 9.0.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494788.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74887ACE16027020539A2A74D37EA07AEED48475
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1173829   (141486) от 29.12.2017
+
+Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это аниме с ветерком прокатит вас по миру гонок на мотоциклах с коляской! Мы привыкли видеть такой вид транспорта, как эдакий раритет. Но здесь эти мотоциклы стали не только современно выглядеть, но и обрели неплохую скорость, «Формула 1» нервно курит в сторонке! Звук мотора, ветер в лицо, красивые девушки, которые на этот раз не служат украшением с сигнальным флажком (   Читать дальше...   )Жанр: спорт, приключенияРежиссер: Тамура МасафумиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4038EBBF3862E866D03DAE2D284B90D4628B934D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590826   (140944) от 17.12.2012
 
 Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 из 2] BDrip 1080 raw + rus x2
@@ -6,7 +32,7 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140944.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140005.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140000.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139928.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139799.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Bungou Stray Dogs / Бродячие псы литературы [2016, TV, 24 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139594.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139263.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138574.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138553.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Bokutachi wa Benkyou ga Dekinai [TV-2] | Мы не можем учиться! [�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138511.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137775.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137767.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137761.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137453.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137359.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137314.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137208.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Houseki no Kuni / Land of the Lustrous / Сказания о самоцвета�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137168.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Sin: Nanatsu no Taizai | Seven Mortal Sins | Прегрешение: Семь с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137158.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что т
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137155.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137138.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Grenadier: Hohoemi no Senshi | Grenadier The Beautiful Warrior | Гренаде�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137099.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137085.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137005.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136561.jpg" />
 </div>
 
 
@@ -645,34 +671,6 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86A5504FCA8F6B87AEAEA00D0DAB8BB85A5999BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592058   (136029) от 20.12.2012
-
-Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24 серии] HDTV 720p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир ближайшего будущего расколот войнами, а тут еще на Землю из недр пространства-времени свалились пришельцы-кораллиане. С одной стороны, в атмосфере появилась чудесная трапар-энергия, благодаря которой стало проще летать, с другой – вокруг кораллиан время от времени гремят мощные взрывы, из которых появляются боевые джи-монстры, разрушающие все вокруг. Небольшой остров Ивато, яблоко раздора между Китаем, Японией и ныне свободной Окинавой, 15 лет назад тоже пострадал от монстра, которого уничтожила странная женщина на боевом роботе. Впрочем, местные жители чужестранку с зелеными волосами, мягко говоря, не любили и при первой же возможности сдали спецслужбам. Пожилой доктор, приютивший ее сына, единственный знал имя его матери – Эврика…
-
-И вот много лет спустя 13-летний Ао Фукай вместо первого дня в средней школе оказался в гуще событий – джи-монстр снова явился и начал разносить остров. Конечно же, в парне проснулась родовая память, он смог активировать старого робота и разнести врага до прибытия «всей королевской (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Кёда ТомокиПеревод: FooBoo \ DayteneПродолжительность: ТВ, 24 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93D62F8D74BB1D0E9033044A340AC6FD0281EE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

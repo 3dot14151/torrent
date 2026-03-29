@@ -1,3 +1,165 @@
+###  Публикация: 1047442   (549409) от 30.08.2016
+
+Хоккей. КХЛ 2016-2017. СКА - Металлург (Магнитогорск) (27.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549409.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 августа 2016, суббота. 17:00 МСК
+
+Стадион: Ледовый дворец (Санкт-Петербург, Россия) , 11 011 зрителей (88 % при вместимости 12 500)
+Главный судья: Алексей Белов (Ярославль, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Ткачёв, Борисов)Продолжительность: 02:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE25C5EA29719951874266D0E97F06AFE51EE9BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047384   (549408) от 30.08.2016
+
+Футбол. Чемпионат Испании 2016-2017. 2-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 2-го тура.Телекомпания: Sport1+ HDЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F432C4BF2AF5FE46DB552AEB13F63EBC372B1453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047558   (549407) от 30.08.2016
+
+Футбол. Чемпионат России 2016-2017. 5-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 5-го тура.Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Эльвин Керимов)Продолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01A4AF9606B3764FB345AE3625B5AEEE56D5C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047564   (549406) от 30.08.2016
+
+Пляжный футбол. Евролига 2016. Суперфинал. Катания (Италия). Финал. Украина - Португалия (28.08.2016) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549406.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 августа 2016, воскресенье. 19:10 МСК
+Евролига 2016. Суперфинал. Катания (Италия). Финал
+Матч № 16
+(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Владислав Батурин)Продолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D654CB112F6CB87E81CF49EA1D5F2D38F084381C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047556   (549405) от 30.08.2016
+
+Футбол. Чемпионат Германии 2016-2017. 1-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 1-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Кирилл Дементьев)Продолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9810E591B1987D5B9681CD3700076DCEA909E0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047726   (549399) от 30.08.2016
+
+Футбол. Чемпионат Испании 2016-2017. 2-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [RU/EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 2-го тура.Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортЯзык озвучки: Русский / АнглийскийПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80543552AE5702ED1F7E44240C3561886074FC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047281   (549328) от 30.08.2016
 
 Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Женщины. Гонка преследования 10 км (28.08.2016) WEB-DL [H.264/576p-LQ]
@@ -6,7 +168,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549328.jpg" />
+  <img src="Z:/picture/008/save_picture_549328.jpg" />
 </div>
 
 
@@ -34,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549327.jpg" />
+  <img src="Z:/picture/008/save_picture_549327.jpg" />
 </div>
 
 
@@ -62,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549244.jpg" />
+  <img src="Z:/picture/008/save_picture_549244.jpg" />
 </div>
 
 
@@ -88,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548840.jpg" />
+  <img src="Z:/picture/008/save_picture_548840.jpg" />
 </div>
 
 
@@ -117,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548838.jpg" />
+  <img src="Z:/picture/008/save_picture_548838.jpg" />
 </div>
 
 
@@ -146,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548799.jpg" />
+  <img src="Z:/picture/008/save_picture_548799.jpg" />
 </div>
 
 
@@ -175,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548788.jpg" />
+  <img src="Z:/picture/008/save_picture_548788.jpg" />
 </div>
 
 
@@ -204,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548740.jpg" />
+  <img src="Z:/picture/008/save_picture_548740.jpg" />
 </div>
 
 
@@ -233,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548656.jpg" />
+  <img src="Z:/picture/008/save_picture_548656.jpg" />
 </div>
 
 
@@ -262,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548647.jpg" />
+  <img src="Z:/picture/008/save_picture_548647.jpg" />
 </div>
 
 
@@ -290,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548576.jpg" />
+  <img src="Z:/picture/008/save_picture_548576.jpg" />
 </div>
 
 
@@ -319,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548575.jpg" />
+  <img src="Z:/picture/008/save_picture_548575.jpg" />
 </div>
 
 
@@ -348,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548514.jpg" />
+  <img src="Z:/picture/008/save_picture_548514.jpg" />
 </div>
 
 
@@ -377,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548513.jpg" />
+  <img src="Z:/picture/008/save_picture_548513.jpg" />
 </div>
 
 
@@ -406,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548512.jpg" />
+  <img src="Z:/picture/008/save_picture_548512.jpg" />
 </div>
 
 
@@ -435,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548511.jpg" />
+  <img src="Z:/picture/008/save_picture_548511.jpg" />
 </div>
 
 
@@ -464,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548510.jpg" />
+  <img src="Z:/picture/008/save_picture_548510.jpg" />
 </div>
 
 
@@ -493,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548509.jpg" />
+  <img src="Z:/picture/008/save_picture_548509.jpg" />
 </div>
 
 
@@ -522,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548508.jpg" />
+  <img src="Z:/picture/008/save_picture_548508.jpg" />
 </div>
 
 
@@ -551,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548507.jpg" />
+  <img src="Z:/picture/008/save_picture_548507.jpg" />
 </div>
 
 
@@ -565,175 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05859E89B19EF23A025272F5B0AEEEFEAC39FD0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047787   (548506) от 31.08.2016
-
-Хоккей. КХЛ 2016-2017. Спартак (Москва) – Динамо (Рига) (27.08.2016) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548506.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 августа 2016, суббота. 17:00 МСК
-Матч № 32
-Стадион: «ВТБ Ледовый дворец» (Москва, Россия), 7134 зрителя (57 % при вместимости 12500)
-(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Виталий Магранов, Алексей Бадюков)Продолжительность: 02:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34D6C749DF2A837FE3CBBC3E6ADBBCCEAE848C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046499   (548422) от 31.08.2016
-
-Футбол. Лига Чемпионов 2016-2017. Жеребьёвка Группового этапа (25.08.2016) HDTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жеребьёвка группового этапа Лиги чемпионов УЕФА состоялась 25 августа 2016 г. в зале Grimaldi Forum в Монако.
-В первую корзину попали действующий победитель турнира («Реал») и чемпионы семи ассоциаций с наивысшим рейтингом по итогам сезона-2014/15 (когда была принята схема отбора в ЛЧ-2016/17). Распределение по трём другим корзинам, как обычно, происходит согласно (   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07FC5CC05C568036FC5C9E4D12A3C1F645DA9C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238131   (547926) от 28.07.2018
-
-Формула 1. Сезон 2018. 12-й Этап. Гран-при Венгрии. Свободная практика 1 (27.07.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547926.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 июля 2018 года, пятница. 12:00 МСК
-12-й Этап сезона 2018 года. Гран-при Венгрии. Будапешт (Венгрия).
-Свободная практика 1
-Арена: Автодром Хунгароринг (Будапешт, Венгрия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53965F4375AD38FFD0E4701BF9CBE5D716022291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238133   (547924) от 28.07.2018
-
-Формула 1. Сезон 2018. 12-й Этап. Гран-при Венгрии. Свободная практика 2 (27.07.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547924.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 июля 2018 года, пятница. 16:00 МСК
-12-й Этап сезона 2018 года. Гран-при Венгрии. Будапешт (Венгрия).
-Свободная практика 2
-Арена: Автодром Хунгароринг (Будапешт, Венгрия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2CE4F265D2C6B13F8BB4810A406280ECF4150D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310259   (547635) от 23.06.2019
-
-Смешанные единоборства. UFC Fight Night 154: Ренато Мойкано - «Корейский Зомби» / UFC Fight Night 154: Moicano vs. Korean Zombie (22.06.2019) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547635.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июня на арене Bon Secours в Гринвилле, штат Южная Каролина, состоялся турнир по смешанным единоборствам UFC Fight Night 154 (UFC on ESPN+ 12), в главном бою которого сошлись элитные полулегковесы – бразилец Ренато Мойкано и представитель Южной Кореи Чен Сон Джон, известный под прозвищем «Корейский Зомби». Обоим бойцам необходима победа, чтобы закрыть поражения (   Читать дальше...   )Телекомпания: Россия, Setanta SportsЖанр: СпортПеревод: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3194A313B09DBA29D21C19D5050636F64CBCE089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310171   (547630) от 23.06.2019
-
-Футбол. Чемпионат Европы 2020. Отборочный турнир. 4-й тур. Группа J. Италия — Босния и Герцеговина (2019) WEB-DLRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547630.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 июня 2019, вторник. 21:45 МСК
-Чемпионат Европы по футболу 2020 года. Отборочный турнир.
-4-й тур. Группа J.
-Италия — Босния и Герцеговина(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7DB22C63D8A179DAAE80124DDCEDB3757C016F
 ```
 
 https://mybot314.ru/tekegram_catalog/

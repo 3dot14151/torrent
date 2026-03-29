@@ -1,3 +1,29 @@
+###  Публикация: 1749108   (38708) от 31.10.2024
+
+Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Как Князю тьмы полюбить жену-эльфийку? [2024, TV, 12 из 12] BDRip HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заган - колдун, вселяющий ужас в окружающих, но совершенно не умеющий общаться. Влюбившись в прекрасную эльфийку Нефи и выкупив её на аукционе, он понимает, что не способен выразить свои чувства словами. Так неуклюжий колдун и робкая эльфийка начинают неловко знакомиться друг с другом.Производство: Brains BaseЖанр: приключения, фэнтези, романтикаРежиссер: Исиодори ХиросиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494E715EDD712B5B2461EA43A805964BD5A85537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612021   (37953) от 08.11.2024
 
 Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное путешествие [ТВ-1] [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +32,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37953.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37934.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37805.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37791.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37477.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37125.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37100.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37030.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36540.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Inazuma Eleven | Одиннадцать Молний [2008, TV, 127 эп.] WEB-D
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36299.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36158.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36074.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35973.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35964.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Grand Blue | Необъятный океан [ТВ-1] [2018, TV, 12 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35658.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35635.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35621.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35542.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Shinigami Bocchan to Kuro Maid 2 | The Duke of Death and His Maid 2 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35536.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34660.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Mirai Shounen Conan | Future Boy Conan | Conan, The Boy in Future | Конан -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34523.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Ginga e Kickoff! | Victory Kickoff! | Вперед, ко вселенной! [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34119.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34051.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Gekijouban Inazuma Eleven: Saikyou Gundan Ogre Shuurai | Inazuma Eleven the Movi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34014.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Князь Тьмы: Retry! R [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33919.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Князь Тьмы: Retry! R [ТВ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:780ED2D34B70F465F3823D8E598B2BD16D325F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725319   (33884) от 17.12.2024
-
-Gekijouban Inazuma Eleven Go vs Danbooru Senki W | Inazuma Eleven GO vs Danball Senki W | Одиннадцать Молний: "Только вперёд!" против "Хроник Двойной картонной битвы" [2012, Mov ...
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданный футбольный матч прерывает нападение загадочного человека, сопровождаемого роем роботов. А затем таинственная девушка заставляет мир погрузиться в иное измерение. Миры "Одиннадцати молний" и "Битв маленьких гигантов" сталкиваются, и две команды героев должны объединить усилия, чтобы узнать, что произошло и как это исправить.Производство: OLMЖанр: Спорт, БоевикиРежиссер: Мияо ЁсикадзуПеревод: RyRo (Английский), onkeikun (Японский)Язык озвучки: Японский (Movie, Audio Commentary) и Русский (XDub)Субтитры: Английские (Fansubs, Audio Commentary Subs (color-coded), Audio Commentary Subs) и ЯпонскиеПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA24545818FFC0A2D063BA210614AC778EF94D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

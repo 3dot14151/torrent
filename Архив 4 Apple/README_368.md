@@ -1,3 +1,107 @@
+###  Публикация: 1058212   (470718) от 30.09.2016
+
+MacBooster 4.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение поможет настроить и ускорить работу OS X. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Жесткий диск компьютера Mac быстро забивается ненужными файлами, такими как двоичные файлы, журналы событий, кэш и др. Это особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2016Разработчик: IObitПоддерживаемая ОС: Intel Mac OS X 10.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75403BBB5AA7EB718C29CB6C884E57D3A6D7425E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058034   (470701) от 30.09.2016
+
+Aurora HDR 2017 v1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aurora HDR 2017, идеально подходит для фотографов всех уровней, обеспечивает полный набор самых современных инструментов для HDR фотографии. Это один из наиболее полных и мощных приложений HDR в мире. Совместный проект Macphun и Trey Ratcliff, одного из выдающихся в мире в области HDR фотографии с более чем 30 миллионов поклонников. Аврора HDR может помочь фотографам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2016Разработчик: MacPhun SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B753600EAA5B254FAC1412CDF8EC68E955A99DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567727   (470320) от 04.08.2022
+
+EdgeView 3 v3.6.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470320.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE34D5010DA2E29126C5D9BFCC2C36B3D09AA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567709   (470317) от 04.08.2022
+
+TS Calc 1.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470317.jpg" />
+</div>
+
+
+###  Подробнее
+
+TS Calc реализует числовое разрешение расчетных моделей, которые можно использовать для любых математических технических задач. Это совершенно другой подход к решению математических задач по сравнению с обычным подходом с использованием электронных таблиц. Вы можете создавать разные документы для решения любой модели.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2022Разработчик: © 2012-2022 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421FF48A0F0331649B058EE8AFC7F0435A83BE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567707   (470316) от 04.08.2022
 
 DB-Text 1.12.1 [En]
@@ -6,7 +110,7 @@ DB-Text 1.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470316.jpg" />
+  <img src="Z:/picture/008/save_picture_470316.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ Folder Tidy 2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470315.jpg" />
+  <img src="Z:/picture/008/save_picture_470315.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Soulver 3 v3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470310.jpg" />
+  <img src="Z:/picture/008/save_picture_470310.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Zoc Terminal 7.09.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470226.jpg" />
+  <img src="Z:/picture/008/save_picture_470226.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ Sketch 91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470190.jpg" />
+  <img src="Z:/picture/008/save_picture_470190.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Wondershare Data Recovery 6.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469796.jpg" />
+  <img src="Z:/picture/008/save_picture_469796.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ Audirvana Plus 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469668.jpg" />
+  <img src="Z:/picture/008/save_picture_469668.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ Stellaris v2.3.3.1 (30871) GOG (2016) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468891.jpg" />
+  <img src="Z:/picture/008/save_picture_468891.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ MacX Video Converter Pro 5.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468663.jpg" />
+  <img src="Z:/picture/008/save_picture_468663.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Hands Off! 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468541.jpg" />
+  <img src="Z:/picture/008/save_picture_468541.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ AirServer 6.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468498.jpg" />
+  <img src="Z:/picture/008/save_picture_468498.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Apimac Secret Folder (8 (Build 084)) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468307.jpg" />
+  <img src="Z:/picture/008/save_picture_468307.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ Pyre v50427.17438 (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467548.jpg" />
+  <img src="Z:/picture/008/save_picture_467548.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ Things 3.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467468.jpg" />
+  <img src="Z:/picture/008/save_picture_467468.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ Kaleidoscope 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467230.jpg" />
+  <img src="Z:/picture/008/save_picture_467230.jpg" />
 </div>
 
 
@@ -408,7 +512,7 @@ ForkLift 2.5.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467223.jpg" />
+  <img src="Z:/picture/008/save_picture_467223.jpg" />
 </div>
 
 
@@ -436,7 +540,7 @@ Navicat Premium 12.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467198.jpg" />
+  <img src="Z:/picture/008/save_picture_467198.jpg" />
 </div>
 
 
@@ -464,7 +568,7 @@ iA Writer 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466857.jpg" />
+  <img src="Z:/picture/008/save_picture_466857.jpg" />
 </div>
 
 
@@ -491,7 +595,7 @@ Pixelmator 3.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466853.jpg" />
+  <img src="Z:/picture/008/save_picture_466853.jpg" />
 </div>
 
 
@@ -517,7 +621,7 @@ Elmedia Player Pro 6.0 (740) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466731.jpg" />
+  <img src="Z:/picture/008/save_picture_466731.jpg" />
 </div>
 
 
@@ -545,7 +649,7 @@ Lyn 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466565.jpg" />
+  <img src="Z:/picture/008/save_picture_466565.jpg" />
 </div>
 
 
@@ -573,7 +677,7 @@ iStat Menus 5.11 (628) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466299.jpg" />
+  <img src="Z:/picture/008/save_picture_466299.jpg" />
 </div>
 
 
@@ -587,112 +691,6 @@ iStat Menus 5 — лучшее приложение для контроля ра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1688CA13EC386C5D6F1319274395C910B2D7A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548086   (466185) от 18.09.2012
-
-Apple iOS 6 Golden Master (iPhone 4S,iPhone 4,iPhone 3GS,iPad 2/3) (IOS)
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчик: Apple Inc.Язык интерфейса: 33 языка, включая русский, английский, немецкий и т.д.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058601   (466162) от 02.10.2016
-
-1Blocker - Block ads, tracking scripts, anything 1.2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466162.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Blocker - блокировка рекламы
-Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30.09.2016Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC635E31C09A2C8CB46F67048B6C1B69DB3F2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058712   (466159) от 02.10.2016
-
-Espionage 3.6.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Espionage - приложение, которое позволяет шифровать и защищать паролем отдельные папки и взаимодействовать с ними прямо из Finder. В отличии от других аналогичных программ, Espionage защищает только то, что вы хотите и он это делает в процессе интеграции непосредственно с Finder. Просто перетащите нужную папку на окно Espionage и установите пароль.Тип издания: macOS SoftwareРелиз состоялся: 29.09.2016Разработчик: TAO EffectПоддерживаемая ОС: macOS OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97580390AB997B6051F604EFA0252CA8A427F091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058653   (466063) от 02.10.2016
-
-iMazing 2.0.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466063.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 сентября 2016Разработчик: DigiDNAПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A208DC933D7E21C6207C9A5DE76301E9DC94158
 ```
 
 https://mybot314.ru/tekegram_catalog/

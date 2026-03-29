@@ -1,3 +1,29 @@
+###  Публикация: 1227875   (642636) от 28.05.2018
+
+Излом времени / A Wrinkle in Time  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Мэг вместе с младшим братом и школьным приятелем решает отправиться на поиски своего отца, учёного-физика, пропавшего в ходе научного эксперимента. Найти его предстоит не в привычном мире, а в таинственных изломах времени и пространства, где понятие реальности относительно и ничему нельзя верить! Выбраться из фантастических миров и победить тьму, которая распространяется (   Читать дальше...   )Производство: США / Walt Disney Pictures, Whitaker EntertainmentЖанр: фантастика, фэнтези, приключения, семейныйРежиссер: Ава ДюВернейАктеры: Сторм Рейд, Опра Уинфри, Риз Уизерспун, Минди Кейлинг, Леви Миллер, Дерик Маккейб, Крис Пайн, Гугу Эмбата-Ро, Зак Галифианакис, Майкл Пенья, Андре Холлэнд, Роуэн БланчардПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4D4CEA76149691D93C6632F69F56310E431C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293787   (633355) от 05.04.2019
 
 Мэри Поппинс возвращается / Mary Poppins Returns (2018) BDRip [H.264/720p]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633355.jpg" />
+  <img src="Z:/picture/008/save_picture_633355.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633354.jpg" />
+  <img src="Z:/picture/008/save_picture_633354.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629764.jpg" />
+  <img src="Z:/picture/008/save_picture_629764.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629628.jpg" />
+  <img src="Z:/picture/008/save_picture_629628.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628360.jpg" />
+  <img src="Z:/picture/008/save_picture_628360.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625802.jpg" />
+  <img src="Z:/picture/008/save_picture_625802.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625396.jpg" />
+  <img src="Z:/picture/008/save_picture_625396.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623869.jpg" />
+  <img src="Z:/picture/008/save_picture_623869.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623863.jpg" />
+  <img src="Z:/picture/008/save_picture_623863.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623736.jpg" />
+  <img src="Z:/picture/008/save_picture_623736.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622081.jpg" />
+  <img src="Z:/picture/008/save_picture_622081.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620645.jpg" />
+  <img src="Z:/picture/008/save_picture_620645.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618297.jpg" />
+  <img src="Z:/picture/008/save_picture_618297.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618000.jpg" />
+  <img src="Z:/picture/008/save_picture_618000.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616468.jpg" />
+  <img src="Z:/picture/005/save_picture_616468.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614826.jpg" />
+  <img src="Z:/picture/008/save_picture_614826.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614804.jpg" />
+  <img src="Z:/picture/008/save_picture_614804.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611929.jpg" />
+  <img src="Z:/picture/008/save_picture_611929.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611741.jpg" />
+  <img src="Z:/picture/008/save_picture_611741.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609770.jpg" />
+  <img src="Z:/picture/005/save_picture_609770.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608367.jpg" />
+  <img src="Z:/picture/008/save_picture_608367.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608190.jpg" />
+  <img src="Z:/picture/008/save_picture_608190.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608056.jpg" />
+  <img src="Z:/picture/008/save_picture_608056.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606607.jpg" />
+  <img src="Z:/picture/008/save_picture_606607.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606430.jpg" />
+  <img src="Z:/picture/008/save_picture_606430.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7DB036CD9E8AFCD7A163F4A16F5B64B58B4D20F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038297   (606202) от 28.07.2016
-
-Братья ветра / Brothers of the Wind (2015) BDRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой картины, мальчик по имени Лукас (Мануэль Камачо), живёт в горной местности. Найдя в лесу раненого птенца орла, решает излечить его сломанные крылья и научить жить в пустыне. Задача очень трудная, потому что отец мальчика не одобряет его планы, и орлёнок сначала очень настороженно относится к своему спасителю. Однако, со временем отношения Лукаса с дикой (   Читать дальше...   )Производство: Австрия / Terra Mater Factual StudiosЖанр: драма, приключения, семейныйРежиссер: Херардо Оливарес, Отмар ПенкерАктеры: Жан Рено, Мануэль Камачо, Тобиас Моретти, Эва КуэнПеревод: Профессиональный (многоголосый, закадровый) (GreenРай Studio)Язык субтитров: АнглийскийПродолжительность: 01:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFFD1E5F16EE7E9AD9D4AE053D47127171CE5359
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462425.jpg" />
+  <img src="Z:/picture/008/save_picture_462425.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462301.jpg" />
+  <img src="Z:/picture/008/save_picture_462301.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457710.jpg" />
+  <img src="Z:/picture/008/save_picture_457710.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456500.jpg" />
+  <img src="Z:/picture/008/save_picture_456500.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ VA - Рок на костях. 25+25. Посвящается 25-летию не�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454817.jpg" />
+  <img src="Z:/picture/008/save_picture_454817.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453860.jpg" />
+  <img src="Z:/picture/008/save_picture_453860.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Lumen - Акустика (Концерт в центре им. Вс. Мейер�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453072.jpg" />
+  <img src="Z:/picture/008/save_picture_453072.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451366.jpg" />
+  <img src="Z:/picture/008/save_picture_451366.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449567.jpg" />
+  <img src="Z:/picture/008/save_picture_449567.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449032.jpg" />
+  <img src="Z:/picture/005/save_picture_449032.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448860.jpg" />
+  <img src="Z:/picture/008/save_picture_448860.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Greenpeace Rocks (1993) [FLAC|lossless|image + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448857.jpg" />
+  <img src="Z:/picture/008/save_picture_448857.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447361.jpg" />
+  <img src="Z:/picture/008/save_picture_447361.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447201.jpg" />
+  <img src="Z:/picture/008/save_picture_447201.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444746.jpg" />
+  <img src="Z:/picture/008/save_picture_444746.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444704.jpg" />
+  <img src="Z:/picture/008/save_picture_444704.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444359.jpg" />
+  <img src="Z:/picture/008/save_picture_444359.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Свободная культура. Звуки Северной столи
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441971.jpg" />
+  <img src="Z:/picture/008/save_picture_441971.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441783.jpg" />
+  <img src="Z:/picture/008/save_picture_441783.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441411.jpg" />
+  <img src="Z:/picture/008/save_picture_441411.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440378.jpg" />
+  <img src="Z:/picture/008/save_picture_440378.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440355.jpg" />
+  <img src="Z:/picture/008/save_picture_440355.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440285.jpg" />
+  <img src="Z:/picture/008/save_picture_440285.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438057.jpg" />
+  <img src="Z:/picture/008/save_picture_438057.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437903.jpg" />
+  <img src="Z:/picture/008/save_picture_437903.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437718.jpg" />
+  <img src="Z:/picture/008/save_picture_437718.jpg" />
 </div>
 
 

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1861594   (1062926) от 
+
+Active@ Boot Disk v26.0.1 WinPE x64 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Active@ Boot Disk - полнофункциональная операционная система на CD/DVD/USB диске. Является загрузочным диском, который можно запускать на компьютерах где уже загружена ОС. Не изменяет ОС уже установленную на жестком диске компьютера. Включает в себя множество инструментов для загрузки компьютера, исправления конфигурации компьютера и проблем управления системой, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C508A311BA50324C27A35FB7510C30EE020CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860599   (1062078) от 
+
+NHV Boot 2026 v2100 Extreme [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062078.jpg" />
+</div>
+
+
+###  Подробнее
+
+NHV Boot 2026 v2100 Extreme - это универсальный загрузочный USB/DVD для устранения неполадок, если ОС выходит из строя. Он поддерживает установку Windows, ремонт системы, полное резервное копирование и восстановление данных. Включает продвинутые инструменты для разметки дисков и диагностики. Эффективно исправляет проблемы с программным обеспечением, такие как ошибки (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466EF403BB24E5DB423F541DFAE32DD0571706B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856917   (1059214) от 03.03.2026
 
 WinPE 11-10 Sergei Strelec (x64) 2026.03.03 [Ru]
@@ -7,7 +59,7 @@ WinPE 11-10 Sergei Strelec (x64) 2026.03.03 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059214.jpg" />
+  <img src="Z:/picture/005/save_picture_1059214.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2026.02.05 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055489.jpg" />
+  <img src="Z:/picture/005/save_picture_1055489.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052085.jpg" />
+  <img src="Z:/picture/005/save_picture_1052085.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052034.jpg" />
+  <img src="Z:/picture/005/save_picture_1052034.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Jinn'sLiveUSB 11.6 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авто�
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050338.jpg" />
+  <img src="Z:/picture/005/save_picture_1050338.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Multiboot Collection Full v.8.9 (Обновляемая) [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050158.jpg" />
+  <img src="Z:/picture/005/save_picture_1050158.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.12.14 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048577.jpg" />
+  <img src="Z:/picture/008/save_picture_1048577.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046917.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Windows 10-11 PE x64 by Xemom1 (2022) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043477.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Anhdv Boot 2023 Premium v23.4 x86-x64 (03.03.2023) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035800.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Bootable Flash Drive USB by StartSoft Happy New Year! 01-2021 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034271.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ MCBoot WinPE VN 2023 PRO v9.6 build 010323 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034266.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ USB Reanimator Zolotoy v.4 [английский + русский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973266.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Windows 10 PE x64  Acronis Edition by evgen_b (2021.05.30) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911482.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Stop SMS Uni Boot x64 (UEFI) (Win 8.1) v.6.03.03 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896830.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Stop SMS Uni Boot x64 Win 10(UEFI) v.6.03.06 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893090.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Windows 8 PE x86x64 Universal by Xemom1 01.04.16 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842490.jpg" />
+  <img src="Z:/picture/008/save_picture_842490.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ RuneBit Flash MultiBoot USB 3.0 Final [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834455.jpg" />
+  <img src="Z:/picture/008/save_picture_834455.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818515.jpg" />
+  <img src="Z:/picture/008/save_picture_818515.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813057.jpg" />
+  <img src="Z:/picture/008/save_picture_813057.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ RA SYSadminSFT 2016 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803223.jpg" />
+  <img src="Z:/picture/008/save_picture_803223.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Ieshua's Live-DVD/USB 2.16 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794694.jpg" />
+  <img src="Z:/picture/008/save_picture_794694.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790231.jpg" />
+  <img src="Z:/picture/008/save_picture_790231.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787919.jpg" />
+  <img src="Z:/picture/008/save_picture_787919.jpg" />
 </div>
 
 
@@ -632,58 +684,6 @@ MD(UEFI) версия 2k10, адаптированная под размер 1,4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E80B6E45623F03BEF245B1E56949F5979A78F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203340   (787905) от 02.02.2018
-
-2k10 Live CD 7.13 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787905.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-версия "2k10 Live", содержит только C9PE и сокращенный набор программЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE873997697FE5859DEEC4E49A23C5BB185235FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124632   (785485) от 12.04.2017
-
-Active@ Boot Disk (LiveCD) 10.5.0 RePack by WYLEK (x64) [Ru]
-
->>След.
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Active@ Boot Disk - включает в себя набор мощных инструментов, которые позволят Вам восстановить потерянные данные, сбросить пароли учетных записей Windows, создать резервные копии системы и надежно стирать данные без возможности восстановления. Active@ Boot Disk является загрузочным CD, и может использоваться даже для компьютеров, на которых не загружается основная (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EFA586F544B96B004AFC495A5E584BEB72F7BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

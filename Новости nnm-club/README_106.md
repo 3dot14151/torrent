@@ -1,3 +1,109 @@
+###  Публикация: 1402457   (701028) от 14.08.2020
+
+Windows 7 SP1 х86-x64 by g0dl1ke 20.08.13
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_701028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по август 2020 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBD7DFBCA284B2BA01A132329396293EC5A16D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287220   (700784) от 08.03.2019
+
+Аквамен / Aquaman (2018) WEBRip [H.264/1080p] [IMAX]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в необъятном и захватывающем подводном мире семи морей, а сюжет знакомит зрителей с историей происхождения получеловека-полуатланта Артура Карри и ключевыми событиями его жизни — теми, что заставят его не только столкнуться с самим собой, но и выяснить, достоин ли он быть тем, кем ему суждено… царем!Производство: Австралия, США / DC Comics, DC Entertainment, Panoramic PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джеймс ВанАктеры: Джейсон Момоа, Эмбер Хёрд, Уиллем Дефо, Патрик Уилсон, Николь Кидман, Дольф Лундгрен, Яхья Абдул-Матин II, Темуэра Моррисон, Луди Юэнь, Майкл БичПеревод: Дублированный (iTunes), Многоголосый закадровый (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5E2B3A08CE82C62B30A1699396EBFBA31A0A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877755   (700573) от 05.05.2015
+
+Сверхспособности / Сверхсилы / Powers (2015) WEBRip / WEB-DLRip (сезон 1, серии 1-10 из 10) BaibaKo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сериала разворачивается в мире, где супергерои живут среди обычных людей. Сотрудники убойного отдела Кристиан Уокер и Дина Пилгрим занимаются защитой простых людей от преступников со сверхспособностями и расследуют дела, в которых замешаны эти супергерои.Производство: СШАЖанр: фантастика, драма, криминалРежиссер: Дэвид Петрарка, Микаэл Саломон, Билл ИглзАктеры: Шарлто Копли, Эдди Иззард, Мишель Форбс, Сьюзэн Хэйард, Ноа Тейлор, Логан Браунинг, Джастис Лик, Эндрю Сенсениг, Адам Годли, Филлип ДеВона и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Anna_Smile, Юлия Котурбаш, Олекса Мельник и Владимир КурдовФормат: AVIПродолжительность: ~00:53:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0279BBCB971054012462DBECDE4404CF42BDB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220664   (700303) от 21.04.2018
+
+Команда МГУ впервые победила на студенческом чемпионате мира по программированию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_700303.jpg" />
+</div>
+
+
+###  Подробнее
+
+В международном соревновании по программированию победила российская команда из МГУ.
+Призовые места также заняли еще три команды из России: МФТИ, Университет ИТМО и УрФУ
+Команда Московского государственного университета (МГУ) заняла первое место на чемпионате мира по спортивному программированию ACM ICPC (International Collegiate Programming Contest) в Пекине. Команде (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132610   (700232) от 09.05.2017
 
 BELite (x86/x64) v.08.05.17 [Ru]
@@ -6,7 +112,7 @@ BELite (x86/x64) v.08.05.17 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700232.jpg" />
+  <img src="Z:/picture/008/save_picture_700232.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Special Edition RePack by -{A.L.E.X
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700212.jpg" />
+  <img src="Z:/picture/008/save_picture_700212.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700177.jpg" />
+  <img src="Z:/picture/008/save_picture_700177.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700031.jpg" />
+  <img src="Z:/picture/008/save_picture_700031.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699454.jpg" />
+  <img src="Z:/picture/008/save_picture_699454.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699119.jpg" />
+  <img src="Z:/picture/008/save_picture_699119.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ The Light Remake (2020) [Ru/En] (1.05) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699112.jpg" />
+  <img src="Z:/picture/008/save_picture_699112.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ COMSS Boot USB 2019-03 Full [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698914.jpg" />
+  <img src="Z:/picture/008/save_picture_698914.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ Nero 2015 Platinum 16.0.05000 + Content Pack [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698663.jpg" />
+  <img src="Z:/picture/008/save_picture_698663.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698659.jpg" />
+  <img src="Z:/picture/008/save_picture_698659.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698658.jpg" />
+  <img src="Z:/picture/008/save_picture_698658.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698274.jpg" />
+  <img src="Z:/picture/008/save_picture_698274.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698258.jpg" />
+  <img src="Z:/picture/008/save_picture_698258.jpg" />
 </div>
 
 
@@ -355,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698245.jpg" />
+  <img src="Z:/picture/008/save_picture_698245.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 04.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698135.jpg" />
+  <img src="Z:/picture/008/save_picture_698135.jpg" />
 </div>
 
 
@@ -407,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_697910.jpg" />
+  <img src="Z:/picture/005/save_picture_697910.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ Ikkitousen: Xtreme Xecutor / Школьные войны (Сила тысячи)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_697887.jpg" />
+  <img src="Z:/picture/005/save_picture_697887.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ NeuroNation Premium 2.6.0 - 2.6.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697557.jpg" />
+  <img src="Z:/picture/008/save_picture_697557.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ Space Run Galaxy (2016) [Ru/Multi] (1.0.0.4541.5927) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697556.jpg" />
+  <img src="Z:/picture/008/save_picture_697556.jpg" />
 </div>
 
 
@@ -516,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697552.jpg" />
+  <img src="Z:/picture/008/save_picture_697552.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (5.09/MP Only/dlc) Rip X-NET [SE5 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697549.jpg" />
+  <img src="Z:/picture/008/save_picture_697549.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697279.jpg" />
+  <img src="Z:/picture/008/save_picture_697279.jpg" />
 </div>
 
 
@@ -579,110 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB66C039492D4F4403B8D9E70EC0E8531E8C18BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84001   (697277) от 28.02.2022
-
-Worms 3D (2003) [Ru] (1.0) License
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарные "червяки" возвращаются! Бравые вояки получили новую степень свободы! Трехмерные сражения до зубов вооруженных червяков-коммандос, веселых, злобных и готовых на все ради победы стали еще более насыщенными и красочными. Трехмерный игровой мир позволяет использовать массу тактических приемов, открывает простор для новых видов вооружений и всевозможных (   Читать дальше...   )Тип издания: LicenseРазработчик: Team17Жанр: Логические, СтратегияЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4B4F2F5766BAD8484E36611936DD1F1D999116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402523   (697189) от 16.08.2020
-
-Тесла / Tesla (2020) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его изобретениями пользуются все каждый день, даже не подозревая, что в их основе лежат его гениальные провидческие идеи. Никола Тесла. Невероятная жизнь, полная озарений, побед и разочарований. Захватывающая история человека, который изобрел ХХ век.Производство: США / Passage Pictures (II), RNG Entertainment, Campbell Grobman FilmsЖанр: драма, биографияРежиссер: Майкл АлмерейдаАктеры: Итан Хоук, Кайл МакЛоклен, Ив Хьюсон, Джим Гэффиган, Эбон Мосс-Бакрак, Ханна Гросс, Джош Хэмилтон, Джеймс Урбаняк, Eli A. Smith, Люси УолтерсПеревод: Многоголосый любительский (@MUZOBOZ@)Субтитры: ОтсутствуютПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5D351A9F9C40AF9238F9E4B067254C927BAE05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332700   (697014) от 05.05.2011
-
-Generation П (2011) DVDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанный на культовом романе Виктора Пелевина фильм «Generation П» во многом строится на галлюцинациях — включая речь Че Гевары о том, почему и как телевидение разрушает человека. Однако через изменённую реальность проступает кропотливо восстановленная атмосфера Москвы в 90-е годы, на фоне которой и разворачивается действие картины. Вавилен Татарский, нашедший (   Читать дальше...   )Производство: РоссияЖанр: фантастика, драма, комедияРежиссер: Виктор ГинзбургАктеры: Владимир Епифанцев, Михаил Ефремов, Андрей Фомин, Сергей Шнуров, Андрей Панин, Александр Гордон, Рената Литвинова, Владимир Меньшов, Олег Тактаров, Юрий СафаровПродолжительность: 01:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514A48737664986CF24FB6CF73E834C2DF73A8F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824909   (696838) от 07.05.2015
-
-В поле зрения / Подозреваемый / Person of Interest (2014) WEB-DL [H.264/720p-LQ] (сезон 4, полный) (NewStudio)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предполагаемо погибший бывший агент ЦРУ Риз объединяется с таинственным миллионером чтобы предотвращать преступления. Подготовка Риза в проведении операций под прикрытием привлекает внимание миллионера Финча, гения-программиста, который изобрел программу, позволяющую предсказывать преступные склонности людей на базе анализа поведения. Используя последние достижения (   Читать дальше...   )Жанр: драма, детектив, криминалРежиссер: Ричард Дж. Льюис, Крис Фишер, Фред ТуаАктеры: Джеймс Кэвизел, Майкл Эмерсон, Stanislav Shkilnyi, Узиманн, Тараджи П. Хенсон, Кевин Чэпмен, Куртеней Тейлор, Крис Чок, Жермен Кроуфорд, Брайан Д’Арси Джеймс и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioФормат: MKVПродолжительность: ~00:43:37 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750C5501439BA21F5008AA40599395AE17925EF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

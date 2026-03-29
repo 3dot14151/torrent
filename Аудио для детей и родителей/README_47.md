@@ -1,3 +1,85 @@
+###  Публикация: 228359   (521288) от 19.08.2010
+
+Гомер Эдвин Эванс - Счастливые произведения (2007) [MP3|320 kbps]<Колыбельная, антистресс, релакс>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серию «Музыка для самых маленьких» представляют альбомы музыки, ориентированной как на дородовый период, так и на первые годы жизни ребенка. Сейчас общеизвестно благотворное влияние мягких и нежных звуков на внутриутробное развитие плода. Спокойное и радостное восприятие малышом окружающего мира закладывается уже в это время.
+Альбомы серии наполнены легкой мягкой (   Читать дальше...   )01. Время спать 	    (08:30)
+02. Счастливые произведения (08:09)
+03. Друзья 		    (08:01)
+04. Маленькая фея           (07:51)(   Читать дальше...   )Жанр: Колыбельная, антистресс, релаксПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372990   (521081) от 07.08.2011
+
+Григорий Остер | Котенок по имени Гав (2006) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселые истории о крепкой дружбе маленького котенка Гав и щенка, которые попадают в различные веселые истории. Милые герои учат детей нетривиальному мышлению начать с того, что чудный котенок имеет совершенно не кошачье имя – Гав. Далее у котенка совершенно нетипичный друг – щенок. Котенка пытается наставлять огромный черный котяра, но это же бесполезно. Малыш постоянно (   Читать дальше...   )Жанр: Сказки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D468AD36285C3389F82CD04CA63254782037B5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315144   (520677) от 29.06.2022
+
+Всеволод Нестайко | Необычайные приключения Робинзона Кукурузо (2019) [MP3, Александр Райдер]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520677.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Необычайные приключения Робинзона Кукурузо" - первая книга детского советского писателя Всеволода Нестайко из трилогии «Тореадоры из Васюковки», повествующая о дружбе и приключениях двух деревенских сорванцов - весёлых мальчишек-одноклассников Явы Реня и Павлуши Завгороднего.Жанр: Детская литератураПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271271E8EF4616824258B253EFBFBB369E3FAA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 207029   (520653) от 29.06.2022
 
 Эдуард Успенский | Красная рука, Черная простыня, Зеленые пальцы (2008) [MP3, Капитан Абр (Атас)]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520653.jpg" />
+  <img src="Z:/picture/008/save_picture_520653.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520607.jpg" />
+  <img src="Z:/picture/008/save_picture_520607.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520401.jpg" />
+  <img src="Z:/picture/008/save_picture_520401.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520246.jpg" />
+  <img src="Z:/picture/008/save_picture_520246.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ VA - The Complete Halloween Party Album (2CD) (2009) [MP3|128 kbps]<Детски
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520174.jpg" />
+  <img src="Z:/picture/008/save_picture_520174.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519740.jpg" />
+  <img src="Z:/picture/008/save_picture_519740.jpg" />
 </div>
 
 
@@ -166,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519730.jpg" />
+  <img src="Z:/picture/008/save_picture_519730.jpg" />
 </div>
 
 
@@ -193,7 +275,7 @@ Nightingale Orchestra - Мир природы для малышей (2005) [MP3|
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518647.jpg" />
+  <img src="Z:/picture/008/save_picture_518647.jpg" />
 </div>
 
 
@@ -222,7 +304,7 @@ VA - Сlassics fur mein Bаby (4CD) (2008) [MP3|320 kbps]<Классическа
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518643.jpg" />
+  <img src="Z:/picture/008/save_picture_518643.jpg" />
 </div>
 
 
@@ -251,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518004.jpg" />
+  <img src="Z:/picture/008/save_picture_518004.jpg" />
 </div>
 
 
@@ -277,7 +359,7 @@ VA - XXXL детский. Маленькая страна (2000) [MP3|320 kbps]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517675.jpg" />
+  <img src="Z:/picture/008/save_picture_517675.jpg" />
 </div>
 
 
@@ -306,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517660.jpg" />
+  <img src="Z:/picture/008/save_picture_517660.jpg" />
 </div>
 
 
@@ -333,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517236.jpg" />
+  <img src="Z:/picture/008/save_picture_517236.jpg" />
 </div>
 
 
@@ -362,7 +444,7 @@ VA - Детское Ассорти (2010) [MP3|128 kbps]<Pop>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516214.jpg" />
+  <img src="Z:/picture/008/save_picture_516214.jpg" />
 </div>
 
 
@@ -391,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516063.jpg" />
+  <img src="Z:/picture/008/save_picture_516063.jpg" />
 </div>
 
 
@@ -417,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515076.jpg" />
+  <img src="Z:/picture/008/save_picture_515076.jpg" />
 </div>
 
 
@@ -444,7 +526,7 @@ VA - A la ferme De Mathurin (2007) [MP3|320 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514553.jpg" />
+  <img src="Z:/picture/008/save_picture_514553.jpg" />
 </div>
 
 
@@ -473,7 +555,7 @@ Francis Bernier - Prince d'Azur (2007) [MP3|128 kbps]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514490.jpg" />
+  <img src="Z:/picture/008/save_picture_514490.jpg" />
 </div>
 
 
@@ -502,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514385.jpg" />
+  <img src="Z:/picture/008/save_picture_514385.jpg" />
 </div>
 
 
@@ -531,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514336.jpg" />
+  <img src="Z:/picture/008/save_picture_514336.jpg" />
 </div>
 
 
@@ -560,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514289.jpg" />
+  <img src="Z:/picture/008/save_picture_514289.jpg" />
 </div>
 
 
@@ -589,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514194.jpg" />
+  <img src="Z:/picture/008/save_picture_514194.jpg" />
 </div>
 
 
@@ -618,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512152.jpg" />
+  <img src="Z:/picture/008/save_picture_512152.jpg" />
 </div>
 
 
@@ -632,91 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57CC52EF049CEE225E11B554752662841109AF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315699   (511797) от 21.07.2019
-
-Владислав Крапивин | Почему такое имя? (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511797.jpg" />
-</div>
-
-
-###  Подробнее
-
-У главного героя рассказа имя - Антон. Друзья и домашние зовут его Тоник. Однажды, во аремя вылазки на реку, Антон упал с лодки на плот и сильно ободрал локти и колени и расплакался. А лучший друг Тима передразнил его: "Как девченка То-о-онечка!"
-Дома Антон сетовал на судьбу и имя, а отец поведал ему историю его имени.
-В молодости, работая на целине Краснодарского (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2820AC6F997DF9CE901CFE0A1FAACCF801EBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376379   (510997) от 16.08.2011
-
-Джоан Кэтлин Роулинг | Гарри Поттер и принц-полукровка (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волан-де-Морт стал еще сильнее и опаснее. В борьбе с ним Министерство магии терпит поражение за поражением. Даже простые маглы и те страдают в этой страшной войне. Все больше и больше людей исчезают бесследно, или погибают при невыясненных обстоятельствах. Повсюду происходят загадочные происшествия и необъяснимые катастрофы.
-Но несмотря ни на что жизнь продолжается. (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 20:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7628092395A1631788C9991D1B2004B47292C13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229884   (510961) от 29.08.2010
-
-Rattan Sharma - Mantras for Children and Young Adults (2004) [MP3|320 kbps]<Мантры для детей>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень необычный диск. Конечно, декламацией индийских священных мантр сейчас уже никого не удивишь. Но вот, что интересно, на этом диске, который с любовью посвящается всем маленьким слушателям - мантры поются с детским хором. Главным вокалом же здесь выступает голос популярного в Индии исполнителя, который наверно уже знаком многим из вас - Rattan Mohan Sharma.
- (   Читать дальше...   )01. Signature Prayer 0:45
-02. Morning Shlokas 12:15
-03. Daytime Shlokas 13:40
-04. Evening Shlokas 8:32(   Читать дальше...   )Жанр: Мантры для детейПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

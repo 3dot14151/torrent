@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1860633   (1062028) от 
+
+Женя Белоусова - Я - зажигалка (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы не герои мелодрам [00:03:12]
+02. Мы больше не рядом [00:02:50]
+03. Ты слышишь, милый [00:03:19]
+04. Я - зажигалка [00:03:38](   Читать дальше...   )Жанр: PopПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3FF3C926FAF7794A98392709A28174C977FF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857944   (1060019) от 07.03.2026
 
 DJ Slon (Александр Альберт) - В Яблочко (2025) [FLAC|Lossless|WEB-DL|tracks] <Europop, Disco, Euro House, Pop Rap>
@@ -7,7 +36,7 @@ DJ Slon (Александр Альберт) - В Яблочко (2025) [FLAC|Los
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060019.jpg" />
+  <img src="Z:/picture/005/save_picture_1060019.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057111.jpg" />
+  <img src="Z:/picture/005/save_picture_1057111.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056906.jpg" />
+  <img src="Z:/picture/005/save_picture_1056906.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Polnalyubvi - Коллекция (2018-2024) [FLAC|Lossless|tracks] <Pop, Indie>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054777.jpg" />
+  <img src="Z:/picture/005/save_picture_1054777.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053229.jpg" />
+  <img src="Z:/picture/005/save_picture_1053229.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051089.jpg" />
+  <img src="Z:/picture/005/save_picture_1051089.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045818.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045798.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ VA - Танцы на колёсах (1998) [FLAC|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042020.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041712.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Hortenzia - 4 Releases (2019-2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038372.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034171.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ VA - Народный артист-Необыкновенный (2005) [FLAC|Los
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031881.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ NK (Настя Каменских) - Eclectica (2020) [FLAC|Lossless|WEB-DL|trac
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030476.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Dmitri Hvorostovsky (Дмитрий Хворостовский) - Singing of Lov
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030231.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029209.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ DJ Ryloff (Remixed Ru) - Трава у дома (2023) [WavPack|Lossless|image +
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029099.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027932.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027928.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027695.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027209.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026597.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026138.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026132.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025664.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF88692AC5E2E6DD520F2377FD9367E56651D874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455320   (1025627) от 19.03.2021
-
-Чё Те Надо? - Где найти мужчину? (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где найти мужчину? (3:10)
-02. Она работает на скорой врачом (3:31)
-03. Чайничек (2:56)
-04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F4981B6ECEF39599F795BF0FA508111D9BBC2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

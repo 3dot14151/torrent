@@ -1,3 +1,86 @@
+###  Публикация: 298003   (885416) от 19.02.2011
+
+VA - Вивальди для малышей (2008) [MP3|320 kbps]<Классическая музыка>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_885416.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Autumn suite
+2. Spring suite
+3. Concerto for Violin No 2 Allegro Moderato
+4. Concerto for Violin No 2 Andante(   Читать дальше...   )Жанр: Классическая музыкаПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA88D7988E0C7B6556A403B0E8C2F46D7B3118FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 297214   (885390) от 19.02.2011
+
+Мелодия | В. Гауф | Маленький Мук (2010) [MP3, Н. Макеев и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_885390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гауф писал, как рассказывал. Не стесняя своей фантазии, увлекаясь, как будто видел перед собой горящие глаза маленьких, да и больших читателей.
+В причудливых арабских сказках находил Гауф своих героев. Только этим героям он давал новую жизнь, полную острых, захватывающих приключений, отправляя их в рискованные, заманчивые путешествия.
+В его сказках всегда торжествует (   Читать дальше...   )Жанр: Сказка, аудиоспектакльПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31E46260918545B1B063DD411780F5244DB19A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372615   (884763) от 03.04.2020
+
+Русские народные сказки. Сборник (1962-1983) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки, которые нам читали родители в детстве; мы читаем своим детям, а они уже своим чадам. Эти прекрасные сказки не уходят в забвение, передаваясь из поколения в попоколение.Жанр: Детская литератураПродолжительность: 23:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BA8B4B8990CBE89C1A0FFC6E80057BC730ED6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103828   (883431) от 13.02.2017
 
 Пётр Ершов | Конёк-Горбунок (2008) [WavPack, Олег Табаков]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883431.jpg" />
+  <img src="Z:/picture/005/save_picture_883431.jpg" />
 </div>
 
 
@@ -36,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882628.jpg" />
+  <img src="Z:/picture/005/save_picture_882628.jpg" />
 </div>
 
 
@@ -62,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881797.jpg" />
+  <img src="Z:/picture/005/save_picture_881797.jpg" />
 </div>
 
 
@@ -91,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881606.jpg" />
+  <img src="Z:/picture/005/save_picture_881606.jpg" />
 </div>
 
 
@@ -120,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881282.jpg" />
+  <img src="Z:/picture/005/save_picture_881282.jpg" />
 </div>
 
 
@@ -146,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881279.jpg" />
+  <img src="Z:/picture/005/save_picture_881279.jpg" />
 </div>
 
 
@@ -172,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880822.jpg" />
+  <img src="Z:/picture/005/save_picture_880822.jpg" />
 </div>
 
 
@@ -198,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880770.jpg" />
+  <img src="Z:/picture/005/save_picture_880770.jpg" />
 </div>
 
 
@@ -227,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880183.jpg" />
+  <img src="Z:/picture/005/save_picture_880183.jpg" />
 </div>
 
 
@@ -256,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879451.jpg" />
+  <img src="Z:/picture/005/save_picture_879451.jpg" />
 </div>
 
 
@@ -283,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879003.jpg" />
+  <img src="Z:/picture/005/save_picture_879003.jpg" />
 </div>
 
 
@@ -311,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878026.jpg" />
+  <img src="Z:/picture/005/save_picture_878026.jpg" />
 </div>
 
 
@@ -337,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877555.jpg" />
+  <img src="Z:/picture/005/save_picture_877555.jpg" />
 </div>
 
 
@@ -365,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873559.jpg" />
+  <img src="Z:/picture/008/save_picture_873559.jpg" />
 </div>
 
 
@@ -391,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872841.jpg" />
+  <img src="Z:/picture/008/save_picture_872841.jpg" />
 </div>
 
 
@@ -420,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872831.jpg" />
+  <img src="Z:/picture/008/save_picture_872831.jpg" />
 </div>
 
 
@@ -449,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872699.jpg" />
+  <img src="Z:/picture/008/save_picture_872699.jpg" />
 </div>
 
 
@@ -478,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871271.jpg" />
+  <img src="Z:/picture/008/save_picture_871271.jpg" />
 </div>
 
 
@@ -505,7 +588,7 @@ VA - Toon Tunes: 50 Favorite Classic Cartoon Songs (1997) [MP3|128 kbps]<Дет�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871021.jpg" />
+  <img src="Z:/picture/008/save_picture_871021.jpg" />
 </div>
 
 
@@ -534,7 +617,7 @@ VA - Детские песни. 200 детских хитов. (2011) [MP3|128-2
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870424.jpg" />
+  <img src="Z:/picture/008/save_picture_870424.jpg" />
 </div>
 
 
@@ -563,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869965.jpg" />
+  <img src="Z:/picture/008/save_picture_869965.jpg" />
 </div>
 
 
@@ -589,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868578.jpg" />
+  <img src="Z:/picture/008/save_picture_868578.jpg" />
 </div>
 
 
@@ -615,7 +698,7 @@ VA - Little People: Christmas Sing-Along (2003) [MP3|224 kbps]<Детские р
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867262.jpg" />
+  <img src="Z:/picture/008/save_picture_867262.jpg" />
 </div>
 
 
@@ -629,87 +712,6 @@ VA - Little People: Christmas Sing-Along (2003) [MP3|224 kbps]<Детские р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC1267BBF54379F9BDA2AAF33329B5A0AE5FE181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302836   (867143) от 01.03.2011
-
-VA - Любимые детские песни из кинофильмов.Пока бьют часы (2006) [MP3|320 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог (из фильма "Приключения желтого чемоданчика")
-02. Песня доктора (из фильма "Приключения желтого чемоданчика")
-03. Песня Пети (из фильма "Приключения желтого чемоданчика")
-04. Песня Томы (из фильма "Приключения желтого чемоданчика")(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399A1C167E43BF4DAE806DEEB6CC01E5D93B2B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998837   (866390) от 21.03.2016
-
-Филипп Керр | Джинн в плену Эхнатона (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитое англо-американское издательство «Scholastic», открывшее для мира Гарри Поттера, много лет искало книгу, способную поспорить за внимание читателей с мировыми бестселлерами Джоан Ролинг. Похоже, такая книга найдена: это квадрология «Дети лампы», написанная британцем Ф.Б.Керром, который до сих пор был известен в Европе и Америке как автор захватывающих детективов (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE80255EBAFF74D4B42BC13512B8B9F7201B51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108414   (862917) от 25.02.2017
-
-Николай Павлинов | Сказочки для проказников (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки для маленьких непосед. В замечательной, легкой манере рассказываются веселые, поучительные, увлекательные истории. А звуковые эффекты и музыка помогают полностью окунуться в повествование, развивая детское воображение.Жанр: СказкиПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E407BBF4919A3315904132C8CEEC8684FE9024B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

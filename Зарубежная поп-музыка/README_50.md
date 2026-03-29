@@ -1,3 +1,38 @@
+###  Публикация: 389104   (454014) от 19.09.2011
+
+Kim Wilde - Snapshots / Special Edition (2011) [MP3|230-283 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Alright
+02. In Between Days
+03. About You Now
+04. Sleeping Satellite
+05. To France
+06. A Lilltle Respect
+07. Remember Me
+08. Anyone Who Had A Heart
+09. Wonderful Life
+10. They Don't Know About Us(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0679E58714465862CE240ADCAAFA7B38C13B9503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247526   (452727) от 15.09.2018
 
 Bananarama - Live at the London Eventim Hammersmith Apollo (2018) [MP3|320 Kbps] <Europop, Dance>
@@ -6,7 +41,7 @@ Bananarama - Live at the London Eventim Hammersmith Apollo (2018) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452727.jpg" />
+  <img src="Z:/picture/008/save_picture_452727.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ VA - Bravo Hits Vol. 103 (2018) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452721.jpg" />
+  <img src="Z:/picture/008/save_picture_452721.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ VA - The Sweet Sound of Bossanova (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452714.jpg" />
+  <img src="Z:/picture/008/save_picture_452714.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452500.jpg" />
+  <img src="Z:/picture/008/save_picture_452500.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ Janet Jackson - Unbreakable (2015) Deluxe Edition [MP3|320 кб/с]<R&B, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451640.jpg" />
+  <img src="Z:/picture/008/save_picture_451640.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ VA - Power of Love: 80s Love Songs (2018) [MP3|320 Kbps] <Pop  Funk, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451073.jpg" />
+  <img src="Z:/picture/008/save_picture_451073.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448661.jpg" />
+  <img src="Z:/picture/008/save_picture_448661.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ Sandra - Fading Shades (1995) [OGG|485 Kbps] <Downtempo, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447202.jpg" />
+  <img src="Z:/picture/008/save_picture_447202.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ Drezden - Drezden (2018) [MP3|320 Kbps] <Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446511.jpg" />
+  <img src="Z:/picture/008/save_picture_446511.jpg" />
 </div>
 
 
@@ -268,7 +303,7 @@ Robert Montecristo - Jo Superboy (1980) Vinyl 7" [MP3|320 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446353.jpg" />
+  <img src="Z:/picture/008/save_picture_446353.jpg" />
 </div>
 
 
@@ -295,7 +330,7 @@ Secret Service - The Lost Box (2012) [OGG|485 Kbps] <Pop Rock, Hi NRG, Synth-pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445101.jpg" />
+  <img src="Z:/picture/008/save_picture_445101.jpg" />
 </div>
 
 
@@ -324,7 +359,7 @@ Belinda Carlisle - Runaway Horses (Remastered Deluxe) 2CD (2013) [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444739.jpg" />
+  <img src="Z:/picture/008/save_picture_444739.jpg" />
 </div>
 
 
@@ -350,7 +385,7 @@ Nazia & Zoheb Hassan - 3 Albums (1980-1995) [MP3|320 Kbps] <Electronic, Pop, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444258.jpg" />
+  <img src="Z:/picture/008/save_picture_444258.jpg" />
 </div>
 
 
@@ -379,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443148.jpg" />
+  <img src="Z:/picture/008/save_picture_443148.jpg" />
 </div>
 
 
@@ -408,7 +443,7 @@ NK (Настя Каменских) - Ecléctica (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443018.jpg" />
+  <img src="Z:/picture/008/save_picture_443018.jpg" />
 </div>
 
 
@@ -437,7 +472,7 @@ The Spotnicks - Never Trust Robots (1978) LP [MP3|320 Kbps] <Electronic, Synth-P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442386.jpg" />
+  <img src="Z:/picture/008/save_picture_442386.jpg" />
 </div>
 
 
@@ -466,7 +501,7 @@ Explorer (by Tony Carey) - Explorer (1982) LP [MP3|320 Kbps] <Electronic, Disco,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441694.jpg" />
+  <img src="Z:/picture/008/save_picture_441694.jpg" />
 </div>
 
 
@@ -495,7 +530,7 @@ Mylène Farmer - Live 2019 (2019) [OGG|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440791.jpg" />
+  <img src="Z:/picture/008/save_picture_440791.jpg" />
 </div>
 
 
@@ -524,7 +559,7 @@ Londonbeat - Londonbeat (2019) [OGG|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438367.jpg" />
+  <img src="Z:/picture/008/save_picture_438367.jpg" />
 </div>
 
 
@@ -553,7 +588,7 @@ Shania Twain - Greatest Hits (2014) [OGG|485 Kbps] <Pop, Folk, World, & Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438295.jpg" />
+  <img src="Z:/picture/008/save_picture_438295.jpg" />
 </div>
 
 
@@ -582,7 +617,7 @@ VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438228.jpg" />
+  <img src="Z:/picture/008/save_picture_438228.jpg" />
 </div>
 
 
@@ -611,7 +646,7 @@ Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438192.jpg" />
+  <img src="Z:/picture/008/save_picture_438192.jpg" />
 </div>
 
 
@@ -640,7 +675,7 @@ Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437897.jpg" />
+  <img src="Z:/picture/008/save_picture_437897.jpg" />
 </div>
 
 
@@ -669,7 +704,7 @@ Rocky M - The Best Of (1989) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437868.jpg" />
+  <img src="Z:/picture/008/save_picture_437868.jpg" />
 </div>
 
 
@@ -698,7 +733,7 @@ Luca Rovini & Companeros - Cuori Fuorilegge (2018) [MP3|320 Kbps] <Italy Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437866.jpg" />
+  <img src="Z:/picture/008/save_picture_437866.jpg" />
 </div>
 
 
@@ -712,35 +747,6 @@ Luca Rovini & Companeros - Cuori Fuorilegge (2018) [MP3|320 Kbps] <Italy Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E55A273056C77C56B95AF6569E3452E1BA6853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 124135   (437547) от 20.09.2020
-
-ABBA - Дискография (1970-2007) 65CD [MP3|320] <PoP, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437547.jpg" />
-</div>
-
-
-###  Подробнее
-
-1970 - Lycka Remastered And Expanded - 01.16.17
-1973 - Ring Ring The Complete Studio Recordings - 00.57.36
-1974 - Waterloo (Unremaster) - 00.35.38
-1975 - ABBA (Unremaster) - 00.51.35(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 64:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AA7421DC40855AA070D63DC20FD3DA5087F7EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

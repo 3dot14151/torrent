@@ -6,7 +6,7 @@ FanControl V101 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744958.jpg" />
+  <img src="Z:/picture/008/save_picture_744958.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CoolUtils PDF Combine 6.1.0.119 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744946.jpg" />
+  <img src="Z:/picture/008/save_picture_744946.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744939.jpg" />
+  <img src="Z:/picture/005/save_picture_744939.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ StartIsBack++ 2.8.1 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744938.jpg" />
+  <img src="Z:/picture/008/save_picture_744938.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Daum PotPlayer 1.7.17508 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744934.jpg" />
+  <img src="Z:/picture/008/save_picture_744934.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Daum PotPlayer 1.7.17508 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744932.jpg" />
+  <img src="Z:/picture/005/save_picture_744932.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cacheman 10.60.0.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744925.jpg" />
+  <img src="Z:/picture/008/save_picture_744925.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows 11 Manager 1.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744893.jpg" />
+  <img src="Z:/picture/008/save_picture_744893.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CoolUtils Tiff Combine 4.1.0.26 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744879.jpg" />
+  <img src="Z:/picture/005/save_picture_744879.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ K-Lite Codec Pack Update 14.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744864.jpg" />
+  <img src="Z:/picture/008/save_picture_744864.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ CoolUtils Total Doc Converter 5.1.0.174 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744863.jpg" />
+  <img src="Z:/picture/008/save_picture_744863.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Baidu Cloud 5.4.4 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744847.jpg" />
+  <img src="Z:/picture/008/save_picture_744847.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Auslogics Anti-Malware 1.20.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744838.jpg" />
+  <img src="Z:/picture/008/save_picture_744838.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Blackmagic Design DaVinci Resolve Studio 15.2.4.006 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744831.jpg" />
+  <img src="Z:/picture/008/save_picture_744831.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ pdfFactory Pro 5.27 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744809.jpg" />
+  <img src="Z:/picture/008/save_picture_744809.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ashampoo Music Studio 6.0.1.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744806.jpg" />
+  <img src="Z:/picture/008/save_picture_744806.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FXSound Pro 1.1.14.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744790.jpg" />
+  <img src="Z:/picture/005/save_picture_744790.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ KLS Backup 2017 Professional 9.1.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744754.jpg" />
+  <img src="Z:/picture/008/save_picture_744754.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ save2pc Ultimate 5.5.4 Build 1575 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744748.jpg" />
+  <img src="Z:/picture/008/save_picture_744748.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PDF Eraser Pro 1.9.1.4 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744745.jpg" />
+  <img src="Z:/picture/008/save_picture_744745.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ R-Studio 8.0 Build 164571 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744736.jpg" />
+  <img src="Z:/picture/008/save_picture_744736.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Zemana AntiMalware Premium + Portable 2.74.2.150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744717.jpg" />
+  <img src="Z:/picture/008/save_picture_744717.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Visual Assist X 10.9.2062 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744698.jpg" />
+  <img src="Z:/picture/008/save_picture_744698.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Meridian 5.0.740.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744692.jpg" />
+  <img src="Z:/picture/008/save_picture_744692.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Windows 10 21H2 (Build 19044.1466) (64in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744643.jpg" />
+  <img src="Z:/picture/008/save_picture_744643.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ SRWare Iron 65.0.3400.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744638.jpg" />
+  <img src="Z:/picture/008/save_picture_744638.jpg" />
 </div>
 
 

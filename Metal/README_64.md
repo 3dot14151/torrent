@@ -6,7 +6,7 @@ Veonity - Into The Void (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484100.jpg" />
+  <img src="Z:/picture/008/save_picture_484100.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Claret Ash - The Cleansing (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Pro
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484065.jpg" />
+  <img src="Z:/picture/008/save_picture_484065.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Omnium Gatherum - The Burning Cold (2018) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483981.jpg" />
+  <img src="Z:/picture/008/save_picture_483981.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Devon Murray - Dedicated, Resistant, Minute. (2020) [MP3|320 Kbps] <Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483683.jpg" />
+  <img src="Z:/picture/008/save_picture_483683.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Manticora - To Live to Kill to Live (2020) [MP3|320 Kbps] <Progressive Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483679.jpg" />
+  <img src="Z:/picture/008/save_picture_483679.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Luna's Call - 2 Albums (2016-2020) [MP3|320 Kbps] <Progressive Metal, Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483677.jpg" />
+  <img src="Z:/picture/008/save_picture_483677.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Motorpsycho - The All Is One (2020) [MP3|320 Kbps] <Psychedelic Rock, Alternativ
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483676.jpg" />
+  <img src="Z:/picture/008/save_picture_483676.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pomegranate Tiger - Boundless (2015) [MP3|320 кб/с]<Experimental Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482112.jpg" />
+  <img src="Z:/picture/008/save_picture_482112.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Annihilator - Suicide Society (2015) Deluxe Edition [MP3|320 кб/с]<Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481603.jpg" />
+  <img src="Z:/picture/008/save_picture_481603.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Triumvir - Triumvir (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481497.jpg" />
+  <img src="Z:/picture/008/save_picture_481497.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Children Of Bodom / Amorphis - Tales From Lake Bodom (2015) Split [MP3|320 кб/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479796.jpg" />
+  <img src="Z:/picture/008/save_picture_479796.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Drunkard - Inhale The Inferno (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479616.jpg" />
+  <img src="Z:/picture/008/save_picture_479616.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Suicidal Tendencies - World Gone Mad (2016) [MP3|320 Kbps] <Thrash Metal, Crosso
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479405.jpg" />
+  <img src="Z:/picture/008/save_picture_479405.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Metallica - Moth Into Flame (2016) Single [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479046.jpg" />
+  <img src="Z:/picture/008/save_picture_479046.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Charred Walls Of The Damned - Creatures Watching Over The Dead (2016) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477620.jpg" />
+  <img src="Z:/picture/008/save_picture_477620.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sadhayena - Mist of Fury (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477594.jpg" />
+  <img src="Z:/picture/008/save_picture_477594.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Opeth - Sorceress (2016) [MP3|320 Kbps] 2CD <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477384.jpg" />
+  <img src="Z:/picture/008/save_picture_477384.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ HammerFall - Dominion (2019) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477310.jpg" />
+  <img src="Z:/picture/008/save_picture_477310.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Die Apokalyptischen Reiter - Der Rote Reiter (2017) [MP3|320 Kbps] <Melodic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476055.jpg" />
+  <img src="Z:/picture/008/save_picture_476055.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Shadow of Intent - Melancholy (2019) [MP3|320 Kbps] <Symphonic Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475192.jpg" />
+  <img src="Z:/picture/008/save_picture_475192.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Tesseract - 5 альбомов, 2 Ep и 7 прочих релизов (2003-2015
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475180.jpg" />
+  <img src="Z:/picture/008/save_picture_475180.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dagoba - 7 Альбомов (2003-2017) [MP3|320 кб/с]<Groove Metal, Industri
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474137.jpg" />
+  <img src="Z:/picture/008/save_picture_474137.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Korpiklaani - Live At Masters Of Rock (2017) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474025.jpg" />
+  <img src="Z:/picture/008/save_picture_474025.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Lacrimosa - Testimonium (2017) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473645.jpg" />
+  <img src="Z:/picture/008/save_picture_473645.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Omega Diatribe - Metanoia (2020) [MP3|320 Kbps] <Progressive Metal, Groove Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473198.jpg" />
+  <img src="Z:/picture/008/save_picture_473198.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Oceans of Slumber - Oceans of Slumber (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473063.jpg" />
+  <img src="Z:/picture/008/save_picture_473063.jpg" />
 </div>
 
 

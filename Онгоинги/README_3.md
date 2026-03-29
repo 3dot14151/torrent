@@ -1,3 +1,84 @@
+###  Публикация: 1790197   (2892) от 14.09.2025
+
+Tu Bian Yingxiong X | To Be Hero X | Быть героем Икс [2025, WEB, 24 эп.] WEBRip 720 raw
+
+>>След.
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героями не рождаются, героями становятся! Эти слова вдвойне справедливы для альтернативного мира, в котором героем может стать каждый, а, точнее, любой человек, заслуживший достаточное количество людского доверия. Как узнать, что ты способен на подвиги и заработал достаточное количество уважения? Очень просто. Разнообразные данные, касающиеся общественного мнения, (   Читать дальше...   )Производство: Pb Animation Co., Ltd.LANPaper, Plane AnimationЖанр: Пpиключения, фaнтастикаРежиссер: Хаолин ЛиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456F06B69E64C81B9B901F68B6A4D7ECA9A862EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806093   (2551) от 16.09.2025
+
+Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | Космическое шоу ужасов Некрономико [2025, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нам всем нужен шанс изменить свою жизнь!
+История рассказывает о Мико Куроно, которая после окончания средней школы начала свою мечту о карьере стримера под псевдонимом «Necronomico».
+Проводя дни с детской подругой Маю Маюсака и соперницей Канной Кагуразака, она знакомится с новым проектом VR-игры!
+Столкнувшись с игрой, девушки начинают стремиться к «незаменимому (   Читать дальше...   )Производство: Studio GokumiЖанр: приключенияРежиссер: Мацунэ МасатоПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1819B9A9ADC86ED8B1AF04A3A0C59047279FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804764   (2540) от 16.09.2025
+
+Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С нынешними детективами ничего не поделаешь [2025, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нагумо Кэйитиро был гениальным школьным детективом. Для него не было слишком сложных дел. Но что происходит с гениальными детективами, когда они становятся старше? Сейчас ему 35 лет, у него болят бедра, он управляет провальной детективной агентством, у которого нет дел, и с трудом платит за аренду, он находится в тупике. В его офис приходит школьница, которая говорит, (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: комедияРежиссер: Кудзё РионПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5FEA1FC9313FA8514C7616E3ED796186EBAF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804738   (2512) от 16.09.2025
 
 Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час [ТВ-4, ч1] [2025, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +87,7 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2512.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2260.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2255.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2239.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2228.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2227.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2226.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ Muchuu sa, Kimi ni. | Captivated, by You | Других таких нет [2025,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2200.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2096.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ Hikaru ga Shinda Natsu | The Summer Hikaru Died | Лето, когда умер 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2071.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1920.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1744.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1739.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1738.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1716.jpg" />
 </div>
 
 
@@ -398,7 +479,7 @@ Kaoru Hana wa Rin to Saku | The Fragrant Flower Blooms with Dignity | Благо
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1710.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1687.jpg" />
 </div>
 
 
@@ -452,7 +533,7 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1542.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ Jigoku Sensei Nube (2025) | Hell Teacher | Адский учитель Нубэ 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1532.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, T
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1530.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ Uglymug, Epicfighter | Busamen Gachi Fighter | Всё тот же невзрач
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1520.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ Nyaight of the Living Cat / Night of the Living Cat / Ночь живых кош
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1518.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ Hotel Inhumans | Отель для нелюдей [2025, TV, 12 из 13] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1506.jpg" />
 </div>
 
 
@@ -596,86 +677,6 @@ Hotel Inhumans | Отель для нелюдей [2025, TV, 12 из 13] WEBRip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F413DFFD86C2098D7A7477F5B4D7E64B16C7A091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805681   (1496) от 22.09.2025
-
-Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 (2025) | Туалетный мальчик Ханако 2 (часть 2) [2025, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1496.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ханако, Ханако… ты здесь?» В академии Камомэ есть семь тайн — и одну из них зовут Ханако. Призрак, обитающий на третьем этаже старого корпуса, исполнит любое желание — нужно всего лишь постучать по дверце кабинки женского туалета и позвать. Нэнэ Ясиро страшно хочет исполнить своё желание и решает обратиться за помощью к Ханако. Только вот в женском туалете её ждал... (   Читать дальше...   )Производство: LercheЖанр: комедияРежиссер: Фукуи ЁхэйПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ACBA1C032B7AE07BE5C37D2D9ADE8CC2709583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790194   (1386) от 23.09.2025
-
-Summer Pockets / Летние карманы [2025, TV, 25 из 26] WEBRip 720p raw
-
->>След.
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в сельской местности на некоем удалённом острове, а сюжет повествует об «одном ностальгическом лете». Среди главных героинь значатся девушка, забывшая свои летние каникулы; девушка, которая расследует легенду острова; девушка из высшего общества, ищущая пиратский корабль; и девушка в поисках себя.Жанр: повседневность.Режиссер: Кобаяси ТомокиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 26 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31E623A859C7B7541D4D6A00B1E6028958246EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805709   (1381) от 23.09.2025
-
-Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [ТВ-2] [2025, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон Grand Blue.
-
-Описание на первый сезон:После окончания школы Иори Китахара поступает в технический вуз в прибрежном городке Изу. Здесь он планирует следующие несколько лет наслаждаться идеальной студенческой жизнью в доме своего дяди и в компании прекрасных кузин Нанаки и Чисы. Вот только ни Иори, ни его печень не были готовы к тому, что дом дяди окажется (   Читать дальше...   )Жанр: повседневность, комедия, бухло, дайвинг.Режиссер: Такамацу СиндзиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9B7FADCB5A8ECF5FEDF95E7940D79156945109
 ```
 
 https://mybot314.ru/tekegram_catalog/

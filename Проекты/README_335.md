@@ -1,3 +1,347 @@
+###  Публикация: 1678507   (144695) от 21.11.2023
+
+Проекты - VideoHive - Happy New Year Celebrations - 29703735 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144695.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Happy New Year Celebrations» - стильный, элегантный проект для создания рождественского поздравления, вступительного ролика.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427FC626997974B402218E100CA90F92512D1E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969814   (144635) от 28.12.2015
+
+Проекты - Проект ProShow Producer - Пусть много счастья вам подарит Новый год [PSH]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний проект от нашей одноклубницы Hivatusya. Детская презентация.
+Проект отредактирован и пересохранён в PSP-6 в связи с переименованием файлов содержащих в названиях рекламу сторонних ресурсов. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества.
+Автору огромное спасибо за предоставление прав на публикацию (   Читать дальше...   )Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58D328B3E517A314E3D3AB8923C29DA5871B828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969576   (144479) от 28.12.2015
+
+Проекты - VideoHive - Robots 3D christmas special - 841585 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Robots 3D christmas special - новогодний проект в отличной анимацией. Вставляйте свой логотип, изменяйте цвета, руководствуясь видеообучалкой. Звуковые эффекты включены.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAA0C5B967A490455C856DFE2F8244D287811C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969902   (144365) от 28.12.2015
+
+Проекты - VideoHive - Wedding Pages - 1666533 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B101E1921A69264577B39E9D5986AD09608EA935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087748   (144188) от 28.12.2016
+
+Проекты - Motion Array - Glitch Promo - 22031 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо или презентации с потрясающей и динамической анимацией и эффектом глюка.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AF44F4DFB192FB7D7A1EA7537A7151C6BE78DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087690   (144149) от 28.12.2016
+
+Проекты - VideoHive - 30 Minimal Clean Titles - 19180148 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144149.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 Minimal Clean Titles - набор из 30-ти креативных текстовых эффектов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61315DFE876CFB96E33596BD11FB8F0BA6854DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087663   (144064) от 28.12.2016
+
+Проекты - VideoHive - Christmas - 13558162 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas - погрузитесь в Рождественскую сказку с младенцем Иисусом и примите праздничные поздравления.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823D3E7F8F95FFFD87F48559CE2895F9B289024C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087689   (144037) от 28.12.2016
+
+Проекты - VideoHive - Rudolphs Christmas Greetings - 6353438 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rudolphs Christmas Greetings - Создайте свою собственную Новогоднюю Рождественскую анимацию и поделитесь приветствием со своими друзьями или клиентами.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8334D2CC26AC3B996991BA3EAE2A748D9DDA2A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087674   (144018) от 28.12.2016
+
+Проекты - VideoHive - One Wish Christmas Bundle Template - 19067853 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144018.jpg" />
+</div>
+
+
+###  Подробнее
+
+One Wish Christmas Bundle Template - этот Рождественский проект состоит из двух версий. Первая предназначена для изображений, другая только для текста. Перед тем как начать использовать проект, убедитесь, что вы установили плагин Trapcode Particular, так как он требуется для создания снега, волшебной пыли и других частиц.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6590E6C21062EC26605A76A6529887268A363FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087667   (143862) от 28.12.2016
+
+Проекты - VideoHive - Christmas - 19152321 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas - красивый новогодний поздравительный проект.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8704EC575393253E7B4779D2D6C26B940A4142AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435440   (143776) от 28.12.2020
+
+Проекты - Motion Array - Summer Days - 256682 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143776.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Summer Days» - это красивый шаблон After Effects, который стильно показывает зрителю ваши медиа-файлы. Его легко использовать, просто перетащите медиаданные и нажмите рендеринг.
+Отличный способ продемонстрировать свое портфолио, спорт, моду, путешествия, отпуск, друзей и семейные фотографии. Произведите впечатление на свою аудиторию с помощью этого профессионально (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3BA72BE4F62EA3ABF0E553FFDB75DDEC280220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087706   (143634) от 28.12.2016
+
+Проекты - VideoHive - Photo Motion Pro - Professional 3D Photo Animator (v.2) - 13922688 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Motion Pro - Professional 3D Photo Animator - создайте фото-реалистичные анимационныe 3D эффекты из обычного фото. В Photo Motion Pro реализованы сотни интеллектуальных функций, таких как автофокус, глубина резкости, оптические блики и другие. Все происходит в фоновом режиме, так что у вас есть полный контроль над процессом с помощью умного пользовательского (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2A8E8472964D3CDBA3E5A6CA30695D6DF7A828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435612   (143632) от 28.12.2020
+
+Проекты - Motion Array - Christmas Slideshow - 879267 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143632.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Christmas Slideshow» - это потрясающий шаблон After Effects, который содержит очень крутое и креативно анимированное слайд-шоу.
+Вы можете использовать его для отображения большого количества фотографий и видеоклипов. Произведите впечатление на свою аудиторию этим шаблоном AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AAD87741663E63F96FDCE5D5E3D2CB41533124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195320   (143462) от 28.12.2017
 
 Проекты - Проект ProShow Producer - It's Rain [PSH]
@@ -6,7 +350,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143462.jpg" />
 </div>
 
 
@@ -34,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143375.jpg" />
 </div>
 
 
@@ -61,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143371.jpg" />
 </div>
 
 
@@ -89,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143366.jpg" />
 </div>
 
 
@@ -115,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143262.jpg" />
 </div>
 
 
@@ -143,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143231.jpg" />
 </div>
 
 
@@ -169,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143213.jpg" />
 </div>
 
 
@@ -195,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143190.jpg" />
 </div>
 
 
@@ -223,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143179.jpg" />
 </div>
 
 
@@ -249,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143140.jpg" />
 </div>
 
 
@@ -276,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142906.jpg" />
 </div>
 
 
@@ -302,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142251.jpg" />
 </div>
 
 
@@ -328,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142141.jpg" />
 </div>
 
 
@@ -339,352 +683,6 @@ Colorful Titles - набор из 20-ти красочных названий.Ф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A158799B3D56C8EB39843164DB058CA18C0FFE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087984   (142071) от 29.12.2016
-
-Проекты - Проект ProShow Producer - Крекер альбом [PSH]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создан в PSP-7. Презентация на тему "Крекер"
-Проект может быть использован в оригинальном исполнении,
-либо увеличить число страниц.
-Очень простой в редактировании, обычная замена фото.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8813DE406527FAB2FBE9BCBAFC691FEFB28EB23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087943   (142059) от 29.12.2016
-
-Проекты - VideoHive - 16 Christmas Toys Logo Openers - 19046968 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142059.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 Christmas Toys Logo Openers - 16 новогодних различных способов выделить ваш логотип или бренд.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A73678813EBCF95AF5EC502ACC4E7250412396D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087949   (142000) от 29.12.2016
-
-Проекты - VideoHive - Christmas - 18952707 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas - проект для создания поздравительной новогодней открытки и праздничного показа вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EB06A70A6075F3961C0A6C9871A3B2ECDC82A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087940   (141970) от 29.12.2016
-
-Проекты - VideoHive - 120 Animated Emojis - Christmas Pack - 19155211 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141970.jpg" />
-</div>
-
-
-###  Подробнее
-
-120 Animated Emojis - Christmas Pack - набор новогодних анимированных иконок с выражениями эмоций.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18E8A295C745A018B429A02C250FD00B01B3571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088034   (141925) от 29.12.2016
-
-Проекты - VideoHive - Christmas Pop-Up Book - 6484518 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas Pop-Up Book - очередной вариант анимированной книги с выскакивающими персонажами и демонстрацией слайдов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EC45E353F843469C91E1E0334371D9DB274C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087958   (141829) от 29.12.2016
-
-Проекты - VideoHive - Projection Mapping | Logo Reveal Pack - 17144697 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Projection Mapping | Logo Reveal Pack - отображение проекции, как способ выделить ваш логотип.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF5A62C5FE5468F408B712F99228C2AABF9BA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087951   (141819) от 29.12.2016
-
-Проекты - VideoHive - Motion Elements - 19059416 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motion Elements - пакет анимированной графики, который придаст оживления вашей анимации. Здесь представлены различные элементы в большом количестве. В состав проекта входят 116 готовых анимаций (MOV) с альфа-каналом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD25E6E4BDF39CFD1C480B0AF165DF174CEB3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087937   (141770) от 29.12.2016
-
-Проекты - VideoHive - Christmas Logo Opener 7 - parking - 19052178 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas Logo Opener 7 - parking - поздравительная открытка с Санта Клаусом, Оленем и мешком с подарками.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B646FD971C33F0231909E833FFDD8B83919EA992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195472   (141610) от 29.12.2017
-
-Проекты - Motion Array - Christmas Slideshow - 56590 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas Slideshow - это современный и минималистичный шаблон After Effects с исключительным дизайном, изысканной анимацией текста и плавными переходами.
-Этот проект содержит 9 заполнителей для фото или видео и 9 редактируемых текстовых слоев.
-Christmas Slideshow - прекрасный способ отображения ваших воспоминаний, особых случаев, путешествий, каникул, праздников, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A8D8C7DF2C32D64EFFDAEEB30ACDE72300E79E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195489   (141553) от 29.12.2017
-
-Проекты - Motion Array - Christmas Lower Thirds - 55082 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas Lower Thirds - это модный шаблон After Effects с 4 красными и творчески анимированными нижними третями. Они просты в использовании и редактировании.
-Christmas Lower Thirds - это отличный способ улучшить внешний вид ваших корпоративных презентаций, слайд-шоу, телепередач, рекламных роликов, рекламных акций, событий, трейлеров, тизеров, видеороликов Facebook (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA91C546FF2BBE8FBA8FD149D95ED49BBFC06CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194956   (141429) от 29.12.2017
-
-Проекты - VideoHive - Epic Media Opener - 20287403 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания стильных слайд шоу. 15 уникальных сцен для редактирования. Легко подстроить проект под "себя".Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31AC2DBE13CD666F8480D2DFB8DB079EE680688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195477   (141425) от 29.12.2017
-
-Проекты - Motion Array - Christmas Greetings Slides - 54938 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas Greetings Slides - это проект After Effects сделанный с творческим подходом, который позволяет создавать удивительную последовательность титров и потрясающее слайд-шоу, со стильными переходами и красивыми текстовыми анимациями. Этот шаблон содержит 22 редактируемых текстовых слоя, 15 заполнителей для медиа и 1 заполнитель для вашего логотипа.
-Christmas (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86B5CA744E86A63D969137F7379998AED7FA552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195481   (141399) от 29.12.2017
-
-Проекты - VideoHive - Fireworks - 21016680 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141399.jpg" />
-</div>
-
-
-###  Подробнее
-
-С генератором Fireworks вы можете, за считанные минуты создать любой фейерверк, который вы только можете себе представить.
-Этот пакет включает в себя файл .aep и 18 различных, предварительно обработанных, и готовых к использованию файлов (mov) с фейерверками.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED56E8B4D6AADEAE620C09D948B5D9D8B2B0F4DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

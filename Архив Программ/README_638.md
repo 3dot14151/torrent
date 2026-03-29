@@ -6,7 +6,7 @@ Tipard Video Converter Ultimate 9.0.22 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729518.jpg" />
+  <img src="Z:/picture/008/save_picture_729518.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MKVToolNix 11.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729508.jpg" />
+  <img src="Z:/picture/008/save_picture_729508.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CCleaner 5.53.7034 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729460.jpg" />
+  <img src="Z:/picture/008/save_picture_729460.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AVG Internet Security 22.1.3219 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729431.jpg" />
+  <img src="Z:/picture/008/save_picture_729431.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Photoshop Lightroom Classic 11.2.0.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729426.jpg" />
+  <img src="Z:/picture/008/save_picture_729426.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Reg Organizer 7.36 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729379.jpg" />
+  <img src="Z:/picture/008/save_picture_729379.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 Manager 2.0.9 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729377.jpg" />
+  <img src="Z:/picture/008/save_picture_729377.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Windows and Office ISO Download Tool 4.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729359.jpg" />
+  <img src="Z:/picture/008/save_picture_729359.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Reg Organizer 7.36 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729316.jpg" />
+  <img src="Z:/picture/008/save_picture_729316.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AIMP 4.02 Build 1721 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729305.jpg" />
+  <img src="Z:/picture/008/save_picture_729305.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ManyCam Virtual Webcam Free 5.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729291.jpg" />
+  <img src="Z:/picture/008/save_picture_729291.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Acrobat XI (v11.0.20) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729285.jpg" />
+  <img src="Z:/picture/008/save_picture_729285.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729279.jpg" />
+  <img src="Z:/picture/008/save_picture_729279.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ JetBrains IntelliJ IDEA 10.0.3 Build #IU-103.255 Ultimate Edition For Win/Mac/Li
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729269.jpg" />
+  <img src="Z:/picture/005/save_picture_729269.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Reg Organizer 7.36 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729223.jpg" />
+  <img src="Z:/picture/008/save_picture_729223.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Reg Organizer 7.80 Final RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729209.jpg" />
+  <img src="Z:/picture/008/save_picture_729209.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Acrobat Professional DC (v17.9) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729206.jpg" />
+  <img src="Z:/picture/008/save_picture_729206.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Embarcadero RAD Studio 10.2 Tokyo Architect 25.0.26309.314 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729199.jpg" />
+  <img src="Z:/picture/008/save_picture_729199.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729180.jpg" />
+  <img src="Z:/picture/005/save_picture_729180.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Acronis True Image 2016 19.0.6571 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729170.jpg" />
+  <img src="Z:/picture/008/save_picture_729170.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Free Studio 6.6.17.530 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728942.jpg" />
+  <img src="Z:/picture/008/save_picture_728942.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Aiseesoft Screen Recorder 2.2.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728916.jpg" />
+  <img src="Z:/picture/008/save_picture_728916.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ CrystalDiskInfo 8.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728910.jpg" />
+  <img src="Z:/picture/008/save_picture_728910.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SQL Dynamite 2.1.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728899.jpg" />
+  <img src="Z:/picture/008/save_picture_728899.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Maxthon Browser 5.2.7.1000 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728891.jpg" />
+  <img src="Z:/picture/008/save_picture_728891.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Privacy Eraser Free 4.13.0 Build 2002 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728829.jpg" />
+  <img src="Z:/picture/008/save_picture_728829.jpg" />
 </div>
 
 

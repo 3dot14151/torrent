@@ -6,7 +6,7 @@ Gwen Stefani - This Is What the Truth Feels Like (2016) Deluxe Edition [MP3|320 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873776.jpg" />
+  <img src="Z:/picture/008/save_picture_873776.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ TheWorld Browser 7.0.0.102 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873774.jpg" />
+  <img src="Z:/picture/008/save_picture_873774.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Scrutiny 6.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873769.jpg" />
+  <img src="Z:/picture/008/save_picture_873769.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ MyScore 2.5.0 [Ru/En] - Быстрые и точные результаты в 2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873765.jpg" />
+  <img src="Z:/picture/005/save_picture_873765.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Blocs 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873763.jpg" />
+  <img src="Z:/picture/005/save_picture_873763.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ CocCoc 54.2.133 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873762.jpg" />
+  <img src="Z:/picture/008/save_picture_873762.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ iMazing 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873759.jpg" />
+  <img src="Z:/picture/008/save_picture_873759.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ SnapNDrag Pro - organize and edit screenshot 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873757.jpg" />
+  <img src="Z:/picture/008/save_picture_873757.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Mp3tag 2.75 Final RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873689.jpg" />
+  <img src="Z:/picture/008/save_picture_873689.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Aiseesoft Total Media Converter 8.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873685.jpg" />
+  <img src="Z:/picture/008/save_picture_873685.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VueScan Pro 9.5.42 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873677.jpg" />
+  <img src="Z:/picture/008/save_picture_873677.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Mozilla Firefox 45.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873675.jpg" />
+  <img src="Z:/picture/008/save_picture_873675.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873674.jpg" />
+  <img src="Z:/picture/008/save_picture_873674.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ AVG AntiVirus 2016 16.51.7497 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873564.jpg" />
+  <img src="Z:/picture/008/save_picture_873564.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Capture One Pro 9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873563.jpg" />
+  <img src="Z:/picture/008/save_picture_873563.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ WinContig 2.0.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873553.jpg" />
+  <img src="Z:/picture/008/save_picture_873553.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873529.jpg" />
+  <img src="Z:/picture/008/save_picture_873529.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873522.jpg" />
+  <img src="Z:/picture/008/save_picture_873522.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873513.jpg" />
+  <img src="Z:/picture/008/save_picture_873513.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Deliveries Pro v5.2.2 [Ru/Multi] - Трекинг Посылок
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873512.jpg" />
+  <img src="Z:/picture/008/save_picture_873512.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Psyfactor - Retro Scientific (2014) [FLAC|Lossless|WEB-DL]<Psybient, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873502.jpg" />
+  <img src="Z:/picture/008/save_picture_873502.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ AVG Internet Security 2016 16.51.7497 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873447.jpg" />
+  <img src="Z:/picture/008/save_picture_873447.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Armin van Buuren - A State of Trance Official Podcast 161 (25.02.2011) [MP3|320 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873439.jpg" />
+  <img src="Z:/picture/008/save_picture_873439.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Sugar Rush Vol. 3 (23.02.2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873436.jpg" />
+  <img src="Z:/picture/008/save_picture_873436.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ AIMP 4.01 Build 1703 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873419.jpg" />
+  <img src="Z:/picture/008/save_picture_873419.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_873418.jpg" />
+  <img src="Z:/picture/009/save_picture_873418.jpg" />
 </div>
 
 

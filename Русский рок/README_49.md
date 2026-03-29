@@ -1,3 +1,116 @@
+###  Публикация: 8835   (593182) от 29.06.2018
+
+Машина Времени - 11 альбомов (1989, 1994, 1998-2002) [mp3|192 Kbps]
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Русский РокПродолжительность: 07:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120A8020F4E8C0B91B127C3A472F516DA91CE7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300714   (592764) от 07.05.2019
+
+Павел Пиковский & группа Хьюго - Сказки Хьюго (2014) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592764.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Антивоенный джаз
+2. Кали-юга
+3. Хьюго
+4. Края моей раны(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EECEE047FBC2C9F3D3B0ECC8CDFF37C12A97048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915317   (591954) от 06.07.2015
+
+Fferyllt - Achanterez (2015) [MP3|320 кб/с]<Folk Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591954.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Call Of The Wild
+2. Disciples Of War
+3. A Sprengisandi
+4. The Final Sunrise(   Читать дальше...   )Жанр: Folk Metal, Symphonic MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A63EE90AD82002312F66113AB478A42C3DF31A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915437   (591901) от 06.07.2015
+
+Море Fиджи - Твоя Эволюция (2015) [MP3|320 кб/с]<Rock, Grunge, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Привет
+02. Твоя Эволюция
+03. Темный Снег
+04. Вернусь(   Читать дальше...   )Жанр: Rock, Grunge, AlternativeПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9029C994DE14294FE3CA7F55ABE7D90EE1C05027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916587   (590412) от 09.07.2015
 
 Смута - Путь (2015) [MP3|320 кб/с]<Pagan Metal, Folk Metal>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590412.jpg" />
+  <img src="Z:/picture/008/save_picture_590412.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589986.jpg" />
+  <img src="Z:/picture/008/save_picture_589986.jpg" />
 </div>
 
 
@@ -61,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589753.jpg" />
+  <img src="Z:/picture/008/save_picture_589753.jpg" />
 </div>
 
 
@@ -90,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589712.jpg" />
+  <img src="Z:/picture/008/save_picture_589712.jpg" />
 </div>
 
 
@@ -118,7 +231,7 @@ Ravanna - Девять Кругов (2022) [MP3|320 Kbps] <Alternative Metal, Po
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588960.jpg" />
+  <img src="Z:/picture/008/save_picture_588960.jpg" />
 </div>
 
 
@@ -147,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588910.jpg" />
+  <img src="Z:/picture/008/save_picture_588910.jpg" />
 </div>
 
 
@@ -176,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588486.jpg" />
+  <img src="Z:/picture/008/save_picture_588486.jpg" />
 </div>
 
 
@@ -203,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588473.jpg" />
+  <img src="Z:/picture/008/save_picture_588473.jpg" />
 </div>
 
 
@@ -232,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588257.jpg" />
+  <img src="Z:/picture/008/save_picture_588257.jpg" />
 </div>
 
 
@@ -261,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588172.jpg" />
+  <img src="Z:/picture/008/save_picture_588172.jpg" />
 </div>
 
 
@@ -290,7 +403,7 @@ Ocean Jet - Vengeance (LP)/Echoes (EP) (2013-2015) [MP3|320 Kbps] <Indie Rock, E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587361.jpg" />
+  <img src="Z:/picture/008/save_picture_587361.jpg" />
 </div>
 
 
@@ -319,7 +432,7 @@ Stay Away - Моя неласковая Русь (2022) [MP3|320 Kbps] <Punk Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586743.jpg" />
+  <img src="Z:/picture/008/save_picture_586743.jpg" />
 </div>
 
 
@@ -348,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585825.jpg" />
+  <img src="Z:/picture/008/save_picture_585825.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ De Libertas - 6 Relises (2016-2022) [MP3|320 Kbps] <Russian Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585782.jpg" />
+  <img src="Z:/picture/008/save_picture_585782.jpg" />
 </div>
 
 
@@ -413,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585731.jpg" />
+  <img src="Z:/picture/008/save_picture_585731.jpg" />
 </div>
 
 
@@ -442,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584767.jpg" />
+  <img src="Z:/picture/008/save_picture_584767.jpg" />
 </div>
 
 
@@ -471,7 +584,7 @@ S.P.O.R.T. - The Best (2016) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583365.jpg" />
+  <img src="Z:/picture/008/save_picture_583365.jpg" />
 </div>
 
 
@@ -500,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582930.jpg" />
+  <img src="Z:/picture/008/save_picture_582930.jpg" />
 </div>
 
 
@@ -529,7 +642,7 @@ Fatal - Karmageddon (2022) [MP3|320 Kbps] <Russian Beatdown Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581967.jpg" />
+  <img src="Z:/picture/008/save_picture_581967.jpg" />
 </div>
 
 
@@ -558,7 +671,7 @@ CG Bros - Жизнь За Зря (2011) [MP3|320 kbps]<Punk-Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581900.jpg" />
+  <img src="Z:/picture/008/save_picture_581900.jpg" />
 </div>
 
 
@@ -593,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580924.jpg" />
+  <img src="Z:/picture/008/save_picture_580924.jpg" />
 </div>
 
 
@@ -622,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580531.jpg" />
+  <img src="Z:/picture/008/save_picture_580531.jpg" />
 </div>
 
 
@@ -636,122 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E9FB60BDB6E642DE8759684D081DEDD400C96E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920260   (580126) от 22.07.2015
-
-Deform - Dominanta (2015) [MP3|320 кб/с]<Alternative, Gothic, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмой по счету релиз группы за двенадцатилетнее существование коллектива и третья масштабная альбомная работа, продюсером которой на этот раз официально выступил сам Deformator – автор песен и фронт-мен группы. Пластинка включает 18 треков, записанных за 2,5 года работы над альбомом в довольно непростых условиях создания и записи песен, куда вошли несколько совместных (   Читать дальше...   )01. Ода Конца Времен
-02. Тень Города
-03. Чертополох
-04. Шторм(   Читать дальше...   )Жанр: Alternative, Gothic, IndustrialПродолжительность: 01:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146191A8ADAEA70A9F5C701CF47B0618257C5246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302731   (579214) от 17.05.2019
-
-Звери - У тебя в голове (2019) EP [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579214.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вездеходик
-2. Лунатик
-3. Котёнок
-4. Мотылёк(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DA76E897178C6DB350F93EA28930FDB73A63C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733892   (579079) от 17.05.2019
-
-Садъ - 11 альбомов (1990-2013) Дискография [MP3|320 kbps]<Rock/Folk-Rock/Folk-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колхозный панк (03:06)
-02. Инди (02:09)
-03. Песня не та (03:33)
-04. Маринка (03:40)(   Читать дальше...   )Жанр: Rock, Folk-Rock, Folk-PunkПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8345B1C96912499CB13080596246B0A23F7C4B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553589   (577615) от 30.05.2022
-
-Сектор Газовой Атаки - Ненависти вопреки (2022) [MP3|320 Kbps] <Russian Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не служил [00:03:09]
-02. Lips [00:03:10]
-03. Своей дорогой feat. ДМЦ, Наконечный [00:04:23]
-04. Все за тебя решено [00:04:01](   Читать дальше...   )Жанр: Russian Punk RockПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DC2462FFE1317AC94B54A858DA2E0646CCA70B
 ```
 
 https://mybot314.ru/tekegram_catalog/
